@@ -1,37 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《文贵说》| 图片连载（八十三）
-` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1266247/)
+## 【快讯】英国爆将审查大学内的中共国间谍
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1267603/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23093532/G2101021_X_CN.jpg)
-**没有行动的任何承诺都是欺骗! 任何的千言万语不如一个行动。**
+环球时报今天报道说：
 
-**—— 郭文贵先生 2017年6月26日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23093550/G2101022_X_CN.jpg)
-**佛家讲的很清楚，贪、嗔、痴、慢、疑，那都是一种贪名，贪名之人是最可怜的，还有贪权之人，那更可怜，百年以后都成黄土，有什么意思啊。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23215435/213.jpg)
 
-**—— 郭文贵先生 2017年5月21日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23093608/G2101023_X_CN.jpg)
-**任何事情不能依靠别人，主要靠自己，如果所有人都保持沉默，都寄希望于别人为自己做事情，这比盗国贼腐败还可怕! **
+简评：
 
-**—— 郭文贵先生 2017年6月3日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23093626/G2101024_X_CN.jpg)
-**解决恐惧的唯一方式，就是实力和忘掉恐惧來面对恐惧。所有的抱怨，都是无能和懦弱的。**
+作为被中共国渗透最为严重的英国，藏有中共最多的财富，蓝金黄的间谍。和中共政府的高级官员的配偶和子女。
 
-**—— 郭文贵先生 2017年6月3日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23093646/G2101025_X_CN.jpg)
-**任何有能力、有理想、有执行力的人，一定不会抱怨，也不会随意批评别人。**
+这次清查如属实，表明英国在紧跟美国的步伐，开始清理内部蓝金黄的力量。另外，此时由中共环球放出这篇文章， 又有通风报信，或者诱骗海外留学生回国的嫌疑？
 
-**—— 郭文贵先生 2017年6月3日**
+加入新联帮，与中共彻底分割，海外的无辜的留学生应该行动起来了，联系爆料革命，争做污点证人，海外大学里的间谍们可以行动起来了，
+
+参考链接：
 
 
 
-- **更多精美海报请点击:**
-- [***Getome 文贵说｜Words From Miles***](https://getome.com/user/wordsfrommiles)
-- [***G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4#getter)
+> 英國也開始了 [pic.twitter.com/ZsPYFqapow](https://t.co/ZsPYFqapow)
+> — Andy5 (@andy5\_123) [May 24, 2021](https://twitter.com/andy5_123/status/1396637106949165056?ref_src=twsrc%5Etfw)
 
 
 
+新闻采编：康州盘古农场新闻组
+
+整理撰稿：蓝精灵
+
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 +1

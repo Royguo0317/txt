@@ -1,101 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 杰克·基恩（Jack Keane）：以色列对哈马斯领导层，地下隧道造成了“重大损害”
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1266153/)
+## 【拆台新闻】中共芯片业又一烂尾工程 济南泉芯停摆
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1267390/)
 
-字幕内容：
+简评：
 
-Brian Kilmeade
+又一骗取国家资金的重大项目烂尾。着种情况布置仅限于半导体行业。
 
-布莱恩·基尔梅德（Brian Kilmeade）
+中共国的行业发展和产业升级似乎一直在一个怪圈里。每当中共领导人进行一项新的投资决定时，会出台一些新的政策，从资金贷款，税收方面扶持某个行业，用的词语一般是“为了振兴民族工业，”“争取赶上世界科技前列”“解决卡脖子问题”，银行开始规模性审批贷款，各地政府都开始做同一个项目。
 
-General, did Israel stop the right time?
+在中共国，做项目的目的并不是为了把项目做好，它最终的目的都是要贷款， 零成本拿老百姓的钱，
 
-将军，以色列停火是时候吗？
+以下是新闻摘要：
 
-General Jack Keane
+据中央社23日消息，中国半导体业再传烂尾，投资规模达人民币598亿元的济南泉芯，4 月起停发薪资，工程陆续停摆，其中有180名是台籍工程师。
 
-杰克·基恩将军
+报导说，泉芯400多名员工中，有180名是从台湾挖角的台籍工程师，其平均月薪在人民币5万至10万元之间。
 
-Well, we don’t know that for sure
+报导引这项专案环评报告指出，泉芯当时夸下海口将建设12奈米厂，年产48万片晶圆和2400件光罩。而在济南政府大力协助之下，厂区于2019年第一季开始动工。但如今工程停摆、计画遣散员工，加上日前订购了大量设备并已支付约17亿元的订金，都成了济南政府的烫手山芋。
 
-好吧，我们不确定
+据公开资讯，泉芯成立于2019年1月底，三大股东分别为逸芯积体电路（珠海）有限公司、济南高新控股集团有限公司和济南产业发展投资集团有限公司，后两者均隶属济南国资委。
 
-I mean, I believe the Prime Minister Netanyahu from the outset
+参考链接：
 
-我的意思是，我相信内塔尼亚胡总理从一开始就
+[https://www.rfa.org/mandarin/Xinwen/2-05232021113011.html](https://www.rfa.org/mandarin/Xinwen/2-05232021113011.html)
 
-when he when he got this fuselage of an unprovoked attack on Israeli people
+图片来源：[https://www.rfa.org/](https://www.rfa.org/mandarin/Xinwen/2-05232021113011.html)
 
-当他得到对以色列人民的无端攻击的事实时
+新闻采编：康州盘古农场新闻组
 
-he made his mind that he was going to degrade their military capability
+整理撰稿：蓝精灵
 
-他下定决心他要降低他们的军事能力
+校对发布：Penny
 
-rather significantly in his quick time as he possibly could,
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-相当显著的在他可能的快速时间内
-
-and I think he dismissed  the idea of a ground invasion
-
-并且我认为他取消了地面入侵的想法
-
-that took place in 2014, which lasted almost  50 days
-
-发生在2014年，持续了几乎50天
-
-and result in a lot of condemnation against Israel
-
-从而导致了当时以色列受到很多谴责
-
-because of that, but only, only they know,
-
-因为那个，但是只有他们知道
-
-but I assumed just from sources that they have done significant damage to Hamas
-
-但我仅从消息来源推测，他们已经对哈马斯
-
-and the Palestinian Islamic Jihad’s infrastructure,
-
-和巴勒斯坦伊斯兰圣战组织的基础设施造成了重大的损害
-
-just their rockets and missiles and launchers,
-
-他们的火箭，导弹和发射器
-
-but also that tunnel network which one is 9 to 12 miles underneath
-
-而且还有在加沙城地下9到12英里的隧道网络
-
-that the Gaza City，  it’s very significant part of their support structure
-
-这是他们支持结构中非常重要的一部分
-
-and they took down a lot of their leaders as well
-
-他们也消灭了很多领导人
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 https://www.foxnews.com/media/jack-keane-hamas-leadership-underground-tunnels-damage-israel-conflict-ceasefire
-
-英听校：    康州盘古农场 – Layka
-
-翻译：       康州盘古农场 – Layka
-
-翻译终校：康州盘古农场 – Mike Li
-
-字幕+视频制作：康州盘古农场-天涯行
-
-审片：康州盘古农场-银龙
-
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++2

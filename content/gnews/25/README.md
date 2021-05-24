@@ -1,55 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【医疗前沿世界】有些年轻人在注射SARS-CoV-2 mRNA疫苗后出现心肌炎
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1266489/)
+## 《路德时评》重磅解读美韩正式发布联合声明
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1267557/)
 
-作者： 纽约香草山医疗部 云豹
-
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
+直播视频：
 
 
 
-根据美国疾病管制中心CDC的最新公告，有些年轻人及青少年在接受SARS-CoV-2的mRNA疫苗注射后出现了心肌炎的病症。CDC并未说明实际有多少人出现此副作用，只说明主要发生于青少年和年轻人，以男性为多数。这些病例通常发生在接种mRNA疫苗后的四天内。CDC没有具体说明是哪些疫苗发现此问题。目前在美国获得紧急授权的基因疫苗公司有两家，分别是默德纳Moderna公司以及辉瑞公司Pfizer/BioNTech。CDC说需要进一步研究这种罕见的副作用。
+《路德时评》2021年5月23日早间节目主要内容：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23101111/%E6%9C%AA%E5%91%BD%E5%90%8D%E7%9A%84%E8%AE%BE%E8%AE%A1-37-1.png)
+**·** 美韩正式发布联合声明
 
-以色列在四月也曾报告在注射辉瑞 Pfizer/BioNTech的mRNA疫苗后发现有少数年轻人出现心肌炎的病症。根据《以色列时报》所述，从以色列卫生部的一份报告中发现，使用辉瑞疫苗的患者中有62例出现了心肌炎病症，发生的几率大约是疫苗注射者的0.001％。这些疫苗注射后出现心肌炎病症的患者，大部分发生在30岁以下的男性中，其中有2人死亡，分别为22岁的女性和35岁的男性。据报道，两人在接种疫苗之前身体健康。
+5月21日，美韩两国正式发布联合声明[\[1\]](https://www.whitehouse.gov/briefing-room/statements-releases/2021/05/21/u-s-rok-leaders-joint-statement/)：随着中共病毒、气候变化等多方面因素对全球造成巨大影响，美韩两国将重建两国联盟。
 
-心肌炎是指心脏本身的肌肉发炎。心脏肌肉负责心脏收缩的功能，经由心脏的舒张及收缩，让血液进出心脏，并将血液送到全身，供应身体各部分细胞所需的氧气及营养。所以心肌炎发生时会影响到心脏将血液送到全身的功能，严重时可能导致死亡。
+美韩两国将根据《美韩相互防卫条约》帮韩国增加其军事威慑力，同时要共同解决朝鲜半岛无核化问题，美国已经明确要解决半岛无核化问题。美国还将帮助韩国增加其在印太地区，包括南海的影响力。
 
-许多原因都可能引起心肌炎，例如流感病毒、腺病毒、有毒化学物、放射线、自体免疫疾病、药物、细菌感染等都可能造成心肌炎的病症。以前在注射流感疫苗后曾发现过导致心肌炎的病例。所以此次在注射SARS-CoV-2辉瑞疫苗后出现心肌炎病症并非不可能。
+在商业合作领域，两国还将加强全球健康、新兴技术、供应链等多方面的合作，两国还将共同解决中共病毒大流行问题。
 
-在出现注射疫苗短期内发生心肌炎的病例后，不论政府官方还是药厂都是维持其惯常的说词：无法确定这些事件与注射疫苗有相关性，应该更注重注射疫苗后的好处，我们会再继续观察及研究这些变化。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23212248/%E7%BE%8E%E9%9F%A9%E8%81%94%E5%90%88%E5%A3%B0%E6%98%8E-1.jpg)[美韩联合声明](https://www.whitehouse.gov/briefing-room/statements-releases/2021/05/21/u-s-rok-leaders-joint-statement/)
 
-民众应该更留意的是，目前市场上可使用的SARS-CoV-2疫苗都只有紧急状态下的特许执照，并非依照疫苗研发正常程序生产出来的，所以等于是实验性的产品，安全性不明，所以民众要自己认真评估接受疫苗注射的风险。
+路德社评论：
 
-(本文是作者观点，不代表G NEWS的立场)
+1、美韩联合声明开头就回溯历史，正视现实并展望未来。此份联合声明明确告诉文在寅，韩国之所以有今天的繁荣是联合国军在朝鲜战争中用数万条生命和无数财富换来的，否则韩国将成为今天的朝鲜，所以，韩国从道义上不应保持中立关系。由于中共的对外军事扩张和超限生物武器导致东北亚局势越发复杂，美韩两国必须重新发布联合声明。
 
-参考资料：
+2、美国明确将最大程度保障韩国安全，应对北朝鲜可能发起的军事打击，美国也将帮助韩国发展科技和军事实力，让韩国具备自我保护能力，只要朝鲜发动军事行动，美国可以直接对朝鲜高层实施斩首行动。
 
-https://www.reuters.com/business/healthcare-pharmaceuticals/us-cdc-investigating-heart-problem-few-young-vaccine-recipients-nyt-2021-05-22/
+3、美国也明确将彻底解决朝鲜无核化问题，此前中共推动的朝鲜去核化却让朝鲜导弹实力越来越强，接下来拜登政府肯定要施压北朝鲜，在限定时间内做到无核化，否则美国将对朝鲜采取军事行动。朝鲜背后是中共，美国若想解决朝鲜无核化问题，就要帮助韩国应对朝鲜可能发起的原子弹攻击和导弹攻击，可见美国已经在军事防御上做好充分的准备。川普总统在位期间就是想解决朝鲜无核化问题，最后都由于韩国文在寅的担心而搁浅，拜登政府审查完川普总统关于朝鲜无核化的所有资料后也意识到必须解决朝鲜无核化问题。
 
-https://www.reuters.com/world/middle-east/israel-examining-heart-inflammation-cases-people-who-received-pfizer-covid-shot-2021-04-25/
+4、联合声明明确美国将帮助韩国提升其在印太地区和南海的影响力，那美国就得帮助韩国发展海上装备，由于韩国文化深受中国文化影响，崛起后的韩国还能成为美国在东亚地区的代言人。
 
-https://www.health.com/condition/infectious-diseases/coronavirus/pfizer-vaccine-heart-inflammation-myocarditis
+5、美韩之所以联手对抗中共的最大驱动力就是中共病毒疫情，两国也明确将联手解决中共病毒疫情问题，以及预防大流行病再次发生。除此之外，美韩两国还将开展5G等商业领域合作，只有政治所到之处，商业才能站得住脚，随着韩国政治势力的扩张，这也将帮助韩国企业进行国际扩张，进而跟中共的“一带一路”计划竞争。中共推动的“一带一路”计划，就是先派中共政府官员先搞定“一带一路”国家的政府和领导，然后再让中共国企业占领当地市场。
 
-https://www.timesofisrael.com/israel-said-probing-link-between-pfizer-shot-and-heart-problem-in-men-under-30/
+6、美国除了解决朝鲜无核化问题，还要帮助韩国开拓海外市场，发展经济实力，这样才能让韩国摆脱对中共国的依赖，并与中共国的“一带一路”计划竞争，这就是纳瓦罗先生在川普政府时期为美国设计好的改革方案之一。
 
-校对/发稿：飞虹
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
+参考文章：
 
-**更多资讯，更多关注**
+[1][https://www.whitehouse.gov/briefing-room/statements-releases/2021/05/21/u-s-rok-leaders-joint-statement/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/05/21/u-s-rok-leaders-joint-statement/)
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+文章撰写：【重生】  编辑：【香柏树】
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+本文仅代表作者个人观点
 
 +2

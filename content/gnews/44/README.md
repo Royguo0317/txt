@@ -1,27 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度感染病毒中的“黑木耳”
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1264421/)
+## 【快訊】新的情報 武漢實驗室人員在確診暴發前出現癥狀已住院
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1267359/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年5月22日
-翻译 /整理/ 简评： Shuizhuyu
+根據《華爾街日報》周日獲得和報道的最新披露的美國情報，在武漢病毒學實驗室工作的三名研究人員在12月8日在中國確認首例Covid-19病例數周前就住院了Covid-19的癥狀。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22085925/onder-ortel-sWjEqvh3UQE-unsplash-scaled.jpg)
+國務院此前曾報道說，美國官員“有理由相信”武漢病毒學研究所內部的幾位研究人員去年秋天出現“與COVID-19和常見季節性疾病相一致的癥狀”，但並未具體說明這些研究人員已住院治療，或他們生病的確切時間。
 
+據報道，不願透露姓名的熟悉情報工作的官員向《華爾街日報》提供了有關新信息真實性的各種說法，其中一個人說，它需要進一步調查，而另一人則稱它“非常精確”。
 
-印度总理纳伦德拉·莫迪（Narendra Modi）警告说，病毒患者中会传播一种罕见且致命的真菌病。这位政治家周五说，这是他的国家目前正在经历的第二次强烈病毒浪潮中的另一个挑战。
+但是，在報告發布後，世衛組織負責人特德羅斯·吉布裏亞索斯（Tedros Ghebreyesus）呼籲對此事進行更深入的調查，稱調查未能充分評估實驗室泄漏的可能性。
 
-印度一直遭受冠状病毒迅速传播，氧气和药物供应瓶颈的困扰，长达数周之久。如今，在病毒名患者中，这种疾病还被称为粘菌病（也称为黑木耳）的感染所困扰。在过去的24小时内，印度人口超过13亿，据报告，该疾病涉及259,000例感染和4209例死亡。
+福布斯正在等待國務院的評論。
 
-感染会导致严重的症状，并且通常是致命的。这种疾病实际上是罕见的，但是在印度第二次强烈病毒波期间，它已经发生了上千次。
+參考鏈接：
 
-简评：中共病毒大流行， 在印度是最惨烈的， 尤其在新闻的视频和图片中。 这些鲜明的视频和图片让所有人感到了恐惧。 现在又出来了这样的怪现象。 这是在其他国家至今还没有发现的。 这是中共病毒印度变种的特性吗？没有人知道。 这个感染是致命的。 已经导致了几千人死亡。
+[https://www.forbes.com/sites/jonathanponciano/2021/05/23/report-wuhan-lab-staff-hospitalized-covid-19-symptoms-virus-origins/?utm\_campaign=forbes&utm\_source=twitter&utm\_medium=social&utm\_term=Gordie&sh=23d9552b4bd9](https://www.forbes.com/sites/jonathanponciano/2021/05/23/report-wuhan-lab-staff-hospitalized-covid-19-symptoms-virus-origins/?utm_campaign=forbes&amp;utm_source=twitter&amp;utm_medium=social&amp;utm_term=Gordie&amp;sh=23d9552b4bd9)
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+圖片來源：https://www.forbes.com/
 
-🔗[Indien-Was-hinter-dem-Schwarzen-Pilz-steckt-der-Corona-Patienten-befaellt](https://www.welt.de/wissenschaft/article231302471/Indien-Was-hinter-dem-Schwarzen-Pilz-steckt-der-Corona-Patienten-befaellt.html)
+整理撰稿：藍精靈
 
-+1
+校對發布：Penny
+
+*以上僅代表作者觀點，不代表Gnews平臺*
+
++3
