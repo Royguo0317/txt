@@ -1,46 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 抖音母公司利用中国共产党官员作为招聘宣传材料
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1267915/)
+## 【热播快译】独家:中共已然渗透到美国德特里克堡的军事生物防御计划之中
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1267886/)
 
-翻译：康州盘古 – 郭班之樱
+翻译：休斯顿星光农场 写作部 H.B
+![]()![](https://cdn.discordapp.com/attachments/790381841571119135/844813179950727178/Screenshot_2021-03-25_230524.jpg)
+**令人震惊的故事：中共如何渗透到位于德特里克堡的美国军事生物防御项目中**
 
-校对：康州盘古- Mike Li
+中共国外交部发言人华春莹宣扬阴谋论，说德特里克堡是COVID-19病毒的起源。尽管这种说法是明显荒谬的，但考虑到在此实验室工作的中共国科学家可能获得了大量的知识和技能，因此这种说法是有一定的道理。不要搞错了，这显然是中共军方通过 “监听”的方式获得的。
 
-审核：康州盘古- 傻小子
+**重要的是要认清这样一个事实：**
 
-发布：康州盘古农场 – 彩虹 Rainbow
+在中共国，民用研究与军用研究之间没有任何区别。 尽管在此之前是非正式的，但中国共产党在2016年的 “十三五 “规划中宣布，将民用和军用研究融合成为一个正式目标。
 
-**据《国家脉动》作者：娜塔莉·温特斯，2021年5月21日发布**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235505/phone4.jpg)
-《字节跳动》公司与中共国政府之间的旋转门是该公司的应用程序抖音受到了中共渗透侵害的又一证据。
+还有一个事实是，更多时候，在中共国（PRC）出生和培养的科学家，即使在成为美国公民后，也从未完全切断与本国大学和研究机构的联系，其中许多机构与中国人民解放军（PLA）有关。
 
-简·波尔图（Jian Porto），自2016年以来一直在字节跳动工作，他在加入该公司之前曾担任为期六年的中国共产党官员。 Jian Porto目前是字节跳动在巴西的国家经理，他在2010年至2011年期间担任中共国外交部外交官，重点研究“拉丁美洲和加勒比海问题”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235635/papela.png)
-从2011年到加入抖音的母公司之前，Jian Porto一直是中共国驻巴西里约热内卢总领事馆的副领事。 在中国共产党外交职位上卸任以后，他随即加入了字节跳动担任内容整合服务总监，之后被提升为娱乐服务总监，随后又升任现职的巴西国家经理。
+位于德特里克堡的美国陆军传染病医学研究所（USAMRIID）长期以来一直是解放军的间谍活动目标。而位于德特里克堡内、离USAMRIID只有几分钟的步行路程的弗雷德里克国家癌症研究实验室则是中共解放军进入完成间谍活动的途径。
 
-Jian Porto对字节跳动的夸赞在公司招聘工作中得到了显着的体现。 宣传材料援引他的讲话说：“公司的文化对员工而言是独特的和个性化的，与个人价值观相结合，可以使两者都朝着他们的目标迈进。”
+我们将介绍一个案例，因为例子太多，无法在此全部记录，但它们将在未来的文章中讨论。
 
-Jian Porto也出现在广告系列中。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235547/sasas.jpg)
-**JIAN PORTO用的宣传材料**
+在2007年的一个题为”人类单克隆抗体对SARS冠状病毒分离物的有效交叉反应性中和”的科学出版物中，介绍了关于在2002-2004年发现的第一次SARS大流行中发现的冠状病毒。它的作者由来自弗雷德里克国家癌症研究实验室、USAMRIID的病毒学部门和安东尼·福奇（Anthony Fauci）博士的国家过敏与传染病研究所（NIAID）的科学家们合作完成。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24011152/Screenshot-2021-05-24-001010.jpg)
+**令人感兴趣的个人作者**
 
-该公司公开承认在招聘过程中会优先考虑中共党员。在分享的一份招聘启事中宣布“首先考虑中共党员”，并列出其理想招聘对象为“爱好新闻阅读，关心时事，并具有良好的政治敏感性和判断力”的人。
+人们首先注意到的是两名中共国培养的弗雷德里克国家癌症研究实验室科学家**朱中玉**和**肖晓东**。他们的工作与其说是处理癌症，不如说是处理病毒，其中许多病毒是高度危险的病原体，中共国的生物战计划也在研究这些病原体。
 
-然而，Jian Porto并不是唯一的中共官员工作于该公司。
+另一位作者是解放军训练有素的**姜世波**。在回到中共国担任上海复旦大学的教授之前，姜世波与纽约血液中心的林兹利-F-金博尔研究所合作了近二十年。在这近二十年间，他与美国其他主要的病毒研究实验室建立了广泛的合作研究网络，并获得了超过1700万美元的美国研究资助，其中绝大部分来自安东尼·福奇（Anthony Fauci）博士的NIAID。
 
-窦简（Jane Dou），自2018年以来一直在字节跳动工作，她也曾在中共国外交部任职。 在LinkedIn（一个通过网站和移动应用程序运营的美国商业和就业导向型的在线服务）上，她将自己列为2012年在国家主席习近平办公室工作的新闻翻译。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235533/sasaq.png)
-现在，窦担任字节跳动管理办公室的首席执行官，负责监督许多任务，其中包括“机密项目”。 在担任此职位之前，她曾担任字节跳动全球传播高级经理和国际产品公共事务主管。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235516/okol.png)
-Natalie Winters
-娜塔莉·温特斯（Natalie Winters）是《国家脉动》的调查记者，也是《国家脉动》播客的撰稿人。
+同时，姜世波与中共国的解放军实验室保持着广泛的合作研究，这里有详细描述，同时邀请与中共军方有联系的科学家进入他的美国实验室并进行培训，如引用的2007年出版物的另一位作者**何玉贤**。
 
-原文链接：[https://thenationalpulse.com/breaking/tiktok-uses-ccp-official-in-hiring-promo/](https://thenationalpulse.com/breaking/tiktok-uses-ccp-official-in-hiring-promo/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+据信姜世波参与了在COVID-19病毒中插入furin蛋白酶切位点的工作，这是证明其实验室来源的 “烟幕弹 “证据。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**王林发**在武汉病毒研究所工作，是 “蝙蝠女 “石正丽的长期合作者。
+
+北卡罗来纳大学的**拉尔夫·巴里奇**是世界上最臭名昭著的 “功能增强实验 “研究者之一，他也曾与武汉病毒研究所的石正丽以及其他一些人合作，他们的关系最终都指向解放军（PLA）。
+
+一位接受过中共国培训的科学家**曾宪坤**通过弗雷德里克国家癌症研究实验室的途径，现在在美国陆军传染病医学研究所（USAMRIID）工作，是安东尼·福奇在德特里克堡的NIAID综合研究机构的一部分。换句话说，曾宪坤可以接触到美国军方和NIAID关于美国生物战防御的最敏感信息。
+
+曾宪坤在中共国南京东南大学生命科学学院发育基因与人类疾病教育部重点实验室获得博士学位。该实验室与南京军区有密切的合作，现在是解放军东部战区司令部的一部分。最近一次是在2015年10月，曾宪坤仍然声称与南京的东南大学有联系。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24011848/Screenshot-2021-05-24-001246.jpg)
+正如The Gateway Pundit在2021年5月20日的文章中所说，COVID-19病毒的创造和交付似乎与南京的解放军东部战区司令部有关，特别是解放军军官王长俊。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24011942/Screenshot-2021-05-24-001316.jpg)
+即使在受雇于USAMRIID期间，曾宪坤仍与中共国的病毒研究项目保持密切联系，图为2018年10月9日在武汉病毒学研究所做关于致命的埃博拉和马尔堡病毒的讲座。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24012036/Screenshot-2021-05-24-001353.jpg)
+信息来源：[https://www.thegatewaypundit.com/2021/05/exclusive-china-infiltrated-u-s-military-biodefense-program-fort-detrick/](https://www.thegatewaypundit.com/2021/05/exclusive-china-infiltrated-u-s-military-biodefense-program-fort-detrick/)
+
+校对：文顺 发稿：爱丽丝
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
+
 
 0

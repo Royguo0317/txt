@@ -1,40 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/23 霍顿议员：每个证据都指向病毒来自武汉实验室
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1268299/)
+## 【快讯】香港货币交易所只开放给专业大户
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1268447/)
 
-视频字幕：云岭 | 听写：势不可挡 | 翻译：Roberts| 翻译校正：云岭 |简评/文字整理/编辑：胖丁|Page：小雨
+#### 整理撰稿：蓝精灵
 
-**简评：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24042849/i_sasfsfgsrc_028103303.jpg)
 
-参议员霍顿（Tom Bryant Cotton）在2020年2月首次提出病毒的起源和武汉实验室有关。至今他仍然坚持这个观点。现在所有的证据都指向武汉实验室。拜登政府必须要求中共给出事实真相。
+根据周五发布的政府建议，在香港运营的加密货币交易所必须获得香港市场监管机构的许可，并且只能向专业投资者提供服务。
 
+香港有数十家加密货币交易所，其中包括一些世界上最大的交易所。该市目前采用“选择加入”的方式，交易所可以申请由市场监督机构美国证券和期货事务监察委员会（SEC）许可。
 
+FSTB周五在其咨询结论中表示，如果所有虚拟资产（加密货币）交易所希望在香港经营，则应获得许可。它还说：“至少在许可制度的初始阶段，将VA交易所的服务限制给专业投资者……是适当的。”
 
-[GTV链接](https://gtv.org/video/id=60aafcba744cbc4313638f23)
+本地金融技术和加密货币行业协会，反对法规禁止交易所向散户投资者提供服务，警告这可能将交易所驱逐出香港，并将投资者推向不受监管的场所。
 
-**视频字幕：**
+根据香港法律，个人必须拥有800万港元（103万美元）的投资组合才能算作专业投资者。
 
-**主持人玛丽亚**：汤姆•霍頓是首位在2020年2月就认为新冠病毒也许和武汉实验室有关的议员。参议员，你诚实地告诉了我们这件事情，这对我们的观众来说意义重大，感谢你！你现在对去年所了解的事情仍然坚持原来的观点吗？
+中国周二宣布了对银行和支付公司提供与加密相关的服务的更严格的禁令，这进一步加剧了抛售，短暂地抹去了1万亿美元的加密市值。
 
-**霍顿：**玛丽亚，很难相信，距你和我第一次讨论已经15个月了。我认为我们绝大多数的讨论都围绕一个非常常识的命题。
+简评：
 
-很明显，病毒不是那么巧合地在远方山村的蝙蝠洞中产生的，而是产生于一个比纽约还大的城市–武汉的市中心。距那里几个街区之外，有正在研究蝙蝠冠状病毒的实验室。
-[!\[\]()!\[\](https://spark.adobe.com/page/tgtoPQ2kgGU8M/images/62a78845-8864-4734-b3e2-4679eb983f8a.jpg?asset_id=e07642e0-5f1c-4895-bd5b-42900d3b50af&amp;img_etag=%227e8d75acdb12b45c781795162739f039%22&amp;size=2560)](https://spark.adobe.com/page/tgtoPQ2kgGU8M/images/62a78845-8864-4734-b3e2-4679eb983f8a.jpg?asset_id=e07642e0-5f1c-4895-bd5b-42900d3b50af&amp;img_etag=%227e8d75acdb12b45c781795162739f039%22&amp;size=1024)
-从那时开始，很多证据，包括川普政府的最后几天，爆出在2019年9月（武汉）实验室有员工出现新冠病毒感染症状。**每一个证据都不断指向病毒起源于这些实验室。**而不是中共为了掩盖真相，起初说的那个海鲜市场。
+香港目前金融完全在中共控制之下， 以前作为内陆和海外的对接窗口，勾结华尔街等海外资本，洗劫了所有的中国老百姓的财富。香港作为一个表面繁荣开放，与世界接轨的金融中心，其实早就具备了一颗又红又专的党心，尤其是97年回归之后。
 
-所以**拜登政府不要放过中共，要求他们提供所有问题的答案，至关重要。**
+目前国际市场开始未加密数字货币做准备，中共依然想把加密货币的游戏规则，牢牢控制在自己家族的手里，延续洗劫财富的游戏。
 
-编辑：【英国伦敦喜庄园编辑部】
+参考链接：[Hong Kong to restrict crypto exchanges to professional investors](https://www.reuters.com/technology/hong-kong-restrict-crypto-exchanges-professional-investors-2021-05-21/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
+* * *
 
-[!\[\]()!\[\](https://spark.adobe.com/page/tgtoPQ2kgGU8M/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/tgtoPQ2kgGU8M/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
-
-
+*排版发布：日本东京方舟农场 文柯Miles*
 
 0
