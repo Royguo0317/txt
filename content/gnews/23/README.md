@@ -1,27 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共疫苗是救命的稻草还是杀人的工具
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1269354/)
+## 风向变了 闫博士报告的反对者们纷纷撤下了他们的报道
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1269207/)
 
-撰稿：文榕
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24111515/0524jenny%E5%8F%91.jpg)（图片来自网络）
-现在墙内最热的话题就是打疫苗，尤其在东北沈阳、营口等地又出现疫情之后，普通百姓打疫苗的热情空前高涨，接种疫苗人数已然突破四亿多人。
+**摘要：在2021年5月21日的盖特视频中，郭先生说曾经最反对和攻击过闫博士报告的“大咖”、科学家、媒体纷纷默默撤下他们的报道，在斯坦福和MIT这两所顶级大学的科学家们都透彻研究了闫博士的报告，他坚信国会一定会召开病毒听证会，因为这不是政客能决定的，这是美国人民意志决定的。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24102333/Miles_2021-05-21-getter1.srt.txt)
+**风向变了  闫博士报告的反对者们纷纷撤下了他们的报道**
 
-然而墙内的大多数人并不知道，美国军情部门已经定义中共病毒为人工制造，而且可能是生物武器！作为生物武器怎么可能有疫苗呢？这就是中共最邪恶的地方。对外它们四处投毒，让印度成为人间炼狱，对内拿自己百姓作为生物武器的试验对象，死亡人数至今是谜。
+**Opponents of Dr. Yan’s Reports Secretly Switch Gears **
 
-防火墙不仅挡住了真相，也让他们的洗脑术深入人心。我看见昔日的同学、同事、邻居都在大力地宣传疫苗，不禁暗暗心惊。我劝周围的朋友不要打中共疫苗，几乎无人听我呼号。我最好的朋友就直言不讳地对我说“你不要诽谤疫苗好不好？国产疫苗有什么不好？“疫苗能救命已经深入人心。不要说国内，就连我国外的兄长，作为美国的华人精英，都注射了辉瑞疫苗，让我痛心不已。我连自己的海外家人都说服不了，我还能说服谁呢？
+另外一个你看到世界的这个局势，关于病毒的问题。今天一大早，咱们最好的合作伙伴，这名字不能说，这是在美国政界的大佬，给我发信息说，他说你发现了吗？最近的某某某的发言，也就是原来最最反对我们的闫博士的所谓三个报告的，曾经在不同场合反对我们的科学家报告的人。他说，最近在私下场合已经是不一样的说法了。他说闫丽梦科学家讲的这些事情，是有很大的价值的，而且是可信的。
 
-只是墙内的大多数人并不知道泰国女排全体队员因注射中共国疫苗后，又全部感染了中共病毒。有个叫塞舌尔的小国，全国百分之七十的国民注射了中共疫苗，悲催的是这个国家病毒的感染率、死亡率居全球之首！中共国的铁杆盟友巴基斯坦的现任总统、总理及外长，前些时候也注射了中共疫苗，但之后却也感染了中共病毒。朝鲜某重量级高官因为注射了中共药物而猝死，金正恩全面封杀中共国的所有制药，当然也包括疫苗。所以说中共疫苗就是杀人的武器。只是中国普通的百姓并不知道，他们是被共产党严重洗脑的群体，每天生活在《新闻联播》里，现实生活有诸多不易，他们从不思考是这个邪恶的政府、邪恶的体制带给人民深重的苦难，他们更愿意相信是美帝国主义打压中国，不让人民过上好日子。千万不要以为我在说笑话？我接触过从不翻墙的人，他们相信中国是世界上抗疫最好的国家，相信政府采取强制措施是牺牲少数人来换取大多数人的必须手段，他们相信中国是世上最安全的国家。当然，也相信中国疫苗是世界上最安全的疫苗。
+Likewise, you look at the situation of the world, about the virus. Early this morning, our best partner, who I can’t say his name, a bigwig of American politics, sent me a message talking about someone who previously opposed the three reports of our Dr. Yan most, on several different occasions in the public. He said, “Have you noticed the recent speech of XXX? Recently this guy has changed his narrative privately.” He also said that the things that Dr. Li-Meng Yan had talked about were of great value and credibility.
 
-在网络强力监控之下，有良知的人被迫闭嘴。你所看到听到的全是国产疫苗的正面报道，没有任何相关的不良反应，没有任何死亡案例，难道所有年龄段所有人群都适应接种？在全国人民喜大普奔接种疫苗之时，安徽合肥市政府却出台文件要求直属机关党员干部，“必须让人民群众优先接种疫苗”，难道作为党员干部就必须延后？中共建政七十年何时把人民群众放在第一位？人民永远是共产党的炮灰！他们压榨 、盘剥、奴役中国人七十多年，从来没有做过一件有利于这个民族这个国家的事情，却在病毒疫苗的事情上突然变得无比慷慨、无比大度，无比关心起人民群众的生命。如果真像中共宣传的那样为了防止疫情，那么去年疫情爆发初期中共应该在国内大力宣传硫酸羟氯喹的预防与早期治疗作用，而不是什么莲花清蕴口服液。你认为黄鼠狼给鸡拜年可能安好心吗？
+所以说这个朋友问我，说你觉得国会听证的事情会不会发生。我说我们一定会让它发生的，国会的听证一定会发生的。美国国会的听证就是已经取决于美国人民的意志，他不代表哪个流氓政客，一定会发生的。他说不可能，民主党在就永远不会让你这个事儿发生，我说咱走着瞧。
 
-当全世界在新中国联邦的推动下已联合起来，形成以毒灭共的大好局面，美国国会必然会用听证的方式剥茧抽丝般地把病毒来源展示给全世界，这就是中共的生物武器！作为武器的制造者，他们有解药，他们知道硫酸羟氯有着很好的预防作用，而且还可以有效的减少病毒自我复制，可是他们偏偏不告诉自己的人民，却推出一个数据完全不透明的且没有三期试验的疫苗。现在又推出了由军事生物武器专家陈薇研制出一针剂的特效疫苗？这是杀人还是救人呢？
+So this friend asked me, “Do you think the congress hearing will happen?” I said “We will definitely make it happen. The congress hearing will definitely happen. The U.S. Congress hearings are determined by the will of the American people, not represented by any rogue politicians. It will definitely happen.” He said, “No way. As long as the Democratic Party still exists, it will never let it happen.” I said, “Let’s wait and see.”
 
-所谓的中共疫苗，不是什么救命的稻草，它是中共为达到不可告人的目的，而对国人进行二次谋杀的工具。
+昨天大家看到了，最早就是Politico 那个网站，就政治网站，所谓跟美国把脉的网站，最早也对我们的科学家进行攻击。其中他们有两个记者，是绝对亲共的人，也攻击过我们多次的人。他现在都改口了，而且悄悄地在网站上把攻击科学家的那些所谓的报告撤掉了。大家你们发现了吗，在英国，在德国，所谓的几个大咖，那些科学家，在他们的社交媒体网站上，攻击科学家攻击闫丽梦博士的，所谓病毒的真相的这些报导，说来自于自然根本不是来自实验室，通通撤掉了。
 
-（本文仅代表个人观点）
+As you saw yesterday, Politico, the website, a political website claiming to be able to make diagnosis for the US, which attacked our scientist (Dr. Yan) early on, has two journalists who are absolutely pro-CCP and have attacked us many times. Recently it changed its tone and quietly removed those so-called news reports that attacked our scientist from its website. Have you noticed that? In Britain and Germany, there were several so-called big names, scientists, who attacked our scientist Dr. Li-Meng Yan on their social media, who posted their so-called reports of the truth about the virus to claim the virus was originated from nature but not lab. They have withdrawn all those reports.
 
-*审核：童媚  编辑：MG5*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
+不仅如此，在斯坦福大学，美国斯坦福大学在生物里那是绝对是权威的，MIT大学，哈佛是流氓政治大学，就不管了，这两个学校，你去看看现在内部人讨论的最多是什么？共产党的病毒的真相来自于武汉实验室，所有的人手上，都研究透了科学家的三个报告。而且科学家向这些媒体上，展示最重要的就是《非典非自然》（全称：《非典非自然起源和人制人新种病毒基因武器》）的整个这本书里面，共产党自己自证的，自己证明了自己，早有准备，这是一个超限生物战。在全世界广泛的现在认可就是，科学家定义的，这叫超限生物战。
+
+Not only that, Stanford University, which, in the United States, is the absolute authority in biological research, and MIT – Harvard is a rogue political university, so just ignore it –  these two schools, you can go check what is the most discussed by their insiders now? [They were discussing] the truth about the CCP virus coming from the Wuhan lab. All these people have the three reports of our scientist (Dr. Li-Meng Yan) on their hands and have analyzed them thoroughly. And most importantly, our scientist showed to the media the CCP’s own text book,  regarding the unnatural origin of SARS which was self-evident, proofing CCP’s long term planning for this and that this is unrestricted biowarfare. Now this concept has been widely recognized by the world, which was defined by our scientist – called “unrestricted biowarfare”.
+
+*（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60a7bc16d48e020926645716](https://gtv.org/getter/60a7bc16d48e020926645716) (1:36-4:42)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1262482/](https://gnews.org/zh-hans/1262482/)*
+
+* * *
+
+**翻译：【一花一世界】
+字幕：【XO小粉红】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
 0

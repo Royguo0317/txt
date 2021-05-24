@@ -1,23 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄专家称新变种病毒更可能导致染疫者死亡
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1269542/)
+## 【马云】离任湖畔大学校长
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1269584/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+```
+新闻来源：意大利安莎通讯社（ANSA）
+发布时间： 2021年5月24日
+翻译整理/简评： 斩草要除根
+```
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24142316/D-7.jpg)reddit.com
-5月23日，据塔斯社报道，中共病毒感染的新变种比已经知道的毒株更容易导致感染者死亡。伽马利亚中心的病原微生物种群变异机制实验室负责人弗拉基米尔·古申周日在接受“俄罗斯电视一台”采访时这样说。
 
-“不幸的是，这些突变会增加冠状病毒病程的严重性。部分感染新变种的病人比感染旧变种的病人更有可能死亡。”他说。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24150653/news120336.jpg)图片来源：联合日报
 
-Rospotrebnadzor中央流行病学研究所人类疾病诊断新方法开发科学小组组长卡米尔·哈菲佐夫（Kamil Khafizov）早些时候告诉塔斯社，没有证据表明在俄罗斯联邦发现的新突变可能导致中共病毒更严重的病程。
+电子商务巨头阿里巴巴（*Aibaba*）的创始人马云（*Jack Ma*），将从他建立的精英商学院校长的职位上辞职，这是北京与他的团队在陷入困境之后逃避关注的最新举措。
 
-正如Skoltech的新闻服务在4月底援引大学教授格奥尔基·巴泽金（Georgy Bazykin）的话报道，俄罗斯科学家发现，俄罗斯大多数新的中共病毒感染病例都与两个相对较老的毒株B.1.317和B.1.397+有关，而中共病毒的新变种在俄罗斯尚未广泛传播。世界上至少已经存在四种新的中共病毒菌株：印度、英国、南非和巴西。
+据《金融时报》报道，知情人士透露，湖畔大学是一家于2015年在该大亨故乡杭州成立的顶级企业高管学院，现已被更名，并将对课程进行重组。
 
-参考链接：
+由于北京试图限制其影响力，他不会在重组后的组织中担任任何高级职务。一位知情人士告诉英国《金融时报》：“湖畔大学就像一个精英社区，这是（当局的）主要目标之一。”
 
-[https://tass.ru/obschestvo/11448341?utm\_source=twitter.com&utm\_medium=social&utm\_campaign=smm\_social\_share](https://tass.ru/obschestvo/11448341?utm_source=twitter.com&amp;utm_medium=social&amp;utm_campaign=smm_social_share)
+自本月初以来，在社交媒体上以普通话传播的视频显示，工人正在清除“湖畔大学”这个大型标志上的字符。《城市日报》在4月还报道说，由于北京方面不断施加压力，在拆除马云的金融科技帝国后，该大学也被迫暂停新生入学。
+
+#### 简评：
+
+**曾经无限风光的马云在其壮大以后，现在被中共开始步步紧逼。中共国的企业家也不过就是上面政权揽财的工具罢了。在这个共产党当权的国家里，无论是企业还是个人，如果想要拥有自己的独立个性，那就是犯了当朝最大的忌讳，必将被诛之。**
+（本文只代表译者观点，与Gnews平台无关。）
+
+**新闻原文链接：**
+
+🔗[Alibaba:Ft, Jack Ma lascia presidenza della Hupan University](https://www.ansa.it/sito/notizie/topnews/2021/05/24/alibabaft-jack-ma-lascia-presidenza-della-hupan-university_e80389c4-fce4-4e37-82f3-c0e9f4cdfd32.html)
+
+* * *
+
+***编辑整理/校对: **Ting Guo*
 
 0
