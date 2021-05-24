@@ -1,15 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月23日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1268590/)
+## 【快讯】美中在埃塞尔比亚的电信5G之争 美胜出
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1268667/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+#### 整理撰稿：蓝精灵
 
-5月23号：尊敬的战友们好，你们很快会知道，这位参谋长和新中国联邦的关系，还有他的家庭家世和我们灭共的渊源，世界上最强大的军事力量，沼泽地的经济力量，正在以新中国联邦为核心凝聚，就像我几年前说的这个世界，未来只有一个选择，要么你和共产党站在一起，要不就和我们一起干掉共产党，一切都已经开始！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24054314/59a8395d9d84dee728a19cba509e19f9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24054328/2cf1df1a6c0e660ac1dad47aef258b6e.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24054343/0f7c95cded22d67b9eb3168807ccfec1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24054401/0c8b881a957f5b3876dd2fc29b8d3619.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24054418/c5c6f3b57c243812e0d8600aaf147522.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24054436/e893fe1c0db0feb63658a959192e1cd5.jpg)
-[【2021年5月23日】文贵先生盖特原文](https://gtv.org/getter/60aad4a4744cbc4313636ef7)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24060138/7oo4q344q7o04qroo3nppqq4665ss9rq.jpg)
 
-**喜联盟Gnews编辑部**
+美国支持的财团在埃塞俄比亚一场备受关注的电信拍卖中击败中国出资支持的财团，这为大举挑战中国全球经济影响力的美国带来一次胜利。从5G推广到芯片制造，美国和中国在关键技术领域的竞争都在加剧。
 
-+1
+埃塞俄比亚上周六表示，已选择由英国沃达丰空中通讯公司(Vodafone Group PLC)牵头的电信财团来建设全国性的、具备5G功能的无线网络。该财团此前为这个规模数十亿美元的项目赢得了一个新成立的美国对外援助机构的融资支持。
+
+上述美国机构提供低息贷款，但此项融资有先决条件：这笔钱不能被用来购买中国华为技术有限公司(Huawei Technologies Co.)和中兴通讯股份有限公司(ZTE Co., 000063.SZ, 0763.HK)的电信设备。华盛顿方面认为这两家公司构成间谍活动威胁。
+
+参考链接：[美中科技之争在埃塞俄比亚开辟新战线](https://cn.wsj.com/articles/%E7%BE%8E%E4%B8%AD%E7%A7%91%E6%8A%80%E4%B9%8B%E4%BA%89%E5%9C%A8%E5%9F%83%E5%A1%9E%E4%BF%84%E6%AF%94%E4%BA%9A%E5%BC%80%E8%BE%9F%E6%96%B0%E6%88%98%E7%BA%BF-11621825213)
+
+\*以上仅代表作者观点，不代表Gnews平台\*
+
+* * *
+
+*排版发布：日本东京方舟农场 文柯Miles*
+
+0
