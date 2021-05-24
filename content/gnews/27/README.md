@@ -1,33 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】中东又被点火 塔利班发动袭击威胁阿富汗省会
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1267530/)
+## 【战友心声】珍重这摇摆震动的警告窗口期
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1267263/)
 
-阿富汗当局星期天说，随着以美国为首的外国军队继续从阿富汗撤出，国家安全部队与塔利班叛乱分子展开激战，以防止他们占领阿富汗东部一个省会中心。
+作者：纽约香草山媒体部 蜜蜂
 
-美国国防部周日晚间证实，阿富汗陆军总司令穆罕默德·亚辛·齐亚（Mohammad Yasin Zia）与其他高级安全官员一起抵达拉格曼，并领导反塔利班行动。
 
-据当地居民和安全机关的消息来源报告说，在主要省监狱附近和迈赫塔勒姆部分地区发生了激烈的战斗。据报道，双方都有人员伤亡，但目前还没有任何细节。
 
-阿富汗媒体报道说，巴格兰省北部多个地区及其省会普勒库姆里周围也发生激烈战斗。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-5月1日，美国和北约盟国开始从阿富汗撤出最后一批剩余部队后，阿富汗多个省份的暴力活动升级。
 
-简评：
 
-继巴勒斯坦，伊朗袭击以色列失败，巴哈冲突平息之后，不难让人猜测中共又在开辟了新的战场。在美军撤军之时，在中东到处点火。
+深圳赛格大厦在本月18日经历过其初次的晃动，所幸的是，当时大厦中的几千名商户、用户尚能狼狈但安全地逃离了现场。这也算是一次预警演习，给人们预留了逃生的窗口期。随后的两天内，该大厦仍有摆动现象，但官方一边封锁消息“保持正能量”，一边却又允许低层商家部分营业。笔者不禁想问，你凭什么还敢回这样会跳舞的庞然大物里去工作或生活呢？！
 
-参考链接：
+![]()![](https://media.discordapp.net/attachments/824587088309649429/846054298374111232/image0.png)网络视频截图
 
-[https://www.voachinese.com/a/taliban-attack-threatens-afghan-provincial-capital/5901785.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/taliban-attack-threatens-afghan-provincial-capital/5901785.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+当年被誉为美谈的“2.7天盖一层楼”，创下“深圳速度”，向中（共）国国庆50周年献礼的这一“伟大建筑”工程，可以说完全违背了现代建筑学规律：混凝土浇筑后，一般要有28天的养护期才能使其坚实凝固，所以正常情况下两周建一层都是快的，一周建一层是不合常理且违规的，那不到三天建一层不是天方夜谭又是什么呢？如此一座地上75层，地下4层的高大建筑，其建设是在水泥没能坚实凝固后拼成的，这样建成355.8米的摩天大楼能稳固吗？官方说，建筑物表面没有裂痕，但实际上，有官方背景的建筑能2.7天盖一层楼，那他们就能秒杀裂痕，让外行人根本看不到真正的内部劣迹。这座大厦三天内多次摇摆绝不是像官方所解释的，可能是电子设备多，比特币挖矿人多产生的共振造成的。电子商城也不是这几天刚开业！敢违背天理做事，敢把黑的说成白的，这样的官方你能信吗！？没地震，没大风的情况下这样晃动绝非偶然。笔者认为，既然上天给了人们警告，这次逃出了虎穴，就不要轻而易举、无条件地再返回险境里去了。
 
-图片来源：[https://www.voachinese.com/](https://www.voachinese.com/)
+郭先生前两天在盖特里说，共产党国内的一切都在波动：比特币在波动，银行在波动，楼在波动，桥也在波动… 笔者认为，这是大势所趋——共产党造孽的必然结果。希望随着这波动能把更多的百姓唤醒，让越来越多的人懂得保命、保财的方法和必要性，不能随着波动做共产党的殉葬品。
 
-整理撰稿：蓝精灵
+（本文仅代表作者观点）
 
-校对发布：Penny
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+编辑/校对/发稿：Irene木木
 
-0
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
+
++1

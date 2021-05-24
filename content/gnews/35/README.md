@@ -1,63 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】从白银山马拉松看中共国的马拉松产业
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1267438/)
+## 希望犹太朋友知道&nbsp; 你赚钱的时候别搭上你的未来你的命
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1267517/)
 
-甘肃白银山马拉松事故，引发热议。
+**摘要：在2021年5月20日的盖特视频中，郭先生说到在中国发大财，并把共产党和毛泽东当神的人，大多数是犹太裔，他奉劝这些人不要赚钱的时候搭上未来、搭上命。巴勒斯坦的交火清楚表明其背后有中共支持，在舆论上中共一边倒地同情巴勒斯坦，恿巴勒斯坦多杀犹太人。然后荒唐的是，为了赚钱，犹太人到连问都不敢问共产党病毒的起源。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23202735/Miles_2021-05-20-g2.srt.txt)
+**希望犹太朋友知道****  ****你赚钱的时候别搭上你的未来你的命**
 
-近年来，在国内兴起了马拉松赛事，单位跑，区里跑，市里跑。省里跑，全国跑，还有去纽约跑的。大大小小的赛事，年头跑到年尾。去网上查了一下，马拉松赛事的规则和背景， 是这样描述的：
+**Hope Our Jewish Friends Not to Forfeit Their Future and Life When Making Money With the CCP**
 
-百度：
+所有在中国发大财的人，就把共产党、毛泽东的像当祖宗当神一样供养起来「的人」，是发自内心的。而且最重要的是这些人大多数是犹太裔的人。就是犹太人第一次感受到七哥这些年说的话，所有犹太人，和华尔街的犹太人，和硅谷的犹太人，和这些所谓的基金大佬们，这几年 —哎呀，裤子老好看了— 赚疯了，是吧？但是他们要知道，我给他们每个人都说：“对你们最大危害的就是中国共产党。”他们原来都不信嘛。我们现在身边很多的律师都是犹太人，我们真心的喜欢犹太人，是吧？但是我希望犹太人朋友知道，你想赚钱的时候别搭上你的未来，别搭上你的命。
 
-“马拉松盛宴的背后，交织着一张由协会、地方政府、赛事公司、企业等方方面面角色构成的关系网，这张关系网也迅速搭建起国内完整的跑步产业链,旅游、房地产、保险业、医疗、移动app等业态无不受其影响。”
+All the people who have made a fortune in China, their support for the CCP and Mao Zedong, as if they were their ancestors and God, is genuine. And the most important thing is that most of these people are Jews. For the first time, these Jewish people realize what Brother Miles has told them. In the past few years, all these Jewish people, those on Wall Street, Silicon Valley, and the fund bosses – look, my pants look so good – these people have made money like crazy over the years, right? But they must know, I told everyone of them: “The most harmful thing to you is the CCP.” They didn’t believe me previously. Many of the lawyers around us are Jews. We really like Jews. But I hope our Jewish friends know that you should not forfeit your future, or your life, when you want to make money.
 
-“此后，马拉松运动在中国的群众基础基本确立，发展也越发与国际接轨“。2014年，国务院下发了《关于加快发展体育产业、促进体育消费的若干意见》，即当年的“46号文”，从顶层设计上为整个产业的发展注入了“强心针”。
+巴勒斯坦的事情背后是谁，清楚了吧？是伊朗。伊朗的背后是谁啊？中共和俄罗斯，对吧？我说最终搞你的还是中共，而且拿你当牺牲品，对不对？杀你不商量，骗你不商量，偷你不商量，对不对？而且天天拿着所谓二战的时候拯救犹太人，都是胡编的故事，胡球扯淡的事，对吧？而且现在「以色列」提供给中共国这么多的关键技术。
 
-“马拉松产业迎来关键期，国家体育总局、各地方政府也陆续出台相应政策，推动体育产业和消费的发展，《中国体育产业发展报告(2015)》的数据显示，2014年国内马拉松赛事运营的收入是20亿元，带动相关行业收入超百亿元，2015年则达300亿元，2016年更是涨势喜人，仅上半年，国内的马拉松赛事就赶上了2015年全年的数量。“
+Who is behind the Palestine incident? Is it clear? It is Iran. Who is behind Iran? The CCP and Russia, right? I said that it was the CCP that would ultimately screw you and make you a victim, right? They kill you without hesitation, lie to you without hesitation, steal from you without hesitation, right? Every day the CCP talks about how they rescued Jews during World War II, but these are all made-up stories, all nonsense, right? And yet, Israel has provided so many critical technologies to CCP China.
 
-我们再来看看相关的背后的利益分配，也是百度：
+这么多社会大佬，媒体大佬背后犹太裔的人深刻地感受到共产党这次100%站在了巴勒斯坦那一边谴责以色列。而且直接就说“犹太种族主义”、“犹太什么复兴主义”搞的鬼，多可怕？只有一个国家在世界上，「只有」共产党的中央电视台和共产党的所有的100%控制的媒体一致性的倒向巴勒斯坦，同情巴勒斯坦，甚至言外之意怂恿巴勒斯坦不会打「仗」，要打就打的狠处，打死他，多杀犹太人。
 
-“据前瞻产业研究院2016年3月分布的《2016-2021年中国旅游行业研究及市场投资决策报告》，当整体的旅游产业每年增长额为3%左右时，体育旅游分支的增长率达到14%，是旅游市场中增长最快的领域。在与体育搭边的旅游产品中，风头最劲的正是海外马拉松旅游，“出国跑步”已成为办理签证的最好理由之一。“国内旅游市场，异地外省参赛选手为了准备一场马拉松，需要订酒店、机票，在比赛地停留至少四天左右，比赛期间的景区游客访问量也相应会出现涨幅从而带动旅游消费市场。“
+So the Jewish people behind many social tycoons and media moguls have fully realized that the CCP is 100% on the side of Palestine this time condemning Israel. And the CCP said directly that it was Jewish racism and Zionism that was the cause of problems in the region.  How terrible this is! There is only one country in the world, only the CCP’s CCTV and the media 100% controlled by the CCP, that have consistently taken the Palestinian side, sympathized with Palestine. They even implied that the Palestinians did not know how to fight, that the Palestinians should hit good and hard, kill the Jews, and kill more Jews.
 
-“在大型跑步赛事中，心脏除颤设备与服务的供应是刚需，而赛后的拉伸、运动创伤的恢复也必不可少。”传统保险行业也创新性的推出马拉松旅游保险产品”。
+你看看，世界上敢公开反犹的，敢威胁犹太主义的只有中国共产党了。这多大的事兄弟姐妹们，意识到了吗？
 
-“而备受关注的互联网科技，也成为跑步经济中的重要分支，尤其在社交网络风行的当下，大数据、传感器和定位系统的普及应用，让体育消费迎来场景化革命。根据艾瑞咨询《2016年中国全民运动健身行业报告》，2016年1—9月，运动健身类APP用户规模和总使用时长稳步增加，用户使用频次和使用时长也处于稳步增长态势。”
+Look, the CCP is the only one in the world who dares to be openly anti-Semitic and threaten Judaism. How significant is it, brothers and sisters? Are you aware of this?
 
-“那主要是谁在跑步呢？生活在大中城市的人，尤其是中产阶层、白领和大学生，他们构成了跑步潮的主力“”翻翻朋友圈里晒跑步或跑马的，几乎是以上三个群体，我们很少看到农民工或纺织女工下班后会全副武装地跑个步。因此，不少学者指出，“长跑是中产阶级的新宗教”，跑步，尤其是跑马拉松，已成为中产阶层所推崇的一种新的生活方式。
+兄弟姐妹们，共产党现在的恶毒，它现在的“灭白主义”和骨子里边瞧不起「犹太人」，反犹。它挑起的种族矛盾，要栽赃嫁祸给美国。我就像问这个美国人一样，我说：“你相信这个病毒是美国造的吗？”他说：“那当然不是。”我说：“那为什么中国现在叫共产党宣传洗脑的百分之七八十「中国人」都相信是美国造的呢？”他说这是荒唐的。我说：“你更荒唐，你为了赚钱都不敢问共产党。”
 
-但是，热爱运动也好， 希望取得荣誉也好，希望拿到奖金也好，不能以生命作为代价。
+Brothers and sisters, think about the CCP’s current viciousness, its current plot to “eliminate the White race,” and how it despises the Jews. The CCP provokes racial conflicts and wants to blame it on the United States. I just asked an American, “Do you believe this virus was made by the US?” He said, “Of course not”. I said, “Then why do 70% of the Chinese people, who were indoctrinated and brainwashed by the CCP, believe that the US has made the virus?” He said it was ridiculous. I said that he was even more ridiculous, because in order to make money, he didn’t even dare to ask the CCP for the truth.
 
-有人说白银山马拉松比赛为何明明天气不好，选手们还要参加呢？因为贪欲。贪欲也许不一定是金钱，荣誉，也许只是对自己能力的贪欲。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60a6de1137f7f73984ce001d](https://gtv.org/getter/60a6de1137f7f73984ce001d) (2:47-4:51, 7:16-7:53)
+鸣谢：
+[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1261677/](https://gnews.org/zh-hans/1261677/)
+[2] 感谢YY、Liberte、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1264986/](https://gnews.org/1264986/)
 
-中共共产党以前教育是不怕万难，人定胜天，后来演变成周围的人都可以做到，你为何做不到，再后来挺一挺，咬咬牙就过去了。它从来不会教育老百姓说， 做任何事情要评估环境，推演结果，平衡得失，它让老百姓有了一种坚定的信念，“只要我能够坚持下去，我就是赢家”，这也适合中共治下私人微小企业最近几年的思路。经济数据是虚晃的，市场报道时虚构的， 当工厂没有订单，工人发不出工资的时候，还在幻想，熬到拜登政府上台就会好了，结果呢， 却是越来越糟糕。
+* * *
 
-这种思路是有违常识，不科学的。回到白银山马拉松赛事，
+**字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-天气不好，“反正大家都跑，我不落单就没事儿，”–侥幸心理。
-
-天气不好的时候，有医疗队伍跟进吗？“我们是常年跑马拉松的，身体棒棒， 从来没有出过事，就算有问题， 也可以挺住”–。盲目自信。
-
-而这次恰恰是跑在前五的一个也没有幸免，跑第六的昏迷后，侥幸被路边放羊的老乡救回来。捡回一条命。
-
-也许这里面有签约或者不签约的马拉松选手， 他们是单纯为了奖金而去的，因为职业，所以不会放过任何一个可以拿奖金的机会，尤其在现在经济萧条的时期。但是他们没有想到， 他用命换来的那一点点奖金，和这个系统中的猎食者比起来，一个零头都没有。
-
-任何，体育局也好， 马拉松组委会也好，保险公司也好，单位里笑眯眯组织大家积极锻炼，下班去长跑的党支部书记，党小组也好。只要它是这个红色体制孵化出来的任何事物，任何组织，任何活动， 都带着原始的天生的嗜血的特性，要钱要人命。
-
-运动是一件何其快乐的事情，我们可不可以健康，快乐，安全的去跑步呢？在安全都没有保障的情况下， 可不可以冷静下来，学会放弃呢？你我的身边，有媒体，报纸，单位，同事，精英，朋友，家人们，都说没有问题的时候， 要停下来考虑一下，因为在中共国， 从来就没有真实的观点，独立的思想，我们所感受到的每次信息大爆炸，都隐秘的包含着有可能随时要你命的致命信息， 就像病毒一样， 你我唯有戴好口罩， 洗手，消毒，吃药，严密的保护好自己， 才得以安全，并保全自己的生命和家人的幸福。
-
-痛心，只是一时，保护自己，珍惜生命，才是一世，才是家人的一辈子
-
-参考链接：
-
-[http://finance.sina.com.cn/roll/2017-01-16/doc-ifxzqnip1380115.shtml](http://finance.sina.com.cn/roll/2017-01-16/doc-ifxzqnip1380115.shtml)
-
-图片来源：[https://www.bbc.com/](https://www.bbc.com/)
-
-作者：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
-
-+1
++4

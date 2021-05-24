@@ -1,56 +1,110 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G-TV和G-News的价值不在于数据和大小&nbsp; 在于它撬动世界的杠杆作用
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1267556/)
+## 朝鲜正在建造MIRVS多个独立目标重返大气层运载工具、战术核弹
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1267585/)
 
-**摘要：在2021年5月18日的盖特视频中，郭先生说G-TV和G-News的真正意义和价值在于它们的杠杆作用，正如“给我一个杠杆的点，我能把地球给撬起”，他说“G-News、G-TV还有盖特绝对是能撬动地球的那个点”。他也喊话给苹果公司和iOS，它们给Guo Media带来的巨大损失，他目前不会追究，只是因为不想与它们为敌，因为灭共需要它们，希望它们明白。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23211638/Miles_2021-5-18-getter.srt.txt)
-**G-TV****和****G-News****的价值不在于数据和大小****  ****在于它撬动世界的杠杆作用**
+翻译: 康州盘古农场 – Mike Li
 
-**G-TV and G-News Are Leverages Capable of Moving the World**
+校对: 康州盘古农场 – TrueSky
 
-现在一个，大家现在看到了，整个现在G-TV和G-News现在在西方和世界的政治板块上它不是最大的，甚至不是中型的，但它的意义和价值是杠杆型的。这就一句常话啊——“给我一个杠杆的点，我能把地球给撬起。就是这个“点”到了，“价值点”到了，它不是靠整个所谓的数据，靠整个所谓的大小，而是靠它绝对的杠杆作用。现在G-News、G-TV还有盖特绝对是能撬动地球的那个点，那个杠杆的点，最好的！
+编辑: 康州盘古农场 – 明子
 
-In addition, although G-TV and G-News are not the largest or even medium-sized in the political landscape in the West and the world, their significance and value are like a leverage. Just like an old saying: “give me a lever long enough and a fulcrum on which to place it, and I shall move the world.” When you are at the fulcrum, reaching the fulcrum point of value, the data will not be relevant any more, nor the size, but rather its value will rely on its leverage effect. Now G-News, G-TV, and Getome are at the point that can move the earth, the point of the lever, the best point.
+发布：康州盘古农场 – 彩虹 Rainbow
 
-[再]就是世界灭共联盟在逐渐地长大，范围在逐渐地扩大。不仅仅是政治、情报和医疗系统，和所谓的病毒研究系统，会是从文化、教育、科技，全面开[始]。
+**据《华盛顿时报》 作者：Bill Gertz，2021年5月19日报道**：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23213244/fat.png)
+陆军将军保罗-拉卡梅拉在对参议院委员会的书面答复中说，金正恩已宣布计划制造小型弹头、核武和弹头导弹。
 
-Furthermore, the anti-CCP world alliance is growing gradually, and its scope is expanding step-by-step. Not only in politics, intelligence, and medical world, as well as the virology research fields. It will fully start in the fields of culture, education, and technology.
+被提名为下一任驻韩美军指挥官的陆军将军保罗-拉卡梅拉本周告诉参议院，朝鲜正在建造小型弹头、战术核武器和多弹头导弹。
 
-看到今天关于苹果的报道了吗？关于苹果报道了你七哥咱们的过去郭媒体被人家黑到啥程度？当时要投郭媒体的，一个日本的还有一个国内的要投咱几十亿美元。大家都知道，就因为苹果整了我们几下子，结果[把投资]整成“零”了。这个损失咱要不要？
+拉卡梅拉将军在书面回答参议院军事委员会的问题时披露，“今年1月，[朝鲜领导人]金正恩宣布了扩大其核威慑力的计划和方案，具体而言，就是发展小型核弹头、战术核武器，甚至是多个独立目标的重返大气层运载工具。
+这位将军说，如果得到确认，他将与情报官员合作，评估和分析核能力及其使用的时间表。
 
-Have you seen the news report about Apple company today? From this report, you can see how much others undermined your Brother Miles and Guo Media in the past. At that time, a Japanese, and a domestic Chinese entrepreneur, were going to invest billions of US dollars in Guo Media. Everybody knows that, just because Apple screwed us up a few times, the investment went to zero. Do we want to claim this loss?
+他说：“在评估之后，我将审查半岛上任何必要的能力和部队结构变化的潜在要求。”
 
-但是我们现在先把它放一放，我们要做的事情是灭共。我们不想与苹果为敌，不想与iOS为敌。我相信他们也懂的。我们把所有的最善良的，包容的一面给了苹果，希望苹果能了解我们。我们的律师团多次说：“你看我们失去这些投资机会应该起诉它们。”我说：“不要，我们还需要苹果，不能这样。”
+拉卡梅拉将军说，平壤正在开发“数量空前”的新武器系统，扩大从该地区直接对美国的威胁程度。朝鲜在最近的阅兵式上透露，它现在拥有能够打击美国本土的远程导弹，并制作了对美国城市进行模拟核打击的视频。
 
-But let’s put the loss aside for now. What we have to do is to take down the CCP. We don’t want to make an enemy of Apple company or iOS. I believe they get it. We gave Apple our kindest and most tolerant side, and we hope that Apple can understand us. Our legal team said many times: “You see, we have lost these investment opportunities, and we should sue them.” I said, “No, we still need Apple. We cannot do that.”
+他说，到目前为止，平壤看到了与拜登新政府进行谈判的机会，但也准备进行 “远程导弹试验的挑衅性和胁迫性步骤，甚至可能展示其核能力。”
 
-反过来大家要看到了，现在这个媒体的发展。我可以告诉大家，像今天 Parler 请了一个我们认识的一个朋友做 CEO。我告诉他们，我说Parler 从第一天它就没有眼光想过能达到推特和 Facebook 这样的数据建设，它也没有这样的工程师，也没有这样的钱。它也没有这样的准备，它永远都不可能变为推特。
+COVID-19大流行病影响了朝鲜的军事，但这个拥有核武器的国家仍然是一个重大威胁。拉卡梅拉将军说：“目前，朝鲜半岛是稳定的，紧张程度很低，特别是在非军事区和北部限制线一带”。 。但是，大规模杀伤性武器、网络打击工作等不对称能力以及庞大的常规部队仍然对美国及其盟友构成“重大威胁”。
 
-In turn, everyone should see the current development of the media. I can tell you that Parler invited a friend we know to be their CEO today. I told them from the first day that Parler had no vision to construct its databases that could reach the levels as Twitter and Facebook. It does not have qualified engineers, nor does it have the money to achieve that. Without such preparations, it will never become a Twitter.
+这位将军说，朝鲜政权正在与冠状病毒大流行“斗争”，尽管政府声称该国的病例为零。
 
-它不会像我们盖特一样，从第一天的事业和所有的投入，和工程师队伍，和技术上的设计，和所有的结构设计，[盖特]绝对是征服这个世界的社交媒体之王！我们现在是问鼎王座，未来一定是扛鼎。这就是咱们爆料革命！
+他说：“朝鲜关闭了边界并停止了国际贸易，这造成了重大的经济挑战。”他指出：“朝鲜正在利用军队（朝鲜人民军）来支持执行这些边境限制”。
 
-Our Getome will not be like Parler. From day one in business, all the input, engineering team, technical design, and structural design determine that Genome will definitely be the king of social media to conquer the world. We are now aspiring to the throne, and in the future, we will definitely be the champion. This is what the Whistleblower Movement is about.
+这位将军说，加强导弹防御系统将有助于应对来自朝鲜的远程导弹威胁。他还希望有更多的航母打击群和轰炸机访问，以及先进的战斗机部署。
 
-*（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60a3c62337f7f73984cd01a2](https://gtv.org/getter/60a3c62337f7f73984cd01a2) (2:53-3:31, 6:06-8:08)
-鸣谢：
-[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于[https://gnews.org/zh-hans/1254722/](https://gnews.org/zh-hans/1254722/)
-[2] 感谢YY、Liberte、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文文本于 [https://gnews.org/1261747/](https://gnews.org/1261747/)*
+该地区的导弹防御系统必须能够抵御用核、化学和生物武器进行复杂攻击的庞大导弹库。为了防御导弹袭击，美国和盟军必须在朝鲜导弹发射前以及在其飞行中使其失效。
 
-* * *
+拉卡梅拉将军说，朝鲜的庞大部队大多是过时的武器和装备，“这是一支数量庞大的军队”。朝鲜的100万成员的军队是世界上最大的军队之一，包括部署在非军事区附近的大约70%的部队。
 
-**字幕：【JennyL】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+**五角大楼将监控社交媒体**
 
-+5
+作为其识别军队中极端分子的政治努力的一部分，五角大楼正计划开发监控工具，以监测军事人员的社交媒体账户。五角大楼的工作组计划引起了众议院军事委员会中排名第一的共和党人 、阿拉巴马州的麦克-罗杰斯议员的抨击。
+
+罗杰斯先生在一份声明中说：“我对许多关于保守派的声音在国防部被压制，而部门领导却在捍卫和保护左倾的声音的新闻报道感到非常担忧。“美国武装部队应该专注于准备面对和赢得对抗中共国和其他外国对手所带来的威胁的任何战斗，而不是把政治信仰强加给那些选择穿制服的人。 ”
+
+罗杰斯先生说，他和其他共和党成员经常听到现役和退役军人说：“即使持有保守的价值观，现在也足以危及一个军人的军事生涯”。
+
+“我相信这是一个必须在今年的《国防授权法案》中解决的问题，并期待着与我在委员会的共和党同事和任何有兴趣加入我们事业的自由言论的民主党人合作。”
+
+太空部队中校马修-洛梅尔上周末被解雇，因为他出版了一本书，指责军队在各部门内宣传马克思主义意识形态。
+
+洛梅尔中校周一告诉福克斯新闻，“我不认为我是党派人士。揭露或攻击批判性种族理论或马克思主义不是政治上的党派”。
+
+洛梅尔中校说，国防部长劳埃德-奥斯汀作为最近全军范围内对极端主义“放任自流”的一部分所发出的通讯指出，“这个国家是邪恶的，它成立于1619年而不是1776年，白人天生就是邪恶的”。
+
+五角大楼发言人约翰-柯比星期二说，洛梅尔中校没有提交他自己出版的《不可抗拒的革命》和《马克思主义的征服目标与美国军队的解体》的书进行政策审查，这是违反规定的。
+
+另外，柯比先生还透露，五角大楼正在考虑实施一项计划，监测军人的社交媒体账户，作为反极端主义措施的一部分。
+
+该计划可能与军事人员的第一修正案权利相悖。
+
+4月份关于极端主义工作组的一份新闻稿说，用于安全检查的监控技术可能涉及社交媒体筛选工具中的机器学习和自然语言处理。
+
+五角大楼特别顾问加里森（Bishop Garrison）正在领导一个极端主义工作组，研究军队中极端主义活动的范围，并致力于一些潜在的解决方案。
+
+这项工作包括试图确定对未来退伍军人进行多少培训以避免被极端主义组织招募，以及如何进行“数据收集的可能性”以确定问题的规模。
+
+柯比先生说：“当我们考虑新兵进来时，也要审阅一下他们社交媒体的足迹。”
+
+此外，五角大楼的内部威胁计划也会仔细检查社交媒体，看是否有军队成员作为间谍或恐怖分子活动的迹象。
+
+柯比先生否认了“拦截者”(The Intercept)所报道的正在实施的监测军事人员社交媒体的试点计划，“拦截者”说它已经审查了一份关于该计划的文件。柯比先生说，他没有看到这份文件，不确定这样的文件是否会向公众公布。
+
+他说，“我不知道有什么努力来扩大我们现在正在做的事情，但极端主义工作组肯定会研究信息环境影响或被极端主义活动影响的程度。这将包括社交媒体环境。并指出在这个问题上有一项新政策还为时过早。
+
+众议院军事委员会在一份声明中说，五角大楼正在“探索一种与背景调查一起实施社交媒体筛查的方法”。
+
+该工作组说：“我们预计，任何社交媒体筛查将只作为审查已通过的个人或寻求获得安全审查的人的额外手段，而不是作为对所有穿制服的人进行持续监视的工具。”
+
+然而声明指出，奥斯汀先生打算了解军队中极端主义的程度以及对良好秩序和纪律的影响声明指出。
+
+柯比先生否认工作组正计划以某种方式监视军队中的每一个人，或花几个小时通过社交媒体活动进行收集，只是为了做这件事。
+
+他补充说，“这不是关于对我们自己人的某种监视计划。
+
+**核轰炸机飞行练习任务**
+
+战略司令部本周在亚洲、欧洲、非洲和中东地区同时进行了B-52核能力轰炸机的飞行，这是美国力量的一次重大展示。
+
+从美国和海外基地飞出的六架B-52轰炸机执行了司令部所谓的轰炸机特遣部队任务，这三个地区和北美的盟友和伙伴都参与其中。
+
+我们的战略轰炸机的速度、灵活性和准备状态在我们威慑潜在对手的能力中发挥着关键作用，并表明我们对盟友和伙伴的坚定支持。战略司令部指挥官查尔斯-查斯 -理查德上将说。
+
+“像这样的任务为我们的盟友和伙伴提供了宝贵的训练机会，以提高我们的互操作性，并表明我们的部队有能力随时随地采取行动，果断地应对任何挑战。”
+
+亚洲行动从关岛的安徒生空军基地进行。欧洲、非洲和中东部分的轰炸机来自路易斯安那州的巴克斯代尔空军基地。一个轰炸机群也被部署在卡塔尔的乌代德空军基地。
+
+军方将这次演习称为“Apex Charger”行动，并称其为“全球力量投射活动”。
+
+没有透露飞行的具体细节。
+
+文章来源:[https://www.washingtontimes.com/news/2021/may/19/inside-the-ring-north-korea-building-mirvs-tactica/](https://www.washingtontimes.com/news/2021/may/19/inside-the-ring-north-korea-building-mirvs-tactica/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
++1

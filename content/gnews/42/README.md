@@ -1,42 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议员迈克·沃尔兹： 中共正试图用新冠病毒和债务赤字来使美国破产
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1267358/)
+## 加媒体：蝠奇博士在病毒起源论上满舵急转！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1267400/)
 
-众议员迈克·沃尔兹： [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 正试图用新冠病毒和债务赤字来使美国破产。由于拜登政府的轻率支出，越来越多的美元流入 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click)， 美国制造不仅是劳工问题，而且是国家安全问题。我们必须把制造业带回家。 【附沃尔兹众议员接受福克斯采访视频：拜登暴露了将美国置于最后的立场】
-
-
-
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is trying to bankrupt the U.S. with COVID and the debt deficit as more & more American dollars flow into [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) thanks to the Biden Admin's frivolous spending.
-> 
-> Made in America is not just a labor issue, it's a national security issue. We must bring manufacturing home. [pic.twitter.com/fH5gfNvuJD](https://t.co/fH5gfNvuJD)
-> — Rep. Mike Waltz (@michaelgwaltz) [May 22, 2021](https://twitter.com/michaelgwaltz/status/1396179303067525124?ref_src=twsrc%5Etfw)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23193225/fq-edited.jpg)图片来源：YOUTUBE
 
 
+据加拿大自媒体《Thepostmillennial》于5月23日刊登新闻报道：白宫疾病感染控制部负责人安东尼·蝠奇（Anthony Fauci）博士已在导致当前瘟疫大流行的COVID-19病毒是否源自于武汉病毒实验室人工合成的结论中彻底反转了180度。
 
-众议员迈克·加拉格尔： 打杂客（Daszak）正在将（大众）注意力（从他自身）明显的利益冲突中转移出来。他绝不是一个冷漠的科学家，而是采取反科学的观点，认为实验室泄漏假说甚至都不值得研究。 【转推文：批驳打杂客完全否认实验室起源说的文章和推文】
+如今，该被称为“实验室外泄传播”的病毒起源理论已在全世界医学科学界中逐渐普及，并被众多生物病毒学家所广泛接纳。
 
+根据《纽约邮报》的报道，蝠奇于2021年5月11日在自称为“国际事实调查网”的Poynter研究所举办的一次活动中突改往日口风道：“实际上这是不可能的（COVID-19源于自然界）。我无法相信它来源于自然。我认为应该继续全面调查到底在中共国发生了何事而导致目前疫情的大流行，并继续尽我们最大的能力直到找出该答案为止！”
 
+而令人匪夷所思的是，该博士在其2020年5月5日发表的相关主题文章中却这样写道：“在观察研究了该病毒在蝙蝠体内的进化过程以及其现在的传播特征情况后，所有的科学证据都将会非常非常强烈地倾向于得出：COVID-19是无法通过人工或故意操作而获得的。所有这一切（中共病毒）随着时间而逐步进化的证据都确切表明此病毒是在自然界中进化而成并突然变种（而感染人类的）。”
 
-> Daszak is deflecting attention away from his obvious conflict of interest. Far from a dispassionate scientist, he’s taking the anti-science view that the lab leak hypothesis is not even worthy of investigation. [https://t.co/8lxRQJ4plV](https://t.co/8lxRQJ4plV)
-> — Rep. Mike Gallagher (@RepGallagher) [May 23, 2021](https://twitter.com/RepGallagher/status/1396489315614658563?ref_src=twsrc%5Etfw)
+更具讽刺意味的是，早在2019年7月，由蝠奇本人亲自监督的名为EcoHealth的组织向武汉病毒实验室提供了超过60万美元的研究资金。目前的实事表明，他们显然在武汉病毒研究所从事冠状病毒“功能增强获得”的秘密研究，尽管这项非法研究根本不应该获得任何形式的联邦资助。
 
+[原文链接](https://thepostmillennial.com/flip-flop-fauci-the-dr-has-completely-reversed-his-position-on-the-origins-of-covid-from-a-year-ago)
 
+本文仅代表原媒体信息和作者个人观点！
 
-众议员杰姆.乔丹：甚至福奇博士都认为我们应该调查COVID19到底在中国发生了什么（指病毒起源）。 为什么众议院的民主党人们还是没有行动呢？【引用福克斯新闻：福奇“不相信” COVID-19自然起源说】
-
-
-
-> Even Dr. Fauci thinks we should investigate what went on in China in regards to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). 
-> 
-> So why don’t House Democrats? [https://t.co/v2ou1NsegE](https://t.co/v2ou1NsegE)
-> — Rep. Jim Jordan (@Jim\_Jordan) [May 23, 2021](https://twitter.com/Jim_Jordan/status/1396511539910352896?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-+3
++6

@@ -1,29 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快訊】新的情報 武漢實驗室人員在確診暴發前出現癥狀已住院
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1267359/)
+## 中共国高压式统治下让国民无缝不插针的捞钱
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1267413/)
 
-根據《華爾街日報》周日獲得和報道的最新披露的美國情報，在武漢病毒學實驗室工作的三名研究人員在12月8日在中國確認首例Covid-19病例數周前就住院了Covid-19的癥狀。
+字幕：雨中漫步 | 字幕听译：乐禧禧 | 英文字幕PR：CharlesS | 评论：拦路小p孩 |评论翻译 :珠穆朗玛峰| 翻译PR: Marialu| 审核: CharlesS | Page: 小雨
 
-國務院此前曾報道說，美國官員“有理由相信”武漢病毒學研究所內部的幾位研究人員去年秋天出現“與COVID-19和常見季節性疾病相一致的癥狀”，但並未具體說明這些研究人員已住院治療，或他們生病的確切時間。
+![]()![](https://spark.adobe.com/page/jMOXaupvNGuDe/images/302e8bf4-1a79-47d9-903b-b27922b0ec2f.jpg?asset_id=77599bc7-bb70-46af-8402-fe7767d5d1f7&amp;img_etag=%22d246b499c51ad90e2831d0d53d66b693%22&amp;size=2560)
 
-據報道，不願透露姓名的熟悉情報工作的官員向《華爾街日報》提供了有關新信息真實性的各種說法，其中一個人說，它需要進一步調查，而另一人則稱它“非常精確”。
+中共国的宣传中国人民政府为人民服务，据了解中共国的医院如同旅游景点一样热闹人潮汹涌，特别中共国一二线城市的医院已经是智能化，不需要肉身排队挂号和缴费，网上预约、扫码支付，叫号就诊、取药等等。医院每年都有一大笔经费用于网络服务，为何一个市级医院还需要排队挂号？普通发烧感冒去医院看病200-1000元不等，每天人山人海的医院一天营业额有多少钱？一年营业额又有多少钱？这些药的成本又是多少钱？好一句中国人民政府为人民服务，服务用在哪个地方？所以让人深思的是医院的钱到底去哪里了？据了解2013年开始已经可以网络预约挂号，就是为了解决这种凌晨四五点起床到医院排队，不一定能挂上号的人，才有网络预约。2013年至今已经有8～9年的时间，为何南宁某市级医院还有种排队挂号呢？一般医院设计排队缴费窗口是我为了上了年纪不会用智能手机的老人。从2013年开始，网络上已经有群众爆料医院挂号排队用物品占位，甚至一人占几个位，而且排队占位的人很多都是医院内部人士，一个号转转手可以赚10-100元不等。虽然一个这么短的一个视频，却反映了活在中共国统治下人民做什么都难，有钱没关系找不到好的医生，没钱没关系看不起病，有些钱看病却被医生断错症，只有有权有钱的人绿色通道一路畅通。
 
-但是，在報告發布後，世衛組織負責人特德羅斯·吉布裏亞索斯（Tedros Ghebreyesus）呼籲對此事進行更深入的調查，稱調查未能充分評估實驗室泄漏的可能性。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-福布斯正在等待國務院的評論。
 
-參考鏈接：
+编辑：【英国伦敦喜庄园编辑部】
 
-[https://www.forbes.com/sites/jonathanponciano/2021/05/23/report-wuhan-lab-staff-hospitalized-covid-19-symptoms-virus-origins/?utm\_campaign=forbes&utm\_source=twitter&utm\_medium=social&utm\_term=Gordie&sh=23d9552b4bd9](https://www.forbes.com/sites/jonathanponciano/2021/05/23/report-wuhan-lab-staff-hospitalized-covid-19-symptoms-virus-origins/?utm_campaign=forbes&amp;utm_source=twitter&amp;utm_medium=social&amp;utm_term=Gordie&amp;sh=23d9552b4bd9)
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-圖片來源：https://www.forbes.com/
-
-整理撰稿：藍精靈
-
-校對發布：Penny
-
-*以上僅代表作者觀點，不代表Gnews平臺*
-
-+3
++1
