@@ -1,47 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 风向变了 闫博士报告的反对者们纷纷撤下了他们的报道
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1269207/)
+## 独家：中共国已渗透到美国德特里克堡的军事生物防御计划
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1269423/)
 
-**摘要：在2021年5月21日的盖特视频中，郭先生说曾经最反对和攻击过闫博士报告的“大咖”、科学家、媒体纷纷默默撤下他们的报道，在斯坦福和MIT这两所顶级大学的科学家们都透彻研究了闫博士的报告，他坚信国会一定会召开病毒听证会，因为这不是政客能决定的，这是美国人民意志决定的。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24102333/Miles_2021-05-21-getter1.srt.txt)
-**风向变了  闫博士报告的反对者们纷纷撤下了他们的报道**
+- 作者**：wenwu**
 
-**Opponents of Dr. Yan’s Reports Secretly Switch Gears **
 
-另外一个你看到世界的这个局势，关于病毒的问题。今天一大早，咱们最好的合作伙伴，这名字不能说，这是在美国政界的大佬，给我发信息说，他说你发现了吗？最近的某某某的发言，也就是原来最最反对我们的闫博士的所谓三个报告的，曾经在不同场合反对我们的科学家报告的人。他说，最近在私下场合已经是不一样的说法了。他说闫丽梦科学家讲的这些事情，是有很大的价值的，而且是可信的。
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-Likewise, you look at the situation of the world, about the virus. Early this morning, our best partner, who I can’t say his name, a bigwig of American politics, sent me a message talking about someone who previously opposed the three reports of our Dr. Yan most, on several different occasions in the public. He said, “Have you noticed the recent speech of XXX? Recently this guy has changed his narrative privately.” He also said that the things that Dr. Li-Meng Yan had talked about were of great value and credibility.
+**西班牙2021年5月24日电/西喜社——**
 
-所以说这个朋友问我，说你觉得国会听证的事情会不会发生。我说我们一定会让它发生的，国会的听证一定会发生的。美国国会的听证就是已经取决于美国人民的意志，他不代表哪个流氓政客，一定会发生的。他说不可能，民主党在就永远不会让你这个事儿发生，我说咱走着瞧。
+令人震惊的陈述：中国如何渗透到位于德特里克堡的美国军事生物防御项目中
 
-So this friend asked me, “Do you think the congress hearing will happen?” I said “We will definitely make it happen. The congress hearing will definitely happen. The U.S. Congress hearings are determined by the will of the American people, not represented by any rogue politicians. It will definitely happen.” He said, “No way. As long as the Democratic Party still exists, it will never let it happen.” I said, “Let’s wait and see.”
+中国外交部发言人华春莹宣扬了：新冠病毒是从美国德特里克堡泄漏的阴谋论。
 
-昨天大家看到了，最早就是Politico 那个网站，就政治网站，所谓跟美国把脉的网站，最早也对我们的科学家进行攻击。其中他们有两个记者，是绝对亲共的人，也攻击过我们多次的人。他现在都改口了，而且悄悄地在网站上把攻击科学家的那些所谓的报告撤掉了。大家你们发现了吗，在英国，在德国，所谓的几个大咖，那些科学家，在他们的社交媒体网站上，攻击科学家攻击闫丽梦博士的，所谓病毒的真相的这些报导，说来自于自然根本不是来自实验室，通通撤掉了。
+尽管这种说法显然是荒谬的。但考虑到，在德特里克堡病毒实验室工作的中共国科学家，可能获得了大量的知识和技能，这种说法可能有一定的道理。
 
-As you saw yesterday, Politico, the website, a political website claiming to be able to make diagnosis for the US, which attacked our scientist (Dr. Yan) early on, has two journalists who are absolutely pro-CCP and have attacked us many times. Recently it changed its tone and quietly removed those so-called news reports that attacked our scientist from its website. Have you noticed that? In Britain and Germany, there were several so-called big names, scientists, who attacked our scientist Dr. Li-Meng Yan on their social media, who posted their so-called reports of the truth about the virus to claim the virus was originated from nature but not lab. They have withdrawn all those reports.
+值得注意的是，该实验室的中共国科学家显然隶属于中共国军方，他们如同“病毒入侵电脑”。
 
-不仅如此，在斯坦福大学，美国斯坦福大学在生物里那是绝对是权威的，MIT大学，哈佛是流氓政治大学，就不管了，这两个学校，你去看看现在内部人讨论的最多是什么？共产党的病毒的真相来自于武汉实验室，所有的人手上，都研究透了科学家的三个报告。而且科学家向这些媒体上，展示最重要的就是《非典非自然》（全称：《非典非自然起源和人制人新种病毒基因武器》）的整个这本书里面，共产党自己自证的，自己证明了自己，早有准备，这是一个超限生物战。在全世界广泛的现在认可就是，科学家定义的，这叫超限生物战。
+重要的是要认识到这样一个事实：在中共国，民用和军用的研究项目，没有任何区别。
 
-Not only that, Stanford University, which, in the United States, is the absolute authority in biological research, and MIT – Harvard is a rogue political university, so just ignore it –  these two schools, you can go check what is the most discussed by their insiders now? [They were discussing] the truth about the CCP virus coming from the Wuhan lab. All these people have the three reports of our scientist (Dr. Li-Meng Yan) on their hands and have analyzed them thoroughly. And most importantly, our scientist showed to the media the CCP’s own text book,  regarding the unnatural origin of SARS which was self-evident, proofing CCP’s long term planning for this and that this is unrestricted biowarfare. Now this concept has been widely recognized by the world, which was defined by our scientist – called “unrestricted biowarfare”.
+在此之前是非正式的，但中国共产党在2016年的 “十三五”规划中宣布，将“军民融合”作为一个正式目标。
 
-*（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60a7bc16d48e020926645716](https://gtv.org/getter/60a7bc16d48e020926645716) (1:36-4:42)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1262482/](https://gnews.org/zh-hans/1262482/)*
+还有一个事实是，在中华人民共和国（PRC）出生和培训的科学家，即使成为美国公民后，也往往从未完全切断与中共国大学和研究机构的联系。其中许多研究机构与中国人民解放军（PLA）有关。
 
-* * *
+位于德特里克堡的美国陆军传染病医学研究所（USAMRIID），长期以来一直是解放军的间谍活动目标。
 
-**翻译：【一花一世界】
-字幕：【XO小粉红】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+解放军通往该目标的途径是通过弗雷德里克国家癌症研究实验室，该实验室位于德特里克堡内，距离USAMRIID只有几分钟的步行路程。
+
+我们将介绍一个案例，因为例子太多，无法在此记录，但它们将在未来的报告中讨论。
+
+它是2007年关于2002-2004年第一次SARS大流行的冠状病毒的科学出版物，题为《[人类单克隆抗体对SARS冠状病毒分离物的有效交叉中和性反应](https://pubmed.ncbi.nlm.nih.gov/17620608/)》（“[Potent cross-reactive neutralization of SARS coronavirus isolates by human monoclonal antibodies”](https://pubmed.ncbi.nlm.nih.gov/17620608/) ）
+
+该论文作者代表了来自弗雷德里克国家癌症研究实验室、USAMRIID的病毒学部和安东尼·福奇博士的国家过敏和传染病研究所（NIAID），是一项三个美国主要病毒研究机构的科学家的合作。
+
+人们首先注意到的是，两名中共国培训的弗雷德里克国家癌症研究实验室的科学家，朱中玉（音译）、肖晓东（音译）的出版历史。首要值得注意的是，他们的工作与其说是处理癌症，不如说是处理病毒。其中，许多病毒是高度危险的病原体，中共国的生物战计划也在研究这些病原体。
+
+另一位作者是接受过解放军培训的姜世勃。
+
+在回到中共国担任上海复旦大学的教授之前，姜世勃与林斯利·F.金博尔研究所（Lindsley F. Kimball Research Institute）的纽约血液中心，合作了近二十年。
+
+在此期间，他与美国其他主要的病毒研究实验室建立了广泛的合作研究网络，并获得了超过1700万美元的美国研究资助，其中绝大部分来自福奇的NIAID。
+
+同时，姜世勃与解放军的实验室保持着广泛的合作研究，在此进行了详细介绍。同时他邀请了与中共国军方有联系的科学家，进入他的美国实验室并进行培训，如2007年引用的出版物的另一位作者何玉先。​（何玉先网址：[http://www.xjxbyy.net/blog/](http://www.xjxbyy.net/blog/) 【医学与健康科技创新工程进展快报第83期】）
+
+据信，姜世勃参与了将弗林酶切位点插入新冠病毒的工作，这是证明其实验室来源的 “铁证”**。**
+
+王林发曾在武汉病毒研究所工作，是 “蝙蝠女”石正丽的长期合作者。
+
+北卡罗来纳大学的拉尔夫·巴里奇是，世界上最臭名昭著的 “功能增强”（生物武器）研究者之一，他也曾与武汉病毒研究所的石正丽以及其他人合作，他们的联系最终都指向解放军。
+
+一位接受过中共国培训的科学家曾宪坤，通过弗雷德里克国家癌症研究实验室的途径，现在在（美国陆军传染病医学研究所）USAMRIID工作，是安东尼·福奇在德特里克堡的NIAID综合研究机构的一部分设施。​（曾宪坤网址：[http://www.whiov.cas.cn](http://www.whiov.cas.cn/xwdt_160278/xsdt2019/201911/t20191103_5419846.html）) ）
+
+换句话说，曾宪坤可以接触到美国军方和NIAID，关于美国生物战防御的最敏感信息**。**
+
+曾宪坤在中国南京东南大学的生命科学学院发育基因与人类疾病教育部重点实验室，获得遗传学博士学位。
+
+该实验室与南京军区（现为解放军东部战区司令部的一部分）有密切的合作。
+
+正如《网关专家》（The Gateway Pundit）在2021年5月20日的报道中所说，新冠病毒的制造和运送，似乎与南京的解放军东部战区司令部有关，特别是解放军军官王长军。
+
+就在最近的2015年10月，曾宪坤仍然隶属于南京的东南大学。
+
+即使在受雇于USAMRIID期间，曾宪坤仍与中共国的病毒研究项目保持着密切联系，图为2018年10月9日在武汉病毒学研究所做关于致命的埃博拉和马尔堡病毒的讲座。
+
+美国的病毒研究项目被中共国和中共国军方深度渗透。
+
+**简评：**
+
+**本篇报道新增主角是，现任美国陆军传染病医学研究所的中共国军方在职遗传学曾宪坤博士。2018年10月9日受邀参与了中国科学院武汉病毒研究所1号会议室的“精彩演讲”。他带领的团队还建立了持续无症状的埃博拉病毒和马尔堡病毒感染模型。并基于该模型研究这些病毒持续感染的机制以及研发有效预防和清除病毒的治疗方法。通过“持续无症状”让人毛骨悚然！这位邪恶的科学家走的是制造新的生物武器的道路，并用解药威胁全人类。中共无疑是赤裸裸的邪教组织，全人类的敌人！新冠病毒的制造上，他绝对有参与其中。新冠病毒的并发症中或许有他“引以为傲”的一笔！**
+
+素材**：**wenwu； 审核：文乐； 校对：阿伯塔； 发稿：Nuevo唐人
+
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+
+
 
 0

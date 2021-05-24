@@ -1,53 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇承认武汉实验室泄漏的可能性后，社交媒体审查遭猛烈抨击
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1269513/)
+## 布林肯称尚未看到伊朗准备重返核协议的意愿
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1269528/)
 
-- 翻译:文复
-- 制图：七白石
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24140728/S-10.jpg)thecitizen.co.tz
+5月23日，美国与伊朗在维也纳举行的间接会谈尚未看到德黑兰是否准备重新遵守关于伊朗核计划的联合全面行动计划的条款。美国国务卿安东尼·布林肯周日在接受美国广播公司电视频道采访时这样说。
 
-在福奇博士在报告中爆出病毒有可能是实验室泄露后，人们开始质疑社会媒体审查政策的道德规范，该政策以前将武汉实验室泄漏理论描述为“错误信息”。
+他说：“在维也纳进行的调解会谈澄清了每一方必须做的事情，以便回到协议的轨道上。我们知道哪些制裁需要取消，因为它们与协议不符。但更重要的是，伊朗知道它需要做什么。”
 
-根据《华尔街日报》的报道，一份美国情报报告显示，武汉病毒学研究所的三名研究人员于2019年11月患病严重以至于需要住院治疗。
+“我们还没有看到的是，伊朗是否准备并愿意做它需要做的事情。我们还没有这个问题的答案。”布林肯补充说。
 
-两个月后，中国却仍在告诉世卫组织并无人传人。
+伊朗和国际五常（俄罗斯、英国、德国、中共国和法国）联合委员会自4月初以来一直在维也纳举行会议，并在三个工作组中开展专家级工作，以解决恢复执行JCPOA的实际问题：解除华盛顿对德黑兰的制裁（以及美国未来重返该协议）和履行伊朗的核义务。
 
-Politifact的Katie Sanders也询问福奇博士是否认为COVID-19来自自然，福奇回答说，其他原因也是有可能的。
+参考链接：
 
-“我还没有被说服，我认为我们应该继续调查在中国发生的事情，直到我们继续尽自己最大的能力找出到底发生了什么” 福奇说。
-
-“当然，调查此事的人说，这很可能是从动物库中冒出来的，然后又感染了人体，但这可能涉及另外一回事了，我们需要找出来。因此，您知道，这就是为什么我说我完全赞成对病毒起源进行任何调查的原因。”他补充说。
-
-正如我们上周强调的那样，现任CDC主管和前CDC主管也对这种病毒从武汉实验室泄漏的可能性持开放态度，科学团体也断言实验室泄漏是最有可能的来源。
-
-上周，Politifact还被推动进行了“事实核查”，声称它“揭露了” COVID-19实验室泄漏源理论。
-
-在这一点上，鉴于有大量有效证据表明实验室泄漏确实是真实的，因此任何人都无法声称实验室泄漏理论是一个疯狂的阴谋论。
-
-大批评论员现在都指出，在大流行爆发后的几个月里，与实验室泄漏起源理论有关的信息遭到了主要社交媒体网络的无情审查。
-
-唐纳德·特朗普总统通过强调实验室泄漏理论而屡次被指控传播假新闻。
-
-这是特朗普总统于2020年4月告诉世界，该病毒很可能是从武汉病毒研究所出来的pic.twitter.com/p7q0kQQdrv
-
--Jack Posobiec（@JackPosobiec）2021年5月23日
-
-迈克尔·特雷西（Michael Tracey）说：“坏主意比如，任命技术官员担任构成“阴谋论”或“虚假信息”的仲裁者，并要求他们在此基础上进行社交媒体清洗。”https://t.co/2SFPtx5K59
-
--Michael Tracey（@mtracey）2021年5月24日
-
-“一年前，实验室泄漏理论被Facebook的“独立”事实检查员视为“错误信息”，并删除了提及它的帖子。现在，连福奇博士都说应该对此进行调查。托比·扬说，这是很好的例子说明了为什么大型高科技公司不应该审查“错误信息”。
-
-— Toby Young（@toadmeister）2021年5月23日
-
-“因此，现在主流媒体都承认CoVid起源于实验室的可能性（在对特朗普的申诉进行了无情的嘲笑一年之后），让我问问你……如果这信息去年就可以拿出来用的话，会对选举有影响吗？”史蒂文·克劳德问。
-
--史蒂文·克劳德（@scrowder）2021年5月24日
-
-不要指望社交媒体网络会为此道歉。如果他们承认自己做错了，就会支持这样的断言，即他们不应该成为真理的最终仲裁者，但是他们永远不会接受这样的观点做前提。
-
-新闻来源：[零对冲](https://www.zerohedge.com/covid-19/social-media-censorship-slammed-after-fauci-admits-possibility-wuhan-lab-leak?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+[https://tass.ru/mezhdunarodnaya-panorama/11449025?utm\_source=twitter.com&utm\_medium=social&utm\_campaign=smm\_social\_share](https://tass.ru/mezhdunarodnaya-panorama/11449025?utm_source=twitter.com&amp;utm_medium=social&amp;utm_campaign=smm_social_share)
 
 0

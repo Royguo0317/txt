@@ -1,35 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 牛津盗用疫苗接种者手机数据进行“移动性研究”
-` Revelation119熙攘` [轉載自GNews](https://gnews.org/zh-hans/1269422/)
+## 风向变了 闫博士报告的反对者们纷纷撤下了他们的报道
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1269207/)
 
-[加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf](https://gnews.org/zh-hans/author/gnewscanada/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24120952/croppio_userdata.png)
-据《零对冲》最新刊文，在刚刚曝光的一起公然侵犯病人医疗隐私的事件中，英国政府承认，作为一项疫苗接种研究的一部分，在没有告知的情况下，政府收集并使用了疫苗接种者的智能手机数据以进行“移动性研究”。
+**摘要：在2021年5月21日的盖特视频中，郭先生说曾经最反对和攻击过闫博士报告的“大咖”、科学家、媒体纷纷默默撤下他们的报道，在斯坦福和MIT这两所顶级大学的科学家们都透彻研究了闫博士的报告，他坚信国会一定会召开病毒听证会，因为这不是政客能决定的，这是美国人民意志决定的。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24102333/Miles_2021-05-21-getter1.srt.txt)
+**风向变了  闫博士报告的反对者们纷纷撤下了他们的报道**
 
-独立科学疫情行为洞察小组（SPI-B）的一份报告称，牛津大学的研究人员在研究接种疫苗如何影响疫苗接种者的生活方式时，使用了他们的手机数据。
+**Opponents of Dr. Yan’s Reports Secretly Switch Gears **
 
-独立科学疫情行为洞察小组为紧急情况科学咨询小组（SAGE）提供咨询建议，而紧急情况科学咨询小组则负责为政府提供建议，并在英国对抗中共病毒疫情的斗争中发挥了关键作用。协助阿斯利康制药公司开发中共病毒疫苗的牛津大学负责收集疫苗接种者手机数据。
+另外一个你看到世界的这个局势，关于病毒的问题。今天一大早，咱们最好的合作伙伴，这名字不能说，这是在美国政界的大佬，给我发信息说，他说你发现了吗？最近的某某某的发言，也就是原来最最反对我们的闫博士的所谓三个报告的，曾经在不同场合反对我们的科学家报告的人。他说，最近在私下场合已经是不一样的说法了。他说闫丽梦科学家讲的这些事情，是有很大的价值的，而且是可信的。
 
-参与这项大规模研究的科学家们在2月份对10%的英国人口的手机记录进行挖掘，挑出了一组大约4250人进行更密切的监测，以了解疫苗接种对个人生活方式的影响。
+Likewise, you look at the situation of the world, about the virus. Early this morning, our best partner, who I can’t say his name, a bigwig of American politics, sent me a message talking about someone who previously opposed the three reports of our Dr. Yan most, on several different occasions in the public. He said, “Have you noticed the recent speech of XXX? Recently this guy has changed his narrative privately.” He also said that the things that Dr. Li-Meng Yan had talked about were of great value and credibility.
 
-研究人员按年龄对这组疫苗接种者进行了排序并做了“各种稳健性检查”，同时使用他们的手机数据测量“从家到中共病毒接种点的距离”以及收集了其他数据。通过这些数据，研究人员发现这些疫苗接种者“比接种疫苗前平均活动距离增加了218米“。
+所以说这个朋友问我，说你觉得国会听证的事情会不会发生。我说我们一定会让它发生的，国会的听证一定会发生的。美国国会的听证就是已经取决于美国人民的意志，他不代表哪个流氓政客，一定会发生的。他说不可能，民主党在就永远不会让你这个事儿发生，我说咱走着瞧。
 
-一位政府发言人坚称，这些数据已经被适当地匿名化，而且是在“手机信号塔而不是个人层面“收集的。研究人员得到了牛津大学的批准。尽管如此，隐私组织老大哥观察说，这些发现“令人深感不安，对公众对医疗数据安全的信任造成了极大的损害“。该组织说，“在即将到来的中共疫苗护照和疫苗接种病人手机监控之间，这个政府正在将英国变成一个以中共病毒为借口对民众进行监控的国家。”
+So this friend asked me, “Do you think the congress hearing will happen?” I said “We will definitely make it happen. The congress hearing will definitely happen. The U.S. Congress hearings are determined by the will of the American people, not represented by any rogue politicians. It will definitely happen.” He said, “No way. As long as the Democratic Party still exists, it will never let it happen.” I said, “Let’s wait and see.”
 
-为了确保这些不知情的研究对象的匿名效果，这些人每个月都会得到“一个新的身份编号“。分享给科学家的唯一基本人口统计学数据是年龄。消息人士说，这不是一些大型商业公司通常用于定向广告的全球定位系统的位置追踪数据。
+昨天大家看到了，最早就是Politico 那个网站，就政治网站，所谓跟美国把脉的网站，最早也对我们的科学家进行攻击。其中他们有两个记者，是绝对亲共的人，也攻击过我们多次的人。他现在都改口了，而且悄悄地在网站上把攻击科学家的那些所谓的报告撤掉了。大家你们发现了吗，在英国，在德国，所谓的几个大咖，那些科学家，在他们的社交媒体网站上，攻击科学家攻击闫丽梦博士的，所谓病毒的真相的这些报导，说来自于自然根本不是来自实验室，通通撤掉了。
 
-这项研究得到了英国隐私监督机构——信息专员办公室——的批准，被允许在对抗中共病毒时使用疫苗接种者的手机数据。信息专员办公室发言人说，“公共机构可能需要额外收集和分享个人数据，以抗击中共病毒对公众健康的严重威胁。”
+As you saw yesterday, Politico, the website, a political website claiming to be able to make diagnosis for the US, which attacked our scientist (Dr. Yan) early on, has two journalists who are absolutely pro-CCP and have attacked us many times. Recently it changed its tone and quietly removed those so-called news reports that attacked our scientist from its website. Have you noticed that? In Britain and Germany, there were several so-called big names, scientists, who attacked our scientist Dr. Li-Meng Yan on their social media, who posted their so-called reports of the truth about the virus to claim the virus was originated from nature but not lab. They have withdrawn all those reports.
 
-支持数据隐私运动人士已经多次警告，在中共病毒疫情大流行期间开发的接触追踪和其他医疗应用程序可能导致长期的数据滥用。上个月，谷歌和苹果拒绝在其应用商店提供英国国家医疗服务中心的接触追踪应用程序的更新。这清楚地表明英国政府愿意越过这条甚至会让美国科技巨头都感到不舒服的红线，而这些科技巨头已经因隐私滥用问题而被美国国会置于严格的审查之中。
+不仅如此，在斯坦福大学，美国斯坦福大学在生物里那是绝对是权威的，MIT大学，哈佛是流氓政治大学，就不管了，这两个学校，你去看看现在内部人讨论的最多是什么？共产党的病毒的真相来自于武汉实验室，所有的人手上，都研究透了科学家的三个报告。而且科学家向这些媒体上，展示最重要的就是《非典非自然》（全称：《非典非自然起源和人制人新种病毒基因武器》）的整个这本书里面，共产党自己自证的，自己证明了自己，早有准备，这是一个超限生物战。在全世界广泛的现在认可就是，科学家定义的，这叫超限生物战。
 
-评：
+Not only that, Stanford University, which, in the United States, is the absolute authority in biological research, and MIT – Harvard is a rogue political university, so just ignore it –  these two schools, you can go check what is the most discussed by their insiders now? [They were discussing] the truth about the CCP virus coming from the Wuhan lab. All these people have the three reports of our scientist (Dr. Li-Meng Yan) on their hands and have analyzed them thoroughly. And most importantly, our scientist showed to the media the CCP’s own text book,  regarding the unnatural origin of SARS which was self-evident, proofing CCP’s long term planning for this and that this is unrestricted biowarfare. Now this concept has been widely recognized by the world, which was defined by our scientist – called “unrestricted biowarfare”.
 
-中共病毒疫苗护照及接触追踪应用自中共病毒大流行初始即成为各注重保护个人隐私的国家争论的焦点。对隐私的保护在许多国家的立法及执行层面业已建立起较成熟的法律及社会认知体系，这对先天倾向于监控民众的政府推行疫苗护照和接触追踪应用建立起了一个“天然”屏障。可是，我们看到，诸如英国政府在这方面“矢志”向前推进。中共病毒大流行给了这些政府一个监控民众的难得的借口，可是，来自民众及支持数据隐私组织乃至负责任的美国国会的巨大阻力已在预料之中。
+*（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60a7bc16d48e020926645716](https://gtv.org/getter/60a7bc16d48e020926645716) (1:36-4:42)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1262482/](https://gnews.org/zh-hans/1262482/)*
 
-[原文链接](https://www.zerohedge.com/markets/oxford-secretly-used-millions-patients-cell-phone-data-vaccine-mobility-study)
+* * *
 
-**免责声明: 文章仅代表作者观点。**
+**翻译：【一花一世界】
+字幕：【XO小粉红】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
