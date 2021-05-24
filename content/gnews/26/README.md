@@ -1,57 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】印度爆发新冠病毒变种是大规模接种疫苗而来的吗？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1267876/)
+## 西方领导人集体缺席“一带一路” 会议 -中共傻眼
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1267942/)
 
-作者：纽约香草山媒体部 7bends
+翻译与评论: Hong
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24003408/0524%E7%AC%AC%E4%B8%89%E7%AF%87.png)（图片来自Gnews战友）
+5月20日，中共“一带一路”博览会在重庆开幕，中共原本期待这是一个“与西方携手共创美好未来”的机会。受邀的嘉宾的名单上有很多西方蓝筹公司，他们受邀投资“一带一路”的大规模基础设施建设项目，这是习近平对外扩张政策的主要内容。
 
+但是，令中共颜面扫地的是，受邀的西方国家领导人集体缺席。面临国际会议被西方拒绝，中共会议组织者只好来了个脑筋急转弯，无奈将周五举办的博览会改称为“加强与东盟成员国伙伴关系“的会议。
 
+由于中共侵犯人权的问题及华盛顿与中共贸易紧张的局势，最初微软（Microsoft）、埃克森美孚（ExxonMobil）、沃尔玛（Walmart）和戴姆勒（Daimler）等公司被邀请参加这个在重庆大都市举行的中国西部国际投资贸易博览会。但最终所有这些公司都拒绝派高管参加这次会议及相关的活动。只有来自来新加坡、越南、老挝和其他一些参与”一带一路”国家的高级政府官员出席了此次博览会。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+中共重庆市市长唐良志在会上中说：“我们将加深与东盟的经贸合作，并分享中国内陆地区的商机。”据重庆政府介绍，2021年的博览会将带来2285亿人民币（约合354亿美元）的重大项目合同，这比2019年签约的总额下降了30%。此次博览会的目的是加速习近平谋划的“一带一路”基础设施建设。
 
+重庆在“一带一路”建设中扮演着重要的角色，被视为链接亚欧铁路运输的纽带，中欧重庆班列是连接欧洲与东南亚的主要贸易通道。
 
+但是，中共对新疆维吾尔族人犯下了种族灭绝罪，对香港人民实施武力镇压，中共对全球发动了生物武器病毒战；以及中共与台湾的紧张关系，中共与美国和欧洲关系严重恶化，中共今年三月又对欧盟议员、学者和专门机构实施了毫无根据和任意的制裁。中共的所作所为引起了西方各国的强烈不满。就在5月20日,欧洲会议以压倒性的优势投票通过了结冻《中欧全面投资协定》的决议。
 
-5月20日，Ethan Huff 在*Natual News*上撰文称，印度现有的3532个正在流传的新冠病毒变种几乎都是在人群开始大量接种疫苗后立即出现的。
+“一带一路”博览会受挫让中共颜面尽失，中共官方媒体对西方大公司集体缺席这次国际会议，掩耳盗铃，死死捂住不做报道。
 
-![]()![](https://media.discordapp.net/attachments/824587088309649429/846103721942188062/image0.jpg?width=1083&amp;height=609)
+中共的疯狂加速了自身的灭亡，中共“一带一路”称霸全球的扩张战略屡受重挫。眼下，全球对中共的认识已经发生了质的改变，世界各国联手灭共的趋势越发明朗;四面楚歌的中共，已成过街老鼠，人人喊打。中共政权正处于崩溃的边缘，让我们拭目以待!
 
-《The Hindu》5月6日报道，印度的27个州都有这些变异病毒。据称，在确定的3532种变异中，被称为B.1.617的双重突变株的数量正在上升，而源于英国的B.1.1.7变种正在减少。这也促使印度政府宣布，正在遭受新冠病毒的第三波攻击。究其原因，印度政府认为B.1.617可能与在过去几周造成大量死亡的第二波疫情有关。与此同时，中共却对印度因新冠疫情造成大量死亡进行嘲笑。
+（文章仅代表作者本人观点,与GNews无关）
 
-Ethan Huff问到，虽然印度卫生部将其破纪录的每日死亡人数归咎于变种，但这不会是大规模注射疫苗而引起的吗？在此之前，印度的疫情一直控制的很好。
+*审稿：童媚*
 
-![]()![](https://media.discordapp.net/attachments/824587088309649429/846103722421649448/image1.jpg?width=626&amp;height=609)新闻截图
+*编辑：MG5*
 
-看了这篇文章，让笔者联想到5月18日诺贝尔医学奖得主法国病毒学家吕克-蒙尼耶教授（Prof. Luc Montagnier）发表的观点，他认为大规模的疫苗接种创造了病毒变异。
+新闻参考来源：
 
-同时，这更让笔者想到，爆料革命文贵先生很早就说过，共产党用冠状病毒和疫苗经济来控制世界，而疫苗经济、疫苗政治最后一定会演变成疫苗灾难、疫苗战争。
-
-参考阅读：
-
-[Explosion of 3,500 new covid “variants” follows mass vaccination campaign in India](https://www.naturalnews.com/2021-05-20-3500-covid-variants-mass-vaccination-campaign-india.html)
-
-[Bombshell: Nobel Prize Winner Reveals – Covid Vaccine is ‘Creating Variants’](https://rairfoundation.com/bombshell-nobel-prize-winner-reveals-covid-vaccine-is-creating-variants/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
+[https://asia.nikkei.com/Spotlight/Belt-and-Road/Snubbed-by-the-West-China-courts-ASEAN-at-Belt-and-Road-expo](https://asia.nikkei.com/Spotlight/Belt-and-Road/Snubbed-by-the-West-China-courts-ASEAN-at-Belt-and-Road-expo)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
 0

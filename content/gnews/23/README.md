@@ -1,46 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 抖音母公司利用中国共产党官员作为招聘宣传材料
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1267915/)
+## 议员科顿强调拜登政府必须尽快追究中共的病毒责任
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1267887/)
 
-翻译：康州盘古 – 郭班之樱
+加拿大多伦多枫叶农场 向真
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24001624/essence.com-2.jpg)*图片来源：essence.com*
+美国共和党的未来之星汤姆．科顿，作为议员在应对中共病毒方面曾经创造了两个第一，第一个发生在2020年1月28日，他是首位警告并敦促川普政府停飞中共国航班的议员；在2020年2月17日的福克斯采访中，科顿是第一位指出中共病毒可能来自中共国武汉P4 实验室的议员。科顿对中共病毒来源的准确判断，早于绝大多数西方的病毒学家和情报界。在推进病毒追责上，科顿没有停下脚步，他现在提出了新的主张。
 
-校对：康州盘古- Mike Li
+科顿在今天接受福克斯玛丽亚的访问时指出，中共宣称“冠状病毒”来自云南省的蝙蝠洞穴，用常识想想吧，云南和武汉相距约1500公里，这些病毒究竟如何传入武汉病毒研究所附近的零号病人，中共给不出任何证据。不管中共如何掩盖和撒谎，实际上已经有充分的证据证明病毒来自武汉病毒研究所。但是距离疫情爆发已逾15个月，美国政府在病毒来源的追溯和认定上，迟迟未能对恐惧不安的民众做出应有的交代。因此科顿强调“问题必须得到答案。当务之急是，拜登政府必须尽快追究中共的病毒责任”。
 
-审核：康州盘古- 傻小子
+科顿1977年出生，高中时是学校蓝校队队和所在地区队的蓝球中锋，哈佛大学毕业，37岁当选国会议员，作为军人在伊拉克战争中获得两枚勋章。曾经是川普政府时期国防部长和中情局局长的候任人选，和军人出身的班农一样是鹰派人物。在战场上经过战火洗礼的中尉科顿，有着不同寻常的敏锐嗅觉、勇气和担当，能够迅速判断郭文贵先生领导的爆料革命和闫丽梦博士最早提供的中共病毒情报的真伪，为拯救更多人做出了功勋贡献，这或将成为他一生中最大的资产。美国政治杂志称他是“最有可能成功的人”，可谓名至实归。
 
-发布：康州盘古农场 – 彩虹 Rainbow
+[原文链接](https://www.breitbart.com/clips/2021/05/23/cotton-imperative-the-biden-admin-hold-chinese-communist-party-accountable-for-coronavirus/)
 
-**据《国家脉动》作者：娜塔莉·温特斯，2021年5月21日发布**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235505/phone4.jpg)
-《字节跳动》公司与中共国政府之间的旋转门是该公司的应用程序抖音受到了中共渗透侵害的又一证据。
+* * *
 
-简·波尔图（Jian Porto），自2016年以来一直在字节跳动工作，他在加入该公司之前曾担任为期六年的中国共产党官员。 Jian Porto目前是字节跳动在巴西的国家经理，他在2010年至2011年期间担任中共国外交部外交官，重点研究“拉丁美洲和加勒比海问题”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235635/papela.png)
-从2011年到加入抖音的母公司之前，Jian Porto一直是中共国驻巴西里约热内卢总领事馆的副领事。 在中国共产党外交职位上卸任以后，他随即加入了字节跳动担任内容整合服务总监，之后被提升为娱乐服务总监，随后又升任现职的巴西国家经理。
+编辑 发稿 云起时
 
-Jian Porto对字节跳动的夸赞在公司招聘工作中得到了显着的体现。 宣传材料援引他的讲话说：“公司的文化对员工而言是独特的和个性化的，与个人价值观相结合，可以使两者都朝着他们的目标迈进。”
-
-Jian Porto也出现在广告系列中。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235547/sasas.jpg)
-**JIAN PORTO用的宣传材料**
-
-该公司公开承认在招聘过程中会优先考虑中共党员。在分享的一份招聘启事中宣布“首先考虑中共党员”，并列出其理想招聘对象为“爱好新闻阅读，关心时事，并具有良好的政治敏感性和判断力”的人。
-
-然而，Jian Porto并不是唯一的中共官员工作于该公司。
-
-窦简（Jane Dou），自2018年以来一直在字节跳动工作，她也曾在中共国外交部任职。 在LinkedIn（一个通过网站和移动应用程序运营的美国商业和就业导向型的在线服务）上，她将自己列为2012年在国家主席习近平办公室工作的新闻翻译。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235533/sasaq.png)
-现在，窦担任字节跳动管理办公室的首席执行官，负责监督许多任务，其中包括“机密项目”。 在担任此职位之前，她曾担任字节跳动全球传播高级经理和国际产品公共事务主管。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235516/okol.png)
-Natalie Winters
-娜塔莉·温特斯（Natalie Winters）是《国家脉动》的调查记者，也是《国家脉动》播客的撰稿人。
-
-原文链接：[https://thenationalpulse.com/breaking/tiktok-uses-ccp-official-in-hiring-promo/](https://thenationalpulse.com/breaking/tiktok-uses-ccp-official-in-hiring-promo/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1

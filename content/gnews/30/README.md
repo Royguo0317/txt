@@ -1,37 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇变脸不确信病毒起源于自然
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1267823/)
+## 抖音母公司利用中国共产党官员作为招聘宣传材料
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1267915/)
 
-翻译：康州盘古农场 – 柯镇恶
+翻译：康州盘古 – 郭班之樱
 
-校对：康州盘古农场 – TrueSky
+校对：康州盘古- Mike Li
 
-编辑：康州盘古农场 – 傻小子
+审核：康州盘古- 傻小子
 
 发布：康州盘古农场 – 彩虹 Rainbow
 
-**据《国家脉动》作者：NATALIE WINTERS， 2021年5月22日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23224237/sopppng.png)
-据《国家脉动》作者：NATALIE WINTERS， 2021年5月22日报道：
+**据《国家脉动》作者：娜塔莉·温特斯，2021年5月21日发布**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235505/phone4.jpg)
+《字节跳动》公司与中共国政府之间的旋转门是该公司的应用程序抖音受到了中共渗透侵害的又一证据。
 
-福奇最新的表态，是在PolitiFact与中共关联公司联合举办的活动上，接受凯特·桑德斯（Katie Sanders）的采访时发表的。
+简·波尔图（Jian Porto），自2016年以来一直在字节跳动工作，他在加入该公司之前曾担任为期六年的中国共产党官员。 Jian Porto目前是字节跳动在巴西的国家经理，他在2010年至2011年期间担任中共国外交部外交官，重点研究“拉丁美洲和加勒比海问题”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235635/papela.png)
+从2011年到加入抖音的母公司之前，Jian Porto一直是中共国驻巴西里约热内卢总领事馆的副领事。 在中国共产党外交职位上卸任以后，他随即加入了字节跳动担任内容整合服务总监，之后被提升为娱乐服务总监，随后又升任现职的巴西国家经理。
 
-桑德斯问福奇（美国国家过敏与传染病研究所主任）：“你是否仍然坚信它（病毒）是自然产生的？”
+Jian Porto对字节跳动的夸赞在公司招聘工作中得到了显着的体现。 宣传材料援引他的讲话说：“公司的文化对员工而言是独特的和个性化的，与个人价值观相结合，可以使两者都朝着他们的目标迈进。”
 
-他回答说，“不，不是的” 他补充说，“不确信”病毒起源于自然：
-“不，我对此不确信。我认为我们应该继续调查在中共国发生了什么，直到尽我们的最大努力，查明到底发生了什么。诚然，进行过调查的人们（指WHO的调查）说病毒可能来自于动物然后感染了人类，但真实情况也可能不是这样，而是其他原因。而这正是我们需要查明的。所以，你看，这就是为什么我完全支持对病毒的起源进行调查。”
+Jian Porto也出现在广告系列中。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235547/sasas.jpg)
+**JIAN PORTO用的宣传材料**
 
-福奇对COVID-19起源的新的怀疑与他之前的姿态并不相符。据《国家地理》（National Geographic）2020年5月的文章显示：
-福奇说，“随着时间的发展，所有的证据都强烈地表明，病毒从自然进化而来然后跳到了生物身上”。基于科学证据，他不认可病毒从实验室泄露的理论。
+该公司公开承认在招聘过程中会优先考虑中共党员。在分享的一份招聘启事中宣布“首先考虑中共党员”，并列出其理想招聘对象为“爱好新闻阅读，关心时事，并具有良好的政治敏感性和判断力”的人。
 
-主流媒体曾一度支持福奇的这种说法，以此反对川普政府对病毒来自于武汉病毒研究所的声称。
+然而，Jian Porto并不是唯一的中共官员工作于该公司。
 
-原文链接：[https://thenationalpulse.com/breaking/fauci-flip-flops-on-covid-origins/](https://thenationalpulse.com/breaking/fauci-flip-flops-on-covid-origins/)
+窦简（Jane Dou），自2018年以来一直在字节跳动工作，她也曾在中共国外交部任职。 在LinkedIn（一个通过网站和移动应用程序运营的美国商业和就业导向型的在线服务）上，她将自己列为2012年在国家主席习近平办公室工作的新闻翻译。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235533/sasaq.png)
+现在，窦担任字节跳动管理办公室的首席执行官，负责监督许多任务，其中包括“机密项目”。 在担任此职位之前，她曾担任字节跳动全球传播高级经理和国际产品公共事务主管。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235516/okol.png)
+Natalie Winters
+娜塔莉·温特斯（Natalie Winters）是《国家脉动》的调查记者，也是《国家脉动》播客的撰稿人。
+
+原文链接：[https://thenationalpulse.com/breaking/tiktok-uses-ccp-official-in-hiring-promo/](https://thenationalpulse.com/breaking/tiktok-uses-ccp-official-in-hiring-promo/)
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
 康州盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-+1
+0

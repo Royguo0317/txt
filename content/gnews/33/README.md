@@ -1,49 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独立观点】立陶宛退出中共17+1合作组织，气爆《环球》
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1267652/)
+## 【热点播报】印度爆发新冠病毒变种是大规模接种疫苗而来的吗？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1267876/)
 
-作者：纽约香草山健身部 Jack Li文阳
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+作者：纽约香草山媒体部 7bends
 
 
 
-5月22日，立陶宛政府外长宣布正式退出中共与中东欧17+1合作组织，并敦促欧盟国家一同退出。此消息一出，中共“环球时报”连发数篇“强文”，连珠炮轰欧洲小国立陶宛。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-“环球”说，人口不到300万的波罗的海小国立陶宛，欧洲人口最少的国家之一，不及中共国一线城市的一个区，八杆子打不到的国家，不值得为了它而动气。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23225226/Untitled-design-39-1.png)
-试问中共“环球”，你口中的立陶宛如此的小而不堪，如何就入了你的法眼搞什么17+1，当时你就不嫌人家国家弱，人口少？莫非有什么见不得人的阴谋？
 
-“环球”说不值得为立陶宛动气，又何需气急败坏的说人家“立陶宛，疯了吗？” 立陶宛跳下贼船，明智之举，疯的是“环球”，狂的是中共。
 
-“环球”又说：它针对中共国的所有表态都只具有象征意义，是美国对华博弈所产生的一个半实半虚的临时回响。它自尊，我们就尊重它，它不自量力地自我膨胀，甚至想挑衅中国，我们就拉黑它，当它不存在。
+5月20日，Ethan Huff 在*Natual News*上撰文称，印度现有的3532个正在流传的新冠病毒变种几乎都是在人群开始大量接种疫苗后立即出现的。
 
-“环球”的气急败坏，恰好证明，立陶宛就是那只扇动翅膀的蝴蝶，如果仅仅象征意义这么简单，蚊型小国哪里请得动“环球”大驾。“环球”最好还是平常心对待，小心又骂出几个象立陶宛这样的国家，如何向习神交代。
+![]()![](https://media.discordapp.net/attachments/824587088309649429/846103721942188062/image0.jpg?width=1083&amp;height=609)
 
-中共丧心病狂，发出死亡威胁说：这么小的国家四处出击，上赶着做大国博弈的工具，早晚要引火烧身，就像中国老百姓说的“不作不死”。波罗的海地区的地缘政治极其复杂，各种极端的历史记忆严重重叠，今天的立陶宛不思化解旧恨，反而不断构建新仇，有他们倒霉的时候。
+《The Hindu》5月6日报道，印度的27个州都有这些变异病毒。据称，在确定的3532种变异中，被称为B.1.617的双重突变株的数量正在上升，而源于英国的B.1.1.7变种正在减少。这也促使印度政府宣布，正在遭受新冠病毒的第三波攻击。究其原因，印度政府认为B.1.617可能与在过去几周造成大量死亡的第二波疫情有关。与此同时，中共却对印度因新冠疫情造成大量死亡进行嘲笑。
 
-立陶宛虽小，却不屑见利忘义。立陶宛议会5月20日成为最新一个将中共国对其维吾尔少数民族行为称为“种族灭绝”的国家议会。立陶宛议会呼吁联合国对中共国在新疆设立的拘留营进行调查，并要求欧盟委员会审查自身与北京的关系。
+Ethan Huff问到，虽然印度卫生部将其破纪录的每日死亡人数归咎于变种，但这不会是大规模注射疫苗而引起的吗？在此之前，印度的疫情一直控制的很好。
 
-同一天，欧盟议会通过冻结“欧中投资协定”。立陶宛还于今年3月份宣布将在台湾设“贸易代表处”，努力推进与台湾的关系。
+![]()![](https://media.discordapp.net/attachments/824587088309649429/846103722421649448/image1.jpg?width=626&amp;height=609)新闻截图
 
-虽为“陶碗”，不甘躺平而立，故自称立陶宛，为正义不畏强权。中共作恶多端，众叛亲离，其在新疆的种族灭绝问题、香港镇压民主、网路安全、17+1和一带一路的债务陷阱等问题，让欧洲各国日渐担忧，纷纷跳离中共的破船贼船。立陶宛的公义明智之举定能引发更多的国家认清中共的邪恶嘴脸，与之决裂。
+看了这篇文章，让笔者联想到5月18日诺贝尔医学奖得主法国病毒学家吕克-蒙尼耶教授（Prof. Luc Montagnier）发表的观点，他认为大规模的疫苗接种创造了病毒变异。
 
-参考阅读：https://opinion.huanqiu.com/article/43F4WKAL1ZU
+同时，这更让笔者想到，爆料革命文贵先生很早就说过，共产党用冠状病毒和疫苗经济来控制世界，而疫苗经济、疫苗政治最后一定会演变成疫苗灾难、疫苗战争。
 
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
+参考阅读：
+
+[Explosion of 3,500 new covid “variants” follows mass vaccination campaign in India](https://www.naturalnews.com/2021-05-20-3500-covid-variants-mass-vaccination-campaign-india.html)
+
+[Bombshell: Nobel Prize Winner Reveals – Covid Vaccine is ‘Creating Variants’](https://rairfoundation.com/bombshell-nobel-prize-winner-reveals-covid-vaccine-is-creating-variants/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0
