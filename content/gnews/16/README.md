@@ -1,48 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国情报报告加速推进世界卫生组织对病毒起源的调查
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1269308/)
+## 【热点播报】中共环球渲染俄媒报道 美X-37机可携带核弹头
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1269379/)
 
-作者：香草山信息部  雪梨
+作者：纽约香草山健身部 文鹰
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24103844/%E5%9B%BE%E7%89%8727-2.png)
-周日，《[华尔街日报](https://www.wsj.com/articles/intelligence-on-sick-staff-at-wuhan-lab-fuels-debate-on-covid-19-origin-11621796228?mod=e2tw)》援引一份此前未披露的美国情报报告称，武汉病毒研究所（WIV）的三名研究人员在2019年11月寻求医院治疗。正值世界卫生组织（WHO）决策机构开会的前夕，这份报告预计将成为呼吁WHO对COVID-19病毒起源进行更广泛调查的一枚重量级砝码。
-
-这份报告的内容与川普政府于1月15日发布的关于WIV的[国务院简报](https://2017-2021.state.gov/fact-sheet-activity-at-the-wuhan-institute-of-virology/index.html)吻合。该简报提到，“美国政府有理由相信，在2019年秋季，WIV内部的几名研究人员在第一个被确认的疫情病例之前就已经生病”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24103823/%E5%9B%BE%E7%89%8728-2.png)
-《华尔街日报》称，这份报告的细节超出了川普政府的简报内容，提供了关于受影响的研究人员数量、患病的时间以及他们在医院就诊的新细节。
-
-3月30日，WHO发布[病毒起源报告](https://www.who.int/publications/i/item/who-convened-global-study-of-origins-of-sars-cov-2-china-part)，称“实验室泄露是最不可能的假说”。同一天，美国、澳大利亚、英国、加拿大、日本等14个国家发表[联合声明](https://www.state.gov/joint-statement-on-the-who-convened-covid-19-origins-study/)，对世界卫生组织新公布的有关新冠病毒起源的报告提出了共同的关切，对有关病毒起源的国际专家研究被严重推迟，而且缺乏获取完整和初始数据与样本的准入途径表达关切，希望“为病毒起源研究的下一阶段及时、透明、基于证据的程序以及下一次卫生危机”铺路。
-
-WHO称该调查报告虽然反映了对现有数据的全面审议，但“还没有发现病毒的源头”。并声明访问武汉期间，他们在获取原始数据等方面遇到了困难。总干事谭德塞此前也声称还需要进一步研究和更多的数据来证实病毒来源。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
 
-> 世卫组织顾问，曾为克林顿政府和拜登工作过的左派梅茨接受福克斯采访，呼吁全体美国人、美国政府、全人类、全世界政府团结一起彻查病毒来源真相
-> 他说，如果病毒源于实验室事故泄漏，这就是刑事犯罪，习近平会被推翻
-> 
-> 一个标准左派，作为世卫顾问，接受右派媒体采访，号召美国人团结一致，什么情况？ [pic.twitter.com/vmCXzNxOOq](https://t.co/vmCXzNxOOq)
-> — 乔戈里峰 (@K2Qiaogeli) [May 23, 2021](https://twitter.com/K2Qiaogeli/status/1396614772355833856?ref_src=twsrc%5Etfw)
+近日中共媒体引用俄罗斯卫星网消息，俄罗斯军工企业金刚石-安泰公司总经理扬·诺维科夫接受媒体采访公开警告：“美国太空战机最多可携带6枚核弹头，2025年前美国将拥有8架太空战机，这当然是一个严峻的挑战”。（1）
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24111507/%E5%9B%BE%E7%89%8729-1.png)图片来源：美国卫星网站
 
+美国X-37太空战机，严格来讲是一种轨道飞行测试器（OTV），最新型号是X-37B，波音公司制造，目前是世界上最新、最先进的重返航天器之一。设计用于在距地球150～500英里的低地球轨道上运行，能够搭载实验材料设备返回地球进行进一步检查和分析，也能释放微型侦察卫星。飞行任务是绝密的。根据美国报道该无人飞行器已经进行了6次太空任务，OTV-5任务在轨道航行780天后重返地球。（2）
 
-梅茨，世卫组织顾问，曾服务于克林顿政府，并与拜登共事，在接受福克斯采访时说中共从第一天起就大规模掩盖病毒真相，并呼吁美国政府和全世界政府在第二天召开的世卫大会上寻求更大的改变；同时称，如果病毒源于实验室事故泄漏，将属于刑事犯罪，习近平会被推翻。
+俄媒报道的军工企业是俄罗斯导弹防御系统设计制造的主要科研单位。其最新的S-500防空导弹系统，经18年时间研制，在不断改进导弹、雷达系统后，于2020年开始测试，预计2025年才可装备俄军。X-37B的威胁在于它在轨道航行不是固定的，接近大气层可以随时转弯机动。即使俄先进的有源相控雷达“叶尼塞”侦测到飞行器，预留瞄准导弹发射时间短，也会突然丢失飞行器目标。况且S-500导弹使用的77N6-N1弹头，最高拦截高度200公里。路德博士团也介绍过此美军绝密太空飞行器X-37B采用核动力装置，轨道航行不确定滞空时间长，地面很难发现目标。如果和美军F-22战机、F-35战机联合共享太空侦察数据，并运用参与实际作战，将极大地威胁敌国。
 
-以毒灭共进展迅速。情报界，塞林博士与战友们倾力合作，逐步挖掘出中共病毒背后的始作俑者和利益相关方。政治界，[巴西总统Bolsonaro](https://www.dailymail.co.uk/news/article-9550207/Brazils-hardline-President-Bolsonaro-says-China-created-COVID-19-spark-chemical-war.html)此前演讲称，中共发动了生化战争；美国联合各国政府向中共施压。科学界，先有前CDC总监Robert Redfield声称病毒起源于实验室；现福奇博士抓住闫博士抛出的救命稻草，跳下贼船，成为“无辜科学家”，不否定病毒来自实验室的说法，并支持对病毒来源进一步调查。媒体界，CNN著名主持人Sanjay Gupta此前公开支持Robert Redfield的病毒实验室起源说；如今，病毒实验室起源说已成为美国左中右派、及世界各大媒体的焦点。
+前苏联是第一个把人类送上太空的共产主义国家，20世纪80年代被美国“星球大战”计划及阿富汗战争逐渐拖垮国力，如今太空科技仍远远落后于美国。军工巨头发出警告，既显示了俄防空系统的技术短板，又过度解释了核威胁。
 
-以共灭共势不可挡。中共内忧外患。内，楼震，粮食危机，银行危机，货币危机，金融危机，人民对中共的信心降到冰点；外，八十国联军全面追责病毒起源，全世界冻结中共资产，西方与中共国全面脱钩，BGY全面崩溃，利益链集体切割。
+难道又是为自己设计的导弹防御系统缺陷找借口，还是为了争取更多的巨额研发资金，不得而知。至于中共媒体的跟风报道，无非也是“吃不到葡萄，说葡萄酸”的感觉吧！
 
-中共无处遁形。承认病毒来自实验室，中共解体；继续捂着，死不承认，内外高压，经过内部斗争，输家被推出去顶罪，国人觉醒，中共还是得解体。
+参考阅读：
+
+（1）https://world.huanqiu.com/article/43FVj7WdTYX
+
+（2）https://directory.eoportal.org/web/eoportal/satellite-missions/v-w-x-y-z/x-37b-otv
 
 校对/发稿：飞虹
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
-
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
 
 **更多资讯，更多关注**
 
@@ -55,5 +43,7 @@ WHO称该调查报告虽然反映了对现有数据的全面审议，但“还�
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
 
 0

@@ -1,47 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 风向变了 闫博士报告的反对者们纷纷撤下了他们的报道
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1269207/)
+## 医生称廉价药物混合可以帮助印度摆脱COVID危机
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1269458/)
 
-**摘要：在2021年5月21日的盖特视频中，郭先生说曾经最反对和攻击过闫博士报告的“大咖”、科学家、媒体纷纷默默撤下他们的报道，在斯坦福和MIT这两所顶级大学的科学家们都透彻研究了闫博士的报告，他坚信国会一定会召开病毒听证会，因为这不是政客能决定的，这是美国人民意志决定的。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24102333/Miles_2021-05-21-getter1.srt.txt)
-**风向变了  闫博士报告的反对者们纷纷撤下了他们的报道**
+- 作者：Jenny Ball
 
-**Opponents of Dr. Yan’s Reports Secretly Switch Gears **
 
-另外一个你看到世界的这个局势，关于病毒的问题。今天一大早，咱们最好的合作伙伴，这名字不能说，这是在美国政界的大佬，给我发信息说，他说你发现了吗？最近的某某某的发言，也就是原来最最反对我们的闫博士的所谓三个报告的，曾经在不同场合反对我们的科学家报告的人。他说，最近在私下场合已经是不一样的说法了。他说闫丽梦科学家讲的这些事情，是有很大的价值的，而且是可信的。
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-Likewise, you look at the situation of the world, about the virus. Early this morning, our best partner, who I can’t say his name, a bigwig of American politics, sent me a message talking about someone who previously opposed the three reports of our Dr. Yan most, on several different occasions in the public. He said, “Have you noticed the recent speech of XXX? Recently this guy has changed his narrative privately.” He also said that the things that Dr. Li-Meng Yan had talked about were of great value and credibility.
+**西班牙2021年5月24日电/西喜社——**
 
-所以说这个朋友问我，说你觉得国会听证的事情会不会发生。我说我们一定会让它发生的，国会的听证一定会发生的。美国国会的听证就是已经取决于美国人民的意志，他不代表哪个流氓政客，一定会发生的。他说不可能，民主党在就永远不会让你这个事儿发生，我说咱走着瞧。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02141529/image0.png)
 
-So this friend asked me, “Do you think the congress hearing will happen?” I said “We will definitely make it happen. The congress hearing will definitely happen. The U.S. Congress hearings are determined by the will of the American people, not represented by any rogue politicians. It will definitely happen.” He said, “No way. As long as the Democratic Party still exists, it will never let it happen.” I said, “Let’s wait and see.”
+上周我们报道过，印度各地越来越绝望的社区一直在采取有争议的策略（至少在美国是这样），以试图缓解危机带来的影响。社区一直在使用廉价的抗疟疾药物来预防COVID-19，因为缺乏数据表明该药物可以帮助降低死亡率和住院率-考虑到印度全国范围内病床和氧气的短缺情况，这对维持重症患者生命至关重要。
 
-昨天大家看到了，最早就是Politico 那个网站，就政治网站，所谓跟美国把脉的网站，最早也对我们的科学家进行攻击。其中他们有两个记者，是绝对亲共的人，也攻击过我们多次的人。他现在都改口了，而且悄悄地在网站上把攻击科学家的那些所谓的报告撤掉了。大家你们发现了吗，在英国，在德国，所谓的几个大咖，那些科学家，在他们的社交媒体网站上，攻击科学家攻击闫丽梦博士的，所谓病毒的真相的这些报导，说来自于自然根本不是来自实验室，通通撤掉了。
+这是指使用药物伊维菌素，在某种程度上类似于羟氯喹。已显示出一些证据表明羟氯喹是一种有效的预防药物，可以保护最脆弱的人群免受COVID-19的侵害（记得川普总统在新闻发布会上说，他每天在某一时间服用该药物）。但是，由于印度大部分地区都无法获得足够的疫苗和治疗药物，例如吉利德的瑞德希韦（研究表明，相反其效果并不明显），因此公共卫生官员随即决定使用混合药物治疗。
 
-As you saw yesterday, Politico, the website, a political website claiming to be able to make diagnosis for the US, which attacked our scientist (Dr. Yan) early on, has two journalists who are absolutely pro-CCP and have attacked us many times. Recently it changed its tone and quietly removed those so-called news reports that attacked our scientist from its website. Have you noticed that? In Britain and Germany, there were several so-called big names, scientists, who attacked our scientist Dr. Li-Meng Yan on their social media, who posted their so-called reports of the truth about the virus to claim the virus was originated from nature but not lab. They have withdrawn all those reports.
+《印度时报》本周发表了一篇社论，由两名美国学者和医学专业人士维卡斯·苏卡特姆（Vikas Sukhatme）博士和维杜拉·苏卡特姆（Vidula Sukhatme）签署，暗示了一些廉价平凡的药物可以用于印度最脆弱的患者作为预防措施。这些药物未经批准可用于治疗COVID，但已经显示出“在预防或治疗新冠状病毒方面的巨大前景”。部署使用它们可能会降低死亡率和住院率。尽管某些药物目前正在大规模随机试验中进行测试，但没有时间等待结果再决定。
 
-不仅如此，在斯坦福大学，美国斯坦福大学在生物里那是绝对是权威的，MIT大学，哈佛是流氓政治大学，就不管了，这两个学校，你去看看现在内部人讨论的最多是什么？共产党的病毒的真相来自于武汉实验室，所有的人手上，都研究透了科学家的三个报告。而且科学家向这些媒体上，展示最重要的就是《非典非自然》（全称：《非典非自然起源和人制人新种病毒基因武器》）的整个这本书里面，共产党自己自证的，自己证明了自己，早有准备，这是一个超限生物战。在全世界广泛的现在认可就是，科学家定义的，这叫超限生物战。
+相反，印度卫生当局应发布指南，建议在COVID-19的每个阶段使用最有前途的药物。 这样做将鼓励医生开处方作为预防措施。当然，应该跟踪结果数据，以获取可能显示出的各种效果。
 
-Not only that, Stanford University, which, in the United States, is the absolute authority in biological research, and MIT – Harvard is a rogue political university, so just ignore it –  these two schools, you can go check what is the most discussed by their insiders now? [They were discussing] the truth about the CCP virus coming from the Wuhan lab. All these people have the three reports of our scientist (Dr. Li-Meng Yan) on their hands and have analyzed them thoroughly. And most importantly, our scientist showed to the media the CCP’s own text book,  regarding the unnatural origin of SARS which was self-evident, proofing CCP’s long term planning for this and that this is unrestricted biowarfare. Now this concept has been widely recognized by the world, which was defined by our scientist – called “unrestricted biowarfare”.
+医生们引用的两种主要药物伊维菌素和氟伏沙明已被证明是有效的，并且来自400多名重症COVID-19患者的未公开数据表明，一起使用氟伏沙明和伊维菌素的处方可能更有效。
 
-*（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60a7bc16d48e020926645716](https://gtv.org/getter/60a7bc16d48e020926645716) (1:36-4:42)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1262482/](https://gnews.org/zh-hans/1262482/)*
+尽管印度每日病例数已从高峰期回落，但住院和死亡率仍接近历史最高水平。 当然，随着发展中国家为放弃对COVID疫苗的知识产权保护而奋斗，廉价的现有药物可能更有效对抗COVID，这将对大医药公司(Big Pharma)的底线构成另一种威胁。
 
-* * *
+**评论： ****爆料革命的路德节目，在2020****年1****月19****日就报道了硫酸羟氯喹对治疗和预防新冠状病毒的作用。冠博士夫妇更是做了详细的药理临床解释。听爆料革命的战友和听众都知道这个信息。但是各国政府和媒体对羟氯喹和其他经济有效药品的打压，已经不是以治病救人为动机了。这原本是大夫们的职责，但是却完全演变成政治目的和经济利益为目的博弈，政客们根据利益在給人们开处方，多少良知医生被媒体封杀被政府打压！**
 
-**翻译：【一花一世界】
-字幕：【XO小粉红】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+**其实最知道羟氯喹和伊维菌素作用的正是制造并释放病毒的中国共产党，可悲的是这个真相爆料革命呼吁了一年多，仍没有还医生行使本职工作的自由。印度在万般无奈之下才使用了最有效果最经济的策略。反思吧，我们每个人没有了自由，尤其是没有了言论自由，我们的生命就是大鳄和政客棋盘上的卒子，就是大医药集团的实验室白老鼠。**
 
-0
+素材： Jenny Ball；审核：文乐；校对：阿伯塔；发稿：信心的选择
+
+**新闻来源：**[零对冲](https://www.zerohedge.com/covid-19/doctors-claim-cocktail-cheap-drugs-could-help-india-extinguish-covid-crisis?utm_campaign=&amp;utm_content=Zerohedge%3A+The+Durden+Dispatch&amp;utm_medium=email&amp;utm_source=zh_newsletter)
+
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+
++1
