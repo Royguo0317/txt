@@ -1,45 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】中共病毒爆发后第一次去牙医诊所就诊的不同
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1268555/)
+## 2021年5月23日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1268590/)
 
-作者：香草山美食部   为真不破20
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
+5月23号：尊敬的战友们好，你们很快会知道，这位参谋长和新中国联邦的关系，还有他的家庭家世和我们灭共的渊源，世界上最强大的军事力量，沼泽地的经济力量，正在以新中国联邦为核心凝聚，就像我几年前说的这个世界，未来只有一个选择，要么你和共产党站在一起，要不就和我们一起干掉共产党，一切都已经开始！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24054314/59a8395d9d84dee728a19cba509e19f9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24054328/2cf1df1a6c0e660ac1dad47aef258b6e.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24054343/0f7c95cded22d67b9eb3168807ccfec1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24054401/0c8b881a957f5b3876dd2fc29b8d3619.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24054418/c5c6f3b57c243812e0d8600aaf147522.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24054436/e893fe1c0db0feb63658a959192e1cd5.jpg)
+[【2021年5月23日】文贵先生盖特原文](https://gtv.org/getter/60aad4a4744cbc4313636ef7)
 
+**喜联盟Gnews编辑部**
 
-
-从去年3月中旬中共病毒在美国大肆爆发开始，由于医护设备像口罩手套等基础防护用品的短缺，笔者所在的州便要求所有的非必要的牙医诊所关闭6周，之后才慢慢开放！笔者一直推迟常规洗牙直到几天前才去牙医诊所！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24050555/%E5%9B%BE%E7%89%8726-1.png)
-
-本来笔者所去的牙医诊所有两个地方可以选择，都是同一个医生所开。但是受到疫情的影响，两个地址的人目前暂时都去其中的一个诊所就诊！可见，受CCP病毒影响，该诊所的业务有所下降！
-
-这次就诊与平时不同的是，按照当地卫生管理局的要求，就诊前需网上填表或者预约当天在现场填写调查问卷。主要问题都是关于是否有任何中共病毒的特征或者在最近是否与任何确诊的COVID-19 患者有过任何接触！无任何症状便被护士直接安排到就诊室！另外一个不同就是在洗牙正式开始之前，牙齿卫生员会解释根据当地卫生管理局的要求，需要用双氧水漱口30秒进行消毒！这个疫情之前是不需要的！双氧水漱口当时是没什么味道感觉的，可是之后1分钟之内这个味道才慢慢感觉到，很是反胃！无奈，只好如此，其中几次漱口！
-
-与疫情之前的明显不同就是消毒次数，几乎所有用过的设备都会进行消毒，比如X-Ray之前之后都会用消毒巾擦拭，给笔者使用的防护眼镜，椅子等也会进行擦拭消毒。
-
-其实，不只是牙医诊所，即使是家庭医生的常规年检以及眼科检查等也会有类似的问卷，并且有些妇科检测医生会跟你说为了她的安全，她一般会减少某些方面的检测，如你有特殊要求才会！
-
-可见，中共病毒这一年多来给我们的日常生活带来了诸多不便！只有全世界联合起来彻查中共病毒，找CCP要解药，我们才有可能再次恢复正常！
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193555/5_May-1-556x720-1.jpeg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
