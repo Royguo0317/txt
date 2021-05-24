@@ -1,15 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月23日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1268642/)
+## 【快讯】韩国c.bank银行开发试点数字货币
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1268693/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+#### 整理撰稿：蓝精灵
 
-5/23/2021郭先生直播：共产党治下的“中国人民的悲惨世界” – 中国共产党靠杀地主自己变成地主，而悲惨的中国人从出生到下葬，每时每刻要向中共上贡、“孵化的”富豪甚至还要搭上性命 5/23/2021 Miles Guo: “Les Misérables” of the Chinese People Under CCP’s Regime The CCP became the landlord by killing other landlords, while the miserable Chinese people must pay tributes to the CCP from their birth till their burial. Even the “incubated” billionaires have to lose their lives.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24061315/Fty3x6zw4iKc_s79w1eoJD2hPAE9.jpg)
 
-[【2021年5月23日】文贵先生盖特原文](https://gtv.org/getter/60ab6305744cbc431363b36d)
+韩国中央银行周一表示，它将选择技术供应商来构建数字货币的试验平台，从而向创建由中央银行支持的数字货币迈进了一步。
 
-**喜联盟Gnews编辑部**
+韩国银行表示，正在通过公开招标程序寻找合作伙伴，以研究在测试环境中推出中央银行数字货币（CBDC）的实用性-这是亚洲第四大经济体探索性的第一步。
 
-0
+韩国央行的努力之际，比特币和其他加密货币的普及开辟了传统现金竞争对手可能改变金融业运作方式的可能性。阅读更多
+
+从中国到英国和瑞典的中央银行正在研究开发数字货币，以实现其金融系统的现代化，避免受到加密货币的威胁，并加快国内和国际支付速度。
+
+一位韩国银行官员在新闻发布会上说：“现金交易的份额正在大大减少。”
+
+“我们现在正在采取的步骤是为支付结算系统的变化做准备，并且变化迅速。”
+
+韩国银行表示，该平台将包含对商业银行和零售网点的模拟，并且试验将包括通过手机付款，资金转账和存款。
+
+该试点计划将于今年8月至12月进行，明年可以扩展到第二阶段。
+
+简评：
+
+刚刚与美国发表了联合声明，韩国在开发数字货币上开始有所动作，这次数字货币的系统建设，貌似一定会采用欧美系统， 意味着在金融数字货币上与中共说再见了。
+
+参考链接：[S. Korea’s c.bank moves to develop pilot digital currency](https://www.reuters.com/business/finance/s-koreas-cbank-moves-develop-pilot-digital-currency-2021-05-24/)
+
+\*以上仅代表作者观点，不代表Gnews平台\*
+
+* * *
+
+*排版发布：日本东京方舟农场 文柯Miles*
+
++2
