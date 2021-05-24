@@ -1,57 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】印度爆发新冠病毒变种是大规模接种疫苗而来的吗？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1267876/)
+## 抖音母公司利用中国共产党官员作为招聘宣传材料
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1267915/)
 
-作者：纽约香草山媒体部 7bends
+翻译：康州盘古 – 郭班之樱
 
+校对：康州盘古- Mike Li
 
+审核：康州盘古- 傻小子
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**据《国家脉动》作者：娜塔莉·温特斯，2021年5月21日发布**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235505/phone4.jpg)
+《字节跳动》公司与中共国政府之间的旋转门是该公司的应用程序抖音受到了中共渗透侵害的又一证据。
 
+简·波尔图（Jian Porto），自2016年以来一直在字节跳动工作，他在加入该公司之前曾担任为期六年的中国共产党官员。 Jian Porto目前是字节跳动在巴西的国家经理，他在2010年至2011年期间担任中共国外交部外交官，重点研究“拉丁美洲和加勒比海问题”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235635/papela.png)
+从2011年到加入抖音的母公司之前，Jian Porto一直是中共国驻巴西里约热内卢总领事馆的副领事。 在中国共产党外交职位上卸任以后，他随即加入了字节跳动担任内容整合服务总监，之后被提升为娱乐服务总监，随后又升任现职的巴西国家经理。
 
-5月20日，Ethan Huff 在*Natual News*上撰文称，印度现有的3532个正在流传的新冠病毒变种几乎都是在人群开始大量接种疫苗后立即出现的。
+Jian Porto对字节跳动的夸赞在公司招聘工作中得到了显着的体现。 宣传材料援引他的讲话说：“公司的文化对员工而言是独特的和个性化的，与个人价值观相结合，可以使两者都朝着他们的目标迈进。”
 
-![]()![](https://media.discordapp.net/attachments/824587088309649429/846103721942188062/image0.jpg?width=1083&amp;height=609)
+Jian Porto也出现在广告系列中。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235547/sasas.jpg)
+**JIAN PORTO用的宣传材料**
 
-《The Hindu》5月6日报道，印度的27个州都有这些变异病毒。据称，在确定的3532种变异中，被称为B.1.617的双重突变株的数量正在上升，而源于英国的B.1.1.7变种正在减少。这也促使印度政府宣布，正在遭受新冠病毒的第三波攻击。究其原因，印度政府认为B.1.617可能与在过去几周造成大量死亡的第二波疫情有关。与此同时，中共却对印度因新冠疫情造成大量死亡进行嘲笑。
+该公司公开承认在招聘过程中会优先考虑中共党员。在分享的一份招聘启事中宣布“首先考虑中共党员”，并列出其理想招聘对象为“爱好新闻阅读，关心时事，并具有良好的政治敏感性和判断力”的人。
 
-Ethan Huff问到，虽然印度卫生部将其破纪录的每日死亡人数归咎于变种，但这不会是大规模注射疫苗而引起的吗？在此之前，印度的疫情一直控制的很好。
+然而，Jian Porto并不是唯一的中共官员工作于该公司。
 
-![]()![](https://media.discordapp.net/attachments/824587088309649429/846103722421649448/image1.jpg?width=626&amp;height=609)新闻截图
+窦简（Jane Dou），自2018年以来一直在字节跳动工作，她也曾在中共国外交部任职。 在LinkedIn（一个通过网站和移动应用程序运营的美国商业和就业导向型的在线服务）上，她将自己列为2012年在国家主席习近平办公室工作的新闻翻译。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235533/sasaq.png)
+现在，窦担任字节跳动管理办公室的首席执行官，负责监督许多任务，其中包括“机密项目”。 在担任此职位之前，她曾担任字节跳动全球传播高级经理和国际产品公共事务主管。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235516/okol.png)
+Natalie Winters
+娜塔莉·温特斯（Natalie Winters）是《国家脉动》的调查记者，也是《国家脉动》播客的撰稿人。
 
-看了这篇文章，让笔者联想到5月18日诺贝尔医学奖得主法国病毒学家吕克-蒙尼耶教授（Prof. Luc Montagnier）发表的观点，他认为大规模的疫苗接种创造了病毒变异。
+原文链接：[https://thenationalpulse.com/breaking/tiktok-uses-ccp-official-in-hiring-promo/](https://thenationalpulse.com/breaking/tiktok-uses-ccp-official-in-hiring-promo/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-同时，这更让笔者想到，爆料革命文贵先生很早就说过，共产党用冠状病毒和疫苗经济来控制世界，而疫苗经济、疫苗政治最后一定会演变成疫苗灾难、疫苗战争。
-
-参考阅读：
-
-[Explosion of 3,500 new covid “variants” follows mass vaccination campaign in India](https://www.naturalnews.com/2021-05-20-3500-covid-variants-mass-vaccination-campaign-india.html)
-
-[Bombshell: Nobel Prize Winner Reveals – Covid Vaccine is ‘Creating Variants’](https://rairfoundation.com/bombshell-nobel-prize-winner-reveals-covid-vaccine-is-creating-variants/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

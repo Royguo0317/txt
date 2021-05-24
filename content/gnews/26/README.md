@@ -1,45 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共发动讯息战，破坏台湾抗疫，无耻之尤
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1267847/)
+## 【热点播报】印度爆发新冠病毒变种是大规模接种疫苗而来的吗？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1267876/)
 
-作者：纽约香草山健身部 Jack Li文阳
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/14021704/logo-1.jpg)
+作者：纽约香草山媒体部 7bends
 
 
 
-最近，台湾中共病毒疫情暴涨后，社交媒体频频传出“蔡英文确诊感染新冠病毒”，“苏贞昌等绿委通过内线消息持有大量股票，为发国难财，才一直阻止购买救急的疫苗”，以及“为了销售疫苗，不惜将疫情扩大”。台湾中央流行疫情指挥中心指出，这些都是来自境外的假讯息。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23231404/Untitled-design-41.png)
-台湾中央疫情指挥中心指出，经警方追查，这些恶意散布的虚假讯息，其IP地址来自境外，用字遣词多为中共国地区用语，并使用简体字。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-行政院发言人罗秉成对网络谣言作了澄清，并指出，国安部门已掌握中共利用台湾这波疫情，散播假讯息，发动系统性、有组织性的讯息战。意图误导国人，削弱人民对政府的信赖，制造台湾社会对立，打击防疫团队士气。
 
-中共为了实现其统治世界的邪恶计划，不惜悍然对世界发动病毒战。而对疫情一直控制得很好的台湾，自从两艘从对岸中共国开来的摩托艇，被发现冲上台湾沙滩后，台湾的疫情突然升高。
 
-中共党魁习近平假惺惺的向台湾喊话欲提供帮助，并指使蓝营国民党人高调指责政府抗疫不力，呼吁使用中共国疫苗。
+5月20日，Ethan Huff 在*Natual News*上撰文称，印度现有的3532个正在流传的新冠病毒变种几乎都是在人群开始大量接种疫苗后立即出现的。
 
-中共仍不死心，还对台湾发起讯息战，抹黑台湾政府及主要官员，意图干扰防疫工作，造成社会混乱及恐慌。其手段之卑鄙恶劣，令人发指，实在是突破了人类的最低底线，纳粹再生也甘拜下风。
+![]()![](https://media.discordapp.net/attachments/824587088309649429/846103721942188062/image0.jpg?width=1083&amp;height=609)
 
-中共犹如来自地狱的魔鬼，毒袖狂舞，呼风唤雨。国际社会一定要加快对其的围剿，留给世界的时间实在是不多了。
+《The Hindu》5月6日报道，印度的27个州都有这些变异病毒。据称，在确定的3532种变异中，被称为B.1.617的双重突变株的数量正在上升，而源于英国的B.1.1.7变种正在减少。这也促使印度政府宣布，正在遭受新冠病毒的第三波攻击。究其原因，印度政府认为B.1.617可能与在过去几周造成大量死亡的第二波疫情有关。与此同时，中共却对印度因新冠疫情造成大量死亡进行嘲笑。
 
-参考阅读：https://news.ltn.com.tw/news/politics/paper/1450313
+Ethan Huff问到，虽然印度卫生部将其破纪录的每日死亡人数归咎于变种，但这不会是大规模注射疫苗而引起的吗？在此之前，印度的疫情一直控制的很好。
 
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
+![]()![](https://media.discordapp.net/attachments/824587088309649429/846103722421649448/image1.jpg?width=626&amp;height=609)新闻截图
+
+看了这篇文章，让笔者联想到5月18日诺贝尔医学奖得主法国病毒学家吕克-蒙尼耶教授（Prof. Luc Montagnier）发表的观点，他认为大规模的疫苗接种创造了病毒变异。
+
+同时，这更让笔者想到，爆料革命文贵先生很早就说过，共产党用冠状病毒和疫苗经济来控制世界，而疫苗经济、疫苗政治最后一定会演变成疫苗灾难、疫苗战争。
+
+参考阅读：
+
+[Explosion of 3,500 new covid “variants” follows mass vaccination campaign in India](https://www.naturalnews.com/2021-05-20-3500-covid-variants-mass-vaccination-campaign-india.html)
+
+[Bombshell: Nobel Prize Winner Reveals – Covid Vaccine is ‘Creating Variants’](https://rairfoundation.com/bombshell-nobel-prize-winner-reveals-covid-vaccine-is-creating-variants/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

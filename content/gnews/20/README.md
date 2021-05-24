@@ -1,46 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 抖音母公司利用中国共产党官员作为招聘宣传材料
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1267915/)
+## 【班农战斗室】968-969期简讯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1267946/)
 
-翻译：康州盘古 – 郭班之樱
+翻译：七彩光
 
-校对：康州盘古- Mike Li
+校对/编辑：枳实
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24004012/968-969_.png)ttutu p图片llalailai y来源
+图片来源：墨尔本雅典娜农场设计组 精灵蓝
 
-审核：康州盘古- 傻小子
+主持人：史蒂夫.班农
 
-发布：康州盘古农场 – 彩虹 Rainbow
+嘉宾：Pastor Stephen Broden, Dr. Yan, Jim Marchant, John Spiropoulos, Michael Patrick Leahy, Raheem Kassam, Ben Bergquam
 
-**据《国家脉动》作者：娜塔莉·温特斯，2021年5月21日发布**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235505/phone4.jpg)
-《字节跳动》公司与中共国政府之间的旋转门是该公司的应用程序抖音受到了中共渗透侵害的又一证据。
+**1. ****真相大白：闫丽梦博士回应大媒体撤回对她本人和武汉实验室理论的污蔑**
 
-简·波尔图（Jian Porto），自2016年以来一直在字节跳动工作，他在加入该公司之前曾担任为期六年的中国共产党官员。 Jian Porto目前是字节跳动在巴西的国家经理，他在2010年至2011年期间担任中共国外交部外交官，重点研究“拉丁美洲和加勒比海问题”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235635/papela.png)
-从2011年到加入抖音的母公司之前，Jian Porto一直是中共国驻巴西里约热内卢总领事馆的副领事。 在中国共产党外交职位上卸任以后，他随即加入了字节跳动担任内容整合服务总监，之后被提升为娱乐服务总监，随后又升任现职的巴西国家经理。
+在大媒体不得不收回对她和武汉实验室理论的抹黑之际，爆料者闫丽梦博士参加了《战斗室》节目。
 
-Jian Porto对字节跳动的夸赞在公司招聘工作中得到了显着的体现。 宣传材料援引他的讲话说：“公司的文化对员工而言是独特的和个性化的，与个人价值观相结合，可以使两者都朝着他们的目标迈进。”
+”我很高兴看到越来越多的事实得到了验证，并意识到病毒来自实验室，来自中国共产党。”她说，”没有谎言能够天衣无缝的，”当选为《战斗室》2020年度女性的闫博士说。”而且这可以根本上被独立的消息来源所验证。”
 
-Jian Porto也出现在广告系列中。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235547/sasas.jpg)
-**JIAN PORTO用的宣传材料**
+闫博士说，她很乐意在国会山的听证会上作证，揭露中共、武汉实验室和福奇（Fauci）博士。她说：“人们可以看到谁在撒谎，谁真正拥有证据。”
 
-该公司公开承认在招聘过程中会优先考虑中共党员。在分享的一份招聘启事中宣布“首先考虑中共党员”，并列出其理想招聘对象为“爱好新闻阅读，关心时事，并具有良好的政治敏感性和判断力”的人。
+**2. ****牧师：文化马克思主义已经渗透进黑人社区**
 
-然而，Jian Porto并不是唯一的中共官员工作于该公司。
+斯蒂芬•布罗登牧师告诉《战斗室》，马克思主义已经渗透到黑人社区，必须予以制止。
 
-窦简（Jane Dou），自2018年以来一直在字节跳动工作，她也曾在中共国外交部任职。 在LinkedIn（一个通过网站和移动应用程序运营的美国商业和就业导向型的在线服务）上，她将自己列为2012年在国家主席习近平办公室工作的新闻翻译。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235533/sasaq.png)
-现在，窦担任字节跳动管理办公室的首席执行官，负责监督许多任务，其中包括“机密项目”。 在担任此职位之前，她曾担任字节跳动全球传播高级经理和国际产品公共事务主管。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235516/okol.png)
-Natalie Winters
-娜塔莉·温特斯（Natalie Winters）是《国家脉动》的调查记者，也是《国家脉动》播客的撰稿人。
+布罗登说：”通过进入我们社区的马克思主义和共产主义，对我们的自由形成真正的威胁。”
 
-原文链接：[https://thenationalpulse.com/breaking/tiktok-uses-ccp-official-in-hiring-promo/](https://thenationalpulse.com/breaking/tiktok-uses-ccp-official-in-hiring-promo/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+布罗登说，为了打击文化马克思主义，美国人必须利用他们在黑人社区的最大影响力：教会。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+“唐纳德•特朗普所做的是为黑人妇女和黑人男子敞开了加入爱国运动的大门，”他说。”现在我们需要告知他们，并教育他们为什么会有这种威胁，文化马克思主义……是如何进入我们的社区并挑唆我们。
+
+“我们如何通过真相告知他们，并进行反击。”
+
+布罗登创立了 “[品格内容](https://www.contentofcharacterseries.com/pastor-stephen-broden) “系列，通过恢复宪法理念来对抗民主党对黑人社区的束缚。
+
+“现在是我们打破这种局面的时候了，”他说。布罗德说，通过教育，美国人可以 “反击这种蓄意剥夺我们自由的企图，并将我们的国家从这些蠢货手中拯救出来”。
 
 0

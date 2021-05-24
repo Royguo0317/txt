@@ -1,7 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5/21/2021 Tucker Show 采访闫博士（节选一）：越来越多的人了解到真相 — 病毒是在中共军方实验室制造的
-` 秘密翻译组-北美组` [轉載自GNews](https://gnews.org/zh-hans/1267648/)
+## 【粤语配音】功能增强型实验不仅仅局限于冠状病毒
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1267654/)
+
+5/17/2021 塞林上校接受班农战斗室采访称人们要明白功能增强型实验不仅仅局限于冠状病毒，其他病毒比如塞卡病毒也在中共国功能增强研究范围内。必须进行调查才能得到我们想知道的答案。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0
