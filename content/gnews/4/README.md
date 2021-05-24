@@ -1,45 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0523X喜币选择和美国合作与美元挂钩是最聪明的事儿
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1268531/)
+## 2021年5月23日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1268642/)
 
-编辑整理：
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-纽约香草山农场：兰草（文泉）；日本东京方舟农场：山川异域；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24050326/%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81-copy.jpg)
-据[5月23日 文贵直播：中共的楼震，桥震，币震，粮震，随时脆断；Gnews，GTV，盖特，国际影响力巨大；九指妖故意毁坏财物暴露了，她是一个嫉妒心理变态，早已经背叛了爆料革命的叛徒](https://gtv.org/video/id=60aa75eead9feb7deee15fe2) 时间点51：24——
+5/23/2021郭先生直播：共产党治下的“中国人民的悲惨世界” – 中国共产党靠杀地主自己变成地主，而悲惨的中国人从出生到下葬，每时每刻要向中共上贡、“孵化的”富豪甚至还要搭上性命 5/23/2021 Miles Guo: “Les Misérables” of the Chinese People Under CCP’s Regime The CCP became the landlord by killing other landlords, while the miserable Chinese people must pay tributes to the CCP from their birth till their burial. Even the “incubated” billionaires have to lose their lives.
 
-然后现在美国我就说了:虚拟货币，现在美国人就说了只要你搞虚拟货币你不跟美元挂钩，你这都是胡扯淡的事儿。说白了美元只要你跟美元挂钩我都支持你，你看看！喜币多聪明呢！先有稳定币——美元，再有浮动币——喜币，多牛啊！
+[【2021年5月23日】文贵先生盖特原文](https://gtv.org/getter/60ab6305744cbc431363b36d)
 
-你见过全世界有一个人说，咱不跟美国人合作咱跟谁合作去啊？咱不跟美国人合作咱跟俄罗斯合作？咱找一个什么鸟不拉屎的，什么冈比亚呀什么这些国家，不可能的地方是吧？只能跟美元合作。而且咱绝对尊重美国法律，跟美国政府合作，这是最聪明的事儿。
-
-这一点千万——在家里边不要和你的爱人吵架，你先生或你爱人，因为你太不愉快了，因为我跟你七嫂子在家里不吵架；到外面千万千万别跟你发工资的人吵架，你这是找别扭呢；在世界上别和美国人为敌，那就是活得不耐烦了是吧，就这么简单。
-
-所以说你看很多人现在说，啊，发现你们设计厉害，我告诉喜币的投资委员会的人，我说我给你们这个策划就值100亿美元，我给你的策划就值100亿美元，当然你们付不付是你们的事。我说我这个系统的设计和建议是最牛的，他们不服嘛，但是未来走着看，它会证明。
-
-现在，美国人已经在这一段的人民币数字化的较量当中，已经大家都明白了，美国要的是数字货币、虚拟货币的标准，制定标准和话语权，和要求和美元的挂钩。那么绝不允许和老共和其他国家挂钩，这就咱是一伙的。东西方、黑白方已经完全分出来了，这才叫大智慧。
-
-接上文——
-
-[郭先生0523郭文贵先生直播前播放视频文字汇总](https://gnews.org/zh-hans/1268183/)
-
-[郭先生0523I九指妖们干的坏事儿恶心事儿绝不拉倒绝对不饶](https://gnews.org/zh-hans/1268221/)
-
-[郭先生0523II全世界最牛的媒体没人不看G-News没人不看G-TV](https://gnews.org/zh-hans/1268245/)
-
-[郭先生0523III马背英雄和G-Fashion演出服是无与伦比的传奇](https://gnews.org/zh-hans/1268267/)
-
-[郭先生0523IV以毒灭共在五月之前是酝酿五月之后渐入佳境](https://gnews.org/zh-hans/1268280/)
-
-[郭先生0523V共产党用墓地医院搞死亡产业榨干中国人血汗](https://gnews.org/zh-hans/1268291/)
-
-[郭先生0523VI共产党和华尔街控制比特币来一轮一轮割韭菜](https://gnews.org/zh-hans/1268353/)
-
-[郭先生0523VII喜币就是你一切的账号终身享有可以买任何东西](https://gnews.org/zh-hans/1268479/)
-
-[郭先生0523VIII中共对中国房地产的两个选择都会让你血本无归](https://gnews.org/zh-hans/1268495/)
-
-[郭先生0523IX最牛的英国航母出动全世界联合起来保护台湾](https://gnews.org/zh-hans/1268519/)
+**喜联盟Gnews编辑部**
 
 0

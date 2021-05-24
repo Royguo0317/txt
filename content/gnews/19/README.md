@@ -1,27 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 各国谴责卢卡申科政权的残酷和令人震惊的举动
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1268417/)
+## 【热点播报】俄勒冈州将为COVID疫苗接种者提供100万美元的彩票抽奖
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1268528/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年5月24日
-翻译 /整理/ 简评： Shuizhuyu
+作者： 香草山美食部     为真不破20
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24041824/kevin-hackert-hs6avuQIUWs-unsplash-scaled.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
-从希腊飞往立陶宛的飞机在明斯克中途停留期间， 白俄罗斯逮捕了卢卡申科总统的一名反对者。美国国务卿布林肯强烈谴责这一行动。波兰称此事件为“国家恐怖主义”。
 
-白俄罗斯迫使瑞安航空公司的飞机改航，并逮捕了白俄罗斯反对派成员，这也引起了德国和国际上的愤怒。联邦外交大臣海克斯·马斯（Heiko Maas）严厉谴责这次登陆，并要求释放白俄罗斯反对派罗曼·普罗塔维茨（Roman Protassewitsch）。马斯周日晚在推特上说：“两个欧洲国家之间的航班被迫以炸弹威胁为借口进行中转，这严重侵犯了欧洲的民航业。”马斯补充说，德国政府“非常担心有报道称罗曼·普罗塔西维奇（Roman Protassewitsch）记者是通过这种方式被捕的。”
+俄勒冈州州长凯特·布朗（Kate Brown）在5月21日（周五）宣布了一项新的激励计划，为了促进将COVID-19（中共病毒）疫苗注射到全州范围内，所有接种过疫苗的俄勒冈人都将有机会获得现金奖励或奖学金。
 
-副总理奥拉夫·舒尔茨（Olaf Scholz）呼吁在欧盟一级采取行动，“欧盟将不得不对白俄罗斯独裁者卢卡申科及其政权作出结论。”
+“俄勒冈州注射疫苗”运动是俄勒冈州卫生局和俄勒冈州立彩票公司之间的合作。 它由联邦 Coronavirus Relief Act基金提供了186万美元的资金支持。 俄勒冈州彩票委员会在周五的会议上讨论了该项活动，投票赞成该提议。
 
-简评： 独裁者的行为都是野蛮，粗暴毫无规矩可言。 独裁者不允许有半点反对的声音。 白俄罗斯的暴君卢卡申科居然以炸弹威胁航班在乌克兰中转， 并上飞机逮捕了机上的政治反对派， 这种行为遭到了全世界的强烈谴责和反对，欧盟也对其进行严厉的谴责，本来欧盟对卢卡申科政府相对只是写谴责，现在可能要付诸实际的行动了。 欧盟一共有27个成员国，统一做出实际的决定本来是一件比较困难的事情，但是这次， 他们要有动作了。
+年龄在18周岁以上的俄勒冈人将有一人有机会赢得100万美元， 另有36个10,000美元的奖，俄勒冈州的36个县的每个县都将有一名获胜者。 奖金将使用联邦救济金来支付。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+另外，年龄在12到17岁之间、有资格接种疫苗，但年龄不足以玩彩票游戏的俄勒冈人，将有五人有机会赢得100,000美元的俄勒冈大学储蓄计划奖学金。奖学金计划由第三方公司实施。
 
-🔗[Festnahme-in-Minsk-Dreiste-und-schockierende-Tat-des-Lukaschenko-Regimes](https://www.welt.de/politik/ausland/article231323111/Festnahme-in-Minsk-Dreiste-und-schockierende-Tat-des-Lukaschenko-Regimes.html)
+为了有资格参加比赛，人们必须在开奖日期之前至少已经接受了一剂中共病毒疫苗。
+
+根据州长办公室的信息，那些至少已注射第一剂辉瑞、Moderna或强生疫苗的俄勒冈州民将被自动纳入本次抽奖活动。 所有在6月27日之前注射疫苗的都符合资格。
+
+布朗说：“疫苗是我们保护自己和亲人免受COVID-19侵害的最佳工具，也是我们终结这种大流行的最快方法。 ‘俄勒冈州注射疫苗、 运动是感谢俄勒冈州人民加强并维护我们社区安全的一种方式。 接种疫苗从未如此简单，所以不要错过您的疫苗！”
+
+布朗在周五的新闻发布会上说：“我对俄勒冈人的鼓励是现在就采取行动。” “如果我们能在接下来的几周内为近25万俄勒冈人接种疫苗，我们就有机会击败加利福尼亚重新开放经济。”
+
+抽奖将于6月28日举行，获奖者将于之后的一周宣布。 6月27日午夜是疫苗数据库中添加名称的截止日期。
+
+“俄勒冈州注射疫苗”运动是继俄亥俄州、纽约州和马里兰州最近宣布了针对其接种疫苗的居民的彩票游戏之后也跟着进行的。
+
+对于还没有注射疫苗或者已经注射疫苗的人们，你们知道疫苗的副作用和潜在风险吗？
+
+你们知道因新冠疫苗所造成的死亡从2020年12月底到上个月，美国大概共有3362人在接种中共病毒疫苗后死亡吗？
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24045113/%E5%9B%BE%E7%89%8724-2.png)
+
+希望那些没有接种疫苗的人们不要为了当地政府的这些激励措施给自己带来任何不可挽回的后果！
+
+参考资料：https://www.kptv.com/news/take-your-shot-oregon-and-possibly-win-up-to-1-million-for-being-vaccinated/article\_faee77da-ba5d-11eb-bca5-b38d2fdf4a8a.html
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
