@@ -1,47 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 风向变了 闫博士报告的反对者们纷纷撤下了他们的报道
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1269207/)
+## 莫斯科市长责怪市民接种新冠病毒疫苗的意愿极低
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1269495/)
 
-**摘要：在2021年5月21日的盖特视频中，郭先生说曾经最反对和攻击过闫博士报告的“大咖”、科学家、媒体纷纷默默撤下他们的报道，在斯坦福和MIT这两所顶级大学的科学家们都透彻研究了闫博士的报告，他坚信国会一定会召开病毒听证会，因为这不是政客能决定的，这是美国人民意志决定的。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24102333/Miles_2021-05-21-getter1.srt.txt)
-**风向变了  闫博士报告的反对者们纷纷撤下了他们的报道**
+- 作者：里奇
 
-**Opponents of Dr. Yan’s Reports Secretly Switch Gears **
 
-另外一个你看到世界的这个局势，关于病毒的问题。今天一大早，咱们最好的合作伙伴，这名字不能说，这是在美国政界的大佬，给我发信息说，他说你发现了吗？最近的某某某的发言，也就是原来最最反对我们的闫博士的所谓三个报告的，曾经在不同场合反对我们的科学家报告的人。他说，最近在私下场合已经是不一样的说法了。他说闫丽梦科学家讲的这些事情，是有很大的价值的，而且是可信的。
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-Likewise, you look at the situation of the world, about the virus. Early this morning, our best partner, who I can’t say his name, a bigwig of American politics, sent me a message talking about someone who previously opposed the three reports of our Dr. Yan most, on several different occasions in the public. He said, “Have you noticed the recent speech of XXX? Recently this guy has changed his narrative privately.” He also said that the things that Dr. Li-Meng Yan had talked about were of great value and credibility.
+**西班牙2021年5月24日电/西喜社——**
 
-所以说这个朋友问我，说你觉得国会听证的事情会不会发生。我说我们一定会让它发生的，国会的听证一定会发生的。美国国会的听证就是已经取决于美国人民的意志，他不代表哪个流氓政客，一定会发生的。他说不可能，民主党在就永远不会让你这个事儿发生，我说咱走着瞧。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/vaccinate-4833616__340_mh1615017706384.jpg)
 
-So this friend asked me, “Do you think the congress hearing will happen?” I said “We will definitely make it happen. The congress hearing will definitely happen. The U.S. Congress hearings are determined by the will of the American people, not represented by any rogue politicians. It will definitely happen.” He said, “No way. As long as the Democratic Party still exists, it will never let it happen.” I said, “Let’s wait and see.”
+莫斯科市长谢尔盖·索比亚宁（Sergei Sobyanin）上周五抱怨,尽管自一月以来疫苗免费且接种方便，但很少有居民选择接种新冠病毒疫苗。承认该问题的严重性对俄罗斯政治家来说是很少见的。
 
-昨天大家看到了，最早就是Politico 那个网站，就政治网站，所谓跟美国把脉的网站，最早也对我们的科学家进行攻击。其中他们有两个记者，是绝对亲共的人，也攻击过我们多次的人。他现在都改口了，而且悄悄地在网站上把攻击科学家的那些所谓的报告撤掉了。大家你们发现了吗，在英国，在德国，所谓的几个大咖，那些科学家，在他们的社交媒体网站上，攻击科学家攻击闫丽梦博士的，所谓病毒的真相的这些报导，说来自于自然根本不是来自实验室，通通撤掉了。
+索比亚宁说，尽管针对这种疾病的疫苗已经广泛使用了近六个月，但俄罗斯首都的医院仍然挤满了患病和濒临死亡的人。
 
-As you saw yesterday, Politico, the website, a political website claiming to be able to make diagnosis for the US, which attacked our scientist (Dr. Yan) early on, has two journalists who are absolutely pro-CCP and have attacked us many times. Recently it changed its tone and quietly removed those so-called news reports that attacked our scientist from its website. Have you noticed that? In Britain and Germany, there were several so-called big names, scientists, who attacked our scientist Dr. Li-Meng Yan on their social media, who posted their so-called reports of the truth about the virus to claim the virus was originated from nature but not lab. They have withdrawn all those reports.
+索比亚宁在上周与活动人士会晤时发表评论，并登载在周五的博客文章中：“这太异乎寻常了……人们在染病，他们继续染病，继续死亡。然而，他们仍然不想接种疫苗。”
 
-不仅如此，在斯坦福大学，美国斯坦福大学在生物里那是绝对是权威的，MIT大学，哈佛是流氓政治大学，就不管了，这两个学校，你去看看现在内部人讨论的最多是什么？共产党的病毒的真相来自于武汉实验室，所有的人手上，都研究透了科学家的三个报告。而且科学家向这些媒体上，展示最重要的就是《非典非自然》（全称：《非典非自然起源和人制人新种病毒基因武器》）的整个这本书里面，共产党自己自证的，自己证明了自己，早有准备，这是一个超限生物战。在全世界广泛的现在认可就是，科学家定义的，这叫超限生物战。
+在大规模试验开始之前，俄罗斯是世界上第一个批准国内使用新冠病毒疫苗的国家。 Sputnik V针剂于12月开始推出，并在首都迅速向所有人开放。
 
-Not only that, Stanford University, which, in the United States, is the absolute authority in biological research, and MIT – Harvard is a rogue political university, so just ignore it –  these two schools, you can go check what is the most discussed by their insiders now? [They were discussing] the truth about the CCP virus coming from the Wuhan lab. All these people have the three reports of our scientist (Dr. Li-Meng Yan) on their hands and have analyzed them thoroughly. And most importantly, our scientist showed to the media the CCP’s own text book,  regarding the unnatural origin of SARS which was self-evident, proofing CCP’s long term planning for this and that this is unrestricted biowarfare. Now this concept has been widely recognized by the world, which was defined by our scientist – called “unrestricted biowarfare”.
+自今年年初以来，莫斯科居民只需带上身份证现身诊所就可接种疫苗。
 
-*（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60a7bc16d48e020926645716](https://gtv.org/getter/60a7bc16d48e020926645716) (1:36-4:42)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1262482/](https://gnews.org/zh-hans/1262482/)*
+“我们是世界上第一个宣布开始大规模疫苗接种的大城市。结果呢？” 索比亚宁叹息， “莫斯科的疫苗接种者比例低于欧洲任何一个城市。在某些情况下，这一比例是几倍的低。”
 
-* * *
+在莫斯科的购物中心和公园内开设了步入式疫苗接种中心。他说，养老金领取者可以通过间接支付获得额外奖励。
 
-**翻译：【一花一世界】
-字幕：【XO小粉红】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+索比亚宁说，到目前为止，在莫斯科的1200万居民中，只有130万人接种了疫苗。他补充说，现在这个数字可能已经翻了一番。
 
-0
+他将问题归咎于对疫苗接种的恐惧。
+
+路透社在莫斯科采访的七名路人中，只有一人说他已经接种了疫苗。许多人说，由于已经感染了新冠病毒，并获得保护性抗体，因此他们觉得没有必要。
+
+3月初进行的一项独立民意测验显示，有62％的俄罗斯人不愿意接受Sputnik V疫苗，其中18至24岁的年轻人最不愿接受。主要原因是副作用多-可能包括发烧和疲劳。
+
+**点评: 这位市长目前压力山大，但是待中共病毒和疫苗真相出炉之时，他会为他的市民们的智慧选择而骄傲！看来经历过共产主义噩梦的国家，对共产病毒会认识深刻一些。不弄清病毒来源，不追查元凶，盲目接受匆忙上阵、疗效不明的疫苗，可能对健康造成长久和更大的危害。世界各国唯有团结起来，追责造毒放毒的邪恶政权，才是唯一解决问题的途径。**
+
+素材：里奇；审核：Jenny Ball；校对： 阿伯塔； 发稿：信心的选择
+
+**新闻来源：**[路透社](https://www.reuters.com/world/europe/moscow-mayor-decries-low-demand-covid-19-vaccines-2021-05-21/)
+
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+
++1

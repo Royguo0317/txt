@@ -1,57 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】中共呼吁打击比特币开采和交易行为之后，比特币价格暴跌
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1269163/)
+## 【热点播报】美国情报报告加速推进世界卫生组织对病毒起源的调查
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1269308/)
 
-作者：静水流深
+作者：香草山信息部  雪梨
 
-2020年5月21日（周五），国务院金融稳定与发展委员会（FSDC）召开的会议呼吁“打击比特币的开采和交易活动，并坚决防止个人风险向社会领域扩散。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23000323/Picture1-134.jpg)
 
-在中共当局加紧呼吁打击加密货币的开采和交易之后，比特币的价格周五出现暴跌。中共国副总理和国务院在一份声明中说：需要加强监管以保护金融系统。周五晚些时候在中共国发布的声明称：有必要“打击比特币开采和交易行为，坚决防止个人风险向社会领域传导。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24103844/%E5%9B%BE%E7%89%8727-2.png)
+周日，《[华尔街日报](https://www.wsj.com/articles/intelligence-on-sick-staff-at-wuhan-lab-fuels-debate-on-covid-19-origin-11621796228?mod=e2tw)》援引一份此前未披露的美国情报报告称，武汉病毒研究所（WIV）的三名研究人员在2019年11月寻求医院治疗。正值世界卫生组织（WHO）决策机构开会的前夕，这份报告预计将成为呼吁WHO对COVID-19病毒起源进行更广泛调查的一枚重量级砝码。
 
-这份声明的消息传出后，比特币在Coin Metrics上的价格下跌了8.5%，这也是数字货币从高峰期暴跌40%以上的大范围暴跌的一部分。其他加密货币也遭受了巨大损失，以太坊和狗狗币均下跌超过11%。
+这份报告的内容与川普政府于1月15日发布的关于WIV的[国务院简报](https://2017-2021.state.gov/fact-sheet-activity-at-the-wuhan-institute-of-virology/index.html)吻合。该简报提到，“美国政府有理由相信，在2019年秋季，WIV内部的几名研究人员在第一个被确认的疫情病例之前就已经生病”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24103823/%E5%9B%BE%E7%89%8728-2.png)
+《华尔街日报》称，这份报告的细节超出了川普政府的简报内容，提供了关于受影响的研究人员数量、患病的时间以及他们在医院就诊的新细节。
 
-就在美国官员承诺对那些使用比特币进行“广泛的包括逃税在内的非法活动”的人采取强硬态度之后的第二天，中共国就发表了强硬的言论。财政部表示：就像要求现金一样，它将要求报告超过10，000美元的加密货币转移。
+3月30日，WHO发布[病毒起源报告](https://www.who.int/publications/i/item/who-convened-global-study-of-origins-of-sars-cov-2-china-part)，称“实验室泄露是最不可能的假说”。同一天，美国、澳大利亚、英国、加拿大、日本等14个国家发表[联合声明](https://www.state.gov/joint-statement-on-the-who-convened-covid-19-origins-study/)，对世界卫生组织新公布的有关新冠病毒起源的报告提出了共同的关切，对有关病毒起源的国际专家研究被严重推迟，而且缺乏获取完整和初始数据与样本的准入途径表达关切，希望“为病毒起源研究的下一阶段及时、透明、基于证据的程序以及下一次卫生危机”铺路。
 
-中共国的担忧在许多问题上。大部分的比特币开采是通过电脑完成的，这些电脑使用大量的能源来解决复杂的数学问题以解锁加密货币。
+WHO称该调查报告虽然反映了对现有数据的全面审议，但“还没有发现病毒的源头”。并声明访问武汉期间，他们在获取原始数据等方面遇到了困难。总干事谭德塞此前也声称还需要进一步研究和更多的数据来证实病毒来源。
 
-全世界的权威人士都对比特币及和它的同类产品如何被非法使用担忧。
 
-中共国的声明说：“有必要保持股票，债务和外汇市场的平稳运行，严厉打击非法证券活动，并严惩非法金融活动。”
 
-作为精简新兴数字货币空间的努力的一部分，中共国央行一直是世界上最早开发以人民币为基础的数字货币的国家之一。美联储周四表示：将很快发布一份文件概述对央行数字货币经历的研究。
+> 世卫组织顾问，曾为克林顿政府和拜登工作过的左派梅茨接受福克斯采访，呼吁全体美国人、美国政府、全人类、全世界政府团结一起彻查病毒来源真相
+> 他说，如果病毒源于实验室事故泄漏，这就是刑事犯罪，习近平会被推翻
+> 
+> 一个标准左派，作为世卫顾问，接受右派媒体采访，号召美国人团结一致，什么情况？ [pic.twitter.com/vmCXzNxOOq](https://t.co/vmCXzNxOOq)
+> — 乔戈里峰 (@K2Qiaogeli) [May 23, 2021](https://twitter.com/K2Qiaogeli/status/1396614772355833856?ref_src=twsrc%5Etfw)
 
-为什么是在美国官员承诺对那些使用比特币进行“广泛的包括逃税在内的非法活动”的人采取强硬态度之后的第二天，中共国就发表了强硬的言论，“要打击比特币的开采和交易活动，并坚决防止个人风险向社会领域扩散”。中共国早些时候干什么去了？这是否说明中共就是在看美国的脸色做事呢？就好像一个无赖在一次一次试探对方的底线，只要对方没有发觉，无赖就一直进行下去，一旦对方发觉且要采取强硬措施时，无赖就立马转换一下方式。可是不管怎么转变都改变不了无赖的本质。
 
-比特币以人民币为基础，是中共用来挑战美元的一种加密货币。比特币是中共国最早开发的数字货币，不与任何资产锚定，也没有任何国家信用背书。在中共统治下的比特币不难想象其用来洗钱的本质。一旦触及到中共的利益，然后中共就开始“监管”“严厉打击”，这种只许州官放火，不许百姓点灯的方式，只能民心向背，自取灭亡。
 
-发稿：奇门遁甲
+梅茨，世卫组织顾问，曾服务于克林顿政府，并与拜登共事，在接受福克斯采访时说中共从第一天起就大规模掩盖病毒真相，并呼吁美国政府和全世界政府在第二天召开的世卫大会上寻求更大的改变；同时称，如果病毒源于实验室事故泄漏，将属于刑事犯罪，习近平会被推翻。
 
-参考来源：
+以毒灭共进展迅速。情报界，塞林博士与战友们倾力合作，逐步挖掘出中共病毒背后的始作俑者和利益相关方。政治界，[巴西总统Bolsonaro](https://www.dailymail.co.uk/news/article-9550207/Brazils-hardline-President-Bolsonaro-says-China-created-COVID-19-spark-chemical-war.html)此前演讲称，中共发动了生化战争；美国联合各国政府向中共施压。科学界，先有前CDC总监Robert Redfield声称病毒起源于实验室；现福奇博士抓住闫博士抛出的救命稻草，跳下贼船，成为“无辜科学家”，不否定病毒来自实验室的说法，并支持对病毒来源进一步调查。媒体界，CNN著名主持人Sanjay Gupta此前公开支持Robert Redfield的病毒实验室起源说；如今，病毒实验室起源说已成为美国左中右派、及世界各大媒体的焦点。
 
-Bitcoin price falls after China calls for crackdown on bitcoin mining and trading behavior
+以共灭共势不可挡。中共内忧外患。内，楼震，粮食危机，银行危机，货币危机，金融危机，人民对中共的信心降到冰点；外，八十国联军全面追责病毒起源，全世界冻结中共资产，西方与中共国全面脱钩，BGY全面崩溃，利益链集体切割。
 
-[https://www.cnbc.com/2021/05/21/bitcoin-falls-after-china-calls-for-crackdown-on-bitcoin-mining-and-trading-behavior.html](https://www.cnbc.com/2021/05/21/bitcoin-falls-after-china-calls-for-crackdown-on-bitcoin-mining-and-trading-behavior.html)
+中共无处遁形。承认病毒来自实验室，中共解体；继续捂着，死不承认，内外高压，经过内部斗争，输家被推出去顶罪，国人觉醒，中共还是得解体。
 
-China’s Top Financial Authority Calls for Crackdown on Bitcoin Mining and Trading
+校对/发稿：飞虹
 
-[https://www.chinabankingnews.com/2021/05/22/chinas-top-financial-authority-calls-for-crackdown-on-bitcoin-mining-and-trading/](https://www.chinabankingnews.com/2021/05/22/chinas-top-financial-authority-calls-for-crackdown-on-bitcoin-mining-and-trading/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
 
 
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
