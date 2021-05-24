@@ -1,44 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】如何用《圣经》看社会问题
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1267958/)
+## 福奇的中共病毒起源说法触发器按钮，现已拨向不相信病毒自然起源
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1268057/)
 
-配音：香草山福音部 Daxia
+翻译：飞利普 |校对：烟波浩淼 |审核：V
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24020214/fq.png)
+安东尼·福奇博士驳斥了川普政府有关中共病毒从中共国实验室泄漏的说法，而现在坚称他自己“不相信”这种病毒是自然起源。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+福奇的评论是在接受《政治真相新闻网》(PolitiFact)的凯蒂·桑德斯（Katie Sanders）采访时发表的，该采访是与中共有关的公司的“美国联合实况：事实调查日”活动的一部分。
 
+桑德斯质问国家过敏和传染病研究所（NIAID）主任：“你还在相信它是自然演变的吗？”
 
+福奇回答：“事实上，不”，他继续并补充说他“不相信”该病毒具有自然起源：
+“不，我对此不相信。我认为我们应该继续调查中共国发生的情况，直到我们尽我们所能查明到底发生了什么。当然，调查人员说，很可能是从某个动物水池里中出现的东西，然后感染了个体，但也可能是另外一回事，我们需要找出来。所以，你知道，这就是为什么我说我完全赞成对病毒起源进行任何调查的原因。”
 
+福奇对中共病毒自然起源新发现的怀疑与他以前在此问题上的立场相矛盾的。正如《国家地理》2020年5月的一篇文章所揭示的：
 
+福奇说：“关于随时间逐步进化的一切都强烈表明[该病毒]在自然界中进化，然后在物种间跳跃。”根据科学证据，他也没有接受另一种理论，即有人在野外发现了冠状病毒，将其带到实验室，然后意外地逃脱了。
 
+看来当时是主流媒体歪曲了国家过敏和传染病研究所主任指责川普政府声称中共病毒可追溯到武汉病毒研究所的言论。
 
+原文作者：娜塔莉·温特斯(Natalie Winters)
+发布时间：2021年5月22日
+原文链接：https://thenationalpulse.com/breaking/fauci-flip-flops-on-covid-origins/
 
-我们基督徒在这个世界上是寄居的，是客旅。本不管世界上的事，但我们主耶稣基督吩咐我们不要作宗教徒，要做世界上的光和盐，要努力救人。哪怕多救一个人，也好在将来天父面前有一个交代，即我们不白占地土。我总是在说，属灵人参透万事，《圣经》就是我们的尺子，遇到困惑看不明白的事，我们要成为事件真相的解读专家，我们总能给人以答案，叫听见的人疑惑消失，心结解开。我们遇到极恶无比的事件和人，我们遇见前所未有的困难和苦难，我们不但自己能释怀，还能安慰同样需要安慰的人。我们在这个大变革时代，正是这样的人，总能给人积极、乐观、向上的信心和盼望。这不是我说的，乃是我主耶稣基督的话语告诉我们的。在我们来看，耶稣基督都说了些什么？这些话都是我们如何看待社会、看待世界问题的尺子。
-
-
-
-**文字版原文：[【信仰之声】如何用《圣经》看社会问题](https://gnews.org/zh-hans/1261396/)**
-
-作者：纽约香草山福音部  捆绑ccp一千年
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0

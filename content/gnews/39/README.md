@@ -1,35 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】迷之人民币汇率
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1267840/)
+## 【有声读物】如何用《圣经》看社会问题
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1267958/)
 
-彭博社记者兼评论员索非亚·霍尔塔·科斯塔（Sofia Horta e Costa）
+配音：香草山福音部 Daxia
 
-中国不断上升的通货膨胀使人们把重点放在人民币的作用上，人民币的交易价格接近三年高位。周五，央行上海分行的一位官员表示，中国应允许人民币升值，以抵消进口价格上涨的影响。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-“作为全球重要的大宗商品消费国，中国不可避免地会受到进口商品的国际市场价格的影响，”中国央行上海分行研究与统计部门主任吕金中在《中国金融》杂志周五发表的一篇文章中写道。
 
-该文章已被删除。
 
-周日，中国人民银行副行长刘国强似乎反驳了这一观点，称人民币汇率将保持在“基本稳定”的水平。当地媒体也发表头条评论，称汇率机制有望在一段时间内保持稳定。
 
-人民币升值将削减诸如大宗商品等进口商品的价格，这些商品一直是价格上涨的主要组成部分。但是人民币的坚挺意味着更多的涨幅可能会促使人们猜测，当局正在放开人民币，从而刺激交易者押注进一步升值。长期以来，这种单向的赌注一直受到中国人民银行的抵制，而人民币汇率过高也会通过使出口价格更高而损害国家的全球竞争力。
 
-如果北京方面认真考虑放开人民币或使其更具国际性，那么将需要作出更大的努力来取消资本管制。到目前为止，没有什么迹象。2015年年中采取了一种拙劣的举措，让市场在设定人民币汇率时扮演更重要的角色，这吓坏了全球投资者，最终促使北京采用了目前的框架：欢迎海外资本流入，同时限制本国货币的流出。
 
-简评：
 
-中共国一直是汇率操纵国，人民币一直通过港币与美元挂钩，党和党的家族拥有国家外贸企业创造的所有的血汗外汇收入，而且党的家族拥有的都是海外资产，不以人民币计价。无论是升值也好，不升值也好， 都是党的家族内部权力斗争的结果。经济外汇所有政策的最终目的都是如何盘剥老百姓，以获取最大的财富。
+我们基督徒在这个世界上是寄居的，是客旅。本不管世界上的事，但我们主耶稣基督吩咐我们不要作宗教徒，要做世界上的光和盐，要努力救人。哪怕多救一个人，也好在将来天父面前有一个交代，即我们不白占地土。我总是在说，属灵人参透万事，《圣经》就是我们的尺子，遇到困惑看不明白的事，我们要成为事件真相的解读专家，我们总能给人以答案，叫听见的人疑惑消失，心结解开。我们遇到极恶无比的事件和人，我们遇见前所未有的困难和苦难，我们不但自己能释怀，还能安慰同样需要安慰的人。我们在这个大变革时代，正是这样的人，总能给人积极、乐观、向上的信心和盼望。这不是我说的，乃是我主耶稣基督的话语告诉我们的。在我们来看，耶稣基督都说了些什么？这些话都是我们如何看待社会、看待世界问题的尺子。
 
-参考链接：
 
-[https://www.zerohedge.com/economics/friday-pboc-official-called-stronger-yuan-one-day-later-his-article-was-deleted](https://www.zerohedge.com/economics/friday-pboc-official-called-stronger-yuan-one-day-later-his-article-was-deleted)
 
-整理撰稿：蓝精灵
+**文字版原文：[【信仰之声】如何用《圣经》看社会问题](https://gnews.org/zh-hans/1261396/)**
 
-校对发布：Penny
+作者：纽约香草山福音部  捆绑ccp一千年
 
-\*以上仅代表作者观点，不代表Gnews平台\*
 
-0
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1

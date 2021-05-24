@@ -1,43 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 抖音母公司利用中国共产党官员作为招聘宣传材料
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1267915/)
+## 中国共产党支持比特币在得克萨斯州加密货币投资数百万美元
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1267993/)
 
-翻译：康州盘古 – 郭班之樱
+翻译：康州盘古农场 – Freeearth
 
-校对：康州盘古- Mike Li
+校对：康州盘古农场 – Mike Li
 
-审核：康州盘古- 傻小子
+编辑：康州盘古农场 – 傻小子
 
 发布：康州盘古农场 – 彩虹 Rainbow
 
-**据《国家脉动》作者：娜塔莉·温特斯，2021年5月21日发布**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235505/phone4.jpg)
-《字节跳动》公司与中共国政府之间的旋转门是该公司的应用程序抖音受到了中共渗透侵害的又一证据。
+**据《国家脉动》作者：娜塔莉·温特 (Natalie Winter)，2021年5月21日发布，**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24011445/mone4.png)
+BIT矿业有限公司（Mining Limited）一家由有网络攻击历史的国营实体支持的中共国公司，并向位于德克萨斯州的比特币采矿业务投资超过2500万美元。
 
-简·波尔图（Jian Porto），自2016年以来一直在字节跳动工作，他在加入该公司之前曾担任为期六年的中国共产党官员。 Jian Porto目前是字节跳动在巴西的国家经理，他在2010年至2011年期间担任中共国外交部外交官，重点研究“拉丁美洲和加勒比海问题”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235635/papela.png)
-从2011年到加入抖音的母公司之前，Jian Porto一直是中共国驻巴西里约热内卢总领事馆的副领事。 在中国共产党外交职位上卸任以后，他随即加入了字节跳动担任内容整合服务总监，之后被提升为娱乐服务总监，随后又升任现职的巴西国家经理。
+这家中共国公司与Bitdeer公司位于得克萨斯州子公司之间在“比特币采矿”上的合作关系-新比特币的流通过程-将引领德克萨斯矿业中心的建设。
+BIT矿业公司（前身为500.com）与中共有着广泛的财务和人事联系。
 
-Jian Porto对字节跳动的夸赞在公司招聘工作中得到了显着的体现。 宣传材料援引他的讲话说：“公司的文化对员工而言是独特的和个性化的，与个人价值观相结合，可以使两者都朝着他们的目标迈进。”
+路透社已经确定“中共政府支持的芯片制造商清华紫光集团为主要股东”，到2018年已经积累了公司近三分之一的股份，并将其联席总裁视为公司董事长。清华紫光集团是清华控股的子公司，而清华控股是一家由清华大学在北京资助的国有公司。国防情报局前高级情报官机构和国务院官员尼古拉斯-艾夫逖米德斯（Nicholas Eftimiades）说，作为习近平的母校，清华大学“在与[他们]可以采取什么措施来帮助中共国家安全的讨论中，与他们之间有着清晰的联系”。
+根据美国国务院的说法，这所学校甚至发起了针对美国政府的网络攻击：
 
-Jian Porto也出现在广告系列中。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235547/sasas.jpg)
-**JIAN PORTO用的宣传材料**
+“清华大学有一个名为“蓝莲花小组”的网络小组。该小组成员都是学生，而且-他们也-我们遭受到清华大学数百万次攻击-通过非洲等多个国家，以及阿拉斯加州，针对阿拉斯加州政府的网络攻击。因此，他们的网络组件在收集方面颇具攻击性。”
 
-该公司公开承认在招聘过程中会优先考虑中共党员。在分享的一份招聘启事中宣布“首先考虑中共党员”，并列出其理想招聘对象为“爱好新闻阅读，关心时事，并具有良好的政治敏感性和判断力”的人。
+独立研究证实，该机构“是针对诸如印度的藏族社区和阿拉斯加州政府等组织的最近多次网络间谍活动的始作俑者。”
 
-然而，Jian Porto并不是唯一的中共官员工作于该公司。
+此外，该公司在美国证券交易委员会（SEC）的文件显示，500.com的董事中有一名董事曾在中共的中央党校学习。
 
-窦简（Jane Dou），自2018年以来一直在字节跳动工作，她也曾在中共国外交部任职。 在LinkedIn（一个通过网站和移动应用程序运营的美国商业和就业导向型的在线服务）上，她将自己列为2012年在国家主席习近平办公室工作的新闻翻译。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235533/sasaq.png)
-现在，窦担任字节跳动管理办公室的首席执行官，负责监督许多任务，其中包括“机密项目”。 在担任此职位之前，她曾担任字节跳动全球传播高级经理和国际产品公共事务主管。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23235516/okol.png)
-Natalie Winters
-娜塔莉·温特斯（Natalie Winters）是《国家脉动》的调查记者，也是《国家脉动》播客的撰稿人。
+500.com还被证实：企图贿赂日本议员，以期希望在日本建造赌场。
 
-原文链接：[https://thenationalpulse.com/breaking/tiktok-uses-ccp-official-in-hiring-promo/](https://thenationalpulse.com/breaking/tiktok-uses-ccp-official-in-hiring-promo/)
+原文作者: 娜塔莉·温特 (Natalie Winter) 2021年5月21日
+原文链接:[https://thenationalpulse.com/breaking/ccp-bitcoin-firms-invests-in-texas-crypto-center/](https://thenationalpulse.com/breaking/ccp-bitcoin-firms-invests-in-texas-crypto-center/)
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
 康州盘古农场欢迎您加入:(或点击上方图片）
 
