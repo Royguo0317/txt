@@ -1,32 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 六四前夕，中共释放武力威慑影像，意欲何为？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1271090/)
+## 慧眼看世界210524-01
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1271201/)
 
-- 作者：铁蚁骑士
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25034437/01-30.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25034638/02-48.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25041134/09-13.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25041433/10-70.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25042623/11-88.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25043719/12-107.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25044527/13-64.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25035708/04-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25035825/05-29.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25040006/06-40.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25040936/07-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25041052/08-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050446/15-36.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050604/16-30.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050700/17-20.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050745/18-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050820/19-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050902/20-14.jpg)
+发稿：神奇四侠
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+以上图片均采集于网络，与GNEWS无关
 
-**西班牙2021年5月25日电/西喜社——**
-
-朋友们，我们知道自从1989年开始，武力威慑支联会每年6月4日都会在维多利亚公园举行烛光悼念集会，去年因为疫情的关系，首度被禁。而今年(2021年)是国安法在港实施后的首个六四，当支联会仍然在与香港警方协商六四纪念活动的时候，却传出北京将以前所未有的「强硬手段」处理这个议题。今天21号，中共官媒央视的军事频道同步释放出驻香港、澳门部队进行实弹演训的影片，他们以黑社会的方式威吓阻止香港市民的意味不言可喻。然而，过去发生的血的事实表明：香港人民不是吓大的，不可能就此屈服。那么，中共六四使用过的机枪、军车和坦克的北京大屠杀，会再一次在香港街头上演吗？
-
-影片显示，中共驻港部队在深圳基地「移地训练」，强调实兵、实装、实弹演练，假设状况是发现「敌暗堡」，就迅速摧毁！其中最令人注意的是「神枪手」的评定，这个视频的感觉是：在动用武力状态下，极有可能是一种对特定目标进行的狙击斩首训练。那么，这狙击的，会不会是公园里、集会上举起喇叭讲演的民主派议员或者百姓？
-
-而中共驻澳门部队同样也是移动到了广东北部，在陌生的、不为人们知道的地域进行演练。他们动用装甲车演练奔袭、还使用无人机进行侦察。都被解读是「支援」香港的行动。因为香港、澳门两个城市的地形是大楼林立，所以他们对这个特征还做了特别的预备演练。这是不是准备又一次将子弹射向平民和百姓？
-
-根据了解，相关六四悼念活动牴触了中共的所谓「宪法」和国安法，一国两制已经不复存在。北京将以前所未有的野蛮和流氓手段处理有关议题，六四悼念活动可能被定性为非法集结，参与者将不符合他们所定的「爱国者」标准。那么香港市民断绝政治生涯是轻的，中共有无可能再次出动军队来镇压？
-
-目前，香港政府以疫情为理由和幌子，故意拒绝处理支联会维园六四集会的申请，所以外界预料警方不会批准与悼念有关的集会。但是，如果发生了和去年一样的「自发性」集结，我们可以预料香港警方将会进行大规模的拘捕行动。如果人民自发组织了和平抗议和悼念活动，却再一次被中共打成“暴动”的话，那么驻香港、澳门部队恐怕将会出动镇压。但是，爆料革命已经把中共的各样恶行公布于世（包括病毒真相和新疆的种族灭绝），世界已经醒了。美英联合军演已经前往南海，灭共力量正在集结。如果香港街头再一次发生流血事件，我们可以相信：那每一滴血都不会白流，都会让中共百倍千倍的偿还！
-
-审核：蚂蚁兄弟； 校对：阿伯塔； 发稿：Nuevo唐人
-
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
-
-
-
-
-
-+5
++2

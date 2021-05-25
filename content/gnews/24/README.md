@@ -1,28 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美阿拉巴马州立法禁止“疫苗护照”
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1271235/)
+## 慧眼看世界210525-02
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1271203/)
 
-- 翻译：yyshere
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25062903/21-18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25062953/22-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063028/23-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063127/25-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063059/24-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063219/26-18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063250/27-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063320/28-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063345/29-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063415/30-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063446/31-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063514/32-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063548/33-8.jpg)
+发稿：神奇四侠
 
-美国阿拉巴马州州长，共和党人Kay Ivey，24号通过推特发布她已签署SB267号法案：禁止推行疫苗护照。她在推特中表示，“我支持自愿接种疫苗，并且通过签署这项法案使之成为法律，我只是进一步巩固了这种信念。”
+本图片均来自网络，与GNEWS无关
 
-根据这项法案，将禁止私营企业和公共机构要求个人使用所谓的Covid-19 “疫苗护照“来获取服务，或者拒绝对没有接种疫苗的个人提供服务。
-
-Kay Ivey在她的推特中补充到，她个人已经完成了疫苗接种，也鼓励没有接种的人去“卷起袖子”进行接种。
-
-针对这项法律的成形，阿拉巴马州共和党政府表示，这是在在保护阿拉巴马州民众的隐私权，免联邦政府的控制。法律已立即生效，据此，阿拉巴马州及下辖个地方政府不得为个人免疫接种状况签发疫苗接种或疫苗护照、疫苗或者免疫通行证或者其他任何标准化文件。
-
-根据美国官方数据，CCP病毒至今已经造成美国3300多万人感染，约59万感染者死亡。在疫苗快速推出后，美国政府加进了接种进度，已有39%的人口接种了疫苗。
-
-但疫苗犹豫一直存在于民间。
-
-此前在4月有公开消息显示，白宫正在与美国航空业和旅游业展开讨论，旨在对“可用于增加国际航空旅行安全性的疫苗护照“提供”技术性指导“。
-
-有分析人士指出，疫苗护照的推行实际上是公权力对个人人权和隐私权的侵犯；同时强制推行疫苗接种，不排除存在当权者与疫苗企业及其背后的财团进行利益输送的可能。
-
-（本文系作者个人观点，不代表GNEWS平台）
-
-+2
+0

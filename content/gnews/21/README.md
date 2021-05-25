@@ -1,15 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界210525-02
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1271203/)
+## 《路德社》精选主题新闻：中共媒体战宣扬虚拟货币风险加码监管称 “挖矿”或成历史
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1271294/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+《路德社》精选主题专栏组出品
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25062903/21-18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25062953/22-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063028/23-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063127/25-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063059/24-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063219/26-18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063250/27-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063320/28-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063345/29-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063415/30-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063446/31-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063514/32-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063548/33-8.jpg)
-发稿：神奇四侠
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25065443/052503.jpg)
 
-本图片均来自网络，与GNEWS无关
+随着新中国联邦周年庆渐进，以及喜币的即将上市。中共媒体发起了新一轮针对虚拟货币领域的强力打压和洗脑，并且紧锣密鼓推出了一系列妄图阻断虚拟货币交易可能性的措施。
+
+5月18日，中共国互联网金融协会、中国银行业协会以及中国支付清算协会联合发布防范虚拟货币交易炒作风险的公告，要求会员机构不得开展虚拟货币交易兑换以及其他相关金融业务，中共称坚决抵制虚拟货币相关“非法金融活动”，不为虚拟货币交易提供账户和支付结算、宣传展示等服务。
+
+5月21日，中共国务院金融稳定发展委员会提出，打击比特币挖矿和交易行为。
+
+中共还有砖家称，随着监管趋严，比特币等虚拟货币的“挖矿”可能会成为历史，大部分“矿工”将会转移到其他国家，但仍有部分“矿工”可能从此转入地下。
+
+此外，上述中共所谓的监管措施以保护小白投资者为名旨在堵隔人民币与虚拟货币的提现渠道。也相当于堵断了虚拟货币与法定货币之间的“出入通道”，用户投资的虚拟货币无法变现，对于新用户而言是致命打击。
+
+中共一再强调，让民众认识到虚拟货币市场的风险。并无厘头的将虚拟货币交易关联到碳排放！简直滑天下之大稽！今年4月，中共国科学院、清华大学的学者发表的《中国比特币区块链运行的碳排放量与可持续性的政策评估》论文预估，位于中国的矿池占全球算力的78%左右。声称，如此众多的“挖矿”设备，消耗了大量电能。若没有任何政策干预，中国比特币区块链的年能耗预计将在2024年达到峰值296.59太瓦时，产生1.305亿公吨碳排放，约占中国发电的碳排放量的5.41%。至此，中共用以上论文编造了为了环境和节约电能，减少碳排放需要政策干预虚拟货币交易的谎言！
+
+随着新中国联邦喜币上线，中共的恐惧之痛已经到了令他们锥心刺骨的地步。再次利用媒体战倾力打造“虚拟货币”风险假象，洗脑墙内韭菜，进而妄图阻断墙内百姓和战友投资喜币的趋势。但是，CCP大势已去，喜币的未来就是刺进邪恶中共心脏的一把利刃！
+
+中共无论如何巧立名目针对虚拟货币市场，封锁资金流动，以及给虚拟货币交易开户设置各种障碍，这些都无法掩盖其真实意图：中共恐惧墙内民众把海量资金投资境外。他们深知这会令其腐败体制金融缺血，导致失血暴毙！也就是说，中共超级恐惧郭文贵先生提出的“隔空取钱”！中共最忌惮的就是墙内14亿草根百姓聚集财富，拥有财富，有朝一日会摆脱其邪恶体制的桎梏。G系列和喜币的诞生和成长壮大必将为新中国联邦人带来强大的，无限光明的新世界，而这一切正是中共的噩梦。
+
+[援引原文](http://finance.people.com.cn/n1/2021/0525/c1004-32112389.html)
+
+【文章仅代表作者个人观点】
+
+本文作者：玫瑰天空
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 0
