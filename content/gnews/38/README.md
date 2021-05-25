@@ -1,15 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界210525-02
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1271203/)
+## 雷尼尔·弗尔米希：世卫组织推荐的黄金标准的核酸检测并不可靠
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1271362/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+5/22/2021 雷尼尔·弗尔米希认为，由于核酸检测并不能分辨测试样品是否具有活性，所以就无法判断人是否被CCP病毒感染。因此，即使被世卫组织指定为CCP病毒测试的黄金标准，核酸检测并不可靠。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25062903/21-18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25062953/22-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063028/23-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063127/25-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063059/24-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063219/26-18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063250/27-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063320/28-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063345/29-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063415/30-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063446/31-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063514/32-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063548/33-8.jpg)
-发稿：神奇四侠
-
-本图片均来自网络，与GNEWS无关
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0
