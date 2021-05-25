@@ -1,44 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】福奇抓住闫博士抛出的救命稻草，在病毒起源上果断转向！
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1270089/)
+## 拍案惊奇短评系列之十六——共襄火葬CCP
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1270446/)
 
-配音：香草山录音组 蒙古鸿雁
+#### 作者：左媛 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25011930/truth.jpg)圖片來自網絡
+#### 中共国奇葩事层出不穷。这不，中共忙着“百年大庆”，红歌红舞乐不停，连殡葬业也不甘寂寞阴冷，一扫黑白晦气，要登上献礼大舞台。 
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+#### 好好好！这可真是百年不遇的大好事儿！咱中国人活了几千年，盘古开天地，头一回看见殡葬业这么扬眉吐气欢天喜地！实在是好！
 
+####  殡葬业要献礼建党百年，不知你的孝心是否如你党妈所愿。党妈现在正处江河日下，外披紫龙袍，内怀绞肉心，在日印美法英等国灭共之剑呼啸而来的时候，眼看着日子一天短似一天，你殡葬业要搞什么“共襄行业盛事献礼建党百年”摄影活动，你这是要准备给党妈照遗像办丧事吗？ 
 
+#### 看样子，厉害之国现在到处都盛行“春秋笔法”：网易言论尺度越来越大，墙民“凿壁偷光”也要窥视墙外风光，在爆料革命影响下，越来越多警察也学会了“枪口抬高一寸”……殡葬业也有高人！
 
+####  2020年武汉病毒肆虐高峰之时，多省殡葬业冒险增援，武汉死亡数据却一直停留在3869例（4月17日当天猛然核增1290例）。武汉殡葬业加班加点加增援加临时工24小时开足马力，就为了这3869例？这当然只有鬼才会相信的故事。 
 
+#### 中共国生多少人，医院最清楚；死多少人，殡葬业最清楚。殡葬业也看多了中共厚黑和人情冷暖。笔者认为，在这个百年一遇的“喜庆”时刻，殡葬业一扫黑白晦气，也要披个红挂个彩，给党妈献个意想不到的大礼，是完全可以理解的。
 
+#### 毕竟，“八宝山”上的每一位大佬，也是殡葬业恭恭敬敬地完成他们人生的最后一步的。党妈杀人太多，冤魂索命，殡葬业是得好好准备一下它的后事了！这个献礼必须有！
 
+#### **2021年5月24日**
 
-5月21日，闫博士再次接受福克斯采访，金牌主持人塔克说：你去年9月15日上了本节目，但美国公共卫生当局，NIH的柯林斯、福奇博士等都说：“这不是真的，这是谎言，我们确信这不是事实。”你认为他们为什么这么说?
+【**免责声明**】 文章中表达的所有观点均属于作者，不代表任何组织或其他个人。
 
-
-
-**文字版原文：[【热点播报】福奇抓住闫博士抛出的救命稻草，在病毒起源上果断转向！](https://gnews.org/zh-hans/1267988/)**
-
-作者：纽约香草山信息部 6zero4
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+校对发布： 旧金山金喜农场编辑组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/11043753/%E6%97%A7%E9%87%91%E5%B1%B1.jpg)
 0

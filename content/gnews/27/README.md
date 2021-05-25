@@ -1,44 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】任劳任怨的蜜蜂们，做个自由自在的苍蝇吧
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1270102/)
+## 盖洛普民调显示5月美国经济信心跌至负值
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1270408/)
 
-配音：香草山录音组 蒙古鸿雁
+加拿大多伦多枫叶农场 军迷Wilson
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25002614/seattlebusinessmag.com_.jpg)*图片来源：seattlebusinessmag.com*
+美国的疫情已经从今年1月初每天染疫25万多人的高峰期，逐步降到最近的7天平均每天2．5万人，而且有继续好转的趋势。相应地，美国的4月份统计数据显示经济正在强劲反弹，正在人们普遍认为美国的经济会持续好转时，著名民调机构盖洛普的民调结果给持乐观态度者泼了一盆冷水。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+盖洛普民调4月份的的经济信心指数为+2，5月急剧下降到-7，又回到3月份的水平，到底发生了什么？盖洛普认为，原材料和商品的价格上涨，是因为供应短缺造成的。物品短缺反映了供应链的恢复并不理想，比如天然气的短缺和涨价打击了企业和消费者的信心。这种在经济停滞甚至倒退状态下出现的通胀被称为滞涨。根据历史经验，滞胀是恶性通胀和经济大萧条的先兆，需要长期调整才能治愈，美国上世纪70年代就发生过这样的事件。
 
+实际上当前的美国比70年代的情况更加严峻。由于CCP病毒不断突变，美国的高疫苗注射率并不能保证疫情不会再次爆发，这增加了经济前景的不确定性；另外，拜登上台仅4个月就实施了5万亿美元的大撒币，要知道，布什2005上台时的美国联邦债务总额是7万多亿美元，拜登的强刺激为以后的通胀埋下了巨大的隐患。
 
+拜登的注水中有广泛的疫情救济和资助计划，获得资助的企业和个人，会有相当一部分人因为害怕染疫或不想工作等原因不愿意开工或回到工作岗位，从而导致5月份的开工率和就业率大大低于预期，这是出现盖洛普民调负值的原因之一。当失业率居高不下时，美联储无法退出QE，还得继续放水，这又推高了通胀压力，因此专家认为拜登的社会主义手法也阻碍了经济复苏。
 
+[原文链接](https://www.breitbart.com/economy/2021/05/24/american-economic-confidence-turned-negative-in-may/)
 
+* * *
 
+编辑 发稿 云起时
 
-
-有次参加一个会议，台下一群企业主和公司高管，而邀请的却是前地方党委书记给我们讲创新。此人眉飞色舞，PPT做得漂亮无比，可内容却让人仿佛有吃屎的感觉。一个扼杀创新的人在给我们讲创新，就像一个披着蜜蜂皮的苍蝇在给台下的一群蜜蜂讲怎么采蜜。我难以忍受这狗屁理论，可周边却掌声不断，匪夷所思的我转眼一看，原来周边也全是披着蜜蜂皮的苍蝇。一想到这，如鲠在喉的我只得离开那个让人恶心生厌的地方，从此不再参与。
-
-
-
-**文字版原文：[【独立观点】任劳任怨的蜜蜂们，做个自由自在的苍蝇吧](https://gnews.org/zh-hans/1264349/)**
-
-作者：纽约香草山写作组 程万里
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++2
