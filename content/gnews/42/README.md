@@ -1,23 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯称尚未看到伊朗准备重返核协议的意愿
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1269528/)
+## 【马云】离任湖畔大学校长
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1269584/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+```
+新闻来源：意大利安莎通讯社（ANSA）
+发布时间： 2021年5月24日
+翻译整理/简评： 斩草要除根
+```
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24140728/S-10.jpg)thecitizen.co.tz
-5月23日，美国与伊朗在维也纳举行的间接会谈尚未看到德黑兰是否准备重新遵守关于伊朗核计划的联合全面行动计划的条款。美国国务卿安东尼·布林肯周日在接受美国广播公司电视频道采访时这样说。
 
-他说：“在维也纳进行的调解会谈澄清了每一方必须做的事情，以便回到协议的轨道上。我们知道哪些制裁需要取消，因为它们与协议不符。但更重要的是，伊朗知道它需要做什么。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24150653/news120336.jpg)图片来源：联合日报
 
-“我们还没有看到的是，伊朗是否准备并愿意做它需要做的事情。我们还没有这个问题的答案。”布林肯补充说。
+电子商务巨头阿里巴巴（*Aibaba*）的创始人马云（*Jack Ma*），将从他建立的精英商学院校长的职位上辞职，这是北京与他的团队在陷入困境之后逃避关注的最新举措。
 
-伊朗和国际五常（俄罗斯、英国、德国、中共国和法国）联合委员会自4月初以来一直在维也纳举行会议，并在三个工作组中开展专家级工作，以解决恢复执行JCPOA的实际问题：解除华盛顿对德黑兰的制裁（以及美国未来重返该协议）和履行伊朗的核义务。
+据《金融时报》报道，知情人士透露，湖畔大学是一家于2015年在该大亨故乡杭州成立的顶级企业高管学院，现已被更名，并将对课程进行重组。
 
-参考链接：
+由于北京试图限制其影响力，他不会在重组后的组织中担任任何高级职务。一位知情人士告诉英国《金融时报》：“湖畔大学就像一个精英社区，这是（当局的）主要目标之一。”
 
-[https://tass.ru/mezhdunarodnaya-panorama/11449025?utm\_source=twitter.com&utm\_medium=social&utm\_campaign=smm\_social\_share](https://tass.ru/mezhdunarodnaya-panorama/11449025?utm_source=twitter.com&amp;utm_medium=social&amp;utm_campaign=smm_social_share)
+自本月初以来，在社交媒体上以普通话传播的视频显示，工人正在清除“湖畔大学”这个大型标志上的字符。《城市日报》在4月还报道说，由于北京方面不断施加压力，在拆除马云的金融科技帝国后，该大学也被迫暂停新生入学。
+
+#### 简评：
+
+**曾经无限风光的马云在其壮大以后，现在被中共开始步步紧逼。中共国的企业家也不过就是上面政权揽财的工具罢了。在这个共产党当权的国家里，无论是企业还是个人，如果想要拥有自己的独立个性，那就是犯了当朝最大的忌讳，必将被诛之。**
+（本文只代表译者观点，与Gnews平台无关。）
+
+**新闻原文链接：**
+
+🔗[Alibaba:Ft, Jack Ma lascia presidenza della Hupan University](https://www.ansa.it/sito/notizie/topnews/2021/05/24/alibabaft-jack-ma-lascia-presidenza-della-hupan-university_e80389c4-fce4-4e37-82f3-c0e9f4cdfd32.html)
+
+* * *
+
+***编辑整理/校对: **Ting Guo*
 
 0

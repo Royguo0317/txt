@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧洲与美国站队重组世界秩序-联合孤立中共
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1269769/)
+## 急于挑战美元的专制国家
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1269883/)
 
-台湾宝岛农场 Amitofu
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24191904/27-7.jpg)
+据路透莫斯科5月24日报道，俄罗斯央行总裁纳比乌里娜(Elvira Nabiullina)周一表示，俄央行看到存在数字化本币的需求，计划在2022年开始测试数字卢布。
 
-5月22日法国第一大报Le Figaro《费加罗报》刊登法国军队总参谋长弗朗索瓦·莱科因特雷（Francois Lecointre）的专访，表示我们正在走向世界秩序的重组，其围绕着美国和中国之间的竞争而展开。在这次重组中，世界上所有国家都将被迫选择立场。法国和欧洲必须通过依靠战略伙伴来代表一条平衡的道路。
+俄罗斯正致力于在现有现金和非现金卢布的基础上推出数字卢布，以便利个人和企业的支付，并在面对西方制裁的情况下使卢布的使用更加全球化。
 
-美国、日本、法国和澳洲4国在5月11日至17日在东海（ARC21）的海陆联合军事演习。由美国陆战队、日本陆上自卫队与法国陆军首度在九州岛两地共同演训，3国出动约220员地面部队兵力，在日本九州岛雾岛演习场进行假想夺岛状况及巷战演练，澳洲则参与东海演习。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24174429/XVM45a460b8-ba50-11eb-aa7d-0d91b64babe6-400x225.jpg)Général François Lecointre. JOEL SAGET/AFP
-笔者认为法国军队总参谋长弗朗索瓦·莱科因特雷（Francois Lecointre）在美日法3国加强离岛防卫的联合军事演习，直接针对中共不断侵犯东海、南海海域，破坏印太地区和平稳定行动后的专访，**「在面对中共对世界的威胁****，世界上所有国家都将选择与美国站队重组世界秩序，法国和欧洲必须依靠以美国为战略伙伴的核心」，在北约与美国跨大西洋团结合作和欧中投资协议破局后，都表明了各国与美国站队重组世界秩序，而这也剑指世界各国联合孤立中共。**
+在全球经济因为疫情原因被埋下无数隐患之时，美联储大肆“放水”让美元的地位已岌岌可危。因此前有中共的DCEP，后又有俄罗斯的数字卢布，都是有意挑战美元地位，都是赤裸裸地摆出一副要构建新的货币秩序的野心和企图。
 
-杨洁篪5月24日访问俄罗斯，举行三天的中俄战略安全会谈，表明在欧美联盟下中共面临被孤立的处境已成定局，23日文贵先生盖特更清楚指出，法国军队总参谋长弗朗索瓦·莱科因特雷（Francois Lecointre）与新中国联邦灭共的渊源。祈祷万佛万神加持75亿人不受到中共病毒的威胁
+而美国卡尔巴斯就在前几天曾在媒体公开采访中表达明确观点：西方国家应远离中共国的数字人民币，而且他将中共的数字人民币比作特洛伊木马。
 
-本文仅代表个人立场
+根据文贵先生的视频所传递的情报，**中共在数字人民币的内部测试中，21次测试全部失败，失败的原因是发出去的货币就消失了**，这是很可怕的一个结果。中共鼓吹用区块链技术为DCEP赋能，而区块链的核心就是可追溯、不可篡改，但在实际的操作中，这些货币的消失就完全打脸了中共国所谓的“区块链”技术。另外，中共企图利用数字人民币对使用者进行全面的监控，也是险恶用心之意。未来只要使用数字人民币的消费者，所有的记录都会被中共掌控，而且可以随时随地用莫须有的罪名封锁你的账户，冻结你的资产。而当你所有的资产都是一堆数字的时候，只能欲哭无泪，毫无还手之力。
 
-資料來源:[文贵先生23日盖特](https://gtv.org/getter/60aad4a4744cbc4313636ef7)
+**货币是一个国家的信用，而对中共这样一个不讲信用的政权，他们所创造出了信用货币，又怎能被世界接受呢？**最终被上枷锁的，又是可怜的14亿百姓。
 
-[法军总参谋长：世界秩序正围绕美中竞争重组，所有国家都将被迫站队](https://www.rfi.fr/cn/%E6%AD%90%E6%B4%B2/20210522-%E6%B3%95%E8%BB%8D%E7%B8%BD%E5%8F%83%E8%AC%80%E9%95%B7-%E4%B8%96%E7%95%8C%E7%A7%A9%E5%BA%8F%E6%AD%A3%E5%9C%8D%E7%B9%9E%E7%BE%8E%E4%B8%AD%E7%AB%B6%E7%88%AD%E9%87%8D%E7%B5%84%EF%BC%8C%E6%89%80%E6%9C%89%E5%9C%8B%E5%AE%B6%E9%83%BD%E5%B0%87%E8%A2%AB%E8%BF%AB%E7%AB%99%E9%9A%8A)
+（本文只代表作者观点，与Gnews平台无关。）
 
-[Général Lecointre: «Nous allons vers une réorganisation de l’ordre du monde»](https://www.lefigaro.fr/international/general-lecointre-nous-allons-vers-une-reorganisation-de-l-ordre-du-monde-20210521)
+**新闻来源：**
 
-审核:Athena雅典娜 发布:Amitofu
+1、[俄罗斯央行计划2022年开始测试数字卢布 | 路透 (reuters.com)](https://cn.reuters.com/article/russia-cen-digital-rouble-0524-idCNKCS2D50Y5?il=0)
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+2、[(18) Kyle Bass: Communist China Still a Bad Investment; Dan Peña: Great Time to Buy a Biz | NTD Business – YouTube](https://www.youtube.com/watch?v=DCUSHNgGbxg&amp;t=724s)
+
+***校对发布**：文顾*
 
 0
