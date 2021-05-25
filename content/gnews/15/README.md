@@ -1,43 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】中共偷盗本性的根源
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1270165/)
+## 美国共和党参议员兰德·保罗受到死亡威胁
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1270780/)
 
-配音：香草山录音组 Kikii
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+- 作者：yyshere
 
 
+美国共和党参议员兰德·保罗（Rand Paul）5月24号发布推特表示，一个可疑包裹被送到了他的家中，联邦调查局和国会山警方已经对事件展开调查。
 
+保罗参议员的推文显示：”我非常认真地对待这些威胁。作为一个被暴力反复针对的目标，这表明推特允许C级名单名人（C-list celebrities）鼓励针对我和我的家人的暴力，这是应该受到谴责的。保罗所指的C级名单名人，据信是在20世纪80年代和90年代很受欢迎的歌手和作曲家理查德·马克思（Richard Marx）上周日在推特上发帖称：”我再说一遍。如果我遇到兰德·保罗的邻居，我会拥抱他，并请他喝尽可能多的酒。”目前马克思并没有对此发表任何评论。
 
+而此前在2017年，保罗的邻居雷内·鲍彻(Rene Boucher)曾袭击了他，并导致他肋骨骨折，鲍彻随后承认了攻击国会议员的罪行。
 
+根据Politico的报道，这个可疑的包裹含有白色粉末，而据该参议员的一名代表的透露，这个大信封上还有一张包含死亡威胁的图片。
 
+联邦调查局发言人表示，”联邦调查局路易斯维尔分局正在与沃伦县警长办公室和国会大厦警察合作，提供法法医检验和技术支持”。
 
-曾有一段时间，网友们称中共国为山寨国，称中国制造为山寨。甚至中共和一些受共匪洗脑的人一度以中国世界第一山寨国的地位而沾沾自喜。若能正大光明地学习、模仿、复制当然确实也是一种不错的能力，但中共的行为却并不能被归于此类。从它强迫转让技术，用间谍蓝金黄渗透偷盗等行为来看。只能将其行为定义为盗窃、剽窃。
+维基百科资料显示，兰德尔·保罗（Randal Paul），生于1963年1月7日，眼科医生和政治家，共和党人，2010年通过竞选美国参议院席位进入政界，2011年起成为美国肯塔基州的资浅参议员。父亲罗恩·保罗曾三此成为总统候选人，并担任过十二届美国德克萨斯州代表。保罗将自己描述为宪法保守派和茶党运动的支持者。
 
+保罗是2016年美国总统选举中共和党提名的候选人。2016年2月，他在爱荷华州党团会议期间获得第五名后，暂停了他的竞选活动，随后不到两个月，他支持了最终的共和党提名人和2016年大选的获胜者唐纳德·川普
 
+（本文系作者个人观点，不代表GNEWS平台）
 
-**文字版原文：[【信仰之声】中共偷盗本性的根源](https://gnews.org/zh-hans/1269463/)**
-
-作者：纽约香草山福音部  山城小哥
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++2

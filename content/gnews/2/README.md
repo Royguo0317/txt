@@ -1,51 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】纸价倒挂，中小造纸企业前路弥艰
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1270385/)
+## 澳洲关键基础设施面临重大网络攻击的威胁
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1270881/)
 
-香草山写作组 鹰(文言)
+翻译与评论：Shirley
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25040151/251.png)图片来自网络截图
+澳洲内政部长佩祖洛（Michael Pezzullo）表示，为他国效力的犯罪黑客分子，所造成的威胁“令人深感担忧、夜不能寐“，联邦政府目前正在考虑新的立法来保护关键的基础设施。
 
+澳洲国家安全局局长也警告，对澳洲关键基础设施的网络攻击的威胁是 “直接的”、”现实的 “和 “可信的”，攻击可能使国家的电力网络瘫痪。
 
+澳洲联邦政府为应对越来越多的网络攻击提出的新法，旨在更好地保护关键部门的资产，包括水、卫生、能源和运输等，将对负责这些部门的基础设施的运营商施加更大的网络安全义务。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193903/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1-2.jpg)
+今年早些时候，澳洲联邦议会、西澳议会以及第九频道都曾遭受网络攻击。
 
+在佩祖洛先生发表这番言论之前，总理莫里森（Scott Morrison）曾公开敦促包括政府和企业在内的澳洲机构保护自己，并说许多机构目前正被一个复杂的外国“国家“黑客攻击。联邦政府机构认为，中共国是对澳洲医院和国有公用事业等机构进行持续网络攻击的国家。
 
+事实上，中共对澳洲的蓝金黄渗透由来已久。中共希望通过维州的一带一路、达尔文港、纽卡斯港等设施的租赁，达到不露声色的，彻底控制澳洲的政客和经济。
 
-环球网5月24日转载中国新闻网报道，国内纸价继续攀高，利润骤减倒逼造纸厂停工停产。
+可是，澳洲因为中共病毒疫情觉醒了，堪培拉政府于去年4月提出了调查中共病毒的起源问题。中共病毒人工制造的阴谋已经败露，竟不顾脸面，开始公然对澳洲进行抹黑攻击，包括对澳洲产品进行的贸易制裁、黑客攻击、造假照片的舆论引导等等，也就是“超限战”。
 
-2020年7月份以来，全球纸浆（包括木浆、废纸浆和非木浆）价格均上涨。截至2021年3月份，木浆平均价格上涨400美元/吨。中共国2020年木浆进口量3064万吨（是2019年木浆产量1268万吨的2.4倍）。2019年国内废纸浆产量5351万吨，进口量1036万吨。废纸进口限令的推行造成2020年底600万吨的原材料减量。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24233815/Screen-Shot-2021-05-24-at-11.09.11-PM-1.png)
-进入2021年后，纸浆价格继续走高。3月份多家造纸企业，白卡纸接单价格突破万元大关。同时受木浆价格上涨的压力，山鹰纸业、晨鸣纸业、江河纸业等纷纷上调其销售价格。进入5月份后，纸浆、能源、物流等环节成本上涨继续推高纸价涨势。国内文化纸普遍涨价至200元/吨，白卡纸涨幅达1000元/吨，部分生活用纸出厂价上调10%-20%。
+中共的国家级黑客攻击，过去主要是集中在对西方国家的科学技术偷盗、个人信息窃取以及获得情报上。然而，即将到来的中共黑客攻击，则是涉及到每个人日常生活的医院、电力供应、供水和运输等等民用关键基础设施。换句话说，即将到来的没电、没水的黑客攻击，甚至比目前的中共病毒疫情对每个人的危害更大。
 
-2020年1月中共发改委印发的《关于进一步加强塑料污染治理的意见》要求2020年底，全国范围内餐饮行业禁用不可降解一次性塑料吸管。“限塑令”的全面执行又带动纸质（如白卡纸以及特种纸）吸管的需求上涨（需求提升50 -150万吨）。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24233754/Screen-Shot-2021-05-24-at-11.09.18-PM-1.png)
-造纸企业因纸浆成本的大幅上调，运营成本加剧；而下游供货商、超市等“倒逼”下，涨幅盈利区间遭挤压。这一浆价纸价的倒挂现象导致大量造纸厂停产减损：3月份以来山东太阳集团、华泰纸业、晨鸣纸业等相继发布停机检修通知。如今全球CCP病毒区域爆发此起彼伏，国际灭共浪潮的越发猛烈，越来越多的国际企业与中共“脱钩”……这些，都是纸浆进口单价上涨的“源动力”。中共的应对策略不但不是缓和供需压力，反而是政策上的严打（如限塑令和废纸进口限令）并“公私合营”为名的合法抢钱。这都势必造成抗压能力较弱的中小造纸企业破产倒闭。
+中共希望通过攻击民用关键基础设施，造成断电、断水、断医疗、断交通，以制造人道灾难来逼迫澳洲政府屈服。可是，中共希望绑架普通百姓、威胁澳洲政府的如意算盘，换来的一定是西方自由世界联合在一起的斩首行动，中共的高层将无法避免苏莱曼尼的结局。
 
-新闻来源：
+（本文仅代表个人观点）
 
-纸价上涨，造纸厂却纷纷停产！https://china.huanqiu.com/article/43FUkjWVBlt
+*审核：**Runaway  编辑：MG1*
 
-纸价持续上涨 行业景气度推高http://www.xinhuanet.com/fortune/2021-03/30/c\_1127270960.htm
+[https://www.abc.net.au/news/2021-05-24/cyber-attack-threat-critical-infrastructure-mike-pezzullo/100160894](https://www.abc.net.au/news/2021-05-24/cyber-attack-threat-critical-infrastructure-mike-pezzullo/100160894)
 
-“纸”手可热！三个月涨幅46% 纸浆期价大涨的背后推手是什么？https://finance.sina.com.cn/money/future/roll/2021-02-01/doc-ikftpnny3127371.shtml
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-2020年我国纸浆制造行业进口市场规模及发展趋势分析 废纸浆仍占据主流地位https://www.qianzhan.com/analyst/detail/220/200528-4c7de9ed.html
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
 0
