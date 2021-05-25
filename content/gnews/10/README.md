@@ -1,21 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本确认美国队将参加东京奥运会
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1271883/)
+## 沙利文参加美俄安全会谈
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1271893/)
 
 俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
 编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25135447/J-8.jpg)thesportsgeek.com
-5月25日，据塔斯社报道，美国国务院5月24日建议美国人因中共病毒疫情不要去日本旅行，这并不是针对将去东京参加奥运会的运动员。日本外相茂木敏充星期二在议会的一次辩论中说。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25141405/R-11.jpg)in.news.yahoo.com
+5月24日，俄罗斯安全理事会秘书尼古拉·帕特鲁舍夫（Nikolai Patrushev）和美国总统国家安全助理雅各布·沙利文（Jacob Sullivan）在日内瓦的一次会议上就安全理事会进行了磋商。这是俄罗斯安全委员会网站上的报道。
 
-共同社援引这位官员的话说：“我们已经收到美国政府的澄清，这一建议不会影响美国队（参加奥运会）的派遣。”
+报告称：“帕特鲁舍夫和沙利文就安全理事会的路线进行了俄美协商，这是5月19日拉夫罗夫和布林肯的谈判的逻辑延续。”
 
-东京奥运会将于2020年7月24日至8月9日举行。由于中共病毒大流行比赛已经推迟了一年，现在将于2021年7月23日至8月8日举行。3月20日，组织者最终决定在没有外国粉丝的情况下举行运动会。关于接纳日本观众的决定将在6月作出，这取决于中共病毒在该国的传播情况。
+据俄方称，会谈是以建设性的方式进行的。会议讨论了广泛的议题，包括战略稳定的问题。报告说：“大家表示相信，可以在一些领域制定出双方都能接受的解决方案。”
+
+双方还达成共识，即俄美关系正常化符合两国的利益，并将有助于世界的稳定。
+
+据悉，会议明确指出，在两国领导人的参与下，这次会议成为计划中的俄美首脑会议的阶段之一。
+
+5月20日，俄罗斯外交部长谢尔盖·拉夫罗夫（Sergei Lavrov）和美国国务卿安东尼·布林肯（Anthony Blinken）在雷克雅未克会晤。俄罗斯外长说，他们已经同意 “开始对话，研究影响战略稳定的所有因素”。
+
+布林肯说，举行这次会议是为了“测试与莫斯科建立更稳定和可预测关系的建议”。他后来还称会谈是建设性的，并指出稳定和可预测的关系将有利于两国。
+
+4月，拜登提出了让普京在中立领土上会晤的建议。包括奥地利和捷克共和国在内的几个国家提出接待俄罗斯和美国领导人。有关领导人会晤的具体日期的信息尚未得到双方的确认。俄罗斯总统发言人德米特里·佩斯科夫（Dmitry Peskov）表示，普京在决定与拜登会面时将考虑外交部门代表的会谈结果。
 
 参考链接：
 
-[https://tass.ru/mezhdunarodnaya-panorama/11462251?utm\_source=twitter.com&utm\_medium=social&utm\_campaign=smm\_social\_share](https://tass.ru/mezhdunarodnaya-panorama/11462251?utm_source=twitter.com&amp;utm_medium=social&amp;utm_campaign=smm_social_share)
+[https://www.rbc.ru/rbcfreenews/60abbed09a794712898561a3](https://www.rbc.ru/rbcfreenews/60abbed09a794712898561a3)
 
 0
