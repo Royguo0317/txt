@@ -1,32 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020/05/24-002 文贵先生盖特精华
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1271530/)
+## 西喜时事新闻简报—疫情篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1271522/)
 
-听写： Jennifer | 校对/审核：樂禧禧 | Page: Daoiii
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Gnot1O2RiNZq3/images/9dc64149-a52d-4820-b535-43bb385624ad.png?asset_id=b31f576d-4ccb-43a8-aa97-74974ebcb645&amp;img_etag=%221bacb6ea603f6bc7ddec8ee5ad338973%22&amp;size=1024)](https://spark.adobe.com/page/Gnot1O2RiNZq3/images/9dc64149-a52d-4820-b535-43bb385624ad.png?asset_id=b31f576d-4ccb-43a8-aa97-74974ebcb645&amp;img_etag=%221bacb6ea603f6bc7ddec8ee5ad338973%22&amp;size=1024)
-
-**5月24号：尊敬的战友们好！全世界都在用生命和代价来证明极权后的政府能干大事是否是正确的，全世界用生命和血汗在证明极权后的财富，最后由谁说了算……？被极权谎言愚弄的时代即将成为历史！(接上)**
-
-[盖特链接](https://gtv.org/getter/60aba4a9744cbc431363c4f4)
-
-1. 在日本、印度、非洲联盟、中东联盟昨天都开了会，一致说是共产党病毒，要么在未来中美之战选边站，要么和共产党站在一起，所有人一致同意不和共产党站在一边。
-2. 叶简明和立陶宛、拉脱维亚等国家有很深关系。立陶宛被共产党羞辱到极点，拉脱维亚、立陶宛、沙特全部和共产党翻脸。
-3. 炒币就是共产党和华尔街在炒，未来炒比特币的人一定会在美国和中共之间提出法律诉讼战，它是一个骗局。中国几个家族控制着这个事件和政权。
-4. 欧洲、美国的企业都在悄悄的跑，只有傻瓜才往里进，看到的都是虚像和化了妆的脸。这是新中国联邦的时机！接下來各个领域科技、知识、好莱坞、农业都会像多米洛骨牌一样倒下去。福奇承认是实验室出来的病毒，只有灭共，否则你没法交代！
+- 作者：此生灭共
 
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
+**西班牙2021年5月25日电/西喜社——**
 
-编辑：【英国伦敦喜庄园编辑部】
+若你想了解新闻全文报道内容，请点击标题链接
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Gnot1O2RiNZq3/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Gnot1O2RiNZq3/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+**1. [印度的每日COVID-19上升幅度自4月14日以来最低](https://www.reuters.com/world/india/india-posts-lowest-rise-daily-covid-19-cases-since-april-14-2021-05-25/)**
 
+路透社5月25日电，印度周二公布，过去24小时内新增196,427例冠状病毒新病例，COVID-19的死亡人数增加了3,511例,是自4月14日以来的最低每日感染量上升，该国目前的总病例数为2695万，总死亡人数为307,231。
 
+**2.[日本将延长对COVID-19的紧急状态](https://english.kyodonews.net/news/2021/05/0c09ab552aa6-japan-eyes-extension-of-covid-19-state-of-emergency.html)**
 
-0
+共同社5月25日电，日卫生部长田村纪久表示，由于日本最新的冠状病毒，感染人数尚未大幅减少，使医疗系统承受了巨大压力，政府将考虑将东京，大阪和其他七个县的COIVD-19紧急状态延长,超过目前预定的下周初结束日期。
+
+**3.[马来西亚报告了7289例新的冠状病毒病例](https://www.straitstimes.com/asia/se-asia/malaysia-reports-record-7289-coronavirus-cases-highest-daily-count)**
+
+海峡时报5月25日电，马来西亚报告了7289例新增的冠状病毒感染，这是该国最高的每日新增记录。该国东部州卫生署署长罗斯玛瓦蒂·阿里芬博士说，在砂拉越州东部，自三月以来病例一直增加，仅五月份，该州平均每天就有三人死亡。
+
+**4.[美国在奥运会前几周发布日本旅行警告](https://www.bbc.com/news/world-asia-57236769)**
+
+BBC 5月25日电，在东京奥运会前几周进行的严格审查中，美国针对日本的Covid-19激增向日本发出了旅行警告。美国疾病控制中心（CDC）表示，[旅行者应避免前往该国的所有旅行](https://wwwnc.cdc.gov/travel/notices/covid-4/coronavirus-japan)，并警告，即使是完全接种疫苗的旅行者也可能有获取和传播Covid变种的风险。
+
+**5.[台湾报告542例COVID-19病例，6例死亡](https://focustaiwan.tw/society/202105250016)**
+
+聚焦台湾5月25日电，台湾周二报道了542例国内COVID-19病例，周二的新病例使该国的总数达到5456人，目前台湾已有35人死于COVID-19，其中包括自5月15日以来的23人。
+
+审核：蚂蚁兄弟； 校对：信心满满； 发稿：信心的选择
+
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+
++2

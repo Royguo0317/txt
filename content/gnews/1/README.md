@@ -1,43 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【诗歌 】 新中国联邦·魂
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1271892/)
+## 佛罗里达州州长签署法律，禁止Facebook和Twitter对保守派进行压制
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1271928/)
 
-【作者】禾童 【编辑】Candy
+蒙特利尔皇家山战友团 Spirit
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25152445/florida.jpg)图片来源：wtvy.vom
+据《太阳报》（The Sun）5月25日报道，佛罗里达州州长罗恩-德桑蒂斯(Ron DeSantis)签署了一项法律，禁止Facebook和Twitter在其平台上压制保守派观点。
 
-拉满的弓上颤动的弦啊
+该法律将于7月1日生效，如果科技巨头删除政治候选人的资料，该州将对其罚款25万美元。
 
-月光下
+德桑蒂斯说，佛罗里达人正在抵制 “科技极权主义”，他抨击Facebook禁止前总统唐纳德-特朗普的做法。但是，据Mail Online报道，有人担心这项法律侵犯了受第一修正案保护的言论自由。
 
-你的心跳清晰可闻
+德桑蒂斯州长在推特上说。”今天，弗罗里达人得到了保护，免受硅谷对言论、思想和内容的权力掠夺。”随着佛罗里达州大科技法案的签署，我们人民正站起来反对科技极权主义。”这位共和党州长指责社交媒体巨头删除与他们的观点“不一致” 的内容。
 
-雪亮美丽的刀刃啊
+他提到了唐纳德-特朗普在1月6日国会大厦骚乱后被禁止进入Facebook。德桑蒂斯昨晚告诉肖恩-汉尼提：”推特禁声唐纳德-特朗普美国总统，但他们却会让阿亚图拉谈论杀害犹太人！我们必须保护人们免受大的科技审查制度的影响。”
 
-你的侧脸
+特朗普反复推动他所称为的 “大谎言”，并声称在去年的选举中对他实施了一个巨大的阴谋。这位前总统仍然被禁止进入推特、YouTube和Instagram等社交媒体网站。
 
-如刀锋般冷峻
+据报道，共和党的团队在2020年花了近1.6亿美元在Facebook的广告上。他们当时利用这个平台向粉丝们介绍他的选举行程、重要的更新和总体的互动。
 
-深藏在爱与悲愤下的
+众议院少数派领袖凯文-麦卡锡在推特上说。”脸书更喜欢像一个民主党的超级政治行动委员会，而不是一个自由言论和公开辩论的平台。如果他们能禁止特朗普总统，所有保守派的声音都可能是下一个。众议院共和党多数派将控制大科技公司对我们言论的控制权。”
 
-你的真心啊
+是时候反击这些大科技公司的极权控制了，佛罗里达州做了很好的表率，其他共和党州也应该行动起来，维护真正的言论自由。
 
-懂得她的
+[原文链接](https://www.thesun.co.uk/news/15060611/ron-desantis-bans-facebook-twitter-silencing-conservatives-florida/)
 
-只有新中国联邦之魂
+* * *
 
-
-
-**【免责声明】** 尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-**欢迎战友加入旧金山金喜准农场**
-
-[旧金山金喜农场](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-[旧金山金喜农场](https://discord.gg/QQzQ79grEA)[Discord](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜农场](https://twitter.com/sf_himalaya)[Twitter](https://twitter.com/sf_himalaya)
-
-[旧金山金喜农场](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[Youtu](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**b**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[e](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+*发稿 文锦*
 
 0

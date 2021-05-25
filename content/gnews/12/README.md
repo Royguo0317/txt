@@ -1,45 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】比利时戳破中共军民融合的伪装，担心阿里巴巴是间谍窝
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1271844/)
+## 国际律师事务所蹚入中共的浑水究竟有多深？
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1271828/)
 
-作者：香草山信息部  雪梨
+【作者】Xingfffooo 【编辑】Candy
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+自从国家脉动The National Pulse爆出最近被开除的众议院共和党会议主席——利兹·切尼Liz Cheney的丈夫菲利普·佩里Philip Perry的工作背景，像瑞生国际Latham & Watkins这样的美国律师事务所在中共向世界扩张和满足统治世界野心的进程中扮演什么样的角色，蹚入中共的浑水究竟有多深，诸多谜团开始浮出水面，越来越引起更多人的关注。
+![Latham &amp; Watkins LLP - 全球网络- 瑞生的全球网络](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS-_NllucOgi0pfO_qR8JBE1zdvevPG9FEV1g&amp;usqp=CAU)[https://www.google.com/url?sa=i&url=https%3A%2F%2Fch.lw.com%2Fpresence&psig=AOvVaw2VIyntsaOeCD-rZ0exJN8M&ust=1622049072839000&source=images&cd=vfe&ved=2ahUKEwimuNDnqeXwAhVsGzQIHcsRBzoQr4kDegUIARDSAQ](https://www.google.com/url?sa=i&amp;url=https%3A%2F%2Fch.lw.com%2Fpresence&amp;psig=AOvVaw2VIyntsaOeCD-rZ0exJN8M&amp;ust=1622049072839000&amp;source=images&amp;cd=vfe&amp;ved=2ahUKEwimuNDnqeXwAhVsGzQIHcsRBzoQr4kDegUIARDSAQ) 瑞生的全球网络
+瑞生国际是全球排行前50的国际律师事务所，其中包括12个中国大陆及香港业务类别在国际知名法律评级机构《钱伯斯亚太》Chambers Asia Pacific都是榜上有名，显示瑞生国际在中共国的业务是多么的娴熟和富有“成就”。瑞生国际曾经编纂了一份如何在中共国做生意的报告，如果没有与中共高层关系很深的背景，是没有资格公开发布这份报告的。
 
+在中共国这样的人治而不是法治的国家，律师和律师事务所只是中共所谓法律体系下的附属品和玩弄法律的操盘手。对中共而言，能够在境内开展业务国际律师事务所只是个利用工具。这些国际律师事务所根本无法染指中共国境内的业务，中共也不会让他们知晓中共国法律是如何被随意践踏和多么黑暗。
 
+而境外业务则不同，中共利用这些律师事务所在境外开展融资、收购、游说等计划提供各种法律支持，以便在实施蓝金黄、偷窃技术、实施影响力时更加得心应手。与中共密切合作的律师事务所都在中共国表面上的私人企业的境外业务上与中共国的红圈所联合提供法律服务，从中分得一杯羹。当然，这些律师事务所也必然在中共面前卑躬屈膝。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25122320/%E5%9B%BE%E7%89%872-13-scaled.jpg)图片来源：WSJ
+首先是法律顾问服务，例如，瑞生国际是腾讯、福耀玻璃的境外法律顾问，世达国际律师事务所Skadden, Arps, Slate, Meagher & Flom LLP & Affiliates是京东的境外法律顾问。腾讯在过去十年里，投资了数百初创企业的股权。据迪罗基Dealogic的数据，腾讯在过去五年里参与了40多项美国交易，估值超过160亿美元，瑞士国际为此获益匪浅。
 
-据《[法国世界报](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%B3%95%E5%9B%BD%E4%B8%96%E7%95%8C%E6%8A%A5/20210524-%E6%AF%94%E5%88%A9%E6%97%B6%E6%8B%85%E5%BF%83%E9%98%BF%E9%87%8C%E5%B7%B4%E5%B7%B4%E6%98%AF%E4%B8%AA%E9%97%B4%E8%B0%8D%E7%AA%9D)》报道，比利时司法部长奎肯伯恩（Vincent Van Quickenborne）称，通过中共国电子商务巨头阿里巴巴对列日机场的投资，中共情报部门的特工可以“进入机场的敏感和安全区域”，他们担心阿里巴巴是个间谍窝。
+在并购法律服务上，高伟绅律师事务所Clifford Chance LLP、摩根·刘易斯Morgan Lewis等几乎所有全球十大律师事务所都参与了与中共国相关的业务。2013年在深圳华大基因成功完成对人类全基因组精准测序的创新领导者Complete Genomics的收购中，华大基因的法律顾问是美迈斯律师事务所 O’Melveny & Myers LLP，Complete Genomics的法律顾问由瑞生国际律师事务所。两家律所成功地将美国的科技企业卖给了与中共军方关系密切的企业。
 
-比利时列日机场 “是阿里巴巴全球物流中心网络在西欧关键据点，被称为[电子世界贸易平台](https://www.scmp.com/business/companies/article/3132764/china-rebuts-belgian-politicians-baseless-claim-about-chinese)（eWTP）”。作为阿里巴巴欧洲配送中心，列日机场对中共布局欧盟具有至关重要的战略意义。这对比利时和欧盟来说，不仅存在情报方面的相关风险，在政治和经济方面，中共试图通过其在欧盟投资的项目对欧盟政治家施加经济压力的风险也是存在的。
+瑞生国际还在华芯投资管理有限责任公司的子公司Unic Capital Management收购美国半导体测试公司Xcerra的项目中作为Xcerra的法律顾问撮合这项交易，但最终遭美国外国投资委员会否决。在一份投行诺斯德Lazard和瑞生国际合作向中共国客户所做的演示报告中，两家公司明确地提出“应对美国媒体和政治的专业协助”的建议和服务，这无异于送给中共的一份大礼。
 
-根据中共国2017年通过的《[国家情报法](http://www.npc.gov.cn/npc/c30834/201806/483221713dac4f31bda7f9d951108912.shtml)》，中共国公司必须允许中共政府访问他们的数据，无论这样的公司是否有海外业务。依据中共国网络安全法，中共安全部门可以远程访问企业的计算机系统，有权复制（包括与用户有关的）数据。奎肯伯恩说，“如果中（共）国安全机构希望获得阿里巴巴在列日活动中持有的潜在敏感商业和个人数据，阿里巴巴也必须服从中（共）国安全机构的要求。“
+IPO 法律服务是国际律师事务所的一大金矿。“过去7个月，在美国股市上市的中共国公司数量增加了14%，从去年10月的217家，增加到今年5月的248家，增加了31家，IPO总共筹集175亿美元，是去年同期41亿美元的四倍多”。法律顾问费在整个公开发行融资费用中居第二位，在美国IPO融资所涉及的法律问题主要包括公司股权结构、相关法律文件等。
 
-继去年10月在上海金融高层论坛上发表对中共国的金融风险的尖锐批判后，马云掌控的蚂蚁金服的上市随即被叫停，马云被约谈。今年1月，[中共向马云施压](https://www.breitbart.com/national-security/2021/01/26/report-china-pressuring-jack-ma-surrender-alibabas-huge-trove-consumer-data/)，要求他将消费者数据交给政府。4月，中共监管机构以涉嫌违反反垄断法为由，对阿里巴巴开出了创纪录的[27.8亿美元的巨额罚款](https://asia.nikkei.com/Business/China-tech/China-fines-Alibaba-record-2.77bn-for-antitrust-violation)。近日，马云创立的“湖畔大学“门口的校名石刻也被清除。作为江派势力的白手套，在这场政治较量中，马云终于成为了弃子。
+2020全年，有34家中共国企业赴美上市（注：仅指通过IPO），共募集资金约为124亿美元。中共国企业在美国公开发行融资的律师费用率平均值为0.62%。国际律师事务所在2020年中共国赴美上市企业中提供法律服务的占比约40%，中共国红圈所占比约60%。这意味着国际事务所从中可以获得估计3000万美元的收入。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25125845/IPO.jpg)
+5月13日美国上市公司会计监督委员会PCAOB提出一项征求意见的新规定，以落实川普总统去年12月18日签署生效的“外国公司问责法” HFCAA。意见公开征询截止日期为2021年7月12日。规定称，若外国政府对PCAOB核查过程的干预，PCAOB无法获得必要信息和材料，以及企业无法落实PCAOB 自己的调查方式。上市公司违反其中一项，将会受到处罚，被摘牌退市。
 
-本月，继G7峰会，七国外长指责中共侵犯人权，批评来自中共国的威胁，并公开支持台湾加入世界卫生组织和世界卫生大会，表达对台海局势的关切；法国参议院批准法案，支持台湾加入国际组织；欧盟冻结“欧中投资协定”批准；英国”伊丽莎白女王“号航母部署亚洲；立陶宛宣布中共对维吾尔人种族灭绝，退出17+1合作论坛；法军总参谋长弗朗索瓦·莱科因特雷（Francois Lecointre）谈”世界秩序正围绕美中竞争重组，所有国家都将被迫站队“，[文贵先生在盖特](https://gtv.org/getter/60aad4a4744cbc4313636ef7)中特意提到这位参谋长与新中国联邦的关系，与灭共的渊源；比利时于今天公然撕破中共军民融合的伪装。
+如果新规定正式实施，国际律师事务所与中共国密切往来的土壤将恶化，法律服务上脱钩的趋势不可避免。中共国在美的上市企业可能很快迎来私有化交易大潮的到来，这时，中共可能气急败坏，华尔街的投行、律师事务所、审计公司参与私有化交易的机会也会大幅减少。未来，这些国际律师事务所面临的商业机遇是代表投资者向造假的中共国企业起诉。
 
-欧盟已然觉醒！加上如闫博士这样的科学家为欧盟提供的中共病毒的证据，欧盟对中共的围剿势必更加凶猛。美国、欧盟、日本、印度、澳洲正以联合之势，磨刀霍霍，向着中南坑盗国贼的头上砍去。
+【参考来源】
 
-校对/发稿：飞虹
+[Latham & Watkins LLP](\写作\lw.com)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
+[REVEALED: Liz Cheney’s Husband Works For Chinese Communist Party-Linked Law Firm](https://thenationalpulse.com/exclusive/liz-cheney-husbands-firm-reps-ccp-clients/)
 
+[四家中国公司联合收购美](http://www.sandiegochinesepress.com/press/%E6%B5%B7%E5%BD%92%E5%8F%8D%E6%94%BB%EF%BC%9A%E5%9B%9B%E5%AE%B6%E4%B8%AD%E5%9B%BD%E5%85%AC%E5%8F%B8%E8%81%94%E5%90%88%E6%94%B6%E8%B4%AD%E7%BE%8Eambrx%E5%85%AC%E5%8F%B8%EF%BC%88%E5%9B%BE%EF%BC%89/.html)[Ambrx公司](http://www.sandiegochinesepress.com/press/%E6%B5%B7%E5%BD%92%E5%8F%8D%E6%94%BB%EF%BC%9A%E5%9B%9B%E5%AE%B6%E4%B8%AD%E5%9B%BD%E5%85%AC%E5%8F%B8%E8%81%94%E5%90%88%E6%94%B6%E8%B4%AD%E7%BE%8Eambrx%E5%85%AC%E5%8F%B8%EF%BC%88%E5%9B%BE%EF%BC%89/.html)
 
+[https://www.law360.com/cases/5a4554071562e54e15000002/articles](https://www.law360.com/cases/5a4554071562e54e15000002/articles)
 
-**更多资讯，更多关注**
+[美加大监管力度 中概股在美上市为何不减反增？](https://www.voachinese.com/a/more-Chinese-companies-listed-in-US-despite-risk-of-delisting-20210521/5899164.html)
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[IPO潜规则最全版本](https://new.qq.com/omn/20210409/20210409A05TH200.html)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+[2020年中资企业赴美](https://zhuanlan.zhihu.com/p/344128739)[IPO，都选择了哪些律所？](https://zhuanlan.zhihu.com/p/344128739)
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+[2020年赴美上市中企回顾](http://finance.sina.com.cn/tech/2021-01-26/doc-ikftssap0954730.shtml)
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**【免责声明】** 尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**欢迎战友加入旧金山金喜准农场**
+
+[旧金山金喜农场](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[旧金山金喜农场](https://discord.gg/QQzQ79grEA)[Discord](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜农场](https://twitter.com/sf_himalaya)[Twitter](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[Youtu](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**b**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[e](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
 0
