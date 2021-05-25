@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】什么是德先生文化爆料
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1270044/)
+## 【有声读物】世界卫生大会召开在即，全球响应“让台湾帮忙”运动，帮忙台湾重归WHO
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1270124/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+配音：香草山录音组 蒙古鸿雁
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,17 +14,18 @@
 
 
 
-读德教启蒙第七期有感：这一期德先生向战友们阐述何为德先生的文化爆料。其实文化爆料也是爆料革命的一部分，我们通过爆料革命，推翻CCP这个邪魔恶党，建立起民主与法治的新中国联邦。但是CCP推翻后，中国就一夜之间变好了吗？人心被洗脑了70多年，如何消除华人思想上的各种毒，这就是郭先生提到的正道主义，也是德先生讲的文化爆料，也就是现在的德教云书院。
+第74届世界卫生大会今年的年度会议将在5月24日至6月1日在日内瓦召开。而今，台湾正面临着疫情暴增的艰难时刻，但台湾的防疫表现仍然领先全球，且台湾也在帮助全世界，向世界提供了大量的医疗防疫物资援助，并分享抗疫经验。同时，台湾也需要世界各国的帮助重归WHO。
 
 
 
-**文字版原文：[【战友心声】什么是德先生文化爆料](https://gnews.org/zh-hans/1265726/)**
+**文字版原文：[【世事解评】世界卫生大会召开在即，全球响应“让台湾帮忙”运动，帮忙台湾重归WHO](https://gnews.org/zh-hans/1265597/)**
 
-作者：纽约香草山美食部 Rainer
+作者：纽约香草山健身部   Jack Li文阳
 
 
 
-音频处理/发稿：雪梨
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 

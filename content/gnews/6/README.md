@@ -1,16 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议员汤姆.科顿:美国和世界必须要求对中共病毒的起源进行全面公正的调查
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1270130/)
+## 【独立观点】立陶宛再次扇动蝴蝶翅膀，呼吁其他国家退出17+1
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1270181/)
 
-参议员汤姆·科顿： 与2020年1月相同，实验室泄漏的嫌疑是个常识性例子，当时也是我第一次提到这种可能性.这场百年一遇的蝙蝠冠状病毒大流行恰好出现在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 最大的蝙蝠冠状病毒研究实验室几英里范围之内，这难道不奇怪吗？我们至少不应该调查一下那个实验室吗？武汉的三名实验室研究人员于2019年11月-出现首例确诊病例的前一个月，就因出现了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 症状去了医院。 是时候让 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 说清楚该实验室发生了什么了。实验室泄漏的证据已经积累了几个月： -武汉病毒学研究所安全条件不严格 -实验室研究与病毒特征的相似性 -武毒所申请的蝙蝠笼和其他活体动物研究工具的专利.实验室泄漏说的猜测总归是合理的，但是穿着白大褂的记者和活动家们一年里花了大部分时间谴责这是一个“阴谋论”，他们完全错了。 但这不是现在最重要的。现在最重要的是真相和追责。美国和世界必须要求对 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的起源进行全面，公正的调查，尤其要重点关注武毒所实验室。武毒所和武汉市疾控中心需要敞开他们的门户和数据库，接受对他们的研究进行全面审计，特别是对危险的‘功能增益型研究’的审查。 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 必须停止阻挠调查人员、销毁证据、和继续编造谎言.美国人也应该从我们自己的公共卫生官员那里得到答案，比如蝠奇博士，关于美国参与武汉实验室的蝙蝠冠状病毒研究的一切。如果我们想在这次大流行之后彻底结束，**如果我们想避免下一次大流行，我们就必须了解 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 它的起源。这意味着我们必须彻查武汉的实验室和它的科学家们进行的所有实验研究。**
-
-
-
-> If we want closure in the aftermath of this pandemic—and if we want to avert the next one—we must learn about its origin. That means we must look at the lab in Wuhan and the experimental research its scientists performed.[https://t.co/id456z7xAs](https://t.co/id456z7xAs)
-> — Tom Cotton (@SenTomCotton) [May 25, 2021](https://twitter.com/SenTomCotton/status/1396992540092600324?ref_src=twsrc%5Etfw)
+作者：纽约香草山健身部 Ivy001
 
 
 
-0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+
+
+
+5月22日立陶宛正式宣布退出17+1合作机制。该国外长朗斯伯格斯宣布：立陶宛决定不再出席17+1峰会。同时还呼吁其他成员国退出这一合作机制。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24225437/Picture1-123.png)
+5月24日，中共国外交部发言人赵立坚就此表示：“（17+1）机制成立9年来，成果丰硕，不会因为个别事件受到影响。”
+
+最近，因为个别事件（立陶宛）受影响的，还真不止一次。今年2月份，立陶宛号召降低出席中共国与中欧和东欧国家峰会的参与层次，总统或总理不出席峰会，改由部长代替。结果有6个国家响应，大大打脸习近平。外媒评价：17—6&lt;11。
+
+4月份，立陶宛议员在立陶宛议会提出动议，对中共国在新疆的种族灭绝进行谴责及制裁。上周四该动议获得通过。立陶宛议会认定：中共国对新疆维吾尔人犯下种族灭绝罪。这是继荷兰之后，第二个欧盟国家认定中共国的种族灭绝罪。由于立陶宛、荷兰和欧盟其他正义的议员大力呼吁，导致欧盟议会通过冻结“欧中贸易协定”。
+
+立陶宛认为，17+1合作机制并没有给中欧和东欧各国带来预期的贸易红利，不对称的贸易，只有中共国受惠。立陶宛认为，中共国还企图通过17+1合作机制，接管中欧和东欧各国的基础建设。不仅立陶宛这样认为，这也引起了别的欧洲国家警觉。
+
+立陶宛国土面积6.5万平方公里，相当于3个新泽西州那么大，从国土面积上来说，立陶宛只是一个小国家。可是，这个小国家屡次扇动它的蝴蝶翅膀，引起了巨大的改变。立陶宛再次扇动它的蝴蝶翅膀，退出了17+1合作机制，外界认为这是欧盟与中共国关系持续恶化的最新迹象。
+
+随着文贵先生的大力推动，爆料革命的广泛传播，中共国的种种邪恶已经大白天下：
+
+中共国对新疆维吾尔人犯下的种族灭绝罪行；对香港以及香港人的民主迫害；“一带一路”对别国资源的掠夺；对全世界的病毒生物战……世界各国政府都逐渐认清中共国的邪恶本质，越来越多的国家加入到灭共的队伍中。
+
+必须灭共，这是一个新的正义联盟。
+
+科普知识：立陶宛人口300万，2020年人均GDP2万多美元，联合国2020年人类发展指数排名34，属于发达国家。对比中共国的人均GDP1万多美元，人类发展指数排名85，属于发展中国家。
+
+图片来源：美联社
+
+https://www.cna.com.tw/news/firstnews/202105240040.aspx
+
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193555/5_May-1-556x720-1.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1

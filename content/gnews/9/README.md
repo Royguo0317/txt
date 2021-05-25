@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】世界卫生大会召开在即，全球响应“让台湾帮忙”运动，帮忙台湾重归WHO
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1270124/)
+## 【有声读物】华人散沙化的现状与出路
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1270185/)
 
-配音：香草山录音组 蒙古鸿雁
+配音：香草山录音组 Kikii
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,18 +14,17 @@
 
 
 
-第74届世界卫生大会今年的年度会议将在5月24日至6月1日在日内瓦召开。而今，台湾正面临着疫情暴增的艰难时刻，但台湾的防疫表现仍然领先全球，且台湾也在帮助全世界，向世界提供了大量的医疗防疫物资援助，并分享抗疫经验。同时，台湾也需要世界各国的帮助重归WHO。
+前段时间，四川成都又发生一起中学生被跳楼死的事件。中共一开始拼命解释为自杀，后来又甚至八竿子打不着地甩锅给“国际敌对势力”。而据知情者透露，这又是一场中共体制内人员对该学生有目的的虐待和谋杀。几天之后的现在，似乎一切都又平息，不了了之了。早在2017年，同在四川，笔者故乡泸州市太伏县中学一个学生赵鑫也是同样被跳楼死。根据当时的照片显示和同学里的知情者的讲述，该学生是被中共体制内官员的孩子活活虐待打死，然后抛尸窗外的。最后被中共强行解释为自杀。这两起事件，因为有人关注，在网络上引起了一场风波，但最终还是不了了之。
 
 
 
-**文字版原文：[【世事解评】世界卫生大会召开在即，全球响应“让台湾帮忙”运动，帮忙台湾重归WHO](https://gnews.org/zh-hans/1265597/)**
+**文字版原文：[【信仰之声】华人散沙化的现状与出路](https://gnews.org/zh-hans/1262362/)**
 
-作者：纽约香草山健身部   Jack Li文阳
+作者：纽约香草山福音部  山城小哥
 
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+音频处理/发稿：雪梨
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
