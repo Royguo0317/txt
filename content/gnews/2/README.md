@@ -1,27 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## VOX网站悄悄修改驳斥中共病毒实验室起源的文章
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1271853/)
+## 日本确认美国队将参加东京奥运会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1271883/)
 
-蒙特利尔皇家山战友团 Spirit
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25132841/covi.jpg)图片来源：Vox.com
-根据《零对冲》（Zero Hedge）5月25 日的文章，左翼网站VOX被发现悄悄地编辑了2020年3月的一篇驳斥中共病毒实验室来源的文章，因为现在许多知名官员说实验室来源有很大可能性。
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-作家和投资者保罗-格雷厄姆记录了这些改动，他在推特上说：”从2020年3月最初发表到现在，VOX对其驳斥中共病毒起源于实验室泄漏的 “阴谋论 “的文章进行了一些隐形编辑，包括删除病毒明确不是来自武汉实验室的字样，并说病毒在实验室所在的同一城市出现的事实 “似乎是纯粹的巧合”，而不是之前更明确的 “就是纯粹的巧合”。
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25135447/J-8.jpg)thesportsgeek.com
+5月25日，据塔斯社报道，美国国务院5月24日建议美国人因中共病毒疫情不要去日本旅行，这并不是针对将去东京参加奥运会的运动员。日本外相茂木敏充星期二在议会的一次辩论中说。
 
-最近安东尼-福奇博士首次承认，说中共病毒可能不是自然起源，我们需要彻查。上周，拜登的CDC主任说她仍然对病毒从武汉实验室泄漏的可能性持开放态度，科学团体也说实验室泄漏是可能的来源。
+共同社援引这位官员的话说：“我们已经收到美国政府的澄清，这一建议不会影响美国队（参加奥运会）的派遣。”
 
-在支持病毒从实验室泄露的可能性之后，Politifact也被迫撤销了一项 “事实核查”，因为过去认为中共病毒实验室泄露来源理论是错误的。
+东京奥运会将于2020年7月24日至8月9日举行。由于中共病毒大流行比赛已经推迟了一年，现在将于2021年7月23日至8月8日举行。3月20日，组织者最终决定在没有外国粉丝的情况下举行运动会。关于接纳日本观众的决定将在6月作出，这取决于中共病毒在该国的传播情况。
 
-一年多来，社交媒体网络将实验室泄露理论定性为 “错误信息”和“阴谋论”并在 “假新闻 “的保护伞下将其删除，不让民众看到真相。现在，越来越多的证据持续表明这种 “阴谋论 “实际上不仅是可信的，而且很可能是真实的，推进真相的脚步在加快，大势已趋，病毒真相不久会大白于天下。
+参考链接：
 
-[原文链接](https://www.zerohedge.com/covid-19/vox-stealth-edits-march-2020-article-debunking-lab-origin-covid?utm_campaign=&amp;utm_content=Zerohedge%3A+The+Durden+Dispatch&amp;utm_medium=email&amp;utm_source=zh_newsletter)
-
-* * *
-
-*编辑、发稿 文锦*
-
-
+[https://tass.ru/mezhdunarodnaya-panorama/11462251?utm\_source=twitter.com&utm\_medium=social&utm\_campaign=smm\_social\_share](https://tass.ru/mezhdunarodnaya-panorama/11462251?utm_source=twitter.com&amp;utm_medium=social&amp;utm_campaign=smm_social_share)
 
 0
