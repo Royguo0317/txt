@@ -1,15 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界210525-02
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1271203/)
+## 科顿议员质问NIH资助武汉实验室的功能增强研究
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1271317/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+5/23/2021 汤姆·科顿议员和其他议员致信国立卫生研究院院长弗朗西斯·柯林斯，明确质问为何国立卫生研究院资助武汉实验室的功能增强研究。奥巴马政府时期就明令禁止此类功能增强研究，但他们仍继续进行这个可能非常危险的研究，尤其是在因糟糕的安全状况而臭名昭著的中共国实验室里。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25062903/21-18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25062953/22-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063028/23-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063127/25-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063059/24-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063219/26-18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063250/27-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063320/28-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063345/29-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063415/30-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063446/31-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063514/32-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25063548/33-8.jpg)
-发稿：神奇四侠
-
-本图片均来自网络，与GNEWS无关
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0

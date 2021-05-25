@@ -1,53 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【币圈】-数字货币动态-2021.05.25
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1271153/)
+## 慧眼看世界210524-01
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1271201/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image5.jpg)
-### 币圈的一天，从“坚持”开始。
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
-## **每日一问**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25034437/01-30.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25034638/02-48.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25041134/09-13.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25041433/10-70.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25042623/11-88.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25043719/12-107.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25044527/13-64.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25035708/04-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25035825/05-29.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25040006/06-40.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25040936/07-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25041052/08-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050446/15-36.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050604/16-30.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050700/17-20.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050745/18-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050820/19-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050902/20-14.jpg)
+发稿：神奇四侠
 
-*Elon Musk是币圈的传话人吗？*
+以上图片均采集于网络，与GNEWS无关
 
-## **喜马拉雅Coin要闻**
-
-- 联盟消息，枫叶农场之前的冻结款解冻。
-
-
-## **新闻动态**
-
-1. Tokenview数据监测，近5天来中心化交易所比特币呈明显的流出状态。其中Huobi交易所比特币流出量最大，日流入流出比从37:63变为13:87，而Binance交易所比特币流向呈反向状态，日流入流出比由5月19日的45:55变为昨日的54:46
-2. Glassnode数据显示，5月23日流入交易所的BTC数量为64,608枚，价值约22.6亿美元，流出量为68,405枚，价值约23.9亿美元。
-3. OKLink数据显示，USDC当前流通量为199.07亿枚，近一周新增39.46亿枚。此外在以太坊上的稳定币供应量占比中，USDC的比例由此前的26.05%上升至30.29%。
-4. 据Chiaexplorer数据显示，Chia目前网络内总存储容量已突破10EB，达到10.02EB，近一个月增长16倍。
-5. 官方消息，Tether宣布总市值突破600亿美元。2020年5月，Tether代币USDT市值为80亿美元，一年增长581%。
-6. 韩联社报道，韩国央行24日表示，计划对央行数字货币的功能进行模拟测试，以研究引入一种新的加密货币的可能性。
-7. 俄罗斯国家杜马成员目前正在起草修正案，允许使用加密货币作为合同支付手段。根据俄罗斯法律，数字金融资产被视为财产，这一变化将使合同各方之间的加密支付合法化。
-8. 官方消息，NFT社交平台DeFine宣布与Sandbox Network签订战略合作伙伴协议，双方将在NFT领域合作，共同探索基于NFT的创作者粉丝新联系。
-9. CoinGeek消息，TAAL昨日宣布购买3,000台新的BitmainS19 Pro区块链计算机，耗资约1900万美元，进一步扩大公司实现企业交易处理的能力，并预计将在2022年第一季度部署这些计算机。
-10. 官方消息，XT.COM将于2021年5月24日17:00开放TOK/USDT充值功能。其交易功能及提现功能分别将于5月25日15:00、5月26日17:00开启。Tokenplace平台是专注于以安全的方式为用户提供跨加密交易所的单一网络，是使数字证券作为一种新的金融资产类别获得更多认可所需的确切创新类型。
-11. CoinDesk消息，加密货币金融服务公司Galaxy Digital已收购资产管理公司和数据商店Vision Hill Group。
-12. The Block消息，对冲基金One River向SEC申请创建碳中和的比特币ETF，该基金包含了碳信用额度，以使产品实现碳中和。
-13. AtozMarkets消息，俄罗斯持牌外汇交易商希望开始使用加密货币，将提高其竞争力并减少该国的加密诈骗数量，以及提供安全性并简化投资者的通道。
-14. Globenewswire消息，全球第二大加密资管公司CoinShares发布2021年第一季度财务业绩：由于其数字资产产品和服务套件的需求持续增长，第一季度的业绩超过了2020年全年的业绩。
-15. 摩根溪联合创始人Anthony Pompliano发推称，比特币新持币者正在向圈内“老人”出售比特币。
-16. Cointelegraph发推文表示，以太坊的联合创始人V神在回应特斯拉CEO埃隆•马斯克关于狗狗币可扩展性的推文时强调了去中心化的重要性。特斯拉CEO埃隆•马斯克回复此条推文并配图称，他（V神）害怕狗狗币以及你们不再使用美元。
-17. CoinDesk消息，Coinbase周一宣布聘用Faryar Shirzad作为其新的首席政策官。Shirzad在高盛服务了15年，担任政府事务联席主管。
-18. 链闻消息，加密金融智能服务提供商Amber Group称其APP产品将从6月1日起暂停对中国用户的服务。
-19. 官方消息，由于DOT主网维护，OKEx将于5月24日21:30暂停DOT的充提。
-20. Whale Alert数据显示，约18亿美金USDT在1分钟内转入币安。
-21. Whale Alert数据显示，北京时间5月24日12:34:19，1,00万BNB（价值约2.76亿美元）从币安转移到了未知的钱包。
-22. BTC.com数据显示，北京时间5月24日0点到上午10点半，1.4万枚比特币（每笔2000枚共7笔交易，价值约5亿美元）从35hK2开头的火币冷钱包转出至1NjhT开头的热钱包。
-
-
-
-
-*编辑：aQ
-发布：文顾*
-
-
- 
-+1
++2

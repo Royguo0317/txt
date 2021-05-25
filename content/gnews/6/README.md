@@ -1,28 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Milli Vanilli的歌手死于中共病毒
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1271263/)
+## 【世事解评】中共疫苗光速接种 毒害人民祸患无穷
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1271315/)
 
-信息来源：德国图片报网络版 
-记者：阿德里安·穆尔鲍尔（AdrianMühlbauer）
-发布时间：2021年5月25日
-翻译 /整理/ 简评： Shuizhuyu
+作者：纽约香草山健身部  文鹰
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25064128/milli-vanilli-saenger-fab-morvan-links-und-john-davis-bei-einem-gemeinsamen-auftritt-im-zdf-.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
 
 
-图片来源： “ Milli Vanilli”：歌手John Davis（右）一起在德国电视二台表演。 （來源：IMAGO / STAR-MEDIA）
 
-“ Milli Vanilli”的主唱之一，约翰·戴维斯（John Davis）（66岁）去世了。
+综合中共央视网报道，中共国内疫苗接种截至5月23日累计5亿剂次！
 
-他的女儿贾斯敏（Jasmin）周一在脸书上发布了这一消息：“很遗憾，我父亲今天晚上死于冠状病毒。 他的笑声，微笑，幸福的天性，爱以及音乐尤其使许多人感到满意。”
+各地群众“踊跃接种新冠疫苗 构建免疫屏障”的消息令人汗颜不止，“多地推进新冠疫苗接种服务举措 疫苗接种呈现加速度”的导语更令人恐惧不已。咱们看一下央视网宣传的数据：今年3月27日超过1亿剂次，4月21日超过2亿剂次（25天），5月7日超过3亿剂次（16天），5月16日超过4亿剂次（9天），5月24日突破5亿剂次（7天）。其中湖北累计3008万剂次、上海2379.84万剂次、北京2970.59万剂次。（1）这是以光的加速度在增长吧？！
 
-简评： 中共病毒已经夺走了347万人的生命， 其中不乏各界精英， 今天这位歌唱家也因为中共病毒， 走了。 想要遏制病毒， 只有一条路， 就是灭共。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25064707/%E5%9B%BE%E7%89%8733-2.png)
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+接种疫苗基本分三类。一类是灭活疫苗。“新型冠状病毒灭活疫苗”规格0.4ug/0.5ml包装，生产厂家中共国国药集团属下中生北京所、中生武汉所两种疫苗，北京科兴中维“可尔来福”一种疫苗。都需要间隔不同时间用两剂。二类是中共军事医学研究院研制的“重组新型冠状病毒疫苗（5型腺病毒载体Ad5-n Cov）”，规格0.5ml一支，商品名“克威莎”，康希诺生物股份公司生产。是唯一单针免疫程序的新冠疫苗。三类是中共中科院微生物研究所研制“重组新型冠状病毒疫苗（CHO细胞）”，规格25ug/0.5ml一支，商品名“智克威德”，生产厂家是安徽飞龙科马生物制药有限公司。此疫苗需要一个人间隔注射三剂。现在基层基本是两针接种，货源不足三针CHO补上，一针腺病毒疫苗更是紧缺，大城市上海都脱销不够用。
 
-🔗[john-davis-aus-fuerth-milli-vanilli-saenger-stirbt-an-corona](https://www.bild.de/regional/nuernberg/nuernberg-news/john-davis-aus-fuerth-milli-vanilli-saenger-stirbt-an-corona-76508128.bild.html)
+这样做能全体构建免疫屏障吗，中共国国家卫健委5月11日发布“第八版新冠肺炎防控方案做出6方面调整”，（2）强调地方各级党委政府要强化指导工作，强化疫苗接种，扩大接种人群范围，这是不是推波助澜造成上述现象的一个原因呢？眼看着接种地点的人群涌动，不明真相的老百姓在那里，有个别接种以后，倒下去的人你们媒体报道了吗？有基层卫生负责人接种第二天就走了，你们还是用谎言掩饰“他是并发症”！你们把“各地群众踊跃接种”的灾难当喜事报道，人性在哪里？
 
-0
+文贵先生讲过，中共病毒没有疫苗，中共有解药！世界各国有良心的科学家，也在爆料革命揭露病毒真相及闫丽梦博士科学论文推动下，不断站出来持续揭露中共生物病毒和现有疫苗的真相。有美国科学家研究接种疫苗人群统计后得出结论。（3）在疫苗没有得到有效科学验证的情况下，匆忙接种疫苗，容易发生血栓及引起肿瘤的严重后果，也许6个月，也许一年以后才会爆发。近日法国诺贝尔奖获得者卢克.蒙塔尼尔接受媒体采访时，惊天论断“新变种实际上是疫苗接种的结果”。（4）依据一月份世卫组织的数据显示，感染曲线人数在爆炸式上升，年轻人死亡人数也伴随曲线上升。大流行下，接种疫苗只会造成更多人的体内病毒变种。接种疫苗是无效的！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25064705/%E5%9B%BE%E7%89%8734-2.png)
+
+中共疫苗接种的“大跃进”一发不可收拾。“补药碧莲”的媒体加速洗脑宣传，恐吓欺骗人民。把14亿中国人绑架在中共末日灭亡战车上，妄想继续奴役欺压世人，让你们的子孙千秋万代统治地球。绝不可能！有新中国联邦在，中共你玩球蛋了！
+
+参考阅读
+
+（1） https://news.cctv.com/2021/05/25/ARTIjouWuLfCJUAuhX8pvG6b210525.shtml?spm=C94212.PBPcw7UCTq1W.EBlw2yQvCCZu.24
+
+（2）http://www.nhc.gov.cn/jkjs3577/202105/6f1e8ec6c4a540d99fafef52fc86d0f8.shtml
+
+（3）秘密翻译组 EST 03/04/2021视频
+
+（4）https：//gnews.org/zh-hans/1269696
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++2
