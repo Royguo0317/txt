@@ -1,123 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉P3实验室的3个研究人员可能是“零号病人”
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1271752/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（二十九）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1271803/)
 
-新闻来源：《零对冲》| 作者：TYLER DURDEN | 发布时间：2021年5月23日
-翻译/简评：clau | 校对/审核：万人往 | Page：Daoiii
+作者：纽约香草山信息部 6zero4
 
-[!\[\]()!\[\](https://spark.adobe.com/page/W40UFzSiOZf2A/images/c4e1ed48-1166-4d20-bdf2-efccce08fa5e.jpg?asset_id=302cb9e4-6892-4609-bb68-87d299bd702c&amp;img_etag=%223813ccb9529b3c374f27a3748201aee9%22&amp;size=1024)](https://spark.adobe.com/page/W40UFzSiOZf2A/images/c4e1ed48-1166-4d20-bdf2-efccce08fa5e.jpg?asset_id=302cb9e4-6892-4609-bb68-87d299bd702c&amp;img_etag=%223813ccb9529b3c374f27a3748201aee9%22&amp;size=1024)图片来源：cgtn
-
-**简评：**
-
-**新冠病毒源自武汉实验室的理论，最近被越来越多的媒体开始报道。《零对冲》的这篇文章引用和对比了多个媒体在不同时间段的报道，同时对比了在新冠大流行期间换届的两个美国政府领导层对于新冠病毒态度的差别。最关键的是，文章提到了3个武汉P3实验室的研究人员可能最先感染新冠病毒的人。**
-
-**最近几乎每天都有关于新冠病毒来源的新消息曝出，闫博士、赛林博士以及无数爆料革命的战友都在不遗余力地推动以毒灭共的进程。我们必须很自豪地说，在病毒真相这件事情上，我们爆料革命的媒体走在全世界的最前面。想要了解新冠病毒最新的信息，请关注Gnews、GTV和盖特，一切已经开始！**
-
-**原文翻译：**
-
-## 据美国情报部门称，武汉实验室的工作人员曾“病得很厉害，要求住院治疗”
-
-据《华尔街日报》援引一份先前未披露的美国情报报告，武汉病毒研究所的三名研究人员在2019年11月病得很重，以至于寻求住院治疗，“这可能为日益增长的要求更全面地调查新冠病毒是否可能从实验室逃逸的呼声增加砝码。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/W40UFzSiOZf2A/images/e6a58732-de28-4fc0-ae8b-bae87c110b0f.png?asset_id=1075d68c-60b6-4811-ad93-0040b6725a98&amp;img_etag=%22be0f9515f75478411da3650b823e2ee4%22&amp;size=2560)](https://spark.adobe.com/page/W40UFzSiOZf2A/images/e6a58732-de28-4fc0-ae8b-bae87c110b0f.png?asset_id=1075d68c-60b6-4811-ad93-0040b6725a98&amp;img_etag=%22be0f9515f75478411da3650b823e2ee4%22&amp;size=1024)照片：hector retamal/法新社/盖蒂图片社
-
-报道的细节超出了川普政府最后几天发布的国务院概况介绍，其中说，该实验室是研究冠状病毒和其他病原体的中心，有几名研究人员在2019年秋季生病，“症状与新冠肺炎和普通季节性疾病一致。”
-
-披露研究人员的数量、他们患病的时间和他们的医院就诊情况是在世界卫生组织决策机构开会前夕进行的，预计该机构将讨论对新冠病毒的起源进行下一阶段的调查。——《华尔街日报》
-
-“我们从各种来源获得的信息质量非常好。它非常精确。它没有告诉你的是他们到底为什么会生病。”一位消息人士告诉本报，而另一位人士说，由一个“国际合作伙伴”提供的信息可能很重要，但仍然需要进一步调查和证实。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
 
-> But… but… but [https://t.co/lTDs2RcNkG](https://t.co/lTDs2RcNkG)
-> — zerohedge (@zerohedge) [May 23, 2021](https://twitter.com/zerohedge/status/1396560573119098880?ref_src=twsrc%5Etfw)
+5月24日塞林博士的7连推：
+
+第1推，根据单超的地址，他被安置在科技路的P3实验室WIV，靠近武汉大学非人灵长类动物实验室和PLA广州军区武汉总医院，它们都在疫情早期爆发的中心地带。附上这3家机构所在位置的地图及单超本人的简历之网页截图。
 
 
 
-**值得注意的是，武汉实验室拒绝分享原始数据、安全日志以及与美国资助的非政府组织生态健康联盟合作进行的大量蝙蝠冠状病毒实验的实验室记录。**
-
-与此同时，中共方面一再否认新冠肺炎病毒是从其一个实验室中逃出的——周日甚至引用了世卫组织领导的一个小组的结论，即实验室泄漏的可能性不大。请注意，这是一个世卫组织的团队，其中包括生态健康联盟的彼得·达萨克（Peter Daszak），安东尼·福奇的美国国立卫生研究院每年支付66.6万美元给这个人，与武汉的实验室合作。
-
-“美国继续炒作实验室泄密理论，”中共国外交部在回应本报的评论请求时说，“它是真的关心溯源，还是试图转移注意力？”
-
-也许北京当局——以其先进的追踪技术——**可以解释仍然失踪的武汉病毒研究所的实验室工作人员黄燕玲的下落？**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/W40UFzSiOZf2A/images/d595126f-0a35-48e5-9d53-f4dc61a875ce.png?asset_id=61d913a9-6c73-4688-8dcb-208ec6e00d2f&amp;img_etag=%22cf39701524617b5a21995e36f85f3399%22&amp;size=2560)](https://spark.adobe.com/page/W40UFzSiOZf2A/images/d595126f-0a35-48e5-9d53-f4dc61a875ce.png?asset_id=61d913a9-6c73-4688-8dcb-208ec6e00d2f&amp;img_etag=%22cf39701524617b5a21995e36f85f3399%22&amp;size=1024)失踪的武汉病毒研究所的实验室工作人员黄燕玲。图片/澳洲新闻网
-
-**在武汉病毒研究所工作的黄燕玲是在中共涉嫌掩盖真相期间失踪的数十名医生、科学家、活动人士和记者之一。**
-
-在去年2月疫情爆发的最初几周，中共国的社交媒体上出现了一些谣言，说这位研究生是“零号病人”，在这个有争议的实验室和病毒爆发之间产生了直接联系。
-
-**中共国的官员迅速介入，对互联网上的报道进行了封杀。**
-
-武汉病毒研究所否认她是“零号病人”，并在没有证据的情况下坚称**她在中共国其他地方活得好好的——同时将她的简历和图像从其网站上删除。**——《新西兰先驱报》
-
-与此同时，拜登政府已经从嘲笑实验室泄密的假说变成了更加中立的“等待和观察”的立场。
-
-“我们仍然对新冠肺炎大流行最早期存在严重疑问，包括它在中华人民共和国境内的起源。”国家安全委员会的一位女发言人说。她补充说：“我们不会做出预判世卫组织正在进行的对SARS-CoV-2来源的研究的声明。”
-
-**《华尔街日报》扮演着魔鬼的代言人**，指出“在中共国，人们生病时直接去医院并不罕见，因为他们在那里可以得到更好的治疗，或者因为缺乏家庭医生的帮助。”而且尽管是非常不同的疾病，新冠肺炎与流感有许多相同的症状。
-
-报告继续说：“但是，如果从事冠状病毒工作的同一个团队的成员在大流行病首次被确认前不久因类似的症状而去医院，这可能是很重要的。”
-
-也就是说，领导新冠病毒起源调查工作的前美国国务院官员大卫·阿舍在3月的哈德逊研究所的研讨会上说，他质疑实验室的工作人员只是感染了普通的流感。
-
-他说：“我十分怀疑三个在三级实验室的高度保护的环境中从事冠状病毒研究的人员，能够在同一周内全部患上流感，并使他们住院或处于危重状态，而这些与冠状病毒没有任何关系。”他补充说，患病的研究人员可能代表了新冠肺炎病例的“第一个已知群体”。
-
-*长期以来，怀疑论者认为这是一种阴谋论，大流行病可能始于实验室事故的假设引起了科学家们更大的兴趣，他们抱怨中共国当局缺乏透明度，也抱怨另一种假设缺乏确凿的证据：病毒是人类在实验室外从蝙蝠或其他受感染动物身上感染的。*
-
-*许多支持实验室假说的人说，被感染的蝙蝠携带的病毒可能被带到了实验室，以便研究人员能够研究潜在的疫苗，但却逃之夭夭。*
-
-*尽管包括拜登政府官员在内的人，正在更加认真地对待实验室假说，但辩论仍然带有政治紧张的色彩，包括需要多少证据来支持这一假说的问题。——《华尔街日报》*
-
-**这是一种很好的说法，即中共和反川普机构将最符合逻辑的理论政治化，并浪费了近18个月的时间为中共作掩护。**
+> According to Chao Shan's address, it places him at the Wuhan Institute of Virology, Keji Road Biosafety Level 3 facility, near Wuhan University's non-human primate ABSL-3 facility and the PLA hospital complex, all at the epicenter of the early outbreak.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaSecondWave](https://twitter.com/hashtag/CoronaSecondWave?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/X5wQ7BysJH](https://t.co/X5wQ7BysJH)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396682901220102145?ref_src=twsrc%5Etfw)
 
 
 
-> Trump State Dept in Jan, WSJ months later [pic.twitter.com/GzObtz3eta](https://t.co/GzObtz3eta)
-> — Jack Posobiec (@JackPosobiec) [May 23, 2021](https://twitter.com/JackPosobiec/status/1396560010390425603?ref_src=twsrc%5Etfw)
+第2推，现在的关键问题是，单超团队在COVID-19疫情前对非人灵长类动物的初始测试是在WIV位于江厦区的P4实验室做的，还是在武昌区的武汉大学实验室做的。因为之前没有提及WIV江夏区的P4实验室有此测试能力。附上武汉国家生物安全实验室亦即WIV旗下P3和P4两个实验室的官方介绍网页截图。
 
 
 
-
-
-> LOL. Trump was talking about the Wuhan lab over a year ago. 
-> 
-> He was right.
-> — thebradfordfile (@thebradfordfile) [May 23, 2021](https://twitter.com/thebradfordfile/status/1396566495669497857?ref_src=twsrc%5Etfw)
+> A key question now is whether Chao Shan's initial non-human primate tests, pre- [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic, took place in the Wuhan Institute of Virology Level 4 facility in Jiangxia or at the Wuhan University facility in Wuchang. There is no mention of such a capability in Jiangxia. [pic.twitter.com/4arVHeAQO7](https://t.co/4arVHeAQO7)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396720139832373249?ref_src=twsrc%5Etfw)
 
 
 
-**在川普政府的最后一周，国务院发布了一份情况说明，其中引用了机密情报，称“美国政府有理由相信，在爆发的第一例已确认的病例之前，武汉病毒研究所内部的几位研究人员在2019年秋季生病，其症状与新冠肺炎和季节性疾病一致。”**
-
-1月15日的情况说明还说，这“让人怀疑”武汉蝙蝠研究人员石正丽的可信度，并批评中共“欺骗和造谣”。
-
-**到目前为止，拜登政府还没有对该情况说明的任何一个方面提出异议。**
-
-而现在，美国与欧盟和其他几个国家的政府一起，呼吁对新冠病毒的来源进行更透明的调查。
+第3推，2019年11月15日的一篇文章描述了武汉大学P3实验室自2003年开始对非人灵长类动物进行病毒/疫苗测试的能力，图片展示了用来做测试的恒河猴。该文章题为“探秘武汉大学模式动物研究所，这里曾是抗击非典战场之一”，两年前发表于“楚天都市报”。
 
 
 
-> This is the moment when the mainstream media stands beneath your apartment building in front of everyone, drunk out of its mind to tell you it sees the light, after it called you a racist and crank for not believing its own absurd propaganda.
-> 
-> Enjoy it. The stupor will wear off.. [https://t.co/8Y9E6segrL](https://t.co/8Y9E6segrL)
-> — Eric Weinstein (@EricRWeinstein) [May 23, 2021](https://twitter.com/EricRWeinstein/status/1396575063227256833?ref_src=twsrc%5Etfw)
+> A November 15, 2019 article describes the non-human primate virus-vaccine testing capability of the Biosafety Level 3 animal laboratory of Wuhan University in operation since 2003. Image shows Rhesus Macaque monkeys.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaSecondWave](https://twitter.com/hashtag/CoronaSecondWave?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/ak63sXu9A7](https://t.co/ak63sXu9A7) [pic.twitter.com/FlrrlBydX9](https://t.co/FlrrlBydX9)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396724659157184514?ref_src=twsrc%5Etfw)
 
 
 
-🔗[原文链接](https://www.zerohedge.com/covid-19/wuhan-lab-workers-were-so-sick-they-sought-hospitalization-according-us-intelligence)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/W40UFzSiOZf2A/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/W40UFzSiOZf2A/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+第4推，转发“火来2号”战友回应塞林博士今天第2推的推文：根据石正丽的说法，WIV的P3实验室尚未准备好处理非人灵长类动物，其P4实验室在疫情爆发前尚没有资格进行非人灵长类动物实验，疫情爆发后才申请了在P4实验室进行非人灵长类动物实验的许可。附上了石正丽向生物安全国际监察机构申请时回答有关问题的网页截图。COVID-19侦探“火来2号”提供了一些非常重要的信息，“蝙蝠女”石正丽说位于江夏区的P4实验室在疫情爆发前没有进行非人灵长类动物实验，表明这些实验是在武昌区的武汉大学P3实验室进行的。
 
 
 
-+1
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) provides some very important information. "Bat woman" Zheng-Li Shi said the Jiangxia BSL-4 facility did not use non-human primates before the outbreak, suggesting those experiments were carried out at the Wuhan University ABSL-3 lab in Wuchang. [https://t.co/ZJYdJ5stul](https://t.co/ZJYdJ5stul)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396750355418030090?ref_src=twsrc%5Etfw)
+
+
+
+第5推，如果COVID-19的其中一个意外事故发生在2019年11月，证据表明，非人灵长类动物实验可能是在PLA的军事医院（PLA广州军区武汉总医院）监督下，由单超在WIV位于科技路的P3实验室的团队，在武汉大学P3实验室进行的。重复附上显示这3家机构地理位置关系的地图。
+
+
+
+> If a [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) accident occurred in November 2019, the evidence is pointing towards the non-human primate tests conducted at the Wuhan University ABSL-3 lab by Chao Shan of the Wuhan Institute of Virology, Keji Road BSL-3 facility, perhaps supervised via the PLA military hospital. [pic.twitter.com/S5lYDB76r8](https://t.co/S5lYDB76r8)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396754639924695041?ref_src=twsrc%5Etfw)
+
+
+
+第6推，转发Neo Fight战友的推文，情景清晰起来了：对于大多数病毒学家来说，如果采用“功能获得（GoF）”方案开发疫苗，那么传播能力测试就显得毫无意义，但是对于生物武器研发，这些测试就必不可少，因为他们需要评估可能的结果，这正是疫情爆发前在武汉大学P3实验室进行的。COVID-19侦探Neo Fight此推直指问题的核心，并就武汉大学P3实验室在疫情爆发初期进行的非人灵长类动物实验提出的一系列见解。值得一读。
+
+
+
+> This brief Tweet by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@neophighter](https://twitter.com/neophighter?ref_src=twsrc%5Etfw) cuts to the heart of the issue and makes a number of other key comments about the potential role of the Wuhan University ABSL-3 non-human primate lab in the onset of the pandemic. All worth reading. [https://t.co/qrqOSQ6916](https://t.co/qrqOSQ6916)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396871428511830020?ref_src=twsrc%5Etfw)
+
+
+
+第7推，转发ann战友回应的中文推：据武汉大学公开信息网，5月6日，李红良已被免去武汉大学动物实验中心主任和武汉大学P3实验室主任职务。并贴上此信息的网页截图。关注，COVID-19侦探ann的此推也许就是疫情开始的确凿证据。
+
+
+
+> ATTENTION: This Tweet by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@ann95657173](https://twitter.com/ann95657173?ref_src=twsrc%5Etfw) may be THE smoking gun of the start of the pandemic. 
+> On May 6, 2020, Li Hongliang was removed as director of the Animal Experiment Center of Wuhan University and the director of the ABSL-III laboratory of Wuhan University. [https://t.co/r3jGWd82rK](https://t.co/r3jGWd82rK)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396879761796894724?ref_src=twsrc%5Etfw)
+
+
+
+跟随塞林博士的战友们都知道，2019年初，南京军事医学研究所的王长军团队将COVID-19病毒样品转交到WIV的单超团队，以针对非人灵长类动物恒河猴进行传播能力的测试。但现在的关键问题是，这个测试是在武汉的哪一个实验室进行的呢？是在WIV旗下的P3或P4实验室，还是在武汉大学P3动物实验室进行的？这几家实验机构都在疫情早期爆发的中心地带，但是WIV的P3实验室那时尚未准备好处理非人灵长类动物，其P4实验室在疫情爆发前也尚没有进行非人灵长类动物实验的资格，而武汉大学P3动物实验室自2003年开始，就具备对非人灵长类动物进行病毒和疫苗测试的能力。
+
+多渠道线索表明，武汉大学P3动物实验室，是唯一可能在疫情爆发早期，对非人灵长类动物恒河猴进行COVID-19传播能力测试的实验室！并且可能是在PLA的军事医院（PLA广州军区武汉总医院）监督下进行的。碰巧的是，李红良刚刚在两周前，即5月6日被免去武汉大学动物实验中心主任以及武汉大学P3动物实验室主任职务。在当前世界对COVID-19病毒溯源聚光灯对准位于武汉的几个实验室的形式下，需要有人出来承担责任，替CCP-PLA顶罪，无数次证明了为CCP鞍前马后的人，没有一个人会有好下场！
+
+Neo Fight战友一语点醒梦中人，让非专业认识顿悟：如果采用“功能获得”方案开发疫苗，那么传播能力测试就毫无意义，但是对于生物武器的研发，这些测试就必不可少，因为他们需要评估其可能产生的结果。这是COVID-19是实验室起源的CCP-PLA生物武器之铁证！
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

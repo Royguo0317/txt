@@ -1,29 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我们正在经历第三次世界大战
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1271852/)
+## 【福奇】我不相信冠状病毒的自然起源
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1271871/)
 
 ```
-新闻来源：意大利晚报（corriere.it）
+新闻来源：意大利安莎通讯社（ANSA）
 发布时间： 2021年5月24日
 翻译整理/简评： 斩草要除根
 ```
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25132554/IMG_20210525_192508.jpg)图片来源：新浪
-国家统计研究所（*Istat*）的统计数据清楚地向我们显示了，我们已经并且正生活在第三次世界大战之中。去年2月以来发生的12万人死亡数相当于1940年6月10日至1943年9月8日的死亡人数总和（包括平民，军人甚至失踪人员在内），在人类生命方面，这发生的是一场灾难。
 
-国家统计研究所的总裁吉安卡洛·布拉吉亚多（*Giancarlo Blangiardo*）在发表的统计研究所第八版《公平与可持续福祉报告》之际表示了这一点。布拉吉亚多（*Blangiardo*）解释说，具体地说，“我们已经看到，过去的预期寿命在逐步增加，除了一些罕见的时刻，但是2020年则是一场灾难。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25140113/x5980086_1823_fauci_covid_laboratorio.jpg.pagespeed.ic_.Iw9p9eExty-1.jpg)图片来源：ilmessaggero.it
 
-总裁继续说：“这标志着预期寿命的急剧下降，在国家一级这大约为一年，在伦巴第一级则为两年半。这意味着我们在某些地方（例如贝加莫省）已经倒退了20年，在伦巴第大区至少已经倒退了10年。我希望2021年，2022年和2023年与2020年会有很大不同，但它可以使我们对所发生的事情有一定程度的认识。”
+美国国家传染病研究所所长兼冠状病毒的白宫顾问安东尼 .福奇（*Anthony Fauci*）说，他不相信冠状病毒是自然产生的。当被问及这种病毒是否自然产生时，福奇回答：“我不相信，我认为我们应该调查中共国发生了什么。当然，正在调查的人声称，紧急事件是由感染个体的动物引起的，但可能还有其他原因，我们需要找出答案。  这就是为什么我绝对赞成进行调查”。
 
 #### 简评：
 
-**就这场中共病毒大流行而造成的死亡人数而言，用“世界大战”来描述是一点不为过的，因为它根本不属于天灾，是人为故意制造的。这场大灾难本可以避免，但是所有的黑暗势力却成功的用病毒操控了这个世界。**
+**在坚持了一年多以后，福奇已经顶不住这个继续帮中共造假的压力了。他的反水有着重大的意义，对中共国来说也是当头棒。我们也可以看到对中共病毒真相的追溯也正朝着我们期望的路上大步迈进。**
 （本文只代表译者观点，与Gnews平台无关。）
 
 **新闻原文链接：**
-🔗[Covid Bergamo, il presidente Istat: «Stiamo vivendo la terza guerra mondiale»](https://bergamo.corriere.it/notizie/cronaca/21_maggio_24/covid-bergamo-presidente-istat-stiamo-vivendo-terza-guerra-mondiale-7f09af9c-bc72-11eb-abb7-46b8b952d96c.shtml)
+🔗[Fauci, non sono convinto dell’origine naturale del Covid](https://www.ansa.it/sito/notizie/topnews/2021/05/24/fauci-non-sono-convinto-dellorigine-naturale-del-covid_a27166e3-73fd-49b4-88f1-ff31379152ef.html)
 
 * * *
 

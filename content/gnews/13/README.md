@@ -1,33 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佛罗里达州州长签署法律，禁止Facebook和Twitter对保守派进行压制
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1271928/)
+## 白宫呼吁世卫对中共病毒起源进行进一步调查
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1272015/)
 
-蒙特利尔皇家山战友团 Spirit
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25152445/florida.jpg)图片来源：wtvy.vom
-据《太阳报》（The Sun）5月25日报道，佛罗里达州州长罗恩-德桑蒂斯(Ron DeSantis)签署了一项法律，禁止Facebook和Twitter在其平台上压制保守派观点。
+- 编译：云起时
 
-该法律将于7月1日生效，如果科技巨头删除政治候选人的资料，该州将对其罚款25万美元。
 
-德桑蒂斯说，佛罗里达人正在抵制 “科技极权主义”，他抨击Facebook禁止前总统唐纳德-特朗普的做法。但是，据Mail Online报道，有人担心这项法律侵犯了受第一修正案保护的言论自由。
+《每日电讯报》5月25日报道，白宫新闻秘书詹-普萨基（Jen Psaki）周二表示，总统拜登的政府呼吁由世界卫生组织（WHO）而不是美国科学家来领导对中共病毒起源进行进一步调查。
 
-德桑蒂斯州长在推特上说。”今天，弗罗里达人得到了保护，免受硅谷对言论、思想和内容的权力掠夺。”随着佛罗里达州大科技法案的签署，我们人民正站起来反对科技极权主义。”这位共和党州长指责社交媒体巨头删除与他们的观点“不一致” 的内容。
+在周二的简报中普萨基回答了记者的问题，这些问题涉及到中共病毒的起源问题，它从中共国武汉的一个冠状病毒研究实验室泄漏的可能性越来越大。
 
-他提到了唐纳德-特朗普在1月6日国会大厦骚乱后被禁止进入Facebook。德桑蒂斯昨晚告诉肖恩-汉尼提：”推特禁声唐纳德-特朗普美国总统，但他们却会让阿亚图拉谈论杀害犹太人！我们必须保护人们免受大的科技审查制度的影响。”
+虽然中共长期以来一直坚称该病毒是由动物自然传播给人类的，但越来越多的证据表明武汉实验室有嫌疑。
 
-特朗普反复推动他所称为的 “大谎言”，并声称在去年的选举中对他实施了一个巨大的阴谋。这位前总统仍然被禁止进入推特、YouTube和Instagram等社交媒体网站。
+一位记者问到对中共国可能进行的进一步调查时问道：”拜登政府认为美国科学家或CDC科学家应该在该调查中扮演什么角色？“
 
-据报道，共和党的团队在2020年花了近1.6亿美元在Facebook的广告上。他们当时利用这个平台向粉丝们介绍他的选举行程、重要的更新和总体的互动。
+普萨基说：”世卫组织将是受监督的，透明和独立的第二阶段调查的机构。这是我们强烈支持的事情。这将需要中国最终站出来，允许进行必要的访问以确定其来源。当然，美国将支持第二阶段的调查，但它将由一个国际机构领导，”
 
-众议院少数派领袖凯文-麦卡锡在推特上说。”脸书更喜欢像一个民主党的超级政治行动委员会，而不是一个自由言论和公开辩论的平台。如果他们能禁止特朗普总统，所有保守派的声音都可能是下一个。众议院共和党多数派将控制大科技公司对我们言论的控制权。”
+记者问： “所以美国基本上不会发挥主导作用？”
 
-是时候反击这些大科技公司的极权控制了，佛罗里达州做了很好的表率，其他共和党州也应该行动起来，维护真正的言论自由。
+普萨基回答说： “我们在总统上任时重新加入了世卫组织，它是推动这项调查的适当机构。”
 
-[原文链接](https://www.thesun.co.uk/news/15060611/ron-desantis-bans-facebook-twitter-silencing-conservatives-florida/)
+共和党人长期以来一直呼吁对中共病毒的起源进行进一步调查。批评者还指出世卫组织在这一大流行病的早期曾转述过来自中共国的伪造数据。
 
-* * *
+上周，国会众议院情报委员会成员曾发出一封信，敦促拜登政府对中共病毒的来源进行更多调查，并指出有 “重要的间接证据 “表明它是从武汉实验室泄露出来的；几乎没有任何证据表明存在人畜共患病传播的可能。
 
-*发稿 文锦*
+
+
+> BREAKING: GOP House Intel Committee members agree w/ Dr. Ralph Baric, believe more investigation into COVID-19 origin is needed. Cmte: there's "significant circumstantial evidence" it leaked from Wuhan lab; next to 0 evidence of zoonotic transmission. Article coming soon.
+> — Jennifer Van Laar (@jenvanlaar) [May 19, 2021](https://twitter.com/jenvanlaar/status/1395162701773479941?ref_src=twsrc%5Etfw)
+
+
+
+新闻来源：[《每日电讯报》](https://dailycaller.com/2021/05/25/who-coronavirus-origins-china-biden-investigation-lab/?utm_medium=push&amp;utm_source=daily_caller&amp;utm_campaign=push)
 
 0
