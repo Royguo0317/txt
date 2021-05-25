@@ -1,30 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【福奇】我不相信冠状病毒的自然起源
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1271871/)
+## 佛罗里达州州长签署法律，禁止Facebook和Twitter对保守派进行压制
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1271928/)
 
-```
-新闻来源：意大利安莎通讯社（ANSA）
-发布时间： 2021年5月24日
-翻译整理/简评： 斩草要除根
-```
+蒙特利尔皇家山战友团 Spirit
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25152445/florida.jpg)图片来源：wtvy.vom
+据《太阳报》（The Sun）5月25日报道，佛罗里达州州长罗恩-德桑蒂斯(Ron DeSantis)签署了一项法律，禁止Facebook和Twitter在其平台上压制保守派观点。
 
+该法律将于7月1日生效，如果科技巨头删除政治候选人的资料，该州将对其罚款25万美元。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25140113/x5980086_1823_fauci_covid_laboratorio.jpg.pagespeed.ic_.Iw9p9eExty-1.jpg)图片来源：ilmessaggero.it
+德桑蒂斯说，佛罗里达人正在抵制 “科技极权主义”，他抨击Facebook禁止前总统唐纳德-特朗普的做法。但是，据Mail Online报道，有人担心这项法律侵犯了受第一修正案保护的言论自由。
 
-美国国家传染病研究所所长兼冠状病毒的白宫顾问安东尼 .福奇（*Anthony Fauci*）说，他不相信冠状病毒是自然产生的。当被问及这种病毒是否自然产生时，福奇回答：“我不相信，我认为我们应该调查中共国发生了什么。当然，正在调查的人声称，紧急事件是由感染个体的动物引起的，但可能还有其他原因，我们需要找出答案。  这就是为什么我绝对赞成进行调查”。
+德桑蒂斯州长在推特上说。”今天，弗罗里达人得到了保护，免受硅谷对言论、思想和内容的权力掠夺。”随着佛罗里达州大科技法案的签署，我们人民正站起来反对科技极权主义。”这位共和党州长指责社交媒体巨头删除与他们的观点“不一致” 的内容。
 
-#### 简评：
+他提到了唐纳德-特朗普在1月6日国会大厦骚乱后被禁止进入Facebook。德桑蒂斯昨晚告诉肖恩-汉尼提：”推特禁声唐纳德-特朗普美国总统，但他们却会让阿亚图拉谈论杀害犹太人！我们必须保护人们免受大的科技审查制度的影响。”
 
-**在坚持了一年多以后，福奇已经顶不住这个继续帮中共造假的压力了。他的反水有着重大的意义，对中共国来说也是当头棒。我们也可以看到对中共病毒真相的追溯也正朝着我们期望的路上大步迈进。**
-（本文只代表译者观点，与Gnews平台无关。）
+特朗普反复推动他所称为的 “大谎言”，并声称在去年的选举中对他实施了一个巨大的阴谋。这位前总统仍然被禁止进入推特、YouTube和Instagram等社交媒体网站。
 
-**新闻原文链接：**
-🔗[Fauci, non sono convinto dell’origine naturale del Covid](https://www.ansa.it/sito/notizie/topnews/2021/05/24/fauci-non-sono-convinto-dellorigine-naturale-del-covid_a27166e3-73fd-49b4-88f1-ff31379152ef.html)
+据报道，共和党的团队在2020年花了近1.6亿美元在Facebook的广告上。他们当时利用这个平台向粉丝们介绍他的选举行程、重要的更新和总体的互动。
+
+众议院少数派领袖凯文-麦卡锡在推特上说。”脸书更喜欢像一个民主党的超级政治行动委员会，而不是一个自由言论和公开辩论的平台。如果他们能禁止特朗普总统，所有保守派的声音都可能是下一个。众议院共和党多数派将控制大科技公司对我们言论的控制权。”
+
+是时候反击这些大科技公司的极权控制了，佛罗里达州做了很好的表率，其他共和党州也应该行动起来，维护真正的言论自由。
+
+[原文链接](https://www.thesun.co.uk/news/15060611/ron-desantis-bans-facebook-twitter-silencing-conservatives-florida/)
 
 * * *
 
-***编辑整理/校对: **Ting Guo*
+*发稿 文锦*
 
 0

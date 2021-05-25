@@ -1,53 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “事实核查员 ”纷纷转向 称中共病毒实验室来源可信
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1271899/)
+## 【热点推荐】尴尬！中共国际投资贸易洽谈会欧美各大企业集体缺席
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1271942/)
 
-- 编译：云起时
+温哥华扬帆农场 – Meilen美伦
 
+据新唐人2021年5月24日报道，5月21日，中共在重庆市举办的第三届中国西部国际投资贸易洽谈会开幕，欧美各大公司全体缺席。中共原本期待这一大会能成为“与西方携手共创美好未来”的契机，然而，令其深陷尴尬的是，受邀的欧美大公司如微软、沃尔玛、戴姆勒等，均拒绝派高层代表参加博览会或相关活动。
 
-《零对冲》5月25日报道，近期中共病毒 “实验室泄密 “理论终于获得了主流的合法性，而且随着福奇博士承认他现在对实验室来源的可能性持开放态度，曾经自鸣得意地断言实验室泄密为 “被推翻的阴谋论 “的机构 “事实核查员 “们，现在正争相改口以挽回自己的声誉。
+飞利浦走了，乐天走了，家乐福走了，三星走了，松下走了……接下来估计特斯拉也要走。无论中共多么努力地招商引资，都不敌挤走一个企业所带来的负面影响之大。而且，在特斯拉汽车上海车展恶意“维权”事件发生后，很多外资企业更是谈“中”色变，甚至加速撤离中共国。如5月18日，德国联邦议院学术委员会发表的一份评估报告称，鉴于新疆维吾尔族民众的人权状况日益恶化，当地的德国企业有可能会被迫缩减在当地的生产规模，甚至全部撤离新疆。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25161325/Meilen052521-2.png)
+图片来源：网络截图
+尤其是在今年1月19日美国宣布对中共独裁政权种族灭绝、跨国犯罪集团的定义后，3月22日，欧盟也宣布对侵犯新疆人权的中共官员和实体加以制裁，且5月20日，欧洲议会更以压倒性投票表决，通过冻结中欧投资协议。国际社会的这种种反应举措，都是各国对中共国加速经济脱钩的体现，特别是在中共被定义种族灭绝后，世界各大企业都纷纷拒绝与中共及中共国内的企业合作。
 
-最近一个屈膝转向的“事实核查员”是《华盛顿邮报》的格伦-凯斯勒（Glenn Kessler)。
+因为，根据欧美当地法规，这是企业必须承担的中断和中共合作商合作的义务，否则，企业将面临罚款，甚至要承担法律责任。这或许就是本次重庆洽谈会欧美各大企业集体缺席的最大原因。试问，谁还敢明目张胆和一个种族灭绝、跨国犯罪集团合作？明智的企业，当然就不会来参加投资洽谈会了。这也说明世界与中共国脱钩早已落到企业实体中，大批企业的加速撤离，让中共假擀面杖苦苦支撑的虚假经济也在极速崩塌中，近日文贵先生调侃中共的桥震、行震、粮震、楼震、地震等，不正是真实写照？
 
-去年凯斯勒称一个暗示实验室意外泄漏的视频 “值得怀疑”，参议员特德-克鲁兹（Ted Cruz)在回应中指责华尔街日报 “放弃了所有新闻的伪装来制作中共的宣传品”。为此凯斯勒发出了一条尖酸刻薄的推文嘲笑克鲁兹，并声称基于“事实”，病毒几乎不可能来自实验室。
+由此可见，在郭文贵先生发起的爆料革命和新中国联邦合作引领的世界正义力量积聚、酝酿四年余的灭共风暴已经在极速爆发阶段，此前的日拱一卒，如今每日都可见大成效！没有了强劲雄厚的经济支持，中共还能苟活多久？特别是在病毒科学家闫丽梦博士揭露新冠病毒真相后，令处于病毒超限战之下的世界人民逐渐觉醒，并要求对中共病毒追责，这以毒灭共就更是加速了中国邪恶政权灭亡的进程，中共的末日已不远矣！
 
+（本文仅代表个人观点，与Gnews平台无关）
 
+新聞來源：https://www.ntdtv.com/gb/mkt\_ipad/2021/05/23/a103126263.html
 
-> I fear [@tedcruz](https://twitter.com/tedcruz?ref_src=twsrc%5Etfw) missed the scientific animation in the video that shows how it is virtually impossible for this virus jump from the lab. Or the many interviews with actual scientists. We deal in facts, and viewers can judge for themselves. [https://t.co/TprMnaHSZL](https://t.co/TprMnaHSZL)
-> — Glenn Kessler (@GlennKesslerWP) [May 1, 2020](https://twitter.com/GlennKesslerWP/status/1256267931220049920?ref_src=twsrc%5Etfw)
+审辑/审核：文敏
 
-
-
-近一年后的今天，凯斯勒在最新发表的推特中宣传了他的新文章，题为 “武汉实验室泄密理论如何突然变得可信
-
-
-
-> Fact Checker | Timeline: How the Wuhan lab-leak theory suddenly became credible [https://t.co/rA8oJbQajT](https://t.co/rA8oJbQajT)
-> — The Washington Post (@washingtonpost) [May 25, 2021](https://twitter.com/washingtonpost/status/1397145022512910336?ref_src=twsrc%5Etfw)
-
-
-
-凯斯勒的突然转向引起了广泛的关注。
-
-小川普回应道：”它并没有 “突然变得可信”，它一直是可信的。这一直是最合理原因。我能理解媒体一直想要的叙事，但难道没有人认为最可能的情况就是病毒神奇地源自与之合作的实验室吗？
-
-
-
-> It didn’t “suddenly become credible” it was always credible. It literally always made the most sense. I understand the desired narrative media always wanted but didn’t anyone think the most likely scenario was the virus magically originated feet from the lab that worked with it? [https://t.co/XO4Y5OlKLf](https://t.co/XO4Y5OlKLf)
-> — Donald Trump Jr. (@DonaldJTrumpJr) [May 25, 2021](https://twitter.com/DonaldJTrumpJr/status/1397173489254162435?ref_src=twsrc%5Etfw)
-
-
-
-1982年至2012年曾担任《纽约时报》科学时报栏目工作人员的韦德在接受马克-莱文的 “生命、自由与莱文 “采访时说，媒体没有 “摘掉政治眼镜”，没有看到被中共掩盖的事实。 “
-
-韦德说：”我认为我们看到了中共国持续的宣传努力在起作用，但是，你知道，这不是所有的问题，这只是我们媒体的盲目性，如果我可以这样说的话–我们太两极化了，无法看到科学问题本身而不给它们涂上政治色彩。我们并不确定：我们面对两种可能的病毒的起源的可能情况。但是，如果你看一下所有的证据并问自己，根据目前的证据，哪种方案能更好地解释所有这些事实，至少在我看来，实验室逃逸的假说能更好地解释它。”
-
-韦德说： “我只能假设媒体被忽悠了，他们没有做必要的工作。”
-
-的确，媒体为了种种原因而反对病毒的实验室来源理论，而与此同时中共的触角已经深深地控制了美国的宣传人员，尽一切力量兜售他们所想要的宣传。
-
-新闻来源：[零对冲](https://www.zerohedge.com/covid-19/wapo-head-fact-checker-glenn-kessler-heckled-over-lab-leak-flip-flop?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+校对/发布：Shuang
 
 0
