@@ -1,49 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 面对记者追问白宫发言人继续回避病毒溯源
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1270254/)
+## 警报 &#8211; 中共病毒疫苗接种可能会危及您的心脏健康
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1270697/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+#### 翻译报道：nstar
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24230858/W-2.jpg)justitiarul.ro
-《门道专家》（The Gateway Pundit）替福克斯简要报道了今天（5月24日）上午记者对白宫发言人的追问。【1】
+#### 校对：卡拉马佐夫姐姐
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25015914/1-127.png)主题图片：Getty Images / Design by Jo Imperio
+据路透社报道，美国疾病控制和预防中心的一个咨询小组说，一些接受中共病毒疫苗的青少年和年轻成年人出现了心脏炎症，并建议对这种罕见的情况作进一步研究。
 
-全文如下：
+疾病预防控制中心的免疫实践咨询委员会在5月17日的一份声明中说，它已经调查了一些年轻的中共病毒疫苗接种者（主要是青少年和年轻人，而且主要是男性）出现心肌炎的报告。该委员会在声明中说, 应该让医疗服务提供者了解关于中共病毒疫苗接种者”潜在的不良事件 “的报告，并建议进一步调查。
 
-《福克斯新闻》的彼得·杜西（Peter Doocy）根据《华尔街日报》报道（WSJ Report），11月武汉三名研究人员病得很重（的问题），（对白宫发言人）进行了反复盘问。
+约翰-霍普金斯大学健康安全中心的高级学者阿梅什-阿达尔贾(Amesh Adalja)博士说，众所周知，疫苗会导致心肌炎，监测它是否与中共病毒疫苗接种有因果关系很重要。
 
-美国《华尔街日报》（the Wall Street Journal）报道了，三名武汉员工在2019年11月病重，《福克斯新闻》（Fox News）记者彼得·杜西在周一（5月24日）的（新闻发布会上）盘问了白宫新闻秘书詹·普萨基（Jen Psaki），这位白宫新闻秘书多次回避。
+除此以外，还有以色列卫生部在4月表示，它正在检查少数接受中共病毒辉瑞公司疫苗的人的心脏炎症病例，以色列的大多数病例是在30岁以下的人。
 
-《华尔街日报》报道说，根据一份情报报告，武汉病毒研究所的三名研究人员在2019年11月病得很重，他们寻求医院治疗。
+疾病预防控制中心说，这些病例通常在接受中共病毒mRNA疫苗后的四天内发生。它没有说明是哪种疫苗。美国已经对莫德纳（Moderna）公司和辉瑞/德国生物新技术公司（Pfizer/BioNTech）的两种mRNA疫苗给予了紧急授权。这两个公司没有立即回应免疫实践咨询委员会在周六5月22日对他们的声明的评论答复请求。
 
-《门道专家》的权威人士去年报道了这个爆炸性的新闻，而主流媒体现在正在迎头追赶。
+#### 译评:
 
-2020年4月，我们报道了来自中共国官员的证据，证明武汉研究所在2020年2月之前就是中共病毒的来源地。
+根据以色列媒体报道分析，62例心肌炎的发生与中共病毒疫苗接种有关，主要发生在18至30岁的年轻男子身上。其中有两名病人, 一名35岁男子和一名22岁女子已经死亡，且这两位死者生前都很健康。56个病例中的大多数发生在第二次接种后。
 
-在我们的文章中，我们采用了来自中共国的各种报道来支持我们的观点，我们报告的一个项目就与武汉病毒研究所的三名感染中共病毒的人有关。
+欧洲药品管理局（EMA）也正在调查使用制造商辉瑞/生物技术公司和莫德纳的中共病毒疫苗接种后出现心肌炎症的案例。到目前为止还没有任何关于案例数量的信息。但他们指出, 心肌炎在与中共病毒疾病有关的情况下更为常见。他们也要求辉瑞和莫德纳中共病毒疫苗制造商提供有关中共病毒疫苗接种后心肌炎和心包炎报道的数据。
 
-彼得·杜西就这份报告质问了普萨基，和往常一样，她转移了人们的视线。
+心肌或心包发炎的症状，医学上称为心肌炎或心包炎，由于心肌和心包紧密相连，一个部位的炎症有时会蔓延到另一个部位。引起心肌或心包炎症的大多数是病毒，很少是其他微生物。有些患者有严重的疼痛，特别是在胸部。然而，对其他人来说，这种疾病开始时比较缓慢。他们只是累了，而且普遍感到虚弱。如果您在中共病毒感染期间或之后, 或在中共病毒疫苗接种后出现以下症状，建议您一定要咨询医生!:
 
-文章附上了两段推文：
+- 胸骨疼痛，有时在呼吸时加重
+- 严重的心悸或心惊肉跳
+- 呼吸急促
+- 疲劳和食欲不振
+- 虚弱或疲倦
+- 头疼
 
-彼得·杜西多次就《华尔街日报》的报道，质问白宫新闻秘书詹·普萨基，称三名武汉病毒研究所员工在2019年11月病情严重，最终住进了医院。杜西强调为什么拜登政府没有对中共国施压？
 
-普萨基的最后一个回答几乎猜测了拜登白宫对中共国及其他们病毒来源的看法：“我认为那些失去生命的亲人、家人应该得到准确的信息数据，而不是仓促下结论。”
+更重要的是, 一定要相信闫丽梦博士, 它不是正常的天然病毒, 是中共的人造生物武器!只有消灭邪恶的中共(CCP),才可能得到解毒药。
 
-（原文完）
-
-中共病毒是实验室泄露，是“仓促的结论”？人为放毒，生物武器，这类更邪恶的行径，你拜登政府怎样认为？你们想干什么？
-
-新中国联邦盯紧你们的一言一行！
+原文链接：[U.S. CDC looking into heart inflammation in some young vaccine recipients](https://www.reuters.com/business/healthcare-pharmaceuticals/us-cdc-investigating-heart-problem-few-young-vaccine-recipients-nyt-2021-05-22/)
 
 参考链接：
 
+[1](https://providernews.seattlechildrens.org/special-update-monitoring-for-myocarditis-after-covid-19-vaccination/) [2](https://www.biospace.com/article/covid-19-in-the-news-heart-inflammation-vaccine-effectiveness-and-more/)
 
-
-> [Fox News’ Peter Doocy Repeatedly Grills Psaki on WSJ Report Alleging Three Wuhan Researchers Fell Very Ill in November 2019 (VIDEO)](https://www.thegatewaypundit.com/2021/05/fox-news-peter-doocy-repeatedly-grills-psaki-wsj-report-alleging-three-wuhan-researchers-fell-november-2019-video/)
-
-
-
-0
++4

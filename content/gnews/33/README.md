@@ -1,32 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 辽宁阜新发生一起疑似针对市委官员的自杀性爆炸袭击
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1270403/)
+## 对中共间谍的制裁扩大
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1270808/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25000220/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-7.png)
-据[**头条新闻**](https://weibo.com/breakingnews) [2021年5月25日 09:27](https://weibo.com/1618051664/Kh44ZtFW7?from=page_1002061618051664_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
+台湾宝岛农场:文旦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25031411/%E6%93%B7%E5%8F%96525-1.jpg)
+周四（5月20日），资深参议员卢比奥、克鲁兹，以及参议院外交关系委员会成员等美国国会共和党议员推出《保护美国免受间谍法》（ Protecting America from Spies Act），允许美国国务院对从事间谍或知识产权盗窃行为的个人及其亲属拒发签证，主要是针对中共间谍和窃密者。
 
-【[#辽宁一两轮机动车街头爆炸致1死#](https://s.weibo.com/weibo?q=%23%E8%BE%BD%E5%AE%81%E4%B8%80%E4%B8%A4%E8%BD%AE%E6%9C%BA%E5%8A%A8%E8%BD%A6%E8%A1%97%E5%A4%B4%E7%88%86%E7%82%B8%E8%87%B41%E6%AD%BB%23&amp;from=default)：驾驶人死亡 5人轻伤】5月24日，辽宁阜新。一辆两轮机动车在路边爆炸。当地通报称，该两轮机动车爆炸造成驾驶人当场死亡，邻近的两辆小轿车不同程度受损，车内和附近其他人员5人送医，经医院检查为轻伤。爆炸原因市应急部门和公安部门还在进一步调查中。[L沸点视频的微博视频](http://t.cn/A6VxVJ8h) [#辽宁一电瓶车街头爆燃#](https://s.weibo.com/weibo?q=%23%E8%BE%BD%E5%AE%81%E4%B8%80%E7%94%B5%E7%93%B6%E8%BD%A6%E8%A1%97%E5%A4%B4%E7%88%86%E7%87%83%23&amp;from=default)
+中国共产党对世界的危害，越加越大，事件也越来越高，所涉及的金额也越来越大，对国际秩序的不遵守也越来越严重。
 
-另据[野山@naochashu](https://twitter.com/naochashu)于[上午7:32 · 2021年5月25日](https://twitter.com/naochashu/status/1396972327510839299)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)
+中国共产党实施偷、拐、抢、骗等恶劣行为曝光及办案增加了数量越来越多，间谍行为也越来越多，在这个日益严重的问题下，美国决定加大制裁。
 
-发布的推文——
+中国共产党统治下的人民、官员等都因为洗脑的教育，宣传的教导下，破坏了一个人的创造、创新能力。甚至可能因为创新而被消失，中共掠夺、剥夺了人民创造的财富及权利。
 
-网友披露，骑手身上绑着炸药，在阜新市政府门口引爆，是自杀式炸弹攻击。
+在这环境下，造就了去偷、拐、抢、骗他国的智慧财产，并且可以无研究费用，比他国更低成本制造这一系列产品，甚至对外说是他们创造的。
 
+在这个偷、拐、抢、骗的环境，更加没有人想要去增长自身能力，而是去更加强偷、拐、抢、骗的技术，及更多的法律漏洞。
 
+在这种糜烂的环境下，影响着每个人，因为这样的方式可以用最低成本拿到更大的利益，并在中共政府的帮助下，更加的容易成功。
 
-> 网友披露，骑手身上绑着炸药，在阜新市政府门口引爆，是自杀式炸弹攻击。 [pic.twitter.com/DzIUFTtLbj](https://t.co/DzIUFTtLbj)
-> — 野山🎗 (@naochashu) [May 24, 2021](https://twitter.com/naochashu/status/1396972327510839299?ref_src=twsrc%5Etfw)
+真相需要你我传播，你很重要，你的一小步，将是灭共的一大步。
 
+参考资料:
 
+[克鲁兹等提法案对中共间谍及亲属拒发签证-大纪元](https://www.epochtimes.com/b5/21/5/22/n12968579.htm)
 
-由于中共已经陷入塔西陀陷阱，因此对于官媒的语焉不详和稍后的所谓公布调查结果无法让民众得到真相属大概率事件，对照[野山@naochashu](https://twitter.com/naochashu)推文中披露的内容，我们可以得出的基本结论是这是一起疑似自杀性爆炸袭击事件，这一袭击事件针对的就是那辆邻近自杀性爆炸袭击二轮车的市委领导座驾，这一次领导受轻伤，但如果这一次的自杀性袭击属实，那就意味着中共基层的干部也越来越不安全了，他们把底层民众逼上了绝路，底层民众在走投无路的情况下采取了同归于尽的作法。
+台湾宝岛农场YOUTOBE:
 
-不管真相如何，唯愿逝者安息，唯愿伤者早日康复，造成这一悲剧的不是哪一个干部，而是整个邪恶的中共体制，邪恶的中共体制不铲除，任何人包括中南坑和最基层的官员和百姓都不安全的。
+[5月22日GTV真人真事：采访小王子](https://www.youtube.com/watch?v=7PHBFKB03fA)
 
-（文章内容仅代表作者个人观点）
+希望大家帮忙订阅分享!!!感谢你!!!
 
-+5
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+文章审核：zhong
+
+文章发布：Little Liu
+
+0

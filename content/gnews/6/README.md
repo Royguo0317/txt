@@ -1,25 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内新闻浅析】华为重申只造汽车部件不造整车
-` Ru Wei` [轉載自GNews](https://gnews.org/zh-hans/1270847/)
+## Milli Vanilli的歌手死于中共病毒
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1271263/)
 
-#### 作者：Ru Wei
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25041318/%E5%8D%8E%E4%B8%BA%E9%80%A0%E8%BD%A6.jpeg)封面来源：网易
-中共军民融合企业：华为技术有限公司2021年5月24日发布声明，重申“华为不造车”，只为车企提供基于华为ICT能力的智能网联汽车部件。华为公司在声明中称，“至今为止，我们并未投资任何车企。未来也不会投资任何车企，更不会控股、参股。”（记者白瑜）
+信息来源：德国图片报网络版 
+记者：阿德里安·穆尔鲍尔（AdrianMühlbauer）
+发布时间：2021年5月25日
+翻译 /整理/ 简评： Shuizhuyu
 
-**浅析：**
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25064128/milli-vanilli-saenger-fab-morvan-links-und-john-davis-bei-einem-gemeinsamen-auftritt-im-zdf-.jpg)
 
-**“华为公司”一直是我最认可的中共国企业，没有之一。刚大学毕业手捧老板交到手中的一本“华为公司基本法”，崇敬之情油然而生。表象是完美的、真实是骨感的、假骗偷是不打草稿的、吹牛是不犯法的。芯片门、养猪门，造车门不知会演化到哪一步？因为华为已经啪啪打脸过了，接着再打脸也就无所谓了。**
 
-**被戳破谎言后的“华为”在国际上已经跌下神坛。低研发投入、偷国外技术、芯片依赖进口，结局已逐渐显露，“煮熟的鸭子嘴硬”是无法破局的。海思麒麟芯片、鸿蒙操作系统、智慧养猪、华为inside自动驾驶方案，这一系列眼花缭乱的操作，让不明真相的国人，莫名感到高潮。但可悲的是，当老百姓知道真相后是否会崩溃，还是如以往一样选择忽略和遗忘，答案显然是后者。**
+图片来源： “ Milli Vanilli”：歌手John Davis（右）一起在德国电视二台表演。 （來源：IMAGO / STAR-MEDIA）
 
-**华为重申只造汽车部件不造整车，这个莫名其妙的报道，是中共一贯的宣传做法。华为轮值董事长徐直军表示，“不造车，打造汽车子品牌”。华为选了三个伙伴，华为和北汽新能源，打造ARCFOX极狐品牌；华为和广汽、长安汽车打造汽车领域的子品牌。应用了华为自动驾驶系统的车会打上“Huawei Inside” logo。**
+“ Milli Vanilli”的主唱之一，约翰·戴维斯（John Davis）（66岁）去世了。
 
-**华为轮值董事长徐直军称“华为自动驾驶技术比特斯拉好多了”，什么感觉？反正我想吐！“靠偷发家”的“华为”不知道又偷了多少特斯拉的技术？修改一下就变成自己的专利，反而喊着要超过“师傅”，“见过不要脸的，但没见过这么不要脸的！”。这就是中共国治下企业的缩影，也是中共在一步步扼杀中共国人的创造性，把中共国人都变成“工具人”。**
+他的女儿贾斯敏（Jasmin）周一在脸书上发布了这一消息：“很遗憾，我父亲今天晚上死于冠状病毒。 他的笑声，微笑，幸福的天性，爱以及音乐尤其使许多人感到满意。”
 
-（本文仅代表作者个人观点，与GNEWS平台无关。）
+简评： 中共病毒已经夺走了347万人的生命， 其中不乏各界精英， 今天这位歌唱家也因为中共病毒， 走了。 想要遏制病毒， 只有一条路， 就是灭共。
 
-参考信息链接：🔗[华为重申只造汽车部件不造整车](http://m.xinhuanet.com/2021-05/24/c_1127484642.htm)
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
+
+🔗[john-davis-aus-fuerth-milli-vanilli-saenger-stirbt-an-corona](https://www.bild.de/regional/nuernberg/nuernberg-news/john-davis-aus-fuerth-milli-vanilli-saenger-stirbt-an-corona-76508128.bild.html)
 
 0
