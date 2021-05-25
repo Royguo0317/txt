@@ -1,15 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界210524-01
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1271201/)
+## 【粤语配音】世卫组织从中共国拿了什么，致使他们助纣为虐用病毒大疫情戕害全世界？
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1271303/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+闫丽梦博士5月21日接受印度Republic电视台采访质问世卫组织，我们应该就很多问题质问世卫组织：他们从中共国拿了什么？致使他们助纣为虐中共国用病毒大疫情戕害全世界？我们必须问清楚所有这些。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25034437/01-30.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25034638/02-48.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25041134/09-13.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25041433/10-70.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25042623/11-88.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25043719/12-107.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25044527/13-64.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25035708/04-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25035825/05-29.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25040006/06-40.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25040936/07-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25041052/08-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050446/15-36.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050604/16-30.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050700/17-20.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050745/18-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050820/19-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050902/20-14.jpg)
-发稿：神奇四侠
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-以上图片均采集于网络，与GNEWS无关
-
-+2
+0

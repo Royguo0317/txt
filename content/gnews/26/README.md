@@ -1,54 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 家庭反洗脑序列：第九篇 信仰在心中
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1270900/)
+## 慧眼看世界210524-01
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1271201/)
 
-- 作者：随风61
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25034437/01-30.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25034638/02-48.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25041134/09-13.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25041433/10-70.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25042623/11-88.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25043719/12-107.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25044527/13-64.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25035708/04-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25035825/05-29.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25040006/06-40.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25040936/07-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25041052/08-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050446/15-36.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050604/16-30.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050700/17-20.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050745/18-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050820/19-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25050902/20-14.jpg)
+发稿：神奇四侠
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+以上图片均采集于网络，与GNEWS无关
 
-**西班牙2021年5月25日电/西喜社——**
-
-我老爸的小区对面有一条干净的小街，街心是一座清真寺，两层楼的建筑，古朴而典雅，街的尽头是一座天主教堂，白色镶着金边的外墙，神圣而高贵。与周围高大的楼群相比，这条小街更显得别致。
-
-清真寺的二楼开设了一家养老院和一所幼儿园，一楼是几家小门店，多是经营民族小吃和民族服饰。
-
-我去老爸家要特意绕远，就是为了走过这条小街，每次经过我都故意放慢脚步，听听唱诗班的歌声，看看孩子们在平台上的游戏，转转一楼的小门店。我爱这条小街，但这一切早已是留在记忆中了。
-
-上百年的古老建筑，是信徒们捐款翻修的，小街的繁荣景象，是信徒们对信仰的坚持支撑的。遗憾的是现在这条小街可以称之为死街，回民幼儿园被强制搬迁了，天主教堂大门紧锁。只因为他们跟宗教有关，一楼各具特色的门店招牌也整齐划一了，招牌上的所有的阿拉伯文字一律用清真两个汉字替代。
-
-我就纳闷了，你们这是怕什么呀？它只不过是一种你看不懂的文字罢了。
-
-真正的，你们是被信仰吓破了胆。虔诚的信仰能激发灵魂的高贵和伟大，虔诚的信仰会给我们无穷的力量，虔诚的信仰会使我们在困难面前毫不退缩。
-
-你能关闭一所幼儿园，关闭一所教堂，你能关闭那深藏在心里的《传道书》中的美丽文字吗？
-
-凡事都有定期，天下万物都有定时。
-
-生有时，死有时。
-
-栽种有时，拔出所栽种的也有时。
-
-杀戮有时，医治有时；拆毁有时，建造有时。
-
-哭有时，笑有时；哀恸有时，跳舞有时。
-
-投掷石头有时，堆积石头有时。
-
-怀抱有时，不怀抱有时。
-
-寻找有时，放手有时；保持有时，舍弃有时。
-
-…… ……
-
-我相信，TAKE DOWN CCP 一定有时。
-
-审核：蚂蚁兄弟； 校对: 阿伯塔； 发稿: Nuevo唐人
-
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
-
-
-
-+1
++2

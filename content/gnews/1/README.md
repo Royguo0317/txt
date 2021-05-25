@@ -1,45 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】立陶宛再次扇动蝴蝶翅膀，呼吁其他国家退出17+1
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1271350/)
+## 中共军方开发的防治中共病毒的人尸丸药物或解药
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1271403/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+【日本东京方舟农场】 作者：画画  素材采编：画画  校对：文小律
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+作者于2021/5/24在Gnews 发表了《中共病毒的相关解药？》之后，经过再次检索发现了中共军方的张学敏团队以南湖实验室名义于2020/10/26申请了《氨基葡萄糖及其衍生物作为抗新型冠状病毒药物的用途》专利。其专利文献专门使用上述药物进行了多组小鼠对照实验，实验结果表明可用于治疗或预防哺乳动物中感染 SARS-CoV-2病毒及其突变病毒株。（参考图2）
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25081349/4C5CA5EF-C35B-4CFE-8293-565A224D5E08.jpeg)图1
 
+进一步地，专利文献内容详细阐述了他们进行了多组给药组和对照组小鼠支气管和肺组织的病毒RNA载量的对照实验。其中图2为一实验数据对比结果，上述结果证明氨基葡萄糖及其衍生物对SARS-CoV-2病毒感染的小鼠具有良好的治疗效果，可作为抗SARS-CoV-2病毒的治疗手段。在其给出的所有实验数据都证实上述结论。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25081359/BF41FA9E-E69C-46E8-9EA5-B68C5D16257C.jpeg)图2
 
+再者，张学敏团队提交上述专利的唯一申请人为南湖实验室，其位于浙江嘉兴南湖区。根据相关报道，嘉兴市中共高层公开讲话都提及将生物医药产业是全球新一轮科技革命和产业革命的战略制高点，也是中共国战略性新兴产业的主攻方向。基于嘉兴特殊地理位置使得其成是现代生物医药产业链、供应链，集聚长三角乃至全国技工贸优质资源地方。
 
+同时，以人民网为首中共官媒的大力宣传南湖实验室,有5位中共两院院士领衔研究团队常驻并高新招聘相关海外人才，其中就包括中共军方的张学敏（如图3）。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25081406/F99E879A-606B-4E66-B801-5739DA9407BB.jpeg)图3
 
-5月22日立陶宛正式宣布退出17+1合作机制。该国外长朗斯伯格斯宣布：立陶宛决定不再出席17+1峰会。同时还呼吁其他成员国退出这一合作机制。
+倘若氨基葡萄糖及其衍生物如其专利文献描述的那样，是对SARS-CoV-2病毒感染具有良好的治疗效果，可作为抗SARS-CoV-2病毒的治疗手段。但氨基葡萄糖及其衍生物药物生产制造会使得环境严重污染，而欧美将上述药物做为用于防治关节炎、肿瘤等慢性病的保健药，所以欧美药企基本上都是与中共国生产的药企合作，在中共国生产制造该药物。在中共向全世界不宣而战地发动了超限生物武器战大背景下，使得抗中共病毒药物成为重要超限战的战略资源。
 
-5月24日，中共国外交部发言人赵立坚就此表示：“（17+1）机制成立9年来，成果丰硕，不会因为个别事件受到影响。”
+结合专利文献说明书第[0047]段描述：本发明的化合物和药物组合物可对哺乳动物临床使用，包括人和动物，可以通过 口、鼻、皮肤、肺、或者胃肠道等的给药途径。**最优选为口服。**最佳优选日剂量为0 .01-200mg/ kg体重，一次性服用，或0 .01-100mg/kg体重分次服用。
 
+结合专利文献的所有实验对比数据来看，氨基葡萄糖及其衍生物能够在实验设定时间内大大降低小鼠体内的SARS-CoV-2病毒浓度，但不能完全清除所有的SARS-CoV-2病毒，若中共病毒感染者长期服用能否彻底清除病毒就不得而知了，其专利文献也未给出此方面研究实验数据。
 
+因此，氨基葡萄糖及其衍生物是中共病毒解药系列之一？
 
-**文字版原文：[【独立观点】立陶宛再次扇动蝴蝶翅膀，呼吁其他国家退出17+1](https://gnews.org/zh-hans/1270181/)**
+或者，氨基葡萄糖及其衍生物难道是中共军方在中共病毒造成全球大爆发来背景下，又一种收割全世界人民的人尸丸系列药物之一？
 
-作者：纽约香草山健身部 Ivy001
+注：本文仅代表作者观点
 
+参考链接：
 
+1. [https://gnews.org/zh-hans/1269078/](https://gnews.org/zh-hans/1269078/)
+2. [https://gpss3.tipo.gov.tw/](https://gpss3.tipo.gov.tw/)
+3. [https://www.cnjxol.com/3056/202009/t20200928\_671770.shtml](https://www.cnjxol.com/3056/202009/t20200928_671770.shtml)
+4. [http://zj.people.com.cn/n2/2020/0715/c186327-34159311.html](http://zj.people.com.cn/n2/2020/0715/c186327-34159311.html)
+5. [http://zj.sina.cn/comprehensive/2020-09-28/detail-iivhvpwy9347893.d.html?cre=wappage&mod=r&loc=2&r=0&rfunc=40&tj=wap\_news\_relate](http://zj.sina.cn/comprehensive/2020-09-28/detail-iivhvpwy9347893.d.html?cre=wappage&amp;mod=r&amp;loc=2&amp;r=0&amp;rfunc=40&amp;tj=wap_news_relate)
+6. [http://taian.iqilu.com/taianyaowen/2019/1122/4381045.shtml](http://taian.iqilu.com/taianyaowen/2019/1122/4381045.shtml)
 
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
