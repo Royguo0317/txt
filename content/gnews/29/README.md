@@ -1,55 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共挑拨美俄关系&nbsp; 挑起巴以冲突&nbsp; 绑架14亿人民与犹太人为敌
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1269991/)
+## 【G时评】这是在为大重构拖延时间吗？
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1270065/)
 
-**摘要：在2021年5月21日的盖特视频中，郭先生说中共挑拨俄罗斯和美国的关系，然后他的一位俄罗斯内部的朋友说，俄罗斯只想利用中共，普京不会做给中共做实际的事情。中共还借着巴以冲突公然挑衅犹太人，中共14亿老百姓如果跟着共产党走，会死无葬身之地。他呼吁：“中国同胞醒来吧，醒来吧！”**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24205300/Miles_2021-05-21_getter-p2.srt.txt)
-**中共挑拨美俄关系  挑起巴以冲突  绑架14亿人民与犹太人为敌**
+**作者：Giselle  图片：Giselle**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24214751/%E9%BB%84%E8%89%B2%E7%9F%AD%E8%A7%86%E9%A2%91%E8%90%A5%E9%94%80%E8%AF%BE%E7%A8%8B%E6%B4%BB%E5%8A%A8%E5%B0%81%E9%9D%A2%E7%9A%84%E5%89%AF%E6%9C%AC3.png)
+在全球疫苗供应方面，中共国与俄罗斯、印度占了大头，美国虽然生产了超过3.33亿剂疫苗，出口量仅为300万剂左右。
 
-**The CCP Incites Countries to Fight Against Each Other and Invokes Hatred and Discrimination Toward Jewish People**
+根据总部位于北京的播锐智咨询公司统计称，截至5月17日，中共国已经向国外出售了6.83亿剂疫苗。
 
-大家都看到了世界的形势，可以说是每时每刻都在以历史上前所未有的巨变的速度在变化中，无论是地缘政治、军事格局，还是一个热点冲突，还是能源，还有一个整个的资本的流动，都在剧烈的变化中。
+印度此前被视为中共国在疫苗出口方面的竞争对手，向近100个国家出口了约6900万剂疫苗。
 
-We have all seen that the world, so to speak, is changing at a historically unprecedented rate every moment. Whether it is geopolitics, the military landscape, a hotspot conflict, or energy, or the overall capital flow, are all in the midst of dramatic changes.
+俄罗斯本国有些地区尚未能获得Sputnik V新冠疫苗，不过仍有数百万剂出口到其它国家。
 
-大家也能看到，现在老共使劲儿挑拨俄罗斯和美国的关系，你看他就是烂招儿。他们想学英国人在历史上挑拨离间，分化，是吧，然后分离，让你内斗，这个差太远了，共产党就是 low 到不能再 low 了。
+5月17日，美国总统拜登宣布，美国将在六个星期内，向国外供应8000万剂疫苗。
 
-As you can see, now the CCP is trying hard to provoke the relationship between Russia and the United States. You can see that it is a bad move – they want to learn from the British in the past to alienate the two countries and incite one against the other, right? And then to cause them to turn away from each other and fight against each other. It (the CCP) is very far [from being successful]. The CCP is so low that you can’t imagine how it could go any lower.
+拜登将疫苗形容为“武器”，他说：“正如二战时美国是民主国家的兵工厂一样，在抗击新冠肺炎大流行的斗争中，我们的国家将成为全世界疫苗的兵工厂。”
 
-结果是俄罗斯的内部，咱们的朋友就说，他说：“我们就想在中国弄些钱，知道他们完蛋了，就想多弄点钱，再一个把历史上未确定的事情，我们确定下来。不就是口头承诺嘛。”他说现在共产党跟我们玩什么？想玩让我们和美国人斗，他说那是不可能的。人家普京也很聪明，你让我喊两嗓子，我就喊两嗓子，是吧，但是实际的事是不可能。但是国内的这些小粉红们，愚蠢到自娱自乐，愚蠢的“愚”自娱自乐的程度，然后就这么疯狂。
+观察人士认为，疫苗竞争的背后，是这些国家对其国际地位和更多影响力的追求。
 
-Well, our friend, who is an insider of Russia, said, “We (the Russians) just want to get some money from China. Knowing that they will be finished soon, we just want to squeeze more money from them. And also we need to get some undetermined historical issues resolved. Isn’t it just an oral contract? ” He said, “What the CCP is playing with us now is to trick us to fight with the Americans. That is impossible.” Putin is very smart, knowing that you (the CCP) let me shout out loud for you, so I will do that for you, which is fine, but doing anything concrete is impossible. However, those “little pinks” (young cyber-nationalists in China) are so stupid to the extent of self-indulgence and even fooling themselves by celebrating all this. So crazy!
+仅仅如此吗？
 
-世界的风向不是在变，[而是]世界的民心在凝聚，世界的人心在凝聚和所谓的风向在改变是两个概念。连巴勒斯坦，巴以战争在历史上那么多次冲突，这次最重要的最危险的冲突当中，犹太人第一次在犹太人的社区里面，和犹太社会圈里面提出来，这个背后的黑手就是伊朗，就是中国共产党。第一次犹太种族得到了公开的共产党的羞辱和歧视和攻击。
+**1，疫苗外交背后凸显的是大国之间的角力？**
 
-The world is NOT just switching gears, rather people’s hearts are getting united. Switching gears and getting united are two different concepts. Look at Palestine. Palestine and Israel had so many conflicts in history. During the recent conflict, which is the most important and most dangerous one, the Jewish people for the first time raised the point in the Jewish community and the Jewish social circle that Iran and the Chinese Communist Party were behind all this. For the first time, the Jewish people were openly humiliated, discriminated against and attacked by the CCP.
+——以疫苗做筹码，拉拢那些缺乏疫苗、没有能力研发疫苗的国家为自己站台，本来是中共打的一手好算盘。
 
-共产党绑架了14亿中国人民，要与用犹太人为敌，然后共产党要把这个种族的矛盾和歧视犹太人，种族歧视和种族蔑视，把科学化、知识化、历史化、政治化、经济化，然后把它给种族政治战争化。
+中共疫苗外交对象基本上是一些低收入和中等收入的国家，在中共承诺提供疫苗的65个国家当中，其中有63个国家参与了中共的一带一路项目，在战略发展方面对中共的全球布局有利。
 
-The CCP has kidnapped 1.4 billion Chinese people to be enemies of the Jews. And then the CCP wanted to make this racial conflict and discrimination against the Jews, the racial discrimination and racial contempt to become a scientific, intellectual, historical, political and economic issue, and lead it to a racial, political war.
+2，**世界为何对疫苗的危害视而不见？**
 
-大家想想可怕不？就是中国人如果你再跟着共产党，你不是走进火葬场，你连走进火葬场的机会都没有。看到巴勒斯坦的那些将领了吗？看到伊朗的那些将领，怎么被被斩首的吗？就是你跟着共产党，你都不知道咋回事，就上面“叭唧”就把你切成肉泥了，那个肉不都在车里面，不知道嘣哪去了，可能被人野狗吃了都有可能，你想去火葬场都不可能。这是共产党给中国人带来最大的威胁，洗你的脑，要你的钱，要你的生殖器，给你搞双修，都不算事儿，这是每天在发生的。要了你的命，还要让你天天替他高兴，然后你还要连进火葬场的机会都没有。真的，中国同胞醒来吧，醒来吧。
+——目前在全世界大面积推广的这些病毒疫苗，没有经过长期研究和动物实验，没有完成人体实验，没有获得美国药监局完全批准，只是试验产品。在最近的4个月当中，新冠疫苗在美国已经造成了4000多人死亡，其他所有疫苗在过去10年造成的死亡人数总和是1500人。
 
-Is it scary? If you still follow the CCP,  you will not “walk” into a crematorium (meaning die with the CCP), because you will not even have the chance to “walk” into a crematorium. Did you see the generals in Palestine? Did you see how the generals in Iran were diced into pieces before knowing it? If you follow the CCP, your flesh will be iced into pieces without knowing it, and not all the flesh would be found in the car, some pieces might not be located and could be eaten by wild dogs, so there wouldn’t be a chance for your body to go to a crematorium. This is the biggest threat that the CCP brings to the Chinese people. Washing your brain, demanding your money, controlling your genitals, or having sex with you, is nothing compared to that, for those are happening every day. It will take your life, but it asks you to feel happy for it every day, and you don’t even have the chance to go to the crematorium. Seriously, wake up, my Chinese compatriots!
+这说明主流社会根本不想结束病毒战，邪恶集团的大重构计划还在持续推进当中。拜登根本就是在拖延时间，美国一共3.3亿人，有1.3亿人接种了疫苗，接种率39%，全美确诊感染3390万，死亡60万，这些人数加起来，全美没有感染、没有接种疫苗的人口，很快将不足一半……
 
-*（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60a7bc16d48e020926645716](https://gtv.org/getter/60a7bc16d48e020926645716) (0:06-1:36, 5:19-7:19)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1262482/](https://gnews.org/zh-hans/1262482/)*
+等所有人都被迫接种了疫苗，接受了疫苗护照规则，大重构计划就完成了。这也能解释，为什么拜登政府从来不提病毒真相、病毒来源问题，从来不提疫苗的毒副作用、不提硫酸羟氯喹的治疗效果——因为他们根本就是在拖延时间，这个世界仍然被这些黑暗势力玩弄于股掌。
 
-* * *
+3，**疫苗在大众心理学当中的安慰剂作用？**
 
-**翻译：【一花一世界】
-字幕：【Rock小哥】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+——当群体陷入病毒引起的恐慌情绪当中时，统治者为了避免恐慌引起的社会骚乱，会适时放出疫苗利好消息，甚至推出安慰剂，以缓解恐慌引起的社会骚乱。
+
+如果是出于这个目的，为什么不直接推出一款安全的、无害的安慰剂，而非要使用有毒副作用的疫苗？这不合理。
+
+唯一的解释还是：这些疫苗没有那么简单。
+
+4，**为何始终不承认便宜、有效的硫酸羟氯喹？**
+
+——硫酸羟氯喹是一款安全有效的老药，成本低廉、工艺成熟、利于推广，这与黑暗集团的利益产生了冲突，所以他们宁愿研发新药，高价推出，发病毒财，也不愿意推广、甚至抹黑这款低廉的老药，以谋取巨大的利益。
+
+5，**为何这个世界只有我们在呼吁：从源头上根治病毒？**
+
+——无数的例子已经证明，只要谎言足够大，就没人敢怀疑了，黑暗势力利用的正是这一点，撒一个弥天大谎，大到无人敢质疑，以天地为棋局，众生为棋子，玩弄操控苍生。
+
+这个世界大部分民众被主流媒体深度洗脑，被他们从小接受的精英文化教育、政客寡头洗脑，已经失去了常识判断。
+
+他们会为自己戴的口罩设计各种款式，甚至引发一股时尚潮流，却从来不会去追问：我们为什么要戴口罩？
+
+他们会相信，这款使用了65年以上的、孕妇、婴儿都可以使用的硫酸羟氯喹是有毒的。
+
+他们会毫无顾忌地接种疫苗，接受疫苗护照，只是因为周围的人都这么做了……
+
+只有爆料革命，凝聚了一股清醒的力量，每天都在世界各地奔走呼号：推翻中共，结束病毒大屠杀！
+
+6，**这一场荒谬的疫苗阴谋，目的何在？**
+
+——目前，国内的疫苗接种已经进入疯狂状态，在过去的8天之内，大约有超过1亿人接种了国产疫苗。
+
+疫苗的真相究竟是什么？疫苗会对人体产生哪些影响？需要时间去检验。从主流社会闭口不谈病毒真相、疫苗毒副作用、硫酸羟氯喹等的态度，就能看到：大重构还在持续不断地推进当中，我们一定要警惕！
+
+（**文章内容仅代表作者个人观点）**
 
 +1

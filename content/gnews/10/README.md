@@ -1,43 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】中共偷盗本性的根源
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1270165/)
+## 马斯克与比特币矿工筹谋共推全新加密货币！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1270206/)
 
-配音：香草山录音组 Kikii
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24224407/msk.jpeg)图片说明：YOUTUBE
 
 
+据加拿大自媒体《Thepostmillennial》5月24日新闻报道：大约一周前，加密资产领域“领头人”埃隆·马斯克（Elon Musk）突然对外宣布，特斯拉（Tesla）将暂停使用比特币购买其汽车产品的决定。该意外消息立刻引起了加密货币系统的崩塌，并导致比特币价格的急剧坠跌。难道这些现象仅仅是因为马斯克表示此举只是出于对环境问题的担忧吗！？
 
+与此同时，该胸怀宇宙之机的亿万富翁继续积极参与和加密资产有关的各项开发活动。就在今天，马斯克还出席了加密货币界的外联活动并涉及到比特币的顶级“采矿”人士。活动期间他表示：“我与北美这些优秀比特币“矿工们”进行了深入交流，他们承诺将发布适用于当前和未来计划的可再生能源以用于全球新型加密货币的发展。
 
+实际上，造成此前加密货币市场大动荡的原因不仅仅是马斯克的所谓“比特币开采导致环境负面影响”言论。更是因为最近中共国市场针对比特币及其他数字货币的强力监管打压而急剧削弱了加密资产投资者们的热情和信心。
 
+特别在近期，由于美国财政部也曾公开呼吁要严格遵守国家税务局（IRS）的各项法规，其中包括必须向其申报所有超过10,000美元的强制性转帐，这使得该国也出现了短暂类似的监管恐慌潮。
 
+但是，来自Bitcoin.com的最新消息和新型加密货币的推广趋势却显示，就华盛顿特区目前针对主要潜在加密货币系统使用的立法而言，美国大多数立法者和该行业的投资者对加密资产推崇备至的热情都绝对不会像中共国对比特币的恐惧和打压那样消极低沉。
 
-曾有一段时间，网友们称中共国为山寨国，称中国制造为山寨。甚至中共和一些受共匪洗脑的人一度以中国世界第一山寨国的地位而沾沾自喜。若能正大光明地学习、模仿、复制当然确实也是一种不错的能力，但中共的行为却并不能被归于此类。从它强迫转让技术，用间谍蓝金黄渗透偷盗等行为来看。只能将其行为定义为盗窃、剽窃。
+[原文链接](https://thepostmillennial.com/elon-musk-met-with-top-north-american-bitcoin-miners-over-renewable-energy)
 
-
-
-**文字版原文：[【信仰之声】中共偷盗本性的根源](https://gnews.org/zh-hans/1269463/)**
-
-作者：纽约香草山福音部  山城小哥
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+本文仅代表原媒体信息和作者个人观点！
 
 0
