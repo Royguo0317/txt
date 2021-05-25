@@ -1,101 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（二十九）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1271803/)
+## 【热点播报】比利时戳破中共军民融合的伪装，担心阿里巴巴是间谍窝
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1271844/)
 
-作者：纽约香草山信息部 6zero4
+作者：香草山信息部  雪梨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
-
-
-
-5月24日塞林博士的7连推：
-
-第1推，根据单超的地址，他被安置在科技路的P3实验室WIV，靠近武汉大学非人灵长类动物实验室和PLA广州军区武汉总医院，它们都在疫情早期爆发的中心地带。附上这3家机构所在位置的地图及单超本人的简历之网页截图。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
 
-> According to Chao Shan's address, it places him at the Wuhan Institute of Virology, Keji Road Biosafety Level 3 facility, near Wuhan University's non-human primate ABSL-3 facility and the PLA hospital complex, all at the epicenter of the early outbreak.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaSecondWave](https://twitter.com/hashtag/CoronaSecondWave?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/X5wQ7BysJH](https://t.co/X5wQ7BysJH)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396682901220102145?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25122320/%E5%9B%BE%E7%89%872-13-scaled.jpg)图片来源：WSJ
+
+据《[法国世界报](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%B3%95%E5%9B%BD%E4%B8%96%E7%95%8C%E6%8A%A5/20210524-%E6%AF%94%E5%88%A9%E6%97%B6%E6%8B%85%E5%BF%83%E9%98%BF%E9%87%8C%E5%B7%B4%E5%B7%B4%E6%98%AF%E4%B8%AA%E9%97%B4%E8%B0%8D%E7%AA%9D)》报道，比利时司法部长奎肯伯恩（Vincent Van Quickenborne）称，通过中共国电子商务巨头阿里巴巴对列日机场的投资，中共情报部门的特工可以“进入机场的敏感和安全区域”，他们担心阿里巴巴是个间谍窝。
+
+比利时列日机场 “是阿里巴巴全球物流中心网络在西欧关键据点，被称为[电子世界贸易平台](https://www.scmp.com/business/companies/article/3132764/china-rebuts-belgian-politicians-baseless-claim-about-chinese)（eWTP）”。作为阿里巴巴欧洲配送中心，列日机场对中共布局欧盟具有至关重要的战略意义。这对比利时和欧盟来说，不仅存在情报方面的相关风险，在政治和经济方面，中共试图通过其在欧盟投资的项目对欧盟政治家施加经济压力的风险也是存在的。
+
+根据中共国2017年通过的《[国家情报法](http://www.npc.gov.cn/npc/c30834/201806/483221713dac4f31bda7f9d951108912.shtml)》，中共国公司必须允许中共政府访问他们的数据，无论这样的公司是否有海外业务。依据中共国网络安全法，中共安全部门可以远程访问企业的计算机系统，有权复制（包括与用户有关的）数据。奎肯伯恩说，“如果中（共）国安全机构希望获得阿里巴巴在列日活动中持有的潜在敏感商业和个人数据，阿里巴巴也必须服从中（共）国安全机构的要求。“
+
+继去年10月在上海金融高层论坛上发表对中共国的金融风险的尖锐批判后，马云掌控的蚂蚁金服的上市随即被叫停，马云被约谈。今年1月，[中共向马云施压](https://www.breitbart.com/national-security/2021/01/26/report-china-pressuring-jack-ma-surrender-alibabas-huge-trove-consumer-data/)，要求他将消费者数据交给政府。4月，中共监管机构以涉嫌违反反垄断法为由，对阿里巴巴开出了创纪录的[27.8亿美元的巨额罚款](https://asia.nikkei.com/Business/China-tech/China-fines-Alibaba-record-2.77bn-for-antitrust-violation)。近日，马云创立的“湖畔大学“门口的校名石刻也被清除。作为江派势力的白手套，在这场政治较量中，马云终于成为了弃子。
+
+本月，继G7峰会，七国外长指责中共侵犯人权，批评来自中共国的威胁，并公开支持台湾加入世界卫生组织和世界卫生大会，表达对台海局势的关切；法国参议院批准法案，支持台湾加入国际组织；欧盟冻结“欧中投资协定”批准；英国”伊丽莎白女王“号航母部署亚洲；立陶宛宣布中共对维吾尔人种族灭绝，退出17+1合作论坛；法军总参谋长弗朗索瓦·莱科因特雷（Francois Lecointre）谈”世界秩序正围绕美中竞争重组，所有国家都将被迫站队“，[文贵先生在盖特](https://gtv.org/getter/60aad4a4744cbc4313636ef7)中特意提到这位参谋长与新中国联邦的关系，与灭共的渊源；比利时于今天公然撕破中共军民融合的伪装。
+
+欧盟已然觉醒！加上如闫博士这样的科学家为欧盟提供的中共病毒的证据，欧盟对中共的围剿势必更加凶猛。美国、欧盟、日本、印度、澳洲正以联合之势，磨刀霍霍，向着中南坑盗国贼的头上砍去。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
 
 
-
-第2推，现在的关键问题是，单超团队在COVID-19疫情前对非人灵长类动物的初始测试是在WIV位于江厦区的P4实验室做的，还是在武昌区的武汉大学实验室做的。因为之前没有提及WIV江夏区的P4实验室有此测试能力。附上武汉国家生物安全实验室亦即WIV旗下P3和P4两个实验室的官方介绍网页截图。
-
-
-
-> A key question now is whether Chao Shan's initial non-human primate tests, pre- [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic, took place in the Wuhan Institute of Virology Level 4 facility in Jiangxia or at the Wuhan University facility in Wuchang. There is no mention of such a capability in Jiangxia. [pic.twitter.com/4arVHeAQO7](https://t.co/4arVHeAQO7)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396720139832373249?ref_src=twsrc%5Etfw)
-
-
-
-第3推，2019年11月15日的一篇文章描述了武汉大学P3实验室自2003年开始对非人灵长类动物进行病毒/疫苗测试的能力，图片展示了用来做测试的恒河猴。该文章题为“探秘武汉大学模式动物研究所，这里曾是抗击非典战场之一”，两年前发表于“楚天都市报”。
-
-
-
-> A November 15, 2019 article describes the non-human primate virus-vaccine testing capability of the Biosafety Level 3 animal laboratory of Wuhan University in operation since 2003. Image shows Rhesus Macaque monkeys.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaSecondWave](https://twitter.com/hashtag/CoronaSecondWave?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/ak63sXu9A7](https://t.co/ak63sXu9A7) [pic.twitter.com/FlrrlBydX9](https://t.co/FlrrlBydX9)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396724659157184514?ref_src=twsrc%5Etfw)
-
-
-
-第4推，转发“火来2号”战友回应塞林博士今天第2推的推文：根据石正丽的说法，WIV的P3实验室尚未准备好处理非人灵长类动物，其P4实验室在疫情爆发前尚没有资格进行非人灵长类动物实验，疫情爆发后才申请了在P4实验室进行非人灵长类动物实验的许可。附上了石正丽向生物安全国际监察机构申请时回答有关问题的网页截图。COVID-19侦探“火来2号”提供了一些非常重要的信息，“蝙蝠女”石正丽说位于江夏区的P4实验室在疫情爆发前没有进行非人灵长类动物实验，表明这些实验是在武昌区的武汉大学P3实验室进行的。
-
-
-
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) provides some very important information. "Bat woman" Zheng-Li Shi said the Jiangxia BSL-4 facility did not use non-human primates before the outbreak, suggesting those experiments were carried out at the Wuhan University ABSL-3 lab in Wuchang. [https://t.co/ZJYdJ5stul](https://t.co/ZJYdJ5stul)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396750355418030090?ref_src=twsrc%5Etfw)
-
-
-
-第5推，如果COVID-19的其中一个意外事故发生在2019年11月，证据表明，非人灵长类动物实验可能是在PLA的军事医院（PLA广州军区武汉总医院）监督下，由单超在WIV位于科技路的P3实验室的团队，在武汉大学P3实验室进行的。重复附上显示这3家机构地理位置关系的地图。
-
-
-
-> If a [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) accident occurred in November 2019, the evidence is pointing towards the non-human primate tests conducted at the Wuhan University ABSL-3 lab by Chao Shan of the Wuhan Institute of Virology, Keji Road BSL-3 facility, perhaps supervised via the PLA military hospital. [pic.twitter.com/S5lYDB76r8](https://t.co/S5lYDB76r8)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396754639924695041?ref_src=twsrc%5Etfw)
-
-
-
-第6推，转发Neo Fight战友的推文，情景清晰起来了：对于大多数病毒学家来说，如果采用“功能获得（GoF）”方案开发疫苗，那么传播能力测试就显得毫无意义，但是对于生物武器研发，这些测试就必不可少，因为他们需要评估可能的结果，这正是疫情爆发前在武汉大学P3实验室进行的。COVID-19侦探Neo Fight此推直指问题的核心，并就武汉大学P3实验室在疫情爆发初期进行的非人灵长类动物实验提出的一系列见解。值得一读。
-
-
-
-> This brief Tweet by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@neophighter](https://twitter.com/neophighter?ref_src=twsrc%5Etfw) cuts to the heart of the issue and makes a number of other key comments about the potential role of the Wuhan University ABSL-3 non-human primate lab in the onset of the pandemic. All worth reading. [https://t.co/qrqOSQ6916](https://t.co/qrqOSQ6916)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396871428511830020?ref_src=twsrc%5Etfw)
-
-
-
-第7推，转发ann战友回应的中文推：据武汉大学公开信息网，5月6日，李红良已被免去武汉大学动物实验中心主任和武汉大学P3实验室主任职务。并贴上此信息的网页截图。关注，COVID-19侦探ann的此推也许就是疫情开始的确凿证据。
-
-
-
-> ATTENTION: This Tweet by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@ann95657173](https://twitter.com/ann95657173?ref_src=twsrc%5Etfw) may be THE smoking gun of the start of the pandemic. 
-> On May 6, 2020, Li Hongliang was removed as director of the Animal Experiment Center of Wuhan University and the director of the ABSL-III laboratory of Wuhan University. [https://t.co/r3jGWd82rK](https://t.co/r3jGWd82rK)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396879761796894724?ref_src=twsrc%5Etfw)
-
-
-
-跟随塞林博士的战友们都知道，2019年初，南京军事医学研究所的王长军团队将COVID-19病毒样品转交到WIV的单超团队，以针对非人灵长类动物恒河猴进行传播能力的测试。但现在的关键问题是，这个测试是在武汉的哪一个实验室进行的呢？是在WIV旗下的P3或P4实验室，还是在武汉大学P3动物实验室进行的？这几家实验机构都在疫情早期爆发的中心地带，但是WIV的P3实验室那时尚未准备好处理非人灵长类动物，其P4实验室在疫情爆发前也尚没有进行非人灵长类动物实验的资格，而武汉大学P3动物实验室自2003年开始，就具备对非人灵长类动物进行病毒和疫苗测试的能力。
-
-多渠道线索表明，武汉大学P3动物实验室，是唯一可能在疫情爆发早期，对非人灵长类动物恒河猴进行COVID-19传播能力测试的实验室！并且可能是在PLA的军事医院（PLA广州军区武汉总医院）监督下进行的。碰巧的是，李红良刚刚在两周前，即5月6日被免去武汉大学动物实验中心主任以及武汉大学P3动物实验室主任职务。在当前世界对COVID-19病毒溯源聚光灯对准位于武汉的几个实验室的形式下，需要有人出来承担责任，替CCP-PLA顶罪，无数次证明了为CCP鞍前马后的人，没有一个人会有好下场！
-
-Neo Fight战友一语点醒梦中人，让非专业认识顿悟：如果采用“功能获得”方案开发疫苗，那么传播能力测试就毫无意义，但是对于生物武器的研发，这些测试就必不可少，因为他们需要评估其可能产生的结果。这是COVID-19是实验室起源的CCP-PLA生物武器之铁证！
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

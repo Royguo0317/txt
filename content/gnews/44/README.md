@@ -1,23 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】5/24/2021早：拜登前顾问梅茨接受福克斯采访要求彻查中共实验室，对掩盖病毒真相的习政权不但推翻还要向中共索赔
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1271462/)
+## 2021/05/24-001 文贵先生盖特精华
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1271512/)
 
-**编辑：华盛顿DC农场 路德简报项目组**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25083406/2021-5-24-scaled.jpg)
+听写：Jennifer | 校对/审核：樂禧禧 | Page: Daoiii
+
+[!\[\]()!\[\](https://spark.adobe.com/page/k6GKM9BAWMSVg/images/25585667-e5c3-4cab-8b5c-181b83dd3c20.png?asset_id=666e5e8b-b3d6-4f6b-99fa-bb7b222a6aab&amp;img_etag=%22f6e3bcc6f95eea38754f4a64d4cb5c59%22&amp;size=1024)](https://spark.adobe.com/page/k6GKM9BAWMSVg/images/25585667-e5c3-4cab-8b5c-181b83dd3c20.png?asset_id=666e5e8b-b3d6-4f6b-99fa-bb7b222a6aab&amp;img_etag=%22f6e3bcc6f95eea38754f4a64d4cb5c59%22&amp;size=1024)
+
+**5月24号：尊敬的战友们好！全世界都在用生命和代价来证明极权后的政府能干大事是否是正确的，全世界用生命和血汗在证明极权后的财富，最后由谁说了算……？被极权谎言愚弄的时代即将成为历史！**
+
+[盖特链接](https://gtv.org/getter/60aba2a8744cbc431363c46e)
+
+1. 权力集中能干大事的谎言，权力集中也能能杀死更多的人，官僚无知低效。世界级的马拉松运动会，杀死21个人！最优秀的运动员被冻死。中国还会有冬奥会吗？
+2. 民生银行 、招商银行 、平安银行，包括油储银行不倒，中国经济就不会倒！民生银行有3万亿找不着！中国有200个家族控制着中国经济。
+3. 英国伊丽莎白女王、法国参谋长、法国亲共者都站出来说人话了。福奇妥协的原因是因为第二个闫丽梦科学家在欧洲作证了，他害怕了！闫博士的功力还没有发出来，第二个神级科学家还没开始呢！
+4. 印度已经清楚不出来和共产党干，就是被弄死，日本也一样，不是你妥协，你就没事了。
 
 
-> 2021 年5月24日 路德时评 早
-> 
-> 1.拜登前顾问梅茨接受福克斯采访 ：要求彻查中共实验室，对掩盖病毒真相的习政权 不但推翻还要向中共索赔
-> 
-> 2.蝙蝠女石正丽继续编造假病毒序列RaTG15 结果反打脸中共外交部 栽赃美国失败 
-> 
-> 3.杨洁篪仓皇访俄 欲拉俄抗美 
-> 
-> 4. 中共国甘肃马拉松 跑死21人 [pic.twitter.com/mY6bUmWwrt](https://t.co/mY6bUmWwrt)
-> — 平民爆料 (@WM18320321) [May 25, 2021](https://twitter.com/WM18320321/status/1397141098682888202?ref_src=twsrc%5Etfw)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/k6GKM9BAWMSVg/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/k6GKM9BAWMSVg/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 

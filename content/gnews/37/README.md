@@ -1,32 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020/05/24-002 文贵先生盖特精华
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1271530/)
+## 【时事解析】中共已渗透到德特里克堡的美国军事生物防御项目
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1270875/)
 
-听写： Jennifer | 校对/审核：樂禧禧 | Page: Daoiii
+作者：休斯敦星光农场 写作部 文顺
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
+5月23日，塞林博士发表在GP新闻网的报道指，中共通过弗雷德里克国家癌症研究实验室渗透到德特里克堡的美国军事生物防御项目。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Gnot1O2RiNZq3/images/9dc64149-a52d-4820-b535-43bb385624ad.png?asset_id=b31f576d-4ccb-43a8-aa97-74974ebcb645&amp;img_etag=%221bacb6ea603f6bc7ddec8ee5ad338973%22&amp;size=1024)](https://spark.adobe.com/page/Gnot1O2RiNZq3/images/9dc64149-a52d-4820-b535-43bb385624ad.png?asset_id=b31f576d-4ccb-43a8-aa97-74974ebcb645&amp;img_etag=%221bacb6ea603f6bc7ddec8ee5ad338973%22&amp;size=1024)
+塞林博士通过对发表于2017年的题为”人类单克隆抗体对SARS冠状病毒分离物的有效交叉反应性中和”的科学论文的作者及其背景进行调查，发现其中共国背景的作者与中共军方有千丝万缕的联系。
 
-**5月24号：尊敬的战友们好！全世界都在用生命和代价来证明极权后的政府能干大事是否是正确的，全世界用生命和血汗在证明极权后的财富，最后由谁说了算……？被极权谎言愚弄的时代即将成为历史！(接上)**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24011152/Screenshot-2021-05-24-001010.jpg)
 
-[盖特链接](https://gtv.org/getter/60aba4a9744cbc431363c4f4)
+*图片来源：THEGATEWAY*
 
-1. 在日本、印度、非洲联盟、中东联盟昨天都开了会，一致说是共产党病毒，要么在未来中美之战选边站，要么和共产党站在一起，所有人一致同意不和共产党站在一边。
-2. 叶简明和立陶宛、拉脱维亚等国家有很深关系。立陶宛被共产党羞辱到极点，拉脱维亚、立陶宛、沙特全部和共产党翻脸。
-3. 炒币就是共产党和华尔街在炒，未来炒比特币的人一定会在美国和中共之间提出法律诉讼战，它是一个骗局。中国几个家族控制着这个事件和政权。
-4. 欧洲、美国的企业都在悄悄的跑，只有傻瓜才往里进，看到的都是虚像和化了妆的脸。这是新中国联邦的时机！接下來各个领域科技、知识、好莱坞、农业都会像多米洛骨牌一样倒下去。福奇承认是实验室出来的病毒，只有灭共，否则你没法交代！
+该论文由来自弗雷德里克国家癌症研究实验室、USAMRIID的病毒学部门和安东尼·福奇（Anthony Fauci）博士的国家过敏与传染病研究所（NIAID）的科学家们合作完成。
 
+论文作者中的朱中玉和肖晓东，是中共国培养的弗雷德里克国家癌症研究实验室科学家。他们处理的许多高度危险的病原体，正是中共的生物战计划中所研究的病原体。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+作者之一的姜世波，与美国其他主要的病毒研究实验室建立了广泛的合作研究网络，并获得了超过1700万美元的美国研究资助，其中绝大部分来自安东尼·福奇（Anthony Fauci）博士的NIAID。同时，姜世波与中共的解放军实验室保持着广泛的合作研究，并邀请与中共军方有联系的科学家何玉贤进入他的美国实验室并进行培训。据信，姜世波参与了在COVID-19病毒中插入furin蛋白酶切位点的工作，这是证明其实验室来源的 “烟幕弹 “证据。
 
+作者之一的王林发在武汉病毒研究所工作，是 “蝙蝠女 “石正丽的长期合作者。
 
-编辑：【英国伦敦喜庄园编辑部】
+作者之一的拉尔夫·巴里奇是世界上最臭名昭著的 “功能增强实验 “研究者之一，曾与武汉病毒研究所的石正丽等人合作，他们的关系最终都指向解放军（PLA）。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Gnot1O2RiNZq3/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Gnot1O2RiNZq3/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+作者之一的曾宪坤，更是通过弗雷德里克国家癌症研究实验室，成功进入美国陆军传染病医学研究所（USAMRIID）工作。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24011848/Screenshot-2021-05-24-001246.jpg)
 
+*图片来源：THEGATEWAY*
 
+曾宪坤在中共国南京东南大学生命科学学院发育基因与人类疾病教育部重点实验室获得博士学位。该实验室与南京军区有密切的合作，现在是解放军东部战区司令部的一部分。而COVID-19病毒的创造和交付似乎与南京的解放军东部战区司令部有关，特别是解放军军官王长俊。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24011942/Screenshot-2021-05-24-001316.jpg)
+
+*图片来源：THEGATEWAY*
+
+2015年10月，曾宪坤仍然声称与南京的东南大学有联系。此外，即使在受雇于USAMRIID期间，曾宪坤仍与中共国的病毒研究项目保持密切联系。 2018年10月9日，其在武汉病毒学研究所做关于致命的埃博拉和马尔堡病毒的讲座。
+
+报道称，位于德特里克堡的美国陆军传染病医学研究所（USAMRIID）长期以来一直是解放军的间谍活动目标。而位于德特里克堡内、离USAMRIID只有几分钟的步行路程的弗雷德里克国家癌症研究实验室则是中共解放军完成间谍活动的途径之一。
+
+塞林博士在报道中强调：“曾宪坤可以接触到美国军方和NIAID关于美国生物战防御的最敏感信息。”
+
+由此看出，中共间谍在美国军方要害部门早已布局，详细周密，并成为中共此次全球投毒、放毒的帮凶！
+
+信息来源：
+
+[https://www.thegatewaypundit.com/2021/05/exclusive-china-infiltrated-u-s-military-biodefense-program-fort-detrick/](https://www.thegatewaypundit.com/2021/05/exclusive-china-infiltrated-u-s-military-biodefense-program-fort-detrick/)
+
+编辑：H.B 校对：Helen 发稿：文柳
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
 0
