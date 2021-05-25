@@ -1,32 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020/05/24-002 文贵先生盖特精华
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1271530/)
+## 病毒的源头是武汉实验室事故？
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1271544/)
 
-听写： Jennifer | 校对/审核：樂禧禧 | Page: Daoiii
+信息来源：德国世界报网络版 
+记者：比尔吉特·赫尔登（Birgit Herden）
+发布时间：2021年5月25日
+翻译 /整理/ 简评： Shuizhuyu
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Gnot1O2RiNZq3/images/9dc64149-a52d-4820-b535-43bb385624ad.png?asset_id=b31f576d-4ccb-43a8-aa97-74974ebcb645&amp;img_etag=%221bacb6ea603f6bc7ddec8ee5ad338973%22&amp;size=1024)](https://spark.adobe.com/page/Gnot1O2RiNZq3/images/9dc64149-a52d-4820-b535-43bb385624ad.png?asset_id=b31f576d-4ccb-43a8-aa97-74974ebcb645&amp;img_etag=%221bacb6ea603f6bc7ddec8ee5ad338973%22&amp;size=1024)
-
-**5月24号：尊敬的战友们好！全世界都在用生命和代价来证明极权后的政府能干大事是否是正确的，全世界用生命和血汗在证明极权后的财富，最后由谁说了算……？被极权谎言愚弄的时代即将成为历史！(接上)**
-
-[盖特链接](https://gtv.org/getter/60aba4a9744cbc431363c4f4)
-
-1. 在日本、印度、非洲联盟、中东联盟昨天都开了会，一致说是共产党病毒，要么在未来中美之战选边站，要么和共产党站在一起，所有人一致同意不和共产党站在一边。
-2. 叶简明和立陶宛、拉脱维亚等国家有很深关系。立陶宛被共产党羞辱到极点，拉脱维亚、立陶宛、沙特全部和共产党翻脸。
-3. 炒币就是共产党和华尔街在炒，未来炒比特币的人一定会在美国和中共之间提出法律诉讼战，它是一个骗局。中国几个家族控制着这个事件和政权。
-4. 欧洲、美国的企业都在悄悄的跑，只有傻瓜才往里进，看到的都是虚像和化了妆的脸。这是新中国联邦的时机！接下來各个领域科技、知识、好莱坞、农业都会像多米洛骨牌一样倒下去。福奇承认是实验室出来的病毒，只有灭共，否则你没法交代！
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25094615/458536-1.png)
 
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+实验室事故是病毒的起源-这个想法似乎令人发指。 然而，与此同时，认真的科学家表达了自己的信念，他们相信这是可能的。 现在，已有18名研究人员终于从阴谋理论的肮脏角落中解放了该理论。
 
+这个想法很早就出现了，但最初却被抛弃了：在过去的17个月中，冠状病毒给全世界带来了无法估量的痛苦，这可能是实验室事故的结果。
 
-编辑：【英国伦敦喜庄园编辑部】
+简评： 这个报道， 可能被爆料革命战友不屑一顾， 怎么还在讨论实验室事故？请战友们先别着急。 这个报道毕竟出来了。 真理就是不怕挖掘， 这个讨论一旦被摆到台面， 就说明了病毒真相在慢慢的浮出水面。 马上要露头了。 这在德国的世界报能够报道出来， 影响力一定会引起大讨论。 在欧洲这么谨小慎微， 慢半拍的的地方，在相对保守的报纸上能出现这个报道， 就已经证明了这个观点正在慢慢的站到了上峰。 相信在不久的将来， 病毒真相在欧洲会慢慢被定义。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Gnot1O2RiNZq3/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Gnot1O2RiNZq3/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
 
-
+🔗[Coronavirus-Ursprung-koennte-doch-ein-Labor-in-Wuhan-sein](https://www.welt.de/gesundheit/plus231334057/Coronavirus-Ursprung-koennte-doch-ein-Labor-in-Wuhan-sein.html)
 
 0
