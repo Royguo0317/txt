@@ -1,53 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “事实核查员 ”纷纷转向 称中共病毒实验室来源可信
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1271899/)
+## 法航芬航宣布暂停途径白俄罗斯领空的航班
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1271904/)
 
-- 编译：云起时
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25143217/F-3-9.jpg)themalyasianreserve.com
+5月23日，瑞安飞机被迫降落事件发生后，法国航空和芬兰航空暂停了在白俄罗斯上空的航班。
 
-《零对冲》5月25日报道，近期中共病毒 “实验室泄密 “理论终于获得了主流的合法性，而且随着福奇博士承认他现在对实验室来源的可能性持开放态度，曾经自鸣得意地断言实验室泄密为 “被推翻的阴谋论 “的机构 “事实核查员 “们，现在正争相改口以挽回自己的声誉。
+《费加罗报》援引该公司的声明说：“法航已经收悉了欧洲理事会的结论，并暂停其飞机在白俄罗斯领空的飞行，直到进一步通知。”
 
-最近一个屈膝转向的“事实核查员”是《华盛顿邮报》的格伦-凯斯勒（Glenn Kessler)。
+“那些已经在该航线上的飞机将改变其飞行计划。”该航空公司澄清说。
 
-去年凯斯勒称一个暗示实验室意外泄漏的视频 “值得怀疑”，参议员特德-克鲁兹（Ted Cruz)在回应中指责华尔街日报 “放弃了所有新闻的伪装来制作中共的宣传品”。为此凯斯勒发出了一条尖酸刻薄的推文嘲笑克鲁兹，并声称基于“事实”，病毒几乎不可能来自实验室。
+正如芬兰航空在推特上报告的那样，它也不会使用白俄罗斯的领空进行飞行。
 
+该公司说：“我们下周三飞往加西帕沙（Gazipasha）的航班将根据Traficom（芬兰国家运输机构）的建议，绕过白俄罗斯的领空。芬兰航空补充说，飞行计划的改变将稍微增加飞行时间。
 
+5月23日下午，瑞安航空从雅典飞往维尔纽斯的航班被迫降落明斯克机场。这架飞机当时在白俄罗斯上空，靠近立陶宛边境，因为报告说机上有炸弹而被迫降落。然而机上并没有发现爆炸装置，时隔五小时后飞机继续飞行。
 
-> I fear [@tedcruz](https://twitter.com/tedcruz?ref_src=twsrc%5Etfw) missed the scientific animation in the video that shows how it is virtually impossible for this virus jump from the lab. Or the many interviews with actual scientists. We deal in facts, and viewers can judge for themselves. [https://t.co/TprMnaHSZL](https://t.co/TprMnaHSZL)
-> — Glenn Kessler (@GlennKesslerWP) [May 1, 2020](https://twitter.com/GlennKesslerWP/status/1256267931220049920?ref_src=twsrc%5Etfw)
+然而，在它降落后，执法当局拘留了反对派Telegram频道Nexta的前负责人普罗塔西耶维奇，白俄罗斯当局认为该频道属于极端主义。普罗塔西耶维奇因在白俄罗斯组织大规模骚乱而被提起刑事诉讼，该主编被列入恐怖分子名单。
 
+国际社会尖锐地谴责了明斯克的行动，称其为“卢卡申科政权的令人震惊的行为”和“劫持飞机”。白俄罗斯反对派称，瑞安航空的航班被迫降落，完全是为了拘留普罗塔西耶维奇。西方国家的外交部呼吁立即释放该主编。
 
+周日晚间，一些欧洲国家以及美国要求对白俄罗斯进行制裁，特别是禁止在其领土上飞行，以及停止接待白俄罗斯国有航空公司Belavia的飞机。5月24日，欧盟国家决定禁止白俄罗斯的航空公司使用其领空。这一决定将在欧盟理事会批准后生效。英国和美国也加入了这项禁令。
 
-近一年后的今天，凯斯勒在最新发表的推特中宣传了他的新文章，题为 “武汉实验室泄密理论如何突然变得可信
+此外，许多航空公司拒绝使用白俄罗斯的领空，其中波罗的海航空公司、荷兰皇家航空公司、德国汉莎航空公司宣布了此项措施。
 
+参考链接：
 
-
-> Fact Checker | Timeline: How the Wuhan lab-leak theory suddenly became credible [https://t.co/rA8oJbQajT](https://t.co/rA8oJbQajT)
-> — The Washington Post (@washingtonpost) [May 25, 2021](https://twitter.com/washingtonpost/status/1397145022512910336?ref_src=twsrc%5Etfw)
-
-
-
-凯斯勒的突然转向引起了广泛的关注。
-
-小川普回应道：”它并没有 “突然变得可信”，它一直是可信的。这一直是最合理原因。我能理解媒体一直想要的叙事，但难道没有人认为最可能的情况就是病毒神奇地源自与之合作的实验室吗？
-
-
-
-> It didn’t “suddenly become credible” it was always credible. It literally always made the most sense. I understand the desired narrative media always wanted but didn’t anyone think the most likely scenario was the virus magically originated feet from the lab that worked with it? [https://t.co/XO4Y5OlKLf](https://t.co/XO4Y5OlKLf)
-> — Donald Trump Jr. (@DonaldJTrumpJr) [May 25, 2021](https://twitter.com/DonaldJTrumpJr/status/1397173489254162435?ref_src=twsrc%5Etfw)
-
-
-
-1982年至2012年曾担任《纽约时报》科学时报栏目工作人员的韦德在接受马克-莱文的 “生命、自由与莱文 “采访时说，媒体没有 “摘掉政治眼镜”，没有看到被中共掩盖的事实。 “
-
-韦德说：”我认为我们看到了中共国持续的宣传努力在起作用，但是，你知道，这不是所有的问题，这只是我们媒体的盲目性，如果我可以这样说的话–我们太两极化了，无法看到科学问题本身而不给它们涂上政治色彩。我们并不确定：我们面对两种可能的病毒的起源的可能情况。但是，如果你看一下所有的证据并问自己，根据目前的证据，哪种方案能更好地解释所有这些事实，至少在我看来，实验室逃逸的假说能更好地解释它。”
-
-韦德说： “我只能假设媒体被忽悠了，他们没有做必要的工作。”
-
-的确，媒体为了种种原因而反对病毒的实验室来源理论，而与此同时中共的触角已经深深地控制了美国的宣传人员，尽一切力量兜售他们所想要的宣传。
-
-新闻来源：[零对冲](https://www.zerohedge.com/covid-19/wapo-head-fact-checker-glenn-kessler-heckled-over-lab-leak-flip-flop?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+[https://www.rbc.ru/politics/25/05/2021/60ac92359a79474834a62846](https://www.rbc.ru/politics/25/05/2021/60ac92359a79474834a62846)
 
 0

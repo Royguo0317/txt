@@ -1,35 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法航芬航宣布暂停途径白俄罗斯领空的航班
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1271904/)
+## 【诗歌 】 新中国联邦·魂
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1271892/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+【作者】禾童 【编辑】Candy
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25143217/F-3-9.jpg)themalyasianreserve.com
-5月23日，瑞安飞机被迫降落事件发生后，法国航空和芬兰航空暂停了在白俄罗斯上空的航班。
+拉满的弓上颤动的弦啊
 
-《费加罗报》援引该公司的声明说：“法航已经收悉了欧洲理事会的结论，并暂停其飞机在白俄罗斯领空的飞行，直到进一步通知。”
+月光下
 
-“那些已经在该航线上的飞机将改变其飞行计划。”该航空公司澄清说。
+你的心跳清晰可闻
 
-正如芬兰航空在推特上报告的那样，它也不会使用白俄罗斯的领空进行飞行。
+雪亮美丽的刀刃啊
 
-该公司说：“我们下周三飞往加西帕沙（Gazipasha）的航班将根据Traficom（芬兰国家运输机构）的建议，绕过白俄罗斯的领空。芬兰航空补充说，飞行计划的改变将稍微增加飞行时间。
+你的侧脸
 
-5月23日下午，瑞安航空从雅典飞往维尔纽斯的航班被迫降落明斯克机场。这架飞机当时在白俄罗斯上空，靠近立陶宛边境，因为报告说机上有炸弹而被迫降落。然而机上并没有发现爆炸装置，时隔五小时后飞机继续飞行。
+如刀锋般冷峻
 
-然而，在它降落后，执法当局拘留了反对派Telegram频道Nexta的前负责人普罗塔西耶维奇，白俄罗斯当局认为该频道属于极端主义。普罗塔西耶维奇因在白俄罗斯组织大规模骚乱而被提起刑事诉讼，该主编被列入恐怖分子名单。
+深藏在爱与悲愤下的
 
-国际社会尖锐地谴责了明斯克的行动，称其为“卢卡申科政权的令人震惊的行为”和“劫持飞机”。白俄罗斯反对派称，瑞安航空的航班被迫降落，完全是为了拘留普罗塔西耶维奇。西方国家的外交部呼吁立即释放该主编。
+你的真心啊
 
-周日晚间，一些欧洲国家以及美国要求对白俄罗斯进行制裁，特别是禁止在其领土上飞行，以及停止接待白俄罗斯国有航空公司Belavia的飞机。5月24日，欧盟国家决定禁止白俄罗斯的航空公司使用其领空。这一决定将在欧盟理事会批准后生效。英国和美国也加入了这项禁令。
+懂得她的
 
-此外，许多航空公司拒绝使用白俄罗斯的领空，其中波罗的海航空公司、荷兰皇家航空公司、德国汉莎航空公司宣布了此项措施。
+只有新中国联邦之魂
 
-参考链接：
 
-[https://www.rbc.ru/politics/25/05/2021/60ac92359a79474834a62846](https://www.rbc.ru/politics/25/05/2021/60ac92359a79474834a62846)
+
+**【免责声明】** 尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+**欢迎战友加入旧金山金喜准农场**
+
+[旧金山金喜农场](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[旧金山金喜农场](https://discord.gg/QQzQ79grEA)[Discord](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜农场](https://twitter.com/sf_himalaya)[Twitter](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[Youtu](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**b**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[e](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
 0

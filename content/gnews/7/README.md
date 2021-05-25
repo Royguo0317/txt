@@ -1,31 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 沙利文参加美俄安全会谈
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1271893/)
+## “事实核查员 ”纷纷转向 称中共病毒实验室来源可信
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1271899/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+- 编译：云起时
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25141405/R-11.jpg)in.news.yahoo.com
-5月24日，俄罗斯安全理事会秘书尼古拉·帕特鲁舍夫（Nikolai Patrushev）和美国总统国家安全助理雅各布·沙利文（Jacob Sullivan）在日内瓦的一次会议上就安全理事会进行了磋商。这是俄罗斯安全委员会网站上的报道。
 
-报告称：“帕特鲁舍夫和沙利文就安全理事会的路线进行了俄美协商，这是5月19日拉夫罗夫和布林肯的谈判的逻辑延续。”
+《零对冲》5月25日报道，近期中共病毒 “实验室泄密 “理论终于获得了主流的合法性，而且随着福奇博士承认他现在对实验室来源的可能性持开放态度，曾经自鸣得意地断言实验室泄密为 “被推翻的阴谋论 “的机构 “事实核查员 “们，现在正争相改口以挽回自己的声誉。
 
-据俄方称，会谈是以建设性的方式进行的。会议讨论了广泛的议题，包括战略稳定的问题。报告说：“大家表示相信，可以在一些领域制定出双方都能接受的解决方案。”
+最近一个屈膝转向的“事实核查员”是《华盛顿邮报》的格伦-凯斯勒（Glenn Kessler)。
 
-双方还达成共识，即俄美关系正常化符合两国的利益，并将有助于世界的稳定。
+去年凯斯勒称一个暗示实验室意外泄漏的视频 “值得怀疑”，参议员特德-克鲁兹（Ted Cruz)在回应中指责华尔街日报 “放弃了所有新闻的伪装来制作中共的宣传品”。为此凯斯勒发出了一条尖酸刻薄的推文嘲笑克鲁兹，并声称基于“事实”，病毒几乎不可能来自实验室。
 
-据悉，会议明确指出，在两国领导人的参与下，这次会议成为计划中的俄美首脑会议的阶段之一。
 
-5月20日，俄罗斯外交部长谢尔盖·拉夫罗夫（Sergei Lavrov）和美国国务卿安东尼·布林肯（Anthony Blinken）在雷克雅未克会晤。俄罗斯外长说，他们已经同意 “开始对话，研究影响战略稳定的所有因素”。
 
-布林肯说，举行这次会议是为了“测试与莫斯科建立更稳定和可预测关系的建议”。他后来还称会谈是建设性的，并指出稳定和可预测的关系将有利于两国。
+> I fear [@tedcruz](https://twitter.com/tedcruz?ref_src=twsrc%5Etfw) missed the scientific animation in the video that shows how it is virtually impossible for this virus jump from the lab. Or the many interviews with actual scientists. We deal in facts, and viewers can judge for themselves. [https://t.co/TprMnaHSZL](https://t.co/TprMnaHSZL)
+> — Glenn Kessler (@GlennKesslerWP) [May 1, 2020](https://twitter.com/GlennKesslerWP/status/1256267931220049920?ref_src=twsrc%5Etfw)
 
-4月，拜登提出了让普京在中立领土上会晤的建议。包括奥地利和捷克共和国在内的几个国家提出接待俄罗斯和美国领导人。有关领导人会晤的具体日期的信息尚未得到双方的确认。俄罗斯总统发言人德米特里·佩斯科夫（Dmitry Peskov）表示，普京在决定与拜登会面时将考虑外交部门代表的会谈结果。
 
-参考链接：
 
-[https://www.rbc.ru/rbcfreenews/60abbed09a794712898561a3](https://www.rbc.ru/rbcfreenews/60abbed09a794712898561a3)
+近一年后的今天，凯斯勒在最新发表的推特中宣传了他的新文章，题为 “武汉实验室泄密理论如何突然变得可信
+
+
+
+> Fact Checker | Timeline: How the Wuhan lab-leak theory suddenly became credible [https://t.co/rA8oJbQajT](https://t.co/rA8oJbQajT)
+> — The Washington Post (@washingtonpost) [May 25, 2021](https://twitter.com/washingtonpost/status/1397145022512910336?ref_src=twsrc%5Etfw)
+
+
+
+凯斯勒的突然转向引起了广泛的关注。
+
+小川普回应道：”它并没有 “突然变得可信”，它一直是可信的。这一直是最合理原因。我能理解媒体一直想要的叙事，但难道没有人认为最可能的情况就是病毒神奇地源自与之合作的实验室吗？
+
+
+
+> It didn’t “suddenly become credible” it was always credible. It literally always made the most sense. I understand the desired narrative media always wanted but didn’t anyone think the most likely scenario was the virus magically originated feet from the lab that worked with it? [https://t.co/XO4Y5OlKLf](https://t.co/XO4Y5OlKLf)
+> — Donald Trump Jr. (@DonaldJTrumpJr) [May 25, 2021](https://twitter.com/DonaldJTrumpJr/status/1397173489254162435?ref_src=twsrc%5Etfw)
+
+
+
+1982年至2012年曾担任《纽约时报》科学时报栏目工作人员的韦德在接受马克-莱文的 “生命、自由与莱文 “采访时说，媒体没有 “摘掉政治眼镜”，没有看到被中共掩盖的事实。 “
+
+韦德说：”我认为我们看到了中共国持续的宣传努力在起作用，但是，你知道，这不是所有的问题，这只是我们媒体的盲目性，如果我可以这样说的话–我们太两极化了，无法看到科学问题本身而不给它们涂上政治色彩。我们并不确定：我们面对两种可能的病毒的起源的可能情况。但是，如果你看一下所有的证据并问自己，根据目前的证据，哪种方案能更好地解释所有这些事实，至少在我看来，实验室逃逸的假说能更好地解释它。”
+
+韦德说： “我只能假设媒体被忽悠了，他们没有做必要的工作。”
+
+的确，媒体为了种种原因而反对病毒的实验室来源理论，而与此同时中共的触角已经深深地控制了美国的宣传人员，尽一切力量兜售他们所想要的宣传。
+
+新闻来源：[零对冲](https://www.zerohedge.com/covid-19/wapo-head-fact-checker-glenn-kessler-heckled-over-lab-leak-flip-flop?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
 0

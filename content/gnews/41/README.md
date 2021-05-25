@@ -1,40 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报—疫情篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1271522/)
+## 【时事解析】中共已渗透到德特里克堡的美国军事生物防御项目
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1270875/)
 
-- 作者：此生灭共
+作者：休斯敦星光农场 写作部 文顺
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
+5月23日，塞林博士发表在GP新闻网的报道指，中共通过弗雷德里克国家癌症研究实验室渗透到德特里克堡的美国军事生物防御项目。
 
+塞林博士通过对发表于2017年的题为”人类单克隆抗体对SARS冠状病毒分离物的有效交叉反应性中和”的科学论文的作者及其背景进行调查，发现其中共国背景的作者与中共军方有千丝万缕的联系。
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24011152/Screenshot-2021-05-24-001010.jpg)
 
-**西班牙2021年5月25日电/西喜社——**
+*图片来源：THEGATEWAY*
 
-若你想了解新闻全文报道内容，请点击标题链接
+该论文由来自弗雷德里克国家癌症研究实验室、USAMRIID的病毒学部门和安东尼·福奇（Anthony Fauci）博士的国家过敏与传染病研究所（NIAID）的科学家们合作完成。
 
-**1. [印度的每日COVID-19上升幅度自4月14日以来最低](https://www.reuters.com/world/india/india-posts-lowest-rise-daily-covid-19-cases-since-april-14-2021-05-25/)**
+论文作者中的朱中玉和肖晓东，是中共国培养的弗雷德里克国家癌症研究实验室科学家。他们处理的许多高度危险的病原体，正是中共的生物战计划中所研究的病原体。
 
-路透社5月25日电，印度周二公布，过去24小时内新增196,427例冠状病毒新病例，COVID-19的死亡人数增加了3,511例,是自4月14日以来的最低每日感染量上升，该国目前的总病例数为2695万，总死亡人数为307,231。
+作者之一的姜世波，与美国其他主要的病毒研究实验室建立了广泛的合作研究网络，并获得了超过1700万美元的美国研究资助，其中绝大部分来自安东尼·福奇（Anthony Fauci）博士的NIAID。同时，姜世波与中共的解放军实验室保持着广泛的合作研究，并邀请与中共军方有联系的科学家何玉贤进入他的美国实验室并进行培训。据信，姜世波参与了在COVID-19病毒中插入furin蛋白酶切位点的工作，这是证明其实验室来源的 “烟幕弹 “证据。
 
-**2.[日本将延长对COVID-19的紧急状态](https://english.kyodonews.net/news/2021/05/0c09ab552aa6-japan-eyes-extension-of-covid-19-state-of-emergency.html)**
+作者之一的王林发在武汉病毒研究所工作，是 “蝙蝠女 “石正丽的长期合作者。
 
-共同社5月25日电，日卫生部长田村纪久表示，由于日本最新的冠状病毒，感染人数尚未大幅减少，使医疗系统承受了巨大压力，政府将考虑将东京，大阪和其他七个县的COIVD-19紧急状态延长,超过目前预定的下周初结束日期。
+作者之一的拉尔夫·巴里奇是世界上最臭名昭著的 “功能增强实验 “研究者之一，曾与武汉病毒研究所的石正丽等人合作，他们的关系最终都指向解放军（PLA）。
 
-**3.[马来西亚报告了7289例新的冠状病毒病例](https://www.straitstimes.com/asia/se-asia/malaysia-reports-record-7289-coronavirus-cases-highest-daily-count)**
+作者之一的曾宪坤，更是通过弗雷德里克国家癌症研究实验室，成功进入美国陆军传染病医学研究所（USAMRIID）工作。
 
-海峡时报5月25日电，马来西亚报告了7289例新增的冠状病毒感染，这是该国最高的每日新增记录。该国东部州卫生署署长罗斯玛瓦蒂·阿里芬博士说，在砂拉越州东部，自三月以来病例一直增加，仅五月份，该州平均每天就有三人死亡。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24011848/Screenshot-2021-05-24-001246.jpg)
 
-**4.[美国在奥运会前几周发布日本旅行警告](https://www.bbc.com/news/world-asia-57236769)**
+*图片来源：THEGATEWAY*
 
-BBC 5月25日电，在东京奥运会前几周进行的严格审查中，美国针对日本的Covid-19激增向日本发出了旅行警告。美国疾病控制中心（CDC）表示，[旅行者应避免前往该国的所有旅行](https://wwwnc.cdc.gov/travel/notices/covid-4/coronavirus-japan)，并警告，即使是完全接种疫苗的旅行者也可能有获取和传播Covid变种的风险。
+曾宪坤在中共国南京东南大学生命科学学院发育基因与人类疾病教育部重点实验室获得博士学位。该实验室与南京军区有密切的合作，现在是解放军东部战区司令部的一部分。而COVID-19病毒的创造和交付似乎与南京的解放军东部战区司令部有关，特别是解放军军官王长俊。
 
-**5.[台湾报告542例COVID-19病例，6例死亡](https://focustaiwan.tw/society/202105250016)**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24011942/Screenshot-2021-05-24-001316.jpg)
 
-聚焦台湾5月25日电，台湾周二报道了542例国内COVID-19病例，周二的新病例使该国的总数达到5456人，目前台湾已有35人死于COVID-19，其中包括自5月15日以来的23人。
+*图片来源：THEGATEWAY*
 
-审核：蚂蚁兄弟； 校对：信心满满； 发稿：信心的选择
+2015年10月，曾宪坤仍然声称与南京的东南大学有联系。此外，即使在受雇于USAMRIID期间，曾宪坤仍与中共国的病毒研究项目保持密切联系。 2018年10月9日，其在武汉病毒学研究所做关于致命的埃博拉和马尔堡病毒的讲座。
 
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+报道称，位于德特里克堡的美国陆军传染病医学研究所（USAMRIID）长期以来一直是解放军的间谍活动目标。而位于德特里克堡内、离USAMRIID只有几分钟的步行路程的弗雷德里克国家癌症研究实验室则是中共解放军完成间谍活动的途径之一。
 
-+2
+塞林博士在报道中强调：“曾宪坤可以接触到美国军方和NIAID关于美国生物战防御的最敏感信息。”
+
+由此看出，中共间谍在美国军方要害部门早已布局，详细周密，并成为中共此次全球投毒、放毒的帮凶！
+
+信息来源：
+
+[https://www.thegatewaypundit.com/2021/05/exclusive-china-infiltrated-u-s-military-biodefense-program-fort-detrick/](https://www.thegatewaypundit.com/2021/05/exclusive-china-infiltrated-u-s-military-biodefense-program-fort-detrick/)
+
+编辑：H.B 校对：Helen 发稿：文柳
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
+0
