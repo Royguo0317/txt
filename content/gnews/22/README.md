@@ -1,32 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2020/05/24-002 文贵先生盖特精华
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1271530/)
+## 【3秒灭共】中国经济即时动向
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1270998/)
 
-听写： Jennifer | 校对/审核：樂禧禧 | Page: Daoiii
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Gnot1O2RiNZq3/images/9dc64149-a52d-4820-b535-43bb385624ad.png?asset_id=b31f576d-4ccb-43a8-aa97-74974ebcb645&amp;img_etag=%221bacb6ea603f6bc7ddec8ee5ad338973%22&amp;size=1024)](https://spark.adobe.com/page/Gnot1O2RiNZq3/images/9dc64149-a52d-4820-b535-43bb385624ad.png?asset_id=b31f576d-4ccb-43a8-aa97-74974ebcb645&amp;img_etag=%221bacb6ea603f6bc7ddec8ee5ad338973%22&amp;size=1024)
-
-**5月24号：尊敬的战友们好！全世界都在用生命和代价来证明极权后的政府能干大事是否是正确的，全世界用生命和血汗在证明极权后的财富，最后由谁说了算……？被极权谎言愚弄的时代即将成为历史！(接上)**
-
-[盖特链接](https://gtv.org/getter/60aba4a9744cbc431363c4f4)
-
-1. 在日本、印度、非洲联盟、中东联盟昨天都开了会，一致说是共产党病毒，要么在未来中美之战选边站，要么和共产党站在一起，所有人一致同意不和共产党站在一边。
-2. 叶简明和立陶宛、拉脱维亚等国家有很深关系。立陶宛被共产党羞辱到极点，拉脱维亚、立陶宛、沙特全部和共产党翻脸。
-3. 炒币就是共产党和华尔街在炒，未来炒比特币的人一定会在美国和中共之间提出法律诉讼战，它是一个骗局。中国几个家族控制着这个事件和政权。
-4. 欧洲、美国的企业都在悄悄的跑，只有傻瓜才往里进，看到的都是虚像和化了妆的脸。这是新中国联邦的时机！接下來各个领域科技、知识、好莱坞、农业都会像多米洛骨牌一样倒下去。福奇承认是实验室出来的病毒，只有灭共，否则你没法交代！
+作者：休斯顿星光农场 写作部 FY（火星）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
+- [复星国际累计购入复星医药逾8亿元股份 增持计划已完成一半](https://cn.reuters.com/article/fosun-pharm-stock-0524-idCNKCS2D50)
 
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+5月24日，中共国复星医药2196.HK600196.SS称，控股股东复星国际0656.HK累计动用逾8亿元人民币购入公司约1.01%的股份，增持计划已完成一半。
+
+据报道，复星国际拟于2020年12月1日起12个月内动用不低于1亿元、累计增持不超过复星医药2%的股份。
+
+- [压力山大 马云将辞去湖畔大学校长](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210524-)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+5月24日英国《金融时报》报道，阿里巴巴集团创始人马云即将辞去自己创建的湖畔大学校长职务。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Gnot1O2RiNZq3/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Gnot1O2RiNZq3/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+分析指，马云及阿里巴巴的遭际与其于去年10月直言批评当局有关。但郭先生早在2017年爆料之初便对马云的结局做了定论——非死即刑。
+
+- [科兴中维一季度利润或达100亿元](https://new.qq.com/rain/a/20210524A0DBRE00)
 
 
+5月24日，国君医药丁丹团队表示，截止21年4月1日，科兴中维新冠灭活疫苗向全球27个国家和地区累计发货量达2亿剂（含半产品），全球累计接种量达1亿剂。
 
+根据中共国生物制药(01177)业绩推算，科兴中维一季度利润有望接近100亿。灭活疫苗单支净利润约50元。
+
+有评论称，未上市的科兴中维才是疫苗产业链“吃肉”最多的公司。目前来看，中共发动生物武器超限战，确实吃到“肉”了。
+
+- [养殖业龙头牧原股份 罕见暴跌](http://finance.sina.com.cn/stock/relnews/cn/2021-05-24/doc-ikmyaawc7257851.shtml)
+
+
+5月24日，随着猪肉价格持续下探，“猪茅”牧原股份股价出现暴跌，盘中甚至一度封住跌停价89.04元，总市值跌至3300亿元。最终收盘报90.44元，大跌8.58%，股价创3个多月来的新低。
+
+牧原股份相关负责人表示：“公司股价走势是市场行为，目前公司生产经营并未发生特殊变化。”这位负责人同时直言，近期不断下跌的猪价令行业整体承压。
+
+- [芯片短缺影响29款车型 一汽大众拟减产30%](https://finance.ifeng.com/c/86VeQ5ck54a)
+
+
+5月24日讯，一汽大众二季度在ESP芯片短缺减产2万辆的基础上，还额外因10种芯片类资源缺乏，影响29款车型生产。预计二季度只能生产40万辆汽车，减产比例达30%。
+
+编辑：文顺 校对：Helen 发稿：文柳
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
 0
