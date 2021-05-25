@@ -1,23 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄专家称新变种病毒更可能导致染疫者死亡
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1269542/)
+## 【中共】要求美国 停止阴谋论
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1269565/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+```
+新闻来源：意大利安莎通讯社（ANSA）
+发布时间： 2021年5月24日
+翻译整理/简评： 斩草要除根
+```
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24142316/D-7.jpg)reddit.com
-5月23日，据塔斯社报道，中共病毒感染的新变种比已经知道的毒株更容易导致感染者死亡。伽马利亚中心的病原微生物种群变异机制实验室负责人弗拉基米尔·古申周日在接受“俄罗斯电视一台”采访时这样说。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24130337/6-30.jpg)
+关于美国《华尔街日报》周日根据美国情报发表的每日新闻发布会上，说冠状病毒是从武汉的一个高安全性实验室逃逸的。外交部发言人赵立坚说中共国反对并敦促美国停止阴谋论。
 
-“不幸的是，这些突变会增加冠状病毒病程的严重性。部分感染新变种的病人比感染旧变种的病人更有可能死亡。”他说。
+有关这一主题的最新报道是根据在湖北省首府武汉市，有来自病毒研究所的三名研究人员在2019年11月患病就医，因此质疑中共病毒首次爆发可以被确定于2019年11月。
 
-Rospotrebnadzor中央流行病学研究所人类疾病诊断新方法开发科学小组组长卡米尔·哈菲佐夫（Kamil Khafizov）早些时候告诉塔斯社，没有证据表明在俄罗斯联邦发现的新突变可能导致中共病毒更严重的病程。
+#### 简评:
 
-正如Skoltech的新闻服务在4月底援引大学教授格奥尔基·巴泽金（Georgy Bazykin）的话报道，俄罗斯科学家发现，俄罗斯大多数新的中共病毒感染病例都与两个相对较老的毒株B.1.317和B.1.397+有关，而中共病毒的新变种在俄罗斯尚未广泛传播。世界上至少已经存在四种新的中共病毒菌株：印度、英国、南非和巴西。
+很多媒体都开始转载美国《华尔街日报》的这篇新闻报道，这对中共国而言是非常不利的，中共对病毒来源问题一直以来都是百般遮掩，百口狡辩。然而世界并不会就此放过它。
+（本文只代表译者观点，与Gnews平台无关。）
 
-参考链接：
+**新闻原文链接：**
+🔗[Covid: Cina contro Usa, stop alle teorie del complotto](https://www.ansa.it/sito/notizie/topnews/2021/05/24/covid-cina-contro-usa-stop-alle-teorie-del-complotto_804a6501-5c9a-4367-98b3-14bb59c5b444.html)
 
-[https://tass.ru/obschestvo/11448341?utm\_source=twitter.com&utm\_medium=social&utm\_campaign=smm\_social\_share](https://tass.ru/obschestvo/11448341?utm_source=twitter.com&amp;utm_medium=social&amp;utm_campaign=smm_social_share)
+* * *
+
+***编辑整理/校对: **Ting Guo*
 
 0
