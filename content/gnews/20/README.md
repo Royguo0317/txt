@@ -1,33 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本寻求大幅增加国防预算以应对中共威胁
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1269843/)
+## 【墙内热搜】“叫兽”一声吼，广州疫苗接种率提高了六成
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1269890/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山媒体部 蜜蜂
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24185823/J-7.jpg)seattletimes.com
-共同通讯社 (Kyodo News)5月24日报道，日本执政党自民党的一个联合防务委员会周一批准了一项提案草案，要求面对中共在东中国海和南中国海日益增加的安全威胁前“大幅”增加日本的国防预算。
 
-这一寻求增加预算的举动正值包括中共在内的邻国纷纷增加国防预算，北大西洋公约组织(North Atlantic Treaty Organization，简称:北约)已经为其成员国设定了至少占国内生产总值2%的国防开支目标。
 
-据斯德哥尔摩国际和平研究所(Stockholm International Peace Research Institute)的数据，日本的国防预算长期以来一直占该国GDP的1%左右。日本2020财年的国防支出总额为5.31万亿日元(488亿美元)，占该国GDP的0.9%。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-与此同时，中共国的国防开支比2000年增加了10倍，现在是日本的4倍。
 
-政策制定者团队负责人大冢拓 (Taku Otsuka)表示，鉴于过去几年日本周边安全环境的剧烈变化，必须提高比2018年制定的《国防计划指南》(National Defense Program Guidelines)和《中期防御计划》最初设定的武器采购目标。
 
-他在会后告诉记者，“我们必须有一个合适的预算”来应对当前的局势，同时要考虑到日本在领导国际社会方面的地位，以及“处在一个安全状况恶化最严重地区的前沿”。
+北京时间2021年5月14日，新华社的微博上出现了一则消息，当中写道：“我最近也接种了国产新冠疫苗，感觉很好，希望大家尽快接种疫苗，为国家、世界，也为个人预防新冠尽一份力。”这是钟南山院士晒出的近日接种新冠疫苗的视频。他说，这是实现真正群体免疫的方法，国内接种疫苗的比例较低，应争取尽快达到70%-80%的接种率。
 
-党内人士担心，日本控制的东中国海尖阁诸岛(Senkaku Islands)可能在不久的将来被中共国占领。中共宣称对这些岛屿拥有主权，并称其为钓鱼岛。
+看到这样的报道时，笔者留言道：他靠莲花清瘟赚够了，又准备在国产疫苗里拿回扣！倘若只是赚点黑心钱倒也不是大事儿，但劝人打疫苗是杀人不见血啊！如若真要达到国内70%-80%的接种率，意味着疫苗大战即将升级。
 
-在闭门会议上，自民党议员们得出结论，政府也应该开始考虑修改防卫大纲和中期计划。
+![]()![](https://media.discordapp.net/attachments/824587088309649429/846415876324327495/image0.png)排队打疫苗的人群
 
-在即将提交给政府的提案中，该委员会还提到日本首相菅义伟(Yoshihide Suga)和美国总统拜登(Joe Biden) 4月份会晤后发表的联合声明。该声明提到日本决心“加强自身的国防能力”，以加强与美国的联盟和地区安全。同时，该提议警告称，如果日本的国防开支达不到应对周边安全局势所需的标准，其威慑能力将受到损害。
+果不其然，一周过后，中共在广州拿出了新招术，致使疫苗接种速度开始大幅推进了。一段大学群里的对话很说明问题：
+“一个75岁的老太太中招，搞到整座城的人不得安宁。”
+“我原来以为网传的，不一定可信，直到看到楼上转发视频，才不得不信了。有一例就拒绝一城人，很夸张。”
 
-参考链接：
+“打疫苗是要在网络身份登记的，网络通不过是不能打疫苗的，因为要与健康码挂钩”
+“快去打疫苗吧[偷笑]”
+“荔湾区阿婆这一例影响力超常：1）导致香港调整广东疫情风险级别，港人广东返港刚解除14天居家隔离，又重启了；2）广东人新疆去不了了；3）广州人打疫苗人数日均增六成；4）广州餐厅不允许十人以上聚餐了。”
 
-[https://english.kyodonews.net/news/2021/05/6477b3c3b98e-japan-ruling-party-seeks-drastic-defense-budget-rise-amid-china-threat.html](https://english.kyodonews.net/news/2021/05/6477b3c3b98e-japan-ruling-party-seeks-drastic-defense-budget-rise-amid-china-threat.html)
+原本笔者微信群里的同学就像之前钟南山讲得一样，打疫苗的比例极低，但被“叫兽”这么一忽悠，再配上荔湾区阿婆呈阳性的大幅度宣传，转眼间将要打疫苗的同学也提高了六成。尽管CCP的招招在骗，但每一个动作都逃不出新中国联邦人雪亮的眼睛。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

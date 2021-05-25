@@ -1,31 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 急于挑战美元的专制国家
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1269883/)
+## 【有声读物】什么是德先生文化爆料
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1270044/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24191904/27-7.jpg)
-据路透莫斯科5月24日报道，俄罗斯央行总裁纳比乌里娜(Elvira Nabiullina)周一表示，俄央行看到存在数字化本币的需求，计划在2022年开始测试数字卢布。
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
-俄罗斯正致力于在现有现金和非现金卢布的基础上推出数字卢布，以便利个人和企业的支付，并在面对西方制裁的情况下使卢布的使用更加全球化。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-在全球经济因为疫情原因被埋下无数隐患之时，美联储大肆“放水”让美元的地位已岌岌可危。因此前有中共的DCEP，后又有俄罗斯的数字卢布，都是有意挑战美元地位，都是赤裸裸地摆出一副要构建新的货币秩序的野心和企图。
 
-而美国卡尔巴斯就在前几天曾在媒体公开采访中表达明确观点：西方国家应远离中共国的数字人民币，而且他将中共的数字人民币比作特洛伊木马。
 
-根据文贵先生的视频所传递的情报，**中共在数字人民币的内部测试中，21次测试全部失败，失败的原因是发出去的货币就消失了**，这是很可怕的一个结果。中共鼓吹用区块链技术为DCEP赋能，而区块链的核心就是可追溯、不可篡改，但在实际的操作中，这些货币的消失就完全打脸了中共国所谓的“区块链”技术。另外，中共企图利用数字人民币对使用者进行全面的监控，也是险恶用心之意。未来只要使用数字人民币的消费者，所有的记录都会被中共掌控，而且可以随时随地用莫须有的罪名封锁你的账户，冻结你的资产。而当你所有的资产都是一堆数字的时候，只能欲哭无泪，毫无还手之力。
 
-**货币是一个国家的信用，而对中共这样一个不讲信用的政权，他们所创造出了信用货币，又怎能被世界接受呢？**最终被上枷锁的，又是可怜的14亿百姓。
 
-（本文只代表作者观点，与Gnews平台无关。）
 
-**新闻来源：**
 
-1、[俄罗斯央行计划2022年开始测试数字卢布 | 路透 (reuters.com)](https://cn.reuters.com/article/russia-cen-digital-rouble-0524-idCNKCS2D50Y5?il=0)
+读德教启蒙第七期有感：这一期德先生向战友们阐述何为德先生的文化爆料。其实文化爆料也是爆料革命的一部分，我们通过爆料革命，推翻CCP这个邪魔恶党，建立起民主与法治的新中国联邦。但是CCP推翻后，中国就一夜之间变好了吗？人心被洗脑了70多年，如何消除华人思想上的各种毒，这就是郭先生提到的正道主义，也是德先生讲的文化爆料，也就是现在的德教云书院。
 
-2、[(18) Kyle Bass: Communist China Still a Bad Investment; Dan Peña: Great Time to Buy a Biz | NTD Business – YouTube](https://www.youtube.com/watch?v=DCUSHNgGbxg&amp;t=724s)
 
-***校对发布**：文顾*
+
+**文字版原文：[【战友心声】什么是德先生文化爆料](https://gnews.org/zh-hans/1265726/)**
+
+作者：纽约香草山美食部 Rainer
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】任劳任怨的蜜蜂们，做个自由自在的苍蝇吧
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1270102/)
+## 【有声读物】中共偷盗本性的根源
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1270165/)
 
-配音：香草山录音组 蒙古鸿雁
+配音：香草山录音组 Kikii
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,18 +14,17 @@
 
 
 
-有次参加一个会议，台下一群企业主和公司高管，而邀请的却是前地方党委书记给我们讲创新。此人眉飞色舞，PPT做得漂亮无比，可内容却让人仿佛有吃屎的感觉。一个扼杀创新的人在给我们讲创新，就像一个披着蜜蜂皮的苍蝇在给台下的一群蜜蜂讲怎么采蜜。我难以忍受这狗屁理论，可周边却掌声不断，匪夷所思的我转眼一看，原来周边也全是披着蜜蜂皮的苍蝇。一想到这，如鲠在喉的我只得离开那个让人恶心生厌的地方，从此不再参与。
+曾有一段时间，网友们称中共国为山寨国，称中国制造为山寨。甚至中共和一些受共匪洗脑的人一度以中国世界第一山寨国的地位而沾沾自喜。若能正大光明地学习、模仿、复制当然确实也是一种不错的能力，但中共的行为却并不能被归于此类。从它强迫转让技术，用间谍蓝金黄渗透偷盗等行为来看。只能将其行为定义为盗窃、剽窃。
 
 
 
-**文字版原文：[【独立观点】任劳任怨的蜜蜂们，做个自由自在的苍蝇吧](https://gnews.org/zh-hans/1264349/)**
+**文字版原文：[【信仰之声】中共偷盗本性的根源](https://gnews.org/zh-hans/1269463/)**
 
-作者：纽约香草山写作组 程万里
+作者：纽约香草山福音部  山城小哥
 
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+音频处理/发稿：雪梨
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 

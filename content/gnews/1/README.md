@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】强制打疫苗，文革进行时
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1270113/)
+## 【有声读物】华人散沙化的现状与出路
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1270185/)
 
-配音：香草山录音组 蒙古鸿雁
+配音：香草山录音组 Kikii
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,20 +14,17 @@
 
 
 
-中共国正在发动全民打CCP病毒疫苗，用一切能控制的手段强制人民打CCP病毒疫苗。CCP专制、残暴、邪恶。中华大地正在上演一场新时代的文革。
-
-据笔者了解，墙内第一次大规模强制打CCP病毒疫苗是在3月底，主要是推动机关事业单位国企（即体制内）人员打。没打CCP病毒疫苗的人必须提供不适宜接种的相关证明。没有该证明的人必须去打，单位领导说这是政治任务。
+前段时间，四川成都又发生一起中学生被跳楼死的事件。中共一开始拼命解释为自杀，后来又甚至八竿子打不着地甩锅给“国际敌对势力”。而据知情者透露，这又是一场中共体制内人员对该学生有目的的虐待和谋杀。几天之后的现在，似乎一切都又平息，不了了之了。早在2017年，同在四川，笔者故乡泸州市太伏县中学一个学生赵鑫也是同样被跳楼死。根据当时的照片显示和同学里的知情者的讲述，该学生是被中共体制内官员的孩子活活虐待打死，然后抛尸窗外的。最后被中共强行解释为自杀。这两起事件，因为有人关注，在网络上引起了一场风波，但最终还是不了了之。
 
 
 
-**文字版原文：[【墙内热搜】强制打疫苗，文革进行时](https://gnews.org/zh-hans/1264402/)**
+**文字版原文：[【信仰之声】华人散沙化的现状与出路](https://gnews.org/zh-hans/1262362/)**
 
-作者：纽约香草山写作组  木白
+作者：纽约香草山福音部  山城小哥
 
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+音频处理/发稿：雪梨
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 

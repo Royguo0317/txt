@@ -1,40 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [疫情下的西班牙]欧盟拒绝开放中共病毒疫苗专利
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1269683/)
+## 中共挑拨美俄关系&nbsp; 挑起巴以冲突&nbsp; 绑架14亿人民与犹太人为敌
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1269991/)
 
-- 翻译：gokuabuela
+**摘要：在2021年5月21日的盖特视频中，郭先生说中共挑拨俄罗斯和美国的关系，然后他的一位俄罗斯内部的朋友说，俄罗斯只想利用中共，普京不会做给中共做实际的事情。中共还借着巴以冲突公然挑衅犹太人，中共14亿老百姓如果跟着共产党走，会死无葬身之地。他呼吁：“中国同胞醒来吧，醒来吧！”**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24205300/Miles_2021-05-21_getter-p2.srt.txt)
+**中共挑拨美俄关系  挑起巴以冲突  绑架14亿人民与犹太人为敌**
 
+**The CCP Incites Countries to Fight Against Each Other and Invokes Hatred and Discrimination Toward Jewish People**
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+大家都看到了世界的形势，可以说是每时每刻都在以历史上前所未有的巨变的速度在变化中，无论是地缘政治、军事格局，还是一个热点冲突，还是能源，还有一个整个的资本的流动，都在剧烈的变化中。
 
-**西班牙2021年5月24日电/西喜社——**
+We have all seen that the world, so to speak, is changing at a historically unprecedented rate every moment. Whether it is geopolitics, the military landscape, a hotspot conflict, or energy, or the overall capital flow, are all in the midst of dramatic changes.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/107322487_gettyimages-1027752634_mh1614961600575-1.jpg)
+大家也能看到，现在老共使劲儿挑拨俄罗斯和美国的关系，你看他就是烂招儿。他们想学英国人在历史上挑拨离间，分化，是吧，然后分离，让你内斗，这个差太远了，共产党就是 low 到不能再 low 了。
 
-欧盟27国领导人预计将在明天通过今天下午开始的首脑会议的结论文件，但没有提及中共病毒疫苗的专利自由化问题。尽管在各代表团之间传阅的文本提到需要 “确保全球公平获得 “疫苗，但欧洲人更愿意引用今年早些时候在罗马举行的20国集团全球卫生峰会中的宣言，其中提到了 “自愿知识产权许可协议、技术和知识的自愿转让以及按双方同意的条件建立专利池等工具”，但没有提到暂停专利。
+As you can see, now the CCP is trying hard to provoke the relationship between Russia and the United States. You can see that it is a bad move – they want to learn from the British in the past to alienate the two countries and incite one against the other, right? And then to cause them to turn away from each other and fight against each other. It (the CCP) is very far [from being successful]. The CCP is so low that you can’t imagine how it could go any lower.
 
-欧盟领导人明天将通过的文件中提到，“只有通过全面的全球应对措施才能控制该大流行病的影响”。欧盟是世界上最大的中共病毒疫苗出口国，并将继续努力提高全球疫苗的生产能力以满足全球需求。欧洲理事会呼吁加强工作，确保全球公平地获得疫苗，并支持COVAX在这方面的领导作用。欧盟及其成员国承诺加速交换疫苗以帮助有需要的国家，目的是在年底前至少捐赠1亿剂疫苗，并帮助发展符合《罗马全球卫生峰会宣言》标准的当地制造能力。
+结果是俄罗斯的内部，咱们的朋友就说，他说：“我们就想在中国弄些钱，知道他们完蛋了，就想多弄点钱，再一个把历史上未确定的事情，我们确定下来。不就是口头承诺嘛。”他说现在共产党跟我们玩什么？想玩让我们和美国人斗，他说那是不可能的。人家普京也很聪明，你让我喊两嗓子，我就喊两嗓子，是吧，但是实际的事是不可能。但是国内的这些小粉红们，愚蠢到自娱自乐，愚蠢的“愚”自娱自乐的程度，然后就这么疯狂。
 
-**简评：**
+Well, our friend, who is an insider of Russia, said, “We (the Russians) just want to get some money from China. Knowing that they will be finished soon, we just want to squeeze more money from them. And also we need to get some undetermined historical issues resolved. Isn’t it just an oral contract? ” He said, “What the CCP is playing with us now is to trick us to fight with the Americans. That is impossible.” Putin is very smart, knowing that you (the CCP) let me shout out loud for you, so I will do that for you, which is fine, but doing anything concrete is impossible. However, those “little pinks” (young cyber-nationalists in China) are so stupid to the extent of self-indulgence and even fooling themselves by celebrating all this. So crazy!
 
-**暂时放弃中共病毒疫苗专利，是美国拜登政府首先提出的。但我们先要清楚一点，联邦政府并没有权力去插手医药行业的专利问题，专利问题属于私权。拜登提出的是在世界贸易组织框架下讨论“修改国际协议”。 在世贸组织的体系下，《与贸易有关的知识产权协定（TRIPS）》要求成员国以不低于本国知识产权的保护标准保护其他成员国的知识产权，其中专利权部分参照《巴黎公约》执行。签署TRIPS协定是进入WTO的强制要求，即164个成员国都参与了此协定。**
+世界的风向不是在变，[而是]世界的民心在凝聚，世界的人心在凝聚和所谓的风向在改变是两个概念。连巴勒斯坦，巴以战争在历史上那么多次冲突，这次最重要的最危险的冲突当中，犹太人第一次在犹太人的社区里面，和犹太社会圈里面提出来，这个背后的黑手就是伊朗，就是中国共产党。第一次犹太种族得到了公开的共产党的羞辱和歧视和攻击。
 
-**拜登此举我们认为有借花献佛之嫌，最积极提出放弃专利的是印度和南非，而心中最高兴的应该是中共。与其说疫苗生产的关键在专利，不如说是在工艺。对绝大多数国家来说，即使有了专利，你也无法生产，因为工艺太复杂了。但中共不同，中共急需突破MRNA这一技术壁垒。拜登没有权力去修改专利协议，但他提出了这点，在道德高地获得了印度、南非等大多数国家，甚至包括俄罗斯、中共的支持。**
+The world is NOT just switching gears, rather people’s hearts are getting united. Switching gears and getting united are two different concepts. Look at Palestine. Palestine and Israel had so many conflicts in history. During the recent conflict, which is the most important and most dangerous one, the Jewish people for the first time raised the point in the Jewish community and the Jewish social circle that Iran and the Chinese Communist Party were behind all this. For the first time, the Jewish people were openly humiliated, discriminated against and attacked by the CCP.
 
-**美国的药企是真正有权力做出是否放弃专利保护的决定的，但他们毕竟人单势孤，真正的决定力量在欧盟。欧盟的说法也有道理：“重要的是工艺，给了你专利你也不能生产，还不如我来生产，最多我多捐赠一点给有需要的国家”。**
+共产党绑架了14亿中国人民，要与用犹太人为敌，然后共产党要把这个种族的矛盾和歧视犹太人，种族歧视和种族蔑视，把科学化、知识化、历史化、政治化、经济化，然后把它给种族政治战争化。
 
-**世贸组织框架下，如果修改了专利保护协议，也就是说不仅仅是中共病毒疫苗，其他药物的专利保护政策也是可能会产生变化，从而引起整个医药研发行业的颠覆性变化。专利保护，一方面确保药企有动力研发新药物，另一方面，也把“生命权”交到了少数几个药企手里，而且也大大提高了普通民众获得药物的成本。记得2017年，川普总统曾经说过要“降低处方药的价格”，本质上就是要改变药企的专利保护协议。**
+The CCP has kidnapped 1.4 billion Chinese people to be enemies of the Jews. And then the CCP wanted to make this racial conflict and discrimination against the Jews, the racial discrimination and racial contempt to become a scientific, intellectual, historical, political and economic issue, and lead it to a racial, political war.
 
-**其实，背后就是生命权的争夺，集中还是分散？究竟利大还是弊大？会不会给中共趁机拿了好处？在这样一个复杂的形势下，这样一个复杂的话题，值得我们深深关注。**
+大家想想可怕不？就是中国人如果你再跟着共产党，你不是走进火葬场，你连走进火葬场的机会都没有。看到巴勒斯坦的那些将领了吗？看到伊朗的那些将领，怎么被被斩首的吗？就是你跟着共产党，你都不知道咋回事，就上面“叭唧”就把你切成肉泥了，那个肉不都在车里面，不知道嘣哪去了，可能被人野狗吃了都有可能，你想去火葬场都不可能。这是共产党给中国人带来最大的威胁，洗你的脑，要你的钱，要你的生殖器，给你搞双修，都不算事儿，这是每天在发生的。要了你的命，还要让你天天替他高兴，然后你还要连进火葬场的机会都没有。真的，中国同胞醒来吧，醒来吧。
 
-素材：gokuabuela； 审核：Aries的星； 校对：阿伯塔； 发稿：信心的选择
+Is it scary? If you still follow the CCP,  you will not “walk” into a crematorium (meaning die with the CCP), because you will not even have the chance to “walk” into a crematorium. Did you see the generals in Palestine? Did you see how the generals in Iran were diced into pieces before knowing it? If you follow the CCP, your flesh will be iced into pieces without knowing it, and not all the flesh would be found in the car, some pieces might not be located and could be eaten by wild dogs, so there wouldn’t be a chance for your body to go to a crematorium. This is the biggest threat that the CCP brings to the Chinese people. Washing your brain, demanding your money, controlling your genitals, or having sex with you, is nothing compared to that, for those are happening every day. It will take your life, but it asks you to feel happy for it every day, and you don’t even have the chance to go to the crematorium. Seriously, wake up, my Chinese compatriots!
 
-**新闻来源：**[ABC新闻](https://www.abc.es/sociedad/abci-lideres-europeos-reiteran-oposicion-liberalizar-patentes-vacunas-202105241451_noticia.html)
+*（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60a7bc16d48e020926645716](https://gtv.org/getter/60a7bc16d48e020926645716) (0:06-1:36, 5:19-7:19)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1262482/](https://gnews.org/zh-hans/1262482/)*
 
-[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
+* * *
 
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+**翻译：【一花一世界】
+字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 +1
