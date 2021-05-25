@@ -1,53 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “事实核查员 ”纷纷转向 称中共病毒实验室来源可信
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1271899/)
+## 【世事解评】另一类的“气候变化”
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1270374/)
 
-- 编译：云起时
-
-
-《零对冲》5月25日报道，近期中共病毒 “实验室泄密 “理论终于获得了主流的合法性，而且随着福奇博士承认他现在对实验室来源的可能性持开放态度，曾经自鸣得意地断言实验室泄密为 “被推翻的阴谋论 “的机构 “事实核查员 “们，现在正争相改口以挽回自己的声誉。
-
-最近一个屈膝转向的“事实核查员”是《华盛顿邮报》的格伦-凯斯勒（Glenn Kessler)。
-
-去年凯斯勒称一个暗示实验室意外泄漏的视频 “值得怀疑”，参议员特德-克鲁兹（Ted Cruz)在回应中指责华尔街日报 “放弃了所有新闻的伪装来制作中共的宣传品”。为此凯斯勒发出了一条尖酸刻薄的推文嘲笑克鲁兹，并声称基于“事实”，病毒几乎不可能来自实验室。
+作者：纽约香草山翻译部   鹦鹉
 
 
 
-> I fear [@tedcruz](https://twitter.com/tedcruz?ref_src=twsrc%5Etfw) missed the scientific animation in the video that shows how it is virtually impossible for this virus jump from the lab. Or the many interviews with actual scientists. We deal in facts, and viewers can judge for themselves. [https://t.co/TprMnaHSZL](https://t.co/TprMnaHSZL)
-> — Glenn Kessler (@GlennKesslerWP) [May 1, 2020](https://twitter.com/GlennKesslerWP/status/1256267931220049920?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
 
 
 
-近一年后的今天，凯斯勒在最新发表的推特中宣传了他的新文章，题为 “武汉实验室泄密理论如何突然变得可信
+自从拜登政府上台后，全球气候变化又再一次成了媒体和科学领域针锋相对的拉锯战问题。笔者对气候问题和气候治理多边主义的理论知识了解浅薄，不具备足够资格来谈论有关这方面的问题，但是笔者注意到另一类的“气候政策变化”正在酿成，而且已经确确实实地存在：那就是对冠状病毒的来源和起因的调查，对中共正确的认识和反击已在各种领域中形成。最近的两篇由美国左派记者所发表的文章是最典型的例证。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25150401/38-4.jpg)图源网络
+
+第一篇是由左派资深记者、作者Jamie Metzl在其推特上推荐的文章。该文章的作者是拥有物理学和政治哲学学位，现任弗吉尼亚大学文化高级研究学院高级研究员的Mattew B. Crawford。文章主要指出，科学领域存在一种垄断现象，即压制挑战权威专家的言论。这一现象表现在，冠状病毒疫情爆发初期所谈论的病毒来源可能来自于实验室而不是自然界的言论，被几位著名的病毒学家否认并定为“阴谋论”而加以打击封口。但是，这种情况当下正在逆转发生。今年5月2日，资深科学记者Nicolas Wade发表了一篇关于病毒来自于实验室假说的长篇详细报道，此后引起了一连串的反应，其中之一来自18位科学家在《科学》杂志上签暑了一封题为“调查COVID-19的起源”之联名信。《纽约时报》指出：“许多签名者都是对此冠状病毒首次发表公开言论。” Crawford的文章同时也指出，2020年2月的《柳叶刀》和2020年3月的《自然医学》病毒声明文章，应属于专栏文章，而不是科学论文。再有，因Daszak博士的组织和武汉病毒学研究所之间的关系，以及其对冠状病毒研究的资助，当中所产生的利益冲突，使得Daszak的病毒自然起源声明被严重的质疑。这是医学科技领域的“气候变化”现象形成的体现。
+
+第二篇由好莱坞左派记者Patrick Brzeski撰写，文章长达20多页。文章是以美籍华裔赵婷荣获奥斯卡最佳导演奖为开端，但因为她曾经对中共发表的真实言论而遭到中共在中（共）国境内全面封杀。文章中间段引用了众多中共的数据——关于这一大段笔者认为，其主要目的是替好莱坞洗地——好莱坞为了获得在中（共）国国内巨大的经济利益而屈从于中共，对中共践踏言论自由和人权的行为保持缄默。而该篇文章的尾段才是真正最为核心的一段（曾经有个文学教授说过，如果你的时间不够读长篇论文时，你就只读开头和结尾，开头是引你进入文章，结尾才是文章最重要、作者最想传达给读者的核心观点，中间部分基本上都是各种例证，如果没时间的话可以越过）。记者写道：“当好莱坞继续对中共的人权侵犯行为睁一只眼闭一只眼时，国会并没有这样做。俄勒冈州参议员Jeff Merkley向参议院提出立法，要求拜登总统建立跨部门专责小组，以制定和执行政府策略，来监督和应对中（共）国政府对个人和实体的审查或恐吓，包括企图审查或威胁在中（共）国开展业务的美国公司。该法案还要求无党派研究组织制定一份报告，详细说明中（共）国政府审查和恐吓的主要趋势、模式和方法。该报告必须包括针对实施言论自由问题特别严重的行业：媒体和电影行业。”
+
+该提议得到民主党参议员Elizabeth Warren和共和党参议员Marco Rubio的支持。南加州大学专门研究中（共）国电影业的教授Stanley Rosen说道：“当让Warren和Rubio一起支持同一项法案时，你就真的明白好莱坞和中（共）国在国会开始有问题了。”
+
+记者更进一步写道：“同时，在美国政府内部，推动对中（共）国采取强硬态度是两党达成深刻政治共识的唯一主要政策领域，这种情绪现在也广泛地反映在美国公众中。在美国政府将中（共）国作为一个紧要的经济和地缘政治对手的情况下，美国人对中（共）国的看法也像贸易政策一样迅速转变。Pew研究中心3月4日公布的一项调查发现，67%的美国人对中（共）国感到‘不友好’，比2018年持相同看法的46%上升了21个百分点。大约十分之九的美国成年人（89%）认为中（共）国是竞争对手或敌人，而不是合作伙伴，而48%的人——高于三年前的32%——认为限制中（共）国的实力和影响力应该是美国外交政策的首要任务。”
+
+Patrick Brzeski这篇长达20多页文章的标题为“从疯热到脱钩：中（共）国好莱坞浪漫情结正式结束吗？” 这是为好莱坞即将对中共的行动风向改变作出提前的预报。
+
+与此相似的文章和声音每天都在各种领域、不同地区、不同国家不断推出，如同一条条湍流的江水，充满漩涡和波浪，汇集成涌汹的波涛，咆哮奔腾地冲入沸腾的海洋，天崩地裂般地扑向中共，谁也无法阻挡。亲爱的同胞们，当你躲避冠状病毒的同时，也请务必防范此种可怕的“气候变化”到来时对你造成的严重伤害。请尽快加入爆料革命的队伍， 只有爆料革命的诺亚方舟才能阻挡这种具有里氏震级的风暴。这也算是笔者对此类“气候变化”的认识和预报吧。
+
+参考阅读：
+
+驻马尔代夫使馆临时代办于学勇在马新闻网发表署名文章《新疆是个好地方》\_https://www.fmprc.gov.cn/web/dszlsjt\_673036/ds\_673038/t1877361.shtml
+
+外交代表\_https://www.fmprc.gov.cn/web/ziliao\_674904/lbzs\_674975/t9044.shtml
+
+[新疆棉花到底是极其采摘还是人工采摘？真相在这里！](https://gnews.org/zh-hans/1028013/)
+
+[新疆棉花采摘到底是正常雇佣还是强迫劳动？真相在这里！](https://gnews.org/zh-hans/1038544/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 
-> Fact Checker | Timeline: How the Wuhan lab-leak theory suddenly became credible [https://t.co/rA8oJbQajT](https://t.co/rA8oJbQajT)
-> — The Washington Post (@washingtonpost) [May 25, 2021](https://twitter.com/washingtonpost/status/1397145022512910336?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
 
 
-
-凯斯勒的突然转向引起了广泛的关注。
-
-小川普回应道：”它并没有 “突然变得可信”，它一直是可信的。这一直是最合理原因。我能理解媒体一直想要的叙事，但难道没有人认为最可能的情况就是病毒神奇地源自与之合作的实验室吗？
-
-
-
-> It didn’t “suddenly become credible” it was always credible. It literally always made the most sense. I understand the desired narrative media always wanted but didn’t anyone think the most likely scenario was the virus magically originated feet from the lab that worked with it? [https://t.co/XO4Y5OlKLf](https://t.co/XO4Y5OlKLf)
-> — Donald Trump Jr. (@DonaldJTrumpJr) [May 25, 2021](https://twitter.com/DonaldJTrumpJr/status/1397173489254162435?ref_src=twsrc%5Etfw)
-
-
-
-1982年至2012年曾担任《纽约时报》科学时报栏目工作人员的韦德在接受马克-莱文的 “生命、自由与莱文 “采访时说，媒体没有 “摘掉政治眼镜”，没有看到被中共掩盖的事实。 “
-
-韦德说：”我认为我们看到了中共国持续的宣传努力在起作用，但是，你知道，这不是所有的问题，这只是我们媒体的盲目性，如果我可以这样说的话–我们太两极化了，无法看到科学问题本身而不给它们涂上政治色彩。我们并不确定：我们面对两种可能的病毒的起源的可能情况。但是，如果你看一下所有的证据并问自己，根据目前的证据，哪种方案能更好地解释所有这些事实，至少在我看来，实验室逃逸的假说能更好地解释它。”
-
-韦德说： “我只能假设媒体被忽悠了，他们没有做必要的工作。”
-
-的确，媒体为了种种原因而反对病毒的实验室来源理论，而与此同时中共的触角已经深深地控制了美国的宣传人员，尽一切力量兜售他们所想要的宣传。
-
-新闻来源：[零对冲](https://www.zerohedge.com/covid-19/wapo-head-fact-checker-glenn-kessler-heckled-over-lab-leak-flip-flop?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
 0
