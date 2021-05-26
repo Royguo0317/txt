@@ -1,37 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫呼吁世卫对中共病毒起源进行进一步调查
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1272015/)
+## 债务违约激增，中共国面临1.3万亿美元的天量到期企业债务
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1271536/)
 
-- 编译：云起时
+翻译：Ping
+校对：枳实
+![This image has an empty alt attribute; its file name is 2e0dd126-258d-4686-a9ab-ed85209f0e42]()![This image has an empty alt attribute; its file name is 2e0dd126-258d-4686-a9ab-ed85209f0e42](https://gnews.org/wp-content/uploads/2021/04/ganmianzhang-scaled.jpg)
+图片来源：墨尔本雅典娜农场设计组 姐夫说说
 
+即使按照全球信贷狂欢创纪录的标准，中共国的企业债券表也很突出。在未来12个月将有1.3万亿美元的国内应付债务。这比美国所有公司的债券多30%，比整个欧洲多63%，足够买下特斯拉公司两次。更重要的是，这些债券即将到期，而中共国的借款人正在以前所未有的速度拖欠在岸债务。
 
-《每日电讯报》5月25日报道，白宫新闻秘书詹-普萨基（Jen Psaki）周二表示，总统拜登的政府呼吁由世界卫生组织（WHO）而不是美国科学家来领导对中共病毒起源进行进一步调查。
+虽然投资者准备好迎接中国这个世界第二大信贷市场的另一个动荡期，但这也凸显了中共国当局面临的挑战。他们正努力实现两个相互冲突的目标：通过允许更多的违约来减少道德风险，并将国内债券市场变成一个更可靠的长期资金来源。近年来，美国、欧洲和日本的平均企业债券期限都在增加，而中共国的企业债券期限却在缩短，因为违约促使投资者降低风险。第一季度发行的中共国国内债券的平均期限为3.02年，低于去年全年的3.22年，并有望成为惠誉评级自2016年开始编制该数据以来最短的年度平均期限。
+![This image has an empty alt attribute; its file name is %E6%9C%AA%E5%91%BD%E5%90%8D2.png]()![This image has an empty alt attribute; its file name is %E6%9C%AA%E5%91%BD%E5%90%8D2.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25091727/%E6%9C%AA%E5%91%BD%E5%90%8D2.png)
+图片来源：推特
 
-在周二的简报中普萨基回答了记者的问题，这些问题涉及到中共病毒的起源问题，它从中共国武汉的一个冠状病毒研究实验室泄漏的可能性越来越大。
+“随着信贷风险的增加，每个人都想通过只投资于短期债券来降低他们的投资风险。”ING Bank NV的大中华区首席经济学家Iris Pang说。”发行人也想出售短期债券，因为随着违约的增加，较长期限的债券的借贷成本更高。”与此同时，中共国政府进行了改革措施，为当地信贷市场设立规则，而这些市场长期以来一直受到国家隐性担保的支持。在一连串的国有企业到期未付款和中共国华融资产管理有限公司发行的债券被抛售的情况下，投资者越来越多地开始怀疑这种隐性担保已经难以为继。
 
-虽然中共长期以来一直坚称该病毒是由动物自然传播给人类的，但越来越多的证据表明武汉实验室有嫌疑。
+中共国的在岸违约已经从2016年的微不足道的水平膨胀到连续四年超过1000亿元（155亿美元）。上个月再次达到了这一里程碑，使违约率再创年度新高。由此产生的对短期债券的偏好加剧了中共国的结构性挑战之一：长期机构资金的匮乏。甚至在当局开始允许更多违约之前，包括银行财富管理产品在内的短期投资就发挥了过大的作用。
 
-一位记者问到对中共国可能进行的进一步调查时问道：”拜登政府认为美国科学家或CDC科学家应该在该调查中扮演什么角色？“
+中航信托首席策略师吴兆寅说，社保基金和保险公司是中共国长期资金的主要提供者，但它们在债券市场上的投资在是有限的。”吴兆言说：”在中共国销售长期债券很困难，因为缺乏长期资金。中共国当局一直在采取措施吸引长期投资者，包括外国养老基金和大学捐赠基金。近年来，政府取消了一些投资配额，并取消了对寿险公司、经纪公司和基金经理的外资所有权限制。但是，即使这些努力得到了支持，目前还不清楚中共国企业是否会接受更长的期限。总部位于北京的精品投资银行–香颂投资公司(Chanson & Co.)的董事沈萌表示，许多公司更愿意出售短期债券，因为它们缺乏长期的资本管理计划。沈萌说，这甚至适用于国有企业，这些企业的高级管理人员通常每三到五年就会被政府重新调整一次。
 
-普萨基说：”世卫组织将是受监督的，透明和独立的第二阶段调查的机构。这是我们强烈支持的事情。这将需要中国最终站出来，允许进行必要的访问以确定其来源。当然，美国将支持第二阶段的调查，但它将由一个国际机构领导，”
+结果是，中共国的国内信贷市场面临着再融资和还款违约风险的无休止的循环，随着违约率的上升，这有可能加剧波动。类似的动态也在离岸市场上上演，在未来12个月内，离岸市场的到期债务总额为1670亿美元。
 
-记者问： “所以美国基本上不会发挥主导作用？”
-
-普萨基回答说： “我们在总统上任时重新加入了世卫组织，它是推动这项调查的适当机构。”
-
-共和党人长期以来一直呼吁对中共病毒的起源进行进一步调查。批评者还指出世卫组织在这一大流行病的早期曾转述过来自中共国的伪造数据。
-
-上周，国会众议院情报委员会成员曾发出一封信，敦促拜登政府对中共病毒的来源进行更多调查，并指出有 “重要的间接证据 “表明它是从武汉实验室泄露出来的；几乎没有任何证据表明存在人畜共患病传播的可能。
-
-
-
-> BREAKING: GOP House Intel Committee members agree w/ Dr. Ralph Baric, believe more investigation into COVID-19 origin is needed. Cmte: there's "significant circumstantial evidence" it leaked from Wuhan lab; next to 0 evidence of zoonotic transmission. Article coming soon.
-> — Jennifer Van Laar (@jenvanlaar) [May 19, 2021](https://twitter.com/jenvanlaar/status/1395162701773479941?ref_src=twsrc%5Etfw)
-
-
-
-新闻来源：[《每日电讯报》](https://dailycaller.com/2021/05/25/who-coronavirus-origins-china-biden-investigation-lab/?utm_medium=push&amp;utm_source=daily_caller&amp;utm_campaign=push)
+原文链接：[China Braces for $1.3 Trillion Maturity Wall as Defaults Surge – BNN Bloomberg](https://www.bnnbloomberg.ca/china-braces-for-1-3-trillion-maturity-wall-as-defaults-surge-1.1607653)
 
 0

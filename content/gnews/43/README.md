@@ -1,32 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我们正在经历第三次世界大战
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1271852/)
+## VOX网站悄悄修改驳斥中共病毒实验室起源的文章
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1271853/)
 
-```
-新闻来源：意大利晚报（corriere.it）
-发布时间： 2021年5月24日
-翻译整理/简评： 斩草要除根
-```
+蒙特利尔皇家山战友团 Spirit
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25132841/covi.jpg)图片来源：Vox.com
+根据《零对冲》（Zero Hedge）5月25 日的文章，左翼网站VOX被发现悄悄地编辑了2020年3月的一篇驳斥中共病毒实验室来源的文章，因为现在许多知名官员说实验室来源有很大可能性。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25132554/IMG_20210525_192508.jpg)图片来源：新浪
-国家统计研究所（*Istat*）的统计数据清楚地向我们显示了，我们已经并且正生活在第三次世界大战之中。去年2月以来发生的12万人死亡数相当于1940年6月10日至1943年9月8日的死亡人数总和（包括平民，军人甚至失踪人员在内），在人类生命方面，这发生的是一场灾难。
+作家和投资者保罗-格雷厄姆记录了这些改动，他在推特上说：”从2020年3月最初发表到现在，VOX对其驳斥中共病毒起源于实验室泄漏的 “阴谋论 “的文章进行了一些隐形编辑，包括删除病毒明确不是来自武汉实验室的字样，并说病毒在实验室所在的同一城市出现的事实 “似乎是纯粹的巧合”，而不是之前更明确的 “就是纯粹的巧合”。
 
-国家统计研究所的总裁吉安卡洛·布拉吉亚多（*Giancarlo Blangiardo*）在发表的统计研究所第八版《公平与可持续福祉报告》之际表示了这一点。布拉吉亚多（*Blangiardo*）解释说，具体地说，“我们已经看到，过去的预期寿命在逐步增加，除了一些罕见的时刻，但是2020年则是一场灾难。”
+最近安东尼-福奇博士首次承认，说中共病毒可能不是自然起源，我们需要彻查。上周，拜登的CDC主任说她仍然对病毒从武汉实验室泄漏的可能性持开放态度，科学团体也说实验室泄漏是可能的来源。
 
-总裁继续说：“这标志着预期寿命的急剧下降，在国家一级这大约为一年，在伦巴第一级则为两年半。这意味着我们在某些地方（例如贝加莫省）已经倒退了20年，在伦巴第大区至少已经倒退了10年。我希望2021年，2022年和2023年与2020年会有很大不同，但它可以使我们对所发生的事情有一定程度的认识。”
+在支持病毒从实验室泄露的可能性之后，Politifact也被迫撤销了一项 “事实核查”，因为过去认为中共病毒实验室泄露来源理论是错误的。
 
-#### 简评：
+一年多来，社交媒体网络将实验室泄露理论定性为 “错误信息”和“阴谋论”并在 “假新闻 “的保护伞下将其删除，不让民众看到真相。现在，越来越多的证据持续表明这种 “阴谋论 “实际上不仅是可信的，而且很可能是真实的，推进真相的脚步在加快，大势已趋，病毒真相不久会大白于天下。
 
-**就这场中共病毒大流行而造成的死亡人数而言，用“世界大战”来描述是一点不为过的，因为它根本不属于天灾，是人为故意制造的。这场大灾难本可以避免，但是所有的黑暗势力却成功的用病毒操控了这个世界。**
-（本文只代表译者观点，与Gnews平台无关。）
-
-**新闻原文链接：**
-🔗[Covid Bergamo, il presidente Istat: «Stiamo vivendo la terza guerra mondiale»](https://bergamo.corriere.it/notizie/cronaca/21_maggio_24/covid-bergamo-presidente-istat-stiamo-vivendo-terza-guerra-mondiale-7f09af9c-bc72-11eb-abb7-46b8b952d96c.shtml)
+[原文链接](https://www.zerohedge.com/covid-19/vox-stealth-edits-march-2020-article-debunking-lab-origin-covid?utm_campaign=&amp;utm_content=Zerohedge%3A+The+Durden+Dispatch&amp;utm_medium=email&amp;utm_source=zh_newsletter)
 
 * * *
 
-***编辑整理/校对: **Ting Guo*
+*编辑、发稿 文锦*
+
+
 
 0

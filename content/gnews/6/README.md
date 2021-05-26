@@ -1,20 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】世界上第一个接种Covid-19的英国人威廉·莎士比亚因长期患病中风去世
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272190/)
+## 【快讯】美国参议院通过修正案将永久禁止对中国的所有功能获得性研究提供资金
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272195/)
 
-比尔于2020年12月8日在V-Day上登上全球头条新闻，他在考文垂大学医院接受了辉瑞/ BioNTech新冠病毒疫苗接种。
+美国参议院通过了众议员兰德·保罗的修正案，该修正案将永久禁止对中国的所有功能获得性研究提供资金。
 
-考文垂大学医院和沃里克郡国民健康服务基金会说，劳斯莱斯前雇员和教区议员上周四因中风去世。
+今天，美国参议院通过了美国参议员兰德·保罗（Rand Paul）的修正案，该修正案将永久禁止在中国进行功能获得研究的所有资金。这与Fauci博士进行了多次交流，并不断捍卫使用美国纳税人资金资助功能增强研究，该研究旨在增强病毒的传染性或严重性。该修正案由美国参议员罗恩·约翰逊（R-WI），美国参议员Tommy Tuberville（R-AL），罗杰·马歇尔博士（R-KS），美国参议员Mike Braun（R-IN）和美国参议员共同发起。
 
-他是考文垂医院脆弱病房的长期患者。当他在12月收到疫苗时，他是病房的住院病人，他称之为“奇妙”。 莎士比亚先生穿着一双圣诞节拖鞋和他的医院袍在这张照片上拍摄的照片登上了世界各地的头版。
+汤姆·提利斯（R-NC）。保罗博士​​说：“我们不知道这种大流行是在武汉的实验室中开始还是自然发展了。”“尽管许多人仍拒绝资助武汉的功能获得研究，但专家们认为并非如此。我的修正案的通过确保了这种情况今后永远不会发生。不应将纳税人的钱用于武汉的功能增益研究，而现在我们已经永久停止了这项工作。”
+
+2003年参议院修正案禁止美国国立卫生研究院和任何其他美国机构资助在中国进行的任何功能获得性研究。
+
+该修正案将功能获得研究定义为“可以合理预期将流感，MERS或SARS病毒赋予属性，从而使该病毒在哺乳动物中具有增强的致病性或传播性的任何研究项目。” 这与NIH在2014-2017年实施暂停功能收益研究的资金时所使用的定义相同。
+
+COVID-19病毒的来源未知。尚未确定爆发是通过接触被感染的动物还是由于中国武汉病毒研究所的实验室事故而开始的。但是，这种大流行及其起源的问题暴露了功能获取研究的内在风险，纳税人再也不会在中国资助这类研究。
 
 参考链接：
 
-[https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html](https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html)
-
-图片来源：[https://www.dailymail.co.uk/](https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html)
+[https://www.paul.senate.gov/news/dr-rand-paul-stops-gain-function-research-funding-china](https://www.paul.senate.gov/news/dr-rand-paul-stops-gain-function-research-funding-china)
 
 整理撰稿：蓝精灵
 
