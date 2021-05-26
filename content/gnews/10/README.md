@@ -1,57 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】马来西亚现在每百万人中的COVID病例多于印度
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1273952/)
+## 【东京】取消奥运会将损失138亿欧元
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1274217/)
 
-作者：纽约香草山农场 静水流深
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
-
-
-据5月25日CNBC的报道，印度目前处于全球冠状病毒大流行的震中，但印度并不是唯一一个COVID-19疫情恶化的国家，拉丁美洲的阿根廷、中东的巴林，亚洲的尼泊尔、台湾在过去几周也报告了COVID病例的创纪录增长。而今天2021年5月26日，CNBC报道：目前，马来西亚每百万人中的COVID病例多于印度。
-
-![Chart compares daily new cases per million people in Malaysia and India]()![Chart compares daily new cases per million people in Malaysia and India](https://image.cnbcfm.com/api/v1/image/106888320-1622014149916-Malaysia_India_per_million.png?v=1622013660&amp;w=678&amp;h=421)图片来源：见水印
-
-报道称，根据统计网站“我们的数据世界”（Our World in Data），马来西亚每天的COVID-19病例正在迅速攀升，并在一项关键指标上超过了印度。“我们的数据世界”是一个科学数字出版物，其重点关注诸如贫穷、疾病、饥饿、气候变化、战争存在的风险和不平等之类的全球性大问题。这是全球变化数据实验室（Global Change Data Lab）的一个项目，该实验室是英格兰和威尔士的一家注册慈善机构，旗下出版物的创始人是社会历史学家和发展经济学家马克斯·罗塞尔，其研究小组的基址位于牛津大学。Our World In Data与其他网站不同，它采取CC-by授权，而没有NC或ND，因此，其所有资料可以自由地被使用在维基百科。该网络出版物使用交互式图表和地图来说明研究结果，这些研究结果往往需要长期观察才能显示出全球生活状况是如何随着时间变化的。
-
-自4月以来，印度一直在经历毁灭性的第二波疫情，其COVID病例数量位居世界第二。该国每天的病例数虽然呈下降趋势，但仍保持在每天数十万例感染者的水平上——远远超过马来西亚每天几千例的水平。但“我们的数据世界”汇编的数据显示，马来西亚每百万人每天的COVID感染率——按七天滚动计算——自周日起已超过了印度的水平。最新统计数据显示，按七天滚动计算，马来西亚周二报告了每百万人中205.1个病例，而印度为150.4个病例，这也是因为马来西亚的人口约为3200万，远远小于印度的14亿。
-
-事实上，COVID-19病例的实际数量高于世界各地的报告病例，这主要是由于缺乏检测造成的。一些研究发现，印度的病例很可能被严重低估。尽管如此，这并不是马来西亚第一次在这项指标上超过印度。“我们的数据世界”显示，在去年11月15日和今年3月27日之间，马来西亚每百万人的每日病例也高于印度。
-
-马来西亚是东南亚的一个国家，自2020年的最后几个月以来，其一直在与冠状病毒病例的激增作斗争。此后，马来政府多次收紧限制措施，但仍未全面封锁。当地卫生部数据显示，该国周三报告的冠状病毒病例增加了7,478例，创下历史新高，达到累计感染人数超过533,300人，其中2,300人已经死亡，700名感染者正在重症监护室接受治疗。马来西亚卫生总局局长Noor Hisham Abdullah博士周二在推特上表示，该国每天的COVID-19病例“呈指数趋势”，可能引发“垂直激增”。努尔·希沙姆是马来西亚抗击COVID的领导人物，他也曾警告说，“我们需要做好最坏的打算”，并敦促人们留在家中以打破传播链。
-
-在马来西亚，以及世界上许多发展中国家正在努力确保COVID疫苗供应的时候，这种病例快速增长已经到来。当前，马来西亚已经批准使用由辉瑞生物技术公司、牛津大学-阿斯利康公司和中（共）国生物技术公司Sinovac开发的COVID-19疫苗。马来政府表示，他们的目标是在年底前为80%的人口接种疫苗，但迄今为止，“我们的数据世界”汇编的数据显示，只有约5%的人接受了至少一剂疫苗。
-
-参考阅读：
-
-[Our World in Data](https://zh.wikipedia.org/wiki/Our_World_In_Data)
-
-[Malaysia now has more Covid cases per million people than India](https://www.cnbc.com/2021/05/26/covid-malaysia-now-has-more-cases-per-million-people-than-india.html)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+```
+新闻来源：意大利安莎通讯社（ANSA）
+发布时间： 2021年5月25日
+翻译整理/简评： 斩草要除根
+```
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26173547/w980-p16x9-2020-03-30T045447Z_640457845_RC24UF90Y88E_RTRMADP_3_HEALTH-CORONAVIRUS-OLYMPICS-COSTS.jpg)2020年3月25日摄于日本东京街头的奥运图标。  图片来源：路透社/Issei Kato
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+日本野村综合研究所（*Nomura Research Institute*）估计：如果将今年夏天举行的东京奥运会取消的话，将损失约18,100亿日元，相当于138亿欧元。，该国警告说，由于中共病毒感染激增，日本目前正在研究一种新的紧急状态以避免对国库造成更大的损失。
 
+野村证券（*Nomura*）分析师高内久内（*Kakachi Kiuchi*）估计，举办奥运会的经济利益的价值为1,470亿日元，而如果定期举办并有来自国外的公众参与，则为16,600亿日元。
 
+日本共同社在5月中旬进行的最新民意调查显示，约60％的受访者反对这项体育赛事的举行，并宣称应该被取消。根据野村证券的计算:第一个紧急状态于2020年春开始造成了64,000亿日元的经济损失，第二个紧急状况从今年1月至3月，损失了63,000亿日元。
+
+分析师高内久内还指出：“正在研究的估算值着重在对中共病毒感染增加风险的影响而不是从经济损失的角度来制定有关奥运会可持续性。” 上周，国际奥林匹克委员会（*CIO*）副主席约翰·科茨（*John Coates*）表示，原定于7月23日至8月8日举行的东京奥运会也将在紧急状态下举行。 根据分析师的估计，日本经济将在第二个季度连续萎缩，此前为-1.3％。
+
+#### 简评：
+
+**日本政府一方面，不想让东京奥运会的巨大投入被打水漂；另一方面，对中共病毒又束手无策。想要在一个人员聚集的世界级大赛中杜绝病毒，日本也知道这是不可能办到的事，那就让我们静观其变，对东京奥运会能否能如期举行笔者持保留态度。**
+（本文只代表译者观点，与Gnews平台无关。）
+
+**新闻原文链接：**
+🔗[Tokyo: cancellare le Olimpiadi costerebbe13,8 mld di euro](https://www.ansa.it/sito/notizie/topnews/2021/05/25/tokyo-cancellare-le-olimpiadi-costerebbe138-mld-di-euro_285c1b40-b787-4f06-9e32-2f541a778804.html)
+
+* * *
+
+***编辑整理/校对: **Ting Guo*
 
 0

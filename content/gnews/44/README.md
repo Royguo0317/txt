@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共重金收买西方媒体的事实
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1273642/)
+## 拜登称对北溪2号的额外制裁“适得其反”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1273741/)
 
-#### 作者：Boxinglady （文拳）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26110740/1618500991057.jpg)新华社在纽约时代广场的广告(图片来源：AFP/Getty Images)
-众所周知，据《司法部》报道，《中国日报》为《时代》，《洛杉矶时报》，《金融时报》和《外交政策》杂志的广告活动支付了超过160万美元。北京又向《洛杉矶时报》，《芝加哥论坛报》和《休斯顿纪事报》支付了100万美元
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-**简评：**
+编辑上传 银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26114044/Snipaste_2021-05-26_18-39-50.jpg)[de-guo.com](http://www.de-guo.com/news/news273737921.html)
+2021年05月26日彭博社报道，美国总统拜登表示，对北溪-2号管道实施额外制裁将对美欧关系产生反作用，因为该管道建设已接近完成。
 
-郭先生发起的爆料革命在四年前就开始向全世界揭露了中共是如何在海外重金收买西方媒体，这些被中共收买的海外媒体是如何成为中共大外宣的口舌。
+“它几乎已经完全完成。”拜登告诉记者。他补充说：“我认为现在实施制裁对于我们的欧洲关系来说是适得其反。”
 
-从《美国之音》对郭先生采访的断播，陷害抹黑郭文贵先生与班农先生，陷害新中国联邦人，到后来的左右美国大选及掩盖病毒来源真相等等。这些与共为伍的西方媒体在利益面前，违背良心违背新闻最基本的职业道德，充当中共的帮凶。
+上周，美国对与管道建设有关的两家俄罗斯公司和一家机构实施制裁。共有13艘船被列入名单。
 
-在被中共病毒夺走生命的无辜2百多万亡灵面前，这些媒体需要忏悔与反思！早日与中共切割，回归新闻的本真才是这些西方媒体正确的选择。
+此前媒体报道说，拜登总统的政府打算对北溪-2项目运营商及其总经理马蒂亚斯·瓦尼格（Matthias Warnig）实施制裁。为了避免与德国发生冲突，拜登政府随后放弃了这一决定。
 
-新闻来源：https://twitter.com/realjimwatkins1/status/1397547059788632064
+北溪2号项目涉及建造一条年产近550亿立方米的天然气管道，该管道从俄罗斯海岸穿过波罗的海到达德国，从而绕过波罗的海国家和波兰。它由北溪2号股份公司实施，俄罗斯天然气工业股份公司是唯一的股东。美国认为该管道是对欧洲能源安全的威胁。
 
-作者：Boxinglady （文拳）
+参考链接：
 
-本文仅代表个人观点，不代表 Gnews 平台
-
-校对发布：紫橄榄
+[https://novayagazeta.ru/articles/2021/05/26/baiden-nazval-kontrproduktivnym-vvedenie-dopolnitelnykh-sanktsii-protiv-severnogo-potoka-2?utm\_source=tw&utm\_medium=novaya&utm\_campaign=prezident-ssha-dzho-bayden-soobschil–chto-vv](https://novayagazeta.ru/articles/2021/05/26/baiden-nazval-kontrproduktivnym-vvedenie-dopolnitelnykh-sanktsii-protiv-severnogo-potoka-2?utm_source=tw&amp;utm_medium=novaya&amp;utm_campaign=prezident-ssha-dzho-bayden-soobschil--chto-vv)
 
 0

@@ -1,27 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 辉瑞公司前副总裁呼吁不要被胁迫接种实验性疫苗
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1273976/)
+## 加拿大良医因曝疫苗危害而惨遭解雇除名！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1274018/)
 
-蒙特利尔皇家山战友团 Spirit
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26150831/defence.jpg)图片来源：Childrenhealthdefense.org
-据《儿童健康防御》(Children Health Defense) 5月25 日报道，辉瑞公司前副总裁迈克-耶顿(Mike Yeadon)博士在接受儿童健康保护组织主席小罗伯特-肯尼迪的采访时表示，他表示mRNA疫苗技术有很多不确定性。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26153441/bc.jpg)图片来源：TRUENORTH
 
-辉瑞公司前副总裁兼过敏和呼吸系统首席科学家迈克-耶顿博士说，中共病毒疫苗是 “一种完全新颖的技术”，不应该被称为疫苗。拥有着32年在制药业领导新药研究经验的耶顿博士说由于中共病毒疫苗使用的是实验性技术，可能会带来严重的副作用，如血凝块、不孕等甚至死亡。
 
-耶顿博士在4月的视频中讲到，”我相信这些疫苗是被用来损害你的健康，并可能导致死亡。除了认真尝试大规模人口灭绝外，我看不到任何合理的解释。这些疫苗是提供做这件事的工具和合理的推诿，因为他们制造一个关于某种生物威胁的故事，让你排队接种疫苗，几个月后，或一两年，你可能会出现可以解释的综合病症，但无法将其与接种疫苗联系起来。”
+据加拿大知名自媒体《TRUENORTH》5月25日新闻报道：一位卑诗省的家庭医生声称，由于披露了其患者在接种Moderna疫苗后所出现的严重并发症，他随即遭到了政府卫生官僚们的同声谴责和严厉惩罚。据这位利顿市的查尔斯·霍夫（Charles Hoffe）医生表示，因为他说出的疫苗危害真相而导致当局冠其以莫须有的“疫苗犹豫”罪名，并被立即取消了他在圣巴塞洛缪医疗中心的行医资格。
 
-耶顿博士继续告诉观众，”政府告诉你们关于这种病毒的一切都是谎言，目的是极权主义控制”。请不要被谎言，抵制这些实验性后患无穷的疫苗，并告知身边的人，不要成为极权主义控制者的牺牲品。
+为此，该医生在接受本媒采访时解释道：“2021年4月29日，内政部健康管理局（National Health Authority）暂停了我的临床诊断权，原因是犯有“疫苗犹豫”罪，仅仅由于我说出了受疫苗伤害的患者真实病情。为此，我被禁止继续在急诊室工作！虽然我仍可以私人执业方式接诊，这不受内政部卫生当局的管辖，但实际上为此我不仅损失了约50％的收入，更严重伤害了我作为一名医生的良知。难道这就是为极力保障患者健康安全而要付出的荒谬代价吗！？”
 
-***参考链接：***
+霍夫继续指出：“简而言之，仅在我们利顿市的一个小社区中，就已经有1人因注射疫苗而死亡，而另外三人在接种了第一批Moderna疫苗后，目前看来他们似乎将永久性残疾。而这些受残害的牺牲者年龄范围是38至82岁。
 
-[Former Pfizer VP Tells RFK, Jr.: Young, Healthy People Shouldn’t Be Coerced Into Taking ‘Experimental’ Vaccines](https://childrenshealthdefense.org/defender/dr-mike-yeadon-rfk-jr-the-defender-podcast-safety-mrna-vaccine-technology/)
+但内政部驻坎卢普斯市的医疗卫生官员卡罗尔·芬顿博士驳回了霍夫医生的指控，并表示在卑诗省，没有任何与接种COVID19疫苗相关的“死亡或持久不良反应”的病例出现，更不用说在内政部所监督的地区了。
 
-[Did Michael Yeadon Say COVID-19 Vaccine Will Kill Recipients Within 2 Years?](https://www.snopes.com/fact-check/michael-yeadon-vaccine-death/)
+截至今日，内政部卫生局和卑诗省卫生部长均未答复本媒关于霍夫医生是否正在接受相关部门调查的询问。最近，该省内科与外科医生学院发出警告，声称任何被发现“与当局公共卫生命令及政策相抵触”的医生都将被调查，并可能受到进一步的惩罚。
 
-* * *
+[原文链接](https://tnc.news/2021/05/25/bc-doctor-stripped-of-er-shifts-after-raising-covid-vaccine-side-effect-concerns/)
 
-*编辑、发稿 文锦*
+本文只代表原媒体信息和作者个人观点！
 
 0

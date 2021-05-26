@@ -1,83 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内热搜】中共忽悠升级，国内民众抢种毒疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1274189/)
+## 【热点播报】贝壳找房被调查，马化腾在劫难逃
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1273643/)
 
-作者：纽约香草山佛教部 369文驹
+作者：香草山信息部 雪梨
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26111625/%E5%9B%BE%E7%89%872-115.png)图片来源：网络
+[路透社](https://www.reuters.com/world/china/exclusive-china-launches-antitrust-probe-into-tencent-backed-property-broker-ke-2021-05-25/)报道称，据消息人士透露，中共市场监督管理总局（State Administration for Market Regulation，简称SAMR）最近正在对房屋中介公司贝壳找房的“二选一”垄断行为进行调查。贝壳公司股票因此一度下跌近10%。
 
-今日，中共各大媒体都在鼓吹一个话题：多地卫健部门发布消息称，6月10日起，中共国暂停中共病毒疫苗第一针的接种，公众应尽量在6月9日前完成第一剂次疫苗接种。该消息广泛地出现在各大媒体、报刊及各个地方的微信官媒公众号，还有社区的通知中。
+贝壳找房（KE Holdings，BEKE）成立于2001年，总部位于北京，是中共国最大的线上线下房产交易和服务平台，同时也是地产经纪品牌链家的运营商。腾讯是贝壳找房的大股东。
 
-今天5月26日，中共环球网则是以“辟谣”的方式强化了这一消息。该媒体称：“根据市、区统一部署，6月10日起停止新冠疫苗第一针接种，全面转入第二针阶段，要打第一针的要抓紧时间了……”5月25日上午，安徽合肥有市民表示，自己在小区业主群里看到了这则通知，但不知真假。更有传言称：“6月9日后如果还没成功接种新冠疫苗第一针的，可能就打不上了。”另外还要谣言称：“官方政策突然改变，6月份开始接种疫苗要收费了。”对于市民的疑问，合肥市庐阳区、蜀山区、经开区的多个新冠疫苗接种点均表示，未收到“6月10起停止新冠疫苗第一针接种”等相关通知，现阶段仍以接种第一剂次疫苗为主，预计下月初将迎来第二剂次疫苗的接种高峰。
+所谓“二选一”，是“平台利用优势地位和商家对其的依赖性，采取不正当手段强迫经营者在平台间‘二选一’”。平台利用“独家合作”的协议捆绑商家，只允许商家在自己的平台销售与活动，如果发现在其他平台销售，平台会对该商家进行惩处。
 
-其实，这种所谓辟谣并不是对原先暂停第一针的否定，相反恰恰是通过对民众担忧打不上疫苗的肯定，强迫民众去接种第一针的疫苗。这样做的原因在于，现在辟谣说的事情其实跟最初说的内容是一致，旨在强化第一针稀少这个概念。当人们通过两次所谓官方的消息，确认官方以后将重视第二针的人群，且第一针的名额稀少，那么很多还在持观望态度的民众就会怀疑之前不接种疫苗的判断，从而被迫加入抢种疫苗的队伍。而且事实也是如此，在一段微博视频中，广东某地人群为了能打上中共毒疫苗，不惜人挤人地聚集在接种点大门外。当大门打开的一刹那，他们争先恐后地冲进去抢着接种疫苗，连维持秩序的警察都拦不住。如下图：
+路透社还提到，为提高反垄断检查效率，自4月下旬以来，SAMR已在17家平台公司派驻了检查员。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26172957/51-7.jpg)（图源：见水印）
+今年2月，[唯品会](https://www.reuters.com/article/us-vipshop-hldg-china-antitrust-idUSKBN2A803Y?taid=6020c8d9d3964a00010817cc&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)被罚款46万美元。3月，[12家互联网公司](https://www.reuters.com/article/us-china-anti-trust-idUSKBN2B40EF?taid=604af300eaf59800011ce2b4&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)因违反“反垄断法”受到惩罚。4月10日，阿里巴巴公司因“二选一”垄断行为被处以27亿美元的天价罚单。随后，SAMR[陆续点名](http://www.ce.cn/cysc/newmain/yc/jsxw/202104/14/t20210414_36471831.shtml)一大批包括百度、京东、新浪微博、字节跳动、拼多多等在内的互联网平台企业。4月底，SAMR宣布对腾讯控股的[美团](https://www.reuters.com/technology/china-launches-antitrust-probe-into-food-delivery-giant-meituan-2021-04-26/)发起“二选一”垄断调查。随后有[报道](https://www.reuters.com/world/china/exclusive-china-readies-tencent-penalty-antitrust-crackdown-sources-2021-04-29/)称，腾讯也将面临至少15亿美金的罚款。
 
-实际上，这种效果就是中共非常希望看到的。中共利用所谓“以退为进”的方式，成功忽悠了民众去接种中共毒疫苗。据中共官媒数据统计，截至2021年5月25日，31个省（自治区、直辖市）和新疆生产建设兵团累计报告接种中共病毒疫苗54671.4万剂次，居全球第一。中共媒体“自豪”地称之为，疫苗接种跑出“中（共）国速度”。
+在中共国，一切都是政治说了算，政治经济、政治科技，政治商业、政治互联网。只有拿到权贵发布的营业执照，才有可能赚得到钱。现如今，党内斗争已进入最后阶段。以习大神为首的当权派正在宰杀在野党的白手套们，打击在野党的势力。党派内部斗争，身陷绞肉机中的任何人都不可能全身而退。如今，马云这个白手套已被斩落；与腾讯关联的公司于近期频频被调查，马化腾在劫难逃；至于超级政治家马明哲，[文贵先生](https://gwins.org/cn/milesguo/22647.html)说，“抓马明哲那一天的时候，就像当年抓和珅一样”，连根拔起。届时，内部斗争想必已决出胜负。然而，打扫战场的才是最后的赢家。
 
-中共前期在忽悠老百姓接种疫苗时几乎没费什么力气，很多老百姓自觉自愿听党的话，自发地接种了。而今5个月过去了，能被轻松忽悠的基本上没了，剩下观望和犹豫的，中共得想办法让他们去打啊。于是，这招儿就一个接一个地出来了：送、送油、送鸡蛋、明星站台忽悠、接种上门等等，不一而足。现在中共又利用心理战，迫使民众冲动行事。那么，未来中共还会出什么招儿来忽悠老百姓去接种呢？我们不妨就在上述的新闻中寻找蛛丝马迹，看看中共是怎么给未接种的老百姓“打预防针”的呢？请看：
+校对/发稿：飞虹
 
-
-> “那些符合条件但仍未接种新冠疫苗（中共毒疫苗）者要抓紧了，反之今后或将遇到这些麻烦事：
-> 
-> 麻烦一：出行受限
-> 
-> 现在，我们出入商场、景区、车站等公共场所都是凭健康码，未来很有可能凭借接种记录享受快捷通道，反之，可能会受到一些限制。
-> 
-> 麻烦二：感染新冠病毒风险加大
-> 
-> 绝大多数人都是易感者，如果大部分人都接种了新冠疫苗，相对来说，未接种者感染新冠病毒的风险就变大了。
-> 
-> 麻烦三：容易感染新冠中重症
-> 
-> 此次辽宁和安徽疫情确诊病例中有未接种新冠疫苗者，接种新冠疫苗是预防控制新冠肺炎传播的最经济、最有效、最方便的方法。
-> 
-> 目前我国使用的新冠灭活疫苗抗体阳转率达到90％以上，保护率达到70％以上，特别是对中、重症的保护率达到近100％。
-> 
-> 麻烦四：跨省流动受影响
-> 
-> 由于目前各地接种疫苗的进度不一致，未来各省之间很有可能会形成免疫屏障差距，如跨省务工、求学、出差、旅游、商贸等可能会受影响。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
 
 
-中共控制出行和流动意味着切断老百姓的生计，而恐吓民众病毒感染几率加大更是赤裸裸地用生命来威胁。这背后的含义就是，即使你不打疫苗不被中共病毒搞死，也要让你没有收入饿死！
-
-中共对付老百姓就是这样，一步一步的逼迫，一招儿比一招儿阴险。眼下正是中共即将倒台的最后时期，其必然是越来越疯狂的。真心希望老百姓能与中共毒疫苗脱钩，这也是与中共脱钩，摆脱这个恶魔临死前拖老百姓去陪葬的邪恶目的。
-
-（本文仅代表作者观点）
-
-参考阅读：
-
-紧急提醒！6月10日后，多地暂停新冠疫苗第一针接种？真相来了！\_https://news.sina.com.cn/c/2021-05-26/doc-ikmxzfmm4760268.shtml
-
-紧急提醒！6月10日后，停止新冠疫苗第一针接种\_https://www.cn-healthcare.com/articlewm/20210526/content-1224514.html
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
