@@ -1,23 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内新闻浅析】新思想引领新征程·红色足迹｜红色正青春Vlog：中国红永不变
-` Ru Wei` [轉載自GNews](https://gnews.org/zh-hans/1272956/)
+## 中共病毒疫苗接种追踪报道之一
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1273005/)
 
-#### 作者：Ru Wei
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26040308/%E7%BA%A2%E8%89%B2%E8%B6%B3%E8%BF%B9-%E9%9F%B6%E5%B1%B1.jpeg)封面来源：新华网
-「新华社音视频部制作」韶山不仅是毛泽东的故乡，也是他青少年时期生活、学习和从事革命活动的地方。这里曾创办了20余所农民夜校，这里建立起中共国农村最早的党支部之一中共韶山支部。2011年，习近平来到韶山时说，重温毛泽东同志等老一辈革命家的光辉业绩、崇高精神和道德风范，深受教育。革命传统资源是我们党的宝贵精神财富，每一个红色旅游景点都是一个常学常新的生动课堂，蕴含着丰富的政治智慧和道德滋养。
+#### 作者：Nstar
 
-**浅析：**
+#### 责编：胡天
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26053835/1-131.png)[图片来源](https://images.app.goo.gl/BH2ZDDJbMmLvhTFN6)
 
-**中共“极左思想”、“开倒车、走回头路”，速度越来越快、表现越发明显。“毛泽东思想”加上“现代化科技手段”就变成了我们新时代习近平思想，都说“千古文章一大抄”，我如今才发现“只有你想不到、没有你做不到”。“习进平新思想”引领国民重新温故“红色足迹”，走过这山、路过那河，要让红旗重新插遍这块满目疮痍的河山。**
 
-**“中共红永不变”，到处插红旗、留下红色足迹，这里撒泼尿、那里拉泼屎，这个山头、这条河流，就是我的了。回头想想，这一点都不奇怪，“上山为王、落草为寇”，中共的本色就是这么一群人。这也造成了中共这个邪恶组织对人性和规矩的漠视、对“吃、喝、嫖、赌、抽”的无节制，所以本质上中共就是全世界最大最邪恶的黑社会流氓组织。**
+#### **一场惨悲的肥皂剧**——无知的乖诚顺民&无耻的权力机构
 
-**中共国各界都面临巨大危机，“脆断”每秒钟都可能发生，“政变、军变、民变”，威胁时刻存在。苟延残喘的中共，在做最后的垂死挣扎，绑架国民、洗脑年轻人，做炮灰、当肉盾，为自己续命。全球对“中共病毒”追责的声浪越来越大，中共却在忙着“红色革命”重新洗牌，妄图用“红色旅游”、“红色足迹”深化国民“红色基因”、深种国民“红毒”，梦想“中共红永不变”。**
+#### **法 国**
 
-（本文仅代表作者个人观点，与GNEWS平台无关。）
+##### ***法国独立的地区药品评估中心: 所有4种中共病毒疫苗应立即停止使用!***
 
-参考信息链接：🔗[新思想引领新征程·红色足迹｜红色正青春Vlog：中国红永不变](http://www.xinhuanet.com/video/2021-05/23/c_1211168871.htm)
+法国独立的地区药品评估中心（Centre territorial d’Information indépendante et d’Avis pharmaceutiques，CTIAP）发表的一份报告显示，所有4种中共病毒疫苗（阿斯利康、Moderna、BioNTech/辉瑞、强生）应**立即停止使用!**
 
-0
+报告中公布的第一个警告是，所有这些产品都只有临时的销售授权（MA）。此外，在2024年之前，它们都需要进行进一步的研究，鉴于疫苗的加速分发方式，几乎不可能完成这些研究。
+
+药剂师凯瑟琳-弗雷德(Catherine Frade)博士领导研究小组，研究了欧洲药品管理局（EMA）发布的阿斯利康、Moderna、BioNTech/辉瑞和强生公司有关中共病毒疫苗的公开数据。因为所使用的制造工艺是新的，它们所包含的辅料也是新的，根据法国西部Cholet公立医院的一个专家小组的说法，这些辅料 “应被视为新的活性物质”。其活性成分的质量、佐剂和制造工艺都有缺陷。
+
+CTIAP警告说，所有的疫苗在 “活性物质和成品的质量测试 “之前就开始在人类身上销售和积极应用。
+
+该报告在疫苗生产和汽车生产之间做了一个有趣的比较。它问道，我们是否可以想象，在没有完成对每一个零部件和发动机的质量研究，包括与安全相关的部件，如刹车和电气系统，就开始启动新车的生产线并开始销售…这是否合理???
+
+合乎逻辑的答案是否定的! 报告并没有指出疫苗是危险的，但目前的知识还不足以证明其有效性和/或安全性。
+
+报告的结论是：作为一个紧急事项，这些已经获得临时销售授权(MA) 的中共病毒疫苗应该被暂停，甚至取消，直到下一步的通知。
+
+来源:
+
+[Le centre français d’évaluation des médicaments déclare que les quatre vaccins Covid-19 sont dangereux et devraient être retirés du marché](https://mirastnews.net/2021/04/24/le-centre-francais-devaluation-des-medicaments-declare-que-les-quatre-vaccins-covid-19-sont-dangereux-et-devraient-etre-retires-du-marche/)
+
+[https://thebl.tv/politics/french-drug-evaluation-center-concludes-all-4-covid-vaccines-should-be-discontinued.html](https://thebl.tv/politics/french-drug-evaluation-center-concludes-all-4-covid-vaccines-should-be-discontinued.html)
+
+##### ***当法国似乎对这种新的实验性药物(中共病毒疫苗)采取更谨慎的态度时，其他国家的机构正在推动每个人尽快注射，以建立一种 “新常态”。***
+
+#### **英国**
+
+##### ***英国卫生当局预计人们在第二次接种疫苗后会死亡***
+
+在英国，6600万人口中的2000多万人现在已经接受了至少一剂中共病毒疫苗来预防中共病毒。
+
+全国所有成年人都将在7月底前收到疫苗接种通知。在全球范围内，只有以色列和阿拉伯联合酋长国的中共病毒疫苗接种率高于英国。
+
+至二月底，当局报告了6035名新感染者和144名死于中共病毒。目前的封锁从3月至6月底逐步解除。
+
+英国卫生官员在2021年3月31日的一篇“放宽限制的进一步模型总结 – 路线图第二步” (SPI-M-O: Summary of further modelling of easing restrictions – Roadmap Step 2)
+
+的文章中写了以下内容:
+
+“这表明，在疫苗接种后的复发中，大多数死亡和入院都发生在接种过两剂疫苗的人身上，即使没有出现疫苗保护力下降或逃避疫苗的变体” … “住院人数和死亡人数的反弹都是由接受两剂疫苗的人主导的，分别占到了这波反弹的60%和70%。这可以归因于最脆弱年龄组的高疫苗接种覆盖率，这样，疫苗失败所造成的严重疾病比未接种疫苗的人更多”。
+
+换句话说，英格兰公共卫生局已经相信，明显大多数需要住院治疗中共病毒的人都是接受了双重中共病毒疫苗接种的!
+
+来源:
+
+[https://www.aerzteblatt.de/nachrichten/121608/Mehr-als-20-Millionen-Menschen-in-Grossbritannien-gegen-Corona-geimpft](https://www.aerzteblatt.de/nachrichten/121608/Mehr-als-20-Millionen-Menschen-in-Grossbritannien-gegen-Corona-geimpft)
+
+[https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment\_data/file/975909/S1182\_SPI-M-O\_Summary\_of\_modelling\_of\_easing\_roadmap\_step\_2\_restrictions.pdf](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/975909/S1182_SPI-M-O_Summary_of_modelling_of_easing_roadmap_step_2_restrictions.pdf)
+
+[http://www.info-medico.de/](http://www.info-medico.de/)
+
+下期继续
+
+【文章仅代表作者个人观点】
+
++1
