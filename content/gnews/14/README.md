@@ -1,37 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议员里克·斯科特：应当停止从卑鄙的中共国购买商品
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1272354/)
+## 【有声读物】人间三“死”及其出路
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1272427/)
 
-翻译：康州盘古农场 – 柯镇恶
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 – 明子
+配音：香草山福音部 joy 喜乐的心
 
-据《NEWSMAX》作者Jim Thomas  2021年5月23日报道：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25220447/4324324234234234-1.jpg)
-参议员里克·斯科特（Rick Scott, R- Fla.）在周日的一档电台采访节目中说：“我们应该停止从共产中国购买任何东西。他们不是我们的朋友。中国人民是很棒的，但那个政府是卑鄙的。”
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-他告诉John Catsimatidis，即使是在与俄罗斯的冷战期间，人们从来没想过从苏联购买任何东西。
 
-他补充说：“共产中国的政府，他们想做的，是统治全世界。”
 
-中国共产党并不在乎美国人或美国人的权利。
 
-这位前弗罗里达州长说：“他们并不相信你的权利。如果你看看他们是怎么对待他们自己的人民，你觉得他们会怎么看待美国人民？他们把上百万的人投入监狱中，仅仅因为这些人拥有不同的宗教信仰；如果你入狱，他们就会强制摘取你的器官；他们剥夺了香港人民的基本权利；他们打造自己的军队来对抗美国的军队；现在他们正在威胁台湾。所以，我们打击他们的方式就是，必须停止跟他们做生意——立刻停止。”
 
-他说，美国人不应该为中共国的经济继续输血了。
 
-他说，每个人在购买商品之前，都应该问问卖家“这是不是在共产中国生产的？”
 
-他补充说：“我们不应该再帮助他们建设他们的经济了。因为当他们的经济持续增长并超过我们的时候，如果他们侵略台湾或干其他坏事，我们将没有能力打击他们或者防卫我们自己。”
+华夏文化中一般忌讳谈及“死”的事，因为死是“不喜庆、不吉利、不祥和”的事。然而，基督信仰的目标就是解决人类死亡的问题，尤其是新约圣经，其许多章节都是在探讨“死”的问题：耶稣基督胜过了死亡，使得接受耶稣基督救恩的人，也借着耶稣基督胜过死亡。于是，新约信徒不避讳谈及“死”的事，并且每日操练向旧人而死（指从老亚当继承来的旧品性），向新人而活（从基督继承来的新品性）。事实上，人人都有一死，死后且有审判。因此，本文将从永远生命的角度来观察人类存在的三种死亡状态——了解了这些状态，就可以知道怎样借着耶稣基督胜过死亡了。
 
-“这是一个具有扩张性的政权，他们意图控制世界上的每一个国家。”他说。
 
-原文链接：[https://www.newsmax.com/politics/rickscott-trade-america/2021/05/23/id/1022441/](https://www.newsmax.com/politics/rickscott-trade-america/2021/05/23/id/1022441/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**文字版原文：[【信仰之声】人间三“死”及其出路](https://gnews.org/zh-hans/1267633/)**
+
+作者：纽约香草山福音部 文一论道
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

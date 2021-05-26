@@ -1,68 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月25日美国政要反共推文精选：要求对武汉实验室进行独立调查
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1272254/)
+## 【锐语】美国比中共信访办靠谱多了 美联邦法院下令港企赔偿591万美元给受害中国工人
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272358/)
 
-众议员埃莉斯·斯蒂芬尼克： 在成千上万人丧生、封锁、及关闭企业之后，每个国会议员都应该要求得到关于新冠病毒 COVID-19 (中共病毒)起源的真相。** 共和党人在团结起来呼吁对武汉实验室进行独立调查。 这应该是两党共同的议题！**
+美国一家联邦法院周一（5月24日）裁决， 7名在塞班岛一家赌场工地打工的中国工人，在控告雇主人口贩运和强迫劳动案中胜诉，将获得雇主591万美元的赔偿。
 
+美国北马里亚纳群岛联邦法院首席法官拉莫纳·芒罗娜（Ramona Manglona）在长达40页的裁决中，根据联邦和当地反贩运人口法律对强迫劳动的规定，判罚在香港上市的博华太平洋国际控股有限公司（Imperial Pacific International）向7名中国工人支付295万7797.79美元的伤害赔偿，以及同样数额的惩罚性赔偿。
 
+芒罗娜法官在判决书中说，7名中国工人在塞班岛的博华太平洋赌场工地“忍受着极端的、危险的、非人道的工作条件”，他们遭受的虐待骇人听闻。
 
-> After hundreds of thousands of deaths, lockdowns, & shuttered businesses, EVERY Member of Congress should be demanding TRUTH about the origin of COVID-19. 
-> 
-> Republicans are united in calling for an independent investigation into the Wuhan Lab. This should be a bipartisan issue!
-> — Rep. Elise Stefanik (@RepStefanik) [May 25, 2021](https://twitter.com/RepStefanik/status/1397218104925728779?ref_src=twsrc%5Etfw)
+判决书说，博华太平洋国际是获得在塞班建赌场唯一许可的开发商，雇用了包括MCC和金螳螂在内的多个中国建筑公司修建赌场。
 
+金螳螂可是中共大陆非常知名的上市企业噢。
 
+判决书说，博华太平洋国际以‘游客’签证而不是合法的临时工作签证，将这些中国工人带到塞班岛打工，扣押他们的护照，指示他们在美国政府官员前来工地或宿舍检查时躲藏起来；工人受伤后被威胁不得寻求医疗照顾，对工人在建筑工地工作时遭受的伤害，从严重烧伤到手指或脚受伤，都未予赔偿。”
 
-参议员玛莎·布莱克本： 毫无疑问，我们缺少关于 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 起源的答案，而且世卫组织未能提供这些答案。我们需要进行真正的调查，我们需要知道这里到底出了什么状况，我在要求美国总统乔.拜登[@POTUS](https://twitter.com/POTUS)来回答。 【链接来自Foxnews：是玛莎给拜登的信，信中质疑世卫组织的调查能力及谴责其与 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 不清不楚的关系。并批评世卫和美国政府关于调查病毒真相互相踢球甩锅。】
+代表7名中国工人原告的律师是纽约的何宜伦（Aaron Halegua）和塞班的布鲁斯·贝林（Bruce Berliner）及其助手王代时（Times Wang）。何宜伦解释了在美国的人权法律中，“人口贩运”和“强迫劳动”，这两个术语通常可以互换使用，“真正的重点是，这个人是否有停止工作的自由，或者他/她是否被强迫以某种方式继续工作。”
 
+7名原告中国工人是王天明（音）、韩东（音）、孙良才（音）、孟勇军（音）、徐庆春（音）、王友立（音）和杜向阳（音）。
 
+庆幸这几位工人在美属塞班岛到打工， 而且勇敢站出来，找到美国的律师来帮助追缴工资。放在大陆，估计警察就把这七个工人师傅抓起来了，或者直接就消失了。那些去信访办的叔叔阿姨们，就不要辛苦的天天在北京餐风露宿了，还有那些举着标语跪在政府大门的伯伯婶婶们，中共不会处理任何老百姓的问题的，还不如加入新中国联邦，拿起法律武器，脱离那个红色血腥的生态圈，追求属于咱们老百姓自己的新世界新生活。
 
-> There is no question we’re missing answers on the origins of COVID-19, and the WHO has failed to produce them. We need a real investigation, we need answers on what went wrong here, and I’m asking [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) to deliver it.
->  [@AdamShawNY](https://twitter.com/AdamShawNY?ref_src=twsrc%5Etfw)[https://t.co/fjCHwmQ0Gx](https://t.co/fjCHwmQ0Gx)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 25, 2021](https://twitter.com/MarshaBlackburn/status/1397288602946752515?ref_src=twsrc%5Etfw)
+参考链接：
 
+[https://www.voachinese.com/a/Federal-court-awards-millions-to-chinese-workers-who-sued-casino-operator-ipi-20210525/5904708.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/Federal-court-awards-millions-to-chinese-workers-who-sued-casino-operator-ipi-20210525/5904708.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
 
+图片来源：[https://www.voachinese.com/](https://www.voachinese.com/)
 
-众议员迈克·加拉格尔： 皮特·打杂客 (Peter Daszak) 是世界上调查武汉病毒所(WIV)利益冲突最大的人。 很凑巧地，他却是世卫组织调查小组中唯一获准的美国人。 我们无法相信世卫组织能够彻底查清这一问题。 拜登政府必须领导此事。 【转福克斯新闻采访视频：专家们终于来关注实验室泄漏说了】
+整理撰稿：蓝精灵
 
+校对发布：Penny
 
-
-> Peter Daszak was the one person in the world with the biggest conflict of interest in investigating the WIV. Uncoincidentally, he was the only American allowed on the WHO's investigative team.
-> 
-> We can't trust the WHO to get to the bottom of this. The Biden Admin has to lead. [pic.twitter.com/ixMx5lSgcd](https://t.co/ixMx5lSgcd)
-> — Rep. Mike Gallagher (@RepGallagher) [May 25, 2021](https://twitter.com/RepGallagher/status/1397209965413208076?ref_src=twsrc%5Etfw)
-
-
-
-参议员汤姆·科顿： 拜登政府\*关闭\*了确定 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 起源的工作。 如果问题出在“证据质量”，那么拜登团队为什么不展开自己的调查呢？ 【链接是CNN的文章称：由彭配奥带领的追查 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 实验室起源理论的工作被拜登政府以’调查质量‘为由而叫停】
-
-
-
-> 🚨 The Biden administration \*shut down\* the work to identify the origins of COVID. 
-> 
-> If "quality of the evidence" was the problem, why hasn't the Biden Team launched their own investigation? [https://t.co/oWAoopHCwk](https://t.co/oWAoopHCwk)
-> — Tom Cotton (@TomCottonAR) [May 26, 2021](https://twitter.com/TomCottonAR/status/1397352356631785473?ref_src=twsrc%5Etfw)
-
-
-
-众议员兰斯·古登： 美国纳税人的钱永远不应该资助 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的病毒实验室。
-
-
-
-> The American taxpayers should NEVER fund Chinese viral labs.
-> — Lance Gooden (@Lancegooden) [May 25, 2021](https://twitter.com/Lancegooden/status/1397338873643118592?ref_src=twsrc%5Etfw)
-
-
-
-参议员兰德·保罗： 今天，我再次在发言中谈到了政府的浪费，并敦促参议院通过我的修正案，该修正案将禁止为 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 的「功能增强」研究提供资金。 您可以在这里观看： 【附保罗参议员在参议院发言的油管视频】
-
-
-
-> Today I spoke on the floor AGAIN about government waste and urged the Senate to adopt my amendment that would ban the funding of gain-of-function research in China. You can watch it here: [https://t.co/U7g3ElR5au](https://t.co/U7g3ElR5au)
-> — Senator Rand Paul (@RandPaul) [May 25, 2021](https://twitter.com/RandPaul/status/1397223831475994626?ref_src=twsrc%5Etfw)
-
-
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

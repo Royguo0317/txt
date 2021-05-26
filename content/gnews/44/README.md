@@ -1,43 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【诗歌 】 新中国联邦·魂
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1271892/)
+## 不甘人后，佐治亚州签署禁止疫苗护照行政令！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1272109/)
 
-【作者】禾童 【编辑】Candy
-
-拉满的弓上颤动的弦啊
-
-月光下
-
-你的心跳清晰可闻
-
-雪亮美丽的刀刃啊
-
-你的侧脸
-
-如刀锋般冷峻
-
-深藏在爱与悲愤下的
-
-你的真心啊
-
-懂得她的
-
-只有新中国联邦之魂
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25185927/kp.jpg)图片来源：11alive
 
 
+据加拿大自媒体《Thepostmillennial》5月25日刊登的新闻报道：出于保护该州公民个人的隐私权，美国佐治亚州审时度势地也加入了越来越多立法禁止使用COVID-19疫苗护照的其他各州之行列。
 
-**【免责声明】** 尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+该州州长，共和党的布莱恩·坎普（Brian Kemp）于当日签署了一项行政命令，禁止其州政府实施或寻求协助该州的所有私人企业及实体使用疫苗护照。为此，肯普提到了个人隐私和信息安全问题，并再次宣布接种疫苗纯属个人选择。该州长表示：“今天的行政命令清楚地表明，州政府将不会使用疫苗护照。虽然我继续敦促本州所有居民接种疫苗，以便我们能继续保持对疫情的警惕和关注，但此举只是每个公民与医疗专业机构之间的个人决定，而非本州政府之法令。该禁令还明确指出：本州公共卫生部及其医疗系统所保存的所有相关数据将不会被任何公共部门或私人机构用于任何疫苗护照计划。”
 
-**欢迎战友加入旧金山金喜准农场**
+目前，阿拉巴马，阿拉斯加，亚利桑那，佛罗里达，爱达荷，蒙大拿，南卡罗来纳，南达科他，德克萨斯和怀俄明等，越来越多由共和党主政的各州郡都已命令禁止疫苗护照的使用。
 
-[旧金山金喜农场](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+目前来看，这些禁令大多以州长行政命令的形式出现，而佛罗里达州州长罗恩·德桑蒂斯（Ron DeSantis）已将该禁令签署为有效法律文件。
 
-[旧金山金喜农场](https://discord.gg/QQzQ79grEA)[Discord](https://discord.gg/QQzQ79grEA)
+然而，许多大型公司企图以从其所在州中撤走所有业务来威胁将实施疫苗护照禁令的州政府。例如邮轮公司就严厉警告佛州长德桑蒂斯，如果继续执行该法律，其公司将不得不撤离佛罗里达。
 
-[旧金山金喜农场](https://twitter.com/sf_himalaya)[Twitter](https://twitter.com/sf_himalaya)
+很显然，佐治亚州长肯普对于这些大型公司的强烈反对并不陌生，他此前曾向该州承诺将在4月份就禁止疫苗护照的推广。但像纽约州这样由民主党控制的各州郡，早就已经开始分发疫苗护照了。
 
-[旧金山金喜农场](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[Youtu](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**b**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[e](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+此外，中共国和许多其他亚洲国家也毫不犹豫地这样做了。同时，在西方国家中，据信加拿大和英国也计划执行类似的计划。
+
+[原文链接](https://thepostmillennial.com/georgia-governor-signs-executive-order-banning-covid-19-vaccine-passports)
+
+本文仅代表原媒体信息和作者个人观点！
 
 0

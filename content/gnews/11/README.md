@@ -1,37 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在新乡，主教、7名牧师和10名神学院学生被捕
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1272368/)
+## 【热点播报】美国大学入学必须要打新冠疫苗吗？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1272443/)
 
-翻译：康州盘古农场 – TrueSky
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 – 明子
+作者：纽约香草山媒体部 7bends
 
-据《Asianews》，2021年5月22日报道：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25221319/4324324234234234-1-1.jpg)
 
-在短短的两天时间里，新乡市使徒区的几乎所有教会人员都被河北省的警察部队消灭了。 昨天5月21日，主教张维笃女士被逮捕。在前一天，5月20日，7名牧师和10名神学院学生被逮捕。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-5月20日下午早些时候，河北省至少有100名来自沧州、河间和沙河桥的警察包围了沙河桥（河北）用作教区神学院的建筑。 实际上，新乡市曾将河北天主教徒拥有的一家小工厂用作神学院。 警察进入该建筑，逮捕了四名神父、神学院教授和另外三名开展牧民工作的神父。 与他们一起被捕的还有10名在工厂上课的神学院学生。
 
-根据《新宗教活动条例》的指示，该工厂被关闭，公司负责人被逮捕。
 
-中共国政府不承认新乡市的教区。 因此，神父、修士和信徒的活动被视为”非法”和”犯罪”。
-突击检查后，警察没收了神父和修士的所有个人物品。
+据CNN5月7日的报道，有超过100所美国大学要求入学学生必须打新冠疫苗。针对这些学校的要求，CHD（Children’s Health Defense）刊登文章指出，强制使用EUA（Emergency Use Authorization紧急使用授权）产品违反联邦法律。目前，所有新冠疫苗都仅仅是得到了EUA授权，尚未获得联邦政府的正式执照，其长期的安全性和有效性尚未得到证实。
 
-鉴于警察部队的大规模部署，人们认为这次突击检查已经计划了一段时间。 民政部门认为，还有其他神职人员设法逃脱，并在周围地区寻找他们。
+![]()![](https://media.discordapp.net/attachments/824587088309649429/846896229783044096/image0.jpg?width=667&amp;height=609)图源网络
 
-公共安全和警察正在挨家挨户地寻找他们。 如果他们发现有可归于天主教信仰的标志（十字架、雕像、圣像、教皇的照片等），业主将被罚款，物品会被没收和销毁。
+EUA产品被定义为实验性的，人们有拒绝的权力。根据伦理学的基础——纽伦堡法典——任何机构不得强迫任何人参加医学实验，倘若涉及实验性项目，个人的同意是绝对必须的。
 
-据许多观察家称，自中国和罗马教廷签署临时协议以来，对天主教徒，特别是非官方的天主教徒的迫害有所增加。该协议只涉及新主教的任命，但有一个前提，即有关教会生活的所有悬而未决的问题将继续待命，以后在双方的进一步对话中解决。相反，警察部队却软禁了主教，对信徒征收非常高的罚款，将教区牧师逐出教堂，逮捕神父和神职人员。 对许多教友来说，”协议被背叛了”。
-63岁的张维笃主教于1991年被任命为主教，曾多次遭受监禁。 新乡教区有10万名教友。
+那么，当学校或雇主要求你必须接种新冠疫苗时，你该怎么办呢？CHD表示，他们的法律小组已经拟了三份法律通知可以提交给学校或雇主，通知他们强制要求接种新冠疫苗违反了联邦法律。这三份通知都有美国联邦法律关于FDA对于EUA产品被授权紧急使用的以下说明。
 
-原文链接：[http://www.asianews.it/news-en/-Xinxiang,-the-bishop,-seven-priests-and-10-seminarians-arrested-53217.html](http://www.asianews.it/news-en/-Xinxiang,-the-bishop,-seven-priests-and-10-seminarians-arrested-53217.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+> “受用产品的个人须被告知：
+> 
+> 1）局长已授权紧急使用该产品。
+> 
+> 2）此类产品使用的重大已知和潜在的利益与风险，以及此类利益与风险的未知程度。
+> 
+> 3）接受或拒绝该产品的选择；拒绝使用该产品的后果（若有的话）；现有产品的替代品以及其收益和风险。
+> 
+> 如果不允许豁免或替代选择，雇主可能会面临诉讼。”
+
+
+疫苗豁免法律因州而异，读者可以到国家疫苗信息中心了解有关州豁免的更多信息。
+
+相信爆料革命的战友们都会尽量避免去打新冠疫苗的。在与健康、自由相关的问题上，大家必须维护受法律保护的基本人权，不要屈服于胁迫和压力，请使用可用的资源来保护您的合法权益。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0
