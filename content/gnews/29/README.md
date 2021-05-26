@@ -1,43 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【诗歌 】 新中国联邦·魂
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1271892/)
+## 《速度激情9》主演因台湾问题而被迫向中共俯首！
+` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1271933/)
 
-【作者】禾童 【编辑】Candy
-
-拉满的弓上颤动的弦啊
-
-月光下
-
-你的心跳清晰可闻
-
-雪亮美丽的刀刃啊
-
-你的侧脸
-
-如刀锋般冷峻
-
-深藏在爱与悲愤下的
-
-你的真心啊
-
-懂得她的
-
-只有新中国联邦之魂
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25154721/sdjq-edited.png)图片来源：thepostmillennial
 
 
+据加拿大自媒体《Thepostmillennial》5月25日刊登新闻报道：美国家喻户晓的摔角WWE巨星，《速度与激情9》（Fast＆Furious9）的主演约翰·塞纳（John Cena）因日前将台湾称之为一个国家之后，现在却不得不为此向其中共国的粉丝鞠躬道歉。
 
-**【免责声明】** 尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+塞纳在其主演的最新电影《速激9》的最近一次由台湾广播电视网（TVBS）主办的巡回促演商业活动中发表了以上的政治敏感评论。随后，在迅速遭受到中共国粉丝和网民汹涌澎拜的口诛笔伐之后，该明星被迫在中共国社交媒体平台《新浪微博》发布了一段“肺腑”视频讯息，“诚恳”道歉并澄清了他此前的“不当”评论。
 
-**欢迎战友加入旧金山金喜准农场**
+塞纳几乎动情道：“嗨，中国！我是约翰·塞纳。之前在《速激9》的促销活动中接受了大量媒体的采访，由于信息混乱以及理解有误，我为此犯了一个严重错误（将台湾说成了国家）。实际上，我是如此热爱并尊重中国和中国人民，在此对以上口误深表内疚，我再次向大家道歉，俺真滴真滴万分抱歉！”
 
-[旧金山金喜农场](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+据《南华早报》曰，塞纳的道歉视频瞬间囊收了5,000多条激烈评论。一位用户铿锵道：“请用中文说台湾是中共国的一部分！否则，否则我们就将唾弃你到底！”此评论下满溢了3200多个赞。另一位用户则义正言辞地威胁说：“我曾经很喜欢你。也暂且认为你真的爱中国。但不要再愚昧无知地谈论中国的领土和主权了！”
 
-[旧金山金喜农场](https://discord.gg/QQzQ79grEA)[Discord](https://discord.gg/QQzQ79grEA)
+与此同时，塞纳的道歉之举在Twitter上立刻引起了动荡的波澜，许多推客都猜测该道歉应该是在当局或制片方，甚至电影发行商的逼迫之下而不得已为之，其目的只是尽力避免这部即将公映的电影不会在其最大的（中共国）市场之一中赔钱罢了。
 
-[旧金山金喜农场](https://twitter.com/sf_himalaya)[Twitter](https://twitter.com/sf_himalaya)
+[原文链接](https://thepostmillennial.com/watch-wwe-star-john-cena-apologizes-to-china-for-calling-taiwan-a-country)
 
-[旧金山金喜农场](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[Youtu](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**b**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[e](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+本文仅代表原媒体信息和作者本人观点！
 
-0
++3

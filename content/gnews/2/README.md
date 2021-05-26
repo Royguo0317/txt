@@ -1,20 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】世界上第一个接种Covid-19的英国人威廉·莎士比亚因长期患病中风去世
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272190/)
+## 【拆台新闻】打苗苗了-科兴中维首季纯利100亿元
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272218/)
 
-比尔于2020年12月8日在V-Day上登上全球头条新闻，他在考文垂大学医院接受了辉瑞/ BioNTech新冠病毒疫苗接种。
+中共国新浪网站报道：科兴中维首季纯利100亿元。
 
-考文垂大学医院和沃里克郡国民健康服务基金会说，劳斯莱斯前雇员和教区议员上周四因中风去世。
+央视网站统计截止2021年5月24日，31个省（区，市）及新疆建设兵团累计报告接种52725.3万剂次。
 
-他是考文垂医院脆弱病房的长期患者。当他在12月收到疫苗时，他是病房的住院病人，他称之为“奇妙”。 莎士比亚先生穿着一双圣诞节拖鞋和他的医院袍在这张照片上拍摄的照片登上了世界各地的头版。
+博士军团墨博士分析说：“科兴疫苗纯利100亿，他们报道累计出货3亿剂，那么第一季度很可能也就1-2亿剂，我想知道利润率为什么如此高？既然国家免费，那还不是老百姓买单。这tmd就是图财害命！”
+
+人民网报道说国台办发言人朱风莲面对对面宝岛，深情的呼唤台湾同胞打苗苗，她说“我们的态度非常明确，愿意迅速做出安排，让广大台湾同胞尽快有大陆疫苗可以用。“她还表示，如果有需要，还要派人过去呢。“病毒无情人间有爱”，
+
+前几个星期尝试安排了冲锋艇过去台湾的， 不过登陆队员到了台湾的时候，饺子还在，疫苗没看见。
 
 参考链接：
 
-[https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html](https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html)
-
-图片来源：[https://www.dailymail.co.uk/](https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html)
+新浪网站
 
 整理撰稿：蓝精灵
 
