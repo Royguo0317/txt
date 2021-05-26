@@ -1,25 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】世界上第一个接种Covid-19的英国人威廉·莎士比亚因长期患病中风去世
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272190/)
+## 【拆台新闻】一波三折的袁隆平辞世消息
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1265250/)
 
-比尔于2020年12月8日在V-Day上登上全球头条新闻，他在考文垂大学医院接受了辉瑞/ BioNTech新冠病毒疫苗接种。
+**作者：云起时**
 
-考文垂大学医院和沃里克郡国民健康服务基金会说，劳斯莱斯前雇员和教区议员上周四因中风去世。
+5月22号许多民众被一波三折的袁隆平去世消息给搞糊涂了。
 
-他是考文垂医院脆弱病房的长期患者。当他在12月收到疫苗时，他是病房的住院病人，他称之为“奇妙”。 莎士比亚先生穿着一双圣诞节拖鞋和他的医院袍在这张照片上拍摄的照片登上了世界各地的头版。
+一早新闻就报道了一条令许多人震惊的消息：被誉为“杂交水稻之父”的中国工程院院士袁隆平，因多器官功能衰竭，于5月22日上午于长沙去世。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22210559/41-5.jpg)
+袁隆平在中国民众中的影响力相当大，该消息引起了强列的反响。可正当大家忙着转发消息之时，却发现最早发出该消息的中共官媒中国环球电视网（CGTN）悄悄地删去了自己发出的消息。
 
-参考链接：
+全体官媒一片混乱。
 
-[https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html](https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html)
+澎湃新闻找出了袁隆平院士的秘书杨耀松，称网上关于袁隆平逝世的消息是假消息，袁隆平目前在医院，身体状况不太好。新闻中杨耀松说“我们目前正在医院”。
 
-图片来源：[https://www.dailymail.co.uk/](https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html)
+人民网找到家属表示这是假消息。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22210619/42-4.jpg)
+全网一片群情激昂，很多人激动地说要到CGTN那里去打假。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22210640/43-5.jpg)
+中午时分，CGTN紧急发布道歉声明：“经核实，袁隆平院士目前正在医院接受治疗，我们对此前报导不慎深表歉意。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22210700/44-5.jpg)
+人们刚松了一口气，新华社的最官方的消息又来了，说袁隆平于5月22日13点07分在湖南长沙逝世。
 
-整理撰稿：蓝精灵
+所有人都懵了，这是什么情况？
 
-校对发布：Penny
+与袁隆平同一天过世的还有中国科学院院士，原第二军医大学副校长吴孟超，于2021年5月22日13时02分在上海逝世，享年99岁。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+全网只有一片哀悼，却没有人敢质疑一声。任何不同的声音，都会迅速被压制，甚至被刑拘。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22210725/45-6.jpg)
+还是路德社说得好，对于任何有影响力的人物的死亡事件，中共一向有一套标准流程。袁隆平的级别决定了只能由新华社来报道，而且在报道前必须还要有一系列的准备和铺垫，以免引起社会动荡。这一次被不懂事的CGTN抢了个先，那可是万万不行的。同时重要人物的去世总有其它人物的同时去世作为衬托，以显现其重要性。
 
-0
+中共总是天天吹嘘自己“稳定”，其实这种“稳定”是何等的脆弱，只要有一点点小火花就有可能给整个政权带来不可估量的动荡。从中共在袁隆平去世事件上的整个操作，我们就可以看到这个体系是多么的混乱及色厉内荏。
+
+（本文只代表作者观点，与Gnews平台无关。）
+
+**相关链接**：[http://www.xinhuanet.com/photo/2021-05/22/c\_1127478719.htm](http://www.xinhuanet.com/photo/2021-05/22/c_1127478719.htm)
+
+***校对发布**：文顾*
+
++5
