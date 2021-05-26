@@ -1,40 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国高级外交官表示，欧盟将贸易政治化“不可接受”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1273162/)
+## 【有声读物】低温粮库改造“名大于实”，面子工程徒增地方财政压力
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1273259/)
 
-- 作者：里奇
+配音：香草山录音组 蒙古鸿雁
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年5月26日电/西喜社——**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26075804/image0-2-37.jpg)图片来源：reuters.com
-中共国国务委员王毅周二表示，欧盟某些人企图将贸易问题政治化是“不可接受的，将无济于事”。当布鲁塞尔对中共国官员实施制裁时，北京感到震惊。
 
-欧盟停止批准与中国的投资协定直到北京取消对欧盟政客的制裁，之后不到一周，也是外交部长的王毅发表了上述讲话。
 
-中共国采取报复制裁措施是在三月份布鲁塞尔将涉嫌侵犯新疆人权的中国官员列入黑名单之后，北京方面对指控予以否认。
 
-王在慕尼黑安全会议主持的一次会谈中说，这项投资协定不是“单方面受惠”，而且引发政治对抗和经济脱钩不符合欧盟的利益。
 
-他说，中共国愿意在相互尊重的基础上扩大与欧洲的合作。
+环球网5月24日转载央视新闻客户端消息，23日中共四川粮食和物资储备局称，四川省投入15亿元建成绿色低温粮库265个（仓容641万吨）。
 
-王说：“我们从来没有想到欧盟会对我们实施制裁。”他对战略伙伴怎么会采取这种行动表示质疑。
+2019年12月四川日报曾报道，自2014年四川率先大规模应用绿色低温储粮技术，截至19年底，已投入省级资金补助15亿元，已有340万吨低温仓容建成并投入使用（占仓容目标639万吨的53.2%）。2020年9月湖北省发布建设改造低温库项目公告，估算单价为224万元/万吨（其中省级财政补助标准为70%）。
 
-王说，制裁使中国人想起了“他们被欧洲帝国主义者欺负的日子”。
 
-他解释为何中共进行回击：“作为中共国政府，我们要维护自己的主权和我们的民族尊严……我们必须反击谎言和虚假信息。”
 
-他说：“中共国是所有国家的值得信赖的伙伴，而不是陷入对抗的系统性对手。”
+**文字版原文：[【鹰眼墙国】低温粮库改造“名大于实”，面子工程徒增地方财政压力](https://gnews.org/zh-hans/1270352/)**
 
-**点评: 这位 “断交部长” 难道把新冠病毒抛掷脑后了？莫非它是可以接受的？施毒符合谁的利益？哪个政府最厚颜无耻每天撒弥天大谎？哪个政权最邪恶残忍、长时间欺压盘剥自己的国民? 世界缉毒正当时，劝恶党最好自我解散以谢罪并还权于民。**
+作者：纽约香草山写作组 鹰(文言)
 
-素材：里奇；审核： Jenny Ball；校对：信心满满； 发稿：信心的选择
 
-**新闻来源：**[路透社](https://www.reuters.com/world/china/senior-china-diplomat-says-eu-politicising-trade-not-acceptable-2021-05-25/)
 
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
-+3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1

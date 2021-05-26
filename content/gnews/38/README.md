@@ -1,39 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华为发布声明称，将不参与造车
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1273233/)
+## 【有声读物】新西兰外长警告：与中共国关系恶化只是时间问题
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1273268/)
 
-#### 文章撰写:【默凡】
+配音：香草山录音组 信念7
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26080523/Snipaste_2021-05-26_20-04-30.png)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-5月24日，华为发布《关于华为不造车声明》，该声明明确不造车这一长期战略在2018年就已经明确，没有任何改变。迄今为止，华为并未投资任何车企，未来也不会投资任何车企，更不会控股、参股。
 
-以下为华为不造车声明原文：
 
-有关华为造车的不实传言，公司发言人已多次予以澄清，今天，我们再次重申：华为不造车。这一长期战略在2018年就已明确，没有任何改变。
 
-我们认为，产业界需要的不是华为品牌汽车，而是华为三十多年积累的ICT技术能力，来帮助车企造好面向未来的车，即为车企提供基于华为ICT能力的智能网联汽车部件。
 
-至今为止，我们并未投资任何车企。未来也不会投资任何车企，更不会控股、参股。以后，凡是议论上说华为造车、或者参股汽车制造行业，均为谣言，勿轻信。
 
-我们选择了北汽、长安和广汽三家车企作为战略合作伙伴，支持它们打造各自子品牌。用了华为自动驾驶解决方案的车，经华为授权才可以使用HI标识，代表Huawei Inside。
 
-关于华为与重庆小康集团旗下的金康赛力斯的合作，华为是赛力斯SF5(配置|询价)的电动部件和HiCar座舱部件的供应商。同时为了解决华为授权手机零售店在华为手机大幅减少情况下的生存问题，华为在支持部分零售店来销售此款车，零售店可以获得相应收益。
+5月24日，马胡塔在接受《卫报》（The Guardian）专访时表示，在国际舆论压力之下，新西兰政府将对中共国侵犯人权、迫害香港自由等行为采取更强硬的态度。再加上澳大利亚与中共的贸易战正越演越烈，马胡塔相信新西兰受到影响只是时间问题。
 
-评论：
 
-华为自从被美国全面制裁后，每况愈下，业绩一天不如一天，曾经喜好口出狂言的华为渐渐失去了往日的光环。可见，华为的强大靠的是美国科技公司的支持，并非靠自身的科技实力。
 
-除了墙内小粉红，还有谁会相信一个连芯片都没有的华为还能制造汽车，或者造手机。
+**文字版原文：[【独立观点】新西兰外长警告：与中共国关系恶化只是时间问题](https://gnews.org/zh-hans/1272505/)**
 
-参考文章：[华为重申不造车：联合设计的模式仍在探索阶段](https://auto.sina.com.cn/news/hy/2021-05-24/detail-ikmxzfmm4393944.shtml)
+作者：纽约香草山健身部 Ivy001
 
-本文仅代表作者本人观点，不代表Gnews平台
 
-* * *
 
-*排版发布：日本东京方舟农场 文柯Miles*
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

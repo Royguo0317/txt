@@ -1,43 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】新西兰外长警告：与中共国关系恶化只是时间问题
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1273268/)
+## 德国自行车队将不参加在白俄罗斯举行的欧洲精英田径锦标赛
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1273303/)
 
-配音：香草山录音组 信念7
+#### 翻译：龟仙人
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26090745/fsadg15251886_303.jpg)
 
+德国自行车协会周二表示，它已与欧洲自行车联盟（UEC）联系，并明确表示，在拉曼-普拉塔塞维奇事件发生后，德国国家场地自行车队不可能参加欧洲锦标赛，并建议有一个替代的解决方案。
 
+同时，周二早些时候，英国自行车运动性能总监对白俄罗斯的主办权提出了质疑。他在Twitter上说：“27个欧盟成员国告诉欧盟航空公司不要飞越白俄罗斯，并承诺进一步的经济制裁，欧洲自行车联盟（UEC）肯定不可能继续在明斯克举行的欧洲田径比赛。”
 
+因拉曼-普拉塔塞维奇是在周日被拉下改道飞往明斯克的航班后被捕的，这一事件迅速引起了欧盟领导人的谴责。
 
+这不是第一个从白俄罗斯撤走的比赛，今年1月，国际冰球联合会将世界锦标赛从白俄罗斯撤出。
 
+新闻来源：[Germany pulls out of track cycling championships in Belarus](https://apnews.com/article/sports-europe-germany-europe-belarus-track-cycling-cc629f1696c08694c63662e207b12363)
 
+* * *
 
-5月24日，马胡塔在接受《卫报》（The Guardian）专访时表示，在国际舆论压力之下，新西兰政府将对中共国侵犯人权、迫害香港自由等行为采取更强硬的态度。再加上澳大利亚与中共的贸易战正越演越烈，马胡塔相信新西兰受到影响只是时间问题。
-
-
-
-**文字版原文：[【独立观点】新西兰外长警告：与中共国关系恶化只是时间问题](https://gnews.org/zh-hans/1272505/)**
-
-作者：纽约香草山健身部 Ivy001
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*排版发布：日本东京方舟农场 文柯Miles*
 
 0

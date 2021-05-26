@@ -1,53 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界对新冠病毒起源重新独立调查
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1273202/)
+## 【有声读物】中共疫苗光速接种 毒害人民祸患无穷
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1273255/)
 
-台湾宝岛农场:文旦
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26075108/%E6%93%B7%E5%8F%96526-0-2.jpg)
-随着国际社会对中共病毒（新冠病毒、COVID-19）来自实验室的质疑声越来越强大，美国政府高级卫生官员和专家们呼吁进行更深入的调查。周二（5月25日），美国政府要求对病毒起源进行透明的、独立的「第二阶段调查」。
+配音：香草山录音组 蒙古鸿雁
 
-在世界卫生大会（WHA）的年度部长级视频会议上，美国卫生部长贝塞拉（Xavier Becerra）表示：「对COVID起源的第二阶段调查必须在透明、科学的范围内启动，让国际专家能独立地、全面地评估病毒的来源和疫情爆发初期情况。」
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-新冠病毒(中共病毒)爆发至今，在世界爆发的第一例，都不法查清，也没有样本，更没有病例，及病原体，一切好像没有起源一样。
 
-中国共产党极力阻挡着全球对于病毒来源真相的调查，原因到底为何?
 
-病毒不会分政党，病毒不会选人，那么为什么不给世界知道病毒真相呢?
 
-在新冠病毒(中共病毒)的爆发已经一年，真相慢慢浮出水面，新冠病毒(中共病毒)就是来自实验室的产物，那么它是意外泄漏，还是故意释放呢?又为什么要制作这种病毒呢?
 
-相信最后一点才是大家要疑惑的，为什么实验室要制作这个病毒?这就是中国共产党隐瞒真相的原因。
 
-在阎丽梦博士的报告中，可以了解病毒最重要的骨架来自南京解放军东部战区，ZC45和ZXC21，全世界只有中共拥有。
 
-也在报告中可以了解这个病毒要伪装成自然来源，所以降低它的致死率，提高了传播率和潜伏期，因为这样可以造成感染地区或是国家的医疗体系及经济体系完全崩溃。
+综合中共央视网报道，中共国内疫苗接种截至5月23日累计5亿剂次！
 
-这就是超限生物武器，现在正在发生一场生物武器的超限战。
+各地群众“踊跃接种新冠疫苗 构建免疫屏障”的消息令人汗颜不止，“多地推进新冠疫苗接种服务举措 疫苗接种呈现加速度”的导语更令人恐惧不已。咱们看一下央视网宣传的数据：今年3月27日超过1亿剂次，4月21日超过2亿剂次（25天），5月7日超过3亿剂次（16天），5月16日超过4亿剂次（9天），5月24日突破5亿剂次（7天）。其中湖北累计3008万剂次、上海2379.84万剂次、北京2970.59万剂次。（1）这是以光的加速度在增长吧？！
 
-传播真相，缺你不可，你很重要，你的一小步，将是灭共的一大步。
 
-资料来源:
 
-[病毒起源疑云重重美政府和专家吁独立调查-大纪元](https://www.epochtimes.com/b5/21/5/25/n12974826.htm)
+**文字版原文：[【世事解评】中共疫苗光速接种 毒害人民祸患无穷](https://gnews.org/zh-hans/1271315/)**
 
-[阎丽梦博士3份新冠病毒(中共病毒)报告](https://twitter.com/DrLiMengYAN1/status/1378015779287891968)
+作者：纽约香草山健身部  文鹰
 
-台湾宝岛农场YOUTOBE:
 
-[5月25日美曝光曾计划用核打击阻止中共侵台](https://www.youtube.com/watch?v=z7T7a4paxNw)
 
-希望大家帮忙订阅分享!!!感谢你!!!
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+**更多资讯，更多关注**
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-文章审核：zhong
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-文章发布：Little Liu
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-+1
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
