@@ -1,225 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友展览板【5/26】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1273944/)
+## 【拆台新闻】兵临城下，中共用红魔招魂术谎言宣传毛岸英
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1274061/)
 
-西班牙巴塞罗那喜悦农场 wenwu
+#### 撰稿：紫橄榄
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26165058/%E7%BA%A2.jpeg)100年前，中共红魔在一艘小破船上淫生，图片来自网络
+**【媒体观点】**奋斗百年路 启航新征程·数风流人物
 
-【以毒灭共】推特。如下
+央网：系列报道《奋斗百年路 启航新征程·数风流人物》，今天（2021年5月26日）带您认识在抗美援朝战争中牺牲的毛岸英、黄继光。
 
+**毛岸英**：用生命守护信仰
 
+毛泽东的长子，1922年出生在湖南省长沙市。8岁时，母亲杨开慧被捕入狱，毛岸英也被关进牢房…….
 
-> 芬兰制药公司Therapeutica Borealis
-> 研发出鼻喷式羟氯喹药剂
-> 已获得美国专利与商标专利授权
-> 
-> 这款鼻喷式药剂所含活性成分有抑肽酶、羟氯喹和伊维菌素等。
-> 
-> 可防止冠状病毒接触到鼻黏膜内细胞，还可防止病毒逃逸，并削弱病毒自我复制的能力，从而达到预防冠病感染并降低严重患病风险的目的。 [pic.twitter.com/LkZiX0t5Ge](https://t.co/LkZiX0t5Ge)
-> — 冠軍的后媽 (@caqiangzouhuoMG) [May 25, 2021](https://twitter.com/caqiangzouhuoMG/status/1397187598355947533?ref_src=twsrc%5Etfw)
+**黄继光**：舍身堵Q眼的特级英雄
 
+1931年出生在四川省中江县。1951年3月参加中国人民志愿军。1952年10月19日夜，黄继光所在营奉命夺取上甘岭西侧597.9高地。他用胸膛堵住了敌人冒着火舌的Q口，壮烈牺牲。战友们喊着“为黄继光报仇”……
 
-1. **[冠军的后妈推特](https://twitter.com/caqiangzouhuoMG/status/1397187598355947533?s=20)**：
-*芬兰制药公司Therapeutica Borealis 研发出鼻喷式羟氯喹药剂 已获得美国专利与商标专利授权 这款鼻喷式药剂所含活性成分有抑肽酶、羟氯喹和伊维菌素等。 可防止冠状病毒接触到鼻黏膜内细胞，还可防止病毒逃逸，并削弱病毒自我复制的能力，从而达到预防冠病感染并降低严重患病风险的目的*
+**【笔者评论】上述讯息为今天（2021年5月26日）中共央视网发表其新闻联播的文字报道，笔者认为中共为其继续集权统治而用红魔招魂术，要让百姓孩子准备上战场当炮灰做好战争准备。**
 
+为此，笔者仅以三点看法概括如下：
 
-> 2021年5月25日[#新冠](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0?src=hash&amp;ref_src=twsrc%5Etfw) [#疫苗](https://twitter.com/hashtag/%E7%96%AB%E8%8B%97?src=hash&amp;ref_src=twsrc%5Etfw) 的目的是人口削减计划。
-> The purpose of the [#covid](https://twitter.com/hashtag/covid?src=hash&amp;ref_src=twsrc%5Etfw) [#vaccine](https://twitter.com/hashtag/vaccine?src=hash&amp;ref_src=twsrc%5Etfw) is depopulating the [#world](https://twitter.com/hashtag/world?src=hash&amp;ref_src=twsrc%5Etfw)
-> 
-> (3/3) [pic.twitter.com/rvADz1S4bG](https://t.co/rvADz1S4bG)
-> — 诗和远方 (@realcolidorra) [May 25, 2021](https://twitter.com/realcolidorra/status/1397182801875771401?ref_src=twsrc%5Etfw)
+**一,毛岸英死在朝鲜战争的真相**
 
+1950年6月朝鲜战争爆发，在6月25日，中共与苏联操纵的朝鲜军队越过38线,入侵韩国，把韩国军队打得满地找牙找不着北，不到一星期，就拿下韩国首都汉城（现称首尔），还被朝鲜的军队追打到朝鲜半岛的最南端。
 
-2. **[诗和远方推特](https://twitter.com/realcolidorra/status/1397182801875771401?s=20)**：
-*2021年5月25日
-#新冠疫苗 是绝育的，目的是人口削减计划*
+10月8日，毛泽东正式作出了参战决定，电令中国东北野战军改编所谓的“中国人民志愿军”秘密进入朝鲜半岛，帮助朝鲜军队功下整个朝鲜半岛，从而控制韩国，把朝鲜半岛变成共产国际联盟国家。
 
+毛泽东让毛岸英上朝鲜战场是有其背后的私人动机，这是他与原配所生的孩子，唯一一个正常人，而且毛泽东与别的女人非婚所生的孩子是不可能摆在政权台面上，唯一可以摆在台面上的就是毛岸英，所以毛泽东派毛岸英跟随彭德怀到朝鲜战场进行镀金，镀上一层浓重的金环，积攒政治资本回国后，他以后就可以名正言顺承接当红色基因的二代皇帝。
 
-> 塞林上校通过班农先生节目告诉美国人：
-> 中共军方已广泛渗透进美国的各类病毒研究机构。他们派驻的人员，用“病毒功能增强”技术帮助中共制造各种生化武器，不仅仅是冠状病毒！
-> 
-> 虽然没点名，但说的就是单超！
-> 在UTMB史佩勇手下研究寨卡病毒，然后回归武汉病毒所！
-> 
-> 他参与了中共病毒投放的致病效果测试！ [pic.twitter.com/gLNqgraxcS](https://t.co/gLNqgraxcS)
-> — 慕尼黑感恩 (@himalaya\_de) [May 25, 2021](https://twitter.com/himalaya_de/status/1397203208452382720?ref_src=twsrc%5Etfw)
+但是，人算不如天意，身为红二代的毛岸英在前沿二线的指挥所工作，当他在指挥所外面热特供食物的时候，被联合国盟军轰炸机扔下的炸弹炸死。毛岸英的死，毛泽东终于偿到了”白发人送黑发人的切身之痛”,他把这个心痛的火源全烧到彭德怀身上，这是彭德怀后面被批斗惨死的主要原因之一。共产主义极权国家正是一个绞肉机体制，其党旗都是镰刀和锤子，意指一切靠偷与杀抢来的血腥正权。
 
+**二, 毛岸英的信仰**
 
-3. **[感恩农场推特](https://twitter.com/himalaya_de/status/1397203208452382720?s=20)**：
-*塞林上校通过班农先生节目告诉美国人： 中共军方已广泛渗透进美国的各类病毒研究机构。他们派驻的人员，用病毒“功能增强”技术，帮助中共制造各种生化武器，不仅仅是冠状病毒！ 虽然没点名，但说的就是单超！ 在UTMB史佩勇手下研究寨卡病毒，然后回归武汉病毒所！ 他参与了中共病毒投放的致病效果测试*
+毛岸英的所谓”信仰“就是中共所谓的信仰，就是马列主义撒旦魔鬼教的魂体。中共在苏联解体之后继承了这个红魔邪体的接力棒，现在他们又把红魔鬼魂毛岸英毛泽东抬出来示众虚假宣传，就是要弘扬与庆贺他们所谓的魔鬼撒旦教典礼100周年，呼召无知无觉的中国人民把中共认贼为父，世代为奴隶，还要感恩戴德，还要准备你的孩子上战场奉献生命当炮灰来保护中共邪恶犯罪组织的极权统治。
 
+**三，来自草根家族的王继光**
 
-> A major Indian outlet, the Goa Chronicle, interviews Dr. Lawrence Sellin about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw), China's biological warfare program and the unique aspects of the Indian variant.[https://t.co/eJ6h03SRnD](https://t.co/eJ6h03SRnD)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397248172410511362?ref_src=twsrc%5Etfw)
+王继光在所谓的”堵枪眼”就是一个中共媒体70年的大肆谎言宣传，谎言千遍能终成真理吗？中共的原文“他用胸膛堵住了敌人冒着火舌的Q口，壮烈牺牲！”，中共知道现在的网民有智慧，用’Q口”代替”枪口”，不然将招来全球网民的吐沫战，这就是中共喉舌的心虚所为。
 
+在战场上，人还没到达敌对方的跟前，一枪就从远处将你屁命！ 有用身体赌住枪口的机会吗？简直是一派胡言！这就是中共最擅长的媒体洗脑战术，现在用“十面埋伏”战术更是高超。
 
-4. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1397248172410511362?s=20)**：
-[*印度一家主要媒体《果阿纪事报》（GC），就 #COVID19 的起源、中共国的生物战计划和印度变体的独特之处，采访了劳伦斯·塞林博士*](https://goachronicle.in/unraveling-the-corona-virus-origin-mystery-with-dr-lawrence-sellin/)
+可惜我们的人民大众已经泡在温井中100年了，无知无觉过了6代人，还在中共的魔掌中，兴高淫意地做现代奴隶，还以为自己打了红色基困鸡血姓赵，又热血沸腾愛上党魔，错把党魔当国爱，每一代人都患了斯德哥尔摩综合症。
 
+**总之，**中共之所以现在把红基因二代毛岸英与草根王继光抬出来示众招魂，用他们所谓的”牺牲”在所有媒体上对全国进行谎言宣传。因为中共党卫军已经在去年一月向全世界所投放的生物武器冠状病毒引发全球几百万人死亡，一亿人已经感染。
 
-> Exactly, fack-check should know what fact means! [@SharylAttkisson](https://twitter.com/SharylAttkisson?ref_src=twsrc%5Etfw) “Last Sep,the fact check attacked a scientist, Li-Meng Yan who appeared on Tucker Carlson Tonight.The assertion by Politifact was false and it’s false now, according to multiple authorities”[https://t.co/aSR1ArKtWI](https://t.co/aSR1ArKtWI)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 26, 2021](https://twitter.com/DrLiMengYAN1/status/1397349308823920645?ref_src=twsrc%5Etfw)
+中共已经被全球180国联军追到城门之下讨责而危机重重，中共已经出再回光返照，今天又出现上天的异象：血色月亮，中共的时日将不多了，中共的寿终正寝被全球正义联盟彻底覆灭就在眼前。
 
+所以中共国要用国家机器与媒体忽悠人民，让老百姓的孩子们去堵枪眼充当炮灰，来保护这个红色基因魔鬼政权！
 
-5. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1397349308823920645?s=20)**：
-*没错，“为事实而正确”本意应该含有事实! SharylAttkisson记者[“去年9月，“为政治而核实”攻击了一位出现在Tucker Carlson Tonight上的闫丽梦科学家。“为政治而正确”的论断是错误的，现在根据多个权威机构的说法，也是错误的”](https://sharylattkisson.com/2021/05/a-politifact-fact-check-has-to-correct-its-own-facts/)*
+参考文章https://www.bbc.com/zhongwen/simp/world-53165066
 
+本文僅代表個人觀點，不代表 Gnews 平台
 
-> Navarro: Fauci Will Be Gone Within 90 Days [https://t.co/P9OZidB5NH](https://t.co/P9OZidB5NH)
-> — Peter Navarro (@RealPNavarro) [May 25, 2021](https://twitter.com/RealPNavarro/status/1397239528742608899?ref_src=twsrc%5Etfw)
-
-
-6. **[皮特·纳瓦罗推特](https://twitter.com/RealPNavarro/status/1397239528742608899?s=20)**：
-*[福奇在90天内离开白宫](https://rumble.com/vhkbdh-navarro-fauci-will-be-gone-within-90-days.html)*
-
-
-> 塞林博士简要介绍了病毒由中共军方东部战区南京送往武汉做灵长类动物测试的全过程
-> Dr Sellin briefly introduced the entire process of non-human primate test for the effectiveness of COVID-19, which happened in the facility where the pandemic started [https://t.co/VoZZ3VFvyX](https://t.co/VoZZ3VFvyX) [pic.twitter.com/mIi1q4mGTM](https://t.co/mIi1q4mGTM)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [May 25, 2021](https://twitter.com/jsdfposjpqyuee1/status/1397317752507887625?ref_src=twsrc%5Etfw)
-
-
-7. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1397317752507887625?s=20)**：
-***（Sellin）对劳伦斯·塞林博士的最新深入采访，讨论#COVID19的起源、#中共的生物战计划以及中共和人民解放军对美国病毒研究项目的大规模渗透（火来视频：塞林博士简要介绍了病毒由中共军方东部战区南京送往武汉做灵长类动物测试的全过程）***
-
-
-> 🔥塞林上校盛赞中国战友：这些中国年轻人一个星期做的比美国情报部门一年做的还要多！ [pic.twitter.com/KbAXV9dBUs](https://t.co/KbAXV9dBUs)
-> — 乔戈里峰 (@K2Qiaogeli) [May 25, 2021](https://twitter.com/K2Qiaogeli/status/1397337113629126660?ref_src=twsrc%5Etfw)
-
-
-8. **[喜站推特](https://twitter.com/K2Qiaogeli/status/1397337113629126660?s=20)**：
-*（视频）塞林上校盛赞中国战友：这些中国年轻人一个星期做的比美国情报部门一年做的还要多*
-
-
-> 快讯：美参议院无异议通过参议员保罗的修正案，永久禁止用美国的资金资助中国的「功能增强」实验
-> 修正案通过后，议会里一片欢呼声 [pic.twitter.com/dgTg5VpBZL](https://t.co/dgTg5VpBZL)
-> — 乔戈里峰 (@K2Qiaogeli) [May 25, 2021](https://twitter.com/K2Qiaogeli/status/1397335967556460550?ref_src=twsrc%5Etfw)
-
-
-9. **[喜站推特](https://twitter.com/K2Qiaogeli/status/1397335967556460550?s=20)**：
-（*视频）快讯：美参议院无异议通过参议员保罗的修正案，永久禁止用美国的资金资助中共国的“生物武器”「功能增强」实验 修正案通过后，议会里一片欢呼声*
-
-
-> It's so funny how the new narrative is that the Covid-19 lab theory has "gained credibility lately."
-> It always had credibility; the media was just misreporting it– and the facts–as it pushed an opposite narrative.
-> The only thing that changed much is the media's reporting.
-> — Sharyl Attkisson🕵️‍♂️ (@SharylAttkisson) [May 26, 2021](https://twitter.com/SharylAttkisson/status/1397344650101501961?ref_src=twsrc%5Etfw)
-
-
-10. **[Sheryl Attkisson推特](https://twitter.com/SharylAttkisson/status/1397344650101501961?s=20)**：
-记者：*新冠病毒实验室起源理论的新说法 “最近获得了可信度”，这太有趣了。它一直都有可信度；媒体只是错误地报道了它–以及事实–因为媒体推动了一种相反的说法。唯一改变的是主流媒体的报道*
-
-
-> [email protected], 24 May, 2021
-> – I convinced [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) virus was made in labs. Instead of “leak”, I use “release”!
-> – I have evidence that CCP’s People’s Liberation Army deliberately released virus as a test for future bioweapon operations[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw)[#CCPLiedPeopleDied](https://twitter.com/hashtag/CCPLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/N1OiF1q99d](https://t.co/N1OiF1q99d)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 26, 2021](https://twitter.com/DrLiMengYAN1/status/1397358346634776578?ref_src=twsrc%5Etfw)
-
-
-11. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1397358346634776578?s=20)**：
-*劳伦斯·塞林博士, 24 May, 2021
-我确信 #COVID19病 毒是在实验室制造的。与其说是 “泄露”，不如说是 “故意释放”!
-我有证据表明，中共的人民解放军故意释放病毒，作为未来生物武器行动的一个测试。
-#超限生物武器 #中共撒谎人类灭亡*
-
-
-> By [@GordonGChang](https://twitter.com/GordonGChang?ref_src=twsrc%5Etfw)
-> -We should be implementing policies designed to end the rule of the Communist Party
-> -This is not the last pathogen that will be generated on Chinese soil, and we can’t allow Xi to think he can spread the next disease with similar impunity.[https://t.co/e2ZYLsEMDC](https://t.co/e2ZYLsEMDC)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 25, 2021](https://twitter.com/DrLiMengYAN1/status/1397316240327286791?ref_src=twsrc%5Etfw)
-
-
-12. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1397316240327286791?s=20)**：
-[*-我们应该实施旨在结束共产党统治的政策
--这不是在中国土地上产生的最后一种病原体，我们不能让习近平认为，他可以照样不受惩罚地传播下一种瘟疫。（来自章家敦）*](https://www.sundayguardianlive.com/news/china-turned-covid-19-biological-weapon-committed-mass-murder)
-
-
-> Exclusive: The visit by the Chief Science Officer of America's military lab to the Wuhan Institue of Virology. 
-> 
-> This web sheds light on the reticence in the scientific community to call for an investigation into a possible lab origin of Covid-19.[https://t.co/Bkno2S1j1C](https://t.co/Bkno2S1j1C)
-> — Sharri Markson (@SharriMarkson) [May 25, 2021](https://twitter.com/SharriMarkson/status/1397313055864737794?ref_src=twsrc%5Etfw)
-
-
-13. **[澳洲记者Sharri推特](https://twitter.com/SharriMarkson/status/1397313055864737794?s=20)**：
-*[独家报道：美国军事实验室首席科学官对武汉病毒研究所的访问。该报道揭示了科学界对要求调查Covid-19实验室来源的沉默](https://www.theaustralian.com.au/subscribe/news/1/?sourceCode=TAWEB_WRE170_a_TWT&amp;dest=https%3A%2F%2Fwww.theaustralian.com.au%2Fnation%2Fcoronavirus-american-scientists-caught-up-in-wuhan-web-of-intrigue%2Fnews-story%2F90f5dc0317a87513caf99762407cc6b8&amp;memtype=anonymous&amp;mode=premium&amp;v21suffix=414-b)*
-
-
-> Yes, [@Jkylebass](https://twitter.com/Jkylebass?ref_src=twsrc%5Etfw). If we’re going to defend ourselves from the next disease, we have to confront the awful reality that [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s regime, by deliberately spreading [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) beyond its borders, committed [#MassMurder](https://twitter.com/hashtag/MassMurder?src=hash&amp;ref_src=twsrc%5Etfw). As of today, 3.5 million people have died. [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/MomHDtwS7n](https://t.co/MomHDtwS7n)
-> — Gordon G. Chang (@GordonGChang) [May 25, 2021](https://twitter.com/GordonGChang/status/1397300871835365388?ref_src=twsrc%5Etfw)
-
-
-14. **[章家敦推特](https://twitter.com/GordonGChang/status/1397300871835365388?s=20)**：
-***（凯尔巴斯）**[中共国将新冠病毒用作生物武器。习近平隔离武汉，同时鼓励世界各国继续接受来自武汉的中国游客至少5周](https://www.sundayguardianlive.com/news/china-turned-covid-19-biological-weapon-committed-mass-murder)
-
-**（章）**是的，凯尔。如果我们要抵御下一个疾病，我们必须面对可怕的现实：#中共国的政权 通过故意将 #COVID19 传播到境外，犯下了 #大规模屠杀#。截至今天，已有350万人死亡。#中共病毒*
-
-
-> 2017年七哥的视频当时我看了后，浑身发抖，灵魂发颤。然后自己的应急系统告诉我，不会吧，还能怎样，现实已经够糟糕的了，还能啥样子啊。
-> 现在看到了，这个混沌的世界，没有你看不到，只有你想不到，地狱不就在尚有良知的人们眼前么？？？ [pic.twitter.com/AXZk77jahX](https://t.co/AXZk77jahX)
-> — 自由的思想 (@justforindiffe1) [May 25, 2021](https://twitter.com/justforindiffe1/status/1397207897034133505?ref_src=twsrc%5Etfw)
-
-
-15. **[自由的思想推特](https://twitter.com/justforindiffe1/status/1397207897034133505?s=20)**：
-*2017年10月5日，七哥的视频当时我看了后，浑身发抖，灵魂发颤。然后自我应急系统告诉我，不会吧，还能怎样，现实已经够糟糕的了，还能啥样子啊。 现在看到了，这个混沌的世界，没有你看不到，只有你想不到，地狱不就在尚有良知的人们眼前么*
-
-
-> 转自GTV：
-> 🔥🔥🔥千萬不要打疫苗！！！女科学家是爱尔兰都柏林大学医学院生物学家多洛雷斯·卡希尔教授（Prof. Dolores Cahill）看完这个还敢打疫苗的，我敬你是条汉子！ [pic.twitter.com/PZ87foKWYW](https://t.co/PZ87foKWYW)
-> — 黄鹤楼大厨 (@GuoWarriors1) [May 25, 2021](https://twitter.com/GuoWarriors1/status/1397199883963142154?ref_src=twsrc%5Etfw)
-
-
-16. **[黄鹤楼大厨推特](https://twitter.com/GuoWarriors1/status/1397199883963142154?s=20)**：
-*（视频）千萬不要打疫苗！！！女科学家是爱尔兰都柏林大学医学院生物学家多洛雷斯·卡希尔教授（Prof. Dolores Cahill）看完这个还敢打疫苗的，我敬你是条汉子*
-【灭共时代】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26143659/E2OOWkvVgAAWYcy.jpeg)**[墨博士推特](https://twitter.com/4RxMbPD3YbeN1fS/status/1397116834881495041?s=20)**：
-*科兴疫苗纯利100亿，他们报道累计出货3亿剂，那么第一季度很可能也就1-2亿剂，我想知道利润率为什么如此高？既然国家免费，那还不是老百姓买单。这tmd就是图财害命*
-
-
-> 爭先恐後打疫苗！
-> 網友：宣傳打疫苗的和製造恐慌的是同一夥人。 [pic.twitter.com/CEnZfpVr2T](https://t.co/CEnZfpVr2T)
-> — 新聞看點 (@MuYangLee\_XWKD) [May 25, 2021](https://twitter.com/MuYangLee_XWKD/status/1397220916329730048?ref_src=twsrc%5Etfw)
-
-
-**[新闻看点推特](https://twitter.com/MuYangLee_XWKD/status/1397220916329730048?s=20)**：
-*争先恐后打疫苗！网友：宣传打疫苗的和制造恐慌的是同一伙人*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26143116/E2PJ3yaVoAATwdR.jpeg)**[三文鱼推特](https://twitter.com/SalmonNFSC8/status/1397182278321590272?s=20)**：
-*WOW, 这家伙居然是美国前检察官！！！兄弟们跟进*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26155849/E2QNz27WEAkwdNE.png)**[机器猫推特](https://twitter.com/lazydjay/status/1397257518032773123?s=20)**：
-*路德说对了，这家伙是顶级海外大外宣！ 还是又红又专的顶级洋5毛~~~*
-
-
-> Cena, like Lebron, bends the knee to Xi. Yet another example of how many of the people who engineer our popular culture, often while lecturing us about how evil America is, are the first to sell their souls to the Chinese Communist Party. [https://t.co/zA2ugqajtu](https://t.co/zA2ugqajtu)
-> — Rep. Mike Gallagher (@RepGallagher) [May 25, 2021](https://twitter.com/RepGallagher/status/1397221120982589447?ref_src=twsrc%5Etfw)
-
-
-**[众议员麦克·加拉格尔推特](https://twitter.com/RepGallagher/status/1397221120982589447?s=20)**：
-*（约翰·塞纳在接受《速度与激情9》的采访时称台湾为国家后，在新浪微博上用中文道歉，附视频）
-塞纳和勒布朗一样，向习近平弯下膝盖。另一个例子是，有多少人策划了我们的流行文化，经常在向我们讲美国有多邪恶时，是第一个向中国共产党出卖灵魂的人*
-
-
-> 真可怜🥺
-> 湖南一中心小学学生餐，白饭加湯！
-> 出来晒晒！为什么要屏蔽！见不得光吗？重置视频继续发！ [pic.twitter.com/LJ9mNkc8xj](https://t.co/LJ9mNkc8xj)
-> — 百合 (@baihe66666) [May 25, 2021](https://twitter.com/baihe66666/status/1397139462014918660?ref_src=twsrc%5Etfw)
-
-
-**[百合推特](https://twitter.com/baihe66666/status/1397139462014918660?s=20)**：
-*湖南一中心小学学生餐，白饭加湯！ 出来晒晒！为什么要屏蔽！见不得光吗？重置视频继续发*
-
-
-> 吴钊燮：不能允许民主台湾被中共接管 
-> 
->  [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hash&amp;ref_src=twsrc%5Etfw) 外长 [#吴钊燮](https://twitter.com/hashtag/%E5%90%B4%E9%92%8A%E7%87%AE?src=hash&amp;ref_src=twsrc%5Etfw) 在接受外媒专访时呼吁，面对 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) 咄咄逼人的攻势，希望民主国家对台湾提供更多支持。他说，“我们不能允许民主的台湾被中国（中共）接管。”[https://t.co/5yIFjz2SQ7](https://t.co/5yIFjz2SQ7)
-> — 大纪元新闻网 (@dajiyuan) [May 25, 2021](https://twitter.com/dajiyuan/status/1397256153931948035?ref_src=twsrc%5Etfw)
-
-
-**[大纪元推特](https://twitter.com/dajiyuan/status/1397256153931948035?s=20)**：
-*#台湾 外长 #吴钊燮 在接受外媒专访时呼吁，面对 #中共 咄咄逼人的攻势，希望民主国家对台湾提供更多支持。他说，“我们不能允许民主的台湾被中国（中共）接管。”*
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26162408/E2NToH4XMAIhR9i.jpeg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26162442/E2NToHlWYAEmQB2-1.jpeg)
-
-
-
-**[若尘推特](https://twitter.com/xM62EOLGpICtj8K/status/1397052290104807425?s=20)**：
-WOW
-
-+1
+0

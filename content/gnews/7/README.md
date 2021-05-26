@@ -1,23 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国驻扎中共和印度大使人选已经确定
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1274269/)
+## 【热点播报】贝壳找房被调查，马化腾在劫难逃
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1273643/)
 
-#### 翻译：龟仙人
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26180916/IMG_20210526_150837_754.jpg)古拉斯-伯恩斯，图片VOA
-根据美联社报道：有内幕消息说美国总统拜登预计将宣布提名前国务院高级官员尼古拉斯-伯恩斯担任他的驻中国大使，提名洛杉矶市长埃里克-加塞蒂担任他的驻印度大使。目前还不清楚这两项提名将于何时宣布。但是白宫拒绝对此发表评论，并称在没有宣布之前，一切皆有可能。但此前，日本大使和以色列大使也是美联社最先爆出，并得到确认。
+作者：香草山信息部 雪梨
 
-伯恩斯曾在乔治-W-布什总统手下担任副国务卿，并担任美国驻希腊和北约特使。伯恩斯现在是阿斯彭战略集团和阿斯彭安全论坛的执行董事。他也是哈佛大学肯尼迪学院的外交和国际关系实践教授。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26182343/IMG_20210526_152246_812.jpg)美国洛杉矶市市长加塞蒂和他9岁刚患上中共病毒的女儿（Getty），图片截自网络
-加塞蒂如果得到确认，将被派往印度，因为印度已经被冠状病毒感染和死亡人数的激增所淹没。印度的死亡人数是继美国和巴西之后世界上第三高的报告，而真实的数字被认为要大得多。
-
-加塞蒂毕业于常春藤联盟，过去20年，要么是市长要么是市议员。在2020年曾经考虑过角逐美国总统，但是后来加入了拜登的竞选团队。印度大使职位将使加塞蒂能够在未来可能的白宫竞选之前磨练自己的外交资格。
-
-伯恩斯曾在乔治-W-布什总统手下担任副国务卿，并担任美国驻希腊和北约特使。伯恩斯现在是阿斯彭战略集团和阿斯彭安全论坛的执行董事。他也是哈佛大学肯尼迪学院的外交和国际关系实践教授。
-
-新闻来源：https://apnews.com/article/ca-state-wire-health-coronavirus-pandemic-government-and-politics-79b24c83b56483b46696b12511acfa25
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26111625/%E5%9B%BE%E7%89%872-115.png)图片来源：网络
+[路透社](https://www.reuters.com/world/china/exclusive-china-launches-antitrust-probe-into-tencent-backed-property-broker-ke-2021-05-25/)报道称，据消息人士透露，中共市场监督管理总局（State Administration for Market Regulation，简称SAMR）最近正在对房屋中介公司贝壳找房的“二选一”垄断行为进行调查。贝壳公司股票因此一度下跌近10%。
+
+贝壳找房（KE Holdings，BEKE）成立于2001年，总部位于北京，是中共国最大的线上线下房产交易和服务平台，同时也是地产经纪品牌链家的运营商。腾讯是贝壳找房的大股东。
+
+所谓“二选一”，是“平台利用优势地位和商家对其的依赖性，采取不正当手段强迫经营者在平台间‘二选一’”。平台利用“独家合作”的协议捆绑商家，只允许商家在自己的平台销售与活动，如果发现在其他平台销售，平台会对该商家进行惩处。
+
+路透社还提到，为提高反垄断检查效率，自4月下旬以来，SAMR已在17家平台公司派驻了检查员。
+
+今年2月，[唯品会](https://www.reuters.com/article/us-vipshop-hldg-china-antitrust-idUSKBN2A803Y?taid=6020c8d9d3964a00010817cc&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)被罚款46万美元。3月，[12家互联网公司](https://www.reuters.com/article/us-china-anti-trust-idUSKBN2B40EF?taid=604af300eaf59800011ce2b4&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)因违反“反垄断法”受到惩罚。4月10日，阿里巴巴公司因“二选一”垄断行为被处以27亿美元的天价罚单。随后，SAMR[陆续点名](http://www.ce.cn/cysc/newmain/yc/jsxw/202104/14/t20210414_36471831.shtml)一大批包括百度、京东、新浪微博、字节跳动、拼多多等在内的互联网平台企业。4月底，SAMR宣布对腾讯控股的[美团](https://www.reuters.com/technology/china-launches-antitrust-probe-into-food-delivery-giant-meituan-2021-04-26/)发起“二选一”垄断调查。随后有[报道](https://www.reuters.com/world/china/exclusive-china-readies-tencent-penalty-antitrust-crackdown-sources-2021-04-29/)称，腾讯也将面临至少15亿美金的罚款。
+
+在中共国，一切都是政治说了算，政治经济、政治科技，政治商业、政治互联网。只有拿到权贵发布的营业执照，才有可能赚得到钱。现如今，党内斗争已进入最后阶段。以习大神为首的当权派正在宰杀在野党的白手套们，打击在野党的势力。党派内部斗争，身陷绞肉机中的任何人都不可能全身而退。如今，马云这个白手套已被斩落；与腾讯关联的公司于近期频频被调查，马化腾在劫难逃；至于超级政治家马明哲，[文贵先生](https://gwins.org/cn/milesguo/22647.html)说，“抓马明哲那一天的时候，就像当年抓和珅一样”，连根拔起。届时，内部斗争想必已决出胜负。然而，打扫战场的才是最后的赢家。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,25 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登称对北溪2号的额外制裁“适得其反”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1273741/)
+## 台湾就辉瑞疫苗交易批评中共国
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1273811/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+#### 作者：Boxinglady （文拳）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26122719/2538c27b05ed550166e9327b4a806e83.jpg)图片来自网络
+台湾与北京之间的紧张关系在星期三激化，当时台湾总统蔡英文（Tsai Ing-wen）指责中共国阻止台北正与辉瑞公司（Pfizer Inc.）和德国合作伙伴生物技术公司（BioNTech）就向台湾提供COVID-19疫苗的谈判达成协议。
 
-编辑上传 银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26114044/Snipaste_2021-05-26_18-39-50.jpg)[de-guo.com](http://www.de-guo.com/news/news273737921.html)
-2021年05月26日彭博社报道，美国总统拜登表示，对北溪-2号管道实施额外制裁将对美欧关系产生反作用，因为该管道建设已接近完成。
+在经历了数月的零例病例之后，台湾正努力应对近期的新感染激增。台湾方面已向阿斯利康（AstraZeneca）AZN，-0.49％AZN，-0.61％和Moderna Inc.的MRNA（+ 2.98％）订购了数百万剂疫苗，据《悉尼先驱晨报》报道，迄今已接受了约700,000剂疫苗，仅对约2,400万人口的1％进行了疫苗接种。
 
-“它几乎已经完全完成。”拜登告诉记者。他补充说：“我认为现在实施制裁对于我们的欧洲关系来说是适得其反。”
+台湾以前暗示北京在阻止它，中共国将台湾视为其领土的一部分，并积极努力阻止台湾与国际伙伴建立关系。
 
-上周，美国对与管道建设有关的两家俄罗斯公司和一家机构实施制裁。共有13艘船被列入名单。
+蔡总统表示，在执政的民进党的一次会议上，她的政府“顺利地”处理了与阿斯利康和摩纳达的命令。
 
-此前媒体报道说，拜登总统的政府打算对北溪-2项目运营商及其总经理马蒂亚斯·瓦尼格（Matthias Warnig）实施制裁。为了避免与德国发生冲突，拜登政府随后放弃了这一决定。
+她说：“至于德国的BioNTech BNTX，增长了2.75％，我们已经接近完成与原始德国工厂的合同，但是由于中共国的干预，到目前为止还没有办法完成合同。”
 
-北溪2号项目涉及建造一条年产近550亿立方米的天然气管道，该管道从俄罗斯海岸穿过波罗的海到达德国，从而绕过波罗的海国家和波兰。它由北溪2号股份公司实施，俄罗斯天然气工业股份公司是唯一的股东。美国认为该管道是对欧洲能源安全的威胁。
+**简评：**
 
-参考链接：
+清楚了解中共本性的台湾，在控制中共病毒大流行上成为世界各国学习敬佩的楷模。G7等国家继续力挺台湾加入国际各大组织，这重重地打脸了中共。
 
-[https://novayagazeta.ru/articles/2021/05/26/baiden-nazval-kontrproduktivnym-vvedenie-dopolnitelnykh-sanktsii-protiv-severnogo-potoka-2?utm\_source=tw&utm\_medium=novaya&utm\_campaign=prezident-ssha-dzho-bayden-soobschil–chto-vv](https://novayagazeta.ru/articles/2021/05/26/baiden-nazval-kontrproduktivnym-vvedenie-dopolnitelnykh-sanktsii-protiv-severnogo-potoka-2?utm_source=tw&amp;utm_medium=novaya&amp;utm_campaign=prezident-ssha-dzho-bayden-soobschil--chto-vv)
+如爆料革命所预见的，继印度放毒后，中共一定会在台湾继续投毒以达到其政治目的。我们果然看到一直以来台湾的0感染防线近期突然被攻破，中共依然试图阻止干预台湾与其他国际伙伴的关系。
+
+但如今在以毒灭共的世界大势面前，逐渐沦为孤家寡人的中共如此招术还能长久吗？
+
+新闻来源：https://www.marketwatch.com/story/taiwan-criticizes-china-over-pfizer-vaccine-deal-and-wuhan-lab-theory-irks-beijing-11622040423
+
+本文仅代表个人观点，不代表 Gnews 平台
+
+校对发布：紫橄榄
 
 0
