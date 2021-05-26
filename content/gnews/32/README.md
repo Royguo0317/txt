@@ -1,36 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 尽管被列为外国代理人，《中国日报》仍向美国纸媒支付大笔广告费
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1272874/)
+## 中共病毒疫苗接种追踪报道之一
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1273005/)
 
-**翻译：花岗岩**
-**校对：枳实**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26025133/158366830.jpg)
-图片来源：TONY KARUMBA/AFP via Getty Images
+#### 作者：Nstar
 
-尽管美国官员对北京的大外宣活动已经发出了警告，半年来《中国日报》仍向美国报纸和杂志支付了数百万美元。在过去六个月，其广告支出增加了36%以上，从近330万美元增加到450万美元以上。
+#### 责编：胡天
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26053835/1-131.png)[图片来源](https://images.app.goo.gl/BH2ZDDJbMmLvhTFN6)
 
-根据司法部披露的文件，《中国日报》为在《时代》杂志、《洛杉矶时报》、《金融时报》和《外交政策》杂志的广告活动支付了160多万美元。这家由北京控制的新闻机构还向美国报纸支付了100万美元，包括《洛杉矶时报》、《芝加哥论坛报》和《休斯顿纪事报》，用于印刷它自己的出版物。
 
-中共在西方的媒体宣传攻势越来越吸引了美国官方的关注。司法部要求包括《中国日报》在内的几家中共国新闻公司，依照《外国代理人登记法》披露其活动。官员们还警告说，与中国共产党有联系的团体与美国智囊团和教育机构一起举办活动，试图提高他们在西方的影响力。。
+#### **一场惨悲的肥皂剧**——无知的乖诚顺民&无耻的权力机构
 
-有几家美国报纸因发行《中国日报》的题为《中国观察》的插页而备受抨击。 尽管插页的设计看起来像普通的报纸故事，但是插页中包含的文章从正面角度粉饰了中共国政府及其治下的生活。
+#### **法 国**
 
-近年来，《纽约时报》，《华尔街日报》和《华盛顿邮报》都与《中国日报》断绝了关系，因为它们被投诉发布中共的大外宣。 由于担心与中共国有媒体的合作，《纽约时报》去年从其网站上清除了数百个《中国日报》的广告。
+##### ***法国独立的地区药品评估中心: 所有4种中共病毒疫苗应立即停止使用!***
 
-《时代》似乎是《中国日报》的一个新客户。该杂志的网站刊登了《中国日报》的文章，并披露了 “付费合作伙伴内容”，但没有提到它与中共国政府的关系。《时代》杂志拿走了70万美元的广告费，而《洛杉矶时报》获得了27.2万美元。《外交政策》和《金融时报》分别获得291,000美元和371,577美元。加拿大的《环球邮报》获得了329,898美元的广告费。
+法国独立的地区药品评估中心（Centre territorial d’Information indépendante et d’Avis pharmaceutiques，CTIAP）发表的一份报告显示，所有4种中共病毒疫苗（阿斯利康、Moderna、BioNTech/辉瑞、强生）应**立即停止使用!**
 
-它最近的合作内容是一个对查尔斯-弗里曼（Charles Freeman）的采访，他是一名美国外交官，隶属于孤立主义的昆西负责任国家治理研究所，这是一个由亿万富翁查尔斯-科赫(Charles Koch)和乔治-索罗斯(George Soros)资助的有争议的外交政策智库。弗里曼曾指责所谓的以色列游说团体阻止他在奥巴马政府期间被任命为国家情报委员会的领导人。
+报告中公布的第一个警告是，所有这些产品都只有临时的销售授权（MA）。此外，在2024年之前，它们都需要进行进一步的研究，鉴于疫苗的加速分发方式，几乎不可能完成这些研究。
 
-在《中国日报》的文章中，弗里曼讨论了他在1972年尼克松总统首次访华时担任其首席翻译的工作。 弗里曼赞扬了他所说的中共国自尼克松访问以来的快速现代化，他说：”我知道中国会发生变化，但我从未想到它的变化有多大和多快”。
+药剂师凯瑟琳-弗雷德(Catherine Frade)博士领导研究小组，研究了欧洲药品管理局（EMA）发布的阿斯利康、Moderna、BioNTech/辉瑞和强生公司有关中共病毒疫苗的公开数据。因为所使用的制造工艺是新的，它们所包含的辅料也是新的，根据法国西部Cholet公立医院的一个专家小组的说法，这些辅料 “应被视为新的活性物质”。其活性成分的质量、佐剂和制造工艺都有缺陷。
 
-昆西研究所的学者们为中共国政府辩护，称其没有对中共国西部的穆斯林少数民族进行了种族灭绝。
+CTIAP警告说，所有的疫苗在 “活性物质和成品的质量测试 “之前就开始在人类身上销售和积极应用。
 
-与《中国日报》合作的许多报纸都面临严重的财务问题。 去年，由于在冠状病毒大流行期间广告收入大幅下降，《洛杉矶时报》让工人休假。 多年来，《芝加哥论坛报》和《波士顿环球报》等报纸一直没有盈利。
+该报告在疫苗生产和汽车生产之间做了一个有趣的比较。它问道，我们是否可以想象，在没有完成对每一个零部件和发动机的质量研究，包括与安全相关的部件，如刹车和电气系统，就开始启动新车的生产线并开始销售…这是否合理???
 
-《中国日报》向《洛杉矶时报》支付了89,700美元的印刷服务费用，向《芝加哥论坛报》，《休斯顿纪事报》和《波士顿环球报》总共支付了164,000美元。
+合乎逻辑的答案是否定的! 报告并没有指出疫苗是危险的，但目前的知识还不足以证明其有效性和/或安全性。
 
-原文链接：[Chinese Propaganda Outlet Paid Millions to American Newspapers and Magazines, Records Show](https://freebeacon.com/media/chinese-propaganda-outlet-paid-millions-to-american-newspapers-and-magazines/)
+报告的结论是：作为一个紧急事项，这些已经获得临时销售授权(MA) 的中共病毒疫苗应该被暂停，甚至取消，直到下一步的通知。
+
+来源:
+
+[Le centre français d’évaluation des médicaments déclare que les quatre vaccins Covid-19 sont dangereux et devraient être retirés du marché](https://mirastnews.net/2021/04/24/le-centre-francais-devaluation-des-medicaments-declare-que-les-quatre-vaccins-covid-19-sont-dangereux-et-devraient-etre-retires-du-marche/)
+
+[https://thebl.tv/politics/french-drug-evaluation-center-concludes-all-4-covid-vaccines-should-be-discontinued.html](https://thebl.tv/politics/french-drug-evaluation-center-concludes-all-4-covid-vaccines-should-be-discontinued.html)
+
+##### ***当法国似乎对这种新的实验性药物(中共病毒疫苗)采取更谨慎的态度时，其他国家的机构正在推动每个人尽快注射，以建立一种 “新常态”。***
+
+#### **英国**
+
+##### ***英国卫生当局预计人们在第二次接种疫苗后会死亡***
+
+在英国，6600万人口中的2000多万人现在已经接受了至少一剂中共病毒疫苗来预防中共病毒。
+
+全国所有成年人都将在7月底前收到疫苗接种通知。在全球范围内，只有以色列和阿拉伯联合酋长国的中共病毒疫苗接种率高于英国。
+
+至二月底，当局报告了6035名新感染者和144名死于中共病毒。目前的封锁从3月至6月底逐步解除。
+
+英国卫生官员在2021年3月31日的一篇“放宽限制的进一步模型总结 – 路线图第二步” (SPI-M-O: Summary of further modelling of easing restrictions – Roadmap Step 2)
+
+的文章中写了以下内容:
+
+“这表明，在疫苗接种后的复发中，大多数死亡和入院都发生在接种过两剂疫苗的人身上，即使没有出现疫苗保护力下降或逃避疫苗的变体” … “住院人数和死亡人数的反弹都是由接受两剂疫苗的人主导的，分别占到了这波反弹的60%和70%。这可以归因于最脆弱年龄组的高疫苗接种覆盖率，这样，疫苗失败所造成的严重疾病比未接种疫苗的人更多”。
+
+换句话说，英格兰公共卫生局已经相信，明显大多数需要住院治疗中共病毒的人都是接受了双重中共病毒疫苗接种的!
+
+来源:
+
+[https://www.aerzteblatt.de/nachrichten/121608/Mehr-als-20-Millionen-Menschen-in-Grossbritannien-gegen-Corona-geimpft](https://www.aerzteblatt.de/nachrichten/121608/Mehr-als-20-Millionen-Menschen-in-Grossbritannien-gegen-Corona-geimpft)
+
+[https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment\_data/file/975909/S1182\_SPI-M-O\_Summary\_of\_modelling\_of\_easing\_roadmap\_step\_2\_restrictions.pdf](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/975909/S1182_SPI-M-O_Summary_of_modelling_of_easing_roadmap_step_2_restrictions.pdf)
+
+[http://www.info-medico.de/](http://www.info-medico.de/)
+
+下期继续
+
+【文章仅代表作者个人观点】
 
 +1

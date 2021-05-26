@@ -1,36 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G7 国家仍力挺台湾参加世卫大会
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1273046/)
+## 【有声读物】低温粮库改造“名大于实”，面子工程徒增地方财政压力
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1273259/)
 
-#### 撰稿：默凡
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26054920/dw-1.jpg)图片来源：网络截图
-美国之音5月26日报道：本届世卫大会星期一(5月24日)在日内瓦以视讯会议方式揭开序幕，即便今年支持台湾参加大会的声浪高涨，七国集团(G-7)更史无前例地发表声明支持台湾与会，但在中共国的强力反对下，台湾重回世卫大会的希望再度落空，台湾政府对此表示严正抗议，这也是台湾连续第5年被世卫大会拒于门外，美国、日本、加拿大、英国、澳大利亚等国家卫生官员在世卫大会发言表达支持台湾参与的立场，并强调抗击中共病毒疫情及其他公共卫生挑战需要全球伙伴的合作，“我们必须邀请台湾作为观察员成为世卫大会的一部分。”
+配音：香草山录音组 蒙古鸿雁
 
-中共外交部发言人赵立坚星期一表示，台湾参与包括世卫组织在内的国际组织活动，必须依据一个中共国原则来处理，联合国大会第275号8决议及世卫大会第25.1号决议已经确认此一根本原则，民进党政府“拒不承认体现一中原则的‘九二共识’”，台湾参加世卫大会的政治基础也不复存在，因此中方也“不能同意台湾地区参加今年世卫大会。”
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-> There's a cloud over Taiwan. The country is shut out of [#WHA74](https://twitter.com/hashtag/WHA74?src=hash&amp;ref_src=twsrc%5Etfw) & can't fully contribute to achieving [#HealthForAll](https://twitter.com/hashtag/HealthForAll?src=hash&amp;ref_src=twsrc%5Etfw). The world & our 23 million people deserve better. It's time for [@DrTedros](https://twitter.com/DrTedros?ref_src=twsrc%5Etfw) to put politics aside & bring [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)🇹🇼 into the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) fold. It's time to show [#WHOcanHelp](https://twitter.com/hashtag/WHOcanHelp?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/1Tf5isu9HP](https://t.co/1Tf5isu9HP) [pic.twitter.com/qbQRzkuUik](https://t.co/qbQRzkuUik)
-> — 外交部 Ministry of Foreign Affairs, ROC (Taiwan) 🇹🇼 (@MOFA\_Taiwan) [May 24, 2021](https://twitter.com/MOFA_Taiwan/status/1396739121285005313?ref_src=twsrc%5Etfw)
 
 
 
-在大会第二天会议中，美国卫生与公众服务部部长、加拿大卫生部、英国卫生大臣)、澳大利亚卫生部长和日本厚生劳动大臣都在发言中提到台湾，并强调有效抗击疫情需要全球伙伴的合作。
 
-蔡英文周一在推特发文感谢全世界友人对台湾的支持，并表示“台湾被世卫大会排除在外对台湾2300万人和全世界都是一个损失，要真正实现全人类健康，世卫组织必须将政治搁置一旁，这样台湾才能分享我们的专业并对全球卫生做出更多贡献。”
+环球网5月24日转载央视新闻客户端消息，23日中共四川粮食和物资储备局称，四川省投入15亿元建成绿色低温粮库265个（仓容641万吨）。
 
-
-
-> [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw)’s exclusion from the [#WHA](https://twitter.com/hashtag/WHA?src=hash&amp;ref_src=twsrc%5Etfw) is a loss, not just for 23 million Taiwanese, but for the whole world. To truly realize [#HealthForAll](https://twitter.com/hashtag/HealthForAll?src=hash&amp;ref_src=twsrc%5Etfw), the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) must put politics aside, so that Taiwan can share our expertise & contribute more to global health. [pic.twitter.com/26U4Pej1V0](https://t.co/26U4Pej1V0)
-> — 蔡英文 Tsai Ing-wen (@iingwen) [May 24, 2021](https://twitter.com/iingwen/status/1396766094682034177?ref_src=twsrc%5Etfw)
+2019年12月四川日报曾报道，自2014年四川率先大规模应用绿色低温储粮技术，截至19年底，已投入省级资金补助15亿元，已有340万吨低温仓容建成并投入使用（占仓容目标639万吨的53.2%）。2020年9月湖北省发布建设改造低温库项目公告，估算单价为224万元/万吨（其中省级财政补助标准为70%）。
 
 
 
-参考链接：[台湾参加世卫大会再受阻，美日加英澳会中发声齐挺台](https://www.voachinese.com/a/us-and-other-western-democracies-spoke-at-wha-in-support-of-taiwans-incusion-at-the-global-health-forum-20210525/5904665.html)
+**文字版原文：[【鹰眼墙国】低温粮库改造“名大于实”，面子工程徒增地方财政压力](https://gnews.org/zh-hans/1270352/)**
 
-（本文仅代表作者本人观点）
+作者：纽约香草山写作组 鹰(文言)
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 +1
