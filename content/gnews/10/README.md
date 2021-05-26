@@ -1,20 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆台新闻】关于病毒溯源 环球时报令人窒息的操作来啦
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272167/)
+## 【快讯】世界上第一个接种Covid-19的英国人威廉·莎士比亚因长期患病中风去世
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272190/)
 
-环球时报作为中共的宣传主力，最近不知是否因为打了疫苗，陷入一种亢奋的状态，今天又来了一系列令人窒息的操作。
+比尔于2020年12月8日在V-Day上登上全球头条新闻，他在考文垂大学医院接受了辉瑞/ BioNTech新冠病毒疫苗接种。
 
-环球觉得之前这两位美国的科学家居然和中国合作了这么久，吃我们的喝我们的，打杂可来中国的时候，我们的蝙蝠女都是用上等茅台，卡拉OK招待呢，现在居然说实验室起源论要彻查，这是赤裸裸的背叛啊。尤其是这位美国医学界的教父，我们还大幅在中国宣传他是“美国钟南山“呢。
+考文垂大学医院和沃里克郡国民健康服务基金会说，劳斯莱斯前雇员和教区议员上周四因中风去世。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25185916/217.jpg)
+他是考文垂医院脆弱病房的长期患者。当他在12月收到疫苗时，他是病房的住院病人，他称之为“奇妙”。 莎士比亚先生穿着一双圣诞节拖鞋和他的医院袍在这张照片上拍摄的照片登上了世界各地的头版。
 
-说好了同一艘船，目测还没有到终点，好像有人已经在打包行李，准备下船了，还是硬下，不带商量的， 跳船。
+参考链接：
 
-参考链接：来自环球时报网络截图
+[https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html](https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html)
 
-图片来源：[https://www.hk01.com/](https://www.hk01.com/)
+图片来源：[https://www.dailymail.co.uk/](https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html)
 
 整理撰稿：蓝精灵
 

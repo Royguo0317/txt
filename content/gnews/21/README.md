@@ -1,42 +1,92 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 灭共的统一战线方略
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1272034/)
+## 由杨洁篪和王岐山亲自操盘&nbsp; 发起了新一轮对爆料革命新中国联邦的攻击
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1272091/)
 
-- 作者： XB
+**摘要：在2021年5月20日的盖特视频中郭先生曝光了中共由杨洁篪和王岐山亲自操盘的，对爆料革命、新中国联邦的新一轮攻击：**
+
+- 操纵媒体抹黑郭先生、班农先生、闫丽梦博士、塞林博士等战友；
+- 抹黑爆料革命是暴力组织，挑起亚裔歧视；
+- 旨在攻击爆料革命的平台——G-Coin、G-Dollar、G-TV、G-News；
+- 买通和操纵美国洛杉矶地方警察和司法部给爆料革命和人员制造司法麻烦；
+- 在新中国联邦的周年庆典中下毒，一网打尽参加者。
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+**但是郭先生说他知己知彼，早有准备，而且中共的烂招帮助“在西方让更多人相信我们，还让更多的机构和国家相信我们”！**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25181124/Miles_2021-05-20-g1.srt.txt)
+**由杨洁篪和王岐山亲自操盘****  ****发起了新一轮对爆料革命新中国联邦的攻击****
+Yang Jiechi and Wang Qishan Launch New Attacks Toward the NFSC **
 
-**西班牙2021年5月25日电/西喜社——**
+这几天战友传达的信息，由杨娘娘（杨洁篪）和王公公（王岐山）亲自操盘，要在世界媒体上对我们爆料革命、新中国联邦，对郭文贵和班农还有闫丽梦进行的所谓的全面的、下狠手的、超常规手段的攻击。那无非是操纵严肃媒体采访你，然后编辑出一个大的一个抹黑你的[假新闻]。然后对班农造谣，包括我们的这几个博士，像塞林博士这都是我们战友[进行]造谣。[对]闫丽梦博士估计得弄好几个双胞胎出来了。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25175343/UKH032-1.jpg)
+Some fellow fighters have informed me that Sissy Yang (Yang Jiechi) and Eunuch Wang (Wang Qishan) are deploying an operation on their own. They are carrying out some all-out and over-the-top attacks on our Whistleblower Movement, the NFSC, Mr. Bannon, me, and Dr. Li-Meng Yan, in the worldwide media. This effort will not show any mercy. They are going to manipulate the serious media to interview us. Then they fabricate fake stories to discredit us – smearing Bannon, our PhD team, and Dr. Lawrence Sellin, who has been standing with us. With respect to Dr. Li-Meng Yan, I suppose they may fabricate a story that she has a twin sister or brother, or something ugly like that.
 
-前几天，听了郭先生的盖特视频节目，其中，郭先生讲到灭共的方略时，强调这样的观点：中国共产党内99%都是好人。对此，我十分赞同！
+就是要把我们说成，爆料革命，新中国联邦是挑起亚裔人和西方社群种族矛盾的罪魁祸首，这是第一条。像那天那个媒体采访我，到最后就是这个。 第二个，[抹黑]我们是属于有暴利倾向的组织。
 
-在当今中国及全球复杂的形势下，灭共必须采取扩大统一战线的策略，当然也包括要宽容、团结那些曾经被邪恶的共产党这个组织洗脑的、被蒙弊的中共党员。中共现有的九千多万庞大的党员队伍中，绝大多数成员都是散布于基层的工厂(公司)、乡村、商业、学校、军队和机关及事业等单位中，他们这些人中的绝大多数都是被蒙蔽、被长期的赤化宣传所洗脑的人，但是他们的本性是良善的，之所以加入到中共队伍成为其中一员，有着复杂的历史原因，其中多数都是没有什么坚定信仰的党员（很多是为了捞取政治资本，或者为了就业、入学、入职方便有利等），我相信他们中的绝大多数人一旦认识清楚中共政权的邪恶本质后，都会幡然醒悟，在思想上与中共划清界限，回归到一个正直的中国人的队伍中。即使中共的各级委员会和地方政府等管理部门（即体制内）中的党员，也有相当一部分人会逐渐在思想上脱离中共，他们中的许多人即使组织上依然没有退党，但是思想上也在慢慢地退党或者已经退党了。其中的相当一部分人只是因为现实的社会关系和生存谋生的需要，不得不伪装自己依然是共产主义信徒，这种基于生存需要而成为“两面人”的党员决不在少数。随着互联网信息时代的日益强化，中共的信息封锁是越来越难以奏效的，加之其许多虚伪的、没有逻辑的宣传，在明眼人尤其是有独立思考能力者眼中，已经成为漏洞百出的笑料。历史发展的大势是：信息化已经成为当今的社会潮流，如同共产党那样以封锁信息及持久地虚假宣传来蒙蔽大众的企图，最终会成为虚妄的幻想。
+Their purpose is to smear our Whistleblower Movement and the NFSC as the culprit in promoting racial tension between the Asian and Western communities. That is their primary purpose. It’s like my media interview the other day, which exactly went to this direction. Secondly, those who are smearing us are part of an organization with violent tendencies.
 
-在国内外各种自由流动的信息的巨大冲击下，中共的宣传威力也早已经不是互联网没有普及前的几十年前那样密不透风了！尤其是自2019年秋冬开始，中共故意向全球释放新冠状病毒，并已经夺去了数百万人的宝贵生命！中共这个作恶多端的邪恶政权，如同大海中航行的巨轮，它虽然大但是已经触上了暗礁，舱底已撕裂开巨大的口子，海水滚滚涌入而且势不可挡，翻船已经难以逆转，中共的毁灭是迟早的事情。
+那么这个就是现在王公公、杨娘娘正在发动的。醉温之意不在酒，在的是攻击我们的喜币、喜 Dollar、G-TV、G-News — 这是属于新中国联邦的平台，虽然不归我们所有，但这些平台支持爆料革命，支持我们的灭共事业，因为我们伤害的就是他们。
 
-中共党员中，因为互联网信息自由的冲击，因为大陆对外开放政策已经四十余年，并产生了巨大的影响，尤其是大陆城镇党员的亲朋好友中，出国读书、访学、探亲、旅游以及打工者越来越多，他们对美国等西方世界的感性认识日益增多，辅之以对比、比较分析和理性思辨等等，会对中共治下民众失去言论、出版、集会结社等自由的现状产生不满情绪。这样，对于中共政权实质的认识就会日益清晰，再通过理论认识的澄清等，转变政治立场是指日可待的事情。
+It is the attack that Eunuch Wang and Sissy Yang are deploying right now. But their real purpose is to attack our Himalaya Coin (HCN), Himalaya Dollar (HDO), G-TV, and G-News – platforms that belong to the NFSC. Although we do not own these platforms, these platforms support the Whistleblower Movement in our goal of destroying the CCP. It is the CCP that we should destroy.
 
-现在的党员中，你觉悟、觉醒了，认识到这个组织的邪恶本质，认识到共产主义理论的反人类、反人性、反文明的实质后，相当一部分人会走上反共、灭共的道路。这里，不妨实话实说。笔者本人也曾经是中共组织的成员之一。我的思想认识的巨大转变与觉醒就是伴随着互联网的普及而开始的（六四事件已经萌芽），加之认识接触一些有思想、有见识的师友，阅读相关书籍等，实现了思想启蒙。不交党费也有十数年之久了（按照党章规定，已经自行退党）。自己颇为欣慰的是，我从一个被蒙蔽、被几十年的虚假宣传所欺骗的受害者（入党），已经转变成为反对共产党、希望尽早消灭共产党的坚定信念者。客观地说，由于自己生活于中共治下的封闭社会几十年，思想上或者思维方式等依然有被中共误导的痕迹，不能在短期内消失殆尽，但是我懂得自己应当如何清除思想与认知上的误区，因为与中共彻底划清界限是自己后半生的正确抉择，而且会尽自己最大的努力，为灭共的伟大事业贡献光和热。
+包括在国内大肆地宣传，像那天那记者说：“是因为你们，让世界恨中国，恨亚裔。”这是他的核心，抹黑咱们，务必小心。然后让咱们成为种族主义者，暴力倾向主义者，[实际上]完全颠倒黑白。恰恰咱们是反暴力主义者，反种族主义者。让我们的G系列没法支持新中国联邦，再次地孤立我们。然后最近又培养了一批“燕子”和“蛇”，
 
-众多原党员今日的觉悟与觉醒，会为灭共增添一份力量，即使你组织上还没有退党，但思想上已经退党了，已经与这个邪恶组织分道扬镳了，这也是在政治上重新做人、重新让政治生命获得新生的可贵的人生抉择！
+Their attacks include increased propaganda in mainland China. The reporter said the other day: “it is because of you that the world hates China and hates Asians.” That is the core issue. They are smearing us. And we must be cautious. They are trying to smear us as racists, as violent people. In fact, it is a complete reversal of the truth. On the contrary, we are against violence. We are against racial discrimination. They want to stop the G-Series from being able to support the NFSC, and they want to isolate us. The CCP has recently trained another group of agents specializing in infiltration. We call them “swallows” and “snakes”.
 
-鉴于中共政权已经在中国大陆存在七十余年，而且最近几年中共在美国等世界许多国家采用“蓝金黄”等手段收买了许多国外人，这些人原本不是共产主义的信徒，但是因为人性中的恶劣一面被中共撩拨、唤醒之后，行动上做了许多共产党本身不能为的事情，这就给灭共的事业增添了难度、带来了巨大的阻力。鉴于此，为了灭共，我们必须不断扩大反共、灭共的统一战线，团结一切可以团结的力量，当然也应当包括中共党内的党员。在一个有九千多万成员的中国共产党内部(世界最大的党)，觉醒的人越多越好！假设这些曾经的党员现在有百分之五六十的人思想上已经觉醒了，他们反省到自己曾经在思想上和行动上的错误选择(加入中共)，现在毅然决然地加入到反共、灭共的统一战线中，这是何等巨大的力量！
+所有的正在培养着，假投资G-Clubs，假买G-Fashion，假投资老G-TV，假投资喜币的。就是要再一次把美国的SEC跟他们绑在一起，还有美国所谓的DOJ（美国司法部）。
 
-这里还有一个需要说明的问题：把中共邪恶的组织与其中大多数党员区分开来；把被邪恶组织蒙蔽、误导而一时糊涂入党者与有坚定的共产主义信仰的顽固不化的极少数人区分开来；把中共内部各级组织中极少数负责人与组织中的广大党员区分开来。这是需要做许多政策与辨识工作的艰巨任务，也是以共灭共事业的方针和策略之必需。
+In addition, the CCP has arranged some of its agents as buyers for G-Clubs and G-Fashion. Some of them are even masquerading as pre-seed investors of G-TV, and HCN investors. However, all these people are carrying out the CCP’s clandestine mission. The CCP is trying to be an ally with the US SEC, and the US Department of Justice again.
 
-我认为，正是从这个意义上，这个视角上才会深入理解郭先生关于“中国共产党内99%都是好人”的观点，也会认识的更为清晰、透彻。同时，这也证明郭先生是具有政治家胆识的人，是胸怀宽广、有思想谋略、善于做大事而且也能够做成灭共伟业的俊杰。
+还有像洛杉矶的国土安全部那些人完全不在自己案件范围之内，受某黑暗势力的控制，完全非法操作，竟然把G-Fashion，G-TV的高管在机场拦住，把包全翻开，而且明确告诉他说你在涉嫌刑事调查。在美国涉嫌刑事调查是不可以这么做的，人家有律师你要找律师去。完全知法犯法！还翻人家的包，[导致]人家东西还找不着了，吓得人家现在身体都出问题了。
 
-反共、灭共，这是我们这个星球上前无古人的伟大事业，是需要数年的艰苦奋斗才能成功的事业，所以，我们必须团结一切可以团结的力量，把共产党组织内的现有党员中的善良、正直已经觉醒的人士也吸纳到这个队伍中，是新中国联邦人的政治智慧之一。
+The people at the Department of Homeland Security in Los Angeles went beyond their authority. It was a completely illegal operation. Some dark forces manipulated them. And they went so far as to stop our executives of G-Fashion and G-TV at the airport. They opened all our executives’ bags and searched them. Also, they informed our executives that they were the subjects of a criminal investigation. In the US, even if you are involved in a criminal investigation, you cannot be treated that way. It should be handed over to a lawyer. These DHS officials knew the law, but broke it. Besides, the search of the bags resulted in the loss of some items. We have executives who have had psychological problems as a result of the shock.
 
-我们欣喜地看到，随着郭先生领导的“爆料革命”宣传力、全球影响力的不断扩大，参与到“爆料革命”和新中国联邦队伍的成员正在壮大，逐渐形成灭共的排山倒海的巨大力量，尽快把中共这个邪恶的组织送进历史的垃圾堆中，这个日子已经越来越近了！
+这是什么概念？就是要把SEC这些所有人，用假报案同时还有腐败手段买通某些人。像当年 Elliott Broidy 在DOJ买通Higginbotham 一样，承若所谓遣返这个，遣返那个，伤害这个，伤害那个。这是[共产党的]一次巨大的阴谋。
 
-审核：Aries的星； 校对：阿伯塔； 发稿：信心的选择
+What is the meaning of this? The CCP colluded with the SEC by buying people off, and by reporting false charges. In other words, they used corrupt practices. Like the time Elliott Broidy bought off Higginbotham at the DOJ. They promised the CCP to get certain people deported and harmed. It was a huge conspiracy by the CCP.
 
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+这是据咱们战友通报说，这是杨娘娘最近睡不着觉的核心原因，悄悄地在干这事。这是王公公王岐山最近东山想再起，想递军令状，是要给这个习大大习一神再次立功。要灭爆，要立大功。
 
-+1
+According to the intelligence of our fellow fighters, this is the reason Sissy Yang has not been able to sleep recently. He was quietly planning this. Eunuch Wang (Wang Qishan) has recently been trying to resurrect his power. He has promised the great god Xi (Xi Jinping) that he will succeed. If he does not, he is willing to be punished. Wang Qishan is plotting to strike at the Whistleblower Movement so that he can take credit for it.
+
+这就是现在的整个共产党的流氓体制他们最担心的，他们会上明确地说。 这是我瞎蒙的啊，有些是[战友]说的，有些我瞎演化的，这个你[们]别相信啊。据说：无论如何要把闫丽梦的嘴给闭上；无论如何让郭文贵所有的平台不能再运行；无论如何不能让他的这个虚拟货币喜币成为中国人大量外汇流出，形成中国内部金融界的灾难；无论如何要阻止郭文贵的下三个计划。
+
+It is the CCP’s rogue system that most people are worried about now. The CCP clearly declared in its internal conference that it must make Li-Meng Yan shut up. It is only my speculation, combined with the intelligence from our fellow fighters. Please don’t believe me. The CCP has decided that none of Miles Guo’s platforms can be allowed to operate. It will attempt to prevent, by any means, the flow of a large amount of foreign currency from the Chinese people into HCN. This would cause a disaster in China’s internal financial sector. Miles Guo’s next three plans must be stopped by any means.
+
+这三个计划你们都不知道是什么，但他们掌握了情报。我们有三个计划。[共产党]不惜一切代价渗要透进他们的整个系统里；不惜一切代价要用法律、诉讼、媒体、宣传制造民事、刑事麻烦。所谓的在他们的历史关键时期，绝不能让我们再成为2017年的“突发性的不可控的政治事件”，导致了今天一发不可收拾。
+
+You do not know what these three plans are, but the CCP has been aware of them. I have three plans. The CCP is going to do whatever it can to infiltrate us. The CCP is going to cause us civil and criminal problems by manipulating laws, lawsuits, media, and propaganda at any cost. At this critical time in history for the CCP, it cannot allow us to become a “sudden, uncontrolled political event” that leads to an unmanageable situation as what happened in 2017.
+
+哎呀，我瞎蒙的啊，不过说实在的，知己知彼嘛，是吧？中南坑，你们想干啥我们知道，我们想干啥你以为你们知道？咱走走看！咱在今年年底的时候，你会知道，到底你知道的所谓我们下三个绝密计划你能挡得住几个？
+
+Oops, that’s what I guessed. But honestly, it is as essential to know your enemy as it is to know yourself. Isn’t it? Zhongnan Pit (people living in Zhongnanhai, Beijing), we know what you are plotting. Do you think you know what I am going to do? We will see. By the end of this year, you will find out how many of my three top-secret plans you can stop?
+
+爆料革命、新中国联邦，包括你们这次内部批示，绝对不允许这次的在纽约世贸中心的102层新中国联邦的聚会成功举行。还要善用这个机会，最好能一举彻底捣毁我们这帮人。你们就要下毒呗，是吧，放毒呗，啊？
+
+How to handle the Whistleblower Movement and the NFSC celebration. The CCP has internal instructions to absolutely not allow this party of the NFSC, on the 102nd floor of the World Trade Center in New York, to take place successfully. You (CCP) hope to make the most of this opportunity, preferably by completely destroying this celebration and the participants. Are you planning on poisoning us and releasing the virus?
+
+共产党你是玩球蛋了！你们玩这些阴招。看看你们最近的几篇“成功”的报道对我们有多大的帮助？不仅仅是帮助我们在西方让更多人相信我们，还让更多的机构和国家相信我们！
+
+The CCP, you are finished. Are you playing these dirty tricks? Just see how much your recent success reports have helped us. Not only have you got more people in the West believing in us, but you’ve made more institutions and nations believe in us.
+
+*（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60a6748737f7f73984cde2bf](https://gtv.org/getter/60a6748737f7f73984cde2bf) (1:39-2:38, 3:04-4:04, 4:43-9:58)
+鸣谢：
+[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1260339](https://gnews.org/zh-hans/1260339)
+[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1266363/](https://gnews.org/1266363/)*
+
+* * *
+
+**字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
+0

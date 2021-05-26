@@ -1,31 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 沙利文参加美俄安全会谈
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1271893/)
+## 【诗歌 】 新中国联邦·魂
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1271892/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+【作者】禾童 【编辑】Candy
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25141405/R-11.jpg)in.news.yahoo.com
-5月24日，俄罗斯安全理事会秘书尼古拉·帕特鲁舍夫（Nikolai Patrushev）和美国总统国家安全助理雅各布·沙利文（Jacob Sullivan）在日内瓦的一次会议上就安全理事会进行了磋商。这是俄罗斯安全委员会网站上的报道。
+拉满的弓上颤动的弦啊
 
-报告称：“帕特鲁舍夫和沙利文就安全理事会的路线进行了俄美协商，这是5月19日拉夫罗夫和布林肯的谈判的逻辑延续。”
+月光下
 
-据俄方称，会谈是以建设性的方式进行的。会议讨论了广泛的议题，包括战略稳定的问题。报告说：“大家表示相信，可以在一些领域制定出双方都能接受的解决方案。”
+你的心跳清晰可闻
 
-双方还达成共识，即俄美关系正常化符合两国的利益，并将有助于世界的稳定。
+雪亮美丽的刀刃啊
 
-据悉，会议明确指出，在两国领导人的参与下，这次会议成为计划中的俄美首脑会议的阶段之一。
+你的侧脸
 
-5月20日，俄罗斯外交部长谢尔盖·拉夫罗夫（Sergei Lavrov）和美国国务卿安东尼·布林肯（Anthony Blinken）在雷克雅未克会晤。俄罗斯外长说，他们已经同意 “开始对话，研究影响战略稳定的所有因素”。
+如刀锋般冷峻
 
-布林肯说，举行这次会议是为了“测试与莫斯科建立更稳定和可预测关系的建议”。他后来还称会谈是建设性的，并指出稳定和可预测的关系将有利于两国。
+深藏在爱与悲愤下的
 
-4月，拜登提出了让普京在中立领土上会晤的建议。包括奥地利和捷克共和国在内的几个国家提出接待俄罗斯和美国领导人。有关领导人会晤的具体日期的信息尚未得到双方的确认。俄罗斯总统发言人德米特里·佩斯科夫（Dmitry Peskov）表示，普京在决定与拜登会面时将考虑外交部门代表的会谈结果。
+你的真心啊
 
-参考链接：
+懂得她的
 
-[https://www.rbc.ru/rbcfreenews/60abbed09a794712898561a3](https://www.rbc.ru/rbcfreenews/60abbed09a794712898561a3)
+只有新中国联邦之魂
+
+
+
+**【免责声明】** 尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+**欢迎战友加入旧金山金喜准农场**
+
+[旧金山金喜农场](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[旧金山金喜农场](https://discord.gg/QQzQ79grEA)[Discord](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜农场](https://twitter.com/sf_himalaya)[Twitter](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[Youtu](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**b**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[e](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
 0

@@ -1,37 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫呼吁世卫对中共病毒起源进行进一步调查
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1272015/)
+## 台湾疫情升温，是否选用中共疫苗成热点
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1272063/)
 
-- 编译：云起时
+#### 翻译：大种马|校对：文旺
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22095745/1-118.png)图片来源：Gnews
+据路透社（Reuters）5月24日报道，几个月没有大量中共病毒感染的台湾，近期疫情有爆发趋势，这给蔡英文政府带来一个问题，是否接受来自中共政府的疫苗，因为岛上只有百分之一的接种率，并且也没有新的疫苗来源。从疫情一开始，台湾和中共国就一直相互争论。台北指责中共通过散布假新闻来阻止其参加世界卫生组织，而中共却宣称，台北拒绝使用中共疫苗是在用人命玩政治游戏。
 
+报道指出，台湾目前只收到70万剂来自阿斯利康（AstraZeneca）的疫苗，这些很快就消耗完了。还有100万剂的莫德纳（Moderna）疫苗。国民党前领袖洪秀柱表示,应该尽快采用中共的疫苗，还说中共产的疫苗已经得到国际承认，台湾不能再等。洪秀柱说，“此时此刻，人命关天，我们敬告蔡政府，‘真正的敌人是病毒，不是大陆。’”
 
-《每日电讯报》5月25日报道，白宫新闻秘书詹-普萨基（Jen Psaki）周二表示，总统拜登的政府呼吁由世界卫生组织（WHO）而不是美国科学家来领导对中共病毒起源进行进一步调查。
+路透社报道称，被看做亲共的国民党（KMT），虽然没有直接表明支持洪秀柱的立场，但它指责民进党阻挠亲共派从中共获得疫苗的努力。报道引用匿名消息称，随中共国上海复星医药集团（Fosun Pharmaceutical Group）周六提出，要给台湾提供“新技术生物制药”（BioNTech SE）公司生产的疫苗，台湾企业富士康也想获得该公司疫苗。尽管富士康还没有正式与上海复星医药以及台湾中央疫情指挥中心讨论这件事，但这会加大对蔡英文政府的压力。该消息源还说，复星有1000万剂疫苗将会在8月过期没法脱手。复星并没有回复路透社的询问，富士康则告诉路透社，疫苗应该来自中央指挥中心，“只要能帮助台湾防疫，我们就会出一份力。”
 
-在周二的简报中普萨基回答了记者的问题，这些问题涉及到中共病毒的起源问题，它从中共国武汉的一个冠状病毒研究实验室泄漏的可能性越来越大。
+台湾卫生部长陈时中则表示，如果有公司想要购买疫苗，需要经过他部门允许。他认为中共的疫苗安全性还没有得到充分证明，而且台湾人也不会愿意打。但陈时中也补充道，禁止一切来自中共疫苗的法律也应该做调整。台湾目前的疫苗计划还不为人知，但是已经做了未来的承诺。陈时中与美国卫生部长哈维尔·贝塞拉（Xavier Becerra）在上周网络会面时讨论过疫苗，但没有正式发布美台声明，然而，有两个匿名消息告诉路透社，台湾已经下单购买美国的疫苗。
 
-虽然中共长期以来一直坚称该病毒是由动物自然传播给人类的，但越来越多的证据表明武汉实验室有嫌疑。
+中共的对台办公室向路透社表示，大多数台湾爱国者都想打中共疫苗，当前的主要任务是移除岛上人为的政治障碍。
 
-一位记者问到对中共国可能进行的进一步调查时问道：”拜登政府认为美国科学家或CDC科学家应该在该调查中扮演什么角色？“
+评论：谎言重复一千遍就是真理，流氓买通一万个人就是皇帝
 
-普萨基说：”世卫组织将是受监督的，透明和独立的第二阶段调查的机构。这是我们强烈支持的事情。这将需要中国最终站出来，允许进行必要的访问以确定其来源。当然，美国将支持第二阶段的调查，但它将由一个国际机构领导，”
-
-记者问： “所以美国基本上不会发挥主导作用？”
-
-普萨基回答说： “我们在总统上任时重新加入了世卫组织，它是推动这项调查的适当机构。”
-
-共和党人长期以来一直呼吁对中共病毒的起源进行进一步调查。批评者还指出世卫组织在这一大流行病的早期曾转述过来自中共国的伪造数据。
-
-上周，国会众议院情报委员会成员曾发出一封信，敦促拜登政府对中共病毒的来源进行更多调查，并指出有 “重要的间接证据 “表明它是从武汉实验室泄露出来的；几乎没有任何证据表明存在人畜共患病传播的可能。
-
-
-
-> BREAKING: GOP House Intel Committee members agree w/ Dr. Ralph Baric, believe more investigation into COVID-19 origin is needed. Cmte: there's "significant circumstantial evidence" it leaked from Wuhan lab; next to 0 evidence of zoonotic transmission. Article coming soon.
-> — Jennifer Van Laar (@jenvanlaar) [May 19, 2021](https://twitter.com/jenvanlaar/status/1395162701773479941?ref_src=twsrc%5Etfw)
-
-
-
-新闻来源：[《每日电讯报》](https://dailycaller.com/2021/05/25/who-coronavirus-origins-china-biden-investigation-lab/?utm_medium=push&amp;utm_source=daily_caller&amp;utm_campaign=push)
+&gt;&gt;原报道链接&gt;&gt;[Pressure to accept China vaccines intensifies as Taiwan battles COVID surge](https://www.reuters.com/world/asia-pacific/pressure-accept-china-vaccines-intensifies-taiwan-battles-covid-surge-2021-05-24/)
 
 0
