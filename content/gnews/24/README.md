@@ -1,40 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国高级外交官表示，欧盟将贸易政治化“不可接受”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1273162/)
+## 【有声读物】新西兰外长警告：与中共国关系恶化只是时间问题
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1273268/)
 
-- 作者：里奇
+配音：香草山录音组 信念7
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年5月26日电/西喜社——**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26075804/image0-2-37.jpg)图片来源：reuters.com
-中共国国务委员王毅周二表示，欧盟某些人企图将贸易问题政治化是“不可接受的，将无济于事”。当布鲁塞尔对中共国官员实施制裁时，北京感到震惊。
 
-欧盟停止批准与中国的投资协定直到北京取消对欧盟政客的制裁，之后不到一周，也是外交部长的王毅发表了上述讲话。
 
-中共国采取报复制裁措施是在三月份布鲁塞尔将涉嫌侵犯新疆人权的中国官员列入黑名单之后，北京方面对指控予以否认。
 
-王在慕尼黑安全会议主持的一次会谈中说，这项投资协定不是“单方面受惠”，而且引发政治对抗和经济脱钩不符合欧盟的利益。
 
-他说，中共国愿意在相互尊重的基础上扩大与欧洲的合作。
+5月24日，马胡塔在接受《卫报》（The Guardian）专访时表示，在国际舆论压力之下，新西兰政府将对中共国侵犯人权、迫害香港自由等行为采取更强硬的态度。再加上澳大利亚与中共的贸易战正越演越烈，马胡塔相信新西兰受到影响只是时间问题。
 
-王说：“我们从来没有想到欧盟会对我们实施制裁。”他对战略伙伴怎么会采取这种行动表示质疑。
 
-王说，制裁使中国人想起了“他们被欧洲帝国主义者欺负的日子”。
 
-他解释为何中共进行回击：“作为中共国政府，我们要维护自己的主权和我们的民族尊严……我们必须反击谎言和虚假信息。”
+**文字版原文：[【独立观点】新西兰外长警告：与中共国关系恶化只是时间问题](https://gnews.org/zh-hans/1272505/)**
 
-他说：“中共国是所有国家的值得信赖的伙伴，而不是陷入对抗的系统性对手。”
+作者：纽约香草山健身部 Ivy001
 
-**点评: 这位 “断交部长” 难道把新冠病毒抛掷脑后了？莫非它是可以接受的？施毒符合谁的利益？哪个政府最厚颜无耻每天撒弥天大谎？哪个政权最邪恶残忍、长时间欺压盘剥自己的国民? 世界缉毒正当时，劝恶党最好自我解散以谢罪并还权于民。**
 
-素材：里奇；审核： Jenny Ball；校对：信心满满； 发稿：信心的选择
 
-**新闻来源：**[路透社](https://www.reuters.com/world/china/senior-china-diplomat-says-eu-politicising-trade-not-acceptable-2021-05-25/)
+音频处理/发稿：雪梨
 
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-+3
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
