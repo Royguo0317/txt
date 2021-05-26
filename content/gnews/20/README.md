@@ -1,59 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【健身健心】节食减肥好，还是健身减肥好？
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1272555/)
+## 病毒真相之火汹涌燃烧，掩盖真相如飞蛾扑火必自取灭亡！
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1272668/)
 
-作者：纽约香草山健身部 Ivy001
+作者：Neil
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26000832/052601.jpg)
 
+闫博士和中共大外宣的代表唐恩的辩论，引出了中共动用全国资源，招募大批量的科学家去开发超限生物武器这一基本事实。当全世界都畏首畏尾的时候，巴西总统称病毒来自实验室，从国家元首的级别领域给包了饺子。这次中共在印度的大量病毒释放，把整个印度变成了人间炼狱，对于印度的亲共文化，是毁灭性的打击，让他们明白他们幻想的提婆神并不存在，而中共就是带给他们灾难的阿修罗。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
-
-
-
-在传统的观念中，想减肥就必须节食，尤其要限制碳水化合物、脂肪和糖份的摄入。在大家的印象中，每天摄入的卡路里越少，瘦得越快。然而，长期靠节食减肥往往存在着许多健康风险，因此不宜盲目节食、不宜长期节食。
-
-一、过度节食可能造成营养不良。
-
-节食减肥最明显的弊端就是，如果节食不科学，营养搭配不均衡，容易出现内部脏器功能损伤。倘若过度或长期节食，容易造成血糖过低，严重时候还会出现头晕等症状。节食最严重的副作用是，容易引起厌食症。往往减肥不成，健康受损。
-
-二、节食减肥反弹明显。
-
-节食减肥可能造成身体能量的负平衡。长时间过度节食会导致身体开启自我保护功能，因此身体会降低热量的消耗，以维持身体的正常运转。如果这时突然饮食恢复正常，原本机体以低热量消耗维持了一段时间后反而无法适应正常饮食的高热量，这会导致迅速反弹发胖。
-
-三、过度节食还容易引起肌肉萎缩。
-
-由于过度节食、不注意营养均衡，尤其是蛋白质长期摄入不足，这会导致肌肉萎缩。如果一个人只靠节食来获得的苗条身材，那么他将没有活力，肌肉也没有弹性，身型更不会紧致挺拔。毕竟，节食消耗的不仅仅是脂肪，还有肌肉。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25231849/46-1-3.jpg)图源网络
-
-有图有真相——上图左边的是只节食但不健身的身型，右边则是健身塑体的身型，哪个更好看？哪个更吸引？一目了然。所以，想要拥有好身材，就必须是科学膳食+合理健身。
-
-战友们，今天你们传播爆料革命了吗？传播香港危机和病毒真相了吗？传播疫苗危害了吗？大家紧跟文贵先生的步伐，快乐健身，健康生活，努力灭共！
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+阿修罗集一切恶之想法并付诸于占领和毁灭，这像极了中共的所作所为。印度的文化体系里，有苦修，也有无数次被毁灭后的再生，所以当美国被利益严重绑架的时候，印度反而可以在媒体里直接把病毒指向中共；当美国因为利益还在禁止中共国软件问题而摇摆的时候，印度可以果决的把中共的APP软件剔除出去。美国需要痛才会明白和醒来，美国很慢，但是能力超强；印度很快，但是能力较弱，这也是病毒真相上传播的互补。正所谓中国的道生一， 一生二 ，二生三 ，三生万物。
 
 
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+> Because the media doesn’t like my politics, they lied to the public about the origin of covid-19.
+> 
+> They ought to be held accountable for covering up for the Chinese Communist Party. [pic.twitter.com/ne6hdSsRvc](https://t.co/ne6hdSsRvc)
+> — Tom Cotton (@SenTomCotton) [May 26, 2021](https://twitter.com/SenTomCotton/status/1397344195468308484?ref_src=twsrc%5Etfw)
 
 
+
+参议员汤姆**·**科顿在26日发推：因为媒体不喜欢我的政治，所以他们向公众撒谎covid-19的起源，他们应该为帮助中共掩盖真相负责。这条推特掷地有声，说明了当下追查病毒真相大势所趋的情况下，还有众多的无良媒体，科学界小丑，为了中共的一个钢蹦，罔顾事实，泯灭人性去帮助中共洗地，汤姆**·**科顿参议院一直以来为了美国人的福祉，而尽心尽力的推动病毒真相的彻查，而让那些掩盖者为他们的言行负责，是非常必要的，怎么负责？很简单，未来纽伦堡审判有他们的位子，这个位子就是被告席！
+
+[援引原文](https://twitter.com/K2Qiaogeli/status/1397126548570836993)
+
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 0
