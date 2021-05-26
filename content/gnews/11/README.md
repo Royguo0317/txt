@@ -1,32 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】美国法官驳回了史蒂夫·班农的起诉，并引用了总统赦免书
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272247/)
+## 在新乡，主教、7名牧师和10名神学院学生被捕
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1272368/)
 
-美国法官驳回了对前总统川普的顾问史蒂夫·班农的起诉，并引用了总统赦免书。
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 – 明子
 
-对了， 是引用了前总统川普的赦免书。“基于赦免的第一段，Bannon的动议获准，对他的起诉书被驳回，” Analisa Torres法官在文件中宣称。
+据《Asianews》，2021年5月22日报道：
 
-最有才的评论是：“停止保护我们的政治目标免于政治目标！”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25221319/4324324234234234-1-1.jpg)
 
-今天真是欢乐的一天。
+在短短的两天时间里，新乡市使徒区的几乎所有教会人员都被河北省的警察部队消灭了。 昨天5月21日，主教张维笃女士被逮捕。在前一天，5月20日，7名牧师和10名神学院学生被逮捕。
 
-参考链接：
+5月20日下午早些时候，河北省至少有100名来自沧州、河间和沙河桥的警察包围了沙河桥（河北）用作教区神学院的建筑。 实际上，新乡市曾将河北天主教徒拥有的一家小工厂用作神学院。 警察进入该建筑，逮捕了四名神父、神学院教授和另外三名开展牧民工作的神父。 与他们一起被捕的还有10名在工厂上课的神学院学生。
 
+根据《新宗教活动条例》的指示，该工厂被关闭，公司负责人被逮捕。
 
+中共国政府不承认新乡市的教区。 因此，神父、修士和信徒的活动被视为”非法”和”犯罪”。
+突击检查后，警察没收了神父和修士的所有个人物品。
 
-> JUST IN – US judge dismisses indictment against former Trump adviser Steve Bannon, cites presidential pardon.
-> — Disclose.tv 🚨 (@disclosetv) [May 25, 2021](https://twitter.com/disclosetv/status/1397282009328889856?ref_src=twsrc%5Etfw)
+鉴于警察部队的大规模部署，人们认为这次突击检查已经计划了一段时间。 民政部门认为，还有其他神职人员设法逃脱，并在周围地区寻找他们。
 
+公共安全和警察正在挨家挨户地寻找他们。 如果他们发现有可归于天主教信仰的标志（十字架、雕像、圣像、教皇的照片等），业主将被罚款，物品会被没收和销毁。
 
+据许多观察家称，自中国和罗马教廷签署临时协议以来，对天主教徒，特别是非官方的天主教徒的迫害有所增加。该协议只涉及新主教的任命，但有一个前提，即有关教会生活的所有悬而未决的问题将继续待命，以后在双方的进一步对话中解决。相反，警察部队却软禁了主教，对信徒征收非常高的罚款，将教区牧师逐出教堂，逮捕神父和神职人员。 对许多教友来说，”协议被背叛了”。
+63岁的张维笃主教于1991年被任命为主教，曾多次遭受监禁。 新乡教区有10万名教友。
 
-图片來源：[https://theinitium.com/](https://theinitium.com/)
+原文链接：[http://www.asianews.it/news-en/-Xinxiang,-the-bishop,-seven-priests-and-10-seminarians-arrested-53217.html](http://www.asianews.it/news-en/-Xinxiang,-the-bishop,-seven-priests-and-10-seminarians-arrested-53217.html)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-整理撰稿：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
