@@ -1,26 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】川普周二采访中说病毒就是起源于武汉实验室
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272609/)
+## 【拆台新闻】贸易就是政治的具体表现
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272782/)
 
-前总统川普在周二的一次采访中声称，“对聪明人来说很明显”，冠状病毒是从中国武汉市的一个实验室出来的。
+环球网出来啦，周二报道说，中共党务委员兼外交大臣王毅在慕尼黑安全会议的讲话中说，与中国的政治对抗和经济脱钩违背了欧洲的利益，因为合作是双边关系的总体方向和主题。
 
-川普对Newsmax主持人兼前顾问史蒂夫·科尔特斯说：“我对此毫不怀疑。” “我受到媒体的批评，通常，他们将其归咎于俄罗斯。总是俄罗斯，俄罗斯，俄罗斯，但我一开始就说它来自武汉。”
+欧洲冻结了中欧协议商谈之后，这个长达七年的谈判眼看停止了。人家欧洲人不想占中共的便宜，愿意利益受损，就随他去吧。其实王部长的意思咱们自己一人一条船在大海里，不好，我要上你的大船。上了你的船之后，你的船和人和船上的物资就一起共享好了。
 
-此前卫生和公共服务部长Xavier Becerra呼吁世界卫生组织（WHO）对病毒的起源进行“透明的，基于科学的”调查。
+王还说“中欧投资协议是互惠互利的，不是单方面的礼物。与新疆有关的问题关系到中国的主权和安全。欧盟一些人试图将性质不同的问题联系起来，并将贸易问题转变为政治问题。这是无法接受的，而且无济于事。“
 
-这位前总统在一份声明中说：“现在，每个人都同意，当我很早就称呼武汉为COVID-19（有时被称为中国病毒）的来源时，我是对的。” “对我来说，从一开始就很明显，但像往常一样，我遭到了严厉的批评。现在他们都在说“他是对的”。谢谢！”
-
-“请记住，我比我国参议院议员南希·佩洛西更早地关闭了中国，比任何人都想做到的要早，包括我一直相处融洽的福西博士，但我通常做的却恰恰相反他想要。”
-
-川普总统又一次证实了新冠病毒是来源于武汉病毒实验室。给呼吁再次调查病毒起源助力。
+贸易是政治的具体表现形式，两国政府交好，民间贸易畅通， 两国政府交恶，民间来往阻塞。这是常识呢。
 
 参考链接：
 
-[https://nypost.com/2021/05/25/trump-it-was-obvious-to-smart-people-covid-came-from-wuhan-lab/?utm\_campaign=SocialFlow&utm\_source=NYPTwitter&utm\_medium=SocialFlow](https://nypost.com/2021/05/25/trump-it-was-obvious-to-smart-people-covid-came-from-wuhan-lab/?utm_campaign=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_medium=SocialFlow)
+[https://www.globaltimes.cn/page/202105/1224507.shtml](https://www.globaltimes.cn/page/202105/1224507.shtml)
 
-图片来源：[https://nypost.com/](https://nypost.com/)
+图片来源：[https://www.globaltimes.cn/](https://www.globaltimes.cn/)
 
 整理撰稿：蓝精灵
 
