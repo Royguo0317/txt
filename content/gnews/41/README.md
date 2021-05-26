@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：福奇（Fauci）博士首次公开承认，自己并不确信中共病毒是自然形成的
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1272028/)
+## 【快讯】世界上第一个接种Covid-19的英国人威廉·莎士比亚因长期患病中风去世
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272190/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25183919/image001-53.png)
-据福克斯新闻报道，福奇（Fauci）博士说他并不确定中共病毒是自然形成的，并呼吁对该病毒的起源进行公开调查。
+比尔于2020年12月8日在V-Day上登上全球头条新闻，他在考文垂大学医院接受了辉瑞/ BioNTech新冠病毒疫苗接种。
 
-凯蒂-桑德斯（Katie Sanders）在 “美国联合事实”（United Facts of America）活动中问这位国家顶级传染病专家：”围绕着中共病毒（COVID-19）的起源仍然有很多疑点，所以我想问，你仍然相信它是自然发展的吗？”
+考文垂大学医院和沃里克郡国民健康服务基金会说，劳斯莱斯前雇员和教区议员上周四因中风去世。
 
-“实际上并没有，我并不确信这一点，我认为我们应该继续调查在中国发生的事情，直到我们尽最大努力找出发生了什么。当然，调查它的人说传染很可能是从一个动物源中出现，然后感染了个人，但也有可能是通过其他方式传播的，我们需要找出真相。这就是为什么我完全赞成任何的病毒起源调查”，福奇（Fauci）博士回应到。
+他是考文垂医院脆弱病房的长期患者。当他在12月收到疫苗时，他是病房的住院病人，他称之为“奇妙”。 莎士比亚先生穿着一双圣诞节拖鞋和他的医院袍在这张照片上拍摄的照片登上了世界各地的头版。
 
-川普政府官员和国会山上的共和党人长期以来一直认为，中共病毒（COVID-19）很有可能是实验室泄漏的结果。世界卫生组织（WHO）上周宣布实验室泄漏理论 “极不可能”，但即使是WHO负责人也表示，研究小组对该病毒是否是从实验室泄露，然后进入人类群体的评估不够 “广泛”，需要进一步调查。
+参考链接：
 
-美国白宫目前并没有谈到自己是否看到了反驳实验室泄密理论的证据，但已经开始呼吁对中共病毒的起源进行独立调查。
+[https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html](https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html)
 
+图片来源：[https://www.dailymail.co.uk/](https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html)
 
+整理撰稿：蓝精灵
 
-[原文链接](https://www.foxnews.com/politics/fauci-not-convinced-covid-19-developed-naturally)
+校对发布：Penny
 
-本文作者：林林虎
-
-审核校对：鲁邦五世
-
-上传排版：糊糊文婴
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

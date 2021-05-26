@@ -1,289 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友展览板【5/25】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1271943/)
+## 英格兰历史之根基 （三十三） 分裂的王国
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1272168/)
 
-西班牙巴塞罗那喜悦农场 wenwu
+俄罗斯莫斯科喀秋莎农场   和风
 
-【以毒灭共】推文。如下
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25161759/E2IjiDsXoAQnIxz.jpeg)1. [Sellin博士推特](https://twitter.com/LawrenceSellin/status/1396720139832373249)：
-*现在的一个关键问题是，在 #COVID19 爆发之前，单超最初的非人灵长类动物测试，是在江夏的武汉病毒研究所4级设施进行的，还是在武昌的武汉大学设施进行的。根据石正丽的报告，武毒所没有资格使用*
+编辑   银河 星河   上传   银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13183640/Snipaste_2021-05-14_01-36-23.jpg)俄罗斯莫斯科喀秋莎农场 女农
+第一卷  根基
 
+英格兰历史：从原始时期至都铎王朝
 
-> If a [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) accident occurred in November 2019, the evidence is pointing towards the non-human primate tests conducted at the Wuhan University ABSL-3 lab by Chao Shan of the Wuhan Institute of Virology, Keji Road BSL-3 facility, perhaps supervised via the PLA military hospital. [pic.twitter.com/S5lYDB76r8](https://t.co/S5lYDB76r8)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396754639924695041?ref_src=twsrc%5Etfw)
+第三十三章  分裂的王国
 
+根据编年史作家的记载，国内不稳定的征兆使十五世纪中期的天空变暗了。不同地区都下了血雨，治病井里的圣水溢出了。有人在韦茅斯（Weymouth）海域发现了一只巨大的公鸡，“从海水中出来，头上有个大鸡冠，还有大的红胡须，腿有半码（45厘米）长”。许多人听到在莱斯特（Leicester）和班伯里（Banbury）之间的地方有一种声音，高喊着：“弓！弓！”亨廷顿（Huntingdon）县的一个妇女“感觉自己子宫里的胚胎有哭声”，就好像它害怕降生在一个灾难的世界里。
 
-1-2. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1396754639924695041?s=20)**：
-*如果2019年11月发生了 #COVID19 大流行事故，证据指向武汉大学ABSL-3动物实验室的单超，在武汉大学进行的非人灵长类动物病毒测试，科技路BSL-3的实验室设施，也许是通过解放军军事医院监督进行*
+约克王室和兰卡斯特王室实际上是同一个统治家族的两个支系。兰卡斯特王室是爱德华三世第四个儿子的后代，即冈特的约翰、兰卡斯特公爵的后代。约克王室是这位国王第五个儿子、约克公爵埃德蒙的后代，现在，约克公爵最小的儿子已经和第三个儿子的曾孙女结婚了。他们常常依次被叫做第三第四个儿子，却忽略了一个只活了六个月的男婴。然而，他们的亲密孕育着敌意和残暴。蓝色血液通常是坏血液。一个小集会上可能发生了战斗，敌对慢慢扩散，涉及的人会越来越多。但仍然有大批人站在竞技场之外，沉默而好奇地观看着，或者去干自己熟悉的营生了。
 
+在国王从智力不全中恢复健康以及萨默塞特公爵重新掌权后，约克和他的随从退回到自己的庄园，但在1455年春天，有人召集他们加入一个位于莱斯特的大型委员会。约克担心他会在这个场合被逮捕或传讯，所以他先发制人，集合支持者向伦敦行军了。英格兰北部一个大家族的代理人加入了他的队伍。约克的姐夫是索尔兹伯里伯爵理查德·内维尔（Richard Neville），他儿子与他同名，是另一位理查德·内维尔，也是沃里克伯爵（earl of Warwick）。其宿敌是北部的珀西家族，该家族已经站在萨默塞特公爵一边了。所以当地的敌对状态加剧了普遍的冲突。索尔兹伯里和沃里克后来被称为“造王者沃里克”（Warwick the king-maker），现在他们声称：要拿起武器除掉“经验丰富的敌人，比如让他们顺从，并将他们置于王室陛下的羽翼之下”。
 
-> A November 15, 2019 article describes the non-human primate virus-vaccine testing capability of the Biosafety Level 3 animal laboratory of Wuhan University in operation since 2003. Image shows Rhesus Macaque monkeys.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaSecondWave](https://twitter.com/hashtag/CoronaSecondWave?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/ak63sXu9A7](https://t.co/ak63sXu9A7) [pic.twitter.com/FlrrlBydX9](https://t.co/FlrrlBydX9)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396724659157184514?ref_src=twsrc%5Etfw)
+他们编造进军不是针对国王而是针对国王顾问的谎言，但维护谎言是要付出代价的，否则就会被指控犯有叛国罪。尽管如此，约克的军队要与国王的军队在圣奥尔本斯（St Albans）进行公开较量。有人试图进行初步谈判，但约克担心亨利受到萨默塞特的全面控制，所以不相信亨利。1455年5月22日上午10点，约克军队进入圣奥尔本斯城，开始对主街和公共场所进行一系列突袭。他们正在寻找敌人。萨默塞特和诺森伯兰伯爵亨利·珀西被指明是要杀的人。他们被捕获，在一个明显但不是特别野蛮的行动中被杀死了。国王脖子上受了伤，那时，他坐在集市广场自己的旗帜下，但他伤的不重。战斗中，有六十个人被杀死，战斗进行了一两个小时。
 
+约克和内维尔确信自己胜利后，马上向国王投降了。据说，他们“恳求陛下把他们当做真正的臣下，并且他们从未企图伤害他本人”。然后，亨利“体面地对待他们，希望他们结束军事行动，不应该做更多有害的事情”。如果护送对一个武装侍臣是合适的词，那么约克便护送国王回到伦敦，四天后，亨利戴着王冠出现在圣保罗大教堂。有人会合理地问一句：谁是统领。那一天，约翰·帕斯特（John Paston）的一位朋友给他写信说：“至于我们将有什么样的统治，我永远都不知道”。国王的军队已经被打败，他本人受了伤，王国政府处于极其危险之中。然而，有谁知道或猜出圣奥尔本斯战役是一个两败俱伤战争的序曲？它延续了三十年，在英国本土引发了七、八次大战，致使大约80个王室贵族被杀害。战争包含了复仇悲剧的所有因素。在战争后期的一个战场上，兰卡斯特的一位贵族向约克的儿子喊叫说：“By God’s blood，你父亲杀了我儿子，所以我要杀了你和你所有亲戚！”我们似乎回到了盎格鲁-撒克逊的年代，从那时到现在，好像是一场梦。
 
-1-3. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1396724659157184514?s=20)**：
-*[2019年11月15日的一篇文章介绍了，武汉大学生物安全三级动物实验室自2003年以来运营的非人灵长类病毒-疫苗测试能力。图片为猕猴](https://new.qq.com/omn/20191115/20191115A0OP1200.html)*
+那次战斗后的短暂时间里，国王由于某个疾病，慢慢变得虚弱了，病的性质一直不为人知。这容易让人联想到，他回到了以前的精神混乱状态，也可能受到了战败的创伤，但他似乎没有完全退出这个世界。他甚至设法在1455年夏天召开国会。推迟了几个月后，约克重新取得了护国权，但国王或王后以国王的名义在工作，并要顾问明白：国王希望在“涉及他荣誉、信仰和安全的所有方面”一直得到通告。王室现在更加谨慎和警惕，他们担心：约克除了名字外，渴望在所有方面成为国王。
 
+约克最重要的任务是：保卫南部海岸，以防法国的入侵；保卫北部边界，以防苏格兰的入侵。他还要被迫保护在加莱的最后的英国定居地，所以他任命自己的盟友沃里克做该城的首领。他需要议会拨款以准备所有的工作。结果证明，这是一项复杂而艰巨的任务。 1456年2月，国王被上议院带到威斯敏斯特以废除诉讼程序，实际上否决了护国权，那个任务变得极其困难了。此时，约克既怨恨又疲倦，辞去或者被迫辞去了职位。
 
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) provides some very important information. "Bat woman" Zheng-Li Shi said the Jiangxia BSL-4 facility did not use non-human primates before the outbreak, suggesting those experiments were carried out at the Wuhan University ABSL-3 lab in Wuchang. [https://t.co/ZJYdJ5stul](https://t.co/ZJYdJ5stul)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396750355418030090?ref_src=twsrc%5Etfw)
+国王现在名义上是领导人，但真正的权力被王后掌握了。按照同时代人的说法：安茹的玛格丽特是“一位伟大而坚强的女人（思想坚强）”，把每一件事情都安排得有条不紊。她确实比丈夫更加善于控制局势。她现在的核心目的就是保证幼小儿子的利益，确保他能做生病父亲的继承人。在这方面，约克仍然是主要敌人，萨默塞特死后，所有事情变得更加危险了。
 
+她把国王和王室搬到考文垂附近自己地产的中心地区，把凯尼尔沃思（Kenilworth）城堡当做她的根据地，由此建起了一个权力基地，作为住在伦敦的约克公爵的替代方案。市民支持约克公爵的事业，王后对他们不放心。王国的委员会明显地分裂了，形势的发展似乎在随波逐流。当年一个人观察到：“这个国家的‘显要人物是约克和沃里克公爵’，他们没有被召到委员会，却被隔开了”。
 
-1-4. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1396750355418030090?s=20)**：
-***（火来）**[据石正丽介绍，WIV的P3实验室还没有准备好处理非人灵长类动物；P4在疫情爆发前也没有资格进行非人灵长类动物实验。疫情发生后，他们在P4实验室申请了做非人灵长类实验的许可](https://science.sciencemag.org/content/369/6503/487)
+接下来的三、四年里，人们很少提到国王，他用大部分时间在英国中部旅行，住在各种喜欢的大教堂和小修道院里。据说，除了上面所有事情外，他喜欢睡觉。人们没有报道国王的演讲。他“头脑简单”，不支持任何王室，不参与任何战争。除日常财政和任免事务外，政府有很少或者没有任何的尝试。然而，即使在这些范围内，王后的希望和决定都是最重要的。兰卡斯特王室和约克的贵族们急切而怀疑地相互观望，此氛围充满了威胁。
 
-**（Sellin)**COVID19侦探(火来）提供了一些非常重要的信息。
-“蝙蝠女 “石正丽说，江夏BSL-4设施在爆发前没有使用非人类灵长类动物，表明这些实验是在武昌的武汉大学ABSL-3动物实验室进行的*
+1457年冬天，在13,000个弓箭手的护送下，国王的王室返回了威斯敏斯特。人们普遍相信：国王和王后返回的目的是要征服约克，威慑这座城市。政治生活总是一种争夺土地和财富的帮派形式，现在它要显示真面目了。伦敦的街道上到处都是兰卡斯特王室以及约克党的支持者。在圣奥尔本斯被杀害的兰卡斯特人的年轻亲戚要来复仇了。
 
+那年冬天，出现了另一个不安定根源。有一支法国舰队在三明治登陆，还破坏了该镇，它是英国政策和英国软弱双重失败的单独例子。伦敦商人尤其对海上贸易的威胁感到恐惧和愤怒。在这种环境下，没有人感到安全。
 
-> According to Chao Shan's address, it places him at the Wuhan Institute of Virology, Keji Road Biosafety Level 3 facility, near Wuhan University's non-human primate ABSL-3 facility and the PLA hospital complex, all at the epicenter of the early outbreak.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaSecondWave](https://twitter.com/hashtag/CoronaSecondWave?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/X5wQ7BysJH](https://t.co/X5wQ7BysJH)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396682901220102145?ref_src=twsrc%5Etfw)
+面对双方支持者在首都爆发内战的可能性，主要人物达成了某种形式的妥协：要为死者的亲属就他们的损失提供经济赔偿。金钱在英格兰总是最好的政策。协议通过后，接下来就是所谓的“爱之日”（love day），这一天，不共戴天的敌人表面上携起手，在圣保罗大教堂举行了庄严的仪式。但这种爱没有持续下去。王室对约克或内维尔都没有好感，1459年春天，亨利命令王室贵族在莱斯特聚会，“许多人可能按照他们的等级排成了护卫队列”。换句话说，国王正在召集贵族中的武装侍从，以便安排调动。六月，大议会在考文垂举行会议，约克和支持者都没有受到邀请。在这次会议上，背叛的贵族由于他们的不忠而遭到谴责。
 
+约克和沃里克现在把自己的队伍集合起来向伍斯特（Worcester）行军，他们在此地召开了自己的会议。索尔兹伯里伯爵理查德·内维尔企图带领5000军人加入他们。然而，王后的军队在纽卡斯尔安德莱姆（Newcastle-under-Lyme）的路上拦截他。索尔兹伯里伯爵打退拦截队伍，杀死了王后军队的指挥官，打散了所谓的敌人。这次战斗进行了四个多小时，索取了2000个男人的性命，此战场被称为“死人窝”（Deadmen’s Den）。所以形势发展到这步了。英国人与英国人打仗并杀戮，约克郡的人与什罗普郡（Shropshire）的人打仗，威尔特郡的人与柴郡的人打仗。
 
-1-5. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1396682901220102145?s=20)**：
-*根据单超列的地址，他被安排在武汉市病毒研究所，科技路生物安全三级设施，靠近武汉大学的非人灵长类动物ABSL-3设施、解放军医院综合楼，这些地方都处于早期爆发的震中*
+尽管索尔兹伯里伯爵胜利了，但约克和盟友面对置他们于死地的王室大部队，他们从伍斯特退到勒德洛（Ludlow），在此建立了一座军营。然而，形势非常清楚地说明：约克为在公开战场面对国王而感到不安，他可能被指控犯有叛国罪。从加莱过来的沃里克的分遣队开了小差，他们知道自己是弱势群体，所以约克和内维尔在夜幕的掩护下逃跑了。约克返回自己爱尔兰的封地，沃里克和索尔兹伯里乘船前往加莱。他们的土地被国王占领，两人被宣布为叛徒。他们的事业似乎可耻地结束了。
 
+随着来自加莱和都柏林可能发起的进攻，英国海岸线的防守现在正在加强，与此同时，1460年春天，沃里克为了下一步行动乘船前往爱尔兰去咨询约克。从而产生了一次入侵行动。1460年夏天，沃里克和索尔兹伯里在肯特登陆，开始向伦敦这片朋友的领地进军。首都的领导人欢迎他们，甚至还给他们提供金钱。内维尔家族的人说：他们是来“营救”国王脱离邪恶顾问的。除了对亨利本人有好处，他们什么都没有宣称。他们不是叛匪而是政体的改革者，他们希望减轻税负，减少国王的债务。他们许诺要改革法律工作，消除国王侍臣施加的各种压迫。这是那个时代标准的言辞，被英格兰东南部的市民和老百姓热情地接受了。然而，这似乎像是：约克和沃里克苦思冥想了杀死国王连同王后和王子的可能性。应该记住的是：他们所有人都是邪恶和残酷的。
 
-> [#石正丽](https://twitter.com/hashtag/%E7%9F%B3%E6%AD%A3%E4%B8%BD?src=hash&amp;ref_src=twsrc%5Etfw) 再度发表论文阐述 [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 病毒不可能由实验室泄漏。
-> 图1和2，是晚上八点半左右的截屏，显示有大量的跟帖，图3和4是10点多再去看的时候，跟帖已经完全删除。
-> 由此可见：
-> 1，中国部分人民了解真相
-> 2，他们害怕更多的人民知道他们在撒谎[@andy5\_123](https://twitter.com/andy5_123?ref_src=twsrc%5Etfw) [@lude\_media](https://twitter.com/lude_media?ref_src=twsrc%5Etfw) [@LawrenceSellin](https://twitter.com/LawrenceSellin?ref_src=twsrc%5Etfw) [@ClareMLopez](https://twitter.com/ClareMLopez?ref_src=twsrc%5Etfw) [pic.twitter.com/c7cPscT2PX](https://t.co/c7cPscT2PX)
-> — 公民 – SEVEN (@NFSC\_007) [May 24, 2021](https://twitter.com/NFSC_007/status/1396852055025668100?ref_src=twsrc%5Etfw)
+沃里克在伦敦仅住了三天，便向北行军去寻找国王的军队。他在北安普顿外围发现了他们，在派军队进入战斗之前，他命令军人追捕和杀死国王的随从，不要饶恕年长的贵族和骑士。战斗延续了不到一个小时，当国王最贴身的随从被杀后，胜利转到沃里克这边。亨利被关押起来，再一次被护送到伦敦，他在首都只是名义国王。在那时的一首诗里，亨利被描述为：“我跟在贵族后面，永远不知道为什么。”他是一个木偶君主。然而，王后和儿子即年轻的爱德华王子仍然在逃。
 
+这场战斗过后十个星期，约克从爱尔兰返回了，他厌烦自己对王室的所有从属权利。他不再按照惯例，按照亨利统治的年份写信件，还厌烦旗帜上的英格兰国徽。当沃里克在威斯敏斯特召开议会，议会要开始工作程序时，约克到达了。他进门时，小号吹响了，他抽出剑举在胸前，然后向着空王位走去，他把手放在上面，似乎要声明拥有它。这个意外而非法的举动使参加会议的贵族感到气馁和惊愕。这看起来好像是，约克估错了自己的名望，低估了人们对合法国王残存的忠诚。
 
-1-6. **[公民记者推特](https://twitter.com/NFSC_007/status/1396852055025668100?s=20)**：
-*石正丽再度发表论文阐述 #COVID19 病毒不可能由实验室泄漏。
-图1和2，是晚上八点半左右的截屏，显示有大量的跟帖，图3和4是10点多再去看的时候，跟帖已经完全删除。由此可见：（故意投毒）
-1，中国部分人民了解真相
-2，他们害怕更多的人民知道他们在撒谎*
+他要求就职为君主。当人们请求他对亨利做一次礼节性拜访时，他回答说：“我知道，现在王国内的人都应该来见我，但我不应该去拜访他。”国王太恐惧了，以至于不敢与约克相见。上议院对约克的要求提出异议，把这个问题交给法官，法官们反过来拒绝介入这种“大事情”，又把难题送回了上议院。这个问题“凌驾于法律之上，超出了他们的知识范围”。在任何情况下，人们都不希望对受膏君主的忠诚做假宣誓。因为亨利的无能为力，他的时代也具有了这个特征。王国的年长者变得优柔寡断，空虚占据了政府的心脏。
 
+最终，上议院以英国风格策划了一个妥协。亨利继续保留王冠，但他死后或在他愿意辞职时，约克和其继承人将继承王位。因为约克比亨利大十岁，所以上议院正在玩弄等待和观察的游戏。当国王接受这个计划时，他实际上剥夺了儿子的继承权，并剥夺了他的合法继承权。但国王没有地位，可能也没有条件，来反对这个事情。王后玛格丽特对继承问题的心情几乎不用怀疑，但眼下，她在逃亡的路上。她带着儿子退到威尔士，后来又逃到苏格兰，她把军队的控制权交给了国王同母异父的兄弟彭布罗克伯爵（earl of Pembroke）贾斯珀·都铎（Jasper Tudor），所以都铎家族适时地进入了英国历史。亨利五世的遗孀瓦卢瓦的凯瑟琳变成了低等侍臣欧文·都铎（Owen Tudor）的妻子，这段难以相信的夫妇生下了贾斯珀·都铎。老都铎为了前王后的利益而让儿子参与其中。然而，没有人会想象到：他的家族成了最后的继承人。
 
-> A very important time point needs to be noticed:
-> Chao Shan joined WIV in December 2019 [https://t.co/EG66VKP97p](https://t.co/EG66VKP97p) [pic.twitter.com/kaLh2doEhh](https://t.co/kaLh2doEhh)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [May 24, 2021](https://twitter.com/jsdfposjpqyuee1/status/1396921742111641601?ref_src=twsrc%5Etfw)
+1460年底之前，王后在英格兰北部又出现了，她劝说该地区的大贵族支持她反抗伦敦人和东南部的人。当约克和索尔兹伯里向北行军去面见她们时，她集合了10,000个武装侍臣。战斗在韦克菲尔德（Wakefield）外爆发，约克和索尔兹伯里都被处决了。这是对兰卡斯特人在圣奥尔本斯和北安普顿屠杀的某种惩罚。约克的头颅被戴上纸王冠放在约克城的南门上，此门称为“米克盖特门”（Micklegate Bar），有个标牌写着：“让约克俯视约克城。”
 
+所以安茹的玛格丽特似乎是赢了，并给儿子以及孱弱的国王带来了利益，但亨利本人在伦敦，受到沃里克的控制和摆布。这位巨头没有和盟友向北行军，而是留下来保护约克党在威斯敏斯特的行政机关。根据上议院同意的国王和约克之间的协议，王位的继承人现在变成约克的儿子马奇的爱德华（Edward of March）。两个年轻的爱德华，爱德华王子七岁，马奇的爱德华十八岁，要开始相互对立了。
 
-1-7. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1396921742111641601?s=20)**：
-***（火来）**[加尔维斯顿生物实验室解释与武汉的联系](https://www.galvnews.com/news/free/article_daafd290-4015-5e83-aeb2-c038036da0d9.html?utm_medium=social&amp;utm_source=twitter&amp;utm_campaign=user-share)；有两个博士后在加尔维斯顿国家实验室的BSL-4实验室，接受培训。我猜这两个人中有一个是赵单；需要注意一个非常重要的时间点：单超于2019年12月加入武毒所，同时他还是德美国克萨斯医学部（UTMB）的博士后
+实际上，马奇的爱德华已经走到了保卫约克人继承权的战场。他走在队伍的前头，目的是阻止贾斯珀·都铎指挥的威尔士军队与北方兰卡斯特主力队伍的联盟。1461年2月初，爱德华在赫尔福德郡（Herefordshire）遇见了都铎，这里被称为莫蒂默的十字架（Mortimer’s Cross）。战役之前，人们看见天空出现了不寻常的幻日或太阳狗，即通过小冰晶，第二个太阳似乎出现在第一个太阳旁边。地球上的士兵当然不知道冰晶，但两个太阳同时出现说明，世界要发生某个大变化。两个太阳毕竟要发生冲突，而且英格兰就要有两个国王了。
 
-**（NEO）**[该论文于2019年7月15日提交，WIV和UTMB都被提及，单超是第一作者](https://twitter.com/neophighter/status/1396949181953159169?s=20)*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25173818/E2KDpw9XoAAwtiK.png)1-8. **[NEO推特](https://twitter.com/neophighter/status/1396824567440711681?s=20)**：
-*（1）武汉大学ABSL-3动物实验室，深入参与了非人类病毒感染测试项目(2003-2015)
-(2) 该设施成立于2003年，是中共国第一个认证的ABSL-3动物实验室，其核心部分可同时进行50只猴子的实验 (3)该设施具有研究SARS、汉坦病毒等高传染性病原体的良好条件……有气溶胶感染装置、IVC笼、生物安全柜。(4) 该实验室在随州市有一个猴子繁殖基地（5）疫情震点的WIV P3/4实验室直到2020年才能够进行这些研究。”我院的BSL-3实验室 “也应该包括红山的WIV-P3。
-结论：单超在武汉大学ABSL-3动物实验室进行了，新冠病毒大流行前非人灵长类动物感染模型的研究（6）因此，事情很清楚：如果大多数病毒学家采取“功能增强”实验的方式来开发疫苗等，那么传播性测试对他们来说是离题的。但是对于生物武器研发来说，那么这些测试是必不可少的，因为他们需要评估可能的结果（故意投毒前的准备）。武汉大学的ABSL3动物实验室做到了/在大流行之前
+马奇的爱德华赢得了胜利，贾斯珀·都铎逃跑了，但他父亲并没有那么幸运。欧文·都铎被带上断头台，人们听到他在嘀咕：“这颗头将要放在手足枷里，不会放到凯瑟琳王后的腿上”。有人把他的头从绞架上取下，放在当地镇市场的十字路口。就是在这里，一个疯女人给他梳头，洗他脸上的血迹。
 
-**（闫）**实际上，在武汉只完成了对猴子的致病性试验，而传播性试验在疫情爆发前并没有进行。因此，缺乏对高传染性的认识，是#COVID19病毒在社区试验中失控的主要原因
-**（Sellin）**这条简短的推文由#COVID19侦探（NEO）发布 ：切中了问题的核心，并对武汉大学ABSL-3非人灵长类实验室，在新冠病毒大流行病爆发前的潜在作用，提出了一些其他关键意见。所有内容都值得一读*
+约克的死使玛格丽特有了胆量，她已经向伦敦行军了。都铎家族显然不能加入她，但她仍然稳步地向南移动。她至始至终允许军队抢劫和掠夺所途经的约克党土地。沃里克在伦敦集结起军队，以防她进入首都，他把大部分权力和资源都放在这里。他把国王带在身边作为某种形式的保险。他肯定也希望：玛格丽特不会攻击把他丈夫当人质的军队。
 
+然而，他的希望是错误的。1461年2月17日，约克党人和兰卡斯特人再一次在圣奥尔本斯相遇了，但这一次，兰卡斯特人取得了胜利。国王得救了，被放在一英里外保护起来，据说，他在这里的一棵树下又笑又唱。许多重要的约克贵族被杀害。沃里克带着一小部分战友逃出了战场。
 
-> 美新情報：病毒爆發前 [#武漢病毒所](https://twitter.com/hashtag/%E6%AD%A6%E6%BC%A2%E7%97%85%E6%AF%92%E6%89%80?src=hash&amp;ref_src=twsrc%5Etfw) 3人曾同患病 
-> 
-> 《華爾街日報》週日披露一份先前未公開的美國情報報告，指在2019年11月，即 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 在武漢爆發的前一個月，武漢病毒研究所有三名研究人員出現嚴重病情並去醫院救治。
-> 
-> 這份報告預計會加劇國際社會的質疑：病毒是否是從實驗室泄露出來的？ [pic.twitter.com/mIBqYp5406](https://t.co/mIBqYp5406)
-> — 澳洲大紀元 (@epochtimesau) [May 25, 2021](https://twitter.com/epochtimesau/status/1396992693327122432?ref_src=twsrc%5Etfw)
+据报道：亨利为再一次见到家人而欣喜若狂，他在兴奋中把小儿子封为爵士。接下来，七岁的男孩把大约三十个追随者封为爵士。玛格丽特与她据为己有的国王一块站在伦敦门附近。据编年史作者报道：“商店都关门了，不论商人还是贵族，什么事情都不做了。男人不会去离家远的地方停留和冒险”。他们听说了玛格丽特在英格兰北部造成的灾难。约翰·帕斯特在给父亲的信中说：他们“被命令去抢劫所有的村庄，在南方，人们的食物和生计荡然无存，这是一个自找的祸根”。
 
+听到玛格丽特进军的消息后，马奇的爱德华（他在父亲死后成为约克公爵）离开在威尔士边界的胜利战场，带领军队向东去阻截她。他在牛津郡科茨沃尔德（Cotswolds）附近遇见了沃里克，他们一块向伦敦行军。现在，他们的目的就是占领这座城市，并声称爱德华是合法国王。市民有意接受约克公爵，伦敦的大门对安茹的玛格丽特关闭了。
 
-1-9. **[大纪元推特](https://twitter.com/epochtimesau/status/1396992693327122432?s=20)**：
-*《华尔街日报》週日披露一份先前未公开的美国情报报告，指在2019年11月，即 #中共病毒 在武汉爆发的前一个月，武汉病毒研究所有三名研究人员出现严重病情并去医院救治*
+当爱德华到达时，受到伦敦人的欢迎，支持者涌到大街上，他几乎是在呼喊中戴上了王冠。在圣保罗十字架边和其他地方，他拥有这个头衔的权利得以公布，亨利六世由于违反让约克成为继承人的协议而丧失了王位。3月4日，爱德华进入圣保罗大教堂，然后堂皇地前往威斯敏斯特，在这里被加冕为爱德华四世（Edward IV）。当他举起忏悔者爱德华的权杖时，所有出席的人都向他致敬。人们反复吟唱着这首副歌：
 
+真正的力量，爱德华国王
 
-> To note, this intelligence should be re-examined. It only tells 3 WIV staffs were sick at the early of outbreak
-> Briefly, no clinical data proved it was COVID19.If it was, infection during community transmission is highly possible
-> Again, based on my evidence, it’s NOT lab accident [https://t.co/vk0y0LMVq0](https://t.co/vk0y0LMVq0)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 24, 2021](https://twitter.com/DrLiMengYAN1/status/1396855117568172033?ref_src=twsrc%5Etfw)
+自然的国王，爱德华国王。
 
+他是真正的声音和合法的国王。他十九岁，6英尺4英寸高（1.9米），有一副指挥官的形象。他完全是个合适的国王。勃艮第的使节说：“他是我见过的更漂亮的男人”。
 
-1-10. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1396855117568172033?s=20)**：
-*回复WSJ的新闻：要注意的是，这个情报应该被重新审查。它只告诉我们有3名WIV的工作人员在疫情爆发初期生病了。简而言之，没有临床数据证明是COVID19，如果是的话，在社区传播中感染的可能性很大。再说一遍，根据我的证据，这不是实验室事故（而是故意投毒）*
+但亨利六世仍然被认为是一位受膏国王，他没有死，也没有逊位。所以实际上，英格兰受两个国王的统治。天空中能看见两个太阳。一位十七世纪的历史学家托马斯·富勒（Thomas Fuller）在他的《神圣的国家与世俗的国家》（The Holy State and The Profane State）里，把这个情况描写得更加生动：“他们生活在令人烦恼的世界里，无论在什么地方洗牌，两个国王都能立刻交上好运，让人好奇的是怎样玩游戏”。
 
+接下来，爱德华要通过追逐玛格丽特来解决亨利所造成的不满状态。3月29日，两支军队在约克郡的陶顿（Towton）相遇，王室家族采取了谨慎态度，返回到约克去等待事态的发展。他们这样做是正确的。爱德华在战场上赢得了显著的胜利，这次冲突发生在雪暴天气里，据报道，参与的士兵大约有50,000人，其中四分之一丧生了。大部分兰卡斯特贵族被消灭。亨利和玛格丽特带着儿子逃进苏格兰。老国王，如果我们可以这样称呼他，在那里自由地生活了四年，直到幸存的兰卡斯特人要索取王位的时候。这仅仅是玫瑰战争的第一部分。
 
-> Evidence says [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic may have started in the Wuhan University’s ABSL-3 animal laboratory. But is it the perpetrator or the scapegoat for a Chinese People's Liberation Army operation?
-> (COVID-19 detectives [@ann95657173](https://twitter.com/ann95657173?ref_src=twsrc%5Etfw) & [@TorontoFarmEN](https://twitter.com/TorontoFarmEN?ref_src=twsrc%5Etfw) thanked)[https://t.co/tkxc8eMykf](https://t.co/tkxc8eMykf)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397170798947979274?ref_src=twsrc%5Etfw)
-
-
-1-11. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1397170798947979274?s=20)**：
-*[证据显示，#COVID19 大流行可能始于武汉大学的ABSL-3动物实验室。 但它是肇事者还是中国人民解放军行动的替罪羊？(向COVID-19侦探@ann95657173和@TorontoFarmEN表示感谢)](https://www.thegatewaypundit.com/2021/05/wuhan-universitys-animal-laboratory-origin-covid-19-pandemic/)*
-
-
-> ATTENTION: This Tweet by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@ann95657173](https://twitter.com/ann95657173?ref_src=twsrc%5Etfw) may be THE smoking gun of the start of the pandemic. 
-> On May 6, 2020, Li Hongliang was removed as director of the Animal Experiment Center of Wuhan University and the director of the ABSL-III laboratory of Wuhan University. [https://t.co/r3jGWd82rK](https://t.co/r3jGWd82rK)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 24, 2021](https://twitter.com/LawrenceSellin/status/1396879761796894724?ref_src=twsrc%5Etfw)
-
-
-1-12. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1396879761796894724?s=20)**：
-***（ann)**据武汉大学信息公开网，5月6日，李红良已被免去武汉大学动物实验中心主任和武汉大学ABSL-III实验室主任职务
-
-**(Sellin）**注意：#COVID19侦探（ann）的这条推文，可能是新冠病毒大流行病开始的铁证：2020年5月6日，李红良被免去武汉大学动物实验中心主任和武汉大学ABSL-III实验室主任的职务*
-
-
-> Jamie Metzl on Fox “If the pandemic comes from an accidental lab leak followed by a cover-up…We could image Xi JinPing being overthrown”
-> -Good point! The origin is proven. But only removing Xi is FAR FROM END of pandemic, unless the whole anti-humanity CCP regime is overthrown! [https://t.co/x7ucRMckNh](https://t.co/x7ucRMckNh)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 24, 2021](https://twitter.com/DrLiMengYAN1/status/1396669774399250432?ref_src=twsrc%5Etfw)
-
-
-2. **[闫丽梦博士推特](https://twitter.com/drlimengyan1/status/1396669774399250432?s=21)**：
-***（喜站视频）**世卫组织顾问，曾为克林顿政府和拜登工作过的左派梅茨接受福克斯采访，呼吁全体美国人、美国政府、全人类、全世界政府团结一起彻查病毒来源真相 他说，如果病毒源于实验室事故泄漏，这就是刑事犯罪，习近平会被推翻 一个标准左派，作为世卫顾问，接受右派媒体采访，号召美国人团结一致，什么情况？
-
-**（闫）**杰米·梅茨尔在福克斯节目中说：”如果大流行病来自于实验室的意外泄漏，然后是掩盖真相……我们可以想象习近平帝国被推翻的情景。”（故意投毒）-说得好! 起源已被证实。但是只有推翻习近平独裁者离大流行病的结束还远远不够，除非整个反人类的中共政权被推翻*
-
-
-> 20210523Cotton參議員接受Maria採訪1/3
-> 1.讓人難以置信的是，時隔15個月之後，人們才將病毒來自實驗室作為常識
-> 2.所有間接證據包括川普政府最後幾天說19年9月武毒所就有人出現症狀指向病毒起源於實驗室
-> 3.病毒出現在武漢真是一個天大的巧合
-> 4.拜登政府對中共追責至關重要[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [pic.twitter.com/ftmFjO0Vsb](https://t.co/ftmFjO0Vsb)
-> — Andy5 (@andy5\_123) [May 24, 2021](https://twitter.com/andy5_123/status/1396783150873792514?ref_src=twsrc%5Etfw)
-
-
-3. **[Andy5推特](https://twitter.com/andy5_123/status/1396783150873792514?s=20)**：
-*20210523Cotton参议员接受Maria採访
-1.让人难以置信的是，时隔15个月之后，人们才将病毒来自实验室作为常识
-2.所有间接证据，包括川普政府最后几天说19年9月武毒所就有人出现症状指向病毒起源于实验室
-3.病毒出现在武汉真是一个天大的巧合
-4.拜登政府对中共追责至关重要
-5.Cotton参议员跟6位议员联名写信质问NIH的蝠奇上司Collins
-6.信中仔细询问为什么NIH要拨款给武毒所做功能增强实验
-7.为什么要拨款给武毒所研究冠状病毒，让世上最危险的病毒更具传染性、更危险
-8.NIH可能认为自己知晓一切所以对政客的提问不屑一顾
-9.Maria提去年做预告的时候被打杂客攻击
-10.打杂客在19年12月亲口说 冠状病毒容易在实验室里操弄
-11.这些所谓砖家和科学机构，试图掩盖自己的痕跡，因为这可能成为巨大丑闻
-12.因为拜登上任，所以媒体开始发掘一些真相了*
-
-
-> Have you ever watched Aladdin?[#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) campaign controlled by CCP is like the magic lamp holding by evil Jafar
-> CCP: Tell the world, [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) is not PLA’s novel bioweapon, and people should praise CCP for anti-COVID19.
-> CCP’s lamp: Working on it, Boss! [pic.twitter.com/Xl6S0ZqLzN](https://t.co/Xl6S0ZqLzN)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 24, 2021](https://twitter.com/DrLiMengYAN1/status/1396823386274291719?ref_src=twsrc%5Etfw)
-
-
-4. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1396823386274291719?s=20)**：
-*你看过《阿拉丁》吗？
-中共控制的 #超限科学误导 就像邪恶的贾法尔手中的魔灯一样。
-中共：告诉世界，#COVID19 不是解放军的新型生物武器，人们应该赞扬中共积极抗疫。
-CCP的灯神：正在努力，老板*
-
-
-> The CCP was actively engaged in viral research at the Wuhan Institute of Virology. Every piece of evidence points to a leak from this laboratory. 
-> 
-> The CCP has done everything to cover up and deflect blame, even blaming the U.S. Prove it.
-> 
-> They must be held accountable.
-> — Mike Pompeo (@mikepompeo) [May 24, 2021](https://twitter.com/mikepompeo/status/1396898406614904843?ref_src=twsrc%5Etfw)
-
-
-5. **[麦克·蓬佩奥推特](https://twitter.com/mikepompeo/status/1396898406614904843?s=20)**：
-*中共在武汉病毒学研究所积极从事病毒研究。每一个证据都指向了这个实验室的泄密。
-中共做了一切事情来掩盖和转移责任，甚至指责美国，证明这一点。他们必须被追究责任*
-
-
-> 中共大外宣唐恩与闫丽梦博士在印度电视台辩论。
-> 唐恩故意引导说美国政府资助武毒所开发生物武器。
-> 闫博士机智用真相反驳，事实是资金合同上并没有写用于「功能增强」实验，是中共利用美国的法律漏洞欺骗了美国。而且美国的资金只占极小一部分，中共一直动用全国资源大规模地开发超限生物武器
-> (第1部分) [pic.twitter.com/MnD5TYQ7ya](https://t.co/MnD5TYQ7ya)
-> — 乔戈里峰 (@K2Qiaogeli) [May 25, 2021](https://twitter.com/K2Qiaogeli/status/1397126548570836993?ref_src=twsrc%5Etfw)
-
-
-6-1. **[喜站推特](https://twitter.com/K2Qiaogeli/status/1397126548570836993?s=20)**：
-*中共大外宣唐恩与闫丽梦博士在印度电视台辩论。 唐恩故意引导说美国政府资助武毒所开发生物武器。 闫博士机智用真相反驳，事实是资金合同上并没有写用于「功能增强」实验，是中共利用美国的法律漏洞欺骗了美国。而且美国的资金只占极小一部分，中共一直动用全国资源大规模地开发超限生物武器；闫博士还向印度观众介绍唐恩：这个一个活生生的例子，让印度观众见识到中共大外宣的嘴脸。 印度专家说，到底是意外泄漏，还是故意释放才是我们应该讨论的问题。*
-
-
-> 印度媒体全面开始讨论病毒是中共生物武器！
-> 印度最有影响力的英文台之一NewsX邀请了前外交官，退役将军，中国问题专家等。他们普遍认为病毒就是中共的生物武器，而且是中共故意在印度投毒！
-> 他们认为中共对印度的生物战、超限战早已开始，世界必须团结起来对抗中共，不能重蹈30年代欧洲绥靖纳粹的覆辙 [pic.twitter.com/udZxxcpNf7](https://t.co/udZxxcpNf7)
-> — 乔戈里峰 (@K2Qiaogeli) [May 25, 2021](https://twitter.com/K2Qiaogeli/status/1396991782970302465?ref_src=twsrc%5Etfw)
-
-
-6-2. **[喜站推特](https://twitter.com/K2Qiaogeli/status/1396991782970302465?s=20)**：
-*印度媒体全面开始讨论病毒是中共生物武器！ 印度最有影响力的英文台之一NewsX邀请了前外交官，退役将军，中国问题专家等。他们普遍认为病毒就是中共的生物武器，而且是中共故意在印度投毒！ 他们认为中共对印度的生物战、超限战早已开始，世界必须团结起来对抗中共，不能重蹈30年代欧洲绥靖纳粹的覆辙*
-
-
-> Here are a minority of high-similar fake accounts pretending to be me, which are made by CCP cyber army. Although I blocked them today, new fake ones are on the way
-> See, to stop people realizing the truth of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) from me, China gov is always more shameless than you imagined👇🏻 [pic.twitter.com/Hn92kEBbpz](https://t.co/Hn92kEBbpz)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 25, 2021](https://twitter.com/DrLiMengYAN1/status/1397022264135139328?ref_src=twsrc%5Etfw)
-
-
-7. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1397022264135139328?s=20)**：
-*这里有少数冒充我的高仿假账号，是由中共网络军团制作的。虽然我今天封杀了他们，但新的假账号还在路上。LOOK！为了阻止人们从我这里了解#COVID19的真相，中共国政府总是比你想象的更无耻*
-
-
-> Thank you, [@TheRightMelissa](https://twitter.com/TheRightMelissa?ref_src=twsrc%5Etfw), for helping more people realize the truth!
-> “The fact that whistleblowers coming out of communist China are being censored by America's Big Tech oligarchy, should tell you everything you need to know about the type of people running these companies.” [https://t.co/aIJhZAAnYL](https://t.co/aIJhZAAnYL)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 24, 2021](https://twitter.com/DrLiMengYAN1/status/1396914405867196417?ref_src=twsrc%5Etfw)
-
-
-8. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1396914405867196417?s=20)**：
-***（保守派泰特）**大科技寡头在脸书和推特上，删除了一位勇敢的女科学家和中国爆料革命战友的账户，该账户首次报告了武汉病毒泄漏事件。在她出现在塔克节目中后，他们对她进行了审查，以保护中国共产党。自由派媒体称她是骗子*
-***（闫）**谢谢泰特，感谢你帮助更多的人认识到了真相
-“从共产主义中国走出来的爆料革命战友被美国的大科技寡头审查的事实，应该告诉你一切你需要知道的关于经营这些公司的哪路人。”*
-
-
-> I have been targeted multiple times now, it is reprehensible that Twitter allows C-list celebrities to advocate for violence against me and my family! [https://t.co/WhTtswUI91](https://t.co/WhTtswUI91)
-> — Senator Rand Paul (@RandPaul) [May 25, 2021](https://twitter.com/RandPaul/status/1397000983201394689?ref_src=twsrc%5Etfw)
-
-
-9-1. **[保罗参议员推特](https://twitter.com/RandPaul/status/1397000983201394689?s=20)**：
-***（FOX）**[兰德·保罗收到死亡威胁包裹，里面有白色粉末和暴力、亵渎的措辞](https://www.foxnews.com/politics/rand-paul-death-threat)
-
-**（保罗）**我已经多次成为目标，推特允许C级名人鼓吹对我和我的家人使用暴力，这是应该受到谴责的*
-
-
-> 参议员兰德·保罗宣布他将不会接种新冠疫苗，理由是他去年已经感染过新冠病毒，拥有自然免疫力。参议员保罗拥有医学博士学位，之前是一名专业的眼科医师。 [https://t.co/fkRKPxEnnM](https://t.co/fkRKPxEnnM)
-> — 李昂纳多 (@RealLiAngNaDuo) [May 23, 2021](https://twitter.com/RealLiAngNaDuo/status/1396614927532625922?ref_src=twsrc%5Etfw)
-
-
-9-2. **[李昂纳多推特](https://twitter.com/RealLiAngNaDuo/status/1396614927532625922?s=20)**：
-[*参议员兰德·保罗宣布他将不会接种新冠疫苗，理由是他去年已经感染过新冠病毒，拥有自然免疫力。参议员保罗拥有医学博士学位，之前是一名专业的眼科医师（来自零对冲）*](https://www.zerohedge.com/covid-19/rand-paul-first-senator-announce-he-wont-get-covid-19-vaccine)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25183309/E2NSR6JXMAE3g5d.jpeg)10. **[Sellin博士推特](https://twitter.com/LawrenceSellin/status/1397051524174553089)**：
-*有人篡改了，也许是黑客，美国国家卫生研究院的出版结果数据库，一篇关于生态健康联盟的Peter Daszak的文章，包括一篇说#COVID19是在实验室制造的*
-【灭共时代】
-
-
-
-> 中共國維穩土匪的黑成員。你大爺的，斷子絕孫的中共，你們按的什麼心！變相黑人雇傭軍欺凌中共國百姓嗎？ [pic.twitter.com/YdUUc88NLB](https://t.co/YdUUc88NLB)
-> — 全民挺郭联盟✊️ ✊️ ✊️ (@redwallpusher) [May 24, 2021](https://twitter.com/redwallpusher/status/1396690257022648320?ref_src=twsrc%5Etfw)
-
-
-**[全民挺郭联盟推特](https://twitter.com/redwallpusher/status/1396690257022648320?s=20)**：
-*中共国维稳土匪的非洲成员。你大爷的，断子绝孙的中共，你们安的什么心！变相黑人雇佣军欺凌中共国百姓吗？*
-
-
-> 美军方解密：为护台湾 曾计划核打击中共基地 
-> 
-> 在 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) 不断威胁武统 [#台湾](https://twitter.com/hashtag/%E5%8F%B0%E6%B9%BE?src=hash&amp;ref_src=twsrc%5Etfw) 的背景下，美媒曝光了 [#五角大楼](https://twitter.com/hashtag/%E4%BA%94%E8%A7%92%E5%A4%A7%E6%A5%BC?src=hash&amp;ref_src=twsrc%5Etfw) 的一份机密文件，文件显示在1958年台海危机期间，美军为了保卫台湾，曾计划对中共空军基地实施核打击。[https://t.co/yMj9wSmBNE](https://t.co/yMj9wSmBNE)
-> — 大纪元新闻网 (@dajiyuan) [May 24, 2021](https://twitter.com/dajiyuan/status/1396934088938897416?ref_src=twsrc%5Etfw)
-
-
-**[大纪元新闻网推特](https://twitter.com/dajiyuan/status/1396934088938897416?s=20)**：
-*[在 #中共 不断威胁武统 #台湾 的背景下，美媒曝光了 #五角大楼 的一份机密文件，文件显示在1958年台海危机期间，美军为了保卫台湾，曾计划对中共空军基地实施核打击](https://www.epochtimes.com/gb/21/5/24/n12972548.htm)*
-
-
-> 🤣🤣🤣發這個推的傻叉可能會被共軍總裝拉出去彈鷄鷄彈到死吧？國產航母用這種活塞式商船柴油機的話，共軍就徹底別混了！再怎麽不濟，也得上俄羅斯血統的蒸汽輪機，好吧？這不是個技術問題，這是個面子問題！🤪 [https://t.co/0sauHWmu6s](https://t.co/0sauHWmu6s)
-> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [May 25, 2021](https://twitter.com/BoDiplo/status/1397039387888791553?ref_src=twsrc%5Etfw)
-
-
-**[BO博士推特](https://twitter.com/BoDiplo/status/1397039387888791553?s=20)**：
-*回复中共大外宣：发这个推的傻叉可能会被共军总装拉出去弹鸡鸡，弹到死吧？国产航母用这种活塞式商船柴油机的话，共军就彻底别混了！再怎么不济，也得上俄罗斯血统的蒸汽轮机，好吧？这不是个技术问题，这是个面子问题*
-
-
-> 時至今日， 估計家裡及身邊親友中沒有癌症死亡的，已經不多見了。。。。。命苦不能怨政府。 [pic.twitter.com/kOlwtcDZRP](https://t.co/kOlwtcDZRP)
-> — Bo Lu II (文龍） (@BoLu213) [May 25, 2021](https://twitter.com/BoLu213/status/1397174461086961664?ref_src=twsrc%5Etfw)
-
-
-**[文龙推特](https://twitter.com/BoLu213/status/1397174461086961664?s=20)**：
-*时至今日， 估计家里及身边亲友中没有癌症死亡的，已经不多见了。。。。。命苦不能怨政府*
-
-
-> 在中共國死了也得不到安息！
-> 其中一名馬拉松死者黃印斌，當局竟然以死者知名度不高，拒絕應有的賠償。人神共憤！ [https://t.co/tqvysBvll2](https://t.co/tqvysBvll2)
-> — 安红橘绛轩 (@maryann\_3040) [May 25, 2021](https://twitter.com/maryann_3040/status/1397163014999187460?ref_src=twsrc%5Etfw)
-
-
-**[安红推特](https://twitter.com/maryann_3040/status/1397163014999187460?s=20)**：
-*黄河石林山路途20小时以上的山地越野赛，死者21人。当局成立了21个工作小组，直接将21个死者家属软禁起来，不让家属们互通消息，按知名度赔偿，真是荒谬之极！一千万人民币赔偿金，平均给予21名死者，每人47.6万。据悉当局为了平息事件，知名度高的死者，赔偿高些，故没有名气的大部分死者，得不到公平的对待；在中共国死了也得不到安息！其中一名马拉松死者黄印斌，当局竟然以死者知名度不高，拒绝应有的赔偿。人神共愤！*
-
-
-+1
+0

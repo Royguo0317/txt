@@ -1,20 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】世界上第一个接种Covid-19的英国人威廉·莎士比亚因长期患病中风去世
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272190/)
+## 【快讯】美国法官驳回了史蒂夫·班农的起诉，并引用了总统赦免书
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272247/)
 
-比尔于2020年12月8日在V-Day上登上全球头条新闻，他在考文垂大学医院接受了辉瑞/ BioNTech新冠病毒疫苗接种。
+美国法官驳回了对前总统川普的顾问史蒂夫·班农的起诉，并引用了总统赦免书。
 
-考文垂大学医院和沃里克郡国民健康服务基金会说，劳斯莱斯前雇员和教区议员上周四因中风去世。
+对了， 是引用了前总统川普的赦免书。“基于赦免的第一段，Bannon的动议获准，对他的起诉书被驳回，” Analisa Torres法官在文件中宣称。
 
-他是考文垂医院脆弱病房的长期患者。当他在12月收到疫苗时，他是病房的住院病人，他称之为“奇妙”。 莎士比亚先生穿着一双圣诞节拖鞋和他的医院袍在这张照片上拍摄的照片登上了世界各地的头版。
+最有才的评论是：“停止保护我们的政治目标免于政治目标！”
+
+今天真是欢乐的一天。
 
 参考链接：
 
-[https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html](https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html)
 
-图片来源：[https://www.dailymail.co.uk/](https://www.dailymail.co.uk/news/article-9617383/First-man-world-approved-Covid-jab-dead-Brit-William-Shakespeare-died-81.html)
+
+> JUST IN – US judge dismisses indictment against former Trump adviser Steve Bannon, cites presidential pardon.
+> — Disclose.tv 🚨 (@disclosetv) [May 25, 2021](https://twitter.com/disclosetv/status/1397282009328889856?ref_src=twsrc%5Etfw)
+
+
+
+图片來源：[https://theinitium.com/](https://theinitium.com/)
 
 整理撰稿：蓝精灵
 
