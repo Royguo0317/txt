@@ -1,44 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】华为传“喜讯”，正研发3纳米芯片，并注册商标
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1273262/)
+## 【币圈】-数字货币动态-2021.5.26
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1273275/)
 
-配音：香草山录音组 蒙古鸿雁
+*喜马拉雅华盛顿DC 编辑：aQ*
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image5.jpg)
+### 币圈的一天，从“期待”开始。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+## **每日一问**
 
+*如何化解化解对币圈的不确定性恐惧？*
 
+## **喜马拉雅Coin要闻**
 
-
-
-
-
-继天问一号火星探测器“成功”登上火星后，中共国又传来了“令人振奋”的消息。5月24日有消息称，美国媒体HC（Huawei Central）信息显示，华为将开发一款3纳米芯片，预计将于2022年发布。传言中的这款3纳米芯片暂命名为“麒麟9010”，它将被使用于华为高端手机以及平板电脑。
-
-
-
-**文字版原文：[【独立观点】华为传“喜讯”，正研发3纳米芯片，并注册商标](https://gnews.org/zh-hans/1270302/)**
-
-作者：纽约香草山健身部 Jack Li文阳
+- 7哥盖特： 躺平币正在酝酿中，未来设定期摇大奖，奖品充满想象力。
 
 
+## **新闻动态**
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+1. U.Today消息，投资巨头古根海姆的首席投资官Scott Minerd接受CNBC采访时预测，一种新的加密货币可能会超过比特币和以太坊。Minerd表示，新加密货币将能够克服采矿成本和其他问题，这将使其更加优越；同时，大多数其他货币最终将成为“郁金香”。
+2. U.Today消息，Cardano创始人Charles Hoskinson在推特上比较了PoS和PoW系统。他强调，PoS系统允许运营商只使用命令行就可以在世界任何地方部署服务器。监管打击永远不会成为像Cardano (ADA)这样的PoS区块链的问题。
+3. Coindesk消息，Tech Crunch创始人、加密货币投资者Michael Arrington正在乌克兰基辅出售一套支持NFT的公寓。2017年，Michael Arrington通过房地产平台Propy使用以太坊和智能合约购买的。
+4. Arabnews消息，丹麦投资银行盛宝正在推出新的加密货币交易平台CryptoFX，使来自中东和北非的客户可以与某些主要货币进行加密货币交易。
+5. OKlink数据，截止5月24日，BTC平均算力跌至145.79EH/s，连续11天出现明显下跌，距离此前创下的历史高点已下跌35.25EH。
+6. The Block数据显示，随着市场反弹，667860枚ETH昨日从中心化交易所流出。这是自2021年1月22日以来最大的一次流出。
+7. TRUSTNODES消息，美国SEC文件显示，Standard Crypto旗舰基金已筹集1.69亿美元。Standard Crypto的Adam Goldberg表示，该基金最低投资额为100,000美元，共有61位投资者参与。
+8. U.Today消息，比特币稳定币供应比率(SSR)已经下降，达到了历史最低水平。SSR是流通比特币供应量与以比特币表示的稳定币供应量之间的比率。当SSR较低时，当前稳定币供应具有更多购买力来购买BTC。
+9. 官方消息，Dfinity基金会正式启动2.2亿美元（2亿瑞士法郎）开发者激励计划，用于激励和支持互联网计算机的企业家和开发者。
+10. 官方消息，PancakeSwap完成史上最大销毁，共销毁5,735,530枚CAKE，这些CAKE代币销毁时总值约为9790.5万美元。
+11. Glassnode数据显示，昨日流入交易所的BTC数量为78,738枚，价值约30亿美元，流出交易所的BTC数量为95,739枚，价值约37亿美元。
+12. 中国近日强调，将打击比特币挖矿和交易行为后，昨天火币商城和莱比特矿池都宣布将暂停当地挖矿业务。昨日香港交易所（HKEX）上市的区块链概念股随之暴跌，其中火币科技本日跌超18.7%，而OKCoin交易所母集团欧科云链也跌超10.9%。
+13. Cointelegraph消息，花旗银行Tony Mcraughlin表示，数字货币是当前另一场范式转换格式战争的战场。数字货币本身仍在沿着三条路线进行重大演变：金融机构、金融科技和加密。
+14. 俄罗斯央行行长纳比乌琳娜：国家对数字货币有需求，将在2022年开始测试数字卢布。
+15. 路透社消息，南非储备银行(SARB)周二表示，该行正在研究为零售领域发行数字货币的好处。
+16. Cointelegraph报道，美联储理事Lael Brainard断言，CBDC项目可能对全球金融体系产生重大影响，美国必须赢得CBDC竞赛以维持美元的全球储备货币地位。
+17. Ambcrypto消息，币安美国新任首席执行官Brian Brooks认为，人们需要接受更多的教育，因为这些加密资产具有“实际价值”，大多数加密货币都不是风险资产。
+18. The Block消息，古根海姆投资公司创始人Todd Morley在接受彭博电视台采访时表示，以太坊实用性远高于比特币。
+19. Cryptodaily消息，Réka Gergely和Tamás Gilly在加密社区支持下为中本聪构建雕像。为了避开神秘的中本聪身份的缺失，真人大小的雕像将具有“反射性或镜面般的面孔”。设计的初衷是让观看雕像的人看到自己的脸，这体现了“我们都是中本聪”的想法。
+20. 加密货币倡导者、杀毒软件之父John McAfee在推特表示，不要害怕，加密货币是我们财务独立的最后希望。
+21. CNBC消息，摩根大通分析师Kedneth Worthington将Coinbase评级为增持，并认为Coinbase的股价可能反弹60%以上。
+22. 官方公告，加密交易所Bybit从6月15日开始将限制所有中国手机号注册账户的登录。Bybit在2020年9月限制所有来自中国的IP。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+*编辑：aQ
+发布：文顾*
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+ 
+0

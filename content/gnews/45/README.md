@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】低温粮库改造“名大于实”，面子工程徒增地方财政压力
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1273259/)
+## 【有声读物】新西兰外长警告：与中共国关系恶化只是时间问题
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1273268/)
 
-配音：香草山录音组 蒙古鸿雁
+配音：香草山录音组 信念7
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,20 +14,17 @@
 
 
 
-环球网5月24日转载央视新闻客户端消息，23日中共四川粮食和物资储备局称，四川省投入15亿元建成绿色低温粮库265个（仓容641万吨）。
-
-2019年12月四川日报曾报道，自2014年四川率先大规模应用绿色低温储粮技术，截至19年底，已投入省级资金补助15亿元，已有340万吨低温仓容建成并投入使用（占仓容目标639万吨的53.2%）。2020年9月湖北省发布建设改造低温库项目公告，估算单价为224万元/万吨（其中省级财政补助标准为70%）。
+5月24日，马胡塔在接受《卫报》（The Guardian）专访时表示，在国际舆论压力之下，新西兰政府将对中共国侵犯人权、迫害香港自由等行为采取更强硬的态度。再加上澳大利亚与中共的贸易战正越演越烈，马胡塔相信新西兰受到影响只是时间问题。
 
 
 
-**文字版原文：[【鹰眼墙国】低温粮库改造“名大于实”，面子工程徒增地方财政压力](https://gnews.org/zh-hans/1270352/)**
+**文字版原文：[【独立观点】新西兰外长警告：与中共国关系恶化只是时间问题](https://gnews.org/zh-hans/1272505/)**
 
-作者：纽约香草山写作组 鹰(文言)
+作者：纽约香草山健身部 Ivy001
 
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+音频处理/发稿：雪梨
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
@@ -43,4 +40,4 @@
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-+1
+0

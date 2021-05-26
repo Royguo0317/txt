@@ -1,23 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄罗斯要求媒体平台实现数据库本地化
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1273800/)
+## 台湾就辉瑞疫苗交易批评中共国
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1273811/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+#### 作者：Boxinglady （文拳）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26122719/2538c27b05ed550166e9327b4a806e83.jpg)图片来自网络
+台湾与北京之间的紧张关系在星期三激化，当时台湾总统蔡英文（Tsai Ing-wen）指责中共国阻止台北正与辉瑞公司（Pfizer Inc.）和德国合作伙伴生物技术公司（BioNTech）就向台湾提供COVID-19疫苗的谈判达成协议。
 
-编辑上传 银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26120747/Snipaste_2021-05-26_19-07-05.jpg)[omorodionpost.com](http://omorodionpost.com/world/russia-raises-heat-on-twitter-google-and-facebook-in-online-crackdown/)
-5月26日，据塔斯社报道，脸书（Facebook）、推特（Twitter）和其他社交网络有义务在7月1日前将俄罗斯用户的个人数据库本地化。这是俄联邦通信、信息技术和大众传媒监督局副局长米洛斯·瓦格纳（Milosh Wagner）周三在该机构董事会的最后一次会议上宣布的。
+在经历了数月的零例病例之后，台湾正努力应对近期的新感染激增。台湾方面已向阿斯利康（AstraZeneca）AZN，-0.49％AZN，-0.61％和Moderna Inc.的MRNA（+ 2.98％）订购了数百万剂疫苗，据《悉尼先驱晨报》报道，迄今已接受了约700,000剂疫苗，仅对约2,400万人口的1％进行了疫苗接种。
 
-瓦格纳说：“到7月1日，脸书、推特和其他社交网络有义务确保俄罗斯用户数据库的本地化。”他表示，已经向各公司发出了使他们的活动与之相符的要求。“到7月1日，我们希望得到关于如何履行这一要求的信息。”
+台湾以前暗示北京在阻止它，中共国将台湾视为其领土的一部分，并积极努力阻止台湾与国际伙伴建立关系。
 
-关于《个人数据法》规定，俄罗斯和外国公司有义务只在俄罗斯联邦境内存储俄罗斯人的个人信息。本地化要求适用于在俄罗斯没有实际存在的外国公司，如果他们在该国开展活动。
+蔡总统表示，在执政的民进党的一次会议上，她的政府“顺利地”处理了与阿斯利康和摩纳达的命令。
 
-如果不遵守该要求，将被处以100万至600万卢布的罚款，如果重复违反，则处以600万至1800万卢布的罚款。
+她说：“至于德国的BioNTech BNTX，增长了2.75％，我们已经接近完成与原始德国工厂的合同，但是由于中共国的干预，到目前为止还没有办法完成合同。”
 
-参考链接：
+**简评：**
 
-[https://tass.ru/obschestvo/11476699](https://tass.ru/obschestvo/11476699)
+清楚了解中共本性的台湾，在控制中共病毒大流行上成为世界各国学习敬佩的楷模。G7等国家继续力挺台湾加入国际各大组织，这重重地打脸了中共。
+
+如爆料革命所预见的，继印度放毒后，中共一定会在台湾继续投毒以达到其政治目的。我们果然看到一直以来台湾的0感染防线近期突然被攻破，中共依然试图阻止干预台湾与其他国际伙伴的关系。
+
+但如今在以毒灭共的世界大势面前，逐渐沦为孤家寡人的中共如此招术还能长久吗？
+
+新闻来源：https://www.marketwatch.com/story/taiwan-criticizes-china-over-pfizer-vaccine-deal-and-wuhan-lab-theory-irks-beijing-11622040423
+
+本文仅代表个人观点，不代表 Gnews 平台
+
+校对发布：紫橄榄
 
 0
