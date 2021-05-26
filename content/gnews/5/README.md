@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 辉瑞公司前副总裁呼吁不要被胁迫接种实验性疫苗
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1273976/)
+## 拜登总统关于调查COVID-19（中共病毒）起源的声明
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1274017/)
 
-蒙特利尔皇家山战友团 Spirit
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26150831/defence.jpg)图片来源：Childrenhealthdefense.org
-据《儿童健康防御》(Children Health Defense) 5月25 日报道，辉瑞公司前副总裁迈克-耶顿(Mike Yeadon)博士在接受儿童健康保护组织主席小罗伯特-肯尼迪的采访时表示，他表示mRNA疫苗技术有很多不确定性。
+####  翻译：龟仙人
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26154127/IMG_20210526_124050_369.jpg)图片来自网络
+**原文翻译：**
 
-辉瑞公司前副总裁兼过敏和呼吸系统首席科学家迈克-耶顿博士说，中共病毒疫苗是 “一种完全新颖的技术”，不应该被称为疫苗。拥有着32年在制药业领导新药研究经验的耶顿博士说由于中共病毒疫苗使用的是实验性技术，可能会带来严重的副作用，如血凝块、不孕等甚至死亡。
+早在2020年初，当COVID-19（中共病毒）出现时，我就呼吁CDC进入中国了解该病毒，以便我们能够更有效地打击它。在那最初的几个月里，我们的检查员未能进入当地，这将始终阻碍对COVID-19起源的任何调查。
 
-耶顿博士在4月的视频中讲到，”我相信这些疫苗是被用来损害你的健康，并可能导致死亡。除了认真尝试大规模人口灭绝外，我看不到任何合理的解释。这些疫苗是提供做这件事的工具和合理的推诿，因为他们制造一个关于某种生物威胁的故事，让你排队接种疫苗，几个月后，或一两年，你可能会出现可以解释的综合病症，但无法将其与接种疫苗联系起来。”
+尽管如此，在我成为总统后不久，在3月，我让我的国家安全顾问责成情报界准备一份报告，说明他们对COVID-19（中共病毒）的起源的最新分析，包括它是否来自人类与受感染动物的接触或来自实验室事故。我在本月早些时候收到了这份报告，并要求进一步跟进。截至今天，美国情报界已经 “围绕着两种可能的情况”，但还没有就这个问题得出明确的结论。以下是他们目前的立场。”虽然国际刑事法院的两个部门倾向于前一种情况，一个部门更倾向于后一种情况–每个部门都有低度或中度的信心–但大多数部门认为没有足够的信息来评估一种情况比另一种情况更有可能。”
 
-耶顿博士继续告诉观众，”政府告诉你们关于这种病毒的一切都是谎言，目的是极权主义控制”。请不要被谎言，抵制这些实验性后患无穷的疫苗，并告知身边的人，不要成为极权主义控制者的牺牲品。
+我现在已经要求情报界加倍努力，收集和分析可能使我们更接近一个明确的结论的信息，并在90天内向我报告。作为该报告的一部分，我已要求提出可能需要进一步调查的领域，包括针对中国的具体问题。我还要求这一努力包括我们的国家实验室和我们政府的其他机构的工作，以加强情报界的努力。我已要求情报界向国会全面通报其工作情况。
 
-***参考链接：***
+美国还将继续与世界各地志同道合的伙伴合作，迫使中国参与一个全面、透明、基于证据的国际调查，并提供所有相关数据和证据。
 
-[Former Pfizer VP Tells RFK, Jr.: Young, Healthy People Shouldn’t Be Coerced Into Taking ‘Experimental’ Vaccines](https://childrenshealthdefense.org/defender/dr-mike-yeadon-rfk-jr-the-defender-podcast-safety-mrna-vaccine-technology/)
+来源：白宫
 
-[Did Michael Yeadon Say COVID-19 Vaccine Will Kill Recipients Within 2 Years?](https://www.snopes.com/fact-check/michael-yeadon-vaccine-death/)
+[https://www.whitehouse.gov/briefing-room/statements-releases/2021/05/26/statement-by-president-joe-biden-on-the-investigation-into-the-origins-of-covid-19/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/05/26/statement-by-president-joe-biden-on-the-investigation-into-the-origins-of-covid-19/)
 
-* * *
-
-*编辑、发稿 文锦*
+校对发布：紫橄榄
 
 0
