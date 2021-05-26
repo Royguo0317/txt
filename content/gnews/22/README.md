@@ -1,25 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登的经济:通货膨胀和职位空缺
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1273484/)
+## 慧眼看世界20210525
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1273340/)
 
-消息来源：意大利共和报（repubblica.it）
-发布时间：2021年05月24日
-翻译整理：斩草要除根
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
-所有行业的价格上涨，（国内）旅游业的复苏导致飞机拥堵、急需招人的公司、运货卡车短缺，美国是否正经历“太多”的复苏？乔·拜登（Joe Biden）运气不错，但是却遇到了麻烦。在这种复苏的矛盾迹象中，最具争议的因素之一是就业市场，许多公司抱怨由于招不到人而无法填补职位空缺。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26102126/big-2.png)
-共和党反对者将矛头指向了所谓的福利过剩：最新的公共支出策略过甚使得某些类别的工人虽然选择留在家中，却可以获得了以前工资的130％。中央银行已经证实了由于高额补贴而存在的抑制就业因素。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26092512/01-32.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26092733/02-54.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26093656/03-24.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26094019/04-28.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26095100/05-35.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26100519/06-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26100615/07-18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26100733/08-28.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26100816/09-14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26100905/10-16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26101016/11-26.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26101101/12-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26101955/13-73.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26102302/15-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26102224/14-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26104101/16-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26104210/17-21.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26104310/18-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26104349/19-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26104439/20-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26104606/21-20.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26104659/22-18.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26104737/23-12.jpg)
+发稿：神奇四侠
 
-在工业方面，像3M这样的大公司抱怨缺少送货卡车。汽车行业遭受芯片短缺的困扰，由于新车供不应求，二手车的价格急剧上涨。所有这些重新引发了关于危险性通货膨胀的辩论。在国会，这也使得共和党人加强了对拜登第二阶段基础设施和绿色经济的4万亿投资的抵制。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26102209/big.png)
-简评：美国经济能够开始复苏这对全球经济来说是件大好事，但这却是中共国最不愿看到的情景，中共本想利用病毒把美国打趴下让其再也爬不起来，这是是它最希望的。相信现在美国经济的好转一定让中共很气恼吧。
-
-（个人观点）
-
-[新闻链接](https://www.repubblica.it/economia/2021/05/24/news/l_economia_di_biden_inflazione_e_posti_vacanti-302619778/?ref=RHTP-VS-I270681073-P10-S1-T1)
-
-校对/上传：老中医
+以上图片均来自网络，与GNEWS无关
 
 0
