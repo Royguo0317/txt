@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登称对北溪2号的额外制裁“适得其反”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1273741/)
+## 蓬佩奥揭拜登关闭了国务院对病毒溯源的调查
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1273805/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑上传 银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26114044/Snipaste_2021-05-26_18-39-50.jpg)[de-guo.com](http://www.de-guo.com/news/news273737921.html)
-2021年05月26日彭博社报道，美国总统拜登表示，对北溪-2号管道实施额外制裁将对美欧关系产生反作用，因为该管道建设已接近完成。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26121556/C-28.jpg)swachhindia.ndtv.com
+前国务卿蓬佩奥今早（5月26日）发推，“拜登与中共国、世卫组织和自由媒体站在一起，在武汉病毒问题上加入了‘有目无睹的人群’，关闭了国务院、我主导的对疫情起源的调查。这不是政治问题，美国必须在（调查）方面领先。”【1】
 
-“它几乎已经完全完成。”拜登告诉记者。他补充说：“我认为现在实施制裁对于我们的欧洲关系来说是适得其反。”
+蓬佩奥掷地有声、铿锵有力地指责，有助于帮助人们对拜登政府一直对中共病毒不溯源、不追责疑惑的理解。
 
-上周，美国对与管道建设有关的两家俄罗斯公司和一家机构实施制裁。共有13艘船被列入名单。
+蓬佩奥国务卿为何看上去如此“激动”？因为正是拜登下达了关闭调查中共病毒的命令。
 
-此前媒体报道说，拜登总统的政府打算对北溪-2项目运营商及其总经理马蒂亚斯·瓦尼格（Matthias Warnig）实施制裁。为了避免与德国发生冲突，拜登政府随后放弃了这一决定。
+据CNN介绍，早在去年秋天，当时蓬佩奥国务卿的盟友，发起了这项此前未公开的调查，参与调查的人表示，这是一项诚实的努力，目的是调查许多人最初认为的问题，即中共国的生物武器计划可能在武汉的疫情起源中发挥更大的作用。
 
-北溪2号项目涉及建造一条年产近550亿立方米的天然气管道，该管道从俄罗斯海岸穿过波罗的海到达德国，从而绕过波罗的海国家和波兰。它由北溪2号股份公司实施，俄罗斯天然气工业股份公司是唯一的股东。美国认为该管道是对欧洲能源安全的威胁。
+CNN还透露，美国国务院在秘密调查的消息，以及拜登今年春天终止调查的消息，之前均未有媒体报道过。
+
+CNN也开始报道有关中共病毒真相的消息了？当然3月份CNN有过“闪亮”一刻，报道了前CDC主任罗伯特·雷德菲尔德（Robert Redfield）博士透露中共病毒武汉实验室泄露的消息【2】。这次的报道出现了“中共生物武器计划”的字眼，有点令人刮目相看的感觉。
+
+笔者将在下篇文章翻译整理CNN的报道。
 
 参考链接：
 
-[https://novayagazeta.ru/articles/2021/05/26/baiden-nazval-kontrproduktivnym-vvedenie-dopolnitelnykh-sanktsii-protiv-severnogo-potoka-2?utm\_source=tw&utm\_medium=novaya&utm\_campaign=prezident-ssha-dzho-bayden-soobschil–chto-vv](https://novayagazeta.ru/articles/2021/05/26/baiden-nazval-kontrproduktivnym-vvedenie-dopolnitelnykh-sanktsii-protiv-severnogo-potoka-2?utm_source=tw&amp;utm_medium=novaya&amp;utm_campaign=prezident-ssha-dzho-bayden-soobschil--chto-vv)
+【1】[https://twitter.com/mikepompeo/status/1397543311490101249](https://twitter.com/mikepompeo/status/1397543311490101249)
+
+【2】[https://gnews.org/zh-hans/1023905/](https://gnews.org/zh-hans/1023905/)
 
 0

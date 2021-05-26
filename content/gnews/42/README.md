@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】中共疫苗光速接种 毒害人民祸患无穷
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1273255/)
+## 【有声读物】新西兰外长警告：与中共国关系恶化只是时间问题
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1273268/)
 
-配音：香草山录音组 蒙古鸿雁
+配音：香草山录音组 信念7
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,20 +14,17 @@
 
 
 
-综合中共央视网报道，中共国内疫苗接种截至5月23日累计5亿剂次！
-
-各地群众“踊跃接种新冠疫苗 构建免疫屏障”的消息令人汗颜不止，“多地推进新冠疫苗接种服务举措 疫苗接种呈现加速度”的导语更令人恐惧不已。咱们看一下央视网宣传的数据：今年3月27日超过1亿剂次，4月21日超过2亿剂次（25天），5月7日超过3亿剂次（16天），5月16日超过4亿剂次（9天），5月24日突破5亿剂次（7天）。其中湖北累计3008万剂次、上海2379.84万剂次、北京2970.59万剂次。（1）这是以光的加速度在增长吧？！
+5月24日，马胡塔在接受《卫报》（The Guardian）专访时表示，在国际舆论压力之下，新西兰政府将对中共国侵犯人权、迫害香港自由等行为采取更强硬的态度。再加上澳大利亚与中共的贸易战正越演越烈，马胡塔相信新西兰受到影响只是时间问题。
 
 
 
-**文字版原文：[【世事解评】中共疫苗光速接种 毒害人民祸患无穷](https://gnews.org/zh-hans/1271315/)**
+**文字版原文：[【独立观点】新西兰外长警告：与中共国关系恶化只是时间问题](https://gnews.org/zh-hans/1272505/)**
 
-作者：纽约香草山健身部  文鹰
+作者：纽约香草山健身部 Ivy001
 
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+音频处理/发稿：雪梨
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
