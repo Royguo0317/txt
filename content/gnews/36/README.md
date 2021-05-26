@@ -1,23 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】5/25/2021早： 中共大五毛唐恩印度电视台挑战闫博士败北 中共和唐恩颜面尽失
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1273390/)
+## 【路德简报】5/25/2021晚：习神哭晕，美俄双边峰会6月16日在日内瓦召开
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1273468/)
 
 **编辑：华盛顿DC农场 路德简报项目组**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26093004/202152-2-scaled.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26093128/20210525-2-scaled.jpg)
 
 
-> 2021 年5月25日 路德时评 早
+> 2021 年5月25日 路德时评 晚
 > 
-> 1. 中共大五毛唐恩印度电视台挑战闫博士败北 中共和唐恩颜面尽失
+> 1. 习神哭晕： 美俄双边峰会6月16日日内瓦举行
 > 
-> 2.英国大学内中共间谍 面临高级别审查 一经核实几周内批捕 
+> 2.贝西拉在世卫组织年度部长会议 呼吁对新冠病毒起源进行第二阶段调查 
 > 
-> 3. 比利时： 阿里巴巴是中共间谍窝点 涉嫌非法采集网络信息危害他国安全
-> 
-> 4.芬兰最新研发的鼻喷式新冠病毒药剂 获美国专利授权 含硫酸羟氯喹 [pic.twitter.com/2uYkWI3jir](https://t.co/2uYkWI3jir)
-> — 平民爆料 (@WM18320321) [May 26, 2021](https://twitter.com/WM18320321/status/1397499218114355200?ref_src=twsrc%5Etfw)
+> 3. 王毅慕尼黑安全会议称中共代表马克思主义政党 等于向世界宣称中共就是纳粹 [pic.twitter.com/Q5LSZ9jbrF](https://t.co/Q5LSZ9jbrF)
+> — 平民爆料 (@WM18320321) [May 26, 2021](https://twitter.com/WM18320321/status/1397551629767958534?ref_src=twsrc%5Etfw)
 
 
 
