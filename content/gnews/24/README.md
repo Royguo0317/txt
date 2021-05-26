@@ -1,43 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】新西兰外长警告：与中共国关系恶化只是时间问题
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1273268/)
+## 2021/05/24 塞林博士采访：病毒来自实验室，不是泄漏，是释放！
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1273325/)
 
-配音：香草山录音组 信念7
+视频字幕：云岭 | 听写/翻译：Wade | 校对：Roberts | 简评/文字整理/编辑：胖丁 | Page: Daoiii
+[!\[\]()!\[\](https://spark.adobe.com/page/cwCoVCC13NXUH/images/43d9c7ec-16a8-45c7-9b65-d759f390ea2a.png?asset_id=d2ecbd22-af90-41d1-b371-3b4ba05902c0&amp;img_etag=%22819323c33b6c295c583b445561246bc1%22&amp;size=1024)](https://spark.adobe.com/page/cwCoVCC13NXUH/images/43d9c7ec-16a8-45c7-9b65-d759f390ea2a.png?asset_id=d2ecbd22-af90-41d1-b371-3b4ba05902c0&amp;img_etag=%22819323c33b6c295c583b445561246bc1%22&amp;size=1024)
+简评：
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**南京中共解放军东部战区有人分离出COVID19病毒骨架ZC45和ZXC21。2019年初，同样这些人把COVID19病毒骨架以完全体形态送到武汉病毒研究所，由单超团队在灵长类动物身上做实验。武汉病毒所其中一间P3实验室可以进行该项实验，武汉大学有一间实验室从2003年非典开始也在做这一类试验。而这两间实验室都处于早期新冠病毒的爆发区。**
 
-
-
-
-
-
-
-5月24日，马胡塔在接受《卫报》（The Guardian）专访时表示，在国际舆论压力之下，新西兰政府将对中共国侵犯人权、迫害香港自由等行为采取更强硬的态度。再加上澳大利亚与中共的贸易战正越演越烈，马胡塔相信新西兰受到影响只是时间问题。
+**病毒确信来自实验室，不是“泄漏”，是“释放”。**
 
 
 
-**文字版原文：[【独立观点】新西兰外长警告：与中共国关系恶化只是时间问题](https://gnews.org/zh-hans/1272505/)**
+[GTV视频链接](https://gtv.org/video/id=60ad9bfa744cbc4313645118)
 
-作者：纽约香草山健身部 Ivy001
+视频字幕：
+
+**主持人：**我的观点是，基于你的研究，我信任你的判断、研究和发现。你认为这是场事故吗？我们是否有证据更倾向于故意（释放），因为中共叫兽（陈平）已经在炫耀他们获得了这场对美生物战的胜利。这让我倾向于故意（释放）。你认为是故意的，还是意外事故？
+
+**Sellin：**这是个非常好的问题。**我确信病毒来自实验室，但我不再用“泄漏”这个字眼了，我会用“释放”。**
+
+我还没有足以下定论的证据。但对于两种可能性我都有证据。 可能是实验室事故导致了释放。但我也有证据显示解放军故意释放病毒，作为生物武器的测试。让我给听众们一些最新的信息，我之前也提到过，可以说明COVID19如何开始，如何影响中共军队，以及它是事故还是故意释放。我获得来自中共囯内部的信息，尽管还不完整，我还没能将所有的信息连接起来，所以这还是在验证中的理论。
+
+但其中的事实是这样的。据我所知，2019年初，COVID19以完全体形态或接近完全体形态被交给了武汉病毒研究所，在灵长类动物，也就是猴子身上做实验。有意思的是，病毒来自位于南京的解放军东部战区。我等一下再说这点。
+
+武毒所的实验应该是由一个名叫单超的人负责带队。单超曾在德州大学盖文斯顿医学院就读四年，然后回到了武毒所。据称，他正是测试COVID19的负责人。现在有很多人谈论武毒所，实际上武毒所有两个地点。其中之一就是大家都知道的P4实验室。
+
+这个实验室位于武汉市中心南边12英里。但武毒所在武汉市中心还有另外一个地点，是一座P3实验室。据石正丽所说，那座新的P4实验室那时候没有进行灵长类动物实验的资质。但武汉大学有一间实验室从2003年非典开始，就在用猴子做灵长类动物实验。
+
+武毒所P3实验室和武汉大学灵长类动物实验室都处于早期新冠病例爆发的地区。所以联系这些信息，它可能来自于实验室事故。但如果我们回头看南京的解放军东部战区，正如闫丽梦博士所说，那是发现COVID19骨架病毒ZC45和ZXC21的地方。我刚才提到的给武毒所输送了COVID19病毒的，与分离ZC45和ZXC21病毒的是同一帮人。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/cwCoVCC13NXUH/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/cwCoVCC13NXUH/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

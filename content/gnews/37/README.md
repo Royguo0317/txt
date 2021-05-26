@@ -1,55 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5/26/2021 财经快讯：美联储淡化通胀预期, 美债收益率跌至近三周低点，国会议员Barr发起两党针对中共国的“数据”法案
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1273098/)
+## 【有声读物】中共疫苗光速接种 毒害人民祸患无穷
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1273255/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26070406/%E5%9B%BE%E7%89%873-6.jpg)[图片来源](https://www.ft.com/)
-**1.****美联储淡化通胀预期,长期国债收益率跌至近三周低点**
+配音：香草山录音组 蒙古鸿雁
 
-[美联储理查德·克拉里达（Richard Clarida）周二接受雅虎财经采访时说，讨论缩减资产购买计划操作的时机已经临近。芝加哥联储主席查尔斯·埃文斯（Charles Evans）周二也指出，近期美国强劲的通胀数据并非消费者物价持续上涨的开始。](https://www.marketwatch.com/story/10-and-30-year-u-s-treasury-yields-extend-dip-to-2-week-low-11621946916)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-[周二，美国长期国债收益率连续第四次下跌，道琼斯市场数据显示，10年期和30年期债券收益率触及5月6日以来的最低水平，而2年期债券收益率触及5月7日以来的最低水平。财政部周三发行的600亿美元2年期国债拍卖显示出强劲的需求，短期收益率在周二有所下滑。](https://www.marketwatch.com/story/10-and-30-year-u-s-treasury-yields-extend-dip-to-2-week-low-11621946916)
 
-**2.****国会议员Barr发起两党针对中共国的“数据”法案**
 
-[美国国会议员安迪·巴尔（Andy Barr，KY-06）发起了两党《汇编敌对贸易侵略法案》（DATA）。根据法案，将在美国商务部经济分析局内设立中国经济数据协调中心作为一站式服务平台，提供有关中国经济运行健康状况信息，并与联邦机构和私营部门合作，收集和整合中国金融市场的数据。](https://barr.house.gov/press-releases?id=54C5EC4F-4565-4FC4-AFDA-9B613E87CDB0)
 
-[巴尔指出，中共病毒大流行暴露了中国共产党（CCP）对美国的威胁，要求商务部和财政部制定衡量指标来追踪中共的经济数据，在美国的投资数据以及极具破坏性的“一带一路”数据，为政策制定者对抗中共提供更多的信息。国会议员冈萨雷斯（Gonzalez）说，“中国共产党（CCP）已经证明他们不可信赖，一直在破坏自由世界，中共持续散播不可靠和被操纵的经济数据，损害了美国投资者和普通经营者的利益。”这项两党制和两院制的立法将确保美国政府和美国投资者拥有可用来衡量和评估与中国经济相关风险的可靠数据。”威克尔参议员说：“多年来，中共国一直在金融体系里提供误导性数据和自相矛盾的系统性问题，使从事国际业务的美国公司面临风险。”](https://barr.house.gov/press-releases?id=54C5EC4F-4565-4FC4-AFDA-9B613E87CDB0)
 
-**3.****澳洲积极摆脱中澳贸易壁垒阴影，开拓新市场**
 
-[从中共国对澳大利亚大麦进口征收惩罚性关税后，澳洲种植者通过打开在亚洲和拉丁美洲的新市场来减少损失。十二个月过去，一位澳洲农民米克•费尔斯表示，澳洲大麦种植者仍然过得不错，他们找到了新市场的同时，全球市场也开始回升了。](https://www.ft.com/content/95ad03ce-f012-49e9-a0c2-6e9e95353dd1)
 
-[大麦种植者的经验已在其他行业复制，分析师认为这是北京对堪培拉发动的“经济胁迫”运动。自从澳洲抵制中共国在亚洲的侵略野心并呼吁对中共病毒大流行的起源进行国际调查以来，外交关系开始恶化。煤炭，牛肉，葡萄酒，木材，棉花和海鲜的出口都面临严格的关税或技术壁垒。悉尼经济学家罗兰·拉贾（Roland Rajah）表示: 面对中共国征收的关税，输往中共国的出口额每年下降了约117亿澳元（合90亿美元）。但根据贸易统计数据分析，这些商品向世界其他地区的出口额增加了134亿澳元。](https://www.ft.com/content/95ad03ce-f012-49e9-a0c2-6e9e95353dd1)
+综合中共央视网报道，中共国内疫苗接种截至5月23日累计5亿剂次！
 
-**4.韩国银行从8月开始进行数字货币模拟实验**
+各地群众“踊跃接种新冠疫苗 构建免疫屏障”的消息令人汗颜不止，“多地推进新冠疫苗接种服务举措 疫苗接种呈现加速度”的导语更令人恐惧不已。咱们看一下央视网宣传的数据：今年3月27日超过1亿剂次，4月21日超过2亿剂次（25天），5月7日超过3亿剂次（16天），5月16日超过4亿剂次（9天），5月24日突破5亿剂次（7天）。其中湖北累计3008万剂次、上海2379.84万剂次、北京2970.59万剂次。（1）这是以光的加速度在增长吧？！
 
-[韩国银行5月24日表示，将于8月份着手中央银行数字货币（CBDC）模拟实验研究，计划在12月之前完成CBDC基本功能的第一阶段实验。CBDC是中央银行以电子形式发行的货币，与虚拟货币不同，没有信用风险。明年将开始第二阶段实验，在国家间CBDC汇款、网络无法使用的环境下，对线下CBDC汇款、结算等进行测试。韩国银行为了此次研究，安排了不超过49.6亿韩元的预算。](https://www.donga.com/en/Search/article/all/20210525/2671729/1/BOK-to-test-digital-currency-from-August)
 
-[韩国银行解释说：“从目前的情况来看，CBDC的发行必要性不大。”韩国银行相关人士表示：“这是为了应对未来支付结算环境变化的情况进行研究”，“期待今后出现现金使用比重大幅减少的情况时，CBDC作为安全的资产和支付手段发挥作用。”](https://www.donga.com/en/Search/article/all/20210525/2671729/1/BOK-to-test-digital-currency-from-August)
 
-**5.****香港政府考虑更换盈富基金管理人道富公司**
+**文字版原文：[【世事解评】中共疫苗光速接种 毒害人民祸患无穷](https://gnews.org/zh-hans/1271315/)**
 
-[据报道，香港政府正在考虑撤销道富公司（State Street）作为其733亿港元（120亿美元）的盈富基金（TraHK）的管理人。据《苹果日报》报道，该资产管理公司在1月份曾表示将停止对受美国制裁的香港上市公司进行新投资。尽管道富公司撤销了最初的决定，但香港官员仍对该公司对美国制裁的立场表示关注，制裁涉及禁止美国个人和公司投资与中共国军方有联系的中国大陆公司和产品。](https://www.regulationasia.com/hong-kong-considers-replacing-state-street-as-trahk-manager/)
+作者：纽约香草山健身部  文鹰
 
-[道富公司是盈富基金管理人，其姊妹公司道富银行和信托公司为受托人。据说官员们正在研究是否要取代这两个受美国监管的机构。据《金融时报》报道，如果决定更换道富，南方东英（CSOP）资产管理公司和恒生（Hang Sen）投资管理公司是最有可能成为取代道富公司的两个候选管理人。](https://www.regulationasia.com/hong-kong-considers-replacing-state-street-as-trahk-manager/)
 
-**6.****川普总统离任后CNN收视量下跌近70％**
 
-[周二发布的尼尔森媒体研究（Neilsen Media Research）评估报告显示，自1月份川普总统离开白宫以后，CNN收视量下降67％，在美国东部标准时间8:00 pm – 11:00 pm的黄金时段， CNN的总观看人数减少了约65％；在关键的25-54岁年龄段人口中，在白天和黄金时段收视量减少71％。](https://dailycaller.com/2021/05/25/cnn-lost-viewers-since-january-msnbc-fox-cable-news/)
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
-[尽管所有主要的有线新闻节目都出现了收视量下降，但是CNN的观众减少量多于其他竞争对手。MSNBC的收视量下降排行第二，在1月至5月之间减少了49％的总观看量，在25-54岁年龄段的人群中收视量下降了63％，黄金时段总观看量减少42％和58％的25至54岁的观众。福克斯新闻收视量下降最少，总观看量减少12％和15％的25至54岁的观众。福克斯新闻连续第14周位列有线新闻观众第一名，黄金时段有210万观众，日平均有120万观众。](https://dailycaller.com/2021/05/25/cnn-lost-viewers-since-january-msnbc-fox-cable-news/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-**7.****谷歌数据处理条款面临德国反垄断调查 **
+**更多资讯，更多关注**
 
-[德国国家竞争监管机构Bundeskartellamt宣布已向谷歌提起两项诉讼，将确认一月份生效的新修订的竞争规则是否适用于谷歌，这将允许联邦卡特尔办公室FCO针对可能垄断市场的大型数字公司展开调查。二项诉讼调查将并行，FCO将同时对谷歌的数据处理条款进行深入分析。FCO认为谷歌从其收集的信息中享有“战略优势”，并质疑用户“在谷歌将如何使用他们的数据”方面是否有足够的选择。”](https://techcrunch.com/2021/05/25/googles-data-terms-are-now-in-germanys-competition-crosshairs/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**8.****特斯拉：已经在中国建立数据中心，以实现数据存储本地化**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[（路透北京）特斯拉公司周二表示，已经在中国建立数据中心，以实现数据存储本地化，应对当地对汽车制造商相机和传感器收集的信息处理的日益严格的监管审查。特斯拉公司在微博上说，它在中国生产的所有汽车产生的数据都将存储在中国，目前正在生产Model 3轿车和Model Y运动型多功能车，并将扩大其在中国的数据中心网络。随后特斯拉股价下跌了0.7％。](https://finance.yahoo.com/news/1-tesla-sets-china-store-131513973.html)
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-【秘密翻译组 – 金融组】
-作者：Apple
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
