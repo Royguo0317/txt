@@ -1,55 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】政府抑价措施繁多，难解大宗商品价格上涨难题
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1272553/)
+## 美俄关系正常化有利于印度
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1272568/)
 
-香草山写作组  鹰(文言)
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25231820/U-6.jpg)apa.az
+印度媒体5月25日报道，美国国家安全顾问杰克·沙利文(Jake Sullivan)和俄罗斯安全委员会秘书尼古拉·帕特鲁谢夫(Nikolay Patrushev)就美俄关系举行了磋商，这是开创性的进展。美国总统乔·拜登(Joe Biden)和俄罗斯总统弗拉基米尔·普京(Vladimir Putin)将于下月在日内瓦举行峰会。
 
+两国国家安全局谈到了这两个昔日对手之间的战略稳定，中共的影响被纳入军备控制和网络控制体系的考虑。简单地说，它包括核武器、导弹、反卫星武器和反导弹防御系统。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+会后发表的联合声明明确表示，两国都希望为实现关系正常化而努力，并在关键的全球问题上保持联系。
 
+这种关系正常化将有利于印度，因为印度是美国和俄罗斯的亲密盟友。根据这份声明，美俄国安局会议是美国国务卿布林肯和俄罗斯外长拉夫罗夫最近在雷克雅未克举行的会谈的后续。
 
+声明称“在会议上，双方一致认为，美俄关系正常化将符合两国的利益，并有助于全球可预测性和稳定性。”此举若可顺利进行，俄罗斯将摆脱中共的钳制，将是灭共进程的又一可喜进展。
 
-环球网5月25日转载新华观点消息，为应对年初以来大宗商品价格大幅上涨趋势，中共采取密集的行政干预手段，如“点名”、“约谈”等，但收效甚微。
+参考链接：
 
-因CCP病毒影响，全球经济放缓，各国加大了对能源、有色金属等大宗商品的出口限制，推高了煤炭、原油、铁矿石等商品的价格。为了盘活经济和刺激资本流通，中共国内基建力度依旧坚挺，钢铁、成品油、汽车等销量激增。需求市场的加大推高了大宗商品的进口规模。2020年全年进口煤及褐煤3.04亿吨（同比增长1.49%），原油进口5.4亿吨（是国内产量的2.76倍），铁矿石进口量11.7亿吨（同比增长9.5%），钢材进口量为2023万吨（同比增长64.4%）。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25224240/Screen-Shot-2021-05-25-at-10.38.37-PM.png)
-国内大搞基建的同时，实体经济行业的严重受挫，大量中小企业迫于偿债压力的破产倒闭。剩余大型私企和国企虽然躲过了违约命运，但净利润的下滑也加大了其运营压力，进而导致各种商品的物价上调。纵观全球，由于新冠疫情此起彼伏，各国加大了对大宗商品的进口和出口限制。此举带动了全球大宗商品的整体价格上涨。2021年中共出于维持“经济转好”假象以及加快内循环效率，中共国务院降低了基建投资最低资本金5%比例并忽悠民营资本参投。然而，基建项目的巨大规模（2021年20余省市重点项目规模超25万亿）仍加剧了地方财政的运营压力，从财政直达资金的花费效率就可窥见一二。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25224306/Screen-Shot-2021-05-25-at-10.38.32-PM.png)
-2021年中共国内大搞基建的行为刺激了大宗商品的进口溢价。螺纹钢指数涨幅超39%，原油指数涨幅超35%，铁矿指数涨幅超26%。虽然中共在5月1日对生铁、粗钢、再生钢铁等实行进口零税率，并加大出口关税，但螺纹钢、铁矿石、动力煤在5上旬依旧各有14%、19%、20%的价格涨幅。5月14日，在唐山市场监管局约谈全市钢铁生产企业后，钢铁价格才被迫下跌。5月23日，发改委、市场监管局等五部门也约谈重点企业。此举虽然可抑制国内串通炒作涨价的现象，但根本无助于调节国际市场价格态势。再加上中澳“脱钩”导致铁矿石进口源头被断，各个国家加入经济“制裁”中共行列，大宗商品价格上涨的根源未解。
-
-中共的各种行政干预虽然一定程度上可打压国内大宗商品的价格，但进口原材料价格并未下降。行政干预反而更加剧了铁矿石、钢材、铜、铝等行业企业的生产成本，这势必导致下游制造产成品成本和价格被动提高，加剧国内通货膨胀。中共调价抑价实际只是“稳定”民心的表面文章，最终结果依旧是将溢价转移至每个民众身上。
-
-新闻来源：
-
-国常会两次“点名”，五部门约谈，大宗商品怎么了？https://china.huanqiu.com/article/43Gn9KRSxy3
-
-大宗商品价格再现“上涨潮” 货币政策继续“稳字当头”https://finance.sina.com.cn/roll/2021-05-11/doc-ikmxzfmm1694227.shtml
-
-大宗商品涨势延续 涨价触痛了谁？http://www.xinhuanet.com/fortune/2021-05/12/c\_1127435505.htm
-
-大宗商品“疯狂”引发监管密集出手，本轮涨价潮到头了？https://www.yicai.com/news/101060491.html
-
-大宗商品涨价冲击波：多品种挑战最高价，压力向中下游传导|大宗商品十字路口https://www.sohu.com/a/456418758\_116062
-
-大宗商品价格上涨，全球通胀预期升温，到了该捂紧钱袋子的时候了https://new.qq.com/omn/20210420/20210420A0720Y00.html
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[https://www.hindustantimes.com/world-news/us-russia-to-work-towards-strategic-stability-china-is-the-elephant-in-the-room-101621948355739.html](https://www.hindustantimes.com/world-news/us-russia-to-work-towards-strategic-stability-china-is-the-elephant-in-the-room-101621948355739.html)
 
 0

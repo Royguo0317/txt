@@ -1,28 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆台新闻】台湾说可以先给陆生陆配打大陆疫苗 大陆网民炮轰不把大陆人当人看
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272580/)
+## 【快讯】川普周二采访中说病毒就是起源于武汉实验室
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272609/)
 
-台湾退修将军提“大陆疫苗可让陆生陆配先打”，遭到大陆网友轰：“不把他们当人看”。
+前总统川普在周二的一次采访中声称，“对聪明人来说很明显”，冠状病毒是从中国武汉市的一个实验室出来的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25232401/229.jpg)
+川普对Newsmax主持人兼前顾问史蒂夫·科尔特斯说：“我对此毫不怀疑。” “我受到媒体的批评，通常，他们将其归咎于俄罗斯。总是俄罗斯，俄罗斯，俄罗斯，但我一开始就说它来自武汉。”
 
-中国国台办近日表示愿意提供中国大陆的疫苗给台湾民众施打，引发议论。日前在政论节目中，一名退休中将张延廷就建议，可以接受对岸提供的疫苗，并安排在台湾的中国大陆配偶或学生来施打。没想到，此番言论竟然引发中国网友不满，痛批张“无耻畜牲”“不把大陆人当人”“没安好心”。
+此前卫生和公共服务部长Xavier Becerra呼吁世界卫生组织（WHO）对病毒的起源进行“透明的，基于科学的”调查。
 
-张将军的表情是这样的：
+这位前总统在一份声明中说：“现在，每个人都同意，当我很早就称呼武汉为COVID-19（有时被称为中国病毒）的来源时，我是对的。” “对我来说，从一开始就很明显，但像往常一样，我遭到了严厉的批评。现在他们都在说“他是对的”。谢谢！”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25232604/230.jpg)
+“请记住，我比我国参议院议员南希·佩洛西更早地关闭了中国，比任何人都想做到的要早，包括我一直相处融洽的福西博士，但我通常做的却恰恰相反他想要。”
 
-张延廷此言论本意是希望台湾人能够接受中国大陆的疫苗，没想到这段影片流传到中国的社群平台后，让陆配陆生先施打的说法竟然惹怒了中国网友！中国社群网站微博上出现大批网民的留言挞​​伐，痛批张是“人形畜牲！”“台湾岛的人本来就没多少人安好心”“一点人性都没有”“这是人说的话吗”“国台办把陆配和陆生送去当蛙（贬称台湾人）的试验品，人家蛙可不把大陆人当人，接着舔舔干净”“早就不想当它们是人”“陆配看看，人家没把你们当人看。”
-
-许多中国网友认为张延廷的建议充满了歧视，毫无人性，“这种歧视性做法，提起来一点心理压力都没有，够狠噢”，但也人说，这样或许对陆生陆配是好事，“先打先安全”“我们的疫苗是人用的，蛙蛙怎么配用”。
+川普总统又一次证实了新冠病毒是来源于武汉病毒实验室。给呼吁再次调查病毒起源助力。
 
 参考链接：
 
-[https://www.mirrormedia.mg/story/20210525edi029/](https://www.mirrormedia.mg/story/20210525edi029/)
+[https://nypost.com/2021/05/25/trump-it-was-obvious-to-smart-people-covid-came-from-wuhan-lab/?utm\_campaign=SocialFlow&utm\_source=NYPTwitter&utm\_medium=SocialFlow](https://nypost.com/2021/05/25/trump-it-was-obvious-to-smart-people-covid-came-from-wuhan-lab/?utm_campaign=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_medium=SocialFlow)
 
-图片来源：网络 / [https://tw.news.yahoo.com/](https://tw.news.yahoo.com/)
+图片来源：[https://nypost.com/](https://nypost.com/)
 
 整理撰稿：蓝精灵
 

@@ -1,31 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】川普周二采访中说病毒就是起源于武汉实验室
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272609/)
+## 【香草诗词汇】灭共大时代
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1272653/)
 
-前总统川普在周二的一次采访中声称，“对聪明人来说很明显”，冠状病毒是从中国武汉市的一个实验室出来的。
+作者：纽约香草山健身部 澄道
 
-川普对Newsmax主持人兼前顾问史蒂夫·科尔特斯说：“我对此毫不怀疑。” “我受到媒体的批评，通常，他们将其归咎于俄罗斯。总是俄罗斯，俄罗斯，俄罗斯，但我一开始就说它来自武汉。”
 
-此前卫生和公共服务部长Xavier Becerra呼吁世界卫生组织（WHO）对病毒的起源进行“透明的，基于科学的”调查。
 
-这位前总统在一份声明中说：“现在，每个人都同意，当我很早就称呼武汉为COVID-19（有时被称为中国病毒）的来源时，我是对的。” “对我来说，从一开始就很明显，但像往常一样，我遭到了严厉的批评。现在他们都在说“他是对的”。谢谢！”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-“请记住，我比我国参议院议员南希·佩洛西更早地关闭了中国，比任何人都想做到的要早，包括我一直相处融洽的福西博士，但我通常做的却恰恰相反他想要。”
 
-川普总统又一次证实了新冠病毒是来源于武汉病毒实验室。给呼吁再次调查病毒起源助力。
 
-参考链接：
+这是最好的年代
+灭共就是人民自由
 
-[https://nypost.com/2021/05/25/trump-it-was-obvious-to-smart-people-covid-came-from-wuhan-lab/?utm\_campaign=SocialFlow&utm\_source=NYPTwitter&utm\_medium=SocialFlow](https://nypost.com/2021/05/25/trump-it-was-obvious-to-smart-people-covid-came-from-wuhan-lab/?utm_campaign=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_medium=SocialFlow)
+人民就需要自由
+这是最好的年代
 
-图片来源：[https://nypost.com/](https://nypost.com/)
+真相大白 渐渐揭晓
+闫博士论文以毒灭共
 
-整理撰稿：蓝精灵
+人民就需要自由
+这是最好的年代
 
-校对发布：Penny
+觉醒韭菜 扪心自问
+与其不让站 不想跪 躺平算球了
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+人民就需要自由
+这是最好的年代
+
+成住坏空 人生苦短
+不饱思 不耻行 不忘初心
+
+人民就需要自由
+这是最好的年代
+
+文贵天成
+天已成
+这是灭共大时代
+
+人民就需要自由
+这是灭共大时代
+
+灭共就是人民自由
+这是最好的年代
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
 
 0

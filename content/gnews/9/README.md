@@ -1,84 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】锅言灶语（十七） -有话说之划外音-
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1272558/)
+## 【拆台新闻】台湾说可以先给陆生陆配打大陆疫苗 大陆网民炮轰不把大陆人当人看
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272580/)
 
-香草山健身部 澄道
+台湾退修将军提“大陆疫苗可让陆生陆配先打”，遭到大陆网友轰：“不把他们当人看”。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25232401/229.jpg)
 
+中国国台办近日表示愿意提供中国大陆的疫苗给台湾民众施打，引发议论。日前在政论节目中，一名退休中将张延廷就建议，可以接受对岸提供的疫苗，并安排在台湾的中国大陆配偶或学生来施打。没想到，此番言论竟然引发中国网友不满，痛批张“无耻畜牲”“不把大陆人当人”“没安好心”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+张将军的表情是这样的：
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25232604/230.jpg)
 
+张延廷此言论本意是希望台湾人能够接受中国大陆的疫苗，没想到这段影片流传到中国的社群平台后，让陆配陆生先施打的说法竟然惹怒了中国网友！中国社群网站微博上出现大批网民的留言挞​​伐，痛批张是“人形畜牲！”“台湾岛的人本来就没多少人安好心”“一点人性都没有”“这是人说的话吗”“国台办把陆配和陆生送去当蛙（贬称台湾人）的试验品，人家蛙可不把大陆人当人，接着舔舔干净”“早就不想当它们是人”“陆配看看，人家没把你们当人看。”
 
-小馆停业在续
-几乎是关店
+许多中国网友认为张延廷的建议充满了歧视，毫无人性，“这种歧视性做法，提起来一点心理压力都没有，够狠噢”，但也人说，这样或许对陆生陆配是好事，“先打先安全”“我们的疫苗是人用的，蛙蛙怎么配用”。
 
-员工放长假
-几乎是失业
+参考链接：
 
-停车场没有车
-shopping mall没有人
-各行各业
-其实是遭＂团灭＂
+[https://www.mirrormedia.mg/story/20210525edi029/](https://www.mirrormedia.mg/story/20210525edi029/)
 
-后厨仅剩下
-锅子
-灶子
-小馆也几乎是＂团灭＂
+图片来源：网络 / [https://tw.news.yahoo.com/](https://tw.news.yahoo.com/)
 
-跑在前面的
-＂拉松马＂们
-生意三百年计的
-＂接客马＂们
+整理撰稿：蓝精灵
 
-64民主惨遭辗压的
-＂先躯们＂
-自由世界被割喉的
-＂舆媒们＂
+校对发布：Penny
 
-病毒武器
-肆意投放
-疫苗联盟
-＂团灭＂种族
-
-单求自保
-＂人难＂不遇吗
-只有灭共保平安
-
-无诉无求
-＂团灭＂不期吗
-唯有正道 得未来
-
-锅言
-不惊人吗
-灶语
-不响天吗
-
-翠花
-翠草
-镇店名服们
-也听不到她们点点声响
-＂去哪儿了…..＂
-
-啊！
-不会也被＂团灭＂了吧！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0
