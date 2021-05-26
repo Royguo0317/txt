@@ -1,84 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】锅言灶语（十七） -有话说之划外音-
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1272558/)
+## 【快讯】川普周二采访中说病毒就是起源于武汉实验室
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272609/)
 
-香草山健身部 澄道
+前总统川普在周二的一次采访中声称，“对聪明人来说很明显”，冠状病毒是从中国武汉市的一个实验室出来的。
 
+川普对Newsmax主持人兼前顾问史蒂夫·科尔特斯说：“我对此毫不怀疑。” “我受到媒体的批评，通常，他们将其归咎于俄罗斯。总是俄罗斯，俄罗斯，俄罗斯，但我一开始就说它来自武汉。”
 
+此前卫生和公共服务部长Xavier Becerra呼吁世界卫生组织（WHO）对病毒的起源进行“透明的，基于科学的”调查。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+这位前总统在一份声明中说：“现在，每个人都同意，当我很早就称呼武汉为COVID-19（有时被称为中国病毒）的来源时，我是对的。” “对我来说，从一开始就很明显，但像往常一样，我遭到了严厉的批评。现在他们都在说“他是对的”。谢谢！”
 
+“请记住，我比我国参议院议员南希·佩洛西更早地关闭了中国，比任何人都想做到的要早，包括我一直相处融洽的福西博士，但我通常做的却恰恰相反他想要。”
 
+川普总统又一次证实了新冠病毒是来源于武汉病毒实验室。给呼吁再次调查病毒起源助力。
 
-小馆停业在续
-几乎是关店
+参考链接：
 
-员工放长假
-几乎是失业
+[https://nypost.com/2021/05/25/trump-it-was-obvious-to-smart-people-covid-came-from-wuhan-lab/?utm\_campaign=SocialFlow&utm\_source=NYPTwitter&utm\_medium=SocialFlow](https://nypost.com/2021/05/25/trump-it-was-obvious-to-smart-people-covid-came-from-wuhan-lab/?utm_campaign=SocialFlow&amp;utm_source=NYPTwitter&amp;utm_medium=SocialFlow)
 
-停车场没有车
-shopping mall没有人
-各行各业
-其实是遭＂团灭＂
+图片来源：[https://nypost.com/](https://nypost.com/)
 
-后厨仅剩下
-锅子
-灶子
-小馆也几乎是＂团灭＂
+整理撰稿：蓝精灵
 
-跑在前面的
-＂拉松马＂们
-生意三百年计的
-＂接客马＂们
+校对发布：Penny
 
-64民主惨遭辗压的
-＂先躯们＂
-自由世界被割喉的
-＂舆媒们＂
-
-病毒武器
-肆意投放
-疫苗联盟
-＂团灭＂种族
-
-单求自保
-＂人难＂不遇吗
-只有灭共保平安
-
-无诉无求
-＂团灭＂不期吗
-唯有正道 得未来
-
-锅言
-不惊人吗
-灶语
-不响天吗
-
-翠花
-翠草
-镇店名服们
-也听不到她们点点声响
-＂去哪儿了…..＂
-
-啊！
-不会也被＂团灭＂了吧！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

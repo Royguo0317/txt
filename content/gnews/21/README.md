@@ -1,43 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【焦点】美泄密文件——1958年拟对中共国进行核打击
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1272720/)
+## 【锐语】快手抖音哔哩哔哩的资产都在缩水
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272761/)
 
-#### 翻译：小红帽
+快手科技（1024.HK）正在失去了粉丝，而且速度很快。在令人失望的结果之后，这家价值1100亿美元的病毒视频公司的市值几乎缩水了12％。较2月份首次公开募股后不久达到的峰值下跌了44％。
 
-#### 校对/编辑：文泓
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26010431/%E5%8F%B0%E6%B9%BE-5.jpg)
-图片来源：ASIA TIMES
+快手的季度销售额较上年同期增长37％，达到约30亿美元。然而，由于大流行病得到遏制，公司开始寻求新的收入，快手的净亏损几乎翻了一番，达到了90亿美元。
 
-**译评：**
+与抖音所有者字节跳动对抗的快手企业，现在的价值约为明年预期收入的5倍。Refinitiv数据显示，竞争对手哔哩哔哩（9626.HK）的市盈率为8倍，其支持者腾讯（0700.HK）的市盈率为7倍。即使在大跌之后，快手的股价仍比市场首发价高出约75％。降到该水平将估算3倍。鉴于不断增加的客户获取成本，这可能是一个更合适的数字。
 
-此篇报道仅寥寥数百字，轻描淡写而惊心动魄。1958年正是毛贼东亲自指挥万炮齐发，给金门岛军民造成重大伤亡，而后台海又发生了大规模海空战。历史文件显示，毛贼东此举专为试探美国干预台海冲突的底线。今天习帝为了所谓的“中国梦”当起了毛二世，屡屡在台海挑起事端，中共国空军常规性地骚扰台海防空识别区，海军屡屡越过海峡中线，军民两用船只更是深入台湾沿海，试图吞并台湾成就千古一帝美梦。
+参考链接：
 
-上世纪五十年代中共国尚且与苏联签有同盟协议，今天的中共国已经成为孤家寡人，由于其全世界传播病毒、祸害人类，并将遭到全世界人民唾弃。今天美国晒出这份文件绝非偶然，对中共既是警示也是震慑。当然，总加速师如果一意孤行执迷不悟，那么等待他的必然是斩首行动！
+[https://www.reuters.com/breakingviews/capital-calls-chinese-video-star-has-further-fall-2021-05-26/?taid=60adcc7734e77e00018abbaa&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/breakingviews/capital-calls-chinese-video-star-has-further-fall-2021-05-26/?taid=60adcc7734e77e00018abbaa&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-**译文：**
+图片来源：[https://www.reuters.com](https://www.reuters.com/breakingviews/capital-calls-chinese-video-star-has-further-fall-2021-05-26/?taid=60adcc7734e77e00018abbaa&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-周末《纽约时报》发表一份仍然保密的文件，在1958年台海爆发冲突时美军曾经考虑对中共国进行核打击的选项。这份文件由五角大楼文件泄密者丹尼尔-埃尔斯伯格（Daniel Ellsberg）所分享。
+整理撰稿：蓝精灵
 
-【备注：维基解密记载，1958年台海爆发了八二三炮战（金门）、九二海战和1958年台海空战，在美国的支援下，中共解放军意图封锁金门岛计划落空，但是解放军控制福建沿海的制空权。】
+校对发布：Penny
 
-这份文件以前从未公开过，其中描述了冷战期间，负责该部门太平洋指挥部的空军将领劳伦斯.谢尔曼.库特（Laurence Sherman Kuter）将军的决断，在1958年第二次台湾海峡危机期间，作为保卫台湾努力的一部分,他力主对中共国大陆进行核打击。
-
-机密报告说:“库特在一份空军电文中直截了当地指出，除非从一开始就使用核武器，否则美国的空中行动没有成功的机会。”
-
-报道称，如果中共国全面入侵台湾或南海其他岛屿，库特继续说：美国 “应该授权[台湾政府]用常规武器轰炸中共大陆的机场”，并补充说，如果中共国的侵略规模扩大，“美国应该对大陆逐步使用核武器”。
-
-该文件也承认，这样的行动很可能会遭致引起苏联的回应，而苏联拥有自己的原子武器库，很可能会进行报复，可能导致双方数百万人死亡。
-
-【备注：1950年中苏签订了《中苏友好同盟互助条约》，条款约定，“一旦缔约国任何一方受到日本或与日本同盟的国家之侵袭因而处于战争状态时，缔约国另一方即尽其全力给予军事及其他援助。”】
-
-根据《泰晤士报》获得的照片，国防部在1975年解密整个研究报告时，对机密部分进行了删减。
-
-埃尔斯伯格公布机密部分时，中美双方在台湾问题上的分歧有可能将两国卷入该地区的冲突。美国最近几个月一直保持对台湾政府的支持，而中共政府则坚定地认为它有权强制台湾岛与大陆统一，中共政府认为该台湾岛是中共国的一部分。
-
-中共国驻华盛顿特区大使馆就上述事项的征求意见函，并没有得到（五角大楼）国防部的回复。
-
-**原文链接：**[US considered nuclear strike on China in 1958 to protect Taiwan, documents show | TheHill](https://thehill.com/policy/defense/555081-us-considered-nuclear-strike-on-china-in-1958-to-protect-taiwan-documents-show?utm_source=thehill&amp;utm_medium=widgets&amp;utm_campaign=es_recommended_content)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0
