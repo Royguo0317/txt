@@ -1,11 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 05/26 审查制度、监控和利润：苹果公司在中共国艰难的讨价还价
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1274209/)
+## 2021/05/25-001 文贵先生盖特精华
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1274221/)
 
-**By:秘翻快报组**
+听写：樂禧禧|PR：万物归一| Page：小六月
 
-GTV链接:[https://gtv.org/video/id=60adf6f4ad9feb7deee4a835](https://gtv.org/video/id=60adf6f4ad9feb7deee4a835)
+[!\[\]()!\[\](https://spark.adobe.com/page/1SmrR3Zk4pbBV/images/c5f19d1b-530e-4ff0-8240-9793b2fb3fee.png?asset_id=f8445a33-9ed5-4d03-a5a5-99efc9a049ab&amp;img_etag=%22429fc36e408ea8f480f7bd7a353cc363%22&amp;size=1024)](https://spark.adobe.com/page/1SmrR3Zk4pbBV/images/c5f19d1b-530e-4ff0-8240-9793b2fb3fee.png?asset_id=f8445a33-9ed5-4d03-a5a5-99efc9a049ab&amp;img_etag=%22429fc36e408ea8f480f7bd7a353cc363%22&amp;size=1024)
+
+**5月25号：**尊敬的战友们好，由于今天的时间问题，和特殊安排的听证会！早上没有发盖特，现在7哥马上给大家补上！谈谈这两天7哥的一些关于正在开发中躺币的一些概念！
+
+•共产党深耕的欧洲，一下分崩离析了。外交部就剩下杨娘娘、王公公，天天骗习大神，这是集权的危机，当集权能干好事的時候，也能干天大的坏事。
+
+•当被坏人操作的时候，你什么坏事儿都干的出来，希特勒、墨索里尼、山本五十六都是如此。核心的希望：以毒灭共。
+
+•当用国家的力量对抗你，你就是国家级的。从评论可以看出，全世界都同情一个小女子，她越来越像天使，科学家智商高过常人，接受采访时那水平、逻辑、智慧、修养、冷静。
+
+•历史永远不会更改，路德访谈绝对是社交媒体未来的标杆，科学家是科学界未来的最高标杆。还会有更多科学家做精彩的采访，提供震撼人心的的证据，唤起世界上有良知的知识界和科学界。以毒灭共、以真相灭共、以共产党的假打共产党的假。
+
+• 这周欧洲议会11次会议中的5、6个会议都和中共有关，白俄罗斯又怎樣！说以色列是坚强的技术后盾结果怎样！赖以生存的粮食，袁隆平老先生走了，都是共产党的牺牲品。
+
+•台湾危机一定会成为共产党走向死亡的最重要的第二步。现在又搞了虚拟货币危机，国内太多人相信了中共，走进了火葬场，天助我新中国联邦灭共。
+
+•国内公检法在受煎熬，对科学家、工程师专业人士正进行全面的筛选调查，所有的工程师、技术人员，共产党都要特别登记、限制出境，写代码的工程师、懂得工程高端技术的、建筑师都不让出国了。
+
+•上网都是面部识别，从边境控到城市控。当年希特勒限制德国所有的高级知识分子不准出国，现在马上在中共国开始，没死之前你得好好的当奴隶。
+
+[链接](https://gtv.org/getter/60ada88d744cbc43136453a6)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://spark.adobe.com/page/1SmrR3Zk4pbBV/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

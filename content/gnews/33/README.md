@@ -1,23 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄罗斯要求媒体平台实现数据库本地化
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1273800/)
+## 蓬佩奥揭拜登关闭了国务院对病毒溯源的调查
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1273805/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑上传 银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26120747/Snipaste_2021-05-26_19-07-05.jpg)[omorodionpost.com](http://omorodionpost.com/world/russia-raises-heat-on-twitter-google-and-facebook-in-online-crackdown/)
-5月26日，据塔斯社报道，脸书（Facebook）、推特（Twitter）和其他社交网络有义务在7月1日前将俄罗斯用户的个人数据库本地化。这是俄联邦通信、信息技术和大众传媒监督局副局长米洛斯·瓦格纳（Milosh Wagner）周三在该机构董事会的最后一次会议上宣布的。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26121556/C-28.jpg)swachhindia.ndtv.com
+前国务卿蓬佩奥今早（5月26日）发推，“拜登与中共国、世卫组织和自由媒体站在一起，在武汉病毒问题上加入了‘有目无睹的人群’，关闭了国务院、我主导的对疫情起源的调查。这不是政治问题，美国必须在（调查）方面领先。”【1】
 
-瓦格纳说：“到7月1日，脸书、推特和其他社交网络有义务确保俄罗斯用户数据库的本地化。”他表示，已经向各公司发出了使他们的活动与之相符的要求。“到7月1日，我们希望得到关于如何履行这一要求的信息。”
+蓬佩奥掷地有声、铿锵有力地指责，有助于帮助人们对拜登政府一直对中共病毒不溯源、不追责疑惑的理解。
 
-关于《个人数据法》规定，俄罗斯和外国公司有义务只在俄罗斯联邦境内存储俄罗斯人的个人信息。本地化要求适用于在俄罗斯没有实际存在的外国公司，如果他们在该国开展活动。
+蓬佩奥国务卿为何看上去如此“激动”？因为正是拜登下达了关闭调查中共病毒的命令。
 
-如果不遵守该要求，将被处以100万至600万卢布的罚款，如果重复违反，则处以600万至1800万卢布的罚款。
+据CNN介绍，早在去年秋天，当时蓬佩奥国务卿的盟友，发起了这项此前未公开的调查，参与调查的人表示，这是一项诚实的努力，目的是调查许多人最初认为的问题，即中共国的生物武器计划可能在武汉的疫情起源中发挥更大的作用。
+
+CNN还透露，美国国务院在秘密调查的消息，以及拜登今年春天终止调查的消息，之前均未有媒体报道过。
+
+CNN也开始报道有关中共病毒真相的消息了？当然3月份CNN有过“闪亮”一刻，报道了前CDC主任罗伯特·雷德菲尔德（Robert Redfield）博士透露中共病毒武汉实验室泄露的消息【2】。这次的报道出现了“中共生物武器计划”的字眼，有点令人刮目相看的感觉。
+
+笔者将在下篇文章翻译整理CNN的报道。
 
 参考链接：
 
-[https://tass.ru/obschestvo/11476699](https://tass.ru/obschestvo/11476699)
+【1】[https://twitter.com/mikepompeo/status/1397543311490101249](https://twitter.com/mikepompeo/status/1397543311490101249)
+
+【2】[https://gnews.org/zh-hans/1023905/](https://gnews.org/zh-hans/1023905/)
 
 0

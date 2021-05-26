@@ -1,25 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登称对北溪2号的额外制裁“适得其反”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1273741/)
+## 俄罗斯要求媒体平台实现数据库本地化
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1273800/)
 
 俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
 编辑上传 银河
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26114044/Snipaste_2021-05-26_18-39-50.jpg)[de-guo.com](http://www.de-guo.com/news/news273737921.html)
-2021年05月26日彭博社报道，美国总统拜登表示，对北溪-2号管道实施额外制裁将对美欧关系产生反作用，因为该管道建设已接近完成。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26120747/Snipaste_2021-05-26_19-07-05.jpg)[omorodionpost.com](http://omorodionpost.com/world/russia-raises-heat-on-twitter-google-and-facebook-in-online-crackdown/)
+5月26日，据塔斯社报道，脸书（Facebook）、推特（Twitter）和其他社交网络有义务在7月1日前将俄罗斯用户的个人数据库本地化。这是俄联邦通信、信息技术和大众传媒监督局副局长米洛斯·瓦格纳（Milosh Wagner）周三在该机构董事会的最后一次会议上宣布的。
 
-“它几乎已经完全完成。”拜登告诉记者。他补充说：“我认为现在实施制裁对于我们的欧洲关系来说是适得其反。”
+瓦格纳说：“到7月1日，脸书、推特和其他社交网络有义务确保俄罗斯用户数据库的本地化。”他表示，已经向各公司发出了使他们的活动与之相符的要求。“到7月1日，我们希望得到关于如何履行这一要求的信息。”
 
-上周，美国对与管道建设有关的两家俄罗斯公司和一家机构实施制裁。共有13艘船被列入名单。
+关于《个人数据法》规定，俄罗斯和外国公司有义务只在俄罗斯联邦境内存储俄罗斯人的个人信息。本地化要求适用于在俄罗斯没有实际存在的外国公司，如果他们在该国开展活动。
 
-此前媒体报道说，拜登总统的政府打算对北溪-2项目运营商及其总经理马蒂亚斯·瓦尼格（Matthias Warnig）实施制裁。为了避免与德国发生冲突，拜登政府随后放弃了这一决定。
-
-北溪2号项目涉及建造一条年产近550亿立方米的天然气管道，该管道从俄罗斯海岸穿过波罗的海到达德国，从而绕过波罗的海国家和波兰。它由北溪2号股份公司实施，俄罗斯天然气工业股份公司是唯一的股东。美国认为该管道是对欧洲能源安全的威胁。
+如果不遵守该要求，将被处以100万至600万卢布的罚款，如果重复违反，则处以600万至1800万卢布的罚款。
 
 参考链接：
 
-[https://novayagazeta.ru/articles/2021/05/26/baiden-nazval-kontrproduktivnym-vvedenie-dopolnitelnykh-sanktsii-protiv-severnogo-potoka-2?utm\_source=tw&utm\_medium=novaya&utm\_campaign=prezident-ssha-dzho-bayden-soobschil–chto-vv](https://novayagazeta.ru/articles/2021/05/26/baiden-nazval-kontrproduktivnym-vvedenie-dopolnitelnykh-sanktsii-protiv-severnogo-potoka-2?utm_source=tw&amp;utm_medium=novaya&amp;utm_campaign=prezident-ssha-dzho-bayden-soobschil--chto-vv)
+[https://tass.ru/obschestvo/11476699](https://tass.ru/obschestvo/11476699)
 
 0
