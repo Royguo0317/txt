@@ -1,92 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 由杨洁篪和王岐山亲自操盘&nbsp; 发起了新一轮对爆料革命新中国联邦的攻击
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1272091/)
+## 【灭共有我】揭露村社级假选举的黑幕
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1272156/)
 
-**摘要：在2021年5月20日的盖特视频中郭先生曝光了中共由杨洁篪和王岐山亲自操盘的，对爆料革命、新中国联邦的新一轮攻击：**
+#### 作者：啱啱开始
 
-- 操纵媒体抹黑郭先生、班农先生、闫丽梦博士、塞林博士等战友；
-- 抹黑爆料革命是暴力组织，挑起亚裔歧视；
-- 旨在攻击爆料革命的平台——G-Coin、G-Dollar、G-TV、G-News；
-- 买通和操纵美国洛杉矶地方警察和司法部给爆料革命和人员制造司法麻烦；
-- 在新中国联邦的周年庆典中下毒，一网打尽参加者。
+#### 编辑：翼族
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25185546/%E7%BC%85%E7%94%B8-2.jpg)
+图片来源：中共新华网
 
+【**前言：**笔者一位朋友亲身经历了书记、村长和社长选举的过程，所谓的基层选举只不过是蒙骗老百姓的手法而已，本文将一一予以揭露。】
 
-**但是郭先生说他知己知彼，早有准备，而且中共的烂招帮助“在西方让更多人相信我们，还让更多的机构和国家相信我们”！**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25181124/Miles_2021-05-20-g1.srt.txt)
-**由杨洁篪和王岐山亲自操盘****  ****发起了新一轮对爆料革命新中国联邦的攻击****
-Yang Jiechi and Wang Qishan Launch New Attacks Toward the NFSC **
+中共一向宣称中共国的国家主席是由全国人民代表大会投票选举产生的，其实只是事先安排好，然后通过控制选举人名单，以及控制选举投票电子系统产生的假选举。人大大会时，中共派驻荷枪实弹的武警进行“保卫”，这样一种黑帮式的“选举”，相信大家也都不陌生。
 
-这几天战友传达的信息，由杨娘娘（杨洁篪）和王公公（王岐山）亲自操盘，要在世界媒体上对我们爆料革命、新中国联邦，对郭文贵和班农还有闫丽梦进行的所谓的全面的、下狠手的、超常规手段的攻击。那无非是操纵严肃媒体采访你，然后编辑出一个大的一个抹黑你的[假新闻]。然后对班农造谣，包括我们的这几个博士，像塞林博士这都是我们战友[进行]造谣。[对]闫丽梦博士估计得弄好几个双胞胎出来了。
+而在中共国的基层，村级和社级又是另一套所谓的“民主选举”形式，但其实质和国家主席的“选举”一样，都是中共完全操控的假选举，其间只是迷惑了百姓眼睛，没有多少人了解其骗人手法，今天笔者就按照这位朋友所述来揭露这个迷团。
 
-Some fellow fighters have informed me that Sissy Yang (Yang Jiechi) and Eunuch Wang (Wang Qishan) are deploying an operation on their own. They are carrying out some all-out and over-the-top attacks on our Whistleblower Movement, the NFSC, Mr. Bannon, me, and Dr. Li-Meng Yan, in the worldwide media. This effort will not show any mercy. They are going to manipulate the serious media to interview us. Then they fabricate fake stories to discredit us – smearing Bannon, our PhD team, and Dr. Lawrence Sellin, who has been standing with us. With respect to Dr. Li-Meng Yan, I suppose they may fabricate a story that she has a twin sister or brother, or something ugly like that.
+中共的两会在2020年5月结束之后，各省、市(县)、区、镇(街)、村、社也相继选出了新任的书记和领导，轮到这位朋友的村子选村委书记和村长时，已是半年之后了。2020年11月，朋友所在的村委会原书记退任，退任前他召集全村党员、干部、社长和村民代表在村委会议室召开会议，讨论新一届村社的选举办法。原村委书记宣读了半个多小时又长又臭的上级精神文件，其中心要点无非就是新书记的候选人是由镇党委及原村委书记共同提名的、经得起考察和信任的人，会议现场还有一位副镇长坐镇，进行所谓的监督。
 
-就是要把我们说成，爆料革命，新中国联邦是挑起亚裔人和西方社群种族矛盾的罪魁祸首，这是第一条。像那天那个媒体采访我，到最后就是这个。 第二个，[抹黑]我们是属于有暴利倾向的组织。
+然后，在接下去的一周里，村长带着一这名“合格”候选人到各社进行所谓的“见面会”，其实就是帮其拉票，当然这都是提前安排好的戏。村长事先让社长召集该社的党员和村民来开见面会，这位“合格人选”其实就是书记的秘书，一名同省的外地人，并不是本地的原生村民。就这样，用4天时间连续到8个社进行见面会。
 
-Their purpose is to smear our Whistleblower Movement and the NFSC as the culprit in promoting racial tension between the Asian and Western communities. That is their primary purpose. It’s like my media interview the other day, which exactly went to this direction. Secondly, those who are smearing us are part of an organization with violent tendencies.
+再过了一周，就到了12月份，原村委书记又和副镇长召开全村党员会议，进行新书记的选举，选举时由村委会派发给每位党员一张事先打印好的候选人名单，被推荐人共有3名，其中最上方的名字，就是原村委书记和镇党委考察出来的“合格”人选，下面两位则是平常在村委会里工作的普通职员，村民党员们也基本都不认识。然后，又宣读了一番屁话连篇的选举文件，假腥腥的说可以自由写上其他人选，但是这样的操作，让各党员很自然的就填写了那位“合格”人的名字，即使有个别人填写了其他名字，最后交上去也没有任何意义。而且，即使全部党员不愿接受这位唯一的“合格”候选人，另选一名当地原村民，他（她）也是无法当选为村委书记的，因为只要政审名单上没有他（她）的名字，镇党委就不会下任命书。所以，那位“合格”的外地人就自然而然的当上了该村新任的村委书记。
 
-那么这个就是现在王公公、杨娘娘正在发动的。醉温之意不在酒，在的是攻击我们的喜币、喜 Dollar、G-TV、G-News — 这是属于新中国联邦的平台，虽然不归我们所有，但这些平台支持爆料革命，支持我们的灭共事业，因为我们伤害的就是他们。
+和以往不同，这次村委书记的选举已经变成了上级赤裸裸的指定。以往的选举虽然也有暗箱操作，但是村委书记的选举是由候选人在党员中拉票产生的，在南方经济较发达地区，拉票自然就少不了花钱买票贿选，这也是历来的中共特色。然而，这次村委书记的选举，已经变成了由镇一级审批指派一位“听党话”的人来参加选举，这和直接任命已没有区别，只不过多演了一场选举的戏而已。
 
-It is the attack that Eunuch Wang and Sissy Yang are deploying right now. But their real purpose is to attack our Himalaya Coin (HCN), Himalaya Dollar (HDO), G-TV, and G-News – platforms that belong to the NFSC. Although we do not own these platforms, these platforms support the Whistleblower Movement in our goal of destroying the CCP. It is the CCP that we should destroy.
+新任村委书记确定后，又过了一周，这位新任村委书记召开了村长的选举会议。全村的党员、干部和代表又来到会议室开会，又重复了一轮又臭又长的官话和废话，由新书记和镇党委联合推荐了一位“合格”的村长候选人，而这位候选人就是原村长，也是原村委书记的好兄弟。原村长政审过关，再加上原副村长和另两位，一共四人成为了村长候选人。散会后，各社的社长被留下，由新书记和原村长给社长们进行了所谓的“思想指导”，其实就是让各社长回去号召教育村民按照其要求选村长。再过了一周，在村小学广场进行村长选举投票，因为事先社长已经在微信群里发布了指导思想，明令村民不得私自串票拉票，因此结果毫无悬念，那四位被党推荐的候选人全部顺利当选，而村民填选票时也没有任何其它的选择。
 
-包括在国内大肆地宣传，像那天那记者说：“是因为你们，让世界恨中国，恨亚裔。”这是他的核心，抹黑咱们，务必小心。然后让咱们成为种族主义者，暴力倾向主义者，[实际上]完全颠倒黑白。恰恰咱们是反暴力主义者，反种族主义者。让我们的G系列没法支持新中国联邦，再次地孤立我们。然后最近又培养了一批“燕子”和“蛇”，
+春节过后，到了2021年的3月份，紧接着就是社长的选举，其操作手法和上述两次完全就是一个模式。社级的选举由该社的社长及党员干部提名候选人，然后再送交村委书记及村委会评审。
 
-Their attacks include increased propaganda in mainland China. The reporter said the other day: “it is because of you that the world hates China and hates Asians.” That is the core issue. They are smearing us. And we must be cautious. They are trying to smear us as racists, as violent people. In fact, it is a complete reversal of the truth. On the contrary, we are against violence. We are against racial discrimination. They want to stop the G-Series from being able to support the NFSC, and they want to isolate us. The CCP has recently trained another group of agents specializing in infiltration. We call them “swallows” and “snakes”.
+朋友所在的A社，社长提名了其本人及另一名村民N参选。社长和该社的党员、以及多数社员都认为村民N和社长比较合拍，群众基础也较好，这两人搭档是最有利于搞好本社工作，为本社的村民服务的。但是，村民N对村里不合理的工作经常有所异议，于是村干部就想挤掉他的参选名额。
 
-所有的正在培养着，假投资G-Clubs，假买G-Fashion，假投资老G-TV，假投资喜币的。就是要再一次把美国的SEC跟他们绑在一起，还有美国所谓的DOJ（美国司法部）。
+村民N有一块路边闲置的果园地，租给了一位建筑老板堆放建筑机械，里面有一个集装箱用来放置小工具。2020年12月，村书记串通副镇长写了张整改通知书，贴在集装箱上，要求迁走。村民N也很配合的把集装箱迁走了。但是到了2021年3月提名村民N竞选社长时，村书记和村委会就以他曾经收到过政府的整改单为由，提出他违反了当地的选举法，将村民N的名额取消，并提名了另外一位很听话的女村民作为该社的社长候选人。
 
-In addition, the CCP has arranged some of its agents as buyers for G-Clubs and G-Fashion. Some of them are even masquerading as pre-seed investors of G-TV, and HCN investors. However, all these people are carrying out the CCP’s clandestine mission. The CCP is trying to be an ally with the US SEC, and the US Department of Justice again.
+到了投票的时候，村委会又打印好了该社社长的推荐人名单，一个个发给村民让他们照抄到选票上，如此轻易操控了社长的选举。经了解，其它几个社也是同样的情况，村委会操控听话的人做了社长。
 
-还有像洛杉矶的国土安全部那些人完全不在自己案件范围之内，受某黑暗势力的控制，完全非法操作，竟然把G-Fashion，G-TV的高管在机场拦住，把包全翻开，而且明确告诉他说你在涉嫌刑事调查。在美国涉嫌刑事调查是不可以这么做的，人家有律师你要找律师去。完全知法犯法！还翻人家的包，[导致]人家东西还找不着了，吓得人家现在身体都出问题了。
+由此可见，中共设计好的这套虚假的基层选举制度，完全就是骗人的手法。每一次都是由上而下的操控，通过上层操控下层的所谓选举，中共在每一层级都安排了“听党话”的人来担任相应的职位，而普通党员和人民群众只不过是被共产党玩弄于股掌之中的工具。同时，中共对全社会基层实施格子化管理，人民群众根本没有机会集中统一意见，来和这种虚假的被选举进行对抗。中共这样操控并玩弄民意的假选举，就是典型的“以假治国”。
 
-The people at the Department of Homeland Security in Los Angeles went beyond their authority. It was a completely illegal operation. Some dark forces manipulated them. And they went so far as to stop our executives of G-Fashion and G-TV at the airport. They opened all our executives’ bags and searched them. Also, they informed our executives that they were the subjects of a criminal investigation. In the US, even if you are involved in a criminal investigation, you cannot be treated that way. It should be handed over to a lawyer. These DHS officials knew the law, but broke it. Besides, the search of the bags resulted in the loss of some items. We have executives who have had psychological problems as a result of the shock.
+（文章内容仅代表作者观点）
 
-这是什么概念？就是要把SEC这些所有人，用假报案同时还有腐败手段买通某些人。像当年 Elliott Broidy 在DOJ买通Higginbotham 一样，承若所谓遣返这个，遣返那个，伤害这个，伤害那个。这是[共产党的]一次巨大的阴谋。
-
-What is the meaning of this? The CCP colluded with the SEC by buying people off, and by reporting false charges. In other words, they used corrupt practices. Like the time Elliott Broidy bought off Higginbotham at the DOJ. They promised the CCP to get certain people deported and harmed. It was a huge conspiracy by the CCP.
-
-这是据咱们战友通报说，这是杨娘娘最近睡不着觉的核心原因，悄悄地在干这事。这是王公公王岐山最近东山想再起，想递军令状，是要给这个习大大习一神再次立功。要灭爆，要立大功。
-
-According to the intelligence of our fellow fighters, this is the reason Sissy Yang has not been able to sleep recently. He was quietly planning this. Eunuch Wang (Wang Qishan) has recently been trying to resurrect his power. He has promised the great god Xi (Xi Jinping) that he will succeed. If he does not, he is willing to be punished. Wang Qishan is plotting to strike at the Whistleblower Movement so that he can take credit for it.
-
-这就是现在的整个共产党的流氓体制他们最担心的，他们会上明确地说。 这是我瞎蒙的啊，有些是[战友]说的，有些我瞎演化的，这个你[们]别相信啊。据说：无论如何要把闫丽梦的嘴给闭上；无论如何让郭文贵所有的平台不能再运行；无论如何不能让他的这个虚拟货币喜币成为中国人大量外汇流出，形成中国内部金融界的灾难；无论如何要阻止郭文贵的下三个计划。
-
-It is the CCP’s rogue system that most people are worried about now. The CCP clearly declared in its internal conference that it must make Li-Meng Yan shut up. It is only my speculation, combined with the intelligence from our fellow fighters. Please don’t believe me. The CCP has decided that none of Miles Guo’s platforms can be allowed to operate. It will attempt to prevent, by any means, the flow of a large amount of foreign currency from the Chinese people into HCN. This would cause a disaster in China’s internal financial sector. Miles Guo’s next three plans must be stopped by any means.
-
-这三个计划你们都不知道是什么，但他们掌握了情报。我们有三个计划。[共产党]不惜一切代价渗要透进他们的整个系统里；不惜一切代价要用法律、诉讼、媒体、宣传制造民事、刑事麻烦。所谓的在他们的历史关键时期，绝不能让我们再成为2017年的“突发性的不可控的政治事件”，导致了今天一发不可收拾。
-
-You do not know what these three plans are, but the CCP has been aware of them. I have three plans. The CCP is going to do whatever it can to infiltrate us. The CCP is going to cause us civil and criminal problems by manipulating laws, lawsuits, media, and propaganda at any cost. At this critical time in history for the CCP, it cannot allow us to become a “sudden, uncontrolled political event” that leads to an unmanageable situation as what happened in 2017.
-
-哎呀，我瞎蒙的啊，不过说实在的，知己知彼嘛，是吧？中南坑，你们想干啥我们知道，我们想干啥你以为你们知道？咱走走看！咱在今年年底的时候，你会知道，到底你知道的所谓我们下三个绝密计划你能挡得住几个？
-
-Oops, that’s what I guessed. But honestly, it is as essential to know your enemy as it is to know yourself. Isn’t it? Zhongnan Pit (people living in Zhongnanhai, Beijing), we know what you are plotting. Do you think you know what I am going to do? We will see. By the end of this year, you will find out how many of my three top-secret plans you can stop?
-
-爆料革命、新中国联邦，包括你们这次内部批示，绝对不允许这次的在纽约世贸中心的102层新中国联邦的聚会成功举行。还要善用这个机会，最好能一举彻底捣毁我们这帮人。你们就要下毒呗，是吧，放毒呗，啊？
-
-How to handle the Whistleblower Movement and the NFSC celebration. The CCP has internal instructions to absolutely not allow this party of the NFSC, on the 102nd floor of the World Trade Center in New York, to take place successfully. You (CCP) hope to make the most of this opportunity, preferably by completely destroying this celebration and the participants. Are you planning on poisoning us and releasing the virus?
-
-共产党你是玩球蛋了！你们玩这些阴招。看看你们最近的几篇“成功”的报道对我们有多大的帮助？不仅仅是帮助我们在西方让更多人相信我们，还让更多的机构和国家相信我们！
-
-The CCP, you are finished. Are you playing these dirty tricks? Just see how much your recent success reports have helped us. Not only have you got more people in the West believing in us, but you’ve made more institutions and nations believe in us.
-
-*（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60a6748737f7f73984cde2bf](https://gtv.org/getter/60a6748737f7f73984cde2bf) (1:39-2:38, 3:04-4:04, 4:43-9:58)
-鸣谢：
-[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1260339](https://gnews.org/zh-hans/1260339)
-[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1266363/](https://gnews.org/1266363/)*
-
-* * *
-
-**字幕：【Rock小哥】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-0
++2

@@ -1,43 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【诗歌 】 新中国联邦·魂
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1271892/)
+## 倒打一耙 拒接电话的中共指责美国防部长 “不专业、不友好”
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1272010/)
 
-【作者】禾童 【编辑】Candy
-
-拉满的弓上颤动的弦啊
-
-月光下
-
-你的心跳清晰可闻
-
-雪亮美丽的刀刃啊
-
-你的侧脸
-
-如刀锋般冷峻
-
-深藏在爱与悲愤下的
-
-你的真心啊
-
-懂得她的
-
-只有新中国联邦之魂
+- 编译：云起时
 
 
+美国新闻网（USNews) 5月25日报道，在美国官员告诉多家媒体，美国国防部长三次试图联系中共军方却没有得到答复，五角大楼负责人认为北京拒绝了他与中共国同行联系的努力之后，中共官媒《环球时报》周二发表了严厉的否认声明，并指责美国国防部长奥斯汀“不专业，不友好”。
 
-**【免责声明】** 尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+英国《金融时报》上周首次报道说，国防部长办公室三次试图与中国最高军警官员联系，都没有得到答复。一位不愿透露姓名的国防部官员说，”中国军方没有回应。”
 
-**欢迎战友加入旧金山金喜准农场**
+周二，被认为是中国共产党喉舌的国营《环球时报》发表了一份严厉的否认声明，称中共在奥斯汀上任后不久就联系了他，并提出安排他与中共国国防部长魏凤和将军对话。
 
-[旧金山金喜农场](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+《环球时报》说美国防部长办公室没有对这一提议作出回应，但它声称奥斯汀后来要求与另一位中共军方领导人–中央军委副主席–谈话，这一职位大致类似于美国的参谋长联席会议主席。
 
-[旧金山金喜农场](https://discord.gg/QQzQ79grEA)[Discord](https://discord.gg/QQzQ79grEA)
+中共国消息人士告诉《环球时报》，这一要求代表了 “无视外交礼仪和国际惯例的不专业和不友好的行为”。该消息来源还否认了美国关于北京有意寻求与美国关系复杂化的说法。
 
-[旧金山金喜农场](https://twitter.com/sf_himalaya)[Twitter](https://twitter.com/sf_himalaya)
+目前中美两个大国之间的紧张关系加剧，中共在其边境及其周边地区实行扩张主义，而华盛顿方面越来越认为美国领导人必须对北京采取更强硬的立场。
 
-[旧金山金喜农场](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[Youtu](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**b**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[e](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+《环球时报》称奥斯汀的报道要求 “对中国的善意和诚意视而不见。美国现在通过媒体发布不准确的信息，并试图将迄今没有进行高级别军事会谈的责任推给中国。这是不负责任的”。
+
+新闻来源：[美国新闻网](https://www.usnews.com/news/world-report/articles/2021-05-25/china-blasts-defense-secretary-austin-as-unprofessional-and-unfriendly)
 
 0

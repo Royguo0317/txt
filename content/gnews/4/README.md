@@ -1,32 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】美国法官驳回了史蒂夫·班农的起诉，并引用了总统赦免书
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1272247/)
+## 参议员里克·斯科特：应当停止从卑鄙的中共国购买商品
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1272354/)
 
-美国法官驳回了对前总统川普的顾问史蒂夫·班农的起诉，并引用了总统赦免书。
+翻译：康州盘古农场 – 柯镇恶
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 – 明子
 
-对了， 是引用了前总统川普的赦免书。“基于赦免的第一段，Bannon的动议获准，对他的起诉书被驳回，” Analisa Torres法官在文件中宣称。
+据《NEWSMAX》作者Jim Thomas  2021年5月23日报道：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25220447/4324324234234234-1.jpg)
+参议员里克·斯科特（Rick Scott, R- Fla.）在周日的一档电台采访节目中说：“我们应该停止从共产中国购买任何东西。他们不是我们的朋友。中国人民是很棒的，但那个政府是卑鄙的。”
 
-最有才的评论是：“停止保护我们的政治目标免于政治目标！”
+他告诉John Catsimatidis，即使是在与俄罗斯的冷战期间，人们从来没想过从苏联购买任何东西。
 
-今天真是欢乐的一天。
+他补充说：“共产中国的政府，他们想做的，是统治全世界。”
 
-参考链接：
+中国共产党并不在乎美国人或美国人的权利。
 
+这位前弗罗里达州长说：“他们并不相信你的权利。如果你看看他们是怎么对待他们自己的人民，你觉得他们会怎么看待美国人民？他们把上百万的人投入监狱中，仅仅因为这些人拥有不同的宗教信仰；如果你入狱，他们就会强制摘取你的器官；他们剥夺了香港人民的基本权利；他们打造自己的军队来对抗美国的军队；现在他们正在威胁台湾。所以，我们打击他们的方式就是，必须停止跟他们做生意——立刻停止。”
 
+他说，美国人不应该为中共国的经济继续输血了。
 
-> JUST IN – US judge dismisses indictment against former Trump adviser Steve Bannon, cites presidential pardon.
-> — Disclose.tv 🚨 (@disclosetv) [May 25, 2021](https://twitter.com/disclosetv/status/1397282009328889856?ref_src=twsrc%5Etfw)
+他说，每个人在购买商品之前，都应该问问卖家“这是不是在共产中国生产的？”
 
+他补充说：“我们不应该再帮助他们建设他们的经济了。因为当他们的经济持续增长并超过我们的时候，如果他们侵略台湾或干其他坏事，我们将没有能力打击他们或者防卫我们自己。”
 
+“这是一个具有扩张性的政权，他们意图控制世界上的每一个国家。”他说。
 
-图片來源：[https://theinitium.com/](https://theinitium.com/)
+原文链接：[https://www.newsmax.com/politics/rickscott-trade-america/2021/05/23/id/1022441/](https://www.newsmax.com/politics/rickscott-trade-america/2021/05/23/id/1022441/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-整理撰稿：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
