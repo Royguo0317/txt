@@ -1,27 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 辉瑞公司前副总裁呼吁不要被胁迫接种实验性疫苗
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1273976/)
+## 福克斯揭半年内美媒收受中共数百万美元
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1274154/)
 
-蒙特利尔皇家山战友团 Spirit
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26150831/defence.jpg)图片来源：Childrenhealthdefense.org
-据《儿童健康防御》(Children Health Defense) 5月25 日报道，辉瑞公司前副总裁迈克-耶顿(Mike Yeadon)博士在接受儿童健康保护组织主席小罗伯特-肯尼迪的采访时表示，他表示mRNA疫苗技术有很多不确定性。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-辉瑞公司前副总裁兼过敏和呼吸系统首席科学家迈克-耶顿博士说，中共病毒疫苗是 “一种完全新颖的技术”，不应该被称为疫苗。拥有着32年在制药业领导新药研究经验的耶顿博士说由于中共病毒疫苗使用的是实验性技术，可能会带来严重的副作用，如血凝块、不孕等甚至死亡。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26162426/P-13.jpg)justearthnews.com
+其实这已经不算什么新闻，印象中笔者半年前做了这样的转载报道，今天（5月26日）《福克斯新闻》发文也进行了追踪报道，题目“中共国营媒体为广告活动向美国报纸支付了数百万美元”，副标题指出，“与此同时，媒体在将武汉中共病毒实验室泄漏理论斥为阴谋论后，开始认真对待”。
 
-耶顿博士在4月的视频中讲到，”我相信这些疫苗是被用来损害你的健康，并可能导致死亡。除了认真尝试大规模人口灭绝外，我看不到任何合理的解释。这些疫苗是提供做这件事的工具和合理的推诿，因为他们制造一个关于某种生物威胁的故事，让你排队接种疫苗，几个月后，或一两年，你可能会出现可以解释的综合病症，但无法将其与接种疫苗联系起来。”
+全文如下：
 
-耶顿博士继续告诉观众，”政府告诉你们关于这种病毒的一切都是谎言，目的是极权主义控制”。请不要被谎言，抵制这些实验性后患无穷的疫苗，并告知身边的人，不要成为极权主义控制者的牺牲品。
+据报道，几家美国报纸在过去6个月里从中国共产党控制的一家通讯社收到了数百万美元。
 
-***参考链接：***
+据美国《华盛顿自由灯塔报》（the Washington Free Beacon）首次报道的美国司法部披露（的消息），《中国日报》（China Daily）向《洛杉矶时报》（the Los Angeles Times）、《金融时报》（Financial Times）、《时代周刊》（TIME Magazine）和《外交政策杂志》（Foreign Policy Magazine）支付了160多万美元，用于开展广告活动。
 
-[Former Pfizer VP Tells RFK, Jr.: Young, Healthy People Shouldn’t Be Coerced Into Taking ‘Experimental’ Vaccines](https://childrenshealthdefense.org/defender/dr-mike-yeadon-rfk-jr-the-defender-podcast-safety-mrna-vaccine-technology/)
+160万美元的明细如下：《时代周刊》70万美元，《洛杉矶时报》27.2万美元，《外交政策杂志》29.1万美元，《金融时报》37.1577万美元，它还向包括《波士顿环球报》（the Boston Globe）、《西雅图时报》（Seattle Times）、《洛杉矶时报》和《芝加哥论坛报》（Chicago Tribune）在内的主要报纸支付了100多万美元的印刷费，
 
-[Did Michael Yeadon Say COVID-19 Vaccine Will Kill Recipients Within 2 Years?](https://www.snopes.com/fact-check/michael-yeadon-vaccine-death/)
+这并不是美国新闻出版物第一次接受来自中国共产党所属组织的资金，《纽约时报》和《华盛顿邮报》等主要报纸结束了与《中国日报》的关系，此前批评人士抱怨它们刊登的是中共国的官方宣传。
 
-* * *
+《中国日报》经常付钱给美国出版物，让它们刊登标题为“中共国观察”的插页，这些插页把中共国政府和中共国描绘成一种正面的形象，伪装成正常的报纸报道。
 
-*编辑、发稿 文锦*
+美国主要新闻出版物和中共支持的组织之间的财务关系浮现之际，许多主流记者承认，中共病毒起源于武汉一个实验室的理论是可信的，此前数月，他们将中共病毒来自中共实验室之说贴上了“阴谋论”的标签。
 
-0
+当川普总统及其政府暗示这一理论可信时，许多记者认为这一说法是政治性的，也是川普总统指责中共国政府的方式。现在，记者们承认，虽然川普政府可能被证明是正确的，但川普（当时）对记者的怀疑和迫切反驳这一理论（显得）不耐烦也有责任。
+
+（原文完）
+
+这是对邪共手段的认知，中共大外宣出资金，让无良知媒体替中共发声，替中共掩盖，为中共宣传，出卖自己的信誉。期待美国人民进一步提升认知水平，中共对美国主流媒体、科学界、政界等有全方位的渗透，利用的就是人性恶的一面。美国人民觉醒的那一天，就是中共死期到来那一日！
+
+原文链接：
+
+[https://www.foxnews.com/media/chinese-state-run-media-paid-newspapers-millions](https://www.foxnews.com/media/chinese-state-run-media-paid-newspapers-millions)
+
++1
