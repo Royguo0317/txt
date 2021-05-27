@@ -1,47 +1,88 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生5月27日直播精要文字版
-` 喜联盟七哥直播组` [轉載自GNews](https://gnews.org/zh-hans/1275946/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（三十）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1275945/)
 
-听写战友：
-纽约香草山农场 369文驹
-纽约香草山农场 Karen（海啸）
-纽约香草山农场 Dolores
-首尔喜韩农场 郭先生家的Snow
-罗马达芬奇农场 Shuizhuyu
+作者：纽约香草山信息部 6zero4
 
-整合/封面/发布：
-纽约香草山农场 369文驹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27101947/527-2.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
 
-1、直播前收到了唐平的喜马拉雅之歌，新中国联邦的国歌重新改版，这是新中国联邦给世界的献礼。GFshion昨天新到的衣服是全世界的极品，我要亲自做模特。我希望每个人的青年、中年、老年每个阶段都能活得精彩。
+5月25日塞林博士的2连推：
 
-2、武汉火葬场的战友所过去最贵的紫檀木骨灰盒35万，曾有过200万一个，现在有镶钻和纯金的骨灰盒，简直太荒唐。有一个中国人从日本回来，为母亲送终领了几个亿的资产，花几百万买了一个骨灰盒扭头就走了。烧人的炉子热到自动停，烧人烧不完，后来发明了冻化尸体，解决了这个问题。一个国家教育发展不起来，殡葬业发展起来了。据调查，中共国百分之八十几认为病毒是美国制造出来的。14亿的中国人，居然被这几个人忽悠，这是多么的荒唐。
-
-3、现在习一坑被杨娘娘完全忽悠住了，完全误判世界形势。他不知道沙特正在变革中，希望中东这几个全天候战略伙伴国家被骗以后能醒过来，但不希望他们反华，亲华而不要亲共，现在要亲华还要灭共。法国人的懦弱品味和对人民的榨取，是非常不相称。一个砍了皇帝头的地方，是自由诞生的地方。法兰西这个地方有些地方太牛了，有些地方太烂了。英国也将面临巨大变革，香港事情上让英国人打消了幻想，马六甲海峡最重要的是印巴，就到中东了，就到了伊朗阿联酋，然后叙利亚沙特。但是还有一个红海，吉布提和安哥拉。安哥拉彻底被中共控制。到霍尔木兹海峡，包括以反恐名义的巡逻，包括秘密生化武器实验室，一带一路开展的人民币国际化，货币互换。这些一带一路的国家直到澳大利亚、欧洲、东欧，就像硫酸一样，把它们的民主法治系统腐蚀掉。这些带来的高额贷款，政治病毒金融病毒，都是好了小部分人，出卖了大部分人的利益。
-
-4、这件事情接近成功的时候，出了新中国联邦，但世界也付出了巨大代价，冠状病毒、香港、货币稳定。贸易全球化是非常伟大的，但是由于沼泽地和各国势力的利益，把这个协议变成了贸易全球中国化。贸易全球中国化，把14亿人变成了14亿奴隶，一家多套房、多台车、吃着化学食品、背着贷款，当上了现代化的奴隶。这个时候膨胀了中共的野心，人民币国际化，挑起种族矛盾，希望干掉美国，统治世界，重新制定世界规则。中共还打破了往联合国派间谍，腐败联合国官员的禁区，WHO和世界人权组织就是最好的例子，联合国已经失去原有的意义。
-
-5、任何一个文明法治的世界，应该给人民安全、法制、健康的环境。但中共加入世贸之后，世界丧失了正义公平，中共吞噬了世界。新疆、香港系列大屠杀事件，中共的冠状病毒。全球媒体、科学家、政治家几乎没有人跟正义站在一起。今天的全世界全人类，每个人都在杀掉每个为你披荆斩棘和抱薪取暖的人，就是我们新中国联邦。人类总有一天会回看我们做了什么。
-
-6、七哥救出了很多战友，七哥感到莫大荣幸，感恩上天。今早某国领袖发来短信意识到自己的错误，最大的错误就是没见闫博士，最大的错误就是没有坚持和中共脱钩。过去48小时太重要了，没有我们战友去欧洲作证，福奇不会改口，他认为我们没有证据。闫博士是最好的证人，很多钱、秘密、合作是通过香港实验室给到中共的。闫博士站出来是天意，连她自己都没意识到。闫博士的老板、老公和所在的实验室，是这件事情的核心。
-
-7、中共高官没有一个打疫苗的，美国现任高官不会有人打疫苗，推广羟氯奎加锌是个好办法。这个病不是不可治愈的，一个是中共交出解药，一个是中共交出实验数据。过去48小时，福奇被吓坏之后，拜登总统做出了调查的决定。全世界终于明白，这是个超限生化武器。从现在之后，印度、台湾、澳大利亚、新西兰、欧洲、美国、加拿大都可能大爆发。超限战生化战，远远没有开始。当定义为超限生化武器，所有欧洲国家都会和中共脱钩，中共的企业和钱都会收缴。之后中共内部发生内乱，中共发生改革；也可能全球联合，把中共关键的人定点灭掉。这两件事都会发生，只是时间问题，新中国联邦将会和西方有千年协议。
-
-8、G系列战友和投资人是主人，我们在6月3日以后，全力以赴传播冠状病毒真相，发掘人才，争取2022年G系列专业化，金融全球化，然后推动以毒灭共尽早大白于天下。新联邦第一重要的是发现人才，然后才是发展金融、媒体等实力。接下来要发展躺平币，和另一种币。传统银行，一定要全球化。喜美元的账号的钱，必须来自于自己账户的钱。新中国联邦不建立在为真不破、守法和服务战友上，百分之百灭亡。战友也必须遵守法律和真实，战友需要的只是耐心和相信。
-
-9、任何来新联邦投机的人，你不可能有长远的未来，也永远不能成为战友。Gfashion不论发生什么事情，一定是世界最好的品牌。6月3日将非常精彩，有新歌有新视频，G系列和一年前天地之差，这是新联邦人行动的结果。64过去几十年了，躺在战友的鲜血死亡和家人的痛苦上，能募捐几十年的民运人士，这是魔鬼的行为。64是政治斗争的牺牲品，被国际西方民主国家彻底抛弃。民主法治只有中国人自己才能建立起来。清风看守所的战友的话，时刻在我耳边，这些才是为中国人奋斗的。在64上投机取巧的，一定会被天地审判。
-
-10、史蒂芬温当时要遣返郭文贵，现在全完了，当初是由孟建柱接见的，他纽约的六套豪宅，五套在售。班农的总统豁免昨天刚刚通过，险些不能通过。熊宪民持枪威胁战友案推迟，因为已将其确定为刑事案，博讯完了。多个司法调查正在进行中，吴征为他们支付律师费以及对我们家人的抓捕和资产查封，这事儿大了去了！过去48小时对爆料革命的以毒灭共非常关键，希望更多的战友参与进来，是千载难逢的好机会。法治基金目的不在于捐款，而是让战友参与到国际政治的平台。参加新中国联邦周年庆活动对你未来意义重大，让你拥有光荣的一生。
-
-11、所有体制内的战友一切以安全为主，目前的战场在国际，以后一定在国内，不要相信任何人，不要告诉任何人你真实的想法，我们有很多的战友，你们不孤独！战友被救时，遇到海关的战友帮助后放行。墙内战友你不孤独，一切以你安全为主，躺平都要注意安全，我们的战友无处不在。
+第1推，有人更改抑或黑客了美国NIH出版物数据库，给彼得·打杂客的生态健康联盟加上了一篇疑似描述“COVID-19病毒来自实验室”的文章。并贴上这个事情发生的网页截图。
 
 
 
+> Someone has altered, maybe hacked, the U.S. National Institutes of Health publications results database for Peter Daszak of the EcoHealth Alliance to include an article saying [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) was made in the laboratory. [pic.twitter.com/iC9QW7k5j4](https://t.co/iC9QW7k5j4)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397051524174553089?ref_src=twsrc%5Etfw)
 
+
+
+第2推，附上塞林博士自己昨天接受Rumble媒体深度采访的视频，讨论COVID-19病毒起源，以及CCP的生物战计划和CCP-PLA对美国病毒研究计划的广泛渗透。
+
+
+
+> A new in-depth interview of Dr. Lawrence Sellin discussing the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw), the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s biological warfare program and the CCP's and People's Liberation Army's massive infiltration of U.S. virus research programs.
+>  [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaPandemic](https://twitter.com/hashtag/CoronaPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wSsDlwnqup](https://t.co/wSsDlwnqup)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397111084696449028?ref_src=twsrc%5Etfw)
+
+
+
+5月26日塞林博士的3连推：
+
+第1推，转发Joe Hoft 昨天发表在Gateway Pundit上的一篇文章“武汉大学动物实验室是不是COVID-19疫情的源头？”证据显示COVID-19疫情是从武汉大学P3动物实验室开始的，其到底是PLA此举的肇事者还是替罪羊呢？并致谢COVID-19侦探ann和加拿大多伦多枫叶农场。
+
+
+
+> Evidence says [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic may have started in the Wuhan University’s ABSL-3 animal laboratory. But is it the perpetrator or the scapegoat for a Chinese People's Liberation Army operation?
+> (COVID-19 detectives [@ann95657173](https://twitter.com/ann95657173?ref_src=twsrc%5Etfw) & [@TorontoFarmEN](https://twitter.com/TorontoFarmEN?ref_src=twsrc%5Etfw) thanked)[https://t.co/tkxc8eMykf](https://t.co/tkxc8eMykf)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397170798947979274?ref_src=twsrc%5Etfw)
+
+
+
+第2推，转发印度主流新闻媒体GoaChronicle 总编Savio Rodrigues2天前采访塞林博士后，发表的一篇文章“与塞林博士一起揭开冠状病毒起源之谜”，讲述COVID-19起源和中共生物战计划，以及独特的印度病毒变种问题。
+
+
+
+> A major Indian outlet, the Goa Chronicle, interviews Dr. Lawrence Sellin about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw), China's biological warfare program and the unique aspects of the Indian variant.[https://t.co/eJ6h03SRnD](https://t.co/eJ6h03SRnD)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397248172410511362?ref_src=twsrc%5Etfw)
+
+
+
+第3推，转发“战戈鹰Tuan“战友的中文推：来自中共内部的信息（尚在验证中），即南京的PLA东部战区发现COVID-19病毒骨架ZC45和ZXC21，以及COVID-19在2019年初被给到WIV，由单超带队在灵长类动物身上进行实验，并附上塞林博士2天前接受Rumble媒体采访谈到此点时的视频。第一步，证明COVID-19来自实验室，我们做到了；第二与第三步，证明CCP病毒是CCP生物战计划的一部分，以及CCP-PLA已经深度渗透到美国病毒研究计划，并将这两种情况都揭露出来，我们正在做。
+
+
+
+> Step 1. Prove that [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) came from a laboratory. We did. 
+> Steps 2 and 3. Prove that this [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) is part of the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s biowarfare program and that the CCP and the People's Liberation Army have deeply infiltrated U.S. virus research programs and expose them both. 
+> We will. [https://t.co/v9Jxi91sHc](https://t.co/v9Jxi91sHc)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 27, 2021](https://twitter.com/LawrenceSellin/status/1397747063463501830?ref_src=twsrc%5Etfw)
+
+
+
+美国NIH出版物数据库里发上了一件离奇的事情，不知道是有人更改抑或被黑客了，让彼得·打杂客的生态健康联盟旗下加上了一篇疑似描述“COVID-19病毒来自实验室”的文章。打杂客可是和CCP科学家打得最火热、勾结得最深层的美国科学家，可谓是美国科学家里面对CCP的病毒自然起源最坚决、最铁杆的支持者，其生态健康联盟更是美国科研经费拨往中共国武毒所等科研机构的桥头堡。在美国主流媒体纷纷转向，美国科学界重量级人物福奇和柯林斯等接连反水的情势下，打杂客肯定如坐针毯，内心无比煎熬，一世英名如坠深渊不说，求生欲望才是其当下最紧要的事情，因此自己更改数据库加上这篇文章的可能性更大，也更合乎逻辑，要么谁吃饱了撑着去黑客数据库，以帮你臭名昭著的打杂客解围？
+
+塞林博士衷心地感谢推特上跟随自己挖掘CCP病毒真相线索和证据的新中国联邦战友们，赞扬他们在短短几个月里所做的事情比美国整个情报界一年做的还要多还要好，并阶段性地总结了COVID-19病毒溯源的结论：第一步，证明COVID-19来自实验室，我们已经做到了；第二与第三步，证明CCP病毒是CCP生物战计划的一部分，以及CCP-PLA已经深度渗透到美国病毒研究计划，并将这两种情况都揭露出来，我们正在做。可见病毒真相揭秘收网进度可喜！
+
+塞林博士带领COVID-19侦探们，亦即新中国联邦战友们取得的阶段性成果，有目共睹，举世震惊，让专业的美国情报界面子上挂不住了，拜登总统更是如鲠在咽，再也沉不住气了，因此昨天立即下令美国情报界18个官方情报机构在90天内，必须拿出阐明病毒起源真相的报告，为查明病毒真相立下了军令状，为疫情的控制乃至终结瞄准了方向，那就是CCP！
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
