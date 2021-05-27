@@ -1,15 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界210526
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1275786/)
+## 印度变异毒株蔓延英国 解禁将后延
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1275851/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+#### 撰稿：yyshere
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27093136/%E5%8D%B0%E5%BA%A6.jpg)图片来源：新浪
+英国政府当地时间5月27号表示，首先在印度发现的Covid-19（CCP病毒）病毒变异毒株B.1.617.2在英国的扩散，可能会推迟其下个月解禁防疫限制的计划。根据卫生大臣汉考克的讲话，目前这种变异毒株正在整个英国蔓延。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27065944/01-34.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27070437/02-66.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27071311/03-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27071435/04-30.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27071614/05-36.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073138/06-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073236/07-19.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073357/08-29.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073442/09-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073816/10-76.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27074643/11-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27074740/12-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27075107/13-79.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27080023/14-45.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27080916/15-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27080954/16-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082245/17-25.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082333/18-16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082411/19-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082501/20-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082606/21-22.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082704/22-20.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082745/23-13.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082819/24-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082850/25-9.jpg)
-发稿：神奇四侠
+对此，首相约翰逊表示，虽然防疫管控和封禁措施给民众的身心健康和社会各个方面都带来压力，但”我们可能需要等待”，也许要在超过原定计划的6月21日解禁日后的日期才能做决定。也必须根据变异毒株引发的感染病例的增加速度，和疫苗接种的情况，才能做出相应的解禁安排。
 
-以上图片均来自网络，与GNEWS无关
+科学家已经指出，新的印度变异毒株比英国以前的主要变异毒株更具传播性，但目前还不清楚传播的具体严重程度。他们也表示，现有的疫苗“似乎“对这一变异毒株”是有效的“。
+
+此前英国政府一直在分阶段解除防疫限制，上周室内饮食和娱乐场所已经重新开放，但保持社交距离和佩戴口罩的规定仍在强制实施范围。
+
+截至目前，英国有近四分之三的成年人已经接种了一剂CCP病毒疫苗，45%的人已完成接种两剂。而截至26号，英国的近七天单日新增病例平均数为2539例，总病例数已经达到447万例，死亡12.8万例。
+
+消息来源： 英国政府网
+
+（本文系作者个人观点）
 
 0

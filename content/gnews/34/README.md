@@ -1,45 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】贝壳找房被调查，马化腾在劫难逃
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1275876/)
+## 法国病毒学家警告说，每个接种中共病毒疫苗的人都将会死亡
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1275896/)
 
-配音：香草山录音组 信念7
+**作者：**Ethan Huff 2021-05-25
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**翻译：**加拿大温哥华圆成农场 卢卡斯
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27095400/145832638.png)图片来源：Ethan Huff原文
+《自然新闻》据法国著名病毒学家吕克·蒙塔涅尔说，任何接受中共冠状病毒注射的人都没有长期生存的机会。
+
+据报道，在最近的一次采访中，他表示所有接种中共病毒的人都将会死亡，你可以在 Brighteon.com 观看他的访谈。
+
+蒙塔涅尔在节目中明确表示：”那些已经接种疫苗的人没有希望，也不可能得到治疗。”我们必须准备火化尸体。
+
+在详细研究了中共病毒疫苗中所含的成分及其的作用后，蒙塔涅尔得出结论，每个注射的人最终都会死于抗体依赖增强，或ADE。
+
+“这就是所有可以说的，”他补充说。
+
+顺便说一句，蒙塔涅尔被认为是第一个发现艾滋病毒的人，去年春天他警告说，中共病毒含有免疫病毒的人为拼接的DNA。现在看来，这些改变似乎可以在中共病毒”疫苗”中找到，这些”疫苗”正在为人们的身体提供最终的突然死亡。
+
+蒙塔涅尔去年还表示，”中共冠状病毒基因组中艾滋病毒和疟疾细菌的存在是高度可疑的，病毒的特征不可能自然产生。”原来他是对的。
+
+**中共病毒疫苗旨在通过延时死亡”慢慢杀死”群众**
+
+故意释放基因修改过的（GMO）病毒是一回事，但医疗机构在所谓的”中共病毒大流行”中立即注射这种病毒疫苗却完全不同。
+
+在蒙塔涅尔看来，这种做法完全是一个”不可接受的错误”，因为它所能做的就是传播更多的中共病毒的”变种”，杀死更多的人——这似乎一直是计划好的。
+
+顺便说一句，我们有唐纳德·特朗普和他的 “经线速度行动” 计划造成了这场噩梦。虽然他的一些顽固支持者仍然坚持特朗普不应该受到指责，因为他只是被他的内阁”误导”的中共病毒疫苗注射的真正本质，特朗普本人正在积极推动疫苗运动甚至到今天，尽管数以万计的已知伤亡案件。
+
+越来越多的证据表明，中共病毒疫苗注射对许多人来说是一种”缓慢”的杀戮，这意味着它们的有害影响需要一点时间来显现出来。然而，对一些人来说，伤亡将立即到来，正如我们最近在头条新闻中看到的。
+
+所有这些都将解释疯狂急于以”经线速度”给人们接种疫苗，使用任何必要的策略或胁迫策略来达到预期的目标。一旦有足够的接种疫苗的人开始死亡，剩下的未接种疫苗的人将很可能抵抗，这就是为什么拜登政权正在迅速采取行动，让尽可能多的人注射疫苗，最好是在7月4日之前。
+
+“在数据库链接中，从拭子测试中获得DNA的力量与人工智能有关，人工智能将决定一个人死亡的最佳时间，而这种力量是由中风或心脏病发作等’自然’原因造成的”Disclose.tv 的一位评论者写道，这些人不一定接种疫苗，但经过了中共病毒”测试”。
+
+“只有离您家最近的移动塔才会产生一定频率与目标的共鸣。天网不是发送机器人，而是发送频率。
+
+更多有关中共冠状病毒注射导致的死亡和破坏的最新消息可以在ChemicalViolence.com找到。
+
+**评：**中共病毒疫苗是中共及其西方同谋用来大规模消灭全球人口的工具，越来越得到更多世界顶尖病毒学专家的证实。注射中共病毒疫苗就是往自己身体里注入一枚定时生物炸弹，让自己随时面临死亡的威胁。然而世界各国政府仍然在加速推行疫苗接种运动，黑暗势力仍然在操控着政府、医疗权威机构和主流媒体等，大多数民众出于无知，或积极主动或被迫接种疫苗，这真是人类的悲哀。接种疫苗的人群通过接触就可以传播棘突蛋白给那些未接种疫苗的人群，假以时日全人类都将被中共病毒感染。中共病毒没有疫苗，但是中共手里握有解药；人类要想控制中共病毒获得自救，必须加速消灭中共！
+
+##### **原文：**Ethan Huff,“Everyone vaccinated for covid will DIE, warns French virologist”.《Natural News》,May 25, 2021.[https://www.naturalnews.com/2021-05-25-everyone-vaccinated-will-die-within-two-years.html](https://www.naturalnews.com/2021-05-25-everyone-vaccinated-will-die-within-two-years.html)
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：比卡丘
+
+20210527
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+#  
 
 
-
-
-
-
-
-[路透社](https://www.reuters.com/world/china/exclusive-china-launches-antitrust-probe-into-tencent-backed-property-broker-ke-2021-05-25/)报道称，据消息人士透露，中共市场监督管理总局（State Administration for Market Regulation，简称SAMR）最近正在对房屋中介公司贝壳找房的“二选一”垄断行为进行调查。贝壳公司股票因此一度下跌近10%。
-
-贝壳找房（KE Holdings，BEKE）成立于2001年，总部位于北京，是中共国最大的线上线下房产交易和服务平台，同时也是地产经纪品牌链家的运营商。腾讯是贝壳找房的大股东。
-
-
-
-**文字版原文：[【热点播报】贝壳找房被调查，马化腾在劫难逃](https://gnews.org/zh-hans/1273643/)**
-
-作者：纽约香草山信息部 雪梨
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

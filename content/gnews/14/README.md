@@ -1,51 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】拜登总统关于新冠病毒起源调查的声明！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1275955/)
+## 【热点播报】泽连科博士称儿童疫苗授权为“强制性的人类实验，危害人类罪”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1276101/)
 
-作者：纽约香草山信息部 6zero4
+作者：香草山福音部 繁星
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27112835/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%8B%9C%E7%99%BB%E6%80%BB%E7%BB%9F%E5%85%B3%E4%BA%8E%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E8%B5%B7%E6%BA%90%E8%B0%83%E6%9F%A5%E7%9A%84%E5%A3%B0%E6%98%8E%EF%BC%81.png)图片来源：Getty Images
-
-5月26日，白宫网站发出拜登总统关于新冠病毒起源调查的[声明](https://www.whitehouse.gov/briefing-room/statements-releases/2021/05/26/statement-by-president-joe-biden-on-the-investigation-into-the-origins-of-covid-19/)，全文翻译如下：
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
-> **早在2020年初COVID-19疫情出现时，我就呼吁CDC访问中（共）国，了解病毒情况，以便我们能更有效地抗击疫情。我们的调查员在最初的几个月里未能到位，已深远地妨碍了对任何COVID-19起源的调查。**
-> 
-> **室事故。我在本月早些时候收到了这份报告，并要求进一步跟进。截至今天，美国情报界已经“综合了这两种情况”，但尚未就这个问题得出最终结论。这是他们当前的情景：“虽然情报界中的两个机构倾向于前一种情况，还有一个机构更倾向于后一种情况，但都只有较低或中度置信区间，多数情况下都互不相信有足够的信息来评估一个比另一个更有可能”。**
-> 
-> **我现在已经要求情报部门加倍努力，收集和分析可使我们更接近最终结论的信息，并在90天内向我报告。作为报告的一部分，我已经咨询了可能需要进一步调查的领域，包括向中国提出的具体问题。我还要求我们的国家实验室和我们政府的其他机构加入到这项工作，以加强情报界的努力。我已经要求情报界让国会充分了解他们的工作。**
-> 
-> **美国仍将继续与世界各地志同道合的盟友合作，敦促中（共）国参与全面、透明、以证据为基础的国际调查，并提供所有相关的数据和证据。**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27115715/%E5%9B%BE%E7%89%873-10-scaled.jpg)
+
+Zelenko协议的发起者Vladimir Zev Zelenko医学博士今天称强制执行儿童疫苗注射是“强制性的人类实验”，呼吁对负责此类政策的人进行“危害人类罪”审判。
+
+泽连科对美国前线医生说：“根据疾病预防控制中心（CDC）的决定，年龄在18岁或18岁以下的健康孩子无需任何治疗即可从COVID-19中恢复，恢复比例为99.998％。”  “从医学角度上来说任何疫苗都没有必要。特别是，未经实验证明的mRNA注射疫苗已显示出许多危险的副作用。”
+
+他继续说：“任何强迫或要求儿童进行这种实验性注射的政府或个人，都直接违反了日内瓦公约对强迫性人体实验的禁止。
+
+“这些人是最高级别的罪犯，必须将他们以危害人类罪绳之以法。”
+
+泽连科博士指责以色列国政府“对自己的公民施压，迫使他们进行人体试验”，敦促停止此类活动。
+
+他说：“以色列政府对自己的公民施压，迫使他们进行人体试验。”  “绿色护照是歧视性工具，给无辜的人造成过大的心理压力。
+
+“知情同意被忽视，没有考虑医学上的必要性。因此，年轻健康的人以及已经有了抗体的人仍被迫进行不需要的实验性医学干预。”
+
+他继续说：“以色列政府，停止向您无辜而又不同意的公民的身体发射微型导弹。
+
+“在使用未经批准的新技术之前，请谨慎行事，停止人体实验，并收集更多有关安全性和功效方面的数据。”
+
+Zelenko博士因其在治疗冠状病毒大流行中的巨大贡献而被提名为诺贝尔和平奖的一群医生当中的一位。
+
+他在用羟氯喹和锌治疗COVID-19病人方面举世瞩目，发现使用这两种物质使死亡率降低了8倍。 他说，在头5天内用羟氯喹和锌治疗可将死亡率降低85％。
+
+参考阅读：
+
+https://www.americasfrontlinedoctors.org/frontline-news/dr-zelenko-calls-child-vaccine-mandate-coercive-human-experimentation-crimes-against-humanity
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
 
 
-据[大纪元报道](https://www.epochtimes.com/gb/21/5/26/n12977734.htm/amp?__twitter_impression=true)，截至当天下午5点截稿时，中共驻华盛顿大使馆和美国国家情报总监办公室，都还没有立即回应媒体的评论请求。
-
-COVID-19病毒肆虐全球一年半以来，已经造成近2亿人感染，近350万人死亡的史无前例的全球性灾难，在科技如此发达的现代文明社会，竟然连疫情的起因和病毒的起源都还找不着北，实在是对于人类文明的无情讽刺和戏弄。最初将病毒实验室泄漏假设斥为阴谋论的美国主流媒体，近期迅速转向，承认病毒可能从武汉病毒实验室泄漏可能性。作为地球文明的灯塔国，作为人类文明的引领者，美国不能再坐视不管，不能再眼睁睁看着CCP用COVID-19病毒将地球和人类推向无尽的深渊和黑暗。拜登总统下令情报界90天内拿出明确病毒起源的报告！
-
-美国情报界官方由国家情报总监(DNI)领导，下辖18个横跨军界和政界的情报机构，民间情报机构就更不计其数了，包括各个国防承包商、商会、协会等各种民间组织机构。这股力量实在太大了，就单单塞林博士在推特上号召的民间侦探们挖出的病毒情报和证据就足以形成一个完整的证据链了。美国政府在面对国家安全甚至人类命运的关键时刻，通常很难拿到恐怖分子和敌对国家主动提供的数据和证据，因此情报就成为最后采取军事行动的唯一依据，如伊拉克战争、利比亚战争等。
-
-拜登总统下令情报界90天内拿出明确病毒起源的报告，无疑是对中共的最后通牒，在这最后的90天内，在病毒起源问题上，中共会给国际社会一个完全透明、全面而独立的调查吗？会给全人类一个客观而完善的交代吗？这无异于与虎谋皮。拜登总统的声明看似破釜沉舟势在必得，但是国际社会已经给中共太多时间了，正如闫博士一针见血、直指核心的那句话：只有灭掉共产党才会找到病毒真相！
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-+1
+0

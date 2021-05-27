@@ -1,88 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（三十）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1275945/)
+## 喀秋莎新闻参考 &#8211; 2021年5月26日(星期三)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1275993/)
 
-作者：纽约香草山信息部 6zero4
+俄罗斯莫斯科喀秋莎农场 土星
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17032833/%E5%B0%81%E9%9D%A2K-1-400x225-1.jpeg)
+**一、新中国联邦新闻**
 
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=U7TrCa2V0Kw)、[晚间](https://www.youtube.com/watch?v=U-YkF8M5p2I)1、[晚间2](https://www.youtube.com/watch?v=n_2fBP50PXc)）:
 
+Sellin上校接受班农先生采访时表示，中共病毒不仅来自实验室，还是中共生物战计划的一部分，他很感谢向他提供线索的反共的中共国年轻人，他们一周所作的工作比美国军情部门一年做的还多。
 
-5月25日塞林博士的2连推：
+2. 美国总统乔·拜登命令助手们寻找导致中共病毒来源的答案，他在5月26日表示，美国情报机构正在追寻可能包括中共国实验室事故的可能性在内的对立理论。
 
-第1推，有人更改抑或黑客了美国NIH出版物数据库，给彼得·打杂客的生态健康联盟加上了一篇疑似描述“COVID-19病毒来自实验室”的文章。并贴上这个事情发生的网页截图。
+3. 据CNN 5月25日报道，美国总统拜登今年春天关闭了国务院对中共病毒来源的调查，该调查是由川普政府的国务卿迈克·蓬佩奥领导下于去年秋天发起的。
 
+4. 在5月26日播出的CNN节目的部分采访中，众议院外交事务委员会排名委员迈克尔·麦考尔指责包括耐克在内的一些美国公司是对中共国维吾尔人进行种族灭绝的 “同谋”。
 
+5. 据英国广播公司（BBC）5月26日报道，中共当局在新疆的警察局安装了摄像系统，据称该系统使用人工智能（AI）和面部识别软件来检测人们的情绪状态。
 
-> Someone has altered, maybe hacked, the U.S. National Institutes of Health publications results database for Peter Daszak of the EcoHealth Alliance to include an article saying [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) was made in the laboratory. [pic.twitter.com/iC9QW7k5j4](https://t.co/iC9QW7k5j4)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397051524174553089?ref_src=twsrc%5Etfw)
+6. 在5月26日参加福克斯节目时，参议员汤姆·科顿对演员和WWE超级明星约翰·塞纳在宣传其即将上映的电影 “速度与激情9 ”时用普通话道歉一事进行了评述。科顿表示，塞纳的道歉表明 “好莱坞深陷中共国的钱袋中”。他补充说，中共的影响 “在社会上几乎无处不在”。
 
+7. 参谋长联席会议主席米利警告，与中共国和俄罗斯的竞争可能导致 “大国冲突”。
 
+8. 福奇对议员表示，他信任武汉病毒研究所的中共科学家，不相信他们试图修改病毒以使其更具传染性，但对资助的具体用途没有具体的管控手段。
 
-第2推，附上塞林博士自己昨天接受Rumble媒体深度采访的视频，讨论COVID-19病毒起源，以及CCP的生物战计划和CCP-PLA对美国病毒研究计划的广泛渗透。
+9. 南卡罗来纳州参议员林赛·格雷厄姆告诉 “美国报道”，他打算对中共国提出新的制裁，因为中共没有就病毒的来源与国际社会进行 “充分 ”合作。
 
+10. 众议院国土安全委员会的共和党人要求国家情报局局长艾薇儿·海因斯向他们提供与调查中共病毒起源有关的 “所有情报”，特别是与武汉病毒研究所有关的内容。
 
+11. 参议院5月26日通过了参议员兰德·保罗的修正案，如果该修正案成为法律，将禁止美国政府资助中共国的病毒功能增强研究。
 
-> A new in-depth interview of Dr. Lawrence Sellin discussing the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw), the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s biological warfare program and the CCP's and People's Liberation Army's massive infiltration of U.S. virus research programs.
->  [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaPandemic](https://twitter.com/hashtag/CoronaPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wSsDlwnqup](https://t.co/wSsDlwnqup)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397111084696449028?ref_src=twsrc%5Etfw)
+12. 美国贸易代表戴琪5月26日表示，美国在与中共国的贸易和经济关系中仍然面临“非常大的挑战”，需要拜登政府全面关注。
 
+13. 美国参议员5月26日提出立法，要求对中共国给美国大学的主要礼物和合同进行国家安全审查，并且他们希望将这种审查仅仅局限于中共国，以缓解学术界对审查外国资金可能威胁研究的担忧。
 
+14. 白宫5月26日回避了一个问题，即如果中共撒谎或拒绝与总统乔·拜登最近宣布的对中共病毒起源的调查合作，中共将面临可能的惩罚。虽然银行的类衍生产品在设计和风险控制方面存在缺陷，但分析人士表示，对整个行业进行严厉的清理意味着中共国开放市场的计划将遭遇重大挫折。
 
-5月26日塞林博士的3连推：
+15. 中共国银行业监管机构已要求贷款人停止向普通买家销售与商品期货相关的投资产品，以遏制商品价格波动带来的投资损失。
 
-第1推，转发Joe Hoft 昨天发表在Gateway Pundit上的一篇文章“武汉大学动物实验室是不是COVID-19疫情的源头？”证据显示COVID-19疫情是从武汉大学P3动物实验室开始的，其到底是PLA此举的肇事者还是替罪羊呢？并致谢COVID-19侦探ann和加拿大多伦多枫叶农场。
+16. 英国贸易大臣利兹·特拉斯警告说，英国决不能 “依赖”与中共的贸易，同时表示西方国家过去对北京有争议的贸易行为 “视而不见”。特拉斯在5月26日接受媒体采访时表示，中共国曾经犯过“强迫技术转让、侵犯知识产权或不公平地进行工业补贴”，现在需要世界贸易组织改革，使其 “规则更加严厉”，恢复对自由贸易的信心。
 
+17. 据美国摄像系统行业网站IPVM称，尽管国防法案发出了警告，但仍有300多个美国政府组织继续从海康威视和大华购买热成像和视频技术。
 
+18. 5月中旬，中共国在肯尼亚投资3500万美元，建造一座新的外交部大楼。这是中共给予非洲国家的一系列投资和赠款中的最新一笔，这使得该政权能够扩大其在非洲大陆的政治和经济影响。
 
-> Evidence says [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic may have started in the Wuhan University’s ABSL-3 animal laboratory. But is it the perpetrator or the scapegoat for a Chinese People's Liberation Army operation?
-> (COVID-19 detectives [@ann95657173](https://twitter.com/ann95657173?ref_src=twsrc%5Etfw) & [@TorontoFarmEN](https://twitter.com/TorontoFarmEN?ref_src=twsrc%5Etfw) thanked)[https://t.co/tkxc8eMykf](https://t.co/tkxc8eMykf)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397170798947979274?ref_src=twsrc%5Etfw)
+19. 美国总统拜登的印太政策协调员5月26日表示，美国正寻求在秋季召开其合作伙伴四国集团会议，重点讨论面对中共国基础设施的挑战。
 
+**二、世界新闻**
 
+1. 日本首相菅义伟5月27日与欧盟委员会主席乌苏拉·冯德莱恩和欧盟理事会主席查尔斯·米歇尔举行了视频会议，并在随后发表的声明中表示，领导人仍然 “严重关切东海和南海的局势”。此举表明他们对中共国在地区事务中的强硬推动表示关切。
 
-第2推，转发印度主流新闻媒体GoaChronicle 总编Savio Rodrigues2天前采访塞林博士后，发表的一篇文章“与塞林博士一起揭开冠状病毒起源之谜”，讲述COVID-19起源和中共生物战计划，以及独特的印度病毒变种问题。
-
-
-
-> A major Indian outlet, the Goa Chronicle, interviews Dr. Lawrence Sellin about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw), China's biological warfare program and the unique aspects of the Indian variant.[https://t.co/eJ6h03SRnD](https://t.co/eJ6h03SRnD)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397248172410511362?ref_src=twsrc%5Etfw)
-
-
-
-第3推，转发“战戈鹰Tuan“战友的中文推：来自中共内部的信息（尚在验证中），即南京的PLA东部战区发现COVID-19病毒骨架ZC45和ZXC21，以及COVID-19在2019年初被给到WIV，由单超带队在灵长类动物身上进行实验，并附上塞林博士2天前接受Rumble媒体采访谈到此点时的视频。第一步，证明COVID-19来自实验室，我们做到了；第二与第三步，证明CCP病毒是CCP生物战计划的一部分，以及CCP-PLA已经深度渗透到美国病毒研究计划，并将这两种情况都揭露出来，我们正在做。
-
-
-
-> Step 1. Prove that [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) came from a laboratory. We did. 
-> Steps 2 and 3. Prove that this [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) is part of the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s biowarfare program and that the CCP and the People's Liberation Army have deeply infiltrated U.S. virus research programs and expose them both. 
-> We will. [https://t.co/v9Jxi91sHc](https://t.co/v9Jxi91sHc)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 27, 2021](https://twitter.com/LawrenceSellin/status/1397747063463501830?ref_src=twsrc%5Etfw)
-
-
-
-美国NIH出版物数据库里发上了一件离奇的事情，不知道是有人更改抑或被黑客了，让彼得·打杂客的生态健康联盟旗下加上了一篇疑似描述“COVID-19病毒来自实验室”的文章。打杂客可是和CCP科学家打得最火热、勾结得最深层的美国科学家，可谓是美国科学家里面对CCP的病毒自然起源最坚决、最铁杆的支持者，其生态健康联盟更是美国科研经费拨往中共国武毒所等科研机构的桥头堡。在美国主流媒体纷纷转向，美国科学界重量级人物福奇和柯林斯等接连反水的情势下，打杂客肯定如坐针毯，内心无比煎熬，一世英名如坠深渊不说，求生欲望才是其当下最紧要的事情，因此自己更改数据库加上这篇文章的可能性更大，也更合乎逻辑，要么谁吃饱了撑着去黑客数据库，以帮你臭名昭著的打杂客解围？
-
-塞林博士衷心地感谢推特上跟随自己挖掘CCP病毒真相线索和证据的新中国联邦战友们，赞扬他们在短短几个月里所做的事情比美国整个情报界一年做的还要多还要好，并阶段性地总结了COVID-19病毒溯源的结论：第一步，证明COVID-19来自实验室，我们已经做到了；第二与第三步，证明CCP病毒是CCP生物战计划的一部分，以及CCP-PLA已经深度渗透到美国病毒研究计划，并将这两种情况都揭露出来，我们正在做。可见病毒真相揭秘收网进度可喜！
-
-塞林博士带领COVID-19侦探们，亦即新中国联邦战友们取得的阶段性成果，有目共睹，举世震惊，让专业的美国情报界面子上挂不住了，拜登总统更是如鲠在咽，再也沉不住气了，因此昨天立即下令美国情报界18个官方情报机构在90天内，必须拿出阐明病毒起源真相的报告，为查明病毒真相立下了军令状，为疫情的控制乃至终结瞄准了方向，那就是CCP！
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+2. 美国级两栖攻击舰美国号于5月22日与日本海上自卫队拖田级补给舰JS Hamana（AOE 424）进行了双边海上补给（RAS）。对于海军唯一一艘前沿部署的两栖攻击舰来说，像这样的行动突出了合作伙伴和盟友之间共享的海上能力，同时加强了后勤协调和互操作性。
 
 0
