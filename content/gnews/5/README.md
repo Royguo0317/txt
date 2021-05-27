@@ -1,25 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家：福奇与武汉实验室功能增强顾问小组的头条新闻
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1276268/)
+## 塔克•卡尔森炮轰福奇、世卫组织、以及媒体对中共病毒实验室泄露事实说谎
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1276277/)
 
-翻译: 飞利普 | 校对: 烟波浩淼 | 审核：断播
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27142744/%E5%8A%9F%E8%83%BD%E5%A2%9E%E5%BC%BA%E9%A1%BE%E9%97%AE%E5%B0%8F%E7%BB%84.jpg)视频会议
-#### 《国家脉动》独家披露，安东尼·福奇（Anthony Fauci）博士否认了他所在的联邦机构与武汉病毒研究所之间的合作，就是他在一次活动上与该研究人员一起发言，该研究人员就“功能增强”研究向备受争议的实验室提供建议。
+翻译: JS709 | 校对: Elsie | 审核：断播
 
-国家过敏和传染病研究所主任与琳达·赛义夫（Linda Saif）教授一起在美国免疫学家协会2021年5月的[活动](https://www.immunology2021.org/session/covid-19-and-the-science-of-pandemicslessons-learned/)“网上免疫学”上发表了讲话。尽管福奇试图将国家过敏和传染病研究所基金与武汉病毒研究所拉开距离，但他与赛义夫的交往增加了[一长串](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)证明并非如此的[证据](https://gnews.org/zh-hans/1257404/)。
+**直言不讳的主持人塔克·卡尔森（Tucker Carlson）周一（2021年5月24日）概述了导致冠状病毒爆发的实验室泄漏的可能性是如何被指导大流行应对措施的人员排斥和掩盖的，并且由于拒绝被禁言的人们的坚持，这种可能性现在才刚刚被严肃考虑。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27140522/Screen-Shot-2021-05-25-at-13.04.31-pm.png)图片来自视频截图
+卡尔森指出: **“几乎每个理智的人此时都承认，中共国政府很可能造成了人类历史上最严重的一次人为灾难。”** 他引用了[一份发布的美国情报文件](https://summit.news/2021/05/24/intelligence-report-reveals-wuhan-lab-workers-got-sick-in-november-2019/)，承认武汉病毒研究所的工人于2019年11月住院。
 
-赛义夫于2017年应邀作为特邀嘉宾在武毒所“[第二届中美新兴感染、实验室安全和全球健康安全挑战研讨会](http://english.whiov.cas.cn/Exchange2016/International_Conferences2017/201712/t20171215_187977.html)”上发表演讲。根据武汉实验室的会议总结，该届主办了五场学术会议，首先是“功能增强研究、基因编辑、靶向和传递以及其他新的生物技术”。
+卡尔森指出，尽管这些泄漏事件在一月份首次被曝光，有关工作人员生病的传闻也已经有一年多了，安东尼·福奇（Anthony Fauci）却声称他对此一无所知。
 
-赛义夫和福奇的小组，对中共病毒和流行病学的经验教训，也遵循了自1985年以来国家过敏和传染病研究所资助赛义夫[研究](https://reporter.nih.gov/search/EuETkToDb0eQ1P30v4UVyQ/projects?fy=1985)的悠久历史。她总共收到了来自国家卫生研究院的56笔拨款，其中43笔来自福奇的国家过敏和传染病研究所。
+卡尔森宣布：“**福奇自己的雇主，即美国政府，公开发布了令人信服的证据，证明了他一生致力与之战斗的病毒并非来自食物，而是从福奇用美国纳税人的美元资助的生物实验室逃出的****”**。
 
-专家组的发现是在参议员兰德·保罗(Rand Paul)和试图将国家过敏和传染病研究所与武汉实验室拉开距离的福奇之间进行激烈[交锋](http://www.christianitydaily.com/articles/11861/20210514/sen-rand-paul-says-fauci-could-be-culpable-for-entire-covid-19-pandemic.htm)之后。
+卡尔森继续道：“但是不知何故，托尼·福奇不知道这事…我们真的可以相信吗？不，当然不，我们不能相信。”他补充说：“在这些中共国研究人员成为全球首批CCP病毒患者的那一刻，泰国政府就联系了疾病预防控制中心（CDC）和托尼·福奇的办公室，说其情报部门已经采集了武汉实验室周围的“生物异常”。换句话说，就是发生了泄漏。”
 
-除了在国家卫生研究院和武汉病毒研究所之间建立工作关系之外，现在该站点上[已删除](https://gnews.org/zh-hans/1257404/)的帖子还详细描述了带有位于武汉的实验室进行的功能增强研究特点的研究。然而，福奇向保罗参议员[坚称](https://www.axios.com/fauci-rand-paul-wuhan-lab-coronavirus-eff1bb08-f6c7-4d63-b170-c49e87c2e3dd.html)：“国家卫生研究院从来没有，现在也没有资助武病毒研究所的功能增强研究”。
+卡尔森继续说：“包括法国和澳大利亚政府在内的其他几个同盟国政府也收集了表明该病毒从一个中共实验室逃脱的证据。然而负责整个工作的托尼·福奇，却对此一无所知吗？别逗了。他当然知道了。”
 
-原文作者：娜塔莉·温特斯(NATALIE WINTERS)
-发布时间：2021年5月25日
-原文链接：[https://thenationalpulse.com/exclusive/fauci-cohosted-panel-with-wuhan-gof-adviser/](https://thenationalpulse.com/exclusive/fauci-cohosted-panel-with-wuhan-gof-adviser/)
+卡尔森强调：“ 福奇从一开始就知道该病毒极有可能来自武汉实验室。很多人都知道这一点。福奇对此撒谎超过一年”。
+
+卡尔森接着解释了在这种情况下，福奇关于疫情和中共政府的公开声明是如何地引人注目。
+
+卡尔森责问到：**“****福奇完全意识到了中共国可能制造了这种病毒，而且他知道中共政府在撒谎，掩盖了一切****痕迹****，并推动世界卫生组织也这样做****”**。
+
+主持人补充说，这里“最令人胆寒的”事实是，在福奇和卫生当局撒谎的同时，“那些少有的对武汉发生的事情讲真话的记者和科学家们因讲真话而受到了惩罚。”
+
+卡尔森强调说：“他们遭到了CNN的攻击，受到了脸书的审查，并被同事们谴责，甚至在某些情况被彻底摧毁了。道歉在哪里？谁来支付这些人的赔偿金？当然没有任何人。”
+
+卡尔森总结时警告说：“遵照中共的指示，告诉世界中共病毒并非真的可以通过空气传播的世卫组织，现在得到了拜登政府的全力支持。”
+
+卡尔森补充说：“尽管事实是美国的情报可以证明世卫组织撒谎，而人们由于这些谎言而死亡，美国政府还是这么做了。即使到现在，美国政府也尚未对冠状病毒的来源进行任何广泛而认真的调查。”
+
+在周一的另一则福克斯新闻广播中，一直以来不停在谈论实验室泄漏证据的前国务卿迈克·庞培奥（Mike Pompeo）表达了对政府科学家的厌恶之情。过去一年中他目睹了他们否认中共病毒来自实验室的的可能性，尽管“他们一定已经看到了我所见过的相同信息。”
+
+“那当然也一定包括福奇博士，”庞培奥指出。
+
+原文作者：泰勒·杜登（Tyler Durden)。最初由蒂夫·沃森（Steve Watson）在Summit News撰写发表
+发布时间：2021年5月25日，星期二-下午12:30
+原文链接：https://www.zerohedge.com/covid-19/watch-tucker-carlson-blasts-fauci-who-media-lying-about-covid-lab-leak-year
 
 0
