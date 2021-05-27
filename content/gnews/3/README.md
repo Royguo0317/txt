@@ -1,25 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家：福奇与武汉实验室功能增强顾问小组的头条新闻
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1276268/)
+## 美国情报界须于90日内给出CCP病毒报告——乔-拜登总统关于调查COVID-19起源的声明
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1276260/)
 
-翻译: 飞利普 | 校对: 烟波浩淼 | 审核：断播
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27142744/%E5%8A%9F%E8%83%BD%E5%A2%9E%E5%BC%BA%E9%A1%BE%E9%97%AE%E5%B0%8F%E7%BB%84.jpg)视频会议
-#### 《国家脉动》独家披露，安东尼·福奇（Anthony Fauci）博士否认了他所在的联邦机构与武汉病毒研究所之间的合作，就是他在一次活动上与该研究人员一起发言，该研究人员就“功能增强”研究向备受争议的实验室提供建议。
+**作者：华盛顿DC农场 – WENJUN**
 
-国家过敏和传染病研究所主任与琳达·赛义夫（Linda Saif）教授一起在美国免疫学家协会2021年5月的[活动](https://www.immunology2021.org/session/covid-19-and-the-science-of-pandemicslessons-learned/)“网上免疫学”上发表了讲话。尽管福奇试图将国家过敏和传染病研究所基金与武汉病毒研究所拉开距离，但他与赛义夫的交往增加了[一长串](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)证明并非如此的[证据](https://gnews.org/zh-hans/1257404/)。
 
-赛义夫于2017年应邀作为特邀嘉宾在武毒所“[第二届中美新兴感染、实验室安全和全球健康安全挑战研讨会](http://english.whiov.cas.cn/Exchange2016/International_Conferences2017/201712/t20171215_187977.html)”上发表演讲。根据武汉实验室的会议总结，该届主办了五场学术会议，首先是“功能增强研究、基因编辑、靶向和传递以及其他新的生物技术”。
 
-赛义夫和福奇的小组，对中共病毒和流行病学的经验教训，也遵循了自1985年以来国家过敏和传染病研究所资助赛义夫[研究](https://reporter.nih.gov/search/EuETkToDb0eQ1P30v4UVyQ/projects?fy=1985)的悠久历史。她总共收到了来自国家卫生研究院的56笔拨款，其中43笔来自福奇的国家过敏和传染病研究所。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27145028/01-35.jpg)
 
-专家组的发现是在参议员兰德·保罗(Rand Paul)和试图将国家过敏和传染病研究所与武汉实验室拉开距离的福奇之间进行激烈[交锋](http://www.christianitydaily.com/articles/11861/20210514/sen-rand-paul-says-fauci-could-be-culpable-for-entire-covid-19-pandemic.htm)之后。
+**5月27日美国白宫网站上刊出乔-拜登总统关于调查COVID-19起源的声明，声明内容大致如下：**
 
-除了在国家卫生研究院和武汉病毒研究所之间建立工作关系之外，现在该站点上[已删除](https://gnews.org/zh-hans/1257404/)的帖子还详细描述了带有位于武汉的实验室进行的功能增强研究特点的研究。然而，福奇向保罗参议员[坚称](https://www.axios.com/fauci-rand-paul-wuhan-lab-coronavirus-eff1bb08-f6c7-4d63-b170-c49e87c2e3dd.html)：“国家卫生研究院从来没有，现在也没有资助武病毒研究所的功能增强研究”。
+早在2020年初，当COVID-19出现时，我就呼吁CDC进入中国了解该病毒，以便我们能够更有效地打击它。在那最初的几个月里，我们的检查员未能进入当地，这将始终阻碍对COVID-19的起源的任何调查。
 
-原文作者：娜塔莉·温特斯(NATALIE WINTERS)
-发布时间：2021年5月25日
-原文链接：[https://thenationalpulse.com/exclusive/fauci-cohosted-panel-with-wuhan-gof-adviser/](https://thenationalpulse.com/exclusive/fauci-cohosted-panel-with-wuhan-gof-adviser/)
+尽管如此，在我成为总统后不久，在3月，我让我的国家安全顾问责成情报界准备一份报告，说明他们对COVID-19的起源的最新分析，包括它是否来自人类与受感染动物的接触或来自实验室事故。我在本月早些时候收到了这份报告，并要求进一步跟进。截至今天，美国情报界已经 “围绕着两种可能的情况”，但还没有就这个问题得出明确的结论。以下是他们目前的立场。”虽然国际刑事法院的两个部门倾向于前一种情况，一个部门更倾向于后一种情况–每个部门都有低度或中度信心–但大多数部门认为没有足够的信息来评估一种情况比另一种情况更有可能”。
 
-0
+我现在已经要求情报界加倍努力，收集和分析可能使我们更接近一个明确的结论的信息，并在90天内向我报告。作为该报告的一部分，我已要求提出可能需要进一步调查的领域，包括针对中国的具体问题。我还要求这一努力包括我们的国家实验室和我们政府的其他机构的工作，以加强情报界的努力。我已要求情报界向国会全面通报其工作情况。
+
+美国还将继续与世界各地志同道合的伙伴合作，迫使中国参与一个全面、透明、基于证据的国际调查，并提供所有相关数据和证据。
+
+**从白宫网站上这篇以美国拜登总统的声明我们可以分析出以下信息：**
+
+在目前CCP病毒溯源民意发酵的背景之下，民主党和拜登总统不得不迎合民意对病毒起源做出一个结论。在这个问题上拜登政府无法和中共进行明显勾兑，因为对CCP病毒的溯源的呼声从3月份开始声浪日高，任何民选政府都无法忽视，至此，病毒溯源已不再单纯是一个科学问题，而变成了一个政治问题。
+
+拜登总统提出90日内要求情报界形成报告，说明CCP病毒的肆虐对生灵的荼毒以及对经济社会造成的伤害已经到了一个临界点，这个临界点会导致经济的崩溃，社会的动荡，更多让人无法想象的生命的逝去。如果这一切都发生，而拜登现政府不能及时减少或挽回损失，拜登政府和民主党将面临巨大的政治失分，甚至被共和党痛击以及被人民追责。
+
+不久前美国众议院共和党情报监督小组的一份报告认为：与COVID-19全球大流行病有关的美国情报失误包括压制关于该病毒来源的不同意见。在目前民意的推动下，我们更有理由相信美国情报界应该已经掌握了病毒起源的大量的事实和证据，这个90天的报告只是走一个流程和过场。
+
+中共玩火制造并传播冠状病毒必将自焚，中共命不久矣，天下苦共久矣！
+
+参考链接：
+[Statement by President Joe Biden on the Investigation into the Origins of COVID-19（乔·拜登总统关于调查COVID-19起源的声明原文）](https://www.whitehouse.gov/briefing-room/statements-releases/2021/05/26/statement-by-president-joe-biden-on-the-investigation-into-the-origins-of-covid-19/)
+
+***(本文仅代表作者观点，与GNEWS无关)***
+
+* * *
+
+***发布：华盛顿DC农场 – YIMING（文鸣）***
+
++1
