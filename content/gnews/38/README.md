@@ -1,37 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大顶级病毒实验室的七位科学家与中共国有过合作
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1273977/)
+## 2021年5月26日 文贵先生盖特 5
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1275217/)
 
-翻译: JS709 | 校对: Elsie | 审核：黎明的光芒
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26150749/Picture1-129.png)图片来自网络
-环球邮报的一项调查显示，至少有七名在一个联邦微生物实验室工作、研究高传染性疾病的科学家与中共国军方合作研究了几种致命的病原体。
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
-这些合作者与解放军军事医学科学院一起参加了六项不同的研究，这些研究成果于2016年至2020年间发表。
+塞林博士5月24日连线皮特·桑蒂利访谈时说到：鼓吹中共病毒自然源头说、打压实验室源头说，这些人有科学界的也有美国政府的，他们大搞宣传运动故意欺骗美国人。 Dr. Sellin with Pete Santilli Show, May 24: This has been essentially a propaganda campaign, an intentional deception of the American people by some people in the scientific community and some people in the US government.
 
-所有这七名科学家当时都在温尼伯市（Winnipeg）的国家微生物实验室研究致命的病原体。 该小组研究的疾病包括埃博拉（Ebola），裂谷热（Rift Valley fever）和拉沙热（Lassa）。
+[【2021年5月26日】文贵先生盖特原文](https://gtv.org/getter/60af4a74744cbc431364c662)
 
-其中的一位研究员闫飞虎是这六项研究的合著者，在其中两项研究中他被列为与解放军军事医学科学院有隶属关系。
-
-应加拿大安全情报局（CSIS）的要求，另两名科学家邱香果和成克定于一月被开除出该实验室。他们认为这两个人进入联邦实验室是国家安全问题。
-
-根据澳大利亚战略政策研究所（ASPI）的说法，解放军军事医学科学院有很高的风险“被解放军或安全机构利用以进行监视，侵犯人权或从事与军事目的有关的事务”。
-
-此后，加拿大公共卫生局表示，自2019年以来，与中共国不再有“新的合作”。
-
-“在科学合作中，当首席研究员离职时，围绕该研究的合作结束是正常的。 这项研究的首席研究员是邱香果博士。”加拿大公共卫生局（PHAC）告诉环球邮报。
-
-2019年3月，据透露联邦实验室已将亨尼巴（Henipah) 和埃博拉病毒运送（邮寄，译者注）到中共国武汉病毒研究所。 尽管如此，加拿大公共卫生局声称，传染病病毒向中共国的转移并不是邱和成被解职的原因。
-
-加拿大安全情报局（CSIS）前执行副主任安迪·埃利斯（Andy Ellis）告诉环球邮报，政府在处理这一问题时表现得“不可思议的天真”。
-
-“这是不明智的。 它是加拿大顶级的实验室。 他们真的是太真了。”埃利斯说。
-
-“就是对于加拿大人，都要进行深入的背景调查，才允许进入这个实验室，但却让一个我们一无所知的人进去了。 这完全说不过去。”
-
-原文作者：True North Wire
-发布时间：2021年5月20日 
-原文链接：[https://tnc.news/2021/05/20/seven-scientists-at-top-virus-lab-in-canada-collaborated-with-china/](https://tnc.news/2021/05/20/seven-scientists-at-top-virus-lab-in-canada-collaborated-with-china/)
+**喜联盟Gnews编辑部**
 
 0

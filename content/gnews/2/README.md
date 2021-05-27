@@ -1,75 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】2020-2021纪事——献礼新中国联邦一周年庆典
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1274394/)
+## 我和中国企业家在美国的聊天
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1275584/)
 
-作者：纽约香草山香港部写作组
+作者：喜马拉雅樱花团 小雨
 
+![](https://lh6.googleusercontent.com/rTmcimy6conn4mSBsg4fLTLA0YqXNlQA4bqbF8u3rIfZtJi2i0LGz7_swF81yXp2w4JWl5RwNXNdCMnc1WnkLMoZEycXCalOeNrAzA_hxFwX1HzsswQFDJs4n1iVln55sqLTlRTx)
 
+![](https://lh4.googleusercontent.com/pSwRcwvl84mb5XCWAleY42DOsw7AFi84p8D8tivmIpSEwArAr6a4OFcWNvANP4CZ4i54mphRCBeLR1tYAmSD9yiyMHkFnZHSCz1MxTrMeH7hPmTei1g0y4pYnFTWBh0HpqqS-7z-)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+![](https://lh3.googleusercontent.com/fqeOMxSxf-trx59OyDKwhZS6piDUzzSTC0O6HFuVdG7pK2QuE_3YyzaISSCyNDgfBJiAVVazk4HxZJJaUh4Avm62w6UvI7seit5XjcGmYJxNyf_XZG0QfcLGy-rQhBtRSgJG_1Sn)
 
+![](https://lh6.googleusercontent.com/TxiUjeJ_zbeDk4WA8-TjKAptUdj--JPRAf3eL1_16UJGMSn_sEv62WUxlj-DkdNqzNSKAXfOhDq-wAMBp98uv9ilU_BkEkj3kb1qCesckoigUSPC_TGR7bTjJp_E5xr9NbkJOLT1)
 
+![](https://lh5.googleusercontent.com/HssjBUNJwVtyAzObMCB8wEoFSZs8HzmAgTBlMp2XTQ9MlRkAB5QHvARfE1B2aSPh1Ro5FNBHyPON5tSLWiHZA5LcTZ3YEQLy3E2xTcyEjzSCB2Os8rNKcpRsfvYeYPAj9weV_GMh)
 
-2020年6月4日，一道耀眼的光划破天际，闪耀在纽约自由女神像的上空！彼时彼刻，自由女神像前广阔无垠的海洋上，有一艘战舰正正停在前方。当时，两名身负重任的人正在船上举行着一个足以影响中华民族未来百年甚至千年命运的重要仪式。而这两个人则分别是爆料革命的创始人郭文贵先生和法制基金/法制社会的提倡人史蒂夫-班农先生。
+![](https://lh5.googleusercontent.com/JekmsUbpDa0bP24db61u9qZZtRnkUQf6SsgLo0Gkd2GdgDK2s9mtXrHg7ng1vUEB_vFKxjUz-i86-espKZjQFX-GDV6WQBW4kAVxmBDpi0LGlVKGL7XykyznsMmdxVC-fKAZGYDV)
 
-仪式进行前，纽约正经历着狂风暴雨的洗礼，同时纽约市区也因左翼激进分子的示威破坏而被迫采取宵禁措施。尽管如此，郭文贵先生仍然将这一天定为新中国联邦的建国日。仪式之前，文贵先生在狂风暴雨之中进行了庄重的祈祷。而就在原定时间7点37分临近之时，狂风暴雨奇迹般的停止了，这也让仪式得以在原定时间顺利举行！过程中，多架悬挂新中国联邦国旗、庆祝标语的飞机也顺利升空，并在自由女神和纽约曼哈顿上空久久盘旋。随后，这艘战舰也缓缓驶近自由女神像前，满载着对自由女神的敬意和期望。
+![](https://lh3.googleusercontent.com/kOmczu1_1uiigkL3JGtkDxKKEiqlmYvaFzyORYUSNCI3yQVWQ19nk8aSQgkICnzPMqJsQnmb4RkMW9Wts2uJTlKQ7ewb_UMVl7jF_soou_h9M3RIz0S5RautlVvZaS75gIGydwhb)
 
-![]()![](https://media.discordapp.net/attachments/721544615953432698/825929112102895616/image1.png?width=1083&amp;height=609)
+![](https://lh3.googleusercontent.com/P-pog2-dpRFIxiSW-QC0m-ssW39pdDttYgXAgZKwXSYVjhfdOx_nT9XTCL6ozV2ewpfRknOS1jLqLNlvCK3-ONFJzHpKvxty2Nv78TLIlk-14AecHBl4SMGU6lvqTh_cHLj76yIF)
 
-对所有热爱并追求自由民主的中国人民来说，6月4日是一个具有重要意义的日子——郭文贵先生和班农先生共同宣布，新中国联邦在这一天成立！而身处西班牙的法制基金主席郝海东先生也通过连线向全球的共同信仰者宣读了新中国联邦宣言。这宣告着新中国联邦人将致力于把非法篡夺中国政权的中国共产党扫进历史的垃圾堆，迎来真正的自由民主、一人一票的法制国家。
+![](https://lh6.googleusercontent.com/cYrSsemKZNX94hOdu22Y_qEsKMOvGba8rUPqEXxpAFJdiPodfyZRmDMTGDpmRuIsL_bFi0p4u_C_ewpXzxwpEs9nVAg9fEB_MZBty9_JyFe_qwUzNeHL1q4NQuw8RjbTOuKXTFrY)
 
-1989年的6月4日，在北京天安门广场上，中国共产党悍然对成千上万的示威民众进行屠杀，使得这场历时两个月，遍及中国大江南北并轰动世界的中国民主运动（史称64运动，又称89民运）戛然而止。然而，中国人民追求自由民主的愿望从未停歇。文贵先生就是64运动之后的幸存者之一。经历过中共牢狱迫害的生死劫难之后，文贵先生暗暗立志，余生要以驱除共匪、带给中华民族自由民主为己任。之后又经数十载的翼伏，他终于在2017年创立了爆料革命，号召并带动全球的战友起来向中共发动致命的反击。
+![](https://lh6.googleusercontent.com/yQw6AlkSAEavwvGd1q4jTSzvxQeDJSr9GuUPS_4JDexbedFj1Gv2tgEWpi15TfWwuwH72TDO_n63ga_10bSCjAI397qX96I742HUql9S_9fZrQzyOVXTwFtlp80fraauV6qVK903)
 
-以下为全球战友进行灭共行动的重要纪事——
+![](https://lh5.googleusercontent.com/fUEHUhIY08u91L9qYWUJJcDKLT2btHwoG-Fq28I8nszo015zGfnPAN3lR80GMhwhZ4kfHuF2JIqKKa6t3E3Q5CDYOAOXxs8cGEeMf1g9YobGO6f0cYEPO6JHIkh_MJLQxPB1gLVx)
 
-新冠病毒方面：
+![](https://lh5.googleusercontent.com/0Y4X70gHFnGpDt6Wki8nbgczDUPqxoR98bnuB08nTpnZ9jTnnkhh4FyKnHL0H0TctcsFKzqYPthl9C5raUt3ocYLhJqRrTuqdVPC8zqj4DXGqxTWr4Nlj58KRgxqQRt8TXHDncUq)
 
-2017年，路德社在Youtube上创建，主创是路德，每天有两期视频更新。2020年1月19日，路德社是全球第一个报导中共病毒人传人、大爆发、强变异的媒体。当时，中共所有大外宣媒体全部否认中共病毒会人传人大爆发，甚至连美国的主流媒体，特别是世界卫生组织（WHO）都报道说，这只是流感。
+![](https://lh3.googleusercontent.com/DEj8NUuKQFcgBDPR1MJz-S1El0KWHMBGybQBO7GptQIzai3HUAi6mionX3eSOfiPilhcA5oZ8PujFRT36mQDoBj_YnLDYNpZySfpC4Op6R_CwyUBgU7IMHuiXxbDPo25ZFKvlN95)
 
-随后，路德在文贵先生的协助下，营救出了香港病毒学专家闫丽梦博士。闫博士是在2019年底开始联系路德，想要揭发病毒真相。与闫博士回合后，路德于2020年1月19日在路德社开始爆料中共掩盖病毒真相这一消息。他与闫博士一起避免了一场更大的病毒危机，挽救了很多人的生命。闫博士之后也在接受FOX采访时揭露CCP和WHO隐瞒疫情真相的行为，震惊国际。路德社现阶段主要成员分别有路德、安红、墨博士、博博士、艾丽、冠博士等等。
+![](https://lh5.googleusercontent.com/RnkHiQrP_y72aIi1jWT60RxsoLVvcQF-nuRmXxAjM5FOjUVvEj9O28cgCfGGwsvIhw0rTdyTpsvw3ZB5sUpsxkrMpsfWNjQD5lPwk6RlqUnds5ppZAF8wSqkP8aG16TM-sHAQZGB)
 
-2020年9月14日，闫丽梦博士在学术资源库网站zenodo上发表有关新型冠状病毒的相关报告《Unusual Features of the SARS-CoV-2 Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolution and Delineation of Its Probable Synthetic Route》。文章内容从基因、结构入手，以文献为证，提出新冠病毒经中（共）国军方实验室人工强化功能的高度可能性及可能的人造合成方式。
+![](https://lh4.googleusercontent.com/zZyE5txK0cjP5fq3Nknn0FVhYszrEqPR_LOSYxJTBck-RNMZxBxQViowY606rLVI3QzyfbFoSZ5DLLzyH7Q8R6uRIk-D-zaz9UnnHF1I6UMvdtIJVRHjXly0hVR_2lwjwcY9QdTh)
 
-2020年10月8日，闫丽梦博士在学术资源库网站zenodo上发表有关新型冠状病毒相关的第二份报告《SARS-CoV-2 Is an Unrestricted Bioweapon: A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud》。文章中再次论证了病毒的来源，并批判中（共）国政府与相关人士之大规模造假掩盖的行为。
+![](https://lh5.googleusercontent.com/S5DrK4XUIyEzechugy6zR4NLras2b4Mx6DjAOlnmkojovF57XqxwcGP7xX58qk3wfKfuAQYydizM-zRNzT9DiMqg8BubKmzj0x-hLpwyjh7Ia0ZqubqhHujsL7F4ZOUfg5IH92Ww)
 
-2021年3月31日，闫丽梦博士发表了68页的第三篇论文报告《The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”》。当中，闫博士进一步指控SARS -CoV-2病毒是由中国共产党政权与包括军方在内的实验室群所改造的更具致病性、传染力、杀伤力的超限生物武器。
+![](https://lh4.googleusercontent.com/hoHX-Ei8fkrNC0b8W4a7khWah1V_AQYqg_6GMzHZA-xtgLHIAIu2NXfRQZXeOChOk0hllTEOsjZrv2wTCAZNxzSNfpdTpIbtDpIU3EjhGHj6CezYjsV7luAdBKeVBRduSkvIncaI)
 
-游行抗议方面：
+![](https://lh6.googleusercontent.com/-U9Lw6mcvnE0RCF6tVDdlSMt2moeV9C0qLK4XQgeysQZ4SYQqaIeu01nkPGXKHJFAfs6kmbBOcaiwjUUAOW9xVcWUVGGa7ojcrpAsd4N_4LNgblG8zF8uxOSuWQG_hImLrYT9jp8)
 
-2020年7月1，新中国联邦在中共驻华盛顿大使馆和白宫前游行示威。
+![](https://lh4.googleusercontent.com/niMbrfaQyeOQAV-zcwcVUWUoR1DZHbCxwOHzEkA9rH44uvjDcETBcfA_Bd4UGMPQq1XwNR_VNW807ajkaBorAar_k6PFmJNrJtw7KKPObillMqAa7z2OZHfKMw4TLEogNLdk4HDH)
 
-2020年7月27日上午，在中共驻悉尼总领事馆前，新中国联邦抗议集会游行在澳洲正式启幕。
+![](https://lh4.googleusercontent.com/A4o43VdyEn2N2__h0kJdRd7rCvGJyc_rGiXEYHy80YdXNRZ-Hm2DBvBI2cZKKqven6fZVPM4h9hQNWhk86VkYOqpzLVsgu5qOCmKHyoYxUuVeaY3ptRzziviUTHC40-anAjSlf8q)
 
-2020年8月29日，新中国联邦全球大游行。这次游行由世界各地的爆料革命战友们一起行动，中国人齐举新中国联邦大旗，告诉世人真相：“CCP LIE PEOPLE DIE”，“CCP中共不等于中国，中共不等于中国人”，“Take Down the CCP”等。我们战友也向世界传播中共的本质，传播病毒的真相，亦展现出新中国联邦人的素质和全新面貌。
+![](https://lh4.googleusercontent.com/IM7sSqBcJl-J5cB4TO4NlKQK2pFzGDPbDYNYnnVspcISdsvEXSksTFoI8RN6PBfvc7igzb_pTKKk3hHtEUZ441Obpdq9kpq1VWwYZvo1I2stZ9uhhnmNMcGKiJ_QDzJDXL6_8i8e)
 
-当时参加新中国联邦829全球大游行的国家和地区包括了日本、韩国、台湾、纽西兰、澳大利亚、英国，德国、西班牙，法国，义大利，华盛顿，洛杉矶、加拿大等。
+![](https://lh4.googleusercontent.com/SIuGy7XT7-5Ra2vRbNkX9hbcU8Dz6r5u_N0pNuyyXs99Ubksw0w4i1Z4fCpr4fSKiHMNatytutovYDrjs9aDeOoIIe7M5ORgtflxjf8XBd4Li16k400NweCxOXUwsnsdv6SrhPc_)
 
-2020年10月1日，中共庆祝“十一国庆”，新中国联邦于同日则举行了全球“灭共”大游行，并全程直播。支持者们在台湾、南韩、日本、纽西兰、意大利、加拿大、美国等多个国家游行示威。战友们手举新中国联邦国旗以及支持郭文贵先生、班农先生、阎丽梦女士的标语，唱着新中国联邦推出的反共歌曲并大声呼吁推翻中共。
+![](https://lh6.googleusercontent.com/oj3-GCP70OW9Nr9z8MF03E31mMz9uGu2rsqJi1gdLuEzgGvGcrc0kx7YJFw5N-vLAARIZ5leduLmS8V4-MLmK5sMU8-6afHJ9Tfllanvw9IvJsDlT5v7ppPOqW4JoIeiW-GWdV5u)
 
-2020年11月14日，新中国联邦参加美国首都华盛顿大游行。
+![](https://lh3.googleusercontent.com/1cTQ9XfuYzzQqE05IVTIIkjq1SYKTei5x6T06pnYes7G_U_4H-thka0X3SLVdf9iS6Ss0AFyKrVCv5nobeQh1cQxGv_7i-K-jnZx00VHyfWfu8HF58mG-ww7c3t-9kY8LgdgNqGq)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
+![](https://lh4.googleusercontent.com/xikBZZX34vmrlSiixlBN4TGdlPmGrw7xAEf8UlU2lg2kiJQ0kgZEiXwJ-guS4xoOcCi4Odqw2JFU3cCFXtGWlt4OKcoExDCfhzh-jGrT5nIx_aP9_qfz-xzWS48cNEO07e2CpeKC)
 
-编辑/校对/发稿：Irene木木
+![](https://lh4.googleusercontent.com/L9BOBXBC_rF1Eruk94YhwyakwV9zk4rESIMecj1T_CxjlEUQ8_nQfK0AjU-zJbYhLX63pbXXjqeoSLeg5fyqHFWIj4BN_EprzMDPQBaLd8jfSlIQhMg8n2NHYkYjrMcJiClSe1yX)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![](https://lh6.googleusercontent.com/uF-VvAL9Z5PQaNrbqtmMBIQrIF94j2z-a7JxCx4GgwW_GE2fRFhmkrL-rPI-wh3z26cWnQEN7wXXH3IjzS5JrgzCOLAlYx_rvruJM-Tn8FnIT6v3O3DHIqanzIq--ely_8611z77)
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*校对：喜马拉雅东京樱花团 / 鸿雁*
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22044513/%E4%BA%8C%E7%BB%B4%E7%A0%81-2.jpg)
 
 
-
-0
++1

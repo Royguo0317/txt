@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 辉瑞公司前副总裁呼吁不要被胁迫接种实验性疫苗
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1273976/)
+## 瑞士退欧
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1275223/)
 
-蒙特利尔皇家山战友团 Spirit
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26150831/defence.jpg)图片来源：Childrenhealthdefense.org
-据《儿童健康防御》(Children Health Defense) 5月25 日报道，辉瑞公司前副总裁迈克-耶顿(Mike Yeadon)博士在接受儿童健康保护组织主席小罗伯特-肯尼迪的采访时表示，他表示mRNA疫苗技术有很多不确定性。
+信息来源：德国世界报网络版 
+发布时间：2021年5月26日
+翻译 /整理/ 简评： Shuizhuyu
 
-辉瑞公司前副总裁兼过敏和呼吸系统首席科学家迈克-耶顿博士说，中共病毒疫苗是 “一种完全新颖的技术”，不应该被称为疫苗。拥有着32年在制药业领导新药研究经验的耶顿博士说由于中共病毒疫苗使用的是实验性技术，可能会带来严重的副作用，如血凝块、不孕等甚至死亡。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27045830/janosch-diggelmann-lEDre7sw99E-unsplash-scaled.jpg)
 
-耶顿博士在4月的视频中讲到，”我相信这些疫苗是被用来损害你的健康，并可能导致死亡。除了认真尝试大规模人口灭绝外，我看不到任何合理的解释。这些疫苗是提供做这件事的工具和合理的推诿，因为他们制造一个关于某种生物威胁的故事，让你排队接种疫苗，几个月后，或一两年，你可能会出现可以解释的综合病症，但无法将其与接种疫苗联系起来。”
 
-耶顿博士继续告诉观众，”政府告诉你们关于这种病毒的一切都是谎言，目的是极权主义控制”。请不要被谎言，抵制这些实验性后患无穷的疫苗，并告知身边的人，不要成为极权主义控制者的牺牲品。
+多年来，欧盟和瑞士通过谈判达成了一项协议，该协议将使双方关系更加紧密-并要求瑞士通过欧盟法律。 现在协议失败了。 同样是因为欧盟还没有准备好重新谈判条约的关键要素。
 
-***参考链接：***
+瑞士的这一决定与英国退欧有着明显的相似之处。 在这两种情况下，对丧失国家主权的担忧高于欧盟单一市场的诱惑。 就像英国脱欧一样，欧盟最终还是坚决与瑞士进行谈判。 尽管失败，瑞士随后仍可能向欧盟支付超过10亿欧元。
 
-[Former Pfizer VP Tells RFK, Jr.: Young, Healthy People Shouldn’t Be Coerced Into Taking ‘Experimental’ Vaccines](https://childrenshealthdefense.org/defender/dr-mike-yeadon-rfk-jr-the-defender-podcast-safety-mrna-vaccine-technology/)
+简评： 欧盟有27个成员国， 能够达成一致意见并不容易。 英国脱欧经过几年的谈判已经尘埃落地。 还没缓过劲来的欧盟， 就遇到了病毒大流行的挑战， 还在抗疫高峰期， 传来了瑞士脱欧的噩耗。 对于欧盟来说无疑是巨大的打击。 欧盟还要试图与瑞士寻找继续谈判， 结果我们还要继续关注。
 
-[Did Michael Yeadon Say COVID-19 Vaccine Will Kill Recipients Within 2 Years?](https://www.snopes.com/fact-check/michael-yeadon-vaccine-death/)
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。 
+发表： Shuizhuyu
 
-* * *
+🔗[Abkommen-mit-EU-gescheitert-Der-Schweizer-Brexit](https://www.welt.de/politik/ausland/plus231392245/Abkommen-mit-EU-gescheitert-Der-Schweizer-Brexit.html)
 
-*编辑、发稿 文锦*
-
-0
++2

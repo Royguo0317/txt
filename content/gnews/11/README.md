@@ -1,43 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】贝壳找房被调查，马化腾在劫难逃
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1273643/)
+## 澳政府6月将决定是否关闭孔子学院
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1275407/)
 
-作者：香草山信息部 雪梨
+#### 撰稿：yyshere
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27063701/%E5%AD%94%E5%AD%90%E5%AD%A6%E9%99%A2.jpg)图片来源：网络截图
+澳大利亚外长佩恩日前表示，将在6月份决定是否终止中共国在澳大利亚的孔子学院项目。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+目前13所澳大利亚高校与中共国存在孔子学院的合作关系，但在联邦政府最新出台的海外项目否决法的压力下，悉尼大学、维多利亚大学和昆士兰大学等高校已经把孔子学院合作项目的合同交出并接受审查。此外，皇家墨尔本大学也已经宣布将在2021年底关闭运行了十年的中医中药孔子学院，虽然公开理由是经费不足。
 
+根据澳大利亚MB基金和MB Super的首席经济学家，曾在澳大利亚财政部、维多利亚州财政部和高盛公司任职的利斯·范·昂瑟伦 (Leith van Onselen) 26号发表的分析文章指出，“这些孔子学院是中共国教育部的全资子公司。它们为参与的澳大利亚大学提供部分资金、母语教师、教学资源、学生交流机会，以及中共国政府提供的中共国语言和文化咨询服务。他们的正式任务是推广中共国语言和文化，因此对中共国社会有一个不加批判的看法，并在我们的大学内提供直接影响。我们的大学也签署了协议，明确指出他们 “必须接受孔子学院总部对其中心教学质量的评估。“
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26111625/%E5%9B%BE%E7%89%872-115.png)图片来源：网络
-[路透社](https://www.reuters.com/world/china/exclusive-china-launches-antitrust-probe-into-tencent-backed-property-broker-ke-2021-05-25/)报道称，据消息人士透露，中共市场监督管理总局（State Administration for Market Regulation，简称SAMR）最近正在对房屋中介公司贝壳找房的“二选一”垄断行为进行调查。贝壳公司股票因此一度下跌近10%。
+但昂瑟伦同时指出，这些只是表面文章，援引欧洲委员会议会前副主席、瑞典议会前议员戈兰·林德布莱德(Göran Lindblad)的解释，这些孔子学院是危险的：”孔子学院的主要目的是向人们灌输思想，为极权主义政权收集信息。这是两个主要的目标，不说也罢。而随着预算的减少，很多大学都有意让孔子学院负担起中文和中共国文化等方面的教育。20世纪30年代，墨索里尼的语言学院也是如此……” 林德布莱德还指出，”这些孔子学院是融入大学的，所以有极佳的机会来做渗透工作，也就是间谍工作，并向学生灌输共产主义思想。当然，孔子学院的所有教师都是由北京控制的……中共控制着孔子学院”。
 
-贝壳找房（KE Holdings，BEKE）成立于2001年，总部位于北京，是中共国最大的线上线下房产交易和服务平台，同时也是地产经纪品牌链家的运营商。腾讯是贝壳找房的大股东。
+昂瑟伦认为，孔子学院这种性质的文化机构，不应该存在于澳大利亚大学校园内，至少应该搬到校外，不过最好是关闭掉。不过他同时认为，“依赖中共国留学生的教育行业，可能不会网着一切发生，中共国的国际留学生贸易输出已经把澳大利亚大学，变成了世界上最邪恶专制政权所利用的白痴。“
 
-所谓“二选一”，是“平台利用优势地位和商家对其的依赖性，采取不正当手段强迫经营者在平台间‘二选一’”。平台利用“独家合作”的协议捆绑商家，只允许商家在自己的平台销售与活动，如果发现在其他平台销售，平台会对该商家进行惩处。
+消息来源：macrobusiness 网络公开信息
 
-路透社还提到，为提高反垄断检查效率，自4月下旬以来，SAMR已在17家平台公司派驻了检查员。
+（本文系作者个人观点）
 
-今年2月，[唯品会](https://www.reuters.com/article/us-vipshop-hldg-china-antitrust-idUSKBN2A803Y?taid=6020c8d9d3964a00010817cc&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)被罚款46万美元。3月，[12家互联网公司](https://www.reuters.com/article/us-china-anti-trust-idUSKBN2B40EF?taid=604af300eaf59800011ce2b4&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)因违反“反垄断法”受到惩罚。4月10日，阿里巴巴公司因“二选一”垄断行为被处以27亿美元的天价罚单。随后，SAMR[陆续点名](http://www.ce.cn/cysc/newmain/yc/jsxw/202104/14/t20210414_36471831.shtml)一大批包括百度、京东、新浪微博、字节跳动、拼多多等在内的互联网平台企业。4月底，SAMR宣布对腾讯控股的[美团](https://www.reuters.com/technology/china-launches-antitrust-probe-into-food-delivery-giant-meituan-2021-04-26/)发起“二选一”垄断调查。随后有[报道](https://www.reuters.com/world/china/exclusive-china-readies-tencent-penalty-antitrust-crackdown-sources-2021-04-29/)称，腾讯也将面临至少15亿美金的罚款。
-
-在中共国，一切都是政治说了算，政治经济、政治科技，政治商业、政治互联网。只有拿到权贵发布的营业执照，才有可能赚得到钱。现如今，党内斗争已进入最后阶段。以习大神为首的当权派正在宰杀在野党的白手套们，打击在野党的势力。党派内部斗争，身陷绞肉机中的任何人都不可能全身而退。如今，马云这个白手套已被斩落；与腾讯关联的公司于近期频频被调查，马化腾在劫难逃；至于超级政治家马明哲，[文贵先生](https://gwins.org/cn/milesguo/22647.html)说，“抓马明哲那一天的时候，就像当年抓和珅一样”，连根拔起。届时，内部斗争想必已决出胜负。然而，打扫战场的才是最后的赢家。
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
