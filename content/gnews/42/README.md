@@ -1,63 +1,88 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒疫苗中含有人工修改的&#8221;磁&#8221;蛋白，能够远程控制行为、大脑活动吗？
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1275915/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（三十）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1275945/)
 
-**作者：**Ethan Huff 2021-05-25
+作者：纽约香草山信息部 6zero4
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27100654/456985.png)图片来源：Ethan Huff原文
-《自然新闻》美国研究人员已经开发出一种新的精神控制方法，听起来与中共冠状病毒”疫苗”中某些疑似疾病相似。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-据报道，”弗兰肯斯坦”科学家利用基因工程技术开发出一种名为”Magneto”的基因修正（GMO）蛋白质，这种蛋白质允许在外部远程控制行为和大脑功能。
 
-Magneto被设计用于激活体内特定的神经细胞组，这种激活可以从远处完成 -也许从5G 塔？
 
-表面的说法是，需要这项技术来研究大脑如何影响行为。然而，兔子洞理论是，该技术允许大规模控制心灵。
+5月25日塞林博士的2连推：
 
-从公布的研究，我们知道磁通过病毒注射进入到体内——听起来是不是比较熟悉？
+第1推，有人更改抑或黑客了美国NIH出版物数据库，给彼得·打杂客的生态健康联盟加上了一篇疑似描述“COVID-19病毒来自实验室”的文章。并贴上这个事情发生的网页截图。
 
-这项技术由位于夏洛茨维尔的弗吉尼亚大学的研究人员于2016年开发，并通过将病毒插入实验哺乳动物的大脑进行测试。
 
-这些大脑后来被解剖和分析，发现它们发出绿色荧光。
 
-这种”发光”技术听起来与亿万富翁优生学家比尔·盖茨（Bill Gates）申请专利的”荧光”酶非常相似，它与中共病毒注射即将问世的微芯片附加组件相近。
+> Someone has altered, maybe hacked, the U.S. National Institutes of Health publications results database for Peter Daszak of the EcoHealth Alliance to include an article saying [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) was made in the laboratory. [pic.twitter.com/iC9QW7k5j4](https://t.co/iC9QW7k5j4)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397051524174553089?ref_src=twsrc%5Etfw)
 
-在另一项实验中，研究人员将磁力插入”自由行为”小鼠的纹状体中。纹状体包含产生多巴胺的神经元，这些神经元与奖励和动机有关。
 
-然后，被注射过的动物被放入一个分为两部分的装置：磁化和未磁化。含有磁力的老鼠在磁化区域花费的时间远远多于在非磁化区域的时间。
 
-**手臂上粘着磁铁的人被注射过磁铁吗？**
+第2推，附上塞林博士自己昨天接受Rumble媒体深度采访的视频，讨论COVID-19病毒起源，以及CCP的生物战计划和CCP-PLA对美国病毒研究计划的广泛渗透。
 
-磁化小鼠之所以喜欢在磁化区域，是因为通过病毒注射它们的大脑已经被基因工程修改过了，这导致多巴胺的产生。换句话说，老鼠在磁铁旁边感到”快乐”和”有回报”。
 
-考虑到最近关于磁铁粘附在最近接种疫苗的人身上的注射点的最新新闻报道，人们不禁要问，中共冠状病毒注射中是否含有磁性病毒，或者其中的一些衍生物，其功能是否类似。
 
-如果是这样的话，那么接种疫苗的人会感到”快乐”和”奖励”时，在存在刺激物如5G辐射塔或其他控制点的情况下。从理论上讲，大规模注射运动的幕后黑手将有能力通过指令释放多巴胺来欺骗大脑控制接种疫苗的人。
+> A new in-depth interview of Dr. Lawrence Sellin discussing the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw), the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s biological warfare program and the CCP's and People's Liberation Army's massive infiltration of U.S. virus research programs.
+>  [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaPandemic](https://twitter.com/hashtag/CoronaPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wSsDlwnqup](https://t.co/wSsDlwnqup)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397111084696449028?ref_src=twsrc%5Etfw)
 
-虽然未接种疫苗的人将继续行使自己的自由意志，但接种疫苗的人现在有可能成为全球主义者手中的棋子，他们将为了自己的邪恶目的在外部控制他们。
 
-这就是为什么许多人一直警告说，必须不惜一切代价避免注射中共病毒疫苗，更何况他们永久重新编程人类DNA，并把接受疫苗注射的人变成可怖的人类嵌合体。
 
-也有非常现实的可能性，这些注射奠定了基础-甚至可能是-圣经标志的野兽的化身。虽然他们还没有被强制执行，但我们已经看到学校、工作场所、杂货店正在为”没有工作，没有服务”打下基础。
+5月26日塞林博士的3连推：
 
-皮埃尔·吉尔伯特博士在1995年的一次演讲中警告说，”这将通过法律强制实施接种疫苗，”他预言，即将开始的强制接种的疫苗含有液晶，一经暴露于磁性频率，就会使接受者变成”僵尸”。
+第1推，转发Joe Hoft 昨天发表在Gateway Pundit上的一篇文章“武汉大学动物实验室是不是COVID-19疫情的源头？”证据显示COVID-19疫情是从武汉大学P3动物实验室开始的，其到底是PLA此举的肇事者还是替罪羊呢？并致谢COVID-19侦探ann和加拿大多伦多枫叶农场。
 
-“这些疫苗将使得控制人类成为可能。
 
-更多有关中共冠状病毒注射的新闻可以在ChemicalViolence.com找到。
 
-**评：**中共病毒疫苗是中共及其西方同谋全球主义者的阴谋用来控制奴役全人类的工具，中共病毒疫苗的真正目的是控制无关帮助人类对抗中共病毒和人们的生命健康。全球主义者、优生学家、亿万富翁比尔·盖茨开发20多年来开发疫苗的努力不是为了人类的生命健康，而是为了控制人类、大规模灭绝世界人口。全球主义者控制的政府、医疗权威机构、大制药公司、大科技公司和大媒体平台等通过欺骗或强制人们接受疫苗注射，这里面隐含着他们的惊天阴谋，这帮阴谋家魔鬼企图通过发射微波来控制接受疫苗注射者大脑里的”磁”蛋白来控制他们的行为和大脑活动，换言之，这些人也可能被这帮魔鬼指示进行自杀来达成大规模灭绝世界人口的罪恶目的。知道全球主义者的阴谋的正义的知情者应该发出声音，揭露真相，唤醒更多的人们团结起来，消灭中共这个全球主义者的马前卒，拿到中共手里的解药，才能控制住中共病毒，中共灭亡之后，全球主义者的阴谋必然难以为继而消亡，人类才会重新获得健康和安宁的生活。
+> Evidence says [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic may have started in the Wuhan University’s ABSL-3 animal laboratory. But is it the perpetrator or the scapegoat for a Chinese People's Liberation Army operation?
+> (COVID-19 detectives [@ann95657173](https://twitter.com/ann95657173?ref_src=twsrc%5Etfw) & [@TorontoFarmEN](https://twitter.com/TorontoFarmEN?ref_src=twsrc%5Etfw) thanked)[https://t.co/tkxc8eMykf](https://t.co/tkxc8eMykf)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397170798947979274?ref_src=twsrc%5Etfw)
 
-##### **原文：**Ethan Huff,“ Do covid vaccines contain GMO “Magneto” protein capable of remotely controlling behavior, brain activity?”.《Natural News》, May 25, 2021.** **[https://www.naturalnews.com/2021-05-25-covid-vaccines-gmo-magneto-protein-behavior-brain.html](https://www.naturalnews.com/2021-05-25-covid-vaccines-gmo-magneto-protein-behavior-brain.html)
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-编辑/发布：比卡丘
+第2推，转发印度主流新闻媒体GoaChronicle 总编Savio Rodrigues2天前采访塞林博士后，发表的一篇文章“与塞林博士一起揭开冠状病毒起源之谜”，讲述COVID-19起源和中共生物战计划，以及独特的印度病毒变种问题。
 
-20210527
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-#  
 
-+2
+
+> A major Indian outlet, the Goa Chronicle, interviews Dr. Lawrence Sellin about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw), China's biological warfare program and the unique aspects of the Indian variant.[https://t.co/eJ6h03SRnD](https://t.co/eJ6h03SRnD)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397248172410511362?ref_src=twsrc%5Etfw)
+
+
+
+第3推，转发“战戈鹰Tuan“战友的中文推：来自中共内部的信息（尚在验证中），即南京的PLA东部战区发现COVID-19病毒骨架ZC45和ZXC21，以及COVID-19在2019年初被给到WIV，由单超带队在灵长类动物身上进行实验，并附上塞林博士2天前接受Rumble媒体采访谈到此点时的视频。第一步，证明COVID-19来自实验室，我们做到了；第二与第三步，证明CCP病毒是CCP生物战计划的一部分，以及CCP-PLA已经深度渗透到美国病毒研究计划，并将这两种情况都揭露出来，我们正在做。
+
+
+
+> Step 1. Prove that [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) came from a laboratory. We did. 
+> Steps 2 and 3. Prove that this [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) is part of the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s biowarfare program and that the CCP and the People's Liberation Army have deeply infiltrated U.S. virus research programs and expose them both. 
+> We will. [https://t.co/v9Jxi91sHc](https://t.co/v9Jxi91sHc)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 27, 2021](https://twitter.com/LawrenceSellin/status/1397747063463501830?ref_src=twsrc%5Etfw)
+
+
+
+美国NIH出版物数据库里发上了一件离奇的事情，不知道是有人更改抑或被黑客了，让彼得·打杂客的生态健康联盟旗下加上了一篇疑似描述“COVID-19病毒来自实验室”的文章。打杂客可是和CCP科学家打得最火热、勾结得最深层的美国科学家，可谓是美国科学家里面对CCP的病毒自然起源最坚决、最铁杆的支持者，其生态健康联盟更是美国科研经费拨往中共国武毒所等科研机构的桥头堡。在美国主流媒体纷纷转向，美国科学界重量级人物福奇和柯林斯等接连反水的情势下，打杂客肯定如坐针毯，内心无比煎熬，一世英名如坠深渊不说，求生欲望才是其当下最紧要的事情，因此自己更改数据库加上这篇文章的可能性更大，也更合乎逻辑，要么谁吃饱了撑着去黑客数据库，以帮你臭名昭著的打杂客解围？
+
+塞林博士衷心地感谢推特上跟随自己挖掘CCP病毒真相线索和证据的新中国联邦战友们，赞扬他们在短短几个月里所做的事情比美国整个情报界一年做的还要多还要好，并阶段性地总结了COVID-19病毒溯源的结论：第一步，证明COVID-19来自实验室，我们已经做到了；第二与第三步，证明CCP病毒是CCP生物战计划的一部分，以及CCP-PLA已经深度渗透到美国病毒研究计划，并将这两种情况都揭露出来，我们正在做。可见病毒真相揭秘收网进度可喜！
+
+塞林博士带领COVID-19侦探们，亦即新中国联邦战友们取得的阶段性成果，有目共睹，举世震惊，让专业的美国情报界面子上挂不住了，拜登总统更是如鲠在咽，再也沉不住气了，因此昨天立即下令美国情报界18个官方情报机构在90天内，必须拿出阐明病毒起源真相的报告，为查明病毒真相立下了军令状，为疫情的控制乃至终结瞄准了方向，那就是CCP！
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

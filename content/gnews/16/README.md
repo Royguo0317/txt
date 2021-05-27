@@ -1,115 +1,100 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫为何关闭国务院对中共病毒起源的调查？
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1276154/)
+## 为老不尊：MSM赤裸裸的武汉宣传
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1276217/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+翻译：文复
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27123404/I-21.jpg)upnz.co.nz
-昨天（5月26日）一早蓬佩奥国务卿、CNN揭露了拜登上台不久就关闭了国务院对中共病毒起源的秘密调查【1】、【2】，随后拜登发表声明，将责任推给情报机构，并限期90天云云，以图蒙混过关。算盘是这样打的，能得逞吗？
+在将近18个月的时间里，主流媒体采取了有悖于新闻原则的不当行为—-驳斥了任何关于COVID-19可能起源于武汉病毒学研究所的假设，因为他们的大仇敌前总统特朗普敢于提出这个非常合乎逻辑的结论。我们也不要忘记，北京已经在美国内部建立了深厚的联系，其中包括大学、娱乐场所、体育联盟，当然还有华盛顿特区及其自由派的代孕者。
 
-塔克·卡尔森（Tucker Carlson）开始了追问：为什么白宫关闭了对中共病毒起源的调查？《福克斯新闻》文章的副标题称，主流媒体、福奇、白宫改变了他们对中共病毒起源的腔调。【3】
+因此，当泄漏实验室的理论在2020年1月开始积蓄的时候，中国在美国的“投资”就获得了回报，整个自媒体产业联合体都疯狂地兜售“自然起源”理论，同时还大胆宣布实验室起源假说是“遭揭穿的阴谋论”。
 
-全文如下：
+什么时候道歉？
 
-乔·拜登想让你知道，一年半后，他突然对中共病毒疫情的源头产生了一种温和的好奇心，原来病毒可能不是起源于奥马哈（Omaha），更重要的是，乔·拜登不能说，但他让他的一些高级侦探参与其中——所谓“情报机构”的超级间谍——而且他们承诺会在某个时候报告。
+直到最近的两周，从参议员Rand Paul（R-KY）开始抨击福奇领导下的美国国立卫生研究院（NIH）在武汉实验室参与进行研究工作之后，《华尔街日报》又报道称，三名WIV实验室工作人员于2019年12月因具有COVID-19症状而入院治疗的事情。
 
-到今天为止，乔·拜登的情报人员中有三分之二的人相信病毒是从受感染的动物身上自然传播到人类身上的，就像你在当地的海鲜市场里，浏览穿山甲过道时经常看到的那样，相信这一点的间谍是那些从来没有和病毒学家交谈过，也没有接入互联网（了解情况）的。但是，拜登告诉我们，另三分之一的人“更倾向于”这样一种理论，即中共病毒是从武汉的、一个政府实验室附近泄露的，此时这个实验室正在对几乎相同的蝙蝠冠状病毒进行危险的实验。只有少数间谍相信这一点，但他们对这种可能性持开放态度，谁知道呢？真的。
+因此，实验室泄漏假说几乎在一夜之间被合法化了，这使得自由派人士争先恐后地在他们以前的报告上加上了批注。记者Drew Holden将这种虚伪的洪水整理成史诗般的Twitter帖子：
 
-拜登解释说，不管怎样，我们都会得到一些答案，或者至少更多的问题，可能几个月后。所以，请放心，白宫正在处理此事，老实说，我们对此表示怀疑，就在拜登宣布这一消息的几个小时前，我们得知白宫已经关闭了一项大规模的、正在进行的、合法的联邦调查，这项调查已经进行了几个月。这是由国务院的“军备控制，核查和执行局”（Bureau of Arms Control, Verification and Compliance）进行的，该局负责确保像中共国这样的国家不会囤积致命的非法生物武器，比如说，不明蝙蝠冠状病毒，这些病毒在实验室里被军事科学家操纵，使它们在纽约市更容易传播。
 
-那么，白宫为什么要停止调查？在今天的听证会上，包括福奇在内的美国国家卫生研究院高级官员说，他们不知道白宫为什么要关闭它，他们说他们是从新闻里第一次听说的，这似乎很奇怪，因为国家卫生院雇佣了全国最顶尖的传染病专家，当然，它们和故事有着密切的联系，事实上，正是国家卫生研究院资助了现在臭名昭著的武汉病毒研究所的一些荒诞而危险的研究，这可能导致了西方的毁灭，今天，路易斯安那州参议员约翰·肯尼迪（John Kennedy）问了所有的这些问题。
 
-肯尼迪参议员：为什么你们这些先生和女士要阻止上届政府对中共病毒起源的调查，以及它是否可能来自武汉实验室的调查？
+> You may remember that much of the really bad coverage was focused on [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw)’s suggestion that we better understand the potential for a lab leak from Wuhan.
+> 
+> The difference in framing here from [@nytimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw) between May 2020 and May 2021 is…stark. [pic.twitter.com/dr5kPPbq3a](https://t.co/dr5kPPbq3a)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397334901175750659?ref_src=twsrc%5Etfw)
 
-福奇：先生，我们没有阻止上届政府的任何东西，我不知道你说的阻止是什么意思，我们没有影响力。
 
-肯尼迪参议员：国务院阻止了前政府的调查。
 
-福奇：那跟国家卫生研究院（NIH）没有关系。
 
-肯尼迪参议员：所以他们没有和你们商量？
 
-福奇：他们没有。
+> But it wasn’t just NYT. There’s a lot of ammo from [@CNN](https://twitter.com/CNN?ref_src=twsrc%5Etfw), too. 
+> 
+> Not even two months ago, they ran a piece writing off the lab leak theory as “like something out of a comic book.”
+> 
+> Yesterday, the tone had changed, without any reference to their own role in the previous debate. [pic.twitter.com/O2VMNayPuN](https://t.co/O2VMNayPuN)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397334981375053826?ref_src=twsrc%5Etfw)
 
-肯尼迪参议员：他们和你商量过吗，柯林斯（Collins）？
 
-柯林斯：我今天早上在报纸上看到了。
 
-肯尼迪参议员：他们在没有和专家商谈的情况下令阻止了调查(沉默），你们不想回答那个问题，是吗？
 
-不，他们肯定不想回答。所以，我们仍然不知道为什么白宫叫停了对当前核心问题长达数月的调查，我们也不知道调查结束前发现了什么。
 
-但我们确实有一些想法，上届政府的国务院在最后几天发布的一份情况说明书，由一些正在做调查的人撰写的，这项调查已经被拜登政府关闭了，他们告诉我们，武汉病毒研究所的几名研究人员在2019年秋天得了重病，其中三人去了医院。
+> [@ChrisCillizza](https://twitter.com/ChrisCillizza?ref_src=twsrc%5Etfw) has been a key voice for [@CNN](https://twitter.com/CNN?ref_src=twsrc%5Etfw) on this. In February 2020, he cited a CNN factchecker who concluded you can “say that didn’t happen” about the lab leak.
+> 
+> Yesterday, he seemed baffled that Dr. Fauci wasn’t entirely on his side anymore.
+> 
+> So much for “trust the science” [pic.twitter.com/pIStY6BZmw](https://t.co/pIStY6BZmw)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397335157275865088?ref_src=twsrc%5Etfw)
 
-这是在1月份公布的，美国媒体本周对此进行了报道，情报机构证实了这一点，今天，领导国务院、现已被停止调查的国务院（调查项目）签约人大卫·阿舍（David Asher），在给《福克斯新闻》的一份声明中重申，根据调查结果，“可能有充分的理由怀疑”病毒是从武汉的一个实验室泄露的，中共国政府对此撒了谎。
 
-那么，为什么我们不知道更多呢？好吧，据大卫·阿舍说，国务院强大的势力不想知道更多，他们不想继续问问题，他们不喜欢调查，你想知道他们站在哪一边？大卫·阿舍显然也在想同样的事情。
 
-他说：“我们的一些同事故意淡化与中共国生物武器计划可能存在的联系，他们为什么要这么做？再说一遍，他们站在哪一边？“
 
-这一切都让大卫·阿舍非常不安，他花了很多时间研究这个问题，因为像中共国这样的国家“公开地希望将人工合成生物纳入未来的战争，显然是在我们无知的功利（心态）和科学的帮助下。”当然，这是指美国政府通过国家卫生研究院（NIH）向武汉实验室提供的资金，用于进行可能与这一疫情有关的研究。
 
-大卫·阿舍点名美国国务院负责军备控制（Arms Control）的前代理副部长克里斯·福特（Chris Ford），“他不想深入研究实验室意外的可能性，更不想涉及可能违反（武器公约）的中共国机密军事计划。”
+> And for some reason [@washingtonpost](https://twitter.com/washingtonpost?ref_src=twsrc%5Etfw)’s timeline of events just so happens to omit their own “fact check” of the lab leak theory from April 2020 that concluded “the balance of the scientific evidence strongly suggests the conclusion that the new coronavirus emerged from nature.” [pic.twitter.com/eP4RmJ6mAL](https://t.co/eP4RmJ6mAL)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397335241463902209?ref_src=twsrc%5Etfw)
 
-现在，为什么美国政府的一位官员不想更多地了解一个外国对手违反国际法，并危及数百万人的生命？这是个很好的问题。
 
-福特本人回应《福克斯新闻》，他说，他对调查有“程序和结构上的担忧”，包括他被排除在外，直到12月。但他强调，“实验室起源理论是很有可能的，中共国必须对此负责……有各种各样的理由担心可能的实验室起源，弄清这一点至关重要。”
 
-这就是克里斯·福特现在的立场，我们希望一直如此，这应该是美国政府每个人的立场，突然间，这就是美国媒体的立场，在过去的一周里，几乎每个新闻机构都在疯狂地更新他们关于这个故事的谎言，他们告诉你一年多了这是个阴谋论，现在他们假装从没说过。
 
-就连安东尼·福奇也不得不改变自己对此的看法，他马上就把它打发走了，他和美国国立卫生研究院的弗朗西斯·柯林斯（Francis Collins）称，就此提出问题是“无耻的”，现在？一个新的安东尼·福奇，他承认他不知道武汉病毒研究所正在进行什么样的研究，但我们可能应该调查一下。
 
-肯尼迪参议员：你怎么知道他们没有骗你，把钱用在功能增强研究上？
+> Much of the problem originally was that so many outlets relied on less than trustworthy sources – like the lab itself – to reject the lab leak theory & render it a “conspiracy theory.”
+> 
+> Even [@Reuters](https://twitter.com/Reuters?ref_src=twsrc%5Etfw), who doesn’t usually make the threads, did this. It was unbelievably pervasive. [pic.twitter.com/ulJGkxrx22](https://t.co/ulJGkxrx22)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397335262720630787?ref_src=twsrc%5Etfw)
 
-福奇：好吧，我们已经看到了已经完成和发表的实验结果，他们研究的病毒现在都在公共数据库中，这些都不是功能增强的。
 
-肯尼迪参议员：你怎么知道他们没有做研究，也没有把它放到网站上？
 
-福奇：没有办法保证。
 
-所以福奇，一脸坦然地说，我们可以肯定的是，美国的税收没有用于功能增强研究，因为中共国人没有在互联网上写，我们就是这样知道的。
 
-当少数几个没有脑残的参议员中的一个稍微施压时，福奇就得承认事实上没有，他不知道武汉病毒研究所花了多少美元。
+> I don’t know how else to put it. [@NPR](https://twitter.com/NPR?ref_src=twsrc%5Etfw) was awful about this one. 
+> 
+> In April 2020, the story was “scientists debunk lab accident theory” but in March 2021 the idea suddenly “takes on new life”. 
+> 
+> Did anyone consider who killed the original theory? I have an idea. [pic.twitter.com/KSjoJF4ZSO](https://t.co/KSjoJF4ZSO)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397335273286115329?ref_src=twsrc%5Etfw)
 
-不管怎样，这都是对福奇在这个问题上立场的彻底修正，就在几天前，他被激怒了，他被激怒了，道德上被震惊了，有人说他资助了在中共国功能增强的研究，现在他承认这是完全可能的。
 
-但他知道这是完全可能的，安东尼·福奇批准在武汉实验室进行研究的拨款明确允许进行功能增强实验，2014年，福奇的国家过敏与传染病研究所（NIAID）批准了一个名为“了解蝙蝠冠状病毒出现的风险”的项目拨款，该项目将由一个名为“生态健康联盟（the Eco Health Alliance）”的组织管理，该组织由一个名叫皮特·达扎克（Peter Daszak）的人管理。
 
-（顺便说一句，这就是皮特·达扎克，他在过去的一年里竭尽全力告诉全世界，“这种病毒不可能从实验室泄露”，然后被世界卫生组织任命调查中共病毒的起源，并宣布武汉实验室是无可指责的，真是个骗局。）
 
-福奇的国家过敏与传染病研究所基金会表示，它将资助皮特·达扎克“测试CoV（冠状病毒）种间传播的预测，宿主范围的预测模型（即出苗潜力）将通过反向遗传学、假病毒和受体结合分析以及跨不同物种和人源化小鼠的一系列细胞培养的病毒感染实验进行实验测试。”
 
-哦，所以实际上，这是一个相当广泛的范围，任何一个科学家都会这么说，他们会告诉你很多符合这种描述的东西，但具体来说，那些用蝙蝠冠状病毒进行的“病毒感染实验”究竟包括哪些内容？我们不知道，我们注意到一点，结果似乎就在我们身边。
+> SUPERCUT!
+> 
+> Media mock Trump, [@TomCottonAR](https://twitter.com/TomCottonAR?ref_src=twsrc%5Etfw) for "debunked" Covid lab leak theory [pic.twitter.com/nb0621y2e7](https://t.co/nb0621y2e7)
+> — Tom Elliott (@tomselliott) [May 26, 2021](https://twitter.com/tomselliott/status/1397665146462523399?ref_src=twsrc%5Etfw)
 
-但白宫希望你冷静下来，他们想让你知道情报部门——而不是其他人——在未来几个月的某个时候必须回答这些问题，如果你不能信任情报机构，你能信任谁？你不需要真正的调查，你可以相信他们的话。
 
-（全文完）
 
-拜登的白宫上台不久就关闭了这项大规模的、正在进行的、合法的联邦调查，这项调查已经进行了几个月，这是由国务院的“军备控制，核查和执行局”进行的，该局负责确保像中共国这样的国家不会囤积致命的非法生物武器……时间算上去，应该是“拜习电话”后发生的。
 
-昨晚（5月26日）参议院通过“解密情报”法案前的听证会，包括了对NIH官员的听证，看来拜登不单把责任推给了情报机构，还推给了“专家参谋”机构，看上去“专家们”（福奇、柯林斯）不太买账。
 
-“肯尼迪参议员：所以他们没有和你们商量？
+> [@zerohedge](https://twitter.com/zerohedge?ref_src=twsrc%5Etfw) is one of the few REAL media, which is brave and pursues the truth of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) from the beginning of pandemic. As mine, their account was censored and suspended, by Twitter. Same thing also happened to [@TuckerCarlson](https://twitter.com/TuckerCarlson?ref_src=twsrc%5Etfw) by FB.
+> Their efforts deserve to be appreciated. [https://t.co/NG9RbzwVzc](https://t.co/NG9RbzwVzc)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 27, 2021](https://twitter.com/DrLiMengYAN1/status/1397942678336249856?ref_src=twsrc%5Etfw)
 
-福奇：他们没有。
 
-肯尼迪参议员：他们和你商量过吗，柯林斯（Collins）？
 
-柯林斯：我今天早上在报纸上看到了。
+**评论：**
 
-肯尼迪参议员：他们在没有和专家商谈的情况下令阻止了调查(沉默），你们不想回答那个问题，是吗？”
+**上面的民众留言，让人捧腹，用中共的话来说就是，“群众的眼睛是雪亮的”。美国的民众，在受到其主流媒体的故意误导和欺骗后已经醒来，将其邪恶的用意，揭露得入木三分。这是一个全世界普通民众抗击精英阶层和食利阶层的大觉醒时代，一起合力掀翻笼罩在头顶上的共同的专制天花板，迎来一个平民有平权的时代。**
 
-用塔克的语句结束本文，“真是个骗局”！
-
-参考链接：
-
-【1】[https://gnews.org/zh-hans/1273805/](https://gnews.org/zh-hans/1273805/)
-
-【2】[https://gnews.org/zh-hans/1273869/](https://gnews.org/zh-hans/1273869/)
-
-【3】[https://www.foxnews.com/opinion/tucker-carlson-why-did-the-white-house-shut-down-an-investigation-into-covid-origins](https://www.foxnews.com/opinion/tucker-carlson-why-did-the-white-house-shut-down-an-investigation-into-covid-origins)
+新闻来源：[零对冲](https://www.zerohedge.com/covid-19/didnt-age-well-wuhan-propaganda-msm-laid-bare?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+h)
 
 0
