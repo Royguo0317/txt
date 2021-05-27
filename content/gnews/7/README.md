@@ -1,72 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我和中国企业家在美国的聊天
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1275584/)
+## 加拿大时政生活杂谈 （第十四期）2021-05-24
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1275762/)
 
-作者：喜马拉雅樱花团 小雨
+蒙特利尔皇家山战友团 作者: 平民正道
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27084506/hjkhuio.jpg)
+**一、一周新闻简报**
 
-![](https://lh6.googleusercontent.com/rTmcimy6conn4mSBsg4fLTLA0YqXNlQA4bqbF8u3rIfZtJi2i0LGz7_swF81yXp2w4JWl5RwNXNdCMnc1WnkLMoZEycXCalOeNrAzA_hxFwX1HzsswQFDJs4n1iVln55sqLTlRTx)
+1: 魁省今天单日新增病例位433例，比昨天减少了44人，已经连续两天达到低于500的好记录了，也是自去年9月23号以来最低的一天。目前累计总患病人数为：367,809人，已经康复人数为：351,002人。死亡人数为：11.095人。
 
-![](https://lh4.googleusercontent.com/pSwRcwvl84mb5XCWAleY42DOsw7AFi84p8D8tivmIpSEwArAr6a4OFcWNvANP4CZ4i54mphRCBeLR1tYAmSD9yiyMHkFnZHSCz1MxTrMeH7hPmTei1g0y4pYnFTWBh0HpqqS-7z-)
+2: 昨天周日单日接种疫苗人数为：66,592人，总接种量已达到：4,997,234剂，达到总接种人口的55.2%。还有5,829,449剂疫苗等待人们的接种。
 
-![](https://lh3.googleusercontent.com/fqeOMxSxf-trx59OyDKwhZS6piDUzzSTC0O6HFuVdG7pK2QuE_3YyzaISSCyNDgfBJiAVVazk4HxZJJaUh4Avm62w6UvI7seit5XjcGmYJxNyf_XZG0QfcLGy-rQhBtRSgJG_1Sn)
+3: 蒙特利尔依旧是是魁省单日新增病例最多的城市，今天就有160人新增，累计总数：130,352例。天气渐好，温度升高，希望人们还是要注意安全，注意防疫卫生，虽然接种率提高，但是并不安全。
 
-![](https://lh6.googleusercontent.com/TxiUjeJ_zbeDk4WA8-TjKAptUdj--JPRAf3eL1_16UJGMSn_sEv62WUxlj-DkdNqzNSKAXfOhDq-wAMBp98uv9ilU_BkEkj3kb1qCesckoigUSPC_TGR7bTjJp_E5xr9NbkJOLT1)
+4: 蒙特利尔现在年轻人踊跃接种，自22日周六开始，12-17岁的年轻人无需预约排队接种疫苗，结果是反应非常踊跃，现在光一个体育馆的在周六和周日两天接种的的1,213剂疫苗中，就有890剂是年轻人群组来接种的。
 
-![](https://lh5.googleusercontent.com/HssjBUNJwVtyAzObMCB8wEoFSZs8HzmAgTBlMp2XTQ9MlRkAB5QHvARfE1B2aSPh1Ro5FNBHyPON5tSLWiHZA5LcTZ3YEQLy3E2xTcyEjzSCB2Os8rNKcpRsfvYeYPAj9weV_GMh)
+5: 有关重开边境的条件是：加国的病例数目必须受控，还要达到群体免疫指标。需要有75%的人接种了第一剂疫苗，还有20%的人接种第二剂的条件得以满足。
 
-![](https://lh5.googleusercontent.com/JekmsUbpDa0bP24db61u9qZZtRnkUQf6SsgLo0Gkd2GdgDK2s9mtXrHg7ng1vUEB_vFKxjUz-i86-espKZjQFX-GDV6WQBW4kAVxmBDpi0LGlVKGL7XykyznsMmdxVC-fKAZGYDV)
+**二、世界上的疫苗没有一个获得FDA认证**
 
-![](https://lh3.googleusercontent.com/kOmczu1_1uiigkL3JGtkDxKKEiqlmYvaFzyORYUSNCI3yQVWQ19nk8aSQgkICnzPMqJsQnmb4RkMW9Wts2uJTlKQ7ewb_UMVl7jF_soou_h9M3RIz0S5RautlVvZaS75gIGydwhb)
+截止本月10号，美国打了疫苗的人直接死亡的有4434人。截至本月8号，整个欧盟地区因注射疫苗直接死亡的人数是10570人。过去的5个月当中，欧盟因为直接注射疫苗损伤的报告是405295例，死亡1万多人。尚不包括注释疫苗后引发的并发症的死亡。很多人打了疫苗后实锤性的证据表明有突发性的心脏病。另外超过8千多人需要住院治疗。这件事情国家没有任何说法。
 
-![](https://lh3.googleusercontent.com/P-pog2-dpRFIxiSW-QC0m-ssW39pdDttYgXAgZKwXSYVjhfdOx_nT9XTCL6ozV2ewpfRknOS1jLqLNlvCK3-ONFJzHpKvxty2Nv78TLIlk-14AecHBl4SMGU6lvqTh_cHLj76yIF)
+在过去15年，总共因为注射疫苗接到的死亡报告只有3000多人。过去的5个月比过去的15年因为疫苗死亡的人数的总和还要多10000多人。
 
-![](https://lh6.googleusercontent.com/cYrSsemKZNX94hOdu22Y_qEsKMOvGba8rUPqEXxpAFJdiPodfyZRmDMTGDpmRuIsL_bFi0p4u_C_ewpXzxwpEs9nVAg9fEB_MZBty9_JyFe_qwUzNeHL1q4NQuw8RjbTOuKXTFrY)
+**三、疫苗问答**
 
-![](https://lh6.googleusercontent.com/yQw6AlkSAEavwvGd1q4jTSzvxQeDJSr9GuUPS_4JDexbedFj1Gv2tgEWpi15TfWwuwH72TDO_n63ga_10bSCjAI397qX96I742HUql9S_9fZrQzyOVXTwFtlp80fraauV6qVK903)
+印度变异毒株肯定会全球流行的。很多国家对印度实施了旅行禁令。
 
-![](https://lh5.googleusercontent.com/fUEHUhIY08u91L9qYWUJJcDKLT2btHwoG-Fq28I8nszo015zGfnPAN3lR80GMhwhZ4kfHuF2JIqKKa6t3E3Q5CDYOAOXxs8cGEeMf1g9YobGO6f0cYEPO6JHIkh_MJLQxPB1gLVx)
+很多动物吃印度恒河的尸体。变异病毒会在动物身上感染和传播。病毒设计者目标是形成这样一种结果，病毒在人和动物之间不停跳换变异，常年在人群当中流行。
 
-![](https://lh5.googleusercontent.com/0Y4X70gHFnGpDt6Wki8nbgczDUPqxoR98bnuB08nTpnZ9jTnnkhh4FyKnHL0H0TctcsFKzqYPthl9C5raUt3ocYLhJqRrTuqdVPC8zqj4DXGqxTWr4Nlj58KRgxqQRt8TXHDncUq)
+羟氯喹对印度变异毒株有效。2周前印度在治疗方案里加入了羟氯喹和伊维菌素，日发病人数由40多万下降到20万。
 
-![](https://lh3.googleusercontent.com/DEj8NUuKQFcgBDPR1MJz-S1El0KWHMBGybQBO7GptQIzai3HUAi6mionX3eSOfiPilhcA5oZ8PujFRT36mQDoBj_YnLDYNpZySfpC4Op6R_CwyUBgU7IMHuiXxbDPo25ZFKvlN95)
+不同疫苗混打产生的临床反应比打同一种疫苗的2针的反应要增加。
 
-![](https://lh5.googleusercontent.com/RnkHiQrP_y72aIi1jWT60RxsoLVvcQF-nuRmXxAjM5FOjUVvEj9O28cgCfGGwsvIhw0rTdyTpsvw3ZB5sUpsxkrMpsfWNjQD5lPwk6RlqUnds5ppZAF8wSqkP8aG16TM-sHAQZGB)
+疫苗不可能代谢出人体，一旦注射它会终身产生S蛋白，对人体造成终身的影响。
 
-![](https://lh4.googleusercontent.com/zZyE5txK0cjP5fq3Nknn0FVhYszrEqPR_LOSYxJTBck-RNMZxBxQViowY606rLVI3QzyfbFoSZ5DLLzyH7Q8R6uRIk-D-zaz9UnnHF1I6UMvdtIJVRHjXly0hVR_2lwjwcY9QdTh)
+纳米颗粒病毒非常容易突破人体屏障，进入到神经系统和生殖系统，进而进入到神经细胞里面，引起嗜睡等神经退化性的疾病。
 
-![](https://lh5.googleusercontent.com/S5DrK4XUIyEzechugy6zR4NLras2b4Mx6DjAOlnmkojovF57XqxwcGP7xX58qk3wfKfuAQYydizM-zRNzT9DiMqg8BubKmzj0x-hLpwyjh7Ia0ZqubqhHujsL7F4ZOUfg5IH92Ww)
+打了疫苗头两天没事因为肌肉细胞在吸收疫苗。过了2天S蛋白会表达在肌肉表面，免疫系统对肌肉细胞进行攻击，引起胳膊酸痛抬不起来。
 
-![](https://lh4.googleusercontent.com/hoHX-Ei8fkrNC0b8W4a7khWah1V_AQYqg_6GMzHZA-xtgLHIAIu2NXfRQZXeOChOk0hllTEOsjZrv2wTCAZNxzSNfpdTpIbtDpIU3EjhGHj6CezYjsV7luAdBKeVBRduSkvIncaI)
+大部分疫苗是现病毒载体的疫苗，还有一些做重组蛋白没有上市处于实验阶段。
 
-![](https://lh6.googleusercontent.com/-U9Lw6mcvnE0RCF6tVDdlSMt2moeV9C0qLK4XQgeysQZ4SYQqaIeu01nkPGXKHJFAfs6kmbBOcaiwjUUAOW9xVcWUVGGa7ojcrpAsd4N_4LNgblG8zF8uxOSuWQG_hImLrYT9jp8)
+所有的疫苗就是文字游戏，90%几的保护率是相对的。衡量疫苗是否有用看的是绝对保护率。现在的疫苗绝对保护率最多只有1%点几。说明这些疫苗没有任何保护率。福奇等人出于自身利益考量没有告知民众疫苗的真实作用。
 
-![](https://lh4.googleusercontent.com/niMbrfaQyeOQAV-zcwcVUWUoR1DZHbCxwOHzEkA9rH44uvjDcETBcfA_Bd4UGMPQq1XwNR_VNW807ajkaBorAar_k6PFmJNrJtw7KKPObillMqAa7z2OZHfKMw4TLEogNLdk4HDH)
+CCP病毒会侵害全身脏器，引起心脏病，脑血栓等各种疾病的死亡。诱因是因为感染该病毒。
 
-![](https://lh4.googleusercontent.com/A4o43VdyEn2N2__h0kJdRd7rCvGJyc_rGiXEYHy80YdXNRZ-Hm2DBvBI2cZKKqven6fZVPM4h9hQNWhk86VkYOqpzLVsgu5qOCmKHyoYxUuVeaY3ptRzziviUTHC40-anAjSlf8q)
+共产党有CCP病毒的解药。该解药有可能是羟氯喹，对所有的病毒都有抑制效果。羟氯喹比氯喹的副作用小，人体吸收度更高。
 
-![](https://lh4.googleusercontent.com/IM7sSqBcJl-J5cB4TO4NlKQK2pFzGDPbDYNYnnVspcISdsvEXSksTFoI8RN6PBfvc7igzb_pTKKk3hHtEUZ441Obpdq9kpq1VWwYZvo1I2stZ9uhhnmNMcGKiJ_QDzJDXL6_8i8e)
+不要相信任何疫苗。国内的舆论是被控制的，打了疫苗后还有病毒的爆发。
 
-![](https://lh4.googleusercontent.com/SIuGy7XT7-5Ra2vRbNkX9hbcU8Dz6r5u_N0pNuyyXs99Ubksw0w4i1Z4fCpr4fSKiHMNatytutovYDrjs9aDeOoIIe7M5ORgtflxjf8XBd4Li16k400NweCxOXUwsnsdv6SrhPc_)
+疫苗没有抗药性。抗药性是指对药，不是对疫苗。
 
-![](https://lh6.googleusercontent.com/oj3-GCP70OW9Nr9z8MF03E31mMz9uGu2rsqJi1gdLuEzgGvGcrc0kx7YJFw5N-vLAARIZ5leduLmS8V4-MLmK5sMU8-6afHJ9Tfllanvw9IvJsDlT5v7ppPOqW4JoIeiW-GWdV5u)
+接种了疫苗变成了新冠阳性。诺贝尔医学奖得主、病毒学家、艾滋病毒发现者，Luc Montagnier博士说所有接着了疫苗的人将在2年内死亡。
 
-![](https://lh3.googleusercontent.com/1cTQ9XfuYzzQqE05IVTIIkjq1SYKTei5x6T06pnYes7G_U_4H-thka0X3SLVdf9iS6Ss0AFyKrVCv5nobeQh1cQxGv_7i-K-jnZx00VHyfWfu8HF58mG-ww7c3t-9kY8LgdgNqGq)
+**四、时政杂谈**
 
-![](https://lh4.googleusercontent.com/xikBZZX34vmrlSiixlBN4TGdlPmGrw7xAEf8UlU2lg2kiJQ0kgZEiXwJ-guS4xoOcCi4Odqw2JFU3cCFXtGWlt4OKcoExDCfhzh-jGrT5nIx_aP9_qfz-xzWS48cNEO07e2CpeKC)
+5月20号，欧盟通过会议冻结了欧中投资协议。
 
-![](https://lh4.googleusercontent.com/L9BOBXBC_rF1Eruk94YhwyakwV9zk4rESIMecj1T_CxjlEUQ8_nQfK0AjU-zJbYhLX63pbXXjqeoSLeg5fyqHFWIj4BN_EprzMDPQBaLd8jfSlIQhMg8n2NHYkYjrMcJiClSe1yX)
+闫丽梦博士再一次上了福克斯的脱口秀，引起强烈反响。
 
-![](https://lh6.googleusercontent.com/uF-VvAL9Z5PQaNrbqtmMBIQrIF94j2z-a7JxCx4GgwW_GE2fRFhmkrL-rPI-wh3z26cWnQEN7wXXH3IjzS5JrgzCOLAlYx_rvruJM-Tn8FnIT6v3O3DHIqanzIq--ely_8611z77)
+美国海军举行了最大规模的军演目标是对准中国和俄国，大约有2万5千人参加，从太平洋到大西洋横跨17个时区。
 
+英国航母伊丽莎白号出发，第一个目标是针对中国南海。该航母是世界顶尖的。
 
+美韩发表联合公报。
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*校对：喜马拉雅东京樱花团 / 鸿雁*
-*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22044513/%E4%BA%8C%E7%BB%B4%E7%A0%81-2.jpg)
+疫苗公司和政府勾结，忽悠民众打疫苗，从中赚取大量利润。
 
+[视频连接](https://www.gtv.org/video/id=60ac303bad9feb7deee35fc6)
 
-+1
+* * *
+
+*发稿 文锦*
+
+0

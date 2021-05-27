@@ -1,25 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇“反水”！坚称“不相信中共病毒源于自然”
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1275227/)
+## 中共病毒起源的舆论风向大转 福奇自保支持全面调查
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1275341/)
 
-#### 译者：文兴
+##### 翻译报道：William
 
 #### 校对：人间四月
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27051241/1-133.png)*图片源自CNN*
-据《国家脉动》5月22日报道，安东尼·福奇博士（Dr. Anthony Fauci）之前曾否认川普政府（Trump Administration）关于中共病毒从中共国实验室逃脱的说法，而现在他坚称 “不相信 “这种病毒源于自然。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27061157/1-134.png)
+[图面来源](https://www.theguardian.com/us-news/2020/apr/07/fox-news-coronavirus-trump-media-allies-turn-against-fauci)
 
-福奇是在接受《政治事实》（PolitiFact）的凯蒂·桑德斯（Katie Sanders）采访时发表该评论的，而讽刺的是，他此次接受采访源于一家与中共有染得公司活动，该活动的名称是“联合美国的真相：一次关于真相调查的节日”（United Facts of American: A Festival of Fact-Checking Event）
+根据澳洲新闻(News.com.au)的报道，美国顶级病毒专家安东尼·福奇（Anthony Fauci）希望对中共病毒的来源进行调查，并且不相信(not convinced)它是自然产生的。
 
-“你仍然相信它是自然形成的吗？”桑德斯向这位国家过敏和传染病研究所（NIAID）所长问道。”不，实际上，”，福奇说，他 “不相信 “该病毒源于自然。他接着说道：“不，我对这一点不以为然。我认为我们应该继续调查在中共国发生的事情，直到我们尽最大努力查明到底发生了什么。当然，调查此事的人说，这很可能是从一个动物库中出现，然后感染了人，但也可能是其他原因，我们需要找出这一点。所以，你知道，这就是为什么我说我完全赞成任何关于病毒来源的调查。”
+安东尼·福奇博士在本月稍早的美国联合会(United Facts of America)的活动上发表讲话时称他不相信这种病毒是自然产生的。身为国家过敏和传染病研究所(the National Institute of Allergies and Infectious Diseases)所长的他表示应该继续调查在中共发生的事情，直到继续尽最大的能力找出真相。
 
-此次福奇对中共病毒自然起源的怀疑，与他以前的立场截然不同。正如《国家地理》杂志2020年5月的一篇文章曾写道， “随着时间的推移，所有的变化都将强烈表明（中共病毒）是在自然界进化而成，然后“跳”到了人身上”。 福奇说，基于科学证据，他也不接受另一种理论——有人在野外发现中共病毒，把它带到实验室，然后它意外地被泄漏了出来。上述话语被当时的主流媒体解读为是他对川普政府的斥责，因为川普一直都认为中共病毒可追溯到武汉病毒研究所。（Wuhan Institute of Virology）
+根据《纽约邮报》(New York Post,)报道，福奇博士在5月11日的参议院听证会上表示，需要对中共病毒来源进行全面调查(full investigation)。共和党参议员罗杰·马歇尔(Roger Marshall)在质询中问及是否认为中共病毒可能是由武汉实验室事故引起的时，福奇博士回答这种可能性确实存在，他完全赞成进行全面调查。
 
-**简评**：
+过去，中共病毒起源于中共武汉实验室的舆论一直仅限于在各大社交媒体上，但是如今该理论不仅在网路上有热烈的讨论，在情报界高层组织和世界各地政府中的讨论也进行得如火如荼。
 
-福奇“反水”可谓是石破天惊，不仅因为他在科学界和医疗界大佬级别的江湖地位，也因为他曾经是中共病毒自然学说的最忠实拥簇。在他“反水”的背后除了有来自包括科学界在内各方觉醒的压力外，最主要的原因是七哥指出的“就是因为他知道我们有“第二个闫丽梦博士”在欧洲作证了”，七哥同时指出，“两个闫丽梦博士”真正的功力还没发挥出来。在译者看来，福奇的“反水”像极了黑帮电影里那些帮派分子为求自保而转做污点证人的情节，而电影演到这的时候往往也意味着即将开始最后的收网了。让我们拭目以待吧！
+共和党众议院情报委员会(Republican party’s House Intelligence Committee)上周四发布的一份新报告称，有大量的间接证据表明中共病毒是源自中共实验室的一次泄漏。共和党人在报告中写道由于中共的不合作，国际组织很难再去深入研究该病毒的真正来源。
 
-原文链接：[https://thenationalpulse.com/breaking/fauci-flip-flops-on-covid-origins/](https://thenationalpulse.com/breaking/fauci-flip-flops-on-covid-origins/)
+美国有线电视新闻网（CNN）的最新报告指出，在2019年11月就有武汉病毒研究所的研究人员确诊，比世界上第一例报告的中共病毒病例早了一个月。该报告援引国务院情况说明书，指出病患们严重到必须住院，但没有清楚注明他们有什么症状或者症状是否与已知疾病有关。
+
+而美国国家情报局(The US Director of National Intelligence)局长艾薇儿·海恩斯（Avril Haynes）在四月份的《全球威胁听证会》(Worldwide Threats Hearing)上表示，关于冠状病毒的确切传播地点和起源，尚无具体答案。她表示情报界不知道最初传播中共病毒病毒的地点，时间或方式。
+
+世界卫生组织（WHO）对中共病毒起源进行调查的疾病生态学家彼得·达萨克（Peter Daszak）告诉美国有线电视新闻网，只有理论认为该病毒起源于实验室，但实际上仍然没有证据。他表示源于实验室这完全是薄弱的假设，结论非常的不可靠，是根据在许多的假设之上。
+
+#### 译评:
+
+福奇反水的原因，就像郭先生在视频中说的，是因为他知道另一位比阎丽梦博士更核心的人物已经在欧洲作证，所以福奇不得不转变为不相信病毒来源来自自然，并且支持对中共病毒来源做全面性的调查。福奇他不知道他在阻挠全球人民使用羟氯喹来预防、治疗冠状病毒，进而导致全球348万人死亡和美国59万人死亡的罪恶有多大。他本应该克尽职守、守护国内民众健康，但却压抑可以救人的羟氯喹，并在疫情初期给予错误的讯息给美国抗疫体系，各种丧心作为造成许多的民众染疫死亡。中共病毒来自武汉实验室的事实终将昭然若揭，到时也就是中共以及这群恶徒的受审时刻。
+
+原文出处: [Anthony Fauci ‘not convinced’ Covid-19 started naturally in China](https://www.news.com.au/world/asia/experts-not-convinced-covid19-developed-naturally-as-conspiracy-theory-gains-traction/news-story/eeb15bd1c70ab075029e89ffcc9f0fd7)
+
+
 
 +1
