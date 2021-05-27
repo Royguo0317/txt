@@ -1,88 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 不分党派竟都主张应该施打疫苗真的「水很深」?
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1275795/)
+## 【有声读物】贝壳找房被调查，马化腾在劫难逃
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1275876/)
 
-台湾宝岛农场斗阵来拼
+配音：香草山录音组 信念7
 
-台湾随着疫情升温，确诊人数与日俱增，政客们不分蓝绿党派口径一致，纷纷敦促中央政府能尽快购买疫苗，好让全台民众能普遍施打，把整个社会的氛围塑造成疫苗好似万灵丹，如此可怕的行径，实在令人非常惊恐!
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27085251/%E6%93%B7%E5%8F%96527-1-1.jpg)图片来源:桃园市政府网站
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-回溯去年2020年台湾有一则沸沸扬扬的新闻指出，**台湾东洋药品的董事长林全大动作召开记者会澄清东洋代理德国BNT（BioNTech）和辉瑞药厂合作的「辉瑞疫苗」破局的原委始末，引发轩然大波，甚至感叹疫苗采购战区「水太深」，拒绝继续缠斗下去。**
 
-台湾民众对林全一定不陌生，他是蔡政府2016年首任阁揆，当时蔡总统更亲自指定**林全为「政权交接小组」的召集人，与蔡政府于公于私的关系颇佳，也一直被视为蔡英文总统的最佳战友。**这样的角色，在各方政客为庞大的疫苗商机撕斗中，也是锻羽而归。
 
-政客们为了抢夺疫苗经济的大饼，完全失心疯的泯灭良心，漠视打中共病毒疫苗可能对人体的危害及副作用，不把人命当成一回事的态势，进而虎视眈眈蓄势待发地为了抢食疫苗商机，各地方县市长及政客们近日无不争相博取新闻版面表态。
 
-笔者整理下列几位台湾政治人物所提出的说词，美其名分秒必争地为纾解台湾疫情发声，事实恐怕是桌子底下政商间钱与权的角力斗争，早已如火如荼的展开!
 
-**现任台北市长:柯文哲**
 
-『针对北市府是否考虑自行购买疫苗？柯文哲表示，北市府如果被逼到没有办法，也听不到明确的答案，当然只好自谋生路。 』
 
-**被高雄市民罢免的国民党籍前高雄市长:韩国瑜**
+[路透社](https://www.reuters.com/world/china/exclusive-china-launches-antitrust-probe-into-tencent-backed-property-broker-ke-2021-05-25/)报道称，据消息人士透露，中共市场监督管理总局（State Administration for Market Regulation，简称SAMR）最近正在对房屋中介公司贝壳找房的“二选一”垄断行为进行调查。贝壳公司股票因此一度下跌近10%。
 
-『韩国瑜提到，希望政府能放下手中权力，开放地方首长自行购买疫苗，也向14位国民党籍的县市长喊话，要他们「各显神通」，透过人脉去取得疫苗。 』
+贝壳找房（KE Holdings，BEKE）成立于2001年，总部位于北京，是中共国最大的线上线下房产交易和服务平台，同时也是地产经纪品牌链家的运营商。腾讯是贝壳找房的大股东。
 
-**国民党现任党主席:江启臣**
 
-『主席江启臣今(26日)晚又再批政府采购疫苗方针，还称「国民党愿意不计毁誉」的争取足够疫苗。 』
 
-**国民党籍现任南投县县长:林明溱**
+**文字版原文：[【热点播报】贝壳找房被调查，马化腾在劫难逃](https://gnews.org/zh-hans/1273643/)**
 
-『林明溱表示，盼与上海复星购买30万剂辉瑞BNT疫苗』
+作者：纽约香草山信息部 雪梨
 
-**国民党籍现任金门县长:杨镇浯**
 
-『金门县长杨镇浯公开呼吁中央能同意金门县自对岸大陆取得国际认可的合法疫苗。 』
 
-**民进党籍现任桃园市市长:郑文灿**
+音频处理/发稿：雪梨
 
-『桃园市长郑文灿要向中央争取，让同样是高风险的，机场员工和防疫计程车司机，也可接种。 』
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-**民进党籍现任基隆市市长:林右昌**
+**更多资讯，更多关注**
 
-『基隆市长林右昌表示，疫情已进入巷弄战的阶段，呼吁中央「用疫苗拉出社会防线」，将警察、教师等列入疫苗的优先施打对象。 』
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**民进党籍现任高雄市市长:陈其迈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-『陈其迈再三提醒说，他苦口婆心地提醒「疫苗是结束武汉肺炎最有效的方式」』
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-阎丽梦科学家三篇报告的问世，已经提供足够的科学论证告诫全世界，这个冠状病毒是中共国所制造出来的生物病毒武器。因中共国病毒危害全人类，才能掀起全球鼓励施打疫苗的阴谋，果然「水很深」!疫苗是中共国包装下所编织的谎言，唯有追查病毒起源，传播病毒真相，人类才能度过中共病毒疫苗和共产党为世界正在带来的威胁与危机!
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-(本文只是笔者观点，不代表G NEWS立场)
-
-资料来源:
-
-[东洋代理疫苗破局遭疑内线交易林全反驳：无政府保证是主因\[影\] |产经|重点新闻](https://www.cna.com.tw/news/firstnews/202011120217.aspx)
-
-[借疫发挥2／东洋被截杀才惊觉疫苗「水太深」林全抓狂拒绝再玩东洋甫在10月12日宣布有条件采购到德国BNT疫苗](https://www.ctwant.com/article/86751)
-
-[等不到疫苗！柯文哲怒：若被逼到……台北市只好自谋生路-政治](https://news.ltn.com.tw/news/politics/breakingnews/3547332)
-
-[要中央放下权力！韩国瑜再要求：让地方各显神通自购疫苗-政治](https://news.ltn.com.tw/news/politics/breakingnews/3547635)
-
-[坚持要中国疫苗？江启臣：国民党不计毁誉也要争取足够疫苗-政治](https://news.ltn.com.tw/news/politics/breakingnews/3547655)
-
-[南投欲购上海复星BNT疫苗朝野攻防|政治](https://www.cna.com.tw/news/aipl/202105260272.aspx)
-
-[开第一枪！金门县长杨镇浯吁开放地方向大陆购买疫苗|联合新闻网：最懂你的新闻网站](https://udn.com/news/story/7327/5466239)
-
-[郑文灿力争疫苗提高民航员.防疫司机接种率](https://www.ftvnews.com.tw/news/detail/2021526N05M1)
-
-[林右昌建议扩大疫苗优先施打对象-生活](https://news.ltn.com.tw/news/life/paper/1451139)
-
-[武汉肺炎》陈其迈「医师」上身：疫情流感化、社区化快打疫苗-生活](https://news.ltn.com.tw/news/life/breakingnews/3529156)
-
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-
-文章审核：zhong
-
-文章发布：Little Liu
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

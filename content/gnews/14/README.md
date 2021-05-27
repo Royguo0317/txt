@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（三十）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1275945/)
+## 【热点播报】拜登总统关于新冠病毒起源调查的声明！
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1275955/)
 
 作者：纽约香草山信息部 6zero4
 
@@ -10,64 +10,27 @@
 
 
 
-5月25日塞林博士的2连推：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27112835/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E6%8B%9C%E7%99%BB%E6%80%BB%E7%BB%9F%E5%85%B3%E4%BA%8E%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E8%B5%B7%E6%BA%90%E8%B0%83%E6%9F%A5%E7%9A%84%E5%A3%B0%E6%98%8E%EF%BC%81.png)图片来源：Getty Images
 
-第1推，有人更改抑或黑客了美国NIH出版物数据库，给彼得·打杂客的生态健康联盟加上了一篇疑似描述“COVID-19病毒来自实验室”的文章。并贴上这个事情发生的网页截图。
-
-
-
-> Someone has altered, maybe hacked, the U.S. National Institutes of Health publications results database for Peter Daszak of the EcoHealth Alliance to include an article saying [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) was made in the laboratory. [pic.twitter.com/iC9QW7k5j4](https://t.co/iC9QW7k5j4)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397051524174553089?ref_src=twsrc%5Etfw)
+5月26日，白宫网站发出拜登总统关于新冠病毒起源调查的[声明](https://www.whitehouse.gov/briefing-room/statements-releases/2021/05/26/statement-by-president-joe-biden-on-the-investigation-into-the-origins-of-covid-19/)，全文翻译如下：
 
 
-
-第2推，附上塞林博士自己昨天接受Rumble媒体深度采访的视频，讨论COVID-19病毒起源，以及CCP的生物战计划和CCP-PLA对美国病毒研究计划的广泛渗透。
-
-
-
-> A new in-depth interview of Dr. Lawrence Sellin discussing the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw), the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s biological warfare program and the CCP's and People's Liberation Army's massive infiltration of U.S. virus research programs.
->  [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaPandemic](https://twitter.com/hashtag/CoronaPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wSsDlwnqup](https://t.co/wSsDlwnqup)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397111084696449028?ref_src=twsrc%5Etfw)
-
+> **早在2020年初COVID-19疫情出现时，我就呼吁CDC访问中（共）国，了解病毒情况，以便我们能更有效地抗击疫情。我们的调查员在最初的几个月里未能到位，已深远地妨碍了对任何COVID-19起源的调查。**
+> 
+> **室事故。我在本月早些时候收到了这份报告，并要求进一步跟进。截至今天，美国情报界已经“综合了这两种情况”，但尚未就这个问题得出最终结论。这是他们当前的情景：“虽然情报界中的两个机构倾向于前一种情况，还有一个机构更倾向于后一种情况，但都只有较低或中度置信区间，多数情况下都互不相信有足够的信息来评估一个比另一个更有可能”。**
+> 
+> **我现在已经要求情报部门加倍努力，收集和分析可使我们更接近最终结论的信息，并在90天内向我报告。作为报告的一部分，我已经咨询了可能需要进一步调查的领域，包括向中国提出的具体问题。我还要求我们的国家实验室和我们政府的其他机构加入到这项工作，以加强情报界的努力。我已经要求情报界让国会充分了解他们的工作。**
+> 
+> **美国仍将继续与世界各地志同道合的盟友合作，敦促中（共）国参与全面、透明、以证据为基础的国际调查，并提供所有相关的数据和证据。**
 
 
-5月26日塞林博士的3连推：
+据[大纪元报道](https://www.epochtimes.com/gb/21/5/26/n12977734.htm/amp?__twitter_impression=true)，截至当天下午5点截稿时，中共驻华盛顿大使馆和美国国家情报总监办公室，都还没有立即回应媒体的评论请求。
 
-第1推，转发Joe Hoft 昨天发表在Gateway Pundit上的一篇文章“武汉大学动物实验室是不是COVID-19疫情的源头？”证据显示COVID-19疫情是从武汉大学P3动物实验室开始的，其到底是PLA此举的肇事者还是替罪羊呢？并致谢COVID-19侦探ann和加拿大多伦多枫叶农场。
+COVID-19病毒肆虐全球一年半以来，已经造成近2亿人感染，近350万人死亡的史无前例的全球性灾难，在科技如此发达的现代文明社会，竟然连疫情的起因和病毒的起源都还找不着北，实在是对于人类文明的无情讽刺和戏弄。最初将病毒实验室泄漏假设斥为阴谋论的美国主流媒体，近期迅速转向，承认病毒可能从武汉病毒实验室泄漏可能性。作为地球文明的灯塔国，作为人类文明的引领者，美国不能再坐视不管，不能再眼睁睁看着CCP用COVID-19病毒将地球和人类推向无尽的深渊和黑暗。拜登总统下令情报界90天内拿出明确病毒起源的报告！
 
+美国情报界官方由国家情报总监(DNI)领导，下辖18个横跨军界和政界的情报机构，民间情报机构就更不计其数了，包括各个国防承包商、商会、协会等各种民间组织机构。这股力量实在太大了，就单单塞林博士在推特上号召的民间侦探们挖出的病毒情报和证据就足以形成一个完整的证据链了。美国政府在面对国家安全甚至人类命运的关键时刻，通常很难拿到恐怖分子和敌对国家主动提供的数据和证据，因此情报就成为最后采取军事行动的唯一依据，如伊拉克战争、利比亚战争等。
 
-
-> Evidence says [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic may have started in the Wuhan University’s ABSL-3 animal laboratory. But is it the perpetrator or the scapegoat for a Chinese People's Liberation Army operation?
-> (COVID-19 detectives [@ann95657173](https://twitter.com/ann95657173?ref_src=twsrc%5Etfw) & [@TorontoFarmEN](https://twitter.com/TorontoFarmEN?ref_src=twsrc%5Etfw) thanked)[https://t.co/tkxc8eMykf](https://t.co/tkxc8eMykf)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397170798947979274?ref_src=twsrc%5Etfw)
-
-
-
-第2推，转发印度主流新闻媒体GoaChronicle 总编Savio Rodrigues2天前采访塞林博士后，发表的一篇文章“与塞林博士一起揭开冠状病毒起源之谜”，讲述COVID-19起源和中共生物战计划，以及独特的印度病毒变种问题。
-
-
-
-> A major Indian outlet, the Goa Chronicle, interviews Dr. Lawrence Sellin about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw), China's biological warfare program and the unique aspects of the Indian variant.[https://t.co/eJ6h03SRnD](https://t.co/eJ6h03SRnD)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397248172410511362?ref_src=twsrc%5Etfw)
-
-
-
-第3推，转发“战戈鹰Tuan“战友的中文推：来自中共内部的信息（尚在验证中），即南京的PLA东部战区发现COVID-19病毒骨架ZC45和ZXC21，以及COVID-19在2019年初被给到WIV，由单超带队在灵长类动物身上进行实验，并附上塞林博士2天前接受Rumble媒体采访谈到此点时的视频。第一步，证明COVID-19来自实验室，我们做到了；第二与第三步，证明CCP病毒是CCP生物战计划的一部分，以及CCP-PLA已经深度渗透到美国病毒研究计划，并将这两种情况都揭露出来，我们正在做。
-
-
-
-> Step 1. Prove that [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) came from a laboratory. We did. 
-> Steps 2 and 3. Prove that this [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) is part of the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s biowarfare program and that the CCP and the People's Liberation Army have deeply infiltrated U.S. virus research programs and expose them both. 
-> We will. [https://t.co/v9Jxi91sHc](https://t.co/v9Jxi91sHc)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 27, 2021](https://twitter.com/LawrenceSellin/status/1397747063463501830?ref_src=twsrc%5Etfw)
-
-
-
-美国NIH出版物数据库里发上了一件离奇的事情，不知道是有人更改抑或被黑客了，让彼得·打杂客的生态健康联盟旗下加上了一篇疑似描述“COVID-19病毒来自实验室”的文章。打杂客可是和CCP科学家打得最火热、勾结得最深层的美国科学家，可谓是美国科学家里面对CCP的病毒自然起源最坚决、最铁杆的支持者，其生态健康联盟更是美国科研经费拨往中共国武毒所等科研机构的桥头堡。在美国主流媒体纷纷转向，美国科学界重量级人物福奇和柯林斯等接连反水的情势下，打杂客肯定如坐针毯，内心无比煎熬，一世英名如坠深渊不说，求生欲望才是其当下最紧要的事情，因此自己更改数据库加上这篇文章的可能性更大，也更合乎逻辑，要么谁吃饱了撑着去黑客数据库，以帮你臭名昭著的打杂客解围？
-
-塞林博士衷心地感谢推特上跟随自己挖掘CCP病毒真相线索和证据的新中国联邦战友们，赞扬他们在短短几个月里所做的事情比美国整个情报界一年做的还要多还要好，并阶段性地总结了COVID-19病毒溯源的结论：第一步，证明COVID-19来自实验室，我们已经做到了；第二与第三步，证明CCP病毒是CCP生物战计划的一部分，以及CCP-PLA已经深度渗透到美国病毒研究计划，并将这两种情况都揭露出来，我们正在做。可见病毒真相揭秘收网进度可喜！
-
-塞林博士带领COVID-19侦探们，亦即新中国联邦战友们取得的阶段性成果，有目共睹，举世震惊，让专业的美国情报界面子上挂不住了，拜登总统更是如鲠在咽，再也沉不住气了，因此昨天立即下令美国情报界18个官方情报机构在90天内，必须拿出阐明病毒起源真相的报告，为查明病毒真相立下了军令状，为疫情的控制乃至终结瞄准了方向，那就是CCP！
+拜登总统下令情报界90天内拿出明确病毒起源的报告，无疑是对中共的最后通牒，在这最后的90天内，在病毒起源问题上，中共会给国际社会一个完全透明、全面而独立的调查吗？会给全人类一个客观而完善的交代吗？这无异于与虎谋皮。拜登总统的声明看似破釜沉舟势在必得，但是国际社会已经给中共太多时间了，正如闫博士一针见血、直指核心的那句话：只有灭掉共产党才会找到病毒真相！
 
 校对/发稿：雪梨
 
@@ -85,4 +48,4 @@
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-0
++1
