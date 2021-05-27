@@ -1,32 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一场惨悲的肥皂剧——唁逝去的参与者(1)
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1275613/)
+## 《文贵说》| 图片连载（八十四）
+` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1275322/)
 
-#### 撰稿：Nstar
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27100807/%E6%B0%B8%E8%BF%9C%E6%B0%B8%E8%BF%9C.jpg)39岁的英国模特斯蒂芬妮. 杜波依斯（Stephanie Dubois）
-这名在英国和塞浦路斯之间奔波的模特于5月6日在塞浦路斯的帕福斯镇接种了阿斯利康出品的中共病毒疫苗，并于5月19日陷入昏迷。她的死讯在上周六（5月22日）被宣布。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27060205/G2101026_X_CN.jpg)
+**我们衡量战友的好与坏，是否是战友，就一个标准你是否要真的灭共！**
 
-杜波依斯在接种 第一支阿斯利康中共病毒疫苗后在脸书上写道: …我今天接种了疫苗！我讨厌打针，今天也不例外…… 现在我感觉很糟糕……
+**—— 郭文贵先生 2020年2月12日**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27060225/G2101027_X_CN.jpg)
+**我们从我爆料开始起，实际上我们就在超限战之中。对待超限战，只有两个办法。第一个，你不被他超，就是你别理他。第二个，你把他超了，把他给灭了!**
 
-在她被送往尼科西亚的医院后，于5月14日在脸书上又发布了一条更令人担忧的信息：……醒来时感觉很好，然后在一个小时内，我身体颤抖，所有的关节都抽搐起来，我在挣扎着呼吸，并且冷到骨头里，有持续的头痛和头晕……妈妈和爸爸来照顾我，并带我去做了(中共)病毒测试，幸好是阴性的……但这仍然不能解释问题出在哪里。也许我是对上周的(中共)疫苗接种注射有长时间的反应……
+**—— 郭文贵先生 2017年12月23日**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27060244/G2101028_X_CN_1.jpg)
+**在现实面前，把事想得坏一点没有坏处，把事想得太好了你会跌的很深，会让你失望。**
 
-据报道，杜波依斯没有任何潜在的健康问题 。她在接受中共病毒疫苗阿斯利康后几天就出现了 “严重的血栓症”。8天后由于呼吸和神经系统方面的问题而被送往医院。在遭受 “严重的血栓发作 “后死亡。虽然目前没有证实阿斯利康中共病毒疫苗和她的死亡之间的联系，但欧洲药品管理局（EMA）将对此进行调查。
+**—— 郭文贵先生 2020年3月16日**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27060303/G2101029_X_CN.jpg)
+**灭共可能下一分钟，很可能是我们一辈子，没那么简单，灭共容易呀。灭心中的雾霾，心霾，灭中国大地的雾霾，水天地的污染，难呐！太难了！**
 
-阿斯利康公司的疫苗是全球首批被批准用于中共病毒的疫苗之一，但早在3月份就引起了争议，因为有少数接受者在接受疫苗后不久就出现了血栓发作。到3月中旬，包括法国、德国、西班牙和意大利在内的几个欧盟国家已经暂停使用牛津-阿斯利康公司的疫苗，塞浦路斯也是暂时停止使用该疫苗的国家之一。然而，像德国、法国和许多其他欧盟成员国一样，这种疫苗从3月18日起再次被使用。
+**—— 郭文贵先生 2020年6月6日**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27060323/G2101030_X_CN.jpg)
+**我希望我们的战友未来，能改变共产党带来的余毒。每个人都要有团队精神，每个人都要有奉献精神，还要多看对方优点。**
 
-4月，英国宣布向30岁以下的人提供阿斯利康中共病毒疫苗的替代疫苗(这后来被扩大到40岁以下的人)，因为在总共1800万名阿斯利康中共病毒疫苗的接种者中，有30人被发现出现血凝栓，7人死亡。
-
-谁是下一个跟随斯蒂芬妮·杜波依斯的人?
-
-参考链接：
-
-1. [A British model has died days after receiving the AstraZeneca vaccine](https://ca.finance.yahoo.com/finance/news/british-model-died-days-receiving-093900592.html)
-2. [Model dies after receiving COVID vaccine](https://www.marca.com/en/lifestyle/2021/05/26/60ae503de2704edd1d8b476a.html)
+**—— 郭文贵先生 2020年6月13日**
 
 
-（本文仅代表作者个人观点）
 
-0
+- **更多精美海报请点击:**
+- [***Getome 文贵说｜Words From Miles***](https://getome.com/user/wordsfrommiles)
+- [***G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4#getter)
+
+
+
+
++1

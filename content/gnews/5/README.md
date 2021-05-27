@@ -1,49 +1,100 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】事实核查机构必须检讨自己是否尊重事实！
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1276180/)
+## 为老不尊：MSM赤裸裸的武汉宣传
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1276217/)
 
-作者：纽约香草山信息部 6zero4
+翻译：文复
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+在将近18个月的时间里，主流媒体采取了有悖于新闻原则的不当行为—-驳斥了任何关于COVID-19可能起源于武汉病毒学研究所的假设，因为他们的大仇敌前总统特朗普敢于提出这个非常合乎逻辑的结论。我们也不要忘记，北京已经在美国内部建立了深厚的联系，其中包括大学、娱乐场所、体育联盟，当然还有华盛顿特区及其自由派的代孕者。
+
+因此，当泄漏实验室的理论在2020年1月开始积蓄的时候，中国在美国的“投资”就获得了回报，整个自媒体产业联合体都疯狂地兜售“自然起源”理论，同时还大胆宣布实验室起源假说是“遭揭穿的阴谋论”。
+
+什么时候道歉？
+
+直到最近的两周，从参议员Rand Paul（R-KY）开始抨击福奇领导下的美国国立卫生研究院（NIH）在武汉实验室参与进行研究工作之后，《华尔街日报》又报道称，三名WIV实验室工作人员于2019年12月因具有COVID-19症状而入院治疗的事情。
+
+因此，实验室泄漏假说几乎在一夜之间被合法化了，这使得自由派人士争先恐后地在他们以前的报告上加上了批注。记者Drew Holden将这种虚伪的洪水整理成史诗般的Twitter帖子：
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27125922/%E3%80%90%E4%B8%96%E4%BA%8B%E8%A7%A3%E8%AF%84%E3%80%91%E4%BA%8B%E5%AE%9E%E6%A0%B8%E6%9F%A5%E6%9C%BA%E6%9E%84%E5%BF%85%E9%A1%BB%E9%9D%A2%E5%AF%B9%E8%87%AA%E5%B7%B1%E6%98%AF%E5%90%A6%E5%B0%8A%E9%87%8D%E4%BA%8B%E5%AE%9E%E7%9A%84%E7%8E%B0%E5%AE%9E%EF%BC%81.png)
+> You may remember that much of the really bad coverage was focused on [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw)’s suggestion that we better understand the potential for a lab leak from Wuhan.
+> 
+> The difference in framing here from [@nytimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw) between May 2020 and May 2021 is…stark. [pic.twitter.com/dr5kPPbq3a](https://t.co/dr5kPPbq3a)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397334901175750659?ref_src=twsrc%5Etfw)
 
-5月25日，艾美奖获奖调查记者、《纽约时报》最受欢迎撰稿人、《辛克莱的全部措施》主持人Sharyl Attkisson在自己的专属网站SHARYL ATTKISSON上发飙了一篇文章：“[PolitiFact事实核查必须纠正自己的事实](https://sharylattkisson.com/2021/05/a-politifact-fact-check-has-to-correct-its-own-facts/)”。SHARYL ATTKISSON是一个公开透明、无畏、无党派背景的自媒体平台。
 
-当今的事实核查媒体行业，真实信息和真相往往是牺牲品。Poynter 研究所的PolitiFact就是这样一个典型的事实核查媒体平台，最近却不得不对其“事实核查”进行了一次令人尴尬的逆转，因其之前称COVID-19源自实验室的说法是“无处遁形的阴谋论”。
 
-去年9月，PolitiFact首次发表关于闫博士一份声明的事实核查报告，斩钉截铁地断言：“COVID-19的基因结构五法进行实验室人工操作”，以攻击这位舍生忘死、义无反顾地揭露病毒实验室起源真相的伟大科学家。
 
-在COVID-19疫情初期，《华盛顿邮报》等许多主流媒体也声称实验室理论已被“揭穿”，这些报道都引述了“CCP科学家”们对“病毒自然起源说”的主要发现，并对提出了实验室起源的科学家和公众人物进行广泛地批评。实际上这才是阴谋论的做法。
 
-不管是基于COVID-19病毒，疫情发生和发展，还是基于科学理论甚至常识，该病毒都不可能是自然进化的，因此PolitiFact的断言是错误的，由于PolitiFact本身并没有对COVID-19的基因结构进行第一手检查，因此它没有任何事实依据做出这个莫名其妙的断言。
+> But it wasn’t just NYT. There’s a lot of ammo from [@CNN](https://twitter.com/CNN?ref_src=twsrc%5Etfw), too. 
+> 
+> Not even two months ago, they ran a piece writing off the lab leak theory as “like something out of a comic book.”
+> 
+> Yesterday, the tone had changed, without any reference to their own role in the previous debate. [pic.twitter.com/O2VMNayPuN](https://t.co/O2VMNayPuN)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397334981375053826?ref_src=twsrc%5Etfw)
 
-知错就改，善莫大焉。5月17日，PolitiFact内部发布了一份编辑笔记，写道：“COVID-19的基因结构无法进行实验室人工操作”这一论断没有证据支持，现在引发了更广泛的争议，因此我们将这个“事实核查”从数据库中删除，以等待进一步审查。
 
-这类滑稽事情在事实核查行业已变得越来越普遍。PolitiFact关于闫博士那份声明的事实核查报告将成为经典案例。他们不仅严重高估了自己的专业程度，还极度低估了科学界和民众的智慧和能量，狂妄地在即使结论是不可知的，抑或依赖贫乏并有争议的来源，甚至当它是完全错误的，也毫不含糊地声称知道“真相”。PolitiFact在闫博士那份声明的事实核查上表现出来的是一个无所不知的权威，莫名其妙地假装知道一个有争议话题的终极真理，PolitiFact因此无处遁形，将其撤下，是作恶的结束，从善的开始吗？
 
-PolitiFact是极左媒体Facebook旗下的Poynter 研究所运营的非营利性项目，标榜尊重事实，唯事实是核心竞争力。其“事实核查”业务被不同企业和政治利益集团广泛采用。这些企业和政治利益集团试图控制当今市场上的几乎所有信息源，在利益面前，他们选择特定的话题，以特定的方式掩盖问题，甚至提供虚假或误导性的信息，引起争议，成为塑造、引导和操纵公众舆论的宣传工具。而这种自毁长城的做法将导致其不可能成为人们信任并依赖的事实核查工具！
 
-这些说一套做一套，甚至完全背弃自己的初衷和立场的媒体平台，在推崇共产主义乌托邦的中共国无处不在，可不知从什么时候开始，美国等拥抱基督文明的西方媒体也见利忘义、惟利是图了？中共知道军队乃至核武器都不是最厉害的武器，媒体才是！因此中共几十年以来在全世界不惜血本地BGY全球媒体。当下，在以COVID-19病毒为主战线，以媒体宣传为掩护的超限战场上，以中共为首的邪恶力量几乎快成功完成“大重启”了，但文贵先生引领的爆料革命不遗余力、不畏生死地揭露CCP罪恶事实。蝴蝶效应已经发生，极左媒体们接二连三反水转向，就是“大觉醒”战胜“大重启”的一个转折点！
 
-校对/发稿：雪梨
+> [@ChrisCillizza](https://twitter.com/ChrisCillizza?ref_src=twsrc%5Etfw) has been a key voice for [@CNN](https://twitter.com/CNN?ref_src=twsrc%5Etfw) on this. In February 2020, he cited a CNN factchecker who concluded you can “say that didn’t happen” about the lab leak.
+> 
+> Yesterday, he seemed baffled that Dr. Fauci wasn’t entirely on his side anymore.
+> 
+> So much for “trust the science” [pic.twitter.com/pIStY6BZmw](https://t.co/pIStY6BZmw)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397335157275865088?ref_src=twsrc%5Etfw)
 
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+> And for some reason [@washingtonpost](https://twitter.com/washingtonpost?ref_src=twsrc%5Etfw)’s timeline of events just so happens to omit their own “fact check” of the lab leak theory from April 2020 that concluded “the balance of the scientific evidence strongly suggests the conclusion that the new coronavirus emerged from nature.” [pic.twitter.com/eP4RmJ6mAL](https://t.co/eP4RmJ6mAL)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397335241463902209?ref_src=twsrc%5Etfw)
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+> Much of the problem originally was that so many outlets relied on less than trustworthy sources – like the lab itself – to reject the lab leak theory & render it a “conspiracy theory.”
+> 
+> Even [@Reuters](https://twitter.com/Reuters?ref_src=twsrc%5Etfw), who doesn’t usually make the threads, did this. It was unbelievably pervasive. [pic.twitter.com/ulJGkxrx22](https://t.co/ulJGkxrx22)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397335262720630787?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> I don’t know how else to put it. [@NPR](https://twitter.com/NPR?ref_src=twsrc%5Etfw) was awful about this one. 
+> 
+> In April 2020, the story was “scientists debunk lab accident theory” but in March 2021 the idea suddenly “takes on new life”. 
+> 
+> Did anyone consider who killed the original theory? I have an idea. [pic.twitter.com/KSjoJF4ZSO](https://t.co/KSjoJF4ZSO)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397335273286115329?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> SUPERCUT!
+> 
+> Media mock Trump, [@TomCottonAR](https://twitter.com/TomCottonAR?ref_src=twsrc%5Etfw) for "debunked" Covid lab leak theory [pic.twitter.com/nb0621y2e7](https://t.co/nb0621y2e7)
+> — Tom Elliott (@tomselliott) [May 26, 2021](https://twitter.com/tomselliott/status/1397665146462523399?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> [@zerohedge](https://twitter.com/zerohedge?ref_src=twsrc%5Etfw) is one of the few REAL media, which is brave and pursues the truth of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) from the beginning of pandemic. As mine, their account was censored and suspended, by Twitter. Same thing also happened to [@TuckerCarlson](https://twitter.com/TuckerCarlson?ref_src=twsrc%5Etfw) by FB.
+> Their efforts deserve to be appreciated. [https://t.co/NG9RbzwVzc](https://t.co/NG9RbzwVzc)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 27, 2021](https://twitter.com/DrLiMengYAN1/status/1397942678336249856?ref_src=twsrc%5Etfw)
+
+
+
+**评论：**
+
+**上面的民众留言，让人捧腹，用中共的话来说就是，“群众的眼睛是雪亮的”。美国的民众，在受到其主流媒体的故意误导和欺骗后已经醒来，将其邪恶的用意，揭露得入木三分。这是一个全世界普通民众抗击精英阶层和食利阶层的大觉醒时代，一起合力掀翻笼罩在头顶上的共同的专制天花板，迎来一个平民有平权的时代。**
+
+新闻来源：[零对冲](https://www.zerohedge.com/covid-19/didnt-age-well-wuhan-propaganda-msm-laid-bare?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+h)
 
 0

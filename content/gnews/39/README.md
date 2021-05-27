@@ -1,45 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】贝壳找房被调查，马化腾在劫难逃
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1275876/)
+## 【新闻简评】在日华侨的控诉 (连载三)
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1275894/)
 
-配音：香草山录音组 信念7
+作者：喜马拉雅东京樱花团 / 待命（文晓）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/23222759/5-76.jpg)
+[图片来源](https://livedoor.blogimg.jp/kimuchiudon/imgs/4/b/4bc4affb.jpg)
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+5月21日，日本雅虎网站登载了【每日新闻】的题为【中国当局からスパイ容疑で116日間拘束された「在日華僑」“恐怖の取調べ”と“真の狙い”を語る】的文章。题目大意是：驻日华侨诉说：以涉嫌间谍罪被中共当局拘留116天的旅行，“恐怖的审讯”和“真实的目的”。控诉者是75岁的老华侨，冈山县华侨华人总会刘胜德会长。对刘胜德会长进行采访的是日本记者吉村刚史。通篇不仅报道了刘胜德会长被中共拘留116天的遭遇，字里行间更是藏尽中共内斗的丑态。
 
+之三【中国国家安全部です】（中文：我们是中国国家安全部的）
 
+第二天的日程是，直到出发时间为止，游览苏州的拙政园（世界文化遗产，明代庭园），然后直接去浦东机场 ……. 。所以，早餐后，启程前往苏州。
+在小雨中，我们结束了庭院游览，大概在中午左右，准备赶往浦东机场，就去了停车场……，在停车场被五六个人围住，有人用日语喊”刘胜德”。“我们是中国国家安全部的，有几个问题要问你，请你上车。” 我被指示上了一辆近似白色的旅行车，坐在后座上。副驾驶座上的人用手持摄像机对准我，我被两个非常高大的年轻人夹在中间，我和蒋被分开乘坐不同的车里。在车内，我的眼镜、护照和手机被拿走，我被蒙上了眼睛。有人用日语跟我说：“请不要担心，不会伤害你，我们有话要问你，请你配合。”我想应该是在市区里行进了20到30分钟…….， 我被告知下车，我照做了。被领到的房间里，眼罩才被摘掉。这是苏州一家酒店的一个房间（被拘留者专用）。我被告知将在这里呆一个月，然后再乘坐高铁到天津（也是为被拘留者准备的，但比苏州的住处要豪华），说是在那里我将呆三个月。
+审讯过程中，有两个摄像头对着我。 两名审讯员、一名翻译和一名记录员。他们问：刘先生，还没吃午饭吧？你的胃感觉怎么样？ 我当时心里想：这哪里是吃饭的地方啊，赶紧结束吧！为什么会这样？・・・・・・
 
+（未完待续）
 
-
-
-
-[路透社](https://www.reuters.com/world/china/exclusive-china-launches-antitrust-probe-into-tencent-backed-property-broker-ke-2021-05-25/)报道称，据消息人士透露，中共市场监督管理总局（State Administration for Market Regulation，简称SAMR）最近正在对房屋中介公司贝壳找房的“二选一”垄断行为进行调查。贝壳公司股票因此一度下跌近10%。
-
-贝壳找房（KE Holdings，BEKE）成立于2001年，总部位于北京，是中共国最大的线上线下房产交易和服务平台，同时也是地产经纪品牌链家的运营商。腾讯是贝壳找房的大股东。
-
-
-
-**文字版原文：[【热点播报】贝壳找房被调查，马化腾在劫难逃](https://gnews.org/zh-hans/1273643/)**
-
-作者：纽约香草山信息部 雪梨
-
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*校对：喜马拉雅东京樱花团 / 東洋武士*
+*责任编辑：喜马拉雅东京樱花团 / 文小白*
+*发布：喜马拉雅东京樱花团 / 野猫*
 
 
-音频处理/发稿：雪梨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

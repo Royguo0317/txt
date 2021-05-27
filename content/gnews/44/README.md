@@ -1,19 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】马来西亚疫情骤升！感染率超过印度！
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1275843/)
+## 【有声读物】贝壳找房被调查，马化腾在劫难逃
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1275876/)
 
-路仁
+配音：香草山录音组 信念7
 
-据[CNBC 5月26日报道](https://www.cnbc.com/2021/05/26/covid-malaysia-now-has-more-cases-per-million-people-than-india.html?__source=sharebar%7Ctwitter&amp;par=sharebar)，马来西亚近几日感染中共病毒人数骤然上升，按照最近7日感染人数平均数比较，每百万人口染疫人数达到205.1人，超过印度百万人感染率的150.4人。疫情的骤然上升，使得这个人口只有3200万的国家，感染中共病毒人数接近7000人/天（7日平均）。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27092629/malasia.jpg)
-作为东南亚发展中国家之一的马来西亚，有限的医疗资源和卫生条件，使得该国疫情面临失控的危险。根据其卫生部数据显示，本周三，马来西亚更是创下了7478例感染的历史记录，使得本国累计感染人数超过533300例。死亡病例超过2300例，超过700人依旧在ICU。以致于马来西亚总卫生官诺尔.海珊.阿卜杜拉医生（Dr. Noor Hisham Abdullah）在推特上发出最为悲观的发展趋势：即该国的疫情上升曲线几乎是一条指数曲线上升，如此下去，将会引发“垂直爆发”。他警告人民要做最坏的准备，而且几近绝望的向全体人民发出请求，希望人民呆在家里，只有众志成城才能战胜疫情。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27092621/noor.jpg)
-这种突然爆发的疫情，出现在马来西亚和世界上其他发展中国家，使得这些国家不得不为了争取疫苗供应而努力挣扎。目前马来西亚获得的疫苗中有近三分之一是进口的中共国疫苗，按照目前该国疫苗接种率只有5%的情况来看，马来西亚和众多的发展中国家将是对疫苗有很大需求和极度依赖的。这就为中共大搞“疫苗外交”提供了机会。用病毒让你瘫痪，再用疫苗要挟你，如同武侠小说里面的邪教教主用“人尸丸”一样。中共所谓的要建立“人类命运共同体”，就如同邪教教主欲“一统江湖”一样，各种下三滥的手法无所不用其极。希望马来西亚人民能早日认清：只有中共才是一切病毒的根源所在，疫苗并不能解决根本问题，尤其是中共疫苗！祝愿马来西亚人民早日战胜疫情！
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-* * *
 
-*编辑、发稿 文锦*
 
-+1
+
+
+
+
+[路透社](https://www.reuters.com/world/china/exclusive-china-launches-antitrust-probe-into-tencent-backed-property-broker-ke-2021-05-25/)报道称，据消息人士透露，中共市场监督管理总局（State Administration for Market Regulation，简称SAMR）最近正在对房屋中介公司贝壳找房的“二选一”垄断行为进行调查。贝壳公司股票因此一度下跌近10%。
+
+贝壳找房（KE Holdings，BEKE）成立于2001年，总部位于北京，是中共国最大的线上线下房产交易和服务平台，同时也是地产经纪品牌链家的运营商。腾讯是贝壳找房的大股东。
+
+
+
+**文字版原文：[【热点播报】贝壳找房被调查，马化腾在劫难逃](https://gnews.org/zh-hans/1273643/)**
+
+作者：纽约香草山信息部 雪梨
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
