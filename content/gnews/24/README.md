@@ -1,69 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 冠状病毒在鲁莽、可怕、非常危险的实验过程中得到增强
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1275433/)
+## 我和中国企业家在美国的聊天
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1275584/)
 
-翻译：康州盘古农场 – Freeearth
-校对：康州盘古农场 – TrueSky
-编辑：康州盘古农场 – 心照
+作者：喜马拉雅樱花团 小雨
 
-据《福克斯新闻》作者：塔克·卡尔森(Tucker Carlson)  2021年5月21报道
+![](https://lh6.googleusercontent.com/rTmcimy6conn4mSBsg4fLTLA0YqXNlQA4bqbF8u3rIfZtJi2i0LGz7_swF81yXp2w4JWl5RwNXNdCMnc1WnkLMoZEycXCalOeNrAzA_hxFwX1HzsswQFDJs4n1iVln55sqLTlRTx)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27064239/34324234234234-1-3.png)
+![](https://lh4.googleusercontent.com/pSwRcwvl84mb5XCWAleY42DOsw7AFi84p8D8tivmIpSEwArAr6a4OFcWNvANP4CZ4i54mphRCBeLR1tYAmSD9yiyMHkFnZHSCz1MxTrMeH7hPmTei1g0y4pYnFTWBh0HpqqS-7z-)
 
-塔克：冠状病毒是从哪里来的？
+![](https://lh3.googleusercontent.com/fqeOMxSxf-trx59OyDKwhZS6piDUzzSTC0O6HFuVdG7pK2QuE_3YyzaISSCyNDgfBJiAVVazk4HxZJJaUh4Avm62w6UvI7seit5XjcGmYJxNyf_XZG0QfcLGy-rQhBtRSgJG_1Sn)
 
-“塔克·卡尔森今夜”主持人质问了病毒的起源。
+![](https://lh6.googleusercontent.com/TxiUjeJ_zbeDk4WA8-TjKAptUdj--JPRAf3eL1_16UJGMSn_sEv62WUxlj-DkdNqzNSKAXfOhDq-wAMBp98uv9ilU_BkEkj3kb1qCesckoigUSPC_TGR7bTjJp_E5xr9NbkJOLT1)
 
-有理性的人问的第一个问题是：去年冠状病毒传染到美国后，有一些理性人在问很简单的一个问题：这种疾病是从哪里来的？
+![](https://lh5.googleusercontent.com/HssjBUNJwVtyAzObMCB8wEoFSZs8HzmAgTBlMp2XTQ9MlRkAB5QHvARfE1B2aSPh1Ro5FNBHyPON5tSLWiHZA5LcTZ3YEQLy3E2xTcyEjzSCB2Os8rNKcpRsfvYeYPAj9weV_GMh)
 
-查明真相不仅仅是好奇心这么简单。这是一个迫在眉睫的公共卫生问题。如果要防止下一次灾难，你必须确定当前的灾难是怎么发生的。
+![](https://lh5.googleusercontent.com/JekmsUbpDa0bP24db61u9qZZtRnkUQf6SsgLo0Gkd2GdgDK2s9mtXrHg7ng1vUEB_vFKxjUz-i86-espKZjQFX-GDV6WQBW4kAVxmBDpi0LGlVKGL7XykyznsMmdxVC-fKAZGYDV)
 
-如果我们不十分仔细地调查飞机坠毁的原因，飞机将不断坠毁，而你将永远不会乘坐飞机。这就是我们拥有国家运输安全委员会（NTSB）的原因。因此，随着这种病毒在世界范围内的传播，我们都在等待一些可靠的公共卫生机构—美国疾病预防控制中心（CDC），世界卫生组织（WHO）以及任何人提出有关其来源的详细信息, 但是这些组织中没有人挺身而出。
+![](https://lh3.googleusercontent.com/kOmczu1_1uiigkL3JGtkDxKKEiqlmYvaFzyORYUSNCI3yQVWQ19nk8aSQgkICnzPMqJsQnmb4RkMW9Wts2uJTlKQ7ewb_UMVl7jF_soou_h9M3RIz0S5RautlVvZaS75gIGydwhb)
 
-相反，他们告诉我们的是一个完全荒谬的故事。他们说，由于没有人能解释的原因，中共国中部的一个海鲜市场出售了诸如穿山甲这样的野生哺乳动物。这种穿山甲在某种程度上成为了感染的中间宿主；因为中国人吃奇怪的食物，所以导致世界全生病了。那就是他们告诉我们的。
+![](https://lh3.googleusercontent.com/P-pog2-dpRFIxiSW-QC0m-ssW39pdDttYgXAgZKwXSYVjhfdOx_nT9XTCL6ozV2ewpfRknOS1jLqLNlvCK3-ONFJzHpKvxty2Nv78TLIlk-14AecHBl4SMGU6lvqTh_cHLj76yIF)
 
-在中国，他们知道事实并非如此。他们（中共）很早就知道此事（的真实原因）。在2020年2月6日，从一开始，华南理工大学的科学家们就在互联网上上传了一篇有关冠状病毒起源的论文。他们对所发生的事情有着完全不同的看法。科学家说，这种病毒很可能来自一种叫做“中级马蹄蝙蝠”的动物。有趣的是，他们说因为在武汉900公里范围内没有已知的中级马蹄蝙蝠。在那著名的海鲜市场上也没有出售过那种蝙蝠。实际上，科学家们采访了将近60位在那个市场上工作或购物的人们。所有人都确认没有出售过马蹄蝙蝠。
+![](https://lh6.googleusercontent.com/cYrSsemKZNX94hOdu22Y_qEsKMOvGba8rUPqEXxpAFJdiPodfyZRmDMTGDpmRuIsL_bFi0p4u_C_ewpXzxwpEs9nVAg9fEB_MZBty9_JyFe_qwUzNeHL1q4NQuw8RjbTOuKXTFrY)
 
-因此，他们相信冠状病毒已从蝙蝠传染到人。这是在何时何地以及如何发生的呢？科学家们指出，显而易见的是在海鲜市场的几百码内有一个叫做武汉市疾病预防控制中心的地方。事实证明，该中心使用了中级马蹄蝠作研究。大约七英里外的另一个设施叫做武汉病毒研究所，该研究所也进行了中级马蹄蝠的研究。
+![](https://lh6.googleusercontent.com/yQw6AlkSAEavwvGd1q4jTSzvxQeDJSr9GuUPS_4JDexbedFj1Gv2tgEWpi15TfWwuwH72TDO_n63ga_10bSCjAI397qX96I742HUql9S_9fZrQzyOVXTwFtlp80fraauV6qVK903)
 
-因此，对于这些在爆发初期就在一线工作的中国科学家们而言，结论是显而易见的：“杀手冠状病毒可能源自武汉的实验室”。那是2020年2月的第一周。
+![](https://lh5.googleusercontent.com/fUEHUhIY08u91L9qYWUJJcDKLT2btHwoG-Fq28I8nszo015zGfnPAN3lR80GMhwhZ4kfHuF2JIqKKa6t3E3Q5CDYOAOXxs8cGEeMf1g9YobGO6f0cYEPO6JHIkh_MJLQxPB1gLVx)
 
-在中共当局将其撤下之前，这项研究已经在互联网上发表了数周。 而且，他们知道，我们却无法知道写这研究报告的人被怎样了。但是，我们有副本。 令人惊讶的是，即使这是公开的，西方的公共卫生官员也完全忽略了它。 当被问及该病毒是否来自实验室时，他们变得敌对，有时甚至歇斯底里。
+![](https://lh5.googleusercontent.com/0Y4X70gHFnGpDt6Wki8nbgczDUPqxoR98bnuB08nTpnZ9jTnnkhh4FyKnHL0H0TctcsFKzqYPthl9C5raUt3ocYLhJqRrTuqdVPC8zqj4DXGqxTWr4Nlj58KRgxqQRt8TXHDncUq)
 
-例如，在国立卫生研究院（NIH）网站上的帖子中，理应更了解此事的NIH主任弗朗西斯·柯林斯（Francis Collins）认为有关实验室泄漏的问题是“令人发指的”， 这好像您因为问了这个问题会有罪。但是这些问题并不离谱，他们（华南理工大学的科学家们）似乎是合理的。 去年秋天，我们与具有第一手知识的人进行了交谈。
+![](https://lh3.googleusercontent.com/DEj8NUuKQFcgBDPR1MJz-S1El0KWHMBGybQBO7GptQIzai3HUAi6mionX3eSOfiPilhcA5oZ8PujFRT36mQDoBj_YnLDYNpZySfpC4Op6R_CwyUBgU7IMHuiXxbDPo25ZFKvlN95)
 
-闫丽梦博士是一位著名的中国病毒学家。中共病毒大流行的早期，她就曾在中共国从事中共病毒研究。根据亲眼所见，她确定该病毒来自武汉的一个实验室。
+![](https://lh5.googleusercontent.com/RnkHiQrP_y72aIi1jWT60RxsoLVvcQF-nuRmXxAjM5FOjUVvEj9O28cgCfGGwsvIhw0rTdyTpsvw3ZB5sUpsxkrMpsfWNjQD5lPwk6RlqUnds5ppZAF8wSqkP8aG16TM-sHAQZGB)
 
-于2020年9月15日，她参加了这个节目，并说：从我的第一份报告中，我可以提供可靠的科学证据，证明（中共病毒）Covid 19实际上并非来自自然界，我与世界顶级病毒学家合作。因此，根据我的经验，我可以告诉你这是在实验室中创建的。这是由中国军方拥有，并且还传播到世界各地造成的这种伤害。
+![](https://lh4.googleusercontent.com/zZyE5txK0cjP5fq3Nknn0FVhYszrEqPR_LOSYxJTBck-RNMZxBxQViowY606rLVI3QzyfbFoSZ5DLLzyH7Q8R6uRIk-D-zaz9UnnHF1I6UMvdtIJVRHjXly0hVR_2lwjwcY9QdTh)
 
-塔克：造成了这种伤害。您确定是中共政府有意释放了这种病毒吗？他们这样做了吗？
+![](https://lh5.googleusercontent.com/S5DrK4XUIyEzechugy6zR4NLras2b4Mx6DjAOlnmkojovF57XqxwcGP7xX58qk3wfKfuAQYydizM-zRNzT9DiMqg8BubKmzj0x-hLpwyjh7Ia0ZqubqhHujsL7F4ZOUfg5IH92Ww)
 
-博士闫丽梦：肯定是的，故意地。
+![](https://lh4.googleusercontent.com/hoHX-Ei8fkrNC0b8W4a7khWah1V_AQYqg_6GMzHZA-xtgLHIAIu2NXfRQZXeOChOk0hllTEOsjZrv2wTCAZNxzSNfpdTpIbtDpIU3EjhGHj6CezYjsV7luAdBKeVBRduSkvIncaI)
 
-这是一个强有力的声明。但是，闫丽梦的实力更强。再次，她是一名中国病毒学家，在疫情爆发之初亲自在中共国进行了中共病毒-COVID的研究。她不是互联网专家。她已经掌握了有关大流行如何开始的第一手资料。没有多少人可以这么说，但是她可以。她做到了。但是，没有人听她说的。相反，那些贯骗立即去诋毁她，以使她个人名誉扫地。
+![](https://lh6.googleusercontent.com/-U9Lw6mcvnE0RCF6tVDdlSMt2moeV9C0qLK4XQgeysQZ4SYQqaIeu01nkPGXKHJFAfs6kmbBOcaiwjUUAOW9xVcWUVGGa7ojcrpAsd4N_4LNgblG8zF8uxOSuWQG_hImLrYT9jp8)
 
-所谓的事实检查网站《政治事实（Politifact）》抨击闫博士的说法“不准确且可笑”。他们却从未解释过他们是如何知道这一点的。《政治事实（Politifact）》的性别研究专业的学生是否有获得高级科学的机会？我们以为他们没有。但是他们不停攻击，并指责闫博士是“火上浇油”的骗子。
+![](https://lh4.googleusercontent.com/niMbrfaQyeOQAV-zcwcVUWUoR1DZHbCxwOHzEkA9rH44uvjDcETBcfA_Bd4UGMPQq1XwNR_VNW807ajkaBorAar_k6PFmJNrJtw7KKPObillMqAa7z2OZHfKMw4TLEogNLdk4HDH)
 
-对于那些大科技公司而言，这已足够了。媒体垄断立即席卷而来，使整个话题消失了。 脸书（Facebook）审查了我们对阎博士的采访，然后将其完全删除。脸书（ Facebook）拥有的Instagram也随之效仿。两者都使用了《政治事实（Politifact）》的主张来证明其审查制度是正当的。然后，当然，有线电视新闻网（CNN）在最后大肆庆祝整个事情。
+![](https://lh4.googleusercontent.com/A4o43VdyEn2N2__h0kJdRd7rCvGJyc_rGiXEYHy80YdXNRZ-Hm2DBvBI2cZKKqven6fZVPM4h9hQNWhk86VkYOqpzLVsgu5qOCmKHyoYxUuVeaY3ptRzziviUTHC40-anAjSlf8q)
 
-布莱恩·斯特勒（BRIAN STELTER）：前几天，卡尔森（Carlson）采访了一名“举报人”。她声称她有证据表明在中共国武汉发生了中共病毒COVID-19阴谋。但是，当采访视频在社交媒体上播放时，脸书（Facebook）和Instagram通过贴上虚假信息标签进行了干预。
+![](https://lh4.googleusercontent.com/IM7sSqBcJl-J5cB4TO4NlKQK2pFzGDPbDYNYnnVspcISdsvEXSksTFoI8RN6PBfvc7igzb_pTKKk3hHtEUZ441Obpdq9kpq1VWwYZvo1I2stZ9uhhnmNMcGKiJ_QDzJDXL6_8i8e)
 
-注意到了吗？据美国有线电视新闻网(CNN)报道，媒体垄断“介入”。这不是无情的左翼公司为了自己在中国共产党的主人而进行审查的问题。一点也不。这是一项干预。这样做是为了我们自己的利益。
+![](https://lh4.googleusercontent.com/SIuGy7XT7-5Ra2vRbNkX9hbcU8Dz6r5u_N0pNuyyXs99Ubksw0w4i1Z4fCpr4fSKiHMNatytutovYDrjs9aDeOoIIe7M5ORgtflxjf8XBd4Li16k400NweCxOXUwsnsdv6SrhPc_)
 
-当然，当时有一个政治潜台词：因为唐纳德·川普（Donald Trump）是总统。所以媒体上的游击队员别无选择，只能灭了这个故事。如果事实证明中共国对这一流行病负有责任，那么川普将不用对这一流行病负责。他可能会被再次当选。因此，他们出于对病毒及其病毒科学的偏见而继续撒谎。大家看到记者们对药物羟氯喹的报道也做了同样的手段，川普推荐羟氯喹后，他们称其为毒药。但是，现在是新的一天。乔·拜登（Joe Biden）在白宫。 他们让他（拜登）当选了。因此，一些记者决定可以放弃这个撒谎的姿势。
+![](https://lh6.googleusercontent.com/oj3-GCP70OW9Nr9z8MF03E31mMz9uGu2rsqJi1gdLuEzgGvGcrc0kx7YJFw5N-vLAARIZ5leduLmS8V4-MLmK5sMU8-6afHJ9Tfllanvw9IvJsDlT5v7ppPOqW4JoIeiW-GWdV5u)
 
-在过去几个月中，你们已经看到这些变化。许多著名的自由主义者已经公开重新评估了他们对病毒来源的看法。是的，他们承认，该病毒确实是从武汉的一个实验室中发现的。对此的物理证据是压倒性的。该病毒不是从自然界进化的。阅读这些片段，它们很有趣。
+![](https://lh3.googleusercontent.com/1cTQ9XfuYzzQqE05IVTIIkjq1SYKTei5x6T06pnYes7G_U_4H-thka0X3SLVdf9iS6Ss0AFyKrVCv5nobeQh1cQxGv_7i-K-jnZx00VHyfWfu8HF58mG-ww7c3t-9kY8LgdgNqGq)
 
-相反，经过鲁莽、可怕、非常危险的实验，这种病毒在实验室中得到了增强，然而托尼·福奇自己签名授权的捐款中，有一部分是由美国纳税人支付的。那就是全部事实。现在他们都承认了，甚至《政治事实（Politifact）》也撤回了有关说阎博士是“火上浇油的骗子”的说法。
+![](https://lh4.googleusercontent.com/xikBZZX34vmrlSiixlBN4TGdlPmGrw7xAEf8UlU2lg2kiJQ0kgZEiXwJ-guS4xoOcCi4Odqw2JFU3cCFXtGWlt4OKcoExDCfhzh-jGrT5nIx_aP9_qfz-xzWS48cNEO07e2CpeKC)
 
-然而有趣的是，脸书没有对此重新评估。显然，该公司在中共国有太多业务，而不敢得罪中共军方。截至今晚，我们对闫博士的采访未上他们的平台，但闫博士本人就在这里。
+![](https://lh4.googleusercontent.com/L9BOBXBC_rF1Eruk94YhwyakwV9zk4rESIMecj1T_CxjlEUQ8_nQfK0AjU-zJbYhLX63pbXXjqeoSLeg5fyqHFWIj4BN_EprzMDPQBaLd8jfSlIQhMg8n2NHYkYjrMcJiClSe1yX)
 
-原文链接: [https://www.foxnews.com/opinion/tucker-carlson-coronavirus-enhanced-dangerous-experiments](https://www.foxnews.com/opinion/tucker-carlson-coronavirus-enhanced-dangerous-experiments)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+![](https://lh6.googleusercontent.com/uF-VvAL9Z5PQaNrbqtmMBIQrIF94j2z-a7JxCx4GgwW_GE2fRFhmkrL-rPI-wh3z26cWnQEN7wXXH3IjzS5JrgzCOLAlYx_rvruJM-Tn8FnIT6v3O3DHIqanzIq--ely_8611z77)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*校对：喜马拉雅东京樱花团 / 鸿雁*
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22044513/%E4%BA%8C%E7%BB%B4%E7%A0%81-2.jpg)
+
 
 +1

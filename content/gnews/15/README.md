@@ -1,38 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国将启动两个神秘的反应堆来生产核武器
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1275535/)
+## 慧眼看世界210526
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1275786/)
 
-消息来源：意大利- TISCALI
-发布时间：2021年5月26日
-作者：罗伯托-松卡（*Roberto Zonca*）
-翻译/简评：阿娜
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
-TISCALI 是意大利电信公司，为意大利提供网络和电信服务，专注于意大利本国的市场，昨天它的网站报道一则新闻：中共国将启动两个神秘的反应堆用于生产核武器，它们将分别于2023年和2026年投入使用，世界将面临灾难的风险。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27065944/01-34.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27070437/02-66.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27071311/03-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27071435/04-30.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27071614/05-36.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073138/06-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073236/07-19.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073357/08-29.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073442/09-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073816/10-76.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27074643/11-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27074740/12-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27075107/13-79.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27080023/14-45.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27080916/15-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27080954/16-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082245/17-25.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082333/18-16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082411/19-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082501/20-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082606/21-22.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082704/22-20.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082745/23-13.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082819/24-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082850/25-9.jpg)
+发稿：神奇四侠
 
-原文翻译如下：
+以上图片均来自网络，与GNEWS无关
 
-世界似乎仍然没有受够核电站所带来的灾难。尽管我们中的许多人对切尔诺贝利事故记忆犹新，该事故在超过35年后甚至可能有戏剧性的发展，或者最近在福岛核电站发生的灾难，该事故发生在2011年3月11日，但它仍然使半个世界处于悬念之中，但有些人认为要激活两个 “自肥 “型的新核反应堆，即能够产生比他们使用的燃料更多的燃料。它们的用途是什么？这个谜团是绝对的，但也有人认为，这些反应堆的使用是专门用于生产钚和一般的核武器。
-
-电厂的建设工作已经进行了一段时间，而且是在绝对保密的情况下进行的，位于中共国东南地区的一个叫长表的无名小岛上。中共国核工业集团公司正一步一步地跟踪工厂的建设，目前已基本完成。据专家介绍，这两个反应堆将分别于2023年和2026年投入使用。在国际层面上，紧张局势正在加剧，这并不是因为正在建造新的核反应堆，而是因为几乎所有的超级大国都放弃了这种系统，与最现代化的工厂所使用的系统相比，它被认为是不安全的。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27072655/image0.png-1.jpeg)
-
-由于这两个反应堆不是由水而是由液态钠冷却，中共国到2030年将能够生产大约1270枚核弹头。这真的是中共政府的野心吗？为什么要进行新的军备竞赛？没有人能够对中共如此鲁莽的决定做出解释。事实上，在这些CFR-600里面有一种叫做混合氧化物的燃料，由来自核废料的钚和贫化铀组成：这些反应堆将能够分别产生1500兆瓦特和600兆瓦特的能量。那么之后产生的废物材料如何处理呢？对该计划的了解让所有人感到震惊。中共国将能够生产大量武器，但也会产生大量的废物，然后必须以某种方式处理……
-
-简评：
-
-习近平为首的中共想要建造两个核反应堆，他们的目的是什么呢？制造核武器吗？正在长表岛上建造的两个反应堆是具有封闭燃料循环的核增殖反应堆。它们会产生钚。这种钚可以被重新处理，用作其他核反应堆的燃料。它也可以用来在短时间内生产大量的核弹头。除了监督这些项目的中共国官员和公司之外，没有人知道这些项目是否仅用于民用能源。倒是可以为习近平眼中的“大国崛起”目标，用核威慑来吓唬世界吧！
-
-上周，一位美国官员指责中共拒绝参加与华盛顿就减少核风险进行的双边会谈。中共一直不愿意对此发表官方声明。另外长表岛靠近福建的海岸线，对面隔海相望是台湾。是否与中共妄图打台湾有关联呢？当世界各国同中共病毒作斗争的时候，中共却在悄悄发展核武器库，其对世界和人类完全漠不关心，对于这样的一个政党还有什么让其继续执政下去的必要呢！唯有推翻，才能挽救人类。
-
-【本文简评仅代表个人观点。】
-
-消息来源：[意大利- TISCALI](https://ambiente.tiscali.it/sospianeta/articoli/Cina-misteriosi-reattori-nucleari/)
-
-* * *
-
-校对：Lorenzo
-
-+4
+0
