@@ -1,25 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登-普京的会面将于6月16日在日内瓦举行
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1273885/)
+## 辉瑞公司前副总裁呼吁不要被胁迫接种实验性疫苗
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1273976/)
 
-消息来源：意大利共和报（repubblica.it）
-发布时间：2021年05月25日
-翻译整理：斩草要除根
+蒙特利尔皇家山战友团 Spirit
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26150831/defence.jpg)图片来源：Childrenhealthdefense.org
+据《儿童健康防御》(Children Health Defense) 5月25 日报道，辉瑞公司前副总裁迈克-耶顿(Mike Yeadon)博士在接受儿童健康保护组织主席小罗伯特-肯尼迪的采访时表示，他表示mRNA疫苗技术有很多不确定性。
 
-乔·拜登（Joe Biden）和弗拉基米尔·普京（Vladimir Putin）将于6月16日在日内瓦举行之前宣布的美俄首脑会议。白宫发言人詹·普萨基（Jen Psaki）今天证实了这一点。声明说：“两国领导人将在寻求恢复俄美关系的稳定和可预测性时，讨论一系列紧迫的问题。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26134157/57660707_303.jpg)（德国之声中文网）
-白宫表示要寻求与俄罗斯人建立“稳定和可预测的”关系，但同时一再重申指控俄罗斯人干涉了去年的总统大选，并且克里姆林宫是黑客入侵活动的幕后黑手，该入侵活动至少渗透了九个美国联邦机构的网络。
+辉瑞公司前副总裁兼过敏和呼吸系统首席科学家迈克-耶顿博士说，中共病毒疫苗是 “一种完全新颖的技术”，不应该被称为疫苗。拥有着32年在制药业领导新药研究经验的耶顿博士说由于中共病毒疫苗使用的是实验性技术，可能会带来严重的副作用，如血凝块、不孕等甚至死亡。
 
-拜登政府还批评俄罗斯逮捕和监禁了反对派领导人阿列克谢·纳瓦尼（Alexei Navalnyi），他于2021年1月20日拜登就职典礼前几天返回俄罗斯，并迅速遭到被捕 。美国于3月宣布了对俄罗斯几名中高级官员以及十几家公司及其他实体的制裁，
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26134305/57590118_401.jpg)雷克雅未克会晤：布林肯和拉夫罗夫
-简评：中共国一直放消息试图给这次会面泼冷水，相信这次会面最关注和最担心的人应该是非中共国莫属，它一直试图拉拢俄罗斯结盟对抗美国，中共的如意算盘是否经得住考验就看这一次的美俄会面了。
+耶顿博士在4月的视频中讲到，”我相信这些疫苗是被用来损害你的健康，并可能导致死亡。除了认真尝试大规模人口灭绝外，我看不到任何合理的解释。这些疫苗是提供做这件事的工具和合理的推诿，因为他们制造一个关于某种生物威胁的故事，让你排队接种疫苗，几个月后，或一两年，你可能会出现可以解释的综合病症，但无法将其与接种疫苗联系起来。”
 
-（个人观点）
+耶顿博士继续告诉观众，”政府告诉你们关于这种病毒的一切都是谎言，目的是极权主义控制”。请不要被谎言，抵制这些实验性后患无穷的疫苗，并告知身边的人，不要成为极权主义控制者的牺牲品。
 
-[新闻链接](https://www.repubblica.it/esteri/2021/05/25/news/vertice_biden_putin_svizzera-302740159/)
+***参考链接：***
 
-校对/上传：老中医
+[Former Pfizer VP Tells RFK, Jr.: Young, Healthy People Shouldn’t Be Coerced Into Taking ‘Experimental’ Vaccines](https://childrenshealthdefense.org/defender/dr-mike-yeadon-rfk-jr-the-defender-podcast-safety-mrna-vaccine-technology/)
 
-+1
+[Did Michael Yeadon Say COVID-19 Vaccine Will Kill Recipients Within 2 Years?](https://www.snopes.com/fact-check/michael-yeadon-vaccine-death/)
+
+* * *
+
+*编辑、发稿 文锦*
+
+0
