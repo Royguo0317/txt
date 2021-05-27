@@ -1,36 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Gnews和GTV是人类大危机的两盏明灯
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1275533/)
+## 慧眼看世界210526
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1275786/)
 
-- 作者： Jenny Ball
+- 制图：透明的遮羞布
+- 编辑：神奇四侠
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27065944/01-34.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27070437/02-66.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27071311/03-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27071435/04-30.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27071614/05-36.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073138/06-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073236/07-19.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073357/08-29.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073442/09-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073816/10-76.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27074643/11-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27074740/12-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27075107/13-79.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27080023/14-45.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27080916/15-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27080954/16-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082245/17-25.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082333/18-16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082411/19-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082501/20-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082606/21-22.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082704/22-20.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082745/23-13.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082819/24-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082850/25-9.jpg)
+发稿：神奇四侠
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+以上图片均来自网络，与GNEWS无关
 
-**西班牙2021年5月27日电/西喜社——**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27081324/image0-8.png)
-在今天的听证会上，文贵先生将用“人类大危机”来定义当今的世界：
-
-- 这是人类大危机，
-- 这是道德大危机，
-- 这是新闻的危机，
-- 这还是真相大危机。
-
-
-在这样一个令人沮丧的世界危机时代，在消灭中国共产党的伟大事业中，Gnews和GTV就像两盏明灯，照亮了整个黑暗世界，给无数的人们带来了希望，为灭共道路指明了方向。因为，Gnews、GTV是唯一不惧巨大邪恶力量坚持传播真相的唯一平台。
-
-在2017年初爆料革命开始之初，我们只能借助社交媒体Twitter、YouTube和Facebook，但所有这些大媒体都在极力压制我们发出真相的声音。就连美国之音（VOA）都在原定的3个小时对文贵先生的采访时中途断播。天安门大屠杀30周年的前几天，2018年5月31日，成千上万的爆料革命战友的Twitter、Facebook或Youtube帐户被暂停或封锁。中共和邪恶力量疯狂地要压制我们对六四勇士的祭奠，和对六四民主运动的纪念。
-
-2020年1月19日，当武汉市仅正式报告64例病例时，在GTV、Gnews上Lude媒体披露了病毒的真相，而那时中共和世卫组织仍在告诉世界，人与人之间不传染；那时中共总书记习近平还与川普总统通话中说，这一切都将在2020年4月消失，这只是一场流感；那时福奇在白宫与彼得·纳瓦罗博士就病毒辩论，所有27名专家都反对病毒起源于中共国的武汉市，但川普总统毅然于2020年1月31日宣布关闭与中国的航班， 因为他得到了爆料革命的信息和情报。细思极恐，如果川普总统没有下这个命令，之后的几个月后美国将会是什么情况？难怪中共原计划在2020年4月要用疫苗拿下全世界。
-
-如果那时仅仅是爆料革命的战友遭受了媒体的暴政，现在我们已经目睹了所有病毒起源的真相都被媒体所禁止；所有挽救生命预防病毒的硫酸羟氯喹信息都被禁止；甚至川普总统本人，作为自由国家的自由人，也遭到了所有大型科技公司的媒体封杀没有发声的地方。
-
-科学界、媒体、公职、政府，他们都背叛了自己的良心良知职业道德，压制真理，才造成了这场人类大危机。多亏了GTV、Gnews这两盏明灯。文贵先生说：“这个灯的所有能源，它的亮度，它的一切，皆来自于默默无闻的战友。”
-
-审核： 文乐；校对：阿伯塔； 发稿：信心的选择
-
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
-
-+1
+0
