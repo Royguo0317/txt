@@ -1,76 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 解读中共式“躺平”人生——看“袁隆平”逝世的剩余价值（下）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1275443/)
+## 我和中国企业家在美国的聊天
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1275584/)
 
-（接上篇）
+作者：喜马拉雅樱花团 小雨
 
-- **作者：小马**
+![](https://lh6.googleusercontent.com/rTmcimy6conn4mSBsg4fLTLA0YqXNlQA4bqbF8u3rIfZtJi2i0LGz7_swF81yXp2w4JWl5RwNXNdCMnc1WnkLMoZEycXCalOeNrAzA_hxFwX1HzsswQFDJs4n1iVln55sqLTlRTx)
 
+![](https://lh4.googleusercontent.com/pSwRcwvl84mb5XCWAleY42DOsw7AFi84p8D8tivmIpSEwArAr6a4OFcWNvANP4CZ4i54mphRCBeLR1tYAmSD9yiyMHkFnZHSCz1MxTrMeH7hPmTei1g0y4pYnFTWBh0HpqqS-7z-)
 
-***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+![](https://lh3.googleusercontent.com/fqeOMxSxf-trx59OyDKwhZS6piDUzzSTC0O6HFuVdG7pK2QuE_3YyzaISSCyNDgfBJiAVVazk4HxZJJaUh4Avm62w6UvI7seit5XjcGmYJxNyf_XZG0QfcLGy-rQhBtRSgJG_1Sn)
 
-**西班牙2021年5月27日电/西喜社——**
+![](https://lh6.googleusercontent.com/TxiUjeJ_zbeDk4WA8-TjKAptUdj--JPRAf3eL1_16UJGMSn_sEv62WUxlj-DkdNqzNSKAXfOhDq-wAMBp98uv9ilU_BkEkj3kb1qCesckoigUSPC_TGR7bTjJp_E5xr9NbkJOLT1)
 
-最后的遮羞布！**“**袁隆平**”**中共式的**“**躺平**”**人生**——**是政治尸变的剩余价值
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27060851/ylp-1.jpg)
-事实上，中共媒体的报道对老百姓形成的一种错觉。中国粮食增产并不只是水稻，杂交稻的贡献被严重高估。但是，毕竟水稻凝聚了中国在农业技术上的骄傲，中国水稻育种技术对提高水稻单产，具有革命性的进步有三次。
+![](https://lh5.googleusercontent.com/HssjBUNJwVtyAzObMCB8wEoFSZs8HzmAgTBlMp2XTQ9MlRkAB5QHvARfE1B2aSPh1Ro5FNBHyPON5tSLWiHZA5LcTZ3YEQLy3E2xTcyEjzSCB2Os8rNKcpRsfvYeYPAj9weV_GMh)
 
-第一次是矮杆革命。1941 年 7 月，广西华侨甘利南从马来西亚带回稻种，当地人根据特性称之为“矮仔占”。1956 年夏，广东潮阳人洪春利发现水稻自然变异矮杆样本，与洪春英合作培育出“矮脚南特”。这两个稻种，为黄耀祥等育种专家开发的矮杆稻种，提供了最重要的遗传资源。
+![](https://lh5.googleusercontent.com/JekmsUbpDa0bP24db61u9qZZtRnkUQf6SsgLo0Gkd2GdgDK2s9mtXrHg7ng1vUEB_vFKxjUz-i86-espKZjQFX-GDV6WQBW4kAVxmBDpi0LGlVKGL7XykyznsMmdxVC-fKAZGYDV)
 
-第二次是我们熟悉的袁隆平领军开发出来的杂交水稻，其实严格的说法，应该叫三系法杂交水稻。
+![](https://lh3.googleusercontent.com/kOmczu1_1uiigkL3JGtkDxKKEiqlmYvaFzyORYUSNCI3yQVWQ19nk8aSQgkICnzPMqJsQnmb4RkMW9Wts2uJTlKQ7ewb_UMVl7jF_soou_h9M3RIz0S5RautlVvZaS75gIGydwhb)
 
-第三次则是两系法杂交水稻，它在国家科技进步特等奖时，袁隆平的名字被排在第一位，但这更像是对袁隆平在组织领导以及江湖地位的致敬。
+![](https://lh3.googleusercontent.com/P-pog2-dpRFIxiSW-QC0m-ssW39pdDttYgXAgZKwXSYVjhfdOx_nT9XTCL6ozV2ewpfRknOS1jLqLNlvCK3-ONFJzHpKvxty2Nv78TLIlk-14AecHBl4SMGU6lvqTh_cHLj76yIF)
 
-两系法杂交对中国水稻影响远不如前两次。因为此时水稻种植已经出现了很难改变的长期趋势：1、北方粳稻的播种面积不断增加；2、杂交水稻播种面积一直缓慢下降；3、常规稻种缓慢增长。有人认为，最终将各占三分之一。
+![](https://lh6.googleusercontent.com/cYrSsemKZNX94hOdu22Y_qEsKMOvGba8rUPqEXxpAFJdiPodfyZRmDMTGDpmRuIsL_bFi0p4u_C_ewpXzxwpEs9nVAg9fEB_MZBty9_JyFe_qwUzNeHL1q4NQuw8RjbTOuKXTFrY)
 
-媒体报道中不难找到，改革开放初期，中国还向美国人传授了袁隆平的杂交水稻，还有美国学者说，中国的杂交水稻研究将世界各国远远留在身后，甚至领先美国 20 多年。
+![](https://lh6.googleusercontent.com/yQw6AlkSAEavwvGd1q4jTSzvxQeDJSr9GuUPS_4JDexbedFj1Gv2tgEWpi15TfWwuwH72TDO_n63ga_10bSCjAI397qX96I742HUql9S_9fZrQzyOVXTwFtlp80fraauV6qVK903)
 
-然而，就是美国这个缺乏稻米传统的国家，最近几年水稻单产一直稳定在550公斤的水平，比中国的水稻单产高出近四分之一。甚至美国也不是单产最高的，而是澳大利亚这个同样不以水稻出名的国家。
+![](https://lh5.googleusercontent.com/fUEHUhIY08u91L9qYWUJJcDKLT2btHwoG-Fq28I8nszo015zGfnPAN3lR80GMhwhZ4kfHuF2JIqKKa6t3E3Q5CDYOAOXxs8cGEeMf1g9YobGO6f0cYEPO6JHIkh_MJLQxPB1gLVx)
 
-看到这里，你大概也会发现，袁隆平是不是“杂交水稻之父”也许没那么重要，因为杂交水稻对粮食增产的实际贡献，至少和我们以往形成的印象有极大落差。它不是巨大的功勋是否被袁隆平一人独揽的问题，而是这个功勋是被大大拔高了。
+![](https://lh5.googleusercontent.com/0Y4X70gHFnGpDt6Wki8nbgczDUPqxoR98bnuB08nTpnZ9jTnnkhh4FyKnHL0H0TctcsFKzqYPthl9C5raUt3ocYLhJqRrTuqdVPC8zqj4DXGqxTWr4Nlj58KRgxqQRt8TXHDncUq)
 
-即使袁隆平是百分之百杂交水稻之父，又能怎样？中国玉米、小麦对中国粮食增产的贡献，不低于水稻，它们的育种成就，不低于水稻——唯一的区别在于，我们从没听说过玉米之父或小麦之父——这是最值得细细思量的地方，它绝不是一种正常现象。
+![](https://lh3.googleusercontent.com/DEj8NUuKQFcgBDPR1MJz-S1El0KWHMBGybQBO7GptQIzai3HUAi6mionX3eSOfiPilhcA5oZ8PujFRT36mQDoBj_YnLDYNpZySfpC4Op6R_CwyUBgU7IMHuiXxbDPo25ZFKvlN95)
 
-今天，中国网民对袁隆平的魅力，几乎没有任何免疫能力。
+![](https://lh5.googleusercontent.com/RnkHiQrP_y72aIi1jWT60RxsoLVvcQF-nuRmXxAjM5FOjUVvEj9O28cgCfGGwsvIhw0rTdyTpsvw3ZB5sUpsxkrMpsfWNjQD5lPwk6RlqUnds5ppZAF8wSqkP8aG16TM-sHAQZGB)
 
-在沙漠里种水稻，在海水里种水稻，这种烧钱搞法换成其他什么人，也许早就被网民骂死了，但这是袁隆平，他的一切，都是当世神农不断展现他的法力而已。
+![](https://lh4.googleusercontent.com/zZyE5txK0cjP5fq3Nknn0FVhYszrEqPR_LOSYxJTBck-RNMZxBxQViowY606rLVI3QzyfbFoSZ5DLLzyH7Q8R6uRIk-D-zaz9UnnHF1I6UMvdtIJVRHjXly0hVR_2lwjwcY9QdTh)
 
-仔细留意下新闻，在中国，育种专家亲自上阵，不停地靠堆钱创造高产纪录的，全部是杂交水稻，而其他粮食作物和常规稻种，几乎就看不到这种奇怪的竞赛。
+![](https://lh5.googleusercontent.com/S5DrK4XUIyEzechugy6zR4NLras2b4Mx6DjAOlnmkojovF57XqxwcGP7xX58qk3wfKfuAQYydizM-zRNzT9DiMqg8BubKmzj0x-hLpwyjh7Ia0ZqubqhHujsL7F4ZOUfg5IH92Ww)
 
-原因或许很简单，常规稻种和杂交小麦之类，农民可以自己育种，做种子开发研究的，一个好种子自己只能卖一次。杂交水稻就不同了，必须每次都从我这里买。
+![](https://lh4.googleusercontent.com/hoHX-Ei8fkrNC0b8W4a7khWah1V_AQYqg_6GMzHZA-xtgLHIAIu2NXfRQZXeOChOk0hllTEOsjZrv2wTCAZNxzSNfpdTpIbtDpIU3EjhGHj6CezYjsV7luAdBKeVBRduSkvIncaI)
 
-其实，隆平高科2000年上市，标志着农民低价获得杂交稻种的时代就此终结，而袁隆平和中国农民的关系，也早就不再是农民和帮助农民增产的人民科学家的关系，当时，湖南农科院和国家杂交水稻中心，居然变成了这家上市公司的科研基地。今天，隆平高科已成为中国杂交稻种市场最大的公司。
+![](https://lh6.googleusercontent.com/-U9Lw6mcvnE0RCF6tVDdlSMt2moeV9C0qLK4XQgeysQZ4SYQqaIeu01nkPGXKHJFAfs6kmbBOcaiwjUUAOW9xVcWUVGGa7ojcrpAsd4N_4LNgblG8zF8uxOSuWQG_hImLrYT9jp8)
 
-中国种业市场的特色是政企不分、条块分割，垄断与竞争交织，市场高度分散，产业规模极低。而杂交稻种市场，在集中度和产业规模上都有很高水平，但这并非竞争的结果，因为种业公司们占据的大都是本地市场，由于杂交水稻缺乏吸引力，稻种产能严重过剩。
+![](https://lh4.googleusercontent.com/niMbrfaQyeOQAV-zcwcVUWUoR1DZHbCxwOHzEkA9rH44uvjDcETBcfA_Bd4UGMPQq1XwNR_VNW807ajkaBorAar_k6PFmJNrJtw7KKPObillMqAa7z2OZHfKMw4TLEogNLdk4HDH)
 
-市场证明，无论你高产试验田的产量有多高，杂交稻也好，超级稻也好，都是没有出路和潜力的。它能影响到的，只是国家的粮食政策以及研究经费的投入。
+![](https://lh4.googleusercontent.com/A4o43VdyEn2N2__h0kJdRd7rCvGJyc_rGiXEYHy80YdXNRZ-Hm2DBvBI2cZKKqven6fZVPM4h9hQNWhk86VkYOqpzLVsgu5qOCmKHyoYxUuVeaY3ptRzziviUTHC40-anAjSlf8q)
 
-水稻育种在技术上唯一的突破指望，只能是转基因技术，而抗虫害的转基因技术已经非常成熟，可以明显节省农民开支。然而，相当长一段时间，袁隆平一直用含混不清的理由反对转基因技术应用。
+![](https://lh4.googleusercontent.com/IM7sSqBcJl-J5cB4TO4NlKQK2pFzGDPbDYNYnnVspcISdsvEXSksTFoI8RN6PBfvc7igzb_pTKKk3hHtEUZ441Obpdq9kpq1VWwYZvo1I2stZ9uhhnmNMcGKiJ_QDzJDXL6_8i8e)
 
-至于袁隆平中共式的“躺平”人生，是有一个尸变的过程的，一旦和政治挂钩可能连自己的生死都是被安排的！1930年出生的袁隆平经历过毛泽东大跃进时期，饿死人的日子！可能袁的初衷是想让人民吃饱饭，但是随着自己被共产党这个邪魔恶党同流合污，于是开始追求自己个人和共产党的共同利益！以老百姓的生命作为代价！
+![](https://lh4.googleusercontent.com/SIuGy7XT7-5Ra2vRbNkX9hbcU8Dz6r5u_N0pNuyyXs99Ubksw0w4i1Z4fCpr4fSKiHMNatytutovYDrjs9aDeOoIIe7M5ORgtflxjf8XBd4Li16k400NweCxOXUwsnsdv6SrhPc_)
 
-口口声声说粮食安全问题，袁隆平一没有解决中国人的粮食问题，袁隆平到处鼓吹自己的杂交水稻，暗示靠这自己东西就养活了N亿人，更声称继续推广还可以再养活4-5亿人。不过，且不说着未必是事实，就算是事实，也是窃他人之功据为己有而已。
+![](https://lh6.googleusercontent.com/oj3-GCP70OW9Nr9z8MF03E31mMz9uGu2rsqJi1gdLuEzgGvGcrc0kx7YJFw5N-vLAARIZ5leduLmS8V4-MLmK5sMU8-6afHJ9Tfllanvw9IvJsDlT5v7ppPOqW4JoIeiW-GWdV5u)
 
-二没有解决中国的种业十分落后的问题，谷物种子、猪种，大部分都是外国进口的，中国的种业与美国等一比，差距是很大的。近几年的粮食、猪肉价格暴涨，也强烈暗示了中国的粮食问题仍然深刻存在。
+![](https://lh3.googleusercontent.com/1cTQ9XfuYzzQqE05IVTIIkjq1SYKTei5x6T06pnYes7G_U_4H-thka0X3SLVdf9iS6Ss0AFyKrVCv5nobeQh1cQxGv_7i-K-jnZx00VHyfWfu8HF58mG-ww7c3t-9kY8LgdgNqGq)
 
-三袁隆平似乎从科学家进入了政界，他成了一块政治牌匾，除了到处放大话，转基因等敏感问题也成了他热衷话题。
+![](https://lh4.googleusercontent.com/xikBZZX34vmrlSiixlBN4TGdlPmGrw7xAEf8UlU2lg2kiJQ0kgZEiXwJ-guS4xoOcCi4Odqw2JFU3cCFXtGWlt4OKcoExDCfhzh-jGrT5nIx_aP9_qfz-xzWS48cNEO07e2CpeKC)
 
-后来一篇《袁隆平真言：中国最大的劫难已无法避免》也开始流传，虽然未必是他写的。在袁隆平的晚年他就是中共的双刃剑，因为袁为个人又或者自己的良心，时不时的又冒出几句真话！虽然他说的模棱两可，含糊不清！而粮食问题是关系到中共生死存亡的重要问题！
+![](https://lh4.googleusercontent.com/L9BOBXBC_rF1Eruk94YhwyakwV9zk4rESIMecj1T_CxjlEUQ8_nQfK0AjU-zJbYhLX63pbXXjqeoSLeg5fyqHFWIj4BN_EprzMDPQBaLd8jfSlIQhMg8n2NHYkYjrMcJiClSe1yX)
 
-而袁隆平是中共最后的遮羞布！他掩盖隐藏着中共关于粮食以及人口的安全问题！所以关于袁隆平的死个人认为是共产党不详的兆头！
-
-路德社爆料“中共媒体一天两次逝世辟谣最终又逝世内幕”是在安排袁隆平非正常的死亡，袁隆平的脑死亡不叫死，在心脏起搏器的作用下袁隆平在尸变！共产党以及袁老的子女在商量着袁隆平的死亡剩余价值！
-
-而袁隆平的剩余价值就是中共式的“躺平”！老老实实的躺着，安安静静的闭嘴。本人脑洞一下，甚至袁隆平有可能早就被死亡了，只有心脏起搏器一直在工作而已，随时被安排被灭口，因为只有死人才是最安全的！
-
-但是无论袁隆平是自然死亡还是被死亡，都预示着“天灭中共”！这是中共的政治尸变，共产党就像僵尸一样露出了獠牙！中共想用袁隆平的死来遮住共产党最后的羞耻，这是遮不住的这将必然暴露出中共赤裸裸的丑恶嘴脸！而全人类全中国的老百姓也必然扯下中共这块最后的遮羞布！
-
-**审核：蚂蚁兄弟 ; 校对： 阿伯塔 ; 发布：信心满满**
-
-[**欢迎加入西班牙巴塞罗那喜悦农场**](https://discord.com/invite/WPy8Qp7)
+![](https://lh6.googleusercontent.com/uF-VvAL9Z5PQaNrbqtmMBIQrIF94j2z-a7JxCx4GgwW_GE2fRFhmkrL-rPI-wh3z26cWnQEN7wXXH3IjzS5JrgzCOLAlYx_rvruJM-Tn8FnIT6v3O3DHIqanzIq--ely_8611z77)
 
 
 
-0
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*校对：喜马拉雅东京樱花团 / 鸿雁*
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22044513/%E4%BA%8C%E7%BB%B4%E7%A0%81-2.jpg)
+
+
++1

@@ -1,15 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界210526
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1275786/)
+## 警惕中共的水军以“开智”的名义愚民！
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1275875/)
 
-- 制图：透明的遮羞布
-- 编辑：神奇四侠
+作者：推推党宣传部长
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27065944/01-34.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27070437/02-66.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27071311/03-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27071435/04-30.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27071614/05-36.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073138/06-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073236/07-19.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073357/08-29.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073442/09-15.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27073816/10-76.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27074643/11-27.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27074740/12-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27075107/13-79.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27080023/14-45.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27080916/15-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27080954/16-9.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082245/17-25.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082333/18-16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082411/19-12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082501/20-17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082606/21-22.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082704/22-20.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082745/23-13.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082819/24-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27082850/25-9.jpg)
-发稿：神奇四侠
+推特一些账号喜欢发墙内一些的小粉红，其他脑残爱党爱国的言论小视频，然后大发“感慨”到“这样民族还值得救吗”. 下面绝对是点赞转推绝对超高, 下面评论也各种”痛心疾首”这个国家没救呢”的评论”.十分热闹的样子. 特别每逢墙内的各种 “政治节日”,墙外就是各种红色视频红色照片刷屏,那绝对比微信朋友圈热闹多呢,”都是要不是那些”这个国家没救”的评论.还以为进入共青团宣传部的官网.
 
-以上图片均来自网络，与GNEWS无关
+实话实说墙内那种高压洗脑下如果不出现一些脑残言论那才叫怪事. 共产党搞各种洗脑宣传都是不惜重金,大到新闻联播,小到学校的组织观看爱国电影,宣传洗脑可以是到了边边角角,各种潜移默化.这还不包括所谓的不要搞错因果关系，只要中共不灭，什么开智不开智都是伪命题 ,都是耍流氓.
+
+就举个例子,墙内“政治节日”里”流行”穿红军军装. 只要有点常识都知道这个是单位的”政治任务”,每个机关单位都要得落实的严严实实. 党政机关国企单位例行带头参与, 然后小学、中学,大学强制学生参与！ 非事业单位,共产党出钱让你们参与,“全国江山一片红”就达到了。本来就是墙内大多数人应付上级的政治任务的事, **被他墙外这些“满怀正义的”人这么一弄****,成了****”****人民爱党,这个国家没救呢****”****. 这就是共产党花了那么钱的终极目。**但很奇怪这些推文有个特点从来不怪共产党, 却把原因症结归于这些绝大数”被迫”穿上红军军装普推人。
+
+大家观察一下只要有这种类似推特,转推点赞率非常高的. 毕竟大家都“喜欢”这种文章。 首先写这种文章的人开心,赚眼球流量还算其次，最重要是那种“众人皆傻，我独醒”的快感，痛心疾首感慨“这个国家没救呢”，”这个民族没救呢”, 立马觉的自己高大上，自己鲁讯再世有没有？？ 然后我们这些在下面点赞转推也开心，心理优越感满满,总算脱离”愚民”的这种低级趣味。**然后最最开心的是****共产党****宣传部****，本来在墙内就没人****关注****的东西****(真的没人关注这些) **** 被他墙外这些“满怀正义的”人这么一弄 宣传效果杠杠的****.****连五毛的钱的都省了****. 共产党花那么钱,就**运气好的被美国西方智库采用的. 得出原来中共深得“民心”呀,要不然怎么就全国江山一片红. 对于这么深得“民心”的中共政府，最优的选择当然是一起“合作”，一起割韭菜呢. 当然偶尔也抛出人权问题,搞搞政治正确 .海外民运公知”反共’’ (主要还是骂中国人)三十年,共产党却越反越强 (主要原因是西方资本输血)是不是同一个道理.也严重怀疑。
+
+在墙内本来没人看的东西，这免费宣传效果杠杠的 然后..就没有然后呢 三十年不就是这样过来，大家都开心。
+
+忘了一点，拍这些照片的人也开心，这是政治任务，每个机关单位都得落实，还有钱拿，那些富豪们时不时就上井冈山，脸书小渣也穿军装，大家各取所需，做人嘛，开心就好，不好吗？
+
+幼儿园、小学、中学强制学生及家长参与！ 大学生强制参与！ 国企机关单位例行带头参与！ 这里几乎占了60%到70%了吧？！ 然后出点小钱，诱惑这些社会青年参与， “全国江山一片红”就达到了。
+
+你听明白听兄弟姐妹们，是房峰辉说我们12亿人是废物，我当然不觉得我们是废物了，我们是废物我们搞什么爆料革命啊，现在就是12亿废物要革共产党的命，你听明白我说说话好不好兄弟姐妹们？（-5/19/2021文贵直播语）
+
+要不是占着共产党的墙，技术垄断，任意的封杀言论 墙外人所谓的开智还真比墙内人强不了多少，看看推特上的文章很多是情绪宣泄，没有逻辑性和启迪性，更不要说满天飞舞的假新闻呢！
+
+为了生存，只有委屈自己了，墙外人是何不食肉糜的现代版，当然不排除有些人是故意的。石头压迫下，植物只有扭曲生长。要做的除了埋怨还需要帮助挪开石头，才能正常生长。韭黄见了阳光，也会变绿的。
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：比卡丘
+
+20210527
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+
 
 0

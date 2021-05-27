@@ -1,72 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我和中国企业家在美国的聊天
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1275584/)
+## 美联储放风收紧货币政策
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1275770/)
 
-作者：喜马拉雅樱花团 小雨
+**作者：加拿大多伦多枫叶农场军迷wilson**
 
-![](https://lh6.googleusercontent.com/rTmcimy6conn4mSBsg4fLTLA0YqXNlQA4bqbF8u3rIfZtJi2i0LGz7_swF81yXp2w4JWl5RwNXNdCMnc1WnkLMoZEycXCalOeNrAzA_hxFwX1HzsswQFDJs4n1iVln55sqLTlRTx)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27085242/Picture1-141.jpg)
 
-![](https://lh4.googleusercontent.com/pSwRcwvl84mb5XCWAleY42DOsw7AFi84p8D8tivmIpSEwArAr6a4OFcWNvANP4CZ4i54mphRCBeLR1tYAmSD9yiyMHkFnZHSCz1MxTrMeH7hPmTei1g0y4pYnFTWBh0HpqqS-7z-)
+图片来源：21jingji.com
 
-![](https://lh3.googleusercontent.com/fqeOMxSxf-trx59OyDKwhZS6piDUzzSTC0O6HFuVdG7pK2QuE_3YyzaISSCyNDgfBJiAVVazk4HxZJJaUh4Avm62w6UvI7seit5XjcGmYJxNyf_XZG0QfcLGy-rQhBtRSgJG_1Sn)
+知名民调机构盖洛普最近公布了美国5月份的经济信心指数，和刚刚过去的4月信心指数为+2相比，5月急剧下降到-7，又回到3月份的水平。值得注意的是，这是美国人在疫情大幅好转的情况下产生的悲观情绪。数据也显示，美国的就业率和开工率低于预期。因此市场有理由认为，美联储在未来的货币政策上，将继续釆取适度宽松的政策。
 
-![](https://lh6.googleusercontent.com/TxiUjeJ_zbeDk4WA8-TjKAptUdj--JPRAf3eL1_16UJGMSn_sEv62WUxlj-DkdNqzNSKAXfOhDq-wAMBp98uv9ilU_BkEkj3kb1qCesckoigUSPC_TGR7bTjJp_E5xr9NbkJOLT1)
+但本周二美联储两名有投票表决权的决策者，却向市场释放了要收紧货币政策的信号。旧金山联邦储备银行行长玛丽·戴利称，我们正在讨论减少因疫情而增加的货币投放量，缩减美联储每月1200亿美元的资产购买规模；为了刺激经济和就业的恢复，我们实行了接近于零的联邦基准利率，但效果并不理想，就业仍然比疫情前下降了800多万个工作岗位，而且疫情没有结束，因此我们将耐心等待出台调控措施的最佳时机。
 
-![](https://lh5.googleusercontent.com/HssjBUNJwVtyAzObMCB8wEoFSZs8HzmAgTBlMp2XTQ9MlRkAB5QHvARfE1B2aSPh1Ro5FNBHyPON5tSLWiHZA5LcTZ3YEQLy3E2xTcyEjzSCB2Os8rNKcpRsfvYeYPAj9weV_GMh)
+同一天，美联储副主席理查德·克拉里达也释放了要在适当时机缩减货币投放量的信号。但两位决策者都小心回避了更为敏感的利率调整问题，因为当前的经济处于前所未有的脆弱状态，利率一旦上调，市场就会立即迎来腥风血雨。众所周知，美联储调控经济的主要政策工具是控制和调节货币投放量以及联邦基准利率，但由于美国乃至全世界已明显陷入了经济滞涨状态，美联储运用货币政策的空间相当有限，“美联储是万能的”至少在当下是不贴切的。
 
-![](https://lh5.googleusercontent.com/JekmsUbpDa0bP24db61u9qZZtRnkUQf6SsgLo0Gkd2GdgDK2s9mtXrHg7ng1vUEB_vFKxjUz-i86-espKZjQFX-GDV6WQBW4kAVxmBDpi0LGlVKGL7XykyznsMmdxVC-fKAZGYDV)
+市场是最诚实的，几个月以来加密货币爆涨，最近黄金蠢蠢欲动，都表明全球经济正在面临巨大的通胀压力。美联储将在本周五获得4月份的通胀统计数据，预计除去食品和能源外，个人消费品的价格将按2.9%的年增长率上涨，“这将是自1993年6月以来的最高读数”。这是什么意思呢？2.9%的年通胀率大大超过美联储2%的通胀控制目标，要是在经济健康年份，美联储早就升息了。2.9%的通胀率中不包含价格上涨最快的能源和食品，说明美国也干粉饰通胀数据的勾当，也害怕过高的实际通胀率会打击市场信心。这也表明美国的经济已经进入滞胀阶段。
 
-![](https://lh3.googleusercontent.com/kOmczu1_1uiigkL3JGtkDxKKEiqlmYvaFzyORYUSNCI3yQVWQ19nk8aSQgkICnzPMqJsQnmb4RkMW9Wts2uJTlKQ7ewb_UMVl7jF_soou_h9M3RIz0S5RautlVvZaS75gIGydwhb)
+笔者在昨天的报道《盖洛普民调显示5月美国经济信心跌至负值》中写道，这种在经济停滞甚至倒退状态下出现的通胀被称为滞胀。根据历史经验，滞胀是恶性通胀和经济大萧条的先兆，需要长期调整才能治愈，美国上世纪70年代就发生过这样的危机。美国联邦政府债务2007年度是9万亿美元，2020年度达到28万亿美元，等于每个美国人7.61万美元，还不包括地方政府债务、医疗养老亏空等。在今年美国财政赤字继续扩大的情况下，仅上台4个多月的拜登政府，通过举债和加税，正在实施5万亿美元的财政刺激计划。CCP病毒不断变异，疫情不结束，产业链就难以修复，美国的通胀和财政赤字将继续恶化。
 
-![](https://lh3.googleusercontent.com/P-pog2-dpRFIxiSW-QC0m-ssW39pdDttYgXAgZKwXSYVjhfdOx_nT9XTCL6ozV2ewpfRknOS1jLqLNlvCK3-ONFJzHpKvxty2Nv78TLIlk-14AecHBl4SMGU6lvqTh_cHLj76yIF)
+当前名义利率接近于零而通胀率达到28年来最高，表示实际利率（名义利率－通胀率）是很大的负数，说明疲软的经济不能吸收市场上过剩的流动性，这是典型的货币超发和经济停滞现象。实际上当前史上最低利率加上高通胀对稀释美国的巨额债务，减轻美国越来越繁重的国债利息负担大有帮助。美联储不断释放收紧货币政策的信号，就是为了延缓恶性通胀的脚步，维持可控的美元贬值节奏，在刺激经济的同时化解债务危机。
 
-![](https://lh6.googleusercontent.com/cYrSsemKZNX94hOdu22Y_qEsKMOvGba8rUPqEXxpAFJdiPodfyZRmDMTGDpmRuIsL_bFi0p4u_C_ewpXzxwpEs9nVAg9fEB_MZBty9_JyFe_qwUzNeHL1q4NQuw8RjbTOuKXTFrY)
+但近30年来最高的通胀率对美联储已构成极大的挑战，如果在6月中旬美联储召开议息会议之前数据继续恶化，美联储可能釆取加大逆回购之外的政策工具，但对股市和疫情中的经济非常负面。通胀真的会如大鸽派克拉里达今天说的“美联储将能够通过强硬言论和更温和的加息来遏制任何通胀爆发，并允许经济增长继续下去”吗？金融常识是超过财富增量的货币超发必然推高通胀，看看现在的纸币到底滥印到什么程度，就知道出来混总是要还的。显然，美联储的调控改变不了通胀大趋势，只能延缓而不太可能阻止恶性通胀的到来。
 
-![](https://lh6.googleusercontent.com/yQw6AlkSAEavwvGd1q4jTSzvxQeDJSr9GuUPS_4JDexbedFj1Gv2tgEWpi15TfWwuwH72TDO_n63ga_10bSCjAI397qX96I742HUql9S_9fZrQzyOVXTwFtlp80fraauV6qVK903)
+（本文仅代表作者观点，与GNEWS无关）
 
-![](https://lh5.googleusercontent.com/fUEHUhIY08u91L9qYWUJJcDKLT2btHwoG-Fq28I8nszo015zGfnPAN3lR80GMhwhZ4kfHuF2JIqKKa6t3E3Q5CDYOAOXxs8cGEeMf1g9YobGO6f0cYEPO6JHIkh_MJLQxPB1gLVx)
+参考链接：
+[http://American Economic Confidence Fell Back to Negative in M](http://American%20Economic%20Confidence%20Fell%20Back%20to%20Negative%20in%20May)
+[http://Fed policymakers edge closer to opening debate around taper](http://Fed%20policymakers%20edge%20closer%20to%20opening%20debate%20around%20taper)
 
-![](https://lh5.googleusercontent.com/0Y4X70gHFnGpDt6Wki8nbgczDUPqxoR98bnuB08nTpnZ9jTnnkhh4FyKnHL0H0TctcsFKzqYPthl9C5raUt3ocYLhJqRrTuqdVPC8zqj4DXGqxTWr4Nlj58KRgxqQRt8TXHDncUq)
-
-![](https://lh3.googleusercontent.com/DEj8NUuKQFcgBDPR1MJz-S1El0KWHMBGybQBO7GptQIzai3HUAi6mionX3eSOfiPilhcA5oZ8PujFRT36mQDoBj_YnLDYNpZySfpC4Op6R_CwyUBgU7IMHuiXxbDPo25ZFKvlN95)
-
-![](https://lh5.googleusercontent.com/RnkHiQrP_y72aIi1jWT60RxsoLVvcQF-nuRmXxAjM5FOjUVvEj9O28cgCfGGwsvIhw0rTdyTpsvw3ZB5sUpsxkrMpsfWNjQD5lPwk6RlqUnds5ppZAF8wSqkP8aG16TM-sHAQZGB)
-
-![](https://lh4.googleusercontent.com/zZyE5txK0cjP5fq3Nknn0FVhYszrEqPR_LOSYxJTBck-RNMZxBxQViowY606rLVI3QzyfbFoSZ5DLLzyH7Q8R6uRIk-D-zaz9UnnHF1I6UMvdtIJVRHjXly0hVR_2lwjwcY9QdTh)
-
-![](https://lh5.googleusercontent.com/S5DrK4XUIyEzechugy6zR4NLras2b4Mx6DjAOlnmkojovF57XqxwcGP7xX58qk3wfKfuAQYydizM-zRNzT9DiMqg8BubKmzj0x-hLpwyjh7Ia0ZqubqhHujsL7F4ZOUfg5IH92Ww)
-
-![](https://lh4.googleusercontent.com/hoHX-Ei8fkrNC0b8W4a7khWah1V_AQYqg_6GMzHZA-xtgLHIAIu2NXfRQZXeOChOk0hllTEOsjZrv2wTCAZNxzSNfpdTpIbtDpIU3EjhGHj6CezYjsV7luAdBKeVBRduSkvIncaI)
-
-![](https://lh6.googleusercontent.com/-U9Lw6mcvnE0RCF6tVDdlSMt2moeV9C0qLK4XQgeysQZ4SYQqaIeu01nkPGXKHJFAfs6kmbBOcaiwjUUAOW9xVcWUVGGa7ojcrpAsd4N_4LNgblG8zF8uxOSuWQG_hImLrYT9jp8)
-
-![](https://lh4.googleusercontent.com/niMbrfaQyeOQAV-zcwcVUWUoR1DZHbCxwOHzEkA9rH44uvjDcETBcfA_Bd4UGMPQq1XwNR_VNW807ajkaBorAar_k6PFmJNrJtw7KKPObillMqAa7z2OZHfKMw4TLEogNLdk4HDH)
-
-![](https://lh4.googleusercontent.com/A4o43VdyEn2N2__h0kJdRd7rCvGJyc_rGiXEYHy80YdXNRZ-Hm2DBvBI2cZKKqven6fZVPM4h9hQNWhk86VkYOqpzLVsgu5qOCmKHyoYxUuVeaY3ptRzziviUTHC40-anAjSlf8q)
-
-![](https://lh4.googleusercontent.com/IM7sSqBcJl-J5cB4TO4NlKQK2pFzGDPbDYNYnnVspcISdsvEXSksTFoI8RN6PBfvc7igzb_pTKKk3hHtEUZ441Obpdq9kpq1VWwYZvo1I2stZ9uhhnmNMcGKiJ_QDzJDXL6_8i8e)
-
-![](https://lh4.googleusercontent.com/SIuGy7XT7-5Ra2vRbNkX9hbcU8Dz6r5u_N0pNuyyXs99Ubksw0w4i1Z4fCpr4fSKiHMNatytutovYDrjs9aDeOoIIe7M5ORgtflxjf8XBd4Li16k400NweCxOXUwsnsdv6SrhPc_)
-
-![](https://lh6.googleusercontent.com/oj3-GCP70OW9Nr9z8MF03E31mMz9uGu2rsqJi1gdLuEzgGvGcrc0kx7YJFw5N-vLAARIZ5leduLmS8V4-MLmK5sMU8-6afHJ9Tfllanvw9IvJsDlT5v7ppPOqW4JoIeiW-GWdV5u)
-
-![](https://lh3.googleusercontent.com/1cTQ9XfuYzzQqE05IVTIIkjq1SYKTei5x6T06pnYes7G_U_4H-thka0X3SLVdf9iS6Ss0AFyKrVCv5nobeQh1cQxGv_7i-K-jnZx00VHyfWfu8HF58mG-ww7c3t-9kY8LgdgNqGq)
-
-![](https://lh4.googleusercontent.com/xikBZZX34vmrlSiixlBN4TGdlPmGrw7xAEf8UlU2lg2kiJQ0kgZEiXwJ-guS4xoOcCi4Odqw2JFU3cCFXtGWlt4OKcoExDCfhzh-jGrT5nIx_aP9_qfz-xzWS48cNEO07e2CpeKC)
-
-![](https://lh4.googleusercontent.com/L9BOBXBC_rF1Eruk94YhwyakwV9zk4rESIMecj1T_CxjlEUQ8_nQfK0AjU-zJbYhLX63pbXXjqeoSLeg5fyqHFWIj4BN_EprzMDPQBaLd8jfSlIQhMg8n2NHYkYjrMcJiClSe1yX)
-
-![](https://lh6.googleusercontent.com/uF-VvAL9Z5PQaNrbqtmMBIQrIF94j2z-a7JxCx4GgwW_GE2fRFhmkrL-rPI-wh3z26cWnQEN7wXXH3IjzS5JrgzCOLAlYx_rvruJM-Tn8FnIT6v3O3DHIqanzIq--ely_8611z77)
+*责任编辑：纽约香草山农场 七哩香*
+*编辑／校对：首尔喜韩农场 文迹～见证神迹*
+*发布: Hong*
 
 
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*校对：喜马拉雅东京樱花团 / 鸿雁*
-*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22044513/%E4%BA%8C%E7%BB%B4%E7%A0%81-2.jpg)
-
-
-+1
+0
