@@ -1,9 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】5/26/2021晚：中共投毒还是泄漏？ 拜登命令：情报界90天内确定病毒来源报告
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1275883/)
+## 2021年5月27日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1275901/)
 
-**编辑：华盛顿DC农场 路德简报项目组**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27093957/20210526-2-scaled.jpg)
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+
+5月27号：尊敬的战友们好！先来120个热身……一会儿和战友们乱聊一切都已经开始了！
+
+[【2021年5月27日】文贵先生盖特原文](https://gtv.org/getter/60af8c81744cbc431364d714)
+
+**喜联盟Gnews编辑部**
+
 0

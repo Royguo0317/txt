@@ -1,26 +1,100 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文贵视角】从文贵先生5月24号视频看全球灭共战争之白热化
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1276198/)
+## 为老不尊：MSM赤裸裸的武汉宣传
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1276217/)
 
-撰稿：Skagen【㊙️翻Gnews原创组】
-责编：Shifter
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27131805/Screen-Shot-2021-05-27-at-12.11.11-PM-1.png)图片来源：GTV
-文贵先生5月24号的第二段短视频中提到了福奇讲话后的各国行动，以及石油、货币形势，非常简短，但信息量非常巨大，透露出与中共的战斗在全球各地各行各业正在全面展开。本文将结合最新数据和情报一窥战场的激烈。
+翻译：文复
 
-在福奇讲话之后，美国向全球发出了信号，要向中共追究病毒真相，全球各个国家都必须马上选边站。郭先生在短视频中提到日本，印度，被中共间谍渗透而控制的非联盟，中东联盟，南南合作组织，郭先生借用法国参谋长的话：我们要在未来中美之战中选边站！摆在全球组织和各国政客们面前的就两个问题：一个是追究真相，一个是是否还跟共产党站在一起。
+在将近18个月的时间里，主流媒体采取了有悖于新闻原则的不当行为—-驳斥了任何关于COVID-19可能起源于武汉病毒学研究所的假设，因为他们的大仇敌前总统特朗普敢于提出这个非常合乎逻辑的结论。我们也不要忘记，北京已经在美国内部建立了深厚的联系，其中包括大学、娱乐场所、体育联盟，当然还有华盛顿特区及其自由派的代孕者。
 
-郭先生提到了原叶简明出面在东欧建立了极深政治关系的国家，包括拉脱维亚，立陶宛等四个国家，还有沙特等中东国家，全部要跟共产党翻脸。我们分析一下为什么郭先生提到了石油和天然气国家要联合反共？从表面看是因为中共无法兑现承诺，有没有美国和欧盟在背后的承诺和压力呢？美国目前的通涨压力巨大，如果不把石油价格放开，美国将不得不加快加息的步伐，美国经济承受不了了。再看， 中共的招：中共国5月1日起调整部分钢铁产品关税 146个税号取消出口退税（新浪财经：[重磅！我国5月1日起调整部分钢铁产品关税 影响有多大](https://finance.sina.com.cn/china/2021-04-29/doc-ikmyaawc2434534.shtml)）：自2021年5月1日起，调整部分钢铁产品关税。其中，对生铁、粗钢、再生钢铁原料、铬铁等产品实行**零进口暂定税率**；提高硅铁、铬铁、高纯生铁等产品的出口关税，调整后分别实行**25%****出口税率、****20%****出口暂定税率、****15%****出口暂定税率。**在此次调整之前，享受出口退税待遇的钢铁类代码为166个，此次调整取消了146个，其中热轧类产品除钢轨、 车轮、车轴外，均取消了出口退税，保留出口退税的品种包括冷轧合金钢板、冷轧普通中厚宽钢带、冷轧薄宽钢带、电镀锌板、热镀锌板、镀锡板、镀铝锌板、电工钢等。2021年1―3月保留出口退税的钢材品种出口429万吨，占总出口量的24.3%；取消钢材出口退税的钢材出口1337.8万吨，**占总出口量的****75.7%**。
+因此，当泄漏实验室的理论在2020年1月开始积蓄的时候，中国在美国的“投资”就获得了回报，整个自媒体产业联合体都疯狂地兜售“自然起源”理论，同时还大胆宣布实验室起源假说是“遭揭穿的阴谋论”。
 
-中共为什么突然提高出口关税？如果说石油是工业的“血液”，钢铁就如同工业的“粮食”，中共国掌控着制造工业成品的“粮食”，就算美国欧洲你再怎么转移后端制造的产业链到东南亚印度东欧国家，都来不及建立如中共国现有的钢铁产业这样完整的供应链。对近80%的钢铁出口征15%-25%的出口关税，而进口零关税，这意味着不但希望部分钢材品种回流国内，短期看对国内供需影响不会很大，目的是要中长期影响海外的需求情况。很明显，这是通过取消相关产品出口退税，提高相关出口企业的出口成本，迫使相关企业提高出口价格，再加上人民币升值，推高西方国家的采购价格，从而推高全球通涨！打击西方国家已经快撑不住的金融财政。而中共国也会被推高通涨，但是中共认为它的奴隶们“吃草”都无所谓。
+什么时候道歉？
 
-中共不仅通过在打着贸易战，而且在金融战方面我们看到了血腥的场面。郭先生说，针对华尔街和共产党的炒作比特币未来一定将受到法律严惩，美国和中共之间会掀起人类有史以来最大的法律诉讼战。因为这是个骗局，它不是去中心化，它是绝对中心化。1.4%的人控制着97%，怎么可能是去中心化呢？因为这里面是共产党的几个家族在联合起来控制着政权。
+直到最近的两周，从参议员Rand Paul（R-KY）开始抨击福奇领导下的美国国立卫生研究院（NIH）在武汉实验室参与进行研究工作之后，《华尔街日报》又报道称，三名WIV实验室工作人员于2019年12月因具有COVID-19症状而入院治疗的事情。
 
-这是一场全面的战争，普通人看到的都是虚像，都是化了妆、抹了口红的脸。郭先生预计美国的各个领域，科技领域、知识领域、教育领域、好莱坞、农业领域都会像多米诺骨牌一样倒下去。能救西方和全球的只有快速灭共一条路，否则西方和世界就被中共干掉，两者此消彼长，不存在幻想和投机的中间道路。
+因此，实验室泄漏假说几乎在一夜之间被合法化了，这使得自由派人士争先恐后地在他们以前的报告上加上了批注。记者Drew Holden将这种虚伪的洪水整理成史诗般的Twitter帖子：
 
-参考链结：[郭文贵先生5月24号直播视频](https://gtv.org/getter/60aba4a9744cbc431363c4f4)
 
-（本文仅代表作者个人观点）
+
+> You may remember that much of the really bad coverage was focused on [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw)’s suggestion that we better understand the potential for a lab leak from Wuhan.
+> 
+> The difference in framing here from [@nytimes](https://twitter.com/nytimes?ref_src=twsrc%5Etfw) between May 2020 and May 2021 is…stark. [pic.twitter.com/dr5kPPbq3a](https://t.co/dr5kPPbq3a)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397334901175750659?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> But it wasn’t just NYT. There’s a lot of ammo from [@CNN](https://twitter.com/CNN?ref_src=twsrc%5Etfw), too. 
+> 
+> Not even two months ago, they ran a piece writing off the lab leak theory as “like something out of a comic book.”
+> 
+> Yesterday, the tone had changed, without any reference to their own role in the previous debate. [pic.twitter.com/O2VMNayPuN](https://t.co/O2VMNayPuN)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397334981375053826?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> [@ChrisCillizza](https://twitter.com/ChrisCillizza?ref_src=twsrc%5Etfw) has been a key voice for [@CNN](https://twitter.com/CNN?ref_src=twsrc%5Etfw) on this. In February 2020, he cited a CNN factchecker who concluded you can “say that didn’t happen” about the lab leak.
+> 
+> Yesterday, he seemed baffled that Dr. Fauci wasn’t entirely on his side anymore.
+> 
+> So much for “trust the science” [pic.twitter.com/pIStY6BZmw](https://t.co/pIStY6BZmw)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397335157275865088?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> And for some reason [@washingtonpost](https://twitter.com/washingtonpost?ref_src=twsrc%5Etfw)’s timeline of events just so happens to omit their own “fact check” of the lab leak theory from April 2020 that concluded “the balance of the scientific evidence strongly suggests the conclusion that the new coronavirus emerged from nature.” [pic.twitter.com/eP4RmJ6mAL](https://t.co/eP4RmJ6mAL)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397335241463902209?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Much of the problem originally was that so many outlets relied on less than trustworthy sources – like the lab itself – to reject the lab leak theory & render it a “conspiracy theory.”
+> 
+> Even [@Reuters](https://twitter.com/Reuters?ref_src=twsrc%5Etfw), who doesn’t usually make the threads, did this. It was unbelievably pervasive. [pic.twitter.com/ulJGkxrx22](https://t.co/ulJGkxrx22)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397335262720630787?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> I don’t know how else to put it. [@NPR](https://twitter.com/NPR?ref_src=twsrc%5Etfw) was awful about this one. 
+> 
+> In April 2020, the story was “scientists debunk lab accident theory” but in March 2021 the idea suddenly “takes on new life”. 
+> 
+> Did anyone consider who killed the original theory? I have an idea. [pic.twitter.com/KSjoJF4ZSO](https://t.co/KSjoJF4ZSO)
+> — Drew Holden (@DrewHolden360) [May 25, 2021](https://twitter.com/DrewHolden360/status/1397335273286115329?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> SUPERCUT!
+> 
+> Media mock Trump, [@TomCottonAR](https://twitter.com/TomCottonAR?ref_src=twsrc%5Etfw) for "debunked" Covid lab leak theory [pic.twitter.com/nb0621y2e7](https://t.co/nb0621y2e7)
+> — Tom Elliott (@tomselliott) [May 26, 2021](https://twitter.com/tomselliott/status/1397665146462523399?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> [@zerohedge](https://twitter.com/zerohedge?ref_src=twsrc%5Etfw) is one of the few REAL media, which is brave and pursues the truth of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) from the beginning of pandemic. As mine, their account was censored and suspended, by Twitter. Same thing also happened to [@TuckerCarlson](https://twitter.com/TuckerCarlson?ref_src=twsrc%5Etfw) by FB.
+> Their efforts deserve to be appreciated. [https://t.co/NG9RbzwVzc](https://t.co/NG9RbzwVzc)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [May 27, 2021](https://twitter.com/DrLiMengYAN1/status/1397942678336249856?ref_src=twsrc%5Etfw)
+
+
+
+**评论：**
+
+**上面的民众留言，让人捧腹，用中共的话来说就是，“群众的眼睛是雪亮的”。美国的民众，在受到其主流媒体的故意误导和欺骗后已经醒来，将其邪恶的用意，揭露得入木三分。这是一个全世界普通民众抗击精英阶层和食利阶层的大觉醒时代，一起合力掀翻笼罩在头顶上的共同的专制天花板，迎来一个平民有平权的时代。**
+
+新闻来源：[零对冲](https://www.zerohedge.com/covid-19/didnt-age-well-wuhan-propaganda-msm-laid-bare?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+h)
 
 0

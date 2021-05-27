@@ -1,45 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】贝壳找房被调查，马化腾在劫难逃
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1275876/)
+## 新西兰担心中国 &#8220;风暴 &#8220;来临，敦促出口多样化
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1275884/)
 
-配音：香草山录音组 信念7
+翻译：文扬
+校对/编辑：七彩光
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27095109/new_zealand.jpg)图片来源：bbc.com
 
+新西兰官员最近关注比他们更大的邻国-澳大利亚，对新西兰可能很快陷入与中国类似的贸易战，成为北京发怒的目标表示担忧。毕竟，新西兰是有70年历史的英语国家 “五眼联盟”情报集团的一部分，该集团包括美国、英国、澳大利亚和加拿大–所有这些国家都对中国的侵犯人权行为，强制性贸易及海外间谍措施越来越多地发声抗议。 惠灵顿正面临着来自其更大的、有影响力的盟友的越来越大的压力，要求它发出更多声音。
 
+4月份，新西兰外交大臣纳奈•马哈塔（Nanaia Mahuta）试图使新西兰摆脱“压力”和争议，因为他们关注与维吾尔族穆斯林人口有关的侵犯人权行为以及香港和其他反民主的渎职行为，称这种批评 “令人不舒服”。但是，尽管在对中国的批评和日益增长的对立情绪上试图保持某种程度的 “中立”，马哈塔现在警告说，这个小国可能很快就会发现自己处于来自中国的愤怒 “风暴 “中心，这只是时间问题。
 
+在目睹澳大利亚的例子以及由于该国出口目的国比较单一而被 （中澳）贸易战造成（巨大）破坏之后，她现在正公开呼吁扩大出口的多样性，但这呼吁本身肯定会引起北京的审查。
 
+“显然，我们不能忽视澳大利亚与中国关系正发生的事情。”本周她在接受《卫报》采访时说：”如果他们近距离观察这些事情，或者正好处于该‘风暴’中心，我们必须合理地自问—此对抗风暴波及我们可能只是一个时间问题。
 
+她说：“我向出口商传达的信号是，他们需要考虑（出口目的地）多元化的大背景– 新冠病毒疫情，扩大我们整个地区的关系，如果与中国之间发生重大事件，如何缓冲，”她并进一步提出，”他们能承受冲击吗？”
 
+据估计，新西兰所有出口的产品中，目前30%都出口到中国（总额超过330亿美元），这显然足以让北京实施它想要的实际损害。如果北京愿意，它可以发动真正的破坏，在过去的十年里，新西兰持续稳定地依赖中国作为 （出口产品）”大买家”，这可以追溯到2008年签署的《新西兰-中国自由贸易协定》。
 
-[路透社](https://www.reuters.com/world/china/exclusive-china-launches-antitrust-probe-into-tencent-backed-property-broker-ke-2021-05-25/)报道称，据消息人士透露，中共市场监督管理总局（State Administration for Market Regulation，简称SAMR）最近正在对房屋中介公司贝壳找房的“二选一”垄断行为进行调查。贝壳公司股票因此一度下跌近10%。
+目前，北京似乎希望保持与马哈塔部长4月份的评估一致，即希望远离 “不舒服 “的指责，或远离 “注意力集中”。
 
-贝壳找房（KE Holdings，BEKE）成立于2001年，总部位于北京，是中共国最大的线上线下房产交易和服务平台，同时也是地产经纪品牌链家的运营商。腾讯是贝壳找房的大股东。
+针对马哈塔周一发表的采访声明，中国外交部发言人赵立坚表示，希望两国能够在 “同中方相向而行，做大合作蛋糕，排除外部干扰”。中国的声明是在星期三发表的。
 
+中国声明指出，中新关系取得长足发展，是基于双方长期坚持相互尊重、相互信任、互利共赢—最终共同推进中新全面战略伙伴关系。
 
+当然，北京最近也不断表示，在与华盛顿关系恶化的现状下，根本上缺乏的正是 “相互尊重和信任”。
 
-**文字版原文：[【热点播报】贝壳找房被调查，马化腾在劫难逃](https://gnews.org/zh-hans/1273643/)**
+**译评：**世界遭受中国共产党发起的生物战攻击，已经令1亿6千多万人感染中共病毒，造成了三百六十多万人的死亡。世界各个民主国家逐渐醒来，各国正义的力量在集结和反击。作为五眼联盟之一的新西兰，其有关政客也已经被深度蓝金黄，与澳大利亚坚持正义相比，新西兰政府却在跪着恳求中共给予施舍。相信新西兰国内正义善良的人们会尽快醒悟过来，加入灭共的世界大潮中。
 
-作者：纽约香草山信息部 雪梨
+原文链接：
 
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.zerohedge.com/economics/new-zealand-worried-china-storm-horizon-urges-diversity-exports](https://www.zerohedge.com/economics/new-zealand-worried-china-storm-horizon-urges-diversity-exports)
 
 0

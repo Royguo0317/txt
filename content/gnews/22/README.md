@@ -1,27 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 牛津大学非法收集手机数据用于中共病毒疫苗研究
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1276054/)
+## 【热点播报】泽连科博士称儿童疫苗授权为“强制性的人类实验，危害人类罪”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1276101/)
 
-**作者：**武松Sam
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27114349/45864214.png)图片来源：网络
-来自Independent Scientific Pandemic Insights Group on Behaviours (SPI-B)一份报告显示，作为阿斯利康中共冠状病毒（Covid-19）疫苗的研制基地的牛津大学，其研究人员在公众未知的情况下，秘密的收集他们的手机数据，用于研究接种疫苗如何影响人们的生活方式。
+作者：香草山福音部 繁星
 
-根据数据，牛津大学的科学家在二月份对10%英国人的手机数据进行了采集和挖掘，挑选出了4254已经注射中共病毒疫苗的人进行研究，并对他们注射后的日常行为进行持续跟踪。 据报道研究人员根据这些人年龄的不同，分别进行了相关行为指标的检查，包括从家到疫苗接种点的距离，然后他们将该运动数据与另一个地区的另一组接种疫苗的人的数据进行比较。通过该研究得出结论，接种疫苗前运动距离比接种疫苗后要多218米。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
-与此同时英国政府试图为自己辩护，声称这些数据是在手机发射塔采集的而不是在个人层面上采集的，同时牛津大学的研究人员也被授予了一定权限内的许可做这些事情。在中共病毒肆虐的期间，使用“密切接触者追踪”和其他相关监视方式受到了隐私保护主义者的广泛关注和批评。
 
-**评：**中共病毒是在中共最高层领导下由中共军方及各国邪恶贪婪的政治家和科学家一起研发的超限战生物武器，中共病毒疫苗更是全球邪恶势力进一步控制人类言行，让人类永远做奴隶的邪恶计划之一。新中国联邦早在2020年1月份就像全世界展示了该病毒来源是实验室的铁证，更是明确的支出在推翻中共邪恶统治之前，不可能有有效疫苗。但是邪恶势力通过控制贪婪的政治人物、社交媒体等手段，掩盖中共病毒来源及疫苗真相，妄图实现其人口灭绝计划及完全控制人类的计划。在新中国联邦的大声疾呼及各国有良知的科学家站出来揭露真相的情况下，各国最终会醒来，一起推翻中共统治，还地球安宁祥和。
 
-[https://www.naturalnews.com/2021-05-26-oxford-secretly-illegally-collected-phone-data-covid.html](https://www.naturalnews.com/2021-05-26-oxford-secretly-illegally-collected-phone-data-covid.html)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27115715/%E5%9B%BE%E7%89%873-10-scaled.jpg)
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+Zelenko协议的发起者Vladimir Zev Zelenko医学博士今天称强制执行儿童疫苗注射是“强制性的人类实验”，呼吁对负责此类政策的人进行“危害人类罪”审判。
 
-编辑/发布：比卡丘
+泽连科对美国前线医生说：“根据疾病预防控制中心（CDC）的决定，年龄在18岁或18岁以下的健康孩子无需任何治疗即可从COVID-19中恢复，恢复比例为99.998％。”  “从医学角度上来说任何疫苗都没有必要。特别是，未经实验证明的mRNA注射疫苗已显示出许多危险的副作用。”
 
-20210527
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+他继续说：“任何强迫或要求儿童进行这种实验性注射的政府或个人，都直接违反了日内瓦公约对强迫性人体实验的禁止。
 
+“这些人是最高级别的罪犯，必须将他们以危害人类罪绳之以法。”
+
+泽连科博士指责以色列国政府“对自己的公民施压，迫使他们进行人体试验”，敦促停止此类活动。
+
+他说：“以色列政府对自己的公民施压，迫使他们进行人体试验。”  “绿色护照是歧视性工具，给无辜的人造成过大的心理压力。
+
+“知情同意被忽视，没有考虑医学上的必要性。因此，年轻健康的人以及已经有了抗体的人仍被迫进行不需要的实验性医学干预。”
+
+他继续说：“以色列政府，停止向您无辜而又不同意的公民的身体发射微型导弹。
+
+“在使用未经批准的新技术之前，请谨慎行事，停止人体实验，并收集更多有关安全性和功效方面的数据。”
+
+Zelenko博士因其在治疗冠状病毒大流行中的巨大贡献而被提名为诺贝尔和平奖的一群医生当中的一位。
+
+他在用羟氯喹和锌治疗COVID-19病人方面举世瞩目，发现使用这两种物质使死亡率降低了8倍。 他说，在头5天内用羟氯喹和锌治疗可将死亡率降低85％。
+
+参考阅读：
+
+https://www.americasfrontlinedoctors.org/frontline-news/dr-zelenko-calls-child-vaccine-mandate-coercive-human-experimentation-crimes-against-humanity
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
