@@ -1,39 +1,167 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共极有可能在武汉军运村内就开始释放不同种SARS-CoV-2病毒
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1278570/)
+## 众议员迈克·加拉格尔（Mike Gallagher）我们必须对情报进行解密流行病毒起源
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1278495/)
 
-台湾宝岛农场 Amitofu
+**字幕内容：**
+Rep. Mike Gallagher
+众议员迈克·加拉格尔
 
-2020年3月赵立坚曾转推，新型冠状病毒可能起源于马里兰州，迪特里克堡的美国陆军传染病医学研究所，暗指2019年10月美国运动员在武汉第七届世界军人运动会（Military World Games）期间，把新型冠状病毒带到武汉，引起疫情传染，才会造成武汉病毒的起源。按中共大外宣逻辑来反推中共的原有计划。在2019年9月18日，中共在武汉世界军人运动会举行前，于武汉天河机场军运会航空口岸专用通道开通测试，举行的应急处置演练活动中，以实战形式仿真机场口岸通道发现1例**新型冠状病毒感染的处置全过程**。在2019年9月中共就知道将有新型冠状病毒、或已经有新型冠状病毒所以需要演练，湖北省政府和新华社等官媒也做此报导。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28121522/20190926hubei.png)
-自由亚洲电台2020年5月10日报导，法国女子现代五项世界冠军库威尔（Elodie Clouvel）说，自己和男友贝劳(Valentin Belaud)在2019年10月在武汉参加世界军人运动会时就感染了**新型冠状病毒**，她和其他法国运动员就都病得很重；意大利前奥运击剑冠军选手塔利亚里奥尔（Matteo Tagliariol）也在参加武汉军运会时，曾出现类似新冠肺炎的症状，同住的5名运动员也出现同样症况，回家一周后，他发高烧、呼吸困难、吃抗生素无效，长期处于虚弱的状态三周后才康复，并且传染给儿子和太太；瑞典游泳运动员史塔克奇欧第（Raphaël Stacchiotti）等代表团多人也发生同样种况；卢森堡一位游泳运动员亨克斯(Julien Henx)也说，同团有2人在参赛期间就有肺部问题；176名加拿大士兵参加武汉军运会期间，有大量士兵重病，许多有着严重的肺部问题，咳嗽，呕吐， 腹泻等，症状严重到了完全无力起身的地步，飞机返回加拿大时，三分之一的成员被隔离在飞机后部。巧合的是当这些国家的军人向军队要求进行测试时，军队拒绝了他们的要求，并在国防官网表示当时返国后未发现任何个人或集体健康问题，但多国的军人认定他们当时得到的肺炎就是新型冠状病毒。
+100%, we don’t have access to the lab records
+100%, 我们没有权限访问实验室记录
 
-在塞林博士循序渐进的推文中证实，闫丽梦博士指出中共制造COVID-19病毒对世界生物超限战的真相，中共病毒SARS-CoV-2是经过解放军拥有的舟山蝙蝠病毒ZC45/ZXC21为骨架，通过人为的基因改造技术在刺突蛋白中引入弗林酶切位点，功能增强S蛋白、E蛋白毒性，使病毒更具强变异性和传染性。
+The CCP prevaricates they lied
+中国共产党推诿，他们撒谎
 
-第四军医大学的徐德忠教授作为军队流行病学学术领导者，著作《非典非自然起源和人制人新种病毒基因武器》为超限生物武器的研究提供了大量理论和技术支持，为中共分子流行病学与航空流行病学的创建和发展，以及国家非典的防控了做出贡献。
+or trying to deflect blame
+或试图逃避责任
 
-笔者认为2019年武汉军运会，有109个国家9308名军人报名参加，23万名工作人员，中共极有可能在武汉军运村内就开始释放不同种的SARS-CoV-2病毒来观察健康军人选手的染疫情况，并加强针对白人的基因病毒，来做下一次的释放。徐德忠教授的航空流行病学是否也间接承认参加武汉军运会期间，利用各国军机到武汉参加军运会时，开始向外释放中共病毒，不仅打击川普总统连任，威胁美国安全打赢生物超限战，也能和西方菁英合作疫苗经济，更能对抗争中的香港运动达到维稳，透过隔离而大量抓捕抗议学生。同时在中共国内因封城隔离，而任意消失内斗的派系和企业家，更可以在2020年台湾大选时，企图让韩国瑜当选总统后，开放几十万人来台的染疫计划。祈祷万佛万神加持75亿人不受到中共病毒的威胁
+They’ve not been a cooperative partner since the start of this
+自从大流行开始他们就不是合作伙伴
 
-本文仅代表个人立场
+and the fact that they are trying to place blame on America
+而且事实上，他们试图将责任赖上美国
 
-資料來源:文贵先生、班农战斗室、路德社、闫丽梦博士、博士军团、爆料革命
+just show you, shows you the depths of their depravity
+这就告诉你他们堕落的深度
 
-审核:Athena雅典娜 发布:Amitofu
+so we have to declassify the intel
+所以我们必须解密情报
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+we have in order to get to the bottom of this
+我们必须要深挖到底
 
-[Coronavirus, lo schermidore veneto Tagliariol: “In ottobre ho preso la polmonite a Wuhan”](https://tribunatreviso.gelocal.it/regione/2020/05/07/news/coronavirus-lo-schermidore-veneto-tagliariol-in-ottobre-ho-preso-la-polmonite-a-wuhan-1.38815861?fbclid=IwAR3-_JByN6mjD_W9uTwq_cbXs7hz2W3cDI8qY8AuBFXjNYzrh2zLx_sXciQ)
+we know we’re not going to get the cooperation
+我们知道我们不会得到合作
 
-[Controlli sanitari per la delegazione italiana a Wuhan per i Campionati Mondiali Militari dello scorso ottobre](https://www.difesa.it/SMD_/Comunicati/Pagine/controlli_sanitari_per_delegazione_italiana_a_Wuhan_per_Campionati_Mondiali_Militari_2019.aspx?fbclid=IwAR3p4nEa3aF3Sqa9XL_UoGiV9v71MkG2B04Y-6n-EmmazPe642YmSPBMcXQ)
+from an increasingly hostile competitor
+来自日益敌对的竞争对手
 
-[The impact of the World Military Games on the COVID-19 pandemic](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7813667/)
+in the form of the Chinese Communist party
+以中国共产党的形式
 
-[COVID Coverup: Trudeau gov’t helped China hide origins of COVID-19](https://www.rebelnews.com/covid_coverup_trudeau_govt_helped_china_hide_origins_of_covid_19)
+it is incumbent upon us to get the information out there
+我们有责任从那里获取信息
 
-[French army returned from Wuhan military games in October with mystery illness](https://www.mirror.co.uk/news/uk-news/french-army-returned-wuhan-military-21988912)
+America deserves an answer,
+美国应该得到一个答案
 
-[武漢海關舉辦軍運會倒計時30天暨口岸突發事件應急處置演練](https://k.sina.com.cn/article_2000016880_7735d5f002000krlq.html?from=news&amp;subch=onews)
+the world deserves an answer
+世界应该得到一个答案
 
-+1
+we have to get to the bottom of this pandemic
+我们必须深入了解这场大流行
+
+and there is a very complicated and troubling story
+而且有一个非常复杂和令人不安的故事
+
+as I mentioned at the start of this
+如我在开始的时候提到的
+
+about how your taxpayer dollars went to fund this research
+关于美国纳税人资金如何为这项研究提供资金
+
+that could have been the reason this whole thing started in first place
+这可能是整个事情开始出现的原因
+
+Jon Scott (Fox News host)
+乔恩·斯科特（福克斯新闻主持人）
+
+So listen to Jen Psaki the White House spokeswoman
+因此，请听白宫发言人詹·普萨基（Jen Psaki）
+
+talking about what they see as what needs to happen here listen
+谈论他们认为这里需要发生的事情。 听
+
+Jen Psaki (White House spokeswoman)
+詹·普萨基 (白宫发言人)
+
+I will say that our view continues to be
+我要说，我们的观点仍然是
+
+that there needs to be an independent, transparent investigation
+需要进行一个独立，透明的调查
+
+and that needs to happen with the cooperation
+这需要通过合作来实现
+
+and data provided from the Chinese government
+和从中共国政府提供的数据
+
+Jon Scott
+乔恩·斯科特
+
+but cooperation and data is not forthcoming
+但是合作和数据并不会出现
+
+as you have said
+就如你所说的
+
+Rep. Mike Gallagher
+众议员迈克·加拉格尔
+
+yeah I don’t think we should make
+是呀，我不认为我们应该使我们
+
+how we proceed contingent
+如何进行视情况而定
+
+upon the largesse of the Chinese Communist party
+依赖在中国共产党的慷慨上
+
+Because we’ll be waiting a heck of a long time for that to happen
+因为我们为了做到这一点要等很长时间
+
+so we need to take bolder steps to investigate this
+所以我们需要采取更大胆的步骤来对此进行调查
+
+nor can we rely upon the Integrity of the W.H.O.
+我们也不能依靠世卫组织的廉正
+
+I hate to say it
+我讨厌这么说
+
+but the W.H.O. has been compromised by the Chinese Communist party
+但是世卫组织已被中国共产党渗透控制了
+
+so we need our national security officials
+所以我们需要我们的国家安全官员们
+
+to be more forthcoming with us
+更多地与我们保持联系
+
+we need executive branch to declassify all the information they have
+我们需要执行部门对他们拥有的所有信息进行解密
+
+and we need to work in concert with our trusted partners to have such an investigation
+我们需要与我们值得信赖的合作伙伴一起进行调查
+
+in particular Partners like Australia
+特别是像澳大利亚这样的合作伙伴
+
+who you remember call Independent investigation
+你还记得他们提出要进行独立调查
+
+and then got a wave of economic sanctions placed on them by the Chinese Communist Par-ty
+然后中国共产党对其施加了一系列的经济制裁
+
+clearly the CCP is trying to hide something
+显然中共正试图隐藏一些东西
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 : [https://twitter.com/repgallagher/status/1396831226200199172?s=24](https://twitter.com/repgallagher/status/1396831226200199172?s=24)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

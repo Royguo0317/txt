@@ -1,49 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大人压倒性地支持延长关闭美加边境
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1278972/)
+## 1.6暴乱调查的提案被否决川普又躲过一劫
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1279080/)
 
-Zero Hedge作者Tyler Durden发布于2021 年 5 月 26 日
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-翻译报道：温哥华圆成农场 木千
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28162314/Board-May-28-e1622233583859.jpg)
-尽管加拿大总理特鲁多已取消部分防疫限制，让加拿大人享受他们短暂从简的夏天，最新报告却仍然显示，美加边境——世界上最长的无防御边境——将至少关闭到9月。即使重新开放，似乎大多数加拿大人支持将疫苗证明作为那些未接种疫苗的美国“化外之民”的入境要求。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28170105/U-8.jpg)zawya.com
+巫婆佩洛西主导众议院通过的“成立1.6暴乱调查委员会”的提案（该提案有35名共和党众议员投了赞成票）【1】，刚刚（5月28日）遭到参议院的否决，投票结果为54:35，有6名共和党人投了赞成票。
 
-据彭博社（Bloomberg）报道，在安格斯里德研究所（Angus Reid Institute）最近的一项民意调查中，大约一半的受访者认同边境应该一直关闭到9月，超过四分之三的受访者表示，他们将支持疫苗护照[1]。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28162820/Survey.jpg)
-安格斯里德研究所民调结果
+这项提案必须有60票的赞成方能在参议院通过，也就是说，在“民主党全党一致”条件下（50名民主党参议员都投赞成票），还需要10名共和党参议员投赞成票，今天共和党投赞成票的有6名，比上次弹劾川普总统的赞成投票少了1票。《福克斯新闻》称，“这标志着共和党少数派首次成功地进行了立法阻挠。”【2】
 
-图片来源：彭博社
+该法案旨在建立一个类似9.11的调查委员会，以调查1.6国会大厦发生的暴乱，委员会由10人组成，该委员会有权传票进行调查，但在发出传票方面必须有两党同意。
 
-美加边界已关闭一年有余，但现在加拿大正在加快疫苗接种计划，特鲁多正面临来自商业团体（更不用说保守党反对派）越来越大的压力，要求他提出具体的重新开放计划。当特鲁多考虑是否提前举行选举以试图夺回议会多数席位时，边境开放上的政治决定瞬间变得至关重要。
+今天6名投赞成票的共和党人是：【3】
+1、罗姆尼（Mitt Romney）
+2、苏珊·柯林斯（Susan Collins）
+3、比尔·卡西迪（Bill Cassidy）
+4、罗伯·波特曼（Rob Portman）
+5、丽莎·默科夫斯基（Lisa Murkowski）
+6、本·萨斯（Ben Sasse）
 
-已有过半的加拿大成年人至少接种了一剂疫苗，该国最大的三个省份——安大略省（ON）、魁北克省（QC）和不列颠哥伦比亚省（BC）——已宣布分阶段重新开放计划。
+9名没有参与投票的共和党人是：
+1、玛莎·布莱克本（Marsha Blackburn）
+2、罗伊·布朗特（Roy Blunt）
+3、迈克·布劳恩（Mike Braun）
+4、理查德·伯尔（Richard Burr）
+5、吉姆·英霍夫（Jim Inhofe）
+6、迈克·朗兹（Mike Rounds）
+7、詹姆斯·里施（James Risch）
+8、理查德·谢尔比（Richard Shelby）
+9、帕特·图密（Pat Toomey）
 
-在最近的新闻发布会上，特鲁多强调，加拿大在重新开放方面还有很长的路要走。
+当看到众议院有35个共和党议员“投靠”民主党时，的确为川普总统捏了一把汗，挺担心参议院再增加3名“叛徒”，一旦如此，共和党的重振计划将面临阻碍，2022年夺回众议院会增加难度，文贵先生期待的2022年选举战也会随之蒙上阴影，难怪前天文贵先生说，川普总统将涉险过关。
 
-特鲁多在渥太华告诉记者，尽管很现象令人充满希望，但这并不意味着我们还可以放松警惕。
+感到欣慰的是，共和党减少了1名“叛徒”（由7人变成了6人），难能可贵地看到民主党出现了“异声”，50票变成了48票，虽然很弱，但毕竟是“有了”。或许人们从最近几天对中共病毒的态度上，觉察到了民主党主流所扮演的角色。
 
-安格斯里德研究所的首席库尔说，归根结底，对于一个抗疫疲惫的国家来说，“一剂夏日”的自由可能不足以实现，这也很可能延长边境重开的长期计划。下个月的情况将说明这些问题。
+邪共，必须追责；与邪共勾兑的，同样也要追责。这不关乎党派之争，是正邪之争，期待有正义感政治家的觉醒！
 
-上周，特鲁多政府宣布将边境限制再延长一个月至6月21日。根据民意调查，就在上个月病例爆发后，没有太多人支持立即重开边境。但随着病例增长持续放缓，疫苗接种人数上升，公众舆论的转变可能会比总理预期的更快——特别是当美国友人们正在50个州内全面恢复正常生活，而加拿大人只能望尘莫及之时。
+参考链接：
 
-**评：**
+【1】[https://gnews.org/zh-hans/1260026/](https://gnews.org/zh-hans/1260026/)
 
-文贵先生于5月27日的直播中强调，若加拿大不与中共妥协，则疫情将会如印度般在其境内大规模爆发[2]。如今的加拿大刚刚勉强度过了第三波确诊高峰，第四波疫情便已成暗流涌动之势。与此同时，特鲁多政府仍在限制病毒真相和反对疫苗的信息，自相矛盾的防疫政策更是层出不穷。近日，媒体上甚至还传出了部分地区对公民，尤其是孩子威逼利诱打疫苗的风声。本以为加拿大目前的疫情惨状和这底线尽失的政治环境已经是政府与共为奸的标志了，然而却不曾想中共所谓的超限战和生物战竟然还远没有开始！文贵先生此次直播敲响的警钟是否会成为丧钟更未可知。
+【2】[https://www.foxnews.com/politics/senate-republicans-slam-brakes-bill-commission-capitol-riot](https://www.foxnews.com/politics/senate-republicans-slam-brakes-bill-commission-capitol-riot)
 
-这篇报道中的民调显示绝大多数加拿大人支持继续关闭美加边境，但同时也有不少民众开始质疑这份民调的真实性，更何况美国当前胜于加拿大的疫情防控。尽管已有过半的加拿大人注射了中共疫苗，尽管大多数的加拿大人还对病毒真相一无所知，可以确定的是，经中共疫情本身所带来的现象级社会重创就足以促发民怨，甚至可以从而推动对病毒来源的探讨。在全人类皆性命攸关之时，以毒灭共已是必然结果。
-
-原文链接：[https://www.zerohedge.com/covid-19/canadians-overwhelmingly-support-leaving-us-border-closed-until-september](https://www.zerohedge.com/covid-19/canadians-overwhelmingly-support-leaving-us-border-closed-until-september)
-
-相关链接：
-
-[1] 安格斯里德研究所民调：[https://www.bloomberg.com/news/articles/2021-05-26/trudeau-gets-leeway-from-voters-on-slower-u-s-border-reopening?sref=i4qXzk6d](https://www.bloomberg.com/news/articles/2021-05-26/trudeau-gets-leeway-from-voters-on-slower-u-s-border-reopening?sref=i4qXzk6d)
-
-[2] 郭先生直播纪要：[https://gnews.org/zh-hans/1277312/](https://gnews.org/zh-hans/1277312/)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：涅
+【3】[https://www.cnn.com/politics/live-news/capitol-riot-senate-vote-05-28-21/index.html](https://www.cnn.com/politics/live-news/capitol-riot-senate-vote-05-28-21/index.html)
 
 0

@@ -1,39 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【深度报道】关于中共国病毒COVID-19疫情情报的系统分析报告6
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1278823/)
+## 【字幕】5/28/2021文贵盖特：为什么躺平币在国内造成这么大的影响？
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/1278857/)
 
-作者：22rOn
+制作： 【彩虹桥】
 
-纽约香草山火来和纽约香草山蚊子强力推荐
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
-#### **声** **明**
+尊敬的战友们好！已经是5月28号了，今天早上到现在，因为一直在会议中，所以说没有办法录盖特，录的晚了，非常非常的抱歉！
 
-本报告旨在阐述中共国自2005年以来开展有关病毒研究、中共国科研教育机构与香港之间的联系，所有信息均来源于互联网，任何人使用检索引擎都能够获取以下所有信息。分析所提出的线索与结论，仅代表本人观点。
+大家也都知道七哥今天为什么这么忙？现在为啥这么忙？捷报频传，以毒灭共，现在进入了全球的一个共同的，全面对这个新的病毒的一个认知的状态，对灭共也有一个新的认知的状态，可以说以毒灭共，就短短的这几天，完全在全世界变了样，大家也都知道，现在全球轰轰烈烈的，在国内搞得到处要普遍打疫苗，很多战友发信息给我，说七哥到底怎么办？
 
-* * *
+我就是一个建议，能不打，坚决不能打，我就不相信，任何国家和政府他敢说，你打了疫苗后果我承担，打疫苗，让你先写上一切后果你自负，你凭什么打？我打你的疫苗，我凭啥自负啊？你研究的疫苗，我凭什么自负啊？我可以不打啊，而且我相信，包括美国政府和很多国家政府很快会宣布，不打疫苗或不能强迫打疫苗，这是个基本这逻辑，我要给大家回复一下。
 
-**附件二** **2016病毒项目基金资助情况**
+第二个就是关于“躺平币”的事情，这个“躺平币”在国内的影响，大家已经都看到了，就在这个话题影响的所有的各个阶段在躺，什么叫“躺平币”？这个“躺平币”的概念，对共产党的影响它来源于什么？来源于当初共产党对中国人，所有的杀地主、分土地、杀土豪，所谓的分土地，造成的严重的后果，今天大家看上去没关系，事实上中国人开始在思考，我们这么辛苦的劳动，到底我们的日子能不能过得更好？为什么我们不能像西方国家一样，拥有自己的土地？为什么不能像西方一样，我们可以选择政府？为什么不能像西方一样，我们想信什么教就信什么教？为什么我们那么辛苦，却没有办法拥有西方一样，体面的生活和基本的房产和车辆？
 
-**本表基于关键词关联检索汇总而成，收集了2019年12月以前2016病毒项目的研究及其涉及的所有资金，部分研究人员姓名未能查找到中文姓名，仅供参考**
+在西方买个车，简直是太简单了，是吧？一年都不换新车都不好意思，一般的人，对不对？车便宜得很，我们的很多同事，头两天换的大众的SUV，换的奔驰SUV，都是二手车，新车4万美元，大众的SUV，然后二手车2万美金，这在中国是不可能的，在中国你要打工、还车贷、买房子。头两天，我们很多国内救出来的战友，去买完房子以后，房子带家具，啥都有40万美元，两三百万人民币一个独立的House，一个Acre的地。还有战友在凤凰城买的房子，大概是80万美元，四个Acre的地,带着所有的家具，豪华的不行了，带游泳池。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28131758/%E5%9B%BE%E7%89%8730-1.png)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132713/%E5%9B%BE%E7%89%8731-6.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132740/%E5%9B%BE%E7%89%8732-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132811/%E5%9B%BE%E7%89%8733-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132825/%E5%9B%BE%E7%89%8734-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132836/%E5%9B%BE%E7%89%8735-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133007/%E5%9B%BE%E7%89%8736-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133155/%E5%9B%BE%E7%89%8737-4.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133222/%E5%9B%BE%E7%89%8738-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133313/%E5%9B%BE%E7%89%8739-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133325/%E5%9B%BE%E7%89%8740-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133339/%E5%9B%BE%E7%89%8741-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133347/%E5%9B%BE%E7%89%8742-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133403/%E5%9B%BE%E7%89%8743-4.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133609/%E5%9B%BE%E7%89%8744-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133621/%E5%9B%BE%E7%89%8745-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133627/%E5%9B%BE%E7%89%8746-1-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133640/%E5%9B%BE%E7%89%8747-3-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133652/%E5%9B%BE%E7%89%8748-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133705/%E5%9B%BE%E7%89%8749-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133716/%E5%9B%BE%E7%89%8750-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133729/%E5%9B%BE%E7%89%8751-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133741/%E5%9B%BE%E7%89%8752-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133754/%E5%9B%BE%E7%89%8753-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133807/%E5%9B%BE%E7%89%8754-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133819/%E5%9B%BE%E7%89%8755-1.png)
-（未完待续）
+所以说中国人在问，为什么这个国家的土地、天空，都被污染了？人心都被污染？可我们就过不上体面的生活，这不是割韭菜，这已经是..大家要搞清楚，也不是简单的奴隶，就中国人但凡你要明白一点，从各个农村，你打打麻将，炒点肉吃，能吃饱馒头，每天你撅着腚，你干10小时，你都是幸福的了，就这，你在家里面，你还要中毒，就这，你还欠人家的钱，就这，孩子娶媳妇全家破产，就这，得一场病，死不了，活不了，死了，埋不起，埋了，那个坟在那搁不起。很多人都明白，“躺平币”不仅给躺平的人要给币，未来，还要给中国人，要让中国很多阶层的人，都要给他“躺平币”，而且这个计划，我受到了太多人的支持，并且很多金融机构都在了解什么情况，我希望未来把“躺平币”发展成一个，向共产党讨债的一个工具，共产党必须把这些年，欺骗老百姓的钱还给中国人，包括当年所谓的杀富豪、杀地主、抢走的土地，必须还给人民。
 
-校对/发稿：飞虹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193555/5_May-1-556x720-1.jpeg)
-**更多资讯，更多关注**
+这就是我几年来说的，必须把权力还给中国人民，一人一票选举的政府，中国人必须有中国的土地，中国人必须要平分中国所有的地下、地上的资源，中国人必须要有拥有自己的，所有各地、各县、各市的所有的资源，不能被外来者剥夺，包括台湾，香港，因为“躺平币”会唤醒大家，让更多的阶层，更多的领域，他去躺平，所以这个“躺平币”影响巨大…大家别着急，这个需要一段时间，现在我们要把团队建起来，有大量的前期投资，大量的前期准备，而且要有绝对的最高端的人员，包括政治、经济，金融系统。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+另外一个，就是我昨天听到的很多战友给我发很多信息，我没法回复，关于说你买什么币，关于大家问我说，现在的喜币，喜Dollar，我可以告诉大家，现在喜币和喜Dollar发展的程度，是超出你们任何人想象的，未来在市场公开交易的时候，你们都会明白了，大家一定要学会用喜美元，自己合法获得KYC的帐号，千万别忘了合法的使用、聪明的使用喜美元帐号，那是你自己的钱包。
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+另外最近一周两周，很多战友..国内的国外的很多战友要加入到工程团队，我给大家说一下，我没有办法一一回复。你要加入的，请给我个简历，如果你有在工程队伍的战友们，请你直接跟他联系，咱们欢迎大家，只要是战友的，还有能力的，都可以的，不是战友，有能力的也可以，大家可能都知道了，我们现在给所有的GTV，过去G-News,G-Club,G-Fashion,包括盖特,所有工作过够一定时间的,还有现在工作的战友，我们现在是将给10亿股的GTV的鼓励，这个事情在国内影响非常大。
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+所以这几天在美国的几大..Facebook，Twitter，YouTube的很多的战友都要离开，因为大家都知道，看到了希望，就是你该拿你的工资拿工资，根据你的过去到六月底截止的时间，根据你的工作的时间，来平均，根据不同的阶层，作出的不同的业绩，直接就给你股票了，GTV的股票，这总共是10亿股，这个投资委员会非常不同意，但最终他们还是同意了，原因非常简单，因为现在GTV要重建，如果GTV不重建的话，咱根本没这个机会，绝对不可能，绝对不可能。
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+现在这个10亿股，大概3~4亿股在六月底大概确定下来，发给以前工作在G系列的所有工程师们，然后剩下这一部分，所有的发给未来，最长五年最短三年，也就是GTV上市前，发给所有这些为G系列服务的工程师们，这是个天大的事儿，大家别忘了GTV去年私募的时候，它总共才20亿股，现在拿10亿股来发给了所有的为G系列工作的工程师，大家知道什么意义。
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+但是这次新GTV的募股是600亿股，这回拿出10亿股来只奖给，G-News,G-Fashion,G-Club,GTV,盖特和所有过去为G系列工程师们，直接一部分就发到你过去工作的时间，然后一部分发给未来的3~5年的在这里工作的工程师，这是天大的奖励，所以说所有的有意向的兄弟姐妹们，请和你熟悉的工程师和各农场联系，这都是抓得着的事实啊，不是共产党给你所说的，未来的中国梦啊，这不是梦，这是现实，最迟9~10月份就发到你个人的名下去了。
+
+所以说兄弟姐妹们，我不能一一回复，只能在这儿部分回复，谢谢兄弟姐妹们，旁边会议室已经准备好了，我要去开会了。
 
 0

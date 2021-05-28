@@ -1,141 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议员就拜登停止对中共病毒调查事件的公开信
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1278874/)
+## 【圣城传声筒】党大于国，无法无天
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1278934/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：香草山香港部写作组
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28144631/c-31.jpg)worthynews.com
-面对拜登及拜登政府的倒行逆施，没错，就是用了“倒行逆施”这个词儿，笔者在塞林博士的提醒下，一直认为拜登在帮助中共掩盖病毒真相，拖延时间！消息披露后，做贼心虚的拜登第一时间发表了疑似“此地无银三百两”的声明，明显在推卸责任（当然，只看表面现象的人们还是为他限期提交报告的承诺感到欢喜）。这种与魔共舞的罪恶嫌疑行径，自然会引起正道追求者的警惕，参议院当天举行了听证会，并通过了解密中共病毒情报的决议。笔者认为，这只是追责拜登停止调查的开始，昨天两位参议员联名公开致信布林肯，并抄送了拜登。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
-公开信全文如下：
 
-尊敬的安东尼J.布林肯
 
-国务卿，美国国务院
+支联会27日发新闻稿表示，收到政务司司长办公室回复，就 5 月 30 日游行及 6 月 4 日集会，“政府未能确立拟进行的游行及集会符合第 599G 章第 5 条的条件”。此外，支联会今午亦收到警方通知，根据《预防及控制疾病（禁止群组聚集）规例》（第 599G 章），反对 5 月 30 日“毋忘六四”大游行，及禁止 6 月 4 日“六四”维园烛光悼念集会。
 
-西北C街2201号，华盛顿特区 20520
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28151952/1a5c7631bec50bb1.jpg)图片来源：德国之声
 
-尊敬的布林肯国务卿，
+根据警方向支联会发出的“禁止公众集会及反对公眾游行通知书”，警方考虑到限聚令及本港疫情，应变级别仍为“紧急”的最高级别。警方指，公众集会及游行，属人多聚集的高危活动，警方有理由相信，举行有关活动，会增加活动参与者及其他市民感染病毒的风险。
 
-我们写信要求提供有关最近有关“拜登总统的团队停止了“对中共病毒（SARS-COV-2）起源的调查的信息，其中包括验证病毒起源于中共国武汉一个实验室的理论。
+支联会表示，将根据《公安条例》第 16 条，向公眾集会及游行上诉委员会提出上诉，期望委员会尽快安排上诉聆讯，让市民可以在合法及安全的情况下悼念 “六四”。支联会重申，悼念“六四”是香港人过去 31 年的集体回忆，支联会将继续争取市民合法悼念“六四”的权利。
 
-据报道，这项现在已终止的调查是由美国国务院军控与核查局（the State Department’s arms control and verification bureau）进行的，是唯一一项认真调查中共病毒从中共国武汉一个实验室出现的假设的调查。据报道，调查组在2021年2月和3月向拜登政府官员通报了调查结果，在通报之后，美国国务院终止了这项调查。
+保安局局长李家超出席立法会会议后回应指，现时两个活动是未经批准集结，任何人都不应该参加、宣传、公告，否则是违法，最高可判监五年。他称，“任何人尝试挑战法律，包括限聚令、公安条例、香港国安法等，警方都会严肃处理”。
 
-迄今为止，世界卫生组织（WHO）是唯一一个对中共病毒的起源进行公开调查的实体，然而，世卫组织的调查受到了外界专家和拜登政府官员的广泛批评，包括您自己，以下是此类批评的几个例子：
+李家超指，警务处处长是按照《公安条例》赋予的权力，在考虑所有限聚令、公共秩序等因素后，决定是否反对一公眾活动。如警务处处长反对活动后，该活动就是未经批准集结。
 
-●2021年2月13日，国家安全顾问杰克·沙利文（Jake Sullivan）在世界卫生组织的报告之前表示，“我们对中共病毒调查的早期发现的传达方式，以及传达过程中遇到的问题深感担忧。”
+再有在场记者问及叫喊“结束一党专政”是否违反香港国安法。李家超初时仅重复指，任何人尝试挑战法律，他们都会严肃处理。直到再被追问时，他回应：“我不在这里讨论某些行为，会否违反某一法律，但根据国安法清晰列明，任何人如组织、策划、实施，用非法手段破坏、推翻中国宪法下所确立的根本制度，是属于颠覆国家政权罪。每个人都要为自己行为负责，如涉及违法行为，尤其是涉及国安法，我们会严肃按法律处理。”
 
-●在2021年3月25日的一次采访中，您讨论了即将发布的世卫组织报告，并表示，“我们对该报告的方法和过程有真正的担忧，包括北京政府显然帮助撰写了报告的事实。”
+同样，在澳门已经持续了30年的“六四”悼念活动从2020年开始也被当地政府以防疫为藉口禁止再举办。而讽刺的是，香港卫生署27日公布，香港当日没有录得任何输入个案或本地个案，及少于 5 宗初步确诊，至今累计确诊个案共 11837 宗。根据署方资料，继上一次本地及输入个案都“零确诊”，是去年 10 月 14 日，相隔 226 日，香港再次无任何确诊个案。而在本月6～11日某表演团体在香港的演唱会，更因为政府同意放宽防疫措施，表演场地入场人数上限由50%增至75%。
 
-●2021年3月28日，福奇提到世卫组织可能缺乏获取信息的渠道，并表示，“如果事实上，很明显，去那里的人真正看一眼的能力都受到了很多限制，那么我会对此有相当大的担忧。”
+再对应近期港共政府对民主派人士做出的一系列政治审判，我们有足够的理由相信，中共对民间发出“结束一党专政”的口号已经是心惊胆战，不能承受。而这一口号在“六四”悼念活动中是重要诉求之一。法律是侍奉人民，而非人民臣服法律。而中共之所以要在香港强推所谓《国安法》，实际就是彻头彻尾的《党安法》，只是用国家安全来掩饰政党安全而已。只要伤害某个政党的利益就等同於颠覆国家，这是任何一个真正有民主、法治独立的国家都会觉得是不可思议的事情，这才是真正的无法无天。
 
-●  2021年3月30日，美国、澳大利亚、加拿大、捷克、丹麦、爱沙尼亚、以色列、日本、拉脱维亚、立陶宛、挪威、大韩民国、斯洛文尼亚和联合王国政府发表声明，批评世卫组织的研究报告缺乏信息和数据，“国际专家对中共病毒来源的研究明显延迟，缺乏完整的原始数据和样本，我们对此表示了同样的担忧。”
+而新中国联邦一直强调的是中国共产党不能代表中国，不能代表十多亿中国人。而推翻中共的统治不能和种族歧视混为一谈。相反，推翻只代表少数当权者利益的中国共产党，才是对中华民族甚至是亚裔的最大尊重和人权保障。
 
-●  2021年5月14日，18名科学家发表声明，批评世卫组织缺乏彻底的调查，并指出，“尽管没有发现明确支持自然溢出或实验室事故的证据，但世卫组织的调查小组的评估（却称）来自中间宿主的人畜共患传染病溢出“很可能”，而实验室事故“极不可能。”从而使得这两种理论没有得到平衡的考虑。
+参考阅读：
 
-●  2021年5月24日，白宫新闻秘书珍普萨基（Jen Psaki）表示，拜登政府“希望世卫组织能够进入一个更透明、独立的第二阶段调查”，调查中共病毒的起源。
+https://beta.thestandnews.com/politics/%E8%AD%A6%E6%96%B9%E9%80%A3%E7%BA%8C%E7%AC%AC%E4%BA%8C%E5%B9%B4%E7%A6%81%E6%94%AF%E8%81%AF%E6%9C%83%E8%88%89%E8%BE%A6-%E6%AF%8B%E5%BF%98%E5%85%AD%E5%9B%9B-%E9%81%8A%E8%A1%8C%E5%8F%8A%E5%85%AD%E5%9B%9B%E7%87%AD%E5%85%89%E9%9B%86%E6%9C%83
 
-2021年5月26日，拜登总统下令发布一份关于中共病毒来源的情报报告，目前尚不清楚美国国务院为何停止由美国领导的调查中共病毒起源的工作，了解中共病毒的起源对于美国政府预防未来疫情，并最终结束中共病毒疫情的努力是基础性的。为了更好地了解国务院（为何）决定终止对病毒来源的调查，请您在2021年6月10日前提供以下信息：
+校对/发稿：飞虹
 
-1、请说明国务院终止调查的原因和时间，包括主张终止调查的人的姓名和职务；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
 
-2、请提供在现已终止的、国务院对中共病毒来源的调查过程中产生的任何书面材料，包括任何报告草稿；
 
-3、请提供所有收到或审阅过有关国家部门调查中共病毒起源的报告草稿或简报的个人的姓名和职务；
 
-4、请提供国务院在调查中共病毒来源过程中引用或依赖的所有文件和书信；
+**更多资讯，更多关注**
 
-5、请说明国务院目前或以前对中共病毒的来源进行了哪些其他调查；
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-6、请提供对中共病毒来源进行调查的个人的姓名和职务；以及
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-7、请提供2018年至今国务院谈论武汉病毒研究所的所有文件。
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-谢谢您对此事的及时关注。
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-真诚地，
-
-罗恩约翰逊（Ron Johnson）
-
-常务调查委员会资深成员
-
-里克·斯科特（Rick Scott）
-
-美国参议员
-
-抄送：总统约瑟夫·R拜登（t Joseph R. Biden）
-
-信函链接：
-
-[https://www.ronjohnson.senate.gov/services/files/138CFFDD-1B57-49A3-9961-CD62B863EDB6](https://www.ronjohnson.senate.gov/services/files/138CFFDD-1B57-49A3-9961-CD62B863EDB6)
-
-原文整理：
-
-The Honorable Antony J. Blinken
-
-Secretary of State
-
-United States Department of State
-
-2201 C St. NW
-
-Washington, D. C. 20520
-
-Dear Secretary Blinken,
-
-We write to request information regarding recent reports that “President Joe Biden’s team
-
-Shut down” an investigation into the origins of SARS-COV-2, which included examining the theory that the virus originated in a lab in Wuhan, China.
-
-According to reports, the now-terminated investigation was run out of the State Department’s arms control and verification bureau and was the only inquiry looking seriously into the hypothesis that SARS-COV-2 emerged from a laboratory in Wuhan, China. “The investigation team reportedly briefed Biden administration officials on its findings in February and March 2021. Following the briefing, the State Department reportedly terminated the Investigation.
-
-To date, the World Health Organization (WHO) is the only entity that has conducted a known public investigation into the origins of SARS-COV-2. However, the WHO’s investigation has been widely criticized by both outside experts and Biden administration officials, including yourself. Below are several examples of such criticisms:
-
-On February 13, 2021, National Security Advisor Jake Sullivan stated in advance of the WHO’s report, “We have deep concerns about the way in which the early findings of the COVID-19 investigation were communicated and questions about the process used to reach them.”
-
-In a March 25, 2021, interview you discussed the pending release of the WHO report and stated, “We’ve got real concerns about the methodology and the process that went into that report, including the fact that the government in Beijing apparently helped to write it.”
-
-On March 28, 2021, Dr Anthony Fauci referenced the WHO’s potential lack of access to information and stated,” If, in fact, obviously, there was a lot of restrictions on the ability of the people who went there to really take a look, then I’m going to have some considerable concerns about that.”
-
-On March 30, 2021, the governments of the United States, Australia, Canada, Czechia, Denmark, Estonia, Israel, Japan, Latvia, Lithuania, Norway, the Republic of Korea, Slovenia, and the United Kingdom, issued a statement that criticized the lack of information and data made available to the WHO study and stated,” we voice our share concerns that the international expert study on the source of the SARS-COV-2 virus was significantly delayed and lacked access to complete , original data and samples.”
-
-On May 14, 2021, eighteen scientists issued a statement criticizing the WHO’s lack of a thorough investigation and noted, “Although there were no findings in clear support of either a natural spillover or a lab accident, the WHO team assessed a zoonotic spillover from an intermediate host as” likely to very likely,’ and a laboratory incident as ‘extremely unlikely.’ Furthermore, the two theories were not given balanced consideration,”
-
-On May 24, 2021, White House Press Secretary Jen Psaki stated the Biden Administration is “hopeful the WHO can move into a more transparent, independent phase two investigation” into the origins of COVID-19.
-
-While on May 26, 2021, President Biden ordered an intelligence report on the origins SARS-COV-2, it remains unclear why the State Department reportedly shut down a U.S.-led effort to investigate the virus’ origins Understanding the origins of SARS-COV-2 is foundational to the U.S. Governments efforts to prevent future pandemics and finally bring an end to the COVID-19 pandemic. In order to better understand the State Departments decision to terminate an investigation into virus origins, we ask that you please provide the following information by June 10, 2021:
-
-1.         Please explain why and when the State Departments investigation was terminated, including the names and titles of the individuals who advocated for terminating the investigation;
-
-2.         Please provide any written materials, including any draft reports, created during the now-terminated State Department investigation into SARS-COV-2’s origin;
-
-3.         Please provide the names and titles of all individuals who received or reviewed any draft reports or briefing on the State Departments investigation in the origins of SARS-COV2;
-
-4.         Please provide all documents and communications that the State Department cited or relied on during the course of its investigation into SARS-COV-2’s origins;
-
-5.         Please explain what other investigations the State Department currently has or previously had into SARS-COV-2’s origins
-
-6.         Please provide the names and titles of the individuals that conducted the investigation into the origins of SARS-COV-2; and
-
-7.         Please provide all State Department cables from 2018 to present that discuss the Wuhan Institute of Virology.
-
-Thank you for your prompt attention to this matter.
-
-Sincerely,
-
-Ron Johnson
-
-Ranking Member
-
-Permanent Subcommittee on Investigations
-
-Rick Scott
-
-United States Senator
-
-Cc : President Joseph R . Biden
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

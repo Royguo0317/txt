@@ -1,59 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫丽梦博士接受福克斯塔克采访的幕后故事
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1278852/)
+## [疫情下的西班牙]各种中共病毒疫苗的毒副作用总结
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1278824/)
 
-**摘要：在2021年5月22日的盖特视频中，郭先生讲述了闫丽梦博士最新的在福克斯塔克·卡尔森 (Tucker Carlson) 访谈的幕后故事。采访中，塔克建议应授予闫博士“美国总统自由勋章”。郭先生认为闫博士已经做的和正在做的事情，远超任何勋章所能带来的荣誉。当病毒真相大白于天下之时，她将会因为勇气和坚毅而赢得世界的尊重和荣誉。**
+- 翻译：gokuabuela
 
-**据郭先生，闫博士与福克斯新闻的每一次采访的背后都是权力的较量，包括藻泽地和美国政府的力量，但是无数有正义感的人们在帮助我们。真相无坚不摧，“以毒灭共”之火已经在全世界点燃。面对这个凶魔的共产党对人类的残杀和毒害，只有我们 —— 新中国联邦和爆料革命，包括路德社、博士军团和全球的农场 —— 敢讲真话。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28140929/Miles_20210522-getter1.srt.txt)
-**闫丽梦博士接受福克斯塔克采访的幕后故事**
 
-**Miles on Dr. Li-Meng Yan’s Interview with Tucker Carlson of Fox News**
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-我相信大家昨天都看了福克斯对闫丽梦科学家，我们的天使的采访，再次震撼了世界。美国和世界新闻媒体中，男的就是这位Tucker Carlson，女的是Oprah Winfrey，[他们]可以说是世界新闻媒体主持人中最牛的。新闻点评最牛的就是他了，Tucker是最厉害的。
+**西班牙2021年5月28日电/西喜社——**
 
-I believe everybody has watched the Fox News interview with Dr. Li-Meng Yan, our angel, who shocked the world once again. In United States and world media, the most renowned male TV host is Tucker Carlson, and the best-known female TV host is Oprah Winfrey.  We can say that they are the world’s leading news media hosts. And the best commentator would be Tucker. He is the best.
+由西班牙药品和保健品管理局（AEMPS）编写，并于周二公布了第五份《疫苗药物警戒报告》（COVID-19），包括欧洲药品管理局（EMA）已经确定或正在评估的辉瑞和阿斯利康疫苗的新副作用。
 
-昨天的访问中除了对科学家充满了更高的敬意之外，说到了[应授予]美国总统勋章。如果科学家拿这个勋章，她在乎这个勋章，她就不会是我们的科学家了，她也不会是我们的天使了。
+辉瑞疫苗：
 
-Yesterday during the interview, he showed the utmost respect to Dr. Yan. He even suggested that she should be awarded the Presidential Medal of Freedom. If she cared about medals, Dr. Yan wouldn’t be our scientist. She wouldn’t be our angel.
+EMA的【药物警戒风险评估委员会（PRAC）】对中共病毒疫苗的安全性进行了以下方面的评估。
 
-昨天晚上播出以后，好多美国朋友，包括昨天我在海上去见面的那位朋友都是帮助在全世界推广科学家的那三份报告的，真正背后沼泽地的人，也是福克斯老板都要害怕的人。他说你怎么看这个问题？
+1. 皮疹和瘙痒：PRAC建议对该疫苗的标签和包装页进行修改，将皮疹和瘙痒（皮肤瘙痒）作为罕见的不良反应（发生率低于1/100）。荨麻疹（瘙痒、红色、块状皮疹）和血管性水肿（皮肤下快速肿胀）应被更新为很少发生的不良反应（发生率低于1/1,000）。
 
-After last night’s broadcast, many of my American friends, including the one I went to see on the sea yesterday, are all helping to disseminate Dr. Yan’s three reports (about the CCP virus). They are the real force behind “the swamp”.  They are also the people that the boss of Fox News is afraid of. He asked me, what do you think?
+2. 曾经接受过面部皮肤填充剂注射的人的局部肿胀：PRAC还认为这种影响可能与疫苗有关，并将作为一种可能的不良反应纳入标签和包装传单中。
 
-我说科学家天使最重要的就是让世界知道真相，减少灭亡。她是有上天的使命的。如果她在乎任何荣誉，任何虚荣，她就会被击垮了。[所以]不可能的，科学家应该得到的荣誉绝对不是个总统勋章[能衡量的]。等冠状病毒真相大白之日，不仅诺贝尔奖，这都是不配她的，[到时候]会有更大的奖励等待着她。那是全世界人民真正会看到一位天使来到了人间，勇敢的，具有不可思议的毅力，还有她这种把天下苍生的生命摆在[自己]生命之上[的高尚]，这才是真正的我们的科学家天使，而不是这些虚伪的虚荣，这种浮夸。大家走着看。
+3. 血栓形成综合征与血小板减少：PRAC正在密切关注基于mRNA的疫苗（辉瑞和Moderna）是否也可能与阿斯利康和杨森已经发现的异常部位的血栓形成综合征的罕见病例有关。
 
-I said topmost priority of our angel scientist is to tell the truth to the world, to reduce the casualties. She has a mission from God. If she was seeking fame and if she had any vanity, she would be defeated. It is impossible that our scientist could receive the recognition she deserves by awarding her the Presidential Medal of Freedom. When the truth about the coronavirus is out in the open, even the Nobel Prize is not sufficient. By then, there will be a much bigger honor waiting for her. By then, the world will see a real Angel on earth with such bravery and incredible perseverance. The way she put the lives of everybody else above her own is true nobility. This is really who our angel scientist is, not hypocritical or pompous. Everybody will see.
+4. 心肌炎和心包炎：在接种辉瑞公司的疫苗后，有一些心肌炎（心肌炎）和心包炎（心脏周围膜的炎症）的病例报告。
 
-对科学家昨天的采访背后有多少世界上勇敢的有正义的人在背后推动？她的每一次采访都是福克斯上层和背后的老板和他的老板和管理层一次又一次的较量的结果，包括和美国政府 — 这不是开玩笑的。
+阿斯利康疫苗：
 
-The interview with our scientist (Dr. Yan) yesterday was the result of countless brave and righteous people in the world. Each of her interviews with Fox News has been a result of many power struggles between Fox News Senior Executives, the boss of Fox News, the management team, and also the U.S. government. This is not a joking matter.
+1 毛细血管渗漏综合征：PRAC启动了对毛细血管渗漏综合征的信号审查，这种情况的特点是液体从血管外渗，导致组织肿胀和血压突然下降。在欧洲和英国之间，在总共注射了3400万剂这种疫苗的情况下，已经报告了5起病例。
 
-现在每天、每时、每刻“以毒灭共”的效率和全世界的影响力真的像被点燃的干柴一样在全世界燃烧。没有人可以阻止“以毒灭共”，因为毒就是共产党放的。可悲的事情 — 全人类只有我们爆料革命、新中国联邦、科学家、路德访谈、博士军团和我们所有全球的农场在面对这个凶魔的共产党对人类的残杀和毒害，只有我们敢讲真话。
+2 吉兰-巴雷综合症：PRAC正在定期审查接种阿斯利康疫苗后出现的吉兰-巴雷综合症的报告病例，因为它被确定为一种潜在的不良反应，在这种疫苗的许可期间需要密切监测。这种综合征是一种免疫性疾病，引起周围神经的炎症，导致疼痛、感觉障碍、肌肉无力和行走困难。
 
-Every day now, every minute, every second, “spreading the truth of the virus to take down the CCP” is like a wildfire burning around the world. No one can stop it because the CCP has released the virus. The sad thing is that among all the people in the world, only our Whistleblower Movement, our New Federal State of China, our scientist Dr. Yan, Lude media and the PhD team, and all of our farms in the world dare to tell the truth. Only we dare to tell the truth when facing this fierce devil of the CCP as well as its slaughtering and poisoning.
+3 关于阿斯利康的副作用–血栓形成，AEMPS报告说，截至4月25日，西班牙已经报告了11起病例，其中3起导致了死亡。此外，它们主要发生在30至39岁的人群中。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60a91d6693cb4b1e6f9bd7f0](https://gtv.org/getter/60a91d6693cb4b1e6f9bd7f0) (00:05-02:19, 08:12-09:16)
-鸣谢：
-[1] 感谢 Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1266627/](https://gnews.org/zh-hans/1266627/)
-[2] 感谢DD、Liberte 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1267230/](https://gnews.org/1267230/)
+**简评：**
 
-* * *
+**最近看了加拿大枫叶农场的【医语惊人】节目（强烈推荐）。对疫苗的副作用有了更深的认识，与这份报告一对比，竟然逐一得到了验证，再次证明疫苗是“毒疫苗”。**
 
-**整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
-字幕：【XO小粉红】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+**首先，这个病毒不是自然起源的，它被赋予了很多“加强型的功能”，从而具有很多非常恶毒的特点。它不会被抗体消灭，而是能够劫持抗体，通俗的说，抗体会变成病毒的“带路党”，从而通过抗体，病毒可以进入人体的免疫系统，引起免疫性疾病。（见报告中：阿斯利康疫苗第2点）**。
+
+**不仅进入免疫系统，还可以在人体内脏里潜伏下来，造成一个慢性的，长期的破坏，容易引起心脏类疾病，大脑神经疾病和生殖系统疾病。这些疾病可能会在5年、10年，甚至更长时间后发作。而且并不表现出中共病毒症状。如果疫苗注射继续下去，人类的平均寿命将大大缩短。**
+
+**还有就是引起血液系统的问题，比如血栓**。
+
+**疫苗的作用是模仿或弱化版的病毒，刺激人体产生抗体，从而消灭真的病毒，但是因为这个病毒的特征，疫苗产生的抗体并不会杀死病毒，而是和病毒合作，来残害人体。**
+
+**除了这些中共病毒本身带来的危害，还有一些更多的副作用，我们也进行一些说明：**
+
+**辉瑞/莫德纳疫苗：信使类RNA疫苗。它们是通过编辑RNA的一段信息，模仿成病毒的S蛋白，进入人体，产生抗体。**
+
+**在进入人体后，它们会释放RNA信息，人体内需要一个“读码器”来读出这些信息，再根据这些信息，每3个碱基合成一个氨基酸，形成抗体。问题是， “读码器”是会出错的，合成的不是我们预计的氨基酸，而是一种谁也不知道的东西，这就是改变基因，发生了不可控的变化，而且这种变化是随机的，根据每个人的情况不同而不同，没人知道最终会在体内形成什么。**
+
+**而包裹RNA信息的外包装 — 脂质纳米颗粒，在制造过程中，因为材料的不成熟，不得已使用了一些对人体有害的材料，比如SM103,PEG等，至少会引起皮疹和瘙痒。**
+
+**也就是说，接种类似辉瑞这样的MRNA疫苗有三层风险：**
+
+1** 病毒本身的危害**
+
+2** RNA解码过程的不可控失误产生的风险**
+
+3 **脂质纳米颗粒对人体的伤害**
+
+**而类似阿斯利康这样的腺病毒或灭活病毒疫苗，也有3层风险**
+
+1 **病毒本身的危害**
+
+2 **工艺的要求。灭活病毒如不能让人体产生抗体杀死病毒（这样疫苗就失效了），或不能让病毒有太大的活性（这样就被感染了）。对工艺要求很高。**
+
+3** 抗体。此类疫苗共会同时产生5种抗体，而其中只有一种是针对S蛋白的，其他4种会对人体造成什么影响呢？没人具体知道。**
+
+**EMA其实是收到大量关于其他副作用的案例和论文的，绝不仅仅是报告中的那些。我们希望科学界本着为人类负责的态度，认清病毒本质和来源，能够有更多的专业人士站出来，像闫博士或者文医战友一样向民众普及中共病毒的真相！**
+
+素材：gokuabuela；审核：Aries的星；校对：阿伯塔； 发稿：Nuevo唐人
+
+**新闻来源**：[经济学家报](https://www.eleconomista.es/sanidad/noticias/11209384/05/21/Los-nuevos-efectos-secundarios-de-las-vacunas-de-Pfizer-y-AstraZeneca-que-estan-bajo-estudio-.html)
+
+[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
+
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+
+
 
 +1
