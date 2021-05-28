@@ -1,31 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独裁者卢卡申科会见普京
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1277941/)
+## 【墙内热搜】心在滴血！大陆民众排队抢打毒疫苗
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1277984/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年5月28日
-翻译 /整理/ 简评： Shuizhuyu
+作者：纽约香草山佛教部    369文驹
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28061627/Vorwuerfe-gegen-Russland-nach-Flugzeug-Zwangslandung-in-Belarus.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
 
 
-资料来源：dpa
 
-欧盟对冲突中的一架客机在白俄罗斯被迫降落实施了制裁。这个已经受到俄罗斯影响的国家现在更加依赖莫斯科的帮助。现在统治者卢卡申科正在前往克里姆林宫老板普京。
 
-在欧盟制裁的压力和与西方日益加剧的对抗下，白俄罗斯统治者亚历山大·卢卡申科本周五将前往与克里姆林宫首席普京举行会议。克里姆林宫宣布，在黑海索契，有关两国进一步双边发展的问题将受到威胁。这是今年两国政界人士的第三次会晤。
 
-正如他所说，卢卡申科希望与普京谈谈导致白俄罗斯经济问题的欧盟和美国制裁的后果。明斯克已经在与数十亿的莫斯科打交道。不管俄罗斯的成本增加了多少，普京最近都反复强调他将继续支持卢卡申科。白俄罗斯在经济上依赖于与俄罗斯的贸易。卢卡申科在政治上也依赖莫斯科。
+近日，中共病毒在墙内各地加速蔓延，封城、核酸检测、隔离等强制措施不断见诸报端，加上中共炒作“暂停第一针毒疫苗的接种”，导致很多尚未接种疫苗的民众卸下了心理防线，纷纷主动要求打毒疫苗。以下是各地民众抢着打疫苗的场景，不仅令人扼腕叹息：
 
-白俄罗斯和西方之间的对抗最近达到了顶点，因为卢卡申科让一架瑞安航空公司的客机在周日被迫降落以逮捕他的一个对手。反对派激进主义者和博主罗曼·普罗塔维茨奇（Roman Protassewitsch）在被迫登陆后被捕。他的俄罗斯公民女友索菲亚·萨佩加 (Sofia Sapega) 与他一同被捕。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28070830/%E6%89%93%E7%96%AB%E8%8B%972-1.png)（图源：微博）
 
-简评： 卢卡申科自从大选后一直得到普京的支持。 这次史无前例的劫机事件也让卢卡申科遇到了史无前例的制裁， 包括美国和欧盟的严厉制裁。 这次普京会见卢卡申科无疑为世界政治带来的是更复杂的局势。 如何处理这个事件也是自由与独裁的一次较量， 而普京在世界政治格局中也是举足轻重的地位。 普京的这一举动无疑是为他下个月与拜登的见面又多加了一个砝码，又多了一个谈判的资本。 个人认为， 普京在整个现在的世界以毒灭共的形式下，也是一个非常重要的角色， 他会站在哪一边呢？
+佛山地区某博主称：“就在上个月，只要去打了针，就可以去村委会领50元补贴。我们年轻人，看不起疫苗，更看不上50元。现在回想真的是天方夜谭，有恃无恐！！这两天附近的疫苗站关的关，没关的轮不到你排队。老公错峰出行，预约去了离家几公里的疫苗站，大大的太阳，36度的温度，又怎么样，人还是多到你无从下手”，配图如下：
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-  发表： Shuizhuyu
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28070443/%E6%89%93%E7%96%AB%E8%8B%973-1.png)
 
-🔗[Machthaber-Lukaschenko-trifft-Putin](https://www.welt.de/politik/ausland/article231418061/EU-Sanktionen-Machthaber-Lukaschenko-trifft-Putin.html)
 
-0
+
+纷纷排队接种的老年人群：
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28070617/%E6%89%93%E7%96%AB%E8%8B%974.png)
+
+（图源：见水印）
+
+在中共国《新型冠状病毒肺炎防控方案》里，对接种年龄的规定作了如下描述：“做好职业暴露风险较高的人群、有在境外感染风险的人群、维持社会正常生产生活运行的人员以及维持社会基本运行的关键岗位职业等重点人群中，18周岁及以上人群接种工作，为其提供健康保护。”新华网在4月2日报道称：“全国多地都开始鼓励60岁以上的人群积极接种新冠病毒疫苗”。
+
+彻夜排队的人群：
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28070649/%E6%89%93%E7%96%AB%E8%8B%975.png)
+
+背负全公司排队打毒疫苗重任的人：
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28070738/%E6%89%93%E7%96%AB%E8%8B%976.png)
+
+最后，笔者引用博主“贰佰的玫瑰\_77”的一张图，如下：
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28070752/%E6%89%93%E7%96%AB%E8%8B%977.png)
+
+这幅图非常真实、传神地表达了目前国内抢着打毒疫苗的人心情，而笔者在想，当今后这些人知道了真相，或者受到了毒疫苗的伤害时，再回头看这幅图，是否有种要将中共碎尸万段的冲动？听中共的忽悠，只会跟着走进火葬场，希望同胞及时认清真相，善待自己的生命。
+
+参考阅读：
+
+1. [60岁以上人群开放接种新冠疫苗 来听听专家怎么说](http://www.xinhuanet.com/politics/2021-04/02/c_1127285744.htm)
+
+编辑/校对/发稿：人间世
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191415/M5-2.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
+
++1
