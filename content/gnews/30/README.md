@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报—台湾篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1278473/)
+## 西喜时事新闻简报—军事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1278532/)
 
-- 作者：土饭团
+- 作者：此生灭共
 
 
 ***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
@@ -13,28 +13,28 @@
 
 您若想了解全文报导内容，请点击标题链接
 
-**1.[美国特种部队可以帮助台湾学会抵抗中共的入侵](https://www.military.com/daily-news/2021/05/27/us-special-forces-could-help-taiwan-learn-resist-chinese-invasion-dod-nominee-says.html)**
+**1.[美国海军对高超音速导弹发动机进行首次实弹测试](https://www.defensenews.com/training-sim/2021/05/27/us-navy-conducts-first-live-fire-test-of-hypersonic-missile-motor/)**
 
-Military.com 5月27日电，被提名担任特殊行动和低强度冲突助理国防部长Christopher Maier告诉参议院军事委员会，美国“应该考虑采取强有力的措施”，以帮助台湾增强其进行非常规战争的能力。例如特种作战人员可以帮助台湾部队提高技能，抵抗网络入侵和抵制潜在的敌人两栖登陆。信息作战是特种作战人员可以帮助常规部队制止中共侵略的关键领域。
+美国国防新闻5月27日电，美国海军及其工业团队星期四对超音速火箭发动机进行了首次实弹试验，这将推动美国海军的常规突击[进攻型高超音速导弹](https://www.defensenews.com/naval/2020/10/21/all-us-navy-destroyers-will-get-hypersonic-missiles-trumps-national-security-advisor-says/)和陆军的远程高超音速武器。海军已经将高超音速武器列为重中之重，因为该部门将其舰队现代化，以应对像中国这样的高端威胁。
 
-**2.[日本，欧盟领导人呼吁台湾海峡和平与稳定](https://www.aninews.in/news/world/asia/japan-eu-leaders-call-for-peace-and-stability-across-taiwan-strait20210528044958/)**
+**2. [美国告诉俄罗斯它不会重新加入“开放天空”军备控制协议](https://www.militarytimes.com/news/pentagon-congress/2021/05/27/us-tells-russia-it-wont-rejoin-open-skies-arms-control-pact/)**
 
-ANI 5月28日电，日本和欧盟领导人周四呼吁台湾海峡两岸实现“和平与稳定”，这是双方首次在联合声明中共同谈到台湾，其措辞与上月菅义伟在美国总统拜登会晤后发表的声明相同。菅义伟和欧盟领导人对中国周围海域的局势表示严重关切，并表示“坚决反对任何单方面改变现状和加剧紧张局势的企图。”
+美国军事时报5月27日电，周四，拜登政府通知俄罗斯，它不会重新加入一项重要的军备控制协议，即使双方将在下个月举行领导人峰会。美国官员说，副国务卿温迪·谢尔曼告诉俄罗斯人，政府决定不重新加入“开放天空”条约，该条约允许对两国军事设施进行监视飞行，但前总统唐纳德特朗普已退出。
 
-**3.[在台湾海峡紧张局势升级之际，美国将继续协助台北进行自卫](https://www.aninews.in/news/world/asia/amid-rising-tensions-in-taiwan-strait-us-says-will-continue-to-assist-taipei-in-self-defence20210525142447/)**
+**3.[战舰外交，英国的新型航母加入北约，“舰”指中共](https://www.reuters.com/business/aerospace-defense/battleship-diplomacy-britains-new-aircraft-carrier-joins-nato-has-message-china-2021-05-28/)**
 
-ANI 5月25日电，五角大楼发言人Join Kirby周二表示，华盛顿对台湾的政策保持不变。华盛顿不想单方面改变现状，美国将根据《台湾关系法》，《中美三个联合公报》和《六项保证》“继续协助台湾自卫”。
+路透社5月28日电，英国伊丽莎白女王号航母于本周参加了地中海北约演习，在为期8个月的航行将穿越南中国海，这是向北京发出信号，要求海上航道必须保持畅通。摩尔豪斯周四表示，伊丽莎白女王号将沿着这条路线与来自美国、新加坡、日本和韩国的海军舰艇一起演习。
 
-**4.[美国，欧盟高级外交官支持台湾国际参与](https://focustaiwan.tw/politics/202105270016)**
+**4.[阿联酋，美国公司合作在海湾地区提供网络范围](https://www.c4isrnet.com/industry/2021/05/28/uae-us-companies-partner-to-provide-cyber-ranges-in-gulf/)**
 
-CNA 5月27日电，美国和欧盟的高级外交官在最近关于中国的对话中讨论了台湾争取参加国际组织的提议。声明还说，他们还举行了第一次欧美关于中共对话的高级别会议。他们讨论了台湾有意义地参与国际组织的重要性，包括世界卫生组织（WHO）和世界卫生大会（WHA）。
+网络战争杂志(C4ISRNET) 5月28日电，阿联酋Beacon Red公司和美国公司Quali宣布达成一项协议，共同合作为海湾国家提供网络培训和测试环境。De Almeida说，基于最近的供应链和工业控制系统攻击，该解决方案可以极大地帮助克服实际威胁。
 
-**5.[台湾外交部部长表示，中共正在“为战争做准备”，这是台湾的回应计划](https://www.pbs.org/newshour/show/taiwans-foreign-minister-says-china-is-preparing-for-war-heres-taiwans-response-plan)**
+**5. [“里根号”航母离开亚洲，协助、经行阿富汗撤军](https://www.foxnews.com/world/uss-ronald-reagan-leaving-asia-afghanistan-troop-withdrawal)**
 
-PBS 5月25日电，台湾外交部部长吴钊燮认为北京一直在为与台湾的战争做准备。中共试图切断台湾与国际社会的联系。台湾与美国之间在军事条件或防御性问题上的交往水平已经提高到台湾从未见过的高度。美国已经显示出对台湾的支持。
+福克斯5月27日电，国防官员说，[五角大楼](https://www.foxnews.com/category/politics/defense/pentagon)有望将目前亚太地区唯一的航空母舰移向中东，以支持美军从[阿富汗](https://www.foxnews.com/category/world/conflicts/afghanistan)撤军。官员们说，“里根号”航母将从今年夏天开始前往阿富汗，并在进行长达四个月的行动。拜登上个月公布了计划，到9月11日将所有美军和联军撤出阿富汗。美国官员随后表示，他们将在该地区保留一艘航母及其随行船只，以提供安全保障，同时部队正在从阿富汗撤离。
 
-审核： 蚂蚁兄弟；校对：阿伯塔； 发稿：信心的选择
+审核：Aries的星 ；校对：阿伯塔； 发稿：信心的选择
 
 **[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
 
-+1
++2

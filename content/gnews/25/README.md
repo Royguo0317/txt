@@ -1,39 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共极有可能在武汉军运村内就开始释放不同种SARS-CoV-2病毒
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1278570/)
+## 重磅！加拿大参议员布瓦沃内接受Qetesh战友GTV采访
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1278540/)
 
-台湾宝岛农场 Amitofu
+文锦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28121538/f1bb2ef8d6c3bd2a553f56e5bc1ed632.jpg)
+5月27日美东时间晚八点，加拿大参议员皮埃尔·胡格斯·布瓦沃内（又译为博伊斯维努）（Pierre-Hugues Boisvenu）先生参加了魁北克本地战友Qetesh在GTV的直播访谈。**这是首次加拿大参议员在GTV接受采访！**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28122401/actu-pierre-hugues-boisvenu-2-col-scaled.jpg)
+**博伊斯维努的传奇经历**
 
-2020年3月赵立坚曾转推，新型冠状病毒可能起源于马里兰州，迪特里克堡的美国陆军传染病医学研究所，暗指2019年10月美国运动员在武汉第七届世界军人运动会（Military World Games）期间，把新型冠状病毒带到武汉，引起疫情传染，才会造成武汉病毒的起源。按中共大外宣逻辑来反推中共的原有计划。在2019年9月18日，中共在武汉世界军人运动会举行前，于武汉天河机场军运会航空口岸专用通道开通测试，举行的应急处置演练活动中，以实战形式仿真机场口岸通道发现1例**新型冠状病毒感染的处置全过程**。在2019年9月中共就知道将有新型冠状病毒、或已经有新型冠状病毒所以需要演练，湖北省政府和新华社等官媒也做此报导。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28121522/20190926hubei.png)
-自由亚洲电台2020年5月10日报导，法国女子现代五项世界冠军库威尔（Elodie Clouvel）说，自己和男友贝劳(Valentin Belaud)在2019年10月在武汉参加世界军人运动会时就感染了**新型冠状病毒**，她和其他法国运动员就都病得很重；意大利前奥运击剑冠军选手塔利亚里奥尔（Matteo Tagliariol）也在参加武汉军运会时，曾出现类似新冠肺炎的症状，同住的5名运动员也出现同样症况，回家一周后，他发高烧、呼吸困难、吃抗生素无效，长期处于虚弱的状态三周后才康复，并且传染给儿子和太太；瑞典游泳运动员史塔克奇欧第（Raphaël Stacchiotti）等代表团多人也发生同样种况；卢森堡一位游泳运动员亨克斯(Julien Henx)也说，同团有2人在参赛期间就有肺部问题；176名加拿大士兵参加武汉军运会期间，有大量士兵重病，许多有着严重的肺部问题，咳嗽，呕吐， 腹泻等，症状严重到了完全无力起身的地步，飞机返回加拿大时，三分之一的成员被隔离在飞机后部。巧合的是当这些国家的军人向军队要求进行测试时，军队拒绝了他们的要求，并在国防官网表示当时返国后未发现任何个人或集体健康问题，但多国的军人认定他们当时得到的肺炎就是新型冠状病毒。
+生于1949年的博伊斯维努是加拿大政治家和受害者权利活动家，在魁北克公共服务部门担任高级官员和副部长超过30年。
 
-在塞林博士循序渐进的推文中证实，闫丽梦博士指出中共制造COVID-19病毒对世界生物超限战的真相，中共病毒SARS-CoV-2是经过解放军拥有的舟山蝙蝠病毒ZC45/ZXC21为骨架，通过人为的基因改造技术在刺突蛋白中引入弗林酶切位点，功能增强S蛋白、E蛋白毒性，使病毒更具强变异性和传染性。
+2002年他的女儿朱莉（Julie）被有酒后侵害女性前科的男子绑架、强行禁闭、强奸和谋杀后，他注意到以前的法律只注重罪犯，忽视了受害人家属的需求。2004年，他与其他三位失踪或被害女性的父亲共同创立了被谋杀或失踪者家庭协会（MMPFA），为失去亲人的家庭提供支持和建议，目前拥有600多个成员家庭。2005年，他的二女儿伊莎贝尔（Isabelle）因车祸去世，他因此创建了伊莎贝尔-博伊斯维努基金，为受害者学领域的学生提供奖学金。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28125429/%E4%B8%8B%E8%BD%BD-4-1.jpg)博伊斯维努手捧爱女遗照![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28123124/%E4%B8%8B%E8%BD%BD-3-1.jpg)被谋杀或失踪者家庭协会（MMPFA）
+2005年8月，他向哈珀政府提交被谋杀或失踪者家庭协会的12个建议，最后都被采纳并设立了法案，为受害者提供了更好的赔偿。
 
-第四军医大学的徐德忠教授作为军队流行病学学术领导者，著作《非典非自然起源和人制人新种病毒基因武器》为超限生物武器的研究提供了大量理论和技术支持，为中共分子流行病学与航空流行病学的创建和发展，以及国家非典的防控了做出贡献。
+2010年，他接受当时哈珀总理（Stephen Harper）邀请，成为了参议员，在任期间加强司法系统中受害者立法和受害者权利，成功通过了《加拿大受害者权利法案》。
 
-笔者认为2019年武汉军运会，有109个国家9308名军人报名参加，23万名工作人员，中共极有可能在武汉军运村内就开始释放不同种的SARS-CoV-2病毒来观察健康军人选手的染疫情况，并加强针对白人的基因病毒，来做下一次的释放。徐德忠教授的航空流行病学是否也间接承认参加武汉军运会期间，利用各国军机到武汉参加军运会时，开始向外释放中共病毒，不仅打击川普总统连任，威胁美国安全打赢生物超限战，也能和西方菁英合作疫苗经济，更能对抗争中的香港运动达到维稳，透过隔离而大量抓捕抗议学生。同时在中共国内因封城隔离，而任意消失内斗的派系和企业家，更可以在2020年台湾大选时，企图让韩国瑜当选总统后，开放几十万人来台的染疫计划。祈祷万佛万神加持75亿人不受到中共病毒的威胁
+**访谈环节**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28121511/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE1204.png)
+**Qetesh****：**您认为目前的法律，罪犯得到应有制裁了吗？
 
-本文仅代表个人立场
+**博伊斯维努**：2010-2015年，保守党政府通过了许多对惯犯、虐童犯、性虐犯制裁更严厉的法案。然而，自由党上台后，变化太大了，现在对罪犯太软弱，比如保护被侵害女兵的法律至今没有出台。如果下个五年自由党继续执政，罪犯们将非常得意。
 
-資料來源:文贵先生、班农战斗室、路德社、闫丽梦博士、博士军团、爆料革命
+**Qetesh**： 自己是家暴受害者，前夫逍遥在外，她却只能小心躲藏，亲身感受到法律的缺陷和不公对自己带来的二次伤害。势单力薄的受害者看到博伊斯维努挺身而出，感到很舒心。
 
-审核:Athena雅典娜 发布:Amitofu
+**博伊斯维努**：被家暴的女性面临的只能是搬走，可能会因此失去工作，给子女带来麻烦。他带来的法案是要求家暴者搬离，并加以约束，保护弱势的被家暴者。
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+当他女儿受害后找检察官时无法得到足够信息，被要求保持沉默，还被告知受害者的律师是政府。他意识到应该给受害者律师等更多支援。
 
-[Coronavirus, lo schermidore veneto Tagliariol: “In ottobre ho preso la polmonite a Wuhan”](https://tribunatreviso.gelocal.it/regione/2020/05/07/news/coronavirus-lo-schermidore-veneto-tagliariol-in-ottobre-ho-preso-la-polmonite-a-wuhan-1.38815861?fbclid=IwAR3-_JByN6mjD_W9uTwq_cbXs7hz2W3cDI8qY8AuBFXjNYzrh2zLx_sXciQ)
+**Qetesh**：受害者比施害者更被忽视，说明法律系统存在问题，需要改进。
 
-[Controlli sanitari per la delegazione italiana a Wuhan per i Campionati Mondiali Militari dello scorso ottobre](https://www.difesa.it/SMD_/Comunicati/Pagine/controlli_sanitari_per_delegazione_italiana_a_Wuhan_per_Campionati_Mondiali_Militari_2019.aspx?fbclid=IwAR3p4nEa3aF3Sqa9XL_UoGiV9v71MkG2B04Y-6n-EmmazPe642YmSPBMcXQ)
+**博伊斯维努**：在加拿大，每支援受害者1加元时，相对应给施害者的是9加元。囚犯在联邦监狱中可以接受教育、心理支援等，而受害者只有一年的支援。如果女性被强奸，需要的是不止一年的支援。监狱的支持来自联邦政府，受害人的支持来自省政府，有些省政府支持力度并不大。
 
-[The impact of the World Military Games on the COVID-19 pandemic](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7813667/)
+**Qetesh**：您认为加拿大是民主国家吗？
 
-[COVID Coverup: Trudeau gov’t helped China hide origins of COVID-19](https://www.rebelnews.com/covid_coverup_trudeau_govt_helped_china_hide_origins_of_covid_19)
+**博伊斯维努**：如果与糟糕国家比，是的，如果与最好的比，那就不是。疫情爆发的一年半以来，自由党政府表现不正常。政府用了很多纳税人的钱，却去向不明。加拿大的民主制度病了。
 
-[French army returned from Wuhan military games in October with mystery illness](https://www.mirror.co.uk/news/uk-news/french-army-returned-wuhan-military-21988912)
+**Qetesh**：GTV的观众有些是从独裁中共国逃离的，那里充斥着虚假宣传及糟糕的人权。CCP会不会把手伸向了加拿大？
 
-[武漢海關舉辦軍運會倒計時30天暨口岸突發事件應急處置演練](https://k.sina.com.cn/article_2000016880_7735d5f002000krlq.html?from=news&amp;subch=onews)
+**博伊斯维努**：我们很担忧。如果中共渗透到加拿大做军事研究，是非常危险的。特鲁多似乎很羡慕独裁中共政权。
 
-+1
+**Qetesh**：特鲁多不想承认新疆种族灭绝，想利用中共病毒疫情实行邮寄选票。如何让加拿大变好？
+
+**博伊斯维努**：一些参议员在守护，会提出异议。保守党保护我们的利益，支持新疆、香港、台湾。请大家谨慎投票。因为中共会操纵。
+
+**Qetesh**: 您认为中共渗透加拿大了吗？有何忠告？
+
+**博伊斯维努**：下次投票时一定要慎重，因为特鲁多言行不一，很危险。
+
+当年哈珀总理对犯罪和金融政策比较严格，当时媒体对他比较苛刻，因为他没给媒体甜头，不像特鲁多给媒体5亿加元以免其破产。本届政府无节制地撒钱，我们都是其受害者。
+
+**Qetesh**：加拿大没有真正的媒体了，只有虚假宣传。
+
+**博伊斯维努**：由于媒体虚假宣传，竟有40%加拿大人打算下次投票时还选可能史上最糟的总理特鲁多。
+
+**Qetesh**： 特鲁多上学时曾说过以后不会从政，但食言了。他不知如何管理好国家。
+
+**博伊斯维努**： 他像是台前木偶，有人在背后指使，自由党是利用他父亲前总理“特鲁多”的名头，而不是看贾斯汀·特鲁多本身的能力。
+
+**Qetesh**： 自由党想让人人自危，不敢去帮助别人，只靠政府所谓的援助。
+
+**博伊斯维努**： 特鲁多太天真了。对付中共政府必须不能天真，需要非常强硬、直接！
+
+博伊斯维努在过去的两年中探访了受虐妇女庇护所，采访了一百多位被家暴的妇女，深入了解其所需。目前他在推进保护被家暴者法案, 该法案将允许法官命令被指控有家庭暴力的人戴电子监控手环或参加法庭治疗计划，如家庭暴力咨询，作为其保释条件的一部分。
+
+有像他这样致力于保护受害者的参议员，令人感到加拿大还是有希望的。最后，主持人以“Take Down the CCP”结尾，振奋人心！
+
+[**博伊斯维努欢迎大家在其Facebook页面留言**](https://www.facebook.com/boisvenu.phJulIsabelle0205JulIsabelle0205007)
+
+
+
+*节目链接：*
+
+[2021-05-27 Senator Boisvenu in solidarity with the Chinese community](https://www.gtv.org/video/id=60b03407b7dff64ac9854231)-GTV
+
+[博伊斯维努官方页面](https://sencanada.ca/en/senators/boisvenu-pierre-hugues/?fbclid=IwAR2q0arJysfDgCd8X6Z3cf7v0Fajs-fMrY3MsA5mpPiczzJ8Z9oG32ZLHpo)
+
+0

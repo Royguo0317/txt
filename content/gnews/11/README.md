@@ -1,35 +1,141 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】5/28/2021文贵盖特：为什么躺平币在国内造成这么大的影响？
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/1278857/)
+## 参议员就拜登停止对中共病毒调查事件的公开信
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1278874/)
 
-制作： 【彩虹桥】
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-尊敬的战友们好！已经是5月28号了，今天早上到现在，因为一直在会议中，所以说没有办法录盖特，录的晚了，非常非常的抱歉！
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28144631/c-31.jpg)worthynews.com
+面对拜登及拜登政府的倒行逆施，没错，就是用了“倒行逆施”这个词儿，笔者在塞林博士的提醒下，一直认为拜登在帮助中共掩盖病毒真相，拖延时间！消息披露后，做贼心虚的拜登第一时间发表了疑似“此地无银三百两”的声明，明显在推卸责任（当然，只看表面现象的人们还是为他限期提交报告的承诺感到欢喜）。这种与魔共舞的罪恶嫌疑行径，自然会引起正道追求者的警惕，参议院当天举行了听证会，并通过了解密中共病毒情报的决议。笔者认为，这只是追责拜登停止调查的开始，昨天两位参议员联名公开致信布林肯，并抄送了拜登。
 
-大家也都知道七哥今天为什么这么忙？现在为啥这么忙？捷报频传，以毒灭共，现在进入了全球的一个共同的，全面对这个新的病毒的一个认知的状态，对灭共也有一个新的认知的状态，可以说以毒灭共，就短短的这几天，完全在全世界变了样，大家也都知道，现在全球轰轰烈烈的，在国内搞得到处要普遍打疫苗，很多战友发信息给我，说七哥到底怎么办？
+公开信全文如下：
 
-我就是一个建议，能不打，坚决不能打，我就不相信，任何国家和政府他敢说，你打了疫苗后果我承担，打疫苗，让你先写上一切后果你自负，你凭什么打？我打你的疫苗，我凭啥自负啊？你研究的疫苗，我凭什么自负啊？我可以不打啊，而且我相信，包括美国政府和很多国家政府很快会宣布，不打疫苗或不能强迫打疫苗，这是个基本这逻辑，我要给大家回复一下。
+尊敬的安东尼J.布林肯
 
-第二个就是关于“躺平币”的事情，这个“躺平币”在国内的影响，大家已经都看到了，就在这个话题影响的所有的各个阶段在躺，什么叫“躺平币”？这个“躺平币”的概念，对共产党的影响它来源于什么？来源于当初共产党对中国人，所有的杀地主、分土地、杀土豪，所谓的分土地，造成的严重的后果，今天大家看上去没关系，事实上中国人开始在思考，我们这么辛苦的劳动，到底我们的日子能不能过得更好？为什么我们不能像西方国家一样，拥有自己的土地？为什么不能像西方一样，我们可以选择政府？为什么不能像西方一样，我们想信什么教就信什么教？为什么我们那么辛苦，却没有办法拥有西方一样，体面的生活和基本的房产和车辆？
+国务卿，美国国务院
 
-在西方买个车，简直是太简单了，是吧？一年都不换新车都不好意思，一般的人，对不对？车便宜得很，我们的很多同事，头两天换的大众的SUV，换的奔驰SUV，都是二手车，新车4万美元，大众的SUV，然后二手车2万美金，这在中国是不可能的，在中国你要打工、还车贷、买房子。头两天，我们很多国内救出来的战友，去买完房子以后，房子带家具，啥都有40万美元，两三百万人民币一个独立的House，一个Acre的地。还有战友在凤凰城买的房子，大概是80万美元，四个Acre的地,带着所有的家具，豪华的不行了，带游泳池。
+西北C街2201号，华盛顿特区 20520
 
-所以说中国人在问，为什么这个国家的土地、天空，都被污染了？人心都被污染？可我们就过不上体面的生活，这不是割韭菜，这已经是..大家要搞清楚，也不是简单的奴隶，就中国人但凡你要明白一点，从各个农村，你打打麻将，炒点肉吃，能吃饱馒头，每天你撅着腚，你干10小时，你都是幸福的了，就这，你在家里面，你还要中毒，就这，你还欠人家的钱，就这，孩子娶媳妇全家破产，就这，得一场病，死不了，活不了，死了，埋不起，埋了，那个坟在那搁不起。很多人都明白，“躺平币”不仅给躺平的人要给币，未来，还要给中国人，要让中国很多阶层的人，都要给他“躺平币”，而且这个计划，我受到了太多人的支持，并且很多金融机构都在了解什么情况，我希望未来把“躺平币”发展成一个，向共产党讨债的一个工具，共产党必须把这些年，欺骗老百姓的钱还给中国人，包括当年所谓的杀富豪、杀地主、抢走的土地，必须还给人民。
+尊敬的布林肯国务卿，
 
-这就是我几年来说的，必须把权力还给中国人民，一人一票选举的政府，中国人必须有中国的土地，中国人必须要平分中国所有的地下、地上的资源，中国人必须要有拥有自己的，所有各地、各县、各市的所有的资源，不能被外来者剥夺，包括台湾，香港，因为“躺平币”会唤醒大家，让更多的阶层，更多的领域，他去躺平，所以这个“躺平币”影响巨大…大家别着急，这个需要一段时间，现在我们要把团队建起来，有大量的前期投资，大量的前期准备，而且要有绝对的最高端的人员，包括政治、经济，金融系统。
+我们写信要求提供有关最近有关“拜登总统的团队停止了“对中共病毒（SARS-COV-2）起源的调查的信息，其中包括验证病毒起源于中共国武汉一个实验室的理论。
 
-另外一个，就是我昨天听到的很多战友给我发很多信息，我没法回复，关于说你买什么币，关于大家问我说，现在的喜币，喜Dollar，我可以告诉大家，现在喜币和喜Dollar发展的程度，是超出你们任何人想象的，未来在市场公开交易的时候，你们都会明白了，大家一定要学会用喜美元，自己合法获得KYC的帐号，千万别忘了合法的使用、聪明的使用喜美元帐号，那是你自己的钱包。
+据报道，这项现在已终止的调查是由美国国务院军控与核查局（the State Department’s arms control and verification bureau）进行的，是唯一一项认真调查中共病毒从中共国武汉一个实验室出现的假设的调查。据报道，调查组在2021年2月和3月向拜登政府官员通报了调查结果，在通报之后，美国国务院终止了这项调查。
 
-另外最近一周两周，很多战友..国内的国外的很多战友要加入到工程团队，我给大家说一下，我没有办法一一回复。你要加入的，请给我个简历，如果你有在工程队伍的战友们，请你直接跟他联系，咱们欢迎大家，只要是战友的，还有能力的，都可以的，不是战友，有能力的也可以，大家可能都知道了，我们现在给所有的GTV，过去G-News,G-Club,G-Fashion,包括盖特,所有工作过够一定时间的,还有现在工作的战友，我们现在是将给10亿股的GTV的鼓励，这个事情在国内影响非常大。
+迄今为止，世界卫生组织（WHO）是唯一一个对中共病毒的起源进行公开调查的实体，然而，世卫组织的调查受到了外界专家和拜登政府官员的广泛批评，包括您自己，以下是此类批评的几个例子：
 
-所以这几天在美国的几大..Facebook，Twitter，YouTube的很多的战友都要离开，因为大家都知道，看到了希望，就是你该拿你的工资拿工资，根据你的过去到六月底截止的时间，根据你的工作的时间，来平均，根据不同的阶层，作出的不同的业绩，直接就给你股票了，GTV的股票，这总共是10亿股，这个投资委员会非常不同意，但最终他们还是同意了，原因非常简单，因为现在GTV要重建，如果GTV不重建的话，咱根本没这个机会，绝对不可能，绝对不可能。
+●2021年2月13日，国家安全顾问杰克·沙利文（Jake Sullivan）在世界卫生组织的报告之前表示，“我们对中共病毒调查的早期发现的传达方式，以及传达过程中遇到的问题深感担忧。”
 
-现在这个10亿股，大概3~4亿股在六月底大概确定下来，发给以前工作在G系列的所有工程师们，然后剩下这一部分，所有的发给未来，最长五年最短三年，也就是GTV上市前，发给所有这些为G系列服务的工程师们，这是个天大的事儿，大家别忘了GTV去年私募的时候，它总共才20亿股，现在拿10亿股来发给了所有的为G系列工作的工程师，大家知道什么意义。
+●在2021年3月25日的一次采访中，您讨论了即将发布的世卫组织报告，并表示，“我们对该报告的方法和过程有真正的担忧，包括北京政府显然帮助撰写了报告的事实。”
 
-但是这次新GTV的募股是600亿股，这回拿出10亿股来只奖给，G-News,G-Fashion,G-Club,GTV,盖特和所有过去为G系列工程师们，直接一部分就发到你过去工作的时间，然后一部分发给未来的3~5年的在这里工作的工程师，这是天大的奖励，所以说所有的有意向的兄弟姐妹们，请和你熟悉的工程师和各农场联系，这都是抓得着的事实啊，不是共产党给你所说的，未来的中国梦啊，这不是梦，这是现实，最迟9~10月份就发到你个人的名下去了。
+●2021年3月28日，福奇提到世卫组织可能缺乏获取信息的渠道，并表示，“如果事实上，很明显，去那里的人真正看一眼的能力都受到了很多限制，那么我会对此有相当大的担忧。”
 
-所以说兄弟姐妹们，我不能一一回复，只能在这儿部分回复，谢谢兄弟姐妹们，旁边会议室已经准备好了，我要去开会了。
+●  2021年3月30日，美国、澳大利亚、加拿大、捷克、丹麦、爱沙尼亚、以色列、日本、拉脱维亚、立陶宛、挪威、大韩民国、斯洛文尼亚和联合王国政府发表声明，批评世卫组织的研究报告缺乏信息和数据，“国际专家对中共病毒来源的研究明显延迟，缺乏完整的原始数据和样本，我们对此表示了同样的担忧。”
+
+●  2021年5月14日，18名科学家发表声明，批评世卫组织缺乏彻底的调查，并指出，“尽管没有发现明确支持自然溢出或实验室事故的证据，但世卫组织的调查小组的评估（却称）来自中间宿主的人畜共患传染病溢出“很可能”，而实验室事故“极不可能。”从而使得这两种理论没有得到平衡的考虑。
+
+●  2021年5月24日，白宫新闻秘书珍普萨基（Jen Psaki）表示，拜登政府“希望世卫组织能够进入一个更透明、独立的第二阶段调查”，调查中共病毒的起源。
+
+2021年5月26日，拜登总统下令发布一份关于中共病毒来源的情报报告，目前尚不清楚美国国务院为何停止由美国领导的调查中共病毒起源的工作，了解中共病毒的起源对于美国政府预防未来疫情，并最终结束中共病毒疫情的努力是基础性的。为了更好地了解国务院（为何）决定终止对病毒来源的调查，请您在2021年6月10日前提供以下信息：
+
+1、请说明国务院终止调查的原因和时间，包括主张终止调查的人的姓名和职务；
+
+2、请提供在现已终止的、国务院对中共病毒来源的调查过程中产生的任何书面材料，包括任何报告草稿；
+
+3、请提供所有收到或审阅过有关国家部门调查中共病毒起源的报告草稿或简报的个人的姓名和职务；
+
+4、请提供国务院在调查中共病毒来源过程中引用或依赖的所有文件和书信；
+
+5、请说明国务院目前或以前对中共病毒的来源进行了哪些其他调查；
+
+6、请提供对中共病毒来源进行调查的个人的姓名和职务；以及
+
+7、请提供2018年至今国务院谈论武汉病毒研究所的所有文件。
+
+谢谢您对此事的及时关注。
+
+真诚地，
+
+罗恩约翰逊（Ron Johnson）
+
+常务调查委员会资深成员
+
+里克·斯科特（Rick Scott）
+
+美国参议员
+
+抄送：总统约瑟夫·R拜登（t Joseph R. Biden）
+
+信函链接：
+
+[https://www.ronjohnson.senate.gov/services/files/138CFFDD-1B57-49A3-9961-CD62B863EDB6](https://www.ronjohnson.senate.gov/services/files/138CFFDD-1B57-49A3-9961-CD62B863EDB6)
+
+原文整理：
+
+The Honorable Antony J. Blinken
+
+Secretary of State
+
+United States Department of State
+
+2201 C St. NW
+
+Washington, D. C. 20520
+
+Dear Secretary Blinken,
+
+We write to request information regarding recent reports that “President Joe Biden’s team
+
+Shut down” an investigation into the origins of SARS-COV-2, which included examining the theory that the virus originated in a lab in Wuhan, China.
+
+According to reports, the now-terminated investigation was run out of the State Department’s arms control and verification bureau and was the only inquiry looking seriously into the hypothesis that SARS-COV-2 emerged from a laboratory in Wuhan, China. “The investigation team reportedly briefed Biden administration officials on its findings in February and March 2021. Following the briefing, the State Department reportedly terminated the Investigation.
+
+To date, the World Health Organization (WHO) is the only entity that has conducted a known public investigation into the origins of SARS-COV-2. However, the WHO’s investigation has been widely criticized by both outside experts and Biden administration officials, including yourself. Below are several examples of such criticisms:
+
+On February 13, 2021, National Security Advisor Jake Sullivan stated in advance of the WHO’s report, “We have deep concerns about the way in which the early findings of the COVID-19 investigation were communicated and questions about the process used to reach them.”
+
+In a March 25, 2021, interview you discussed the pending release of the WHO report and stated, “We’ve got real concerns about the methodology and the process that went into that report, including the fact that the government in Beijing apparently helped to write it.”
+
+On March 28, 2021, Dr Anthony Fauci referenced the WHO’s potential lack of access to information and stated,” If, in fact, obviously, there was a lot of restrictions on the ability of the people who went there to really take a look, then I’m going to have some considerable concerns about that.”
+
+On March 30, 2021, the governments of the United States, Australia, Canada, Czechia, Denmark, Estonia, Israel, Japan, Latvia, Lithuania, Norway, the Republic of Korea, Slovenia, and the United Kingdom, issued a statement that criticized the lack of information and data made available to the WHO study and stated,” we voice our share concerns that the international expert study on the source of the SARS-COV-2 virus was significantly delayed and lacked access to complete , original data and samples.”
+
+On May 14, 2021, eighteen scientists issued a statement criticizing the WHO’s lack of a thorough investigation and noted, “Although there were no findings in clear support of either a natural spillover or a lab accident, the WHO team assessed a zoonotic spillover from an intermediate host as” likely to very likely,’ and a laboratory incident as ‘extremely unlikely.’ Furthermore, the two theories were not given balanced consideration,”
+
+On May 24, 2021, White House Press Secretary Jen Psaki stated the Biden Administration is “hopeful the WHO can move into a more transparent, independent phase two investigation” into the origins of COVID-19.
+
+While on May 26, 2021, President Biden ordered an intelligence report on the origins SARS-COV-2, it remains unclear why the State Department reportedly shut down a U.S.-led effort to investigate the virus’ origins Understanding the origins of SARS-COV-2 is foundational to the U.S. Governments efforts to prevent future pandemics and finally bring an end to the COVID-19 pandemic. In order to better understand the State Departments decision to terminate an investigation into virus origins, we ask that you please provide the following information by June 10, 2021:
+
+1.         Please explain why and when the State Departments investigation was terminated, including the names and titles of the individuals who advocated for terminating the investigation;
+
+2.         Please provide any written materials, including any draft reports, created during the now-terminated State Department investigation into SARS-COV-2’s origin;
+
+3.         Please provide the names and titles of all individuals who received or reviewed any draft reports or briefing on the State Departments investigation in the origins of SARS-COV2;
+
+4.         Please provide all documents and communications that the State Department cited or relied on during the course of its investigation into SARS-COV-2’s origins;
+
+5.         Please explain what other investigations the State Department currently has or previously had into SARS-COV-2’s origins
+
+6.         Please provide the names and titles of the individuals that conducted the investigation into the origins of SARS-COV-2; and
+
+7.         Please provide all State Department cables from 2018 to present that discuss the Wuhan Institute of Virology.
+
+Thank you for your prompt attention to this matter.
+
+Sincerely,
+
+Ron Johnson
+
+Ranking Member
+
+Permanent Subcommittee on Investigations
+
+Rick Scott
+
+United States Senator
+
+Cc : President Joseph R . Biden
 
 0

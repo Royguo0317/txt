@@ -1,103 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登政府追究中共释放COVID-19病毒责任，要求对来源作出答复
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1278684/)
+## 喀秋莎新闻参考 &#8211; 2021年5月27日(星期四)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1278756/)
 
-**字幕内容：**
+俄罗斯莫斯科喀秋莎农场 土星
 
-**Maria**：
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17032833/%E5%B0%81%E9%9D%A2K-1-400x225-1.jpeg)
+**一、新中国联邦新闻**
 
-Right now is the first lawmaker to go on the record right here
-现在请第一位在2020年2月就在本节目中
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=a8-iN52Htp4)、[晚间](https://www.youtube.com/watch?v=F5UwvPfJV-w)）:
 
-on this program back in February of 2020
-公开发表意见的议员
+Ⅰ. 中共环球简单几个字“中方回应拜登”，胡锡进微博说中美一旦摊牌意味着什么？
 
-and suggest that COVID-19 could have leaked from that Wuhan Lab of Virolo-gy
-他表示COVID-19可能是从武汉病毒学研究所泄露的
+Ⅱ. 欧日首脑峰会发表联合声明称共同维护台海稳定再次震动中共，习同尼泊尔、西班牙、黑山总统通电话
 
-Senator Tom Cotton, you’re done great value for our viewers by your honesty
-汤姆·科顿参议员，你的坦诚为我们的观众带来了巨大的价值
+2. 美国参议院5月27日推进了旨在提高美国与中共国技术竞争的能力的立法计划，国会越来越多地寻求对中共政府采取强硬立场。参议员们以68比30的投票结果结束了对价值2500亿美元的《2021年美国创新与竞争法案》（USICA）的辩论，并接近于对该立法进行最终投票。
 
-and telling it like it is, and thank you for that
-并告诉他们事实的真相，为此感谢你
+3. 前国务院官员大卫·阿什5月27日告诉福克斯新闻，去年美国政府对中共病毒起源的调查发现，几乎没有证据证明自然起源说。
 
-Do you still stand by what you said
-你现在是否仍然坚持你去年所说的观点？
+4. 美国众议院议员计划5月28日提出两项两党法案，涉及中共病毒疫情的起源，并允许受害者家属起诉中共。第一项法案，即“美国制造应急准备法案”，将建立一个类似于911事件的两党委员会，以调查该疫情是如何开始的。第二项法案被称为“永不再发生的国际疫情预防法”，要求允许中共病毒受害者家属起诉中共，取消中共国和任何其他 “在疫情上故意误导国际社会 “的国家的主权豁免。
 
-and what have your learned in the last year about this situation?
-以及过去一年你对这一情况有什么新的认识？
+5. 在5月27日播出的福克斯新闻频道的 “美国报道 “节目中，参议员汤姆·科顿表示，总统乔·拜登对中共病毒来源的情报界调查不会发现任何超出情报界已经发现的东西，“只是在踢皮球，试图避免与中共的冲突和争议”，拜登只是想把这件事往后推90天，“然后希望这一切消失”。
 
-Tom Cotton:
+6. 福克斯新闻高级战略分析师杰克·基恩将军5月27日告诉“福克纳焦点”，中共的习近平试图保护武汉实验室的信息，这可能是“犯罪行为”。
 
-Yeah, Maria
-是的，玛丽亚
+7. 乔·拜登总统的国家情报总监（DNI）5月27日表示，中共病毒源自中共实验室存在一定的可能性。国家情报局局长艾薇儿·海因斯就中共病毒来自武汉实验室的前景发表了一份声明，她在声明中说，部分内容具有“低度到中度的置信度”。
 
-it’s hard to believe it’s been 15 months
-很难相信自从你和我第一次讨论这个问题以来
-since you and I first discussed
-已经过去了15个月
+8. 《拉斯穆森报告》5月27日公布的一项调查发现，大多数受访者认为中共病毒“很可能”源自中共国的一个实验室，并支持对此事进行调查。
 
-where I think most our Kansas think is a very common sense proposition.
-我们大多数堪萨斯人认为是一个常识性命题
+9. 中共重申其与朝鲜的“传统友谊”，据中共官方的新华社报道，王毅5月27日在北京会见了朝鲜的新任驻华大使李龙南，他重申了中共国保持 “高层战略沟通 “的立场。
 
-But it surely is a big coincidence
-但这肯定是一个很大的巧合
+10. 在香港由北京控制的政府表示将禁止每年纪念天安门广场大屠杀死难者的烛光晚会一个月后，香港警方5月27日正式宣布禁止5月30日和6月4日的游行。
 
-that this virus started not up at some remote mountain village
-这种病毒起并不是爆发于某个偏远山村
+11. 参议员罗恩·约翰逊和佛罗里达州的里克·斯科特在给国务卿布林肯和拜登总统的信中写到，“我们要求提供有关最近病毒报道的信息，即有关拜登总统的团队关闭了对中共病毒起源的调查的信息，其中包括研究病毒起源于中共国武汉实验室的相关内容。”
 
-with caves, full of bats
-那里有满是蝙蝠的洞穴
+12.杨洁篪5月26日在访问斯洛文尼亚期间会见了该国总统博鲁特·帕霍尔，并于次日前往克罗地亚，与总理安德烈·普兰科维奇交谈。同样在26日，习近平与黑山总理米洛·久卡诺维奇通了电话，但对中共国的热情在中东欧大部分地区已经降温，这让北京感到震惊。
 
-but rather in downtown Wuhan, a city larger than New York,
-而是在武汉市中心，一个比纽约还大的城市
+13. 中共国市场监管部门已要求阿里巴巴旗下的美团暂停其在江苏省的业务三天，并对其罚款235,302美元，理由是美团没有对产品倾销行为和定价欺诈采取行动。
 
-just a few blocks up the road from labs that was researching bat base corona vi-ruses.
-爆发地点离研究蝙蝠冠状病毒的实验室只有几个街区
+14. 韩联社5月28日援引不具名消息人士的话报道，韩国现代汽车公司正在与中共政府谈判，以出售其在北京的一处工厂用地。这曾经是该公司在北京建造的第一个厂区。
 
-And since then, every bit of circumstantial evidence to
-从那时起，有大量的间接证据
+15. 澳洲贸易部长Dan Tehan 5月28日下午宣布，澳大利亚政府正在采取下一步行动，就中共国对大麦征收的关税向世贸组织提出首次索赔，正式要求该世界机构成立一个争端解决小组来解决这一问题。
 
-include evidence that came out in the final days of the Trump Administration
-包括川普政府在最后几天提供的证据显示
+16. 川普总统的前国家安全顾问迈克尔·弗林对重新关注中共病毒来自武汉实验室的理论发表评论表示，他认为这是一次“武器化行动”。
 
-that some employees and staff at this lab
-武毒所的一些员工和工作人员
+17. 前国际贸易大臣利亚姆·福克斯敦促鲍里斯·约翰逊引入“碳边界税”，以保护英国公司免受像中共国这样的竞争对手的污染。
 
-may have had corona virus like symptoms as early as October, September, 2019,
-可能早在2019年的10月、9月就出现了类似冠状病毒的症状
+18. 根据5月27日发布的一项新研究，过去10年来，中共采取了许多措施来扩大其在联合国及相关机构中的影响力，其中包括向这些组织提供的自愿捐款增加了近350％。
 
-Continues to point to
-这些证据都指出
-these labs as the origin of this virus,
-这些实验室才是这种病毒的来源
+19. 美国国务卿布林肯5月27日表示，中共政府正在继续破坏香港的民主体制，并呼吁中华人民共和国和香港当局释放和撤销对所有根据国家安全法被指控的人的指控。
 
-not that food market that the Chinese Communist Party used as cover story from the very beginning.
-而不是中共从一开始就用来掩盖事实真相的农贸海鲜市场
+**二、世界新闻**
 
-That’s why it’s so imperative that the Biden administration hold the Chinese Communist Party accountable
-这就是为什么拜登政府必须追究中共的责任
+1. 随着拜登总统和其他官员要求进一步调查疫情起源的呼声越来越高。脸书5月26日表示，它将不再禁止暗示中共病毒是人为的帖子，这一宣布标志着这家社交媒体巨头的反转。
 
-and demand answers for all of these questions.
-并要求其回答所有这些关于病毒起源的问题
+2. 美国国土安全部5月27日为管道所有者和经营者发布了一项新的安全准则，本月美国东南部的一条殖民管道公司的管道被黑客攻击，中断了燃料供应数日。国土安全部表示，重要管道的所有者和经营者将被要求向该部的网络安全和基础设施安全局（CISA）报告确认和潜在的网络安全事件。
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+3. 微软公司透露，俄罗斯支持的太阳风（Solar Winds）黑客本周对美国政府机构发起了一场新的网络攻击。
 
-原视频链接:
+4. 三位政府官员说，美国总统拜登已经决定了他对中共国、日本和印度的重要大使人选，并预计在未来几周内宣布。前芝加哥市长拉姆·伊曼纽尔已被邀请担任驻日本大使。洛杉矶市长埃里克·加塞蒂已被邀请担任驻印度大使。前副国务卿尼古拉斯·伯恩斯被邀请担任拜登的中共国大使。
 
-[https://twitter.com/sentomcotton/status/1396490390212067329?s=24](https://twitter.com/sentomcotton/status/1396490390212067329?s=24)
+5. 日本在联合国和其他全球组织中争取更大的话语权，促使日本国民担任的职位出现了两位数的增长，但中共国的增长速度更快。
 
-英听校： 康州盘古农场 – Mike Li
-翻译：康州盘古农场 – Mike Li
-翻译终校：康州盘古农场 – 柯镇恶
-字幕+视频制作：康州盘古农场- 天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+6. 据国家媒体5月27日报道，朝鲜领导人金正恩发誓要对国内的反社会主义分子进行 “不妥协的斗争”，他试图在与中共病毒有关的困难和美国领导的经济制裁中巩固他的权力。
 
 0
