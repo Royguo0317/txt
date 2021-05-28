@@ -1,56 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “以假灭共”——用敌人的谎言来戳穿敌人的谎言!
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1278308/)
+## &#8220;实验室泄漏&#8221; 的叙述正在成为主流，大科技公司会为审查真相道歉吗？
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1278312/)
 
-**摘要：在2021年5月17日的盖特视频中郭先生感慨道，5月16日和17日是个幸运的日子，去年的同一天闫博士来到了美国；四年前七嫂和郭美顺利抵达美国。他说近日，《华盛顿邮报》和一个AI网站发布虚假消息，这对爆料革命而言是好事情，因为这些谎言会不攻自破，进而证明了背后存在黑帮的支持，而这个黑帮组织就是中共！而我们用敌人的谎言来戳穿敌人的谎言——这叫“以假灭共”！**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28094418/Miles_20210517-getter1-.srt.txt)
-**“以假灭共”——用敌人的谎言来戳穿敌人的谎言!**
+**作者：**Ethan Huff 2021-05-27
 
-**Taking Down the CCP by Exposing Their Sham**
+**翻译：**加拿大温哥华圆成农场 卢卡斯
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28100035/78555.png)图片来源：Ethan Huff原文
+《自然新闻》主流媒体对中共冠状病毒起源的报道突然发生了转变。
 
-我记得是去年的同一天，农历的同一天，Dr. Yan 博士来到了美国，[去年]此时此刻她正在洛杉矶机场，我正在给她通话。她[先是]晕倒了，然后我[和她]通话，然后国土安全部过来了，就是在此时此刻，比[现在时间]还晚一点。
+企业媒体的谈话负责人现在同意，中共病毒可能从中共国武汉的实验室”逃逸”，而不是加倍强调它起源于受污染的蝙蝠汤。
 
-I remember the same day last year based on the Lunar calendar, Dr. Yan came to the United States. At this time last year, she was at LAX.  I was talking with her on the phone. She fainted at first. Then we had a call after which the DHS came, right at this time or maybe a bit later than right now.
+《华尔街日报》报道了美国一份新的情报报告，其中提到武汉病毒学研究所的三名研究人员，他们于2019年11月病得很重，不得不住院治疗。
 
-四年前的今天，是你[们]七嫂[和]郭美到达了美国，就是昨天的16号，也就是今天。16号17号，这是很有意思的。
+就在中共病毒首次在中共国首次出现的时候，然而世界卫生组织（WHO）在至少两个月后继续声称这种新型病毒的人际传播为零。
 
-Four years ago on the same date, my wife and daughter came to the U.S..  It should be yesterday (the 16th) or today.  16th and 17th, this is very interesting.
+美国国家过敏和传染病研究所（NIAID）的安东尼·福奇后来向”事实核查者”承认，中共病毒可能来自蝙蝠以外的某些来源。
 
-今天我收到了好几个特别好特别好的消息。我心想说这消息太好了呀，咋办呢？我说这敌人的出手咋还没来呢？突然[就]来了—华盛顿邮报[的报道]。又造谣呢，什么 AI 网站[也造谣]，太好了。你们说的瞎话越多，却能证明背后有组织有黑手，却证明[了]我们的伟大。逆增上缘。
+当被问及是否相信中共病毒是自然发展起来的时，福奇告诉《政治报》的凯蒂·桑德斯：”我对此并不信服。”我认为，我们应该继续调查中共国发生的事情，直到我们继续尽我们最大的努力查明所发生的事情。
 
-Today I have received several great pieces of news. I thought to myself that this is such great news. What should I do? I was wondering why there are no fist punch actions from the enemies.  Suddenly they came – the article from Washington Post, the fabricated lies. The AI website also lied.  That is great. The more lies you tell, the better they can prove that there is a Mafia-like organization behind you.  It also proves how great we are. In Buddhism, this is what is called: “through overcoming adverse conditions.”
+“当然，调查它的人说，这可能是从动物水库出现，然后感染个人，但它可能是别的东西，我们需要找出这一点。所以，你知道，这就是为什么我说我完全赞成任何有关病毒的起源的调查。
 
-还有一个更重要的，我们是“以假灭共”，用你的假来戳破你的谎言。有时候最高的高手手里没有武器，但是敌人拿着又是枪又是叉的又是火箭炮的，用[敌人]的枪[和]火箭炮攻击他[自己]— 这才是高！爆料革命就是这样，用敌人的矛刺敌人的盾，用敌人的剑刺穿敌人；用敌人的谎言来戳穿敌人的谎言。你看这多高？
+**还记得政治报”揭穿”武汉实验室理论吗？**
 
-Another more important thing is that we are “taking down the CCP by exposing their sham”.  We use your made-ups to reveal your lies.  Sometimes the best master is someone with no weapon.  When the enemies come with their guns or pitchforks or rocket launchers, the master uses the enemies’ own guns and rocket launchers against them. That is brilliant! The Whistleblower Movement is just like that, using the enemies’ spears to puncture the enemies’ shields, using the enemies’ swords to stab them, using the enemies’ lies to expose their lies.  How brilliant this is?
+现在，美国疾病控制和预防中心（CDC）现任和前任负责人都表示，他们对中共病毒来自中共国实验室的想法持开放态度。更可能的是，它的创建是由美国纳税人的钱通过福奇资助的。
 
-所以战友们一定要搂住，沉住气。
+可笑的是，政治报最近不得不取消去年进行的一次”事实调查”，声称中共病毒的实验室泄漏源理论已被”揭穿”。突然之间，这个”被揭穿”的理论被重新提上议事日程，成为极有可能。
 
-That is why, my fellow fighters, we must keep cool and stay calm.
+近几个月来出现了许多新的证据，认为拒绝武汉实验室泄漏理论是阴谋论。虽然对病毒的创造负有全部责任的人的全部细节内容尚未确定，但此时看来，病毒不是来自自然，其相关的”大流行”是一种旨在使世界陷入暴政的深层政府所创造。
 
-这帮愚蠢的东西[们]就这几招，你发现了吗？上报纸，买通记者，“蓝、金、黄”，弄广告，造假谣言，然后123文章。你看[着好了]，过一段时间它就123个网站就出来了：华盛顿邮报，华尔街日报[说我是]双面间谍……哇！双面间谍？好大的事啊！“郭先生啊，这是好大的事啊！”我说，“什么大事啊？什么大事啊？”—“这是个很大的麻烦呐”—我说：“是吗？”我就天生不怕麻烦，多大的麻烦我都能变成有利的武器。
+早些时候，前总统唐纳德·特朗普曾暗示中共病毒可能起源于中共国。这引发了通常的”种族主义”指控，随后在Facebook和Twitter等社交媒体平台上进行了大规模审查。
 
-These stupid people only have a few tricks.  Have you seen that?  Bribe the journalists, BGY, pay for some advertisements, rumor-mongering, and then smear articles. After a while, you will see some websites, such as Washington Post and Wall Street Journal accusing me of being a double agent. Wow, double agent.  That is huge.  “Mr. Guo, this is huge problem,” somebody said to me.  And I said: “What is huge? What is huge?”  “This is big trouble,” they said.  But I replied: “Really?”  I am born for trouble-shooting.  I can turn any trouble into a powerful weapon.
+“任命技术官员为构成’阴谋论’或’造谣’的仲裁者，并要求他们在此基础上执行社交媒体清洗，这也许是个坏主意，”巡回记者迈克尔·特雷西（Michael Tracey）说。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60a31a4137f7f73984ccdbee](https://gtv.org/getter/60a31a4137f7f73984ccdbee) (05:15-07:23)
-鸣谢：[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1253153/](https://gnews.org/zh-hans/1253153/)
-[2] 感谢 dd、Liberte、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于[https://gnews.org/1262931/](https://gnews.org/1262931/)
+托比·杨还指出，仅仅一年前，实验室泄漏理论被Facebook的”独立事实核查员”斥为”错误信息”。
 
-* * *
+“现在，就连福奇博士也说应该对此进行调查，”杨补充道。”大科技公司为什么不应该试图审查’错误信息’的好例子。
 
-**整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
-字幕：【JennyL（纽约香草山农场）】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+保守派评论员史蒂芬·克劳德也插话说，如果主流媒体对实验室泄密理论有一定的信任，也许2020年选举结果会有所不同，结果就不那么垃圾了。
 
+更多有关政府的中共冠状病毒翻转的新闻可以在Pandemic.news找到。
+
+**评：**中共病毒不是来自于自然而是来源于中共实验室，是中共通过生物基因工程修改国超限生化武器，并且由中共释放到全世界造成中共病毒全球大流行，对全球经济政治金融和民众的生命健康造成巨大的伤害。美国的政府部门医疗权威机构、大科技公司媒体平台和主流媒体做为中共的帮凶和走狗，他们有的资助中共强化中共病毒的传染性和毒性，有的帮助中共掩盖中共病毒的真相，对有关中共病毒真相的言论进行言论审查和直接屏蔽，为中共病毒对全人类的伤害推波助澜。如今越来越多的中共病毒真相的信息和证据被揭露，中共已经无力继续掩盖中共病毒的真相，这帮卖美贼开始改变论调，开始洗脱自己的罪恶，企图逃脱法律的惩罚。美国和国际有关部门应该对这些犯罪分子展开严肃认真的调查，查清他们犯罪事实及其导致的各种后果，以便将来让他们受到法律的审判，这样才能伸张正义，警示后人。随着越来越多的证据对中共病毒更多的事实真相的揭露，西方媒体已经开始转向，各国民众加速觉醒，全球灭共的步伐越来越快，中共灭亡的日子越来越近了。
+
+##### **原文：**Ethan Huff,“ Now that the “lab leak” narrative is going mainstream, will Big Tech apologize for its censorship of the truth?”.《Natural News》, May 27, 2021.** **[https://www.naturalnews.com/2021-05-27-lab-leak-mainstream-big-tech-apologize-censorship.html](https://www.naturalnews.com/2021-05-27-lab-leak-mainstream-big-tech-apologize-censorship.html)
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：比卡丘
+
+20210528
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 +1

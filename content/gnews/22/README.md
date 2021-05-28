@@ -1,43 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 生物战专家质疑加拿大为何向中共发送致命的病毒
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1278250/)
+## “以假灭共”——用敌人的谎言来戳穿敌人的谎言!
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1278308/)
 
-蒙特利尔皇家山战友团 Spirit
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28094553/dsfds.jpg)图片来源：The Scientist
-据《国家邮报》(National Post) 2019年8月8日报道，2018年在约翰霍普金斯大学的一次大流行演习中，一种基于新出现的尼帕病毒的病原体被虚构的极端分子释放，杀死了1.5亿人。另一个由美国蓝丝带小组制定的不那么灾难性的方案设想，尼帕病毒被恐怖分子散布，夺去6000多条美国人的生命。
+**摘要：在2021年5月17日的盖特视频中郭先生感慨道，5月16日和17日是个幸运的日子，去年的同一天闫博士来到了美国；四年前七嫂和郭美顺利抵达美国。他说近日，《华盛顿邮报》和一个AI网站发布虚假消息，这对爆料革命而言是好事情，因为这些谎言会不攻自破，进而证明了背后存在黑帮的支持，而这个黑帮组织就是中共！而我们用敌人的谎言来戳穿敌人的谎言——这叫“以假灭共”！**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28094418/Miles_20210517-getter1-.srt.txt)
+**“以假灭共”——用敌人的谎言来戳穿敌人的谎言!**
 
-加拿大国家微生物实验室（NML）的科学家们也表示，这种高度致命的病毒是一种潜在生物武器。但是2019年3月，该实验室向中共运送了鸡冠病毒家族和埃博拉病毒的样本，中共长期以来一直被怀疑在实施一项秘密的生物战（BW）计划。
+**Taking Down the CCP by Exposing Their Sham**
 
-中共强烈否认制造病毒武器，而加拿大官员说这批样品是其支持全球公共卫生研究的一部分。在国际上分享此类样本是相对标准的做法。但是一些专家对2019年3月份的转让提出了疑问，这个位于温尼伯的国家实验室中心曾经解雇了一名顶级科学家还被加拿大皇家骑警秘密调查。
+我记得是去年的同一天，农历的同一天，Dr. Yan 博士来到了美国，[去年]此时此刻她正在洛杉矶机场，我正在给她通话。她[先是]晕倒了，然后我[和她]通话，然后国土安全部过来了，就是在此时此刻，比[现在时间]还晚一点。
 
-“以色列巴伊兰大学的生物和化学战专家Dany Shoham说：”我想说加拿大的这种’贡献’可能会产生反作用。”我认为中共的活动是非常可疑的，就探索这些病毒作为生物武器制剂而言。”乔治敦大学神经学教授、美国特种作战司令部生物战高级研究员詹姆斯-乔达诺说，中共在生物科学方面的投资不断增加，围绕基因编辑和其他尖端技术的道德规范更加宽松，政府和学术界之间的融合提高了这种病原体被武器化的可能性。
+I remember the same day last year based on the Lunar calendar, Dr. Yan came to the United States. At this time last year, she was at LAX.  I was talking with her on the phone. She fainted at first. Then we had a call after which the DHS came, right at this time or maybe a bit later than right now.
 
-乔治城大学脑科学和全球法律与政策项目的联合负责人乔达诺说，这可能意味着一种进攻性制剂，由代理人放出的改良病毒，而只有中共拥有治疗或疫苗。他说”它所做的是利用能力来充当全球救世主，然后创造出各种层次的宏观和微观经济和生物权力的依赖性。”
+四年前的今天，是你[们]七嫂[和]郭美到达了美国，就是昨天的16号，也就是今天。16号17号，这是很有意思的。
 
-当被问及加拿大病毒被转入中共武器计划的可能性是否与微生物实验室有关时，加拿大公共卫生局发言人安娜-麦迪逊本周说，该机构 “继续调查这一行政事项”。该机构上周透露，它在3月份将埃博拉病毒和henipavirus–包括Nipah和相关的Hendra–的样本送往中共。发言人说，这是为了进行病毒研究，是该机构支持国际公共卫生研究任务的一部分。
+Four years ago on the same date, my wife and daughter came to the U.S..  It should be yesterday (the 16th) or today.  16th and 17th, this is very interesting.
 
-上个月，一位备受赞誉的NML科学家—邱香果–据说与她的丈夫、另一位生物学家和她的研究小组成员一起被护送出了实验室。该机构说，它正在调查一个 “行政问题”，并已将一个可能违反政策的问题提交给加拿大皇家骑警。关于这一事件，没有更多的说法。
+今天我收到了好几个特别好特别好的消息。我心想说这消息太好了呀，咋办呢？我说这敌人的出手咋还没来呢？突然[就]来了—华盛顿邮报[的报道]。又造谣呢，什么 AI 网站[也造谣]，太好了。你们说的瞎话越多，却能证明背后有组织有黑手，却证明[了]我们的伟大。逆增上缘。
 
-中国自1984年以来一直是《生物武器公约》的签署国，并一再坚持认为它遵守了禁止发展生物武器的条约。但怀疑一直存在，美国国务院和其他机构最近在2009年公开表示，他们认为中国有进攻性生物制剂。
+Today I have received several great pieces of news. I thought to myself that this is such great news. What should I do? I was wondering why there are no fist punch actions from the enemies.  Suddenly they came – the article from Washington Post, the fabricated lies. The AI website also lied.  That is great. The more lies you tell, the better they can prove that there is a Mafia-like organization behind you.  It also proves how great we are. In Buddhism, this is what is called: “through overcoming adverse conditions.”
 
-美国科学家联合会说，尽管在公开文献中没有出现任何细节，但中共 “通常被认为有正在进行的生物战计划”。美国陆军化学防御医学研究所的一名官员上个月指控中共是世界上病毒 “威胁 “的领导者。在2015年的一篇学术论文中，Shoham–巴伊兰大学贝金-萨达特战略研究中心–断言有40多个中共设施参与了生物武器的生产。
+还有一个更重要的，我们是“以假灭共”，用你的假来戳破你的谎言。有时候最高的高手手里没有武器，但是敌人拿着又是枪又是叉的又是火箭炮的，用[敌人]的枪[和]火箭炮攻击他[自己]— 这才是高！爆料革命就是这样，用敌人的矛刺敌人的盾，用敌人的剑刺穿敌人；用敌人的谎言来戳穿敌人的谎言。你看这多高？
 
-中共军事医学科学院实际上开发了一种埃博拉药物–称为JK-05–但几乎没有透露更多信息，这促使人们猜测其埃博拉细胞是中共生物战武器库的一部分，Shoham告诉《国家报》。
+Another more important thing is that we are “taking down the CCP by exposing their sham”.  We use your made-ups to reveal your lies.  Sometimes the best master is someone with no weapon.  When the enemies come with their guns or pitchforks or rocket launchers, the master uses the enemies’ own guns and rocket launchers against them. That is brilliant! The Whistleblower Movement is just like that, using the enemies’ spears to puncture the enemies’ shields, using the enemies’ swords to stab them, using the enemies’ lies to expose their lies.  How brilliant this is?
 
-埃博拉被美国疾病控制和预防中心列为 “A类 “生物恐怖主义制剂，这意味着它很容易在人与人之间传播，将导致高死亡率，并 “可能引起恐慌”。疾病控制中心将尼帕病毒列为C类物质，这是一种致命的新出现的病原体，可以被设计成大规模传播。
+所以战友们一定要搂住，沉住气。
 
-尼帕病毒于1998年首次出现在马来西亚，在整个东亚和南亚地区引起了一系列的爆发，根据世界卫生组织的数字，其死亡率大多超过50%，最高可达100%。可以引起脑炎，一种常常是致命的脑部肿胀，而且没有已知的治疗方法或疫苗。
+That is why, my fellow fighters, we must keep cool and stay calm.
 
-约翰-霍普金斯大学的演习–称为 “X族”涉及编辑过的尼帕病毒，在人与人之间更容易传播。美国蓝丝带生物防御研究小组在其2015年的报告中涉及了通过气溶胶喷雾故意释放尼帕病毒的场景。乔丹诺说，中共对CRISPR基因编辑和相关技术的广泛和有争议的使用，可以对尼帕这样的病菌进行生物工程，使其更加危险。
+这帮愚蠢的东西[们]就这几招，你发现了吗？上报纸，买通记者，“蓝、金、黄”，弄广告，造假谣言，然后123文章。你看[着好了]，过一段时间它就123个网站就出来了：华盛顿邮报，华尔街日报[说我是]双面间谍……哇！双面间谍？好大的事啊！“郭先生啊，这是好大的事啊！”我说，“什么大事啊？什么大事啊？”—“这是个很大的麻烦呐”—我说：“是吗？”我就天生不怕麻烦，多大的麻烦我都能变成有利的武器。
 
-2020年2月份位于温尼伯的加拿大国家微生物实验室的前科学主任Frank Plummer博士突然离奇死亡到现在还没有一个合理的解释。加拿大为中共输送病毒样本也许变相帮助了这次中共生物武器超限战对全世界的攻击。中共在各国的“帮助”下掌握了病毒的尖端技术，加上没有道德底线，如今演变成了今天全球的巨大灾难。
+These stupid people only have a few tricks.  Have you seen that?  Bribe the journalists, BGY, pay for some advertisements, rumor-mongering, and then smear articles. After a while, you will see some websites, such as Washington Post and Wall Street Journal accusing me of being a double agent. Wow, double agent.  That is huge.  “Mr. Guo, this is huge problem,” somebody said to me.  And I said: “What is huge? What is huge?”  “This is big trouble,” they said.  But I replied: “Really?”  I am born for trouble-shooting.  I can turn any trouble into a powerful weapon.
 
-[原文链接](https://nationalpost.com/health/bio-warfare-experts-question-why-canada-was-sending-lethal-viruses-to-china)
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60a31a4137f7f73984ccdbee](https://gtv.org/getter/60a31a4137f7f73984ccdbee) (05:15-07:23)
+鸣谢：[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1253153/](https://gnews.org/zh-hans/1253153/)
+[2] 感谢 dd、Liberte、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于[https://gnews.org/1262931/](https://gnews.org/1262931/)
 
 * * *
 
-*编辑、发稿 文锦*
+**整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
+字幕：【JennyL（纽约香草山农场）】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 +1
