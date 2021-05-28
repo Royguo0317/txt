@@ -1,82 +1,167 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【深度报道】关于中共国病毒COVID-19疫情情报的系统分析报告4
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1278533/)
+## 众议员迈克·加拉格尔（Mike Gallagher）我们必须对情报进行解密流行病毒起源
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1278495/)
 
-作者：22rOn
+**字幕内容：**
+Rep. Mike Gallagher
+众议员迈克·加拉格尔
 
-纽约香草山火来和纽约香草山蚊子强力推荐
+100%, we don’t have access to the lab records
+100%, 我们没有权限访问实验室记录
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-9.jpeg)
+The CCP prevaricates they lied
+中国共产党推诿，他们撒谎
 
+or trying to deflect blame
+或试图逃避责任
 
+They’ve not been a cooperative partner since the start of this
+自从大流行开始他们就不是合作伙伴
 
-#### **声 明**
+and the fact that they are trying to place blame on America
+而且事实上，他们试图将责任赖上美国
 
-本报告旨在阐述中共国自2005年以来开展有关病毒研究、中共国科研教育机构与香港之间的联系，所有信息均来源于互联网，任何人使用检索引擎都能够获取以下所有信息。分析所提出的线索与结论，仅代表本人观点。
+just show you, shows you the depths of their depravity
+这就告诉你他们堕落的深度
 
-* * *
+so we have to declassify the intel
+所以我们必须解密情报
 
-##### **III. ****2****016****病毒项目与香港的关系**
+we have in order to get to the bottom of this
+我们必须要深挖到底
 
-根据前文所述，**香港大学管轶**作为中港两方的纽带，同时**香港大学袁国勇**团队参与到**2016YFD0500304课题**，鉴于早些时候Dr.Sellin提出对**香港大学Malik Peiris**可能参与到2016病毒项目的质疑，本段重点是基于Dr.Sellin的观点提供一些不同角度的侧面佐证，以说明**Malik Peiris**与2016病毒项目的关系，其次是挖掘**香港大学**与中共国内高校/研究机构之间的**其他合作关系**。
+we know we’re not going to get the cooperation
+我们知道我们不会得到合作
 
-1. **2016病毒项目与****M****alik**** P****eiris的关系**
+from an increasingly hostile competitor
+来自日益敌对的竞争对手
 
+in the form of the Chinese Communist party
+以中国共产党的形式
 
-根据**香港大学教育资助委员会**公开的《**2018/19年度获资助研究项目名单**》，**香港大学Malik**** P****eiris**与**广州医科大学赵金存**合作，开展了一项名为**“探索不同人冠状病毒之间的交叉免疫保护作用”** 的研究项目，获得了为期4年的香港政府资助，同时该项目是与中共**国家自然科学基金会**发起的**联合资助**。该信息可与图3(c)中**赵金存**获得国家自然科学基金资助的项目情况对比验证。而**赵金存**在2016病毒项目的参与2016YFD0500305课题，正是在**进行病毒感染宿主重要蛋白的结构性研究**。可以推测若Malik Peiris参与了2016病毒项目，其参与途径可能就是**与赵金存开展的合作课题**。
+it is incumbent upon us to get the information out there
+我们有责任从那里获取信息
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28114144/%E5%9B%BE%E7%89%8726-2.png)图6. 香港大学教育资助委员会的公示信息
+America deserves an answer,
+美国应该得到一个答案
 
-另一方面，有证据表明**Malik Peiris**可能还受到了中共当局的**其他“资助”**。根据中共国媒体的公开报道，**2018年9月**在**广州**举行的**“第三届国际流感及其他呼吸道病毒防治论坛”**活动中，作为中共国内最大的**独立医学实验室**机构之一的**广州金域医学建研集团股份有限公司**（以下简称金域医学），与**广州医科大学校长钟南山**宣布合作成立**“临床呼吸道病毒诊断与转化中心”**，同时该中心宣布**聘请Malik Peiris作为其专家顾问**。
+the world deserves an answer
+世界应该得到一个答案
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28114229/%E5%9B%BE%E7%89%8727-3.png)图7. 广州“临床呼吸道病毒诊断与转化中心”成立
+we have to get to the bottom of this pandemic
+我们必须深入了解这场大流行
 
-根据**金域医学**的过往新闻报道与公开的股东信息可知，该公司为**广州医学院**（广州医科大学前身）的**校办企业**，由**钟南山**的学生**梁耀铭**建立，**2007年**由**君联资本**为其进行A轮投资，**2015年9月**，**金域医学**获得来自**国开博裕**、**辰德资本**、**国创开元股权投资基金**（简称国创开元）、**君联资本**的**4亿元人民币的战略投资**。而**国开博裕**和**国创开元**的背后是中共国的**国家开发银行**。2018年金域医学上市后，该公司便成为中共国上海股市中**独立医学实验室**的行业龙头。因此有理由质疑，**中共有可能通过金域医学，与Malik进行了深度的利益捆绑**。
+and there is a very complicated and troubling story
+而且有一个非常复杂和令人不安的故事
 
-2. **中共的病毒研究与香港大学的其他合作信息**
+as I mentioned at the start of this
+如我在开始的时候提到的
 
-除了**M****alik**** P****eiris**可能参与到中共的2016病毒计划以外，本报告还挖掘了中共政府公开的、部分年份的**香港研究资助局与国际自然科学基金联合资助项目**（简称中港联合资助）的部分内容（见源信息索引）。其中与病毒研究直接相关的有：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28114906/%E5%9B%BE%E7%89%8729-2.png)表4. 2009-2014年香港研究资助局&中共国际自然科学基金联合资助项目审批情况
-根据表中信息可以看到，**申请中港联合资助的申请人/申请单位，都与2016病毒计划关系密切**，从侧面可以看出，香港学术界与中共的配合可能并非短时间内达成的合作关系，而是中共通过**中港联合资助**项目，对香港学术界（尤其是病毒学、微生物学界）以“友好合作”“联合资助”的名义**长期渗透**的结果。
+about how your taxpayer dollars went to fund this research
+关于美国纳税人资金如何为这项研究提供资金
 
-#### **IV. ****其他信息**
+that could have been the reason this whole thing started in first place
+这可能是整个事情开始出现的原因
 
-**国家自然科学基金会项目信息：**本报告对2016病毒项目相关的重要研究者进行了**国家自然科学基金会项目信息**的遍历查询，查询了**2005～2019年**其申请的项目资助，以获知其在各年度进行了何种课题的研究。这些截图的信息已按资金申请人（课题主持人）所属单位及姓名进行了分类，以供研究对比。需要指出的是，名为“\_汇总信息”的文件夹内容，是二次搜索查询的内容，信息来源并非官方，不能完全采信，而其他信息均来自中共**国国家自然科学基金会网站**。文件位置见源信息索引。
+Jon Scott (Fox News host)
+乔恩·斯科特（福克斯新闻主持人）
 
-**国家科技报告：**本报告对与COVID-19事件有关的重要中共国人物进行了**国家科技报告**检索，对历年的**国家科技报告**摘要进行了截图存档以供分析，文件位置见源信息索引。
+So listen to Jen Psaki the White House spokeswoman
+因此，请听白宫发言人詹·普萨基（Jen Psaki）
 
-**其他病毒的研究信息：**本报告调查进行期间，同时搜集到中共官方对寨卡病毒、禽流感病毒的研究，这说明**中共当局极可能还有其他种类的人工病毒被作为超限生物武器，这对尚处于COVID-19严重危害的全世界来说是一个重大威胁。**需要特别指出的是，**中国疾控中心**的**舒跃龙**，是2016年禽流感病毒研究的主要负责人，此人在是年开展了一项名为“**重要新发突发病原体发生与播散机制研究”（编号2016YFC1200200）**的重点研发计划。而此人的团队曾以名为**“以防控人感染H7N9禽流感为代表的新发传染病防治体系重大创新和技术突破”**的研究课题获得了在**2017年获得了国家科学技术进步特等奖**。根据上文的调查（附件二），此人也参与了2016病毒项目。文件位置见源信息索引。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28115033/%E5%9B%BE%E7%89%8728-3.png)图8. 舒跃龙团队的研究项目获得2017年获得了国家科学技术进步特等奖
-### **结 论**
+talking about what they see as what needs to happen here listen
+谈论他们认为这里需要发生的事情。 听
 
-中共当局一直在进行系统化、有组织、有计划的病毒研究。COVID-19背后是中共围绕人兽共患病开展的病毒项目，与此直接相关的是中共国2016年启动的“重大突发动物源性人兽共患病跨种感染与传播机制研究”重点研发计划，该项目是2005～2015年由高福研究的**“动物源性病毒跨种间感染与传播机制研究”“重要病毒跨种间感染与传播致病的分子机制研究”**的延伸课题，该项目直接涉及了武汉病毒研究所与中共解放军军事医学研究机构，涉及的人员与资金庞大复杂，其中包括了数项军事级研究项目，包括了美国国立卫生研究院、美国盖茨·梅琳达基金会等海内外机构的投资资金，其研究背景充分说明中共军方极有可能在武汉病毒研究所进行着军事级的生物武器研究。
+Jen Psaki (White House spokeswoman)
+詹·普萨基 (白宫发言人)
 
-其次，除武汉病毒研究所，中共当局也有可能在其他地区同时布局了病毒的实验研究，根据对香港大学Malik Peiris和管轶的调查，中共当局很有可能在汕头大学，通过新建立的汕头大学·香港大学联合病毒研究所，通过广州医科大学赵金存与Malik进行的合作，在港粤一带也进行了病毒研究。
+I will say that our view continues to be
+我要说，我们的观点仍然是
 
-COVID-19可能也只是中共当局进行病毒研究的冰山一角。根据本报告的调查，中共国已经以“973”计划、“传染病防治” 科技重大专项、国家重点研发计划、国防科技专项等方式，通过数量众多、“化整为零” 、复杂隐蔽的国家级科研项目，分工明确地解决各种病毒武器化过程中的工程技术问题，主要包括了寨卡病毒、禽流感病毒、埃博拉病毒、登革热病毒、西尼罗病毒、基孔雅肯病毒——开展病毒分析鉴定、病毒传播与进化、病毒与宿主相互作用、有效抗病毒药物研制的大规模长期研究。以目前调查的信息表明，中共对寨卡病毒与禽流感病毒的研究最为细致，成果最多，这表明中共当局有可能已经对两个病毒进行了武器化改造，这给全人类的生命健康安全带来了巨大的风险。
+that there needs to be an independent, transparent investigation
+需要进行一个独立，透明的调查
 
-综上所述，中共通过20年以上周期进行长期布局、通过国家计划带动走“军民融合、化整为零”的路线，通过国家与地方企业的资金与海内外资金、研究机构联合的方式，已经打造了属于中共的病毒版“一带一路”(One World, One Health)。如不尽快解决中共当局在COVID-19的问题，很有可能会有更多种类、后患无穷的致命病毒，成为继COVID-19后最大人造生物危害，侵蚀破坏整个世界的文明秩序。
+and that needs to happen with the cooperation
+这需要通过合作来实现
 
-（正文完，附件信息后续）
+and data provided from the Chinese government
+和从中共国政府提供的数据
 
-校对/发稿：飞虹
+Jon Scott
+乔恩·斯科特
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
+but cooperation and data is not forthcoming
+但是合作和数据并不会出现
 
+as you have said
+就如你所说的
 
+Rep. Mike Gallagher
+众议员迈克·加拉格尔
 
-**更多资讯，更多关注**
+yeah I don’t think we should make
+是呀，我不认为我们应该使我们
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+how we proceed contingent
+如何进行视情况而定
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+upon the largesse of the Chinese Communist party
+依赖在中国共产党的慷慨上
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+Because we’ll be waiting a heck of a long time for that to happen
+因为我们为了做到这一点要等很长时间
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+so we need to take bolder steps to investigate this
+所以我们需要采取更大胆的步骤来对此进行调查
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+nor can we rely upon the Integrity of the W.H.O.
+我们也不能依靠世卫组织的廉正
+
+I hate to say it
+我讨厌这么说
+
+but the W.H.O. has been compromised by the Chinese Communist party
+但是世卫组织已被中国共产党渗透控制了
+
+so we need our national security officials
+所以我们需要我们的国家安全官员们
+
+to be more forthcoming with us
+更多地与我们保持联系
+
+we need executive branch to declassify all the information they have
+我们需要执行部门对他们拥有的所有信息进行解密
+
+and we need to work in concert with our trusted partners to have such an investigation
+我们需要与我们值得信赖的合作伙伴一起进行调查
+
+in particular Partners like Australia
+特别是像澳大利亚这样的合作伙伴
+
+who you remember call Independent investigation
+你还记得他们提出要进行独立调查
+
+and then got a wave of economic sanctions placed on them by the Chinese Communist Par-ty
+然后中国共产党对其施加了一系列的经济制裁
+
+clearly the CCP is trying to hide something
+显然中共正试图隐藏一些东西
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 : [https://twitter.com/repgallagher/status/1396831226200199172?s=24](https://twitter.com/repgallagher/status/1396831226200199172?s=24)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

@@ -1,77 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆台新闻】中国共产党承传马克思主义魔鬼邪体
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1278575/)
+## 闫丽梦博士接受福克斯塔克采访的幕后故事
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1278852/)
 
-#### 撰写： 紫橄榄
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28130051/IMG_20210528_095856_418-1.jpg)马克思共产党国际联盟屠杀人类史，图片截自网络
-**【媒体观奌】**
+**摘要：在2021年5月22日的盖特视频中，郭先生讲述了闫丽梦博士最新的在福克斯塔克·卡尔森 (Tucker Carlson) 访谈的幕后故事。采访中，塔克建议应授予闫博士“美国总统自由勋章”。郭先生认为闫博士已经做的和正在做的事情，远超任何勋章所能带来的荣誉。当病毒真相大白于天下之时，她将会因为勇气和坚毅而赢得世界的尊重和荣誉。**
 
-央视网新闻联播文摘：2021年5月28日，中共中共党主席习近平向中共中央对外联络部主办的世界马克思主义政党理论研讨会致贺信。
+**据郭先生，闫博士与福克斯新闻的每一次采访的背后都是权力的较量，包括藻泽地和美国政府的力量，但是无数有正义感的人们在帮助我们。真相无坚不摧，“以毒灭共”之火已经在全世界点燃。面对这个凶魔的共产党对人类的残杀和毒害，只有我们 —— 新中国联邦和爆料革命，包括路德社、博士军团和全球的农场 —— 敢讲真话。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28140929/Miles_20210522-getter1.srt.txt)
+**闫丽梦博士接受福克斯塔克采访的幕后故事**
 
-习近平表示，马克思主义科学揭示了人类社会发展规律，指明了人类寻求自身解放的道路，推进了人类文明进程，是我们认识世界、改造世界的强大思想武器。将马克思主义作为指导思想，坚持马克思主义基本原理，不断推进马克思主义中国化、时代化、大众化。马克思主义在21世纪的中国开启了伟大复兴的新征程。
+**Miles on Dr. Li-Meng Yan’s Interview with Tucker Carlson of Fox News**
 
-习近平还强调，中国共产党愿同各国马克思主义政党一道，共同推动人类进步事业，推动构建人类命运共同体。推动让马克思主义的真理光芒继续照耀我们的前行之路。
+我相信大家昨天都看了福克斯对闫丽梦科学家，我们的天使的采访，再次震撼了世界。美国和世界新闻媒体中，男的就是这位Tucker Carlson，女的是Oprah Winfrey，[他们]可以说是世界新闻媒体主持人中最牛的。新闻点评最牛的就是他了，Tucker是最厉害的。
 
-**【笔者评论】**
+I believe everybody has watched the Fox News interview with Dr. Li-Meng Yan, our angel, who shocked the world once again. In United States and world media, the most renowned male TV host is Tucker Carlson, and the best-known female TV host is Oprah Winfrey.  We can say that they are the world’s leading news media hosts. And the best commentator would be Tucker. He is the best.
 
-上述讯息为5月27日中共国央视网发表其新闻联播的文字报道，笔者认为中国共产党承传马克思主义魔鬼魂体。为此，笔者仅以三点看法概括如下：
+昨天的访问中除了对科学家充满了更高的敬意之外，说到了[应授予]美国总统勋章。如果科学家拿这个勋章，她在乎这个勋章，她就不会是我们的科学家了，她也不会是我们的天使了。
 
-**一，马克思主义共产主义政党的理论及野心**
+Yesterday during the interview, he showed the utmost respect to Dr. Yan. He even suggested that she should be awarded the Presidential Medal of Freedom. If she cared about medals, Dr. Yan wouldn’t be our scientist. She wouldn’t be our angel.
 
-马克思是德国人，师从撒旦教（魔鬼教）。
+昨天晚上播出以后，好多美国朋友，包括昨天我在海上去见面的那位朋友都是帮助在全世界推广科学家的那三份报告的，真正背后沼泽地的人，也是福克斯老板都要害怕的人。他说你怎么看这个问题？
 
-从《 马克思与撒旦》书中，马克思的目地就是将这秽物《共产党宣言》蓄意的提供给其读者，引领他们走向毁灭之路。其首句“一个幽灵，共产主义的幽灵，在欧洲大陆徘徊……” 显出其邪恶初心。
+After last night’s broadcast, many of my American friends, including the one I went to see on the sea yesterday, are all helping to disseminate Dr. Yan’s three reports (about the CCP virus). They are the real force behind “the swamp”.  They are also the people that the boss of Fox News is afraid of. He asked me, what do you think?
 
-什么是魔鬼（撒旦）？撒旦是一个天使长的名字。就是敬拜上帝（上天，造物主）的天使敬拜团的指挥长。但为 取代上帝的位置，被上帝扔弃到地上。
+我说科学家天使最重要的就是让世界知道真相，减少灭亡。她是有上天的使命的。如果她在乎任何荣誉，任何虚荣，她就会被击垮了。[所以]不可能的，科学家应该得到的荣誉绝对不是个总统勋章[能衡量的]。等冠状病毒真相大白之日，不仅诺贝尔奖，这都是不配她的，[到时候]会有更大的奖励等待着她。那是全世界人民真正会看到一位天使来到了人间，勇敢的，具有不可思议的毅力，还有她这种把天下苍生的生命摆在[自己]生命之上[的高尚]，这才是真正的我们的科学家天使，而不是这些虚伪的虚荣，这种浮夸。大家走着看。
 
-魔鬼撒旦游荡在地上游走寻找可吞噬的灵魂，这就是共产主义国际联盟的信仰！他们的信仰就是要吞噬人类的每一个灵魂，灭失你不跪拜赤纳红魔的身体，让你变成一个红小鬼师从大魔王，用媒体喉舌世代洗脑人类 这世界是无神论，是进化论，让人类世代敬拜共产主义大红魔，认共产党为国和认红贼作父。
+I said topmost priority of our angel scientist is to tell the truth to the world, to reduce the casualties. She has a mission from God. If she was seeking fame and if she had any vanity, she would be defeated. It is impossible that our scientist could receive the recognition she deserves by awarding her the Presidential Medal of Freedom. When the truth about the coronavirus is out in the open, even the Nobel Prize is not sufficient. By then, there will be a much bigger honor waiting for her. By then, the world will see a real Angel on earth with such bravery and incredible perseverance. The way she put the lives of everybody else above her own is true nobility. This is really who our angel scientist is, not hypocritical or pompous. Everybody will see.
 
-这就是为什么中共国在华夏大地上，对所有的不放工产党党旗的教堂，庙堂，寺堂进行强拆的原因。中共对各种敬拜上天的场所和学习都被禁止，中共要强制中国人民把中共的红本毒书放胸前宣誓效忠共产党红魔大王。
+对科学家昨天的采访背后有多少世界上勇敢的有正义的人在背后推动？她的每一次采访都是福克斯上层和背后的老板和他的老板和管理层一次又一次的较量的结果，包括和美国政府 — 这不是开玩笑的。
 
-共产主义国际联盟大魔鬼所行就是偷强杀人类本有的上帝基因的灵魂与肉体。这就是共产主义国际联盟（包括中国共产党）的信仰和最终目的。
+The interview with our scientist (Dr. Yan) yesterday was the result of countless brave and righteous people in the world. Each of her interviews with Fox News has been a result of many power struggles between Fox News Senior Executives, the boss of Fox News, the management team, and also the U.S. government. This is not a joking matter.
 
-**二，中共支持社会主义极权国家灭绝人类的恶行**
+现在每天、每时、每刻“以毒灭共”的效率和全世界的影响力真的像被点燃的干柴一样在全世界燃烧。没有人可以阻止“以毒灭共”，因为毒就是共产党放的。可悲的事情 — 全人类只有我们爆料革命、新中国联邦、科学家、路德访谈、博士军团和我们所有全球的农场在面对这个凶魔的共产党对人类的残杀和毒害，只有我们敢讲真话。
 
-**1，中共支持柬埔寨的红色高棉屠杀柬埔寨1/3人口**
+Every day now, every minute, every second, “spreading the truth of the virus to take down the CCP” is like a wildfire burning around the world. No one can stop it because the CCP has released the virus. The sad thing is that among all the people in the world, only our Whistleblower Movement, our New Federal State of China, our scientist Dr. Yan, Lude media and the PhD team, and all of our farms in the world dare to tell the truth. Only we dare to tell the truth when facing this fierce devil of the CCP as well as its slaughtering and poisoning.
 
-在中共囯共产党党魁毛泽东的支持下，1975年西哈努克亲王推翻了高棉共和国，在夺取政权之后，1976年4月，中共毛泽东全力支持波尔布特软禁西哈努克亲王，中共又倾全国家之力量包括钱财和人力全力支援柬埔寨，将柬埔寨带入共产主义联盟的阵营中，从此，这个南亚小国柬埔寨進入大灾难中。红色高棉在全国各地建立的集中营，把那些知识分子异议人士全部关押都集中营进行强制的劳动生产，全国实行军事管制。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60a91d6693cb4b1e6f9bd7f0](https://gtv.org/getter/60a91d6693cb4b1e6f9bd7f0) (00:05-02:19, 08:12-09:16)
+鸣谢：
+[1] 感谢 Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1266627/](https://gnews.org/zh-hans/1266627/)
+[2] 感谢DD、Liberte 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1267230/](https://gnews.org/1267230/)
 
-红色高棉用一种虚伪的合作社制度，取消了货币与市场。用各种形式进行抢夺私人财产，控制人口和劳动力如奴隶，强行把人民推入一种全民被追殺的疯狂状态，如同中国的文化大革命一样。1977年9月，波尔布特在一次红色高棉会议中讲到3%的柬埔寨人民是反革命份子。与中共党魁毛泽东给中国人民定论5%是反革命分子一样，这是何等的雷同！三年多的時間，三百多万柬埔寨人民被红色高棉屠殺或者在集中营杀死。纪实电影《first they killed my father》展示给世界的就是柬埔寨红色高的人类灭绝罪！当年柬埔寨红色高棉政权是在中共控制与资助下推进共产主义社会极权制度而进行的对柬埔寨人民的大屠杀。
+* * *
 
-直到1978年12月20日，越南军方兵分多路进入柬埔寨，仅仅用了十几天的时间，柬埔寨红色高棉政权被越南军队击溃。柬埔寨才陆续回归到正常的社会生活，柬埔寨百姓及现在的政府至今对越南是“滴水之恩当涌泉相报”之情。
+**整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
+字幕：【XO小粉红】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-当时，美苏两个大国处于冷战阶段，美国因为越南战争败退撤军回国，中国邓小平因为越南解放柬埔寨，而到美国访问美国救助，之后在1979年1月，借越南入侵柬埔寨的机会为由，中共军队入侵越南，这就是1979年中共国的＂自卫反击战＂，实质是中国军队主动入侵越南！邦助共产主义联盟的小弟兄柬埔寨红色高棉政权报越南一箭之仇。这个局部战争进行了一个月，但是中共用几万来自草根家庭的士兵生命毙命于越南，以此换来中共武扬威其紅魔霸权的意淫感。
-
-**2，中共支持印度尼西亚共产党血腥屠杀–排华暴乱**
-
-一九九八年五月，那场血腥屠杀五十万华人的直接原因是中共扩张到印尼的共产主义祸水。当时的印尼有三百万共产党员，时任总统苏加诺与中共勾结，借助于中国共产党的力量支持而执政。中共企图在印尼建立一个完全由共产党控制的政权，支持印尼共产党暴乱夺权，所以中共没有发表任何声明，苏哈托借机上台后清算印尼共产党，成为一个反共产联盟的国家。
-
-如此大规模有组织的极其残暴的排华暴乱，首都雅加达市内有27个地区发生暴乱。暴徒们惨绝人寰的兽行令人发指，令人窒息。整个雅加达恰如人间地狱。华人女被奸杀者数以计，华裔女人被绑到木棍上架到火堆上活活烤死。
-
-这场血腥屠杀震惊世界，美国国防部为离开印尼的美国人提供军事保护和支援。美国安排两架波音747包机，协助侨民撤离。美国政府并认定该事件为种族歧视，批准了部分华人的避难请求，使这部分华人得以以难民身份进入美国。
-
-那一句俗话说“宁做美国狗，不做中国奴”，就是从印尼华人经历那场血腥屠杀安全到达美国后出口而成的心语。
-
-中共还在其他中东国家支持恐怖组织等暗中罪行，暂且不在这里执笔。
-
-**三，中共研制开发生超限生物武器，投放攻击全球，正在进行的人类灭绝罪**
-
-COVID-19就是中共发起的超限生物武器，现在造成1亿多人感染冠状病毒，几百万人死亡。这就是中共的终极目标，扩张全世界，灭绝不接种生物核疫苗不跪也拜红魔大王的人类。
-
-特别是现在用他们用生物武器这个语句描进行全球扩张，全世界真正在争分夺秒的被中共用重金收购收买的主流媒体的超限宣传战，误导了各国全民进行接种，如果再按这个速度，人类将在30年后能存活到1亿口已经就很不错了，这就是工产主义国际联盟魔鬼灭绝人类的目的。
-
-**总之，**马克思主义-共产主义大魔鬼的终极目标永远是不会改变的，他们的终极目标就是消灭人类本属上帝的基因与灵魂。
-
-马克思主义-共产主义的邪恶本性已经在中国共产党的传承中，这让我们看到：如果人类不认清马克思主义-共产主义的邪恶魔性，不被正义力量唤醒，那我们将进入世界末日。
-
-重启人类大觉醒的时代已经到来，在情报爆料正道主义运动的同时，联合世界正义联盟彻底揭秘与歼灭中国共产党以及其共产国际同盟，人类才得以安全得以有安宁之地。
-
-参考链接：https://tv.cctv.com/2021/05/28/VIDE1z1eV1gTV8OsEBrew3sO210528.shtml?spm=C31267.PFsKSaKh6QQC.S71105.21
-
-2021年5月28日
-
-（文章仅代表作者个人观点，与GNEWS平台无关）
-
-0
++1

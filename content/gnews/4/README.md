@@ -1,103 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登政府追究中共释放COVID-19病毒责任，要求对来源作出答复
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1278684/)
+## 【字幕】5/28/2021文贵盖特：为什么躺平币在国内造成这么大的影响？
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/1278857/)
 
-**字幕内容：**
+制作： 【彩虹桥】
 
-**Maria**：
+尊敬的战友们好！已经是5月28号了，今天早上到现在，因为一直在会议中，所以说没有办法录盖特，录的晚了，非常非常的抱歉！
 
-Right now is the first lawmaker to go on the record right here
-现在请第一位在2020年2月就在本节目中
+大家也都知道七哥今天为什么这么忙？现在为啥这么忙？捷报频传，以毒灭共，现在进入了全球的一个共同的，全面对这个新的病毒的一个认知的状态，对灭共也有一个新的认知的状态，可以说以毒灭共，就短短的这几天，完全在全世界变了样，大家也都知道，现在全球轰轰烈烈的，在国内搞得到处要普遍打疫苗，很多战友发信息给我，说七哥到底怎么办？
 
-on this program back in February of 2020
-公开发表意见的议员
+我就是一个建议，能不打，坚决不能打，我就不相信，任何国家和政府他敢说，你打了疫苗后果我承担，打疫苗，让你先写上一切后果你自负，你凭什么打？我打你的疫苗，我凭啥自负啊？你研究的疫苗，我凭什么自负啊？我可以不打啊，而且我相信，包括美国政府和很多国家政府很快会宣布，不打疫苗或不能强迫打疫苗，这是个基本这逻辑，我要给大家回复一下。
 
-and suggest that COVID-19 could have leaked from that Wuhan Lab of Virolo-gy
-他表示COVID-19可能是从武汉病毒学研究所泄露的
+第二个就是关于“躺平币”的事情，这个“躺平币”在国内的影响，大家已经都看到了，就在这个话题影响的所有的各个阶段在躺，什么叫“躺平币”？这个“躺平币”的概念，对共产党的影响它来源于什么？来源于当初共产党对中国人，所有的杀地主、分土地、杀土豪，所谓的分土地，造成的严重的后果，今天大家看上去没关系，事实上中国人开始在思考，我们这么辛苦的劳动，到底我们的日子能不能过得更好？为什么我们不能像西方国家一样，拥有自己的土地？为什么不能像西方一样，我们可以选择政府？为什么不能像西方一样，我们想信什么教就信什么教？为什么我们那么辛苦，却没有办法拥有西方一样，体面的生活和基本的房产和车辆？
 
-Senator Tom Cotton, you’re done great value for our viewers by your honesty
-汤姆·科顿参议员，你的坦诚为我们的观众带来了巨大的价值
+在西方买个车，简直是太简单了，是吧？一年都不换新车都不好意思，一般的人，对不对？车便宜得很，我们的很多同事，头两天换的大众的SUV，换的奔驰SUV，都是二手车，新车4万美元，大众的SUV，然后二手车2万美金，这在中国是不可能的，在中国你要打工、还车贷、买房子。头两天，我们很多国内救出来的战友，去买完房子以后，房子带家具，啥都有40万美元，两三百万人民币一个独立的House，一个Acre的地。还有战友在凤凰城买的房子，大概是80万美元，四个Acre的地,带着所有的家具，豪华的不行了，带游泳池。
 
-and telling it like it is, and thank you for that
-并告诉他们事实的真相，为此感谢你
+所以说中国人在问，为什么这个国家的土地、天空，都被污染了？人心都被污染？可我们就过不上体面的生活，这不是割韭菜，这已经是..大家要搞清楚，也不是简单的奴隶，就中国人但凡你要明白一点，从各个农村，你打打麻将，炒点肉吃，能吃饱馒头，每天你撅着腚，你干10小时，你都是幸福的了，就这，你在家里面，你还要中毒，就这，你还欠人家的钱，就这，孩子娶媳妇全家破产，就这，得一场病，死不了，活不了，死了，埋不起，埋了，那个坟在那搁不起。很多人都明白，“躺平币”不仅给躺平的人要给币，未来，还要给中国人，要让中国很多阶层的人，都要给他“躺平币”，而且这个计划，我受到了太多人的支持，并且很多金融机构都在了解什么情况，我希望未来把“躺平币”发展成一个，向共产党讨债的一个工具，共产党必须把这些年，欺骗老百姓的钱还给中国人，包括当年所谓的杀富豪、杀地主、抢走的土地，必须还给人民。
 
-Do you still stand by what you said
-你现在是否仍然坚持你去年所说的观点？
+这就是我几年来说的，必须把权力还给中国人民，一人一票选举的政府，中国人必须有中国的土地，中国人必须要平分中国所有的地下、地上的资源，中国人必须要有拥有自己的，所有各地、各县、各市的所有的资源，不能被外来者剥夺，包括台湾，香港，因为“躺平币”会唤醒大家，让更多的阶层，更多的领域，他去躺平，所以这个“躺平币”影响巨大…大家别着急，这个需要一段时间，现在我们要把团队建起来，有大量的前期投资，大量的前期准备，而且要有绝对的最高端的人员，包括政治、经济，金融系统。
 
-and what have your learned in the last year about this situation?
-以及过去一年你对这一情况有什么新的认识？
+另外一个，就是我昨天听到的很多战友给我发很多信息，我没法回复，关于说你买什么币，关于大家问我说，现在的喜币，喜Dollar，我可以告诉大家，现在喜币和喜Dollar发展的程度，是超出你们任何人想象的，未来在市场公开交易的时候，你们都会明白了，大家一定要学会用喜美元，自己合法获得KYC的帐号，千万别忘了合法的使用、聪明的使用喜美元帐号，那是你自己的钱包。
 
-Tom Cotton:
+另外最近一周两周，很多战友..国内的国外的很多战友要加入到工程团队，我给大家说一下，我没有办法一一回复。你要加入的，请给我个简历，如果你有在工程队伍的战友们，请你直接跟他联系，咱们欢迎大家，只要是战友的，还有能力的，都可以的，不是战友，有能力的也可以，大家可能都知道了，我们现在给所有的GTV，过去G-News,G-Club,G-Fashion,包括盖特,所有工作过够一定时间的,还有现在工作的战友，我们现在是将给10亿股的GTV的鼓励，这个事情在国内影响非常大。
 
-Yeah, Maria
-是的，玛丽亚
+所以这几天在美国的几大..Facebook，Twitter，YouTube的很多的战友都要离开，因为大家都知道，看到了希望，就是你该拿你的工资拿工资，根据你的过去到六月底截止的时间，根据你的工作的时间，来平均，根据不同的阶层，作出的不同的业绩，直接就给你股票了，GTV的股票，这总共是10亿股，这个投资委员会非常不同意，但最终他们还是同意了，原因非常简单，因为现在GTV要重建，如果GTV不重建的话，咱根本没这个机会，绝对不可能，绝对不可能。
 
-it’s hard to believe it’s been 15 months
-很难相信自从你和我第一次讨论这个问题以来
-since you and I first discussed
-已经过去了15个月
+现在这个10亿股，大概3~4亿股在六月底大概确定下来，发给以前工作在G系列的所有工程师们，然后剩下这一部分，所有的发给未来，最长五年最短三年，也就是GTV上市前，发给所有这些为G系列服务的工程师们，这是个天大的事儿，大家别忘了GTV去年私募的时候，它总共才20亿股，现在拿10亿股来发给了所有的为G系列工作的工程师，大家知道什么意义。
 
-where I think most our Kansas think is a very common sense proposition.
-我们大多数堪萨斯人认为是一个常识性命题
+但是这次新GTV的募股是600亿股，这回拿出10亿股来只奖给，G-News,G-Fashion,G-Club,GTV,盖特和所有过去为G系列工程师们，直接一部分就发到你过去工作的时间，然后一部分发给未来的3~5年的在这里工作的工程师，这是天大的奖励，所以说所有的有意向的兄弟姐妹们，请和你熟悉的工程师和各农场联系，这都是抓得着的事实啊，不是共产党给你所说的，未来的中国梦啊，这不是梦，这是现实，最迟9~10月份就发到你个人的名下去了。
 
-But it surely is a big coincidence
-但这肯定是一个很大的巧合
-
-that this virus started not up at some remote mountain village
-这种病毒起并不是爆发于某个偏远山村
-
-with caves, full of bats
-那里有满是蝙蝠的洞穴
-
-but rather in downtown Wuhan, a city larger than New York,
-而是在武汉市中心，一个比纽约还大的城市
-
-just a few blocks up the road from labs that was researching bat base corona vi-ruses.
-爆发地点离研究蝙蝠冠状病毒的实验室只有几个街区
-
-And since then, every bit of circumstantial evidence to
-从那时起，有大量的间接证据
-
-include evidence that came out in the final days of the Trump Administration
-包括川普政府在最后几天提供的证据显示
-
-that some employees and staff at this lab
-武毒所的一些员工和工作人员
-
-may have had corona virus like symptoms as early as October, September, 2019,
-可能早在2019年的10月、9月就出现了类似冠状病毒的症状
-
-Continues to point to
-这些证据都指出
-these labs as the origin of this virus,
-这些实验室才是这种病毒的来源
-
-not that food market that the Chinese Communist Party used as cover story from the very beginning.
-而不是中共从一开始就用来掩盖事实真相的农贸海鲜市场
-
-That’s why it’s so imperative that the Biden administration hold the Chinese Communist Party accountable
-这就是为什么拜登政府必须追究中共的责任
-
-and demand answers for all of these questions.
-并要求其回答所有这些关于病毒起源的问题
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接:
-
-[https://twitter.com/sentomcotton/status/1396490390212067329?s=24](https://twitter.com/sentomcotton/status/1396490390212067329?s=24)
-
-英听校： 康州盘古农场 – Mike Li
-翻译：康州盘古农场 – Mike Li
-翻译终校：康州盘古农场 – 柯镇恶
-字幕+视频制作：康州盘古农场- 天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+所以说兄弟姐妹们，我不能一一回复，只能在这儿部分回复，谢谢兄弟姐妹们，旁边会议室已经准备好了，我要去开会了。
 
 0

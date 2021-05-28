@@ -1,39 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【深度报道】关于中共国病毒COVID-19疫情情报的系统分析报告6
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1278823/)
+## 【中共国的蜂蜜陷阱】将欧洲与美国“分开”
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1278848/)
 
-作者：22rOn
+```
+新闻来源：意大利晚邮报（Corriere Della Sera）
+发布时间： 2021年5月27日
+翻译整理/简评： 斩草要除根
+```
 
-纽约香草山火来和纽约香草山蚊子强力推荐
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
-#### **声** **明**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28143017/%E6%95%B0%E5%AD%97%E4%B8%BB%E6%9D%83%EF%BC%9A%E6%AC%A7%E6%B4%B2%E5%8F%82%E4%B8%8E%E6%8A%80%E6%9C%AF%E6%88%98%E4%BA%89%E7%9A%84%E8%AE%A1%E5%88%92.jpg)图片来源：盖帝图像
+习近平坚称中欧关系潜力巨大，在一篇讲述新丝绸之路：关于在两大洲之间刚开通的一列货运列车的文章中，一家名为*“Quotidiano del Popolo”*的媒体披露了习近平与两位欧洲领导人之间的通话内容（西班牙的佩德罗 .桑切斯和黑山共和国的米罗.久卡诺维奇）：中欧关系的未来发展以及对特定项目的投资。
 
-本报告旨在阐述中共国自2005年以来开展有关病毒研究、中共国科研教育机构与香港之间的联系，所有信息均来源于互联网，任何人使用检索引擎都能够获取以下所有信息。分析所提出的线索与结论，仅代表本人观点。
+但是如果我们考虑欧亚大陆之间目前外交的真实状况，习近平所说的至少是令人感到奇怪的，因为于去年11月签署的《全面投资协议》现在被暂停了，同样中欧互惠制裁也暗示了一种不太适合贸易关系“加深”的氛围。
+
+事实是，中共国越来越被西方包围，中共病毒大流行和对武汉实验室“意外泄露”的反复指责使习近平的领导层相信历史的钟摆已经回归，标志着对抗冲突随时会发生。而北京现在的外交政策是试图缩小与欧洲之间的差距从而削弱美国。
+
+如果这些尝试未能在整个欧盟范围内取得成功，那么就对个别国家进行出击，因此这似乎更容易触发“蜂蜜陷阱”。习近平知道，将欧洲与敌对国美国分开是不容易的。尽管如此，他试图抓住每一次机会，在中共国看来，欧洲是一个混乱的国家集合体，它们更可能相互争吵而不是合作。与此同时，我们也正在为最坏的情况做准备，那就是中共国与美国的武装对抗。
+
+#### **简评：**
+
+**通过挑拨离间而引发双方不和再到争斗，这是中共国屡试不爽、屡战屡胜的伎俩，在中共国内中国人民被这个恶党操控和玩弄，整个社会充斥的都是仇恨，已无丝毫祥和氛围可言。现在这个共产毒瘤已经侵害到了西方，有的国家被其所害还浑然不知，也有一些国家即使后悔莫及却也为时已晚。**
+（本文只代表译者观点，与Gnews平台无关。）
+
+**新闻原文链接：**
+🔗[La trappola del miele cinese per «separare» l’Europa dagli Stati Uniti](https://www.corriere.it/NewsletterCorriere/america-cina/5f912ab0-bebf-11eb-ba33-0cbbda981d05_nl_AmericaCina.html)
 
 * * *
 
-**附件二** **2016病毒项目基金资助情况**
-
-**本表基于关键词关联检索汇总而成，收集了2019年12月以前2016病毒项目的研究及其涉及的所有资金，部分研究人员姓名未能查找到中文姓名，仅供参考**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28131758/%E5%9B%BE%E7%89%8730-1.png)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132713/%E5%9B%BE%E7%89%8731-6.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132740/%E5%9B%BE%E7%89%8732-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132811/%E5%9B%BE%E7%89%8733-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132825/%E5%9B%BE%E7%89%8734-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132836/%E5%9B%BE%E7%89%8735-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133007/%E5%9B%BE%E7%89%8736-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133155/%E5%9B%BE%E7%89%8737-4.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133222/%E5%9B%BE%E7%89%8738-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133313/%E5%9B%BE%E7%89%8739-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133325/%E5%9B%BE%E7%89%8740-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133339/%E5%9B%BE%E7%89%8741-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133347/%E5%9B%BE%E7%89%8742-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133403/%E5%9B%BE%E7%89%8743-4.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133609/%E5%9B%BE%E7%89%8744-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133621/%E5%9B%BE%E7%89%8745-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133627/%E5%9B%BE%E7%89%8746-1-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133640/%E5%9B%BE%E7%89%8747-3-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133652/%E5%9B%BE%E7%89%8748-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133705/%E5%9B%BE%E7%89%8749-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133716/%E5%9B%BE%E7%89%8750-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133729/%E5%9B%BE%E7%89%8751-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133741/%E5%9B%BE%E7%89%8752-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133754/%E5%9B%BE%E7%89%8753-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133807/%E5%9B%BE%E7%89%8754-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133819/%E5%9B%BE%E7%89%8755-1.png)
-（未完待续）
-
-校对/发稿：飞虹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193555/5_May-1-556x720-1.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+***编辑整理/校对: **Ting Guo*
 
 0
