@@ -1,45 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 约翰霍普金斯教授说，半数的美国人有自然免疫力：&#8217;请忽略CDC指南&#8217;
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1276152/)
+## 【热点播报】亿万富翁卡尔•伊坎Carl icahn准备携重金进入虚拟货币市场
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1277617/)
 
-**作者：**Steve Watson 2021-05-26
+作者：香草山商业组 文锤
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27131455/45865638.png)图片来源：网络
-约翰霍普金斯医学院的一位教授说，人们普遍认为，超过半数的美国人已经对中共冠状病毒产生了天然免疫力，这是”我们当前医疗领导层最大的失败之一”。
-
-马蒂·马卡里博士在最近的一次采访中发表了上述评论，他指出，”自然免疫力是有效的”，诋毁那些不想要疫苗的人是错误的，因为他们已经从病毒中恢复过来了。
-
-马卡里批评”美国历史上最缓慢、最反动、最政治的疾控中心”，因为与疫苗中培养的免疫力相比，没有清楚地传达有关自然免疫力的科学事实。
-
-“关于自然免疫的数据比接种免疫的数据多，因为自然免疫的时间更长，”马卡里强调。
-
-“我们没有看到再次感染，当它们发生时，它们是罕见的。他们的症状是轻微的或无症状的，”教授补充说。
-
-“请忽略疾病预防控制中心的指导，”他敦促并补充说，”过正常的生活，除非你没有接种疫苗，没有感染，在这种情况下，你需要小心。”
-
-“我们必须开始尊重那些选择不接种疫苗而不是妖魔化他们，”马卡里进一步断言。
-
-教授发表上述言论之际，媒体大量宣传，暗示自然免疫力不足，那些不选择接种疫苗的人应该受到社会排斥。
-
-世界卫生组织（WHO）等机构甚至改变了”群体免疫”的定义，消除了中共病毒爆发之前的科学共识，即允许病毒通过种群传播可以实现，并坚持群体免疫力完全来自疫苗。
-
-**评：**除了CDC之外，美国食品和药物管理局（FDA）也声称人体对中共病毒的自然免疫力不存在的，拒绝进行天然免疫力测试并且强调免疫力只能来自疫苗接种，他们的目的无非是为了推行中共病毒疫苗接种，随后推行疫苗护照，这符合大制药公司的利益和全球主义者控制奴役民众的阴谋。马蒂·马卡里教授认为超过半数的美国人已经对中共冠状病毒产生了有效的天然免疫力，拒绝疫苗接种的人不应该被妖魔化和受到社会的排斥。这些真实的声音应该被广为传播，以便唤醒民众不要被中共和及其同伙控制的CDC和FDA误导和愚弄，拒绝接种致人伤亡的中共病毒疫苗这颗定时生物炸弹，让他们明白解决中共病毒大流行唯一途径就是消灭中共病毒的来源——中国共产党，形成全球各国的灭共的民意基础，加快灭共的进程。
-
-##### **原文：**Steve Watson,“ Johns Hopkins Prof. Says Half Of Americans Have Natural Immunity: ‘Please, Ignore The CDC Guidance’”.《Human Are Free》, May 26, 2021.** **[https://humansarefree.com/2021/05/johns-hopkins-half-of-americans-have-natural-immunity.html](https://humansarefree.com/2021/05/johns-hopkins-half-of-americans-have-natural-immunity.html)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：比卡丘
-
-20210527
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-#  
-
-#  
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191310/s2-7.jpg)
 
 
 
-0
+2021年05月27日
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28030416/%E5%9B%BE%E7%89%876-25.png)
+
+84岁的亿万老富翁，卡尔•伊坎昨天对bloomberg 提到，自己要用一种BIG WAY 进入虚拟货币市场，啥叫BIG WAY 呢？他将准备15亿美元投入到这个市场里。这位老先生原来是对虚拟货币持怀疑态度的。2018年，他曾经告诉CNBC说，虚拟货币是荒谬的，他绝对不会碰那个玩意儿。但是就在昨天，周三的时候，卡尔表示，他将考虑有大的动作进入虚拟货币市场，不仅仅是买几个钢镚那么简单，他将投入1.5个Billion 的美元进入到虚拟货币市场，同时他有一段非常类似于文贵先生的论断。
+
+“今天发行的许多加密货币将无法生存，但我们认为，一种或另一种形式的加密货币可能会保留下来。要明确的是，我们从未购买过任何加密货币，但我们正在对其进行研究。”
+
+另外一段他的观点就更绝了，卡尔认为，那些没有储备价值的虚拟货币将被市场淘汰，只有具有某种内在安全价值的虚拟货币能够存活下来……
+
+这不是正好在说明咱们喜币与美元挂钩，并且有黄金储备作为内在价值支撑的虚拟货币，才能够真正屹立于未来世界虚拟货币市场吗？
+
+我简直就要怀疑他的15亿美刀是不是要投入到喜美元和喜COIN里面来！
+
+让我们拭目以待！
+
+消息来源：
+
+https://cointelegraph.com/news/billionaire-carl-icahn-says-he-may-drop-up-to-1-5b-into-crypto/amp?\_\_twitter\_impression=true
+
+https://twitter.com/michael\_saylor/status/1397665847573979138?s=21
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191415/M5-2.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1

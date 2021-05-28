@@ -1,27 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共政策】拜登发表调查中共病毒起源的声明，敦促中共配合调查
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1276212/)
+## 罢免加州州长纽森已有足够的签名，罢免选举可能在11月
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1277776/)
 
-作者：休斯顿星光农场 写作部 文顺
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
-**5月26日，白宫官网发布了拜登总统关于调查中共病毒起源的声明，敦促中共参与一项全面、透明并以证据为基础的国际调查。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27131346/7-24.jpg)*图片来源：网路*
-拜登表示，在本月早些时候已经收到了国家情报界关于病毒起源的最新分析报告，内容包括病毒源于自然还是实验室事故。
+作者：迷迭香 【秘翻Gnews原创组】
+Editor：Shifter
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28050458/ImageGen-1-1.jpeg)图片来源：go
+加州是20个允许选民罢免其州长的州之一。上一次在加州发生这种情况是在2003年，当时格雷-戴维斯（Gray Davis）州长被罢免，由阿诺德-施瓦辛（Arnold Schwarzenegger）格取代。要将州长罢免列入选票，组织者必须收集相当于最近一次州长选举中12%选票的签名–这意味着他们需要至少1,495,709名注册选民的签名。根据州务卿的最终签名核实报告，罢免组织者提交了2,161,349个签名，县选举官员发现1,719,943个签名是有效的，这意味着它们来自登记的选民，并与档案中的选民签名相符。
 
-根据声明，美国情报界已经“围绕两种可能的情景形成共识”，但尚未就这个问题得出明确的结论。拜登已要求情报界收集和分析更多信息，并在90天后向其报告一个更加明确的结论。
+根据罢免程序，罢免选举可能会在11月举行。如果超过50%的选民对第一个问题回答 “是”，纽森（Gavin Newsom）将被罢免，赢得最多选票的候选人将取代他。作为罢免对象的州长不能作为自己的替代者参选。这意味着，如果大多数加州人投票罢免纽森，他将被免职。即使没有任何替代候选人获得超过50%的选票。
 
-为更好的完成这项报告，拜登已经询问了可能需要进一步调查的领域，包括向中共国提出的具体问题。此外，拜登还要求美国国家实验室和政府的其他机构加入到这项工作，并要求情报界让国会充分了解他们的工作。
+目前罢免运动的组织者说，加州人签署请愿书有一系列原因：对纽森处理大流行病和商业限制的失望，不断恶化的住房和无家可归危机，高税收和生活成本，还有在大瘟疫期间，纽森敦促加州人不要与家庭以外的人聚会，而他自己在纳帕谷一家豪华餐厅 “法国洗衣店”(French Laundry)参加集体晚餐，让加州人民极端反感。还有伊隆马斯克（Elon Musk）把工厂搬到德州等等。
 
-拜登表示，在病毒爆发最初的几个月里，美国疾控中心的检查人员（受中共阻拦）未能进入实地，永久性妨碍了对COVID-19起源展开的任何调查。他说：“美国将继续与世界各地志同道合的伙伴合作，敦促中（共）国参与一项全面、透明并以证据为基础的国际调查，并提供所有相关数据和证据。”
+参考链接
 
-新闻来源链接：[https://www.whitehouse.gov/briefing-room/statements-releases/2021/05/26/statement-by-president-joe-biden-on-the-investigation-into-the-origins-of-covid-19/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/05/26/statement-by-president-joe-biden-on-the-investigation-into-the-origins-of-covid-19/)
+[There Are Enough Signatures To Trigger A Recall Of Gov. Gavin Newsom. Here’s What You Need To Know.](https://www.capradio.org/articles/2021/05/06/signatures-are-in-what-you-need-to-know-about-the-gavin-newsom-recall-effort/)
 
-编辑：文顺 校对：Helen 发稿：爱丽丝
-
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
-
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
 0

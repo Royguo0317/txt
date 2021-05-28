@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家：福奇与武汉实验室功能增强顾问小组的头条新闻
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1276268/)
+## 最新数据显示，菲律宾增加了南海巡逻力度
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1277710/)
 
-翻译: 飞利普 | 校对: 烟波浩淼 | 审核：断播
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27142744/%E5%8A%9F%E8%83%BD%E5%A2%9E%E5%BC%BA%E9%A1%BE%E9%97%AE%E5%B0%8F%E7%BB%84.jpg)视频会议
-#### 《国家脉动》独家披露，安东尼·福奇（Anthony Fauci）博士否认了他所在的联邦机构与武汉病毒研究所之间的合作，就是他在一次活动上与该研究人员一起发言，该研究人员就“功能增强”研究向备受争议的实验室提供建议。
+#### 文章撰写:【默凡】
 
-国家过敏和传染病研究所主任与琳达·赛义夫（Linda Saif）教授一起在美国免疫学家协会2021年5月的[活动](https://www.immunology2021.org/session/covid-19-and-the-science-of-pandemicslessons-learned/)“网上免疫学”上发表了讲话。尽管福奇试图将国家过敏和传染病研究所基金与武汉病毒研究所拉开距离，但他与赛义夫的交往增加了[一长串](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)证明并非如此的[证据](https://gnews.org/zh-hans/1257404/)。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28042021/106857044-1616309517448-gettyimages-1266585217-vcg111295384079.jpeg)
 
-赛义夫于2017年应邀作为特邀嘉宾在武毒所“[第二届中美新兴感染、实验室安全和全球健康安全挑战研讨会](http://english.whiov.cas.cn/Exchange2016/International_Conferences2017/201712/t20171215_187977.html)”上发表演讲。根据武汉实验室的会议总结，该届主办了五场学术会议，首先是“功能增强研究、基因编辑、靶向和传递以及其他新的生物技术”。
+CNBC新闻网5月28日报道：根据船舶追踪数据，并与中国海岸警卫队建立了更紧密的联系。
 
-赛义夫和福奇的小组，对中共病毒和流行病学的经验教训，也遵循了自1985年以来国家过敏和传染病研究所资助赛义夫[研究](https://reporter.nih.gov/search/EuETkToDb0eQ1P30v4UVyQ/projects?fy=1985)的悠久历史。她总共收到了来自国家卫生研究院的56笔拨款，其中43笔来自福奇的国家过敏和传染病研究所。
+亚洲海事透明倡议组织（AMTI）在本周表示，从3月1日至5月25日，来自菲律宾的13艘执法或军舰至少对有争议的南沙群岛和士嘉堡浅滩周围的水域进行了57次访问，这说明菲律宾最近在南中国海进一步加强了巡逻。
 
-专家组的发现是在参议员兰德·保罗(Rand Paul)和试图将国家过敏和传染病研究所与武汉实验室拉开距离的福奇之间进行激烈[交锋](http://www.christianitydaily.com/articles/11861/20210514/sen-rand-paul-says-fauci-could-be-culpable-for-entire-covid-19-pandemic.htm)之后。
+报告称:“这比过去10个月有了大幅增长……在过去的10个月里，共有3艘船只7次访问有争议的岛礁。”它指出，菲律宾“近年来从未见过”这种巡逻力度的增强。
 
-除了在国家卫生研究院和武汉病毒研究所之间建立工作关系之外，现在该站点上[已删除](https://gnews.org/zh-hans/1257404/)的帖子还详细描述了带有位于武汉的实验室进行的功能增强研究特点的研究。然而，福奇向保罗参议员[坚称](https://www.axios.com/fauci-rand-paul-wuhan-lab-coronavirus-eff1bb08-f6c7-4d63-b170-c49e87c2e3dd.html)：“国家卫生研究院从来没有，现在也没有资助武病毒研究所的功能增强研究”。
+南海问题一直是亚洲地区的热点问题，涉及一些国家与中国的领土争端。菲律宾、马来西亚和越南等国家宣称对部分水域拥有主权，但中共国认为包括斯普拉特利群岛和斯卡伯勒浅滩在内的大部分地区是其领土的一部分。
 
-原文作者：娜塔莉·温特斯(NATALIE WINTERS)
-发布时间：2021年5月25日
-原文链接：[https://thenationalpulse.com/exclusive/fauci-cohosted-panel-with-wuhan-gof-adviser/](https://thenationalpulse.com/exclusive/fauci-cohosted-panel-with-wuhan-gof-adviser/)
+菲律宾似乎决心维护自己的主权，但报告称，与中共国“近乎永久的海岸警卫队和民兵存在”的强度相比，该国的巡逻“苍白无力”。
 
-0
+“菲律宾是否会继续其目前的巡逻力度，以及中共国可能如何反应，都不清楚，”报告称。“不过，尽管马尼拉方面加大了公开抗议力度，并增加了其在白灵礁(Whitsun Reef)和萨比娜浅滩(Sabina Shoal)的存在感，似乎在驱散中共国船只方面取得了一些成功，但它并没有影响在争议水域作业的中共国船只的总数。”
+
+参考文章：[The Philippines has dramatically boosted South China Sea patrols, data shows](https://www.cnbc.com/2021/05/28/philippines-dramatically-boosted-south-china-sea-patrols-data-shows.html)
+
+本文仅代表作者本人观点，不代表Gnews平台
+
+* * *
+
+*排版发布：日本东京方舟农场 文柯Miles*
+
++1

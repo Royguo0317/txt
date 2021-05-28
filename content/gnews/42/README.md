@@ -1,88 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（三十）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1275945/)
+## 【新闻简评】是谁不让我们吃饱饭？
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1277402/)
 
-作者：纽约香草山信息部 6zero4
+作者：喜马拉雅东京樱花团 / 盐和光
+![](https://lh5.googleusercontent.com/0tx5Xa6zkLZcNln8QlN7m-lK1DEj0OPRbbUQESN2HsAHPK9-VqaFhIFwcNTBoNd9eEaE76MyFOZNqOOaLVug7CZh3cWZpVR5CTDX-nuu9wYJ1PyUEwLdz4hPKoVQ_vO55pWvqnVW)
+5月22日消息“共和国勋章”获得者中国工程院院士、国家杂交水稻工程技术研究中心主任、湖南省政协原副主席袁隆平，因多器官功能衰竭，于2021年5月22日13时07分，在长沙逝世，享年91岁，愿逝者安息。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+本人在整理这篇文时没有对逝者不敬，愿逝者安息，基于墙内纷纷扰扰千篇一律的纪念哀悼和宣传，我想必需要写一篇文章来回应，尊重基本人性和事实，稍微加点反思，是最好的缅怀。举国都不知道在哀悼些什么，这是举国的悲哀。袁隆平让大家吃饱了饭，可就是有些所谓的人还在怀念那个让大家吃不上饭的人？
 
+1980年7月，年已76岁的藤原随日本民间友好访华团到黑龙江省方正县参观，被中国政府和人民的人道主义精神深深感动。但仍对日本侵略者给中国人民造成的伤害感到忏悔，希望将自己创造的水稻种植技术传授给当地农民，以此向中国人民谢罪。在方正县德善乡进行小面积水稻种植实验，平均亩产347.5公斤。1982年在方正县部分乡镇进行大面积示范，平均亩产达400公斤以上。此后藤原式栽培法在中华人民共和国北方13个省、直辖市、自治区获得大面积应用。1989年，藤原获得中华人民共和国国家外国专家局颁发的中华人民共和国成立40周年纪念特别荣誉证书。藤原先生向来生活朴素，吃苦耐劳在中国时每天的饭菜，都是简单的一菜一汤。在试验田大获成功后，他依然低调简朴，从未向中国要过一分钱，也没有申请过一项专利，唯一的愿望就是死后能够将自己骨灰的一部分葬于方正县。于是，在藤原逝世后，为实现其遗愿，中国政府将其骨灰的一半埋葬在方正县的中日友好园林内，并在园林内树立了“藤原长作纪念碑”。
 
+世界第一大米出口国印度，世界第二大米出口国越南，世界第三大米出口国泰国，世界第四大米出口国缅甸；世界第一大米进口国中国。越南领土面积只有我国1/30，人口却近亿，为何还有大量粮食出口？印度国土面积不到中国的三分之一，人口多达13亿，却是粮食出口国；美国不到三百万人从事农业，竟然可以满足全球近二十亿人口需求。一个国家有没有粮食吃关键在于政治经济体制以及社会自由度，在于不乱折腾，而不在于有没有“袁隆平”。
 
-5月25日塞林博士的2连推：
+首次成功的水稻杂交是由美国农业家Henry Beachell在1963年于印度尼西亚完成的。Henry Beachell因此被学术界称为“杂交水稻之父”，并由此获得1996年的世界粮食奖。种子很难获得吗？如果种子是吃饱的单一要素，朝鲜还能饥荒吗？哪里不尊重个人私有产权个人私权利，哪里就没有市场经济，没有市场经济你啥种子也不灵。
 
-第1推，有人更改抑或黑客了美国NIH出版物数据库，给彼得·打杂客的生态健康联盟加上了一篇疑似描述“COVID-19病毒来自实验室”的文章。并贴上这个事情发生的网页截图。
+土匪每日背着贞节牌坊在奔跑，扯上爱国爱党的大旗作为挡箭牌，什么贼人都能够堂而皇之的做任何丧尽天良的生意，只需政治需要，在土匪的虚伪包装下，红太阳、伟人、领袖……这样的贼人比比皆是，唯有新中国联邦可以拯救这个遍地谎言的民族！
 
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
+*校对：喜马拉雅东京樱花团 / 東洋武士*
 
-> Someone has altered, maybe hacked, the U.S. National Institutes of Health publications results database for Peter Daszak of the EcoHealth Alliance to include an article saying [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) was made in the laboratory. [pic.twitter.com/iC9QW7k5j4](https://t.co/iC9QW7k5j4)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397051524174553089?ref_src=twsrc%5Etfw)
+*责任编辑：喜马拉雅东京樱花团 /*
 
-
-
-第2推，附上塞林博士自己昨天接受Rumble媒体深度采访的视频，讨论COVID-19病毒起源，以及CCP的生物战计划和CCP-PLA对美国病毒研究计划的广泛渗透。
-
-
-
-> A new in-depth interview of Dr. Lawrence Sellin discussing the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw), the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s biological warfare program and the CCP's and People's Liberation Army's massive infiltration of U.S. virus research programs.
->  [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaPandemic](https://twitter.com/hashtag/CoronaPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wSsDlwnqup](https://t.co/wSsDlwnqup)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397111084696449028?ref_src=twsrc%5Etfw)
-
-
-
-5月26日塞林博士的3连推：
-
-第1推，转发Joe Hoft 昨天发表在Gateway Pundit上的一篇文章“武汉大学动物实验室是不是COVID-19疫情的源头？”证据显示COVID-19疫情是从武汉大学P3动物实验室开始的，其到底是PLA此举的肇事者还是替罪羊呢？并致谢COVID-19侦探ann和加拿大多伦多枫叶农场。
-
-
-
-> Evidence says [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) pandemic may have started in the Wuhan University’s ABSL-3 animal laboratory. But is it the perpetrator or the scapegoat for a Chinese People's Liberation Army operation?
-> (COVID-19 detectives [@ann95657173](https://twitter.com/ann95657173?ref_src=twsrc%5Etfw) & [@TorontoFarmEN](https://twitter.com/TorontoFarmEN?ref_src=twsrc%5Etfw) thanked)[https://t.co/tkxc8eMykf](https://t.co/tkxc8eMykf)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397170798947979274?ref_src=twsrc%5Etfw)
-
-
-
-第2推，转发印度主流新闻媒体GoaChronicle 总编Savio Rodrigues2天前采访塞林博士后，发表的一篇文章“与塞林博士一起揭开冠状病毒起源之谜”，讲述COVID-19起源和中共生物战计划，以及独特的印度病毒变种问题。
-
-
-
-> A major Indian outlet, the Goa Chronicle, interviews Dr. Lawrence Sellin about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw), China's biological warfare program and the unique aspects of the Indian variant.[https://t.co/eJ6h03SRnD](https://t.co/eJ6h03SRnD)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 25, 2021](https://twitter.com/LawrenceSellin/status/1397248172410511362?ref_src=twsrc%5Etfw)
-
-
-
-第3推，转发“战戈鹰Tuan“战友的中文推：来自中共内部的信息（尚在验证中），即南京的PLA东部战区发现COVID-19病毒骨架ZC45和ZXC21，以及COVID-19在2019年初被给到WIV，由单超带队在灵长类动物身上进行实验，并附上塞林博士2天前接受Rumble媒体采访谈到此点时的视频。第一步，证明COVID-19来自实验室，我们做到了；第二与第三步，证明CCP病毒是CCP生物战计划的一部分，以及CCP-PLA已经深度渗透到美国病毒研究计划，并将这两种情况都揭露出来，我们正在做。
-
-
-
-> Step 1. Prove that [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) came from a laboratory. We did. 
-> Steps 2 and 3. Prove that this [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) is part of the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s biowarfare program and that the CCP and the People's Liberation Army have deeply infiltrated U.S. virus research programs and expose them both. 
-> We will. [https://t.co/v9Jxi91sHc](https://t.co/v9Jxi91sHc)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 27, 2021](https://twitter.com/LawrenceSellin/status/1397747063463501830?ref_src=twsrc%5Etfw)
-
-
-
-美国NIH出版物数据库里发上了一件离奇的事情，不知道是有人更改抑或被黑客了，让彼得·打杂客的生态健康联盟旗下加上了一篇疑似描述“COVID-19病毒来自实验室”的文章。打杂客可是和CCP科学家打得最火热、勾结得最深层的美国科学家，可谓是美国科学家里面对CCP的病毒自然起源最坚决、最铁杆的支持者，其生态健康联盟更是美国科研经费拨往中共国武毒所等科研机构的桥头堡。在美国主流媒体纷纷转向，美国科学界重量级人物福奇和柯林斯等接连反水的情势下，打杂客肯定如坐针毯，内心无比煎熬，一世英名如坠深渊不说，求生欲望才是其当下最紧要的事情，因此自己更改数据库加上这篇文章的可能性更大，也更合乎逻辑，要么谁吃饱了撑着去黑客数据库，以帮你臭名昭著的打杂客解围？
-
-塞林博士衷心地感谢推特上跟随自己挖掘CCP病毒真相线索和证据的新中国联邦战友们，赞扬他们在短短几个月里所做的事情比美国整个情报界一年做的还要多还要好，并阶段性地总结了COVID-19病毒溯源的结论：第一步，证明COVID-19来自实验室，我们已经做到了；第二与第三步，证明CCP病毒是CCP生物战计划的一部分，以及CCP-PLA已经深度渗透到美国病毒研究计划，并将这两种情况都揭露出来，我们正在做。可见病毒真相揭秘收网进度可喜！
-
-塞林博士带领COVID-19侦探们，亦即新中国联邦战友们取得的阶段性成果，有目共睹，举世震惊，让专业的美国情报界面子上挂不住了，拜登总统更是如鲠在咽，再也沉不住气了，因此昨天立即下令美国情报界18个官方情报机构在90天内，必须拿出阐明病毒起源真相的报告，为查明病毒真相立下了军令状，为疫情的控制乃至终结瞄准了方向，那就是CCP！
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
+*发布：喜马拉雅东京樱花团 /老黑*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22044513/%E4%BA%8C%E7%BB%B4%E7%A0%81-2.jpg)
++3
