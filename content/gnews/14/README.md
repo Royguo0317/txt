@@ -1,36 +1,103 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】英国BBC女主播接种新冠疫苗后死亡
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1278430/)
+## 【香草诗词汇】诗二首
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1278682/)
 
-作者：纽约香草山媒体部  天下大同
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+作者：纽约香草山健身部 澄道
 
 
 
-英国BBC电台节目主持人Lisa Shaw在接种新冠疫苗后，大脑出血，身体出现血栓，于上周五（5月21日）在纽卡斯尔的皇家维多利亚医院去世。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-![]()![](https://media.discordapp.net/attachments/824587088309649429/847680593076420608/image0.jpg)
 
-纽卡斯尔的高级验尸官Karen Dilks表示，他将对Lisa Shaw的死因进行调查，并列出了“阿斯利康COVID-19疫苗接种的并发症”作为考虑因素。
 
-Shaw女士的家人在一份声明中说：“Lisa在接受阿斯利康疫苗的一周后就出现了严重的头痛，几天后病情加重。”
+**政治化**
 
-重症监护小组发现她的头部有血块和出血，并进行了治疗。“不幸的是，在家人的陪伴下，她在星期五下午去世了。我们的生活被毁了，生活中有一个Lisa的洞，永远无法填补。我们将永远爱着她，想念她。”
+-各行各业政治化-
+-国内国外政治化-
 
-牛津-阿斯利康疫苗的已知副作用是会形成一种独特的血凝块，它们被称为脑静脉窦血栓形成（CVST）。在英国近3500万剂阿斯利康疫苗接种案例中，已有332例血栓病例和58例死亡，接种疫苗后形成血栓风险为100,000/1。但是对于个人来说，发生了就会死亡，对死者来说，就是100%。
+听党话
+感党恩
+是娱乐文艺界的
+政治化
 
-现在，世界各国政府都在大力推广疫苗，但他们从来不告诉民众接种疫苗的风险。如今，中共国也在大力地推广疫苗，而且被无知的民众疯抢。看到这些场景，让人感到心痛。我们现在只能祈求尽早查明病毒来源的真相，让大众早日明白，新冠病毒是生化武器，不是来源自然，疫苗不可能有效。只希望能唤醒更多的人，免受病毒、疫苗的伤害。
+学党史
+做党人
+是舆论媒体界的
+政治化
 
-参考阅读：
+先
+规范国人出行的
+绿码（健康码）
+奴隶化就是政治化
 
-[Lisa Shaw death: BBC presenter had blood clots after AstraZeneca jab, family says](https://www.theguardian.com/media/2021/may/27/bbc-presenter-lisa-shaw-died-of-blood-clot-after-astrazeneca-jab-family-says)
+后
+强种天下规范世人自由
+疫苗联盟（疫苗护照）
+灭白化就是政治化
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+穿你衣（八路装）
+唱你歌（党啊 母亲）
+是伪儒释道界的
+政治化
+
+辈亲
+娘亲不如党亲
+是伪科学 基督教 天主教界的
+政治化
+
+政治化就是
+手段假大空
+源头骗偷抢
+
+政治化就是
+使命断我脉
+目的灭我族
+
+有人有世有邪灵
+无业无界无政治
+
+* * *
+
+**最好开始**
+
+-最坏的年代 最好的开始-
+
+五六七零年代
+文功
+民国精英
+武卫
+国人国粹
+何止是浩劫十载
+
+八九六四邪时
+绑架俄爹
+骗保老什
+屠城戮民
+泯灭人性
+岂止是断传截承
+
+天下苦秦久
+苍生痛“共”深
+
+一灯慧者除暗
+一智觉者灭愚
+
+生武投毒一
+爆料革命见
+最坏年代暗
+更好开始灯
+
+这是最坏的年代
+我们没有权利萎缩
+没有资格退让
+因为我们有幸值遇了
+最好的开始
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
 
 编辑/校对/发稿：Irene木木
 
@@ -48,7 +115,7 @@ Shaw女士的家人在一份声明中说：“Lisa在接受阿斯利康疫苗的
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 
 

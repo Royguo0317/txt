@@ -1,167 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议员迈克·加拉格尔（Mike Gallagher）我们必须对情报进行解密流行病毒起源
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1278495/)
+## 【拆台新闻】中国共产党承传马克思主义魔鬼邪体
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1278575/)
 
-**字幕内容：**
-Rep. Mike Gallagher
-众议员迈克·加拉格尔
+#### 撰写： 紫橄榄
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28130051/IMG_20210528_095856_418-1.jpg)马克思共产党国际联盟屠杀人类史，图片截自网络
+**【媒体观奌】**
 
-100%, we don’t have access to the lab records
-100%, 我们没有权限访问实验室记录
+央视网新闻联播文摘：2021年5月28日，中共中共党主席习近平向中共中央对外联络部主办的世界马克思主义政党理论研讨会致贺信。
 
-The CCP prevaricates they lied
-中国共产党推诿，他们撒谎
+习近平表示，马克思主义科学揭示了人类社会发展规律，指明了人类寻求自身解放的道路，推进了人类文明进程，是我们认识世界、改造世界的强大思想武器。将马克思主义作为指导思想，坚持马克思主义基本原理，不断推进马克思主义中国化、时代化、大众化。马克思主义在21世纪的中国开启了伟大复兴的新征程。
 
-or trying to deflect blame
-或试图逃避责任
+习近平还强调，中国共产党愿同各国马克思主义政党一道，共同推动人类进步事业，推动构建人类命运共同体。推动让马克思主义的真理光芒继续照耀我们的前行之路。
 
-They’ve not been a cooperative partner since the start of this
-自从大流行开始他们就不是合作伙伴
+**【笔者评论】**
 
-and the fact that they are trying to place blame on America
-而且事实上，他们试图将责任赖上美国
+上述讯息为5月27日中共国央视网发表其新闻联播的文字报道，笔者认为中国共产党承传马克思主义魔鬼魂体。为此，笔者仅以三点看法概括如下：
 
-just show you, shows you the depths of their depravity
-这就告诉你他们堕落的深度
+**一，马克思主义共产主义政党的理论及野心**
 
-so we have to declassify the intel
-所以我们必须解密情报
+马克思是德国人，师从撒旦教（魔鬼教）。
 
-we have in order to get to the bottom of this
-我们必须要深挖到底
+从《 马克思与撒旦》书中，马克思的目地就是将这秽物《共产党宣言》蓄意的提供给其读者，引领他们走向毁灭之路。其首句“一个幽灵，共产主义的幽灵，在欧洲大陆徘徊……” 显出其邪恶初心。
 
-we know we’re not going to get the cooperation
-我们知道我们不会得到合作
+什么是魔鬼（撒旦）？撒旦是一个天使长的名字。就是敬拜上帝（上天，造物主）的天使敬拜团的指挥长。但为 取代上帝的位置，被上帝扔弃到地上。
 
-from an increasingly hostile competitor
-来自日益敌对的竞争对手
+魔鬼撒旦游荡在地上游走寻找可吞噬的灵魂，这就是共产主义国际联盟的信仰！他们的信仰就是要吞噬人类的每一个灵魂，灭失你不跪拜赤纳红魔的身体，让你变成一个红小鬼师从大魔王，用媒体喉舌世代洗脑人类 这世界是无神论，是进化论，让人类世代敬拜共产主义大红魔，认共产党为国和认红贼作父。
 
-in the form of the Chinese Communist party
-以中国共产党的形式
+这就是为什么中共国在华夏大地上，对所有的不放工产党党旗的教堂，庙堂，寺堂进行强拆的原因。中共对各种敬拜上天的场所和学习都被禁止，中共要强制中国人民把中共的红本毒书放胸前宣誓效忠共产党红魔大王。
 
-it is incumbent upon us to get the information out there
-我们有责任从那里获取信息
+共产主义国际联盟大魔鬼所行就是偷强杀人类本有的上帝基因的灵魂与肉体。这就是共产主义国际联盟（包括中国共产党）的信仰和最终目的。
 
-America deserves an answer,
-美国应该得到一个答案
+**二，中共支持社会主义极权国家灭绝人类的恶行**
 
-the world deserves an answer
-世界应该得到一个答案
+**1，中共支持柬埔寨的红色高棉屠杀柬埔寨1/3人口**
 
-we have to get to the bottom of this pandemic
-我们必须深入了解这场大流行
+在中共囯共产党党魁毛泽东的支持下，1975年西哈努克亲王推翻了高棉共和国，在夺取政权之后，1976年4月，中共毛泽东全力支持波尔布特软禁西哈努克亲王，中共又倾全国家之力量包括钱财和人力全力支援柬埔寨，将柬埔寨带入共产主义联盟的阵营中，从此，这个南亚小国柬埔寨進入大灾难中。红色高棉在全国各地建立的集中营，把那些知识分子异议人士全部关押都集中营进行强制的劳动生产，全国实行军事管制。
 
-and there is a very complicated and troubling story
-而且有一个非常复杂和令人不安的故事
+红色高棉用一种虚伪的合作社制度，取消了货币与市场。用各种形式进行抢夺私人财产，控制人口和劳动力如奴隶，强行把人民推入一种全民被追殺的疯狂状态，如同中国的文化大革命一样。1977年9月，波尔布特在一次红色高棉会议中讲到3%的柬埔寨人民是反革命份子。与中共党魁毛泽东给中国人民定论5%是反革命分子一样，这是何等的雷同！三年多的時間，三百多万柬埔寨人民被红色高棉屠殺或者在集中营杀死。纪实电影《first they killed my father》展示给世界的就是柬埔寨红色高的人类灭绝罪！当年柬埔寨红色高棉政权是在中共控制与资助下推进共产主义社会极权制度而进行的对柬埔寨人民的大屠杀。
 
-as I mentioned at the start of this
-如我在开始的时候提到的
+直到1978年12月20日，越南军方兵分多路进入柬埔寨，仅仅用了十几天的时间，柬埔寨红色高棉政权被越南军队击溃。柬埔寨才陆续回归到正常的社会生活，柬埔寨百姓及现在的政府至今对越南是“滴水之恩当涌泉相报”之情。
 
-about how your taxpayer dollars went to fund this research
-关于美国纳税人资金如何为这项研究提供资金
+当时，美苏两个大国处于冷战阶段，美国因为越南战争败退撤军回国，中国邓小平因为越南解放柬埔寨，而到美国访问美国救助，之后在1979年1月，借越南入侵柬埔寨的机会为由，中共军队入侵越南，这就是1979年中共国的＂自卫反击战＂，实质是中国军队主动入侵越南！邦助共产主义联盟的小弟兄柬埔寨红色高棉政权报越南一箭之仇。这个局部战争进行了一个月，但是中共用几万来自草根家庭的士兵生命毙命于越南，以此换来中共武扬威其紅魔霸权的意淫感。
 
-that could have been the reason this whole thing started in first place
-这可能是整个事情开始出现的原因
+**2，中共支持印度尼西亚共产党血腥屠杀–排华暴乱**
 
-Jon Scott (Fox News host)
-乔恩·斯科特（福克斯新闻主持人）
+一九九八年五月，那场血腥屠杀五十万华人的直接原因是中共扩张到印尼的共产主义祸水。当时的印尼有三百万共产党员，时任总统苏加诺与中共勾结，借助于中国共产党的力量支持而执政。中共企图在印尼建立一个完全由共产党控制的政权，支持印尼共产党暴乱夺权，所以中共没有发表任何声明，苏哈托借机上台后清算印尼共产党，成为一个反共产联盟的国家。
 
-So listen to Jen Psaki the White House spokeswoman
-因此，请听白宫发言人詹·普萨基（Jen Psaki）
+如此大规模有组织的极其残暴的排华暴乱，首都雅加达市内有27个地区发生暴乱。暴徒们惨绝人寰的兽行令人发指，令人窒息。整个雅加达恰如人间地狱。华人女被奸杀者数以计，华裔女人被绑到木棍上架到火堆上活活烤死。
 
-talking about what they see as what needs to happen here listen
-谈论他们认为这里需要发生的事情。 听
+这场血腥屠杀震惊世界，美国国防部为离开印尼的美国人提供军事保护和支援。美国安排两架波音747包机，协助侨民撤离。美国政府并认定该事件为种族歧视，批准了部分华人的避难请求，使这部分华人得以以难民身份进入美国。
 
-Jen Psaki (White House spokeswoman)
-詹·普萨基 (白宫发言人)
+那一句俗话说“宁做美国狗，不做中国奴”，就是从印尼华人经历那场血腥屠杀安全到达美国后出口而成的心语。
 
-I will say that our view continues to be
-我要说，我们的观点仍然是
+中共还在其他中东国家支持恐怖组织等暗中罪行，暂且不在这里执笔。
 
-that there needs to be an independent, transparent investigation
-需要进行一个独立，透明的调查
+**三，中共研制开发生超限生物武器，投放攻击全球，正在进行的人类灭绝罪**
 
-and that needs to happen with the cooperation
-这需要通过合作来实现
+COVID-19就是中共发起的超限生物武器，现在造成1亿多人感染冠状病毒，几百万人死亡。这就是中共的终极目标，扩张全世界，灭绝不接种生物核疫苗不跪也拜红魔大王的人类。
 
-and data provided from the Chinese government
-和从中共国政府提供的数据
+特别是现在用他们用生物武器这个语句描进行全球扩张，全世界真正在争分夺秒的被中共用重金收购收买的主流媒体的超限宣传战，误导了各国全民进行接种，如果再按这个速度，人类将在30年后能存活到1亿口已经就很不错了，这就是工产主义国际联盟魔鬼灭绝人类的目的。
 
-Jon Scott
-乔恩·斯科特
+**总之，**马克思主义-共产主义大魔鬼的终极目标永远是不会改变的，他们的终极目标就是消灭人类本属上帝的基因与灵魂。
 
-but cooperation and data is not forthcoming
-但是合作和数据并不会出现
+马克思主义-共产主义的邪恶本性已经在中国共产党的传承中，这让我们看到：如果人类不认清马克思主义-共产主义的邪恶魔性，不被正义力量唤醒，那我们将进入世界末日。
 
-as you have said
-就如你所说的
+重启人类大觉醒的时代已经到来，在情报爆料正道主义运动的同时，联合世界正义联盟彻底揭秘与歼灭中国共产党以及其共产国际同盟，人类才得以安全得以有安宁之地。
 
-Rep. Mike Gallagher
-众议员迈克·加拉格尔
+参考链接：https://tv.cctv.com/2021/05/28/VIDE1z1eV1gTV8OsEBrew3sO210528.shtml?spm=C31267.PFsKSaKh6QQC.S71105.21
 
-yeah I don’t think we should make
-是呀，我不认为我们应该使我们
+2021年5月28日
 
-how we proceed contingent
-如何进行视情况而定
-
-upon the largesse of the Chinese Communist party
-依赖在中国共产党的慷慨上
-
-Because we’ll be waiting a heck of a long time for that to happen
-因为我们为了做到这一点要等很长时间
-
-so we need to take bolder steps to investigate this
-所以我们需要采取更大胆的步骤来对此进行调查
-
-nor can we rely upon the Integrity of the W.H.O.
-我们也不能依靠世卫组织的廉正
-
-I hate to say it
-我讨厌这么说
-
-but the W.H.O. has been compromised by the Chinese Communist party
-但是世卫组织已被中国共产党渗透控制了
-
-so we need our national security officials
-所以我们需要我们的国家安全官员们
-
-to be more forthcoming with us
-更多地与我们保持联系
-
-we need executive branch to declassify all the information they have
-我们需要执行部门对他们拥有的所有信息进行解密
-
-and we need to work in concert with our trusted partners to have such an investigation
-我们需要与我们值得信赖的合作伙伴一起进行调查
-
-in particular Partners like Australia
-特别是像澳大利亚这样的合作伙伴
-
-who you remember call Independent investigation
-你还记得他们提出要进行独立调查
-
-and then got a wave of economic sanctions placed on them by the Chinese Communist Par-ty
-然后中国共产党对其施加了一系列的经济制裁
-
-clearly the CCP is trying to hide something
-显然中共正试图隐藏一些东西
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 : [https://twitter.com/repgallagher/status/1396831226200199172?s=24](https://twitter.com/repgallagher/status/1396831226200199172?s=24)
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（文章仅代表作者个人观点，与GNEWS平台无关）
 
 0

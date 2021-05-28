@@ -1,39 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【深度报道】关于中共国病毒COVID-19疫情情报的系统分析报告6
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1278823/)
+## 拜登将任命的驻印度大使是亲共派
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1278863/)
 
-作者：22rOn
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28143106/capture-36.jpg)图片来自：moneyinc.com
+埃里克·加塞蒂（Eric Garcetti）目前为洛杉矶市市长，是乔·拜登（Joe Biden）即将提名的驻印度大使。
 
-纽约香草山火来和纽约香草山蚊子强力推荐
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
-#### **声** **明**
+据国家脉动网(The National Pulse)近日的报道揭露，加赛蒂和中共颇具影响力的统战部（UFWD）有着悠久的合作历史。
 
-本报告旨在阐述中共国自2005年以来开展有关病毒研究、中共国科研教育机构与香港之间的联系，所有信息均来源于互联网，任何人使用检索引擎都能够获取以下所有信息。分析所提出的线索与结论，仅代表本人观点。
+报道指出，中共在美政坛耕耘多年，花费几十亿美元巨资来消除反共政客，并试图通过控制某些人来影响美国对中共采取行动的政策，并找出偏向中共立场的人。加赛蒂就是其中之一。
+
+中华全国总工会副秘书长张鹤强写过一篇文章，谈到了加塞蒂对中共领导人的赞美之词。文章提到，在加赛蒂2014年访问北京期间，他造访了华为公司，并签署了很多合作协议。从文中的描述可以感觉到加赛蒂对中共的讨好，他夸赞微信比脸书好用，还学习怎样建立微信群，并发照说习近平对他的工作很满意等等。
+
+另外还有中美交流基金会（CUSEF）,这也是一个试图影响美国媒体和政界人士的机构，然而加赛迪蒂也和该组织有往来。国家动脉网曾经报道说，中美基金资助主流媒体记者去中共国访问，用旅差费换取他们对中共国做出正面的报道。中美基金会夸耀加赛蒂参加过该基金的年度“专家代表团”活动，合作方是美国进步中心（CAP），其总部位于华盛顿特区，而且成员大多是在奥巴马政府工作的校友。2016年代表团的领导人是CAP创始人约翰·波德斯塔（John Podesta）先生，他曾出任过比尔·克林顿（Bill Clinton）总统的幕僚长。加赛蒂还参加了中美基金研究会的论文发布活动，发表的文章包括那些提倡要塑造一种更加紧密的美中两国关系的论文。
+
+报道称，加赛蒂还多次出现在中共国有媒体上，批评前总统唐纳德·川普（Donald Trump）对中共国工业产品提高关税，并指出“我们有责任向我们的国内领导人表明，很多美国人的幸福取决于美中之间的关系。”
+
+显然，加塞蒂是被中共渗透和被蓝金黄的又一位民主党人。
 
 * * *
 
-**附件二** **2016病毒项目基金资助情况**
+评论：最近又有一些亲共人士跳出来，像前几天和闫博士一起接受印度媒体采访的唐恩，闫博士称他是中共大外宣的代言人。在走向死亡的道路上，中共会竭尽全力维护自己到底，这些人也必将在这个过程中成为中共的陪葬品。
 
-**本表基于关键词关联检索汇总而成，收集了2019年12月以前2016病毒项目的研究及其涉及的所有资金，部分研究人员姓名未能查找到中文姓名，仅供参考**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28131758/%E5%9B%BE%E7%89%8730-1.png)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132713/%E5%9B%BE%E7%89%8731-6.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132740/%E5%9B%BE%E7%89%8732-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132811/%E5%9B%BE%E7%89%8733-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132825/%E5%9B%BE%E7%89%8734-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132836/%E5%9B%BE%E7%89%8735-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133007/%E5%9B%BE%E7%89%8736-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133155/%E5%9B%BE%E7%89%8737-4.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133222/%E5%9B%BE%E7%89%8738-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133313/%E5%9B%BE%E7%89%8739-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133325/%E5%9B%BE%E7%89%8740-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133339/%E5%9B%BE%E7%89%8741-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133347/%E5%9B%BE%E7%89%8742-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133403/%E5%9B%BE%E7%89%8743-4.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133609/%E5%9B%BE%E7%89%8744-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133621/%E5%9B%BE%E7%89%8745-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133627/%E5%9B%BE%E7%89%8746-1-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133640/%E5%9B%BE%E7%89%8747-3-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133652/%E5%9B%BE%E7%89%8748-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133705/%E5%9B%BE%E7%89%8749-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133716/%E5%9B%BE%E7%89%8750-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133729/%E5%9B%BE%E7%89%8751-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133741/%E5%9B%BE%E7%89%8752-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133754/%E5%9B%BE%E7%89%8753-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133807/%E5%9B%BE%E7%89%8754-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133819/%E5%9B%BE%E7%89%8755-1.png)
-（未完待续）
 
-校对/发稿：飞虹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193555/5_May-1-556x720-1.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+&gt;&gt;原报道链接&gt;&gt; [REVEALED: Biden’s India Ambassador Pick, Eric Garcetti, Praised China’s Xi As ‘Extraordinary’ and Privately Messaged Communist Influence Chiefs](https://thenationalpulse.com/exclusive/biden-india-ambassador-praised-xi-collaborated-with-ccp/)
 
 0

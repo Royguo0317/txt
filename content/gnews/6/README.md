@@ -1,59 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫丽梦博士接受福克斯塔克采访的幕后故事
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1278852/)
+## 【中共国的蜂蜜陷阱】将欧洲与美国“分开”
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1278848/)
 
-**摘要：在2021年5月22日的盖特视频中，郭先生讲述了闫丽梦博士最新的在福克斯塔克·卡尔森 (Tucker Carlson) 访谈的幕后故事。采访中，塔克建议应授予闫博士“美国总统自由勋章”。郭先生认为闫博士已经做的和正在做的事情，远超任何勋章所能带来的荣誉。当病毒真相大白于天下之时，她将会因为勇气和坚毅而赢得世界的尊重和荣誉。**
+```
+新闻来源：意大利晚邮报（Corriere Della Sera）
+发布时间： 2021年5月27日
+翻译整理/简评： 斩草要除根
+```
 
-**据郭先生，闫博士与福克斯新闻的每一次采访的背后都是权力的较量，包括藻泽地和美国政府的力量，但是无数有正义感的人们在帮助我们。真相无坚不摧，“以毒灭共”之火已经在全世界点燃。面对这个凶魔的共产党对人类的残杀和毒害，只有我们 —— 新中国联邦和爆料革命，包括路德社、博士军团和全球的农场 —— 敢讲真话。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28140929/Miles_20210522-getter1.srt.txt)
-**闫丽梦博士接受福克斯塔克采访的幕后故事**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28143017/%E6%95%B0%E5%AD%97%E4%B8%BB%E6%9D%83%EF%BC%9A%E6%AC%A7%E6%B4%B2%E5%8F%82%E4%B8%8E%E6%8A%80%E6%9C%AF%E6%88%98%E4%BA%89%E7%9A%84%E8%AE%A1%E5%88%92.jpg)图片来源：盖帝图像
+习近平坚称中欧关系潜力巨大，在一篇讲述新丝绸之路：关于在两大洲之间刚开通的一列货运列车的文章中，一家名为*“Quotidiano del Popolo”*的媒体披露了习近平与两位欧洲领导人之间的通话内容（西班牙的佩德罗 .桑切斯和黑山共和国的米罗.久卡诺维奇）：中欧关系的未来发展以及对特定项目的投资。
 
-**Miles on Dr. Li-Meng Yan’s Interview with Tucker Carlson of Fox News**
+但是如果我们考虑欧亚大陆之间目前外交的真实状况，习近平所说的至少是令人感到奇怪的，因为于去年11月签署的《全面投资协议》现在被暂停了，同样中欧互惠制裁也暗示了一种不太适合贸易关系“加深”的氛围。
 
-我相信大家昨天都看了福克斯对闫丽梦科学家，我们的天使的采访，再次震撼了世界。美国和世界新闻媒体中，男的就是这位Tucker Carlson，女的是Oprah Winfrey，[他们]可以说是世界新闻媒体主持人中最牛的。新闻点评最牛的就是他了，Tucker是最厉害的。
+事实是，中共国越来越被西方包围，中共病毒大流行和对武汉实验室“意外泄露”的反复指责使习近平的领导层相信历史的钟摆已经回归，标志着对抗冲突随时会发生。而北京现在的外交政策是试图缩小与欧洲之间的差距从而削弱美国。
 
-I believe everybody has watched the Fox News interview with Dr. Li-Meng Yan, our angel, who shocked the world once again. In United States and world media, the most renowned male TV host is Tucker Carlson, and the best-known female TV host is Oprah Winfrey.  We can say that they are the world’s leading news media hosts. And the best commentator would be Tucker. He is the best.
+如果这些尝试未能在整个欧盟范围内取得成功，那么就对个别国家进行出击，因此这似乎更容易触发“蜂蜜陷阱”。习近平知道，将欧洲与敌对国美国分开是不容易的。尽管如此，他试图抓住每一次机会，在中共国看来，欧洲是一个混乱的国家集合体，它们更可能相互争吵而不是合作。与此同时，我们也正在为最坏的情况做准备，那就是中共国与美国的武装对抗。
 
-昨天的访问中除了对科学家充满了更高的敬意之外，说到了[应授予]美国总统勋章。如果科学家拿这个勋章，她在乎这个勋章，她就不会是我们的科学家了，她也不会是我们的天使了。
+#### **简评：**
 
-Yesterday during the interview, he showed the utmost respect to Dr. Yan. He even suggested that she should be awarded the Presidential Medal of Freedom. If she cared about medals, Dr. Yan wouldn’t be our scientist. She wouldn’t be our angel.
+**通过挑拨离间而引发双方不和再到争斗，这是中共国屡试不爽、屡战屡胜的伎俩，在中共国内中国人民被这个恶党操控和玩弄，整个社会充斥的都是仇恨，已无丝毫祥和氛围可言。现在这个共产毒瘤已经侵害到了西方，有的国家被其所害还浑然不知，也有一些国家即使后悔莫及却也为时已晚。**
+（本文只代表译者观点，与Gnews平台无关。）
 
-昨天晚上播出以后，好多美国朋友，包括昨天我在海上去见面的那位朋友都是帮助在全世界推广科学家的那三份报告的，真正背后沼泽地的人，也是福克斯老板都要害怕的人。他说你怎么看这个问题？
-
-After last night’s broadcast, many of my American friends, including the one I went to see on the sea yesterday, are all helping to disseminate Dr. Yan’s three reports (about the CCP virus). They are the real force behind “the swamp”.  They are also the people that the boss of Fox News is afraid of. He asked me, what do you think?
-
-我说科学家天使最重要的就是让世界知道真相，减少灭亡。她是有上天的使命的。如果她在乎任何荣誉，任何虚荣，她就会被击垮了。[所以]不可能的，科学家应该得到的荣誉绝对不是个总统勋章[能衡量的]。等冠状病毒真相大白之日，不仅诺贝尔奖，这都是不配她的，[到时候]会有更大的奖励等待着她。那是全世界人民真正会看到一位天使来到了人间，勇敢的，具有不可思议的毅力，还有她这种把天下苍生的生命摆在[自己]生命之上[的高尚]，这才是真正的我们的科学家天使，而不是这些虚伪的虚荣，这种浮夸。大家走着看。
-
-I said topmost priority of our angel scientist is to tell the truth to the world, to reduce the casualties. She has a mission from God. If she was seeking fame and if she had any vanity, she would be defeated. It is impossible that our scientist could receive the recognition she deserves by awarding her the Presidential Medal of Freedom. When the truth about the coronavirus is out in the open, even the Nobel Prize is not sufficient. By then, there will be a much bigger honor waiting for her. By then, the world will see a real Angel on earth with such bravery and incredible perseverance. The way she put the lives of everybody else above her own is true nobility. This is really who our angel scientist is, not hypocritical or pompous. Everybody will see.
-
-对科学家昨天的采访背后有多少世界上勇敢的有正义的人在背后推动？她的每一次采访都是福克斯上层和背后的老板和他的老板和管理层一次又一次的较量的结果，包括和美国政府 — 这不是开玩笑的。
-
-The interview with our scientist (Dr. Yan) yesterday was the result of countless brave and righteous people in the world. Each of her interviews with Fox News has been a result of many power struggles between Fox News Senior Executives, the boss of Fox News, the management team, and also the U.S. government. This is not a joking matter.
-
-现在每天、每时、每刻“以毒灭共”的效率和全世界的影响力真的像被点燃的干柴一样在全世界燃烧。没有人可以阻止“以毒灭共”，因为毒就是共产党放的。可悲的事情 — 全人类只有我们爆料革命、新中国联邦、科学家、路德访谈、博士军团和我们所有全球的农场在面对这个凶魔的共产党对人类的残杀和毒害，只有我们敢讲真话。
-
-Every day now, every minute, every second, “spreading the truth of the virus to take down the CCP” is like a wildfire burning around the world. No one can stop it because the CCP has released the virus. The sad thing is that among all the people in the world, only our Whistleblower Movement, our New Federal State of China, our scientist Dr. Yan, Lude media and the PhD team, and all of our farms in the world dare to tell the truth. Only we dare to tell the truth when facing this fierce devil of the CCP as well as its slaughtering and poisoning.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60a91d6693cb4b1e6f9bd7f0](https://gtv.org/getter/60a91d6693cb4b1e6f9bd7f0) (00:05-02:19, 08:12-09:16)
-鸣谢：
-[1] 感谢 Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1266627/](https://gnews.org/zh-hans/1266627/)
-[2] 感谢DD、Liberte 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1267230/](https://gnews.org/1267230/)
+**新闻原文链接：**
+🔗[La trappola del miele cinese per «separare» l’Europa dagli Stati Uniti](https://www.corriere.it/NewsletterCorriere/america-cina/5f912ab0-bebf-11eb-ba33-0cbbda981d05_nl_AmericaCina.html)
 
 * * *
 
-**整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
-字幕：【XO小粉红】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+***编辑整理/校对: **Ting Guo*
 
-+1
+0
