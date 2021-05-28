@@ -1,29 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国大宗商品飞涨引发停工潮
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1278195/)
+## 2021/05/26 班农采访(5)：中共试图通过发行加密货币来击败美元
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1278216/)
 
-#### 文章撰写:【默凡】
+视频字幕：雨中漫步 | 听写：云岭 | 翻译：Roberts | 校对：葡萄树 | 简评/文字整理/编辑：胖丁 | Page：Daoiii
+[!\[\]()!\[\](https://spark.adobe.com/page/pn5fC8TCKrezw/images/665e96f0-8de1-4ae5-b5b9-29f5142f384a.png?asset_id=84ff1cca-967e-4efa-96fe-1c9711484ede&amp;img_etag=%222b36a1a095953124f4a0873da2751404%22&amp;size=1024)](https://spark.adobe.com/page/pn5fC8TCKrezw/images/665e96f0-8de1-4ae5-b5b9-29f5142f384a.png?asset_id=84ff1cca-967e-4efa-96fe-1c9711484ede&amp;img_etag=%222b36a1a095953124f4a0873da2751404%22&amp;size=1024)
+**简评：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28092743/id12981778-GettyImages-98450966-600x400-1.jpg)(Photo credit should read PHILIPPE LOPEZ/AFP via Getty Images)
+**中共和华尔街联合操纵比特币的波动。他们想确保法币的唯一性。西方控制中共的一个要点就是资本市场，保证美元在Swift国际银行体系中。中共通过发行中国银行的加密货币并摧毁其他加密货币来打破这一体系。**
 
-5月26日，李克强主持召开中共国务院常务会议。会议提到，截至4月末，中共国小微企业总数超过4400万户、个体工商户超过9500万户，小微企业、个体工商户生产经营面临困难。会议还提到中共国原材料价格上涨等事项。这是在两周内，中共国务院常务会议第三次提及大宗商品及原材料等价格上涨的问题。
+GTV视频链接:[20210526-GTV UK: 班农先生每周访谈 Q5: 关于比特币](https://gtv.org/video/id=60b04607744cbc4313652655)
 
-今年以来，随着原油、钢材、铜、等原材料价格出现“普涨”，下游工厂的成本承压普遍加重、利润被“蚕食”，工厂所获订单的决定性因素被放大。《中共国经济周刊》采访多家深圳和东莞的中小电子工厂，在生产成本上涨和订单利润不足的双重压力下，这些工厂正面临着新一轮的洗牌。
 
-例如：在上月底，成立于2003年的深圳基德科技公司在移动电源行业原本小有名气，曾连续多年代加工全球多家知名笔记本厂商的电池、外壳和保护板，最后宣布停工，解除与所有员工的劳动合同关系。公司解释称，由于受行业利润下行、成本上涨、外贸环境恶化和疫情多方影响，故作出停止运营的决定。
 
-澳洲政府2020年呼吁调查中共病毒源头后，中共对澳洲实行了贸易报复手段，停止进口铜矿、煤炭、铁矿石等商品，令中共国大宗商品价格飙涨。今年4月初，大宗商品价格指数创十年新高，其中涨幅较大的为能源类、矿产类、有色金属和钢铁类。
+**视频字幕：**
 
-可见，中共国大宗商品价格上行显著推高企业生产成本，引发定价、接单和存货管理等行为的适应性调整，这也促使进一步增加了银行信用风险和合规风险。
+**主持人：**上周比特币出现巨大波动，据郭文贵说，这是中共和华尔街联合操纵的结果。你认为这是中共与其西方“有用的白痴”联合，来偷窃全世界老百姓财富的一个例子吗？
 
-参考文章：[“越接订单越亏” 中国大宗商品涨价引停工潮](https://www.epochtimes.com/gb/21/5/28/n12981709.htm)
+**班农：**他们想确保除了他们法币之外，没有其他选择。西方社会没有认识到，中共在金融领域的第一要务就是击败美元。他们意识到西方对他们控制的一个重要点就是资本市场，尤其是美元。只要美元在SWIFT这一国际银行体系中，我们就可以追踪每一次交易。他们所能做的就非常有限。中共需要打破这一体系。
 
-本文仅代表作者本人观点，不代表Gnews平台
+其中一种方式就是发行中国银行的加密货币，并试图摧毁其他加密货币，所以他们要实行区块链。他们要确保可以拥有所有纪录，就像社会信用评分，知道你的每一次交易，你的所有财产等等。他们一定要破坏加密货币，而且他们正在进行。所以说，是的，这就是美联储和其他西方“有用的白痴”（与中共合作的结果），这个会很有威力。
+[!\[\]()!\[\](https://spark.adobe.com/page/pn5fC8TCKrezw/images/7262fd99-4fba-4c59-ba8e-78ab1fbfccb4.png?asset_id=338a30f5-8884-4880-a376-25afc89b580b&amp;img_etag=%2235469a95c22608d527ad3cba68c0aa86%22&amp;size=1024)](https://spark.adobe.com/page/pn5fC8TCKrezw/images/7262fd99-4fba-4c59-ba8e-78ab1fbfccb4.png?asset_id=338a30f5-8884-4880-a376-25afc89b580b&amp;img_etag=%2235469a95c22608d527ad3cba68c0aa86%22&amp;size=1024)
+[**完整访谈视频**](https://gtv.org/video/id=60ae4eeead9feb7deee4e7d5)
 
-* * *
+**主播：**Daniel, Dr. TCC, Castle和Mike
 
-*排版发布：日本东京方舟农场 文柯Miles*
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+
+
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/pn5fC8TCKrezw/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/pn5fC8TCKrezw/images/4b1e4f0f-4923-40c0-9a37-9d3169f25663.jpg?asset_id=58fa482e-3476-4933-bb56-073359a9d4ac&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
+
+
 
 0

@@ -1,79 +1,167 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国把中共病毒变成了生物武器犯下了大规模谋杀罪
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1278515/)
+## 众议员迈克·加拉格尔（Mike Gallagher）我们必须对情报进行解密流行病毒起源
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1278495/)
 
-翻译：飞利普 |校对：烟波浩淼 |审核：黎明的光芒
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28115838/Picture1-135.png)章家敦(Gordon Chang)
-*章家敦**(Gordon Chang)**说，* *人们应该弄清这一点（印度的第二波疫情），完全有可能是中共国释放出的另一种病原体。*
+**字幕内容：**
+Rep. Mike Gallagher
+众议员迈克·加拉格尔
 
-*迈阿密：《周日卫报》*正在推出一个新的系列，“印度-太平洋：新闻头条背后”，在这个系列中，我们采访了印度-太平洋地区的顶级专家，了解该地区一些更深层次的趋势。
+100%, we don’t have access to the lab records
+100%, 我们没有权限访问实验室记录
 
-该系列的第一次采访是知识渊博、经验丰富的美国作家兼评论员章家敦，他是《美中科技大战》、《失去韩国》、《核对峙》、《朝鲜向世界挑战》和《即将到来的中共国崩溃》的作者。
+The CCP prevaricates they lied
+中国共产党推诿，他们撒谎
 
-问：中共病毒大流行给我们关于中共的什么启示？
+or trying to deflect blame
+或试图逃避责任
 
-答：这场中共病毒大流行再次露出了中共的恶意。不管中共病毒开始是否作为生物武器，中共国已将其变成了一种武器。
+They’ve not been a cooperative partner since the start of this
+自从大流行开始他们就不是合作伙伴
 
-在至少五周甚至更长的时间里，中共国官员明知道这种疾病具有高度传染性，但试图让世界相信它不是。
+and the fact that they are trying to place blame on America
+而且事实上，他们试图将责任赖上美国
 
-在封锁了自己的国家的同时，习近平向各国施压，不要对来自中共国的入境者实施旅行限制和隔离。通过封锁自己的国家，他一定以为自己阻止了疾病的传播。也就是说，他一定认为自己向其他人施压以接受来自中共国的乘客，可以在国际上传播这种疾病。
+just show you, shows you the depths of their depravity
+这就告诉你他们堕落的深度
 
-这意味着习近平知道，或者早就知道，他正在把中共国中部的一种流行病转变为全球大流行病。
+so we have to declassify the intel
+所以我们必须解密情报
 
-这是故意的，这使得习的行为视为谋杀。因为340万人至今已经死亡，这是大规模谋杀。
+we have in order to get to the bottom of this
+我们必须要深挖到底
 
-问：对此该怎么做？
+we know we’re not going to get the cooperation
+我们知道我们不会得到合作
 
-答：我们必须建立威慑，追究中共国的责任。这不是在中共国土壤上产生的最后一种病原体，我们不能让习认为他能以类似的有罪不罚的方式传播下一种疾病。
+from an increasingly hostile competitor
+来自日益敌对的竞争对手
 
-因此，即使我们不关心公正或赔偿，我们也必须给中共国付出沉重的代价，这样中共领导人就不会再这样做了。
+in the form of the Chinese Communist party
+以中国共产党的形式
 
-这关系到我们的生存。中共国正在研制不会攻击中国人的病原体，但会使我们其他人患病。因此，来自中共国的下一个疾病可能使中共国成为世界上唯一可生存的社会。我们决不能允许这种情况发生。
+it is incumbent upon us to get the information out there
+我们有责任从那里获取信息
 
-我们应该切断贸易和投资。我们应该没收中共国的资产。我们应该结束与中共国的科技合作。我们应该执行旨在结束共产党统治的政策。
+America deserves an answer,
+美国应该得到一个答案
 
-问：您如何看待印度的“第二波疫情”？
+the world deserves an answer
+世界应该得到一个答案
 
-答:双突变株是天然的吗？应该有人对此深究。中共领导人已经犯下了大规模谋杀罪，因此他们完全有可能释放出另一种病原体。
+we have to get to the bottom of this pandemic
+我们必须深入了解这场大流行
 
-对我来说，无法理解这些人是怎么想的。他们所做的事情超出了我的想象范围，没有任何东西可以超越这些恶魔。
+and there is a very complicated and troubling story
+而且有一个非常复杂和令人不安的故事
 
-问：接下来会发生什么？
+as I mentioned at the start of this
+如我在开始的时候提到的
 
-答：中共国在恶意攻击我们，我不认为美国的继续存在是理所当然的。如果我们不开始保护自己，我们可能会失去我们的自由，我们会失去我们的生活方式，我们会失去我们的主权，我们会失去我们的国家。
+about how your taxpayer dollars went to fund this research
+关于美国纳税人资金如何为这项研究提供资金
 
-美国不是唯一面临风险的国家。总的来说，民主国家是对中共国的生存威胁。印度是最大的民主国家，所以，中共当然在攻击它。印度面临的风险和我们一样大。
+that could have been the reason this whole thing started in first place
+这可能是整个事情开始出现的原因
 
-我们所处的时代几乎一切皆有可能。低估中共国政权给其他国家带来的危险是不明智的。
+Jon Scott (Fox News host)
+乔恩·斯科特（福克斯新闻主持人）
 
-问：习近平的目标是什么？
+So listen to Jen Psaki the White House spokeswoman
+因此，请听白宫发言人詹·普萨基（Jen Psaki）
 
-A： 习近平领导下的中共国刚刚袭击了其他国家，所以其他国家都应该共同努力。整个世纪习都提出天命统治天下的意象。因此，他认为，他是世界上唯一合法的主权。他的下属公开谈论这个论点。
+talking about what they see as what needs to happen here listen
+谈论他们认为这里需要发生的事情。 听
 
-让我们明确一点：习试图推翻目前主权国家的威斯特伐利亚国际体系。所以，是的，他把美国人和印度人视为臣民。
+Jen Psaki (White House spokeswoman)
+詹·普萨基 (白宫发言人)
 
-而且他视美国人为敌人。2019年5月，中共国最权威的刊物中共《人民日报》刊登了一篇向美国宣战的“人民战争”文章。这不仅仅是暗示中共对我们的看法。我们应该开始听他们说什么。我们美国人常常漠不关心，无视敌人的警告。
+I will say that our view continues to be
+我要说，我们的观点仍然是
 
-在Twitter的@GordonGChang可以找到章家敦。
+that there needs to be an independent, transparent investigation
+需要进行一个独立，透明的调查
 
-克莱奥·帕斯卡尔是民主国家保卫基金会印度-太平洋地区的非居民高级研究员，也是《周日卫报》的特约记者。
+and that needs to happen with the cooperation
+这需要通过合作来实现
 
-问：习近平的目标是什么？
+and data provided from the Chinese government
+和从中共国政府提供的数据
 
-A： 习近平领导下的中共国刚刚袭击了其他国家，所以其他国家都应该共同努力。整个世纪习都提出天命统治天下的意象。因此，他认为，他是世界上唯一合法的主权。他的下属公开谈论这个论点。
+Jon Scott
+乔恩·斯科特
 
-让我们明确一点：习试图推翻目前主权国家的威斯特伐利亚国际体系。所以，是的，他把美国人和印度人视为臣民。
+but cooperation and data is not forthcoming
+但是合作和数据并不会出现
 
-而且他视美国人为敌人。2019年5月，中共国最权威的刊物中共《人民日报》刊登了一篇向美国宣战的“人民战争”文章。这不仅仅是暗示中共对我们的看法。我们应该开始听他们说什么。我们美国人常常漠不关心，无视敌人的警告。
+as you have said
+就如你所说的
 
-在Twitter的@GordonGChang可以找到章家敦。
+Rep. Mike Gallagher
+众议员迈克·加拉格尔
 
-克莱奥·帕斯卡尔是民主国家保卫基金会印度-太平洋地区的非居民高级研究员，也是《周日卫报》的特约记者。
+yeah I don’t think we should make
+是呀，我不认为我们应该使我们
 
-原文作者：克莱奥·帕斯卡尔（Cleo Paskal） 
-发布时间：2021年5月22日，晚上11:04；更新时间：2021年5月23日，晚上7:36
-原文链接：https://www.sundayguardianlive.com/news/china-turned-covid-19-biological-weapon-committed-mass-murder
+how we proceed contingent
+如何进行视情况而定
+
+upon the largesse of the Chinese Communist party
+依赖在中国共产党的慷慨上
+
+Because we’ll be waiting a heck of a long time for that to happen
+因为我们为了做到这一点要等很长时间
+
+so we need to take bolder steps to investigate this
+所以我们需要采取更大胆的步骤来对此进行调查
+
+nor can we rely upon the Integrity of the W.H.O.
+我们也不能依靠世卫组织的廉正
+
+I hate to say it
+我讨厌这么说
+
+but the W.H.O. has been compromised by the Chinese Communist party
+但是世卫组织已被中国共产党渗透控制了
+
+so we need our national security officials
+所以我们需要我们的国家安全官员们
+
+to be more forthcoming with us
+更多地与我们保持联系
+
+we need executive branch to declassify all the information they have
+我们需要执行部门对他们拥有的所有信息进行解密
+
+and we need to work in concert with our trusted partners to have such an investigation
+我们需要与我们值得信赖的合作伙伴一起进行调查
+
+in particular Partners like Australia
+特别是像澳大利亚这样的合作伙伴
+
+who you remember call Independent investigation
+你还记得他们提出要进行独立调查
+
+and then got a wave of economic sanctions placed on them by the Chinese Communist Par-ty
+然后中国共产党对其施加了一系列的经济制裁
+
+clearly the CCP is trying to hide something
+显然中共正试图隐藏一些东西
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 : [https://twitter.com/repgallagher/status/1396831226200199172?s=24](https://twitter.com/repgallagher/status/1396831226200199172?s=24)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

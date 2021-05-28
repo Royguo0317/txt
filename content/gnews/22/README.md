@@ -1,56 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “以假灭共”——用敌人的谎言来戳穿敌人的谎言!
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1278308/)
+## 【DC大中华时事】台湾打破政治阻挠由医师会以NGO身份参加世卫大会 2021.05.28
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1278335/)
 
-**摘要：在2021年5月17日的盖特视频中郭先生感慨道，5月16日和17日是个幸运的日子，去年的同一天闫博士来到了美国；四年前七嫂和郭美顺利抵达美国。他说近日，《华盛顿邮报》和一个AI网站发布虚假消息，这对爆料革命而言是好事情，因为这些谎言会不攻自破，进而证明了背后存在黑帮的支持，而这个黑帮组织就是中共！而我们用敌人的谎言来戳穿敌人的谎言——这叫“以假灭共”！**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28094418/Miles_20210517-getter1-.srt.txt)
-**“以假灭共”——用敌人的谎言来戳穿敌人的谎言!**
+编辑：NewFree文华 / 作图：中华之光
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/大中华时事-1.jpg)
+#   墙国妄语每日驳
 
-**Taking Down the CCP by Exposing Their Sham**
+### 5月28日 新华网 中国驻欧盟使团对欧日涉华言论表示反对
 
-我记得是去年的同一天，农历的同一天，Dr. Yan 博士来到了美国，[去年]此时此刻她正在洛杉矶机场，我正在给她通话。她[先是]晕倒了，然后我[和她]通话，然后国土安全部过来了，就是在此时此刻，比[现在时间]还晚一点。
+新华社布鲁塞尔 就欧盟与日本领导人线上峰会联合声明中的不当涉华言论，中国驻欧盟使团27日表示强烈不满和坚决反对。
 
-I remember the same day last year based on the Lunar calendar, Dr. Yan came to the United States. At this time last year, she was at LAX.  I was talking with her on the phone. She fainted at first. Then we had a call after which the DHS came, right at this time or maybe a bit later than right now.
+中国驻欧盟使团发言人说，欧日涉华言论完全超出正常发展双边关系的范畴，损害国际和平与稳定，损害地区国家相互理解与信任，损害第三方利益，与其所声称的“建设一个更加安全、民主、稳定的世界”的目标明显背道而驰。
 
-四年前的今天，是你[们]七嫂[和]郭美到达了美国，就是昨天的16号，也就是今天。16号17号，这是很有意思的。
+发言人说，台湾、香港和涉疆问题是中国的内政，东海、南海涉及中国领土主权和海洋权益，这些问题关乎中国的根本利益，不容干涉。我们对欧日领导人峰会联合声明相关言论表示强烈不满和坚决反对，中方也必将更加坚定捍卫国家主权、安全、发展利益。
 
-Four years ago on the same date, my wife and daughter came to the U.S..  It should be yesterday (the 16th) or today.  16th and 17th, this is very interesting.
+***简评：日本首相菅义伟与欧洲理事会主席米歇尔（Charles Michel）和欧盟委员会主席冯德莱恩（Ursula von der Leyen）5月27日共同出席了日欧领导人峰会。双方就新冠疫情和疫苗生产及派发、共同应对气候变化、加强在数字和贸易领域合作，针对世贸组织改革及强化日欧在印太地区合作等多个话题达成一致。日欧联合申明是继美日联合申明和美韩联合申明后对中共的又一记重拳，中共寄希望于拜登上台后，改变川普总统时期定下的灭共策略，但是随着时间的流逝美国联合各国盟友，达成全方位遏制中共野心的协议并开展对病毒溯源的合作，因此中共通过蓝、金、黄控制各国的愿望基本破灭。中国驻欧盟使团27日表示强烈不满和坚决反对，这只不过是中共以国际地地缘政治的改变，发出的又一次哀嚎，因为中共努力深耕多年的中欧贸易协议被彻底叫停，中共本想着联欧抗美，但是随着病毒来源真相的推进，让欧盟各国明白中共邪恶和没有底线，因此日欧加强了印太地区合作，意谓着欧盟也把在印太地区的经济和军事安全管辖权交给日本，彻底切断欧盟和中共在印太地区的安全合作。中共为了自己的野心和利益时，不断撕毁国际合约，挑战二战后国际重建的和平秩序，释放超限生物武器把世界主流国家逼到墙角，开始对中共进行围堵时，中共就开始胡搅蛮缠露出流氓的嘴脸拿台湾、香港和涉疆问题是中国的内政，东海、南海涉及中国领土主权和海洋权益来洗脑墙内民众，妄图利用国家民族主义来对抗世界文明国家对他的追责。真正出卖国家利益和未来的就是中共权贵，中共犯下的历史罪行到了清算的时候了，只有消灭中共和共产主义才能真正解决当下的国际乱象。***
 
-今天我收到了好几个特别好特别好的消息。我心想说这消息太好了呀，咋办呢？我说这敌人的出手咋还没来呢？突然[就]来了—华盛顿邮报[的报道]。又造谣呢，什么 AI 网站[也造谣]，太好了。你们说的瞎话越多，却能证明背后有组织有黑手，却证明[了]我们的伟大。逆增上缘。
 
-Today I have received several great pieces of news. I thought to myself that this is such great news. What should I do? I was wondering why there are no fist punch actions from the enemies.  Suddenly they came – the article from Washington Post, the fabricated lies. The AI website also lied.  That is great. The more lies you tell, the better they can prove that there is a Mafia-like organization behind you.  It also proves how great we are. In Buddhism, this is what is called: “through overcoming adverse conditions.”
 
-还有一个更重要的，我们是“以假灭共”，用你的假来戳破你的谎言。有时候最高的高手手里没有武器，但是敌人拿着又是枪又是叉的又是火箭炮的，用[敌人]的枪[和]火箭炮攻击他[自己]— 这才是高！爆料革命就是这样，用敌人的矛刺敌人的盾，用敌人的剑刺穿敌人；用敌人的谎言来戳穿敌人的谎言。你看这多高？
+### 5月28日人民日报海外版 前4月我国对一带一路沿线国家直接投资同比增14%
 
-Another more important thing is that we are “taking down the CCP by exposing their sham”.  We use your made-ups to reveal your lies.  Sometimes the best master is someone with no weapon.  When the enemies come with their guns or pitchforks or rocket launchers, the master uses the enemies’ own guns and rocket launchers against them. That is brilliant! The Whistleblower Movement is just like that, using the enemies’ spears to puncture the enemies’ shields, using the enemies’ swords to stab them, using the enemies’ lies to expose their lies.  How brilliant this is?
+北京5月27日记者从商务部获悉：今年前4个月，我国对“一带一路”沿线国家非金融类直接投资59.6亿美元，同比增长14%，占同期总额的17.4%，较上年上升1.8个百分点，投资合作取得积极进展。在沿线国家新签承包工程合同额415.6亿美元，完成营业额234.6亿美元，同比分别增长25.2%和12.9%。
 
-所以战友们一定要搂住，沉住气。
+***简评：一带一路就是中共利用国家资源和政策对外渗透和扩张的战略，同时把国内过剩产能转嫁到参加一带一路的国家，并利用巨额的债务把相关国家深度绑定，以达到操纵各国政治的目的。如果没有爆料革命的及时揭露，中共的阴谋早已渗透到世界各国，并很可能已经接近成功，但是随着中共试图颠覆国际秩序的野心提前暴露，目前一带一路上的各种项目面临着前所未有的压力，许多项目已经关停或者破产，国家的民脂民膏就被中共和利益集团给侵吞和浪费。当前的国际形势已经风云突变，以美国为首的文明国家联合起来对邪恶的共产中共进行围剿，全面遏制中共的一带一路项目，中共在感受的巨大的国际压力下，还强推一带一路项目，并前4月一带一路沿线国家直接投资同比增14%，意谓着中共为达目的不择手段，视墙内草民如无物，榨干韭菜们最后一点利用价值，中共的这些投资，会随着中共的灭亡，最终变成烂账，最后由中国老百姓来买单。只有尽快消灭中共，才能挽回中国损失，没有中共的国际环境下，中国人民才能真正和世界各国互利共赢一道发展平等互惠的一带一路。***
 
-That is why, my fellow fighters, we must keep cool and stay calm.
 
-这帮愚蠢的东西[们]就这几招，你发现了吗？上报纸，买通记者，“蓝、金、黄”，弄广告，造假谣言，然后123文章。你看[着好了]，过一段时间它就123个网站就出来了：华盛顿邮报，华尔街日报[说我是]双面间谍……哇！双面间谍？好大的事啊！“郭先生啊，这是好大的事啊！”我说，“什么大事啊？什么大事啊？”—“这是个很大的麻烦呐”—我说：“是吗？”我就天生不怕麻烦，多大的麻烦我都能变成有利的武器。
 
-These stupid people only have a few tricks.  Have you seen that?  Bribe the journalists, BGY, pay for some advertisements, rumor-mongering, and then smear articles. After a while, you will see some websites, such as Washington Post and Wall Street Journal accusing me of being a double agent. Wow, double agent.  That is huge.  “Mr. Guo, this is huge problem,” somebody said to me.  And I said: “What is huge? What is huge?”  “This is big trouble,” they said.  But I replied: “Really?”  I am born for trouble-shooting.  I can turn any trouble into a powerful weapon.
+### 5月28日 环球时报 完善选举制度决策在香港落地，林郑月娥：这是具有重大标志意义的时刻
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60a31a4137f7f73984ccdbee](https://gtv.org/getter/60a31a4137f7f73984ccdbee) (05:15-07:23)
-鸣谢：[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1253153/](https://gnews.org/zh-hans/1253153/)
-[2] 感谢 dd、Liberte、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于[https://gnews.org/1262931/](https://gnews.org/1262931/)
+香港立法会27日三读通过《2021年完善选举制度（综合修订）条例草案》（以下简称条例草案），意味着两个多月前全国人大有关完善香港特别行政区选举制度的重大决策，在香港全面落地。香港特区行政长官林郑月娥称这是在“一国两制”下确保“爱国者治港”具有重大标志意义的时刻。美国国务卿布林肯、一些西方媒体和香港反对派第一时间跳出来指责、抹黑。但从国安法到完善选举制度，相信他们已经看出中央为香港拨乱反正的决心和能力。在香港内部，经历了反中乱港势力在立法会制造混乱、瘫痪特区政府运作，勾结外部势力祸港之后，整个社会对开启良政善治的新篇章满怀信心和期待。
 
-* * *
+香港立法会26日起一连两日审议条例草案，并于27日上午通过二读。草案随即进入全体委员会审议阶段，审议政府提出的369项修正案。当天下午，立法会以40票赞成、2票反对，三读高票通过条例草案。林郑月娥发表声明说，条例草案将于5月31日刊宪并生效。
 
-**整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
-字幕：【JennyL（纽约香草山农场）】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+“香港政制迎来重大改动。”香港东网称，新制度对选举委员会改动最大，不但人数由1200人增至1500人，改划为“五大界别”，职能也由过去只负责提名及选举行政长官，扩大至提名所有立法会议员及选出近半数议员。香港电台报道说，立法会议席将由70席增至90席，除了由选委会选出的40席外，30席来自功能组别，20席由地区直选产生。新选举制度另设资格审查委员会，审查及确认行政长官选举、选委会选举、立法会选举候选人的资格等。
 
-+1
+林郑月娥27日表示，这次完善特区选举制度是及时和必须的，反中乱港势力在立法会制造混乱、瘫痪特区政府运作，甚至勾结外部势力损害香港的安全和利益，没有一个国家或政府会对上述危害视而不见。香港橙新闻评论说，这次立法工作体现出中央对香港的“全面管治权”。条例草案通过，则说明市民对香港拨乱反正的期待。反对派要负隅顽抗，不过是在时代大轮面前螳臂当车而已。
+
+国务院港澳办发言人27日发表谈话表示，香港立法会审议通过条例草案是依法治港、拨乱反正的又一重大制度成果，将开启香港良政善治新篇章。香港中联办在声明中说，条例草案高票通过标志着新形势下香港特区选委会选举、立法会选举和行政长官选举的制度体系已经形成。相信有特区政府和香港社会各阶层各界别共同努力，香港的新选举制度一定会得到全面实施。
+
+27日在接受《环球时报》记者采访时，邓飞提醒说，激进反对势力不会在一夜间全部消失，他们会潜伏下来，或含沙射影地做一些相关动员。对于政府而言，反对派过去之所以能产生如此大的政治能量，也是因为香港社会许多深层次问题长期得不到解决。中央和特区政府可以好好利用未来可预期的平稳时期，尽快解决香港社会的复杂矛盾。
+
+毫不意外地，香港立法会通过条例草案很快引起西方注意。美国国务卿布林肯27日发表声明，无理指责香港立法会通过条例草案“严重限制港人有意义地参与施政和表达意见”，声称中国政府“继续破坏香港的民主体制”，并再次搬出“美国和盟友一起”试图施压。“反对声音将被消失？”BBC在标题中打出这样的问题。法新社质疑香港立法会将减少直选议席数量。香港泛民第一大政党民主党主席罗健熙27日将条例草案抹黑为“对迈向普选的倒退”。
+
+中国社科院法学研究所研究员支振锋对《环球时报》记者说，不能说投票方式变了就是香港民主选举倒退，民主等同于普选本身是一个非常错误的观念。世界各国有大量的经验表明，一人一票的选举制度很容易陷入金钱选举，或者造成民粹主义和社会撕裂。香港这次的选举制度完善借鉴了世界民主的经验，吸收好的内容，也避开一些教训，是对香港民主的优化和改进。香港条例草案委员会主席廖长江形容此次完善选举制度是建构“具香港特色的民主制度”。
+
+“在立法过程中，特区政府坚定地反驳外国政客和传媒对中央完善特区选举制度的误导性言论，这些言论的谬误和别有用心的意图，和他们无理抨击香港国安法可说是同出一辙。”林郑月娥27日表示，要求有管治权的人士爱国是理所当然，亦是国际通例。符合爱国者要求和标准的人，不论其政治立场，均可依法参选、依法当选，服务香港特区。
+
+***简评：香港立法会27日三读通过《2021年完善选举制度（综合修订）条例草案》表示香港已经彻底沦陷，中共利用黑警首先控制香港社会治安，再控制香港的立法和选举，然后再通过中共治下的香港法案，形式上包装的像香港还是港人治港，实质上已经是共匪治港，无底线、无人权的迫害着抗争的香港同胞。在中共的红色恐怖下，香港人还在不断坚持抗争，香港就是无数华人的圣城。林郑月娥称这是在“一国两制”下确保“爱国者治港”具有重大标志意义的时刻，林郑月娥这所以能成为香港特区行政长官，就是因为中共在背后扶植她上台，站在邪恶的一边，为邪恶摇旗呐喊，最近会受到香港和中国人民的审判的。还有西方国家不断站出来为香港鸣不平，申张正义，被指为对中共的指责和抹黑。一个公然撕毁《中英联合申明》的流氓政党，出来指责为正义发声的国家和媒体就是最大的笑话。香港人的抗争，打开了灭共的第一道大门，让世界看清了中共的流氓本质和如何利用西方民主的形式来包装红色共产集权来统治香港和中国人民，让中共的谎言无处遁形，才有了现在国际势力联合对中共施压，中共已经走到了历史的尽头，世界正义的国家和人民联合起来推翻邪恶的中共和共产主义，还香港人以自由，还世界人民以和平、稳定和繁荣。***
+
+#   港台资讯
+![]()![](https://cdn.discordapp.com/attachments/817883141107613766/847782671178137610/20210528A.jpg)![]()![](https://cdn.discordapp.com/attachments/817883141107613766/847782675540738098/20210528B.jpg)![]()![](https://cdn.discordapp.com/attachments/817883141107613766/847828467201605642/20210528C.jpg)
+
+
+*编辑：文华
+审核：星空無垠
+发布：文顾*
+
+0
