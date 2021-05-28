@@ -1,63 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## FDA说对中共病毒天然免疫力并不存在
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1278441/)
+## 中共极有可能在武汉军运村内就开始释放不同种SARS-CoV-2病毒
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1278570/)
 
-**作者：**Ethan Huff 2021-05-26
+台湾宝岛农场 Amitofu
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28112709/4856685.png)图片来源：Ethan Huff原文
-《自然新闻》
+2020年3月赵立坚曾转推，新型冠状病毒可能起源于马里兰州，迪特里克堡的美国陆军传染病医学研究所，暗指2019年10月美国运动员在武汉第七届世界军人运动会（Military World Games）期间，把新型冠状病毒带到武汉，引起疫情传染，才会造成武汉病毒的起源。按中共大外宣逻辑来反推中共的原有计划。在2019年9月18日，中共在武汉世界军人运动会举行前，于武汉天河机场军运会航空口岸专用通道开通测试，举行的应急处置演练活动中，以实战形式仿真机场口岸通道发现1例**新型冠状病毒感染的处置全过程**。在2019年9月中共就知道将有新型冠状病毒、或已经有新型冠状病毒所以需要演练，湖北省政府和新华社等官媒也做此报导。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28121522/20190926hubei.png)
+自由亚洲电台2020年5月10日报导，法国女子现代五项世界冠军库威尔（Elodie Clouvel）说，自己和男友贝劳(Valentin Belaud)在2019年10月在武汉参加世界军人运动会时就感染了**新型冠状病毒**，她和其他法国运动员就都病得很重；意大利前奥运击剑冠军选手塔利亚里奥尔（Matteo Tagliariol）也在参加武汉军运会时，曾出现类似新冠肺炎的症状，同住的5名运动员也出现同样症况，回家一周后，他发高烧、呼吸困难、吃抗生素无效，长期处于虚弱的状态三周后才康复，并且传染给儿子和太太；瑞典游泳运动员史塔克奇欧第（Raphaël Stacchiotti）等代表团多人也发生同样种况；卢森堡一位游泳运动员亨克斯(Julien Henx)也说，同团有2人在参赛期间就有肺部问题；176名加拿大士兵参加武汉军运会期间，有大量士兵重病，许多有着严重的肺部问题，咳嗽，呕吐， 腹泻等，症状严重到了完全无力起身的地步，飞机返回加拿大时，三分之一的成员被隔离在飞机后部。巧合的是当这些国家的军人向军队要求进行测试时，军队拒绝了他们的要求，并在国防官网表示当时返国后未发现任何个人或集体健康问题，但多国的军人认定他们当时得到的肺炎就是新型冠状病毒。
 
-随着越来越多的美国人问为什么抗体测试不能代替疫苗接种来证明对中共冠状病毒的免疫力，美国食品和药物管理局（FDA）现在声称自然免疫不存在，它必须来自药物注射。
+在塞林博士循序渐进的推文中证实，闫丽梦博士指出中共制造COVID-19病毒对世界生物超限战的真相，中共病毒SARS-CoV-2是经过解放军拥有的舟山蝙蝠病毒ZC45/ZXC21为骨架，通过人为的基因改造技术在刺突蛋白中引入弗林酶切位点，功能增强S蛋白、E蛋白毒性，使病毒更具强变异性和传染性。
 
-去年12月WHO把”群体免疫”的定义改为仅限于那些已经接种疫苗的人们，与之看齐FDA宣称只有接种中共病毒疫苗才能带来”免疫力”，因此人们需要”疫苗护照”来证明自己是”安全的”，才能重新加入社会。
+第四军医大学的徐德忠教授作为军队流行病学学术领导者，著作《非典非自然起源和人制人新种病毒基因武器》为超限生物武器的研究提供了大量理论和技术支持，为中共分子流行病学与航空流行病学的创建和发展，以及国家非典的防控了做出贡献。
 
-虽然FDA表示，它仍在”研究”是否存在天然抗体，但该机构坚持认为，只有注射mRNA（信使RNA）或病毒载体化学品才能”安全有效”地防止中共病毒的感染和传播。
+笔者认为2019年武汉军运会，有109个国家9308名军人报名参加，23万名工作人员，中共极有可能在武汉军运村内就开始释放不同种的SARS-CoV-2病毒来观察健康军人选手的染疫情况，并加强针对白人的基因病毒，来做下一次的释放。徐德忠教授的航空流行病学是否也间接承认参加武汉军运会期间，利用各国军机到武汉参加军运会时，开始向外释放中共病毒，不仅打击川普总统连任，威胁美国安全打赢生物超限战，也能和西方菁英合作疫苗经济，更能对抗争中的香港运动达到维稳，透过隔离而大量抓捕抗议学生。同时在中共国内因封城隔离，而任意消失内斗的派系和企业家，更可以在2020年台湾大选时，企图让韩国瑜当选总统后，开放几十万人来台的染疫计划。祈祷万佛万神加持75亿人不受到中共病毒的威胁
 
-FDA承认，抗体测试”在识别可能接触过中共病毒并可能已形成适应性免疫反应的个人方面能发挥重要作用。”
+本文仅代表个人立场
 
-“但是，此时不应使用抗体测试来确定对中共病毒的免疫力或保护力，尤其是在一个人接种了中共病毒疫苗之后。”
+資料來源:文贵先生、班农战斗室、路德社、闫丽梦博士、博士军团、爆料革命
 
-**FDA说，大制药公司在保护人体免受疾病侵害方面优于上帝**
+审核:Athena雅典娜 发布:Amitofu
 
-尽管上帝已经为人体配备了能够抵御疾病的免疫系统——是的，既使是由中共（CCP）用安东尼·福奇提供的现金制造的疾病——FDA说，大制药公司的化学物质在建立免疫力方面是优越的。
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-这与耶鲁大学流行病学家哈维·里施博士的说法相矛盾，他说，以色列的一项研究发现，感染中共病毒的人会自然地产生持久的免疫力，不需要任何类型的疫苗接种。
+[Coronavirus, lo schermidore veneto Tagliariol: “In ottobre ho preso la polmonite a Wuhan”](https://tribunatreviso.gelocal.it/regione/2020/05/07/news/coronavirus-lo-schermidore-veneto-tagliariol-in-ottobre-ho-preso-la-polmonite-a-wuhan-1.38815861?fbclid=IwAR3-_JByN6mjD_W9uTwq_cbXs7hz2W3cDI8qY8AuBFXjNYzrh2zLx_sXciQ)
 
-里施说：”人们通过从感染中幸存下来而获得免疫力。”
+[Controlli sanitari per la delegazione italiana a Wuhan per i Campionati Mondiali Militari dello scorso ottobre](https://www.difesa.it/SMD_/Comunicati/Pagine/controlli_sanitari_per_delegazione_italiana_a_Wuhan_per_Campionati_Mondiali_Militari_2019.aspx?fbclid=IwAR3p4nEa3aF3Sqa9XL_UoGiV9v71MkG2B04Y-6n-EmmazPe642YmSPBMcXQ)
 
-血清抗体和T细胞抗体，后者是攻击感染的白血球，都有对它们所遇到的疾病产生永久免疫力的悠久历史。
+[The impact of the World Military Games on the COVID-19 pandemic](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7813667/)
 
-“这些天然抗体是过去受过感染的证据，”里施说。”过去的感染是免疫力的极强证据。”
+[COVID Coverup: Trudeau gov’t helped China hide origins of COVID-19](https://www.rebelnews.com/covid_coverup_trudeau_govt_helped_china_hide_origins_of_covid_19)
 
-此外，里施说，给儿童注射化学药品对中共病毒是一个危险的傻瓜游戏，这是极其”不合理的”。儿童感染和传播中共病毒的几率几乎为零，那么为什么要试验改变生命的化学物质，而且这些化学物质永远无法从他们的身体中去除呢？
+[French army returned from Wuhan military games in October with mystery illness](https://www.mirror.co.uk/news/uk-news/french-army-returned-wuhan-military-21988912)
 
-与此同时，正在注射的幼儿最终进入疫苗不良事件报告系统（VAERS），并产生可怕的副作用，包括死亡。
+[武漢海關舉辦軍運會倒計時30天暨口岸突發事件應急處置演練](https://k.sina.com.cn/article_2000016880_7735d5f002000krlq.html?from=news&amp;subch=onews)
 
-“儿童没有理由死于疫苗接种，这对他们或社会不会有帮助，”里施坚持认为。
-
-贝勒大学医学教授彼得·麦库洛博士对此表示赞同。他警告说，目前使用的所谓疫苗中，没有一种是在已经对中共病毒检测呈阳性的人身上测试过的，因此没有安全数据支持这些疫苗的使用。
-
-“没有证据证明疫苗是有益的，只有疫苗造成伤害的证据，”他警告说。
-
-还有诺贝尔奖得主吕克·蒙塔尼尔，他在最近的一次采访中断然表示，所有被注射到中共冠状病毒疫苗的人将在未来两年内死亡。
-
-“你在每个国家都将看到同样的情况，”引述他的话来说。”在每个国家，接种疫苗之后就是死亡。
-
-更多有关中共冠状病毒暴政的新闻可以在Pandemic.news找到。
-
-**评：**美国食品和药物管理局（FDA）声称人体对中共病毒的自然免疫力不存在的同时又表示它仍在”研究”是否存在天然抗体，这个自相矛盾不符合逻辑的声明表明了它的厚颜无耻。FDA拒绝进行天然免疫力测试、否认存在天然免疫力、强调免疫力只能来自疫苗接种的目的，是为了推行中共病毒疫苗接种，这符合大制药公司的利益和随后推行疫苗护照来达到控制民众的目的。医疗界科学家对FDA的声称完全持反对的态度，他们认为天然免疫力是存在的，而且人类接种中共病毒疫苗不但不会获得保护，反而带来伤害和死亡。中共病毒疫苗无关于保护人类免受中共病毒的感染，而是全球主义者图谋对全人类的控制奴役和灭绝。人们的注意力不能被中共及其同伙引导到对疫苗接种和经济重启上面，因为控制和解决中共病毒大流行、恢复全球经济的唯一途径就是消灭中共病毒的来源——中国共产党。
-
-##### **原文：**Ethan Huff,“ FDA says natural immunity against covid doesn’t exist, discounts the entire existence of antibodies”.《Natural News》, May 26, 2021.** **[https://www.naturalnews.com/2021-05-26-fda-says-natural-immunity-covid-doesnt-exist.html#](https://www.naturalnews.com/2021-05-26-fda-says-natural-immunity-covid-doesnt-exist.html)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：比卡丘
-
-20210528
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-#  
-
-0
++1
