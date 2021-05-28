@@ -1,31 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 最新数据显示，菲律宾增加了南海巡逻力度
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1277710/)
+## 罢免加州州长纽森已有足够的签名，罢免选举可能在11月
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1277776/)
 
-#### 文章撰写:【默凡】
+作者：迷迭香 【秘翻Gnews原创组】
+Editor：Shifter
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28050458/ImageGen-1-1.jpeg)图片来源：go
+加州是20个允许选民罢免其州长的州之一。上一次在加州发生这种情况是在2003年，当时格雷-戴维斯（Gray Davis）州长被罢免，由阿诺德-施瓦辛（Arnold Schwarzenegger）格取代。要将州长罢免列入选票，组织者必须收集相当于最近一次州长选举中12%选票的签名–这意味着他们需要至少1,495,709名注册选民的签名。根据州务卿的最终签名核实报告，罢免组织者提交了2,161,349个签名，县选举官员发现1,719,943个签名是有效的，这意味着它们来自登记的选民，并与档案中的选民签名相符。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28042021/106857044-1616309517448-gettyimages-1266585217-vcg111295384079.jpeg)
+根据罢免程序，罢免选举可能会在11月举行。如果超过50%的选民对第一个问题回答 “是”，纽森（Gavin Newsom）将被罢免，赢得最多选票的候选人将取代他。作为罢免对象的州长不能作为自己的替代者参选。这意味着，如果大多数加州人投票罢免纽森，他将被免职。即使没有任何替代候选人获得超过50%的选票。
 
-CNBC新闻网5月28日报道：根据船舶追踪数据，并与中国海岸警卫队建立了更紧密的联系。
+目前罢免运动的组织者说，加州人签署请愿书有一系列原因：对纽森处理大流行病和商业限制的失望，不断恶化的住房和无家可归危机，高税收和生活成本，还有在大瘟疫期间，纽森敦促加州人不要与家庭以外的人聚会，而他自己在纳帕谷一家豪华餐厅 “法国洗衣店”(French Laundry)参加集体晚餐，让加州人民极端反感。还有伊隆马斯克（Elon Musk）把工厂搬到德州等等。
 
-亚洲海事透明倡议组织（AMTI）在本周表示，从3月1日至5月25日，来自菲律宾的13艘执法或军舰至少对有争议的南沙群岛和士嘉堡浅滩周围的水域进行了57次访问，这说明菲律宾最近在南中国海进一步加强了巡逻。
+参考链接
 
-报告称:“这比过去10个月有了大幅增长……在过去的10个月里，共有3艘船只7次访问有争议的岛礁。”它指出，菲律宾“近年来从未见过”这种巡逻力度的增强。
+[There Are Enough Signatures To Trigger A Recall Of Gov. Gavin Newsom. Here’s What You Need To Know.](https://www.capradio.org/articles/2021/05/06/signatures-are-in-what-you-need-to-know-about-the-gavin-newsom-recall-effort/)
 
-南海问题一直是亚洲地区的热点问题，涉及一些国家与中国的领土争端。菲律宾、马来西亚和越南等国家宣称对部分水域拥有主权，但中共国认为包括斯普拉特利群岛和斯卡伯勒浅滩在内的大部分地区是其领土的一部分。
-
-菲律宾似乎决心维护自己的主权，但报告称，与中共国“近乎永久的海岸警卫队和民兵存在”的强度相比，该国的巡逻“苍白无力”。
-
-“菲律宾是否会继续其目前的巡逻力度，以及中共国可能如何反应，都不清楚，”报告称。“不过，尽管马尼拉方面加大了公开抗议力度，并增加了其在白灵礁(Whitsun Reef)和萨比娜浅滩(Sabina Shoal)的存在感，似乎在驱散中共国船只方面取得了一些成功，但它并没有影响在争议水域作业的中共国船只的总数。”
-
-参考文章：[The Philippines has dramatically boosted South China Sea patrols, data shows](https://www.cnbc.com/2021/05/28/philippines-dramatically-boosted-south-china-sea-patrols-data-shows.html)
-
-本文仅代表作者本人观点，不代表Gnews平台
-
-* * *
-
-*排版发布：日本东京方舟农场 文柯Miles*
-
-+1
+0

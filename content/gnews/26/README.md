@@ -1,28 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒从东部战区运送至武汉进行动物实验的视频讲解
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1277867/)
+## 达赖喇嘛提出的“中间道路”的意义
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1277955/)
 
-#### 文章撰写:【默凡】
+撰稿：三只松鼠
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28063850/D72CFFEC-4DC7-40E8-8307-31D119CA4047-edited.png)
+（来自网络截图）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28054812/Snipaste_2021-05-28_17-46-40.png)
+近日，西藏流亡议会前议长边巴次仁(Penpa Tsering)在印度北部城市达兰萨拉的一个仪式上宣誓就任藏人行政中央司政。达赖喇嘛在他的住所通过在线方式参加了边巴次仁的就职仪式，并做了简短的发言。边巴次仁5月27日说，他愿意与中国政府接触，以解决冲突。但是双方已经10多年没有进行任何对话。
 
-Sellin上校5月28日发推：感谢中共病毒侦探“火来2号”，用图片完美地阐述了我接受采访时的总结。如果您想了解中共病毒释放的完整事件，请观看一下视频。
+今年1月和4月举行的两轮选举是自达赖喇嘛2011年退出流亡政府的任何政治角色以来，藏人举行的第三次领导人直选。近6.4万流亡在印度、尼泊尔、北美、欧洲、澳大利亚和其他地方的藏人参加了投票。
 
+边巴次仁在就职演说中说：“我们将坚定地遵循达赖喇嘛尊者所倡导的’中间道路’政策，这一政策得到了西藏境内外广大藏人民众的高度支持，并得到了西藏人民议会的一致通过。在此基础上，我们将与中国政府进行接触，为西藏和中国之间的冲突找到一个通过互利、和谈、非暴力的解决方案。”
 
+那么什么是“中间道路”呢？又是在什么背景下提出“中间道路”这个概念？
 
-> I thank [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) for this excellent summary of my interview with images perfectly illustrating the important points. If you want to know the events leading to the release of the [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) this is the video to watch.[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/PjYXpeqdVW](https://t.co/PjYXpeqdVW)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 28, 2021](https://twitter.com/LawrenceSellin/status/1398144316749631488?ref_src=twsrc%5Etfw)
+据藏人行政中央网站介绍，“中间道路是西藏政教领袖达赖喇嘛为和平解决西藏问题、为藏汉民族在平等互利的基础上维持稳定与和睦相处而提出的一条主张或途径。也是西藏流亡政府和人民经过民主方式讨论确定的基本政策”。
 
+所谓中间道路，指的是在解决西藏问题的过程中，西藏人既不接受西藏在目前中华人民共和国所处的地位或状态，也不寻求西藏的主权独立地位，而是取中间路线，即在中华人民共和国的框架范围内寻求整个西藏三区施行名副其实的自主自治。
 
+对西藏而言，中间道路可以保障西藏的宗教、文化与民族特性之保护、延续与发展；对于中方，中间道路可以保证中国的国家安全与领土完整统一；而对其他邻国或第三国而言，中间道路促使边界的安全和安宁和平推进国际外交活动。
 
-参考文章：[https://twitter.com/LawrenceSellin/status/1398144316749631488](https://twitter.com/LawrenceSellin/status/1398144316749631488)
+1979年，邓小平向达赖喇嘛提出“除了独立以外，其它什么内容都可以谈”的建议之时，与达赖喇嘛平时考虑的在互利的基础上解决问题之立场有许多一致的地方，因而积极反应，同意会谈，并决定将恢复西藏独立的政策调整到中间道路的路线上。后经过多次民主程序的确定，达赖喇嘛于1998年的三.一十讲话中明确提出了中间道路这一路线。
 
-本文仅代表作者本人观点，不代表Gnews平台
+达赖喇嘛将争取汉藏民族的团结与和睦相处的重要性置于首要位置，认为这比西藏本身的政治需求更加重要，从而实践以互利互惠为宗旨的中间道路，这在政治上无疑是一种空前的跃进。可以说：促进和平非暴力、汉藏互利互惠、民族团结、社会稳定的实现就是中间道路的特点。
 
-* * *
+“中间道路”的提出本是一个让各方双赢的建议，包含付出和牺牲，也受到世界各国政府的赞扬。然而，中共国政府从来都不认可“中间道路”这个提法，认为达赖喇嘛提出的“中间道路”实质是分裂中国。中共国的白皮书极大地依赖《十七条协议》来证明其对西藏的占领是合法的，试图以各种毫无根据的理由宣称西藏是中国的一部分，这些旨在歪曲和虚构历史和极具欺骗性的说法，甚至被中国的历史学者强烈反驳。美国国务院最近发表的年度人权报告也首次删除了有关美国承认西藏自治区和藏族自治州县是中华人民共和国一部分的提法。
 
-*排版发布：日本东京方舟农场 文柯Miles*
+从中共的邪恶本性可以看出他们根本不会承认达赖喇嘛提出的“中间道路”路线，根本不会让西藏真正自治的，根本不会改变西藏人民的人权。只有推翻CCP，西藏人民才能真正过上幸福、自由、民主的生活。
 
-0
+本文纯属个人观点
+
+*审核、编辑：cindy*
+
+参考资料：
+
+[https://xizang-zhiye.org/中間道路簡介/；](https://xizang-zhiye.org/中間道路簡介/；)
+
+[https://www.voachinese.com/a/tiben-government-in-exile-china-engagement-20210527/5907005.html](https://www.voachinese.com/a/tiben-government-in-exile-china-engagement-20210527/5907005.html)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
++2

@@ -1,57 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5/28/2021 财经快讯：拜登拟周五公布6万亿美元预算案，美国银行有望2021年实现“创纪录”收益
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1278070/)
+## 【新闻简评】“问天一号”登陆火星为何遭严重质疑
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1278170/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28075345/Picture2-34.jpg)[图片来源](https://www.forbes.com/)
-**1.****拜登拟周五公布6万亿美元预算案**
+作者：喜马拉雅东京樱花团 / 风翼行者
 
-[拜登总统拟周五公布6万亿美元的预算案，计划在基础设施，教育，医疗保健等方面进行投资，这将使美国达到自第二次世界大战以来最高联邦支出水平。据文件显示，到2031年总支出将增加至8.2万亿美元，未来十年，年赤字额将超过1.3万亿美元，联邦债务总额将在2031年上升至生产总值的117％。到2024年，债务占经济总量的比重将升至美国历史上的最高水平，超过了第二次世界大战时期的记录。](https://www.nytimes.com/2021/05/27/business/economy/biden-plan.html?action=click&amp;module=Top%20Stories&amp;pgtype=Homepage)
+根据中国航天局的报道，2020年7月23日由中国的大型火箭长征5号搭载海南岛文昌卫星发射场发射成功的问天一号飞行途中数次轨道修正接近火星，于2021年5月15日7时18分祝融号火星车着陆于乌托邦平原，并说明一次性完成了“绕.落.巡”的三大任务成为第二个成功登陆火星的国家。并且相关专家提出这次的登陆火星技术已经超过了美国登陆火星的技术，这样的回答使国内外的一些学者与天文爱好者提出了多方面的质疑，是否成功登陆火星，技术达到所说标准了吗？
 
-**2.****美国银行有望2021年实现“创纪录”收益**
+首先从时间轴和技术来看，第一个登陆火星的美国和中国的登陆成功的问题：美国于1976年（45年前）维京一号登陆火星成功，第一次发回照片。而中国第一次是2011年11月9日通过委托俄罗斯搭载萤火一号探测火星为目的因俄方推进器问题以失败告终，9年后由本国卫星发射成功。但没有照片，以实演动画作为发射成功的证明但被天文爱好者发现中国的动画演示模仿了美国NASA13年前的凤凰号10年前公布的好奇号火星探测车登陆动画，称其动画质量不亚于中国这次的动画演示质量。
+![](https://lh5.googleusercontent.com/oa1Qo31UoyNd2q4TosS1O3pGg06xgJF7i7GylCqna7YJaDvwhnufX7b5lf0VTMXtdrKYIWFgotl7ySezma1hUgcSCTasZvNA4pYZpWVOb0gzvFG_RlPTYuwLTk2tmUzBIn-3yTb3)
+质疑多天后传回来的照片也只是因祝融登陆车的图像而不像美国NASA的探测车着落火星一瞬的那种照片，引起是否着陆成功的质疑。（左图中国祝融号右图美国NASA毅力号）
+![](https://lh3.googleusercontent.com/YlGvDfkpSnVpPUXfB3VInEm2VPgLuxSk900vcuSbi_Wtke3rlqmWJzjL9OU2J0R0mZK2sXDnahTG9GRg5oN_B_lcbyPaMFkLPm9eocoW8R_3zx5YsagU0Sp6zZW4BqyYu729tmH-)
+美国每次登陆都有视频和照片和数据传播，但是中国的登陆到现在为止还没有相关内容放出？这也是个问题。技术方面，45年的火星探测技术与80年才开始放眼世界中国来说与先进大国技术追赶还有一定的差距，即便是因为中国抄袭技术、数据、创意但是能真正是否执行又是另一回事。以中国的航母为例，本身没有制作能力从乌克兰买来后改装后，性能怎样（据路德社博博士的消息，在菲律宾海域美国航母将中国航母制动电源完全切断实验）真正执行效果可判断这次火星登陆成功被质疑的要素。根据《瓦森纳协定》对带有先进技术军事技术和双用途的物品芯片对中国出口进行严格限制2020年3月16～7月10日为止，七次卫星发射失败，在缺乏和没能力开发高科技芯片技术的情况下，对是否能成功登陆火星也是质疑的原因之一。
 
-[根据行业协会国际金融研究所（Institute of International Finance）数据，随着美国经济复苏以及金融市场依然活跃，美国银行可能会在2021年报告“创纪录”的收益。IIF首席执行官蒂姆·亚当斯（Tim Adams）周五表示，经济的改善将帮助银行放贷和手续费收入回升，而更多的投资活动将增加交易收入。今年以来，美国银行股票表现非常好，截至周四收盘，高盛股价今年已上涨40.8％，美国银行和摩根大通分别上涨约40.4％和29.3％。](https://www.cnbc.com/2021/05/28/us-banks-are-poised-for-record-level-earnings-in-2021-says-iif.html)
+登陆火星对于任何国家都是大事件，但是这次登陆的前后都没有任何特别报道，多是一笔带过，这也是很奇怪的地方。为什么要这样做呢？这不得不让人联想到经济和政治方面。中国政府的橱窗经济策略，例如深圳、上海北京等经济发达城市的展现给外国看显示中国的强大，给国人看显示国内发展潜力巨大的假象，军事上也是橱窗式的展示军事的强大，虽然和以前比是在进步但是在战争中战力水平也是一般。而这次的火星登陆计划也是习政治橱窗的展示。通过政治宣传强调体制的优越性，要求如没有达成的政治后果当然很严重没有人敢承担责任而且政府50亿美元的项目投入对一些人来说也是一笔不小的灰色收入，所以不得不铤而走险，甚至不惜造假没有注册的国外媒体（例如俄罗斯卫星通信社）报道中国火星登陆成功的新闻。据中国航天局说祝融火星登陆车只有30天的寿命，但有关专家也说道火星时常有风暴出现，至于将来会有什么“事情”发生，可否能够证明那些质疑是多余的，我们拭目以待。
 
-[亚当斯表示，美联储是时候开始谈论缩减货币政策的可能性，但几乎没有迹象表明美联储主席杰罗姆·鲍威尔（Jerome Powell）正在考虑此事。美联储之前曾表示，鉴于通货膨胀率是与去年中共病毒大流行经济相比，通货膨胀率的上升是暂时的，央行也表示将宽松货币政策。](https://www.cnbc.com/2021/05/28/us-banks-are-poised-for-record-level-earnings-in-2021-says-iif.html)
+参考引用：
 
-**3.****美国中部地区通胀创20年新高**
+维基百科 [https://zh.m.wikipedia.org/wiki/%E5%A4%A9%E9%97%AE%E4%B8%80%E5%8F%B7](https://zh.m.wikipedia.org/wiki/%E5%A4%A9%E9%97%AE%E4%B8%80%E5%8F%B7)
 
-[美国中部制造业通胀在5月份继续加速，上升到20年以来最快的速度，拖低了经济增长率，堪萨斯城联邦储备银行 (Fed Bank of Kansas City) 周四的一项调查数据显示。第十区制造业调查称，原材料价格指数跃升至86，这是2001年有史以来最高的数据。 许多企业表示，物价上涨和原材料短缺正在损害他们的业务，而且预计通胀或供应链问题不会在短期内消失。](https://www.breitbart.com/economy/2021/05/27/prairie-fire-inflation-price-hikes-hit-20-year-high-for-middle-american-manufacturers/)
+油管视频 [https://youtu.be/hdptwD6-WT4](https://youtu.be/hdptwD6-WT4)
 
-[通胀和滞胀的迹象同时出现，制造业扩张速度意外放缓。五月份制造业综合指数为26，低于四月份的创纪录高点31，经济学家预计未来将进一步扩大到33。综合指数是指生产、新订单、雇佣、供应商交货时间和原材料库存的平均指数。](https://www.breitbart.com/economy/2021/05/27/prairie-fire-inflation-price-hikes-hit-20-year-high-for-middle-american-manufacturers/)
+新浪财经 [https://finance.sina.cn/stock/relnews/hk/2020-04-28/detail-iircuyvi0215548.d.html?from=wap](https://finance.sina.cn/stock/relnews/hk/2020-04-28/detail-iircuyvi0215548.d.html?from=wap)
 
-**4.****分析师预计：欧佩克+将增加石油供应计划**
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-[欧佩克及其盟友有望在下周开会时重申增加石油产量的计划，以恢复大流行期间停止的增产计划。彭博社调查的分析师预计，欧佩克+将批准在7月份每天增产84万桶的计划，从而完成这个分三步走,以便在今年夏天恢复至略超过200万桶石油产量的进程。](https://www.gulf-times.com/story/692484/Opec-watchers-see-coalition-affirming-plan-to-revi)
+*校对：喜马拉雅东京樱花团 / 東洋武士*
 
-[该联盟由沙特阿拉伯和俄罗斯领导，去年因中共病毒大流行燃油需求减少，从而削减了原油产量。随着中国和美国的消费再次飙升，生产商正在谨慎地重新打开石油供应量。目前，原油市场已经基本吸收多余的原油库存，上周伦敦原油价格两个月来首次攀升至每桶70美元以上。随后由于对印度最新病毒爆发的担忧，布伦特原油期货小幅下跌。](https://www.gulf-times.com/story/692484/Opec-watchers-see-coalition-affirming-plan-to-revi)
+*责任编辑：喜马拉雅东京樱花团 / 文小白*
 
-**5.G7有望达成最低公司税率协议**
-
-[业内人士告诉《天空新闻》，一个世纪以来全球税制的最大改革正在逼近现实，G7已接近达成全球最低公司税率的共识，预计G7财长在下周举行的伦敦会议上将同意其公司税率保持在一定水平之上，可能为15％。美国总统拜登正在进行税务改革，打击跨国公司长期以来的企业避税行为，跨国公司通常将其利润转移到低税国家，以减少向政府支付税费。尽管有些国家仍在抵制，但拜登力推最低公司税率。包括美国，日本，德国，英国，法国，意大利和加拿大在内的七国集团很可能在下周五和周六的伦敦峰会上达成一致。](https://news.sky.com/story/global-tax-reforms-that-could-raise-billions-edge-closer-as-g7-on-brink-of-agreement-12318276)
-
-**6.****亚欧运输集装箱价格突破10,000美元**
-
-[一项指数显示，从亚洲将一个运输集装箱中的货物运往欧洲的成本创下历史新高，首次超过10,000美元。周四发布的德鲁里（Drewry）世界集装箱指数显示，从上海到鹿特丹的40英尺集装箱的运价上涨至10,174美元，较一周前上涨3.1％，较去年同期上涨485％。Drewry表示，八大主要航线综合指数较前一周上涨2％，至6,257美元，比去年同期增长293％；两者都是自2011年以来的最高记录。](https://www.bloomberg.com/news/articles/2021-05-27/shipping-container-rates-top-10-000-from-asia-to-europe)
-
-[在美国和其他地方，许多货主不得不为每个集装箱支付超过10,000美元的费用，包括巨额附加费，以确保按时交货或保证装货。根据行业组织BIMCO的数据，高运费率推动了今年前五个月新集装箱船订单的激增。](https://www.bloomberg.com/news/articles/2021-05-27/shipping-container-rates-top-10-000-from-asia-to-europe)
-
-**7.****台湾FSC对泰达资本处以罚款**
-
-[台湾的金融监管委员会（FSC）已对总部位于香港的泰达资本（Capital Target）处以罚款，并命令其在一年内出售其在日盛金融控股（Jih Sun Financial Holding）中的部分股份。据《台北时报》报道，尽管有规定要求任何拥有当地金融集团5％以上股份的股东披露其受益人，但泰达资本的受益人披露是错误的。](https://www.regulationasia.com/taiwan-fsc-fines-hk-company-for-faulty-beneficiary-disclosure/)
-
-[台湾FSC于2020年7月开始对泰达资本的股东结构进行调查，原因是该公司由中共国企业明天控股（Tomorrow Holding）的负责人肖建华拥有。明天控股是现已倒闭的中共国银行包商银行的主要股东。中共国大陆的监管机构于2019年5月接管包商银行，该银行的账目上存在2,200亿元人民币的缺口，原因是明天控股挪用了这笔钱。肖建华于2017年初受到反腐败调查。泰达资本告诉FSC，其受益人是Derek Chen，与2009年申请投资日盛时披露的信息相同。台湾人Chen则表示他与肖没有业务关系，他与两名女性投资者共同拥有泰达资本。](https://www.regulationasia.com/taiwan-fsc-fines-hk-company-for-faulty-beneficiary-disclosure/)
-
-[FSC与Chen和另外两名投资者进行了交谈，发现他们关于为何组建合资公司以及其资金来源与事实不相符，这三人未能提供资金流量记录来证明用于投资日盛的资金来源。FSC认为这三个不是泰达资本的真正受益人。该公司已被罚款2500万新台币（900,000美元），并被命令将其在日盛的股份减少至5％。”](https://www.regulationasia.com/taiwan-fsc-fines-hk-company-for-faulty-beneficiary-disclosure/)
-
-**8.****芯片短缺将影响个人电脑供应**
-
-[由于病毒大流行期间个人电脑业务得以持续，戴尔技术公司和惠普公司周四公布的季度收入均超过了华尔街的预期。根据研究公司IDC的初步数据，PC全球出货量，在第一季度增长了55.2％。戴尔表示，其客户解决方案部门的收入，其中包括台式机，笔记本电脑和平板电脑，在报告的季度中增长了20％，达到133.1亿美元。截至4月30日，惠普与个人电脑相关的销售额增长了27％，而笔记本电脑的销售额较去年同期猛增了47％。](https://www.reuters.com/technology/dell-beats-revenue-estimates-strong-demand-remote-working-products-2021-05-27/)
-
-[两家公司均警告称，持续的计算机芯片短缺可能会影响笔记本电脑供应，随后戴尔的股票下跌了1％，惠普的股票下跌了6％。](https://www.reuters.com/technology/dell-beats-revenue-estimates-strong-demand-remote-working-products-2021-05-27/)
-
-By 【秘密翻译组-金融组】
-作者：Apple
-
-+3
+*发布：喜马拉雅东京樱花团 /*老黑
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22044513/%E4%BA%8C%E7%BB%B4%E7%A0%81-2.jpg)
+0

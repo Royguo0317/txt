@@ -1,68 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共改造新冠病毒的刺突蛋白以获得更强的感染性
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1277734/)
+## 中共病毒从东部战区运送至武汉进行动物实验的视频讲解
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1277867/)
 
-## **2021/05/26 科学调查作家尼古拉斯·韦德(Nicholas Wade**) **接受《福克斯新闻》采访**
+#### 文章撰写:【默凡】
 
-视频字幕：云岭 | 听写：云岭 | 翻译：Roberts | 校对：Clau | 简评/文字整理/编辑：胖丁
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28050212/IMG_20210206_085855-3.jpg)
-**简评：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28054812/Snipaste_2021-05-28_17-46-40.png)
 
-可以确认，病毒来自武汉实验室，中共改造了新冠病毒的刺突蛋白以获得更强的感染性。在中共官方报道的第一例病人出现之前，已经有武汉实验室的研究人员住院治疗。五眼联盟要组织世界调查组，彻查病毒来源。全世界应该达成一致，给中共施加压力，通过一些惩戒手段制裁中共，比如文化脱钩，不再培训中共的学生，拒绝中共科学家进入实验室等。
-
-**YouTube视频链接：**
+Sellin上校5月28日发推：感谢中共病毒侦探“火来2号”，用图片完美地阐述了我接受采访时的总结。如果您想了解中共病毒释放的完整事件，请观看一下视频。
 
 
 
-**GTV视频链接：**
-
-[https://gtv.org/video/id=60af6c91744cbc431364ceae](https://gtv.org/video/id=60af6c91744cbc431364ceae)
-
-**视频字幕：**
-
-**主持人：**随着病毒实验室泄漏理论报导的增加，看起来媒体似乎开始产生失忆症了。屏幕左边是去年一些报导的标题，看看，好像是出自笑话一样“摒弃阴谋论观点”，因为我们认为病毒也许来自武汉实验室。但是在屏幕的右边，同样的媒体现在在报导《华尔街日报》周末的文章，武汉实验室的3名研究人员在疫情之前住院治疗。
-
-我们的下一个嘉宾从一开始就发出警报。他写了迄今为止我读过的对整个过程最全面的文章。他是科学作家尼古拉斯·韦德， 前《纽约时报》科学调查作家。
-
-尼古拉斯， 欢迎你！现在这么多媒体对你全面研究了一年的事情开始感到好奇，你怎么看？
-
-**尼古拉斯：**嗯，看起来他们的观点有了改变，非常欢迎。这件事情发生已经一年多了。正如你所说的，我研究的起因是网上的一篇文章，向人们展示了如何将这个病毒分解并重组。他暗示此病毒可能是人为改造的。从那时开始，我就开始寻找证据。
-
-目前，我认为基于现有的证据，实验室泄漏比自然起源更有可能。
-
-**主持人：**穿山甲咬了蝙蝠，蝙蝠咬了穿山甲，不知怎么穿山甲就把病毒传给人了，你相信过他们的这些说法吗？ 你觉得有道理吗？
-
-**尼古拉斯：**嗯，开始的时候觉得非常有道理，因为以前的两次瘟疫就是这么开始的。但是随着时间一天天过去，没有任何病毒自然起源的证据，实验室起源就变得更加可能。
-
-**主持人：**中共国内，他们为什么拼命掩盖事实，不让彻底调查呢？干嘛藏着掖着？让我们把答案找出来。
-
-**尼古拉斯：**直到现在，我们并没有对中共施加任何压力，以解封武汉病毒研究所的数据。因为几乎所有西方媒体都相信病毒的自然起源理论。但是现在开始发生变化了，我希望对中共的施压会让他们告诉我们一切。
-
-**主持人：**根据你的调查，武汉确实在做功能性增强实验吗？
-
-**尼古拉斯：**几乎可以确认，他们改造了新冠病毒的刺突蛋白。他们把刺突蛋白在病毒转移以获得感染性更强的病毒。
-
-**主持人：**他们知道这可能有多危险吗？
-
-**尼古拉斯：**想必他们知道。他们所有的目的是超越自然的发展进程，能够预测和解决下一次大流行病。但是我认为，显然他们没有想到，灭活后的病毒会在他们的实验过程中爆发。
-
-**主持人：**五眼联盟要组织世界调查组。他们说病毒更有可能来自实验室。《华尔街日报》报导说3名实验室研究人员有感染病毒的症状。至少两名住院治疗。这些情况会如何改变你的调查？
-
-**尼古拉斯：**这使得流行病爆发的起始时间比官方的说法提前了。我记得中共国说第一例病人是在12月8号，现在提前了几个星期。这就可能意味着中共国其实知道瘟疫危险的时间比他们自己说的要早。
-
-**主持人：**最后一个问题，应该对他们施加什么压力？中共国不在乎人民的想法，应该施加什么压力，并且惩罚那些谴责他们的人？什么样的压力才能引起中共国的注意？
-
-**尼古拉斯：**我想施加压力的方法，比方说，如果你不想成为文明国家的一员，不告诉我们到底发生了什么，那么我们就不再培训你们的学生，不让你们的科学家进入我们的实验室。我的意思就是文化脱钩，这种禁止是双向的，也许会有一些作用。
-
-**主持人：**也许吧。我认为全世界应该达成一致，因为新冠病毒大流行给全世界都造成死亡和破坏。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+> I thank [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) for this excellent summary of my interview with images perfectly illustrating the important points. If you want to know the events leading to the release of the [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) this is the video to watch.[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/PjYXpeqdVW](https://t.co/PjYXpeqdVW)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 28, 2021](https://twitter.com/LawrenceSellin/status/1398144316749631488?ref_src=twsrc%5Etfw)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+参考文章：[https://twitter.com/LawrenceSellin/status/1398144316749631488](https://twitter.com/LawrenceSellin/status/1398144316749631488)
+
+本文仅代表作者本人观点，不代表Gnews平台
+
+* * *
+
+*排版发布：日本东京方舟农场 文柯Miles*
+
 0
