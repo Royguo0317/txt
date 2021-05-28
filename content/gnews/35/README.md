@@ -1,28 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒从东部战区运送至武汉进行动物实验的视频讲解
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1277867/)
+## 【深度报道】关于中共国病毒COVID-19疫情情报的系统分析报告1
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1277980/)
 
-#### 文章撰写:【默凡】
+作者：22rOn
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28054812/Snipaste_2021-05-28_17-46-40.png)
+纽约香草山火来和纽约香草山蚊子强力推荐
 
-Sellin上校5月28日发推：感谢中共病毒侦探“火来2号”，用图片完美地阐述了我接受采访时的总结。如果您想了解中共病毒释放的完整事件，请观看一下视频。
-
-
-
-> I thank [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) for this excellent summary of my interview with images perfectly illustrating the important points. If you want to know the events leading to the release of the [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) this is the video to watch.[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/PjYXpeqdVW](https://t.co/PjYXpeqdVW)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 28, 2021](https://twitter.com/LawrenceSellin/status/1398144316749631488?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
 
 
-参考文章：[https://twitter.com/LawrenceSellin/status/1398144316749631488](https://twitter.com/LawrenceSellin/status/1398144316749631488)
+#### **声 明**
 
-本文仅代表作者本人观点，不代表Gnews平台
+本报告旨在阐述中共国自2005年以来开展有关病毒研究、中共国科研教育机构与香港之间的联系，所有信息均来源于互联网，任何人使用检索引擎都能够获取以下所有信息。分析所提出的线索与结论，仅代表作者本人观点。
 
 * * *
 
-*排版发布：日本东京方舟农场 文柯Miles*
+#### **摘** **要**
 
-0
+从2020年1月19日自媒体路德访谈首次向全球直播披露COVID-19疫情以来，全世界对中共国冠状病毒真相的探索从未停止。根据中共国媒体宣传与政府机构的公开信息，COVID-19可能源于中共国于2016年立项的 “重大突发动物源性人兽共患病跨种感染与传播机制研究”的病毒研究项目。该项目由中国疾病预防与控制中心病毒传染病预防所牵头实施，与中共国解放军军事医学科学院合作，联合国内17家科研机构与高校，中国科学院武汉病毒研究所作为背后的主要研究机构，由中共国专项财政拨款和国家自然科学基金支持该系列项目经费，同时利用科研机构的国际合作关系，开展了大量蛋白质组分析、反向遗传、病毒重组、毒力增强等研究内容，部分资金则来自于中共军方的军事研究项目。这表明中共当局完全具有将人工改造的病毒武器化的动机、能力与可能性。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28064340/image1-3.png)
+
+此外，中共国对病毒的研究不仅局限于联合国内研究机构，有中共国国家自然科学基金国际合作处的公开信息表明，中共国以国际合作研究项目的形式，与国际上多个高校的专业研究机构与研究人士有密切合作关系，构建了一个庞大的全球病毒学术网络。其中香港大学的生物安全三级实验室作为国际卫生组织（WHO）的全球参比实验室，中共国通过国家自然科学基金与香港大学教育资助委员会的合作，以联合研究项目的方式，通过广州医科大学、汕头大学与香港大学建立的合作关系，可能在该项目上亦有密切合作。
+
+事实上，COVID-19背后还有中共更大的战略与计划。根据中共国“973”计划、“传染病防治” 科技重大专项、国家重点研发计划等公开资料表明，中共正在通过数量众多、“化整为零” 、复杂隐蔽的国家级科研项目，以军事单位与普通机构分工明确、互相配合的课题研究方式，来解决病毒武器化过程中的工程技术问题。其主要研究目标是对人畜共患病病原——包括冠状病毒、流感病毒、埃博拉病毒、登革热病毒、西尼罗病毒、基孔雅肯病毒——开展病毒分析鉴定、病毒传播与进化、病毒与宿主相互作用、有效抗病毒药物研制的大规模长期研究。这表明中共当局掌握有其他功能性增强的病毒作为生物武器的潜在可能，其他病毒也有可能正在甚至已经被生物武器化，这给全人类的生命健康安全带来了巨大的风险。
+
+（未完待续）
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1
