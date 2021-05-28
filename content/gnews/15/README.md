@@ -1,167 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议员迈克·加拉格尔（Mike Gallagher）我们必须对情报进行解密流行病毒起源
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1278495/)
+## 重磅！加拿大参议员布瓦沃内接受Qetesh战友GTV采访
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1278540/)
 
-**字幕内容：**
-Rep. Mike Gallagher
-众议员迈克·加拉格尔
+文锦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28121538/f1bb2ef8d6c3bd2a553f56e5bc1ed632.jpg)
+5月27日美东时间晚八点，加拿大参议员皮埃尔·胡格斯·布瓦沃内（又译为博伊斯维努）（Pierre-Hugues Boisvenu）先生参加了魁北克本地战友Qetesh在GTV的直播访谈。**这是首次加拿大参议员在GTV接受采访！**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28122401/actu-pierre-hugues-boisvenu-2-col-scaled.jpg)
+**博伊斯维努的传奇经历**
 
-100%, we don’t have access to the lab records
-100%, 我们没有权限访问实验室记录
+生于1949年的博伊斯维努是加拿大政治家和受害者权利活动家，在魁北克公共服务部门担任高级官员和副部长超过30年。
 
-The CCP prevaricates they lied
-中国共产党推诿，他们撒谎
+2002年他的女儿朱莉（Julie）被有酒后侵害女性前科的男子绑架、强行禁闭、强奸和谋杀后，他注意到以前的法律只注重罪犯，忽视了受害人家属的需求。2004年，他与其他三位失踪或被害女性的父亲共同创立了被谋杀或失踪者家庭协会（MMPFA），为失去亲人的家庭提供支持和建议，目前拥有600多个成员家庭。2005年，他的二女儿伊莎贝尔（Isabelle）因车祸去世，他因此创建了伊莎贝尔-博伊斯维努基金，为受害者学领域的学生提供奖学金。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28125429/%E4%B8%8B%E8%BD%BD-4-1.jpg)博伊斯维努手捧爱女遗照![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28123124/%E4%B8%8B%E8%BD%BD-3-1.jpg)被谋杀或失踪者家庭协会（MMPFA）
+2005年8月，他向哈珀政府提交被谋杀或失踪者家庭协会的12个建议，最后都被采纳并设立了法案，为受害者提供了更好的赔偿。
 
-or trying to deflect blame
-或试图逃避责任
+2010年，他接受当时哈珀总理（Stephen Harper）邀请，成为了参议员，在任期间加强司法系统中受害者立法和受害者权利，成功通过了《加拿大受害者权利法案》。
 
-They’ve not been a cooperative partner since the start of this
-自从大流行开始他们就不是合作伙伴
+**访谈环节**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28121511/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE1204.png)
+**Qetesh****：**您认为目前的法律，罪犯得到应有制裁了吗？
 
-and the fact that they are trying to place blame on America
-而且事实上，他们试图将责任赖上美国
+**博伊斯维努**：2010-2015年，保守党政府通过了许多对惯犯、虐童犯、性虐犯制裁更严厉的法案。然而，自由党上台后，变化太大了，现在对罪犯太软弱，比如保护被侵害女兵的法律至今没有出台。如果下个五年自由党继续执政，罪犯们将非常得意。
 
-just show you, shows you the depths of their depravity
-这就告诉你他们堕落的深度
+**Qetesh**： 自己是家暴受害者，前夫逍遥在外，她却只能小心躲藏，亲身感受到法律的缺陷和不公对自己带来的二次伤害。势单力薄的受害者看到博伊斯维努挺身而出，感到很舒心。
 
-so we have to declassify the intel
-所以我们必须解密情报
+**博伊斯维努**：被家暴的女性面临的只能是搬走，可能会因此失去工作，给子女带来麻烦。他带来的法案是要求家暴者搬离，并加以约束，保护弱势的被家暴者。
 
-we have in order to get to the bottom of this
-我们必须要深挖到底
+当他女儿受害后找检察官时无法得到足够信息，被要求保持沉默，还被告知受害者的律师是政府。他意识到应该给受害者律师等更多支援。
 
-we know we’re not going to get the cooperation
-我们知道我们不会得到合作
+**Qetesh**：受害者比施害者更被忽视，说明法律系统存在问题，需要改进。
 
-from an increasingly hostile competitor
-来自日益敌对的竞争对手
+**博伊斯维努**：在加拿大，每支援受害者1加元时，相对应给施害者的是9加元。囚犯在联邦监狱中可以接受教育、心理支援等，而受害者只有一年的支援。如果女性被强奸，需要的是不止一年的支援。监狱的支持来自联邦政府，受害人的支持来自省政府，有些省政府支持力度并不大。
 
-in the form of the Chinese Communist party
-以中国共产党的形式
+**Qetesh**：您认为加拿大是民主国家吗？
 
-it is incumbent upon us to get the information out there
-我们有责任从那里获取信息
+**博伊斯维努**：如果与糟糕国家比，是的，如果与最好的比，那就不是。疫情爆发的一年半以来，自由党政府表现不正常。政府用了很多纳税人的钱，却去向不明。加拿大的民主制度病了。
 
-America deserves an answer,
-美国应该得到一个答案
+**Qetesh**：GTV的观众有些是从独裁中共国逃离的，那里充斥着虚假宣传及糟糕的人权。CCP会不会把手伸向了加拿大？
 
-the world deserves an answer
-世界应该得到一个答案
+**博伊斯维努**：我们很担忧。如果中共渗透到加拿大做军事研究，是非常危险的。特鲁多似乎很羡慕独裁中共政权。
 
-we have to get to the bottom of this pandemic
-我们必须深入了解这场大流行
+**Qetesh**：特鲁多不想承认新疆种族灭绝，想利用中共病毒疫情实行邮寄选票。如何让加拿大变好？
 
-and there is a very complicated and troubling story
-而且有一个非常复杂和令人不安的故事
+**博伊斯维努**：一些参议员在守护，会提出异议。保守党保护我们的利益，支持新疆、香港、台湾。请大家谨慎投票。因为中共会操纵。
 
-as I mentioned at the start of this
-如我在开始的时候提到的
+**Qetesh**: 您认为中共渗透加拿大了吗？有何忠告？
 
-about how your taxpayer dollars went to fund this research
-关于美国纳税人资金如何为这项研究提供资金
+**博伊斯维努**：下次投票时一定要慎重，因为特鲁多言行不一，很危险。
 
-that could have been the reason this whole thing started in first place
-这可能是整个事情开始出现的原因
+当年哈珀总理对犯罪和金融政策比较严格，当时媒体对他比较苛刻，因为他没给媒体甜头，不像特鲁多给媒体5亿加元以免其破产。本届政府无节制地撒钱，我们都是其受害者。
 
-Jon Scott (Fox News host)
-乔恩·斯科特（福克斯新闻主持人）
+**Qetesh**：加拿大没有真正的媒体了，只有虚假宣传。
 
-So listen to Jen Psaki the White House spokeswoman
-因此，请听白宫发言人詹·普萨基（Jen Psaki）
+**博伊斯维努**：由于媒体虚假宣传，竟有40%加拿大人打算下次投票时还选可能史上最糟的总理特鲁多。
 
-talking about what they see as what needs to happen here listen
-谈论他们认为这里需要发生的事情。 听
+**Qetesh**： 特鲁多上学时曾说过以后不会从政，但食言了。他不知如何管理好国家。
 
-Jen Psaki (White House spokeswoman)
-詹·普萨基 (白宫发言人)
+**博伊斯维努**： 他像是台前木偶，有人在背后指使，自由党是利用他父亲前总理“特鲁多”的名头，而不是看贾斯汀·特鲁多本身的能力。
 
-I will say that our view continues to be
-我要说，我们的观点仍然是
+**Qetesh**： 自由党想让人人自危，不敢去帮助别人，只靠政府所谓的援助。
 
-that there needs to be an independent, transparent investigation
-需要进行一个独立，透明的调查
+**博伊斯维努**： 特鲁多太天真了。对付中共政府必须不能天真，需要非常强硬、直接！
 
-and that needs to happen with the cooperation
-这需要通过合作来实现
+博伊斯维努在过去的两年中探访了受虐妇女庇护所，采访了一百多位被家暴的妇女，深入了解其所需。目前他在推进保护被家暴者法案, 该法案将允许法官命令被指控有家庭暴力的人戴电子监控手环或参加法庭治疗计划，如家庭暴力咨询，作为其保释条件的一部分。
 
-and data provided from the Chinese government
-和从中共国政府提供的数据
+有像他这样致力于保护受害者的参议员，令人感到加拿大还是有希望的。最后，主持人以“Take Down the CCP”结尾，振奋人心！
 
-Jon Scott
-乔恩·斯科特
+[**博伊斯维努欢迎大家在其Facebook页面留言**](https://www.facebook.com/boisvenu.phJulIsabelle0205JulIsabelle0205007)
 
-but cooperation and data is not forthcoming
-但是合作和数据并不会出现
 
-as you have said
-就如你所说的
 
-Rep. Mike Gallagher
-众议员迈克·加拉格尔
+*节目链接：*
 
-yeah I don’t think we should make
-是呀，我不认为我们应该使我们
+[2021-05-27 Senator Boisvenu in solidarity with the Chinese community](https://www.gtv.org/video/id=60b03407b7dff64ac9854231)-GTV
 
-how we proceed contingent
-如何进行视情况而定
-
-upon the largesse of the Chinese Communist party
-依赖在中国共产党的慷慨上
-
-Because we’ll be waiting a heck of a long time for that to happen
-因为我们为了做到这一点要等很长时间
-
-so we need to take bolder steps to investigate this
-所以我们需要采取更大胆的步骤来对此进行调查
-
-nor can we rely upon the Integrity of the W.H.O.
-我们也不能依靠世卫组织的廉正
-
-I hate to say it
-我讨厌这么说
-
-but the W.H.O. has been compromised by the Chinese Communist party
-但是世卫组织已被中国共产党渗透控制了
-
-so we need our national security officials
-所以我们需要我们的国家安全官员们
-
-to be more forthcoming with us
-更多地与我们保持联系
-
-we need executive branch to declassify all the information they have
-我们需要执行部门对他们拥有的所有信息进行解密
-
-and we need to work in concert with our trusted partners to have such an investigation
-我们需要与我们值得信赖的合作伙伴一起进行调查
-
-in particular Partners like Australia
-特别是像澳大利亚这样的合作伙伴
-
-who you remember call Independent investigation
-你还记得他们提出要进行独立调查
-
-and then got a wave of economic sanctions placed on them by the Chinese Communist Par-ty
-然后中国共产党对其施加了一系列的经济制裁
-
-clearly the CCP is trying to hide something
-显然中共正试图隐藏一些东西
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 : [https://twitter.com/repgallagher/status/1396831226200199172?s=24](https://twitter.com/repgallagher/status/1396831226200199172?s=24)
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[博伊斯维努官方页面](https://sencanada.ca/en/senators/boisvenu-pierre-hugues/?fbclid=IwAR2q0arJysfDgCd8X6Z3cf7v0Fajs-fMrY3MsA5mpPiczzJ8Z9oG32ZLHpo)
 
 0

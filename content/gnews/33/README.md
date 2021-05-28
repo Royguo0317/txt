@@ -1,25 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评简讯（视频版）:美曝光曾计划用核打击阻止中共侵台(2021.5.24晚间路德社简讯之路博冠谈)
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1278343/)
+## 2021年5月27日秘翻快报【头条新闻】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1278336/)
 
-《路德社》出品
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28100659/IMAGE-2021-05-28-214731.jpg)](https://gtv.org/video/id=60b0dbfdb7dff64ac985cb32)
+**新闻总结：**
 
-以下视频是详细内容：
+1.    香港立法机构将批准限制公众投票的提案
 
-內容摘要：
+2.    新疆再教育营见证者 揭露教育营真相
 
-一、美曝光曾计划用核打击阻止中共侵台
+3.    拜登总统要求美国情报部门调查中共病毒的来源，并在90天内向他汇报
 
-二、印度媒体全面报导中共病毒就是生物武器
+4.    共和党议员要求安东尼-福奇博士被解雇或辞职
 
+5.    拜登与普京将在日内瓦进行会晤
 
+6.    中共强行介入伊核协定 欲助伊朗胁迫美国
 
-制作：路德社简讯视频组
+**By:秘翻快报组**
 
-审核校对：玫瑰新闻组
-
-上传排版：玫瑰新闻组
+**GTV链接:**[https://gtv.org/video/id=60b0dbfdb7dff64ac985cb32](https://gtv.org/video/id=60b0dbfdb7dff64ac985cb32)
 
 0

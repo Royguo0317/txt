@@ -1,103 +1,122 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登政府追究中共释放COVID-19病毒责任，要求对来源作出答复
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1278684/)
+## 【香草诗词汇】诗二首
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1278682/)
 
-**字幕内容：**
+作者：纽约香草山健身部 澄道
 
-**Maria**：
 
-Right now is the first lawmaker to go on the record right here
-现在请第一位在2020年2月就在本节目中
 
-on this program back in February of 2020
-公开发表意见的议员
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-and suggest that COVID-19 could have leaked from that Wuhan Lab of Virolo-gy
-他表示COVID-19可能是从武汉病毒学研究所泄露的
 
-Senator Tom Cotton, you’re done great value for our viewers by your honesty
-汤姆·科顿参议员，你的坦诚为我们的观众带来了巨大的价值
 
-and telling it like it is, and thank you for that
-并告诉他们事实的真相，为此感谢你
+**政治化**
 
-Do you still stand by what you said
-你现在是否仍然坚持你去年所说的观点？
+-各行各业政治化-
+-国内国外政治化-
 
-and what have your learned in the last year about this situation?
-以及过去一年你对这一情况有什么新的认识？
+听党话
+感党恩
+是娱乐文艺界的
+政治化
 
-Tom Cotton:
+学党史
+做党人
+是舆论媒体界的
+政治化
 
-Yeah, Maria
-是的，玛丽亚
+先
+规范国人出行的
+绿码（健康码）
+奴隶化就是政治化
 
-it’s hard to believe it’s been 15 months
-很难相信自从你和我第一次讨论这个问题以来
-since you and I first discussed
-已经过去了15个月
+后
+强种天下规范世人自由
+疫苗联盟（疫苗护照）
+灭白化就是政治化
 
-where I think most our Kansas think is a very common sense proposition.
-我们大多数堪萨斯人认为是一个常识性命题
+穿你衣（八路装）
+唱你歌（党啊 母亲）
+是伪儒释道界的
+政治化
 
-But it surely is a big coincidence
-但这肯定是一个很大的巧合
+辈亲
+娘亲不如党亲
+是伪科学 基督教 天主教界的
+政治化
 
-that this virus started not up at some remote mountain village
-这种病毒起并不是爆发于某个偏远山村
+政治化就是
+手段假大空
+源头骗偷抢
 
-with caves, full of bats
-那里有满是蝙蝠的洞穴
+政治化就是
+使命断我脉
+目的灭我族
 
-but rather in downtown Wuhan, a city larger than New York,
-而是在武汉市中心，一个比纽约还大的城市
+有人有世有邪灵
+无业无界无政治
 
-just a few blocks up the road from labs that was researching bat base corona vi-ruses.
-爆发地点离研究蝙蝠冠状病毒的实验室只有几个街区
+* * *
 
-And since then, every bit of circumstantial evidence to
-从那时起，有大量的间接证据
+**最好开始**
 
-include evidence that came out in the final days of the Trump Administration
-包括川普政府在最后几天提供的证据显示
+-最坏的年代 最好的开始-
 
-that some employees and staff at this lab
-武毒所的一些员工和工作人员
+五六七零年代
+文功
+民国精英
+武卫
+国人国粹
+何止是浩劫十载
 
-may have had corona virus like symptoms as early as October, September, 2019,
-可能早在2019年的10月、9月就出现了类似冠状病毒的症状
+八九六四邪时
+绑架俄爹
+骗保老什
+屠城戮民
+泯灭人性
+岂止是断传截承
 
-Continues to point to
-这些证据都指出
-these labs as the origin of this virus,
-这些实验室才是这种病毒的来源
+天下苦秦久
+苍生痛“共”深
 
-not that food market that the Chinese Communist Party used as cover story from the very beginning.
-而不是中共从一开始就用来掩盖事实真相的农贸海鲜市场
+一灯慧者除暗
+一智觉者灭愚
 
-That’s why it’s so imperative that the Biden administration hold the Chinese Communist Party accountable
-这就是为什么拜登政府必须追究中共的责任
+生武投毒一
+爆料革命见
+最坏年代暗
+更好开始灯
 
-and demand answers for all of these questions.
-并要求其回答所有这些关于病毒起源的问题
+这是最坏的年代
+我们没有权利萎缩
+没有资格退让
+因为我们有幸值遇了
+最好的开始
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+（本文仅代表作者观点）
 
-原视频链接:
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
 
-[https://twitter.com/sentomcotton/status/1396490390212067329?s=24](https://twitter.com/sentomcotton/status/1396490390212067329?s=24)
+编辑/校对/发稿：Irene木木
 
-英听校： 康州盘古农场 – Mike Li
-翻译：康州盘古农场 – Mike Li
-翻译终校：康州盘古农场 – 柯镇恶
-字幕+视频制作：康州盘古农场- 天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+**更多资讯，更多关注**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
 
 0

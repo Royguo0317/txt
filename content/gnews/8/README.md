@@ -1,44 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [疫情下的西班牙]西班牙法院首次裁定中共病毒是职业病
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1278688/)
+## 【深度报道】关于中共国病毒COVID-19疫情情报的系统分析报告6
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1278823/)
 
-- 翻译：gokuabuela
+作者：22rOn
 
+纽约香草山火来和纽约香草山蚊子强力推荐
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
+#### **声** **明**
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+本报告旨在阐述中共国自2005年以来开展有关病毒研究、中共国科研教育机构与香港之间的联系，所有信息均来源于互联网，任何人使用检索引擎都能够获取以下所有信息。分析所提出的线索与结论，仅代表本人观点。
 
-**西班牙2021年5月28日电/西喜社——**
+* * *
 
-在西班牙，中共病毒首次被法院视为一种职业病。Talavera de la Reina（托莱多）第三社会法庭的判决是这样判决的。案件源于一名在医院前台工作的行政助理，她被感染并出现了呼吸系统后遗症。根据判决，2020年9月13日，她在检测结果呈阳性后要求休病假，一直持续到2021年1月15日出院。
+**附件二** **2016病毒项目基金资助情况**
 
-社会保险和其购买的私人保险都拒绝承认她的职业病，这对今后在出现严重后遗症或死亡赔偿时的保护至关重要。
+**本表基于关键词关联检索汇总而成，收集了2019年12月以前2016病毒项目的研究及其涉及的所有资金，部分研究人员姓名未能查找到中文姓名，仅供参考**
 
-然而，现在，法官克里斯蒂娜-佩诺-穆尼奥斯做出了判决，给那些通过证明，证实在处理预防、医疗保健和医院工作而被感染的人，都列为职业病。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28131758/%E5%9B%BE%E7%89%8730-1.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132713/%E5%9B%BE%E7%89%8731-6.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132740/%E5%9B%BE%E7%89%8732-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132811/%E5%9B%BE%E7%89%8733-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132825/%E5%9B%BE%E7%89%8734-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132836/%E5%9B%BE%E7%89%8735-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133007/%E5%9B%BE%E7%89%8736-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133155/%E5%9B%BE%E7%89%8737-4.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133222/%E5%9B%BE%E7%89%8738-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133313/%E5%9B%BE%E7%89%8739-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133325/%E5%9B%BE%E7%89%8740-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133339/%E5%9B%BE%E7%89%8741-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133347/%E5%9B%BE%E7%89%8742-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133403/%E5%9B%BE%E7%89%8743-4.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133609/%E5%9B%BE%E7%89%8744-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133621/%E5%9B%BE%E7%89%8745-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133627/%E5%9B%BE%E7%89%8746-1-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133640/%E5%9B%BE%E7%89%8747-3-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133652/%E5%9B%BE%E7%89%8748-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133705/%E5%9B%BE%E7%89%8749-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133716/%E5%9B%BE%E7%89%8750-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133729/%E5%9B%BE%E7%89%8751-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133741/%E5%9B%BE%E7%89%8752-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133754/%E5%9B%BE%E7%89%8753-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133807/%E5%9B%BE%E7%89%8754-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133819/%E5%9B%BE%E7%89%8755-1.png)
+（未完待续）
 
-正如工会组织所重申的“在这一裁决之前，中共病毒被认为是一种暂时性的疾病，这意味着，当疫情结束时，其后遗症不能作为医务人员在工作中遭受的伤害而得到赔偿”。
+校对/发稿：飞虹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193555/5_May-1-556x720-1.jpeg)
+**更多资讯，更多关注**
 
-然而，去年2月，政府通过一项法令，开始将中共病毒感染视为卫生和社会保健中心工作人员的可能职业病案例—“疫情开始以来具有追溯力”–并为他们被归类为职业病而非普通病打开了大门，这是法院一审认可的第一个案例。在整个西班牙，自疫情开始以来，约有12万名卫生专业人员感染了中共病毒。
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**简评：**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**自疫情开始以来，西班牙的医务人员做出了巨大的牺牲，加班加点已是家常便饭。甚至已经退休的医务人员都被召回，继续服务大众。在这期间，有超过12万名医护人员被感染。**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-**虽然政府将医护人员的感染列为职业病，但因为感染而丧失了部分或全部工作能力的人，可能会影响到其今后的职业路程。比如，上述法院判决的那个案例，那名被感染的医护人员，她是享受职业病病假待遇，还是享受普通病假待遇？中间的差别是很大的。最重要的是，她在家休养期间，她的丈夫也因此被感染，而送去急救。如果按照普通病假，她的丈夫将享受不到任何赔偿。但是按照职业病，她的丈夫将能享受到和她同样的赔偿。**
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-**如果她或她的丈夫，因为感染的后遗症，而不能胜任目前的工作，那也会得到补偿。**
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**西班牙法院的这次判决，不仅让医护人员得到了应有的赔偿，而且还尽最大可能的覆盖了被她们所影响的人群，真正解除了这些医护人员的后顾之忧。**
-
-**中共国经常说“不能让英雄流血又流泪”， 但实际上呢？那些在一线抗击疫情的中共国的医务人员，有几个因为感染得到了赔偿，并能覆盖亲人和后续的职业安排？除了给评一些“先进工作者”之类的名誉外，甚至还被降了工资。对人权的尊重，不是简单粗陋的“大奖状”，是需要细致入微的法治护航！**
-
-素材：gokuabuela；审核：Aries的星； 校对：信心满满； 发稿：信心的选择
-
-**新闻来源：**[机密报](https://www.elconfidencial.com/espana/2021-05-28/primera-sentencia-coronavirus-covid19-enfermedad-profesional_3104227/)
-
-[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
-
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
-
-+1
+0

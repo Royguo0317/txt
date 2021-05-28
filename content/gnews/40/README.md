@@ -1,65 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 罪证确凿：武汉实验室的工作人员在中共病毒&#8221;逃逸&#8221;时刻恰好犯病
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1278253/)
+## “以假灭共”——用敌人的谎言来戳穿敌人的谎言!
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1278308/)
 
-**作者：**Ethan Huff 2021-05-27
+**摘要：在2021年5月17日的盖特视频中郭先生感慨道，5月16日和17日是个幸运的日子，去年的同一天闫博士来到了美国；四年前七嫂和郭美顺利抵达美国。他说近日，《华盛顿邮报》和一个AI网站发布虚假消息，这对爆料革命而言是好事情，因为这些谎言会不攻自破，进而证明了背后存在黑帮的支持，而这个黑帮组织就是中共！而我们用敌人的谎言来戳穿敌人的谎言——这叫“以假灭共”！**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28094418/Miles_20210517-getter1-.srt.txt)
+**“以假灭共”——用敌人的谎言来戳穿敌人的谎言!**
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28095310/42186.png)图片来源：Ethan Huff原文
-《自然新闻》一份此前未公开的政府文件称，武汉病毒学研究所（WIV）的三名研究中共冠状病毒的研究人员于2019年11月患上了重病，当时”中共病毒大流行”刚开始。
+**Taking Down the CCP by Exposing Their Sham**
 
-据新的主流媒体报道，这三人病得很重，不得不被送往医院接受治疗。有人说，这表明中共病毒从培养皿中”逃”出来，并感染了那些正在篡改它制造生物武器的人。
+我记得是去年的同一天，农历的同一天，Dr. Yan 博士来到了美国，[去年]此时此刻她正在洛杉矶机场，我正在给她通话。她[先是]晕倒了，然后我[和她]通话，然后国土安全部过来了，就是在此时此刻，比[现在时间]还晚一点。
 
-这些新的细节超出了美国国务院在前总统唐纳德·特朗普治下发布的一份报告，该报告显示，中共国实验室工作人员在2019年秋季患病，”症状包括中共病毒和常见的季节性疾病”。
+I remember the same day last year based on the Lunar calendar, Dr. Yan came to the United States. At this time last year, she was at LAX.  I was talking with her on the phone. She fainted at first. Then we had a call after which the DHS came, right at this time or maybe a bit later than right now.
 
-现已透露，三名研究人员在正好在11月生病，这些细节就在世界卫生组织（世卫组织）会议之前提出，会上讨论了下一阶段对病毒起源的调查将是什么？
+四年前的今天，是你[们]七嫂[和]郭美到达了美国，就是昨天的16号，也就是今天。16号17号，这是很有意思的。
 
-熟悉实验室状况情报的现任和前任官员对这项新评估的力度仍持相互矛盾的观点。其中一人表示，这具有潜在的重大意义，但需要进一步调查以核实这一点。
+Four years ago on the same date, my wife and daughter came to the U.S..  It should be yesterday (the 16th) or today.  16th and 17th, this is very interesting.
 
-另一种感觉，仿佛证据是强大的而且”质量非常好”。
+今天我收到了好几个特别好特别好的消息。我心想说这消息太好了呀，咋办呢？我说这敌人的出手咋还没来呢？突然[就]来了—华盛顿邮报[的报道]。又造谣呢，什么 AI 网站[也造谣]，太好了。你们说的瞎话越多，却能证明背后有组织有黑手，却证明[了]我们的伟大。逆增上缘。
 
-“这是非常精确的，”这位人士表示。”它没有告诉你的是他们生病的确切原因。
+Today I have received several great pieces of news. I thought to myself that this is such great news. What should I do? I was wondering why there are no fist punch actions from the enemies.  Suddenly they came – the article from Washington Post, the fabricated lies. The AI website also lied.  That is great. The more lies you tell, the better they can prove that there is a Mafia-like organization behind you.  It also proves how great we are. In Buddhism, this is what is called: “through overcoming adverse conditions.”
 
-**中共称中共病毒发源于马里兰州德特里克堡军事基地**
+还有一个更重要的，我们是“以假灭共”，用你的假来戳破你的谎言。有时候最高的高手手里没有武器，但是敌人拿着又是枪又是叉的又是火箭炮的，用[敌人]的枪[和]火箭炮攻击他[自己]— 这才是高！爆料革命就是这样，用敌人的矛刺敌人的盾，用敌人的剑刺穿敌人；用敌人的谎言来戳穿敌人的谎言。你看这多高？
 
-新报告的意义主要围绕三位研究人员生病的日期。许多流行病学家和病毒学家认为，2019年11月是该计划首次启动并开始在中共国中部城市武汉周围传播的时候。
+Another more important thing is that we are “taking down the CCP by exposing their sham”.  We use your made-ups to reveal your lies.  Sometimes the best master is someone with no weapon.  When the enemies come with their guns or pitchforks or rocket launchers, the master uses the enemies’ own guns and rocket launchers against them. That is brilliant! The Whistleblower Movement is just like that, using the enemies’ spears to puncture the enemies’ shields, using the enemies’ swords to stab them, using the enemies’ lies to expose their lies.  How brilliant this is?
 
-中共病毒的首例病例发源于北京，中共官员说，2019年12月8日，一名男子患病。仅仅几个月后，西方企业媒体开始警告中共病毒病例通过游轮进入美国。
+所以战友们一定要搂住，沉住气。
 
-由于WIV当时正在研究蝙蝠冠状病毒，一些人推测，可能是基因修改（GMO）变种”逃过”到四级生物安全实验室，最终在公众中传播。然而，目前还没有确凿的证据证明这一点，因为病毒甚至从未被完全隔离过。
+That is why, my fellow fighters, we must keep cool and stay calm.
 
-与此同时，中共国嘲笑那些中共病毒起源于中共国实验室的想法。中共官员声称，美国在没有证据的情况下”继续炒作实验室泄漏理论”。
+这帮愚蠢的东西[们]就这几招，你发现了吗？上报纸，买通记者，“蓝、金、黄”，弄广告，造假谣言，然后123文章。你看[着好了]，过一段时间它就123个网站就出来了：华盛顿邮报，华尔街日报[说我是]双面间谍……哇！双面间谍？好大的事啊！“郭先生啊，这是好大的事啊！”我说，“什么大事啊？什么大事啊？”—“这是个很大的麻烦呐”—我说：“是吗？”我就天生不怕麻烦，多大的麻烦我都能变成有利的武器。
 
-“它实际上是关心追踪来源还是试图转移注意力？”中共国外交部对美国发布声明。
+These stupid people only have a few tricks.  Have you seen that?  Bribe the journalists, BGY, pay for some advertisements, rumor-mongering, and then smear articles. After a while, you will see some websites, such as Washington Post and Wall Street Journal accusing me of being a double agent. Wow, double agent.  That is huge.  “Mr. Guo, this is huge problem,” somebody said to me.  And I said: “What is huge? What is huge?”  “This is big trouble,” they said.  But I replied: “Really?”  I am born for trouble-shooting.  I can turn any trouble into a powerful weapon.
 
-拜登政权迄今拒绝对新的情报发表评论，尽管它声称所有技术上可信的关于病毒起源的理论都应该由世卫组织和其他国际”专家”进行调查。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60a31a4137f7f73984ccdbee](https://gtv.org/getter/60a31a4137f7f73984ccdbee) (05:15-07:23)
+鸣谢：[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1253153/](https://gnews.org/zh-hans/1253153/)
+[2] 感谢 dd、Liberte、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于[https://gnews.org/1262931/](https://gnews.org/1262931/)
 
-报道援引国家安全委员会发言人的话说：”我们仍然对中共病毒大流行的早期产生有严肃的问题，包括其起源在中共国。”
+* * *
 
-“我们不会发表预先判断世卫组织正在进行的中共病毒来源研究的声明。作为政策问题，我们从不对情报问题发表评论。
-
-中共国也暗示，中共病毒实际上起源于位于马里兰州的德特里克堡军事基地，该州是福奇居住的州。中共政权还呼吁世卫组织对这一理论展开全面调查。
-
-更多有关中共病毒的新闻可以在Pandemic.news找到。
-
-**评：**据文贵先生5月26日盖特爆料说中共在2019年年底就尝试了投毒计划，但是没有成功，反而导致武汉病毒研究所的三名研究人员中毒住院[1]。越来越多的证据证明中共病毒是中共人为制造并释放的超限生物武器，是中共针对美国和全世界发动的第三次世界大战——病毒世界大战。此外，文贵先生当天的爆料提到：最近有在中共超限生化武器研制机构工作的爆料革命战友出逃，赴欧洲向欧洲情报部门提供在实验室内中共研制测试中共病毒的所有的实拍视频和有关的官方文件，这将极大地提升人们对中共病毒的认知[1]。此前中共无中生有造谣说中共病毒起源于位于美国马里兰州的德特里克堡军事基地，并要求对此进行调查。中共此举不过是其玩腻了的扰乱人们视线，趁乱逃脱的手法，因为中共拿不出任何实际证据来证明其说法。据路德社5月26日晚间直播报道，拜登已经命令情报界以及其他盟友90天内出具病毒来源报告[2]。有关中共病毒真相的实际证据越来越多地被揭露，中共已经无力继续掩盖下去，中共灭亡的日子越来越接近了。
-
-##### **原文：**Ethan Huff,“ Smoking gun: Workers at Wuhan lab got sick right around time covid “escaped”
-
-##### ”.《Natural News》, May 27, 2021.** **[https://www.naturalnews.com/2021-05-27-smoking-gun-wuhan-lab-workers-sick-covid.html](https://www.naturalnews.com/2021-05-27-smoking-gun-wuhan-lab-workers-sick-covid.html)
-
-#####  [1] 文贵先生5月26日GTV盖特。https://gtv.org/user/5e596957357cc612d35a8044#getter/60aedebe744cbc431364a7e2
-
-#####  [2] 5/26/2021路德时评（路博冠谈）：第一部分，拜登命令情报界以及其他盟友90天内出具病毒来源报告意味着什么？[https://www.youtube.com/watch?v=U-YkF8M5p2I](https://www.youtube.com/watch?v=U-YkF8M5p2I)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：比卡丘
-
-20210528
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-#  
+**整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
+字幕：【JennyL（纽约香草山农场）】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 +1

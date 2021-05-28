@@ -1,39 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【深度报道】关于中共国病毒COVID-19疫情情报的系统分析报告6
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1278823/)
+## 喀秋莎新闻参考 &#8211; 2021年5月27日(星期四)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1278756/)
 
-作者：22rOn
+俄罗斯莫斯科喀秋莎农场 土星
 
-纽约香草山火来和纽约香草山蚊子强力推荐
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
-#### **声** **明**
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17032833/%E5%B0%81%E9%9D%A2K-1-400x225-1.jpeg)
+**一、新中国联邦新闻**
 
-本报告旨在阐述中共国自2005年以来开展有关病毒研究、中共国科研教育机构与香港之间的联系，所有信息均来源于互联网，任何人使用检索引擎都能够获取以下所有信息。分析所提出的线索与结论，仅代表本人观点。
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=a8-iN52Htp4)、[晚间](https://www.youtube.com/watch?v=F5UwvPfJV-w)）:
 
-* * *
+Ⅰ. 中共环球简单几个字“中方回应拜登”，胡锡进微博说中美一旦摊牌意味着什么？
 
-**附件二** **2016病毒项目基金资助情况**
+Ⅱ. 欧日首脑峰会发表联合声明称共同维护台海稳定再次震动中共，习同尼泊尔、西班牙、黑山总统通电话
 
-**本表基于关键词关联检索汇总而成，收集了2019年12月以前2016病毒项目的研究及其涉及的所有资金，部分研究人员姓名未能查找到中文姓名，仅供参考**
+2. 美国参议院5月27日推进了旨在提高美国与中共国技术竞争的能力的立法计划，国会越来越多地寻求对中共政府采取强硬立场。参议员们以68比30的投票结果结束了对价值2500亿美元的《2021年美国创新与竞争法案》（USICA）的辩论，并接近于对该立法进行最终投票。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28131758/%E5%9B%BE%E7%89%8730-1.png)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132713/%E5%9B%BE%E7%89%8731-6.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132740/%E5%9B%BE%E7%89%8732-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132811/%E5%9B%BE%E7%89%8733-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132825/%E5%9B%BE%E7%89%8734-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28132836/%E5%9B%BE%E7%89%8735-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133007/%E5%9B%BE%E7%89%8736-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133155/%E5%9B%BE%E7%89%8737-4.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133222/%E5%9B%BE%E7%89%8738-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133313/%E5%9B%BE%E7%89%8739-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133325/%E5%9B%BE%E7%89%8740-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133339/%E5%9B%BE%E7%89%8741-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133347/%E5%9B%BE%E7%89%8742-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133403/%E5%9B%BE%E7%89%8743-4.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133609/%E5%9B%BE%E7%89%8744-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133621/%E5%9B%BE%E7%89%8745-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133627/%E5%9B%BE%E7%89%8746-1-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133640/%E5%9B%BE%E7%89%8747-3-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133652/%E5%9B%BE%E7%89%8748-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133705/%E5%9B%BE%E7%89%8749-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133716/%E5%9B%BE%E7%89%8750-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133729/%E5%9B%BE%E7%89%8751-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133741/%E5%9B%BE%E7%89%8752-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133754/%E5%9B%BE%E7%89%8753-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133807/%E5%9B%BE%E7%89%8754-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28133819/%E5%9B%BE%E7%89%8755-1.png)
-（未完待续）
+3. 前国务院官员大卫·阿什5月27日告诉福克斯新闻，去年美国政府对中共病毒起源的调查发现，几乎没有证据证明自然起源说。
 
-校对/发稿：飞虹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193555/5_May-1-556x720-1.jpeg)
-**更多资讯，更多关注**
+4. 美国众议院议员计划5月28日提出两项两党法案，涉及中共病毒疫情的起源，并允许受害者家属起诉中共。第一项法案，即“美国制造应急准备法案”，将建立一个类似于911事件的两党委员会，以调查该疫情是如何开始的。第二项法案被称为“永不再发生的国际疫情预防法”，要求允许中共病毒受害者家属起诉中共，取消中共国和任何其他 “在疫情上故意误导国际社会 “的国家的主权豁免。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+5. 在5月27日播出的福克斯新闻频道的 “美国报道 “节目中，参议员汤姆·科顿表示，总统乔·拜登对中共病毒来源的情报界调查不会发现任何超出情报界已经发现的东西，“只是在踢皮球，试图避免与中共的冲突和争议”，拜登只是想把这件事往后推90天，“然后希望这一切消失”。
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+6. 福克斯新闻高级战略分析师杰克·基恩将军5月27日告诉“福克纳焦点”，中共的习近平试图保护武汉实验室的信息，这可能是“犯罪行为”。
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+7. 乔·拜登总统的国家情报总监（DNI）5月27日表示，中共病毒源自中共实验室存在一定的可能性。国家情报局局长艾薇儿·海因斯就中共病毒来自武汉实验室的前景发表了一份声明，她在声明中说，部分内容具有“低度到中度的置信度”。
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+8. 《拉斯穆森报告》5月27日公布的一项调查发现，大多数受访者认为中共病毒“很可能”源自中共国的一个实验室，并支持对此事进行调查。
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+9. 中共重申其与朝鲜的“传统友谊”，据中共官方的新华社报道，王毅5月27日在北京会见了朝鲜的新任驻华大使李龙南，他重申了中共国保持 “高层战略沟通 “的立场。
+
+10. 在香港由北京控制的政府表示将禁止每年纪念天安门广场大屠杀死难者的烛光晚会一个月后，香港警方5月27日正式宣布禁止5月30日和6月4日的游行。
+
+11. 参议员罗恩·约翰逊和佛罗里达州的里克·斯科特在给国务卿布林肯和拜登总统的信中写到，“我们要求提供有关最近病毒报道的信息，即有关拜登总统的团队关闭了对中共病毒起源的调查的信息，其中包括研究病毒起源于中共国武汉实验室的相关内容。”
+
+12.杨洁篪5月26日在访问斯洛文尼亚期间会见了该国总统博鲁特·帕霍尔，并于次日前往克罗地亚，与总理安德烈·普兰科维奇交谈。同样在26日，习近平与黑山总理米洛·久卡诺维奇通了电话，但对中共国的热情在中东欧大部分地区已经降温，这让北京感到震惊。
+
+13. 中共国市场监管部门已要求阿里巴巴旗下的美团暂停其在江苏省的业务三天，并对其罚款235,302美元，理由是美团没有对产品倾销行为和定价欺诈采取行动。
+
+14. 韩联社5月28日援引不具名消息人士的话报道，韩国现代汽车公司正在与中共政府谈判，以出售其在北京的一处工厂用地。这曾经是该公司在北京建造的第一个厂区。
+
+15. 澳洲贸易部长Dan Tehan 5月28日下午宣布，澳大利亚政府正在采取下一步行动，就中共国对大麦征收的关税向世贸组织提出首次索赔，正式要求该世界机构成立一个争端解决小组来解决这一问题。
+
+16. 川普总统的前国家安全顾问迈克尔·弗林对重新关注中共病毒来自武汉实验室的理论发表评论表示，他认为这是一次“武器化行动”。
+
+17. 前国际贸易大臣利亚姆·福克斯敦促鲍里斯·约翰逊引入“碳边界税”，以保护英国公司免受像中共国这样的竞争对手的污染。
+
+18. 根据5月27日发布的一项新研究，过去10年来，中共采取了许多措施来扩大其在联合国及相关机构中的影响力，其中包括向这些组织提供的自愿捐款增加了近350％。
+
+19. 美国国务卿布林肯5月27日表示，中共政府正在继续破坏香港的民主体制，并呼吁中华人民共和国和香港当局释放和撤销对所有根据国家安全法被指控的人的指控。
+
+**二、世界新闻**
+
+1. 随着拜登总统和其他官员要求进一步调查疫情起源的呼声越来越高。脸书5月26日表示，它将不再禁止暗示中共病毒是人为的帖子，这一宣布标志着这家社交媒体巨头的反转。
+
+2. 美国国土安全部5月27日为管道所有者和经营者发布了一项新的安全准则，本月美国东南部的一条殖民管道公司的管道被黑客攻击，中断了燃料供应数日。国土安全部表示，重要管道的所有者和经营者将被要求向该部的网络安全和基础设施安全局（CISA）报告确认和潜在的网络安全事件。
+
+3. 微软公司透露，俄罗斯支持的太阳风（Solar Winds）黑客本周对美国政府机构发起了一场新的网络攻击。
+
+4. 三位政府官员说，美国总统拜登已经决定了他对中共国、日本和印度的重要大使人选，并预计在未来几周内宣布。前芝加哥市长拉姆·伊曼纽尔已被邀请担任驻日本大使。洛杉矶市长埃里克·加塞蒂已被邀请担任驻印度大使。前副国务卿尼古拉斯·伯恩斯被邀请担任拜登的中共国大使。
+
+5. 日本在联合国和其他全球组织中争取更大的话语权，促使日本国民担任的职位出现了两位数的增长，但中共国的增长速度更快。
+
+6. 据国家媒体5月27日报道，朝鲜领导人金正恩发誓要对国内的反社会主义分子进行 “不妥协的斗争”，他试图在与中共病毒有关的困难和美国领导的经济制裁中巩固他的权力。
 
 0

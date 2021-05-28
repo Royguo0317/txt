@@ -1,26 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月27日秘翻快报【头条新闻】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1278336/)
+## 路德时评简讯（视频版）:川普总统去年就说中共病毒来自实验室(2021.5.26早间路德社简讯之路安墨谈)
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1278344/)
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28100659/IMAGE-2021-05-28-214731.jpg)](https://gtv.org/video/id=60b0dbfdb7dff64ac985cb32)
-**新闻总结：**
+《路德社》出品
 
-1.    香港立法机构将批准限制公众投票的提案
+以下视频是详细内容：
 
-2.    新疆再教育营见证者 揭露教育营真相
+内容摘要：
 
-3.    拜登总统要求美国情报部门调查中共病毒的来源，并在90天内向他汇报
+一、川普总统去年就说中共病毒来自实验室
 
-4.    共和党议员要求安东尼-福奇博士被解雇或辞职
+二、Sellin称赞中国人为调查病毒真相做出了巨大贡献
 
-5.    拜登与普京将在日内瓦进行会晤
 
-6.    中共强行介入伊核协定 欲助伊朗胁迫美国
 
-**By:秘翻快报组**
+制作：路德社简讯视频组
 
-**GTV链接:**[https://gtv.org/video/id=60b0dbfdb7dff64ac985cb32](https://gtv.org/video/id=60b0dbfdb7dff64ac985cb32)
+审核校对：玫瑰新闻组
+
+上传排版：玫瑰新闻组
 
 0

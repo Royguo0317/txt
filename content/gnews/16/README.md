@@ -1,23 +1,167 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】李显龙：中美发生军事冲突一切都完了
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1278559/)
+## 众议员迈克·加拉格尔（Mike Gallagher）我们必须对情报进行解密流行病毒起源
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1278495/)
 
-视频剪辑 :  台湾宝岛农场 – 文德
-中听校： 洛杉矶天使农场 – 烟波浩淼
-英翻译：洛杉矶天使农场 – Arthur
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：洛杉矶天使农场 – 小腾腾说
+**字幕内容：**
+Rep. Mike Gallagher
+众议员迈克·加拉格尔
 
-** ****路德：**
+100%, we don’t have access to the lab records
+100%, 我们没有权限访问实验室记录
 
-李显龙这个话就说中共会绑架中国老百姓。造成巨大的人员伤亡和中国国内的各种破坏。美国是不可能的，是不是？美国你看看，伊拉克战争，阿富汗战争死了多少人？加起来就几千人吧。所以他就是说。这个大规模人员伤亡，第一就是中共国的老百姓。第二，他的意思是说，实际上他一个重要的潜台词就是。中共会把战火引向这些小国家，像新加坡。说白了它会绑架这些国家。中共国就是我打不到你美国，我打你新加坡，我打你马来西亚。就这个意思，就是你美国你得保护我们。这句话更加赤裸裸啊。
+The CCP prevaricates they lied
+中国共产党推诿，他们撒谎
 
-他说韩国作为半岛问题的当事国，虽然受到美国的保护，但是无法决定美国如何实施这种保护。如今美朝矛盾尤为突出，经常要为如何促和美朝方，就是前面一句话就是，虽然受到美国的保护，但是无法决定美如何实施这种保护，他的意思就是这个意思。这次文在寅访美发生在拜登政府极力拉拢盟友共同遏制中国的时候，对韩国外交的独立自主性形成新的考验，双方联合声明怎么写将是韩国是否能在美国压力下坚持原则底线的试金石。
+or trying to deflect blame
+或试图逃避责任
 
-你家虽然有警察保护，别人悄悄半夜到你家，拿着枪把你人杀了以后，警察也不管用，你打电话都来不急。他的意思说你韩国无法决定美国何时实施这种保护，就是我先给你干了，美国都来不及反应，就这个意思。韩国无法决定美国如何实施这种保护，多么赤裸裸。就是虽然名义上美国保护你，实际上我分分钟灭了你，就这个意思。美国等到你文在寅人都不在的时候，你所有的政客都不在的时候，现在你就知道了美国保护不了你。
+They’ve not been a cooperative partner since the start of this
+自从大流行开始他们就不是合作伙伴
 
+and the fact that they are trying to place blame on America
+而且事实上，他们试图将责任赖上美国
 
+just show you, shows you the depths of their depravity
+这就告诉你他们堕落的深度
+
+so we have to declassify the intel
+所以我们必须解密情报
+
+we have in order to get to the bottom of this
+我们必须要深挖到底
+
+we know we’re not going to get the cooperation
+我们知道我们不会得到合作
+
+from an increasingly hostile competitor
+来自日益敌对的竞争对手
+
+in the form of the Chinese Communist party
+以中国共产党的形式
+
+it is incumbent upon us to get the information out there
+我们有责任从那里获取信息
+
+America deserves an answer,
+美国应该得到一个答案
+
+the world deserves an answer
+世界应该得到一个答案
+
+we have to get to the bottom of this pandemic
+我们必须深入了解这场大流行
+
+and there is a very complicated and troubling story
+而且有一个非常复杂和令人不安的故事
+
+as I mentioned at the start of this
+如我在开始的时候提到的
+
+about how your taxpayer dollars went to fund this research
+关于美国纳税人资金如何为这项研究提供资金
+
+that could have been the reason this whole thing started in first place
+这可能是整个事情开始出现的原因
+
+Jon Scott (Fox News host)
+乔恩·斯科特（福克斯新闻主持人）
+
+So listen to Jen Psaki the White House spokeswoman
+因此，请听白宫发言人詹·普萨基（Jen Psaki）
+
+talking about what they see as what needs to happen here listen
+谈论他们认为这里需要发生的事情。 听
+
+Jen Psaki (White House spokeswoman)
+詹·普萨基 (白宫发言人)
+
+I will say that our view continues to be
+我要说，我们的观点仍然是
+
+that there needs to be an independent, transparent investigation
+需要进行一个独立，透明的调查
+
+and that needs to happen with the cooperation
+这需要通过合作来实现
+
+and data provided from the Chinese government
+和从中共国政府提供的数据
+
+Jon Scott
+乔恩·斯科特
+
+but cooperation and data is not forthcoming
+但是合作和数据并不会出现
+
+as you have said
+就如你所说的
+
+Rep. Mike Gallagher
+众议员迈克·加拉格尔
+
+yeah I don’t think we should make
+是呀，我不认为我们应该使我们
+
+how we proceed contingent
+如何进行视情况而定
+
+upon the largesse of the Chinese Communist party
+依赖在中国共产党的慷慨上
+
+Because we’ll be waiting a heck of a long time for that to happen
+因为我们为了做到这一点要等很长时间
+
+so we need to take bolder steps to investigate this
+所以我们需要采取更大胆的步骤来对此进行调查
+
+nor can we rely upon the Integrity of the W.H.O.
+我们也不能依靠世卫组织的廉正
+
+I hate to say it
+我讨厌这么说
+
+but the W.H.O. has been compromised by the Chinese Communist party
+但是世卫组织已被中国共产党渗透控制了
+
+so we need our national security officials
+所以我们需要我们的国家安全官员们
+
+to be more forthcoming with us
+更多地与我们保持联系
+
+we need executive branch to declassify all the information they have
+我们需要执行部门对他们拥有的所有信息进行解密
+
+and we need to work in concert with our trusted partners to have such an investigation
+我们需要与我们值得信赖的合作伙伴一起进行调查
+
+in particular Partners like Australia
+特别是像澳大利亚这样的合作伙伴
+
+who you remember call Independent investigation
+你还记得他们提出要进行独立调查
+
+and then got a wave of economic sanctions placed on them by the Chinese Communist Par-ty
+然后中国共产党对其施加了一系列的经济制裁
+
+clearly the CCP is trying to hide something
+显然中共正试图隐藏一些东西
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 : [https://twitter.com/repgallagher/status/1396831226200199172?s=24](https://twitter.com/repgallagher/status/1396831226200199172?s=24)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

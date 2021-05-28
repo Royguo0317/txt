@@ -1,59 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫丽梦博士接受福克斯塔克采访的幕后故事
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1278852/)
+## 【字幕】5/28/2021文贵盖特：为什么躺平币在国内造成这么大的影响？
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/1278857/)
 
-**摘要：在2021年5月22日的盖特视频中，郭先生讲述了闫丽梦博士最新的在福克斯塔克·卡尔森 (Tucker Carlson) 访谈的幕后故事。采访中，塔克建议应授予闫博士“美国总统自由勋章”。郭先生认为闫博士已经做的和正在做的事情，远超任何勋章所能带来的荣誉。当病毒真相大白于天下之时，她将会因为勇气和坚毅而赢得世界的尊重和荣誉。**
+制作： 【彩虹桥】
 
-**据郭先生，闫博士与福克斯新闻的每一次采访的背后都是权力的较量，包括藻泽地和美国政府的力量，但是无数有正义感的人们在帮助我们。真相无坚不摧，“以毒灭共”之火已经在全世界点燃。面对这个凶魔的共产党对人类的残杀和毒害，只有我们 —— 新中国联邦和爆料革命，包括路德社、博士军团和全球的农场 —— 敢讲真话。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28140929/Miles_20210522-getter1.srt.txt)
-**闫丽梦博士接受福克斯塔克采访的幕后故事**
+尊敬的战友们好！已经是5月28号了，今天早上到现在，因为一直在会议中，所以说没有办法录盖特，录的晚了，非常非常的抱歉！
 
-**Miles on Dr. Li-Meng Yan’s Interview with Tucker Carlson of Fox News**
+大家也都知道七哥今天为什么这么忙？现在为啥这么忙？捷报频传，以毒灭共，现在进入了全球的一个共同的，全面对这个新的病毒的一个认知的状态，对灭共也有一个新的认知的状态，可以说以毒灭共，就短短的这几天，完全在全世界变了样，大家也都知道，现在全球轰轰烈烈的，在国内搞得到处要普遍打疫苗，很多战友发信息给我，说七哥到底怎么办？
 
-我相信大家昨天都看了福克斯对闫丽梦科学家，我们的天使的采访，再次震撼了世界。美国和世界新闻媒体中，男的就是这位Tucker Carlson，女的是Oprah Winfrey，[他们]可以说是世界新闻媒体主持人中最牛的。新闻点评最牛的就是他了，Tucker是最厉害的。
+我就是一个建议，能不打，坚决不能打，我就不相信，任何国家和政府他敢说，你打了疫苗后果我承担，打疫苗，让你先写上一切后果你自负，你凭什么打？我打你的疫苗，我凭啥自负啊？你研究的疫苗，我凭什么自负啊？我可以不打啊，而且我相信，包括美国政府和很多国家政府很快会宣布，不打疫苗或不能强迫打疫苗，这是个基本这逻辑，我要给大家回复一下。
 
-I believe everybody has watched the Fox News interview with Dr. Li-Meng Yan, our angel, who shocked the world once again. In United States and world media, the most renowned male TV host is Tucker Carlson, and the best-known female TV host is Oprah Winfrey.  We can say that they are the world’s leading news media hosts. And the best commentator would be Tucker. He is the best.
+第二个就是关于“躺平币”的事情，这个“躺平币”在国内的影响，大家已经都看到了，就在这个话题影响的所有的各个阶段在躺，什么叫“躺平币”？这个“躺平币”的概念，对共产党的影响它来源于什么？来源于当初共产党对中国人，所有的杀地主、分土地、杀土豪，所谓的分土地，造成的严重的后果，今天大家看上去没关系，事实上中国人开始在思考，我们这么辛苦的劳动，到底我们的日子能不能过得更好？为什么我们不能像西方国家一样，拥有自己的土地？为什么不能像西方一样，我们可以选择政府？为什么不能像西方一样，我们想信什么教就信什么教？为什么我们那么辛苦，却没有办法拥有西方一样，体面的生活和基本的房产和车辆？
 
-昨天的访问中除了对科学家充满了更高的敬意之外，说到了[应授予]美国总统勋章。如果科学家拿这个勋章，她在乎这个勋章，她就不会是我们的科学家了，她也不会是我们的天使了。
+在西方买个车，简直是太简单了，是吧？一年都不换新车都不好意思，一般的人，对不对？车便宜得很，我们的很多同事，头两天换的大众的SUV，换的奔驰SUV，都是二手车，新车4万美元，大众的SUV，然后二手车2万美金，这在中国是不可能的，在中国你要打工、还车贷、买房子。头两天，我们很多国内救出来的战友，去买完房子以后，房子带家具，啥都有40万美元，两三百万人民币一个独立的House，一个Acre的地。还有战友在凤凰城买的房子，大概是80万美元，四个Acre的地,带着所有的家具，豪华的不行了，带游泳池。
 
-Yesterday during the interview, he showed the utmost respect to Dr. Yan. He even suggested that she should be awarded the Presidential Medal of Freedom. If she cared about medals, Dr. Yan wouldn’t be our scientist. She wouldn’t be our angel.
+所以说中国人在问，为什么这个国家的土地、天空，都被污染了？人心都被污染？可我们就过不上体面的生活，这不是割韭菜，这已经是..大家要搞清楚，也不是简单的奴隶，就中国人但凡你要明白一点，从各个农村，你打打麻将，炒点肉吃，能吃饱馒头，每天你撅着腚，你干10小时，你都是幸福的了，就这，你在家里面，你还要中毒，就这，你还欠人家的钱，就这，孩子娶媳妇全家破产，就这，得一场病，死不了，活不了，死了，埋不起，埋了，那个坟在那搁不起。很多人都明白，“躺平币”不仅给躺平的人要给币，未来，还要给中国人，要让中国很多阶层的人，都要给他“躺平币”，而且这个计划，我受到了太多人的支持，并且很多金融机构都在了解什么情况，我希望未来把“躺平币”发展成一个，向共产党讨债的一个工具，共产党必须把这些年，欺骗老百姓的钱还给中国人，包括当年所谓的杀富豪、杀地主、抢走的土地，必须还给人民。
 
-昨天晚上播出以后，好多美国朋友，包括昨天我在海上去见面的那位朋友都是帮助在全世界推广科学家的那三份报告的，真正背后沼泽地的人，也是福克斯老板都要害怕的人。他说你怎么看这个问题？
+这就是我几年来说的，必须把权力还给中国人民，一人一票选举的政府，中国人必须有中国的土地，中国人必须要平分中国所有的地下、地上的资源，中国人必须要有拥有自己的，所有各地、各县、各市的所有的资源，不能被外来者剥夺，包括台湾，香港，因为“躺平币”会唤醒大家，让更多的阶层，更多的领域，他去躺平，所以这个“躺平币”影响巨大…大家别着急，这个需要一段时间，现在我们要把团队建起来，有大量的前期投资，大量的前期准备，而且要有绝对的最高端的人员，包括政治、经济，金融系统。
 
-After last night’s broadcast, many of my American friends, including the one I went to see on the sea yesterday, are all helping to disseminate Dr. Yan’s three reports (about the CCP virus). They are the real force behind “the swamp”.  They are also the people that the boss of Fox News is afraid of. He asked me, what do you think?
+另外一个，就是我昨天听到的很多战友给我发很多信息，我没法回复，关于说你买什么币，关于大家问我说，现在的喜币，喜Dollar，我可以告诉大家，现在喜币和喜Dollar发展的程度，是超出你们任何人想象的，未来在市场公开交易的时候，你们都会明白了，大家一定要学会用喜美元，自己合法获得KYC的帐号，千万别忘了合法的使用、聪明的使用喜美元帐号，那是你自己的钱包。
 
-我说科学家天使最重要的就是让世界知道真相，减少灭亡。她是有上天的使命的。如果她在乎任何荣誉，任何虚荣，她就会被击垮了。[所以]不可能的，科学家应该得到的荣誉绝对不是个总统勋章[能衡量的]。等冠状病毒真相大白之日，不仅诺贝尔奖，这都是不配她的，[到时候]会有更大的奖励等待着她。那是全世界人民真正会看到一位天使来到了人间，勇敢的，具有不可思议的毅力，还有她这种把天下苍生的生命摆在[自己]生命之上[的高尚]，这才是真正的我们的科学家天使，而不是这些虚伪的虚荣，这种浮夸。大家走着看。
+另外最近一周两周，很多战友..国内的国外的很多战友要加入到工程团队，我给大家说一下，我没有办法一一回复。你要加入的，请给我个简历，如果你有在工程队伍的战友们，请你直接跟他联系，咱们欢迎大家，只要是战友的，还有能力的，都可以的，不是战友，有能力的也可以，大家可能都知道了，我们现在给所有的GTV，过去G-News,G-Club,G-Fashion,包括盖特,所有工作过够一定时间的,还有现在工作的战友，我们现在是将给10亿股的GTV的鼓励，这个事情在国内影响非常大。
 
-I said topmost priority of our angel scientist is to tell the truth to the world, to reduce the casualties. She has a mission from God. If she was seeking fame and if she had any vanity, she would be defeated. It is impossible that our scientist could receive the recognition she deserves by awarding her the Presidential Medal of Freedom. When the truth about the coronavirus is out in the open, even the Nobel Prize is not sufficient. By then, there will be a much bigger honor waiting for her. By then, the world will see a real Angel on earth with such bravery and incredible perseverance. The way she put the lives of everybody else above her own is true nobility. This is really who our angel scientist is, not hypocritical or pompous. Everybody will see.
+所以这几天在美国的几大..Facebook，Twitter，YouTube的很多的战友都要离开，因为大家都知道，看到了希望，就是你该拿你的工资拿工资，根据你的过去到六月底截止的时间，根据你的工作的时间，来平均，根据不同的阶层，作出的不同的业绩，直接就给你股票了，GTV的股票，这总共是10亿股，这个投资委员会非常不同意，但最终他们还是同意了，原因非常简单，因为现在GTV要重建，如果GTV不重建的话，咱根本没这个机会，绝对不可能，绝对不可能。
 
-对科学家昨天的采访背后有多少世界上勇敢的有正义的人在背后推动？她的每一次采访都是福克斯上层和背后的老板和他的老板和管理层一次又一次的较量的结果，包括和美国政府 — 这不是开玩笑的。
+现在这个10亿股，大概3~4亿股在六月底大概确定下来，发给以前工作在G系列的所有工程师们，然后剩下这一部分，所有的发给未来，最长五年最短三年，也就是GTV上市前，发给所有这些为G系列服务的工程师们，这是个天大的事儿，大家别忘了GTV去年私募的时候，它总共才20亿股，现在拿10亿股来发给了所有的为G系列工作的工程师，大家知道什么意义。
 
-The interview with our scientist (Dr. Yan) yesterday was the result of countless brave and righteous people in the world. Each of her interviews with Fox News has been a result of many power struggles between Fox News Senior Executives, the boss of Fox News, the management team, and also the U.S. government. This is not a joking matter.
+但是这次新GTV的募股是600亿股，这回拿出10亿股来只奖给，G-News,G-Fashion,G-Club,GTV,盖特和所有过去为G系列工程师们，直接一部分就发到你过去工作的时间，然后一部分发给未来的3~5年的在这里工作的工程师，这是天大的奖励，所以说所有的有意向的兄弟姐妹们，请和你熟悉的工程师和各农场联系，这都是抓得着的事实啊，不是共产党给你所说的，未来的中国梦啊，这不是梦，这是现实，最迟9~10月份就发到你个人的名下去了。
 
-现在每天、每时、每刻“以毒灭共”的效率和全世界的影响力真的像被点燃的干柴一样在全世界燃烧。没有人可以阻止“以毒灭共”，因为毒就是共产党放的。可悲的事情 — 全人类只有我们爆料革命、新中国联邦、科学家、路德访谈、博士军团和我们所有全球的农场在面对这个凶魔的共产党对人类的残杀和毒害，只有我们敢讲真话。
+所以说兄弟姐妹们，我不能一一回复，只能在这儿部分回复，谢谢兄弟姐妹们，旁边会议室已经准备好了，我要去开会了。
 
-Every day now, every minute, every second, “spreading the truth of the virus to take down the CCP” is like a wildfire burning around the world. No one can stop it because the CCP has released the virus. The sad thing is that among all the people in the world, only our Whistleblower Movement, our New Federal State of China, our scientist Dr. Yan, Lude media and the PhD team, and all of our farms in the world dare to tell the truth. Only we dare to tell the truth when facing this fierce devil of the CCP as well as its slaughtering and poisoning.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60a91d6693cb4b1e6f9bd7f0](https://gtv.org/getter/60a91d6693cb4b1e6f9bd7f0) (00:05-02:19, 08:12-09:16)
-鸣谢：
-[1] 感谢 Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1266627/](https://gnews.org/zh-hans/1266627/)
-[2] 感谢DD、Liberte 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1267230/](https://gnews.org/1267230/)
-
-* * *
-
-**整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
-字幕：【XO小粉红】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
+0
