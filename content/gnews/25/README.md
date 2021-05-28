@@ -1,25 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《无尽边疆法》在参议院获得通过
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1278120/)
+## 统治者阿萨德在选举中得95％-反对派说“闹剧”
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1278128/)
 
-#### 文章撰写:【默凡】
+信息来源：德国世界报网络版 
+发布时间：2021年5月28日
+翻译 /整理/ 简评： Shuizhuyu
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28083527/Snipaste_2021-05-28_20fdgdfh-34-41.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28084728/APTOPIX-Syria-Presidential-Election.jpg)
 
-美国之音最新报道称：参议院本周四（5月27日）通过了一项旨在提升美国与中共国进行技术竞争能力的法案。参议员以68票赞成、30票反对的结果，结束了对价值2500亿美元的《2021年美国创新与竞争法》(U.S. Innovation and Competition Act of 2021，简称USICA)的辩论，向最终表决更近了一步。
 
-这部法案原名《无尽边疆法》(The Endless Frontier Act)，是由参议院多数党领袖、民主党人舒默倡导提出，该法案接下来将交由众议院进行投票，通过后才送交白宫，由拜登签署成为法律。
+资料来源：美联社/哈桑·阿马尔
 
-《无尽边疆法》法案授权拨款约1900亿美元用于加强美国技术，另外拨款540亿美元专门用于增加半导体、微芯片和电信设备的生产。该法案还寻求通过外交手段、与盟友合作并加强美国在国际组织中的参与，来抗衡北京日益增长的全球影响力。
+根据官方消息，叙利亚统治者巴沙尔·阿萨德（Bashar al-Assad）在总统选举中获得了多数席位。正如议会主席哈姆达德·萨巴格（Hammudah Sabbagh）在周四晚上宣布的那样，他获得了95.1％的选票。自2000年以来，独裁统治国家元首就已经执政。对他来说，第四任期在大选后开始。据报道，投票率接近79％
 
-参考文章：[抗衡中国的一揽子立法接近获参院通过](https://www.voachinese.com/a/US-Senate-tech-bill-china-20210527/5907093.html)
+上周三，两位反对的候选人毫无机会。属于政府容忍的叙利亚内部反对派的马哈茂德·马里（Mahmud Mari）获得3.3％的选票。前国会议员阿卜杜拉·萨勒姆·阿卜杜拉占 1.5%。在七年前的选举中，阿萨德获得了大约89％的选票。
 
-本文仅代表作者本人观点，不代表Gnews平台
+宣布选举结果后，叙利亚官方媒体在全国各地举行庆祝活动。成千上万的人在首都大马士革中心庆祝，尽管电晕大流行，但人们仍然站着不动。许多人挥舞着叙利亚国旗或高举阿萨德的画像。烟花冲天而起。
 
-* * *
+简评： 战乱的叙利亚， 举行了选举，阿萨德再次当选， 这95%的选票让我想起了独裁国家的100%。 这样的选举结果可能是真实的吗？他的政敌实质上根本没有机会。 走上街头兴高采烈的庆祝人群是真心的去的吗？还是有组织的？ 久经战乱的叙利亚有机会重建吗？
 
-*排版发布：日本东京方舟农场 文柯Miles*
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+  发表： Shuizhuyu
 
-+2
+🔗[Syrien-95-Prozent-bei-Wahl-fuer-Assad-Opposition-spricht-von-Farce](https://www.welt.de/politik/ausland/article231417661/Syrien-95-Prozent-bei-Wahl-fuer-Assad-Opposition-spricht-von-Farce.html)
+
++1

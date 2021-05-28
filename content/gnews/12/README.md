@@ -1,68 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【币圈】-数字货币动态- 2021.05.28
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1278292/)
+## “以假灭共”——用敌人的谎言来戳穿敌人的谎言!
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1278308/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+**摘要：在2021年5月17日的盖特视频中郭先生感慨道，5月16日和17日是个幸运的日子，去年的同一天闫博士来到了美国；四年前七嫂和郭美顺利抵达美国。他说近日，《华盛顿邮报》和一个AI网站发布虚假消息，这对爆料革命而言是好事情，因为这些谎言会不攻自破，进而证明了背后存在黑帮的支持，而这个黑帮组织就是中共！而我们用敌人的谎言来戳穿敌人的谎言——这叫“以假灭共”！**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28094418/Miles_20210517-getter1-.srt.txt)
+**“以假灭共”——用敌人的谎言来戳穿敌人的谎言!**
 
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image5.jpg)
+**Taking Down the CCP by Exposing Their Sham**
 
-## **每日一问**
+我记得是去年的同一天，农历的同一天，Dr. Yan 博士来到了美国，[去年]此时此刻她正在洛杉矶机场，我正在给她通话。她[先是]晕倒了，然后我[和她]通话，然后国土安全部过来了，就是在此时此刻，比[现在时间]还晚一点。
 
-### *币圈动荡，监管加速，持币待涨，还是趁势换仓？*
+I remember the same day last year based on the Lunar calendar, Dr. Yan came to the United States. At this time last year, she was at LAX.  I was talking with her on the phone. She fainted at first. Then we had a call after which the DHS came, right at this time or maybe a bit later than right now.
 
-## **喜马拉雅Coin要闻**
+四年前的今天，是你[们]七嫂[和]郭美到达了美国，就是昨天的16号，也就是今天。16号17号，这是很有意思的。
 
-- 淡定，淡定，淡定
+Four years ago on the same date, my wife and daughter came to the U.S..  It should be yesterday (the 16th) or today.  16th and 17th, this is very interesting.
 
+今天我收到了好几个特别好特别好的消息。我心想说这消息太好了呀，咋办呢？我说这敌人的出手咋还没来呢？突然[就]来了—华盛顿邮报[的报道]。又造谣呢，什么 AI 网站[也造谣]，太好了。你们说的瞎话越多，却能证明背后有组织有黑手，却证明[了]我们的伟大。逆增上缘。
 
-## **新闻动态**
+Today I have received several great pieces of news. I thought to myself that this is such great news. What should I do? I was wondering why there are no fist punch actions from the enemies.  Suddenly they came – the article from Washington Post, the fabricated lies. The AI website also lied.  That is great. The more lies you tell, the better they can prove that there is a Mafia-like organization behind you.  It also proves how great we are. In Buddhism, this is what is called: “through overcoming adverse conditions.”
 
-1. Cointelegraph消息，经济学人智库的调查报告显示，在与比特币等加密货币相关的众多并发症中，缺乏对加密的知识和了解是广泛采用加密货币的最大障碍。根据调查结果，有51％的受访者表示，缺乏知识是采用比特币和以太坊等开源加密货币的主要障碍，而34％的受访者则将安全问题视为主要障碍，29％的受访者表示难以知道在哪里购买加密货币。
-2. U.today消息， Skrill披露了Sapio Research发布的最近在七个国家进行的有关加密可见性和感知的调查结果。数据显示，总计84％的受访者知道至少一种加密货币，64%的消费者声称，他们认可比特币。
-3. The Block消息，区块链分析公司Elliptic周四发布了《2021年加密货币合规制裁报告》。报告指出，金融犯罪分子越来越多地利用混合器、隐私币和隐私钱包来掩盖非法获取的加密货币的来源；利用不受监管的交易所来避免KYC；越来越多地参与加密挖矿。
-4. Cointelegraph消息，Coinbase推出Fact-Check功能，以打击在网络上被分享的涉及Coinbase或加密货币的错误信息。
-5. CoinDesk消息，万事达卡Jessica Turner表示，目前已有25万人加入了其与Gemini合作推出的含加密货币返利的信用卡的等候名单。此外，万事达卡于2020年2月加入巴哈马沙钱计划，这意味着万事达卡可以推动采用CBDC，并在组成巴哈马的700多个岛屿上实现普惠金融。
-6. 股票和加密分析师Ronnie Moas发推称，现在有16个比特币ETF正在接受美国证券交易委员会（SEC）的批准。ETF将为散户投资者提供进入比特币市场的途径，而不必拥有比特币本身。
-7. 以太坊开发者TimBeiko发推表示，希望以太坊Ropsten测试网巨鲸发送给其1000至10000 ETH，用于测试EIP-1599。该提案是一个对以太坊交易机制进行优化的机制，旨在使以太坊网络上的交易费用更加可预测，解决当前“按需付费”的收费模式问题。
-8. Uniswap创始人Hayden Adams发推称，社区投票已经获得压倒性地支持Uniswapv3在Arbitrum部署，假设快照通过，会很快将v3智能合约部署到Arbitrum。目前，接口支持和部署计划的工作已经开始。
-9. 官方消息，以太坊扩容解决方案Polygon联合创始人兼首席产品官Anurag Arjun发布更新表示，5月26日，Polygon PoS网络上小部分验证节点和全节点同步不一致，已发布热修复程序。
-10. 官方消息，链上交易聚合器1 inch Network与跨境支付网络Mercuryo达成合作，通过Mercuryo支持法币购买1inch上的DeFi资产，目前仅在ios上支持。Mercuryo是一个跨境支付网络，支持用户在180多个国家通过Apple Pay和Google Pay使用银行卡和一键支付方式购买ETH、DAI、USDT。
-11. 官方消息，纳斯达克上市矿企Riot Blockchain宣布完成对挖矿公司Whinstone的收购，交易中支付的总对价为1180万股Riot普通股和8000万美元现金。
-12. 官方消息，区块链基础设施服务商云象区块链宣布完成过亿元人民币B轮融资，复星梵一基金领投，老股东深创投、杭州红土成长基金跟投。
-13. 韩联社消息，社交软件LINE与韩国智慧电网及能源管理解决方案公司Nuri Flex合作，将在拉丁美洲和非洲提供CBDC区块链平台。LINE将开发适合每个国家的政策和金融环境的CBDC区块链平台。
-14. 官方消息，资产管理公司Simply发行投资组合中含有比特币的名为SPBC的基金。SPBC将把其至少80％的净资产投资于美国股票证券，并期望通过GBTC将高达15％的净资产投资于比特币。
-15. 英伟达在财报中表示，以太坊的下一代迭代（以太坊2.0或Eth2）是对显卡产品需求的潜在威胁。
-16. Trustnodes消息，价值18亿美元的比特币期权将于5月28日（周五）在Deribit上到期。
-17. Skew数据显示，DeFi中稳定币的借款利率创年内新低。
-18. Glassnode数据显示，5月26日流入交易所的BTC数量为51,149枚，价值约19.2亿美元，流出交易所的BTC数量为49,766枚，价值约18.7亿美元。
-19. OKLink数据显示，截至今日10时，Purpose ETH ETF的持仓数量为49523ETH，新增持仓1842ETH。
-20. KuCoin已首发上线 XCAD项目并支持XCAD/USDT交易对。XCAD开盘价为0.1USDT，当前报价7.11USDT，上线涨幅7010%。
-21. OKLink数据显示，当前以太坊2.0存款合约地址已收到5100226.0ETH，质押量超过510万枚。
-22. 近期出现假冒TokenPocket转账二维码截图。对此，TokenPocket发出安全警示，请用户务必提高警惕，谨防钓鱼网站、钓鱼App及各种欺诈手段，增强资产安全意识，避免资金损失。
-23. 韩国央行行长李柱烈表示，加密货币可能会对金融稳定性产生负面影响，其应该与政府密切合作。
-24. CryptoNews消息，西班牙议会投票反税收欺诈法，或将强制西班牙公民对其加密货币的持有量及操作信息进行报告。
-25. The Block消息，美国民主党众议员Darren Soto正在准备一系列加密立法以引入国会。本周二，Soto在能源和商业委员会面前重新提出区块链技术协调法。
-26. Newsbitcoin报道，美国圣路易斯联邦储备银行行长James Bullard近日在接受雅虎财经采访时表示，大多数加密货币”毫无价值”。但他指出，如果加密货币能够促进传统货币难以进行的交易，那么可能与国家支持的货币一起流通。
-27. CoinDesk消息，美国国会议员French Hill和Jim Himes提出了一项法案，要求美国财政部评估数字人民币、数字美元以及实际美元在全球经济中的作用。该法案被称为“21世纪美元法案”。
-28. Republicworld报道，印度联邦院议员Subramanian Swamy在最近的网络研讨会上称加密货币是”未来的主题”，并指出数字货币是关于支付商品交换的最新发展。
-29. Newsbitcoin报道，古根海姆首席投资官Scott Minerd预测，比特币将出现更多抛售，但从长期来看，比特币的价格可能会上升到60万美元。
-30. 与巴菲特分庭抗礼的“华尔街之狼”Carl Icahn表示，可能向某种山寨币投入逾10亿美元的资金。他认为，比特币和以太坊是不同的，比特币仅作为价值存储，而以太坊是底层区块链，在用作价值储存的同时，也可作为支付系统。
-31. CoinDesk消息，美国证券交易委员会主席 Gary Gensler周三表示，DeFi可能给美国投资者带来新的挑战，也给证券监管机构带来了挑战。监管机构建议，由专门的市场监管机构提供一些防止欺诈和操纵的保护措施。
-32. 丹麦央行行长罗德表示，加密货币充其量是“非常具有投机性”的资产。
-33. 新华社北京5月27日消息，虚拟货币价格暴涨暴跌，虚拟货币交易炒作活动大幅反弹。面对乱象横生的“币圈”，国务院金融委日前向市场发出明确信号，打击比特币挖矿和交易行为。
-34. 路透社消息，加拿大央行副行长Timothy Lane周三表示，加拿大央行正在以更具体的方式考虑其数字货币的外观和运作方式，但认为目前发行数字货币的理由并不充分。
-35. 彭博社首席商品策略师Mike McGlone发推表示，以太坊之于金融科技，就像比特币之于黄金。世界正在迅速走向数字化，而以太坊处于食物链的顶端。
-36. Coindesk消息，美国国家安全委员会Carol House周四指出，加密货币在勒索软件攻击、逃避制裁和资助恐怖分子方面发挥的作用，需要对其后台进行一些审查，尤其是对无托管钱包。
-37. The Block消息，美国财政部外国资产控制办公室希望使用Chainalysis的区块链分析工具用于“关键任务研究”，让其全球目标办公室的调查人员能够分析和跟踪虚拟货币交易。
+还有一个更重要的，我们是“以假灭共”，用你的假来戳破你的谎言。有时候最高的高手手里没有武器，但是敌人拿着又是枪又是叉的又是火箭炮的，用[敌人]的枪[和]火箭炮攻击他[自己]— 这才是高！爆料革命就是这样，用敌人的矛刺敌人的盾，用敌人的剑刺穿敌人；用敌人的谎言来戳穿敌人的谎言。你看这多高？
 
+Another more important thing is that we are “taking down the CCP by exposing their sham”.  We use your made-ups to reveal your lies.  Sometimes the best master is someone with no weapon.  When the enemies come with their guns or pitchforks or rocket launchers, the master uses the enemies’ own guns and rocket launchers against them. That is brilliant! The Whistleblower Movement is just like that, using the enemies’ spears to puncture the enemies’ shields, using the enemies’ swords to stab them, using the enemies’ lies to expose their lies.  How brilliant this is?
 
+所以战友们一定要搂住，沉住气。
 
+That is why, my fellow fighters, we must keep cool and stay calm.
 
+这帮愚蠢的东西[们]就这几招，你发现了吗？上报纸，买通记者，“蓝、金、黄”，弄广告，造假谣言，然后123文章。你看[着好了]，过一段时间它就123个网站就出来了：华盛顿邮报，华尔街日报[说我是]双面间谍……哇！双面间谍？好大的事啊！“郭先生啊，这是好大的事啊！”我说，“什么大事啊？什么大事啊？”—“这是个很大的麻烦呐”—我说：“是吗？”我就天生不怕麻烦，多大的麻烦我都能变成有利的武器。
 
+These stupid people only have a few tricks.  Have you seen that?  Bribe the journalists, BGY, pay for some advertisements, rumor-mongering, and then smear articles. After a while, you will see some websites, such as Washington Post and Wall Street Journal accusing me of being a double agent. Wow, double agent.  That is huge.  “Mr. Guo, this is huge problem,” somebody said to me.  And I said: “What is huge? What is huge?”  “This is big trouble,” they said.  But I replied: “Really?”  I am born for trouble-shooting.  I can turn any trouble into a powerful weapon.
 
-*编辑：aQ
-发布：文顾*
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60a31a4137f7f73984ccdbee](https://gtv.org/getter/60a31a4137f7f73984ccdbee) (05:15-07:23)
+鸣谢：[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1253153/](https://gnews.org/zh-hans/1253153/)
+[2] 感谢 dd、Liberte、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于[https://gnews.org/1262931/](https://gnews.org/1262931/)
+
+* * *
+
+**整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
+字幕：【JennyL（纽约香草山农场）】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 +1
