@@ -1,28 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒从东部战区运送至武汉进行动物实验的视频讲解
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1277867/)
+## 拜登重启调查 中共无耻还击
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1277886/)
 
-#### 文章撰写:【默凡】
+#### 翻译报道：七彩光
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28054812/Snipaste_2021-05-28_17-46-40.png)
+#### 校对：胡天
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28060106/1-135.png)图片来源：bbc.com
+据美国联合通讯社报道，由于共和党指责总统对待病毒调查的态度不够强硬，拜登政府正在加入全球性的施压，要求中共对该疫情（的调查）更开放，数月以来，CCP病毒起源于实验室的理论一直被边缘化。
 
-Sellin上校5月28日发推：感谢中共病毒侦探“火来2号”，用图片完美地阐述了我接受采访时的总结。如果您想了解中共病毒释放的完整事件，请观看一下视频。
+美国总统拜登已命令美国情报官员 “加倍 “努力，调查新冠病毒大流行病的起源，包括起源于中共实验室的任何可能性。拜登要求美国情报机构在90天内提交报告。总统要求美国国家实验室协助调查，并指示情报部门准备一份需要中共政府具体回答的询问清单。他还呼吁中共对该大流行病起源的调查进行合作。拜登先生在3月份下令进行初步的情报审查，并在收到作为总统每日例行简报一部分的结论后确定需要进行更多调查。
 
+白宫发言人珍·普萨基（*Jen Psaki*）说，总统还下令将评估报告的节选部分解密，以表明美国政府对调查该大流行病起源的承诺，并增大压力要求中共合作。情报界的大多数人已经围绕这两种情况 “团结起来”，拜登说：”美国还将继续与世界各地志同道合的伙伴合作，迫使中共参与全面、透明、基于证据的国际调查，并有权限获取所有相关数据和证据。”
 
+针对美国总统拜登的命令，中共的反击却是说：**美国不关心事实和真相**
 
-> I thank [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) for this excellent summary of my interview with images perfectly illustrating the important points. If you want to know the events leading to the release of the [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) this is the video to watch.[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/PjYXpeqdVW](https://t.co/PjYXpeqdVW)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 28, 2021](https://twitter.com/LawrenceSellin/status/1398144316749631488?ref_src=twsrc%5Etfw)
+中国2019年底爆发CCP病毒，但中共却指责拜登政府是在玩弄政治操作，称其呼吁重新调查冠状病毒大流行的起源是推卸责任。中共外交部发言人赵立坚说，拜登的命令表明美国 “不关心事实和真相，也对严肃的科学溯源不感兴趣”。中共驻华盛顿大使馆在没有提及拜登命令的情况下，指责不知名的政治势力沉迷于指责游戏，而忽视了防治这一流行病的迫切需要。该大使馆周三在其网站上发表的一份声明中说”抹黑运动和推卸责任正在卷土重来，’实验室泄漏’的阴谋论正在重新浮出水面”。
 
+文章同时提醒注意另一个迹象表明对病毒来源的态度发生了变化，即参议院在没有反对意见的情况下批准了两项与武汉实验室有关的修正案，并将其附在一项基本不相关的增加美国创新投资的法案中。其中一项由参议员兰德-保罗（Rand Paul）提出的修正案将阻止美国对中共关于旨在提高病毒毒性和传播性的功能性增强研究提供资金。保罗参议员一直对政府的顶级传染病专家安东尼-福奇博士持批评态度，并在最近的一次参议院听证会上就中共的工作对他进行了激烈的质疑。另一项修正案来自爱荷华州的共和党参议员乔尼·恩斯特（Joni Ernst），该修正案阻止对武汉病毒研究所的任何资助。
 
+**译评：**
 
-参考文章：[https://twitter.com/LawrenceSellin/status/1398144316749631488](https://twitter.com/LawrenceSellin/status/1398144316749631488)
+美联社作为美国乃至世界最大的通讯社，在报道相关事实真相上显然也存在着自己的立场，显然也对世界上发生着的真实事件和信息视若无睹。如果该文报道记者联系欧洲的相关报道，以及深入探讨为何参议院通过两个修正案都涉及到病毒功能增强性研究事宜，自然会得出更为有深度的报道文章力度。不过，世界的舆论正在转向，自由、民主、法制、利他的群体与独裁专制、自私自利的群体的集体意志对抗正在逐步走向高潮期，“以毒灭共”运动已经走入“深水区”。
 
-本文仅代表作者本人观点，不代表Gnews平台
+原文链接：
 
-* * *
-
-*排版发布：日本东京方舟农场 文柯Miles*
+[Biden orders more intel investigation of COVID-19 origin, China hits back](https://www.9news.com.au/world/biden-orders-more-intel-investigation-of-covid19-origin/148ba386-936a-4669-b327-7d2db00fcc78)
 
 0

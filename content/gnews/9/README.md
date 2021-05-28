@@ -1,44 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报&#8211;美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1277942/)
+## 现在已经分不出独裁国家和恐怖组织了，因为独裁政权就是恐怖集团
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1277738/)
 
-- 作者：土饭团
+- 作者： Jenny Ball
 
 
 ***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
 **西班牙2021年5月28日电/西喜社——**
 
-您若想了解全文报导内容，请点击标题链接
+![]()![](https://cdn.discordapp.com/attachments/825365337506578482/847791041469480990/image0.jpg)
 
-**1.[HHS负责人敦促世卫组织对武汉的“实验室泄漏”进行调查](https://nypost.com/2021/05/25/hhs-secretary-xavier-becerra-urges-who-to-launch-new-covid-probe/)**
+拉脱维亚首都里加-欧洲领导人周一同意对白俄罗斯实施部门制裁，并禁止欧盟航空公司飞越该国领空，这可能对其经济造成沉重打击。
 
-纽约邮报5月25日电，美国卫生和公共服务部长Xavier Becerra周二敦促世卫组织对“大流行”的起源进行第二次调查。COVID-19起源研究的第二阶段必须在透明，科学为基础的职责范围内进行，并赋予国际专家独立性，以全面评估病毒的来源和爆发初期时间。
+这项措施是对白俄罗斯总统亚历山大·卢卡申科在周日，从天空中抢劫一架瑞安航空公司飞机，并逮捕其一名乘客罗曼·普罗塔塞维奇（Roman Protasevich）的野蛮举动做出的异常迅速而有力的回应。 普罗塔塞维奇将面临12年或以上的徒刑。
 
-**[2. Joe Biden要求情报界在90天内报告COVID-19的起源](https://edition.cnn.com/2021/05/26/politics/biden-intelligence-community-pandemic-origins-report/index.html)**
+欧盟领导人说，白俄罗斯国家航空公司将被禁止在欧盟上空飞行或降落。参与强迫下飞机的官员也将面临个人制裁。
 
-CNN 5月26日电，美国总统Joe Biden周三表示，他在3月指示他的国家安全顾问Jake Sullivan，准备一份有关Covid-19大流行病起源的最新分析报告，包括该病毒是否是，由于人类与被感染的动物接触或实验室事故引起的。他本月初收到了这份报告，认为该报告在探讨这个问题上还远远不够，要求进一步跟进调查。
+白俄罗斯的强权为新闻工作者和政治异见人士树立了可怕的先例，他们现在不得不担心，即使他们从一个自由首都转移到另一个自由首都，他们也要穿越迫害人权的政权的领空。
 
-**3.**[** 前联合国大使呼吁美国抵制北京2022年冬季奥运会**](https://www.foxnews.com/politics/nikki-haley-beijing-olympics-boycott-biden-diplomats-covid-probe)
+拜登总统在一份声明中称，这架飞机被改航并逮捕了普罗塔塞维奇，“这是对国际规范的直接侮辱”。
 
-福克斯新闻5月26日电，美国前联合国大使[Nikki Haley](https://www.foxnews.com/category/person/nikki-haley)周二呼吁美国，抵制将于明年2月在北京举行的[2022年冬季奥运会](https://www.foxnews.com/category/sports/olympics)。剥夺CCP控制的国家举办奥林匹克运动会的主要原因之一，就是他们对于COVID-19起源的持续混淆视听和[冠状病毒](https://www.foxnews.com/category/health/infectious-disease/coronavirus)爆发初期的应对措施。
+**评论：题目就是对这篇报道的总结，强权独裁国家就是国家恐怖集团，他们用一国之力实施恐怖活动，哪怕从他们的上空飞过，都难逃他们恐怖的魔爪。庆幸的是世界正义的力量，立刻做出了行动，让世界渴望自由的人们共同起来推翻一切强权政府，让世界各国都有像新中国联邦一样的目标：自由，民主，法制，信仰！**
 
-**4.[CCP媒体向美国报纸支付数百万美元用于广告宣传](https://www.foxnews.com/media/chinese-state-run-media-paid-newspapers-millions)**
+审核： 文乐；校对：阿伯塔； 发稿：信心的选择
 
-福克斯新闻5月26日电，在过去的六个月中，几家美国报纸从CCP控制的新闻社获得了数百万美元的收入。这不是美国新闻出版物第一次接受来自CCP控制媒体的资助。在批评人士抱怨他们发布CCP的宣传之后，《纽约时报》和《华盛顿邮报》等主要报纸终止了与《中国日报》的关系。
-
-**5.[美国计划召开一次四国首脑会议，应对来自CCP的挑战](https://www.reuters.com/world/us-says-looking-quad-meeting-fall-focused-infrastructure-2021-05-26/)**
-
-路透社5月27日电，美国总统Joe Biden在印度-太平洋协调人讲话中说，美国正计划召开一次四国首脑峰会，该峰会是澳大利亚，印度和日本四国领导人应对CCP的挑战，重点是基础设施。Joe Biden和其他领导人承诺面对北京的挑战，努力确保自由开放的印度-太平洋海域。
-
-**6. [美国参议员希望审查CCP对于美国大学的捐赠](https://www.reuters.com/world/us/us-senators-want-review-chinese-donations-us-universities-2021-05-26/)**
-
-路透社5月27日电，美国参议员在周三提出了一项立法，要求对CCP提供给美国大学的主要捐赠和合同进行国家安全审查。这反映出华盛顿对CCP影响美国高等教育及其所构成的潜在国家安全威胁的关注日益增加。
-
-审核： 蚂蚁兄弟；校对：信心满满； 发稿：信心的选择
+**新闻来源：**[《华盛顿邮报》](https://www.washingtonpost.com/world/2021/05/24/belarus-ryanair-airplane-hijack-journalist/)
 
 **[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
 
-+1
++2
