@@ -1,28 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒从东部战区运送至武汉进行动物实验的视频讲解
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1277867/)
+## 足协主席隔空挑战海东大哥，自不量力
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1277417/)
 
-#### 文章撰写:【默凡】
+撰稿：童媚
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28013046/887FAA41-5E1B-4D40-B877-599CF061DF0D.png)
+（图片来自战友）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28054812/Snipaste_2021-05-28_17-46-40.png)
+足协主席在《人民日报》刊文，题目是“让大家看到中国足球的进步与希望“，这是在隔空对我们海东大哥喊话吗？我们看看全文，来戳穿它们的自不量力。
 
-Sellin上校5月28日发推：感谢中共病毒侦探“火来2号”，用图片完美地阐述了我接受采访时的总结。如果您想了解中共病毒释放的完整事件，请观看一下视频。
+文章说：“**球迷对中国足球现状是不满意的，我们的工作要让大家真切地看到中国足球的进步和希望。****”**你们已经工作了几十年了，请问中国的足球进步了吗？想当年海东哥带领球队冲出亚洲，冲进世界杯的瞬间，那才是让球迷看到希望的时刻，自那以后，足球界就是纸醉金迷，假球黑哨比比皆是，当年激动人心的瞬间，在这种管理和体制下，永远不可能重现。
 
+文章说：“**党的十八大以来，以习近平同志为核心的党中央，把振兴足球作为发展体育运动、建设体育强国的重要任务摆上日程。****”**就是因为你们连一个运动，都要被习一尊荒唐的思想所领导，才注定了你们没有任何前途。难道球员的发展、球队的战略、足协的管理都要用习一尊的思想来武装吗？什么是足球精神，体育精神，是超越政治，无关党派的。你作为足协主席，整天溜须拍马，就注定是跳梁小丑。
 
+随后，你的几个问题问的好，也正是广大球迷想问你的：首先，中共国的足球上不去的原因是什么？其次，中共国发展足球的优势又是什么？
 
-> I thank [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) for this excellent summary of my interview with images perfectly illustrating the important points. If you want to know the events leading to the release of the [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) this is the video to watch.[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/PjYXpeqdVW](https://t.co/PjYXpeqdVW)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 28, 2021](https://twitter.com/LawrenceSellin/status/1398144316749631488?ref_src=twsrc%5Etfw)
+我还等着你的高见呢，你居然跳开回答，轻轻松松糊弄过去了，那么就让我来解答你。
 
+中共国的足球上不去的原因是什么？根本原因是体制的腐朽透顶。海东大哥用生动的例子，向我们介绍了体育界外行领导内行的长期现状，不尊重专业，不尊重个体，凡事都套上私利，这样的体制，小到足球领域，大到治国理念，都是败笔。
 
+中共国发展足球的优势又是什么？没有优势。看看海外对下一代的体格是如何注重的，再对比墙内对青少年的摧残，我们就知道，在中共，想要看到未来和希望，几乎渺茫。中共发展体育的方法是从小泯灭人性地将孩子们隔离，用高强度的训练，透支他们的精力，把体育这种原本是伴随生活的爱好，变成他们彰显国家实力的工具，因此中共国的体育健儿完全就是他们的棋子，需要你的时候，用荣誉来引诱你，如果你不是让他们撑门面的世界级高手，那么当你失去了利用价值，也没有其他商业价值可以开发，你就会被他们遗忘，自生自灭。
 
-参考文章：[https://twitter.com/LawrenceSellin/status/1398144316749631488](https://twitter.com/LawrenceSellin/status/1398144316749631488)
+体育界只是中共国的一个产业，一个领域，但体育界的现状也代表了中共的现状。如果说四年前，文贵先生开始爆料，还让中共认为一切尽在掌握中，那么，随着它们一次次的计划失败和被现实打脸，就越来越不能忽视爆料革命和新中国联邦对它们的威胁，以及对世界的改变。
 
-本文仅代表作者本人观点，不代表Gnews平台
+所以当墙内有越来越多爆料革命的追随者，那么中共这70年来为虎作伥的本质被揭露无遗。他们原以为自己胜在对墙内百姓思想的管控和言论的打压，但爆料革命将发生于海内外的事实真相及时传递、精准解读，让许多墙内的百姓都开了智，特别是越来越多墙内精英的出现，让中共开始害怕，因为只要事实不断被验证，真相不断被揭露，中共的溃败就在一瞬间。
 
-* * *
+这篇足协主席的刊文，就是将矛头对准海东大哥，海东大哥在中国足球领域的地位无人能撼动，他正直善良、尊重专业，真心热爱自己从事的行业，他代表新中国联邦人站出来，是对所有中国人的激励。因此，中共害怕了，他们害怕这种精神的带领超出他们的控制，最终导致中国人行动上的一致。因此中共媒体已顾不得用一个国家机器与我们的新晋平台进行看似力量不对等的抗衡，狂妄骄纵、目中无人是中共拿不去的标签，但今日此时，已不是昔日彼时，当战线即将溃败的时候，真正能致胜的，是精神的带领，和无所畏惧的勇气。而海东大哥就是这样一个精神领袖，带领新中国联邦人找回丢失已久的正义、勇气、善良、尊严。我们的队伍会越来越壮大，中共，你们企图用一篇文章就来挑战，根本就是自不量力。
 
-*排版发布：日本东京方舟农场 文柯Miles*
+（本文仅代表个人观点）
 
+*审核、编辑：cindy*
+
+新闻来源：
+
+[足协主席《人民日报》刊文：让大家看到中国足球的进步与希望\_运动家\_澎湃新闻-The Paper](https://www.thepaper.cn/newsDetail_forward_12890862)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
 0
