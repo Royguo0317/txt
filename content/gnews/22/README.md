@@ -1,175 +1,167 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【深度报道】关于中共国病毒COVID-19疫情情报的系统分析报告5
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1278583/)
+## 众议员迈克·加拉格尔（Mike Gallagher）我们必须对情报进行解密流行病毒起源
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1278495/)
 
-作者：22rOn
+**字幕内容：**
+Rep. Mike Gallagher
+众议员迈克·加拉格尔
 
-纽约香草山火来和纽约香草山蚊子强力推荐
+100%, we don’t have access to the lab records
+100%, 我们没有权限访问实验室记录
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-9.jpeg)
+The CCP prevaricates they lied
+中国共产党推诿，他们撒谎
 
+or trying to deflect blame
+或试图逃避责任
 
+They’ve not been a cooperative partner since the start of this
+自从大流行开始他们就不是合作伙伴
 
-#### **声 明**
+and the fact that they are trying to place blame on America
+而且事实上，他们试图将责任赖上美国
 
-本报告旨在阐述中共国自2005年以来开展有关病毒研究、中共国科研教育机构与香港之间的联系，所有信息均来源于互联网，任何人使用检索引擎都能够获取以下所有信息。分析所提出的线索与结论，仅代表本人观点。
+just show you, shows you the depths of their depravity
+这就告诉你他们堕落的深度
 
+so we have to declassify the intel
+所以我们必须解密情报
 
+we have in order to get to the bottom of this
+我们必须要深挖到底
 
-* * *
+we know we’re not going to get the cooperation
+我们知道我们不会得到合作
 
-**附件一** **2016病毒项目参与人员名单**
+from an increasingly hostile competitor
+来自日益敌对的竞争对手
 
-**本表基于关键词检索相关文献的方法，通过同时记录重要参与人员与通讯作者的方式生成，并不代表这是一份完整的人员名单，仅供参考。**
+in the form of the Chinese Communist party
+以中国共产党的形式
 
+it is incumbent upon us to get the information out there
+我们有责任从那里获取信息
 
-| **课题编号** | **课题内容** | **课题参与人** | **所属单位** |
-| --- | --- | --- | --- |
-| 2016YFD0500300 | 重大突发动物源性人兽共患病跨种感染与传播机制研究（母课题） | 谭文杰 | 1. 中国疾病预防控制中心病毒病预防控制所 |
-|   | ** ** | 周育森 | 7. 中国人民解放军军事医学科学院微生物流行病研究所 |
-|   | ** ** | 赵振东 | 4. 中国医学科学院病原生物学研究所 |
-|   | ** ** | 施一 | 1. 中国疾病预防控制中心病毒病预防控制所 |
-|   | ** ** | 高福 | 中国疾病预防控制中心 |
-|   | ** ** | 宋豪 | 中国科学院北京生命科学研究院 |
-|   | ** ** | 崔胜 | 4. 中国医学科学院病原生物学研究所 |
-|   | ** ** | 赵莉蔺 | 2. 中国科学院动物研究所 |
-|   | ** ** | 孙江华 | 2. 中国科学院动物研究所 |
-|   | ** ** | 何桂梅 | 华东师范大学 |
-|   | ** ** | 郑爱华 | 中国科学院武汉病毒研究所 |
-|   | ** ** | 鲁晓晴 | 青岛大学 |
-|   | ** ** | 梁国栋 | 1. 中国疾病预防控制中心病毒病预防控制所 |
-|   | ** ** | 何宏轩 | 2. 中国科学院动物研究所 |
-|   | ** ** | 彭友松 | 17. 湖南大学 |
-|   | ** ** | 吴爱平 | 9. 中国医学科学院苏州系统医学研究所 |
-|   | ** ** | 张磊亮 | 山东第一医科大学（中国医学科学院病原生物学研究所） |
-|   | ** ** | 舒跃龙 | 1. 中国疾病预防控制中心病毒病预防控制所 |
-|   | ** ** | 王大燕 | 中国疾病预防控制中心 |
-|   | ** ** | 蒋太交 | 9. 中国医学科学院苏州系统医学研究所 |
-|   | ** ** | 杨海涛 | 15. 天津大学 |
-|   | ** ** | 籍晓云 | 14. 常州南京大学高新技术研究院 |
-|   | ** ** | 方敏 | 3. 中国科学院微生物研究所 |
-|   | ** ** | 谭钟扬 | 17. 湖南大学 |
-|   | ** ** | 柯友洋 | 解放军171医院 |
-|   | ** ** | 王喆 | 12. 沈阳农业大学 |
-|   | ** ** | 张树义 | 12. 沈阳农业大学 |
-|   | ** ** | 王岚峰 | 中国科学院上海巴斯德研究所 |
-|   | ** ** | 王泽方 | 15. 天津大学 |
-|   | ** ** | 田厚文 | 1. 中国疾病预防控制中心病毒病预防控制所 |
-|   | ** ** | 阮力 | 1. 中国疾病预防控制中心病毒病预防控制所 |
-|   | ** ** | 牛培华 | 1. 中国疾病预防控制中心病毒病预防控制所 |
-|   | ** ** | 沈晓玲 | 内蒙古医科大学 |
-|   | ** ** | Peng Jian | 16. 中南大学（湘雅医院） |
-|   | ** ** | Zhao Jun | 美国南加州大学 |
-|   | ** ** | Xia Zanxian | 16. 中南大学（湘雅医院） |
-|   | ** ** | Liao Qiande | 16. 中南大学（湘雅医院） |
-| 2016YFD0500301 | 重大人兽共患病疫情的快速鉴定、溯源预警及阻断策略研究 | 谭文杰 | 1. 中国疾病预防控制中心病毒病预防控制所 |
-|   |   | 高福 | 中国疾病预防控制中心 |
-|   |   | 赵金存 | 广州医科大学 |
-|   |   | 秦川 | 2. 中国科学院动物研究所 |
-|   |   | 孟颂东 | 3. 中国科学院微生物研究所 |
-|   |   | 齐建勋 | 3. 中国科学院微生物研究所 |
-|   |   | 唐时幸 | 南方医科大学 |
-|   |   | 沈晓玲 | 内蒙古医科大学 |
-|   |   | 舒跃龙 | 1. 中国疾病预防控制中心病毒病预防控制所 |
-|   |   | 王大燕 | 中国疾病预防控制中心 |
-| 2016YFD0500302 | MERS冠状病毒的动物起源、进化及传播研究 | 管轶 | 香港大学 |
-|   |   | 管轶（同） | 10. 汕头大学 |
-|   |   | Hana M. El Sahly | 美国贝勒医学院 |
-|   |   | 余光创 | 南方医科大学 |
-| 2016YFD0500303 | 西尼罗病毒和基孔雅肯病毒自然疫源及传播圈研究 | 王静林 | 8. 云南省畜牧兽医科学院 |
-|   |   | 何宏轩 | 2. 中国科学院动物研究所 |
-|   |   | Chang Yungfu | 美国康奈尔大学 |
-|   |   | 郑爱华 | 中国科学院武汉病毒研究所 |
-|   |   | 袁菲 | 3. 中国科学院微生物研究所 |
-|   |   | 李德新 | 1. 中国疾病预防控制中心病毒病预防控制所 |
-|   |   | 柯昌文 | 广东省疾病预防控制中心 |
-|   |   | 梁米芳 | 1. 中国疾病预防控制中心病毒病预防控制所 |
-| 2016YFD0500304 | 病原感染与传播的实验模型及适应性进化与致病性、宿主嗜性研究 | 陆路 | 复旦大学 |
-|   |   | 姜世勃 | 复旦大学 |
-|   |   | 秦成峰 | 7. 中国人民解放军军事医学科学院微生物流行病研究所 |
-|   |   | 袁国勇 | 香港大学 |
-|   |   | 杜兰英 | 纽约血液中心 |
-|   |   | 史佩勇 | 美国德克萨斯大学 |
-|   |   | 王祥喜 | 中国科学院生物物理研究所 |
-|   |   | 邓永强 | 7. 中国人民解放军军事医学科学院微生物流行病研究所 |
-|   |   | 许执恒 | 中国科学院遗传与发育生物学研究所 |
-|   |   | 李晓峰 | 7. 中国人民解放军军事医学科学院微生物流行病研究所 |
-|   |   | 唐睿康 | 浙江大学 |
-|   |   | 程根宏 | 9. 中国医学科学院苏州系统医学研究所 |
-|   |   | 秦晓峰 | 9. 中国医学科学院苏州系统医学研究所 |
-|   |   | 秦川 | 2. 中国科学院动物研究所 |
-|   |   | 鲍琳琳 | 2. 中国科学院动物研究所 |
-|   |   | 方显杨 | 11. 清华大学 |
-|   |   | 饶子和 | 11. 清华大学 |
-|   |   | David I. Stuart | 牛津大学 |
-|   |   | 满江红 | 国家生物医学分析中心 |
-|   |   | 张波 | 中国科学院武汉病毒研究所 |
-|   |   | 张磊亮 | 山东第一医科大学（中国医学科学院病原生物学研究所） |
-|   |   | 谭文杰 | 1. 中国疾病预防控制中心病毒病预防控制所 |
-|   |   | 秦川 | 2. 中国科学院动物研究所 |
-|   |   | 孟颂东 | 3. 中国科学院微生物研究所 |
-|   |   | 赵金存 | 广州医科大学 |
-| 2016YFD0500305 | 病原与宿主相互作用的重要蛋白的结构解析 | 高福 | 中国疾病预防控制中心 |
-|   |   | 齐建勋 | 3. 中国科学院微生物研究所 |
-|   |   | 高峰 | 天津工业生物技术研究所 |
-|   |   | 谭文杰 | 1. 中国疾病预防控制中心病毒病预防控制所 |
-|   |   | 秦川 | 2. 中国科学院动物研究所 |
-|   |   | 孟颂东 | 3. 中国科学院微生物研究所 |
-|   |   | 赵金存 | 广州医科大学 |
-|   |   | 黄金海 | 15. 天津大学 |
-| 2016YFD0500306 | 不同种属动物免疫进化发育和对病原免疫识别特征研究 | 周育森 | 7. 中国人民解放军军事医学科学院微生物流行病研究所 |
-|   |   | 姜世勃 | 复旦大学 |
-|   |   | 杜兰英 | 纽约血液中心 |
-|   |   | 李放 | 美国明尼苏达大学 |
-|   |   | 杜恩岐 | 13. 西北农林科技大学 |
-|   |   | Suresh K. Tikoo | 加拿大萨斯喀彻温大学 |
-|   |   | 张小莺 | 13. 西北农林科技大学 |
-|   |   | 张林琦 | 11. 清华大学 |
-|   |   | 王新泉 | 11. 清华大学 |
-|   |   | 彭莎 | 13. 西北农林科技大学 |
-|   |   | 华进联 | 13. 西北农林科技大学 |
-| 2016YFD0500307 | 重要病原与宿主免疫系统相互作用及跨种传播机制 | 岑山 | 6. 中国医学科学院医药生物技术研究所 |
-|   |   | 李晓宇 | 6. 中国医学科学院医药生物技术研究所 |
-|   |   | 戈梅 | 上海交通大学 |
-|   |   | 周育森 | 7. 中国人民解放军军事医学科学院微生物流行病研究所 |
-|   |   | 姜世勃 | 复旦大学 |
-|   |   | 杜兰英 | 纽约血液中心 |
-|   |   | 孙世惠 | 7. 中国人民解放军军事医学科学院微生物流行病研究所（解放军军事医学科学院生物工程研究所） |
-|   |   | 赵光宇 | 7. 中国人民解放军军事医学科学院微生物流行病研究所 |
-|   |   | 郭彦 | 7. 中国人民解放军军事医学科学院微生物流行病研究所 |
-|   |   | 陈月红 | 7. 中国人民解放军军事医学科学院微生物流行病研究所 |
-|   |   | 李军峰 | 7. 中国人民解放军军事医学科学院微生物流行病研究所 |
-|   |   | 王新泉 | 11. 清华大学 |
-|   |   | 向烨 | 11. 清华大学 |
-|   |   | 梁臣 | 加拿大麦吉尔大学 |
-|   |   | 秦成峰 | 7. 中国人民解放军军事医学科学院微生物流行病研究所 |
-|   |   | 郭斐 | 6. 中国医学科学院医药生物技术研究所 |
-|   |   | 张林琦 | 11. 清华大学 |
-|   |   | 王新泉 | 11. 清华大学 |
-|   |   | 周保罗 | 中国科学院上海巴斯德研究所 |
-|   |   | 梁米芳 | 1. 中国疾病预防控制中心病毒病预防控制所 |
+America deserves an answer,
+美国应该得到一个答案
 
+the world deserves an answer
+世界应该得到一个答案
 
-（未完待续）
+we have to get to the bottom of this pandemic
+我们必须深入了解这场大流行
 
-校对/发稿：飞虹
+and there is a very complicated and troubling story
+而且有一个非常复杂和令人不安的故事
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
+as I mentioned at the start of this
+如我在开始的时候提到的
 
+about how your taxpayer dollars went to fund this research
+关于美国纳税人资金如何为这项研究提供资金
 
+that could have been the reason this whole thing started in first place
+这可能是整个事情开始出现的原因
 
-**更多资讯，更多关注**
+Jon Scott (Fox News host)
+乔恩·斯科特（福克斯新闻主持人）
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+So listen to Jen Psaki the White House spokeswoman
+因此，请听白宫发言人詹·普萨基（Jen Psaki）
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+talking about what they see as what needs to happen here listen
+谈论他们认为这里需要发生的事情。 听
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+Jen Psaki (White House spokeswoman)
+詹·普萨基 (白宫发言人)
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+I will say that our view continues to be
+我要说，我们的观点仍然是
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+that there needs to be an independent, transparent investigation
+需要进行一个独立，透明的调查
+
+and that needs to happen with the cooperation
+这需要通过合作来实现
+
+and data provided from the Chinese government
+和从中共国政府提供的数据
+
+Jon Scott
+乔恩·斯科特
+
+but cooperation and data is not forthcoming
+但是合作和数据并不会出现
+
+as you have said
+就如你所说的
+
+Rep. Mike Gallagher
+众议员迈克·加拉格尔
+
+yeah I don’t think we should make
+是呀，我不认为我们应该使我们
+
+how we proceed contingent
+如何进行视情况而定
+
+upon the largesse of the Chinese Communist party
+依赖在中国共产党的慷慨上
+
+Because we’ll be waiting a heck of a long time for that to happen
+因为我们为了做到这一点要等很长时间
+
+so we need to take bolder steps to investigate this
+所以我们需要采取更大胆的步骤来对此进行调查
+
+nor can we rely upon the Integrity of the W.H.O.
+我们也不能依靠世卫组织的廉正
+
+I hate to say it
+我讨厌这么说
+
+but the W.H.O. has been compromised by the Chinese Communist party
+但是世卫组织已被中国共产党渗透控制了
+
+so we need our national security officials
+所以我们需要我们的国家安全官员们
+
+to be more forthcoming with us
+更多地与我们保持联系
+
+we need executive branch to declassify all the information they have
+我们需要执行部门对他们拥有的所有信息进行解密
+
+and we need to work in concert with our trusted partners to have such an investigation
+我们需要与我们值得信赖的合作伙伴一起进行调查
+
+in particular Partners like Australia
+特别是像澳大利亚这样的合作伙伴
+
+who you remember call Independent investigation
+你还记得他们提出要进行独立调查
+
+and then got a wave of economic sanctions placed on them by the Chinese Communist Par-ty
+然后中国共产党对其施加了一系列的经济制裁
+
+clearly the CCP is trying to hide something
+显然中共正试图隐藏一些东西
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 : [https://twitter.com/repgallagher/status/1396831226200199172?s=24](https://twitter.com/repgallagher/status/1396831226200199172?s=24)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

@@ -1,32 +1,103 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加媒体：主流如何掩盖病毒实验室来源真相！
-` 加拿大多伦多枫叶农场 硫酸羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1278668/)
+## 拜登政府追究中共释放COVID-19病毒责任，要求对来源作出答复
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1278684/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28130413/wds1-edited.jpg)图片来源：TRUENORTH
+**字幕内容：**
 
+**Maria**：
 
-据加拿大知名自媒体《真北方》（TRUENORTH）于5月28日刊登时事评论员文章报道：COVID19（中共病毒）的实验室起源论正在重新获得全球范围内各界，特别是科学家们的密切关注和逐渐确信。但在此之前，诸如《CBC新闻》，《多伦多星报》和《加拿大国家观察员》之类的主流媒体所发表的相关报道则在没有掌握关于此事之科学共识的情况下，无理驳斥了该病毒来自实验室观点。
+Right now is the first lawmaker to go on the record right here
+现在请第一位在2020年2月就在本节目中
 
-早在此次疫情爆发伊始，《真北方》的所有相关新闻报道涵盖了几乎所有关于COVID19的来源理论，包括该病毒潜在的实验室起源说。并且本媒体创始人马尔科姆女士还在其专栏节目中多次问及为什么当时主流媒体中没有任何人质疑该致命病毒是否从武汉病毒学研究所中流溢而出。
+on this program back in February of 2020
+公开发表意见的议员
 
-而正是由于提出了以上敏感质疑，马尔科姆女士随即遭到了知名自由撰稿人，中（共）国支持者，贾斯汀·凌长期的反复攻击，并声称该病毒的实验室来源论是毫无根据的恶毒谎言。
+and suggest that COVID-19 could have leaked from that Wuhan Lab of Virolo-gy
+他表示COVID-19可能是从武汉病毒学研究所泄露的
 
-为此，该撰稿人还专门在《外交政策》上刊文，继续抨击该理论是“危险的错误信息”和“荒谬的阴谋论”，并表示没有任何证据支持COVID19来自实验室。
+Senator Tom Cotton, you’re done great value for our viewers by your honesty
+汤姆·科顿参议员，你的坦诚为我们的观众带来了巨大的价值
 
-此外，加拿大公共广播公司（CBC）也曾连续发表过类似新闻报道，同样称实验室泄漏说是所谓的“阴谋论”和“虚假信息”。为此，其专栏记者安德里亚·贝莱马雷于2020年3月24日刊文写道：“在COVID19大流行期间，影响最持久，传播最广泛的虚假信息之一就是病毒来源的阴谋论，即导致这场瘟疫的新冠病毒是在实验室中产生，并被偶然地或由某些邪恶的参与者故意释放出来和蓄意传播的。该理论不仅存在于推动此阴谋论的社交媒体和互联网留言板上，而且已被世界上许多政客公开提出。”
+and telling it like it is, and thank you for that
+并告诉他们事实的真相，为此感谢你
 
-同时，像《多伦多之星》这样的地方媒体也和CBC一样，参与并传播了“COVID19实验室来源理论是错误信息”这一毫无科学根据的论调。
+Do you still stand by what you said
+你现在是否仍然坚持你去年所说的观点？
 
-另外，《国家观察者》的“虚假信息研究员”卡罗琳·奥尔也指出，“实验室人工合成理论”是有关该病毒起源“骗局和谣言”的一部分。
+and what have your learned in the last year about this situation?
+以及过去一年你对这一情况有什么新的认识？
 
-实际上，尽管加拿大主流媒体和记者都坚持这些毫无科学根据的说法，但目前随着各种新的确凿证据不断涌现，越来越多的科学家开始认同和接受冠状病毒是来自于中共国实验室人工合成的起源理论。
+Tom Cotton:
 
-最近，一批高素质顶级别的病毒学专家们纷纷在《科学杂志》上刊文，以倡导全世界认真对待“COVID19的实验室起源理论，并将其作为该病毒的最大可能来源，同时还严厉斥责了世界卫生组织对此理论的过于漠视。
+Yeah, Maria
+是的，玛丽亚
 
-[原文链接](https://tnc.news/2021/05/27/how-canadas-media-dismissed-covid-19-lab-leak-theory-without-evidence/)
+it’s hard to believe it’s been 15 months
+很难相信自从你和我第一次讨论这个问题以来
+since you and I first discussed
+已经过去了15个月
 
-本文仅代表原媒体信息和其作者个人观点！
+where I think most our Kansas think is a very common sense proposition.
+我们大多数堪萨斯人认为是一个常识性命题
+
+But it surely is a big coincidence
+但这肯定是一个很大的巧合
+
+that this virus started not up at some remote mountain village
+这种病毒起并不是爆发于某个偏远山村
+
+with caves, full of bats
+那里有满是蝙蝠的洞穴
+
+but rather in downtown Wuhan, a city larger than New York,
+而是在武汉市中心，一个比纽约还大的城市
+
+just a few blocks up the road from labs that was researching bat base corona vi-ruses.
+爆发地点离研究蝙蝠冠状病毒的实验室只有几个街区
+
+And since then, every bit of circumstantial evidence to
+从那时起，有大量的间接证据
+
+include evidence that came out in the final days of the Trump Administration
+包括川普政府在最后几天提供的证据显示
+
+that some employees and staff at this lab
+武毒所的一些员工和工作人员
+
+may have had corona virus like symptoms as early as October, September, 2019,
+可能早在2019年的10月、9月就出现了类似冠状病毒的症状
+
+Continues to point to
+这些证据都指出
+these labs as the origin of this virus,
+这些实验室才是这种病毒的来源
+
+not that food market that the Chinese Communist Party used as cover story from the very beginning.
+而不是中共从一开始就用来掩盖事实真相的农贸海鲜市场
+
+That’s why it’s so imperative that the Biden administration hold the Chinese Communist Party accountable
+这就是为什么拜登政府必须追究中共的责任
+
+and demand answers for all of these questions.
+并要求其回答所有这些关于病毒起源的问题
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接:
+
+[https://twitter.com/sentomcotton/status/1396490390212067329?s=24](https://twitter.com/sentomcotton/status/1396490390212067329?s=24)
+
+英听校： 康州盘古农场 – Mike Li
+翻译：康州盘古农场 – Mike Li
+翻译终校：康州盘古农场 – 柯镇恶
+字幕+视频制作：康州盘古农场- 天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

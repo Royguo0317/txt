@@ -1,55 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】党大于国，无法无天
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1278934/)
+## 福奇对病毒起源改口的真正原因是什么？
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1278964/)
 
-作者：香草山香港部写作组
+**摘要：在2021年5月24日的两个盖特视频中，郭先生揭秘了美国国立卫生研究院 NIAID 主管安东尼·福奇（Anthony Fauci）对病毒起源改口的真正原因——因为“第二个闫丽梦博士”带着实锤证据在欧洲作证使他害怕了；同时“以毒灭共”在世界进展迅速，英国伊丽莎白女王、法国总参谋长和所有过去亲共的官员都站出来开始“说人话”了，印度和日本也已清楚认识到不干共产党，就会被共产党弄死，世界各个联盟纷纷开会决定一定不和中共站在一起。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28160014/Miles_2021-05-24-g1-g2-.srt.txt)
+**福奇对病毒起源改口的真正原因是什么？**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+**What Does Fauci’s Compromise in Virus Origin Mean?**
 
+大家看到现在“以毒灭共”。英国伊丽莎白女王、法国总参谋长、法国的国家的所有过去亲共的、亲共产党腚的那帮王八蛋都站出来开始说人话了。
 
+Everybody has seen the progress we have made to “take down the CCP with the truth of the virus.”  The British Queen Elizabeth, the French Chief of Staff of the army, and all the pro-CCP bastards in France who used to kiss the CCP’s ass in the past, have stepped up and started to talk like human beings.
 
-支联会27日发新闻稿表示，收到政务司司长办公室回复，就 5 月 30 日游行及 6 月 4 日集会，“政府未能确立拟进行的游行及集会符合第 599G 章第 5 条的条件”。此外，支联会今午亦收到警方通知，根据《预防及控制疾病（禁止群组聚集）规例》（第 599G 章），反对 5 月 30 日“毋忘六四”大游行，及禁止 6 月 4 日“六四”维园烛光悼念集会。
+福奇昨天的真正的妥协的原因，就是因为他知道我们有“第二个闫丽梦博士”在欧洲作证了，他才害怕了，才出来说话了。但是我告诉大家，闫丽梦博士的功力还没发出来呢。第二个闫丽梦博士这样神级的科学家还没开始[发力]呢。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28151952/1a5c7631bec50bb1.jpg)图片来源：德国之声
+The real reason for Fauci’s compromise yesterday was because he knew that we had the “second Dr. Li-Meng Yan” testifying in Europe. So Fauci was scared and came out to speak. But let me tell you, Dr. Li-Meng Yan has not played all her cards yet. Another scientist who is at the same level as Dr. Yan hasn’t started showing cards yet.
 
-根据警方向支联会发出的“禁止公众集会及反对公眾游行通知书”，警方考虑到限聚令及本港疫情，应变级别仍为“紧急”的最高级别。警方指，公众集会及游行，属人多聚集的高危活动，警方有理由相信，举行有关活动，会增加活动参与者及其他市民感染病毒的风险。
+还有，在中国的金融界会出来几十个科学家这样的人物来对付共产党。
 
-支联会表示，将根据《公安条例》第 16 条，向公眾集会及游行上诉委员会提出上诉，期望委员会尽快安排上诉聆讯，让市民可以在合法及安全的情况下悼念 “六四”。支联会重申，悼念“六四”是香港人过去 31 年的集体回忆，支联会将继续争取市民合法悼念“六四”的权利。
+Also, dozens of figures in China’s financial sector who are as important as these two scientists will come out to oppose the CCP.
 
-保安局局长李家超出席立法会会议后回应指，现时两个活动是未经批准集结，任何人都不应该参加、宣传、公告，否则是违法，最高可判监五年。他称，“任何人尝试挑战法律，包括限聚令、公安条例、香港国安法等，警方都会严肃处理”。
+不但如此，印度已经清清楚楚的认识到它不跟共产党干，共产党就会弄死它。日本也清楚，不是妥协[就行的]。
 
-李家超指，警务处处长是按照《公安条例》赋予的权力，在考虑所有限聚令、公共秩序等因素后，决定是否反对一公眾活动。如警务处处长反对活动后，该活动就是未经批准集结。
+Not only that, India has clearly realized that if it does not fight the CCP, the CCP will destroy it. Japan also knows that compromising with the CCP is not going to work.
 
-再有在场记者问及叫喊“结束一党专政”是否违反香港国安法。李家超初时仅重复指，任何人尝试挑战法律，他们都会严肃处理。直到再被追问时，他回应：“我不在这里讨论某些行为，会否违反某一法律，但根据国安法清晰列明，任何人如组织、策划、实施，用非法手段破坏、推翻中国宪法下所确立的根本制度，是属于颠覆国家政权罪。每个人都要为自己行为负责，如涉及违法行为，尤其是涉及国安法，我们会严肃按法律处理。”
+仅仅昨天一个周末，在日本，在印度，在非洲的联盟——最最亲共被共产党完全控制的间谍渗透的联盟——非联盟，包括中东这几个中东的联盟和非联盟，包括东非，包括所谓的南南合作的组织，昨天下午都在福奇[声明]之后，所有的人紧急开了会。说：“[应该]怎么应对这个事件？大家都一定最终说是共产党病毒，我们该怎么办？我们是反对吗？”
 
-同样，在澳门已经持续了30年的“六四”悼念活动从2020年开始也被当地政府以防疫为藉口禁止再举办。而讽刺的是，香港卫生署27日公布，香港当日没有录得任何输入个案或本地个案，及少于 5 宗初步确诊，至今累计确诊个案共 11837 宗。根据署方资料，继上一次本地及输入个案都“零确诊”，是去年 10 月 14 日，相隔 226 日，香港再次无任何确诊个案。而在本月6～11日某表演团体在香港的演唱会，更因为政府同意放宽防疫措施，表演场地入场人数上限由50%增至75%。
+Yesterday, only one weekend, in Japan, India, the most pro-CCP unions that have been controlled and infiltrated by the CCP the most for ages, like the African Union, and the alliance in the middle east, East African Federation, including South-South cooperation, were all having respective emergency meetings after the “announcement” of Dr. Fauci yesterday afternoon. They were discussing how to react to this announcement. They said, “Everybody will say this is a CCP virus eventually. What should we do?  Should we go against it?”
 
-再对应近期港共政府对民主派人士做出的一系列政治审判，我们有足够的理由相信，中共对民间发出“结束一党专政”的口号已经是心惊胆战，不能承受。而这一口号在“六四”悼念活动中是重要诉求之一。法律是侍奉人民，而非人民臣服法律。而中共之所以要在香港强推所谓《国安法》，实际就是彻头彻尾的《党安法》，只是用国家安全来掩饰政党安全而已。只要伤害某个政党的利益就等同於颠覆国家，这是任何一个真正有民主、法治独立的国家都会觉得是不可思议的事情，这才是真正的无法无天。
+就像法国参谋长一样，说：“我们要不就是站在未来中美之战的选边站。他们说[只有两个选择]，现在一个是真相，一个是跟共产党站在一起。”所有人最后的答案都是：坚决不跟共产党站在一起！
 
-而新中国联邦一直强调的是中国共产党不能代表中国，不能代表十多亿中国人。而推翻中共的统治不能和种族歧视混为一谈。相反，推翻只代表少数当权者利益的中国共产党，才是对中华民族甚至是亚裔的最大尊重和人权保障。
+Just like the Chief of the Defense Staff of France who said, “We have to choose a side as we are heading towards a reorganization of the world order that is re-structuring around the competition between the United States and China.”  They said: “there are only two choices, one is the truth, and the other is to stand with the CCP.” In the end, they all determined not to stand with the CCP!
 
-参考阅读：
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源[1]: [https://gtv.org/getter/60aba2a8744cbc431363c46e](https://gtv.org/getter/60aba2a8744cbc431363c46e) (2:58-3:50)
+视频来源[2]: [https://gtv.org/getter/60aba4a9744cbc431363c4f4](https://gtv.org/getter/60aba4a9744cbc431363c4f4) (0:10-1:01)
+鸣谢：
+[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1269395/](https://gnews.org/zh-hans/1269395/)、 [https://gnews.org/zh-hans/1269402/](https://gnews.org/zh-hans/1269402/)
+[2] 感谢 YY、DD、Liberte 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1271900/](https://gnews.org/1271900/)、[https://gnews.org/1271909/](https://gnews.org/1271909/)
 
-https://beta.thestandnews.com/politics/%E8%AD%A6%E6%96%B9%E9%80%A3%E7%BA%8C%E7%AC%AC%E4%BA%8C%E5%B9%B4%E7%A6%81%E6%94%AF%E8%81%AF%E6%9C%83%E8%88%89%E8%BE%A6-%E6%AF%8B%E5%BF%98%E5%85%AD%E5%9B%9B-%E9%81%8A%E8%A1%8C%E5%8F%8A%E5%85%AD%E5%9B%9B%E7%87%AD%E5%85%89%E9%9B%86%E6%9C%83
+* * *
 
-校对/发稿：飞虹
+**字幕：【JennyL（纽约香草山农场）】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++2

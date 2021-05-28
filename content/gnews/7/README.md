@@ -1,84 +1,141 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [疫情下的西班牙]各种中共病毒疫苗的毒副作用总结
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1278824/)
+## 参议员就拜登停止对中共病毒调查事件的公开信
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1278874/)
 
-- 翻译：gokuabuela
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28144631/c-31.jpg)worthynews.com
+面对拜登及拜登政府的倒行逆施，没错，就是用了“倒行逆施”这个词儿，笔者在塞林博士的提醒下，一直认为拜登在帮助中共掩盖病毒真相，拖延时间！消息披露后，做贼心虚的拜登第一时间发表了疑似“此地无银三百两”的声明，明显在推卸责任（当然，只看表面现象的人们还是为他限期提交报告的承诺感到欢喜）。这种与魔共舞的罪恶嫌疑行径，自然会引起正道追求者的警惕，参议院当天举行了听证会，并通过了解密中共病毒情报的决议。笔者认为，这只是追责拜登停止调查的开始，昨天两位参议员联名公开致信布林肯，并抄送了拜登。
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+公开信全文如下：
 
-**西班牙2021年5月28日电/西喜社——**
+尊敬的安东尼J.布林肯
 
-由西班牙药品和保健品管理局（AEMPS）编写，并于周二公布了第五份《疫苗药物警戒报告》（COVID-19），包括欧洲药品管理局（EMA）已经确定或正在评估的辉瑞和阿斯利康疫苗的新副作用。
+国务卿，美国国务院
 
-辉瑞疫苗：
+西北C街2201号，华盛顿特区 20520
 
-EMA的【药物警戒风险评估委员会（PRAC）】对中共病毒疫苗的安全性进行了以下方面的评估。
+尊敬的布林肯国务卿，
 
-1. 皮疹和瘙痒：PRAC建议对该疫苗的标签和包装页进行修改，将皮疹和瘙痒（皮肤瘙痒）作为罕见的不良反应（发生率低于1/100）。荨麻疹（瘙痒、红色、块状皮疹）和血管性水肿（皮肤下快速肿胀）应被更新为很少发生的不良反应（发生率低于1/1,000）。
+我们写信要求提供有关最近有关“拜登总统的团队停止了“对中共病毒（SARS-COV-2）起源的调查的信息，其中包括验证病毒起源于中共国武汉一个实验室的理论。
 
-2. 曾经接受过面部皮肤填充剂注射的人的局部肿胀：PRAC还认为这种影响可能与疫苗有关，并将作为一种可能的不良反应纳入标签和包装传单中。
+据报道，这项现在已终止的调查是由美国国务院军控与核查局（the State Department’s arms control and verification bureau）进行的，是唯一一项认真调查中共病毒从中共国武汉一个实验室出现的假设的调查。据报道，调查组在2021年2月和3月向拜登政府官员通报了调查结果，在通报之后，美国国务院终止了这项调查。
 
-3. 血栓形成综合征与血小板减少：PRAC正在密切关注基于mRNA的疫苗（辉瑞和Moderna）是否也可能与阿斯利康和杨森已经发现的异常部位的血栓形成综合征的罕见病例有关。
+迄今为止，世界卫生组织（WHO）是唯一一个对中共病毒的起源进行公开调查的实体，然而，世卫组织的调查受到了外界专家和拜登政府官员的广泛批评，包括您自己，以下是此类批评的几个例子：
 
-4. 心肌炎和心包炎：在接种辉瑞公司的疫苗后，有一些心肌炎（心肌炎）和心包炎（心脏周围膜的炎症）的病例报告。
+●2021年2月13日，国家安全顾问杰克·沙利文（Jake Sullivan）在世界卫生组织的报告之前表示，“我们对中共病毒调查的早期发现的传达方式，以及传达过程中遇到的问题深感担忧。”
 
-阿斯利康疫苗：
+●在2021年3月25日的一次采访中，您讨论了即将发布的世卫组织报告，并表示，“我们对该报告的方法和过程有真正的担忧，包括北京政府显然帮助撰写了报告的事实。”
 
-1 毛细血管渗漏综合征：PRAC启动了对毛细血管渗漏综合征的信号审查，这种情况的特点是液体从血管外渗，导致组织肿胀和血压突然下降。在欧洲和英国之间，在总共注射了3400万剂这种疫苗的情况下，已经报告了5起病例。
+●2021年3月28日，福奇提到世卫组织可能缺乏获取信息的渠道，并表示，“如果事实上，很明显，去那里的人真正看一眼的能力都受到了很多限制，那么我会对此有相当大的担忧。”
 
-2 吉兰-巴雷综合症：PRAC正在定期审查接种阿斯利康疫苗后出现的吉兰-巴雷综合症的报告病例，因为它被确定为一种潜在的不良反应，在这种疫苗的许可期间需要密切监测。这种综合征是一种免疫性疾病，引起周围神经的炎症，导致疼痛、感觉障碍、肌肉无力和行走困难。
+●  2021年3月30日，美国、澳大利亚、加拿大、捷克、丹麦、爱沙尼亚、以色列、日本、拉脱维亚、立陶宛、挪威、大韩民国、斯洛文尼亚和联合王国政府发表声明，批评世卫组织的研究报告缺乏信息和数据，“国际专家对中共病毒来源的研究明显延迟，缺乏完整的原始数据和样本，我们对此表示了同样的担忧。”
 
-3 关于阿斯利康的副作用–血栓形成，AEMPS报告说，截至4月25日，西班牙已经报告了11起病例，其中3起导致了死亡。此外，它们主要发生在30至39岁的人群中。
+●  2021年5月14日，18名科学家发表声明，批评世卫组织缺乏彻底的调查，并指出，“尽管没有发现明确支持自然溢出或实验室事故的证据，但世卫组织的调查小组的评估（却称）来自中间宿主的人畜共患传染病溢出“很可能”，而实验室事故“极不可能。”从而使得这两种理论没有得到平衡的考虑。
 
-**简评：**
+●  2021年5月24日，白宫新闻秘书珍普萨基（Jen Psaki）表示，拜登政府“希望世卫组织能够进入一个更透明、独立的第二阶段调查”，调查中共病毒的起源。
 
-**最近看了加拿大枫叶农场的【医语惊人】节目（强烈推荐）。对疫苗的副作用有了更深的认识，与这份报告一对比，竟然逐一得到了验证，再次证明疫苗是“毒疫苗”。**
+2021年5月26日，拜登总统下令发布一份关于中共病毒来源的情报报告，目前尚不清楚美国国务院为何停止由美国领导的调查中共病毒起源的工作，了解中共病毒的起源对于美国政府预防未来疫情，并最终结束中共病毒疫情的努力是基础性的。为了更好地了解国务院（为何）决定终止对病毒来源的调查，请您在2021年6月10日前提供以下信息：
 
-**首先，这个病毒不是自然起源的，它被赋予了很多“加强型的功能”，从而具有很多非常恶毒的特点。它不会被抗体消灭，而是能够劫持抗体，通俗的说，抗体会变成病毒的“带路党”，从而通过抗体，病毒可以进入人体的免疫系统，引起免疫性疾病。（见报告中：阿斯利康疫苗第2点）**。
+1、请说明国务院终止调查的原因和时间，包括主张终止调查的人的姓名和职务；
 
-**不仅进入免疫系统，还可以在人体内脏里潜伏下来，造成一个慢性的，长期的破坏，容易引起心脏类疾病，大脑神经疾病和生殖系统疾病。这些疾病可能会在5年、10年，甚至更长时间后发作。而且并不表现出中共病毒症状。如果疫苗注射继续下去，人类的平均寿命将大大缩短。**
+2、请提供在现已终止的、国务院对中共病毒来源的调查过程中产生的任何书面材料，包括任何报告草稿；
 
-**还有就是引起血液系统的问题，比如血栓**。
+3、请提供所有收到或审阅过有关国家部门调查中共病毒起源的报告草稿或简报的个人的姓名和职务；
 
-**疫苗的作用是模仿或弱化版的病毒，刺激人体产生抗体，从而消灭真的病毒，但是因为这个病毒的特征，疫苗产生的抗体并不会杀死病毒，而是和病毒合作，来残害人体。**
+4、请提供国务院在调查中共病毒来源过程中引用或依赖的所有文件和书信；
 
-**除了这些中共病毒本身带来的危害，还有一些更多的副作用，我们也进行一些说明：**
+5、请说明国务院目前或以前对中共病毒的来源进行了哪些其他调查；
 
-**辉瑞/莫德纳疫苗：信使类RNA疫苗。它们是通过编辑RNA的一段信息，模仿成病毒的S蛋白，进入人体，产生抗体。**
+6、请提供对中共病毒来源进行调查的个人的姓名和职务；以及
 
-**在进入人体后，它们会释放RNA信息，人体内需要一个“读码器”来读出这些信息，再根据这些信息，每3个碱基合成一个氨基酸，形成抗体。问题是， “读码器”是会出错的，合成的不是我们预计的氨基酸，而是一种谁也不知道的东西，这就是改变基因，发生了不可控的变化，而且这种变化是随机的，根据每个人的情况不同而不同，没人知道最终会在体内形成什么。**
+7、请提供2018年至今国务院谈论武汉病毒研究所的所有文件。
 
-**而包裹RNA信息的外包装 — 脂质纳米颗粒，在制造过程中，因为材料的不成熟，不得已使用了一些对人体有害的材料，比如SM103,PEG等，至少会引起皮疹和瘙痒。**
+谢谢您对此事的及时关注。
 
-**也就是说，接种类似辉瑞这样的MRNA疫苗有三层风险：**
+真诚地，
 
-1** 病毒本身的危害**
+罗恩约翰逊（Ron Johnson）
 
-2** RNA解码过程的不可控失误产生的风险**
+常务调查委员会资深成员
 
-3 **脂质纳米颗粒对人体的伤害**
+里克·斯科特（Rick Scott）
 
-**而类似阿斯利康这样的腺病毒或灭活病毒疫苗，也有3层风险**
+美国参议员
 
-1 **病毒本身的危害**
+抄送：总统约瑟夫·R拜登（t Joseph R. Biden）
 
-2 **工艺的要求。灭活病毒如不能让人体产生抗体杀死病毒（这样疫苗就失效了），或不能让病毒有太大的活性（这样就被感染了）。对工艺要求很高。**
+信函链接：
 
-3** 抗体。此类疫苗共会同时产生5种抗体，而其中只有一种是针对S蛋白的，其他4种会对人体造成什么影响呢？没人具体知道。**
+[https://www.ronjohnson.senate.gov/services/files/138CFFDD-1B57-49A3-9961-CD62B863EDB6](https://www.ronjohnson.senate.gov/services/files/138CFFDD-1B57-49A3-9961-CD62B863EDB6)
 
-**EMA其实是收到大量关于其他副作用的案例和论文的，绝不仅仅是报告中的那些。我们希望科学界本着为人类负责的态度，认清病毒本质和来源，能够有更多的专业人士站出来，像闫博士或者文医战友一样向民众普及中共病毒的真相！**
+原文整理：
 
-素材：gokuabuela；审核：Aries的星；校对：阿伯塔； 发稿：Nuevo唐人
+The Honorable Antony J. Blinken
 
-**新闻来源**：[经济学家报](https://www.eleconomista.es/sanidad/noticias/11209384/05/21/Los-nuevos-efectos-secundarios-de-las-vacunas-de-Pfizer-y-AstraZeneca-que-estan-bajo-estudio-.html)
+Secretary of State
 
-[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
+United States Department of State
 
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+2201 C St. NW
 
+Washington, D. C. 20520
 
+Dear Secretary Blinken,
 
-+1
+We write to request information regarding recent reports that “President Joe Biden’s team
+
+Shut down” an investigation into the origins of SARS-COV-2, which included examining the theory that the virus originated in a lab in Wuhan, China.
+
+According to reports, the now-terminated investigation was run out of the State Department’s arms control and verification bureau and was the only inquiry looking seriously into the hypothesis that SARS-COV-2 emerged from a laboratory in Wuhan, China. “The investigation team reportedly briefed Biden administration officials on its findings in February and March 2021. Following the briefing, the State Department reportedly terminated the Investigation.
+
+To date, the World Health Organization (WHO) is the only entity that has conducted a known public investigation into the origins of SARS-COV-2. However, the WHO’s investigation has been widely criticized by both outside experts and Biden administration officials, including yourself. Below are several examples of such criticisms:
+
+On February 13, 2021, National Security Advisor Jake Sullivan stated in advance of the WHO’s report, “We have deep concerns about the way in which the early findings of the COVID-19 investigation were communicated and questions about the process used to reach them.”
+
+In a March 25, 2021, interview you discussed the pending release of the WHO report and stated, “We’ve got real concerns about the methodology and the process that went into that report, including the fact that the government in Beijing apparently helped to write it.”
+
+On March 28, 2021, Dr Anthony Fauci referenced the WHO’s potential lack of access to information and stated,” If, in fact, obviously, there was a lot of restrictions on the ability of the people who went there to really take a look, then I’m going to have some considerable concerns about that.”
+
+On March 30, 2021, the governments of the United States, Australia, Canada, Czechia, Denmark, Estonia, Israel, Japan, Latvia, Lithuania, Norway, the Republic of Korea, Slovenia, and the United Kingdom, issued a statement that criticized the lack of information and data made available to the WHO study and stated,” we voice our share concerns that the international expert study on the source of the SARS-COV-2 virus was significantly delayed and lacked access to complete , original data and samples.”
+
+On May 14, 2021, eighteen scientists issued a statement criticizing the WHO’s lack of a thorough investigation and noted, “Although there were no findings in clear support of either a natural spillover or a lab accident, the WHO team assessed a zoonotic spillover from an intermediate host as” likely to very likely,’ and a laboratory incident as ‘extremely unlikely.’ Furthermore, the two theories were not given balanced consideration,”
+
+On May 24, 2021, White House Press Secretary Jen Psaki stated the Biden Administration is “hopeful the WHO can move into a more transparent, independent phase two investigation” into the origins of COVID-19.
+
+While on May 26, 2021, President Biden ordered an intelligence report on the origins SARS-COV-2, it remains unclear why the State Department reportedly shut down a U.S.-led effort to investigate the virus’ origins Understanding the origins of SARS-COV-2 is foundational to the U.S. Governments efforts to prevent future pandemics and finally bring an end to the COVID-19 pandemic. In order to better understand the State Departments decision to terminate an investigation into virus origins, we ask that you please provide the following information by June 10, 2021:
+
+1.         Please explain why and when the State Departments investigation was terminated, including the names and titles of the individuals who advocated for terminating the investigation;
+
+2.         Please provide any written materials, including any draft reports, created during the now-terminated State Department investigation into SARS-COV-2’s origin;
+
+3.         Please provide the names and titles of all individuals who received or reviewed any draft reports or briefing on the State Departments investigation in the origins of SARS-COV2;
+
+4.         Please provide all documents and communications that the State Department cited or relied on during the course of its investigation into SARS-COV-2’s origins;
+
+5.         Please explain what other investigations the State Department currently has or previously had into SARS-COV-2’s origins
+
+6.         Please provide the names and titles of the individuals that conducted the investigation into the origins of SARS-COV-2; and
+
+7.         Please provide all State Department cables from 2018 to present that discuss the Wuhan Institute of Virology.
+
+Thank you for your prompt attention to this matter.
+
+Sincerely,
+
+Ron Johnson
+
+Ranking Member
+
+Permanent Subcommittee on Investigations
+
+Rick Scott
+
+United States Senator
+
+Cc : President Joseph R . Biden
+
+0
