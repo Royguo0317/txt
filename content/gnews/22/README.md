@@ -1,28 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒从东部战区运送至武汉进行动物实验的视频讲解
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1277867/)
+## 【战友心声】 混沌记3
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1277248/)
 
-#### 文章撰写:【默凡】
+**作者**：香草山美食部 新世界的一员
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28054812/Snipaste_2021-05-28_17-46-40.png)
-
-Sellin上校5月28日发推：感谢中共病毒侦探“火来2号”，用图片完美地阐述了我接受采访时的总结。如果您想了解中共病毒释放的完整事件，请观看一下视频。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
 
 
 
-> I thank [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) for this excellent summary of my interview with images perfectly illustrating the important points. If you want to know the events leading to the release of the [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) this is the video to watch.[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/PjYXpeqdVW](https://t.co/PjYXpeqdVW)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [May 28, 2021](https://twitter.com/LawrenceSellin/status/1398144316749631488?ref_src=twsrc%5Etfw)
+
+
+今天是极其痛心的一天，上午隔壁老板娘跑过来说，你快去打疫苗，以后每一个人都要打的，过段时间就要收费了。我说我不是叫你们别去打呀，副作用多，她说现在不都没事呀，你现在可以去打了，反正每个人迟早都必须打，那还不如现在免费打呢，我说我不去打，我也劝你别叫孩子去打，她说人家都排队打呢。
+
+中午有同学来单位，喝茶聊天，说起入党的同学打了第二针，还拉着迪同学一起去打，本来迪同学已经听我讲有副作用，不敢打，结果被一动员就打了，而自己打过的人，必定还会劝说别人去打，还说一点不好的感觉都没有，我说，等有了还来得及吗?
+
+身边的人不大喜欢我老说反话，同学更是说我是个反共者，我说我讲的都是事实，又没有乱说啥。同学聊天说起前几天有个小农村的一个70岁左右的老人，倒很有可能是打疫苗的关系，打好半小时就说难受，一个星期不到就死了，家人去医院吵，结果死人都已经被火化了，说是别的毛病死的，跟疫苗无关……
+
+邪恶匪狼当道的今天，老百姓命如草芥，真够凄凉的。
+
+我一时感觉再也悲伤不起来了，不知是因为又回到共产党荼毒下的麻木心态了，还是因为说得太多，没有人信半句，刺激不起内心的波动。还是因为觉得悲剧发生是必然的，真心希望勾起人们的质疑，和不安，多想想“共产党哪一次哪一件事是免费为人民办的？”
+
+朗朗乾坤大好江山，善良民族，却受共匪的蹂躏，共产党的罪孽千古少见。
+
+同学总是说我思想不对，只看坏的一面，而她过的就是卡债的日子，每期到要还了就急得心态都不好，叹息这样的日子何时到头。很多人，活着就为了期望明天能更好，就说不存在辛苦不辛苦，觉得每一个人生活都有定数，是注定的。这就让人们的眼睛看不到实质的内容，不喜欢探真相，因为他们相信明天会更好。善良的人们受着伤害，甚至被杀被自杀，都不肯面对现实讲真话，这不是个人问题，是共产党统治下所有的反人类文明进步的问题，总是信共产党那鬼话连遍的人们心里明白却也不得不承受，有人说是无法去改变，没有办法就没有想法，再就是那种独受受不如众受受，而显得心安理得。眼看善良被愚弄，民心被利用，邪恶的中共视人命如蝼蚁，自吹自擂牛逼大国，口口声声为人民服务，竟然会出现伤民害民杀民的罪恶行径，民智何时开启，愚昧何时退去？
+
+环顾四周，多少人艰苦奋斗为点衣食住行，辛苦了就叹息自己没有背景就得认命，从来就没有想过去责问，去怀疑，去发声，去推翻共产党那更是连想都不敢想也不会想的事。过去的我也是这其中的一个，总以为是自家运气不好，生意失败，就没有想过，是政策的变化无常才导致了这个情况，是共产党的假骗空，一句招商害得我二十多年的心血化为乌有，还有理没处诉，是共产党的邪恶愚民教育才让男人一有钱就变坏。看看辛苦劳作的农民们，何以勤劳致不了富，累死累活的父辈们，少吃少用为前提，也过不上好日子。父母辈总叮咛，节约再节约，说是他们饿过，饿怕了。记得小时候掉了几粒米饭，父母都逼你拾起来吃掉，这样可怜的人们哪来的民主意识公平梦想。就算现在，人们说起外国福利，羡慕着，却也没有一个人觉得我们也有权利争取福利，总觉得那是千里之外外国的权利，底层人哪有如此高度的认知能力，更不会有自由民主的理想。
+
+感恩上天赐予我如此大的福份，让我拥有了理想，拥有了智慧和勇敢，让我跟随伟大的队伍，做了其中一根灭共的稻草，一直觉得善良没有利益好处，反常受那些花言巧语人的利用，上天用事实告诉我，善良就是通达阳光的路，善良就是心灯，会得到喜马拉雅圣洁光芒的照耀。
+
+我也曾受过社会之累，差一点就跌进万丈深渊，在绝望中，受了上天眷顾和怜悯，缘结爆料革命，心中充满了希望，我的生活起死回生。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28003700/image0-20-1.jpg)
+
+当见证着大智大勇的七哥之伟大，当看着屏幕那头战友们勇敢的抗议游行队伍，我激动得不能自已，我有了理想，有了信仰，我也勇敢地成为爆料革命的战友们中的一员。每一张游行照片，每一个游行的镜头下战友们的正义之声，都让我感动得一塌糊涂，那时上班的时候常戴着耳机看着听着就激动地流泪，同事常用疑惑的眼神看我，每一次听战友们的豪言壮语，打倒中共的声音威力冲天，就让我敬佩又敬爱，我们新中国联邦人正义勇敢智慧高素质。
+
+我是19年醒悟的，20年脱胎换骨，从听七哥、路德爆料开始，慢慢拂去了心的尘埃，得到了救赎，干净了灵魂，干净了思想，干净了言行举止，拥有了独立思考，恢复了心智！正义之气从内心深处向外延伸，懦弱的性格蜕化成勇敢坚定坚强乐观的新时代的健康的心性，每天一句已经开始，让人生充满了激情和感恩。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28003250/image0-21-1.jpg)
+
+我们爆料革命拯救世界的人身安全，同时也拯救堕落的灵魂，挽救腐败的信仰。
+不敢说真话是个人的耻辱，不能说真话是时代的耻辱……
+
+共产党你该结束了！
+
+编辑：遍地开花 校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193555/5_May-1-556x720-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
 
 
 
-参考文章：[https://twitter.com/LawrenceSellin/status/1398144316749631488](https://twitter.com/LawrenceSellin/status/1398144316749631488)
 
-本文仅代表作者本人观点，不代表Gnews平台
-
-* * *
-
-*排版发布：日本东京方舟农场 文柯Miles*
 
 0

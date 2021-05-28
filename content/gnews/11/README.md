@@ -1,44 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报&#8211;美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1277942/)
+## 俄罗斯在北极秀肌肉
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1277983/)
 
-- 作者：土饭团
+信息来源：德国镜报网络版 
+记者：马可·卡桑（Marco Kasang）
+发布时间：2021年5月27日
+翻译 /整理/ 简评： Shuizhuyu
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28071632/IMG_0542.jpg)
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+图片来源： 视频截图
 
-**西班牙2021年5月28日电/西喜社——**
+军事基地看起来像一个空间站，而核潜艇则可以突破冰河：俄罗斯正在北极大规模武装自己。北极的战略重要性正在增强-冰的融化加速了北极的发展。
 
-您若想了解全文报导内容，请点击标题链接
+美国国务卿安东尼·布林肯（Anthony Blinken）表示：“我们已经看到俄罗斯提出了不合法的海事主张，特别是在规范外国船只在北海航线上的通行方面。这与国际法相抵触。这是我们必须应对的事情。俄罗斯应该对此作出回应。
 
-**1.[HHS负责人敦促世卫组织对武汉的“实验室泄漏”进行调查](https://nypost.com/2021/05/25/hhs-secretary-xavier-becerra-urges-who-to-launch-new-covid-probe/)**
+他的俄罗斯同事谢尔盖·拉夫罗夫（Sergei Lavrov）重申俄罗斯宣称拥有该领土的所有权，并强调说，俄罗斯对沿海地区的安全负责。
 
-纽约邮报5月25日电，美国卫生和公共服务部长Xavier Becerra周二敦促世卫组织对“大流行”的起源进行第二次调查。COVID-19起源研究的第二阶段必须在透明，科学为基础的职责范围内进行，并赋予国际专家独立性，以全面评估病毒的来源和爆发初期时间。
+俄罗斯外交部长谢尔盖·拉夫罗夫（Sergei Lavrov）：“重要的是，我们在北极理事会内部发展积极的关系，以包括军事部门。我们已经进行了讨论。最重要的是，通过恢复总参谋部在军事问题上的对话。”
 
-**[2. Joe Biden要求情报界在90天内报告COVID-19的起源](https://edition.cnn.com/2021/05/26/politics/biden-intelligence-community-pandemic-origins-report/index.html)**
+到目前为止，还没有对话的话题：俄罗斯正在稳步扩大其在北极的威胁背景。 3月，这些唱片开始传播开来：俄罗斯核潜艇突破冰层，从而再次突显了俄罗斯在北冰洋北部的至高无上地位。反过来，美国则敦促丹麦扩大格陵兰岛的防御能力。冲突可能会进一步升级：2020年7月，北极的冰盖达到历史最低点。
 
-CNN 5月26日电，美国总统Joe Biden周三表示，他在3月指示他的国家安全顾问Jake Sullivan，准备一份有关Covid-19大流行病起源的最新分析报告，包括该病毒是否是，由于人类与被感染的动物接触或实验室事故引起的。他本月初收到了这份报告，认为该报告在探讨这个问题上还远远不够，要求进一步跟进调查。
+简评： 北极有极大丰富的矿产资源， 靠近北极的国家都对北极感兴趣。由于北极冰盖的融化， 那里可能会变成一片海洋， 那么亚欧之间的海运通道也是最短的也是无障碍的。 所以对于很多国家包括美国都有诉求。 各国已经开始对此进行对话， 而俄罗斯是首当其冲的要宣誓主权的国家。
 
-**3.**[** 前联合国大使呼吁美国抵制北京2022年冬季奥运会**](https://www.foxnews.com/politics/nikki-haley-beijing-olympics-boycott-biden-diplomats-covid-probe)
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
 
-福克斯新闻5月26日电，美国前联合国大使[Nikki Haley](https://www.foxnews.com/category/person/nikki-haley)周二呼吁美国，抵制将于明年2月在北京举行的[2022年冬季奥运会](https://www.foxnews.com/category/sports/olympics)。剥夺CCP控制的国家举办奥林匹克运动会的主要原因之一，就是他们对于COVID-19起源的持续混淆视听和[冠状病毒](https://www.foxnews.com/category/health/infectious-disease/coronavirus)爆发初期的应对措施。
+🔗[russlands-muskelspiele-im-eismeer](https://www.spiegel.de/ausland/arktis-russlands-muskelspiele-im-eismeer-a-180086a2-c8f0-4801-87b5-769b752c7fd0)
 
-**4.[CCP媒体向美国报纸支付数百万美元用于广告宣传](https://www.foxnews.com/media/chinese-state-run-media-paid-newspapers-millions)**
-
-福克斯新闻5月26日电，在过去的六个月中，几家美国报纸从CCP控制的新闻社获得了数百万美元的收入。这不是美国新闻出版物第一次接受来自CCP控制媒体的资助。在批评人士抱怨他们发布CCP的宣传之后，《纽约时报》和《华盛顿邮报》等主要报纸终止了与《中国日报》的关系。
-
-**5.[美国计划召开一次四国首脑会议，应对来自CCP的挑战](https://www.reuters.com/world/us-says-looking-quad-meeting-fall-focused-infrastructure-2021-05-26/)**
-
-路透社5月27日电，美国总统Joe Biden在印度-太平洋协调人讲话中说，美国正计划召开一次四国首脑峰会，该峰会是澳大利亚，印度和日本四国领导人应对CCP的挑战，重点是基础设施。Joe Biden和其他领导人承诺面对北京的挑战，努力确保自由开放的印度-太平洋海域。
-
-**6. [美国参议员希望审查CCP对于美国大学的捐赠](https://www.reuters.com/world/us/us-senators-want-review-chinese-donations-us-universities-2021-05-26/)**
-
-路透社5月27日电，美国参议员在周三提出了一项立法，要求对CCP提供给美国大学的主要捐赠和合同进行国家安全审查。这反映出华盛顿对CCP影响美国高等教育及其所构成的潜在国家安全威胁的关注日益增加。
-
-审核： 蚂蚁兄弟；校对：信心满满； 发稿：信心的选择
-
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
-
-+1
+0

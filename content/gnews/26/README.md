@@ -1,41 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英媒观察：中共国单身男人和不想要孩子的女人
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1277807/)
+## 中共病毒从东部战区运送至武汉进行动物实验的视频讲解
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1277867/)
 
-撰稿：喜妈
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28051628/%E4%B8%AD%E5%85%B1%E5%9B%BD%E5%8D%95%E8%BA%AB%E7%94%B7%E4%BA%BA%E5%92%8C%E4%B8%8D%E6%83%B3%E8%A6%81%E5%AD%A9%E5%AD%90%E7%9A%84%E5%A5%B3%E4%BA%BA.png)
-（来自网络截图）
+#### 文章撰写:【默凡】
 
-BBC最近报道：根据中共国十年一次的人口普查显示，中共国的生育率“已降至1960年代以来的最低水平”。这个结果导致人们呼吁“终止生育控制政策”。而英国媒体引用中共国民间的反映，指出独生子女政策并不是“唯一阻止它们的措施”。当下的中共国的年轻人与他们的父辈存在生育上的“观点差异”，同时中共体制下年轻的城市华人“对分娩的态度正在发生变化”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28054812/Snipaste_2021-05-28_17-46-40.png)
 
-BBC的报道认为：“数据说明一切”。数据显示婴儿出生率“是自1960年代以来的最低记录”；因此中共国就将面临比“预期更快”的“人口下降的担忧”。由于“年龄结构的倒置”，新出生人口减少，“老年人比年轻人多”的情况就会很快出现。中共国将有一个确定的问题，“将没有足够的工人来支持老年人”，并且整个社会“对健康和社会护理的需求可能会增加”。
+Sellin上校5月28日发推：感谢中共病毒侦探“火来2号”，用图片完美地阐述了我接受采访时的总结。如果您想了解中共病毒释放的完整事件，请观看一下视频。
 
-文章指出：这个未来的方向还将导致“找到妻子的男人数量”大幅减少，“更不用说想建家庭”。这个问题“可能会特别恶化”。中共国“存在严重的性别失衡”，“男性比女性多3490万”。独生子女政策和传统上重男轻女的文化等都是这个问题的原因。
 
-报道引用新加坡研究者报告称：这将给“婚姻市场带来了问题”，尤其是“那些社会经济资源较少的男人”。为什么放开二孩政策，仍然没有对这些问题产生实质的改变？因为，中共在放宽政策同时“并没有带来其他支持家庭生活的变化”，例如“对教育的资金支持”或“对儿童保育设施的使用”。文章指出：中共民间的声音反馈，“在生活成本上涨的情况下，许多人根本负担不起抚养孩子的费用”。
 
-文章引用相关研究人士的观点，“人们不愿生育并不在于生育的过程，而是后果”。中共国社会中，人们对于成功的的观念不再以“结婚和生子等生活中的传统标志来定义”。同时，按照传统观念，“女性仍然被认为是主要的照料者”，女性认为这会“削弱她们的职业前景” 。
+> I thank [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) for this excellent summary of my interview with images perfectly illustrating the important points. If you want to know the events leading to the release of the [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) this is the video to watch.[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/PjYXpeqdVW](https://t.co/PjYXpeqdVW)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 28, 2021](https://twitter.com/LawrenceSellin/status/1398144316749631488?ref_src=twsrc%5Etfw)
 
-文章指出：在微博平台微博上，“为什么这一代年轻人不愿意生孩子”的标签“被阅读了4.4亿多次”；这说明中共国的社交媒体人们对此问题有足够的关注和热议。文章指出：中共国的现实是，女性就业压力大，妇女“没有很多好的工作”，而那些“干得好的女人会想尽一切办法”保住自己的工作。文章引用墙国人民的民间观点“当没有人想要生孩子的时候，将其放开是没有用的”。
 
-文章还探讨了与此有关的其他方面，包括城乡差异，代际差异和未来改变的可能性等。
 
-综合以上的信息，笔者认为，我们很欣喜地看到，国际社会有对中共国人口问题上国情和民间真实状态的反映。当墙国人自己都以为万罪都归于计划生育政策的时候，西方媒体已经看到了这个中共体制下已经无法用政策调整和改变的日趋恶化的各种社会问题。
+参考文章：[https://twitter.com/LawrenceSellin/status/1398144316749631488](https://twitter.com/LawrenceSellin/status/1398144316749631488)
 
-人口问题不是一个简单的数量减少的现象。人口问题会从根本上改变中共利益和权力全部运转的体系。中共长期用九个锅盖去盖住10口锅的方法，拆东墙补西墙，左口袋掏空給右口袋的拙劣手法，已经玩不转了。人口基数的减少，市场的萎缩，各种本来就存在的社会痼疾和制度的腐化，将全部都暴露出来。那些通过圈地、炒房、虚高股市、大量印钞、养老资金挪用等各种潜藏的猫腻都会出来，也不再能够救回中共的未来。
+本文仅代表作者本人观点，不代表Gnews平台
 
-中共没有了一个健康循环和运转的人口发展体系，也就不会有一切与之伴随的富有弹性的增长点和缓冲区。从这个意义上说，没有可持续的人口发展及其带来的红利，就没有了其他相关行业的有效增长和发展空间。中共想要续命，也就完全没有了可能。中共至今都是将全体中国人民绑架在它的奔向悬崖的破车上，过载行驶，一路狂奔。
+* * *
 
-人口是中共在国际社会招摇的无形资产和有形市场构建基础，没有了富有活力的社会构建基础，就没有了底气，没有了竞争力。中共国内老的干不了活，还得要活，还得要医养；而小孩子却越来越少，年轻劳力萎缩，市场封闭，经济死循环，它要干啥都干不了，推进无力。国内的形势是可以预期的每况愈下，国际的局势是更加对它不利，这两相夹击，中共不灭都不可能。我们要充满信心，继续分享爆料革命真相，灭共的胜利，很快会出现曙光了。
+*排版发布：日本东京方舟农场 文柯Miles*
 
-本文纯属个人观点
-
-审核：cindy
-
-参考资料：
-
-[https://www.bbc.com/news/world-asia-china-57154574](https://www.bbc.com/news/world-asia-china-57154574)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
-+1
+0
