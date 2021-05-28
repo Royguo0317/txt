@@ -1,53 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】亿万富翁卡尔•伊坎Carl icahn准备携重金进入虚拟货币市场
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1277617/)
+## 质疑核掩体中没有胡叼盘位置的微博为何被删
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1277684/)
 
-作者：香草山商业组 文锤
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28035756/007uPjKmgy1gqxdc4r64rj30s00nndj3_%E5%89%AF%E6%9C%AC.jpg)
+据[**胡锡进**](https://weibo.com/huxijin?refer_flag=1005055013_) [2021年5月27日 14:26](https://weibo.com/1989660417/KhoTu9pRf?from=page_1035051989660417_profile&amp;wvr=6&amp;mod=weibotime) 来自 [HUAWEI P30 Pro](https://app.weibo.com/t/feed/1TqjXH)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191310/s2-7.jpg)
+鉴于美国对中国的战略围堵不断强化，老胡想再次提醒，我们有很多紧迫的工作，但其中最重要的之一，是不断快速提高核弹头和东风41这种高远程、高生存能力战略导弹的列装数量。这是中国对美战略抵制力的基石。
+我们必须为中美一旦发生高烈度的摊牌做好准备，到那时，大量的东风41和巨浪2巨浪3将是我们战略意志的支柱。我们的核导弹数量一定要多得让美国精英们届时一动与中国军事对抗的念头就瑟瑟发抖。
 
+在这样的基础上，我们可以从容不迫地积极与美国管控分歧，避免各种擦枪走火。美国的对华敌意不断熊熊燃烧，我们要用实力和他们一旦冒险将面临的不可承受风险迫使他们保持冷静。[#V光计划#](https://s.weibo.com/weibo?q=%23V%E5%85%89%E8%AE%A1%E5%88%92%23&amp;from=default)收起全文d
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28035817/007uPjKmgy1gqxdc3uz68j60hp0m842102.jpg)
+对此中国人民大学教授*张鸣*提问胡锡进：一冲突就发核武器，你断定美国不会报复?你肯定美国的核武没有中国多?一旦打起来，你断定核掩体里有你的位置?
 
+​
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28035810/007uPjKmgy1gqxdc4r64rj30s00nndj3.jpg)
+但是经查张鸣教授的新浪微博账户[张鸣](https://weibo.com/u/1707683373?is_all=1#feedtop)，却是下边的情况——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28035834/%E6%8D%95%E8%8E%B7-4.png)
+根据郭文贵先生在[419 断播门四周年文贵直播：美国媒体从自由灯塔，堕落到今天的黑暗灯塔，由五大家族控制；媒体的力量，拥有定义权，定价权；社交媒体是第一武器；中共用武器新闻企图控制世界；G-TV的价值在稀缺性，是情报交易平台](https://gtv.org/video/id=607d815f7e083973a72b95be) 中曾经提到：
 
-2021年05月27日
+［七哥在一年前，我在船上接受战斗室直播的采访，还有那个那个很多媒体问我，共产党，我是第一个告诉西方的在几年前，共产党最早国家安全委员会成立安全部，从江时代后期就定义为社交媒体是跟西方作战斗争的第一武器，远远重要于核武器。］
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28030416/%E5%9B%BE%E7%89%876-25.png)
+手握媒体核武器和原子核武器的中共为何要删除张鸣教授质疑核掩体中没有胡叼盘位置的微博并且对其他微博也实行连坐？因为张鸣教授的质疑透露了党国的核心秘密——中共真要打核大战的时候，核掩体里绝对不会有胡叼盘的位置。
 
-84岁的亿万老富翁，卡尔•伊坎昨天对bloomberg 提到，自己要用一种BIG WAY 进入虚拟货币市场，啥叫BIG WAY 呢？他将准备15亿美元投入到这个市场里。这位老先生原来是对虚拟货币持怀疑态度的。2018年，他曾经告诉CNBC说，虚拟货币是荒谬的，他绝对不会碰那个玩意儿。但是就在昨天，周三的时候，卡尔表示，他将考虑有大的动作进入虚拟货币市场，不仅仅是买几个钢镚那么简单，他将投入1.5个Billion 的美元进入到虚拟货币市场，同时他有一段非常类似于文贵先生的论断。
+中共为何不删除胡叼盘关于核讹诈的微博，因为胡叼盘的核讹诈言论恰恰是中共官方想说而不便说的，万一这个世界听信了胡叼盘的核讹诈那不就不战而屈人之兵了么？而张鸣教授的不解党国风情由此可见一斑，万一胡叼盘被张鸣教授唤醒而掉转狗头向中共要核掩体的位置该咋办呀？由是观之，不仅要删除张鸣教授的质疑微博，还要连坐其他博文，因为张鸣教授打狗不看主人，而且还有可能唤醒主人的狗，兹事体大，不得不防！
 
-“今天发行的许多加密货币将无法生存，但我们认为，一种或另一种形式的加密货币可能会保留下来。要明确的是，我们从未购买过任何加密货币，但我们正在对其进行研究。”
-
-另外一段他的观点就更绝了，卡尔认为，那些没有储备价值的虚拟货币将被市场淘汰，只有具有某种内在安全价值的虚拟货币能够存活下来……
-
-这不是正好在说明咱们喜币与美元挂钩，并且有黄金储备作为内在价值支撑的虚拟货币，才能够真正屹立于未来世界虚拟货币市场吗？
-
-我简直就要怀疑他的15亿美刀是不是要投入到喜美元和喜COIN里面来！
-
-让我们拭目以待！
-
-消息来源：
-
-https://cointelegraph.com/news/billionaire-carl-icahn-says-he-may-drop-up-to-1-5b-into-crypto/amp?\_\_twitter\_impression=true
-
-https://twitter.com/michael\_saylor/status/1397665847573979138?s=21
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191415/M5-2.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（文章内容仅代表作者个人观点）
 
 +1
