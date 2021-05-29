@@ -1,103 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “掀锅盖”系列：20210522中共军方内斗，中东反水，高层家属撤离中共国
-` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1280769/)
+## 【香草诗词汇】好好活到那一天
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1280825/)
 
-**郭先生口述内容：**
+## *-人身的霞满绽放-*
 
-中国共产党的内部的政治斗争
+## *–灵魂的超脱重生-*
 
-已经到了水火不容
+## 
 
-大家要看到的是军方
+作者：纽约香草山健身部 澄道
 
-中共的军方从来没有像今天一样
-
-一个人说了算
-
-就是许其亮
-
-许其亮的下边就是海军
-
-海军统治全中国的军队
-
-海军干啥了空军又干啥了
-
-这就是今天的中共
-
-军队已经开始了残酷的斗争之中
-
-军队的斗争涉及到军费
-
-涉及到贪污军费
-
-涉及到大额的军费订单
-
-当然要涉及到抢把子指挥谁的问题
-
-中国军队从来没想过去打别人去
-
-中国军队主要是打自己人为优先
-
-在中东最铁的关系,这几个国家现在已经全部炸裂了
-
-为什么
-
-有人挑破离间
-
-习近平习大神这几年
-
-最大的外交功劳就是中东
-
-前所未有的好
-
-现在很多人不想让他搞好
-
-就把他关系搞砸了
-
-砸的很厉害呀
-
-过一段时间所谓最铁的哥们
-
-都要变成敌人了
-
-走着看
-
-不但如此
-
-据我所了解
-
-核心那几个人物的家人
-
-都往美国欧洲跑
-
-美欧去不了就去日本
-
-为什么
-
-他们说整个中国要大地震
-
-官场大地震
-
-共产党完球蛋了
-
-\*所有经过节选，编辑和剪辑的简报和视频形式仅供留存及传播，分享信息！
-
-\*所有信息以郭文贵先生源盖特视频和直播视频为准！
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg](https://lh5.googleusercontent.com/vLw6Y_b7B_ELY7tNgJ-ZeOlPtiZaj9LITymWl1OE5wOzdIkkX7DZBrFRJJhMt9xpPSvXBwsgxURfUXP8t3HmMF6_KbzyUQPdAO1r5czQIoPgP9oX5cyVQDtWPZyla7HiihEkkn5C)
 
 
 
-听写整理：作而无作
+孤独是
+孤独者的手撕名牌
+灭共是
+灭共者的石刻经文
 
-翻译：梦田
+无意中偶遇战友
+我滴个娘哎
+什么感觉
+当被告知没打疫苗
+问故答曰：
+我要活到的那一天
 
-校对：SugarPup
+有意识避开家人及朋友
+明知道是在被戕害
+我滴个了去
+痛苦至极：
+我多希望和你们一起活到那一天
 
-视频制作：农夫，xiong
+我知道
+我势孤力单
+且还背锅家人的骂名
+诸如精神错乱啊什么的
 
-审核：掀锅盖组
+我深知
+我眼花手拙
+且被身边越来越多的被强种苗者围堵
+诸如妄想狂人啊此类的
 
-上传：糊糊文婴
+那又怎样
+因为有一个良知声音在心底不息
+你就是你家族可能留下唯一火种
+有火种在
+光明就在
+
+那又如何
+因为有一种人性使命感在抵命招呼
+亿万国人的希望你我责任重大
+有希望在
+信心就在
+
+霞满绽放
+就是要活到灭共的那一天
+超脱重生
+就是要和您一起活到新中国联邦的那一天
+
+@澄道来了
+@爱动爱议码05291
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 5_May-1-556x720-1.jpeg](https://lh3.googleusercontent.com/8fPG-b3k1OPDoyNGv4xUGowotNCaFBS_Zy6K0pET5dZlav_GDobq-Ggg7Ttc_cv1Jxic-MNIw5k-4AIUaFK4dcPj0Gi5wObqH5uhfy5PxMn9uHRth-SCaptbFEriybfU9tqIgPrD)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

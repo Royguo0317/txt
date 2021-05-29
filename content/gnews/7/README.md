@@ -1,83 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】好好活到那一天
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1280825/)
+## 【热点播报】中共国抨击美国“政治操弄” 并要求调查美方
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1280984/)
 
-## *-人身的霞满绽放-*
+作者：纽约香草山健身部 文阳
 
-## *–灵魂的超脱重生-*
-
-## 
-
-作者：纽约香草山健身部 澄道
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg](https://lh5.googleusercontent.com/vLw6Y_b7B_ELY7tNgJ-ZeOlPtiZaj9LITymWl1OE5wOzdIkkX7DZBrFRJJhMt9xpPSvXBwsgxURfUXP8t3HmMF6_KbzyUQPdAO1r5czQIoPgP9oX5cyVQDtWPZyla7HiihEkkn5C)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
 
-孤独是
-孤独者的手撕名牌
-灭共是
-灭共者的石刻经文
+随着美国在新冠病毒溯源方面的不断推进，美国媒体近日援引一份情报机构报告称武汉病毒研究所三名人员在2019年11月患病并送院治疗后，引起中共激烈反应。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29103643/%E6%9C%AA%E5%91%BD%E5%90%8D%E7%9A%84%E8%AE%BE%E8%AE%A1-33-2.png)
+美国卫生部长泽维尔·贝塞拉（Xavier Becerra）5月25日敦促世界卫生组织（WHO）确保对新冠疫情起源的下一阶段调查是“透明的“。美国总统拜登（Joe Biden）要求情报机关“加大力度”调查病毒来源，并在90天内向他报告。中共外交部发言人赵立坚在5月27日的例行记者会上抨击美国“是想借疫情搞污名化和政治操弄，甩锅推责”。赵立坚还呼吁美国立即接受世卫组织为基础的国际调查。
 
-无意中偶遇战友
-我滴个娘哎
-什么感觉
-当被告知没打疫苗
-问故答曰：
-我要活到的那一天
+中共要美国也接受世卫组织的调查，只是想拖延时间。除了中共，全世界还有哪个国家提出要对美国实验室调查？反观要调查中共国的呼声，就一浪高过一浪。中共纯属搅浑水，乱扯什么德克里克堡疑云。闫博士报告里说得很清楚，病毒骨架来自于舟山蝙蝠，只有中共独家拥有，赖也赖不掉。最近，连福奇、巴里克都改口呼吁调查中共国实验室，谭德赛也罕有的批评中共，并坚持对病毒起源进行彻底调查。中共越不让国际调查，就越暴露它的心虚，因为一查真相就大白了。
 
-有意识避开家人及朋友
-明知道是在被戕害
-我滴个了去
-痛苦至极：
-我多希望和你们一起活到那一天
+参考阅读：
 
-我知道
-我势孤力单
-且还背锅家人的骂名
-诸如精神错乱啊什么的
+https://www.bbc.com/zhongwen/simp/chinese-news-57278308
 
-我深知
-我眼花手拙
-且被身边越来越多的被强种苗者围堵
-诸如妄想狂人啊此类的
+https://www.8world.com/news/greater-china/article/china-covid-19-us-1490411
 
-那又怎样
-因为有一个良知声音在心底不息
-你就是你家族可能留下唯一火种
-有火种在
-光明就在
+https://news.sina.com.cn/w/2021-05-28/doc-ikmyaawc8051462.shtml
 
-那又如何
-因为有一种人性使命感在抵命招呼
-亿万国人的希望你我责任重大
-有希望在
-信心就在
+校对/发稿：飞虹
 
-霞满绽放
-就是要活到灭共的那一天
-超脱重生
-就是要和您一起活到新中国联邦的那一天
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
 
-@澄道来了
-@爱动爱议码05291
 
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 5_May-1-556x720-1.jpeg](https://lh3.googleusercontent.com/8fPG-b3k1OPDoyNGv4xUGowotNCaFBS_Zy6K0pET5dZlav_GDobq-Ggg7Ttc_cv1Jxic-MNIw5k-4AIUaFK4dcPj0Gi5wObqH5uhfy5PxMn9uHRth-SCaptbFEriybfU9tqIgPrD)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

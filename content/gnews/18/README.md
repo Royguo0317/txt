@@ -1,34 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】英国协助调查病毒起源，美议员提法案剥夺中共主权豁免
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1280759/)
+## 【热点播报】英媒体获得”独家”科学论文，力证病毒来自中共实验室制造
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1280821/)
 
-作者：香草山信息部  雪梨
+作者：纽约香草山健身部Jack Li文阳
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29092137/%E5%9B%BE%E7%89%8767.png)
-图片来源：virtuglobalbusiness
 
-据《[每日电讯报](https://www.telegraph.co.uk/news/2021/05/28/exclusive-uk-intelligence-helping-us-investigate-wuhan-lab-leak/)》报道，继拜登总统26日发表[声明](https://www.whitehouse.gov/briefing-room/statements-releases/2021/05/26/statement-by-president-joe-biden-on-the-investigation-into-the-origins-of-covid-19/)，要求美国情报界90天内递交新冠病毒起源报告后，英国情报部门同意与美国合作调查病毒从中共实验室泄露的可能性。
+英国网站DailyMail.com独家获得了由英国教授安格斯·达格利什（Angus Dalgleish）和挪威科学家比尔格·索伦森（BirgerSørensen）博士共同撰写的长达22页的论文，该论文将在《生物物理学发现季刊》上发表。新研究声称，中共国科学家在武汉的实验室中创建了COVID-19，然后试图通过反向工程化该病毒的形式掩盖其踪迹，以使其看起来像是从蝙蝠自然进化而来的。
 
-经过长时间的政治铺垫、舆论宣传和民意的引导，26日拜登总统的声明正式吹响了“以毒灭共”的号角。自病毒实验室起源说出现时，英国已经开始搜集相关情报。待拜登总统发布官方声明后，英国加入，协助调查。实际上，英美两国已经有足够的情报证实病毒来自实验室。这可能就是[塞林博士](https://twitter.com/LawrenceSellin/status/1379437072763609090)此前推文中提及的，“类似于英国二战破译密码的SIXTA的研究网络分析，用于确定#COVID19的实验室来源”。英国加入调查，既是五眼联盟成员，也是英联邦国家的新西兰、加拿大、澳大利亚也会协助提供情报。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29095757/%E5%9B%BE%E7%89%8769.png)
 
-本周四，美国和英国敦促世界卫生组织对中共国开展[新一轮的病毒起源调查](https://www.reuters.com/business/healthcare-pharmaceuticals/who-experts-preparing-proposal-next-studies-virus-origin-spokeswoman-2021-05-28/?taid=60b0f190e9744d00010a2abd&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)，使独立专家们能充分接触到中共国的原始数据和样本。世卫组织发言人Fadela Chaib表示，专家们将为世卫总干事谭德塞准备一份提案，但没有设定时间表。
+达格利什（Dalgleish）是伦敦圣乔治大学（St George’s University）的肿瘤学教授，以创造出首个有效的“艾滋病疫苗”来治疗患者，并允许他们停用药物数月而取得突破而闻名。病毒学家Sørensen是Immunor制药公司的董事长，该公司开发了一种名为Biovacc-19的[冠状病毒](https://www.dailymail.co.uk/news/coronavirus/index.html)疫苗候选产品。达格里什（Dalgleish）也拥有公司的股票期权。
 
-英国军情六处前负责人迪尔洛夫爵士（Sir Richard Dearlove）说，如果中共不开放实验室接受审查，英国安全部门可能需要“激励”中共国叛逃者来了解真相。这也充分验证了文贵先生提到的，有像闫博士这样的从中共国来的科学家正在欧洲作证。除了情报，如果有来自中共实验室的、直接的证据或者证人，中共就插翅难逃了。
+这项爆炸性的研究声称研究人员在COVID-19样品中发现了“唯一指纹”，他们说这只能是在实验室中进行的操作。这项研究表明，有证据表明中共国科学家在武汉实验室从事功能性增强项目，并创造了这种病毒。据该论文，中共国科学家从中国蝙蝠身上发现了一种天然的冠状病毒“骨架”，并在其上剪接了一个新的“尖峰”，将其转变为致命的和高度可传播的COVID-19。研究人员得出结论，认为COVID-19“没有可靠的自然祖先”，他们还相信中共科学家对病毒的反向工程版本进行了掩盖，研究还指出中共国实验室“故意破坏，隐藏或污染数据”。
 
-此外，美国共和党和民主党议员共同提出“[国际疫情永不再发生预防法](https://www.epochtimes.com/gb/21/5/28/n12982196.htm)”（Never Again International Outbreak Prevention Act），呼吁剥夺中共和其他“故意在疫情上误导国际社会的国家”的主权豁免，允许疫情受害者家属起诉中共或相关国家。这条法案为中共病毒量身打造。一旦该法案获得通过，因疫情受到伤害和损失的个人和团队都可以在美国起诉中共。中共在美国的资产会被合法冻结。若被定罪，它就是跨国犯罪组织。一旦美国认定，盟国势必跟进，中共在国际上将彻底失去合法性。
+“功能性增强”包括调整天然存在的病毒以使其更具传染力，以便它们可以在实验室的人类细胞中复制，从而可以更好地掌握该病毒对人的潜在影响力。Dalgleish和Sørensen翻阅期刊和数据库的档案，拼接出中共国科学家如何与某些美国大学合作研究中建立了制造冠状病毒的工具。 但美国是不允许“功能性增强”研究的，中共对新冠病毒的“功能性增强”只能在中共国进行。
 
-这个节骨眼上，中共内部要么达成共识，主动变革，开放实验室，欢迎世界独立科学家们来武汉调查，公开病毒原始毒株和数据。中共解体，逐步过渡到新政府。要么加剧内斗，海外资产被冻结，西方与中共经济脱钩，闭关锁国。在这关乎自己身家性命和子孙后代的关键时刻，想必曾家和江家在那个时刻到来之前已经出手，结束党内斗争，解体中共。
+去年，Dalgleish和Sørensen在分析COVID-19样本以尝试制造疫苗时，发现了病毒中的“独特指纹”，得出的结论是“ SARS-Coronavirus-2没有可靠的自然祖先”，并且“毫无疑问地怀疑”该病毒是通过“实验室操纵”创造的。 他们说，他们试图发表他们的发现，但遭到了主要的科学杂志的拒绝，当时这些科学杂志坚决认为该病毒是从蝙蝠或其他动物自然地传给人类。一年多以后，顶尖的学者，政治家和媒体终于扭转方向，开始探讨COVID-19可能出自中共国武汉病毒学研究所的可能性。 该期刊文章由DailyMail.com独家获得，并计划在未来几天内发布，这将在科学界引起轰动。
+
+2021年5月24日，文贵先生揭秘了美国国立卫生研究院 NIAID 主管安东尼·福奇（Anthony Fauci）对病毒起源改口的真正原因——因为“第二个闫丽梦博士”带着实锤证据在欧洲作证使他害怕了；同时“以毒灭共”在世界进展迅速，在欧洲，英国伊丽莎白女王、法国总参谋长和所有过去亲共的官员都站出来开始“说人话”了，各个联盟纷纷决定一定不和中共站在一起。这份独家的欧洲科学家的病毒论文，有力的印证了闫丽梦博士揭露中共病毒的三篇论文的论述。通过欧洲科学家的科学论文，与新中国联邦暴力革命和闫丽梦博士相互配合，相互印证，可以为欧洲政府和议会提供有更直接的抓手，制定相应的政策，加快全球灭共的节奏。
+
+参考阅读：https://www.dailymail.co.uk/news/article-9629563/Chinese-scientists-created-COVID-19-lab-tried-cover-tracks-new-study-claims.html
 
 校对/发稿：飞虹
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191415/M5-2.jpg)
-
-
 
 **更多资讯，更多关注**
 

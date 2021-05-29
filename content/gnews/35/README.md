@@ -1,24 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月28日灭共要闻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1280512/)
+## 2021年5月28日秘翻快报【头条新闻】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1280574/)
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29075857/%E7%81%AD%E4%B8%80%E7%BB%84%E5%B0%81%E9%9D%A2-27.jpg)](https://mega.nz/folder/i5NSSLKZ#9yl2OnWI2-11e9rqfgEAyw)
-[播放视频](https://gtv.org/video/id=60b1fd94f6ff4b33fb9410eb)
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29081537/IMAGE-2021-05-29-190023.jpg)](https://gtv.org/video/id=60b21ff1f6ff4b33fb943e05)
+**新闻总结：**
 
-主要内容：
+1.  中共推动数字钱包 实为监控利器
 
-拜登命令美国情报部门**90**天内提交病毒来源报告；
+2. “爱国者治香港”，亲共的选举规则通过
 
-纳瓦罗：福奇将在**90**天内离职；
+3.  福奇声称他不知道中共是否撒谎，并使用60万美元的美国资金来进行 “增强功能 “实验
 
-蔡英文揭露中共干扰台湾进口病毒疫苗；
+4.  加拿大保守党人质问总理贾斯汀·特鲁  中共军方科研人员是如何进入加拿大顶级生物实验室
 
-网曝广东发电煤矿库存告急，工厂限电；
+5.  脸书取消了对辩论中共病毒起源的帖子的禁令
 
-北京强推《国安法》近一年，港府**“**移民潮**”**持续
+6.  美中竞争正式进入白热化 美国印太负责人：联合全球盟友对抗中共
 
-**By**：【秘翻组**–**上天造灭疫组】
+**By:秘翻快报组**
 
-+1
+**GTV链接:**[https://gtv.org/video/id=60b21ff1f6ff4b33fb943e05](https://gtv.org/video/id=60b21ff1f6ff4b33fb943e05)
+
+0
