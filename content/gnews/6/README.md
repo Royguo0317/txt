@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】从肢体语言解读闫博士
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1279487/)
+## 【有声读物】知其然，知其所以然
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1279552/)
 
-配音：香草山福音部 Daxia
+配音：香草山福音部 joy喜乐的心
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,13 +14,23 @@
 
 
 
-新冠疫情爆发之后，闫博士勇敢地站了出来，发出呐喊、揭穿真相。她让我们看到了一个人的底色：不仅仅是为了活着，而是把自己的才能拿出来服务别人，是在多数人不敢讲话的时侯讲真话，真正有尊严的生活在这个世界上。我想从肢体语言的角度，来解读这位了不起的人。
+儒家文化有许多规矩，其中就有男子婚后要与父母分家，以及一些特别针对婚后女子的规矩，比如夫唱妇随、齐眉举案。
+
+
+> 夫唱妇随，意思是妻子与丈夫同声同气，以示服从。
+> 出自《关尹子·三极》。
 
 
 
-**文字版原文：[【战友心声】从肢体语言解读闫博士](https://gnews.org/zh-hans/922936/)**
+> 齐眉举案，意思是妻子给丈夫送饭时，把托盘端得跟自己的眉毛一样高，以示尊重。
+> 出自《后汉书·梁鸿传》
 
-作者：纽约香草山福音部 小草
+
+
+
+**文字版原文：[【信仰之声】知其然，知其所以然](https://gnews.org/zh-hans/1277150/)**
+
+作者：纽约香草山福音部 Jinglechenge
 
 
 

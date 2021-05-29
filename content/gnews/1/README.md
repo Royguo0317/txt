@@ -1,46 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月28日郴州白露塘市场五名学生被砍据传一名死亡
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1279553/)
+## 继政法系统大清理之后，枪口又对准了新的目标
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1279587/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28202012/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-13.png)
-据[吴文行\[email protected\]](https://twitter.com/wuwenhang)于[下午7:34 · 2021年5月28日](https://twitter.com/wuwenhang/status/1398241172729049091)·[Twitter for Android](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28205408/17-27.jpg)
+根据路透北京5月28日报道，中国证监会发行部副主任李维友周五表示，证监会发布IPO（首次公开发行）项目“特殊身份股东”核查细则，将于6月1日正式实施。
 
-突发！郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡 。这是监控录像！
+相信此指引一出，又有多少离任官员要瑟瑟发抖了。但其背后的本质真的是为了保证“廉洁公义”吗？恐怕还是披着这层外衣进行新一轮“打土豪分田地”罢了。
 
+指引主要包括三方面内容。
 
+一是明确不当入股情形，证监会系统离职人员利用原职务影响，存在利益输送、不适格股东入股、违规资金入股的属于不当入股。
 
-> 突发！郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡 。这是监控录像！ [pic.twitter.com/9maIYY1ucK](https://t.co/9maIYY1ucK)
-> — 吴文行wenxingwu (@wuwenhang) [May 28, 2021](https://twitter.com/wuwenhang/status/1398241172729049091?ref_src=twsrc%5Etfw)
+二是核查责任，是否存在离职人员入股情形，属于不当入股的要予以清理，要进行专项说明；三是强化审核监督，建立独立复核制度，发现违法违纪，移交有关部门处理。
 
+文章特别指出，近年来不少证监系统监管干部在离职后会自己创办私募投资机构，利用手中积累的人脉资本从事各种直接或间接的股权投资，多起关于证监系统前官员或前发审委员“突击入股”拟IPO项目的新闻也引发了舆论的热议。
 
+从最后的这段，我们看到此次打击的范围是“证监系统离任的监管干部”，而定罪的依据是“是否直接或者间接参与拟IPO项目的股权投资”，至于如何界定是否“利用手中的人脉资本”也就成了纪委监察委手上最大的王炸，也就是“他们说你有，你就有”。
 
-另据[野山@naochashu](https://twitter.com/naochashu)于[下午4:20 · 2021年5月28日](https://twitter.com/naochashu/status/1398192435134533635)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+指引第二段中，“发现违法违纪，移交有关部门处理”几个字，才是这次核查的本质。**继政法系统大清理之后，金融系统的清查也自然不会被放过，这是“钱袋子”的问题，在中共腰包越来越空的今天，怎么用看似公正的理由对没有还手能力的阶层进行定向打击，恐怕是他们一直处心积虑反复研究的事情**。终于，参股未上市公司股权，待上市后获取巨额收益的这个群体，成为了此次被瞄准的对象。
 
-突发，郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡……
+这个指引中最大的逻辑漏洞是，既然打击范围是离职官员，那他们离职后创办企业，从时间界定来看，这部分收入是否属于合法的收入，如果连离职后的收入也被归为非法的话，那么很不幸，所有体制的官员，唯一的出路就是终身为党卖命，而且也不能保证是否会被卷入其他的政治斗争之中。
 
+中共绞肉机已经开足马力了，无论你是正在为中共效忠，还是曾经效忠过，都无法逃脱被碾压的命运。
 
+（本文只代表作者观点，与Gnews平台无关。）
 
-> 突发，郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡…… [pic.twitter.com/gfNKNHu28u](https://t.co/gfNKNHu28u)
-> — 野山🎗 (@naochashu) [May 28, 2021](https://twitter.com/naochashu/status/1398192435134533635?ref_src=twsrc%5Etfw)
+**新闻来源：**
 
+[中国证监会发布IPO项目“特殊身份股东”核查细则 将于6月1日正式实施 | 路透 (reuters.com)](https://cn.reuters.com/article/china-csrc-new-ipo-rule-0528-idCNKCS2D90UP?il=0)
 
-
-另据[\[email protected\]](https://twitter.com/LiuLiu92266749)于[上午5:29 · 2021年5月29日](https://twitter.com/LiuLiu92266749/status/1398391015719931905)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
-
-地獄般的存在：湖南郴州白露塘市場一男子砍傷五名學生，一名學生當場死亡。
-
-
-
-> 地獄般的存在：湖南郴州白露塘市場一男子砍傷五名學生，一名學生當場死亡。 [pic.twitter.com/y0Es9ozBgP](https://t.co/y0Es9ozBgP)
-> — Leo😷 (@LiuLiu92266749) [May 28, 2021](https://twitter.com/LiuLiu92266749/status/1398391015719931905?ref_src=twsrc%5Etfw)
-
-
-
-眼睁睁看着活生生的孩子毙命刀下我们却无能为力，在这个地狱般国度里，要么麻木地活着，要么痛苦地活着，要么精神病一样的活着，而精神病一样活着的人在对弱者施暴时绝不心慈手软，而可悲的是这样的精神病总是层出不穷。
-
-（文章内容仅代表作者个人观点）
+***校对发布**：文顾*
 
 0

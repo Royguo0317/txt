@@ -1,36 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/28-001 文贵先生盖特精华
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1279236/)
+## 【鹰眼墙国】家庭医生签约覆盖面拓广，难解医疗花费高昂
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1279294/)
 
-听写： 万物归一 | 校对：樂禧禧 | Page：我是球大哥
-
-[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/c8bc3a05-6686-49f9-aafc-60cb411b37f6.png?asset_id=11968ae3-9b23-466c-a922-2c0c9eaa2e63&amp;img_etag=%229139a6c7cfbf1d0b8cbc060e07b6f01a%22&amp;size=1024)](https://spark.adobe.com/page/k65OINDODog01/images/c8bc3a05-6686-49f9-aafc-60cb411b37f6.png?asset_id=11968ae3-9b23-466c-a922-2c0c9eaa2e63&amp;img_etag=%229139a6c7cfbf1d0b8cbc060e07b6f01a%22&amp;size=1024)
-
-**5月28号：尊敬的战友们好！为什么躺平币．在国内造成这么大的影响？在这里公开回复很多战友．要求加入关于．G系列的将获得新GTV股票奖励的一些细节！**
-
-[G-TV链接](https://gtv.org/getter/60b11307ba7ef9088d026d4a)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/6d01426a-03f0-408d-97f2-59df7776210e.png?asset_id=4b96266c-a05a-4d21-af6e-a29509369215&amp;img_etag=%228cb419737d0ecdec388768bff73cafd4%22&amp;size=2560)](https://spark.adobe.com/page/k65OINDODog01/images/6d01426a-03f0-408d-97f2-59df7776210e.png?asset_id=4b96266c-a05a-4d21-af6e-a29509369215&amp;img_etag=%228cb419737d0ecdec388768bff73cafd4%22&amp;size=1024)
-
-• 以毒灭共进入了全球共同全面认知的状态，能不打疫苗就坚决不打，很多国家政府很快会宣布不打疫苗或不强迫打疫苗。
-
-• 躺平币的概念来源于打土豪分田地造成的后果。国人开始思考生活如何过上体面的生活，如何拥有自己的土地、房产、车辆，如何选择自己的政府，如何信仰自由。
-
-• 躺平币，不仅未来要给躺平的人币，还要给中国很多阶层的人币，把更多的阶层、领域唤醒，希望未来把躺平币发展成向共产党讨债的工具，中共必须把这些年欺骗老百姓的钱还给中国人民，包括杀地主抢走的土地，这影响巨大，需要建立团队和大量的前期投资，绝对要最高端的人员，包括政治、经济、金融系统的。
-
-• 喜币、喜Dollar的发展超出任何人的想象，市场开始交易的时候大家就明白了，要学会合法的使用自己的喜美元账号。
-
-• 在GTV，GNews，GFashion，GClub，盖特等G系列所有工作过，够一定时间的，还有现在工作的战友，新GTV募股600亿，将给10亿GTV股的鼓励，以6月底之前工作的时间，不同的阶层，做出的业绩来评估。其中3到4亿股发给以前的工程师，剩下的发给未来3年到5年参与的工程师。有意向的请和熟悉的工程师和各农场联系。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+香草山写作组  鹰(文言)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/k65OINDODog01/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
 
-+1
+
+
+环球网5月28日转载人民日报消息，截至2021年5月19日北京市共有家庭医生4.03万人，签约居民总数达801.6万人。
+
+2014年中共国务院发布《关于建立全科医生制度的指导意见》设定全科医生规范化培训目标；2016年在全国200个公立医院试点，设立开展签约服务。全科医生人数从2015的17万人发展为2020年的40.9万人。虽然总人数实现倍数增长，但平摊到全国14亿人需求上仍是“九牛一毛”：每万名居民“享有”的全科医生2.9人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28185045/Screen-Shot-2021-05-28-at-6.48.39-PM.png)
+全科医生总人数存在巨大缺口，分布又极为不平衡。根据中共卫生和计划生育统计年鉴2014年数据，北京、浙江省每万人口全科医生数量超3人，而上海、江苏对应分别为2.85、2.45，其他省份每万人口全科医生数量均在1人上下浮动，其中江西对应0.66，最低为西藏对应0.34。这些数据说明，全科医生在全国范围内仍属于“稀缺资源”。
+
+与全科医生增长缓慢现状相对应的，是国内全职医师培养体系的不健全。虽然如全科医生特岗计划等政策优惠、财政投入力度在加大，但全科医生工资却仅占专科医生工资的一半。各地政府纷纷出台提高全科医生薪金的政策，将现行的全科医生收费标准提高为约70元/年/人，即全科医生回扣数额可随着签约居民人数的增加而提高。然而，此举又变相增加了居民医疗开支。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28185024/Screen-Shot-2021-05-28-at-6.48.44-PM.png)
+参考2021年大连市发布的《大连市医疗保障局、大连市卫生健康委员会关于增补和修订部分医疗服务价格项目的通知》，家庭医生签约服务分为免费的基础服务、70元年费升级包以及协商议价的个性服务包。然而，基础服务只是如医疗咨询和建档、指导类的导向性服务，一般护理服务中的药品、材料费都是额外收据的。70元“年费”中分为政府财政30元，医保基金20元，个人支付20元。但无论是政府财政，还是医保基金，都是居民自己缴纳的“医疗保障金”。而居民要获得切实的医疗援助，却还需要再缴纳“新金”。各种类型的护理服务、家庭医疗援助花样再多，都只是为进一步搜刮民财而穿上的新“马甲”。中共压榨民脂、收割民膏的结果不变。
+
+新闻来源：
+
+北京市家庭医生签约居民达801.6万人当好居民健康的守护人（民生视线）https://china.huanqiu.com/article/43IqdSTM0zu
+
+一年签约费70元，家庭医生签约服务费标准终于定了！https://new.qq.com/omn/20210213/20210213A04P5Y00.html
+
+签约家庭医生怎么服务如何收费？六部门给出明确回答http://world.hebnews.cn/2017-07/31/content\_6575225.htm
+
+家庭医生签约或全国推广上海模式，如何收费看这里http://static.nfapp.southcn.com/content/201606/07/c91378.html
+
+每万人不少于3名！北京制定全科医生“2020目标”http://www.xinhuanet.com/politics/2018-11/01/c\_129983952.htm
+
+中国全科医生缺口18万 收入仅为专科医生一半http://finance.sina.com.cn/chanjing/cyxw/20150908/023423180987.shtml
+![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+0

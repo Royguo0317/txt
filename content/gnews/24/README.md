@@ -1,68 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】儿童健康保护组织呼吁FDA立即将COVID疫苗撤出市场
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1279207/)
+## 2021/05/28-001 文贵先生盖特精华
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1279236/)
 
-香草山写作组 四季
+听写： 万物归一 | 校对：樂禧禧 | Page：我是球大哥
 
+[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/c8bc3a05-6686-49f9-aafc-60cb411b37f6.png?asset_id=11968ae3-9b23-466c-a922-2c0c9eaa2e63&amp;img_etag=%229139a6c7cfbf1d0b8cbc060e07b6f01a%22&amp;size=1024)](https://spark.adobe.com/page/k65OINDODog01/images/c8bc3a05-6686-49f9-aafc-60cb411b37f6.png?asset_id=11968ae3-9b23-466c-a922-2c0c9eaa2e63&amp;img_etag=%229139a6c7cfbf1d0b8cbc060e07b6f01a%22&amp;size=1024)
 
+**5月28号：尊敬的战友们好！为什么躺平币．在国内造成这么大的影响？在这里公开回复很多战友．要求加入关于．G系列的将获得新GTV股票奖励的一些细节！**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
+[G-TV链接](https://gtv.org/getter/60b11307ba7ef9088d026d4a)
 
+[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/6d01426a-03f0-408d-97f2-59df7776210e.png?asset_id=4b96266c-a05a-4d21-af6e-a29509369215&amp;img_etag=%228cb419737d0ecdec388768bff73cafd4%22&amp;size=2560)](https://spark.adobe.com/page/k65OINDODog01/images/6d01426a-03f0-408d-97f2-59df7776210e.png?asset_id=4b96266c-a05a-4d21-af6e-a29509369215&amp;img_etag=%228cb419737d0ecdec388768bff73cafd4%22&amp;size=1024)
 
+• 以毒灭共进入了全球共同全面认知的状态，能不打疫苗就坚决不打，很多国家政府很快会宣布不打疫苗或不强迫打疫苗。
 
-自然新闻5月23日报道， “儿童健康保护”非盈利组织（CHD）向美国食品和药物管理局（FDA）提交了一份公民请愿书，要求该机构立即撤销COVID疫苗的紧急使用授权（EUA），并避免授予他们许可。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28182249/Screen-Shot-2021-05-28-at-6.21.29-PM.png)
-“百万人反对医疗命令”（MAMM）组织创始人莫琳-麦克唐纳（Maureen McDonnell）说：“在更多的死亡和伤害发生之前，是时候让FDA进行大幅度的程序修正了。”请愿书呼吁FDA立即修改其现有的对氯喹药物、伊维菌素等其他安全有效的防治COVID的药物的使用指南。
+• 躺平币的概念来源于打土豪分田地造成的后果。国人开始思考生活如何过上体面的生活，如何拥有自己的土地、房产、车辆，如何选择自己的政府，如何信仰自由。
 
-“儿童健康保护”组织和“百万人反对医疗命令”（MAMM）组织要求FDA采取以下七项行动：
+• 躺平币，不仅未来要给躺平的人币，还要给中国很多阶层的人币，把更多的阶层、领域唤醒，希望未来把躺平币发展成向共产党讨债的工具，中共必须把这些年欺骗老百姓的钱还给中国人民，包括杀地主抢走的土地，这影响巨大，需要建立团队和大量的前期投资，绝对要最高端的人员，包括政治、经济、金融系统的。
 
-1. FDA应该撤销所有的冠状病毒疫苗紧急使用授权（EUA），并避免针对未来涉及所有人类群体的任何COVID疫苗的紧急使用授权（EUA）、新药申请NDA或生物制品许可申请紧急授权（EUA）的批准。因为目前冠状病毒疫苗的严重不良事件或死亡的风险已经超过了对疾病的预防，而且现有的、已获FDA批准的药物可针对COVID提供有效的预防和治疗。紧急授权（EUA）失去意义。
+• 喜币、喜Dollar的发展超出任何人的想象，市场开始交易的时候大家就明白了，要学会合法的使用自己的喜美元账号。
 
+• 在GTV，GNews，GFashion，GClub，盖特等G系列所有工作过，够一定时间的，还有现在工作的战友，新GTV募股600亿，将给10亿GTV股的鼓励，以6月底之前工作的时间，不同的阶层，做出的业绩来评估。其中3到4亿股发给以前的工程师，剩下的发给未来3年到5年参与的工程师。有意向的请和熟悉的工程师和各农场联系。
 
-- 鉴于儿童患严重COVID疾病的风险极低，FDA应立即避免让未成年人参加COVID疫苗试验，避免将紧急授权（EUA）修改为包括儿童，并立即撤销所有为16岁以下儿童接种辉瑞疫苗的紧急授权（EUA）和18岁以下儿童接种其他COVID疫苗的紧急授权（EUA）。
-
-
-- FDA应立即撤销孕妇接种紧急授权（EUA）或特许COVID疫苗的默许，并立即发布相关的公共指南。
-
-
-- FDA应立即修改其现的羟氯喹药物、伊维菌素和任何其他被证明对COVID安全有效的药物的使用指南，提供目前使用的安全剂量和有效性的科学证据，并立即向所有利益相关者发出有关此更改的通知。
-
-
-- FDA应向国防部长和总统发出指导意见，在紧急授下，不能仅根据《美国法典》第10章第1107(f)条或第1107a条，事先批准服役人员接种COVID疫苗。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
-- FDA应以数字和书面形式向所有利益相关者发布指导意见，申明根据《美国法典》第21章第360bbb-3(e)(1)(a)(ii)(III)1条和《纽伦堡法典》的知情同意要求，所有公民都可以有权选择接受或拒绝研究性COVID疫苗，而且不接种疫苗不会造成对工作，教育或其他与健康无关的任何不良后果。
+编辑：【英国伦敦喜庄园编辑部】
 
+[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/k65OINDODog01/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-- 在撤销COVID疫苗的紧急使用授权（EUA）之前，FDA应发布指导意见，所有COVID疫苗的营销和推广必须避免“安全和有效”的标签，因为这种说法违反了《美国法典》 第 21章第360bbb-3条。
-
-
-根据美国疾病控制和预防中心最新的疫苗不良反应报告系统数据，截至目前已经有192,954例不良反应报告。2020年12月14日至2021年5月7日，接种疫苗者中，已有4057例死亡。
-
-而这些数字与1976年流产的猪流感疫苗的数字形成鲜明对比，该猪流感疫苗在报告了大约30例死亡和400例吉兰-巴雷综合症后被立即停止。
-
-历史上，有一定数量的疫苗事故后，政府一般立即停止疫苗的使用。在面对如此高的疫苗事故的情况下，试验性冠状病毒疫苗还在全球范围内大规模的接种显然不合常理。不知道人类要为此付出怎样的代价。
-
-原文链接：
-
-[https://www.naturalnews.com/2021-05-23-federal-law-prohibits-mandates-of-emergency-use-covid-vaccines.html](https://www.naturalnews.com/2021-05-23-federal-law-prohibits-mandates-of-emergency-use-covid-vaccines.html)
-![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-0
++1
