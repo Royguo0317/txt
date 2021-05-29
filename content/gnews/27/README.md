@@ -1,59 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】脱离实际的“足球梦”只能沦为泡影
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1279304/)
+## 参议院通过霍利、布劳恩关于要求拜登政府解密武汉实验室情报的法案
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1279293/)
 
-香草山写作组 鹰(文言)
+**报道: Janita Kan and Mimi Nguyen-Ly**
+
+**撰稿: Epoch Newsroom**
+
+**编译: 越野小兔** **校对: pv0**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28191456/001234-11.jpeg)**图片: Fox News**
+
+美国参议院一致通过了一项法案，旨在要求拜登政府对所有与新冠起源有关的情报进行解密，包括大流行初期与武汉病毒实验室相关的情报。
+
+上个月，印第安纳州共和党参议员迈克·布劳恩(Mike Braun)和密苏里州共和党参议员乔什·霍利(Josh Hawley)提交了一项提案，即《2021新冠起源法案》，要求国家情报总监（DNI）向美国民众解密有关武汉病毒研究所（WIV）与中共病毒起源之间任何潜在联系的情报。该法案获得一致通过。
+
+霍利在周三的参议院会议上提到，该法案给予美国公众自己评估证据的机会，并补充说，这仅仅是开端。
+
+“他们有权知道。是政府欠他们的，现在该采取行动了，”霍利说。”而美国人民还应该得到一些其它的：他们理应让美国政府对发动这种病毒的国家进行追究，该病毒的始作俑者撒谎导致全球大流行，致使许多其他国家和我们一样无法及时有效地解决这个问题，当然我说的是中（共）国。”
+
+该法案一旦颁布，则可解密的文件可能涉及武汉病毒研究所与中国人民解放军共同参与或代表军方从事的活动、新冠爆发前武汉病毒研究所进行的冠状病毒研究或其他相关活动，以及关于武汉病毒研究所研究人员在2019年秋季患病的信息。
+
+一旦颁布，国家情报总监将需要在该法案颁布起的90天内向国会提交一份包含解密信息的报告。
+
+国家情报局新闻办公室没有立即回复《大纪元》的置评请求。
+
+布劳恩参议员补充说：”拜登总统必须解密所有与武汉实验室和新冠大流行有关的美国情报，以便美国人民和独立研究人员能够找到答案。”
+
+由于人们普遍担心大流行可能是由实验室事故引起的，呼吁对中共病毒进行新的调查的呼声越来越高。
+
+本周早些时候，美国卫生与公共服务部长哈维·贝塞拉(Xavier Becerra)在第74届世界卫生大会视频会议中呼吁世卫组织启动 “透明 “的第二阶段调查。
+
+他提到：”新冠起源的第二阶段调查的工作范围必须是透明的，且以科学为基础，并给予国际专家独立性，以充分评估病毒来源和疫情爆发初期的情况。
+
+在发表上述评论前，《华尔街日报》 5月23日报道称，武汉病毒研究所的三名研究人员于2019年11月住院，其症状与季节性流感和中共新冠病毒症状一致。该报援引了不愿透露姓名的、熟悉此前未披露的美国情报报告的美国政府消息人士。
+
+5月24日，白宫新闻发言人珍·莎琪（Jen Psaki）在被问及此事时说，拜登政府 “一再呼吁世卫组织支持由专家主导对该大流行病起源进行评估，不受干扰或政治化。”
+
+“第一阶段的调查结果出来了，但我们在第一阶段调查中没有获得到数据，没有被提供任何信息。现在，我们希望世卫组织能够开展更加透明、独立的第二阶段调查，” 莎琪说。
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
+**原新闻来源: **
+
+[Senate Passes Hawley, Braun Bill for Biden Admin to Declassify Intel on Wuhan Lab](https://www.theepochtimes.com/senate-passes-hawley-braun-bill-for-biden-to-declassify-intel-on-wuhan-lab_3832669.html/amp?utm_medium=social&amp;utm_source=twitter&amp;utm_campaign=digitalsub)
 
 
 
-澎湃网5月28日报道，中共体育总局发布《开展全国足球发展重点城市建设工作的指导意见》，将在全国范围内建成16-18个足球重点城市，到2025年，足球发展重点城市的青少年足球人口将达到在校学生人口的50%。
+* * *
 
-根据2019年全国体育场地的统计调查数据，截至2019年底全国足球场地10.53万个；2016-2020年新增足球场地26957块，占全国足球场总数的1/4，其中约28%的新建场地为民营球场。根据2020年教育事业统计数据，义务教育在校生1.56亿人，高中在校生人数4127.80万。以10.53万球场作为公共球场、高中在校生人数4127.80万做粗算，平均1873人一个球场。现存的球场数量和规模，远远难以达到中共宣称的50%培养目标。更何况10.53万个足球场中，42.16%为较小的五人制足球场地。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28184937/Screen-Shot-2021-05-28-at-6.49.02-PM.png)
-贵州省都匀市足球场地被用作赶集。足球场地设施老旧、维护难、闲置问题多发，也能侧面反映出中共推动的足球场地建设规划，只是表面增加数量，并不涉及场地建成后的开放群体和维护保养。“闲置”足球场建造的再多，也难提高“全民踢球”的积极性，更何谈足球体系建设了。
+**发布: 法国巴黎七星编辑组**
 
-近年来随着中共对教育领域的思想管控和行政干预力度加大，学校课程材料增多，学生作业负担严重。“课上保留”现象催生的课外辅导、兴趣班更加普及，青少年的学习时间严重挤占了活动和休息时间。根据中共卫健委数据，国内73%的中小学生每天睡眠不达标。参考华东师范大学调查问卷结果，小学、初中、高中学生睡眠达标的比例为59.9%、19.6%、2.3%。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28185001/Screen-Shot-2021-05-28-at-6.48.56-PM.png)
-虽然中共教育部发布《综合防控儿童青少年近视实施方案》、《关于进一步加强中小学生睡眠管理工作的通知》等政策，通过设定作业时长标准以求“作业不出校”，但小学生、初中生作业时间超标的比例分别为82.7%、93.3%，44.0%的高中生作业时长大于3个小时/天。青少年连基本的健康睡眠都得不到保证，又哪有额外的精力去踢球了。
 
-球场稀缺、青少年睡眠严重不足，再加上学校“形式”减负现象严重（如体育、艺术类课程被抢占），只靠增加足球场地数量来实现“足球振兴”，无异于痴人说梦。
-
-新闻来源：
-
-“十四五”建成16-18个足球重点城市，鼓励国资民资进入https://www.thepaper.cn/newsDetail\_forward\_12891529
-
-足球场变赶集场，“物尽其用”用错了方向http://www.xinhuanet.com/comments/2021-02/22/c\_1127122818.htm
-
-教育部发布通知，中小学生迎来“坏消息”，家长：难以接受！https://baijiahao.baidu.com/s?id=1697031117087265335&wfr=spider&for=pc
-
-超四成中小学生家长表示，孩子每天睡眠不足八小时——如何“拯救”孩子的睡眠http://education.news.cn/2021-04/24/c\_1211125696.htm
-
-我国中小学生睡眠时间严重不达标https://www.163.com/edu/article/G22CB0AK00297VGM.html
-
-2019年全国体育场地统计调查数据公布：我国第一次人均体育场地面积突破2平方https://sichuan.scol.com.cn/ggxw/202011/57944107.html
-
-“十三五”时期全国社会足球场地数量增长4倍https://www.ndrc.gov.cn/fzggw/jgsj/shs/sjdt/202104/t20210419\_1276755.html
-![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 0

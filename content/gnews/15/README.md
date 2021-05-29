@@ -1,23 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议院两委员会议员宣布调查武汉病毒研究所资金用途
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1279431/)
+## 5月28日郴州白露塘市场五名学生被砍据传一名死亡
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1279553/)
 
-加拿大多伦多枫叶农场 路仁
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28201152/111827272_hi060961146.jpg)图片来源：bbc.com
-众议院监督和改革委员会和众议院司法委员会的主要排名成员周五宣布，他们将调查武汉病毒研究所如何使用纳税人资金。 美国国立卫生研究院（NIH）在 2019 年授予了武汉病毒研究所（WHI）资金。
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28202012/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-13.png)
+据[吴文行\[email protected\]](https://twitter.com/wuwenhang)于[下午7:34 · 2021年5月28日](https://twitter.com/wuwenhang/status/1398241172729049091)·[Twitter for Android](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-这项调查发起人为共和党议员科默（James Comer (R-KY)） 和 乔丹（Jim Jordan (R-OH) ）。他们的调查范围包括美国国立卫生院 （NIH） 和生态健康联盟（EcoHealth Alliance），后者获得了资金并随后将其授予了武汉病毒研究所（WVI）。与此同时，在 2020 年夏天，美国国立卫生院（NIH）写了一封信给生态健康联盟，因为人们越来越担心与武汉病毒研究所 WVI 的关系。结果，美国国立卫生研究院暂停了拨款。但是，WVI 已经收到了 600,000 美元。
+突发！郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡 。这是监控录像！
 
-**“越来越多的证据表明，COVID-19 大流行始于武汉病毒研究所，而中国共产党对其进行了掩盖。如果美国纳税人的钱被用于开发 COVID-19、进行功能研究或协助任何形式的掩盖，生态健康联盟必须承担责任”** 乔丹和科默在周五的宣布信中写道。
 
-信中还提到：**“资助接受者有责任确保他们的工作在资助范围内进行，促进我们的国家利益，并保护我们的国家安全。了解美国纳税人的资金是否与夺走近 60 万美国人生命的大流行病有关，这一点至关重要，这样我们才能防止未来发生类似的灾难。”**
 
-在调查中，议员们要求提供涉事三方所有的所有通信记录，以明确武汉病毒研究所WVI 是如何花钱的。他们还要求在 6 月 4 日之前进行简报。
+> 突发！郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡 。这是监控录像！ [pic.twitter.com/9maIYY1ucK](https://t.co/9maIYY1ucK)
+> — 吴文行wenxingwu (@wuwenhang) [May 28, 2021](https://twitter.com/wuwenhang/status/1398241172729049091?ref_src=twsrc%5Etfw)
 
-[原文链接](https://saraacarter.com/gop-lawmakers-launch-probe-into-us-funding-of-wuhan-lab/):
 
-*编辑、发稿*ctt
+
+另据[野山@naochashu](https://twitter.com/naochashu)于[下午4:20 · 2021年5月28日](https://twitter.com/naochashu/status/1398192435134533635)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+
+突发，郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡……
+
+
+
+> 突发，郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡…… [pic.twitter.com/gfNKNHu28u](https://t.co/gfNKNHu28u)
+> — 野山🎗 (@naochashu) [May 28, 2021](https://twitter.com/naochashu/status/1398192435134533635?ref_src=twsrc%5Etfw)
+
+
+
+另据[\[email protected\]](https://twitter.com/LiuLiu92266749)于[上午5:29 · 2021年5月29日](https://twitter.com/LiuLiu92266749/status/1398391015719931905)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+
+地獄般的存在：湖南郴州白露塘市場一男子砍傷五名學生，一名學生當場死亡。
+
+
+
+> 地獄般的存在：湖南郴州白露塘市場一男子砍傷五名學生，一名學生當場死亡。 [pic.twitter.com/y0Es9ozBgP](https://t.co/y0Es9ozBgP)
+> — Leo😷 (@LiuLiu92266749) [May 28, 2021](https://twitter.com/LiuLiu92266749/status/1398391015719931905?ref_src=twsrc%5Etfw)
+
+
+
+眼睁睁看着活生生的孩子毙命刀下我们却无能为力，在这个地狱般国度里，要么麻木地活着，要么痛苦地活着，要么精神病一样的活着，而精神病一样活着的人在对弱者施暴时绝不心慈手软，而可悲的是这样的精神病总是层出不穷。
+
+（文章内容仅代表作者个人观点）
 
 0

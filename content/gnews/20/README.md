@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】中共忽悠升级，国内民众抢种毒疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1279419/)
+## 【有声读物】从肢体语言解读闫博士
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1279487/)
 
-配音：香草山录音组 蒙古鸿雁
+配音：香草山福音部 Daxia
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,18 +14,17 @@
 
 
 
-近日，中共各大媒体都在鼓吹一个话题：多地卫健部门发布消息称，6月10日起，中共国暂停中共病毒疫苗第一针的接种，公众应尽量在6月9日前完成第一剂次疫苗接种。该消息广泛地出现在各大媒体、报刊及各个地方的微信官媒公众号，还有社区的通知中。
+新冠疫情爆发之后，闫博士勇敢地站了出来，发出呐喊、揭穿真相。她让我们看到了一个人的底色：不仅仅是为了活着，而是把自己的才能拿出来服务别人，是在多数人不敢讲话的时侯讲真话，真正有尊严的生活在这个世界上。我想从肢体语言的角度，来解读这位了不起的人。
 
 
 
-**文字版原文：[【墙内热搜】中共忽悠升级，国内民众抢种毒疫苗](https://gnews.org/zh-hans/1274189/)**
+**文字版原文：[【战友心声】从肢体语言解读闫博士](https://gnews.org/zh-hans/922936/)**
 
-作者：纽约香草山佛教部 369文驹
+作者：纽约香草山福音部 小草
 
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+音频处理/发稿：雪梨
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 

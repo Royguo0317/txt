@@ -1,49 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】Covid疫苗官方死亡人数达到4647人
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1279238/)
+## 为应对中共威胁，美国希望在澳大利亚北部投放兵力
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1279205/)
 
-香草山写作组 四季
+翻译：康州盘古农场 – 柯镇恶
 
+校对：康州盘古农场 – 格格巫
 
+编辑：康州盘古农场 – 格格巫
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**
+据《大纪元时报》作者：CADEN PEARSON 2021年5月26日报道：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28182844/airp3jpg-1.jpg)
+美国澳大利亚代理大使迈克•高德曼（Mike Goldman）告诉新闻集团《澳大利亚人》（The Australian），在北京日益严峻的战略威胁下，美国希望将军事武器投放到澳大利亚北部以部署兵力。高德曼表示，鉴于美国的基地（如关岛）在中（共）国导弹可及范围之内，在澳大利亚预先部署美国战备物质 “是合理的”，而且这会提供战略优势。他还希望看到澳大利亚能制造陆地精确制导武器，这是澳大利亚和美国之间更为“创新的国防伙伴关系”的一部分。他在采访中谈到紧张的台海关系等问题时说到：“其中行动都很直观，特别是当我们谈论如何在任何突发事件中投入武力时。”
 
+澳大利亚总理斯科特·莫里森（Scott Morrison）认为，建立主权制导武器能力是政府的优先任务，这是国防部的“部队结构计划”中首次提出的想法。他还支持一项计划，斥资10亿澳元（7.8亿美元）来推动建立主权制导武器企业。3月31日，澳国防部宣布将选择战略工业合作伙伴，代表政府运营主权制导武器的制造。莫里森说：“在澳大利亚的土地上建立我们自己的主权势力对于确保澳大利亚人的安全至关重要，同时还可以在整个国防供应链中为企业提供数千个本地就业机会。”新企业将支持导弹和制导武器的制造，供整个澳大利亚国防军使用。
 
-自然新闻5月27日报道，美国疾病控制和预防中心（CDC）发布了关于武汉冠状病毒（Covid-19）疫苗死亡的新数据：截至目前，美国至少有4,647人因注射中国病毒而死亡。刷新了疫苗不良反应报告系统（VAERS）的22年的疫苗新记录。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28183944/Screen-Shot-2021-05-28-at-6.37.11-PM.png)
-据疾病预防控制中心的数据，在2020年12月14日至2021年5月17日期间，美国各地注射了超过2.73亿剂的实验性疫苗。在这段时间里，有数千人死于疫苗接种。当然，CDC否认疫苗和死亡之间有任何因果关系。因为根据政府的说法，没有任何疫苗曾经伤害过任何人。
+美国大使说：“我们现在处在一个新的地缘战略背景下，需要一套不同的平台和不同的部队态势。”“这些事情不是一时的，但我们的军队和战略思想家正在就如何最好地共同应对这些新挑战进行讨论。因此，我认为我们将看到新的、创新的方式来加强我们的合作伙伴关系。”高德曼表示，双边部队态势审查工作组于已5月份举行了首次会议，来讨论“各种突发事件”。该小组是在去年AUSMIN会谈之后成立的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28182413/air12.jpg)
+美国已经采取行动加强其在澳大利亚北部的防御能力。2020年5月，美国海军太平洋设施司令部与澳大利亚公司Cockram签订了一份价值超过1280万澳元（1000万美元）的合同，以在北领地达尔文东南部的RAAF Base Tinda，建造一个地下弹药库（earth-covered magazine）设施。国防部在线表示，该项目将建造两个地下弹药库，一个生产区域，其中将包括一个弹药组装输送机掩体，以支持澳大利亚和美国的军事联合训练活动。美国大使还表示，当前与中（共）国在台湾问题上的紧张关系不会动摇，“牢不可破”的太平洋共同防卫组织（Australia，New Zealand and the United States，ANZUS）联盟，到今年9月该联盟已成立70周年。高德曼表示该联盟“比任何一个意外事件都要强大和全面。”“我们不会指挥每个国家的自身利益。在台湾问题上，每个国家都必须做出自己的决定，”他说。
 
-而在1999年1月1日至2020年11月30日期间，只有4571例与疫苗有关的死亡报告给VAERS。
+据报道，他指出与中（共）国建立关系的艰难和复杂性，因为像美国这样的西方国家正在寻求与共产主义政权合作以减少碳排放。他说，这比冷战时期与俄罗斯的关系更具挑战性。
 
-在这4,571名因接种疫苗而死亡的人中，至少有50%是三岁以下的婴幼儿，这是几乎一出生就被注射了几十种疫苗的主要人群。
+原文链接：[https://www.theepochtimes.com/us-looks-to-store-weapons-in-northern-australia-amid-china-threat\_3831003.html](https://www.theepochtimes.com/us-looks-to-store-weapons-in-northern-australia-amid-china-threat_3831003.html)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-然而，现在死于covid19疫苗注射的人包含所有的年龄段。除了数以千计的死亡之外，据CDC的报告，至少有227,805人因接种冠状病毒疫苗而受伤，其中包括2,719人永久残疾，12,625人住院，29,708人到急诊室就诊。所有年龄段的人仍在不停接种疫苗。疫苗引起的伤害和死亡比美国以往任何时候都多。
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-事实是，VAERS数据只占所有与疫苗有关的伤害和死亡的百分之一。尽管已经有很多治疗冠状病毒的有效方法，但包括CDC和FDA在内的医疗界仍然坚持，只有接种大药厂的疫苗才能进入“新常态”。他们继续坚持认为疫苗接种是“安全和有效的”。
-
-随着美国加大力度调查中共病毒源头，脸书也更改政策，将不再从其应用程序中删除COVID-19是人造的说法。中共病毒的自然来源即将被认定，全球以毒灭共已经成为共识。
-
-原文链接：
-
-[https://www.naturalnews.com/2021-05-27-cdc-covid-vaccine-deaths-vaers-record.html](https://www.naturalnews.com/2021-05-27-cdc-covid-vaccine-deaths-vaers-record.html)
-![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-+1
+0
