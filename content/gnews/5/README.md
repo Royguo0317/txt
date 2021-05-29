@@ -1,40 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/24 塞林博士采访：科学界和政界联合欺骗美国人民
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1280282/)
+## 2021年5月28日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1280286/)
 
-视频字幕：雨中漫步 | 听写/翻译：Wade | 校对：Roberts | 简评/文字整理/编辑：胖丁
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-**简评：**
+5月28日：一切都已经开始！〖[https://www.dailymail.co.uk/news/article-9630049/More-200-House-Republicans-demand-Pelosi-FINALLY-investigate-Chinas-complicity-pandemic.html](https://www.dailymail.co.uk/news/article-9630049/More-200-House-Republicans-demand-Pelosi-FINALLY-investigate-Chinas-complicity-pandemic.html)】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29050517/296e25820768e5a726b0e3e9bce4614f.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29050504/7b44706af252eb04f217c466a6983c70.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29050440/2b864f820d3ea67134ca2e21faf6233f.jpg)
+[【2021年5月28日】文贵先生盖特原文](https://gtv.org/getter/60b16dafba7ef9088d0299bf)
 
-美国政府实际上不再代表美国人民，而代表从中共国赚了很多钱的全球主义捐赠者。所以调查Covid19的起源，会触及很多人的利益，从而阻碍我们的调查。很多美国科学家与中共勾结。2020年年初，一些美国科学家和政府官员联合起来推动病毒自然起源理论，同时打压病毒实验室起源。这是科学届和政界对美国人民的欺骗。
+**喜联盟Gnews编辑部**
 
-**YouTube视频链接：**
-
-
-
-**GTV视频链接：**
-
-[https://gtv.org/video/id=60adf4b8744cbc43136468f8](https://gtv.org/video/id=60adf4b8744cbc43136468f8)
-
-**视频字幕：**
-
-**主持人：**我们的公共政策哪儿去了？这是政治事件？还是一场生物战的反击，就像某些中共叫兽（陈平）说的那样？
-
-**塞林博士: **关于2019年11月的事情我可以给你一些新的信息，但让我先回答政治层面的问题。很简单，整体上我认为美国政府不再代表美国人民。我认为美国政府，尤其是国会，代表的是全球的捐赠者。现在这些全球主义捐赠者正从中共囯赚很多钱。
-
-如果我们调查COVID19的真正起源，也就是中共的生物战项目，就会触及很多人的利益。那些从中共囯赚大钱的人，也就是资助我们的政客的人就会开始赔钱。所以我认为这就是阻止我们对中共生物战项目进行调查的原因之一。
-
-在科学层面，很多美国科学家也难逃罪责，他们与中共的勾结最终导致了COVID19。事实上，在疫情爆发的初期，2020年1月底2月初，一些美国科学家和政府官员参与了甚至组织了一个宣传行动。他们打压一切关于实验室起源的消息。他们同时推动自然起源理论，而这都是在2020年1月底2月初做的。
-
-那时候人们还没办法知道病毒的起源。我们当时正在关注这个事件，但直到几个月以后才有了清晰的了解。所以这是一场科学界和政界对美国人民的故意欺骗。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
