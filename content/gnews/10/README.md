@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纳瓦罗：中共武器化病毒给美国造成损失超过20万亿美元
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1279979/)
+## 年轻人选择躺平，实际上是抗拒被趴着、拒绝被裹挟被绑架
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1280037/)
 
-彼得⋅纳瓦罗5月27日在战斗室评说，中共不去遏制病毒、不去平息全球大疫情，而是任其撒种并散播到世界各地，仅此一点，中共为各种损失100%负有责任，要受到惩罚并进行赔偿。
+中共国的一段视频道出了中国年轻人躺平的真实想，躺平并不意味着对自己的人生不负责任。相反，躺平是在为自尊而战，是在向过于功利的世界发出最强音。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-+1
+0
