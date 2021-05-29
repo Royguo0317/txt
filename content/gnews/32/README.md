@@ -1,37 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】— 「昨日播的种，将来必定收成」
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1279252/)
+## 参议院通过霍利、布劳恩关于要求拜登政府解密武汉实验室情报的法案
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1279293/)
 
-香草山香港部 路灯
+**报道: Janita Kan and Mimi Nguyen-Ly**
+
+**撰稿: Epoch Newsroom**
+
+**编译: 越野小兔** **校对: pv0**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28191456/001234-11.jpeg)**图片: Fox News**
+
+美国参议院一致通过了一项法案，旨在要求拜登政府对所有与新冠起源有关的情报进行解密，包括大流行初期与武汉病毒实验室相关的情报。
+
+上个月，印第安纳州共和党参议员迈克·布劳恩(Mike Braun)和密苏里州共和党参议员乔什·霍利(Josh Hawley)提交了一项提案，即《2021新冠起源法案》，要求国家情报总监（DNI）向美国民众解密有关武汉病毒研究所（WIV）与中共病毒起源之间任何潜在联系的情报。该法案获得一致通过。
+
+霍利在周三的参议院会议上提到，该法案给予美国公众自己评估证据的机会，并补充说，这仅仅是开端。
+
+“他们有权知道。是政府欠他们的，现在该采取行动了，”霍利说。”而美国人民还应该得到一些其它的：他们理应让美国政府对发动这种病毒的国家进行追究，该病毒的始作俑者撒谎导致全球大流行，致使许多其他国家和我们一样无法及时有效地解决这个问题，当然我说的是中（共）国。”
+
+该法案一旦颁布，则可解密的文件可能涉及武汉病毒研究所与中国人民解放军共同参与或代表军方从事的活动、新冠爆发前武汉病毒研究所进行的冠状病毒研究或其他相关活动，以及关于武汉病毒研究所研究人员在2019年秋季患病的信息。
+
+一旦颁布，国家情报总监将需要在该法案颁布起的90天内向国会提交一份包含解密信息的报告。
+
+国家情报局新闻办公室没有立即回复《大纪元》的置评请求。
+
+布劳恩参议员补充说：”拜登总统必须解密所有与武汉实验室和新冠大流行有关的美国情报，以便美国人民和独立研究人员能够找到答案。”
+
+由于人们普遍担心大流行可能是由实验室事故引起的，呼吁对中共病毒进行新的调查的呼声越来越高。
+
+本周早些时候，美国卫生与公共服务部长哈维·贝塞拉(Xavier Becerra)在第74届世界卫生大会视频会议中呼吁世卫组织启动 “透明 “的第二阶段调查。
+
+他提到：”新冠起源的第二阶段调查的工作范围必须是透明的，且以科学为基础，并给予国际专家独立性，以充分评估病毒来源和疫情爆发初期的情况。
+
+在发表上述评论前，《华尔街日报》 5月23日报道称，武汉病毒研究所的三名研究人员于2019年11月住院，其症状与季节性流感和中共新冠病毒症状一致。该报援引了不愿透露姓名的、熟悉此前未披露的美国情报报告的美国政府消息人士。
+
+5月24日，白宫新闻发言人珍·莎琪（Jen Psaki）在被问及此事时说，拜登政府 “一再呼吁世卫组织支持由专家主导对该大流行病起源进行评估，不受干扰或政治化。”
+
+“第一阶段的调查结果出来了，但我们在第一阶段调查中没有获得到数据，没有被提供任何信息。现在，我们希望世卫组织能够开展更加透明、独立的第二阶段调查，” 莎琪说。
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
+**原新闻来源: **
+
+[Senate Passes Hawley, Braun Bill for Biden Admin to Declassify Intel on Wuhan Lab](https://www.theepochtimes.com/senate-passes-hawley-braun-bill-for-biden-to-declassify-intel-on-wuhan-lab_3832669.html/amp?utm_medium=social&amp;utm_source=twitter&amp;utm_campaign=digitalsub)
 
 
 
-在前年10.1警方不批准民阵举行游行的情况下，民阵召集人陈皓桓坚持以个人名义发起游行，真正表现出「和平理性非暴力」的勇敢，是「真正的勇者」。陈皓桓早前承认「组织未经批准集结罪」和「煽动他人明知而参与未经批准集结罪」，今日因10.1游行案被重判18个月。陈在判刑前亲手写下「致香港人公开信」。他感谢港人全力以赴，争取民主、自由、人权及公义，勉励港人即使未来的路更崎岖难行，「但请大家不要忘记，昨日播的种，将来定必收成」。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28184357/WhatsApp-Image-2021-05-28-at-12.10.31-PM.jpeg)
-陈皓桓在写于上周六（22日）的信中，感谢港人让全世界看到港人努力，令港府撤回《逃犯条例》修订，直言「实在令我感到骄傲又感动」。虽然民主派及抗争者因《国歌法》、《国安法》等政治形势而相继入狱，但他勉励同路人要坚持信念，「昨日播的种，将来定必收成，争取民主亦不是一朝一夕。只要我们坚持信念，逆流而上，并肩同行，终有一天，我们必定能在煲底相见。」
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28184329/WhatsApp-Image-2021-05-28-at-12.10.31-PM-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28184341/WhatsApp-Image-2021-05-28-at-12.10.31-PM-1.jpeg)
-面对民阵或被政权取缔，陈皓桓指自己即使已身陷囹圄，「但我仍然坚持民阵不会解散，直到最后一刻。也请大家不要忘记六四、七一等日子，继续发声，为狱中的、为离港的、为自由的、为香港继续努力」。最后他写道：「石在火种在，人在希望在﹗五大诉求，缺一不可！愿荣光归香港」。即使港共对我们的政治再打压，对媒体报道的再封锁，也禁不了我们对民主自由义无反顾的意志。这就是狮子山下的香港精神。
-![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-编辑/校对/发稿：正义的小新
+* * *
 
-**更多资讯，更多关注**
+**发布: 法国巴黎七星编辑组**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-+1
+0

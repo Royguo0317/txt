@@ -1,51 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福克斯揭福奇2012年为功能增强研究辩护
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1279109/)
+## 【世事解评】美国霍普金斯大学教授：忽视自然免疫是当前医学领导力的最大失败
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1279157/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+香草山写作组 四季
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28172722/F-3-13.jpg)projects.croucher.org.hk
-早在2012年的论文中，老贼福奇就对中共病毒将给世界带来的危害很清楚，大有明知故犯的嫌疑！
 
-《福克斯新闻》发表文章，“福奇说，从有争议的病原体实验中获得知识（的益处），‘超过’了可能出现疫情的风险”，文章副标题指出，福奇在2012年的一篇医学论文中为有争议的功能增强研究辩护。
 
-全文如下：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
 
-美国国家过敏和传染病研究所（NIAID）主任安东尼·福奇在2012年写道，致病性功能增强研究值得冒潜在疫情的风险。
 
-在2012年的一篇论文中，福奇为功能增强研究的争议性进行了辩护，称从这项科学中获得的“好处”大于意外爆发疫情的风险。
 
-该论文写道：“疫情在自然界发生的可能性更大，而在这种威胁面前保持领先的必要性，是进行一项看似有风险的实验的主要原因。”
+INFOWARS网站5月26报道了约翰-霍普金斯大学教授马蒂-马卡里博士的观点。马卡里教授表示，人们普遍否定了一半以上的美国人已经对冠状病毒产生了自然免疫力这一事实，这构成了“我们目前医学领导力的最大失败之一”。
 
-老贼写道，科学界需要“尊重人们对这类研究的真正和合理的关注”，例如一场疫情开始时，经验不足、资金不足的科学家受到感染，并传播正在研究的疾病。
+当前，大量的媒体宣传自然免疫力是不够的，那些不选择接种疫苗的人应该受到社会的排斥。世界卫生组织甚至改变了“群体免疫”的定义，取消了COVID之前的科学共识，即通过允许病毒在人群中传播来实现群体免疫，并坚持认为群体免疫只能来自疫苗。
 
-他还说：“我们科学界那些相信这项工作的优点的人，有责任深思熟虑和慎重地解决这些问题。”
+面对这种情况，马卡里教授指出，一半的美国人已具有天然免疫力，“自然免疫是有效的”，诋毁那些不想接种疫苗的人是错误的，因为他们已经从病毒中恢复了。 他认为，“我们得开始尊重那些选择不接种疫苗的人，而不是把他们妖魔化”。
 
-老贼没有立即回应《福克斯新闻》的置评请求。
+马卡里教授对美国疾病控制和预防中心（CDC）提出批评，认为它是“美国历史上最迟钝、最保守、最政治化的”。因为与疫苗开发的免疫相比，CDC没有清楚地传达有关自然免疫的科学事实。他强调说：“关于自然免疫的数据比关于疫苗免疫的数据更多，因为自然免疫的历史更长”。
 
-功能增强研究涉及到干扰病原体或有机体的遗传，以增加其传染性、致病特性以及病原体能感染的有机体。
+同样，身为眼科医生的参议员兰德-保罗最近告诉WABC 770 AM电台，保罗表示他没有看到证据证明疫苗比在CCP（中共）病毒中幸存下来的人更有效，因而他不会接种COVID-19疫苗。保罗是第一个宣布他不会接种疫苗的参议员。
 
-这项有争议的研究被用来领先于潜在的新疾病，开发新的治疗方法和疫苗，但如果不安全地操作，就有爆发的风险。
+他说，“在他们向我展示已经感染的人出现大量死亡，或被送进医院，或病得很重的证据之前，我只是做了我个人的决定，我不会接种疫苗，因为我已经得过这种病，我已经有自然免疫力”。他指出，“在自由的国家，人们应该尊重每个人，每个人都可以做出自己的决定。来自各种机构的施压，强制接种疫苗是对个人自由的蔑视。
 
-周二（5月25日），老贼为武汉病毒研究所（WIV）和美国国家过敏和传染病研究所（NIAID）在研究蝙蝠传播冠状病毒方面的“适度”合作辩护，但否认这笔钱用于功能增强研究。
+而美国疾病控制和预防中心（CDC）则建议已经得过病毒并康复的人接种疫苗，声称卫生官员不知道自然免疫力能持续多久。CDC在其网站上说：“即使你已经从COVID-19中恢复过来，你也有可能，尽管很罕见，再次感染引起COVID-19的病毒”。
 
-美国国家过敏和传染病研究所向一个名为生态健康联盟（Eco Health Alliance）的组织提供了60万美元，该组织又向武汉病毒研究所支付了研究蝙蝠冠状病毒感染人类的风险的费用。
-
-“如果我们不研究这个问题，我几乎是在玩忽职守，而你研究这些问题的唯一方法就是，你必须找到你研究的方向。”老贼说，他提到了21世纪初SARS的爆发，这被认为是来自蝙蝠。
-
-（全文完）
-
-无语了，看看老贼的逻辑，“如果我们不研究这个问题，我几乎是在玩忽职守，而你研究这些问题的唯一方法就是，你必须找到你研究的方向”，只要能为你提供研究，无论是谁，本·拉登？萨达姆？
-
-老贼不是不知道这类研究的风险，“研究的危害”出现了，疫情来了，你不如实交代，却替恶魔掩盖，一再误导民众！
-
-清算老贼的时候到了！
+美国疫苗不良反应报告系统（VAERS）和欧盟药物警戒系統 (EudraVigilance) 都已经报告了成千上万的疫苗伤害和死亡病例。人们已熟知的科学和医学应得到尊重和遵循。
 
 原文链接：
 
-[https://www.foxnews.com/politics/fauci-pathogen-experiments-outweigh-risk-pandemic](https://www.foxnews.com/politics/fauci-pathogen-experiments-outweigh-risk-pandemic)
+[https://www.infowars.com/posts/johns-hopkins-prof-half-of-americans-have-natural-immunity-dismissing-it-is-biggest-failure-of-medical-leadership/](https://www.infowars.com/posts/johns-hopkins-prof-half-of-americans-have-natural-immunity-dismissing-it-is-biggest-failure-of-medical-leadership/)
+
+[https://www.zerohedge.com/covid-19/rand-paul-first-senator-announce-he-wont-get-covid-19-vaccine](https://www.zerohedge.com/covid-19/rand-paul-first-senator-announce-he-wont-get-covid-19-vaccine)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 0
