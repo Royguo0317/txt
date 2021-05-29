@@ -1,57 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议院通过霍利、布劳恩关于要求拜登政府解密武汉实验室情报的法案
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1279293/)
+## 【有声读物】中共忽悠升级，国内民众抢种毒疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1279419/)
 
-**报道: Janita Kan and Mimi Nguyen-Ly**
+配音：香草山录音组 蒙古鸿雁
 
-**撰稿: Epoch Newsroom**
-
-**编译: 越野小兔** **校对: pv0**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28191456/001234-11.jpeg)**图片: Fox News**
-
-美国参议院一致通过了一项法案，旨在要求拜登政府对所有与新冠起源有关的情报进行解密，包括大流行初期与武汉病毒实验室相关的情报。
-
-上个月，印第安纳州共和党参议员迈克·布劳恩(Mike Braun)和密苏里州共和党参议员乔什·霍利(Josh Hawley)提交了一项提案，即《2021新冠起源法案》，要求国家情报总监（DNI）向美国民众解密有关武汉病毒研究所（WIV）与中共病毒起源之间任何潜在联系的情报。该法案获得一致通过。
-
-霍利在周三的参议院会议上提到，该法案给予美国公众自己评估证据的机会，并补充说，这仅仅是开端。
-
-“他们有权知道。是政府欠他们的，现在该采取行动了，”霍利说。”而美国人民还应该得到一些其它的：他们理应让美国政府对发动这种病毒的国家进行追究，该病毒的始作俑者撒谎导致全球大流行，致使许多其他国家和我们一样无法及时有效地解决这个问题，当然我说的是中（共）国。”
-
-该法案一旦颁布，则可解密的文件可能涉及武汉病毒研究所与中国人民解放军共同参与或代表军方从事的活动、新冠爆发前武汉病毒研究所进行的冠状病毒研究或其他相关活动，以及关于武汉病毒研究所研究人员在2019年秋季患病的信息。
-
-一旦颁布，国家情报总监将需要在该法案颁布起的90天内向国会提交一份包含解密信息的报告。
-
-国家情报局新闻办公室没有立即回复《大纪元》的置评请求。
-
-布劳恩参议员补充说：”拜登总统必须解密所有与武汉实验室和新冠大流行有关的美国情报，以便美国人民和独立研究人员能够找到答案。”
-
-由于人们普遍担心大流行可能是由实验室事故引起的，呼吁对中共病毒进行新的调查的呼声越来越高。
-
-本周早些时候，美国卫生与公共服务部长哈维·贝塞拉(Xavier Becerra)在第74届世界卫生大会视频会议中呼吁世卫组织启动 “透明 “的第二阶段调查。
-
-他提到：”新冠起源的第二阶段调查的工作范围必须是透明的，且以科学为基础，并给予国际专家独立性，以充分评估病毒来源和疫情爆发初期的情况。
-
-在发表上述评论前，《华尔街日报》 5月23日报道称，武汉病毒研究所的三名研究人员于2019年11月住院，其症状与季节性流感和中共新冠病毒症状一致。该报援引了不愿透露姓名的、熟悉此前未披露的美国情报报告的美国政府消息人士。
-
-5月24日，白宫新闻发言人珍·莎琪（Jen Psaki）在被问及此事时说，拜登政府 “一再呼吁世卫组织支持由专家主导对该大流行病起源进行评估，不受干扰或政治化。”
-
-“第一阶段的调查结果出来了，但我们在第一阶段调查中没有获得到数据，没有被提供任何信息。现在，我们希望世卫组织能够开展更加透明、独立的第二阶段调查，” 莎琪说。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-**原新闻来源: **
-
-[Senate Passes Hawley, Braun Bill for Biden Admin to Declassify Intel on Wuhan Lab](https://www.theepochtimes.com/senate-passes-hawley-braun-bill-for-biden-to-declassify-intel-on-wuhan-lab_3832669.html/amp?utm_medium=social&amp;utm_source=twitter&amp;utm_campaign=digitalsub)
 
 
 
-* * *
 
-**发布: 法国巴黎七星编辑组**
+近日，中共各大媒体都在鼓吹一个话题：多地卫健部门发布消息称，6月10日起，中共国暂停中共病毒疫苗第一针的接种，公众应尽量在6月9日前完成第一剂次疫苗接种。该消息广泛地出现在各大媒体、报刊及各个地方的微信官媒公众号，还有社区的通知中。
 
 
+
+**文字版原文：[【墙内热搜】中共忽悠升级，国内民众抢种毒疫苗](https://gnews.org/zh-hans/1274189/)**
+
+作者：纽约香草山佛教部 369文驹
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

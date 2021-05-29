@@ -1,45 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月28日美国政要推文精选：209位共和党人联名要求众议院佩罗西议长同意调查武毒所
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1279604/)
+## 清算福奇从达扎克开始
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1279640/)
 
-众议员埃莉斯·斯蒂芬尼克： 我与众议员史蒂夫·斯卡利丝[@SteveScalise](https://twitter.com/SteveScalise) 、众议院共和党领袖凯文·麦卡锡[@GOPLeader](https://twitter.com/GOPLeader)以及我们的200多名共和党同事，一起要求议长佩洛西调查 [#新冠病毒](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92?src=hashtag_click) COVID-19的起源和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的掩盖 为什么民主党人不加入我们来揭露真相呢？！
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28213636/I-23.jpg)nationalsecurity.news
+清算不是目的，而是揭露真相，让全世界认清中共的本来面目。
 
+眼下的老贼福奇仍在替自己的罪恶行径找借口、搪塞，混搅蛮缠【1】，大有不见棺材不落泪的“坚韧”。好吧，会有人知道你的底细！
 
-> I joined [@SteveScalise](https://twitter.com/SteveScalise?ref_src=twsrc%5Etfw) [@GOPLeader](https://twitter.com/GOPLeader?ref_src=twsrc%5Etfw) and 200+ of our Republican colleagues in demanding [@SpeakerPelosi](https://twitter.com/SpeakerPelosi?ref_src=twsrc%5Etfw) investigate the origins of COVID-19 and the Chinese Communist Party coverup
-> 
-> Why won’t Democrats join us in uncovering the TRUTH?! [https://t.co/MmWy7yVNih](https://t.co/MmWy7yVNih)
-> — Rep. Elise Stefanik (@RepStefanik) [May 28, 2021](https://twitter.com/RepStefanik/status/1398342896454193154?ref_src=twsrc%5Etfw)
+《萨拉·卡特》（Sara A. Carter）最新报道，“共和党议员就美国资助武汉实验室案件展开调查”。【2】
 
+文章透露，众议院监督与改革委员会、众议院司法委员会的资深委员星期五（5月28日）宣布，他们将调查武汉病毒研究所如何使用纳税人的资金，国家卫生研究院（NIH）在2019年授权同意并拨款资助了（该项目）。
 
+詹姆斯·科默（James Comer）和吉姆·乔丹（Jim Jordan）写信宣布了这项调查，他们的调查范围包括国家卫生研究院和生态健康联盟（the Eco Health Alliance），后者获得了资金，随后将其转给了武汉病毒研究所（WVI）。与此同时，在2020年夏天，国家卫生研究院给生态健康联盟写了一封信，因为人们越来越关注与武毒所的关系，结果，国家卫生研究院暂停了拨款，但是，武毒所已经收到了60万美元。
 
-众议员李·泽尔丁: 国会中的自由派、媒体和大型科技公司接受了 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 关于 COVID 起源的谎言，并污辱持不同意见者为种族主义者的。众议院民主党必须与我们一起努力调查武汉发生的事情，追究 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的责任，让美国人得到他们应得的答案。 【转众议员史蒂夫·斯卡利斯推文：209位共和党人联名要求众议院佩罗西议长同意调查武毒所】
+越来越多的证据表明，中共病毒疫情始于武汉病毒研究所，中国共产党掩盖了这一事实，“如果美国纳税人的钱被用来开发中共病毒，进行功能增强研究，或协助任何形式的掩盖，生态健康联盟必须承担责任。”乔丹和科默的信中写道。
 
+他们补充说：“受助者有责任确保他们的工作在受助范围内进行，促进我们的国家利益，保护我们的国家安全，必须了解美国纳税人的资金是否与一场夺去近60万美国人生命的疫情有关，这样我们才能防止今后发生类似的灾难。”
 
+议员们要求，在调查中（要提交）三方之间的所有沟通，以理清武毒所是如何花这笔钱的。他们还要求在6月4日前举行简报会。
 
-> Liberals in Congress, the press & big tech accepted the Chinese Communist Party’s lies about COVID's origin & shamed dissenting views as racist. House Dems must join our efforts to investigate what happened in Wuhan, hold the CCP accountable & get Americans answers they deserve. [https://t.co/XRWWvshtSi](https://t.co/XRWWvshtSi)
-> — Lee Zeldin (@RepLeeZeldin) [May 28, 2021](https://twitter.com/RepLeeZeldin/status/1398300812686790658?ref_src=twsrc%5Etfw)
+（原文完）
 
+“如果美国纳税人的钱被用来开发中共病毒，进行功能增强研究，或协助任何形式的掩盖，生态健康联盟必须承担责任”，哪条罪责都适合这个所谓的生态健康联盟（the Eco Health Alliance）主管达扎克。议员们的调查若能完全彻底的话，就能审计出达扎克卡拉OK歌唱得怎样，茅台喝了几瓶……
 
+想想这个畜生对天使闫博士的攻击就气不打一处来！
 
-参议员玛莎·布莱克本： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 隐瞒了有关 COVID-19 的信息长达 51 天。这是不可接受的，这是错误的，至关重要的是他们要面临后果。受到影响的美国人应该完全有权起诉中共国。
+参考链接：
 
+【1】[https://gnews.org/zh-hans/1279109/](https://gnews.org/zh-hans/1279109/)
 
-
-> For 51 days the Chinese Communist Party hid information about COVID-19. It’s unacceptable, it’s wrong, and it’s critical they face consequences. Americans impacted should have every right to sue China.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 28, 2021](https://twitter.com/MarshaBlackburn/status/1398375584045150220?ref_src=twsrc%5Etfw)
-
-
-
-参议员汤姆·科顿： 福奇(Fauci)有很多问题需要回答。 他需要停止玩文字游戏。 【转[http://theAustralia.com.au](https://t.co/SoCmGSvZG3?amp=1) 文章：尽管有(病毒)大流行的风险，福奇还是支持了病毒试验】
-
-
-
-> Fauci has a lot of questions to answer. And he needs to stop playing word games. [https://t.co/snFXlcpjKP](https://t.co/snFXlcpjKP)
-> — Tom Cotton (@SenTomCotton) [May 28, 2021](https://twitter.com/SenTomCotton/status/1398341762930860032?ref_src=twsrc%5Etfw)
-
-
+【2】[https://saraacarter.com/gop-lawmakers-launch-probe-into-us-funding-of-wuhan-lab/](https://saraacarter.com/gop-lawmakers-launch-probe-into-us-funding-of-wuhan-lab/)
 
 0

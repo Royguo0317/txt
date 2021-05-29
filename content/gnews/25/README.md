@@ -1,43 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】从肢体语言解读闫博士
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1279487/)
+## 5月28日郴州白露塘市场五名学生被砍据传一名死亡
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1279553/)
 
-配音：香草山福音部 Daxia
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28202012/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-13.png)
+据[吴文行\[email protected\]](https://twitter.com/wuwenhang)于[下午7:34 · 2021年5月28日](https://twitter.com/wuwenhang/status/1398241172729049091)·[Twitter for Android](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-
+突发！郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡 。这是监控录像！
 
 
 
-新冠疫情爆发之后，闫博士勇敢地站了出来，发出呐喊、揭穿真相。她让我们看到了一个人的底色：不仅仅是为了活着，而是把自己的才能拿出来服务别人，是在多数人不敢讲话的时侯讲真话，真正有尊严的生活在这个世界上。我想从肢体语言的角度，来解读这位了不起的人。
+> 突发！郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡 。这是监控录像！ [pic.twitter.com/9maIYY1ucK](https://t.co/9maIYY1ucK)
+> — 吴文行wenxingwu (@wuwenhang) [May 28, 2021](https://twitter.com/wuwenhang/status/1398241172729049091?ref_src=twsrc%5Etfw)
 
 
 
-**文字版原文：[【战友心声】从肢体语言解读闫博士](https://gnews.org/zh-hans/922936/)**
+另据[野山@naochashu](https://twitter.com/naochashu)于[下午4:20 · 2021年5月28日](https://twitter.com/naochashu/status/1398192435134533635)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-作者：纽约香草山福音部 小草
+突发，郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡……
 
 
 
-音频处理/发稿：雪梨
+> 突发，郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡…… [pic.twitter.com/gfNKNHu28u](https://t.co/gfNKNHu28u)
+> — 野山🎗 (@naochashu) [May 28, 2021](https://twitter.com/naochashu/status/1398192435134533635?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+另据[\[email protected\]](https://twitter.com/LiuLiu92266749)于[上午5:29 · 2021年5月29日](https://twitter.com/LiuLiu92266749/status/1398391015719931905)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+地獄般的存在：湖南郴州白露塘市場一男子砍傷五名學生，一名學生當場死亡。
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+> 地獄般的存在：湖南郴州白露塘市場一男子砍傷五名學生，一名學生當場死亡。 [pic.twitter.com/y0Es9ozBgP](https://t.co/y0Es9ozBgP)
+> — Leo😷 (@LiuLiu92266749) [May 28, 2021](https://twitter.com/LiuLiu92266749/status/1398391015719931905?ref_src=twsrc%5Etfw)
+
+
+
+眼睁睁看着活生生的孩子毙命刀下我们却无能为力，在这个地狱般国度里，要么麻木地活着，要么痛苦地活着，要么精神病一样的活着，而精神病一样活着的人在对弱者施暴时绝不心慈手软，而可悲的是这样的精神病总是层出不穷。
+
+（文章内容仅代表作者个人观点）
 
 0

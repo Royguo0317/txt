@@ -1,35 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 谭德赛世卫大会警告还有更严重的病毒，呼吁国际团结和共享
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1279533/)
+## 5月28日美国政要推文精选：209位共和党人联名要求众议院佩罗西议长同意调查武毒所
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1279604/)
 
-翻译：盘古农场–格格巫
+众议员埃莉斯·斯蒂芬尼克： 我与众议员史蒂夫·斯卡利丝[@SteveScalise](https://twitter.com/SteveScalise) 、众议院共和党领袖凯文·麦卡锡[@GOPLeader](https://twitter.com/GOPLeader)以及我们的200多名共和党同事，一起要求议长佩洛西调查 [#新冠病毒](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92?src=hashtag_click) COVID-19的起源和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的掩盖 为什么民主党人不加入我们来揭露真相呢？！
 
-校对：盘古农场–Mike Li
 
-编辑：盘古农场–傻小子
 
-发布：康州盘古农场 – 彩虹 Rainbow
+> I joined [@SteveScalise](https://twitter.com/SteveScalise?ref_src=twsrc%5Etfw) [@GOPLeader](https://twitter.com/GOPLeader?ref_src=twsrc%5Etfw) and 200+ of our Republican colleagues in demanding [@SpeakerPelosi](https://twitter.com/SpeakerPelosi?ref_src=twsrc%5Etfw) investigate the origins of COVID-19 and the Chinese Communist Party coverup
+> 
+> Why won’t Democrats join us in uncovering the TRUTH?! [https://t.co/MmWy7yVNih](https://t.co/MmWy7yVNih)
+> — Rep. Elise Stefanik (@RepStefanik) [May 28, 2021](https://twitter.com/RepStefanik/status/1398342896454193154?ref_src=twsrc%5Etfw)
 
-**据《republicworld》作者：Bhavya Sukheja，于2021年5月24日发布**
 
-世卫组织总干事谭德赛·阿达诺姆·吉布里亚索斯警告说，还有另一种病毒可能比COVID-19更易传播，更致命。
 
-世卫组织总干事谭德赛·阿达诺姆·吉布里亚索斯5月24日在联合国卫生机构年度大会开幕式上致辞，并警告说，还有另一种病毒可能会传播。他在第74届世界卫生大会上说，COVID-19大流行的“最大推动力”是“缺乏国际团结和共享”。谭德赛指出，如果任何人被抛在后面，所有人都会受到阻碍，并进一步警告说，世界仍然处于“非常危险的境地”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28200720/picof-%40-2021-05-28-170559.png)
-世卫组织负责人说，战胜病毒的唯一方法是首先保护最脆弱的人群。他说，如果最落后者首先得到帮助，最弱者首先得到加强，那么“我们都会赢”。谭德赛说，《国际卫生条例》仍然是大流行防范和应对的全球治理的基石。他补充说，然而，它们的执行是“前后矛盾的”，并没有导致所需的承诺和采取的行动。
+众议员李·泽尔丁: 国会中的自由派、媒体和大型科技公司接受了 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 关于 COVID 起源的谎言，并污辱持不同意见者为种族主义者的。众议院民主党必须与我们一起努力调查武汉发生的事情，追究 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的责任，让美国人得到他们应得的答案。 【转众议员史蒂夫·斯卡利斯推文：209位共和党人联名要求众议院佩罗西议长同意调查武毒所】
 
-此外，谭德赛呼吁“更好的治理”，要有包容性并代表每个会员国。他呼吁“更好的融资”以增强能力，支持快速反应并为救生工具的研发、制造和部署提供资金。他甚至补充说，世界需要“更好的系统”，这些“更好的系统”是在本地构建并以“坚不可摧的链条”在全球范围内链接起来。
 
-谭德赛（Tedros）在会议开幕时重点讨论了COVID-19的影响和疫苗推出的平等性。他指出，这种流行病是“我们为支持会员国朝着全民健康复盖迈进的努力中的重大挫折”。他还说：“近18个月来，全世界的医护人员都处于生死攸关的境地”。 世卫组织负责人说：“制造和购买大多数疫苗的一小部分国家控制着世界其他地区的命运。”
 
-他补充说：“因此，在我们进行恢复和重建时，我们必须做的不仅仅是阻止病毒，还应该做更多工作。我们必须解决使病毒爆发演变成为流行病，而使流行病发展成为大流行病的脆弱性”。
+> Liberals in Congress, the press & big tech accepted the Chinese Communist Party’s lies about COVID's origin & shamed dissenting views as racist. House Dems must join our efforts to investigate what happened in Wuhan, hold the CCP accountable & get Americans answers they deserve. [https://t.co/XRWWvshtSi](https://t.co/XRWWvshtSi)
+> — Lee Zeldin (@RepLeeZeldin) [May 28, 2021](https://twitter.com/RepLeeZeldin/status/1398300812686790658?ref_src=twsrc%5Etfw)
 
-原文链接：[https://www.republicworld.com/world-news/rest-of-the-world-news/who-warns-of-another-virus-deadlier-than-covid-19-calls-for-better-governance-and-financing.html](https://www.republicworld.com/world-news/rest-of-the-world-news/who-warns-of-another-virus-deadlier-than-covid-19-calls-for-better-governance-and-financing.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+参议员玛莎·布莱克本： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 隐瞒了有关 COVID-19 的信息长达 51 天。这是不可接受的，这是错误的，至关重要的是他们要面临后果。受到影响的美国人应该完全有权起诉中共国。
+
+
+
+> For 51 days the Chinese Communist Party hid information about COVID-19. It’s unacceptable, it’s wrong, and it’s critical they face consequences. Americans impacted should have every right to sue China.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 28, 2021](https://twitter.com/MarshaBlackburn/status/1398375584045150220?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 福奇(Fauci)有很多问题需要回答。 他需要停止玩文字游戏。 【转[http://theAustralia.com.au](https://t.co/SoCmGSvZG3?amp=1) 文章：尽管有(病毒)大流行的风险，福奇还是支持了病毒试验】
+
+
+
+> Fauci has a lot of questions to answer. And he needs to stop playing word games. [https://t.co/snFXlcpjKP](https://t.co/snFXlcpjKP)
+> — Tom Cotton (@SenTomCotton) [May 28, 2021](https://twitter.com/SenTomCotton/status/1398341762930860032?ref_src=twsrc%5Etfw)
+
+
 
 0

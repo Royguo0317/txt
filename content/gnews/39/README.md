@@ -1,36 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/28-001 文贵先生盖特精华
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1279236/)
+## 【鹰眼墙国】脱离实际的“足球梦”只能沦为泡影
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1279304/)
 
-听写： 万物归一 | 校对：樂禧禧 | Page：我是球大哥
-
-[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/c8bc3a05-6686-49f9-aafc-60cb411b37f6.png?asset_id=11968ae3-9b23-466c-a922-2c0c9eaa2e63&amp;img_etag=%229139a6c7cfbf1d0b8cbc060e07b6f01a%22&amp;size=1024)](https://spark.adobe.com/page/k65OINDODog01/images/c8bc3a05-6686-49f9-aafc-60cb411b37f6.png?asset_id=11968ae3-9b23-466c-a922-2c0c9eaa2e63&amp;img_etag=%229139a6c7cfbf1d0b8cbc060e07b6f01a%22&amp;size=1024)
-
-**5月28号：尊敬的战友们好！为什么躺平币．在国内造成这么大的影响？在这里公开回复很多战友．要求加入关于．G系列的将获得新GTV股票奖励的一些细节！**
-
-[G-TV链接](https://gtv.org/getter/60b11307ba7ef9088d026d4a)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/6d01426a-03f0-408d-97f2-59df7776210e.png?asset_id=4b96266c-a05a-4d21-af6e-a29509369215&amp;img_etag=%228cb419737d0ecdec388768bff73cafd4%22&amp;size=2560)](https://spark.adobe.com/page/k65OINDODog01/images/6d01426a-03f0-408d-97f2-59df7776210e.png?asset_id=4b96266c-a05a-4d21-af6e-a29509369215&amp;img_etag=%228cb419737d0ecdec388768bff73cafd4%22&amp;size=1024)
-
-• 以毒灭共进入了全球共同全面认知的状态，能不打疫苗就坚决不打，很多国家政府很快会宣布不打疫苗或不强迫打疫苗。
-
-• 躺平币的概念来源于打土豪分田地造成的后果。国人开始思考生活如何过上体面的生活，如何拥有自己的土地、房产、车辆，如何选择自己的政府，如何信仰自由。
-
-• 躺平币，不仅未来要给躺平的人币，还要给中国很多阶层的人币，把更多的阶层、领域唤醒，希望未来把躺平币发展成向共产党讨债的工具，中共必须把这些年欺骗老百姓的钱还给中国人民，包括杀地主抢走的土地，这影响巨大，需要建立团队和大量的前期投资，绝对要最高端的人员，包括政治、经济、金融系统的。
-
-• 喜币、喜Dollar的发展超出任何人的想象，市场开始交易的时候大家就明白了，要学会合法的使用自己的喜美元账号。
-
-• 在GTV，GNews，GFashion，GClub，盖特等G系列所有工作过，够一定时间的，还有现在工作的战友，新GTV募股600亿，将给10亿GTV股的鼓励，以6月底之前工作的时间，不同的阶层，做出的业绩来评估。其中3到4亿股发给以前的工程师，剩下的发给未来3年到5年参与的工程师。有意向的请和熟悉的工程师和各农场联系。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+香草山写作组 鹰(文言)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/k65OINDODog01/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
 
-+1
+
+
+澎湃网5月28日报道，中共体育总局发布《开展全国足球发展重点城市建设工作的指导意见》，将在全国范围内建成16-18个足球重点城市，到2025年，足球发展重点城市的青少年足球人口将达到在校学生人口的50%。
+
+根据2019年全国体育场地的统计调查数据，截至2019年底全国足球场地10.53万个；2016-2020年新增足球场地26957块，占全国足球场总数的1/4，其中约28%的新建场地为民营球场。根据2020年教育事业统计数据，义务教育在校生1.56亿人，高中在校生人数4127.80万。以10.53万球场作为公共球场、高中在校生人数4127.80万做粗算，平均1873人一个球场。现存的球场数量和规模，远远难以达到中共宣称的50%培养目标。更何况10.53万个足球场中，42.16%为较小的五人制足球场地。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28184937/Screen-Shot-2021-05-28-at-6.49.02-PM.png)
+贵州省都匀市足球场地被用作赶集。足球场地设施老旧、维护难、闲置问题多发，也能侧面反映出中共推动的足球场地建设规划，只是表面增加数量，并不涉及场地建成后的开放群体和维护保养。“闲置”足球场建造的再多，也难提高“全民踢球”的积极性，更何谈足球体系建设了。
+
+近年来随着中共对教育领域的思想管控和行政干预力度加大，学校课程材料增多，学生作业负担严重。“课上保留”现象催生的课外辅导、兴趣班更加普及，青少年的学习时间严重挤占了活动和休息时间。根据中共卫健委数据，国内73%的中小学生每天睡眠不达标。参考华东师范大学调查问卷结果，小学、初中、高中学生睡眠达标的比例为59.9%、19.6%、2.3%。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28185001/Screen-Shot-2021-05-28-at-6.48.56-PM.png)
+虽然中共教育部发布《综合防控儿童青少年近视实施方案》、《关于进一步加强中小学生睡眠管理工作的通知》等政策，通过设定作业时长标准以求“作业不出校”，但小学生、初中生作业时间超标的比例分别为82.7%、93.3%，44.0%的高中生作业时长大于3个小时/天。青少年连基本的健康睡眠都得不到保证，又哪有额外的精力去踢球了。
+
+球场稀缺、青少年睡眠严重不足，再加上学校“形式”减负现象严重（如体育、艺术类课程被抢占），只靠增加足球场地数量来实现“足球振兴”，无异于痴人说梦。
+
+新闻来源：
+
+“十四五”建成16-18个足球重点城市，鼓励国资民资进入https://www.thepaper.cn/newsDetail\_forward\_12891529
+
+足球场变赶集场，“物尽其用”用错了方向http://www.xinhuanet.com/comments/2021-02/22/c\_1127122818.htm
+
+教育部发布通知，中小学生迎来“坏消息”，家长：难以接受！https://baijiahao.baidu.com/s?id=1697031117087265335&wfr=spider&for=pc
+
+超四成中小学生家长表示，孩子每天睡眠不足八小时——如何“拯救”孩子的睡眠http://education.news.cn/2021-04/24/c\_1211125696.htm
+
+我国中小学生睡眠时间严重不达标https://www.163.com/edu/article/G22CB0AK00297VGM.html
+
+2019年全国体育场地统计调查数据公布：我国第一次人均体育场地面积突破2平方https://sichuan.scol.com.cn/ggxw/202011/57944107.html
+
+“十三五”时期全国社会足球场地数量增长4倍https://www.ndrc.gov.cn/fzggw/jgsj/shs/sjdt/202104/t20210419\_1276755.html
+![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+0
