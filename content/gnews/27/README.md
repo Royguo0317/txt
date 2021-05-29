@@ -1,122 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】诗二首
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1278682/)
+## 奥地利总统表示欧盟不应成为强国的殖民地
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1279033/)
 
-作者：纽约香草山健身部 澄道
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28163915/A-19.jpg)reuters.com
+05月27日，奥地利总统亚历山大·范·德·贝伦（Alexander Van der Bellen）在与爱沙尼亚总统卡尔斯·特拉德（Kersti Kaljulaid）会面时说，欧盟不应该成为俄罗斯、中共国或美国的“殖民地”。这次会议在欧盟委员会的油管（YouTube）频道上播出。
 
+“我们必须在会议上讨论关于欧洲未来的至少两个重要问题，我们如何达成一个共同的外交政策，因为我不希望欧盟成为美国、中共国、俄罗斯或其他任何人的殖民地–我们是欧洲人，我们为此感到自豪，没有任何额外的自负。“贝伦说。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+他指出，第二个重要问题是在国防政策领域更有效的协调。
 
+奥地利总统说：“世界上至少有四个重要角色，美国、中共国、俄罗斯和欧盟。”他认为，如果欧盟有一个更一致的外交政策，它可以发挥更重要的作用。
 
+去年欧盟未能就制裁白俄罗斯做出决定，因为它未能得到所有国家的支持。特别是，塞浦路斯反对，因为有争议的大陆架地区的石油生产形势，它要求作为交换加强对土耳其的压力。
 
-**政治化**
+此外，正如欧洲理事会主席查尔斯·米歇尔（Charles Michel）所言，围绕俄罗斯“人造卫星五型”中共病毒疫苗在欧盟的注册出现了争议。
 
--各行各业政治化-
--国内国外政治化-
+欧洲领导人对于从俄罗斯到德国的“北溪2号”天然气管道的建设也存在分歧。波兰反对，德国则表示，该项目对该国来说是必要的。
 
-听党话
-感党恩
-是娱乐文艺界的
-政治化
+参考链接：
 
-学党史
-做党人
-是舆论媒体界的
-政治化
-
-先
-规范国人出行的
-绿码（健康码）
-奴隶化就是政治化
-
-后
-强种天下规范世人自由
-疫苗联盟（疫苗护照）
-灭白化就是政治化
-
-穿你衣（八路装）
-唱你歌（党啊 母亲）
-是伪儒释道界的
-政治化
-
-辈亲
-娘亲不如党亲
-是伪科学 基督教 天主教界的
-政治化
-
-政治化就是
-手段假大空
-源头骗偷抢
-
-政治化就是
-使命断我脉
-目的灭我族
-
-有人有世有邪灵
-无业无界无政治
-
-* * *
-
-**最好开始**
-
--最坏的年代 最好的开始-
-
-五六七零年代
-文功
-民国精英
-武卫
-国人国粹
-何止是浩劫十载
-
-八九六四邪时
-绑架俄爹
-骗保老什
-屠城戮民
-泯灭人性
-岂止是断传截承
-
-天下苦秦久
-苍生痛“共”深
-
-一灯慧者除暗
-一智觉者灭愚
-
-生武投毒一
-爆料革命见
-最坏年代暗
-更好开始灯
-
-这是最坏的年代
-我们没有权利萎缩
-没有资格退让
-因为我们有幸值遇了
-最好的开始
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
+[https://www.rbc.ru/rbcfreenews/60afa7009a79475edfe2c01b](https://www.rbc.ru/rbcfreenews/60afa7009a79475edfe2c01b)
 
 0

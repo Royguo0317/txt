@@ -1,167 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议员迈克·加拉格尔（Mike Gallagher）我们必须对情报进行解密流行病毒起源
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1278495/)
+## 【圣城传声筒】党大于国，无法无天
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1278934/)
 
-**字幕内容：**
-Rep. Mike Gallagher
-众议员迈克·加拉格尔
+作者：香草山香港部写作组
 
-100%, we don’t have access to the lab records
-100%, 我们没有权限访问实验室记录
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
-The CCP prevaricates they lied
-中国共产党推诿，他们撒谎
 
-or trying to deflect blame
-或试图逃避责任
 
-They’ve not been a cooperative partner since the start of this
-自从大流行开始他们就不是合作伙伴
+支联会27日发新闻稿表示，收到政务司司长办公室回复，就 5 月 30 日游行及 6 月 4 日集会，“政府未能确立拟进行的游行及集会符合第 599G 章第 5 条的条件”。此外，支联会今午亦收到警方通知，根据《预防及控制疾病（禁止群组聚集）规例》（第 599G 章），反对 5 月 30 日“毋忘六四”大游行，及禁止 6 月 4 日“六四”维园烛光悼念集会。
 
-and the fact that they are trying to place blame on America
-而且事实上，他们试图将责任赖上美国
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28151952/1a5c7631bec50bb1.jpg)图片来源：德国之声
 
-just show you, shows you the depths of their depravity
-这就告诉你他们堕落的深度
+根据警方向支联会发出的“禁止公众集会及反对公眾游行通知书”，警方考虑到限聚令及本港疫情，应变级别仍为“紧急”的最高级别。警方指，公众集会及游行，属人多聚集的高危活动，警方有理由相信，举行有关活动，会增加活动参与者及其他市民感染病毒的风险。
 
-so we have to declassify the intel
-所以我们必须解密情报
+支联会表示，将根据《公安条例》第 16 条，向公眾集会及游行上诉委员会提出上诉，期望委员会尽快安排上诉聆讯，让市民可以在合法及安全的情况下悼念 “六四”。支联会重申，悼念“六四”是香港人过去 31 年的集体回忆，支联会将继续争取市民合法悼念“六四”的权利。
 
-we have in order to get to the bottom of this
-我们必须要深挖到底
+保安局局长李家超出席立法会会议后回应指，现时两个活动是未经批准集结，任何人都不应该参加、宣传、公告，否则是违法，最高可判监五年。他称，“任何人尝试挑战法律，包括限聚令、公安条例、香港国安法等，警方都会严肃处理”。
 
-we know we’re not going to get the cooperation
-我们知道我们不会得到合作
+李家超指，警务处处长是按照《公安条例》赋予的权力，在考虑所有限聚令、公共秩序等因素后，决定是否反对一公眾活动。如警务处处长反对活动后，该活动就是未经批准集结。
 
-from an increasingly hostile competitor
-来自日益敌对的竞争对手
+再有在场记者问及叫喊“结束一党专政”是否违反香港国安法。李家超初时仅重复指，任何人尝试挑战法律，他们都会严肃处理。直到再被追问时，他回应：“我不在这里讨论某些行为，会否违反某一法律，但根据国安法清晰列明，任何人如组织、策划、实施，用非法手段破坏、推翻中国宪法下所确立的根本制度，是属于颠覆国家政权罪。每个人都要为自己行为负责，如涉及违法行为，尤其是涉及国安法，我们会严肃按法律处理。”
 
-in the form of the Chinese Communist party
-以中国共产党的形式
+同样，在澳门已经持续了30年的“六四”悼念活动从2020年开始也被当地政府以防疫为藉口禁止再举办。而讽刺的是，香港卫生署27日公布，香港当日没有录得任何输入个案或本地个案，及少于 5 宗初步确诊，至今累计确诊个案共 11837 宗。根据署方资料，继上一次本地及输入个案都“零确诊”，是去年 10 月 14 日，相隔 226 日，香港再次无任何确诊个案。而在本月6～11日某表演团体在香港的演唱会，更因为政府同意放宽防疫措施，表演场地入场人数上限由50%增至75%。
 
-it is incumbent upon us to get the information out there
-我们有责任从那里获取信息
+再对应近期港共政府对民主派人士做出的一系列政治审判，我们有足够的理由相信，中共对民间发出“结束一党专政”的口号已经是心惊胆战，不能承受。而这一口号在“六四”悼念活动中是重要诉求之一。法律是侍奉人民，而非人民臣服法律。而中共之所以要在香港强推所谓《国安法》，实际就是彻头彻尾的《党安法》，只是用国家安全来掩饰政党安全而已。只要伤害某个政党的利益就等同於颠覆国家，这是任何一个真正有民主、法治独立的国家都会觉得是不可思议的事情，这才是真正的无法无天。
 
-America deserves an answer,
-美国应该得到一个答案
+而新中国联邦一直强调的是中国共产党不能代表中国，不能代表十多亿中国人。而推翻中共的统治不能和种族歧视混为一谈。相反，推翻只代表少数当权者利益的中国共产党，才是对中华民族甚至是亚裔的最大尊重和人权保障。
 
-the world deserves an answer
-世界应该得到一个答案
+参考阅读：
 
-we have to get to the bottom of this pandemic
-我们必须深入了解这场大流行
+https://beta.thestandnews.com/politics/%E8%AD%A6%E6%96%B9%E9%80%A3%E7%BA%8C%E7%AC%AC%E4%BA%8C%E5%B9%B4%E7%A6%81%E6%94%AF%E8%81%AF%E6%9C%83%E8%88%89%E8%BE%A6-%E6%AF%8B%E5%BF%98%E5%85%AD%E5%9B%9B-%E9%81%8A%E8%A1%8C%E5%8F%8A%E5%85%AD%E5%9B%9B%E7%87%AD%E5%85%89%E9%9B%86%E6%9C%83
 
-and there is a very complicated and troubling story
-而且有一个非常复杂和令人不安的故事
+校对/发稿：飞虹
 
-as I mentioned at the start of this
-如我在开始的时候提到的
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205738/M5-1.jpg)
 
-about how your taxpayer dollars went to fund this research
-关于美国纳税人资金如何为这项研究提供资金
 
-that could have been the reason this whole thing started in first place
-这可能是整个事情开始出现的原因
 
-Jon Scott (Fox News host)
-乔恩·斯科特（福克斯新闻主持人）
+**更多资讯，更多关注**
 
-So listen to Jen Psaki the White House spokeswoman
-因此，请听白宫发言人詹·普萨基（Jen Psaki）
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-talking about what they see as what needs to happen here listen
-谈论他们认为这里需要发生的事情。 听
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-Jen Psaki (White House spokeswoman)
-詹·普萨基 (白宫发言人)
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-I will say that our view continues to be
-我要说，我们的观点仍然是
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-that there needs to be an independent, transparent investigation
-需要进行一个独立，透明的调查
-
-and that needs to happen with the cooperation
-这需要通过合作来实现
-
-and data provided from the Chinese government
-和从中共国政府提供的数据
-
-Jon Scott
-乔恩·斯科特
-
-but cooperation and data is not forthcoming
-但是合作和数据并不会出现
-
-as you have said
-就如你所说的
-
-Rep. Mike Gallagher
-众议员迈克·加拉格尔
-
-yeah I don’t think we should make
-是呀，我不认为我们应该使我们
-
-how we proceed contingent
-如何进行视情况而定
-
-upon the largesse of the Chinese Communist party
-依赖在中国共产党的慷慨上
-
-Because we’ll be waiting a heck of a long time for that to happen
-因为我们为了做到这一点要等很长时间
-
-so we need to take bolder steps to investigate this
-所以我们需要采取更大胆的步骤来对此进行调查
-
-nor can we rely upon the Integrity of the W.H.O.
-我们也不能依靠世卫组织的廉正
-
-I hate to say it
-我讨厌这么说
-
-but the W.H.O. has been compromised by the Chinese Communist party
-但是世卫组织已被中国共产党渗透控制了
-
-so we need our national security officials
-所以我们需要我们的国家安全官员们
-
-to be more forthcoming with us
-更多地与我们保持联系
-
-we need executive branch to declassify all the information they have
-我们需要执行部门对他们拥有的所有信息进行解密
-
-and we need to work in concert with our trusted partners to have such an investigation
-我们需要与我们值得信赖的合作伙伴一起进行调查
-
-in particular Partners like Australia
-特别是像澳大利亚这样的合作伙伴
-
-who you remember call Independent investigation
-你还记得他们提出要进行独立调查
-
-and then got a wave of economic sanctions placed on them by the Chinese Communist Par-ty
-然后中国共产党对其施加了一系列的经济制裁
-
-clearly the CCP is trying to hide something
-显然中共正试图隐藏一些东西
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 : [https://twitter.com/repgallagher/status/1396831226200199172?s=24](https://twitter.com/repgallagher/status/1396831226200199172?s=24)
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

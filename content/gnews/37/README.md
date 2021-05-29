@@ -1,40 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报—军事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1278532/)
+## 【中共国的蜂蜜陷阱】将欧洲与美国“分开”
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1278848/)
 
-- 作者：此生灭共
+```
+新闻来源：意大利晚邮报（Corriere Della Sera）
+发布时间： 2021年5月27日
+翻译整理/简评： 斩草要除根
+```
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28143017/%E6%95%B0%E5%AD%97%E4%B8%BB%E6%9D%83%EF%BC%9A%E6%AC%A7%E6%B4%B2%E5%8F%82%E4%B8%8E%E6%8A%80%E6%9C%AF%E6%88%98%E4%BA%89%E7%9A%84%E8%AE%A1%E5%88%92.jpg)图片来源：盖帝图像
+习近平坚称中欧关系潜力巨大，在一篇讲述新丝绸之路：关于在两大洲之间刚开通的一列货运列车的文章中，一家名为*“Quotidiano del Popolo”*的媒体披露了习近平与两位欧洲领导人之间的通话内容（西班牙的佩德罗 .桑切斯和黑山共和国的米罗.久卡诺维奇）：中欧关系的未来发展以及对特定项目的投资。
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+但是如果我们考虑欧亚大陆之间目前外交的真实状况，习近平所说的至少是令人感到奇怪的，因为于去年11月签署的《全面投资协议》现在被暂停了，同样中欧互惠制裁也暗示了一种不太适合贸易关系“加深”的氛围。
 
-**西班牙2021年5月28日电/西喜社——**
+事实是，中共国越来越被西方包围，中共病毒大流行和对武汉实验室“意外泄露”的反复指责使习近平的领导层相信历史的钟摆已经回归，标志着对抗冲突随时会发生。而北京现在的外交政策是试图缩小与欧洲之间的差距从而削弱美国。
 
-您若想了解全文报导内容，请点击标题链接
+如果这些尝试未能在整个欧盟范围内取得成功，那么就对个别国家进行出击，因此这似乎更容易触发“蜂蜜陷阱”。习近平知道，将欧洲与敌对国美国分开是不容易的。尽管如此，他试图抓住每一次机会，在中共国看来，欧洲是一个混乱的国家集合体，它们更可能相互争吵而不是合作。与此同时，我们也正在为最坏的情况做准备，那就是中共国与美国的武装对抗。
 
-**1.[美国海军对高超音速导弹发动机进行首次实弹测试](https://www.defensenews.com/training-sim/2021/05/27/us-navy-conducts-first-live-fire-test-of-hypersonic-missile-motor/)**
+#### **简评：**
 
-美国国防新闻5月27日电，美国海军及其工业团队星期四对超音速火箭发动机进行了首次实弹试验，这将推动美国海军的常规突击[进攻型高超音速导弹](https://www.defensenews.com/naval/2020/10/21/all-us-navy-destroyers-will-get-hypersonic-missiles-trumps-national-security-advisor-says/)和陆军的远程高超音速武器。海军已经将高超音速武器列为重中之重，因为该部门将其舰队现代化，以应对像中国这样的高端威胁。
+**通过挑拨离间而引发双方不和再到争斗，这是中共国屡试不爽、屡战屡胜的伎俩，在中共国内中国人民被这个恶党操控和玩弄，整个社会充斥的都是仇恨，已无丝毫祥和氛围可言。现在这个共产毒瘤已经侵害到了西方，有的国家被其所害还浑然不知，也有一些国家即使后悔莫及却也为时已晚。**
+（本文只代表译者观点，与Gnews平台无关。）
 
-**2. [美国告诉俄罗斯它不会重新加入“开放天空”军备控制协议](https://www.militarytimes.com/news/pentagon-congress/2021/05/27/us-tells-russia-it-wont-rejoin-open-skies-arms-control-pact/)**
+**新闻原文链接：**
+🔗[La trappola del miele cinese per «separare» l’Europa dagli Stati Uniti](https://www.corriere.it/NewsletterCorriere/america-cina/5f912ab0-bebf-11eb-ba33-0cbbda981d05_nl_AmericaCina.html)
 
-美国军事时报5月27日电，周四，拜登政府通知俄罗斯，它不会重新加入一项重要的军备控制协议，即使双方将在下个月举行领导人峰会。美国官员说，副国务卿温迪·谢尔曼告诉俄罗斯人，政府决定不重新加入“开放天空”条约，该条约允许对两国军事设施进行监视飞行，但前总统唐纳德特朗普已退出。
+* * *
 
-**3.[战舰外交，英国的新型航母加入北约，“舰”指中共](https://www.reuters.com/business/aerospace-defense/battleship-diplomacy-britains-new-aircraft-carrier-joins-nato-has-message-china-2021-05-28/)**
+***编辑整理/校对: **Ting Guo*
 
-路透社5月28日电，英国伊丽莎白女王号航母于本周参加了地中海北约演习，在为期8个月的航行将穿越南中国海，这是向北京发出信号，要求海上航道必须保持畅通。摩尔豪斯周四表示，伊丽莎白女王号将沿着这条路线与来自美国、新加坡、日本和韩国的海军舰艇一起演习。
-
-**4.[阿联酋，美国公司合作在海湾地区提供网络范围](https://www.c4isrnet.com/industry/2021/05/28/uae-us-companies-partner-to-provide-cyber-ranges-in-gulf/)**
-
-网络战争杂志(C4ISRNET) 5月28日电，阿联酋Beacon Red公司和美国公司Quali宣布达成一项协议，共同合作为海湾国家提供网络培训和测试环境。De Almeida说，基于最近的供应链和工业控制系统攻击，该解决方案可以极大地帮助克服实际威胁。
-
-**5. [“里根号”航母离开亚洲，协助、经行阿富汗撤军](https://www.foxnews.com/world/uss-ronald-reagan-leaving-asia-afghanistan-troop-withdrawal)**
-
-福克斯5月27日电，国防官员说，[五角大楼](https://www.foxnews.com/category/politics/defense/pentagon)有望将目前亚太地区唯一的航空母舰移向中东，以支持美军从[阿富汗](https://www.foxnews.com/category/world/conflicts/afghanistan)撤军。官员们说，“里根号”航母将从今年夏天开始前往阿富汗，并在进行长达四个月的行动。拜登上个月公布了计划，到9月11日将所有美军和联军撤出阿富汗。美国官员随后表示，他们将在该地区保留一艘航母及其随行船只，以提供安全保障，同时部队正在从阿富汗撤离。
-
-审核：Aries的星 ；校对：阿伯塔； 发稿：信心的选择
-
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
-
-+2
+0

@@ -1,103 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登政府追究中共释放COVID-19病毒责任，要求对来源作出答复
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1278684/)
+## 加拿大人压倒性地支持延长关闭美加边境
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1278972/)
 
-**字幕内容：**
+Zero Hedge作者Tyler Durden发布于2021 年 5 月 26 日
 
-**Maria**：
+翻译报道：温哥华圆成农场 木千
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28162314/Board-May-28-e1622233583859.jpg)
+尽管加拿大总理特鲁多已取消部分防疫限制，让加拿大人享受他们短暂从简的夏天，最新报告却仍然显示，美加边境——世界上最长的无防御边境——将至少关闭到9月。即使重新开放，似乎大多数加拿大人支持将疫苗证明作为那些未接种疫苗的美国“化外之民”的入境要求。
 
-Right now is the first lawmaker to go on the record right here
-现在请第一位在2020年2月就在本节目中
+据彭博社（Bloomberg）报道，在安格斯里德研究所（Angus Reid Institute）最近的一项民意调查中，大约一半的受访者认同边境应该一直关闭到9月，超过四分之三的受访者表示，他们将支持疫苗护照[1]。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28162820/Survey.jpg)
+安格斯里德研究所民调结果
 
-on this program back in February of 2020
-公开发表意见的议员
+图片来源：彭博社
 
-and suggest that COVID-19 could have leaked from that Wuhan Lab of Virolo-gy
-他表示COVID-19可能是从武汉病毒学研究所泄露的
+美加边界已关闭一年有余，但现在加拿大正在加快疫苗接种计划，特鲁多正面临来自商业团体（更不用说保守党反对派）越来越大的压力，要求他提出具体的重新开放计划。当特鲁多考虑是否提前举行选举以试图夺回议会多数席位时，边境开放上的政治决定瞬间变得至关重要。
 
-Senator Tom Cotton, you’re done great value for our viewers by your honesty
-汤姆·科顿参议员，你的坦诚为我们的观众带来了巨大的价值
+已有过半的加拿大成年人至少接种了一剂疫苗，该国最大的三个省份——安大略省（ON）、魁北克省（QC）和不列颠哥伦比亚省（BC）——已宣布分阶段重新开放计划。
 
-and telling it like it is, and thank you for that
-并告诉他们事实的真相，为此感谢你
+在最近的新闻发布会上，特鲁多强调，加拿大在重新开放方面还有很长的路要走。
 
-Do you still stand by what you said
-你现在是否仍然坚持你去年所说的观点？
+特鲁多在渥太华告诉记者，尽管很现象令人充满希望，但这并不意味着我们还可以放松警惕。
 
-and what have your learned in the last year about this situation?
-以及过去一年你对这一情况有什么新的认识？
+安格斯里德研究所的首席库尔说，归根结底，对于一个抗疫疲惫的国家来说，“一剂夏日”的自由可能不足以实现，这也很可能延长边境重开的长期计划。下个月的情况将说明这些问题。
 
-Tom Cotton:
+上周，特鲁多政府宣布将边境限制再延长一个月至6月21日。根据民意调查，就在上个月病例爆发后，没有太多人支持立即重开边境。但随着病例增长持续放缓，疫苗接种人数上升，公众舆论的转变可能会比总理预期的更快——特别是当美国友人们正在50个州内全面恢复正常生活，而加拿大人只能望尘莫及之时。
 
-Yeah, Maria
-是的，玛丽亚
+**评：**
 
-it’s hard to believe it’s been 15 months
-很难相信自从你和我第一次讨论这个问题以来
-since you and I first discussed
-已经过去了15个月
+文贵先生于5月27日的直播中强调，若加拿大不与中共妥协，则疫情将会如印度般在其境内大规模爆发[2]。如今的加拿大刚刚勉强度过了第三波确诊高峰，第四波疫情便已成暗流涌动之势。与此同时，特鲁多政府仍在限制病毒真相和反对疫苗的信息，自相矛盾的防疫政策更是层出不穷。近日，媒体上甚至还传出了部分地区对公民，尤其是孩子威逼利诱打疫苗的风声。本以为加拿大目前的疫情惨状和这底线尽失的政治环境已经是政府与共为奸的标志了，然而却不曾想中共所谓的超限战和生物战竟然还远没有开始！文贵先生此次直播敲响的警钟是否会成为丧钟更未可知。
 
-where I think most our Kansas think is a very common sense proposition.
-我们大多数堪萨斯人认为是一个常识性命题
+这篇报道中的民调显示绝大多数加拿大人支持继续关闭美加边境，但同时也有不少民众开始质疑这份民调的真实性，更何况美国当前胜于加拿大的疫情防控。尽管已有过半的加拿大人注射了中共疫苗，尽管大多数的加拿大人还对病毒真相一无所知，可以确定的是，经中共疫情本身所带来的现象级社会重创就足以促发民怨，甚至可以从而推动对病毒来源的探讨。在全人类皆性命攸关之时，以毒灭共已是必然结果。
 
-But it surely is a big coincidence
-但这肯定是一个很大的巧合
+原文链接：[https://www.zerohedge.com/covid-19/canadians-overwhelmingly-support-leaving-us-border-closed-until-september](https://www.zerohedge.com/covid-19/canadians-overwhelmingly-support-leaving-us-border-closed-until-september)
 
-that this virus started not up at some remote mountain village
-这种病毒起并不是爆发于某个偏远山村
+相关链接：
 
-with caves, full of bats
-那里有满是蝙蝠的洞穴
+[1] 安格斯里德研究所民调：[https://www.bloomberg.com/news/articles/2021-05-26/trudeau-gets-leeway-from-voters-on-slower-u-s-border-reopening?sref=i4qXzk6d](https://www.bloomberg.com/news/articles/2021-05-26/trudeau-gets-leeway-from-voters-on-slower-u-s-border-reopening?sref=i4qXzk6d)
 
-but rather in downtown Wuhan, a city larger than New York,
-而是在武汉市中心，一个比纽约还大的城市
+[2] 郭先生直播纪要：[https://gnews.org/zh-hans/1277312/](https://gnews.org/zh-hans/1277312/)
 
-just a few blocks up the road from labs that was researching bat base corona vi-ruses.
-爆发地点离研究蝙蝠冠状病毒的实验室只有几个街区
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-And since then, every bit of circumstantial evidence to
-从那时起，有大量的间接证据
-
-include evidence that came out in the final days of the Trump Administration
-包括川普政府在最后几天提供的证据显示
-
-that some employees and staff at this lab
-武毒所的一些员工和工作人员
-
-may have had corona virus like symptoms as early as October, September, 2019,
-可能早在2019年的10月、9月就出现了类似冠状病毒的症状
-
-Continues to point to
-这些证据都指出
-these labs as the origin of this virus,
-这些实验室才是这种病毒的来源
-
-not that food market that the Chinese Communist Party used as cover story from the very beginning.
-而不是中共从一开始就用来掩盖事实真相的农贸海鲜市场
-
-That’s why it’s so imperative that the Biden administration hold the Chinese Communist Party accountable
-这就是为什么拜登政府必须追究中共的责任
-
-and demand answers for all of these questions.
-并要求其回答所有这些关于病毒起源的问题
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接:
-
-[https://twitter.com/sentomcotton/status/1396490390212067329?s=24](https://twitter.com/sentomcotton/status/1396490390212067329?s=24)
-
-英听校： 康州盘古农场 – Mike Li
-翻译：康州盘古农场 – Mike Li
-翻译终校：康州盘古农场 – 柯镇恶
-字幕+视频制作：康州盘古农场- 天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑/发布：涅
 
 0

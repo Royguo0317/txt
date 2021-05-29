@@ -1,37 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国和英国寻求世卫组织对中共病毒的来源进行新的调查
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1279117/)
+## 【有声读物】卡希尔博士呼吁停止疫苗接种，称mRNA疫苗危害超过病毒本身
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1279394/)
 
-#### 翻译：龟仙人
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28174859/IMG_20210528_144838_693.jpg)图片源自BBC
-今天，日内瓦（美联社）–美国和英国正在加紧呼吁世界卫生组织对中共病毒的来源进行更深入的研究，包括对发现首批人类感染的中国进行新的访问。
+配音：香草山录音组 蒙古鸿雁
 
-世卫组织和中共专家在3月份发布了第一份报告，提出了关于该大流行病如何出现的四个假设。该联合小组说，最可能的情况是冠状病毒通过中介动物从蝙蝠跳入人体内，而从实验室爆发的前景被认为是 “极其不可能的”。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-周四晚些时候，美国驻日内瓦外交使团发表声明说，第一阶段的研究是 “不充分和不确定的”，并呼吁进行 “及时、透明、基于证据和专家领导的第二阶段的研究，包括在中共进行的研究。”
 
-该声明–在日内瓦举行的世卫组织年度大会期间发表–要求独立专家获得与病毒来源和疫情早期阶段有关的 “完整的原始数据和样本”。
 
-同样在星期四，英国驻日内瓦大使西蒙-曼利说，第一阶段的研究 “始终意味着是进程的开始，而不是结束”。
 
-“他说：”我们呼吁按照专家报告的建议，进行及时、透明、以证据为基础、由专家主导的第二阶段研究，包括在中华人民共和国进行。
 
-在周五的一次新闻发布会上，世卫组织紧急情况负责人迈克尔-瑞安博士说，寻找冠状病毒的起源 “已被政治所毒害”。
 
-“瑞安说：”在过去的几天里，我们看到媒体上的讨论越来越多，而实际的新闻或证据或新材料少得可怜。”而这是相当令人不安的。
 
-他说，世卫组织首席执行官特德罗斯已经明确表示，”关于病毒起源的所有假设都已摆在桌面上”，并恳请提供空间，以便科学家能够开展工作。
+2021年5月21日，《今日亚太》（Asia Pacific Today）采访了都柏林大学医学院分子遗传学教授、爱尔兰自由党主席——多洛雷斯-卡希尔（Dolores Cahill）博士。采访中卡希尔博士指出，mRNA疫苗对人类的危害极大且毫无用处，并强烈呼吁政府停止让民众接种疫苗。
 
-“瑞安说：”如果你期望科学家进行合作，并真正得到你想要的答案……我们会要求所有这些都在一个非政治化的环境中进行，科学和健康是目标，而不是指责和政治。
 
-**评论：**
 
-美国政府现在已经开始要求90天出具病毒起源调查报告，现在在WHO美国和英国已经公开要求重新调查，拜登总统已经执政4个多月了，分析他的执政风格，就是广拉盟友，所以现在在WHO发出声音，就是在告诉所有国家，要么和我联合灭共，要么就是我们的敌人。
+**文字版原文：[【热点播报】卡希尔博士呼吁停止疫苗接种，称mRNA疫苗危害超过病毒本身](https://gnews.org/zh-hans/1276950/)**
 
-新闻来源： [美联社](https://apnews.com/article/united-nations-donald-trump-china-europe-coronavirus-pandemic-7551c671e9ce7405c4c7d116a905301e)
+作者：纽约香草山翻译部  文雅621
 
-校对发布：紫橄榄
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

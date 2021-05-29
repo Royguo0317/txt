@@ -1,27 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本政府为了奥运会的安全而延长紧急状态
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1279136/)
+## 【有声读物】中共忽悠升级，国内民众抢种毒疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1279419/)
 
-## 翻译：龟仙人
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28181548/IMG_20210528_151519_221.jpg)
-美联社5月28日报道：日本周五将东京和其他地区的中共病毒紧急状态延长了20天，在准备50多天后举办奥运会之际，感染情况仍未减缓。
+配音：香草山录音组 蒙古鸿雁
 
-日本首相菅义伟在宣布这一决定时说，病例仍然很高，日本西部重灾区大阪的医疗系统仍然不堪重负。我知道许多人对举办奥运会和残奥会表示担忧。我将着手准备一个安全和有保障的运动会。未来三周是 我们取得成果的极其重要的时刻。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-日本首都和其他八个都市地区目前的紧急状态原定于下周一结束，但一些地区的医院仍然充斥着中共病毒（COVID-19）患者，严重病例最近创下新高。延长的20天包括九个地区，从北部的北海道到南部的福冈。第10个地区，即南部的冲绳岛县，已经处于紧急状态至6月20日。
 
-专家们警告说，变异体正在感染更多的人，使他们身患重病，并在一些地区淹没了医院。尽管如此，菅义伟和他的政府仍决心举办奥运会。国际奥林匹克委员会也表示，即使主办城市东京处于紧急措施之下，奥运会也将继续进行。
 
-评论：
 
-现在日本已经倒向美国了，中共要抓紧一切机会要给日本一些颜色看看，现在日本的中共病毒感染率居高不下，日本首相这个时间继续宣布延长紧急状态是明智的做法。因为在紧急状态下，政府可以调动一切资源应付突发事件。以日本政府的情报能力不会不知道中共要干什么，其实最好的做法就是不举行奥运会，但是一切的经济损失谁来承担？
 
-昨天已经有日本媒体开始呼吁取消奥运会，是不是日本政府主导的舆论战？然后利用民意来取消奥运会？那么为了弥补巨大的经济损失，是不是要带领全体国民来灭共后获得赔偿呢？
 
-新闻与图片来源：[美联社](https://apnews.com/article/japan-olympic-games-coronavirus-pandemic-sports-business-5cb686532cd70444fcb733ecfc74effc)
 
-校对发布：紫橄榄
+近日，中共各大媒体都在鼓吹一个话题：多地卫健部门发布消息称，6月10日起，中共国暂停中共病毒疫苗第一针的接种，公众应尽量在6月9日前完成第一剂次疫苗接种。该消息广泛地出现在各大媒体、报刊及各个地方的微信官媒公众号，还有社区的通知中。
+
+
+
+**文字版原文：[【墙内热搜】中共忽悠升级，国内民众抢种毒疫苗](https://gnews.org/zh-hans/1274189/)**
+
+作者：纽约香草山佛教部 369文驹
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
