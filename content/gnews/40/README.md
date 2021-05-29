@@ -1,15 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月28日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1280286/)
+## 法官解除了对班农的诉讼
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1280253/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+#### 翻译：大种马 | 校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29070023/%E7%8F%AD%E5%86%9C.jpg)图片来源：彭博社
+据《华盛顿时报》报道，美国时间星期二，一起对史蒂夫班农的诉讼被撤销了，尽管检察官认为就算有着前总统特朗普的赦免令也不应该撤销。撤诉的命令是由地区法官安娜丽莎托雷斯(Analisa Torres)手写，她认为她这样做是“正当的举动”。
 
-5月28日：一切都已经开始！〖[https://www.dailymail.co.uk/news/article-9630049/More-200-House-Republicans-demand-Pelosi-FINALLY-investigate-Chinas-complicity-pandemic.html](https://www.dailymail.co.uk/news/article-9630049/More-200-House-Republicans-demand-Pelosi-FINALLY-investigate-Chinas-complicity-pandemic.html)】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29050517/296e25820768e5a726b0e3e9bce4614f.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29050504/7b44706af252eb04f217c466a6983c70.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29050440/2b864f820d3ea67134ca2e21faf6233f.jpg)
-[【2021年5月28日】文贵先生盖特原文](https://gtv.org/getter/60b16dafba7ef9088d0299bf)
+曼哈顿的法学家说，地方法院无权在不处理案件的情况下将被告从被控告的列表移除。她还补充道，赦免本身并不能证明被告无罪，也无法消除嫌疑。“恰恰相反，从建国之初开始，包括最高法院在内的法院承认了就算没有正式认罪，给予赦免可能表示‘承认非自愿犯罪”她写道，部分引用了一张1915年的法院裁决。
 
-**喜联盟Gnews编辑部**
+对于伙同其他三个人一起诈骗捐款人2500万美元修建南方边境墙捐款的指控，班农并没有认罪。七月，被控告的这四个人的律师打算申请今年下半年的审判日期。这些律师指出撤销这些诉讼“可能比赦免本身有更大的意义，这还可能会让班农避免一些案件宣判之外的一些麻烦。”
+
+评论员分析了头上顶着诉讼案子的坏处，无论有罪无罪政府会拒绝这类人申请商品经纪人，赦免并不会立即使政府改变谨慎的拒绝立场。检方在班农的律师提出撤销案件时给法官写了信。
+
+去年班农在康州岸边的一艘豪华游艇（即郭文贵先生的船）上被逮捕，当时他花了五百万保释。检方说他欺诈成千上万的投资者，让他们认为自己的钱花在了边境墙上，但却把钱挪用在了支付活动官员工资和私人开销上。
+
+一位检方发言人拒绝了华盛顿时报置评请求。班农的律师团队也没有马上回复华盛顿时报问的问题。
+
+评论：回想当时班农先生被逮捕，已经过去半年了。目前法院撤销案件对他非常有利，定罪本来就是不可能的，从华盛顿时报的分析可以看到被宣判无罪反而是不利的。但正如郭先生说过的，班农被捕意味着黑暗势力让班农无法参与特朗普总统的再次当选已经成功。从当时班农接受媒体采访时对这件事的愤慨，可以看到美国右派慢慢意识到美国司法系统已经被某些势力所玩弄。
+
+原文链接：[Judge dismisses indictment against ex-Trump adviser Steve Bannon](https://www.nationalreview.com/2021/05/hollywoods-values-prove-flexible-in-china/)
 
 0

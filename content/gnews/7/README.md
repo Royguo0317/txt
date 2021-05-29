@@ -1,22 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 癫狂：伊朗高官称哈马斯将接管以色列国土
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1280746/)
+## 【香草诗词汇】好好活到那一天
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1280825/)
 
-#### 撰稿：yyshere
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29093120/%E7%9F%A5%E4%B9%8E.jpg)图片来源：知乎
-伊朗革命卫队的圣城部队负责人伊斯梅尔·加尼将军当地时间5月29号表示，以色列人应该 “回到”以前在欧洲、美国和其他地方的家园。
+## *-人身的霞满绽放-*
 
-“伊朗革命卫队的精英圣城部队负责人伊斯梅尔·加尼说，”我们建议所有的犹太复国主义者：在你们在欧洲、美国和其他地方卖掉的房子变得更贵之前，回去重新购买并重建它们。”伊斯梅尔·加尼还宣称哈马斯将很快接管以色列的国土，”我们在巴勒斯坦的兄弟已经在计划（管理以色列的土地）并采取明智的行动，他们本可以打击许多（以色列）的基础设施，但他们没有这样做，因为用不了多久，他们自己就会使用上这些基础设施”。
+## *–灵魂的超脱重生-*
 
-伊朗是以色列的宿敌，也是包括哈马斯在内的巴勒斯坦激进组织的支持者。哈马斯曾公开赞扬伊朗的援助，据哈马斯的专家称，目前伊朗援助的形式主要是设计蓝图、工程知识、电机测试和其他技术项目。
+## 
 
-而根据美国国务院的报告，伊朗每年向巴勒斯坦武装提供1亿美元的资金支持。
+作者：纽约香草山健身部 澄道
 
-消息来源：  伊朗国家电视台
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg](https://lh5.googleusercontent.com/vLw6Y_b7B_ELY7tNgJ-ZeOlPtiZaj9LITymWl1OE5wOzdIkkX7DZBrFRJJhMt9xpPSvXBwsgxURfUXP8t3HmMF6_KbzyUQPdAO1r5czQIoPgP9oX5cyVQDtWPZyla7HiihEkkn5C)
 
-（本文系作者个人观点）
+
+
+孤独是
+孤独者的手撕名牌
+灭共是
+灭共者的石刻经文
+
+无意中偶遇战友
+我滴个娘哎
+什么感觉
+当被告知没打疫苗
+问故答曰：
+我要活到的那一天
+
+有意识避开家人及朋友
+明知道是在被戕害
+我滴个了去
+痛苦至极：
+我多希望和你们一起活到那一天
+
+我知道
+我势孤力单
+且还背锅家人的骂名
+诸如精神错乱啊什么的
+
+我深知
+我眼花手拙
+且被身边越来越多的被强种苗者围堵
+诸如妄想狂人啊此类的
+
+那又怎样
+因为有一个良知声音在心底不息
+你就是你家族可能留下唯一火种
+有火种在
+光明就在
+
+那又如何
+因为有一种人性使命感在抵命招呼
+亿万国人的希望你我责任重大
+有希望在
+信心就在
+
+霞满绽放
+就是要活到灭共的那一天
+超脱重生
+就是要和您一起活到新中国联邦的那一天
+
+@澄道来了
+@爱动爱议码05291
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 5_May-1-556x720-1.jpeg](https://lh3.googleusercontent.com/8fPG-b3k1OPDoyNGv4xUGowotNCaFBS_Zy6K0pET5dZlav_GDobq-Ggg7Ttc_cv1Jxic-MNIw5k-4AIUaFK4dcPj0Gi5wObqH5uhfy5PxMn9uHRth-SCaptbFEriybfU9tqIgPrD)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
