@@ -1,25 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 司法观察组织就Facebook监督委员会决定支持对前总统唐纳德·川普（Donald Trump）账号封杀的声明
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1280150/)
+## 【健身健心】核心肌群力量训练的重要性
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1280197/)
 
-【日本东京方舟农场】 翻译：Jay Cheung      校对：MIMI
+作者：香草山健身部 文真
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29035107/F78670FE-8B24-4FE7-AC94-89682EACCCAC.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
-司法观察（Judicial Watch）组织华盛顿特区报道——司法观察组织主席汤姆·菲顿（Tom Fitton）发表声明，回应facebook监督委员会作出的维持对川普总统facebook账号封杀的决定:
 
-今天facebook的监督委员会作出维持对川普总统账号封杀的决定，彻底破坏了言论自由和第一修正案。这种厚颜无耻的强迫川普总统远离社交平台的做法正在广泛伤害Facebook和其它网络使用者的言论自由，他们肯定担忧Facebook和大科技公司的审查制度并且迫使他们远离社交平台。
 
-值得注意的是Facebook拒绝透露他们指定的监督委员会禁止川普的账号的原因是否是由于川普的政治观点与政府其他官员或者政客相抵触。实际上，司法观察组织最近披露了加尼福尼亚州和爱荷华州的政府官员已经给Facebook,Youtube/Google和Twitter施压，成功让他们解禁司法观察组织和其他民众因为选举期间发布的帖文而遭禁用的账号（我的推特账号因为一个推文被锁四个月，而那条推文并没有违背任何推特规则。）
+核心肌群由躯干中段肌肉组成，围绕着脊柱和骨盆，包括腹部肌肉和腰部及两侧肌肉。核心肌群在稳定脊柱和盆骨方面发挥着作用。它们是保持良好姿态和防止内脏下垂的关键。强大的核心肌群确保我们在运动中灵活地移动四肢并保护背部免受伤害。
 
-司法观察组织认为Facebook的监督委员会应该撤销对川普总统账号的封杀，因为该封杀对受第一修正案保护的言论自由，和平集会和对政府诉求的权利是一种侮辱。没有确凿的证据表明川普总统在道德上和法律上有煽动暴力的行为。川普总统在遭受弹劾后被美利坚合众国参议院宣告无罪，而那些作涌者想以弹劾的方式来制造川普总统煽动暴力的确凿证据的行为以失败告终。Facebook和其监督委员会认为川普总统煽动暴力，抱怨选举管理机构可能涉及煽动暴力的决定是因为他们与川普总统的政治对手和左翼联合在一起，是一种政治站位。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29035703/%E5%9B%BE%E7%89%8764.png)
 
-评：译者认为该声明完全说出Facebook等社交媒体封杀川普总统的账号是因为政治站位，或者说是极力掩藏其不可告人的更深层次还没有被披露的丑闻。不管怎样，2020年美国大选是一种欺诈行为是不可否认的事实，事实真相会在将来的某个时间被完整披露出来。
+居家隔离和久坐工作没能使核心肌群得到充分运动，变得虚弱。当核心肌群力量减弱时，我们在做其他运动时得到的支持较少，会给身体的其它部分带来压力。当出现下背部疼痛和膝关节疼痛的时候，可能是核心肌群变弱的迹象。是时候加强核心肌群力量锻炼了。
 
-注：本文仅代表译者观点
+针对核心肌群的力量训练不需要很大面积和复杂健身设施，所以更适合居家健身。传统的仰卧起坐和卷腹主要锻炼躯干前部肌肉，即腹肌。标准的平板撑运动不但锻炼腹肌，更全面地锻炼躯干周围的其他肌肉。侧卧撑进一步锻炼躯干侧面的核心肌肉，即斜方肌。普拉提是一种针对核心肌群的全面运动。如果想要增强这些运动的效果，可以在瑜伽球或BOSU球（半球形状）上完成。因为在不稳定的表面上锻炼迫使核心肌群更努力地工作以保持平衡，这就增加了锻炼的强度。
 
-原文链接：[https://www.judicialwatch.org/press-releases/jw-statement-fb-oversight-board/?utm\_source=twitter&utm\_medium=social&utm\_campaign=press\_release](https://www.judicialwatch.org/press-releases/jw-statement-fb-oversight-board/?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=press_release)
+参考阅读：
 
-+1
+https://theconversation.com/core-strength-why-is-it-important-and-how-do-you-maintain-it-160358
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

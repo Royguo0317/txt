@@ -1,15 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月28日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1280299/)
+## 2021/05/26 班农采访(4)：中共胁迫拉美国家与台湾断交
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1280313/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+视频字幕：free20200604 | 听写/翻译：Clau | 校对：Roberts | 简评/文字整理/编辑：胖丁
 
-让⋅鲁比医生：数据证实mRNA疫苗会导致青少年高概率的轻度心肌炎，因此食品和药物管理局以及疾病预防控制中心为12至17岁青少年注射（中共病毒）疫苗的计划十分危险，应当被终止 Dr. Jean Ruby: Statistics proves mRNA vaccines cause a high rate of mild carditis especially to teens, thus FDA and CDC program to vaccinate children of 12 to 17 is very dangerous and should be terminated
+**简评：**
 
-[【2021年5月28日】文贵先生盖特原文](https://gtv.org/getter/60b1a4fcba7ef9088d02d694)
+中共用病毒疫苗胁迫拉丁美洲几个国家与台湾断交。中共需要拉美国家的生存空间和资源。台湾的芯片对中共至关重要，中共会不惜一切代价确保能够占领台湾。台湾将成为爆发点。
 
-**喜联盟Gnews编辑部**
+YouTube视频链接：
 
-0
+
+
+GTV视频链接：
+
+[https://gtv.org/video/id=60b09ba5744cbc431365421c](https://gtv.org/video/id=60b09ba5744cbc431365421c)
+
+**视频字幕：**
+
+**主持人：**谈到中国共产党试图在世界范围内散布广泛的影响力。拉丁美洲国家的几位官员最近声称，中共国已经在推动他们的国家与台湾断交，以换取中共病毒疫苗。这显然是一个典型的跨国黑手党国家运作的例子。对于中共这种公然的疫苗绑架企图，自由世界应该如何应对？
+
+**Bannon：**积极勇敢地应对。你说得很对。这是敲诈勒索，是他们创造了病毒并加剧了病毒的传播，这是无可辩驳的。然后他们进入拉美国家，想要那里的生存空间，尤其是巴西、阿根廷和拉丁美洲其他地方的资源，中共用疫苗制约他们。顺便说一句，我绝不会接种美国疫苗，更是死也不会接受中共国疫苗。
+
+你根本不知道里面有什么。然而中共用疫苗来制约他们，逼他们不承认台湾。这表明台湾对整个中共来说是多么的重要。中共需要那里的芯片。《地球上最危险的地方》这本书介绍了中共正在其他地方也这么做。他们拼命地、不顾一切地确保能够占领台湾。
+
+我认为，台湾将成为一个爆发点，比人们意识到的要快得多。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
++1
