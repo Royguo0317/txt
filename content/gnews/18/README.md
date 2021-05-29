@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】美国霍普金斯大学教授：忽视自然免疫是当前医学领导力的最大失败
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1279157/)
+## 【圣城传声筒】— 「昨日播的种，将来必定收成」
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1279252/)
 
-香草山写作组 四季
+香草山香港部 路灯
 
 
 
@@ -12,33 +12,17 @@
 
 
 
-INFOWARS网站5月26报道了约翰-霍普金斯大学教授马蒂-马卡里博士的观点。马卡里教授表示，人们普遍否定了一半以上的美国人已经对冠状病毒产生了自然免疫力这一事实，这构成了“我们目前医学领导力的最大失败之一”。
-
-当前，大量的媒体宣传自然免疫力是不够的，那些不选择接种疫苗的人应该受到社会的排斥。世界卫生组织甚至改变了“群体免疫”的定义，取消了COVID之前的科学共识，即通过允许病毒在人群中传播来实现群体免疫，并坚持认为群体免疫只能来自疫苗。
-
-面对这种情况，马卡里教授指出，一半的美国人已具有天然免疫力，“自然免疫是有效的”，诋毁那些不想接种疫苗的人是错误的，因为他们已经从病毒中恢复了。 他认为，“我们得开始尊重那些选择不接种疫苗的人，而不是把他们妖魔化”。
-
-马卡里教授对美国疾病控制和预防中心（CDC）提出批评，认为它是“美国历史上最迟钝、最保守、最政治化的”。因为与疫苗开发的免疫相比，CDC没有清楚地传达有关自然免疫的科学事实。他强调说：“关于自然免疫的数据比关于疫苗免疫的数据更多，因为自然免疫的历史更长”。
-
-同样，身为眼科医生的参议员兰德-保罗最近告诉WABC 770 AM电台，保罗表示他没有看到证据证明疫苗比在CCP（中共）病毒中幸存下来的人更有效，因而他不会接种COVID-19疫苗。保罗是第一个宣布他不会接种疫苗的参议员。
-
-他说，“在他们向我展示已经感染的人出现大量死亡，或被送进医院，或病得很重的证据之前，我只是做了我个人的决定，我不会接种疫苗，因为我已经得过这种病，我已经有自然免疫力”。他指出，“在自由的国家，人们应该尊重每个人，每个人都可以做出自己的决定。来自各种机构的施压，强制接种疫苗是对个人自由的蔑视。
-
-而美国疾病控制和预防中心（CDC）则建议已经得过病毒并康复的人接种疫苗，声称卫生官员不知道自然免疫力能持续多久。CDC在其网站上说：“即使你已经从COVID-19中恢复过来，你也有可能，尽管很罕见，再次感染引起COVID-19的病毒”。
-
-美国疫苗不良反应报告系统（VAERS）和欧盟药物警戒系統 (EudraVigilance) 都已经报告了成千上万的疫苗伤害和死亡病例。人们已熟知的科学和医学应得到尊重和遵循。
-
-原文链接：
-
-[https://www.infowars.com/posts/johns-hopkins-prof-half-of-americans-have-natural-immunity-dismissing-it-is-biggest-failure-of-medical-leadership/](https://www.infowars.com/posts/johns-hopkins-prof-half-of-americans-have-natural-immunity-dismissing-it-is-biggest-failure-of-medical-leadership/)
-
-[https://www.zerohedge.com/covid-19/rand-paul-first-senator-announce-he-wont-get-covid-19-vaccine](https://www.zerohedge.com/covid-19/rand-paul-first-senator-announce-he-wont-get-covid-19-vaccine)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+在前年10.1警方不批准民阵举行游行的情况下，民阵召集人陈皓桓坚持以个人名义发起游行，真正表现出「和平理性非暴力」的勇敢，是「真正的勇者」。陈皓桓早前承认「组织未经批准集结罪」和「煽动他人明知而参与未经批准集结罪」，今日因10.1游行案被重判18个月。陈在判刑前亲手写下「致香港人公开信」。他感谢港人全力以赴，争取民主、自由、人权及公义，勉励港人即使未来的路更崎岖难行，「但请大家不要忘记，昨日播的种，将来定必收成」。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28184357/WhatsApp-Image-2021-05-28-at-12.10.31-PM.jpeg)
+陈皓桓在写于上周六（22日）的信中，感谢港人让全世界看到港人努力，令港府撤回《逃犯条例》修订，直言「实在令我感到骄傲又感动」。虽然民主派及抗争者因《国歌法》、《国安法》等政治形势而相继入狱，但他勉励同路人要坚持信念，「昨日播的种，将来定必收成，争取民主亦不是一朝一夕。只要我们坚持信念，逆流而上，并肩同行，终有一天，我们必定能在煲底相见。」
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28184329/WhatsApp-Image-2021-05-28-at-12.10.31-PM-2.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28184341/WhatsApp-Image-2021-05-28-at-12.10.31-PM-1.jpeg)
+面对民阵或被政权取缔，陈皓桓指自己即使已身陷囹圄，「但我仍然坚持民阵不会解散，直到最后一刻。也请大家不要忘记六四、七一等日子，继续发声，为狱中的、为离港的、为自由的、为香港继续努力」。最后他写道：「石在火种在，人在希望在﹗五大诉求，缺一不可！愿荣光归香港」。即使港共对我们的政治再打压，对媒体报道的再封锁，也禁不了我们对民主自由义无反顾的意志。这就是狮子山下的香港精神。
+![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
 编辑/校对/发稿：正义的小新
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
@@ -48,6 +32,6 @@ INFOWARS网站5月26报道了约翰-霍普金斯大学教授马蒂-马卡里博�
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
-0
++1

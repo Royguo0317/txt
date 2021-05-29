@@ -1,36 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/28-001 文贵先生盖特精华
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1279236/)
+## 参议院通过霍利、布劳恩关于要求拜登政府解密武汉实验室情报的法案
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1279293/)
 
-听写： 万物归一 | 校对：樂禧禧 | Page：我是球大哥
+**报道: Janita Kan and Mimi Nguyen-Ly**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/c8bc3a05-6686-49f9-aafc-60cb411b37f6.png?asset_id=11968ae3-9b23-466c-a922-2c0c9eaa2e63&amp;img_etag=%229139a6c7cfbf1d0b8cbc060e07b6f01a%22&amp;size=1024)](https://spark.adobe.com/page/k65OINDODog01/images/c8bc3a05-6686-49f9-aafc-60cb411b37f6.png?asset_id=11968ae3-9b23-466c-a922-2c0c9eaa2e63&amp;img_etag=%229139a6c7cfbf1d0b8cbc060e07b6f01a%22&amp;size=1024)
+**撰稿: Epoch Newsroom**
 
-**5月28号：尊敬的战友们好！为什么躺平币．在国内造成这么大的影响？在这里公开回复很多战友．要求加入关于．G系列的将获得新GTV股票奖励的一些细节！**
+**编译: 越野小兔** **校对: pv0**
 
-[G-TV链接](https://gtv.org/getter/60b11307ba7ef9088d026d4a)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28191456/001234-11.jpeg)**图片: Fox News**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/6d01426a-03f0-408d-97f2-59df7776210e.png?asset_id=4b96266c-a05a-4d21-af6e-a29509369215&amp;img_etag=%228cb419737d0ecdec388768bff73cafd4%22&amp;size=2560)](https://spark.adobe.com/page/k65OINDODog01/images/6d01426a-03f0-408d-97f2-59df7776210e.png?asset_id=4b96266c-a05a-4d21-af6e-a29509369215&amp;img_etag=%228cb419737d0ecdec388768bff73cafd4%22&amp;size=1024)
+美国参议院一致通过了一项法案，旨在要求拜登政府对所有与新冠起源有关的情报进行解密，包括大流行初期与武汉病毒实验室相关的情报。
 
-• 以毒灭共进入了全球共同全面认知的状态，能不打疫苗就坚决不打，很多国家政府很快会宣布不打疫苗或不强迫打疫苗。
+上个月，印第安纳州共和党参议员迈克·布劳恩(Mike Braun)和密苏里州共和党参议员乔什·霍利(Josh Hawley)提交了一项提案，即《2021新冠起源法案》，要求国家情报总监（DNI）向美国民众解密有关武汉病毒研究所（WIV）与中共病毒起源之间任何潜在联系的情报。该法案获得一致通过。
 
-• 躺平币的概念来源于打土豪分田地造成的后果。国人开始思考生活如何过上体面的生活，如何拥有自己的土地、房产、车辆，如何选择自己的政府，如何信仰自由。
+霍利在周三的参议院会议上提到，该法案给予美国公众自己评估证据的机会，并补充说，这仅仅是开端。
 
-• 躺平币，不仅未来要给躺平的人币，还要给中国很多阶层的人币，把更多的阶层、领域唤醒，希望未来把躺平币发展成向共产党讨债的工具，中共必须把这些年欺骗老百姓的钱还给中国人民，包括杀地主抢走的土地，这影响巨大，需要建立团队和大量的前期投资，绝对要最高端的人员，包括政治、经济、金融系统的。
+“他们有权知道。是政府欠他们的，现在该采取行动了，”霍利说。”而美国人民还应该得到一些其它的：他们理应让美国政府对发动这种病毒的国家进行追究，该病毒的始作俑者撒谎导致全球大流行，致使许多其他国家和我们一样无法及时有效地解决这个问题，当然我说的是中（共）国。”
 
-• 喜币、喜Dollar的发展超出任何人的想象，市场开始交易的时候大家就明白了，要学会合法的使用自己的喜美元账号。
+该法案一旦颁布，则可解密的文件可能涉及武汉病毒研究所与中国人民解放军共同参与或代表军方从事的活动、新冠爆发前武汉病毒研究所进行的冠状病毒研究或其他相关活动，以及关于武汉病毒研究所研究人员在2019年秋季患病的信息。
 
-• 在GTV，GNews，GFashion，GClub，盖特等G系列所有工作过，够一定时间的，还有现在工作的战友，新GTV募股600亿，将给10亿GTV股的鼓励，以6月底之前工作的时间，不同的阶层，做出的业绩来评估。其中3到4亿股发给以前的工程师，剩下的发给未来3年到5年参与的工程师。有意向的请和熟悉的工程师和各农场联系。
+一旦颁布，国家情报总监将需要在该法案颁布起的90天内向国会提交一份包含解密信息的报告。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+国家情报局新闻办公室没有立即回复《大纪元》的置评请求。
+
+布劳恩参议员补充说：”拜登总统必须解密所有与武汉实验室和新冠大流行有关的美国情报，以便美国人民和独立研究人员能够找到答案。”
+
+由于人们普遍担心大流行可能是由实验室事故引起的，呼吁对中共病毒进行新的调查的呼声越来越高。
+
+本周早些时候，美国卫生与公共服务部长哈维·贝塞拉(Xavier Becerra)在第74届世界卫生大会视频会议中呼吁世卫组织启动 “透明 “的第二阶段调查。
+
+他提到：”新冠起源的第二阶段调查的工作范围必须是透明的，且以科学为基础，并给予国际专家独立性，以充分评估病毒来源和疫情爆发初期的情况。
+
+在发表上述评论前，《华尔街日报》 5月23日报道称，武汉病毒研究所的三名研究人员于2019年11月住院，其症状与季节性流感和中共新冠病毒症状一致。该报援引了不愿透露姓名的、熟悉此前未披露的美国情报报告的美国政府消息人士。
+
+5月24日，白宫新闻发言人珍·莎琪（Jen Psaki）在被问及此事时说，拜登政府 “一再呼吁世卫组织支持由专家主导对该大流行病起源进行评估，不受干扰或政治化。”
+
+“第一阶段的调查结果出来了，但我们在第一阶段调查中没有获得到数据，没有被提供任何信息。现在，我们希望世卫组织能够开展更加透明、独立的第二阶段调查，” 莎琪说。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/k65OINDODog01/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+**原新闻来源: **
 
-+1
+[Senate Passes Hawley, Braun Bill for Biden Admin to Declassify Intel on Wuhan Lab](https://www.theepochtimes.com/senate-passes-hawley-braun-bill-for-biden-to-declassify-intel-on-wuhan-lab_3832669.html/amp?utm_medium=social&amp;utm_source=twitter&amp;utm_campaign=digitalsub)
+
+
+
+* * *
+
+**发布: 法国巴黎七星编辑组**
+
+
+
+0

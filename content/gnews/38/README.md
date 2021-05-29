@@ -1,84 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [疫情下的西班牙]各种中共病毒疫苗的毒副作用总结
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1278824/)
+## 福奇对病毒起源改口的真正原因是什么？
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1278964/)
 
-- 翻译：gokuabuela
+**摘要：在2021年5月24日的两个盖特视频中，郭先生揭秘了美国国立卫生研究院 NIAID 主管安东尼·福奇（Anthony Fauci）对病毒起源改口的真正原因——因为“第二个闫丽梦博士”带着实锤证据在欧洲作证使他害怕了；同时“以毒灭共”在世界进展迅速，英国伊丽莎白女王、法国总参谋长和所有过去亲共的官员都站出来开始“说人话”了，印度和日本也已清楚认识到不干共产党，就会被共产党弄死，世界各个联盟纷纷开会决定一定不和中共站在一起。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28160014/Miles_2021-05-24-g1-g2-.srt.txt)
+**福奇对病毒起源改口的真正原因是什么？**
 
+**What Does Fauci’s Compromise in Virus Origin Mean?**
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+大家看到现在“以毒灭共”。英国伊丽莎白女王、法国总参谋长、法国的国家的所有过去亲共的、亲共产党腚的那帮王八蛋都站出来开始说人话了。
 
-**西班牙2021年5月28日电/西喜社——**
+Everybody has seen the progress we have made to “take down the CCP with the truth of the virus.”  The British Queen Elizabeth, the French Chief of Staff of the army, and all the pro-CCP bastards in France who used to kiss the CCP’s ass in the past, have stepped up and started to talk like human beings.
 
-由西班牙药品和保健品管理局（AEMPS）编写，并于周二公布了第五份《疫苗药物警戒报告》（COVID-19），包括欧洲药品管理局（EMA）已经确定或正在评估的辉瑞和阿斯利康疫苗的新副作用。
+福奇昨天的真正的妥协的原因，就是因为他知道我们有“第二个闫丽梦博士”在欧洲作证了，他才害怕了，才出来说话了。但是我告诉大家，闫丽梦博士的功力还没发出来呢。第二个闫丽梦博士这样神级的科学家还没开始[发力]呢。
 
-辉瑞疫苗：
+The real reason for Fauci’s compromise yesterday was because he knew that we had the “second Dr. Li-Meng Yan” testifying in Europe. So Fauci was scared and came out to speak. But let me tell you, Dr. Li-Meng Yan has not played all her cards yet. Another scientist who is at the same level as Dr. Yan hasn’t started showing cards yet.
 
-EMA的【药物警戒风险评估委员会（PRAC）】对中共病毒疫苗的安全性进行了以下方面的评估。
+还有，在中国的金融界会出来几十个科学家这样的人物来对付共产党。
 
-1. 皮疹和瘙痒：PRAC建议对该疫苗的标签和包装页进行修改，将皮疹和瘙痒（皮肤瘙痒）作为罕见的不良反应（发生率低于1/100）。荨麻疹（瘙痒、红色、块状皮疹）和血管性水肿（皮肤下快速肿胀）应被更新为很少发生的不良反应（发生率低于1/1,000）。
+Also, dozens of figures in China’s financial sector who are as important as these two scientists will come out to oppose the CCP.
 
-2. 曾经接受过面部皮肤填充剂注射的人的局部肿胀：PRAC还认为这种影响可能与疫苗有关，并将作为一种可能的不良反应纳入标签和包装传单中。
+不但如此，印度已经清清楚楚的认识到它不跟共产党干，共产党就会弄死它。日本也清楚，不是妥协[就行的]。
 
-3. 血栓形成综合征与血小板减少：PRAC正在密切关注基于mRNA的疫苗（辉瑞和Moderna）是否也可能与阿斯利康和杨森已经发现的异常部位的血栓形成综合征的罕见病例有关。
+Not only that, India has clearly realized that if it does not fight the CCP, the CCP will destroy it. Japan also knows that compromising with the CCP is not going to work.
 
-4. 心肌炎和心包炎：在接种辉瑞公司的疫苗后，有一些心肌炎（心肌炎）和心包炎（心脏周围膜的炎症）的病例报告。
+仅仅昨天一个周末，在日本，在印度，在非洲的联盟——最最亲共被共产党完全控制的间谍渗透的联盟——非联盟，包括中东这几个中东的联盟和非联盟，包括东非，包括所谓的南南合作的组织，昨天下午都在福奇[声明]之后，所有的人紧急开了会。说：“[应该]怎么应对这个事件？大家都一定最终说是共产党病毒，我们该怎么办？我们是反对吗？”
 
-阿斯利康疫苗：
+Yesterday, only one weekend, in Japan, India, the most pro-CCP unions that have been controlled and infiltrated by the CCP the most for ages, like the African Union, and the alliance in the middle east, East African Federation, including South-South cooperation, were all having respective emergency meetings after the “announcement” of Dr. Fauci yesterday afternoon. They were discussing how to react to this announcement. They said, “Everybody will say this is a CCP virus eventually. What should we do?  Should we go against it?”
 
-1 毛细血管渗漏综合征：PRAC启动了对毛细血管渗漏综合征的信号审查，这种情况的特点是液体从血管外渗，导致组织肿胀和血压突然下降。在欧洲和英国之间，在总共注射了3400万剂这种疫苗的情况下，已经报告了5起病例。
+就像法国参谋长一样，说：“我们要不就是站在未来中美之战的选边站。他们说[只有两个选择]，现在一个是真相，一个是跟共产党站在一起。”所有人最后的答案都是：坚决不跟共产党站在一起！
 
-2 吉兰-巴雷综合症：PRAC正在定期审查接种阿斯利康疫苗后出现的吉兰-巴雷综合症的报告病例，因为它被确定为一种潜在的不良反应，在这种疫苗的许可期间需要密切监测。这种综合征是一种免疫性疾病，引起周围神经的炎症，导致疼痛、感觉障碍、肌肉无力和行走困难。
+Just like the Chief of the Defense Staff of France who said, “We have to choose a side as we are heading towards a reorganization of the world order that is re-structuring around the competition between the United States and China.”  They said: “there are only two choices, one is the truth, and the other is to stand with the CCP.” In the end, they all determined not to stand with the CCP!
 
-3 关于阿斯利康的副作用–血栓形成，AEMPS报告说，截至4月25日，西班牙已经报告了11起病例，其中3起导致了死亡。此外，它们主要发生在30至39岁的人群中。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源[1]: [https://gtv.org/getter/60aba2a8744cbc431363c46e](https://gtv.org/getter/60aba2a8744cbc431363c46e) (2:58-3:50)
+视频来源[2]: [https://gtv.org/getter/60aba4a9744cbc431363c4f4](https://gtv.org/getter/60aba4a9744cbc431363c4f4) (0:10-1:01)
+鸣谢：
+[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1269395/](https://gnews.org/zh-hans/1269395/)、 [https://gnews.org/zh-hans/1269402/](https://gnews.org/zh-hans/1269402/)
+[2] 感谢 YY、DD、Liberte 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1271900/](https://gnews.org/1271900/)、[https://gnews.org/1271909/](https://gnews.org/1271909/)
 
-**简评：**
+* * *
 
-**最近看了加拿大枫叶农场的【医语惊人】节目（强烈推荐）。对疫苗的副作用有了更深的认识，与这份报告一对比，竟然逐一得到了验证，再次证明疫苗是“毒疫苗”。**
+**字幕：【JennyL（纽约香草山农场）】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-**首先，这个病毒不是自然起源的，它被赋予了很多“加强型的功能”，从而具有很多非常恶毒的特点。它不会被抗体消灭，而是能够劫持抗体，通俗的说，抗体会变成病毒的“带路党”，从而通过抗体，病毒可以进入人体的免疫系统，引起免疫性疾病。（见报告中：阿斯利康疫苗第2点）**。
-
-**不仅进入免疫系统，还可以在人体内脏里潜伏下来，造成一个慢性的，长期的破坏，容易引起心脏类疾病，大脑神经疾病和生殖系统疾病。这些疾病可能会在5年、10年，甚至更长时间后发作。而且并不表现出中共病毒症状。如果疫苗注射继续下去，人类的平均寿命将大大缩短。**
-
-**还有就是引起血液系统的问题，比如血栓**。
-
-**疫苗的作用是模仿或弱化版的病毒，刺激人体产生抗体，从而消灭真的病毒，但是因为这个病毒的特征，疫苗产生的抗体并不会杀死病毒，而是和病毒合作，来残害人体。**
-
-**除了这些中共病毒本身带来的危害，还有一些更多的副作用，我们也进行一些说明：**
-
-**辉瑞/莫德纳疫苗：信使类RNA疫苗。它们是通过编辑RNA的一段信息，模仿成病毒的S蛋白，进入人体，产生抗体。**
-
-**在进入人体后，它们会释放RNA信息，人体内需要一个“读码器”来读出这些信息，再根据这些信息，每3个碱基合成一个氨基酸，形成抗体。问题是， “读码器”是会出错的，合成的不是我们预计的氨基酸，而是一种谁也不知道的东西，这就是改变基因，发生了不可控的变化，而且这种变化是随机的，根据每个人的情况不同而不同，没人知道最终会在体内形成什么。**
-
-**而包裹RNA信息的外包装 — 脂质纳米颗粒，在制造过程中，因为材料的不成熟，不得已使用了一些对人体有害的材料，比如SM103,PEG等，至少会引起皮疹和瘙痒。**
-
-**也就是说，接种类似辉瑞这样的MRNA疫苗有三层风险：**
-
-1** 病毒本身的危害**
-
-2** RNA解码过程的不可控失误产生的风险**
-
-3 **脂质纳米颗粒对人体的伤害**
-
-**而类似阿斯利康这样的腺病毒或灭活病毒疫苗，也有3层风险**
-
-1 **病毒本身的危害**
-
-2 **工艺的要求。灭活病毒如不能让人体产生抗体杀死病毒（这样疫苗就失效了），或不能让病毒有太大的活性（这样就被感染了）。对工艺要求很高。**
-
-3** 抗体。此类疫苗共会同时产生5种抗体，而其中只有一种是针对S蛋白的，其他4种会对人体造成什么影响呢？没人具体知道。**
-
-**EMA其实是收到大量关于其他副作用的案例和论文的，绝不仅仅是报告中的那些。我们希望科学界本着为人类负责的态度，认清病毒本质和来源，能够有更多的专业人士站出来，像闫博士或者文医战友一样向民众普及中共病毒的真相！**
-
-素材：gokuabuela；审核：Aries的星；校对：阿伯塔； 发稿：Nuevo唐人
-
-**新闻来源**：[经济学家报](https://www.eleconomista.es/sanidad/noticias/11209384/05/21/Los-nuevos-efectos-secundarios-de-las-vacunas-de-Pfizer-y-AstraZeneca-que-estan-bajo-estudio-.html)
-
-[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
-
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
-
-
-
-+1
++2

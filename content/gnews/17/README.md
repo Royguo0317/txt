@@ -1,68 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】儿童健康保护组织呼吁FDA立即将COVID疫苗撤出市场
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1279207/)
+## 为应对中共威胁，美国希望在澳大利亚北部投放兵力
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1279205/)
 
-香草山写作组 四季
+翻译：康州盘古农场 – 柯镇恶
 
+校对：康州盘古农场 – 格格巫
 
+编辑：康州盘古农场 – 格格巫
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**
+据《大纪元时报》作者：CADEN PEARSON 2021年5月26日报道：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28182844/airp3jpg-1.jpg)
+美国澳大利亚代理大使迈克•高德曼（Mike Goldman）告诉新闻集团《澳大利亚人》（The Australian），在北京日益严峻的战略威胁下，美国希望将军事武器投放到澳大利亚北部以部署兵力。高德曼表示，鉴于美国的基地（如关岛）在中（共）国导弹可及范围之内，在澳大利亚预先部署美国战备物质 “是合理的”，而且这会提供战略优势。他还希望看到澳大利亚能制造陆地精确制导武器，这是澳大利亚和美国之间更为“创新的国防伙伴关系”的一部分。他在采访中谈到紧张的台海关系等问题时说到：“其中行动都很直观，特别是当我们谈论如何在任何突发事件中投入武力时。”
 
+澳大利亚总理斯科特·莫里森（Scott Morrison）认为，建立主权制导武器能力是政府的优先任务，这是国防部的“部队结构计划”中首次提出的想法。他还支持一项计划，斥资10亿澳元（7.8亿美元）来推动建立主权制导武器企业。3月31日，澳国防部宣布将选择战略工业合作伙伴，代表政府运营主权制导武器的制造。莫里森说：“在澳大利亚的土地上建立我们自己的主权势力对于确保澳大利亚人的安全至关重要，同时还可以在整个国防供应链中为企业提供数千个本地就业机会。”新企业将支持导弹和制导武器的制造，供整个澳大利亚国防军使用。
 
-自然新闻5月23日报道， “儿童健康保护”非盈利组织（CHD）向美国食品和药物管理局（FDA）提交了一份公民请愿书，要求该机构立即撤销COVID疫苗的紧急使用授权（EUA），并避免授予他们许可。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28182249/Screen-Shot-2021-05-28-at-6.21.29-PM.png)
-“百万人反对医疗命令”（MAMM）组织创始人莫琳-麦克唐纳（Maureen McDonnell）说：“在更多的死亡和伤害发生之前，是时候让FDA进行大幅度的程序修正了。”请愿书呼吁FDA立即修改其现有的对氯喹药物、伊维菌素等其他安全有效的防治COVID的药物的使用指南。
+美国大使说：“我们现在处在一个新的地缘战略背景下，需要一套不同的平台和不同的部队态势。”“这些事情不是一时的，但我们的军队和战略思想家正在就如何最好地共同应对这些新挑战进行讨论。因此，我认为我们将看到新的、创新的方式来加强我们的合作伙伴关系。”高德曼表示，双边部队态势审查工作组于已5月份举行了首次会议，来讨论“各种突发事件”。该小组是在去年AUSMIN会谈之后成立的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28182413/air12.jpg)
+美国已经采取行动加强其在澳大利亚北部的防御能力。2020年5月，美国海军太平洋设施司令部与澳大利亚公司Cockram签订了一份价值超过1280万澳元（1000万美元）的合同，以在北领地达尔文东南部的RAAF Base Tinda，建造一个地下弹药库（earth-covered magazine）设施。国防部在线表示，该项目将建造两个地下弹药库，一个生产区域，其中将包括一个弹药组装输送机掩体，以支持澳大利亚和美国的军事联合训练活动。美国大使还表示，当前与中（共）国在台湾问题上的紧张关系不会动摇，“牢不可破”的太平洋共同防卫组织（Australia，New Zealand and the United States，ANZUS）联盟，到今年9月该联盟已成立70周年。高德曼表示该联盟“比任何一个意外事件都要强大和全面。”“我们不会指挥每个国家的自身利益。在台湾问题上，每个国家都必须做出自己的决定，”他说。
 
-“儿童健康保护”组织和“百万人反对医疗命令”（MAMM）组织要求FDA采取以下七项行动：
+据报道，他指出与中（共）国建立关系的艰难和复杂性，因为像美国这样的西方国家正在寻求与共产主义政权合作以减少碳排放。他说，这比冷战时期与俄罗斯的关系更具挑战性。
 
-1. FDA应该撤销所有的冠状病毒疫苗紧急使用授权（EUA），并避免针对未来涉及所有人类群体的任何COVID疫苗的紧急使用授权（EUA）、新药申请NDA或生物制品许可申请紧急授权（EUA）的批准。因为目前冠状病毒疫苗的严重不良事件或死亡的风险已经超过了对疾病的预防，而且现有的、已获FDA批准的药物可针对COVID提供有效的预防和治疗。紧急授权（EUA）失去意义。
+原文链接：[https://www.theepochtimes.com/us-looks-to-store-weapons-in-northern-australia-amid-china-threat\_3831003.html](https://www.theepochtimes.com/us-looks-to-store-weapons-in-northern-australia-amid-china-threat_3831003.html)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-
-- 鉴于儿童患严重COVID疾病的风险极低，FDA应立即避免让未成年人参加COVID疫苗试验，避免将紧急授权（EUA）修改为包括儿童，并立即撤销所有为16岁以下儿童接种辉瑞疫苗的紧急授权（EUA）和18岁以下儿童接种其他COVID疫苗的紧急授权（EUA）。
-
-
-- FDA应立即撤销孕妇接种紧急授权（EUA）或特许COVID疫苗的默许，并立即发布相关的公共指南。
-
-
-- FDA应立即修改其现的羟氯喹药物、伊维菌素和任何其他被证明对COVID安全有效的药物的使用指南，提供目前使用的安全剂量和有效性的科学证据，并立即向所有利益相关者发出有关此更改的通知。
-
-
-- FDA应向国防部长和总统发出指导意见，在紧急授下，不能仅根据《美国法典》第10章第1107(f)条或第1107a条，事先批准服役人员接种COVID疫苗。
-
-
-- FDA应以数字和书面形式向所有利益相关者发布指导意见，申明根据《美国法典》第21章第360bbb-3(e)(1)(a)(ii)(III)1条和《纽伦堡法典》的知情同意要求，所有公民都可以有权选择接受或拒绝研究性COVID疫苗，而且不接种疫苗不会造成对工作，教育或其他与健康无关的任何不良后果。
-
-
-- 在撤销COVID疫苗的紧急使用授权（EUA）之前，FDA应发布指导意见，所有COVID疫苗的营销和推广必须避免“安全和有效”的标签，因为这种说法违反了《美国法典》 第 21章第360bbb-3条。
-
-
-根据美国疾病控制和预防中心最新的疫苗不良反应报告系统数据，截至目前已经有192,954例不良反应报告。2020年12月14日至2021年5月7日，接种疫苗者中，已有4057例死亡。
-
-而这些数字与1976年流产的猪流感疫苗的数字形成鲜明对比，该猪流感疫苗在报告了大约30例死亡和400例吉兰-巴雷综合症后被立即停止。
-
-历史上，有一定数量的疫苗事故后，政府一般立即停止疫苗的使用。在面对如此高的疫苗事故的情况下，试验性冠状病毒疫苗还在全球范围内大规模的接种显然不合常理。不知道人类要为此付出怎样的代价。
-
-原文链接：
-
-[https://www.naturalnews.com/2021-05-23-federal-law-prohibits-mandates-of-emergency-use-covid-vaccines.html](https://www.naturalnews.com/2021-05-23-federal-law-prohibits-mandates-of-emergency-use-covid-vaccines.html)
-![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

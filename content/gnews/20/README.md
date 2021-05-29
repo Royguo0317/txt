@@ -1,25 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 200多名共和党人要求佩洛西对中共在病毒流行中的同谋行为进行调查
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1279145/)
+## 2021/05/28-001 文贵先生盖特精华
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1279236/)
 
-编译：龟仙人
+听写： 万物归一 | 校对：樂禧禧 | Page：我是球大哥
 
-众议院共和党领袖史蒂夫-斯卡利斯和他的200多名共和党同事呼吁南希-佩洛西指示她的民主党领导的委员会调查中共在造成病毒大流行中的共谋行为。
+[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/c8bc3a05-6686-49f9-aafc-60cb411b37f6.png?asset_id=11968ae3-9b23-466c-a922-2c0c9eaa2e63&amp;img_etag=%229139a6c7cfbf1d0b8cbc060e07b6f01a%22&amp;size=1024)](https://spark.adobe.com/page/k65OINDODog01/images/c8bc3a05-6686-49f9-aafc-60cb411b37f6.png?asset_id=11968ae3-9b23-466c-a922-2c0c9eaa2e63&amp;img_etag=%229139a6c7cfbf1d0b8cbc060e07b6f01a%22&amp;size=1024)
 
-在给民主党众议院议长的一封信中，史蒂夫-斯卡利斯说：“有越来越多的证据表明该大流行病始于中共的一个实验室，而中国共产党隐瞒了来源，如果是这样，中共要对近60万美国人和全世界数百万人的死亡负责。这些关于中共责任的问题并不是像你错误地声称的那样，是一种转移视线的行为。”
+**5月28号：尊敬的战友们好！为什么躺平币．在国内造成这么大的影响？在这里公开回复很多战友．要求加入关于．G系列的将获得新GTV股票奖励的一些细节！**
 
-共和党人提高了对调查的要求，因为众议院议员将提出两项与中共病毒有关的新法案，一项是允许受害者家属起诉中国，另一项是成立一个类似于9/11事件的委员会来调查该大流行病的起源。
+[G-TV链接](https://gtv.org/getter/60b11307ba7ef9088d026d4a)
 
-截至周五，已有593,292名美国人死于COVID，超过33,217,000人被感染。
+[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/6d01426a-03f0-408d-97f2-59df7776210e.png?asset_id=4b96266c-a05a-4d21-af6e-a29509369215&amp;img_etag=%228cb419737d0ecdec388768bff73cafd4%22&amp;size=2560)](https://spark.adobe.com/page/k65OINDODog01/images/6d01426a-03f0-408d-97f2-59df7776210e.png?asset_id=4b96266c-a05a-4d21-af6e-a29509369215&amp;img_etag=%228cb419737d0ecdec388768bff73cafd4%22&amp;size=1024)
 
-评论：
+• 以毒灭共进入了全球共同全面认知的状态，能不打疫苗就坚决不打，很多国家政府很快会宣布不打疫苗或不强迫打疫苗。
 
-现在的美国，共和党和民主党都已经意识到，要对病毒追责，对民众有一个交代，灭共是必须的。现在谁能主导灭共，谁就可以名垂青史。哪个党派负责领导，2024年的总统竞选必然占尽优势。
+• 躺平币的概念来源于打土豪分田地造成的后果。国人开始思考生活如何过上体面的生活，如何拥有自己的土地、房产、车辆，如何选择自己的政府，如何信仰自由。
 
-灭共已经是箭在弦上，现在两党都在力争成为开弓的哪个人。
+• 躺平币，不仅未来要给躺平的人币，还要给中国很多阶层的人币，把更多的阶层、领域唤醒，希望未来把躺平币发展成向共产党讨债的工具，中共必须把这些年欺骗老百姓的钱还给中国人民，包括杀地主抢走的土地，这影响巨大，需要建立团队和大量的前期投资，绝对要最高端的人员，包括政治、经济、金融系统的。
 
-新闻来源：[mailonline](https://www.dailymail.co.uk/news/article-9630049/More-200-House-Republicans-demand-Pelosi-FINALLY-investigate-Chinas-complicity-pandemic.html?ns_mchannel=rss&amp;ns_campaign=1490&amp;ito=1490)
+• 喜币、喜Dollar的发展超出任何人的想象，市场开始交易的时候大家就明白了，要学会合法的使用自己的喜美元账号。
 
-0
+• 在GTV，GNews，GFashion，GClub，盖特等G系列所有工作过，够一定时间的，还有现在工作的战友，新GTV募股600亿，将给10亿GTV股的鼓励，以6月底之前工作的时间，不同的阶层，做出的业绩来评估。其中3到4亿股发给以前的工程师，剩下的发给未来3年到5年参与的工程师。有意向的请和熟悉的工程师和各农场联系。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/k65OINDODog01/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
++1
