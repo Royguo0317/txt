@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】中共忽悠升级，国内民众抢种毒疫苗
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1279419/)
+## 【有声读物】知其然，知其所以然
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1279552/)
 
-配音：香草山录音组 蒙古鸿雁
+配音：香草山福音部 joy喜乐的心
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,18 +14,27 @@
 
 
 
-近日，中共各大媒体都在鼓吹一个话题：多地卫健部门发布消息称，6月10日起，中共国暂停中共病毒疫苗第一针的接种，公众应尽量在6月9日前完成第一剂次疫苗接种。该消息广泛地出现在各大媒体、报刊及各个地方的微信官媒公众号，还有社区的通知中。
+儒家文化有许多规矩，其中就有男子婚后要与父母分家，以及一些特别针对婚后女子的规矩，比如夫唱妇随、齐眉举案。
+
+
+> 夫唱妇随，意思是妻子与丈夫同声同气，以示服从。
+> 出自《关尹子·三极》。
 
 
 
-**文字版原文：[【墙内热搜】中共忽悠升级，国内民众抢种毒疫苗](https://gnews.org/zh-hans/1274189/)**
-
-作者：纽约香草山佛教部 369文驹
-
+> 齐眉举案，意思是妻子给丈夫送饭时，把托盘端得跟自己的眉毛一样高，以示尊重。
+> 出自《后汉书·梁鸿传》
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+
+
+**文字版原文：[【信仰之声】知其然，知其所以然](https://gnews.org/zh-hans/1277150/)**
+
+作者：纽约香草山福音部 Jinglechenge
+
+
+
+音频处理/发稿：雪梨
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 

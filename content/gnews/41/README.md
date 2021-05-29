@@ -1,34 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为应对中共威胁，美国希望在澳大利亚北部投放兵力
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1279205/)
+## 【有声读物】卡希尔博士呼吁停止疫苗接种，称mRNA疫苗危害超过病毒本身
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1279394/)
 
-翻译：康州盘古农场 – 柯镇恶
+配音：香草山录音组 蒙古鸿雁
 
-校对：康州盘古农场 – 格格巫
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-编辑：康州盘古农场 – 格格巫
 
-发布：康州盘古农场 – 彩虹 Rainbow
 
-**
-据《大纪元时报》作者：CADEN PEARSON 2021年5月26日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28182844/airp3jpg-1.jpg)
-美国澳大利亚代理大使迈克•高德曼（Mike Goldman）告诉新闻集团《澳大利亚人》（The Australian），在北京日益严峻的战略威胁下，美国希望将军事武器投放到澳大利亚北部以部署兵力。高德曼表示，鉴于美国的基地（如关岛）在中（共）国导弹可及范围之内，在澳大利亚预先部署美国战备物质 “是合理的”，而且这会提供战略优势。他还希望看到澳大利亚能制造陆地精确制导武器，这是澳大利亚和美国之间更为“创新的国防伙伴关系”的一部分。他在采访中谈到紧张的台海关系等问题时说到：“其中行动都很直观，特别是当我们谈论如何在任何突发事件中投入武力时。”
 
-澳大利亚总理斯科特·莫里森（Scott Morrison）认为，建立主权制导武器能力是政府的优先任务，这是国防部的“部队结构计划”中首次提出的想法。他还支持一项计划，斥资10亿澳元（7.8亿美元）来推动建立主权制导武器企业。3月31日，澳国防部宣布将选择战略工业合作伙伴，代表政府运营主权制导武器的制造。莫里森说：“在澳大利亚的土地上建立我们自己的主权势力对于确保澳大利亚人的安全至关重要，同时还可以在整个国防供应链中为企业提供数千个本地就业机会。”新企业将支持导弹和制导武器的制造，供整个澳大利亚国防军使用。
 
-美国大使说：“我们现在处在一个新的地缘战略背景下，需要一套不同的平台和不同的部队态势。”“这些事情不是一时的，但我们的军队和战略思想家正在就如何最好地共同应对这些新挑战进行讨论。因此，我认为我们将看到新的、创新的方式来加强我们的合作伙伴关系。”高德曼表示，双边部队态势审查工作组于已5月份举行了首次会议，来讨论“各种突发事件”。该小组是在去年AUSMIN会谈之后成立的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28182413/air12.jpg)
-美国已经采取行动加强其在澳大利亚北部的防御能力。2020年5月，美国海军太平洋设施司令部与澳大利亚公司Cockram签订了一份价值超过1280万澳元（1000万美元）的合同，以在北领地达尔文东南部的RAAF Base Tinda，建造一个地下弹药库（earth-covered magazine）设施。国防部在线表示，该项目将建造两个地下弹药库，一个生产区域，其中将包括一个弹药组装输送机掩体，以支持澳大利亚和美国的军事联合训练活动。美国大使还表示，当前与中（共）国在台湾问题上的紧张关系不会动摇，“牢不可破”的太平洋共同防卫组织（Australia，New Zealand and the United States，ANZUS）联盟，到今年9月该联盟已成立70周年。高德曼表示该联盟“比任何一个意外事件都要强大和全面。”“我们不会指挥每个国家的自身利益。在台湾问题上，每个国家都必须做出自己的决定，”他说。
 
-据报道，他指出与中（共）国建立关系的艰难和复杂性，因为像美国这样的西方国家正在寻求与共产主义政权合作以减少碳排放。他说，这比冷战时期与俄罗斯的关系更具挑战性。
 
-原文链接：[https://www.theepochtimes.com/us-looks-to-store-weapons-in-northern-australia-amid-china-threat\_3831003.html](https://www.theepochtimes.com/us-looks-to-store-weapons-in-northern-australia-amid-china-threat_3831003.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+2021年5月21日，《今日亚太》（Asia Pacific Today）采访了都柏林大学医学院分子遗传学教授、爱尔兰自由党主席——多洛雷斯-卡希尔（Dolores Cahill）博士。采访中卡希尔博士指出，mRNA疫苗对人类的危害极大且毫无用处，并强烈呼吁政府停止让民众接种疫苗。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+**文字版原文：[【热点播报】卡希尔博士呼吁停止疫苗接种，称mRNA疫苗危害超过病毒本身](https://gnews.org/zh-hans/1276950/)**
+
+作者：纽约香草山翻译部  文雅621
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

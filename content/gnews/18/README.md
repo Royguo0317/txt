@@ -1,44 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月28日美国政要推文精选：209位共和党人联名要求众议院佩罗西议长同意调查武毒所
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1279604/)
+## 【信仰之声】圣经中的家庭关系
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1279370/)
 
-众议员埃莉斯·斯蒂芬尼克： 我与众议员史蒂夫·斯卡利丝[@SteveScalise](https://twitter.com/SteveScalise) 、众议院共和党领袖凯文·麦卡锡[@GOPLeader](https://twitter.com/GOPLeader)以及我们的200多名共和党同事，一起要求议长佩洛西调查 [#新冠病毒](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92?src=hashtag_click) COVID-19的起源和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的掩盖 为什么民主党人不加入我们来揭露真相呢？！
-
-
-
-> I joined [@SteveScalise](https://twitter.com/SteveScalise?ref_src=twsrc%5Etfw) [@GOPLeader](https://twitter.com/GOPLeader?ref_src=twsrc%5Etfw) and 200+ of our Republican colleagues in demanding [@SpeakerPelosi](https://twitter.com/SpeakerPelosi?ref_src=twsrc%5Etfw) investigate the origins of COVID-19 and the Chinese Communist Party coverup
-> 
-> Why won’t Democrats join us in uncovering the TRUTH?! [https://t.co/MmWy7yVNih](https://t.co/MmWy7yVNih)
-> — Rep. Elise Stefanik (@RepStefanik) [May 28, 2021](https://twitter.com/RepStefanik/status/1398342896454193154?ref_src=twsrc%5Etfw)
+作者：纽约香草山福音部 Jinglechenge
 
 
 
-众议员李·泽尔丁: 国会中的自由派、媒体和大型科技公司接受了 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 关于 COVID 起源的谎言，并污辱持不同意见者为种族主义者的。众议院民主党必须与我们一起努力调查武汉发生的事情，追究 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的责任，让美国人得到他们应得的答案。 【转众议员史蒂夫·斯卡利斯推文：209位共和党人联名要求众议院佩罗西议长同意调查武毒所】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
 
 
-> Liberals in Congress, the press & big tech accepted the Chinese Communist Party’s lies about COVID's origin & shamed dissenting views as racist. House Dems must join our efforts to investigate what happened in Wuhan, hold the CCP accountable & get Americans answers they deserve. [https://t.co/XRWWvshtSi](https://t.co/XRWWvshtSi)
-> — Lee Zeldin (@RepLeeZeldin) [May 28, 2021](https://twitter.com/RepLeeZeldin/status/1398300812686790658?ref_src=twsrc%5Etfw)
+记得有一年CCTV春晚开始前的几个小时，官媒大冬天里派了记者到大街上问行人，在以下家庭关系中哪个最重要：
+
+1. 与父母的关系
+2. 与配偶的关系
+3. 与子女的关系
+
+
+记者也告诉受访者，正确答案将在晚会上给出。当然，每个受访者的回答都不一样，不论选哪一个，端看谁在受访者心中更有份量了。你们可能猜到了主持人会给出的答案，就是哪方都不得罪的答案：所有关系都同等重要，毕竟是过年，要显得喜庆。对的，这就是晚会上主持人给出的“正确”答案，并且还洋洋自意地重复了好几遍。我听了之后就知道，这帮为CCP服务的人，不学无术，全是放屁，说了等于没说，还误导老百姓。
+
+谁都知道，这三种关系是我们天天面对的。但谁能知道，到底这三种关系是同等重要呢，还是有轻重缓急之分？对此，《圣经》又是怎么说的呢？
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28193834/73-5.jpg)图源网络
+
+《圣经》告诉我们，上帝造人的时候，首先造的是一对夫妻（创世记2：24），然后才从夫妻关系延伸至父母与子女之间的家庭关系。也就是说，在家庭伦理的范畴，每个人最直接的责任与义务是与自己成为一体的妻子或丈夫。所以，在有基督信仰的国家，当一个家庭发生意外时，优先继承权赋予妻子或丈夫，然后才是父母与儿女。由此，你对下面这个令人烧脑的“掉水选择题”就会有了正确的答案：
+
+
+> 假如你的妈妈和妻子同时掉进水里，你先救谁？假如只能救一个，养育之恩与结发之情难以两全的时候，你如何抉择？
+
+
+答案当然是先救妻子。至于妈妈由谁救呢？那是爸爸的责任！
+
+所以，夫妻关系是家庭中最核心、最根本、最重要的关系。因此，只有夫妻都把彼此摆在其他关系之上，才有家庭和睦。而也唯有家庭和睦了，才有社会的安宁，才谈得上文明、创造、发明。再说一遍，夫妻关系是一切关系的核心，这一认知影响深远。
+
+几千年来，儒家文化用“三纲五常”来规范人最基本的生活家庭伦理：君为臣纲，父为子纲，夫为妇纲；仁、义、礼、智、信为人立足之根本。这些伦理规矩极其约束人的创造性，致使整个社会死气沉沉。继而CCP掌权，其高喊“思想解放”，却把“三纲五常”中美善的部分（忠信、孝顺、尊敬）也当垃圾扫进了历史的垃圾堆，走了另一个极端。然而，不管是极左也好，极右也罢，其都在夫妻关系、男女角色定位上失之偏颇，造成了畸形关系、畸形家庭、畸形社会、畸形文化，也使得整个华夏文明萎靡不振。
+
+基督信仰给我们指明了一条健康、正确的路，且是一条走得通的路。只要我们一起回归《圣经》，在真理中认清自己在家庭关系中的身份与本分，根据《圣经》的标准来规范自己的行为，那么，重建和谐的家庭关系就指日可待了。
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 
-参议员玛莎·布莱克本： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 隐瞒了有关 COVID-19 的信息长达 51 天。这是不可接受的，这是错误的，至关重要的是他们要面临后果。受到影响的美国人应该完全有权起诉中共国。
-
-
-
-> For 51 days the Chinese Communist Party hid information about COVID-19. It’s unacceptable, it’s wrong, and it’s critical they face consequences. Americans impacted should have every right to sue China.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 28, 2021](https://twitter.com/MarshaBlackburn/status/1398375584045150220?ref_src=twsrc%5Etfw)
-
-
-
-参议员汤姆·科顿： 福奇(Fauci)有很多问题需要回答。 他需要停止玩文字游戏。 【转[http://theAustralia.com.au](https://t.co/SoCmGSvZG3?amp=1) 文章：尽管有(病毒)大流行的风险，福奇还是支持了病毒试验】
-
-
-
-> Fauci has a lot of questions to answer. And he needs to stop playing word games. [https://t.co/snFXlcpjKP](https://t.co/snFXlcpjKP)
-> — Tom Cotton (@SenTomCotton) [May 28, 2021](https://twitter.com/SenTomCotton/status/1398341762930860032?ref_src=twsrc%5Etfw)
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 
 

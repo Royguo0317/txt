@@ -1,45 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】理解神的信实
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1279534/)
+## 谭德赛世卫大会警告还有更严重的病毒，呼吁国际团结和共享
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1279533/)
 
-配音：香草山福音部 Daxia
+翻译：盘古农场–格格巫
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+校对：盘古农场–Mike Li
 
+编辑：盘古农场–傻小子
 
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**据《republicworld》作者：Bhavya Sukheja，于2021年5月24日发布**
 
+世卫组织总干事谭德赛·阿达诺姆·吉布里亚索斯警告说，还有另一种病毒可能比COVID-19更易传播，更致命。
 
+世卫组织总干事谭德赛·阿达诺姆·吉布里亚索斯5月24日在联合国卫生机构年度大会开幕式上致辞，并警告说，还有另一种病毒可能会传播。他在第74届世界卫生大会上说，COVID-19大流行的“最大推动力”是“缺乏国际团结和共享”。谭德赛指出，如果任何人被抛在后面，所有人都会受到阻碍，并进一步警告说，世界仍然处于“非常危险的境地”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28200720/picof-%40-2021-05-28-170559.png)
+世卫组织负责人说，战胜病毒的唯一方法是首先保护最脆弱的人群。他说，如果最落后者首先得到帮助，最弱者首先得到加强，那么“我们都会赢”。谭德赛说，《国际卫生条例》仍然是大流行防范和应对的全球治理的基石。他补充说，然而，它们的执行是“前后矛盾的”，并没有导致所需的承诺和采取的行动。
 
+此外，谭德赛呼吁“更好的治理”，要有包容性并代表每个会员国。他呼吁“更好的融资”以增强能力，支持快速反应并为救生工具的研发、制造和部署提供资金。他甚至补充说，世界需要“更好的系统”，这些“更好的系统”是在本地构建并以“坚不可摧的链条”在全球范围内链接起来。
 
-《罗马书》（2:19-23）“又深信自己是给瞎子领路的，是黑暗中人的光，是愚笨人的师傅，是小孩子的先生，在律法上有知识和真理的模范。你既是教导别人，还不教导自己吗？你讲说人不可偷窃，自己还偷窃吗？你说人不可奸淫，自己还奸淫吗？你厌恶偶像，自己还偷窃庙中之物吗？你指着律法夸口，自己到犯律法玷辱神吗？”
+谭德赛（Tedros）在会议开幕时重点讨论了COVID-19的影响和疫苗推出的平等性。他指出，这种流行病是“我们为支持会员国朝着全民健康复盖迈进的努力中的重大挫折”。他还说：“近18个月来，全世界的医护人员都处于生死攸关的境地”。 世卫组织负责人说：“制造和购买大多数疫苗的一小部分国家控制着世界其他地区的命运。”
 
-一位爱主的弟兄曾说，“将《圣经》比作是一枚璀璨的钻戒，《罗马书》就是那颗耀眼的钻石！”比喻太贴切了，以上这几节经文直击人性中最虚假的一面。CCP就是这其中的写照：他们把自己比喻成大海，容纳百川，有了CCP才有美好的生命；他们把自己说成是东方的太阳，中国人过去都活在苦难的黑暗世界里；CCP称自己就是那老百姓的光，没了这光中国人就没法活了。
+他补充说：“因此，在我们进行恢复和重建时，我们必须做的不仅仅是阻止病毒，还应该做更多工作。我们必须解决使病毒爆发演变成为流行病，而使流行病发展成为大流行病的脆弱性”。
 
+原文链接：[https://www.republicworld.com/world-news/rest-of-the-world-news/who-warns-of-another-virus-deadlier-than-covid-19-calls-for-better-governance-and-financing.html](https://www.republicworld.com/world-news/rest-of-the-world-news/who-warns-of-another-virus-deadlier-than-covid-19-calls-for-better-governance-and-financing.html)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-
-**文字版原文：[【信仰之声】理解神的信实](https://gnews.org/zh-hans/1090649/)**
-
-作者：纽约香草山福音部 Lilian89
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
