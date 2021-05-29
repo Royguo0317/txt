@@ -1,58 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫苗
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1279973/)
+## 美海关对中共整个渔船船队发出第一个暂扣令
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1280029/)
 
-作者：文护念 | 校对/审核：SilverSpurs7
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29021641/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC002.png)
+据[拿“强迫劳动”当幌子 美国海关对中国海鲜发暂扣令](https://www.163.com/news/article/GB5I6FE900019K82.html?clickfrom=w_yw)（2021-05-29 10:03:52　来源: [观察者网](https://www.guancha.cn/internation/2021_05_29_592414.shtml)）：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29012113/csm_0323corona-imfpung_deedf438ee-1.jpg)
+［当地时间5月28日，美国海关与边境保护局（CBP）以在捕鱼作业中存在“强迫劳动”为借口，对大连海洋渔业集团所有的产品发布了禁止进口的暂扣令（WRO）。根据美国海关官网发布的声明显示，暂扣令自发布起立即生效，适用于大连海洋渔业集团旗下32艘渔船，美国海关人员将开始扣留所有入境港的该公司渔船捕捞的金枪鱼、剑鱼和其他海产品。路透社报道称，一名美国海关官员表示，这一暂扣令也适用于含有该公司海鲜的其他产品，比如金枪鱼罐头和宠物食品。声明指出，这是美国海关针对整个渔船船队发出的第一个暂扣令。］ ［注：美国海关对中国海鲜的暂扣令见于[CBP issues Withhold Release Order on Chinese fishing fleet](https://www.cbp.gov/newsroom/national-media-release/cbp-issues-withhold-release-order-chinese-fishing-fleet)（Release Date: May 28, 2021）］
 
-愚昧的队伍
-争先恐后地
-注入
-党恩赐的第一针
+任何事情只要开了先河，后边的事情就水到渠成了，这一次美国海关对中共的整个渔船船队开出了第一个暂扣令则更是意义不同凡响，它的意义在于对中共国的海鲜领域的强迫劳动的大网已经撒开，接下来就是把网扣收紧了，由此及彼，所有存在同样美国法律禁止的强迫劳动的其他中国渔船的对美出口将渐次归零。截止目前中共国的新疆棉花、番茄、海鲜已经被定性为存在强迫劳动，那么接下来呢？
 
-于是扬起
-染血的祭旗
-吹响集结号
-踏平了
-真相的营地
+（文章内容仅代表作者个人观点）
 
-用冷暴力的子弹
-奚落
-善良的人
-得意洋洋地炫耀
-我党的优势
-自诩赵家人
-
-此刻的我
-戴上了
-熟铁的枷锁
-囚于
-重门深锁的墙内
-歇斯底里呐喊
-无果
-理智的边界
-仿如在拔河
-忽远忽近
-
-凄身藏掖在
-阒然的夜
-喃喃地自语
-搀扶一个
-受伤的信念
-
-面对这
-熵增的混沌
-谁来做我
-灵魂的药引
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

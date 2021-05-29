@@ -1,45 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国97条河流超过警戒线，去年洪灾恐再现
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1279974/)
+## 疫苗
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1279973/)
 
-撰稿：金生水
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29011354/2021-05-29_Task4_Cover.jpg)图片来自网络
-美国知名财经博主“零对冲”近日发文指出，截止到周四，中共国已经迎来了又一个危险的洪水季节，有97条河流已经超过了警告水平。预计今年夏天将发生大水灾，在西方媒体将很快成为头条新闻，人们对中共国的防洪能力的信心正在动摇。
+作者：文护念 | 校对/审核：SilverSpurs7
 
-中共国水利部表示，预计未来一周长江流域及其支流沿线的水位将上涨，并补充说，六到八月全国有可能发生大洪水。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29012113/csm_0323corona-imfpung_deedf438ee-1.jpg)
 
-水利部抗旱防灾办公室官员王为告诉中共中央电视台（CCTV），目前全国总防洪能力约为695亿立方米，大部分水库已排空以应对可能到来的汛情。他说，截至周三，三峡水库的水位约为150.83米，并将持续保持下降至6月10日。
+愚昧的队伍
+争先恐后地
+注入
+党恩赐的第一针
 
-水利部水文情报预报中心主任孙春鹏告诉CCTV，江河水位处于历史最高水平。预计未来几周会有更多的降雨，这可能会将河流水位推高到更高的危险水平。
+于是扬起
+染血的祭旗
+吹响集结号
+踏平了
+真相的营地
 
-据路透社报道，中国去年夏天降雨量达到了自1961年以来的第二高水平，引发了主要河流和湖泊的洪水警报，并使三峡大坝的水位接近最高值。据中共官方统计，2020年中国水灾受灾人数达到6346万人次，5万4000余房屋坍塌。大规模的洪水泛滥也引发了各国媒体上流传的对于三峡大坝溃坝的担忧。
+用冷暴力的子弹
+奚落
+善良的人
+得意洋洋地炫耀
+我党的优势
+自诩赵家人
 
-中国国家气候中心副主任贾小龙四月底表示，全球气候变暖背景下，未来极端天气气候引发的灾害将趋多趋强，高温、洪涝、干旱等灾害风险加剧。
+此刻的我
+戴上了
+熟铁的枷锁
+囚于
+重门深锁的墙内
+歇斯底里呐喊
+无果
+理智的边界
+仿如在拔河
+忽远忽近
 
-去年中共国夏季发生了创纪录的暴雨天气并最终引发了大规模的洪灾，如果今年夏天再次和去年一样多省出现暴雨天气，会给多省造成严重的水灾（河南和江西已经出现的暴雨天气并引发洪灾和内涝）。同时也会给长江三峡大坝造成严重的超负荷和灾难，而令三峡大坝再次出现倒坝的风险。
+凄身藏掖在
+阒然的夜
+喃喃地自语
+搀扶一个
+受伤的信念
 
-为了降低这个风险，中共可能会故技重施，在今年的六到八月再度开闸泄洪，将天灾演变成人祸。而这个泄洪将再次导致长江中下游一带会出现严重的水灾，上亿老百姓的生命和财产安全将受到巨大的威胁。严重的洪灾会令很多房屋倒塌以及粮食减产，农作物尽毁，从而导致粮价上涨。目前一些国家在水中也发现了中共病毒碎片，所以大规模的洪灾也可能会加剧中共病毒的传播，因为中共病毒感染者的排泄物会排在水中，病毒会随水漂流，加剧感染风险。
+面对这
+熵增的混沌
+谁来做我
+灵魂的药引
 
-希望国内的同胞可以尽早的做好一些适当的防护措施，让自己平安的度过这个可能出现的劫难。洪涝灾害本是天灾，但共产党却为了自己的一己私利，修筑了本就不该出现的三峡大坝，不顾老百姓的死活，把天灾转变成人祸。彻底的推翻这个邪恶的政权并且分阶段拆除三峡大坝，已经成为中国人民保命保财的唯一选择。
-
-（文章内容仅代表个人观点）
-
-*审**稿、**编辑**：**光耀**华**夏*
-
-参考链接：
-
-[零对冲：China Braces For Summer Of Floods As 97 Rivers Exceed Warning Levels](https://www.zerohedge.com/weather/china-braces-summer-floods-97-rivers-exceed-warning-levels)
-
-[VOA：中国9省79条河流超警 引发去年洪灾再现担忧](https://www.voachinese.com/a/China-braces-for-summer-floods-with-71-rivers-above-warning-levels-20210526/5905337.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
-
-* * *
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
