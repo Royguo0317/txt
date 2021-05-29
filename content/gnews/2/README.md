@@ -1,27 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国生化研究机构早在九十年代就对中共解放军敞开大门
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1280558/)
+## 【世事解评】新冠疫苗的新副作用——青少年心肌炎？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1280719/)
 
-#### 翻译：William | 校对：人间四月
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29082754/%E5%91%B5%E5%91%B5%E5%91%B5%E5%91%B5%E5%91%B5%E5%91%B5.jpg)图片来源：CCN
-根据美国新闻网站《Gateway Pundit》乔·霍夫特(Joe Hoft)的报道，早在1990年代开始，中共共产党（CCP）和人民解放军（PLA）的科学家就开始陆续进入重要的美国国防部和相关的民用研究计划。有些人获得最先进的知识和技术返回中共国，部分人则是留在美国继续进行由美国纳税人资助的研究计划。当时克林顿政府(1993年~2001年)似乎没有人来认真审核这些人的中共军方背景。
+作者： 纽约香草山媒体部7bends
 
-报道中提到，明确注明身份为解放军军官的**刘亮明**(音译, Liang-Ming Liu)和彭代之(音译,Dai-Zhi Peng)等被邀请进入美国军事设施；其他中共科学家和解放军军官则隐藏了他们的解放军背景。像是**郇****京宁**(音译 Jing-Ning Huan), 他将学历背景写为上海第二医科大学，但实际上这间大学实际上是中共解放军第二军医大学。后来进入匹兹堡大学(University of Pittsburgh)的周博士(Allan Z. Zhou)的实验室。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
-还有**李国平**(音译,Guo-Ping Li)，她的教育背景尚不清楚，但她在加拿大贝尔北部研究有限公司（Bell-Northern Research Ltd.）担任永久职位。后来到美国陆军医学研究与物资司令部(U.S. Army Medical Research and Materiel Command)担任研究先进激光技术的临时研究职位。李国平目前正在使用激光技术的射电望远镜技术( laser technologies for radio telescopes.)为中共的太空计划工作。
 
-除此之外，在同一个五角大楼计划(Pentagon program)下，克林顿政府还招募了**罗春元**(音译Chunyuan Luo )和**项春生**(音译Chunsheng Xiang)。罗春元原就职于北京军事医学科学院毒物药物研究所，后来加入沃尔特·里德陆军研究院(Walter Reed Army Institute of Research,)。这都是中共化学战计划的一个组成部分。在沃尔特·里德的十多年中，他主要研究了与化学战有关的问题，包括和位于马里兰州阿伯丁试验场的美国陆军化学防御医学研究所(US Army Medical Research Institute of Chemical Defense)的直接合作。他在2012年离开沃尔特·里德（Walter Reed），罗春元成为美国专利商标局的专利审查员，涵盖了他的化学药理毒理专业领域。
 
-还有，中共党员项春生申请来美国时谎称自己拥有加拿大国籍。尽管如此，他还是被分配到美国陆军传染病研究所(U.S. Army Medical Research Institute of Infectious Diseases)，他在那里研究了高致病性和潜在生物战剂埃博拉病毒(Ebola virus.)。项春生现在是浙江大学的教授，与中共和人民解放军的高层联系十分紧密。
+《纽约时报》5月22日报道，美国CDC正在调查一些青少年新冠疫苗接种者的心脏问题。
 
-正是在克林顿政府期间，中共和解放军科学家建立了中美之间的科学技术转移链，这导致了美国研究项目被大规模地渗透，这无疑为之后中共的生物战项目做出了直接的贡献。
+辉瑞去年12月底得到授权新冠疫苗可用于16岁和以上人群。FDA 这个月早些时候将这个授权扩展到12～15岁的儿童。CDC更强烈建议12岁以上的美国人使用新冠疫苗。
 
-译评:
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29091315/%E6%9C%AA%E5%91%BD%E5%90%8D%E7%9A%84%E8%AE%BE%E8%AE%A1-28-2.png)
 
-当美国开始面对大批的CCP解放军生化学者们，堂而皇之进去美国各大顶尖生物领域进行渗透、偷窃的事实，表示美国开始了重建的进程。尽管这些事实有多没不堪、多么匪夷所思，但这都表示美国开始审视哪里有漏洞、又有谁会钻这些漏洞，并且思考怎么开始怎么预防、怎么修补。美国在这次中共病毒事件上，因为内部利益集团与中共的勾结，造成美国惨痛的代价。目前因中共病毒而死亡人数(59.3万)已经超过美国第二次世界大战死亡人数(40.5万)。高涨的民意，以及更多证据的出台，让美国拜登总统已经发表声明，要求情报机关在90天内查明中共病毒起源，以毒灭共绝不是口号，以毒灭共绝对是世界让共产党倒下的致命打击。
+《纽约时报》说CDC的疫苗安全处报告少量接受过新冠疫苗接种的青少年可能罹患一种心脏疾病——心肌炎。这种心肌的炎症通常是在受到某种感染之后发生的。
 
-原文链接: [EXCLUSIVE: Clinton Administration Invited the Chinese Army into Sensitive U.S. Military Biodefense Centers](https://www.thegatewaypundit.com/2021/05/exclusive-clinton-administration-invited-chinese-army-sensitive-u-s-military-biodefense-centers/)
+虽然对报告的审查仍处初始阶段，但CDC已在其网站上发布指南，敦促医生和临床医生对刚接受疫苗注射后的年轻人的心脏异常情况保持警惕。纽约有传染病专科医生发现，该病主要发生于青少年。大约是他们注射了第二剂辉瑞和摩德纳的疫苗后四天，而且男性比女性更为普遍。
+
+虽然可能存在心肌炎副作用。《纽约时报》的这篇报道还是通过专家的口并引用各种数据鼓励打疫苗，强调由疫苗引起潜在的心肌炎等副作用的风险跟患新冠的潜在风险相比要小。
+
+《纽约时报》的这篇报道仅仅是短时间内众多报道新冠疫苗引起的可能副作用的其中之一。作为EUA试验产品的新冠疫苗，仅公开报道的副作用就几乎每天可见，更别说被掩盖不让报道的更为严重的情形了。相信民间有更多的关于新冠疫苗副作用的例子未被广泛报道或不能被公开报道。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29090126/11112.jpg)
+
+与疯狂推荐打疫苗形成强烈对比的是羟氯喹遭受到的疯狂抵制。在全世界各国政府和官方医疗机构和主流媒体不报道新冠疫情真相、打压有效的治疗方法时，全世界只有爆料革命新中国联邦唯一一个团体传播病毒真相，推广羟氯喹。
+
+羟氯喹，这个在世界上已经安全使用了70年，被世卫组织列在最安全药物名单上的廉价常用药物，早在一年多前新冠疫情爆发初期就最先由爆料革命路德社墨博士及夫人、闫丽梦博士最先提倡用于新冠疫情预防和治疗。
+
+目前已被大量第一线有良知的医生证明在预防新冠病毒和得病初期极为安全有效的廉价药羟氯喹仍然未被广泛向大众推荐应用。与此相反，匆匆开发出来副作用还未被彻底了解的试验性的各种新冠疫苗极速在全世界被推广，是对生命的极度不负责任。除了经济利益驱使是否还有更不可告人的目的?
+
+延伸阅读：
+
+https://www.google.com/amp/s/www.nytimes.com/2021/05/22/health/cdc-heart-teens-vaccination.amp.html
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
