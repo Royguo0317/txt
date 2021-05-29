@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】卡希尔博士呼吁停止疫苗接种，称mRNA疫苗危害超过病毒本身
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1279394/)
+## 【有声读物】理解神的信实
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1279534/)
 
-配音：香草山录音组 蒙古鸿雁
+配音：香草山福音部 Daxia
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,18 +14,19 @@
 
 
 
-2021年5月21日，《今日亚太》（Asia Pacific Today）采访了都柏林大学医学院分子遗传学教授、爱尔兰自由党主席——多洛雷斯-卡希尔（Dolores Cahill）博士。采访中卡希尔博士指出，mRNA疫苗对人类的危害极大且毫无用处，并强烈呼吁政府停止让民众接种疫苗。
+《罗马书》（2:19-23）“又深信自己是给瞎子领路的，是黑暗中人的光，是愚笨人的师傅，是小孩子的先生，在律法上有知识和真理的模范。你既是教导别人，还不教导自己吗？你讲说人不可偷窃，自己还偷窃吗？你说人不可奸淫，自己还奸淫吗？你厌恶偶像，自己还偷窃庙中之物吗？你指着律法夸口，自己到犯律法玷辱神吗？”
+
+一位爱主的弟兄曾说，“将《圣经》比作是一枚璀璨的钻戒，《罗马书》就是那颗耀眼的钻石！”比喻太贴切了，以上这几节经文直击人性中最虚假的一面。CCP就是这其中的写照：他们把自己比喻成大海，容纳百川，有了CCP才有美好的生命；他们把自己说成是东方的太阳，中国人过去都活在苦难的黑暗世界里；CCP称自己就是那老百姓的光，没了这光中国人就没法活了。
 
 
 
-**文字版原文：[【热点播报】卡希尔博士呼吁停止疫苗接种，称mRNA疫苗危害超过病毒本身](https://gnews.org/zh-hans/1276950/)**
+**文字版原文：[【信仰之声】理解神的信实](https://gnews.org/zh-hans/1090649/)**
 
-作者：纽约香草山翻译部  文雅621
+作者：纽约香草山福音部 Lilian89
 
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+音频处理/发稿：雪梨
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
