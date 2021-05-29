@@ -1,50 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1.6暴乱调查的提案被否决川普又躲过一劫
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1279080/)
+## 【热点播报】儿童健康保护组织呼吁FDA立即将COVID疫苗撤出市场
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1279207/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+香草山写作组 四季
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28170105/U-8.jpg)zawya.com
-巫婆佩洛西主导众议院通过的“成立1.6暴乱调查委员会”的提案（该提案有35名共和党众议员投了赞成票）【1】，刚刚（5月28日）遭到参议院的否决，投票结果为54:35，有6名共和党人投了赞成票。
 
-这项提案必须有60票的赞成方能在参议院通过，也就是说，在“民主党全党一致”条件下（50名民主党参议员都投赞成票），还需要10名共和党参议员投赞成票，今天共和党投赞成票的有6名，比上次弹劾川普总统的赞成投票少了1票。《福克斯新闻》称，“这标志着共和党少数派首次成功地进行了立法阻挠。”【2】
 
-该法案旨在建立一个类似9.11的调查委员会，以调查1.6国会大厦发生的暴乱，委员会由10人组成，该委员会有权传票进行调查，但在发出传票方面必须有两党同意。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
 
-今天6名投赞成票的共和党人是：【3】
-1、罗姆尼（Mitt Romney）
-2、苏珊·柯林斯（Susan Collins）
-3、比尔·卡西迪（Bill Cassidy）
-4、罗伯·波特曼（Rob Portman）
-5、丽莎·默科夫斯基（Lisa Murkowski）
-6、本·萨斯（Ben Sasse）
 
-9名没有参与投票的共和党人是：
-1、玛莎·布莱克本（Marsha Blackburn）
-2、罗伊·布朗特（Roy Blunt）
-3、迈克·布劳恩（Mike Braun）
-4、理查德·伯尔（Richard Burr）
-5、吉姆·英霍夫（Jim Inhofe）
-6、迈克·朗兹（Mike Rounds）
-7、詹姆斯·里施（James Risch）
-8、理查德·谢尔比（Richard Shelby）
-9、帕特·图密（Pat Toomey）
 
-当看到众议院有35个共和党议员“投靠”民主党时，的确为川普总统捏了一把汗，挺担心参议院再增加3名“叛徒”，一旦如此，共和党的重振计划将面临阻碍，2022年夺回众议院会增加难度，文贵先生期待的2022年选举战也会随之蒙上阴影，难怪前天文贵先生说，川普总统将涉险过关。
+自然新闻5月23日报道， “儿童健康保护”非盈利组织（CHD）向美国食品和药物管理局（FDA）提交了一份公民请愿书，要求该机构立即撤销COVID疫苗的紧急使用授权（EUA），并避免授予他们许可。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28182249/Screen-Shot-2021-05-28-at-6.21.29-PM.png)
+“百万人反对医疗命令”（MAMM）组织创始人莫琳-麦克唐纳（Maureen McDonnell）说：“在更多的死亡和伤害发生之前，是时候让FDA进行大幅度的程序修正了。”请愿书呼吁FDA立即修改其现有的对氯喹药物、伊维菌素等其他安全有效的防治COVID的药物的使用指南。
 
-感到欣慰的是，共和党减少了1名“叛徒”（由7人变成了6人），难能可贵地看到民主党出现了“异声”，50票变成了48票，虽然很弱，但毕竟是“有了”。或许人们从最近几天对中共病毒的态度上，觉察到了民主党主流所扮演的角色。
+“儿童健康保护”组织和“百万人反对医疗命令”（MAMM）组织要求FDA采取以下七项行动：
 
-邪共，必须追责；与邪共勾兑的，同样也要追责。这不关乎党派之争，是正邪之争，期待有正义感政治家的觉醒！
+1. FDA应该撤销所有的冠状病毒疫苗紧急使用授权（EUA），并避免针对未来涉及所有人类群体的任何COVID疫苗的紧急使用授权（EUA）、新药申请NDA或生物制品许可申请紧急授权（EUA）的批准。因为目前冠状病毒疫苗的严重不良事件或死亡的风险已经超过了对疾病的预防，而且现有的、已获FDA批准的药物可针对COVID提供有效的预防和治疗。紧急授权（EUA）失去意义。
 
-参考链接：
 
-【1】[https://gnews.org/zh-hans/1260026/](https://gnews.org/zh-hans/1260026/)
+- 鉴于儿童患严重COVID疾病的风险极低，FDA应立即避免让未成年人参加COVID疫苗试验，避免将紧急授权（EUA）修改为包括儿童，并立即撤销所有为16岁以下儿童接种辉瑞疫苗的紧急授权（EUA）和18岁以下儿童接种其他COVID疫苗的紧急授权（EUA）。
 
-【2】[https://www.foxnews.com/politics/senate-republicans-slam-brakes-bill-commission-capitol-riot](https://www.foxnews.com/politics/senate-republicans-slam-brakes-bill-commission-capitol-riot)
 
-【3】[https://www.cnn.com/politics/live-news/capitol-riot-senate-vote-05-28-21/index.html](https://www.cnn.com/politics/live-news/capitol-riot-senate-vote-05-28-21/index.html)
+- FDA应立即撤销孕妇接种紧急授权（EUA）或特许COVID疫苗的默许，并立即发布相关的公共指南。
+
+
+- FDA应立即修改其现的羟氯喹药物、伊维菌素和任何其他被证明对COVID安全有效的药物的使用指南，提供目前使用的安全剂量和有效性的科学证据，并立即向所有利益相关者发出有关此更改的通知。
+
+
+- FDA应向国防部长和总统发出指导意见，在紧急授下，不能仅根据《美国法典》第10章第1107(f)条或第1107a条，事先批准服役人员接种COVID疫苗。
+
+
+- FDA应以数字和书面形式向所有利益相关者发布指导意见，申明根据《美国法典》第21章第360bbb-3(e)(1)(a)(ii)(III)1条和《纽伦堡法典》的知情同意要求，所有公民都可以有权选择接受或拒绝研究性COVID疫苗，而且不接种疫苗不会造成对工作，教育或其他与健康无关的任何不良后果。
+
+
+- 在撤销COVID疫苗的紧急使用授权（EUA）之前，FDA应发布指导意见，所有COVID疫苗的营销和推广必须避免“安全和有效”的标签，因为这种说法违反了《美国法典》 第 21章第360bbb-3条。
+
+
+根据美国疾病控制和预防中心最新的疫苗不良反应报告系统数据，截至目前已经有192,954例不良反应报告。2020年12月14日至2021年5月7日，接种疫苗者中，已有4057例死亡。
+
+而这些数字与1976年流产的猪流感疫苗的数字形成鲜明对比，该猪流感疫苗在报告了大约30例死亡和400例吉兰-巴雷综合症后被立即停止。
+
+历史上，有一定数量的疫苗事故后，政府一般立即停止疫苗的使用。在面对如此高的疫苗事故的情况下，试验性冠状病毒疫苗还在全球范围内大规模的接种显然不合常理。不知道人类要为此付出怎样的代价。
+
+原文链接：
+
+[https://www.naturalnews.com/2021-05-23-federal-law-prohibits-mandates-of-emergency-use-covid-vaccines.html](https://www.naturalnews.com/2021-05-23-federal-law-prohibits-mandates-of-emergency-use-covid-vaccines.html)
+![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 0

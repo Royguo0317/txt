@@ -1,49 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉大学动物实验室是COVID-19大流行的起源吗？
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1279108/)
+## 2021/05/28-001 文贵先生盖特精华
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1279236/)
 
-翻译：康州盘古农场 – 柯镇恶
+听写： 万物归一 | 校对：樂禧禧 | Page：我是球大哥
 
-校对：康州盘古农场 – 格格巫
+[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/c8bc3a05-6686-49f9-aafc-60cb411b37f6.png?asset_id=11968ae3-9b23-466c-a922-2c0c9eaa2e63&amp;img_etag=%229139a6c7cfbf1d0b8cbc060e07b6f01a%22&amp;size=1024)](https://spark.adobe.com/page/k65OINDODog01/images/c8bc3a05-6686-49f9-aafc-60cb411b37f6.png?asset_id=11968ae3-9b23-466c-a922-2c0c9eaa2e63&amp;img_etag=%229139a6c7cfbf1d0b8cbc060e07b6f01a%22&amp;size=1024)
 
-编辑：康州盘古农场 – 格格巫
+**5月28号：尊敬的战友们好！为什么躺平币．在国内造成这么大的影响？在这里公开回复很多战友．要求加入关于．G系列的将获得新GTV股票奖励的一些细节！**
 
-发布：康州盘古农场 – 彩虹 Rainbow
+[G-TV链接](https://gtv.org/getter/60b11307ba7ef9088d026d4a)
 
-**据《门户新闻专家》作者：Joe Hoft 2021年5月25日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28173101/engli1.jpg)
-本文由劳伦斯·塞琳（Lawrence Sellin, Ph.D.）的供稿。
-COVID-19病毒是在中（共）国实验室制造的，并作为解放军生物战争计划的一部分。这是非常清楚的。剩下的问题是，病毒被释放的方式，以及这是偶然的事故，还是故意为之？
+[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/6d01426a-03f0-408d-97f2-59df7776210e.png?asset_id=4b96266c-a05a-4d21-af6e-a29509369215&amp;img_etag=%228cb419737d0ecdec388768bff73cafd4%22&amp;size=2560)](https://spark.adobe.com/page/k65OINDODog01/images/6d01426a-03f0-408d-97f2-59df7776210e.png?asset_id=4b96266c-a05a-4d21-af6e-a29509369215&amp;img_etag=%228cb419737d0ecdec388768bff73cafd4%22&amp;size=1024)
 
-有越来越多的证据表明，在2019年11月份发生了实验室事故。尽管还没有得到确认，但一直有人怀疑，解放军故意释放了COVID-19病毒。其中一种设想是，这发生在2019年10月18日-27日的武汉军运会上。
+• 以毒灭共进入了全球共同全面认知的状态，能不打疫苗就坚决不打，很多国家政府很快会宣布不打疫苗或不强迫打疫苗。
 
-在2021年5月发表在《门户新闻专家》（Gateway Pundit） 的文章中，我引用来自中（共）国内部的消息，指出：
-1． 一种完整成型或接近完整成形的COVID-19病毒，于2019年初从中国人民解放军东部战区司令部送到了武汉病毒研究所。
-2． 与广泛流传的叙述相反，COVID-19病毒被送到武汉病毒研究所是为了进行测试。
-3． 测试工作被指派给一组年轻的科学家。这组科学家的领导的名字是已知的，且该领导的科学背景与他/她（在测试工作中）的角色是相符的。
-4． 该测试是使用非人类的灵长类动物来进行的。
+• 躺平币的概念来源于打土豪分田地造成的后果。国人开始思考生活如何过上体面的生活，如何拥有自己的土地、房产、车辆，如何选择自己的政府，如何信仰自由。
 
-**在以上信息中，由两个重要的点是需要记住的：**
-第一， 解放军东部战区司令部（其总部位于南京）同时也是分离ZC45 和ZXC21 的单位。据中国吹哨人闫丽梦博士披露，这正是用来在实验室中制造COVID-19的骨架。
-第二， 使用非人类的灵长类动物进行的测试，可能是由武汉病毒研究所的科学家赵山（Chao Shan）领导的。但是，测试可能并不是在江夏地区的P4（生物安全等级4）实验室进行的，而是在武昌地区的武汉大学ABSL-3（动物生物安全等级3）动物实验室进行的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28172009/english2.jpg)
-即便是武汉病毒研究所的“蝙蝠女”石正丽也说，在病毒疫情爆发之前，江夏地区的P4设施，未进行过非人类的灵长类动物实验。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28171858/english-pag.jpg)
-此外，赵山（据推测的COVID-19非人类的灵长类动物实验的领导人）提供的他的专业地址，也并不是江夏地区的P4实验室，而是位于科技路的武汉病毒研究所的P3设施，那里离武汉大学ABSL-3实验室很近。
+• 躺平币，不仅未来要给躺平的人币，还要给中国很多阶层的人币，把更多的阶层、领域唤醒，希望未来把躺平币发展成向共产党讨债的工具，中共必须把这些年欺骗老百姓的钱还给中国人民，包括杀地主抢走的土地，这影响巨大，需要建立团队和大量的前期投资，绝对要最高端的人员，包括政治、经济、金融系统的。
 
-现在，出现了额外的证据（其中一些可以认为是“实锤”证据）支持这样一种观点：COVID-19可能是在进行致病性和传播性研究研究时，从武汉大学的ABSL-3动物实验室释放出来的，或许是那里的工作人员被感染了。据报告，李红良虽然于2020年5月6日被评为“万人计划”领军人才，但是他的武汉大学动物实验中心主任头衔和武汉大学ABSL-3实验室主任头衔却被突然取消了。“经调查，虽然没有发现造假，但是许多论文被发现滥用图片，这反映了其缺少严格的实验数据处理过程。”之后，武汉大学的ABSL-3实验室进行了一系列的安全检查，并且于2020年4月宣布了新的安全制度，尤其是在冠状病毒研究方面。
+• 喜币、喜Dollar的发展超出任何人的想象，市场开始交易的时候大家就明白了，要学会合法的使用自己的喜美元账号。
 
-武汉大学在2019年发生的其他异常事件也提供了间接证据。
-大多数的证据表明，COVID-19大流行可能起源于武汉大学的ABSL-3动物实验室。但这真就是大流行的罪魁祸首，仅是解放军更加邪恶的行动替罪羊？
+• 在GTV，GNews，GFashion，GClub，盖特等G系列所有工作过，够一定时间的，还有现在工作的战友，新GTV募股600亿，将给10亿GTV股的鼓励，以6月底之前工作的时间，不同的阶层，做出的业绩来评估。其中3到4亿股发给以前的工程师，剩下的发给未来3年到5年参与的工程师。有意向的请和熟悉的工程师和各农场联系。
 
-（本文作者认可 @ann95657173 和 @TorontoFarmEN 两位COVID-19侦探的贡献）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-原文链接：[https://www.thegatewaypundit.com/2021/05/wuhan-universitys-animal-laboratory-origin-covid-19-pandemic/](https://www.thegatewaypundit.com/2021/05/wuhan-universitys-animal-laboratory-origin-covid-19-pandemic/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+编辑：【英国伦敦喜庄园编辑部】
 
-0
+[!\[\]()!\[\](https://spark.adobe.com/page/k65OINDODog01/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/k65OINDODog01/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
++1

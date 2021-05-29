@@ -1,57 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇对病毒起源改口的真正原因是什么？
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1278964/)
+## 福克斯揭福奇2012年为功能增强研究辩护
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1279109/)
 
-**摘要：在2021年5月24日的两个盖特视频中，郭先生揭秘了美国国立卫生研究院 NIAID 主管安东尼·福奇（Anthony Fauci）对病毒起源改口的真正原因——因为“第二个闫丽梦博士”带着实锤证据在欧洲作证使他害怕了；同时“以毒灭共”在世界进展迅速，英国伊丽莎白女王、法国总参谋长和所有过去亲共的官员都站出来开始“说人话”了，印度和日本也已清楚认识到不干共产党，就会被共产党弄死，世界各个联盟纷纷开会决定一定不和中共站在一起。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28160014/Miles_2021-05-24-g1-g2-.srt.txt)
-**福奇对病毒起源改口的真正原因是什么？**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**What Does Fauci’s Compromise in Virus Origin Mean?**
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28172722/F-3-13.jpg)projects.croucher.org.hk
+早在2012年的论文中，老贼福奇就对中共病毒将给世界带来的危害很清楚，大有明知故犯的嫌疑！
 
-大家看到现在“以毒灭共”。英国伊丽莎白女王、法国总参谋长、法国的国家的所有过去亲共的、亲共产党腚的那帮王八蛋都站出来开始说人话了。
+《福克斯新闻》发表文章，“福奇说，从有争议的病原体实验中获得知识（的益处），‘超过’了可能出现疫情的风险”，文章副标题指出，福奇在2012年的一篇医学论文中为有争议的功能增强研究辩护。
 
-Everybody has seen the progress we have made to “take down the CCP with the truth of the virus.”  The British Queen Elizabeth, the French Chief of Staff of the army, and all the pro-CCP bastards in France who used to kiss the CCP’s ass in the past, have stepped up and started to talk like human beings.
+全文如下：
 
-福奇昨天的真正的妥协的原因，就是因为他知道我们有“第二个闫丽梦博士”在欧洲作证了，他才害怕了，才出来说话了。但是我告诉大家，闫丽梦博士的功力还没发出来呢。第二个闫丽梦博士这样神级的科学家还没开始[发力]呢。
+美国国家过敏和传染病研究所（NIAID）主任安东尼·福奇在2012年写道，致病性功能增强研究值得冒潜在疫情的风险。
 
-The real reason for Fauci’s compromise yesterday was because he knew that we had the “second Dr. Li-Meng Yan” testifying in Europe. So Fauci was scared and came out to speak. But let me tell you, Dr. Li-Meng Yan has not played all her cards yet. Another scientist who is at the same level as Dr. Yan hasn’t started showing cards yet.
+在2012年的一篇论文中，福奇为功能增强研究的争议性进行了辩护，称从这项科学中获得的“好处”大于意外爆发疫情的风险。
 
-还有，在中国的金融界会出来几十个科学家这样的人物来对付共产党。
+该论文写道：“疫情在自然界发生的可能性更大，而在这种威胁面前保持领先的必要性，是进行一项看似有风险的实验的主要原因。”
 
-Also, dozens of figures in China’s financial sector who are as important as these two scientists will come out to oppose the CCP.
+老贼写道，科学界需要“尊重人们对这类研究的真正和合理的关注”，例如一场疫情开始时，经验不足、资金不足的科学家受到感染，并传播正在研究的疾病。
 
-不但如此，印度已经清清楚楚的认识到它不跟共产党干，共产党就会弄死它。日本也清楚，不是妥协[就行的]。
+他还说：“我们科学界那些相信这项工作的优点的人，有责任深思熟虑和慎重地解决这些问题。”
 
-Not only that, India has clearly realized that if it does not fight the CCP, the CCP will destroy it. Japan also knows that compromising with the CCP is not going to work.
+老贼没有立即回应《福克斯新闻》的置评请求。
 
-仅仅昨天一个周末，在日本，在印度，在非洲的联盟——最最亲共被共产党完全控制的间谍渗透的联盟——非联盟，包括中东这几个中东的联盟和非联盟，包括东非，包括所谓的南南合作的组织，昨天下午都在福奇[声明]之后，所有的人紧急开了会。说：“[应该]怎么应对这个事件？大家都一定最终说是共产党病毒，我们该怎么办？我们是反对吗？”
+功能增强研究涉及到干扰病原体或有机体的遗传，以增加其传染性、致病特性以及病原体能感染的有机体。
 
-Yesterday, only one weekend, in Japan, India, the most pro-CCP unions that have been controlled and infiltrated by the CCP the most for ages, like the African Union, and the alliance in the middle east, East African Federation, including South-South cooperation, were all having respective emergency meetings after the “announcement” of Dr. Fauci yesterday afternoon. They were discussing how to react to this announcement. They said, “Everybody will say this is a CCP virus eventually. What should we do?  Should we go against it?”
+这项有争议的研究被用来领先于潜在的新疾病，开发新的治疗方法和疫苗，但如果不安全地操作，就有爆发的风险。
 
-就像法国参谋长一样，说：“我们要不就是站在未来中美之战的选边站。他们说[只有两个选择]，现在一个是真相，一个是跟共产党站在一起。”所有人最后的答案都是：坚决不跟共产党站在一起！
+周二（5月25日），老贼为武汉病毒研究所（WIV）和美国国家过敏和传染病研究所（NIAID）在研究蝙蝠传播冠状病毒方面的“适度”合作辩护，但否认这笔钱用于功能增强研究。
 
-Just like the Chief of the Defense Staff of France who said, “We have to choose a side as we are heading towards a reorganization of the world order that is re-structuring around the competition between the United States and China.”  They said: “there are only two choices, one is the truth, and the other is to stand with the CCP.” In the end, they all determined not to stand with the CCP!
+美国国家过敏和传染病研究所向一个名为生态健康联盟（Eco Health Alliance）的组织提供了60万美元，该组织又向武汉病毒研究所支付了研究蝙蝠冠状病毒感染人类的风险的费用。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源[1]: [https://gtv.org/getter/60aba2a8744cbc431363c46e](https://gtv.org/getter/60aba2a8744cbc431363c46e) (2:58-3:50)
-视频来源[2]: [https://gtv.org/getter/60aba4a9744cbc431363c4f4](https://gtv.org/getter/60aba4a9744cbc431363c4f4) (0:10-1:01)
-鸣谢：
-[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1269395/](https://gnews.org/zh-hans/1269395/)、 [https://gnews.org/zh-hans/1269402/](https://gnews.org/zh-hans/1269402/)
-[2] 感谢 YY、DD、Liberte 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于 [https://gnews.org/1271900/](https://gnews.org/1271900/)、[https://gnews.org/1271909/](https://gnews.org/1271909/)
+“如果我们不研究这个问题，我几乎是在玩忽职守，而你研究这些问题的唯一方法就是，你必须找到你研究的方向。”老贼说，他提到了21世纪初SARS的爆发，这被认为是来自蝙蝠。
 
-* * *
+（全文完）
 
-**字幕：【JennyL（纽约香草山农场）】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+无语了，看看老贼的逻辑，“如果我们不研究这个问题，我几乎是在玩忽职守，而你研究这些问题的唯一方法就是，你必须找到你研究的方向”，只要能为你提供研究，无论是谁，本·拉登？萨达姆？
 
-+2
+老贼不是不知道这类研究的风险，“研究的危害”出现了，疫情来了，你不如实交代，却替恶魔掩盖，一再误导民众！
+
+清算老贼的时候到了！
+
+原文链接：
+
+[https://www.foxnews.com/politics/fauci-pathogen-experiments-outweigh-risk-pandemic](https://www.foxnews.com/politics/fauci-pathogen-experiments-outweigh-risk-pandemic)
+
+0

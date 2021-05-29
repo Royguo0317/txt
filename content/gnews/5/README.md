@@ -1,46 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月28日郴州白露塘市场五名学生被砍据传一名死亡
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1279553/)
+## 香港公务员到内地挂职，是对香港更彻底的侵占
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1279625/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28202012/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-13.png)
-据[吴文行\[email protected\]](https://twitter.com/wuwenhang)于[下午7:34 · 2021年5月28日](https://twitter.com/wuwenhang/status/1398241172729049091)·[Twitter for Android](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28212317/18-20.jpg)
+据报道，香港即将与广东签署协议，香港公务员将分批到粤港澳大湾区内的内地城市“挂职”。未来也有望制定规范，要求公务员必须在3年试用期修完内地培训课程才可获长期聘用。消息一出，引发舆论关注。
 
-突发！郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡 。这是监控录像！
+虽然早在2002年，香港就先后与北京、上海、广东等地举办“内地与香港特区公务员交流计划”但当时并没有与“长期聘用”产生直接的挂钩，因此很少人关注此计划。但本次的协议中，适用的范围是所有香港公务员，并且将“修完内地培训课程”作为长期聘用的硬性条件，其背后的政治深意，也必将对香港公务员系统产生深远影响。
 
+此前，针对公务员以及非公务员，都要求宣誓或签署声明拥护基本法、效忠特别行政区，要坚决表态爱国立场。这一举措的背后太有中共的色彩，他们认为只要你宣誓或签名，就成为未来清算你的合理依据。
 
+而且这个计划是要求香港公务员到内地参加培训和挂职，就是企图用中共擅长的洗脑和环境浸润，来改变从小被西方价值观塑造的公务员群体，美其名曰“挂职内地将有助于香港公务员深入认知国情，感受内地基层运转的体制机制，增加对国家发展进步的直观认识，激发对祖国的向心力和自豪感“，实则用中共的方式统一那些可为之所用的人，至于挂职后仍然不能履行效忠职责的群体，自然可以用其他任何方式，清理出其队伍。
 
-> 突发！郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡 。这是监控录像！ [pic.twitter.com/9maIYY1ucK](https://t.co/9maIYY1ucK)
-> — 吴文行wenxingwu (@wuwenhang) [May 28, 2021](https://twitter.com/wuwenhang/status/1398241172729049091?ref_src=twsrc%5Etfw)
+其次，报道指出，香港公务员的大部分在大学毕业后考入公职，很少调整岗位，往往在一个岗位工作到退休。这种做法，中共抨击为虽有专业性，但缺乏大局观，所谓大局观，而中共用人讲究“五湖四海皆准”，我们经常看到中共官员的履职经历往往五花八门，专业跳跃没有连贯性更看不出逻辑，只是党需要你去哪里，你就只能去哪里，因此往往“外行领导内行”，发生事故以及意外的情况，也是必然。
 
+中共对香港公务员的定义就是帮助港府落实中共政策，不能有任何政治偏见或异议，只有做到绝对服从，才能将中共对香港的各项政策落到实处，以免节外生枝。对中共来说，像墙内一样只有一个声音，只有一种论调，才是他们侵占香港想要达到的最终目的。
 
+（本文只代表作者观点，与Gnews平台无关。）
 
-另据[野山@naochashu](https://twitter.com/naochashu)于[下午4:20 · 2021年5月28日](https://twitter.com/naochashu/status/1398192435134533635)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+**新闻来源：**
 
-突发，郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡……
+[香港公务员到内地挂职学什么？经济日报：释放更强烈融合信号\_港台来信\_澎湃新闻-The Paper](https://www.thepaper.cn/newsDetail_forward_12895163)
 
-
-
-> 突发，郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡…… [pic.twitter.com/gfNKNHu28u](https://t.co/gfNKNHu28u)
-> — 野山🎗 (@naochashu) [May 28, 2021](https://twitter.com/naochashu/status/1398192435134533635?ref_src=twsrc%5Etfw)
-
-
-
-另据[\[email protected\]](https://twitter.com/LiuLiu92266749)于[上午5:29 · 2021年5月29日](https://twitter.com/LiuLiu92266749/status/1398391015719931905)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
-
-地獄般的存在：湖南郴州白露塘市場一男子砍傷五名學生，一名學生當場死亡。
-
-
-
-> 地獄般的存在：湖南郴州白露塘市場一男子砍傷五名學生，一名學生當場死亡。 [pic.twitter.com/y0Es9ozBgP](https://t.co/y0Es9ozBgP)
-> — Leo😷 (@LiuLiu92266749) [May 28, 2021](https://twitter.com/LiuLiu92266749/status/1398391015719931905?ref_src=twsrc%5Etfw)
-
-
-
-眼睁睁看着活生生的孩子毙命刀下我们却无能为力，在这个地狱般国度里，要么麻木地活着，要么痛苦地活着，要么精神病一样的活着，而精神病一样活着的人在对弱者施暴时绝不心慈手软，而可悲的是这样的精神病总是层出不穷。
-
-（文章内容仅代表作者个人观点）
+***校对发布**：文顾*
 
 0

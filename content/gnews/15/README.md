@@ -1,44 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】卡希尔博士呼吁停止疫苗接种，称mRNA疫苗危害超过病毒本身
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1279394/)
+## 众议院两委员会议员宣布调查武汉病毒研究所资金用途
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1279431/)
 
-配音：香草山录音组 蒙古鸿雁
+加拿大多伦多枫叶农场 路仁
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28201152/111827272_hi060961146.jpg)图片来源：bbc.com
+众议院监督和改革委员会和众议院司法委员会的主要排名成员周五宣布，他们将调查武汉病毒研究所如何使用纳税人资金。 美国国立卫生研究院（NIH）在 2019 年授予了武汉病毒研究所（WHI）资金。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+这项调查发起人为共和党议员科默（James Comer (R-KY)） 和 乔丹（Jim Jordan (R-OH) ）。他们的调查范围包括美国国立卫生院 （NIH） 和生态健康联盟（EcoHealth Alliance），后者获得了资金并随后将其授予了武汉病毒研究所（WVI）。与此同时，在 2020 年夏天，美国国立卫生院（NIH）写了一封信给生态健康联盟，因为人们越来越担心与武汉病毒研究所 WVI 的关系。结果，美国国立卫生研究院暂停了拨款。但是，WVI 已经收到了 600,000 美元。
 
+**“越来越多的证据表明，COVID-19 大流行始于武汉病毒研究所，而中国共产党对其进行了掩盖。如果美国纳税人的钱被用于开发 COVID-19、进行功能研究或协助任何形式的掩盖，生态健康联盟必须承担责任”** 乔丹和科默在周五的宣布信中写道。
 
+信中还提到：**“资助接受者有责任确保他们的工作在资助范围内进行，促进我们的国家利益，并保护我们的国家安全。了解美国纳税人的资金是否与夺走近 60 万美国人生命的大流行病有关，这一点至关重要，这样我们才能防止未来发生类似的灾难。”**
 
+在调查中，议员们要求提供涉事三方所有的所有通信记录，以明确武汉病毒研究所WVI 是如何花钱的。他们还要求在 6 月 4 日之前进行简报。
 
+[原文链接](https://saraacarter.com/gop-lawmakers-launch-probe-into-us-funding-of-wuhan-lab/):
 
-
-
-2021年5月21日，《今日亚太》（Asia Pacific Today）采访了都柏林大学医学院分子遗传学教授、爱尔兰自由党主席——多洛雷斯-卡希尔（Dolores Cahill）博士。采访中卡希尔博士指出，mRNA疫苗对人类的危害极大且毫无用处，并强烈呼吁政府停止让民众接种疫苗。
-
-
-
-**文字版原文：[【热点播报】卡希尔博士呼吁停止疫苗接种，称mRNA疫苗危害超过病毒本身](https://gnews.org/zh-hans/1276950/)**
-
-作者：纽约香草山翻译部  文雅621
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*编辑、发稿*ctt
 
 0

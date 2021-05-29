@@ -1,53 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】美国霍普金斯大学教授：忽视自然免疫是当前医学领导力的最大失败
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1279157/)
+## 为应对中共威胁，美国希望在澳大利亚北部投放兵力
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1279205/)
 
-香草山写作组 四季
+翻译：康州盘古农场 – 柯镇恶
 
+校对：康州盘古农场 – 格格巫
 
+编辑：康州盘古农场 – 格格巫
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**
+据《大纪元时报》作者：CADEN PEARSON 2021年5月26日报道：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28182844/airp3jpg-1.jpg)
+美国澳大利亚代理大使迈克•高德曼（Mike Goldman）告诉新闻集团《澳大利亚人》（The Australian），在北京日益严峻的战略威胁下，美国希望将军事武器投放到澳大利亚北部以部署兵力。高德曼表示，鉴于美国的基地（如关岛）在中（共）国导弹可及范围之内，在澳大利亚预先部署美国战备物质 “是合理的”，而且这会提供战略优势。他还希望看到澳大利亚能制造陆地精确制导武器，这是澳大利亚和美国之间更为“创新的国防伙伴关系”的一部分。他在采访中谈到紧张的台海关系等问题时说到：“其中行动都很直观，特别是当我们谈论如何在任何突发事件中投入武力时。”
 
+澳大利亚总理斯科特·莫里森（Scott Morrison）认为，建立主权制导武器能力是政府的优先任务，这是国防部的“部队结构计划”中首次提出的想法。他还支持一项计划，斥资10亿澳元（7.8亿美元）来推动建立主权制导武器企业。3月31日，澳国防部宣布将选择战略工业合作伙伴，代表政府运营主权制导武器的制造。莫里森说：“在澳大利亚的土地上建立我们自己的主权势力对于确保澳大利亚人的安全至关重要，同时还可以在整个国防供应链中为企业提供数千个本地就业机会。”新企业将支持导弹和制导武器的制造，供整个澳大利亚国防军使用。
 
-INFOWARS网站5月26报道了约翰-霍普金斯大学教授马蒂-马卡里博士的观点。马卡里教授表示，人们普遍否定了一半以上的美国人已经对冠状病毒产生了自然免疫力这一事实，这构成了“我们目前医学领导力的最大失败之一”。
+美国大使说：“我们现在处在一个新的地缘战略背景下，需要一套不同的平台和不同的部队态势。”“这些事情不是一时的，但我们的军队和战略思想家正在就如何最好地共同应对这些新挑战进行讨论。因此，我认为我们将看到新的、创新的方式来加强我们的合作伙伴关系。”高德曼表示，双边部队态势审查工作组于已5月份举行了首次会议，来讨论“各种突发事件”。该小组是在去年AUSMIN会谈之后成立的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28182413/air12.jpg)
+美国已经采取行动加强其在澳大利亚北部的防御能力。2020年5月，美国海军太平洋设施司令部与澳大利亚公司Cockram签订了一份价值超过1280万澳元（1000万美元）的合同，以在北领地达尔文东南部的RAAF Base Tinda，建造一个地下弹药库（earth-covered magazine）设施。国防部在线表示，该项目将建造两个地下弹药库，一个生产区域，其中将包括一个弹药组装输送机掩体，以支持澳大利亚和美国的军事联合训练活动。美国大使还表示，当前与中（共）国在台湾问题上的紧张关系不会动摇，“牢不可破”的太平洋共同防卫组织（Australia，New Zealand and the United States，ANZUS）联盟，到今年9月该联盟已成立70周年。高德曼表示该联盟“比任何一个意外事件都要强大和全面。”“我们不会指挥每个国家的自身利益。在台湾问题上，每个国家都必须做出自己的决定，”他说。
 
-当前，大量的媒体宣传自然免疫力是不够的，那些不选择接种疫苗的人应该受到社会的排斥。世界卫生组织甚至改变了“群体免疫”的定义，取消了COVID之前的科学共识，即通过允许病毒在人群中传播来实现群体免疫，并坚持认为群体免疫只能来自疫苗。
+据报道，他指出与中（共）国建立关系的艰难和复杂性，因为像美国这样的西方国家正在寻求与共产主义政权合作以减少碳排放。他说，这比冷战时期与俄罗斯的关系更具挑战性。
 
-面对这种情况，马卡里教授指出，一半的美国人已具有天然免疫力，“自然免疫是有效的”，诋毁那些不想接种疫苗的人是错误的，因为他们已经从病毒中恢复了。 他认为，“我们得开始尊重那些选择不接种疫苗的人，而不是把他们妖魔化”。
+原文链接：[https://www.theepochtimes.com/us-looks-to-store-weapons-in-northern-australia-amid-china-threat\_3831003.html](https://www.theepochtimes.com/us-looks-to-store-weapons-in-northern-australia-amid-china-threat_3831003.html)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-马卡里教授对美国疾病控制和预防中心（CDC）提出批评，认为它是“美国历史上最迟钝、最保守、最政治化的”。因为与疫苗开发的免疫相比，CDC没有清楚地传达有关自然免疫的科学事实。他强调说：“关于自然免疫的数据比关于疫苗免疫的数据更多，因为自然免疫的历史更长”。
-
-同样，身为眼科医生的参议员兰德-保罗最近告诉WABC 770 AM电台，保罗表示他没有看到证据证明疫苗比在CCP（中共）病毒中幸存下来的人更有效，因而他不会接种COVID-19疫苗。保罗是第一个宣布他不会接种疫苗的参议员。
-
-他说，“在他们向我展示已经感染的人出现大量死亡，或被送进医院，或病得很重的证据之前，我只是做了我个人的决定，我不会接种疫苗，因为我已经得过这种病，我已经有自然免疫力”。他指出，“在自由的国家，人们应该尊重每个人，每个人都可以做出自己的决定。来自各种机构的施压，强制接种疫苗是对个人自由的蔑视。
-
-而美国疾病控制和预防中心（CDC）则建议已经得过病毒并康复的人接种疫苗，声称卫生官员不知道自然免疫力能持续多久。CDC在其网站上说：“即使你已经从COVID-19中恢复过来，你也有可能，尽管很罕见，再次感染引起COVID-19的病毒”。
-
-美国疫苗不良反应报告系统（VAERS）和欧盟药物警戒系統 (EudraVigilance) 都已经报告了成千上万的疫苗伤害和死亡病例。人们已熟知的科学和医学应得到尊重和遵循。
-
-原文链接：
-
-[https://www.infowars.com/posts/johns-hopkins-prof-half-of-americans-have-natural-immunity-dismissing-it-is-biggest-failure-of-medical-leadership/](https://www.infowars.com/posts/johns-hopkins-prof-half-of-americans-have-natural-immunity-dismissing-it-is-biggest-failure-of-medical-leadership/)
-
-[https://www.zerohedge.com/covid-19/rand-paul-first-senator-announce-he-wont-get-covid-19-vaccine](https://www.zerohedge.com/covid-19/rand-paul-first-senator-announce-he-wont-get-covid-19-vaccine)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
