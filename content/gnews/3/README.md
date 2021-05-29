@@ -1,65 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美军在亚洲紧张水域的部署
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1280111/)
+## 2021年5月28日 文贵先生盖特 5
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1280299/)
 
-作者：香草山福音组 繁星
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+让⋅鲁比医生：数据证实mRNA疫苗会导致青少年高概率的轻度心肌炎，因此食品和药物管理局以及疾病预防控制中心为12至17岁青少年注射（中共病毒）疫苗的计划十分危险，应当被终止 Dr. Jean Ruby: Statistics proves mRNA vaccines cause a high rate of mild carditis especially to teens, thus FDA and CDC program to vaccinate children of 12 to 17 is very dangerous and should be terminated
 
+[【2021年5月28日】文贵先生盖特原文](https://gtv.org/getter/60b1a4fcba7ef9088d02d694)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29031745/%E5%9B%BE%E7%89%8762.png)图片来源：网络
-随着在亚洲水域与中国的局势日渐紧张，美国海军司令官们在未来几周内将面临亚洲海上力量的潜在短缺。
+**喜联盟Gnews编辑部**
 
-据两名不愿透露姓名的美国官员说，总部位于日本的罗纳德·里根号航空母舰预计将在未来几天内前往中东，以协助美军从阿富汗撤军。
-
-但分析人士说，此举可能会在北京提高南中国海和台湾的紧张之际，使美国在东亚的航母覆盖率出现不足的情况 。
-
-美国太平洋司令部联合情报中心前首席长官卡尔·舒斯特尔说，尽管在亚洲航母部署处于短缺状态，但美国还有其他资源可以利用。
-
-舒斯特尔说，总部设在日本的美国水陆两栖攻击舰载有F-35战斗机，并可能在亚洲水域临时部署。
-
-他说，还有其他展示力量的方法。
-
-舒斯特尔说：“我怀疑，在里根号不在时，空军将向南中国海派遣轰炸机。它不会拥有与航母相同的身份，但会发出相同的政治信号。”
-
-里根号不在东亚海域的同时，也可能是英国最大军舰HMS伊丽莎白女王号率领的英国皇家海军航母打击群对该水域的一次无意安排的访问。
-
-这艘英国航母载有美国海军陆战队的F-35战斗机以及同一型号的英式喷气式战斗机，上周末和在英国的一支舰队一起离开了英格兰，其中包括一艘美国制导导弹驱逐舰。 预计它们将在夏末的某个时候穿越南中国海，前往日本。
-
-“考虑到整个（英国）航母打击群里增加了美国和荷兰的军事设备和人员，这将是一个有用的利器，可以在没有（美国）航母部署的情况下发出美国在该地区和盟友紧密联盟的信号。” 一位新加坡的研究员科林说。
-
-里根号最近离开日本本土，在海上进行了船员资格考试。 美国前海军军官舒加特说，如果里根号在部署到中东后完成任务尽快返回亚洲水域，那将是有帮助的。
-
-“ 随着美军完成从阿富汗撤军，希望这种部署将在一定的时间内开始。一旦完成部署，罗纳德·里根号航母打击群可以将重点重新转向近年来一直在进行的与中国海军和空中力量的较量。”舒加特说。
-
-五角大楼发言人约翰·柯比（John Kirby）周三表示，将不会提供有关任何计划部署的信息。
-
-他说：“我们没有谈论潜在的未来行动。我们当然没有事先谈论潜在的舰船调动。”
-
-参考阅读：
-
-https://www.cnn.com/2021/05/27/asia/us-navy-aircraft-carriers-afghanistan-pacific-intl-hnk/index.html
-
-
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191415/M5-2.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0
