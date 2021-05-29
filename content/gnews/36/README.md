@@ -1,45 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月28日美国政要推文精选：209位共和党人联名要求众议院佩罗西议长同意调查武毒所
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1279604/)
+## 以色列担心美军从叙利亚撤军时中共扩大在海湾和中东势力
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1279621/)
 
-众议员埃莉斯·斯蒂芬尼克： 我与众议员史蒂夫·斯卡利丝[@SteveScalise](https://twitter.com/SteveScalise) 、众议院共和党领袖凯文·麦卡锡[@GOPLeader](https://twitter.com/GOPLeader)以及我们的200多名共和党同事，一起要求议长佩洛西调查 [#新冠病毒](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92?src=hashtag_click) COVID-19的起源和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的掩盖 为什么民主党人不加入我们来揭露真相呢？！
+翻译 ：康州盘古农场 –格格巫
 
+校对：康州盘古农场 –Mike Li
 
+编辑： 康州盘古农场 –明子
 
-> I joined [@SteveScalise](https://twitter.com/SteveScalise?ref_src=twsrc%5Etfw) [@GOPLeader](https://twitter.com/GOPLeader?ref_src=twsrc%5Etfw) and 200+ of our Republican colleagues in demanding [@SpeakerPelosi](https://twitter.com/SpeakerPelosi?ref_src=twsrc%5Etfw) investigate the origins of COVID-19 and the Chinese Communist Party coverup
-> 
-> Why won’t Democrats join us in uncovering the TRUTH?! [https://t.co/MmWy7yVNih](https://t.co/MmWy7yVNih)
-> — Rep. Elise Stefanik (@RepStefanik) [May 28, 2021](https://twitter.com/RepStefanik/status/1398342896454193154?ref_src=twsrc%5Etfw)
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**据《breakingdefense》作者：ARIE EGOZI，2021年5月24日报道：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28210830/ppele5.png)
+北京一段时间以来一直在叙利亚发挥作用。在政治上它与俄罗斯结盟，努力在联合国保护巴沙尔·阿萨德（Bashar al-Assad）政权对抗西方影响。北京表示愿意参加该国的内战后重建并提供少量的人道主义援助。一位以色列消息人士断言，北京的行动至少有部分掩盖了其在中东范围更大的野心。一位消息人士说：“显然，（北京）主要目标是在叙利亚建立军事据点。”“美国知道中共国的计划，但到目前为止，它还没有采取任何行动来制止它。”
 
+中央司令部负责人肯尼斯·麦肯齐将军在访问海湾国家时告诉记者，“中东举足轻重，是大国之间激烈竞争的区域。我认为，随着我们调整该地区的态势，俄罗斯和中共国将密切关注这里，看看他们是否可以利用这一真空。”半岛电视台今天报道。麦肯齐指出，武器销售是莫斯科和北京都可以用来扩大其在叙利亚和更广泛地区影响力的杠杆。（例如，莫斯科和北京都向伊拉克提供了武器。）他指出，俄罗斯有向所有人提供防空系统和其他武器的历史。中共国的长期目标是扩大经济实力，并最终在该地区建立军事基地。
 
-众议员李·泽尔丁: 国会中的自由派、媒体和大型科技公司接受了 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 关于 COVID 起源的谎言，并污辱持不同意见者为种族主义者的。众议院民主党必须与我们一起努力调查武汉发生的事情，追究 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的责任，让美国人得到他们应得的答案。 【转众议员史蒂夫·斯卡利斯推文：209位共和党人联名要求众议院佩罗西议长同意调查武毒所】
+但是，中共国在叙利亚的意图问题是专家们之间激烈辩论的主题。例如，总部位于土耳其的叙利亚研究组织“运营与政策中心”（Operation＆Policy Cen-ter）最近的一份报告称，北京不太可能涉足叙利亚太深，因为该国的动荡只会不断加剧。虽然萨米·阿萨德政权将阿萨德政权视为抵抗伊斯兰恐怖分子增长的稳定点，但萨米·阿基尔（Samy Akil）和卡拉姆·沙尔（Karam Shaar）在《茉莉花之乡的红龙》中认为，将日元注入到一个已经分崩离析的国家中，几乎没有任何经济利益。
 
+五角大楼首席检查员在5月8日向国会提交的一份报告中说，关于俄罗斯，美国国防情报局认为俄罗斯正在针对在叙利亚的美国和西方部队进行骚扰运动，其最终目标是将美国赶出叙利亚。以色列国防对消息来源感到遗憾，俄罗斯人“行动缓慢，但有计划”。
 
+IG的季度报告称，莫斯科在今年上半年增加了其在叙利亚的军事人员数量。上周，俄罗斯军队在叙利亚东北部阻挡了一个美军车队，他们声称这违反了现行的冲突安排。据IG报告称，俄罗斯本身经常例行违反这些安排，尽管通常没有威胁到西方军队。
 
-> Liberals in Congress, the press & big tech accepted the Chinese Communist Party’s lies about COVID's origin & shamed dissenting views as racist. House Dems must join our efforts to investigate what happened in Wuhan, hold the CCP accountable & get Americans answers they deserve. [https://t.co/XRWWvshtSi](https://t.co/XRWWvshtSi)
-> — Lee Zeldin (@RepLeeZeldin) [May 28, 2021](https://twitter.com/RepLeeZeldin/status/1398300812686790658?ref_src=twsrc%5Etfw)
+据《莫斯科时报》报道，俄罗斯国防部叙利亚和解中心发言人说，六辆美国MRAP型装甲车“在未经协调的路线上行驶，没有事先通知”。
 
+五角大楼拒绝就这场冲突发表评论，女发言人杰西卡·麦克努尔蒂（Jessica McNulty）告诉俄罗斯国营媒体，国防部“没有任何可以披露的信息”。
 
+根据以色列消息人士的说法，美国多年来一直在叙利亚保持低调的军事存在，这是基于一个假设，即伊斯兰国在叙利亚的违背美国利益的能力非常有限。以色列专家说，这种假设是错误的，事实是，伊斯兰国继续在叙利亚开展活动，并计划对西方目标发动恐怖袭击。
 
-参议员玛莎·布莱克本： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 隐瞒了有关 COVID-19 的信息长达 51 天。这是不可接受的，这是错误的，至关重要的是他们要面临后果。受到影响的美国人应该完全有权起诉中共国。
+以色列在中东问题上的领先专家之一Mordechai Keidar告诉Breaking De-fence，美国人避免谈论他们在叙利亚的军事力量，因为它“负有保护美国在叙利亚的一些情报资产的任务”。
 
+他补充说，俄罗斯人认为自己是“叙利亚的主人”，根本不想在该国存在任何美军。
 
+“驻叙利亚的美军可能还有另一个任务，前总统川普想破坏伊朗建立从他们的国家到地中海的通道的计划。我不知道这是否在今天的美国任务清单中，但这可能是美国存在的另一个原因。”
 
-> For 51 days the Chinese Communist Party hid information about COVID-19. It’s unacceptable, it’s wrong, and it’s critical they face consequences. Americans impacted should have every right to sue China.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 28, 2021](https://twitter.com/MarshaBlackburn/status/1398375584045150220?ref_src=twsrc%5Etfw)
+“总统巴沙尔·阿萨德的两个主要支持者，伊朗和俄罗斯，已经在争夺影响力和战利品。”根据华盛顿邮报报道。
 
+此外，最近有报道称，伊朗民兵已开始采取一种新方法来保护其军事武库、导弹和非法药物供应（其主要收入来源）不受以色列或其他国家的任何空袭的影响。
 
+阿拉比亚电视台报道说：“伊朗军队及其下属的民兵已经开始使用伪装成蔬菜和水果运输工具的卡车，将大量武器转移到位于Deir a-Zor地区的al-Mayadin考古遗址附近的新仓库，并将它们存储在运河和溷凝土房中。”
 
-参议员汤姆·科顿： 福奇(Fauci)有很多问题需要回答。 他需要停止玩文字游戏。 【转[http://theAustralia.com.au](https://t.co/SoCmGSvZG3?amp=1) 文章：尽管有(病毒)大流行的风险，福奇还是支持了病毒试验】
+该报告指出，伊朗依靠向叙利亚提供武器的伊拉克哈沙德民兵。他们的交付过程通常是在边界（叙利亚-伊拉克）进行，或者是通过哈萨德民兵与接收民兵在边界附近伊拉克领土内的一些地点举行的会议进行的。
 
+原文链接：
+[https://breakingdefense.com/2021/05/israelis-worry-beijing-will-increase-syrian-presence/](https://breakingdefense.com/2021/05/israelis-worry-beijing-will-increase-syrian-presence/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-
-> Fauci has a lot of questions to answer. And he needs to stop playing word games. [https://t.co/snFXlcpjKP](https://t.co/snFXlcpjKP)
-> — Tom Cotton (@SenTomCotton) [May 28, 2021](https://twitter.com/SenTomCotton/status/1398341762930860032?ref_src=twsrc%5Etfw)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

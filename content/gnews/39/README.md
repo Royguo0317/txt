@@ -1,37 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 继政法系统大清理之后，枪口又对准了新的目标
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1279587/)
+## 5月28日美国政要推文精选：209位共和党人联名要求众议院佩罗西议长同意调查武毒所
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1279604/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28205408/17-27.jpg)
-根据路透北京5月28日报道，中国证监会发行部副主任李维友周五表示，证监会发布IPO（首次公开发行）项目“特殊身份股东”核查细则，将于6月1日正式实施。
+众议员埃莉斯·斯蒂芬尼克： 我与众议员史蒂夫·斯卡利丝[@SteveScalise](https://twitter.com/SteveScalise) 、众议院共和党领袖凯文·麦卡锡[@GOPLeader](https://twitter.com/GOPLeader)以及我们的200多名共和党同事，一起要求议长佩洛西调查 [#新冠病毒](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92?src=hashtag_click) COVID-19的起源和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的掩盖 为什么民主党人不加入我们来揭露真相呢？！
 
-相信此指引一出，又有多少离任官员要瑟瑟发抖了。但其背后的本质真的是为了保证“廉洁公义”吗？恐怕还是披着这层外衣进行新一轮“打土豪分田地”罢了。
 
-指引主要包括三方面内容。
 
-一是明确不当入股情形，证监会系统离职人员利用原职务影响，存在利益输送、不适格股东入股、违规资金入股的属于不当入股。
+> I joined [@SteveScalise](https://twitter.com/SteveScalise?ref_src=twsrc%5Etfw) [@GOPLeader](https://twitter.com/GOPLeader?ref_src=twsrc%5Etfw) and 200+ of our Republican colleagues in demanding [@SpeakerPelosi](https://twitter.com/SpeakerPelosi?ref_src=twsrc%5Etfw) investigate the origins of COVID-19 and the Chinese Communist Party coverup
+> 
+> Why won’t Democrats join us in uncovering the TRUTH?! [https://t.co/MmWy7yVNih](https://t.co/MmWy7yVNih)
+> — Rep. Elise Stefanik (@RepStefanik) [May 28, 2021](https://twitter.com/RepStefanik/status/1398342896454193154?ref_src=twsrc%5Etfw)
 
-二是核查责任，是否存在离职人员入股情形，属于不当入股的要予以清理，要进行专项说明；三是强化审核监督，建立独立复核制度，发现违法违纪，移交有关部门处理。
 
-文章特别指出，近年来不少证监系统监管干部在离职后会自己创办私募投资机构，利用手中积累的人脉资本从事各种直接或间接的股权投资，多起关于证监系统前官员或前发审委员“突击入股”拟IPO项目的新闻也引发了舆论的热议。
 
-从最后的这段，我们看到此次打击的范围是“证监系统离任的监管干部”，而定罪的依据是“是否直接或者间接参与拟IPO项目的股权投资”，至于如何界定是否“利用手中的人脉资本”也就成了纪委监察委手上最大的王炸，也就是“他们说你有，你就有”。
+众议员李·泽尔丁: 国会中的自由派、媒体和大型科技公司接受了 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 关于 COVID 起源的谎言，并污辱持不同意见者为种族主义者的。众议院民主党必须与我们一起努力调查武汉发生的事情，追究 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的责任，让美国人得到他们应得的答案。 【转众议员史蒂夫·斯卡利斯推文：209位共和党人联名要求众议院佩罗西议长同意调查武毒所】
 
-指引第二段中，“发现违法违纪，移交有关部门处理”几个字，才是这次核查的本质。**继政法系统大清理之后，金融系统的清查也自然不会被放过，这是“钱袋子”的问题，在中共腰包越来越空的今天，怎么用看似公正的理由对没有还手能力的阶层进行定向打击，恐怕是他们一直处心积虑反复研究的事情**。终于，参股未上市公司股权，待上市后获取巨额收益的这个群体，成为了此次被瞄准的对象。
 
-这个指引中最大的逻辑漏洞是，既然打击范围是离职官员，那他们离职后创办企业，从时间界定来看，这部分收入是否属于合法的收入，如果连离职后的收入也被归为非法的话，那么很不幸，所有体制的官员，唯一的出路就是终身为党卖命，而且也不能保证是否会被卷入其他的政治斗争之中。
 
-中共绞肉机已经开足马力了，无论你是正在为中共效忠，还是曾经效忠过，都无法逃脱被碾压的命运。
+> Liberals in Congress, the press & big tech accepted the Chinese Communist Party’s lies about COVID's origin & shamed dissenting views as racist. House Dems must join our efforts to investigate what happened in Wuhan, hold the CCP accountable & get Americans answers they deserve. [https://t.co/XRWWvshtSi](https://t.co/XRWWvshtSi)
+> — Lee Zeldin (@RepLeeZeldin) [May 28, 2021](https://twitter.com/RepLeeZeldin/status/1398300812686790658?ref_src=twsrc%5Etfw)
 
-（本文只代表作者观点，与Gnews平台无关。）
 
-**新闻来源：**
 
-[中国证监会发布IPO项目“特殊身份股东”核查细则 将于6月1日正式实施 | 路透 (reuters.com)](https://cn.reuters.com/article/china-csrc-new-ipo-rule-0528-idCNKCS2D90UP?il=0)
+参议员玛莎·布莱克本： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 隐瞒了有关 COVID-19 的信息长达 51 天。这是不可接受的，这是错误的，至关重要的是他们要面临后果。受到影响的美国人应该完全有权起诉中共国。
 
-***校对发布**：文顾*
+
+
+> For 51 days the Chinese Communist Party hid information about COVID-19. It’s unacceptable, it’s wrong, and it’s critical they face consequences. Americans impacted should have every right to sue China.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [May 28, 2021](https://twitter.com/MarshaBlackburn/status/1398375584045150220?ref_src=twsrc%5Etfw)
+
+
+
+参议员汤姆·科顿： 福奇(Fauci)有很多问题需要回答。 他需要停止玩文字游戏。 【转[http://theAustralia.com.au](https://t.co/SoCmGSvZG3?amp=1) 文章：尽管有(病毒)大流行的风险，福奇还是支持了病毒试验】
+
+
+
+> Fauci has a lot of questions to answer. And he needs to stop playing word games. [https://t.co/snFXlcpjKP](https://t.co/snFXlcpjKP)
+> — Tom Cotton (@SenTomCotton) [May 28, 2021](https://twitter.com/SenTomCotton/status/1398341762930860032?ref_src=twsrc%5Etfw)
+
+
 
 0

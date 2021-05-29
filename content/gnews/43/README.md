@@ -1,46 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月28日郴州白露塘市场五名学生被砍据传一名死亡
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1279553/)
+## “种族灭绝”将永远成为世纪罪人的枷锁
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1279578/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28202012/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-13.png)
-据[吴文行\[email protected\]](https://twitter.com/wuwenhang)于[下午7:34 · 2021年5月28日](https://twitter.com/wuwenhang/status/1398241172729049091)·[Twitter for Android](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28203335/16-31.jpg)
+据法新社纳米比亚温荷克28日报道，纳米比亚今天表示，德国坦承殖民占领纳米比亚期间曾犯下**种族灭绝罪行**并承诺提供11亿欧元经济援助。
 
-突发！郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡 。这是监控录像！
+纳米比亚总统甘戈柏（Hage Geingob）的发言人亨加里（Alfredo Hengari）告诉法新社：德国方面承认犯下种族灭绝罪行，是朝正确方向迈出的第一步。
 
+德国殖民者在1904到1908年大屠杀中杀害数万名赫雷罗族（Herero）与纳马族（Nama）原住民，数据达8万人之多，被史学家称为20世纪的首宗种族灭绝事件，也使得纳德两国关系交恶数年。
 
+这场对屠杀事件的协商，长达5年之久，双方一直就该事件的定义和文字描述有严重分歧，最终于昨日达成共识。
 
-> 突发！郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡 。这是监控录像！ [pic.twitter.com/9maIYY1ucK](https://t.co/9maIYY1ucK)
-> — 吴文行wenxingwu (@wuwenhang) [May 28, 2021](https://twitter.com/wuwenhang/status/1398241172729049091?ref_src=twsrc%5Etfw)
+根据熟知协商内容的消息人士说法，这笔款项将分30年支付，且主要须嘉惠赫雷罗族与纳马族的后代。
 
+“种族灭绝”再次映入眼球，**如果说德国对纳米比亚的8万人屠杀已经被喻为20世纪首宗种族灭绝事件的话，那么中共对新疆维吾尔人将近百万的无理由囚禁、虐待、迫害，又将如何被定义及描述**？
 
+更让我们不寒而栗的是，德国是在殖民途中，对他国人民实施了惨绝人寰的迫害，这也是当时战争夺取领地和话语权的普遍做法，只是用的方式更极端，造成了许多无辜的生命的逝去。我们并非支持对外种族的侵略，只是想强调，在世界格局已经形成，并达成和平的那么多年后，中共对自己的百姓下手，而且下手之狠，已远远超出人类的想象和共识。
 
-另据[野山@naochashu](https://twitter.com/naochashu)于[下午4:20 · 2021年5月28日](https://twitter.com/naochashu/status/1398192435134533635)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+中共，新疆已是中国版图中的一部分，新疆的人民已经是中国的合法人民，为什么你们要对自己的百姓做如此丧尽天良之事。德国在百年前对其他种族造成的毁灭性打击，其罪责追究至今，并依然得到世界各方的强力声援，那么在你们被定义为“反人类、种族大屠杀罪名”的今天，你们还试图想怎样逃脱世界对你们的惩罚，怎样面对历史对你们的定义。
 
-突发，郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡……
+同样，**你们发起的用病毒作为超限生物战争的武器，同样是对全世界不分种族的人民进行的无差异的屠杀，而这宗罪，你们在开始前有没有想好怎么承担和面对**？
 
+从中共执政70年，种种疯狂的行为来看，他们从来就不是一个为人民福祉考虑，为国家长远考虑，为世界和平考虑的政权，那么当你一切罪行都暴露在世人面前的时候，你们也将面对千夫所指，万民所弃的明天。
 
+（本文只代表作者观点，与Gnews平台无关。）
 
-> 突发，郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡…… [pic.twitter.com/gfNKNHu28u](https://t.co/gfNKNHu28u)
-> — 野山🎗 (@naochashu) [May 28, 2021](https://twitter.com/naochashu/status/1398192435134533635?ref_src=twsrc%5Etfw)
+**新闻来源：**
 
+[纳米比亚肯定德国 坦承曾犯种族灭绝罪行 – 法国国际广播电台 – RFI](https://www.rfi.fr/cn/%E7%BA%B3%E7%B1%B3%E6%AF%94%E4%BA%9A%E8%82%AF%E5%AE%9A%E5%BE%B7%E5%9B%BD-%E5%9D%A6%E6%89%BF%E6%9B%BE%E7%8A%AF%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D%E7%BD%AA%E8%A1%8C)
 
-
-另据[\[email protected\]](https://twitter.com/LiuLiu92266749)于[上午5:29 · 2021年5月29日](https://twitter.com/LiuLiu92266749/status/1398391015719931905)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
-
-地獄般的存在：湖南郴州白露塘市場一男子砍傷五名學生，一名學生當場死亡。
-
-
-
-> 地獄般的存在：湖南郴州白露塘市場一男子砍傷五名學生，一名學生當場死亡。 [pic.twitter.com/y0Es9ozBgP](https://t.co/y0Es9ozBgP)
-> — Leo😷 (@LiuLiu92266749) [May 28, 2021](https://twitter.com/LiuLiu92266749/status/1398391015719931905?ref_src=twsrc%5Etfw)
-
-
-
-眼睁睁看着活生生的孩子毙命刀下我们却无能为力，在这个地狱般国度里，要么麻木地活着，要么痛苦地活着，要么精神病一样的活着，而精神病一样活着的人在对弱者施暴时绝不心慈手软，而可悲的是这样的精神病总是层出不穷。
-
-（文章内容仅代表作者个人观点）
+***校对发布**：文顾*
 
 0
