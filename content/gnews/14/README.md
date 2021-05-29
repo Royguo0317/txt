@@ -1,54 +1,132 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【DC大中华时事】因国安法许多香港居民因安全带领中小学生移居海外 2021.05.29
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1280879/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（三十一）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1280861/)
 
-编辑：**DAISY** / 作图：JAY（杰伊）
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/大中华时事-1.jpg)
-#   墙国妄语每日驳
+作者：纽约香草山信息部 6zero4
 
-### **05.28 央视网：前4个月全国规模以上工业企业利润同比增长1.06倍**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-国家统计局5月27日发布的数据显示，1—4月份，全国规模以上工业企业实现利润25943.5亿元，同比增长1.06倍，与2019年同期相比增长49.6%，两年平均增长22.3%。对此，国家统计局相关负责人表示，今年以来，随着统筹疫情防控和经济社会发展成果进一步巩固，市场需求持续恢复，工业企业生产经营稳中向好，利润总额继续保持较快增长，企业质量效益不断提升。下阶段，要科学精准实施宏观政策，扎实做好大宗商品保供稳价工作，不断巩固经济稳定恢复基础，推动工业经济持续健康发展。
-　　盈利均好于去年同期
-　　“1—4月份，各行业盈利均好于去年同期。”国家统计局工业司高级统计师朱虹介绍，在41个工业大类行业中，39个行业利润总额同比增加，1个行业扭亏为盈，1个行业实现减亏。
-　　具体来看，1—4月份，有10个行业利润增速超过100%，占24.4%；有14个行业利润增长50%—100%，占34.1%。与2019年同期相比，有30个行业实现利润增长，占73.2%。
-　　经营状况持续改善
-　　从主要经济效益指标来看，朱虹介绍，1—4月份，企业经营状况持续改善。
-　　单位成本费用同比下降，利润率继续上升。1—4月份，规模以上工业企业每百元营业收入中的成本同比减少1.39元。其中，采矿业每百元营业收入中的成本同比减少4.86元，原材料制造业减少3.61元。规模以上工业企业每百元营业收入中的费用同比减少0.84元。营业收入利润率为6.87%，同比提高2.42个百分点，今年以来企业营收利润率持续保持上升态势。
-　　企业亏损面进一步缩小，减亏效果明显。4月末，规模以上工业企业亏损面同比缩小4.9个百分点，比3月末缩小3.3个百分点。1—4月份，亏损企业亏损额同比减少31.9%。
-　　促进供需动态平衡
-　　“总体来看，1—4月份工业企业效益状况保持平稳较快恢复态势，但也要看到，国外疫情和国际环境错综复杂，工业经济稳定恢复的基础还不牢固，企业效益改善仍不平衡。”朱虹说，尤其是部分消费品行业盈利状况尚未恢复到疫情发生前水平；加之大宗商品价格高位运行，加大中下游行业生产经营压力。
-　　国家统计局日前发布的流通领域重要生产资料市场价格变动情况显示，5月中旬与5月上旬相比，9大类50种产品中，33种产品价格上涨，其中黑色金属6种产品、煤炭7种产品价格均保持上涨。
-　　植信投资首席经济学家兼研究院院长连平认为，本轮全球大宗商品大涨价，受冲击最大的是下游行业，主要集中在家电、包装、化工和造纸业等行业。这些行业中，又以中小微企业受冲击最为严重。因此有必要对中小微企业提供更多的支持和帮助，落实好相关减免税政策，给予稳岗就业补贴，加大金融支持力度。
-　　国家统计局工业司副司长江源表示，下一步，要继续采取有效措施，应对大宗商品价格过快上涨及其连带影响，缓解企业成本压力，不断提高科技创新水平，着力增强产业链供应链自主可控能力，进一步巩固工业经济稳定恢复的基础，促进供需动态平衡。
 
-***简评：随着一浪高过一浪的中共病毒溯源问责声开始在美国及全世界蔓延，以美国为首的正义力量“以毒灭共”正在全面展开之中。国际社会已经全面觉醒，对中共国的围剿已经全面展开。对中共企业加大制裁，加快与中共脱钩，特别是涉及关键领域会加大力度。除了在国际社会面临的窘迫处境之外，中共国内的日子一样不好过，经济乱象层出，处处金融爆雷。现实中各地多数工厂裁员或关门，铁公基和房地产大量停工缓建，各类写字楼和市面萧条破败，大量农民工返乡，农业经济活动巨额亏损，都充分表明经济崩溃的严重程度。这些对于中共来说全是灭顶之灾。在金融经济濒临崩溃的乱象下，中共已是阵脚大乱，招式全无。以谎言维生的中共政权只能黑白颠倒，吹嘘所谓的工业企业利润增长1.06倍，掩盖经济的全面崩溃。宣传力度越大，意味着中共越恐惧，根本无力改变其走向灭亡的局面***。
 
-### **05.28 中国新闻网：中方再批美恶意翻炒新冠“实验室泄漏论”：动机不纯，用心险恶**
+5月27日塞林博士的3连推：
 
-针对美国翻炒新冠病毒“实验室泄漏论”一事，中国外交部发言人赵立坚28日在例行记者会上表示，美方近来再次恶意翻炒“实验室泄漏”，声称要就这一问题进行调查，动机不纯，用心险恶。
-　　会上有记者提问，美国总统拜登近日称可能会发布一份报告，详细说明美国情报界关于新冠肺炎疫情起源的调查结果。美国家情报机构也开始对病毒溯源发表看法，称将继续研究所有证据，收集和分析新信息，中方对此有何评论？
-　　对此，赵立坚回应称，病毒溯源是一个严肃的科学问题，美国却企图让所谓情报人员来主导结论，这只能说明美方根本不在乎事实真相，根本不想搞科学研究，只是一心玩弄政治，对他国“甩锅”推责。
-　　他表示，世人都清楚，美方近来再次恶意翻炒“实验室泄漏”，声称要就这一问题进行调查，动机不纯，用心险恶。
-　　“我想提醒他们两点，第一，中国实验室事件引发病毒极不可能这一结论清清楚楚地记录在中国-世卫组织联合考察组研究报告中。第二，美国才是拥有世界上规模最大、数量最多的生物实验室的国家，德特里克堡生物基地发生泄漏事故的消息早已被媒体曝光。公开资料显示，德特里克堡居然与侵华日军731部队有着千丝万缕的关系，罪恶滔天的731部队负责人石井四郎，还曾是德堡的生物武器顾问。”赵立坚说。
-　　他反问道：“美方何时对2019年7月弗吉尼亚州北部不明原因呼吸系统疾病和威斯康星州大规模电子烟疾病的详细情况作出说明？有没有意愿和勇气让世卫组织专家赴美国进行调查？”
+第1推，转发Joe Hoft 今天发表在Gateway Pundit上的一篇文章“独家：克林顿政府邀请中共军方进入敏感的美军生物防御中心”。美国对CCP的信任是搬起石头砸自己的脚！
 
-***简评：******中共制毒，放毒到全世界造成中共病毒全球大流行，对全球经济政治金融和民众的生命健康造成巨大的伤害。全世界都有充分的理由追究中共隐瞒疫情的罪责。全世界应该都在看美国，真正有实力掌握最多证据的当然是美国的情报部门。美国也最有实力发起和组织各国对中共的追责，或者说，中共最忌惮的就是美国。美国情报部门应该已经掌握了实锤的证据！目前是在叫牌阶段！3個月後，美國就要公開所有的秘密了，不管赵战狼怎么造谣，抵赖，甩锅，中共唯一的下場就是被徹底圍剿！下場會比二戰德國更惨，比萨达姆更惨***。
 
-### **05.28 环球时报：两院院士大会、中国科协第十次全国代表大会在京召开 习近平发表重要讲话**
 
-中国科学院第二十次院士大会、中国工程院第十五次院士大会和中国科学技术协会第十次全国代表大会28日上午在人民大会堂隆重召开。中共中央总书记、国家主席、中央军委主席习近平出席大会并发表重要讲话强调，坚持把科技自立自强作为国家发展的战略支撑，立足新发展阶段、贯彻新发展理念、构建新发展格局、推动高质量发展，面向世界科技前沿、面向经济主战场、面向国家重大需求、面向人民生命健康，深入实施科教兴国战略、人才强国战略、创新驱动发展战略，把握大势、抢占先机，直面问题、迎难而上，完善国家创新体系，加快建设科技强国，实现高水平科技自立自强。
+> EXCLUSIVE: Clinton Administration Invited the Chinese Army into Sensitive U.S. Military Biodefense Centers.
+> 
+> The U.S. shot itself in the foot by trusting the Chinese Communist Party.[https://t.co/I34XmS2Pc3](https://t.co/I34XmS2Pc3)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 27, 2021](https://twitter.com/LawrenceSellin/status/1397939438609702917?ref_src=twsrc%5Etfw)
 
-中共中央政治局常委、国务院总理李克强主持大会。中共中央政治局常委栗战书、汪洋、王沪宁、赵乐际、韩正出席。
 
-***简评：在西方国家抱团谴责、制裁中共，全方位围堵中共这样的大背景下，西方和中共国经济科技脱钩已不可逆转。中共再也不能像以前那样堂而皇之偷骗抢国际先进技术了。习神现在出来忽悠完善国家创新体系，加快建设科技强国，实现高水平科技自立自强，就是痴人说梦！众所周知，中共腐败的政治体制控制下的中國的教育科研體系，嚴重束縛了中國科技與人才的發展。党控制一切，專業人員沒有話語權；強化洗腦、思維同質化、異見思想受到監控；重視論文和所謂理論創新，輕視產業化和工匠精神等严重阻碍了创新精神。畸形的經濟發展模式更是造成了生產要素價格嚴重扭曲，物貴人賤。科研人員的收入普遍遠遠不如商業人士、貪官，科技怎麼可能進步？而世界上所有的正常國家都是物賤人貴，這樣人們就有足夠的精力和生活保障來進行科技研發。所以唯有解体中共政权，中华民族才能得到尊重，经济得到发展，才能国强、民强、民富，才能真正的得到世界的认可。***
 
-#   港台资讯
-![]()![](https://cdn.discordapp.com/attachments/817883141107613766/847840551499595786/JAY_20210529_1_CH.jpeg)![]()![](https://cdn.discordapp.com/attachments/817883141107613766/847840570089144350/JAY_20210529_2_CH.jpeg)![]()![](https://cdn.discordapp.com/attachments/817883141107613766/847840583665057812/JAY_20210529_3_CH.jpeg)
-*编辑：Daisy
-审核：星空無垠
-发布：文顾*
+第2推，转发Anna战友回应塞林博士上一推的推文：项春生对于CCP生物武器计划至关重要，他是国家“973”计划的首席科学家，并长期与李兰娟、杨瑞馥和高福合作。并贴上他们4人以与其他CCP科学家在2013年联合发表的论文“大群人类肠道菌群抗生素耐药基因的宏基因组分析”，项春生和李兰娟的官方身份介绍及其照片，以及金宁一、陈薇、曹务春、杨瑞馥、童贻刚、范泉水、王长春和高福的照片。COVID-19侦探Anna将与CCP-PLA关系密切的项春生之重要性展示出来了，这是克林顿政府的耻辱，因其允许项春生在德特里克堡研究埃博拉病毒。（项春生和李兰娟真容浮出水面）
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) shows the important [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) and People's Liberation Army links of Chunsheng Xiang, who, to the shame of the Clinton Administration, was allowed to work on Ebola virus at Fort Detrick.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDSecondWave](https://twitter.com/hashtag/COVIDSecondWave?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/hyc8hgsGm4](https://t.co/hyc8hgsGm4)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 28, 2021](https://twitter.com/LawrenceSellin/status/1398137405249576962?ref_src=twsrc%5Etfw)
+
+
+
+第3推，转发“火来2号”战友的中文推，该战友将塞林上校讲解关于新冠病毒从东部战区运送到武汉，以进行动物实验之视频片段单独剪辑出来，配上中文字幕与图片，方便理解。感谢COVID-19侦探“火来2号”对我本次采访视频的精彩剪辑，其配上的图片完美地衬托了其中的关键点。如果你想知道CCP病毒是如何释放出来的，这个视频会告诉你！
+
+
+
+> I thank [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) for this excellent summary of my interview with images perfectly illustrating the important points. If you want to know the events leading to the release of the [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) this is the video to watch.[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/PjYXpeqdVW](https://t.co/PjYXpeqdVW)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 28, 2021](https://twitter.com/LawrenceSellin/status/1398144316749631488?ref_src=twsrc%5Etfw)
+
+
+
+5月28日塞林博士的5连推：
+
+第1推，PLA-AMMS网站(bmi.ac.cn)的疫情监控数据库自2017年8月以来一直无法访问，请留意SARS和MERS爆发后的疫情高峰时间跨度，PLA是不是在计划并期待2017年后的另一个疫情爆发高峰？
+
+
+
+> Website of the Chinese People’s Liberation Army Academy of Military Medical Sciences ([https://t.co/chrYI68GFy](https://t.co/chrYI68GFy)) has been inaccessible since August 2017. Note the peak activity just after the SARS and MERS outbreaks. Was the PLA planning for and expecting another peak after 2017? [pic.twitter.com/4PLMGNU1O4](https://t.co/4PLMGNU1O4)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 28, 2021](https://twitter.com/LawrenceSellin/status/1398201350689787905?ref_src=twsrc%5Etfw)
+
+
+
+第2推，贴上石正丽等CCP科学家在2017年11月30日联合发表的一篇论文“蝙蝠SARS类冠状病毒丰富基因库的发现为研究SRAS冠状病毒的起源提供了新的视角”之网页截图。鉴于石正丽对重组自然界蝙蝠冠状病毒作为新发疫情载体的浓厚兴趣，就供职于拥有完备实验设施的WIV的她很可能研究了实验室重组，RaTG13也许就是其重组出来的病毒样品之一。
+
+
+
+> Given her long interest in recombination of bat coronaviruses in nature as a vehicle for an emerging pandemic, Zheng-Li Shi of the Wuhan Institute of Virology likely studied laboratory recombination, from which RaTG13 might have emerged as an intermediate.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/r0dGkKESus](https://t.co/r0dGkKESus)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 28, 2021](https://twitter.com/LawrenceSellin/status/1398321392089772035?ref_src=twsrc%5Etfw)
+
+
+
+第3推，转发Natalie Winters三天前发表在The National Pulse上的一篇文章“独家：福奇领衔WIV的‘功能获得’科学顾问团”。Natalie Winters的这篇文章出色地描绘了福奇、Linda Saif和WIV之间的真实关系，有助于帮助理解CCP对美国病毒研究计划的深层影响，并揭露了Saif在俄亥俄州立大学的同事刘善虑。（刘善虑线索浮出水面）
+
+
+
+> This excellent article by [@nataliegwinters](https://twitter.com/nataliegwinters?ref_src=twsrc%5Etfw) correctly notes the link among Anthony Fauci, Linda Saif and the Wuhan Institute of Virology. To understand the deep CCP influence on U.S. virus research programs, expose Saif's Ohio State colleague Shan-Lu Liu.[https://t.co/Xn3HQDucAO](https://t.co/Xn3HQDucAO)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 29, 2021](https://twitter.com/LawrenceSellin/status/1398461441452261377?ref_src=twsrc%5Etfw)
+
+
+
+第4推，转发Anna战友的中英混合推，太多CCP-PLA背景的研究人员潜伏进入NIH/NIAID/NCI，太多太多……，并贴出了这些CCP-PLA背景的研究人员之简介与照片，他们是：
+
+1. 有AMMS背景并曾经在NIH/NIAID/RML学习和工作过的北京化工大学生命科学与技术学院见习教授，宋立华；
+2. 有AMMS背景并曾经在NIH工作过的清华大学药学院教授，刘刚；
+3. AMMS并曾经在NIH做过访问学者的中国工程院院士，沈倍奋；
+4. 曾经在NIH/NCI做过访问学者的AMMS副研究员，李涛
+
+
+COVID-19侦探Anna揭露了CCP-PLA科学家们对美国科研计划的深度渗透！（宋立华、刘刚、李涛真容浮出水面）
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) exposes the deep infiltration of U.S. research programs by Chinese Communist Party and People's Liberation Army scientists. [https://t.co/DQQwXgcW9f](https://t.co/DQQwXgcW9f)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 29, 2021](https://twitter.com/LawrenceSellin/status/1398468579536818177?ref_src=twsrc%5Etfw)
+
+
+
+第5推，转发Anna战友的另一中英混合推，越来越多，CCP为什么送那么多军方研究人员去美国医学研究机构呢？他们的任务是什么？军人总是肩负着使命！并贴出了这些CCP-PLA背景的研究人员之简介与照片，他们是：
+
+1. 有AMMS背景并曾经在NIH以及多所美国大学工作过的中科院大学微生物研究所博导，王北难（女）；
+2. 现任职PLA第二军医大学基础医学部教研室主任并曾经为NIH工作过的，何成；
+3. 现任职PLA第二军医大学基础医学部导师并曾经为NIH工作过的，马雅军（女）；
+4. 有PLA军需大学背景并曾经在NIH学习和工作过的华东师范大学生命科学学院教授兼副院长，江文正；
+5. 现任职于南京医科大学公共卫生学院旗下的南京军区军事医学研究所并曾经在NIH学习和工作过的主任医师，李越希。
+
+
+COVID-19侦探Anna揭露了更多CCP-PLA科学家们对美国科研计划的深度渗透！（王北难、何成、马雅军、江文正、李越希真容浮出水面）
+
+
+
+> Again [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) exposes the deep infiltration of U.S. research programs by Chinese Communist Party and People's Liberation Army scientists. [https://t.co/I1QUHmWWmr](https://t.co/I1QUHmWWmr)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [May 29, 2021](https://twitter.com/LawrenceSellin/status/1398468663276191746?ref_src=twsrc%5Etfw)
+
+
+
+CCP-PLA对美国的渗透史是自CCP诞生就开始了的100年历史，中共国建国后就将对美国的渗透变成了实现自己霸权主义的核心任务。中美1979年建交后算是打开了CCP渗透美国的阀门，自老布什政府开始取得阶段性进展，其渗透的深度和广度在克林顿政府取得突破性发展，竟然邀请中共军方研究人员项春生等进入敏感的美军生物防御中心德特里克堡进行埃博拉病毒研究，CCP在奥巴马政府的全方位各领域渗透更是达到触目惊心、登峰造极的程度！
+
+CCP为什么自克林顿政府开始，就迫不及待地送那么多军方背景的研究人员，去美国生物医学研究机构NIH/NIAID/NCI/RML深造甚至工作呢？他们的目的和任务是什么？中国作为美国引领的普世价值意识形态的敌对国，是在历史上犯下如“六四”血案等一系列反人类罪的独裁政权，美国政府在接受这些CCP军方背景的研究人员时为什么不作背景调查和分析和后续跟进呢？军人总是肩负着战争的使命前行的，不过有的军人是为正义而战，有的军人是为邪恶而上！这不，CCP-PLA的COVID-19超限生物战不但攻城略地、肆虐全球，美国也不能幸免，并遭受重创。好心善良的美国农夫将濒临死亡的CCP这条无比歹毒而邪恶的毒蛇救活并养大后，被CCP这条巨大的毒蛇反咬一口，并注入大量毒液后已经昏昏欲睡了很多年了，现在也许是断臂求生，进行自救的最后机会了！
+
+福奇在美国联邦政府NIAID主任这个显要位置上近40年，是美国政府的7朝元老，横跨里根、老布什、克林顿、小布什、奥巴马、川普和拜登7届政府，是美国联邦政府薪资最高的职员，当然也是CCP-PLA科研人员渗透美国生物医学研究机构取得史无前例之成绩的美方最最关键的人物。福奇在国会接受问询时否认支持了CCP在WIV的“功能获得”研究，但却被挖出其曾经领衔WIV的‘功能获得’科学顾问团。福奇这只老狐狸，因为跟CCP合作了几十年，习性和秉性都被CCP同化得惟妙惟肖，在事实面前出神入化地如CCP这只死鸭子那样嘴硬！
+
+塞林博士还抛出一个充满无限疑惑的线索，PLA-AMMS网站(bmi.ac.cn)的疫情监控数据库自2017年8月以来一直没有更新，纵观该数据库描绘出来的SARS和MERS爆发后的疫情数据，尤其是疫情爆发高峰之间的时间跨度上的规律，暗示着PLA很可能在2017年后酝酿着另一个疫情爆发高峰，难道2019年爆发的COVID-19新冠疫情就真是预先安排好的？甚至之前的SARS和MERS都有可能是尽心策划的？细思极恐，令人毛骨悚然！不灭中共，实为天理不容！
+
+校对/发稿：雪梨
+
+![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg]()![This image has an empty alt attribute; its file name is WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

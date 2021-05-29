@@ -1,44 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】新冠疫苗的新副作用——青少年心肌炎？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1280719/)
+## 【热点播报】英国协助调查病毒起源，美议员提法案剥夺中共主权豁免
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1280759/)
 
-作者： 纽约香草山媒体部7bends
+作者：香草山信息部  雪梨
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29092137/%E5%9B%BE%E7%89%8767.png)
+图片来源：virtuglobalbusiness
 
-《纽约时报》5月22日报道，美国CDC正在调查一些青少年新冠疫苗接种者的心脏问题。
+据《[每日电讯报](https://www.telegraph.co.uk/news/2021/05/28/exclusive-uk-intelligence-helping-us-investigate-wuhan-lab-leak/)》报道，继拜登总统26日发表[声明](https://www.whitehouse.gov/briefing-room/statements-releases/2021/05/26/statement-by-president-joe-biden-on-the-investigation-into-the-origins-of-covid-19/)，要求美国情报界90天内递交新冠病毒起源报告后，英国情报部门同意与美国合作调查病毒从中共实验室泄露的可能性。
 
-辉瑞去年12月底得到授权新冠疫苗可用于16岁和以上人群。FDA 这个月早些时候将这个授权扩展到12～15岁的儿童。CDC更强烈建议12岁以上的美国人使用新冠疫苗。
+经过长时间的政治铺垫、舆论宣传和民意的引导，26日拜登总统的声明正式吹响了“以毒灭共”的号角。自病毒实验室起源说出现时，英国已经开始搜集相关情报。待拜登总统发布官方声明后，英国加入，协助调查。实际上，英美两国已经有足够的情报证实病毒来自实验室。这可能就是[塞林博士](https://twitter.com/LawrenceSellin/status/1379437072763609090)此前推文中提及的，“类似于英国二战破译密码的SIXTA的研究网络分析，用于确定#COVID19的实验室来源”。英国加入调查，既是五眼联盟成员，也是英联邦国家的新西兰、加拿大、澳大利亚也会协助提供情报。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29091315/%E6%9C%AA%E5%91%BD%E5%90%8D%E7%9A%84%E8%AE%BE%E8%AE%A1-28-2.png)
+本周四，美国和英国敦促世界卫生组织对中共国开展[新一轮的病毒起源调查](https://www.reuters.com/business/healthcare-pharmaceuticals/who-experts-preparing-proposal-next-studies-virus-origin-spokeswoman-2021-05-28/?taid=60b0f190e9744d00010a2abd&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)，使独立专家们能充分接触到中共国的原始数据和样本。世卫组织发言人Fadela Chaib表示，专家们将为世卫总干事谭德塞准备一份提案，但没有设定时间表。
 
-《纽约时报》说CDC的疫苗安全处报告少量接受过新冠疫苗接种的青少年可能罹患一种心脏疾病——心肌炎。这种心肌的炎症通常是在受到某种感染之后发生的。
+英国军情六处前负责人迪尔洛夫爵士（Sir Richard Dearlove）说，如果中共不开放实验室接受审查，英国安全部门可能需要“激励”中共国叛逃者来了解真相。这也充分验证了文贵先生提到的，有像闫博士这样的从中共国来的科学家正在欧洲作证。除了情报，如果有来自中共实验室的、直接的证据或者证人，中共就插翅难逃了。
 
-虽然对报告的审查仍处初始阶段，但CDC已在其网站上发布指南，敦促医生和临床医生对刚接受疫苗注射后的年轻人的心脏异常情况保持警惕。纽约有传染病专科医生发现，该病主要发生于青少年。大约是他们注射了第二剂辉瑞和摩德纳的疫苗后四天，而且男性比女性更为普遍。
+此外，美国共和党和民主党议员共同提出“[国际疫情永不再发生预防法](https://www.epochtimes.com/gb/21/5/28/n12982196.htm)”（Never Again International Outbreak Prevention Act），呼吁剥夺中共和其他“故意在疫情上误导国际社会的国家”的主权豁免，允许疫情受害者家属起诉中共或相关国家。这条法案为中共病毒量身打造。一旦该法案获得通过，因疫情受到伤害和损失的个人和团队都可以在美国起诉中共。中共在美国的资产会被合法冻结。若被定罪，它就是跨国犯罪组织。一旦美国认定，盟国势必跟进，中共在国际上将彻底失去合法性。
 
-虽然可能存在心肌炎副作用。《纽约时报》的这篇报道还是通过专家的口并引用各种数据鼓励打疫苗，强调由疫苗引起潜在的心肌炎等副作用的风险跟患新冠的潜在风险相比要小。
-
-《纽约时报》的这篇报道仅仅是短时间内众多报道新冠疫苗引起的可能副作用的其中之一。作为EUA试验产品的新冠疫苗，仅公开报道的副作用就几乎每天可见，更别说被掩盖不让报道的更为严重的情形了。相信民间有更多的关于新冠疫苗副作用的例子未被广泛报道或不能被公开报道。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29090126/11112.jpg)
-
-与疯狂推荐打疫苗形成强烈对比的是羟氯喹遭受到的疯狂抵制。在全世界各国政府和官方医疗机构和主流媒体不报道新冠疫情真相、打压有效的治疗方法时，全世界只有爆料革命新中国联邦唯一一个团体传播病毒真相，推广羟氯喹。
-
-羟氯喹，这个在世界上已经安全使用了70年，被世卫组织列在最安全药物名单上的廉价常用药物，早在一年多前新冠疫情爆发初期就最先由爆料革命路德社墨博士及夫人、闫丽梦博士最先提倡用于新冠疫情预防和治疗。
-
-目前已被大量第一线有良知的医生证明在预防新冠病毒和得病初期极为安全有效的廉价药羟氯喹仍然未被广泛向大众推荐应用。与此相反，匆匆开发出来副作用还未被彻底了解的试验性的各种新冠疫苗极速在全世界被推广，是对生命的极度不负责任。除了经济利益驱使是否还有更不可告人的目的?
-
-延伸阅读：
-
-https://www.google.com/amp/s/www.nytimes.com/2021/05/22/health/cdc-heart-teens-vaccination.amp.html
+这个节骨眼上，中共内部要么达成共识，主动变革，开放实验室，欢迎世界独立科学家们来武汉调查，公开病毒原始毒株和数据。中共解体，逐步过渡到新政府。要么加剧内斗，海外资产被冻结，西方与中共经济脱钩，闭关锁国。在这关乎自己身家性命和子孙后代的关键时刻，想必曾家和江家在那个时刻到来之前已经出手，结束党内斗争，解体中共。
 
 校对/发稿：飞虹
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/15014027/5%E6%9C%88-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191415/M5-2.jpg)
 
 
 

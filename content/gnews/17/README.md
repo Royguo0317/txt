@@ -1,83 +1,105 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】好好活到那一天
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1280825/)
+## “掀锅盖”系列：20210524中共人祸不断，各国纷纷跟中共翻脸
+` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1280786/)
 
-## *-人身的霞满绽放-*
+**郭先生口述内容：**
 
-## *–灵魂的超脱重生-*
+一个世界级的一个这个马拉松会
 
-## 
+能让运动员冻死21个人
 
-作者：纽约香草山健身部 澄道
+这就叫集中权力干大事
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg](https://lh5.googleusercontent.com/vLw6Y_b7B_ELY7tNgJ-ZeOlPtiZaj9LITymWl1OE5wOzdIkkX7DZBrFRJJhMt9xpPSvXBwsgxURfUXP8t3HmMF6_KbzyUQPdAO1r5czQIoPgP9oX5cyVQDtWPZyla7HiihEkkn5C)
+中间要不是放羊的农民
+
+我们这些草根
+
+死更多人
+
+你觉得冬奥会还会有吗
+
+这样的中共国还能搞冬奥会吗
+
+另外一个兄弟姐妹们
+
+要看到现在这个经济上不是集中资源干大事吗
+
+全都集中中南坑去了
+
+民生银行我原来说的1.7万亿
+
+结果昨天告诉我说
+
+文贵你说的太少了
+
+3万亿找不着了
+
+中国所有的资源所有的财富
+
+就在那个不超过200个家族手里控制
+
+不但如此
+
+福奇昨天的真正的妥协的原因
+
+就是因为他知道
+
+我们有第二个闫丽梦博士在欧洲作证了
+
+他才害怕了才出来说话了
+
+在香港和台湾这个问题上
+
+大家已经意识到
+
+仅仅昨天一个周末在日本在印度在这个非洲的联盟包括中东这几个中东的联盟包括所谓的南南合作的组织昨天下午都在福奇之后所有的人都紧急开了会
+
+所有人最后达成一致坚决不跟共产党站在一起
+
+立陶宛的事情叶简明，都是有深的政治关系的
+
+叶简明被杀以后共产党的傲慢
+
+立陶宛多个人到中国去,被共产党羞辱到了极点
+
+这一次好了拉脱维亚,立陶宛全部要跟老共翻脸
+
+接下来就是什么
+
+沙特等中东国家全部跟它翻脸
+
+因为它说的没有一样兑现的
+
+未来这些失去钱的人
+
+炒比特币的人
+
+会在美国和中共之间会掀起人类上有史以来最大的法律诉讼战
+
+因为这是个骗局
+
+它不是去中心化
+
+它是绝对中心化
+
+\*所有经过节选，编辑和剪辑的简报和视频形式仅供留存及传播，分享信息！
+
+\*所有信息以郭文贵先生源盖特视频和直播视频为准！
 
 
 
-孤独是
-孤独者的手撕名牌
-灭共是
-灭共者的石刻经文
+听写整理：作而无作
 
-无意中偶遇战友
-我滴个娘哎
-什么感觉
-当被告知没打疫苗
-问故答曰：
-我要活到的那一天
+翻译：梦田
 
-有意识避开家人及朋友
-明知道是在被戕害
-我滴个了去
-痛苦至极：
-我多希望和你们一起活到那一天
+校对：SugarPup
 
-我知道
-我势孤力单
-且还背锅家人的骂名
-诸如精神错乱啊什么的
+视频制作：农夫，xiong
 
-我深知
-我眼花手拙
-且被身边越来越多的被强种苗者围堵
-诸如妄想狂人啊此类的
+审核：掀锅盖组
 
-那又怎样
-因为有一个良知声音在心底不息
-你就是你家族可能留下唯一火种
-有火种在
-光明就在
-
-那又如何
-因为有一种人性使命感在抵命招呼
-亿万国人的希望你我责任重大
-有希望在
-信心就在
-
-霞满绽放
-就是要活到灭共的那一天
-超脱重生
-就是要和您一起活到新中国联邦的那一天
-
-@澄道来了
-@爱动爱议码05291
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 5_May-1-556x720-1.jpeg](https://lh3.googleusercontent.com/8fPG-b3k1OPDoyNGv4xUGowotNCaFBS_Zy6K0pET5dZlav_GDobq-Ggg7Ttc_cv1Jxic-MNIw5k-4AIUaFK4dcPj0Gi5wObqH5uhfy5PxMn9uHRth-SCaptbFEriybfU9tqIgPrD)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+上传：糊糊文婴
 
 0
