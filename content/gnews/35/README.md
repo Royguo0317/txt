@@ -1,65 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美军在亚洲紧张水域的部署
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1280111/)
+## 司法观察组织就Facebook监督委员会决定支持对前总统唐纳德·川普（Donald Trump）账号封杀的声明
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1280150/)
 
-作者：香草山福音组 繁星
+【日本东京方舟农场】 翻译：Jay Cheung      校对：MIMI
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29035107/F78670FE-8B24-4FE7-AC94-89682EACCCAC.jpeg)
 
+司法观察（Judicial Watch）组织华盛顿特区报道——司法观察组织主席汤姆·菲顿（Tom Fitton）发表声明，回应facebook监督委员会作出的维持对川普总统facebook账号封杀的决定:
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29031745/%E5%9B%BE%E7%89%8762.png)图片来源：网络
-随着在亚洲水域与中国的局势日渐紧张，美国海军司令官们在未来几周内将面临亚洲海上力量的潜在短缺。
+今天facebook的监督委员会作出维持对川普总统账号封杀的决定，彻底破坏了言论自由和第一修正案。这种厚颜无耻的强迫川普总统远离社交平台的做法正在广泛伤害Facebook和其它网络使用者的言论自由，他们肯定担忧Facebook和大科技公司的审查制度并且迫使他们远离社交平台。
 
-据两名不愿透露姓名的美国官员说，总部位于日本的罗纳德·里根号航空母舰预计将在未来几天内前往中东，以协助美军从阿富汗撤军。
+值得注意的是Facebook拒绝透露他们指定的监督委员会禁止川普的账号的原因是否是由于川普的政治观点与政府其他官员或者政客相抵触。实际上，司法观察组织最近披露了加尼福尼亚州和爱荷华州的政府官员已经给Facebook,Youtube/Google和Twitter施压，成功让他们解禁司法观察组织和其他民众因为选举期间发布的帖文而遭禁用的账号（我的推特账号因为一个推文被锁四个月，而那条推文并没有违背任何推特规则。）
 
-但分析人士说，此举可能会在北京提高南中国海和台湾的紧张之际，使美国在东亚的航母覆盖率出现不足的情况 。
+司法观察组织认为Facebook的监督委员会应该撤销对川普总统账号的封杀，因为该封杀对受第一修正案保护的言论自由，和平集会和对政府诉求的权利是一种侮辱。没有确凿的证据表明川普总统在道德上和法律上有煽动暴力的行为。川普总统在遭受弹劾后被美利坚合众国参议院宣告无罪，而那些作涌者想以弹劾的方式来制造川普总统煽动暴力的确凿证据的行为以失败告终。Facebook和其监督委员会认为川普总统煽动暴力，抱怨选举管理机构可能涉及煽动暴力的决定是因为他们与川普总统的政治对手和左翼联合在一起，是一种政治站位。
 
-美国太平洋司令部联合情报中心前首席长官卡尔·舒斯特尔说，尽管在亚洲航母部署处于短缺状态，但美国还有其他资源可以利用。
+评：译者认为该声明完全说出Facebook等社交媒体封杀川普总统的账号是因为政治站位，或者说是极力掩藏其不可告人的更深层次还没有被披露的丑闻。不管怎样，2020年美国大选是一种欺诈行为是不可否认的事实，事实真相会在将来的某个时间被完整披露出来。
 
-舒斯特尔说，总部设在日本的美国水陆两栖攻击舰载有F-35战斗机，并可能在亚洲水域临时部署。
+注：本文仅代表译者观点
 
-他说，还有其他展示力量的方法。
-
-舒斯特尔说：“我怀疑，在里根号不在时，空军将向南中国海派遣轰炸机。它不会拥有与航母相同的身份，但会发出相同的政治信号。”
-
-里根号不在东亚海域的同时，也可能是英国最大军舰HMS伊丽莎白女王号率领的英国皇家海军航母打击群对该水域的一次无意安排的访问。
-
-这艘英国航母载有美国海军陆战队的F-35战斗机以及同一型号的英式喷气式战斗机，上周末和在英国的一支舰队一起离开了英格兰，其中包括一艘美国制导导弹驱逐舰。 预计它们将在夏末的某个时候穿越南中国海，前往日本。
-
-“考虑到整个（英国）航母打击群里增加了美国和荷兰的军事设备和人员，这将是一个有用的利器，可以在没有（美国）航母部署的情况下发出美国在该地区和盟友紧密联盟的信号。” 一位新加坡的研究员科林说。
-
-里根号最近离开日本本土，在海上进行了船员资格考试。 美国前海军军官舒加特说，如果里根号在部署到中东后完成任务尽快返回亚洲水域，那将是有帮助的。
-
-“ 随着美军完成从阿富汗撤军，希望这种部署将在一定的时间内开始。一旦完成部署，罗纳德·里根号航母打击群可以将重点重新转向近年来一直在进行的与中国海军和空中力量的较量。”舒加特说。
-
-五角大楼发言人约翰·柯比（John Kirby）周三表示，将不会提供有关任何计划部署的信息。
-
-他说：“我们没有谈论潜在的未来行动。我们当然没有事先谈论潜在的舰船调动。”
-
-参考阅读：
-
-https://www.cnn.com/2021/05/27/asia/us-navy-aircraft-carriers-afghanistan-pacific-intl-hnk/index.html
-
-
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191415/M5-2.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接：[https://www.judicialwatch.org/press-releases/jw-statement-fb-oversight-board/?utm\_source=twitter&utm\_medium=social&utm\_campaign=press\_release](https://www.judicialwatch.org/press-releases/jw-statement-fb-oversight-board/?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=press_release)
 
 +1
