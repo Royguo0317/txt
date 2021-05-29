@@ -1,53 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共眼里的境外势力
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1278910/)
+## 5月28日郴州白露塘市场五名学生被砍据传一名死亡
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1279553/)
 
-#### 作者：小白杨
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28202012/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-13.png)
+据[吴文行\[email protected\]](https://twitter.com/wuwenhang)于[下午7:34 · 2021年5月28日](https://twitter.com/wuwenhang/status/1398241172729049091)·[Twitter for Android](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/28194721/Eff5rqrXgAA7U-C.jpg)图片来源：[twitter](https://twitter.com/jam79922967/status/1294777950617964545?lang=hi)
-
-境外势力现在已经成为一个筐，什么棘手问题都扣到境外势力头上。从香港、新疆、西藏事件，到老兵上访、农民工维权、成都49中学学生自杀事件，只要指责中共的都可以扣上境外势力大帽子。
-
-在盗国贼眼里，简直是十四亿老百姓都已被境外势力渗透了。
-
-5月26日，胡锡进微博称，白银市山地马拉松21人死亡事故中，救了6名运动员的牧羊人接受媒体采访时，将之前“这种恶劣天气还挺常见的”改为面对央视镜头说“那种天气真的非常罕见”。有人断言为，是帮助白银市相关负责人和主要领导脱责，逃避惩罚。老胡要求大家不要轻易下判断。
-
-有网友调侃道，“我看就是境外势力操控了天气！”
-
-有网友说，“牧羊人改口和谭书记福奇的处境一样，难啊!”
-
-“明天来外交部上班。”
-
-“我认为是龙王爷渎职，不作为乱作为造成的。”
-
-“肯定是太平洋收了登子的钱啊，早就把海洋暖流给渗透的明明白白了。”
-
-在此事件中，一名遇难者的女儿却倍受侮辱与围攻。仅仅因为她在网络上发现，一倒地的人正是其父亲，就在网上发了相关信息。谁知道，却被铺天盖地的人们围攻，竟然说她是境外势力的阴谋。
-
-境外势力按照中共间谍法规定，是指由安全部或者公安部认定的“敌视中华人民共和国人民民主专政的政权和社会主义制度，危害国家安全的组织。”
-
-境外势力一词急剧杀伤力，一旦贴上这个标签就意味着从人民内部矛盾演变为阶级斗争。中共对待阶级敌人，可以采取一切措施，直到肉体消灭。因此，墙国之内的很多突发事件，就以打压所谓的境外势力渗透而烟消云散。
-
-为了强力维稳，中共维稳经费2020年高达1832亿元，维稳经费远远超过军费开支，但结果是“越维稳越不稳”。
-
-作为中共，为个掩盖自己的邪恶，只能高举“境外势力”的大帽大棒、一刀切地堵住所有人的嘴巴。
-
-这种思维，实质是一种逃避。而逃避的背后则是一种恐惧：既是恐惧民众了解真相，也是恐惧百姓揭竿而起。
-
-到底谁是境外势力？这个可大可小，看不见摸不到，就像电影《斯大林之死》中，贝利亚在被处决时喊道：“境外势力，哪个？他妈的月球吗？”
-（本文只代表作者观点，与Gnews平台无关。）
-
-**参考文献链接：**
-
-- 🔗[也太无耻了吧，怎么什么事情都要往＂境外势力＂上扯？](https://tieba.baidu.com/p/7368715000#/)
-- 🔗[微博极速版分享 **胡锡进**](https://share.api.weibo.cn/share/224724805.html?weibo_id=4641247022552643&amp;source=weibolite)
-- 🔗[热点 | 四川网警详解：境外势力如何介入中学生自杀事件](http://baijiahao.baidu.com/s?id=1700070219743751863&amp;wfr=spider&amp;for=pc&amp;searchword=境外势力)
+突发！郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡 。这是监控录像！
 
 
-* * *
 
-***编辑整理/校对: **Ting Guo*
+> 突发！郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡 。这是监控录像！ [pic.twitter.com/9maIYY1ucK](https://t.co/9maIYY1ucK)
+> — 吴文行wenxingwu (@wuwenhang) [May 28, 2021](https://twitter.com/wuwenhang/status/1398241172729049091?ref_src=twsrc%5Etfw)
 
-+1
+
+
+另据[野山@naochashu](https://twitter.com/naochashu)于[下午4:20 · 2021年5月28日](https://twitter.com/naochashu/status/1398192435134533635)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+
+突发，郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡……
+
+
+
+> 突发，郴州白露塘市场某男子砍伤五名学生，据传一名当场身亡…… [pic.twitter.com/gfNKNHu28u](https://t.co/gfNKNHu28u)
+> — 野山🎗 (@naochashu) [May 28, 2021](https://twitter.com/naochashu/status/1398192435134533635?ref_src=twsrc%5Etfw)
+
+
+
+另据[\[email protected\]](https://twitter.com/LiuLiu92266749)于[上午5:29 · 2021年5月29日](https://twitter.com/LiuLiu92266749/status/1398391015719931905)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+
+地獄般的存在：湖南郴州白露塘市場一男子砍傷五名學生，一名學生當場死亡。
+
+
+
+> 地獄般的存在：湖南郴州白露塘市場一男子砍傷五名學生，一名學生當場死亡。 [pic.twitter.com/y0Es9ozBgP](https://t.co/y0Es9ozBgP)
+> — Leo😷 (@LiuLiu92266749) [May 28, 2021](https://twitter.com/LiuLiu92266749/status/1398391015719931905?ref_src=twsrc%5Etfw)
+
+
+
+眼睁睁看着活生生的孩子毙命刀下我们却无能为力，在这个地狱般国度里，要么麻木地活着，要么痛苦地活着，要么精神病一样的活着，而精神病一样活着的人在对弱者施暴时绝不心慈手软，而可悲的是这样的精神病总是层出不穷。
+
+（文章内容仅代表作者个人观点）
+
+0
