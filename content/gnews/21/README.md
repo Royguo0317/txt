@@ -1,48 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议院一致通过要求解密武汉实验室情报的霍利法案
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1282272/)
+## 【快讯】伊朗两艘军舰可能前往委内瑞拉
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1282531/)
 
-翻译: JS709 | 校对: Nick | 审核：断播
+美国正在监视两艘可能前往委内瑞拉的伊朗海军舰船。其中一艘船可以用作电子战和特种作战任务的平台。
 
-美国参议院周一一致通过了一项法案，要求联邦政府解密有关中共国武汉病毒研究所与中共病毒之间联系的所有信息，此前《华尔街日报》报道说，该实验室的三名研究人员由于出现了类似中共病毒症状而于2019年11月住院治疗。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29215242/960x0-2.jpg)华盛顿特区-5月13日：参议员乔什•霍利（Josh Hawley）盖蒂图片
-**关键事实**
+七十年的伊朗，和西方文明如此的接近，仅仅过去四十年， 就回归到了原始时代。委内瑞拉，作为南美最富饶的国家， 盛产石油和世界小姐，现在变成了南美最贫穷的国家。他们都有一个共同的特点，集权独裁，封闭互联网，大量的维稳军费打压国内意见人士。而且，他们都是中共的老朋友。中共在伊朗和委内瑞拉输出了有特色的社会主义集权制度，派遣高科技公司诸如华为，海康威视等，帮助集权统治者建立信息防火墙，帮助建立核武设施，建立自己的小圈子，来对抗西方文明先进大国。现在他们终于开始公开互动了。
 
-- 该法案要求美国国家情报局总监在90天内解密有关实验室与病毒之间联系的“所有信息”。
+参考链接：
 
 
-- 该法案还要求情报总监“尽可能多地”公开有关病毒起源的信息，以便“尽快”确认病毒起源。
+
+> JUST IN – United States is monitoring two Iranian naval vessels possibly heading to Venezuela. One of the ships can serve as a platform for electronic warfare and special operations missions (Politico)
+> — Disclose.tv 🚨 (@disclosetv) [May 30, 2021](https://twitter.com/disclosetv/status/1398791331514826755?ref_src=twsrc%5Etfw)
 
 
-- 该法案由参议员乔什·霍利（来自密苏里州的共和党参议员）提出，并由参议员迈克·布劳恩（Mike Braun）（来自印第安纳州共和党参议员）共同提出，该法案在周三晚上获得一致通过，这意味着没有任何参议员反对。
 
+图片来源：[https://world.huanqiu.com/](https://world.huanqiu.com/)
 
-- 尽管民主党议员越来越支持调查中共病毒的起源，但众议院领导人尚未表示是否会在下议院进行投票，而白宫也没有表示总统拜登会否签署该法案。
+整理撰稿：蓝精灵
 
+校对发布：Penny
 
-- 福布斯已与白宫，众议院议长南希·佩洛西（Nancy Pelosi）的办公室以及众议院多数党领袖斯坦尼·霍耶（Steny Hoyer）的办公室取得联系，以获取他们的评论。
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-
-**关键背景**
-
-中共病毒病毒大流行以来关于病毒是人为制造而不是自然产生的理论基本都被边缘化了。但是，《华尔街日报》本周的曝光已使专家们承认不能排除“实验室泄漏”理论——尽管尚无法得到证实。
-
-**意义重大的数字**
-
-90，这是拜登总统在星期三的一份声明中给情报界的天数——在90天内要“使我们更接近该病毒起源的明确结论”。拜登说，他要求这次调查包括“针对中共国的具体问题”和“我们国家实验室的角色”。
-
-**切入点**
-
-该法案试图回答的具体问题有：武汉病毒研究所的“活动”，那三名研究人员的身份、症状和病毒状态，以及他们在武汉病毒研究所的角色——特别是他们是否“参与制造或暴露于中共病毒”。
-
-**要关注什么**
-
-如果众议院通过并由拜登签署，则该法案将要求情报总监向国会提交一份解密的报告，其修订内容仅限于“保护信息来源和信息获得方法”而不可“改变或遮盖”重要信息。
-
-原文作者：安德鲁·索兰德（Andrew Solender）
-发布时间：美东时间2021年5月26日下午09:53
-原文链接:[https://www.forbes.com/sites/andrewsolender/2021/05/26/senate-unanimously-passes-hawley-bill-declassifying-intel-on-wuhan-lab/?sh=4d420cba6844](https://www.forbes.com/sites/andrewsolender/2021/05/26/senate-unanimously-passes-hawley-bill-declassifying-intel-on-wuhan-lab/?sh=4d420cba6844)
-
-0
++1

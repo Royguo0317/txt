@@ -1,31 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 古巴仍在未与美国&#8221;充分合作&#8221;反恐的国家名单上
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1282402/)
+## 病毒大流行时间线——2019年12月31日台湾提醒世界卫生组织武汉存在不明肺炎并暗示有人传人现象
+` ThetruthofCCPvirus` [轉載自GNews](https://gnews.org/zh-hans/1282489/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30000640/logo_square.jpg)
+台湾疾控中心在2019年12月31日给世界卫生组织发[邮件](https://twitter.com/MOHW_Taiwan/status/1248915057188024320)，询问有关在武汉发生的不明肺炎的进一步消息。
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29224610/C-32.jpg)taskforceamericas.org
-美国军事网5月29日报道，美国国务院5月26日发表声明称，古巴仍在未与美国全力合作打击恐怖主义的国家名单上。名单还包括叙利亚、委内瑞拉、朝鲜和伊朗。
+邮件中指出中共已经隔离了相关病例，暗示可能存在人传人情况：“（中国）卫生部回应说这些病例不是SARS；不过样本还在进一步检测中，而且相关病例已经在隔离治疗”。
 
-古巴在2019年被列入该名单，这是川普政府在今年1月宣布其为支持恐怖主义国家之前迈出的一步，也是川普最后的外交政策决定之一，是川普政府四年来对古巴不断升级的经济和外交压力的顶峰。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29231709/FDEAE90E-23EA-4F2C-AE0C-2288D6579870.png)
 
-川普的决定标志着哈瓦那的重大挫折。2015年，在两国关系正常化的过程中，哈瓦那离开了该名单。川普政府指责哈瓦那支持委内瑞拉马杜罗(Nicolás Maduro)政权，马杜罗本人也证实了这一点，并接待了哥伦比亚民族解放军(Columbia National Liberation Army)游击队的最高领导层。
+台湾疾控中心询问WHO有关武汉不明肺炎的邮件，图片来源：[推特](https://twitter.com/MOHW_Taiwan/status/1248915057188024320)
 
-在全球范围内，那些不帮助美国打击恐怖主义的国家被禁止出口武器和国防服务，还有其他一些限制。古巴当局预计拜登政府会改变对古巴的政策，并发出了许多信号，表明他们希望恢复奥巴马总统时期开始的关系正常化。
+根据台湾疾控中心在2020年4月11日发布的[新闻稿](https://www.cdc.gov.tw/Category/ListContent/sOn2_m9QgxKqhZ7omgiz1A?uaid=PAD-lbwDHeN_bLa-viBOuw)给出发这封邮件当时的背景：“出于谨慎考虑，我们在邮件中用非典型性肺炎一词，并特别指出病人已经被隔离治疗。公共卫生专家应该能够从这样的措辞中看出存在人传人的可能。因为当时台湾还没有病例，所以我们无法直接下结论说存在人传人情况。”
 
-白宫方面则表示，古巴不是外交政策的重点。美国总统拜登(Joe Biden)尚未表示有意取消前一届政府做出的有争议的决定，比如禁止飞往大多数机场的航班、限制汇款以及禁止乘船前往该岛。
+“To be prudent, in the email we took pains to refer to atypical pneumonia, and specifically noted that patients had been isolated for treatment. Public health professionals could discern from this wording that there was a real possibility of human-to-human transmission of the disease. However, because at the time there were as yet no cases of the disease in Taiwan, we could not state directly and conclusively that there had been human-to-human transmission.”
 
-古巴正在苏联解体以来最严重的经济危机中挣扎，中共病毒疫情导致其旅游业瘫痪，川普政府的制裁严重限制了汇款，而汇款是这个岛国的关键生命线。痛苦的货币改革导致通货膨胀率飙升，排队领取食品再次成为家常便饭。由于越来越多的不满情绪滋生，在社交媒体上，开始传出民众呼吁政府改革的声音。在这个社会主义意识形态与民主法治发生最激烈碰撞的历史时刻，仅有的几个社会主义国家再次经历考验。
+新闻稿显示，台湾政府没有得到正面回复：“而WHO IHR人员仅仅简短回复说，台湾报告的信息已经转给相关专家。而中国政府也只是给出一个官方通告。”
 
-参考链接：
+“However, in response to our inquiries, the WHO IHR focal point only responded with a short message stating that Taiwan’s information had been forwarded to expert colleagues; China provided only a press release.”
 
+而当天《人民日报》官网刊出《[武汉不明原因肺炎不能断定是SARS，7例病情危重](http://yuqing.people.com.cn/n1/2019/1231/c209043-31530359.html)》文章。
 
+文章提到：“调查发现，此次肺炎病例大部分为华南海鲜城经营户。目前，相关病毒分型检测、隔离治疗、终末消毒等工作正在进行。
 
-> [Cuba remains on list of countries that don’t help US fight terrorism](https://americanmilitarynews.com/2021/05/cuba-remains-on-list-of-countries-that-dont-help-us-fight-terrorism/)
+武汉多位医院人士称，目前病因尚未明确，不能断定是网上传言的SARS病毒，其他重症肺炎的可能性更大。而且即便是SARS病毒，此前也已有成熟的防控救治体系，市民也不用恐慌。”
 
-
+（文章内容仅代表作者观点，与G-News网站无关）
 
 0

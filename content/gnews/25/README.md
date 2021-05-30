@@ -1,24 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美参议员克鲁兹力推《禁止联邦疫苗护照》法案！
-` 加拿大多伦多枫叶农场 羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1282177/)
+## 【有声读物】坦克人嘻哈之歌
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1282473/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29210629/klz1-2-edited.jpg)图片来源：thepostmillennial
+配音：香草山福音部 小草
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-据加拿大知名自媒体《Thepostmillennial》5月29日新闻报道：美共和党参议员特德·克鲁兹联袂参议员迈克·布劳恩和辛西娅·鲁米斯于日前向国会提出立法案，以禁止联邦政府目前急欲推行的疫苗护照计划。
 
-该立法还将阻止拜登当局试图通过使用（中共病毒）COVID19疫苗护照与第三方，例如航空公司或其他全球实体合作的措施。此外，该法案对最初由美国食品药物管理局（FDA）通过紧急批准并授权各级政府使用的任何COVID19疫苗实施5年期限的非强制性接种规定。虽然目前已有数百万美国人接种了该疫苗，但德克萨斯州和其他11个州已通过行政令或立法，禁止在其各自州郡域内使用疫苗护照。
 
-科鲁兹告诉福克斯新闻主持人史蒂夫·多西：“虽然我认同各州合理使用疫苗，但政府对此却有真正的潜在影响力。我不认为任何人都应该被迫接种疫苗。因为这应该是每个人自己的决定，而且是根据自身的健康状况做出完全自由的选择。有鉴于此，我们在本周提出了该项立法，以禁止联邦政府推行的任何疫苗护照，并以此阻止拜登当局采取任何措施来强制公众接种疫苗。”
 
-该参议员继续补充道：“由于该法案建立在现有的民权法律基础上，因此它同时也将禁止在个人就业方面的疫苗歧视。我们看到某些地方的企业主试图解雇那些不愿接种疫苗的员工，但此举是完全非法的。因为决定您健康的是您自己而不应该是老板或是政府，更不应该是强迫您做出这些决定的其他任何人！”
 
-克鲁兹随后还讨论了即将出台的另一项允许美国人就其在疫情中所受到的各种伤害而起诉中共国政府。为此他强调：“我们早就知道中共政府一直在掩盖病毒来源真相和疫情事实。该政权在疫情爆发初期就残酷逮捕并关押了那些包括医生和新闻工作者在内的吹哨人，直至让他们消失或沉默！而正是这些英雄的中国人，在最初阻止COVID19于全球范围内的迅速蔓延发挥了重要作用！”
 
-[原文链接](https://thepostmillennial.com/watch-sen-ted-cruz-introduces-bill-to-prohibit-federal-vaccine-passports)
+Real talk，real 没钱，real 厌
 
-本文仅代表原媒体信息和其作者个人观点！
+没钱的日子逼得我天黑见不到孩子
+没枪的日子掐着我脖子吃不到饺子
+没心的日子掩住我耳朵听不到夫子
+没劲的日子蒙着我眼睛看不到镜子
 
-+4
+
+
+**文字版原文：[【香草诗词汇】坦克人嘻哈之歌](https://gnews.org/zh-hans/1274593/)**
+
+作者：纽约香草山福音部 小草
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
