@@ -1,39 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 非洲猪瘟肆虐，中共国进口肉类破纪录
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1283665/)
+## 【香草诗词汇】记忆
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1283708/)
 
-翻译与评论：Shirley
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30104222/2021-05-29_Task15_Cover.jpg)网络图片
-根据澳洲肉类和畜牧业协会（MLA）的数据，中共国在3月份打破记录，从世界各国进口了超过100万吨的肉类。2021年第一季度，中共国的肉类进口量比去年同期增长了21%。分析师认为，中共国正在遭受的非洲猪瘟新菌株，造成了蛋白质的大量缺口。
-
-自2018年中美贸易战爆发以来，中共国为了制裁美国的养猪行业，转而从俄罗斯购买猪肉，非洲猪瘟也就在此期间由俄罗斯传入了中共国。
-
-中共国农业农村部副部长刘焕鑫，于今年3月2日的国务院新闻办在北京举行国务院政策例行吹风会上，介绍动物疫情防控工作时指出，2020年中国共报告发生19起非洲猪瘟疫情，累计扑杀生猪1.4万头，与前几年相比大幅度下降。
-
-中共国于2018年8月份发生非洲猪瘟疫情，当年共发生99起，扑杀生猪80万头；2019年发生非洲猪瘟疫情63起，扑杀生猪39万头。
-
-刘副部长吹嘘的，好像2020年中共国的非洲猪瘟疫情得到有效控制。可实际情况不是中共控制了非洲猪瘟，而是经过2018-19两年非洲猪瘟的流行，大部分中共国的生猪被扑杀，到2020年已经没有多少猪可杀了。况且，中共国公布的数据并不真实。
-
-中共国在澳洲去年四月呼吁调查中共病毒起源后，也对澳洲的牛肉进行了制裁，转道采购阿根廷的牛肉。
-
-目前阿根廷正在供应中共国约22%的牛肉需求。由于中共国的牛肉进口激增，导致阿根廷境内的牛肉价格飙升。阿根廷政府出于保护本国民众利益，于5月突然规定了30天的所有出口禁令。在阿根廷发出牛肉出口禁令后，中共国不得不转回头，又开始从美国购买以填补缺口。
-
-中共国非洲猪瘟新菌株的爆发，必将给国内的猪肉生产带来进一步的压力。即将到来的民生必需物资的匮乏，或许也是现在中共国鼓励或半强制普通民众注射中共病毒疫苗的原因之一。
-
-（本文仅代表个人观点）
-
-*审稿、编辑：光耀华夏*
-
-参考资料：
-
-[ABC News: China’s record buying spree of protein, as African swine fever bites](https://www.abc.net.au/news/2021-05-29/china-record-meat-imports-as-african-swine-fever-bites/100174096)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29223512/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
+作者：纽约香草山健身部 澄道
 
 
-+1
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+
+
+
+记忆停留在儿时
+
+听故事之梦幻
+
+尤其是在奶奶的炕头
+
+记忆静止在少年
+
+讲人生之墨香
+
+不过是在姥姥的笔尖
+
+心田结硕果
+
+梦幻种子先
+
+记忆存美境
+
+墨香种子全
+
+不愿意长大
+
+贪婪东流水
+
+已然水污田毁
+
+共产怪兽
+
+不情乎离开
+
+嗔恨不饶人
+
+实质人狂心魔
+
+恶党邪灵
+
+热炕头上
+
+何止是梦幻停留
+
+分明是奶奶在教我自小
+
+要学会分享
+
+不可贪玩独得
+
+楷书笔尖
+
+怎又是墨香静止
+
+一定是姥姥在示范
+
+啥是身教
+
+胜于言教
+
+美梦幻久住
+
+醇墨香恒长
+
+@ 澄道来了
+
+@ 爱动爱议码05302
+
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
