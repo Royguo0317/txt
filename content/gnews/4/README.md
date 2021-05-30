@@ -1,11 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210530
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1284109/)
+## 维加诺大主教措辞犀利 “中（共）国模式将被强加给全世界”
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1284182/)
 
-作者：2020喜马拉雅
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30150112/001-3-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30150134/002-2-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151126/003-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151131/004-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151211/005-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151217/006-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151220/007-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151255/008-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151300/009-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151306/010-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151306/011.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151319/012-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151341/013.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151350/014.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151356/015.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151401/016.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151406/017.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151409/018.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151419/019.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151426/020-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151448/021-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151448/022.jpg)
-审核：神奇四侠；发稿：神奇四侠
+```
+新闻来源：《国家记录报》Il Primato Nazionale  
+发布时间： 2021年5月24日
+记者： 克里斯蒂娜•高乌利（Cristina Gauri ）
+翻译整理/简评：小白鸽
+```
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30164532/IMG_20210530_224458.jpg)图为前梵蒂冈教廷驻美大使、乌尔帕纳区名义大主教维加诺 图片来源：视频截图
+
+中（共）国肯定也在利用世界经济危机，中（共）国的金融机构正在从意大利开始大肆收购基础设施、战略公司、旅馆及有名望的不动产。这是维加诺主教在接受《*Kultur Magazin*》杂志记者迈克·希克森（*Maike Hickson*） 的采访时剑指中（共）国，告诉人们中（共）国正是大重启的主要角色之一，他们与倡导全球化的精英们为维护他们的利益要彻底消除我们所有的政治、社会和经济之间的平衡。
+
+如果自由主义者和共产主义者之间的联盟最终确定，那么这是全世界将要面对的模式。中共将向人们展示独裁是向大众实行大重启的唯一方式。这是复制六十年代毛泽东发动的文革的现代模式。中（共）国模式也会在那些要实行大重启的国家得到运用。他们要做的第一件事是对“**政治、宗教和民间的不同声音”静音**。尤其是“ 当他们以有效的论据和明确的证据对付世界人民的荒诞阴谋时”, 这些征兆，在西方和“自由”国家已存在多时。
+
+他们表现为“**无情地封锁社交媒体，完全被主流媒体奴役，追踪公民活动。对个人生活的过度控制”  **最后一项也同样重要，所谓的“社会信用”这在中（共）国已经使用，有些人也建议在西方使用。
+
+#### 社会信用
+
+尤其是在社会信用方面，大主教特别指出它的用途是: “ 用来给每一位公民一个积分，其目的在于从国家的角度来分析个人的信用度。这是在国家掌握的对每一位公民的社会、经济状况的大数据的分析基础上得出的。这是对大众监督的一种形式。旨在对个人和公司进行分类， 并有可能对每次不遵守政府决定的个人和组织排除在社会生活之外。每一位公民都会根据自己的行为受到奖励及惩罚。
+
+#### 疫苗护照是社会信用的第一种形式
+
+疫苗护照是社会信用的第一种形式： 社会信用低会导致被私立学校排斥 “会使互联网连接速度减慢， 会被排除在好工作之外，还会被禁止预订酒店甚至会被登记在公共黑名单上。” 维加诺大主教认为这一天迟早会到来。他指出“让我们看一下由于疫情而实行的疫苗护照这一措施，**依我看，中（共）国模式已经在世界各地正在实行。”**
+
+#### 简评：
+
+**维加诺大主教一针见血地指出当前全世界正面临着危机， 这一危机来自中共。中共向世界展示唯有“独裁”才是实现大重启的唯一方式。他们与倡导全球化的精英们会使人类进入中共模式。中国百姓已经习以为常的受控方式，会在西方以防疫为借口被堂而皇之地采用。 这几年，我们相继看到了西方主流媒体，对持不同政见者的封杀和对病毒真相的掩盖,  西方民主社会的根基有被颠覆的危险。面对危机， 爆料革命便是黑暗中的一盏明灯, 我们的GTV、GNEWS、盖特及其G系列会联合全世界一切正义的力量，打破大重启，变大重启为大觉醒。**
+本文只代表译者个人观点， 与GNEWS平台无关。
+
+**原文原文链接：** 
+🔗[Viganò durissimo contro la dittatura cinese: “Modello che verrà imposto a tutto il mondo”](https://www.ilprimatonazionale.it/cronaca/vigano-durissimo-dittatura-cinese-modello-194736/)
+
+* * *
+
+***编辑整理/校对: **Ting Guo*
 
 0

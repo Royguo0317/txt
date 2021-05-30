@@ -1,31 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国务院已申请6.65亿美元以保护欧洲
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1283943/)
+## “你为什么反对实验室泄漏理论？”——卢比奥参议员在国会对福奇进行质询
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/1284032/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+**摘要：在2021年5月26日的参议院拨款委员会关于NIH资金的听证会上，共和党参议员卢比奥（Marco Rubio）质询福奇（Anthony Fauci）关于中共病毒的起源和解释他过去淡化实验室泄漏理论的原因。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30135221/Fauci_2021-05-27-hearing.srt.txt)
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://www.youtube.com/watch?v=ilt\_NcaIIRk](https://www.youtube.com/watch?v=ilt_NcaIIRk) (00-5:10)
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30133020/E-10.jpg)cloud.tapatalk.com
-05月29日，美国国务院要求国会在2022财政年度提供6.658亿美元，以保护欧洲和欧亚大陆。这在美国部门的预算要求中有所说明。
+* * *
 
-据该部门称，这一数额将提高该地区国家对“外国有害影响”的复原力，并促进欧洲-大西洋一体化。特别是，所分配的资金将用于应对来自俄罗斯和中共国日益增长的挑战。
-
-报告具体指出：“这笔资金将用于支持旨在保护民主、法治、促进人权、保护环境、性别平等、打击腐败和打击独裁主义的项目。”
-
-预计这些计划还将“支持自由和公平的媒体、公民社会、能源和基础设施、网络安全和经济发展”，并帮助应对中共病毒疫情的影响。受援国包括格鲁吉亚、乌克兰和摩尔多瓦。资助的目的也是为了帮助白俄罗斯人民寻求民主。
-
-对于乌克兰，国务院要求提供2.55亿美元。 报告称，这些援助将有助于对抗俄罗斯的侵略，加速反腐败改革和该国融入欧洲一体化的机构改革进程。
-
-美国国务院称，支持监督顿巴斯冲突的欧安组织特别监测团（SMM）的工作是另一个重要的重点领域。
-
-美国国务院还要求从2022财政年度的联邦预算中拿出8.1亿多美元用于对外广播，主要针对俄罗斯、中共国和伊朗。这笔钱将用于该部门的全球媒体机构（USAGM）。USAGM监督美国之音和自由电台，这两个电台被俄罗斯司法部列为外国代理人。
-
-下一个美国财政年度将从2021年10月1日开始。
-
-参考链接：
-
-[https://www.rbc.ru/rbcfreenews/60b142fb9a794765be08de03](https://www.rbc.ru/rbcfreenews/60b142fb9a794765be08de03)
+**翻译：【一花一世界】
+字幕：【XO小粉红】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
