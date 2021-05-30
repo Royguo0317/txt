@@ -1,25 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《老友记》的特别节目受到中共国审查
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1284198/)
+## 拜登向习表明“我们只能为全世界人权发声”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1284296/)
 
-消息来源：意大利晚报（corriere.it）
-发布时间：2021年05月28日
-翻译整理：斩草要除根
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-中共国的审查制度甚至没有放过《老友记》，在上一季播出的17年后六位主角再次聚首，全球数百万电视剧粉丝在屏幕前观看名为《重逢》的特辑。但在中文版中，中共国将大约一个半小时的节目缩短成了六分钟，其中 Lady Gaga、贾斯汀比伯和 K-Pop Bts 超级明星乐队的客串场景都给删除掉了，因为他们曾在过去以某种方式冒犯了北京。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30164437/%E8%80%81%E5%8F%8B%E8%AE%B01.jpg)德国之声中文网
-粉丝们纷纷表示“目瞪口呆”，爱奇艺、优酷和腾讯视频这三个主要媒体平台都彻底删除了这些音乐人的镜头，这在粉丝中顿时引起了轩然大波。《老友记》在中共国拥有庞大的粉丝群，许多年轻人认为通过该节目可以了解英语世界和美国文化。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30164526/%E8%80%81%E5%8F%8B%E8%AE%B02.jpg)
-类似这样的审查事件可以追溯到几年前。Lady Gaga于2016年被禁止前往中共国与达赖喇嘛会面。贾斯汀·比伯（Justin Bieber）自2014年因为参观有争议的东京靖国神社也无法再在该国演出。K-Pop Bts乐队组合里因为其中一位成员在去年一次节目中谈到了在 1950-53 年韩国和美国共同对抗中共国支持朝鲜这一事件。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30181314/B-26.jpg)nbcnews.com
+在笔者眼里，拜登仍然是个窃位总统，在邪共的魔招下，靠舞弊欺诈入主白宫。
 
-简评：中共式的审查管控是一种行政行为，属于中共国大规模监控的一部分。中共更关心的是维护他们所把持的权力，任何有影响到其政治领域的都会得到惩罚，这已经到了前所未有的极端程度。所谓：”逆我者亡”这是形容中共手段最贴切的，在中共的淫威之下，似乎都要向其献媚才是合理的生存方式，何等的荒谬。
+5月20日笔者发转载表文章，质疑白宫对病毒溯源的态度依然含混【1】；笔者忘不了5月24日面对福克斯记者对中共病毒零号病人追问时，白宫新闻秘书的回答，“……（对实验室泄露说）不能仓促下结论……”【2】；更惊讶5月25日曝出的消息，拜登停止了对中共病毒溯源的调查【3】，那是川普总统的国务院《军控与核查局》（the State Department’s arms control and verification bureau）进行的，唯一的官方对中共病毒来源的认真调查【4】；虽然拜登惊慌失措地立即发表了此地无银三百两、推责情报机构、表演似的“限期提交报告”的声明【5】，只能解读为他是在做贼心虚。
 
-（个人观点）
+大家都在等待拜登政府回答德文·努内斯（Devin Nunes）众议员就中共病毒的溯源、追责公开信的25问【6】；也在静观拜登如何答复罗恩·约翰逊（Ron Johnson）、里克·斯科特（Rick Scott）参议员的公开信，公开信质问拜登为何停止对中共病毒的溯源调查，以及限期提交的7项信息【7】。
 
-[新闻链接](https://www.corriere.it/esteri/21_maggio_28/cina-puntata-speciale-friends-censurata-scoppia-l-ira-fan-8d1a3ef2-bf84-11eb-b7a1-7e76296b457a.shtml)
+以上种种，验证了塞林博士对拜登的揭露：“拜登政府掩盖了真相”。【8】
 
-校对/上传：老中医
+强大的民意和压力下，今天（5月30日）拜登又作出与中共保持距离的表态，“我最近与习主席进行了长达两个小时的长时间谈话，向他表明，我们只能为全世界的人权发声，因为我们就是这样的人。”【9】这是在“阵亡将士纪念日”（the Memorial Day）讲话中提到的。
+
+最近？又拜习了？不会指春节前的那次吧！又是两个小时？是向习神报告自己不得已的苦衷？我这里顶不住了，盖不了了，他们都知道了……不行你们就赶紧交代投降吧……
+
+还是那句话，拜登，以及你背后的势力，都在盯着你们的一举一动，看你们敢怎样再与中共勾兑?
+
+参考链接：
+
+【1】[https://gnews.org/zh-hans/1260829/](https://gnews.org/zh-hans/1260829/)
+
+【2】[https://gnews.org/zh-hans/1270254/](https://gnews.org/zh-hans/1270254/)
+
+【3】[https://gnews.org/zh-hans/1273869/](https://gnews.org/zh-hans/1273869/)
+
+【4】[https://gnews.org/zh-hans/1278874/](https://gnews.org/zh-hans/1278874/)
+
+【5】[https://gnews.org/zh-hans/1274404/](https://gnews.org/zh-hans/1274404/)
+
+【6】[https://gnews.org/zh-hans/1257365/](https://gnews.org/zh-hans/1257365/)
+
+【7】[https://gnews.org/zh-hans/1278874/](https://gnews.org/zh-hans/1278874/)
+
+【8】[https://twitter.com/LawrenceSellin/status/1383676532711858184](https://twitter.com/LawrenceSellin/status/1383676532711858184)
+
+【9】[https://www.whitehouse.gov/briefing-room/speeches-remarks/2021/05/30/remarks-by-president-biden-at-an-annual-memorial-day-service/](https://www.whitehouse.gov/briefing-room/speeches-remarks/2021/05/30/remarks-by-president-biden-at-an-annual-memorial-day-service/)
 
 0

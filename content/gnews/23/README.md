@@ -1,52 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【币圈】-数字货币动态- 2021.05.30
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1283913/)
+## “你为什么反对实验室泄漏理论？”——卢比奥参议员在国会对福奇进行质询
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/1284032/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
+**摘要：在2021年5月26日的参议院拨款委员会关于NIH资金的听证会上，共和党参议员卢比奥（Marco Rubio）质询福奇（Anthony Fauci）关于中共病毒的起源和解释他过去淡化实验室泄漏理论的原因。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30135221/Fauci_2021-05-27-hearing.srt.txt)
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://www.youtube.com/watch?v=ilt\_NcaIIRk](https://www.youtube.com/watch?v=ilt_NcaIIRk) (00-5:10)
 
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image5.jpg)
+* * *
 
-## **每日一问**
-
-### *看似完全去中心化的BTC骗局中，不露面的镰刀会放过韭菜吗？*
-
-## **喜马拉雅Coin要闻**
-
-- 28日联盟答疑提示：之前借贷项目，以后可以通过HDO进行，而不需要再提供其它银行账号。
-
-
-## **新闻动态**
-
-1. 官方消息，以太坊扩容网络Arbitrum宣布已部署以太坊主网测试版Arbitrum One，向开发者开放，有超过250个团队申请接入开发者测试网。
-2. 官方消息，以太坊开发者将于6月4日22:00召开EIP-1559GasAPI调用会议，持续60分钟。议程包括GasAPI提供者作介绍；Gas价格的JSONRPC终端；公开讨论。
-3. 官方消息，以太坊二层扩容项目Celer Network社区发起提案CIP-3，旨在通过组合协议策略实现最优收益。
-4. 官方消息，Big Data Protocol启动数据代币bBETA，已于北京时间08:00AM开始释放。用户质押BDP、bALPHA和bBETA可挖矿bBETA。此外，目前已可申领bBETA公平空投。
-5. 官方消息，支付服务商Bitrefill添加支持USDT（TRC-20），后续将继续添加其他链的USDT支持。
-6. 官方消息，去中心化金融平台Celo宣布地址数突破100万。
-7. 官方消息，Uniswap社区结束投票，以将近100%的支持率通过了在Arbitrum部署Uniswapv3的提案。根据之前Uniswap创始人Hayden Adams的承诺，Uniswap开发团队将在Arbitrum部署Uniswapv3。
-8. 5月29日消息，全球首家实现原生代币跨链交易的公链Class ZZ (CZZ)已被数字货币行情网CoinGecko、CoinMarketCap 官方收录并展示。未来，用户可以通过CoinGecko、CoinMarketCap两大行情网站了解CZZ的行情动态及基本信息。
-9. Coindesk消息，以太坊扩展解决方案Polygon的区块链数据已经集成到谷歌的云平台BigQuery，这样开发者能够以更简单的方式分析Polygon上的链上数据。据称，该集成的潜在好处包括监控Gas费用和智能合约，以及确定网络上最流行的代币或应用程序。
-10. BSC链上市商Burger Swap官方承认经历闪电贷攻击后，官方宣布已修复Bug并重新开放兑换和流动性，随后公布补偿计划。Burger Swap提醒，由于攻击将导致流动性不足，交易时要注意滑点和价格影响。
-11. The New York Age消息，DeFi借贷平台RikkeiFinance完成560美元融资。 Rikkei Finance是一家越南DeFi初创公司，正在构建一个区块链贷款平台，平台允许使用NFT等数字资产进行抵押。
-12. 以太坊联合创始人V神近日在Startmeup HK虚拟会议表示，以太坊即将过渡到权益证明共识机制(PoS)是区块链能源消耗问题的解决方案。
-13. Dailyhodl消息，华尔街之狼Carl Icahn正在考虑以一种“大方式”考虑使用加密货币，并为此预留了15亿美元的潜在替代货币。
-14. The Block消息，Coinbase机构产品副总裁Greg Tusar表示，多策略对冲基金对其主要经纪业务的兴趣正在迅速增长。此前消息，Coinbase推出新版大宗经纪业务平台。
-15. 知名矿工Wang Chun 今日在推特表示，DeFi用户每天都在支付巨额费用。这是ETH社区的眼泪。
-16. 彭博消息，美国从一名加利福尼亚男子手中没收了价值约125万美元的比特币（18.4枚）和以太坊（222.5枚），因其承认去年经营无牌汇款业务、洗钱和未能维持有效的反洗钱计划。
-17. CoinDesk消息，美国证券交易委员会对五名涉嫌参与2018年倒闭的Bitconnect加密平台的个人提起诉讼。因涉嫌加密货币诈骗。注：这起20亿美元的骗局于2018年1月内爆，关闭了其借贷和交易服务。
-18. The block消息，美国财政部希望扩大加密报告要求以打击逃税的新目标。
-19. CoinDesk消息，拜登的2022年预算提案于周五首次公布，其中包括几项新提出的加密报告要求。其中包括两项提案，这些提案将针对金融机构必须向国税局(IRS)或其他财政部下属部门报告的信息类型提出额外要求。
-20. 日本财务大臣麻生太郎近日表示，央行数字货币需要就管理和透明度问题进行更多讨论。
-21. 韩国先驱报报道，韩国政府已决定从明年开始对加密币类交易的资本收益征收20%的加密税。金融服务委员会（FSC）也被确认为监管加密货币的最高政府机构。
-
-
-
-
-
-
-*编辑：aQ
-发布：文顾*
+**翻译：【一花一世界】
+字幕：【XO小粉红】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
