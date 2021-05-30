@@ -1,58 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 躺平，无声的反抗；不被剥削，从我做起
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1284052/)
+## 【小一视角】人民币升值实乃中共彻底脱钩前的准备
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1284065/)
 
-作者：蓝色 （英国伦敦喜庄园）| 校对：仙女儿-文善 | 审核：Beicy-数学老师 | Page: Daoiii
+*作者：经济小组/加拿大多伦多枫叶农场      我是1，小一*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/1e0ca943-e2f5-4383-9a2f-0557c66021b3.jpg?asset_id=e7b07a70-f4a9-44a6-a554-7bada3600671&amp;img_etag=%22e448ed7a2a68495028302eab6fceee2d%22&amp;size=1024)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/1e0ca943-e2f5-4383-9a2f-0557c66021b3.jpg?asset_id=e7b07a70-f4a9-44a6-a554-7bada3600671&amp;img_etag=%22e448ed7a2a68495028302eab6fceee2d%22&amp;size=1024)2019在国内引起热论的日剧 《我要准时下班》
+*编审：经济小组/加拿大多伦多枫叶农场      向往真理*
 
-笔者不谦虚地说，本人是躺平界先驱，已经躺平有15年了。
+近日，人民币连续升值成为热门话题。笔者梳理了一下，目前，市场上主要有以下七种主流观点，总结如下：
 
-当初上过一年的班，工作一年之后，看看手里的工资，都花在了工作的途中，根本剩不下钱。立即就明白了，这根本就是白干活，如此下去永无出头之日。本人在工作能力上没有任何问题，甚至是比平常人要高出一截，很清楚自己完全是被剥削了才会如此。
+1. 是美元主动贬值，导致人民币变相升值：
 
-在此之后，就没有上过任何班，没有再参加任何工作。开启低消费模式，好好的活了15年，我手中的积蓄虽然不多，但是反而比一些辛苦工作了15年的朋友还要多。
+2. 国际大宗商品涨价，人民币升值可以抵消进口费用的大涨，抵御输入性通胀：
 
-当然，本人不是单纯的躺平，当初的想法是：工作了也不会积攒下任何积蓄，与其浪费时间，不如把时间花在学习上。现在事实证明，当初的判断是正确的。参与爆料革命，加入英喜之后，我积攒出来的很多能力都用上了，效果还不错，而身边朋友则是白白辛苦忙活了10几年，什么都没有攒下，甚至离婚、躲债。
+3. 中共要沉船了，高层要往外跑。人民币升值后，在海外购买以美元计价的资产更加划算：
 
-下面是刚刚摘录的墙内社交媒体热门留言，内容一看就知道，其实大家都看清了事实的真相。
+4. 加快人民币国际化。人民币升值后，国企走出去收购海外资产更加划算：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/0aef8abe-e442-4ac7-871f-671626a88f2f.png?asset_id=4ca5c1a4-43a7-4b57-9035-9da7e8a8ae95&amp;img_etag=%226de1feb9bcf68da9fbe9f12f0d47c16c%22&amp;size=5689)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/0aef8abe-e442-4ac7-871f-671626a88f2f.png?asset_id=4ca5c1a4-43a7-4b57-9035-9da7e8a8ae95&amp;img_etag=%226de1feb9bcf68da9fbe9f12f0d47c16c%22&amp;size=1024)
+5. 坚挺的人民币给国内国际一个印象，中国很强大。对内粉红高潮，对外加速人民币国际化：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/b7da8295-c77c-4aa7-b1fd-64d4722896d8.png?asset_id=e44714e9-a704-4f3c-bcf9-bf2afd260641&amp;img_etag=%22297a6d1d3ded9f3833d4f3c1bc090004%22&amp;size=3682)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/b7da8295-c77c-4aa7-b1fd-64d4722896d8.png?asset_id=e44714e9-a704-4f3c-bcf9-bf2afd260641&amp;img_etag=%22297a6d1d3ded9f3833d4f3c1bc090004%22&amp;size=1024)
+6. 让国际热钱流入中共国，拉动经济，同时绑住国际企业，让各国不能轻易脱钩：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/eebcf7f3-b60b-467a-9b57-f18fdc4a7881.png?asset_id=f0aaa49d-77db-4a29-bb6c-da9946e2abff&amp;img_etag=%22297a6d1d3ded9f3833d4f3c1bc090004%22&amp;size=3682)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/eebcf7f3-b60b-467a-9b57-f18fdc4a7881.png?asset_id=f0aaa49d-77db-4a29-bb6c-da9946e2abff&amp;img_etag=%22297a6d1d3ded9f3833d4f3c1bc090004%22&amp;size=1024)
+7. 有利于偿还美元计价的国际债务。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30143212/da7c7f5a3f678c3d86faaaca7a6e8049.jpeg)
+但笔者认为，核心问题并不是人民币升值，升值只是一种结果而已，根本的问题在于“中共放弃汇率管理目标”。讨论汇率问题绝对不能仅仅讨论汇率，汇率是结果，是一个数据，这个结果是战略博弈的产物，是整盘大棋中的一步棋而已。那么，中共的动机是什么呢？
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/85add420-2402-4cf7-80a6-0c34dee338ce.png?asset_id=3b3f8b6c-b4eb-4cad-a6b1-457983885cec&amp;img_etag=%22692eddfefebaf0801afba5ca2f676630%22&amp;size=2582)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/85add420-2402-4cf7-80a6-0c34dee338ce.png?asset_id=3b3f8b6c-b4eb-4cad-a6b1-457983885cec&amp;img_etag=%22692eddfefebaf0801afba5ca2f676630%22&amp;size=1024)
+**首先**，在中共的这盘大棋中，放毒统治地球已经是其既定方针了，必须一条道走到黑，没有逗号，只会有句号。至于时间持续多久，就要看全球各国联合灭共的实质性行动力有多强了。
 
-看看这些可怜的网友，抱怨一下还要躲避文字狱。不是中国人人种有问题，是被中共的手段操控了。也不是人人都不明白，是明白的人根本发不出声音。
+这样走下去，美国经济一定大崩溃，美元世界老大的地位不保，信用尽失。
 
-那个白忙活15年的哥们，他赚的钱，很大一部分也和我当初一样，都扔在工作上了，给关键部门行贿！！！
+看到这点以后，中共主动与美元脱钩。因为现在这种跟随美元的汇率机制在遇到美元大风暴时，很可能彻底颠覆人民币。为了不被美元裹进去，提前退出来，减少冲击。
 
-我还有一个网友，家里人给她花了10几万买了一个收费站的工作。一个月几千工资，大家可以算算，她要白干多久才能拿回给官员的行贿？
+**另外**，为关门朝鲜化做准备。加速数字人民币，脱离美元体系，自己玩内循环无锚货币。不管进退，这二步棋都需要人民币与美元主动脱钩。面对欧美携手，世界联合灭共的大趋势下，与其被动的被踢出各种国际组织，不如主动与世界脱钩。
 
-而没有行贿的人，不是家里有关系，就是被公司剥削，而你的公司同样的也要行贿，钱就是从克扣你的工资里出的！
+而现在这个时机很好。美元在主动贬值，人民币是被动升值，顺理成章执行这个计划，国际市场上不会过多动荡、猜忌、怀疑，也许还能吸点外资进来。
 
-这就是白干的原因！
+中共要做老大，为将来引领世界做准备，放弃多年的跟随跑策略，是时候该主动超车了。习一定认为，美国的衰退让他已经丧失领跑世界的能力了，现在是大干一场的时候了。
 
-普通劳动者，能填饱肚子养家就不错了，你想通过努力改变人生，别做梦了。中共会抽干你每一滴血！
+综上所述，真正的刺刀见红疯狂的事情即将上演，各位请系好安全带。在生死存亡的问题前，原材料上涨，中小型外贸企业出口难，房价、产业发展、民生问题等，这些根本不是中共会考虑的选项。顶多各地方政府可能会考虑，但面对计划经济的大一统路线，脱钩已经是人人心知肚明的方向了。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/0c0f72bd-0c1a-4a41-90b2-56261a6d4662.jpg?asset_id=0f3ac63b-97d0-4ad5-a8b3-c1ddd2a665a2&amp;img_etag=%22553504032b74c0d3bff27f65fac07d13%22&amp;size=4968)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/0c0f72bd-0c1a-4a41-90b2-56261a6d4662.jpg?asset_id=0f3ac63b-97d0-4ad5-a8b3-c1ddd2a665a2&amp;img_etag=%22553504032b74c0d3bff27f65fac07d13%22&amp;size=1024)
+中共很清楚，全球联合灭共的趋势已经不可阻挡，面前只剩两条路：要么关门朝鲜化，以虐待14亿人命为筹码活命；要么主动出击，全面跟世界干一场，没有中间选项。留给世界的时间不多了。
 
-躺平，从我做起，你的每一次劳动都是给中共添加了一次继续奴役你的弹药。
+（本文仅代表作者本人观点）
 
-如果无法做到完全躺平，至少也要消极怠工，能不干的就不干，保障基本生存就可以了。
+* * *
 
-付出50%的劳动，得到90%的工资，你何必再多干50%呢？
+*发稿 文锦*
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-0
++5

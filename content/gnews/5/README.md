@@ -1,47 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台湾是中国的一部份，但是否是中共政权的一部分？
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1284044/)
+## 躺平，无声的反抗；不被剥削，从我做起
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1284052/)
 
-#### 作者：华盛顿DC农场 喜马拉雅的风
+作者：蓝色 （英国伦敦喜庄园）| 校对：仙女儿-文善 | 审核：Beicy-数学老师 | Page: Daoiii
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30141702/%E5%9B%BE%E7%89%87-1-5.png)(图片来自网络)
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/1e0ca943-e2f5-4383-9a2f-0557c66021b3.jpg?asset_id=e7b07a70-f4a9-44a6-a554-7bada3600671&amp;img_etag=%22e448ed7a2a68495028302eab6fceee2d%22&amp;size=1024)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/1e0ca943-e2f5-4383-9a2f-0557c66021b3.jpg?asset_id=e7b07a70-f4a9-44a6-a554-7bada3600671&amp;img_etag=%22e448ed7a2a68495028302eab6fceee2d%22&amp;size=1024)2019在国内引起热论的日剧 《我要准时下班》
 
-新华社北京5月28日发布署名文章，称台湾是中国的一部分，民进党当局和岛内所谓的“台独”势力借“非法无效”的《旧金山和约》挑战一个中国原则的图谋是徒劳的，并依据《开罗宣言》和《波茨坦公告》宣称台湾是中国的一部分，台湾政权也因而归属于中共政权。
+笔者不谦虚地说，本人是躺平界先驱，已经躺平有15年了。
 
-中共将《旧金山和约》定性为“非法无效”，但承认《开罗宣言》和《波茨坦公告》，这本身就是一种矛盾的行为。因为《开罗宣言》、《波茨坦公告》、《旧金山和约》此三个协约在有关日本将自第一次世界大战开始以后占领的中国领土归还于中国这方面的内容是一致的。
+当初上过一年的班，工作一年之后，看看手里的工资，都花在了工作的途中，根本剩不下钱。立即就明白了，这根本就是白干活，如此下去永无出头之日。本人在工作能力上没有任何问题，甚至是比平常人要高出一截，很清楚自己完全是被剥削了才会如此。
 
-1943年12月1日，中、美、英三国发表《开罗宣言》，“正式提出剥夺日本自1914年第一次世界大战开始以后在太平洋所夺得或占领之一切岛屿，日本所窃取于中国之领土，例如满洲（东北四省）、台湾、澎湖列岛等，归还中国。”
+在此之后，就没有上过任何班，没有再参加任何工作。开启低消费模式，好好的活了15年，我手中的积蓄虽然不多，但是反而比一些辛苦工作了15年的朋友还要多。
 
-1945年7月26日，中、美、英、苏共同发表《波茨坦公告》，其第八条规定，开罗宣言必须实施。“1945年9月2日，日本签署投降书，明确接受《波茨坦公告》，公开表示承担忠诚履行《波茨坦公告》各项规定之义务。”“1945年10月25日，中国政府正式从日本手中收复台湾与澎湖列岛，正式恢复对台湾地区行使主权。”
+当然，本人不是单纯的躺平，当初的想法是：工作了也不会积攒下任何积蓄，与其浪费时间，不如把时间花在学习上。现在事实证明，当初的判断是正确的。参与爆料革命，加入英喜之后，我积攒出来的很多能力都用上了，效果还不错，而身边朋友则是白白辛苦忙活了10几年，什么都没有攒下，甚至离婚、躲债。
 
-1951年9月8日，由包括日本在内的英、美等49个国家签署《旧金山和约》，日本承认朝鲜和韩国的独立，放弃台湾及澎湖列岛的权利。至此，台湾的归属问题显然应该尘埃落定，即完全归属于中国主权。
+下面是刚刚摘录的墙内社交媒体热门留言，内容一看就知道，其实大家都看清了事实的真相。
 
-那时，联合国内唯一代表中国的合法政府是中华民国，因此，《旧金山和约》的有效性应由当时的中华民国政府来认定。但由于1949年10月1日中共在北京宣告成立中华人民共和国中央政府，从此与位于台湾的中华民国政府势不两立。因此，在1971年10月25日联合国通过第2758号决议承认中华人民共和国在联合国内的合法地位后，中共政权对自己未参与的国际协约一律推翻不认，但同时又单方面地将台湾政权归于中共政权下的地方政权，以此有选择性地继承中华民国在二战中取得的有利于中共政权的政治遗产。后来的南海争端皆由此而起。
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/0aef8abe-e442-4ac7-871f-671626a88f2f.png?asset_id=4ca5c1a4-43a7-4b57-9035-9da7e8a8ae95&amp;img_etag=%226de1feb9bcf68da9fbe9f12f0d47c16c%22&amp;size=5689)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/0aef8abe-e442-4ac7-871f-671626a88f2f.png?asset_id=4ca5c1a4-43a7-4b57-9035-9da7e8a8ae95&amp;img_etag=%226de1feb9bcf68da9fbe9f12f0d47c16c%22&amp;size=1024)
 
-中共之所以认定《旧金山和约》为“非法无效”的原因也在于其在当时因未获得国际合法身份而未受邀出席签署该和约。因此，从逻辑和国际法理上来说，只要台湾政府承认《旧金山和约》的有效性，该合约对中国的相关条款就具合法性，代表中国的政府就得遵守该合约。
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/b7da8295-c77c-4aa7-b1fd-64d4722896d8.png?asset_id=e44714e9-a704-4f3c-bcf9-bf2afd260641&amp;img_etag=%22297a6d1d3ded9f3833d4f3c1bc090004%22&amp;size=3682)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/b7da8295-c77c-4aa7-b1fd-64d4722896d8.png?asset_id=e44714e9-a704-4f3c-bcf9-bf2afd260641&amp;img_etag=%22297a6d1d3ded9f3833d4f3c1bc090004%22&amp;size=1024)
 
-可是，中共政权既要将台湾政权纳入自己政权体系里，又不承认《旧金山和约》，这显然不合逻辑。
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/eebcf7f3-b60b-467a-9b57-f18fdc4a7881.png?asset_id=f0aaa49d-77db-4a29-bb6c-da9946e2abff&amp;img_etag=%22297a6d1d3ded9f3833d4f3c1bc090004%22&amp;size=3682)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/eebcf7f3-b60b-467a-9b57-f18fdc4a7881.png?asset_id=f0aaa49d-77db-4a29-bb6c-da9946e2abff&amp;img_etag=%22297a6d1d3ded9f3833d4f3c1bc090004%22&amp;size=1024)
 
-更重要的是，文章依据1972年签署的《中日联合声明》和1978年签署的《中日和平友好条约》再次强调台湾属于中国一部分的国际法地位。但中日双方签订的这两个协约发生在中华人民共和国在联合国内获得合法席位以后，且里面也没有出现废除《旧金山和约》的有关条款，这表明中共政权如果要斩获台湾政权于自己麾下，就得承认和接受在此之前国际社会与台湾政府达成一致的《旧金山和约》。比如日本政府与清政府签订的多个不平等条约，中华民国与英、美等国签署的《开罗宣言》里就有废除那些条约的明确宣告。
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/85add420-2402-4cf7-80a6-0c34dee338ce.png?asset_id=3b3f8b6c-b4eb-4cad-a6b1-457983885cec&amp;img_etag=%22692eddfefebaf0801afba5ca2f676630%22&amp;size=2582)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/85add420-2402-4cf7-80a6-0c34dee338ce.png?asset_id=3b3f8b6c-b4eb-4cad-a6b1-457983885cec&amp;img_etag=%22692eddfefebaf0801afba5ca2f676630%22&amp;size=1024)
 
-该文章的作者署名是上海国际问题研究院副院长、研究员严安林，不知严先生是否将《旧金山和约》是否有效的国际法的逻辑关系厘清？
+看看这些可怜的网友，抱怨一下还要躲避文字狱。不是中国人人种有问题，是被中共的手段操控了。也不是人人都不明白，是明白的人根本发不出声音。
 
-台湾政权并未就自己是否属于中共政权的“地方政权”作出任何声明。如果国际社会未来在事实上承认台湾政府代表中国，中国的历史将有效衔接1949年后的世界历史，中共政权与其掌管的政府只是时间线弯曲后带来的一个小插曲。这大概也是中共一直叫嚣要统一台湾的本质所在。
+那个白忙活15年的哥们，他赚的钱，很大一部分也和我当初一样，都扔在工作上了，给关键部门行贿！！！
 
-* * *
+我还有一个网友，家里人给她花了10几万买了一个收费站的工作。一个月几千工资，大家可以算算，她要白干多久才能拿回给官员的行贿？
 
-（文章仅代表作者本人观点，与GNEWS无关）
+而没有行贿的人，不是家里有关系，就是被公司剥削，而你的公司同样的也要行贿，钱就是从克扣你的工资里出的！
 
-参考链接：
+这就是白干的原因！
 
-[1][署名文章：台湾是中国一部分的事实不容篡改](http://www.xinhuanet.com/politics/2021-05/28/c_1127505284.htm)
-[2][中日联合声明](https://baike.baidu.com/item/%E4%B8%AD%E6%97%A5%)
-[3][中华人民共和国和日本国和平友好条约](https://baike.baidu.com/item/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD%E5%92%8C%E6%97%A5%E6%9C%AC%E5%9B%BD%E5%92%8C%E5%B9%B3%E5%8F%8B%E5%A5%BD%E6%9D%A1%E7%BA%A6/3041620?fromtitle=%E4%B8%AD%E6%97%A5%E5%92%8C%E5%B9%B3%E5%8F%8B%E5%A5%BD%E6%9D%A1%E7%BA%A6&amp;fromid=1286919&amp;fr=aladdin)
+普通劳动者，能填饱肚子养家就不错了，你想通过努力改变人生，别做梦了。中共会抽干你每一滴血！
 
-*责任编辑：华盛顿DC农场 光之子(沙加)
-编辑/校对：纽约香草山农场 七哩香
-发布: 巴黎七星农场 文月*
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/0c0f72bd-0c1a-4a41-90b2-56261a6d4662.jpg?asset_id=0f3ac63b-97d0-4ad5-a8b3-c1ddd2a665a2&amp;img_etag=%22553504032b74c0d3bff27f65fac07d13%22&amp;size=4968)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/0c0f72bd-0c1a-4a41-90b2-56261a6d4662.jpg?asset_id=0f3ac63b-97d0-4ad5-a8b3-c1ddd2a665a2&amp;img_etag=%22553504032b74c0d3bff27f65fac07d13%22&amp;size=1024)
+
+躺平，从我做起，你的每一次劳动都是给中共添加了一次继续奴役你的弹药。
+
+如果无法做到完全躺平，至少也要消极怠工，能不干的就不干，保障基本生存就可以了。
+
+付出50%的劳动，得到90%的工资，你何必再多干50%呢？
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
