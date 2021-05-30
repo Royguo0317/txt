@@ -1,45 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国国务院前官员称COVID-19来自自然的说法是“荒谬的”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1281854/)
+## 【锐语】武汉病毒学研究所与首屈一指的新疆准军事部队合作开展科学研究
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1282023/)
 
-香草山写作组 四季
+娜塔莉·温特斯（Natalie Winters）独家报道：
+
+武汉病毒学研究所与首屈一指的新疆准军事部队合作开展科学研究
+
+美国安东尼·福奇博士的国家过敏和传染病研究所 (NIAID) ，资助了有争议的武汉病毒实验室关于蝙蝠冠状病毒的研究，并派遣科学家就危险的功能增强研究项目提供建议。除了将纳税人的钱汇给武汉病毒研究所（其网站之前将美国国立卫生研究院（NIH）列为研究合作伙伴）之外，福奇的机构现在可以链接到新疆生产建设兵团（XPCC）合作的实体
+
+拜登和川普的财政部都制裁了新疆生产建设兵团（XPCC）领导人，称其“严重侵犯了新疆少数民族的人权，据报道，其中包括大规模任意拘留和严重的身体虐待”。国土安全部 (DHS)还禁止该实体的棉花进入美国，理由是其与监狱和强迫劳动有关。
+
+包括《 华盛顿邮报》在内的主流媒体将兵团认定为对维吾尔人的“镇压工具” ， 而中共国官方媒体则将其描述为旨在“维护社会主义稳定”的中国人民解放军的一个分支，以及在该地区的中国顶级民兵力量。”中国共产党领导人习近平称赞他们是“稳定力量”。武汉病毒研究所还是与兵团官员会面并签署了合作协议。
+
+2013 年 8 月 3 日，武汉病毒研究所网站上一条现已被删除的帖子揭示了与兵团的“科技合作”。活动摘要记录了武汉病毒研究所所长，党委书记和副研究员如何前往新疆会见XPCC官员：“2013年7月30日，应新疆建设兵团第十师北屯科技局邀请，中国科学院武汉病毒研究所所长陈新文、武汉病毒研究所党委书记袁志明中科院病毒学 中科院武汉分院科技合作处处处长病毒所虫媒病毒病媒控制学科组李伟主任、闫建平副研究员去北屯市洽谈合作事宜。”据报道，这次会议的重点是“实施新的科技项目——生物灭蚊”。现已删除的文章。
+
+另一篇被删的文章披露了武汉病毒所参加2013年“中科院——新疆科技合作洽谈会”，中科院与兵团签署了近30个“合作项目”，其中包括武汉病毒所和兵团第十处联合承担的“高效安全的蚊虫防控技术集成与示范”项目。这些联系是在《国家脉博》发现额外删除的帖子之后发生的，这些帖子记录了武汉病毒学研究所的研究人员承诺不“妥协”地执行中国共产党的议程，以及在该实验室工作的与军方有关的研究人员。
+
+参考链接：
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
+> [EXCLUSIVE: Fauci-Linked Wuhan Researchers Aided U.S.-Sanctioned, China Paramilitaries in Oppressing Uyghur Muslims.](https://thenationalpulse.com/exclusive/wuhan-collaborated-with-sanctioned-xinjiang-military/)
 
 
 
-零对冲5月28日报道，美国国务院前官员大卫-阿什（David Asher）在接受福克斯新闻采访时说，科学界关于COVID-19在武汉出现是由于动物的突变的共识是完全错误的。COVID-19病毒因人畜共患病而自然出现的观点是“荒谬的”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29183418/Screen-Shot-2021-05-29-at-6.31.27-PM.png)
-阿什领导成立了一个小组，调查大流行病爆发的来源，研究冠状病毒到底是人畜共患病源还是实验室泄漏。他们得出了结论，武汉病毒研究所是压倒性的罪魁祸首。武汉病毒研究所是一个合成生物学中心，他们在合成生物学和所谓的功能增强技术方面做了很多。
+图片来源：[https://thenationalpulse.com/](https://thenationalpulse.com/exclusive/wuhan-collaborated-with-sanctioned-xinjiang-military/)
 
-阿什的结论是，人畜共患的解释是“荒谬的”，自然起源的几率是不可能的。
+整理撰稿：蓝精灵
 
-虽然主流媒体和社交媒体网络在过去的一年多的时间内，将实验室泄密理论视为“危险的错误信息”，但他们现在不得不打自己的脸。Facebook近日宣布，它将不再审查有关冠状病毒是实验室泄密的信息。
+校对发布：Penny
 
-目前，全球正在铺天盖地、如火如荼地对冠状病毒来源启动各项调查。中共只能继续用阴谋论来掩盖事实。相信真相不久将大白于天下，接下来全球以毒灭共的大潮不可阻挡。
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-原文链接：
-
-[https://www.zerohedge.com/covid-19/former-state-department-official-says-idea-covid-19-emerged-naturally-ridiculous](https://www.zerohedge.com/covid-19/former-state-department-official-says-idea-covid-19-emerged-naturally-ridiculous)
-![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-0
++1

@@ -1,48 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议院一致通过要求解密武汉实验室情报的霍利法案
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1282272/)
+## 【有声读物】见证神的大能
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1282434/)
 
-翻译: JS709 | 校对: Nick | 审核：断播
+配音：香草山福音部 Daxia
 
-美国参议院周一一致通过了一项法案，要求联邦政府解密有关中共国武汉病毒研究所与中共病毒之间联系的所有信息，此前《华尔街日报》报道说，该实验室的三名研究人员由于出现了类似中共病毒症状而于2019年11月住院治疗。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29215242/960x0-2.jpg)华盛顿特区-5月13日：参议员乔什•霍利（Josh Hawley）盖蒂图片
-**关键事实**
-
-- 该法案要求美国国家情报局总监在90天内解密有关实验室与病毒之间联系的“所有信息”。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-- 该法案还要求情报总监“尽可能多地”公开有关病毒起源的信息，以便“尽快”确认病毒起源。
 
 
-- 该法案由参议员乔什·霍利（来自密苏里州的共和党参议员）提出，并由参议员迈克·布劳恩（Mike Braun）（来自印第安纳州共和党参议员）共同提出，该法案在周三晚上获得一致通过，这意味着没有任何参议员反对。
 
 
-- 尽管民主党议员越来越支持调查中共病毒的起源，但众议院领导人尚未表示是否会在下议院进行投票，而白宫也没有表示总统拜登会否签署该法案。
+
+最近，几个人聚在一起查经分享时，一个姊妹与大家分享了她的亲眼见证。
+
+过年期间，这个姊妹给国内一位令人尊敬的老者打电话，因为听说他最近身体不好，她一直有感觉，想要传福音给这位以前关照她，且关系特别亲的长者。
 
 
-- 福布斯已与白宫，众议院议长南希·佩洛西（Nancy Pelosi）的办公室以及众议院多数党领袖斯坦尼·霍耶（Steny Hoyer）的办公室取得联系，以获取他们的评论。
+
+**文字版原文：[【信仰之声】见证神的大能](https://gnews.org/zh-hans/925784/)**
+
+作者：纽约香草山福音部 英子
 
 
-**关键背景**
 
-中共病毒病毒大流行以来关于病毒是人为制造而不是自然产生的理论基本都被边缘化了。但是，《华尔街日报》本周的曝光已使专家们承认不能排除“实验室泄漏”理论——尽管尚无法得到证实。
+音频处理/发稿：雪梨
 
-**意义重大的数字**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-90，这是拜登总统在星期三的一份声明中给情报界的天数——在90天内要“使我们更接近该病毒起源的明确结论”。拜登说，他要求这次调查包括“针对中共国的具体问题”和“我们国家实验室的角色”。
+**更多资讯，更多关注**
 
-**切入点**
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-该法案试图回答的具体问题有：武汉病毒研究所的“活动”，那三名研究人员的身份、症状和病毒状态，以及他们在武汉病毒研究所的角色——特别是他们是否“参与制造或暴露于中共病毒”。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**要关注什么**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-如果众议院通过并由拜登签署，则该法案将要求情报总监向国会提交一份解密的报告，其修订内容仅限于“保护信息来源和信息获得方法”而不可“改变或遮盖”重要信息。
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-原文作者：安德鲁·索兰德（Andrew Solender）
-发布时间：美东时间2021年5月26日下午09:53
-原文链接:[https://www.forbes.com/sites/andrewsolender/2021/05/26/senate-unanimously-passes-hawley-bill-declassifying-intel-on-wuhan-lab/?sh=4d420cba6844](https://www.forbes.com/sites/andrewsolender/2021/05/26/senate-unanimously-passes-hawley-bill-declassifying-intel-on-wuhan-lab/?sh=4d420cba6844)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

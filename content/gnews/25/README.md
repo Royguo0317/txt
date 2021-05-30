@@ -1,57 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美听证会：助台湾增强非常规战争能力
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1282051/)
+## 美参议员克鲁兹力推《禁止联邦疫苗护照》法案！
+` 加拿大多伦多枫叶农场 羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1282177/)
 
-作者：纽约香草山佛教部    369文驹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191310/s2-7.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29210629/klz1-2-edited.jpg)图片来源：thepostmillennial
 
 
+据加拿大知名自媒体《Thepostmillennial》5月29日新闻报道：美共和党参议员特德·克鲁兹联袂参议员迈克·布劳恩和辛西娅·鲁米斯于日前向国会提出立法案，以禁止联邦政府目前急欲推行的疫苗护照计划。
 
+该立法还将阻止拜登当局试图通过使用（中共病毒）COVID19疫苗护照与第三方，例如航空公司或其他全球实体合作的措施。此外，该法案对最初由美国食品药物管理局（FDA）通过紧急批准并授权各级政府使用的任何COVID19疫苗实施5年期限的非强制性接种规定。虽然目前已有数百万美国人接种了该疫苗，但德克萨斯州和其他11个州已通过行政令或立法，禁止在其各自州郡域内使用疫苗护照。
 
+科鲁兹告诉福克斯新闻主持人史蒂夫·多西：“虽然我认同各州合理使用疫苗，但政府对此却有真正的潜在影响力。我不认为任何人都应该被迫接种疫苗。因为这应该是每个人自己的决定，而且是根据自身的健康状况做出完全自由的选择。有鉴于此，我们在本周提出了该项立法，以禁止联邦政府推行的任何疫苗护照，并以此阻止拜登当局采取任何措施来强制公众接种疫苗。”
 
-据Military.com网站报道，本周四，美国助理国防部长称，美特种部队可以帮助台湾对抗中共的入侵。
+该参议员继续补充道：“由于该法案建立在现有的民权法律基础上，因此它同时也将禁止在个人就业方面的疫苗歧视。我们看到某些地方的企业主试图解雇那些不愿接种疫苗的员工，但此举是完全非法的。因为决定您健康的是您自己而不应该是老板或是政府，更不应该是强迫您做出这些决定的其他任何人！”
 
-美特殊行动和低强度冲突助理国防部长提名人克里斯托弗·迈耶（Christopher Maier）告诉参议院军事委员会，美国“应该考虑采取强有力的措施”，以帮助台湾增强其进行非常规战争的能力，并称，特种部队是关键因素。
+克鲁兹随后还讨论了即将出台的另一项允许美国人就其在疫情中所受到的各种伤害而起诉中共国政府。为此他强调：“我们早就知道中共政府一直在掩盖病毒来源真相和疫情事实。该政权在疫情爆发初期就残酷逮捕并关押了那些包括医生和新闻工作者在内的吹哨人，直至让他们消失或沉默！而正是这些英雄的中国人，在最初阻止COVID19于全球范围内的迅速蔓延发挥了重要作用！”
 
-在听证会期间，密苏里州参议员乔什·霍利（Josh Hawley）提出：
+[原文链接](https://thepostmillennial.com/watch-sen-ted-cruz-introduces-bill-to-prohibit-federal-vaccine-passports)
 
-1、美国协助台湾可以参照美特种部队帮助波罗海国家抵抗俄国侵略的方式。
+本文仅代表原媒体信息和其作者个人观点！
 
-2、提高台湾抵抗能力，例如网络抵抗及两栖登陆。
-
-3、信息作战是制止中共侵略的关键领域，提高特种部队信息战是要任务之一。
-
-美国此次听证会提出的非常规战争能力，在笔者看来，将是一次对中共的“降维打击“。此前中共辽宁号航母受到的“未知黑科技”重创，在海上动弹不得，成为活靶子。现在可以预见，美国提出让特战部队帮助台湾提高非常规战争能力，背后的实力高深必定让中共无法揣测。但是中共已处于末路疯狂状态，而且习一坑被周围的人骗得团团转，一意孤行打台湾的概率是非常大的。台湾的处境非常危险，希望台湾早日做好准备，祝福台湾同胞平安健康。
-
-参考阅读：
-
-1. [US Special Forces Could Help Taiwan Learn to Resist Chinese Invasion, DoD Nominee Says](https://www.military.com/daily-news/2021/05/27/us-special-forces-could-help-taiwan-learn-resist-chinese-invasion-dod-nominee-says.html)
-
-编辑/校对/发文：人间世
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12204436/%E7%A7%91%E5%AD%A6%E5%AE%B6%E6%97%A5%E5%8E%86.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
-
-
-
-
-
-
-
-+1
++4

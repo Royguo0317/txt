@@ -1,71 +1,185 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙文推荐】一封关于初高中强制统一发型的意见与建议的匿名信
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1281914/)
+## 你担忧了吗？疫苗与疫情的关系
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1282024/)
 
-香草山写作组 晨君
+**字幕内容：**
 
+I think this whole pandemic from the beginning was about the vaccine
+我认为整个疫情从一开始就是与疫苗有关
 
+so I think all roads lead to the vaccine
+我认为这一切都归咎于疫苗
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
+and what it means there are already places in Southeast Asia and Europe
+东南亚和欧洲已经有很多地方
 
+they’re laying the groundwork for a compulsory vaccination
+在为强制接种疫苗打下基础
 
+I mean compulsory that means somebody pins you down to the ground
+我说的强制是指有人把你按在地方
 
-推荐原因：这位匿名的学生在他所写的文中，更多的表达的是在一定规则下展现青春个性，合理的表达美，而不是奇装异服，哗众取宠。然而仅仅这样的诉求，也得不到肯定。同时也看到他对于把人一棒打死的“集体意识”有了清晰的认识。在学生这个群体难能可贵。但是他忽略了这本质其实不是学校的问题，因为中共的教育就是扼杀人性，太有个性的韭菜反而不利于它的统治，当所有人安分守己，循规蹈矩失去自我才是它们想看到的，所以才有我们看到的种种奇葩的教育现象。
+and puts a needle in you
+硬给你打针
 
-一封关于初高中强制统一发型的意见与建议的匿名信流传于网络，该匿名信通过福州市12345政务服务平台发布，并得到回复。我们一起来看下中共统治下的教育是如何以冠冕堂皇的理由扼杀人性的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29184531/unnamed.jpeg)
-**匿名信**
+that’s how bad stakeholders want vaccination
+那就是邪恶的利益相关者想要疫苗接种的方式
 
-你好，我是一名普通初升高的学生。对于福州市内各学校强制要求发型统一的这么一回事我想发表自己的观点：从初中开始，便要求强制发型统一，男生要求剃平头，女生则是齐耳短发。我认为这种所谓“学校的良苦用心”是畸形的，是不正确的。《中学生日常行为规范》要求中学生“穿戴整洁、朴素大方，不烫发，不染发，不化妆，不佩戴首饰，男生不留长发，女生不穿高跟鞋。”
+listen there’s no cost you don’t have to pay for it
+疫苗是免费的你不需要付钱
 
-中学是一个人的重要成长阶段，学校按照相关法律法规和上级要求，加强对学生的发型管理，自主规范学生的发型，目的在于使其养成良好行为习惯，增强集体归属感，树立中学生良好形象。这段话从书名号到高跟鞋那一部分我强烈认同，但是这种管理方式真的能够养成良好的习惯，增强集体归属感，树立良好的中学生形象吗？我认为答案是否定的，举个例子“在我的初中生活中，有一位同学喜欢吸烟，一位同学喜欢喝酒更在课堂上喝酒，一位同学在学校骂骂咧咧”但他们的发型都是合格的呀，这些问题真的和发型有关吗？而不是和家庭教育和学校教育的缺失所引起的吗？
+it’s all provided
+全部都包了
 
-再举个例子，我本人的例子“因为某次为班级服务的事情上，我被全班同学针对，嘲笑，甚至踩踏完我的考卷才发还给我”我的发型也是过关的呀，为什么我在这件事情前后都感受不到任何的集体归属感呢？这些问题真的和发型有关吗？我们的发型全部都是统一的，但为什么在学校全都是“病恹恹”“无精打采”的呢？这些问题真的和发型统一有关吗？答案是否定的。你可能会认为我上述的例子全部都是少数的情况，可它们确确实实发生在我们的身上，这些是发型统一能够解决的吗？答案是否定的，这难道不是教育的缺失吗？
+there are people or stakeholders they do want a needle in every arm
+利益相关者想给所有人的手臂都打上一针
 
-为什么要把锅甩到“发型”的身上呢？这不是本末倒置吗？所谓“学生的主要任务是学习，留长发还是短发不是主要问题，有些学校出于管理考虑，要求学生统一剪短发，目的是想让女生留干净利落的短发，避免把心思过多花在穿衣打扮搞发型上，无心学习，形成打扮上的攀比风气”归根结底不还是因为学生认为自己的外表因为短发和统一的校服而变得毫无区别，面目可憎吗？这难道不是青春最可悲的面目吗？所谓“青春期的男生也容易对长发美女产生萌动心理，为培养学生自我约束的能力，动员学生时代的你们从朴素出发，以简单为要，欣赏朴素中的大方美，简单中的单纯美，做腹有诗书气自华，由内而外的气质美女”难道不是一种谎言？一个连自己都不会打扮的人，你还想要他的未来能够是五彩斑斓的吗？
+This needle in every arms is a very important moniker
+给每个人都打上一针是非常重要的记号
 
-“对长发美女产生萌动心理”体现的不正是青春对于异性的好奇吗？为什么很正常的一件事要被特别提出呢？这体现的难道不是性教育的缺失吗？直截了当地告诉学生“对于异性形体的好感是很正常的，没有必要因此回味无穷，影响正常生活”不就可以了吗？现实中第一印象就是外表，长得好与不好就是异性评判一个人的第一标准，而不是内在。这些所谓的统一发型的好处是真是假不是早已有了定论，为什么还要披着虚伪的大衣，带着有色眼镜来看正处青春的学生呢？青春的美好不是在于活力,容貌,心灵吗？
+Why? why do you want a needle in arm?
+为什么？为什么你想要给人们打疫苗？
 
-为什么要因为一个“发型”就要扼杀学生追求美的权利呢？所谓“保持良好的中学生形象，也是一种特殊的美”难道不是骗人的吗，别人看你顶着一个几乎光着的头，穿着和大几百号人一样的衣服，会觉得“哇，你真的好漂亮诶”？青春是五彩斑斓的，每个人都应有不同的青春，马云曾经也说过，如果用他现在所有的财富来换回青春，他也会毫不犹豫的去换取。不正是因为青春的美丽吗？当学生年老时回忆过往的青春，顶着难看的发型，穿着统一，劣质的校服，难道这份回忆就是美好的吗？难道不是最可悲的事情吗？不正是扼杀了青春的创造力吗？这样培养的学生少部分可以成才，但培养的学生难道不是麻木的吗？都说“你们要有服从意识和集体意识，理解学校的教育苦心”。但为什么呢？为什么要服从完全没有必要服从的东西你？明明集体都是不愿剪头发的，为什么还要服从所谓的“集体意识”。
+Let’s take covid recovery
+我们说说新冠康复的人群
 
-这一切的一切不正是教育制度的缺失，和成年人内心对未成年人的猜忌吗？为什么要披着虚伪的外衣，说着虚伪的话，给虚伪的理由一个合法的身份？这不正是成年人世界的黑暗面吗？为什么不能给学生一个做自己，选择怎么享受青春的权利呢？为何要苦苦相逼？让学生变成你们不想看见的模样？虚伪，虚荣，相互猜忌。
+can’t get the virus，can’t receive it
+他们不会再得病
 
-所以，我认为应当给学生一个自我选择的机会，可以设立试点，通过试验来验证结论，而不是一棒子打死，让学生的青春是黑白的，了无生机的。应该给我们，一个机会，也是给你们成年人一次重新审视自己行为和思想的机会。
+It has nothing to do.
+不需要疫苗
 
-**福州市教育局回复**
+why would they ever want a needle in the arm of a covid recovered patient？
+他们为什么想要给新冠病毒已经康复的人打？
 
-同学好！诉求悉，回复如下：
+Why?
+为什么？
 
-你对我市中学发型管理问题提出见解，充分证明了你是一位有独立思考能力与勇敢、求真精神的好学生。千教万教教人求真，千学万学学做真人。这一教育的真谛，在你的长篇诉求中得到印证，特别是你开宗明义，主题集中，直言统一短发治标不治本；追求个性，率性自由，坦言青春五彩斑斓而非黑白；抽丝剥茧，环环紧扣，敢言结合实际打破定势整改……单从建言角度，你的诉求难得一见。
+Three studies show higher safety event
+有三个研究表明了更安全的事件
 
-但，也要看到，诉求确实还有欠周到处：
+the tension that Americans are feeling right now
+美国人民现在压力很大
 
-其一，你对为什么要统一发型的认识还不够科学。发型管理是中学生养成良好习惯、增强集体归属感、树立良好形象的充分条件，而并非必要条件。你提出的三个反例，其不良结果是由多方面原因导致的，而未必与发型管理有直接因果关系。若因为其他原因的出现就否认发型管理的积极作用有失偏颇，这属于认识论问题。
+as they are trying to keep their jobs and go to work is
+他们试图保重工作回去工作
 
-其二，你对管理共性与青春个性的认识不尽全面。学校教育希望同学们能够展现出青春美丽个性天然的一面，但同时也希望同学们有集体主义观念。集体主义是我们的民族、国家能够向前发展的重要力量。集体与个体是相辅相成的，脱离于集体，个体不可能生存。发型与校服是集体的统一要求，但其实我市的不同学校对学生发型也有不同的管理要求，对校服更有不同的选择，这就是共性中的个性。在共性条件下的个性展示才是青春最美的模样。对发型加强管理，并没有扼杀学生追求美的权利。美有不同标准，刚健、干练、阳光同样是青春之美，军警之美正如此。青春之美从未听说因发型而被抹杀。人的成长是一个自己和自己较劲，自己和自己“过不去”的过程。你推崇的马云，若没有青葱岁月的积淀，能成为今天的马云吗？马云说过，“这个世界只要有梦想，只要你不断努力不断学习，不管你长得如何，不管你是不是有钱，不管是这样还是那样，你都是有机会的。”一个人的美是内在与外在的统一，二者都重要。正是因为青春期爱美的同学们容易把时间花在外在美的打理上，容易浪费宝贵的学习时光，学校才以规范发型、校服等方式引导大家养成朴素、简约的审美观，以免因“造脸”而影响“修心”。
+they know they can die of the vaccine
+但是他们知道他们可能因疫苗而死
 
-其三，你在整体与部分的关系把握上还有待提升。哲学辩证法中有一个重要观点“整体不是其部分的总和”，这是古代朴素整体观最有价值的遗产，是现代系统论的一条基本原则。系统整体的功能，既可以表现为整体大于部分之和，也可以等于部分之和，还可以小于部分之和，这种综合效应决定于部分之间相互作用的性质。当各部分以合理（有序）的结构形成整体时，整体就具有全新的功能，整体的功能就会大于各个部分功能之和。而当部分以欠佳（无序）的结构形成整体时，就会损害整体功能的发挥，整体的功能就会小于各个部分功能之和。同样道理，每一个教育措施共同组成了学校教育措施的整体，共同发挥着各自的作用，形成整体的育人效果。学校对发型进行统一管理，正是从系统论出发的。我们不希望也不能任何一分子从这个“整体脱离。
+that’s the problem
+这就是问题所在
 
-综上，我们真诚希望，作为有独立思考能力的人，你能进一步懂得：1.善辨。懂得辨别，不因错误而否定正确，不因有人犯错犯罪就否定规则法则。不因有了“错误”而推崇“错误”，某些人的“犯错”并非规矩之错，而是他们不能表里如一地去做好自己。2.善立。有正确的立场，不因有“坏人”就决定不做一个“好人”，身边的各种不良现象都不能成为我们拒绝“向善”的理由，比起“他们是什么样的人”更重要的是“我要成为什么样的人”。3.善举。对于那些偏离航迹的人，除了看到他们的错误，更应该在必要时候伸出援手，帮助他们改正错误，弘扬正能量。在是非面前，我们不应该是个过客，也不应该是个看客，相信你有这样的智慧，也有这样的能力。
+if the vaccine was like water
+如果这个疫苗像水一样
 
-最后，衷心感谢你对福州教育的信任和“直言相告”，也请你理解老师们的“仗义执言”。习总书记说，奋斗是青春最亮丽的底色。青年朋友们，人的一生只有一次青春。现在，青春是用来奋斗的；将来，青春是用来回忆的。希望你把主要心思和精力用在学业上，不断取得新的更大的成绩！
-![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-编辑/校对/发稿：正义的小新
+and you just got it no side effects
+你打了也没有任何副作用
 
-**更多资讯，更多关注**
+who wouldn’t take it
+谁不会想打
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+I will comply
+我会顺从
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+they got my social security number anyway in a database
+反正他们在系统里面已经有我的社安号
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+I’m already marked
+我反正已经被标记了
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+I’ll just get marked.
+我就被标记好了
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+but no there’s something very unique about this vaccine
+但是这个疫苗有很独特的地方
 
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+There is something about injecting something into a body
+给每个人身体里打点东西进去
+
+that is so important to stakeholders
+对于利益集团很重要
+
+that doesn’t matter
+这无所谓
+
+kids 12 years old told they can make their own decision on this
+我们告诉12岁的小孩他们可以自己做决定
+
+and it could be their fatal decision
+这可能是致命的决定
+
+think about that
+想一想这个问题
+
+North Carolina just passed it
+北卡州刚通过了此法
+
+Oh kids 12 years old can decide on their own
+12岁的小孩可以自己决定是否接种疫苗
+
+There are over 4 thousand dead Americans
+有四千多的美国人死了
+
+there’s over 10,000 dead people in Europe
+有一万多的欧洲人
+
+that died on Days 1 2 and 3 after the vaccine
+在打完疫苗后一，二，三天后死了
+
+why are we pushing this in a way for people’s jobs and education, and live-lihood decide on a
+为什么我们逼人们在工作教育和生活上
+
+decision that is potentially fatal
+作出可能致命的决定
+
+the tension you can cut it with a knife
+这紧张的气氛非常浓厚
+
+There are parents that say listen I want my kid to go to college this year
+家长说他们想他们的孩子今年去大学上课
+
+but I don’t want to lose them to the vaccine
+但是他们不想因为疫苗失去孩子
+
+they know what’s going on
+他们懂到底怎么回事
+
+the internet is full of these cases
+网上很多这样的事例
+
+blood clots Strokes immediate death
+血块中风立即死亡
+
+Fortunately I have not directly lost a patient to the vaccine
+幸运的是我的病人目前没人丧命于疫苗
+
+I told you
+我之前告诉过你
+
+most got vaccinated in January December January February
+他们大部分十二月，一月，二月打的疫苗
+
+Based on the safety data now
+根据现在的安全信息来说
+
+I can no longer recommend it
+我不会再推荐打疫苗
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接: **[https://twitter.com/canaditude/status/1396853139077312513?s=24](https://twitter.com/canaditude/status/1396853139077312513?s=24)
+英听校：康州盘古农场 – BZ
+翻译：康州盘古农场 – BZ
+翻译终校：康州盘古农场 – 柯镇恶
+字幕+视频制作：康州盘古农场 –天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 +2
