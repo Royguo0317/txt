@@ -1,25 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳前总理表示，各国要团结对抗中共日益增长的威胁
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1283467/)
+## 【有声读物】《白谎也是谎言》观后感——一个初信者的角度
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1283519/)
 
-#### 文章撰写:【默凡】
+配音：香草山福音部 小草
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30085330/gSnipsaaste_2021-05-30_20-52-53.png)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-近日，澳大利亚前总理陆克文(Kevin Rudd)接受BBC访谈节目“亚洲商业谈”（Talking Business Asia）采访时提出，西方国家的政府不应害怕在人权等问题上挑战中共国。自澳大利亚莫里森政府于去年年初呼吁对中共病毒溯源进行独立国际调查以来，中共国对澳洲出口的诸多商品采取了贸易限制，双方在华为5G、“一带一路”协议等一系列问题上进一步下滑。
 
-目前担任总部位于纽约的亚洲协会会长兼CEO的陆克文说，“中共国领导层将把澳大利亚视为一个不可靠的铁矿石长期供应商，因为北京将对……堪培拉的保守党政府作出地缘政治结论。由于地缘政治因素，这种长期供应（关系）可能会受到威胁。”据悉，澳大利亚五分之一的出口产品销往中共国，这种经济关系在过去几十年里的重要性只增不减。
 
-陆克文在采访中说，他曾向中共国政府提出了一些关于人权的关切，但陆克文强调，他在处理对中共国关系的方式是“外交性的”
 
-参考文章：[陸克文：如與北京有分歧，不要單方面行動](https://www.rfi.fr/tw/%E6%94%BF%E6%B2%BB/20210529-%E9%99%B8%E5%85%8B%E6%96%87-%E5%A6%82%E8%88%87%E5%8C%97%E4%BA%AC%E6%9C%89%E5%88%86%E6%AD%A7%EF%BC%8C%E4%B8%8D%E8%A6%81%E5%96%AE%E6%96%B9%E9%9D%A2%E8%A1%8C%E5%8B%95?ref=tw)
 
-本文仅代表作者本人观点，不代表Gnews平台
 
-* * *
 
-*排版发布：日本东京方舟农场 文柯Miles*
+看了GTV创世记查经的第20章。讲信心之父亚伯拉罕为了保全自己的性命第二次把撒拉送出去，这次送给亚比米勒王，并且夫妻一同撒谎，说他们是兄妹。
+
+当时有个很不理解的问题，创世记十四章，亚伯拉汗为了救罗德，把四王都打败了，非常勇敢，为什么会担心自己因年老妻子的美貌被害，第二次送出撒拉呢？被称为信心之父的亚伯拉罕，为什么没信心了呢？
+
+
+
+**文字版原文：[【信仰之声】《白谎也是谎言》观后感——一个初信者的角度](https://gnews.org/zh-hans/1275962/)**
+
+作者：纽约香草山福音部 一棵草
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
