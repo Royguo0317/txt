@@ -1,52 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （新西兰）总理不管Mahuta的“愤怒风暴”说，辩称中新关系没有改变
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1283091/)
+## 【有声读物】《白谎也是谎言》观后感——一个初信者的角度
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1283519/)
 
-翻译评论：文虓Bobby
+配音：香草山福音部 小草
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30042452/053007.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-新西兰总理杰辛达·阿德恩（Jacinda Ardern）说，尽管新西兰外交部长就澳大利亚和中共国之间的外交争端发表了评论，但新西兰和中共国的关系没有改变。
 
-Nanaia Mahuta对《卫报》发表的这些言论，得到了中国共产党的警告。
 
-马胡塔（Mahuta）告诉这家总部位于英国的媒体，如果新西兰不小心处理与中共国的关系，它可能会发现自己处于一场“愤怒风暴”的中心，就像澳大利亚一样。
 
-“显然，我们不能忽视澳大利亚与中共国的关系正在发生的变化，”她说。
 
-如果他们靠近“愤怒风暴”的中心，我们必须合理地问自己，风暴越来越接近我们可能只是时间问题。”
 
-随着澳大利亚和中共国之间的紧张关系不断升级，两国之间的外交紧张关系一直令人担忧。
 
-澳大利亚总理斯科特·莫里森(Scott Morrison)本周末与阿德恩举行会晤时，新西兰与中共国的关系可能是会谈的首要议题。
+看了GTV创世记查经的第20章。讲信心之父亚伯拉罕为了保全自己的性命第二次把撒拉送出去，这次送给亚比米勒王，并且夫妻一同撒谎，说他们是兄妹。
 
-两国领导人在举行联合记者招待会时，很可能会在这个问题上承受压力。
+当时有个很不理解的问题，创世记十四章，亚伯拉汗为了救罗德，把四王都打败了，非常勇敢，为什么会担心自己因年老妻子的美貌被害，第二次送出撒拉呢？被称为信心之父的亚伯拉罕，为什么没信心了呢？
 
-不过，在会晤之前，阿德恩说，Mahuta的言论并不代表新西兰对中共国立场的转变。
 
-她今天早上对媒体说：“我不认为这是改变我们的立场，也不是改变我们的言论。”
 
-“如果有人读过大约一个月前Mahuta部长的讲话，您将在新西兰看到很多关于这些问题的立场。”
+**文字版原文：[【信仰之声】《白谎也是谎言》观后感——一个初信者的角度](https://gnews.org/zh-hans/1275962/)**
 
-尽管该讲话强调了新西兰减少对中共国出口的依赖的必要性，但Mahuta还是以此为手段强调了新西兰与中共国之间的关系“处于良好状态”。
+作者：纽约香草山福音部 一棵草
 
-“当我想到这段关系时……我把它比作塔涅瓦（Taniwha）对龙的尊敬，反之亦然。”
 
-尽管如此，《环球时报》，作为一家与执政的中国共产党有着紧密联系的中共国刊物，发表了一篇社论敦促新西兰“超越外部争端”。
 
-“不可否认，地缘政治斗争给中新关系带来了阻力，因为新西兰政府被其西方盟友批评对中共国‘软弱’，”该社论说。
+音频处理/发稿：雪梨
 
-“在未来一段时间内，这种压力可能会继续影响新西兰，使其无法与中共国保持正常关系。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-**评论：**
+**更多资讯，更多关注**
 
-在新西兰外交部长马胡塔（Mahuta）发表了关于新西兰在亚太地区紧张加剧背景下面临中共国“愤怒风暴”的说法之后，新西兰总理表态坚称两国的关系没有改变。让世界大跌眼镜，同时也非明智之举。显然中澳之间敏感和紧张的外交关系已经波及到了新西兰，随着全世界灭共的洪流滚滚而来，新西兰作为五眼联盟之一，或早或晚有一天要选边站，到底是选择跟犯有种族灭绝和反人类罪的CCP站在一起，还是选择站在消灭邪恶的一边？对于新西兰来说，只有一个选择！相信新西兰一定会站在正义一方！
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[援引原文](https://www.newstalkzb.co.nz/news/politics/jacinda-ardern-no-change-in-nz-china-relationship-despite-nanaia-mahutas-storm-comments/)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-审核校对：Black Jack
-上传排版：糖果儿
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-+1
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

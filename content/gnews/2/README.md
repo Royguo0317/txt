@@ -1,35 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳喜游行直击】Jenny战友重温《六四宣言》
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1282619/)
+## 【路德简报】5/29/2021晚：.蓬佩奥： 如果不对中共采取行动 下次病毒会导致全球3000万人死亡
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1283846/)
 
-重温《六四宣言》
-
-新宪法包含以下内容：
-
-一、国家精神：人权，法治，信仰自由，言论自由和私有财产神圣不容侵犯。
-
-二、追求与世界人民永久和平相处，共同发展。
-
-三、教育，养老，医疗是民生基本需求，必须立法予以保障。教育是国之根本。扩大教育投资，西为中用；尊师重教，有教无类。
-
-四、保护大自然与动物生态，万物和谐共生。
-
-五、对于香港，澳门，西藏等地区，应立即颁布特别自治条例，并严格执行。对台湾则维持现状，扩大贸易，稳健发展，共同繁荣。
-
-六、没收并追缴中共盗国贼集团掠夺的财产，还富于民。
-
-七，新政府成立后实施大赦，严重刑事罪犯和反人类罪犯除外。
-
-让我们一起与中共死磕到底！Take down the CCP!
-
-发稿：Runaway
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/19113721/1-%E6%BE%B3%E5%96%9CLogo-8.jpeg)
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30121300/2021-05-29_PM_CN-scaled.jpg)
 
 
-+1
+> 2021年5月29日 路德时评 晚
+> 
+> 1.蓬佩奥： 如果不对中共采取行动 下次病毒会导致全球3000万人死亡
+> 
+> 2. 拜登： 用17 家超级计算机 搜索测算中共病毒证据和序列
+> 
+> 3.CNN印度分台采访闫博士：中共蓄意将生物武器释放到全世界 是中共长期谋划的结果 
+> 
+> 4. 王毅约不到任何欧盟国 只能约到非欧盟国的塞尔维亚 [pic.twitter.com/9L65PLa3AR](https://t.co/9L65PLa3AR)
+> — 平民爆料 (@WM18320321) [May 30, 2021](https://twitter.com/WM18320321/status/1399028666835902466?ref_src=twsrc%5Etfw)
+
+
+
+0

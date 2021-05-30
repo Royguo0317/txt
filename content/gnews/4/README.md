@@ -1,31 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲战场，英姿飒爽
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1283399/)
+## 【香草诗词汇】这一天 周年庆 华夏 传奇 香草山
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1283731/)
 
-撰文：MarkusShaw
-原创视频
-澳洲的战友们今天给全球农场的战友们做出了了不起的榜样！
-
-在昆州现场我主要负责录像和拍摄，记录布利斯班的战友们的点滴瞬间。在精彩的活动背后不仅仅是充分的准备，还有坚定的信仰！
-
-今天给我印象最深刻的还是澳洲人的参与，活动现场有很多路人愿意来倾听爆料革命的理念，了解新中国联邦的政治要求，领取宣传册，甚至接受采访，布利斯班的战友们都感受到了来自澳洲人民的对新中国联邦以及病毒真相的探索的热情。
-
-对于爆料革命来说我们有了质的飞跃，一个对新中国联邦，对所有爆料革命人来说了不起的胜利。007大哥的现场演讲，史蒂芬战友的后台忙碌，Dicky战友坚定神态，小美娜战友勇敢出镜，电流声等战友的专业直播，还有战友们一轮又一轮的响亮口号，长达数个小时的举牌，对新中国联邦誓词的庄严宣读，对路人的耐心宣传。一切的一切都是让我无比的感动。
-
-今天昆州有三十多位战友参与活动，现场井然有序，活动之后清理的非常到位，警察看了一眼就走了，对我们是完全的信任。我们也体现了新中国联邦人应有的气质与素质，我们自己更坚定地相信自己，灭共，爆料革命成功，都不远了！
-
-对我来说，虽然还有很多战友不够熟悉，希望没有点到名字的战友还请多多包涵，我的影片里一定会有你的身影。战友们的网名让我回忆起了小学时候用QQ，大家起名字都很有创意，我也希望能够多多记住战友们的网名，让我们更加团结，更加斗志昂扬！
-
-（本文纯属个人观点）
-
-*审稿、编辑：光耀华夏*
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29223512/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
+作者：香草山健身部 回响
 
 
-+1
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+
+
+
+这一天
+
+华夏等了多少年
+
+32年前？
+
+还是百年？
+
+这一天
+
+战友们的三百六十五个日夜
+
+恍如千千万万个千年甚至万年
+
+这一天
+
+天注定
+
+有一座丰碑正立在华夏人心田
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30114009/Untitled-design-57.png)
+这一天
+
+事故、故事
+
+能说得完？！
+
+这一天
+
+融汇了多少血泪难眠
+
+过去的三百六十五天
+
+从此
+
+掀开另一个千年
+
+华夏英雄的传奇诗篇
+
+
+
+校对/发稿： 火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
