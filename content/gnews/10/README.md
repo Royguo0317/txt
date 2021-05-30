@@ -1,35 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳喜游行直击】恭喜Himalaya Australia官方网站正式上线
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1282651/)
+## 美国前众议院发言人称，中共必须就病毒疫情赔偿受害者家属
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1283325/)
 
-撰稿：童媚
-澳喜农场视频介绍
-安红女士在游行开幕致辞的时候宣布了一个激动人心的消息，Himalaya Australia官方网站在澳喜农场开启游行的同一天，正式上线。
+#### 文章撰写:【默凡】 新闻采集：Peter Wong
 
-这是面对英语世界的网站，也是极具意义的一步，网站频道分别有新中国联邦新闻、病毒真相、路德社新闻传递、GNEWS、GTV的精彩介绍和链接，我们希望能用一个专业的英文网站，将中共用超限生物武器袭击全世界的真相，将中共残害自己的同胞并无视全世界生命的真相，用事实来还原历史，用事实来预警未来。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30074310/32gdSniadsgdpaste_2021-05-30_19-42-28.png)
 
-中共已无处遁形，我们会用真相戳破它们编织了70年的谎言，我们会用勇气保护正在被它们袭击的世界。
+美国前众议院发言人接受媒体采访时表示，中共病毒就是来自武毒所的人造病毒，中共国应当承当责任，中共欺骗了WHO，欺骗了全世界。一年多以来，中共一直在欺骗全世界，现在已经有足够多的证据表明中共病毒就是来自实验室，中共应对数百万人的死亡和全球经济危机负责。
 
-请全世界爱好和平、追寻真相的朋友们跟随我们的英文网站：
+他还表示，应该向中共国商品征收30-40%的关税，将所得款项用来赔偿受害者家属，我们应该征收高额关税，其他国家也应当如此。
 
-[Himalaya Australia – The Himalaya Australia Farm (himalayaustralia.com.au)](https://himalayaustralia.com.au/)
 
-我们只说真相。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30002835/Aussie_Website.jpg)
-更多内容，请实时关注GTV“澳喜作战室”
 
-[Broadcast – 2021-05-30 全澳洲大游行——-庆新中国联邦一周年 – G|TV (gtv.org)](https://gtv.org/broadcast/watch/60b2d615f6ff4b33fb9501ec)
+> 美国人都醒来了吗？看看这个前众议院发言人：
+> "it's called Wuhan Virus or Chinese Virus… Chinese ought to be accountable"（这里秘翻不准确）
+> "我们应该对中国加税40%,补偿受害的美国人“
+> 中共都杀你家人了，你说嘿哥们交点钱我们继续当朋友。他对中共只字不提，倒是主持人一直问的是对中共追责。 [pic.twitter.com/49yaCSDSZZ](https://t.co/49yaCSDSZZ)
+> — 黄鹤楼大厨 (@GuoWarriors1) [May 30, 2021](https://twitter.com/GuoWarriors1/status/1398889541109489664?ref_src=twsrc%5Etfw)
 
-*发稿：光耀华夏*
+
+
+本文仅代表作者本人观点，不代表Gnews平台
 
 * * *
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+*排版发布：日本东京方舟农场 文柯Miles*
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29223512/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
-
-
-+1
++2

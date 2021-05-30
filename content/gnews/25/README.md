@@ -1,48 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】坦克人嘻哈之歌
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1282473/)
+## 中共病毒疫苗接种追踪报道 ——唁
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1283175/)
 
-配音：香草山福音部 小草
+#### 一场惨悲的肥皂剧——唁逝去的参与者(2)
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+#### 作者：Nstar
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30050730/16223657021.png)
+56岁的妇产科医生格雷戈里-迈克尔博士( Dr. Gregory Michael )
 
+曾在迈阿密海滩的西奈山医疗中心担任妇产科医生十多年的格雷戈里-迈克尔医生,  在接受辉瑞公司的中共病毒疫苗后不久就患上了一种不寻常的血液疾, 于1月3日去世。
 
+据内克尔曼(Neckelmann)女士说，在她丈夫接种疫苗的三天后，他的手和脚的皮肤下出现了微小的红色斑点或瘀斑，这是由于出血造成的。他意识到这些斑点是一个危险的信号，就去了急诊室。她写道：”血液测试显示他的血小板水平为零，而血小板是凝血所必需的血液成分，他被送入重症监护室，诊断为急性免疫性血小板减少症。
 
+内克尔曼女士在给《纽约时报》的短信中说，迈克尔博士 “绝对没有身体健康问题”，也没有潜在的疾病。”他从未对任何药物或疫苗有任何过敏反应。” 她补充说，她的丈夫是一个健康、活跃的人，不吸烟也不服用任何药物 … 他是一个狂热的深海捕鱼者，而且主要是一个家庭主夫。”他从来没有得过Covid(中共病毒病)，因为他从中共病毒病大流行一开始就使用N95口罩。他执意要保护他的家人和病人”。
 
+如果辉瑞公司的中共病毒疫苗可以杀死像格雷戈里-迈克尔博士这样的最佳年龄和健康的医生的话,  还有谁能不被它伤害呢?
 
+事实也是如此。
 
+5月19日, 挪威药品管理局委托的一项专家审查得出结论，辉瑞-生物技术公司的中共病毒疫苗在100个案例中与死亡之间的因果关系被认为 “可能”，在26个案例中 “可能”，在59个案例中 “不可能”。其余5个被认为是 “无法归类. 中共病毒疫苗对挪威养老院中至少10名体弱老人的死亡负责。
 
-Real talk，real 没钱，real 厌
+3月31 日, 瑞士布莱克报纸(BLICK )报道, 图尔高州议会的六位州议员写了一封向政府提出审查”关于中共病毒疫苗接种副作用的问题”的信. 他们写道: “我们被告知，在接种疫苗后不久，各养老院出现了异常多的死亡病例。”
 
-没钱的日子逼得我天黑见不到孩子
-没枪的日子掐着我脖子吃不到饺子
-没心的日子掩住我耳朵听不到夫子
-没劲的日子蒙着我眼睛看不到镜子
+科内莉亚-豪瑟Cornelia Hauser（54 岁，绿党）也签署了这封审查请求信.  豪瑟对布莱克报纸说: “就我个人而言，我对(中共病毒)疫苗接种相当怀疑,  不是因为疫苗接种本身，而是因为(中共病毒)疫苗接种大大缩短了测试时间”。
 
+国际官方声明有一个统一的基调：中共病毒疫苗接种是安全、有效的，并且只有少数可接受的副作用。然而，官方媒体和声明中没有看到的是, 各种国际公认的疫苗接种专家的严重关切. 所有这些专家都警告不要接种中共病毒疫苗，除了早期并发症和至死亡外，还指出中共病毒疫苗接种可能产生的长期影响，直至 6-18 个月后死亡。
 
+类似此文中提到的案例的报道在世界各国接种了中共病毒疫苗后层出不穷. 世界各国对调查中共病毒来源的真相的呼声也越来越高.。我们每一个人面临的挑战是: 做无助的顺民, 还是顶住压力, 去勇敢的探索与传播真相。
 
-**文字版原文：[【香草诗词汇】坦克人嘻哈之歌](https://gnews.org/zh-hans/1274593/)**
+**在不知道中共病毒****(C C P****病毒****)****的原因情况下，任何疫苗都是对人类的伤害！**
 
-作者：纽约香草山福音部 小草
+为那些逝去的无助的老人们, 为无辜的格雷戈里-迈克尔博士, 哀悼!
 
+**【文章仅代表作者个人观点】**
 
+参考链接： [1](https://www.nbcmiami.com/news/local/local-doctor-who-passed-away-after-vaccine-shot-died-of-natural-causes-medical-examiner/2424281/) [2](https://www.nytimes.com/2021/01/12/health/covid-vaccine-death.html) [3](https://www.bmj.com/content/373/bmj.n1372) [4](https://www.tagblatt.ch/ostschweiz/frauenfeld/coronavirus-ungewoehnlich-viele-todesfaelle-nach-impfungen-in-heimen-ld.2119871) [5](https://www.blick.ch/schweiz/ostschweiz/angeblich-mehr-todesfaelle-kantonsraete-stellen-corona-impfung-infrage-id16432446.html)
 
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++2

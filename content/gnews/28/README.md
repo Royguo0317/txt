@@ -1,207 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 妮基·海莉（Nikki Haley）：没有人应该听中共国他们说话无时无刻不是在宣传
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1282294/)
+## 【医疗前沿世界】疫苗接种噩梦篇
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1283148/)
 
-**字幕内容：**
+作者： 纽约香草山医疗部 圣母院钟声
 
-Nikki Haley (Fmr U.S. Ambassador to the United Nations)
-妮基·海莉（前美国驻联合国大使）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
 
-Well, I mean the idea that he thinks we could ever trust China
-好吧，我的意思他认为我们可以信任中共国
 
-shows why he shouldn’t be in the administration
-显示了为什么他不应该在政府工作
 
-I mean this is no different than universities having Confucius Institute
-我的意思这与大学有孔子学院没有区别
+目前mRNA疫苗接种的概念是建立在这样一个前提下，即通过把合成的病毒信使RNA序列注射到人体中，使人体细胞开始产生COVID-19棘突蛋白。作为回应，人体会产生识别该蛋白质的特定抗体来中和入侵的CCP病毒。在美国获准“紧急使用授权”( EUA, Emergency Use Authorization)的三种疫苗中的两种, 即辉瑞和莫丹纳的，均建立在这种合成信使RNA（mRNA）疫苗技术的基础上。
 
-you can not allow China to tell us what is right or wrong
-你不能允许中共国告诉我们对与错
+疫苗开发商和公共卫生官员承认，接种mRNA疫苗后，大多数人，特别是年轻人，会经历足够强烈的反应，需要一两天的恢复，甚至请假。但是医学文献中没有一项可信的科学研究表明症状如高烧、发冷、头痛、关节，肌肉疼痛、疲劳，甚至致残等能够显示疫苗接种者的身体正在成功地产生人工免疫力。
 
-you can’t allow China tell us what they think is happening
-你不能让中共国告诉我们他们在想什么
+匹兹堡一名33岁的妇女雷切尔·塞泽尔（Rachel Cecere）告诉WPXI-TV新闻，她在第一次接种辉瑞的COVID-19疫苗12小时后的半夜，从颈部剧痛中醒来，并发现肢体瘫痪。 “这是世界上最可怕的事情， 我入睡前完全正常， 凌晨 1：30 醒来，整个身体不能动弹，……医生找不出我问题的原因。我没有已知健康问题，医生告诉我，‘你很健康，我们搞不懂为什么会这样’。”  在杰斐逊医院接受物理治疗近三周后，她的两条腿仍然没有感觉，只能勉强移动左腿。作为单身母亲的她只有上半身恢复了一点力量，但左手仍然感到虚弱，无法抱起女儿。“我多次被告知，诊断是：接种辉瑞COVID-19疫苗带来的神经系统急性失调。”但她的出院文件中没有提到她的疫苗接种史。显然，医院当局不愿意将其瘫痪归因于疫苗接种。而医院的压力来源于何处？CDC(美国疾病预防及控制中心)?
 
-And Fauci listening to China that’s the first problem
-福奇听从中共国的，那是第一个错误
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30042531/%E5%9B%BE%E7%89%8773.png)Rachel Cecere, 33. *By Celeste McGovern*
 
-World Health Organization is listening to China
-世界卫生组织正在听中共国的
+类似情况也发生在田纳西州, 据LifeSiteNews2021年5月11日报道，纳什维尔市的布兰登.麦克法登（Brandy McFadden）曾于2020年感染过新冠病毒，她于4月16日接种了第二剂辉瑞mRNA疫苗。第二天下午，她说不能走路了，脖子钻心剧痛。“真是一场噩梦! 我只是想做个尽职尽责好公民, 听从政府号召去接种疫苗。从没想过会发生这种事。” 她告诉当地新闻台。她的丈夫带她到范德比尔特大学医疗中心(Vanderbilt University Medical Center)急诊室，接受了CT扫描、MRI、EMG和血液检查，所有这些检查都无法给出病因解释。她已逐渐恢复手臂运动,一周后可以扭动脚趾。
 
-no one should be listening to China
-谁都不应该听中共国的话
+然而，疾病控制和预防中心疫苗不良事件报告系统（VAERS）已收到1619份关于COVID-19疫苗接种后神经系统副反应事件的报告，其中包括瘫痪或近瘫痪，如吉兰·巴雷综合征(Guillain Barré Syndrome)，横向骨髓炎 (transverse myelitis)， 急性传播性脑脊髓炎 (acute disseminated encephalomyelitis) 和贝尔氏面瘫 (Bell’s Palsy,，面部肌肉瘫痪，经常以口下垂和无法闭合一只眼睛为标志)。在这些报告中，794份与辉瑞的COVID疫苗有关，包括截至4月30日30～39岁患者的131例瘫痪报告。CDC强调，VAERS报告没有在疫苗和不良事件之间建立因果关系。更糟的是，VAERS数据积压了大约三个月，因此我们看到的是一个被严重低估的数据结果。即使VAERS数据全被统计，也只能反应疫苗接种不良事件真实数据的1%至10%。
 
-I work with them firsthand for 2 years
-我与他们直接工作了2年
+在18至29岁的人群的数十份报告中，有一位医生报告了一名密歇根州的21岁年轻人，他于3月接种了第一剂莫丹纳mRNA疫苗，9天后开始出现“上升性瘫痪”。报告说，他的病情“迅速升级，需要接受气管插管加呼吸机辅助呼吸”，他接受了吉兰·巴雷综合症的治疗，因瘫痪，失去了自主呼吸能力, 毫无选择地只有做气管切开术了。
 
-and there’s not a time their mouths were open where they weren’t saying propaganda
-他们说的话无时无刻不是在宣传
+另一份医生向VAERS发的报告描述了一名26岁的年轻女性在3月份接受了第一剂辉瑞的疫苗，三天后，她的脚趾开始感到麻木，并蔓延到腿部。五天后，感到手指和嘴麻木，手臂无力。几天后，她因右侧口角下垂去了急诊室，医生给予腰椎穿刺, 脑脊液测试显示吉兰·巴雷综合症，随即开始接受静脉免疫球蛋白输入治疗。
 
-and trying to convince the world of
-而且并试图说服世界
+世界范围内，目前四个主要的疫苗品牌（辉瑞、莫丹纳、阿斯利康、约翰逊-约翰逊）不是直接向人体注射棘突蛋白，就是通过mRNA技术指导人体制造棘突蛋白，并将其释放到人体血液中，人体的免疫系统就会产生针对棘突蛋白的中和抗体，并中和棘突蛋白，由棘突蛋白造成的损害就可能会停止。因此，任何在疫苗接种后幸存下来的人，都是因为他们与生俱来的免疫系统在保护他们免受疫苗的伤害，说明疫苗其实是施害者。 这一说法得到了许多专家的支持，其中包括世界著名的传染病专家——法国的艾克斯-马赛大学（Aix-Marseille University）的迪迪埃·拉乌尔特教授(Prof. Didier Raoult) ，“相当多的人在接种疫苗后一周内检测出病毒呈阳性，并出现症状。接种疫苗后感染的可能性高于未接种疫苗的人”。 所以，疫苗是攻击你的武器，你自身的免疫系统才是你的防御。
 
-what they wanted to have people saying not what’s fact
-他们想要人们说的不是事实
+辉瑞公司前副总裁兼过敏和呼吸研究首席科学家迈克尔·耶顿博士(Dr. Michael Yeadon)说：“尽管一些价格低廉且容易获得的口服药已在临床治疗中得到证实，但新冠病毒感染后的早期治疗还是受到审查和压制，这显然是为了确保这场全球大规模疫苗接种快速推进。”其实，你根本不需要疫苗，科学被医疗官僚曲解和操纵了。事实证明，口服硫酸羟氯喹、伊维菌素、布德索尼德（用于哮喘治疗的吸入性类固醇），以及维生素C&D、锌等补充剂，不仅可以降低症状的严重程度，而且可以预防CCP病毒感染。 大药商及其扶持的医学官僚是不会让廉价有效、又能救命的药物来毁了他们赚大钱的疫苗计划，或任何有利可图的治疗计划，人类的贪婪和无耻在这次人为瘟疫大流行中显现得淋漓尽致。
 
-that there’s a real problem here
-这里有一个真正的问题
+只有新中国联邦的爆料革命最早揭露病毒真相，英雄病毒学家闫丽梦博士自去年7月以来公开呼吁：只有从制毒的中共那儿充分了解被基因改造的病毒关键信息，研发疫苗才可能是有意义和有效的。爆料革命领头人郭文贵先生早在今年4月就告知世界：这次疫情的真正灾难是疫苗经济和疫苗政治，最终，它将变成疫苗灾难和疫苗战争。这一切混乱及损失的源头就是中国共产党。无论世界的哪种力量要生存下去，当务之急要解决的就是这个万恶之源。
 
-and I’ll tell you right now
-而且我现在就告诉你
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30043257/%E5%9B%BE%E7%89%8774.png)
 
-if we don’t hurry up and get on this
-如果我们不赶快解决中共的问题
+参考链接:
 
-there’s going to be another outbreak
-那将会有另一个大爆发
+https://www.lifesitenews.com/news/two-young-mothers-paralyzed-after-receiving-pfizers-covid-vaccine
 
-there’s going to be another virus
-将会有另一种病毒
+https://www.naturalnews.com/2021-05-07-salk-institute-reveals-the-covid-spike-protein-causing-deadly-blood-clots.html
 
-and we’re so far behind the curve
-而我们却远远落后于形势
+校对/发稿：飞虹
 
-Australia’s already called for an investigation
-澳大利亚已经呼吁进行一个调查
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24221039/5_May-1-556x720-2-3.jpeg)
 
-they’re having economic sanctions against them from China
-他们正受到来自中共国的经济制裁
 
-Canada has already asked to boycott the Olympics
-加拿大已经要求抵制奥运会
 
-you got Japan is giving themselves
-日本正在给他们自己
+**更多资讯，更多关注**
 
-a billion-dollar stimulants to become less dependent on China
-十亿美元的刺激经济以减少对中共国的依赖
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-and what are we doing
-而我们正在做什么
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-now we’re going to take another 90 days to figure out
-现在我们还要花90天才能弄清楚
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-what we’re going to do
-我们要做什么
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-this is the world problem
-这是世界的问题
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-we should already be boycotting the Chinese Olympic
-我们应该已经抵制了中共国奥林匹克运动会
-
-how many more people have to die before you justify that
-在证明这一点之前，还有多少人要死
-
-I think 3 and 1/2 million is enough
-我认为350万人的生命足够了
-
-I think you’re going you look what they’re doing
-我想你要去看看他们在做什么
-
-what they’ve already done to Hong Kong
-他们已经对香港做了什么
-
-what they’re doing in Taiwan
-他们在台湾做什么
-
-I mean this is the country we need to take seriously
-我的意思是这是我们需要认真对待的集权国家
-
-and we got to start acting
-而且我们必须开始行动
-
-like we really are onto them
-就像我们真的对他们认真对待一样
-
-because they’re running all over us right now
-因为目前他们在各方面占上风
-
-Sean Spicer
-肖恩·斯派塞
-
-Ambassador, let me just ask you to remember a couple years ago
-大使，让我问你还记得几年前
-
-the big thing with the banks were too big to fail
-的大事，银行太大而不能倒闭
-
-is China too-big-to-fail？
-是中共国太大而不能倒下吗？
-
-do we owe them too much ？
-我们欠他们太多吗？
-
-Nikki Haley
-妮基·海莉
-
-the problem is we need to change our behavior
-问题是我们需要改变自我们己的行为
-
-We have to stop thinking that China wants to be like us
-我们必须停止认为中共国希望我们的那样
-
-and understand that China is a communist regime
-并了解中共国是一个共产主义政权
-
-and we have to change our attitudes towards China
-我们必须改变对中共国的态度
-
-what we have to do is get with our allies
-我们要做的就是与我们的盟友一起
-
-Get with Australia, get with India, get with Japan, get with South Korea, get with Canada
-与澳大利亚、印度、日本、韩国、加拿大
-
-and all these other countries that are furious about Covid
-和所有那些国家对Covid感到愤怒的
-
-start to lobby sanctions back against China
-开始和他们一起对中共国的制裁
-
-get all of us to boycott the Olympics
-让我们所有人抵制奥运会
-
-because I’ll tell you right now
-因为我现在告诉你
-
-the last Olympics China saw it is their coming-out party
-上次的奥运会中共国让世界看到他们大聚会
-
-this Olympics is China’s
-这次奥运会是中国共的机会
-
-we know this China is planning on showing
-我们知道中共国正在计划借这次奥运会，向世界展示
-
-that they are the new superpower of the world
-他们是新的超级大国
-
-and if we let this Olympics go unhinge with any it without any issues
-如果我们让本届奥运会顺利举行，没有表示任何异议
-
-you mark my words Sean Taiwan is next
-你记下我的话，肖恩，台湾是下一个
-
-and if they take Taiwan, it’s all over
-而且如果他们拿下台湾，一切都结束了
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 :[https://twitter.com/newsmax/status/1398042500976287749?s=21](https://twitter.com/newsmax/status/1398042500976287749?s=21)
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-天涯行银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1
