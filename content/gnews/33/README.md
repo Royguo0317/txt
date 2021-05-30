@@ -1,45 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】英国协助调查病毒起源，美议员提法案剥夺中共主权豁免
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1280759/)
+## 【鹰眼墙国】核能技术新“突破”，核电站巨大隐患依旧
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1281942/)
 
-作者：香草山信息部  雪梨
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+香草山写作组 鹰(文言)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29092137/%E5%9B%BE%E7%89%8767.png)
-图片来源：virtuglobalbusiness
 
-据《[每日电讯报](https://www.telegraph.co.uk/news/2021/05/28/exclusive-uk-intelligence-helping-us-investigate-wuhan-lab-leak/)》报道，继拜登总统26日发表[声明](https://www.whitehouse.gov/briefing-room/statements-releases/2021/05/26/statement-by-president-joe-biden-on-the-investigation-into-the-origins-of-covid-19/)，要求美国情报界90天内递交新冠病毒起源报告后，英国情报部门同意与美国合作调查病毒从中共实验室泄露的可能性。
-
-经过长时间的政治铺垫、舆论宣传和民意的引导，26日拜登总统的声明正式吹响了“以毒灭共”的号角。自病毒实验室起源说出现时，英国已经开始搜集相关情报。待拜登总统发布官方声明后，英国加入，协助调查。实际上，英美两国已经有足够的情报证实病毒来自实验室。这可能就是[塞林博士](https://twitter.com/LawrenceSellin/status/1379437072763609090)此前推文中提及的，“类似于英国二战破译密码的SIXTA的研究网络分析，用于确定#COVID19的实验室来源”。英国加入调查，既是五眼联盟成员，也是英联邦国家的新西兰、加拿大、澳大利亚也会协助提供情报。
-
-本周四，美国和英国敦促世界卫生组织对中共国开展[新一轮的病毒起源调查](https://www.reuters.com/business/healthcare-pharmaceuticals/who-experts-preparing-proposal-next-studies-virus-origin-spokeswoman-2021-05-28/?taid=60b0f190e9744d00010a2abd&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)，使独立专家们能充分接触到中共国的原始数据和样本。世卫组织发言人Fadela Chaib表示，专家们将为世卫总干事谭德塞准备一份提案，但没有设定时间表。
-
-英国军情六处前负责人迪尔洛夫爵士（Sir Richard Dearlove）说，如果中共不开放实验室接受审查，英国安全部门可能需要“激励”中共国叛逃者来了解真相。这也充分验证了文贵先生提到的，有像闫博士这样的从中共国来的科学家正在欧洲作证。除了情报，如果有来自中共实验室的、直接的证据或者证人，中共就插翅难逃了。
-
-此外，美国共和党和民主党议员共同提出“[国际疫情永不再发生预防法](https://www.epochtimes.com/gb/21/5/28/n12982196.htm)”（Never Again International Outbreak Prevention Act），呼吁剥夺中共和其他“故意在疫情上误导国际社会的国家”的主权豁免，允许疫情受害者家属起诉中共或相关国家。这条法案为中共病毒量身打造。一旦该法案获得通过，因疫情受到伤害和损失的个人和团队都可以在美国起诉中共。中共在美国的资产会被合法冻结。若被定罪，它就是跨国犯罪组织。一旦美国认定，盟国势必跟进，中共在国际上将彻底失去合法性。
-
-这个节骨眼上，中共内部要么达成共识，主动变革，开放实验室，欢迎世界独立科学家们来武汉调查，公开病毒原始毒株和数据。中共解体，逐步过渡到新政府。要么加剧内斗，海外资产被冻结，西方与中共经济脱钩，闭关锁国。在这关乎自己身家性命和子孙后代的关键时刻，想必曾家和江家在那个时刻到来之前已经出手，结束党内斗争，解体中共。
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191415/M5-2.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
 
 
+
+新浪网5月29日转载北京日报客户端消息，国内全超导托卡马克核聚变实验装置（EAST）创造新的世界纪录，实现1.2亿摄氏度101秒、1.6亿摄氏度20秒技术突破，核聚变能源成果履新。
+
+在习包子上台后，中俄关系进入“蜜月期”，而将核电技术出口作为国家战略的俄罗斯，更将中共市场作为主要的技术出口国：连云港田湾核电站、田湾核电站7/8号机组、徐大堡核电站框架等巨额核电项目先后签订。其中18年6月签署的田湾、徐大堡和示范快堆设备供应合同总值达200亿元，同时中方在核电站建设中仅提供如平面规划、常规岛设计类的“打下手”工作，而主要的核岛和系统设计和14项核岛主设备的建造供应均有俄方承担。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29185228/Screen-Shot-2021-05-29-at-6.48.05-PM.png)
+自1991年秦山核电站建成后，中共不断从法国阿海珐、加拿大原子能、俄罗斯国家原子能、美国西屋等公司购买先进技术：如三门核电站的主要技术来源于西屋电气公司。在西方加大对技术盗窃力度后，中共只能转而从俄罗斯进口“技术”。俄罗斯因“切尔诺贝利事故”影响核能技术安全性至今仍被全世界质疑，敢用俄国核电技术的也仅中共独裁政权。技术自主性近乎于无，核电“俄国造”泄露存风险，中共的核电站潜在的安全风险依旧十分严峻。
+
+2020年七八月份长江中下游遭遇百年罕见洪涝灾害，不但直接造成夏粮大幅减产和绝收，加剧了下半年的粮食短缺危机，同时间接造成的经济损失高达2143.1亿元。在南方汛期最为严峻的时候，三峡大坝异常“晃动”。郭先生、路德时评揭示，一旦三峡决堤其下游三座核电站将造成波及半个中国的核泄漏。这些都反映出，中共建造的核电站抗击风险能力十分薄弱。长江中下游的三所核电站为秦山核电站（一、二、三厂）、三门核电站和方家山核电站，三者装机容量为9086MWe，占国内核电站装机总量51027.16的17.8%。这意味着，2020年主汛期时，全国近1/5的核电站随时面临泄露风险。2021年5月中旬79条河流出现超警洪水，长江汉口站水位达156年最高值（比2020年同期高4.6-7.0米）。洪灾规模依旧十分庞大，下游核电站的泄露风险依旧十分严重。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29185210/Screen-Shot-2021-05-29-at-6.48.09-PM.png)
+出于对核电站泄露风险的担忧，以及福岛核电站事故的警示，国内近年来在内陆地区建造核电站的打算屡屡被阻，如湖南桃花江、江西彭泽、湖北大畈在民众强烈抗议下被叫停。即便民众质疑抗议，中共仍在快马加鞭的推行其内陆核电站的计划：2012、2015、2019年以及2020年海南昌江核电二期和浙江三澳核电一期相继获批。综上，技术上的盗窃行为和长期依赖进口造成了国内核电站研发断层，而引进俄罗斯核电技术的做法又增添了核泄漏隐患，再加上已建成的核电站长期面临洪涝灾害的风险，国内的核电站“安全”只是停留在纸面，毫无技术保障和民众支持。
+
+新闻来源：
+
+101秒！科幻小说中的这项技术 中国创造新世界纪录！https://news.sina.com.cn/o/2021-05-29/doc-ikmxzfmm5302405.shtml
+
+内陆第一核电站”再引争议https://www.yicai.com/news/3677823.html
+
+江西彭泽核电欲上马却遭安徽反核风波https://news.qq.com/a/20120216/000858.htm
+
+江西核电项目被指用洗衣粉换民调https://www.163.com/news/article/7RSHCA0E00011SM9.html
+
+“十四五”核电发展再迎新窗口http://www.ceweekly.cn/2021/0506/342186.shtml
+
+俄罗斯核电领域“全景式”式分析：技术路线 国内装机 海外出口https://user.guancha.cn/main/content?id=247464
+
+200亿！中俄签署迄今最大核电项目，俄罗斯技术抢走美国市场https://www.guancha.cn/internation/2018\_06\_09\_459533.shtml
+
+不再矜持 俄罗斯核能技术在中国市场酝酿鲶鱼式反击http://www.chinaru.info/News/zhongetegao/63972.shtml
+
+应急管理部：今年洪涝灾害造成直接经济损失2143.1亿元http://finance.china.com.cn/news/20200903/5358440.shtml
+![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+编辑/校对/发稿：正义的小新
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 0

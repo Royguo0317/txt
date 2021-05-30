@@ -1,85 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】锅言灶语（ 十一） – 有话说之＂画＂外音-
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1280796/)
+## 【锐语】武汉病毒学研究所与首屈一指的新疆准军事部队合作开展科学研究
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1282023/)
 
-作者：纽约香草山健身部 澄道
+娜塔莉·温特斯（Natalie Winters）独家报道：
 
-![该图像有一个空的 alt 属性； 其文件名为 GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg](https://lh5.googleusercontent.com/vLw6Y_b7B_ELY7tNgJ-ZeOlPtiZaj9LITymWl1OE5wOzdIkkX7DZBrFRJJhMt9xpPSvXBwsgxURfUXP8t3HmMF6_KbzyUQPdAO1r5czQIoPgP9oX5cyVQDtWPZyla7HiihEkkn5C)
+武汉病毒学研究所与首屈一指的新疆准军事部队合作开展科学研究
+
+美国安东尼·福奇博士的国家过敏和传染病研究所 (NIAID) ，资助了有争议的武汉病毒实验室关于蝙蝠冠状病毒的研究，并派遣科学家就危险的功能增强研究项目提供建议。除了将纳税人的钱汇给武汉病毒研究所（其网站之前将美国国立卫生研究院（NIH）列为研究合作伙伴）之外，福奇的机构现在可以链接到新疆生产建设兵团（XPCC）合作的实体
+
+拜登和川普的财政部都制裁了新疆生产建设兵团（XPCC）领导人，称其“严重侵犯了新疆少数民族的人权，据报道，其中包括大规模任意拘留和严重的身体虐待”。国土安全部 (DHS)还禁止该实体的棉花进入美国，理由是其与监狱和强迫劳动有关。
+
+包括《 华盛顿邮报》在内的主流媒体将兵团认定为对维吾尔人的“镇压工具” ， 而中共国官方媒体则将其描述为旨在“维护社会主义稳定”的中国人民解放军的一个分支，以及在该地区的中国顶级民兵力量。”中国共产党领导人习近平称赞他们是“稳定力量”。武汉病毒研究所还是与兵团官员会面并签署了合作协议。
+
+2013 年 8 月 3 日，武汉病毒研究所网站上一条现已被删除的帖子揭示了与兵团的“科技合作”。活动摘要记录了武汉病毒研究所所长，党委书记和副研究员如何前往新疆会见XPCC官员：“2013年7月30日，应新疆建设兵团第十师北屯科技局邀请，中国科学院武汉病毒研究所所长陈新文、武汉病毒研究所党委书记袁志明中科院病毒学 中科院武汉分院科技合作处处处长病毒所虫媒病毒病媒控制学科组李伟主任、闫建平副研究员去北屯市洽谈合作事宜。”据报道，这次会议的重点是“实施新的科技项目——生物灭蚊”。现已删除的文章。
+
+另一篇被删的文章披露了武汉病毒所参加2013年“中科院——新疆科技合作洽谈会”，中科院与兵团签署了近30个“合作项目”，其中包括武汉病毒所和兵团第十处联合承担的“高效安全的蚊虫防控技术集成与示范”项目。这些联系是在《国家脉博》发现额外删除的帖子之后发生的，这些帖子记录了武汉病毒学研究所的研究人员承诺不“妥协”地执行中国共产党的议程，以及在该实验室工作的与军方有关的研究人员。
+
+参考链接：
 
 
 
-小馆团送
-风声水起
-走街串巷
-派派派…..
+> [EXCLUSIVE: Fauci-Linked Wuhan Researchers Aided U.S.-Sanctioned, China Paramilitaries in Oppressing Uyghur Muslims.](https://thenationalpulse.com/exclusive/wuhan-collaborated-with-sanctioned-xinjiang-military/)
 
-宣播真相
-不遗余力
-户户相联
-传傅传……
 
-＂泰何为＂网点
-应接不暇
-锅子满水沸
-灶子大火旺
 
-帮厨阿＂姨＂
-＂煮＂起来
+图片来源：[https://thenationalpulse.com/](https://thenationalpulse.com/exclusive/wuhan-collaborated-with-sanctioned-xinjiang-military/)
 
-＂草儿我去向远方＂
-灭共路虽漫长但阻止不了我步伐
-＂一块红布＂
-险恶茫茫勇者无惧
-＂假行僧＂
-无我相无明相就是最好的行脚
-＂欢乐颂＂
-欢聚盘古颂心恒长
-＂一杯敬死亡
-一杯敬自由＂
-无自由吾宁死
-＂再一个春天
-又一场春风春雨＂
-冬天终将过去春天必然来临
+整理撰稿：蓝精灵
 
-＂这个是菜单吗？
-明明是歌单吗＂
+校对发布：Penny
 
-翠花
-翠绿
-互视了对方
-一脸不解
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-还有＂菜是阿姨煮！＂
-＂难道就是＂遗嘱＂吗？＂
-
-＂哦我了个去
-这个学问可大了！＂
-但我还是想像成
-＂是菜单！＂
-
-䕜花
-的神提问
-又来了！
-
-@澄道来了
-@爱动爱议码05292
-
-校对/发稿：雪梨
-
-![该图像有一个空的 alt 属性； 它的文件名为 5_May-1-556x720-1.jpeg](https://lh3.googleusercontent.com/8fPG-b3k1OPDoyNGv4xUGowotNCaFBS_Zy6K0pET5dZlav_GDobq-Ggg7Ttc_cv1Jxic-MNIw5k-4AIUaFK4dcPj0Gi5wObqH5uhfy5PxMn9uHRth-SCaptbFEriybfU9tqIgPrD)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

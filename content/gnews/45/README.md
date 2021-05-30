@@ -1,27 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国生化研究机构早在九十年代就对中共解放军敞开大门
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1280558/)
+## 【热播快译】证据指出，2019年12月中共武汉实验室研究员妻子死于类似中共病毒症状
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1280161/)
 
-#### 翻译：William | 校对：人间四月
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29082754/%E5%91%B5%E5%91%B5%E5%91%B5%E5%91%B5%E5%91%B5%E5%91%B5.jpg)图片来源：CCN
-根据美国新闻网站《Gateway Pundit》乔·霍夫特(Joe Hoft)的报道，早在1990年代开始，中共共产党（CCP）和人民解放军（PLA）的科学家就开始陆续进入重要的美国国防部和相关的民用研究计划。有些人获得最先进的知识和技术返回中共国，部分人则是留在美国继续进行由美国纳税人资助的研究计划。当时克林顿政府(1993年~2001年)似乎没有人来认真审核这些人的中共军方背景。
+作者：休斯顿星光农场 翻译：H.B
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
+**前总统川普执政期国务院的调查负责人告诉每日电讯新闻基金会，在中共武汉实验室的一位专门从事冠状病毒研究的工作人员的妻子在2019年12月死于与COVID-19相似的疾病**。
 
-报道中提到，明确注明身份为解放军军官的**刘亮明**(音译, Liang-Ming Liu)和彭代之(音译,Dai-Zhi Peng)等被邀请进入美国军事设施；其他中共科学家和解放军军官则隐藏了他们的解放军背景。像是**郇****京宁**(音译 Jing-Ning Huan), 他将学历背景写为上海第二医科大学，但实际上这间大学实际上是中共解放军第二军医大学。后来进入匹兹堡大学(University of Pittsburgh)的周博士(Allan Z. Zhou)的实验室。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29172236/%E5%8C%BB%E9%99%A2%E5%9B%BE%E7%89%87-edited.png)
 
-还有**李国平**(音译,Guo-Ping Li)，她的教育背景尚不清楚，但她在加拿大贝尔北部研究有限公司（Bell-Northern Research Ltd.）担任永久职位。后来到美国陆军医学研究与物资司令部(U.S. Army Medical Research and Materiel Command)担任研究先进激光技术的临时研究职位。李国平目前正在使用激光技术的射电望远镜技术( laser technologies for radio telescopes.)为中共的太空计划工作。
+图片来源：来自网络
 
-除此之外，在同一个五角大楼计划(Pentagon program)下，克林顿政府还招募了**罗春元**(音译Chunyuan Luo )和**项春生**(音译Chunsheng Xiang)。罗春元原就职于北京军事医学科学院毒物药物研究所，后来加入沃尔特·里德陆军研究院(Walter Reed Army Institute of Research,)。这都是中共化学战计划的一个组成部分。在沃尔特·里德的十多年中，他主要研究了与化学战有关的问题，包括和位于马里兰州阿伯丁试验场的美国陆军化学防御医学研究所(US Army Medical Research Institute of Chemical Defense)的直接合作。他在2012年离开沃尔特·里德（Walter Reed），罗春元成为美国专利商标局的专利审查员，涵盖了他的化学药理毒理专业领域。
+这位任职于国务院并负责COVID-19起源调查的大卫-阿什说，这本来是该病毒在人类间传播的早期线索，然而中共当局承认该病毒可以“人传人”却发生在此之后的一个月，因而使得该病毒在全世界扩散。
 
-还有，中共党员项春生申请来美国时谎称自己拥有加拿大国籍。尽管如此，他还是被分配到美国陆军传染病研究所(U.S. Army Medical Research Institute of Infectious Diseases)，他在那里研究了高致病性和潜在生物战剂埃博拉病毒(Ebola virus.)。项春生现在是浙江大学的教授，与中共和人民解放军的高层联系十分紧密。
+中共政府在2020年1月中旬的报告中说，该病毒可在人类中传播。
 
-正是在克林顿政府期间，中共和解放军科学家建立了中美之间的科学技术转移链，这导致了美国研究项目被大规模地渗透，这无疑为之后中共的生物战项目做出了直接的贡献。
+据大卫-阿什说，是当时在中共武汉病毒研究所工作的一个人提供了关于这位冠状病毒研究员的妻子死亡的信息。
 
-译评:
+《华尔街日报》周日的一篇报道称，2019年11月，有三名中共武汉实验室工作人员因类似COVID-19的症状住院治疗，早于之前报道的出现在12月8日的第一例COVID-19。这篇最新报道发现，在第一例确诊病例之前，中共武汉实验室（WIV）的工作人员在2019年秋季可能出现了COVID-19的症状，这也曾出现在川普政府最后几天发布的关于COVID-19起源的国务院声明中。
 
-当美国开始面对大批的CCP解放军生化学者们，堂而皇之进去美国各大顶尖生物领域进行渗透、偷窃的事实，表示美国开始了重建的进程。尽管这些事实有多没不堪、多么匪夷所思，但这都表示美国开始审视哪里有漏洞、又有谁会钻这些漏洞，并且思考怎么开始怎么预防、怎么修补。美国在这次中共病毒事件上，因为内部利益集团与中共的勾结，造成美国惨痛的代价。目前因中共病毒而死亡人数(59.3万)已经超过美国第二次世界大战死亡人数(40.5万)。高涨的民意，以及更多证据的出台，让美国拜登总统已经发表声明，要求情报机关在90天内查明中共病毒起源，以毒灭共绝不是口号，以毒灭共绝对是世界让共产党倒下的致命打击。
+大卫-阿什说，这些中共实验室工作人员似乎更有可能患的是COVID-19，而不是流感。
 
-原文链接: [EXCLUSIVE: Clinton Administration Invited the Chinese Army into Sensitive U.S. Military Biodefense Centers](https://www.thegatewaypundit.com/2021/05/exclusive-clinton-administration-invited-chinese-army-sensitive-u-s-military-biodefense-centers/)
+“有多少30-40多岁的正常人因为流感而病得很重，不得不住院？我被告知，该实验室工作人员几乎肯定都已注射流感疫苗。”
 
-0
+“此外，他们又恰好都是关于COV RaTG13增强和COVID-19致病性的研究人员并且一起病重，这样的几率有多大？”大卫-阿什说。
+
+美国务院在今年1月的声明中说，中共政府阻止了对之前患病的武汉病毒实验室（WIV）研究人员的采访。
+
+根据国务院1月的声明，中共武汉实验室（WIV）的研究人员正在研究与SARS-CoV-2类似的病毒，但中共当局阻止了对其正在进行的此类研究进行访问。
+
+国务院一位高级官员告诉《华盛顿邮报》，拜登政府对国务院1月15日声明内容没有异议。该声明是在特朗普政府时期发表的，但是它只关注实验室的泄漏，没有关注病毒的其他可能来源，不是一种平衡的表述。
+
+周三，拜登政府呼吁美国情报界加倍努力，发现有关COVID-19来源的信息，并在90天内向他汇报。
+
+周二，一位参加世界卫生组织大会的中共国代表宣布，中共政府已经完成了对COVID-19来源的部分调查，现在应该把调查重点转向其他国家。
+
+信息来源：
+
+[https://dailycaller.com/2021/05/28/covid-19-david-asher-mike-pompeo-world-health-organization/](https://dailycaller.com/2021/05/28/covid-19-david-asher-mike-pompeo-world-health-organization/)
+
+校对：文顺 ／Helen 发稿：文柳
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
++1

@@ -1,83 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】好好活到那一天
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1280825/)
+## 韩国恩典农场第二次接待当地学者
+` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/1282052/)
 
-## *-人身的霞满绽放-*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/gnews抬头图片.png)
+韩国恩典农场：追着曙光跑 校对：林青松
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29193412/5%E6%9C%8827%E6%97%A5%E4%B8%89%E4%BA%BA%E5%90%88%E7%85%A7.jpeg)
+韩国时间5月27日下午，恩典农场负责人哈恩和林青松战友第二次接待韩国国民大学研究国际政治关系的博士和他的学生的来访。
 
-## *–灵魂的超脱重生-*
+据当天负责做翻译的林青松战友介绍，这位博士和他的学生第二次来访是为了深入了解新中国联邦宣言以及闫丽梦博士的三份中共病毒报告的内容。4月7日第一次来初步认识了新中国联邦和知道了闫丽梦博士三份报告但没有要相关的报告链接，这次他们想进一步深入了解中共病毒的真相。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29194420/5%E6%9C%8827%E6%97%A5%E5%AD%A6%E8%80%85%E8%A7%A3%E8%AF%BB%E7%97%85%E6%AF%92.jpeg)
+林青松战友告诉他们中共掩盖了病毒会人传人的真相，是闫丽梦博士于2020年的1月19日通过路德社告诉世界中共病毒是生化武器并会人传人的真相。他们听了之后是非常震惊的，问为什么中共会制造生化武器，而且还感染了自己的国民。按照普通的常识，发现了人传人应该把真相公之于众，让国民做好各种防护，而不是隐瞒真相，还导致扩散到全球。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29194459/5%E6%9C%8827%E6%97%A5%E7%BF%BB%E8%AF%91%E5%9C%BA%E9%9D%A2.jpeg)
+然后向他们解释了不能打疫苗的原因。根据闫博士“在没有查清楚SARS-CoV-2的真相之前研发的疫苗对病毒都是无效果”的观点，是不可能研究出有效疫苗的，而且现在的疫苗有潜在ADE效应，当再次感染的时候，它会加速病毒对身体的感染。让他们不要打疫苗并告诉身边的人不要打疫苗。他们回答说跟认识的人不能提不打疫苗，因为这个政府是不愿意说出来的真相。
 
-## 
+最后他们要了闫丽梦博士已发表的三份中共病毒报告的网上链接，还有文贵先生2017年10月5日在华盛顿召开新闻发布会关于告诉“美国朋友包括全世界，欧洲和日本的爱好和平的人，一定要相信黑夜即将到来，一定要做好准备，来自中共盗国贼的黑夜即将到来，将弥漫着世界，西方文明世界，我们每个人都将面临，大家要做好准备”的视频。他们需要这些资料来撰写他们的论文，最后他们提出以后也会继续来访以便他们完成他们的论文。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29194902/5%E6%9C%8827%E6%97%A5%E7%A4%BC%E7%89%A9.jpeg)
+临走之前，哈恩给赠送了新中国联邦国旗胸针和手提袋给他们作为礼物。
 
-作者：纽约香草山健身部 澄道
+作者评语
+这位博士和他的学生再次来访，说明他们是非常想了解中共病毒的真相。作为研究国际政治关系学的学者，对我们新中国联邦也是非常感兴趣的。希望他们能够把闫博士的三份中共病毒的报告告诉他们周围的人，希望他们把新中国联邦介绍给更多的同行和学者知道，以便我们在在韩国发展壮大我们灭共的队伍，团结一切灭共团体一起推翻邪恶的中共！
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg](https://lh5.googleusercontent.com/vLw6Y_b7B_ELY7tNgJ-ZeOlPtiZaj9LITymWl1OE5wOzdIkkX7DZBrFRJJhMt9xpPSvXBwsgxURfUXP8t3HmMF6_KbzyUQPdAO1r5czQIoPgP9oX5cyVQDtWPZyla7HiihEkkn5C)
+当天关于病毒的交流视频：[https://gtv.org/getter/60af575e744cbc431364c9bd](https://gtv.org/getter/60af575e744cbc431364c9bd)
 
+（本文仅代表作者的观点）
 
-
-孤独是
-孤独者的手撕名牌
-灭共是
-灭共者的石刻经文
-
-无意中偶遇战友
-我滴个娘哎
-什么感觉
-当被告知没打疫苗
-问故答曰：
-我要活到的那一天
-
-有意识避开家人及朋友
-明知道是在被戕害
-我滴个了去
-痛苦至极：
-我多希望和你们一起活到那一天
-
-我知道
-我势孤力单
-且还背锅家人的骂名
-诸如精神错乱啊什么的
-
-我深知
-我眼花手拙
-且被身边越来越多的被强种苗者围堵
-诸如妄想狂人啊此类的
-
-那又怎样
-因为有一个良知声音在心底不息
-你就是你家族可能留下唯一火种
-有火种在
-光明就在
-
-那又如何
-因为有一种人性使命感在抵命招呼
-亿万国人的希望你我责任重大
-有希望在
-信心就在
-
-霞满绽放
-就是要活到灭共的那一天
-超脱重生
-就是要和您一起活到新中国联邦的那一天
-
-@澄道来了
-@爱动爱议码05291
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 5_May-1-556x720-1.jpeg](https://lh3.googleusercontent.com/8fPG-b3k1OPDoyNGv4xUGowotNCaFBS_Zy6K0pET5dZlav_GDobq-Ggg7Ttc_cv1Jxic-MNIw5k-4AIUaFK4dcPj0Gi5wObqH5uhfy5PxMn9uHRth-SCaptbFEriybfU9tqIgPrD)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
