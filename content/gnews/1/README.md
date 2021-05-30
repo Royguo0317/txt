@@ -1,11 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210530
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1284109/)
+## 川普支持者支持拜登对Covid-19病毒起源于中共国的调查
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1284188/)
 
-作者：2020喜马拉雅
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30150112/001-3-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30150134/002-2-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151126/003-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151131/004-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151211/005-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151217/006-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151220/007-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151255/008-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151300/009-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151306/010-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151306/011.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151319/012-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151341/013.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151350/014.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151356/015.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151401/016.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151406/017.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151409/018.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151419/019.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151426/020-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151448/021-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151448/022.jpg)
-审核：神奇四侠；发稿：神奇四侠
+#### 编译：Boxinglady （文拳）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/20154211/IMG_20210520_124011_448.jpg)图片截自网络
+川普的支持者周日采取了不同寻常的举动，表达了对乔·拜登的支持，以查明Covid-19病毒的来源，找出中共国是否在大流行前已知病毒的起源。
+
+拜登周四表示，他正在扩大对该疫情的调查，此前至少一家美国情报机构偏离了先前的想法，该机构现在倾向于该病毒从武汉实验室逃脱的理论。
+
+来自得克萨斯州的共和党国会议员迈克尔·麦考尔（Michael McCaul）说川普的前副国家安全顾问马修·波廷格（Matthew Pottinger）说服他开始使用有争议的“武汉病毒”一词，他对这一发展表示欢迎。
+
+Pottinger在接受NBC媒体采访时说：“找出这件事的源头是绝对必要的，这对我们阻止下一次大流行至关重要，对我们更好地了解正在出现的当前大流行的变体也至关重要。”
+
+“拜登总统所说的这两种假设都是有效的，它可能来自实验室，也可能来自自然界。没有任何具体证据支持，但是越来越多的间接证据支持从实验室泄漏出来的说法。”
+
+当初病毒来自武汉实验室的理论被许多科学家否定，疾病控制与预防中心（CDC）和川普顾问的官方立场是证据的依据支持自然起源。世界卫生组织在二月份表示，“极不可能”的Covid-19在实验室中开始使用。但是，来自实验室该理论已受到关注。
+
+星期天，一位与世卫组织有联系的卫生专家在BBC上发表讲话说，实验室理论“并非不可能”，并呼吁美国分享任何情报。
+
+珀丁格说，他相信中国的研究人员还有更多话要说。
+
+他说：“如果这东西是从实验室出来的，那么中国有些人可能知道这一点。” “中国有令人难以置信的道德科学家，其中许多人在大流行初期就怀疑这是实验室泄漏。武汉病毒学研究所的一名研究人员说，她的第一个想法是，“这是我实验室的泄漏吗？”
+
+这些人被政府打压闭口了。现在，全世界都知道这很重要，这也可能为许多这些道德科学家提供道义上的勇气，我认为这对他们的良心造成了压力。我认为，通过此次查询，我们将会看到更多信息。”
+
+简评：美国两党联合以毒灭共已进入实质性阶段！想必未来90天的深度调查不会一帆风顺，垂死挣扎中的毒共一定会有更多毒招放出，但世界各界正义力量已经纷纷站出，相信绝大多数的政府都会选对立场战队，墙倒众人推的世界形势下，毒共死期已临近。
+
+新闻来源：https://www.theguardian.com/world/2021/may/30/trump-pottinger-mccaul-biden-investigation-covid-origins-china
+
+本文仅代表个人观点，不代表 Gnews 平台
+
+校对发布：紫橄榄
 
 0

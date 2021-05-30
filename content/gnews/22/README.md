@@ -1,67 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】这一天 周年庆 华夏 传奇 香草山
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1283731/)
+## 【路德简报】5/29/2021早：英国和挪威科学家 ： 中共故意伪造新冠病毒来自自然
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1283838/)
 
-作者：香草山健身部 回响
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30120519/2021052902-1-scaled.jpg)
 
 
-
-这一天
-
-华夏等了多少年
-
-32年前？
-
-还是百年？
-
-这一天
-
-战友们的三百六十五个日夜
-
-恍如千千万万个千年甚至万年
-
-这一天
-
-天注定
-
-有一座丰碑正立在华夏人心田
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30114009/Untitled-design-57.png)
-这一天
-
-事故、故事
-
-能说得完？！
-
-这一天
-
-融汇了多少血泪难眠
-
-过去的三百六十五天
-
-从此
-
-掀开另一个千年
-
-华夏英雄的传奇诗篇
+> 2021 年5月29日 路德时评 早 
+> 
+> 1.英国和挪威科学家 ： 中共故意伪造新冠病毒来自自然 
+> 
+> 2. 美国福克斯：中共故意释放病毒 造成病毒全球大流行
+> 
+> 3.纳瓦罗： 库德洛和姆努钦阻止川普成立病毒调查委员会 
+> 
+> 4. 印度外长防美： 美印联合对抗中共 [pic.twitter.com/Kz2CeovmXV](https://t.co/Kz2CeovmXV)
+> — 平民爆料 (@WM18320321) [May 30, 2021](https://twitter.com/WM18320321/status/1398951032827359235?ref_src=twsrc%5Etfw)
 
 
-
-校对/发稿： 火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193635/5_May-1-556x720-2.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,25 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “你为什么反对实验室泄漏理论？”——卢比奥参议员在国会对福奇进行质询
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/1284032/)
+## 巴西举行反政府示威活动
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1284034/)
 
-**摘要：在2021年5月26日的参议院拨款委员会关于NIH资金的听证会上，共和党参议员卢比奥（Marco Rubio）质询福奇（Anthony Fauci）关于中共病毒的起源和解释他过去淡化实验室泄漏理论的原因。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30135221/Fauci_2021-05-27-hearing.srt.txt)
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://www.youtube.com/watch?v=ilt\_NcaIIRk](https://www.youtube.com/watch?v=ilt_NcaIIRk) (00-5:10)
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-* * *
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30140510/B-25.jpg)ibtimes.com
+5月29日星期六，据G1.Globo报道，巴西各地举行了反对总统贾尔·博尔索纳罗（Jair Bolsonaro）的政府及其防治中共病毒政策的示威活动。
 
-**翻译：【一花一世界】
-字幕：【XO小粉红】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+所有26个州和联邦区都发生了抗议活动。据《卫报》报道，这些活动至少在200个城市和城镇举行，是自中共病毒感染扩散以来最大规模的反政府抗议活动。
+
+抗议者要求购买中共病毒疫苗，向民众提供紧急援助，恢复疫情期间的社会支持计划，尊重公民的教育和保健权利。一些示威者手持标语牌，要求弹劾博尔索纳罗。
+
+路透社指出，除了该国东北部的累西腓，大多数城市的集会都是和平的，警察在那里对抗议者使用了催泪瓦斯和橡皮子弹。
+
+由于对总统处理中共病毒引发的危机的不满，博尔索纳罗的人气急剧下降。研究公司PoderData 5月27日的民意调查显示，57%的巴西人赞成弹劾他。这比三个月前多了11个百分点。
+
+在疫情的最初阶段，博尔索纳罗否认中共病毒的危险，称其被夸大了。他说：“我在一次对我的持刀攻击中幸存下来，一些寒冷不会带走我。”他长期以来一直拒绝因疫情而对国家施加限制，尤其反对引入社交距离和关闭商店。尽管有这种流行病，他继续参加与支持者的会议。在这些活动中，他经常不戴口罩出现。总统还认为，只有软弱的人才会做出自我封闭的决定。
+
+去年7月，这位政治家感染了中共病毒。他发高烧，身体虚弱。据医生说，他的肺部没有受到影响。
+
+4月，巴西参议院启动了对总统处理该疫情的调查。据参议员罗德里戈·帕切科（Rodrigo Pacheco）称，这将与应对疫情的联邦资金如何在各州之间分配的审计同时进行。
+
+根据巴西卫生部的数据，该国已确认有1640万例中共病毒感染病例，超过46.1万人死亡。根据约翰·霍普金斯大学的数据，该国的中共病毒死亡率在全世界排名第二（仅次于美国）。
+
+参考链接：
+
+[https://www.rbc.ru/politics/30/05/2021/60b2de4c9a7947bdc047d897](https://www.rbc.ru/politics/30/05/2021/60b2de4c9a7947bdc047d897)
 
 0
