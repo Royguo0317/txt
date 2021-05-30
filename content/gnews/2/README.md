@@ -1,112 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《2021年新冠病毒起源法案》
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1284322/)
+## 鲁迪·朱利安尼:闫丽梦博士冒着巨大风险说出武汉病毒实验室的真相
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1284355/)
 
-新闻来源: 美国国会网站| 作者：Josh Hawley，Mike Braun 乔希·霍利，迈克·布劳恩| 发布时间：2021年5月26日
-
-翻译/简评：clau| 校对/审核：Beicy-数学老师 | Page：小六月
-
-[!\[\]()!\[\](https://spark.adobe.com/page/uv09iy3wOcQTK/images/6136e298-4032-42be-9200-6d65056691f3.jpg?asset_id=f90aa0cb-e41d-42c0-ab1a-9c6459b9a0e7&amp;img_etag=%221fcbd6caa005910801ff69011ae65d30%22&amp;size=1024)](https://spark.adobe.com/page/uv09iy3wOcQTK/images/6136e298-4032-42be-9200-6d65056691f3.jpg?asset_id=f90aa0cb-e41d-42c0-ab1a-9c6459b9a0e7&amp;img_etag=%221fcbd6caa005910801ff69011ae65d30%22&amp;size=1024)
-
-**简评：**
-
-2021年5月26日，由乔希·霍利和迈克·布劳恩两位议员发起的《2021年新冠病毒起源法案》在国会被通过，要求国家情报总监在90天内对有关新冠病毒（COVID-19）来源的信息进行解密，并向国会提交一份非保密的报告。
-
-**原文翻译：**
-
-## S. 1867
-
-要求国家情报总监对有关新冠病毒（COVID-19）来源的信息进行解密，及出于更多其他目的。
-
-## **美国参议院**
-
-2021年5月26日
-
-霍利先生（代表他自己和布劳恩先生）提出了以下法案；该法案经过两读，审议，三读，并获得通过
-
-## 议案
-
-要求国家情报总监对有关新冠病毒（COVID-19）来源的信息进行解密，及出于更多其他目的。
-
-美利坚合众国参议院和众议院在国会开会时颁布了该法案。
-
-**第1章节。简称。**
-
-本法案可被称为《2021年新冠病毒起源法案》。
-
-**第2章节。调查结论。**
-
-国会得出以下结论：
-
-(1)国务院于2021年1月15日发布了一份关于武汉病毒研究所（WIV）的概况介绍，包含如下内容：
-
-（A）“美国政府有理由相信，武汉病毒研究所内部的几位研究人员在2019年秋季，即在第一个被确认的疫情病例之前就已经生病了，其症状与新冠肺炎以及常见的季节性疾病一致。”
-
-（B）“武汉病毒研究所的研究人员进行了涉及RaTG13的实验，RaTG13是武汉病毒研究所在2020年1月确定的蝙蝠冠状病毒，是该所与SARS-CoV-2最接近的样本”。
-
-（C）“尽管武汉病毒研究所以民间机构自居，但美国已确定武汉病毒研究所在出版物和秘密项目上与中共国军方合作”。
-
-（2）美国疾病控制和预防中心前主任罗伯特·雷德菲尔德在2021年3月表示，“武汉的这种病原体最可能来自实验室”，并指出“在实验室中工作人员被正在研究的呼吸道病原体感染的情况并不罕见”。
-
-（3）世界卫生组织总干事特沃德罗斯·阿达诺姆·盖布雷耶苏斯（Tedros Adhanom Ghebreyesus）在2021年3月承认，2019年冠状病毒疾病（COVID-19）可能源自实验室，并表示这一假设“需要进一步调查，可能需要专家参与的额外任务”。
-
-**第3章节。国会的意见。**
-
-国会的意见如下——
-
-(1)确定2019年冠状病毒疾病（COVID-19）的起源对于防止未来发生类似的大流行病至关重要。
-
-(2) 有理由相信新冠病毒大流行病可能起源于武汉病毒学研究所；以及
-
-(3) 国家情报总监应解密并向公众提供尽可能多的有关新冠病毒起源的信息，以便美国和有相同想法的国家能够——
-
-(A) 尽快确定新冠病毒的来源，并
-
-(B) 利用这些信息，采取一切适当措施，防止类似的大流行病再次发生。
-
-**第4章节。解密与新冠病毒起源相关的信息。**
-
-在本法案颁布之日起的90天内，国家情报总监应——
-
-(1) 解密与武汉病毒研究所和2019年冠状病毒疾病（COVID-19）起源之间的有关潜在联系的任何和所有信息，包括
-
-(A) 武汉病毒研究所与中国人民解放军一起或代表中国人民解放军进行的活动。
-
-(B) 在新冠病毒爆发之前在武汉病毒研究所进行的冠状病毒研究或其他相关活动；以及
-
-(C)2019年秋季武汉病毒研究所患病的研究人员，包含相关研究人员的信息如下—
-
-(i) 该研究人员的姓名。
-
-(ii)该研究人员的症状。
-
-(iii) 研究人员的症状出现的日期
-
-(iv) 该研究人员在武汉病毒研究所的职务。
-
-(v) 研究人员是否参与或接触过武汉病毒研究所的冠状病毒研究。
-
-(vi) 研究人员在患病期间是否去过医院；以及
-
-(vii) 描述研究人员采取的任何其他行动，这些行动可能表明他们当时正在经历一场严重的疾病；以及
-
-(2) 向国会提交一份非保密的报告，其中包括——
-
-(A) 第(1)段所述的所有信息；和
-
-(B) 只有总监认为对保护(情报)来源和方法有必要的编辑。
-
-[新闻链接](https://www.congress.gov/bill/117th-congress/senate-bill/1867/text?q=%7B%22search%22%3A%5B%22S+1867%22%5D%7D&amp;r=1&amp;s=1)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+鲁迪·朱利安尼 (前纽约市长)： 闫博士冒着巨大风险说出武汉病毒实验室的真相 【转闫博士推文：2020年9月10日，在曼哈顿朱利安尼市长的公寓里举行了一次历史性会议。 玛丽亚博士，班农先生和路德先生都是英雄，他们冒着很大风险告诉世界新冠病毒 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 的真相！ [#超限生物武器](https://twitter.com/hashtag/%E8%B6%85%E9%99%90%E7%94%9F%E7%89%A9%E6%AD%A6%E5%99%A8?src=hashtag_click) [#中共撒谎人民死亡](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E6%92%92%E8%B0%8E%E4%BA%BA%E6%B0%91%E6%AD%BB%E4%BA%A1?src=hashtag_click)】
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uv09iy3wOcQTK/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/uv09iy3wOcQTK/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+> Dr Yan took great risk to tell the truth about the Wuhan Lab of Virology [https://t.co/dhw7loIMZ2](https://t.co/dhw7loIMZ2)
+> — Rudy W. Giuliani (@RudyGiuliani) [May 30, 2021](https://twitter.com/RudyGiuliani/status/1399030336915443716?ref_src=twsrc%5Etfw)
+
+
+
+鲁迪·朱利安尼 (前纽约市长)： 为什么拜登、民主党、大科技巨头和大众媒体均谴责这些一直在说病毒来自武汉实验室的人？
+
+
+
+> Why did Biden, the Democrat party, Big Tech and Mass Media condemn these who have been saying virus emerged from Wuhan Lab?
+> — Rudy W. Giuliani (@RudyGiuliani) [May 30, 2021](https://twitter.com/RudyGiuliani/status/1398936129102036994?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： 曾经有众多英勇的吹哨人，但是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府逮捕了他们，让他们被消失了。 如果不是因为 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的掩盖，[#新冠](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0?src=hashtag_click) 能维持在一个地域性的爆发是非常有可能的，而不是变成一场全球大流行。（附上他接受采访对这件事的阐述）
+
+
+
+> There were multiple heroic whistleblowers but the Chinese government arrested them and disappeared them. 
+> 
+> If it were not for the CCP's cover up, there's a very real possibility that COVID-19 could have been contained as a regional outbreak instead of becoming a global pandemic. [pic.twitter.com/J47BMNVU0D](https://t.co/J47BMNVU0D)
+> — Ted Cruz (@tedcruz) [May 30, 2021](https://twitter.com/tedcruz/status/1399015742956318721?ref_src=twsrc%5Etfw)
+
+
+
+
 
 0

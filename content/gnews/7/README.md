@@ -1,45 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登向习表明“我们只能为全世界人权发声”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1284296/)
+## 马来西亚宣布全国封锁
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1284313/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：大头猫| 校对：文明明| 审核：Beicy-数学老师| Page：小六月
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30181314/B-26.jpg)nbcnews.com
-在笔者眼里，拜登仍然是个窃位总统，在邪共的魔招下，靠舞弊欺诈入主白宫。
+[!\[\]()!\[\](https://spark.adobe.com/page/YFhurypuKvZvO/images/52ff29e5-cfff-4c93-ae91-c628254fd3f0.jpg?asset_id=5966876a-24d0-4e00-b369-34dbee7aa252&amp;img_etag=%22980e62b7743b75fab80357805224ab44%22&amp;size=1024)](https://spark.adobe.com/page/YFhurypuKvZvO/images/52ff29e5-cfff-4c93-ae91-c628254fd3f0.jpg?asset_id=5966876a-24d0-4e00-b369-34dbee7aa252&amp;img_etag=%22980e62b7743b75fab80357805224ab44%22&amp;size=1024)
 
-5月20日笔者发转载表文章，质疑白宫对病毒溯源的态度依然含混【1】；笔者忘不了5月24日面对福克斯记者对中共病毒零号病人追问时，白宫新闻秘书的回答，“……（对实验室泄露说）不能仓促下结论……”【2】；更惊讶5月25日曝出的消息，拜登停止了对中共病毒溯源的调查【3】，那是川普总统的国务院《军控与核查局》（the State Department’s arms control and verification bureau）进行的，唯一的官方对中共病毒来源的认真调查【4】；虽然拜登惊慌失措地立即发表了此地无银三百两、推责情报机构、表演似的“限期提交报告”的声明【5】，只能解读为他是在做贼心虚。
+马来西亚政府宣布6月1日起全国封锁，购物中心、工厂、夜市等全部关闭，只有医院、食品店等生活必需领域限时间开放。
 
-大家都在等待拜登政府回答德文·努内斯（Devin Nunes）众议员就中共病毒的溯源、追责公开信的25问【6】；也在静观拜登如何答复罗恩·约翰逊（Ron Johnson）、里克·斯科特（Rick Scott）参议员的公开信，公开信质问拜登为何停止对中共病毒的溯源调查，以及限期提交的7项信息【7】。
+这个消息随即上了中共国的热搜。
 
-以上种种，验证了塞林博士对拜登的揭露：“拜登政府掩盖了真相”。【8】
+2020年上半年疫情期间，马来西亚被视为成功的榜样，染疫人数最多时一天上百人，死亡率极底。从数据来看，2020年7月初开始，政府放松入境人员防疫政策，确珍人数开始上升，至9月沙巴大选，沙巴确珍数快速上升。今年1月，全国每日确诊数上升至5000人，近日每日不幸感染人数近万人，死亡人数屡创新高，达到每日近百人。
 
-强大的民意和压力下，今天（5月30日）拜登又作出与中共保持距离的表态，“我最近与习主席进行了长达两个小时的长时间谈话，向他表明，我们只能为全世界的人权发声，因为我们就是这样的人。”【9】这是在“阵亡将士纪念日”（the Memorial Day）讲话中提到的。
+据马国最新人口普查数据，全国人数为3270万人。目前的疫情可谓十分严重。本轮爆发之前，马国人民接种疫苗的热情不高，据媒体报导，只有2%，但仅5月29日一天，就有6.5万人完成接种，预约者超过50%，因为涌入的人太多，疫苗登记APP几度瘫痪。
 
-最近？又拜习了？不会指春节前的那次吧！又是两个小时？是向习神报告自己不得已的苦衷？我这里顶不住了，盖不了了，他们都知道了……不行你们就赶紧交代投降吧……
+众所周知，马来西亚是紧跟中共国的、并拥有战略要塞马六甲的东盟国家，既不是英美之类的中共国劲敌，也不是印度这样的对手国家，为什么疫情会如此严重，确诊率几乎达到世界之最呢？马来西亚由马来人、华人和印度裔组成，几个主要的城市吉隆坡、槟城等非常国际化，如今百业凋零、物价上涨。相当多的人没有认识到这个病毒的本质。
 
-还是那句话，拜登，以及你背后的势力，都在盯着你们的一举一动，看你们敢怎样再与中共勾兑?
+随着脸书对病毒来源话题的解封，病毒是超限生物武器的观点将进入更多马国人的视野。马国的英语普及率极高，社交媒介偏爱脸书。一旦病毒真相深入人心，更多的人将会觉醒。
 
-参考链接：
+参考链接
 
-【1】[https://gnews.org/zh-hans/1260829/](https://gnews.org/zh-hans/1260829/)
+1. [https://www.chinapress.com.my/?p=2530633](https://www.chinapress.com.my/?p=2530633)
+2. [https://www.chinapress.com.my/?p=2530396](https://www.chinapress.com.my/?p=2530396)
+3. [https://www.chinapress.com.my/?p=2530543](https://www.chinapress.com.my/?p=2530543)
 
-【2】[https://gnews.org/zh-hans/1270254/](https://gnews.org/zh-hans/1270254/)
 
-【3】[https://gnews.org/zh-hans/1273869/](https://gnews.org/zh-hans/1273869/)
+（本文仅代表作者观点）
 
-【4】[https://gnews.org/zh-hans/1278874/](https://gnews.org/zh-hans/1278874/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
-【5】[https://gnews.org/zh-hans/1274404/](https://gnews.org/zh-hans/1274404/)
 
-【6】[https://gnews.org/zh-hans/1257365/](https://gnews.org/zh-hans/1257365/)
+编辑：【英国伦敦喜庄园编辑部】
 
-【7】[https://gnews.org/zh-hans/1278874/](https://gnews.org/zh-hans/1278874/)
-
-【8】[https://twitter.com/LawrenceSellin/status/1383676532711858184](https://twitter.com/LawrenceSellin/status/1383676532711858184)
-
-【9】[https://www.whitehouse.gov/briefing-room/speeches-remarks/2021/05/30/remarks-by-president-biden-at-an-annual-memorial-day-service/](https://www.whitehouse.gov/briefing-room/speeches-remarks/2021/05/30/remarks-by-president-biden-at-an-annual-memorial-day-service/)
+[!\[\]()!\[\](https://spark.adobe.com/page/YFhurypuKvZvO/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/YFhurypuKvZvO/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
