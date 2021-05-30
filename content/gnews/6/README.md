@@ -1,11 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210530
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1284109/)
+## 川普譴責拜登對美國的重置：“他所做的就是不作爲”
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1284196/)
 
-作者：2020喜马拉雅
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30150112/001-3-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30150134/002-2-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151126/003-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151131/004-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151211/005-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151217/006-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151220/007-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151255/008-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151300/009-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151306/010-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151306/011.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151319/012-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151341/013.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151350/014.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151356/015.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151401/016.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151406/017.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151409/018.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151419/019.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151426/020-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151448/021-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151448/022.jpg)
-审核：神奇四侠；发稿：神奇四侠
+#### 編譯：Boxinglady （文拳）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30164556/IMG_20210530_134531_330.jpg) 圖片自newsma
+采訪內容翻譯：
+
+前總統唐納德·川普（Donald Trump）表示，他的接任者必須“采取任何行動”，以防止美國在邊境以及與中國，中東和北朝鮮的麻煩中出現，而喬·拜登（Joe Biden）總統的舉動“正在摧毀我們的國家”。
+
+特朗普對Newsmax的《迪克·莫裏斯民主》（Dick Morris Democracy）表示：“他所做的只是不作爲。”
+
+他補充說：“我們不會有國家；他們正在摧毀我們的國家。”
+
+在廣泛的電話采訪中，川普盡其所能發表了他的《美國第一》，《 MAGA》的觀點，撕毀了福克斯新聞，感歎民主黨領導的反對以色列的轉變，對中共國的軟化態度使中共得以“逃脫謀殺”，在美國減少警察支出導致大規模犯罪運動增加，婦女權利遭到破壞。
+
+川普指出，與美國-墨西哥-加拿大協議（USMCA）以及與中共國的第一階段的貿易協議是如此成功，即使拜登也沒有對此放松或改變
+
+川普告訴莫裏斯說：“如果他什麽都不做，我們現在將擁有曆史上最強大的邊界。”他回應了周二在一次獨家坐下采訪中對“科爾特斯和佩萊格裏諾”的評論。
+
+拜登因在邊境造成移民危機，恢複捕獲和釋放非法過境點，撤銷川普政府對尋求庇護者的留在墨西哥政策以及歡迎非法移民而受到廣泛批評。
+
+川普說：“無論其他國家是瓜塔馬拉，洪都拉斯，薩爾瓦多，墨西哥，我都與其他國家合作過。” “甚至在墨西哥，也要留在墨西哥。換句話說，這些人應該留在墨西哥，他們無法進入我們的國家。“而拜登政府終止了此協議，他們所做的真是太瘋狂了。”川普補充說：“問題是他們這樣做是出于無能，我碰巧認爲是這樣，還是因爲他們真的認爲開放邊界對這個國家有好處？而事實並非如此。”
+
+川普甚至指出，現在在拜登總統的領導下，北三角形國家更願意清空他們的監獄，並允許那些人員逃往美國。川普說：“（我當時的政府）擁有我們國家曆史上最強大的實力。”很少有人（越境）。毒品下降了。人口販運幾乎停止了。“我們做了驚人的事情，你看看現在正在發生什麽。” 讓我告訴你：他們正在讓人們從監獄中出來。他們正在打開監獄。他們的囚犯正在進來，他們的凶手，他們的毒品順便說一下，吸毒者和毒販。“而人口販子正在進來。他們正在讓他們進來。他們想要他們進來。他們不希望他們進入自己的國家，所以他們說，把他們送到美國”。
+
+“而且我們正在接受他們，因爲他們已經開放了邊界，迪克。”
+
+川普說，不僅僅是拜登“摧毀了”美國邊境。朝鮮政府的外展活動與朝鮮建立了關系，以解決奧巴馬政府懸而未決的嚴重核威脅，這導致了新的“敵意”。
+
+川普說：“我與金正恩建立了很好的關系。” “我們對此沒得到任何肯定，但事實是四年來，我們沒有問題。我們相處得很好。現在他對拜登和政府非常敵對，非常敵對，非常非常敵
+
+對。
+
+“但是這種關系是一種非常牢固的關系，一種非常良好的關系，而且確實會導致達成協議。現在這種關系已經消失了，而且太糟糕了。
+
+“但是他一直懷有敵意，並以非常討厭的方式與拜登交談。”
+
+川普表示，中國和以色列仇恨者在後川普世界也變得膽大包天。
+
+他說：“我認爲以色列發生的事情是最大的不公正現象之一。” “如果回首10或12年前，以色列受到國會的如此保護。國會熱愛以色列。
+
+“現在，尤其是當你看衆議院時，衆議院不喜歡以色列。衆議院除了保護以色列外，還可以保護其他任何事物。”
+
+拜登政府甚至通過敦促允許跨性別者參與女童運動，來發動對女性平等的攻擊，這完全顛倒了既定目標。
+
+川普說：“這太瘋狂了，它將摧毀婦女的運動。”和誰—您如何去競爭？
+
+“這太荒謬了。實際上，我甚至不敢相信我們現在就此進行的對話。”
+
+新聞來源：https://www.newsmax.com/newsmax-tv/border-crisis-policing-trade/2021/05/29/id/1023197/
+
+本文僅代表個人觀點，不代表 Gnews 平台
+
+校對發布： 紫橄榄
+
+
 
 0
