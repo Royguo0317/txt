@@ -1,45 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】《白谎也是谎言》观后感——一个初信者的角度
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1283519/)
+## 浅谈美国拜登总统要求加大力度病毒溯源
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1283547/)
 
-配音：香草山福音部 小草
+撰稿：般若
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30093559/2021-05-29_Task12_Cover.jpg)（图片来源于网络）
+白宫星期三（5月26日）发表声明称，拜登总统要求情报机关调查病毒源头并在90天内向他报告。这则消息证明了美国主流政治对从去年开始世界卫生组织和中共一直宣称的病毒来自于自然的说法的不相信。在这些日子的美国政坛纷纷表示病毒来源于生物武器实验室，总统拜登也终于给了这个病毒溯源调查一个期限。这也相当于给中共判了为期三个月的死缓。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+我们可以结合着闫丽梦博士的三篇论文来分析，郭先生已经在他的直播中说到，在华盛顿无人不看，无人不谈闫丽梦博士的三篇论文。这三篇论文已经有了确凿的证据指向新冠病毒来源于实验室，而且甚至在中共国内还有一本专门关于冠状病毒作为生物武器的一本书《非典非自然起源和人制人新种病毒基因武器》，从而更加证明了病毒来源于中共实验室的说法。
 
+拜登总统此举最主要目的不是去唤醒政客，而是引起美国群众的注意，让美国人民知晓新冠病毒的背后究竟是谁，究竟是谁让全世界死亡这么多人，让整个世界的经济都处于停摆当中。我们还可以说，拜登总统要求三个月內得到病毒溯源的结果就是美国两党直接向共产党要一个答案，不然就事上见真章。中共必然要承担让全球陷入病毒灾难的责任。那么这九十天就是让中共决定谁出来做党的替罪羊，这也极大的加速了本来就已经到了明面上的中共内部的争斗。共产党你完了！！！
 
+（本人仅代表个人观点）
 
+*审稿、编辑：光耀华夏*
 
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29223512/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
 
-
-看了GTV创世记查经的第20章。讲信心之父亚伯拉罕为了保全自己的性命第二次把撒拉送出去，这次送给亚比米勒王，并且夫妻一同撒谎，说他们是兄妹。
-
-当时有个很不理解的问题，创世记十四章，亚伯拉汗为了救罗德，把四王都打败了，非常勇敢，为什么会担心自己因年老妻子的美貌被害，第二次送出撒拉呢？被称为信心之父的亚伯拉罕，为什么没信心了呢？
-
-
-
-**文字版原文：[【信仰之声】《白谎也是谎言》观后感——一个初信者的角度](https://gnews.org/zh-hans/1275962/)**
-
-作者：纽约香草山福音部 一棵草
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

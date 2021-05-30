@@ -1,27 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆台新闻】新华网吹捧习神领航科技自立自强
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1283482/)
+## 【有声读物】美国国务院前官员称COVID-19来自自然的说法是“荒谬的”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1283531/)
 
-#### 文章撰写:【默凡】
+配音：香草山录音组 信念7
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30090113/hgfSnipaste_2fs00-41.png)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-新华网5月29日报道：以习近平同志为核心的党中央，不断探索规律、深化认识，对科技创新提出一系列新论断、新要求，指明了坚持走中共国特色自主创新道路的新方向，为建设科技强国提供了根本遵循。保障时间就是保护创新能力！决不能让科技人员把大量时间花在一些无谓的迎来送往活动上，花在不必要的评审评价活动上，花在形式主义、官僚主义的种种活动上。打造国家战略科技力量、强化基础研究和原创能力、打好关键核心技术攻坚战、组建“创新联合体”……瞄准高水平科技自立自强，下一个5年甚至15年，科技创新将全面塑造发展新优势。
 
-评论：
 
-中共央媒再次撰文吹捧习神，赞扬习神为中共国特色自主创新“指明了方向”，习神再次以他的“高瞻远瞩”推动中共科技发展。笔者在此不禁想问，一个小学都没毕业，常念错发言稿的习神如何为中共科技强国指明方向？中共国科学家还需要“小学生”来指明方向吗？真是可笑之极。
 
-其实，这都是中共体制的毒瘤，外行领导内行，这种逆淘汰机制绝对不可能让中共国实现科技强国。只要中共体制存在一天，无论是五年，还是十五年都不可能让中共国实现科技强国，中共国只会越走越独裁，越走越倒退。
 
-参考文章：[瞭望·治国理政纪事丨习近平领航科技自立自强](http://www.xinhuanet.com/politics/leaders/2021-05/29/c_1127506736.htm)
 
-本文仅代表作者本人观点，不代表Gnews平台
 
-* * *
+零对冲5月28日报道，美国国务院前官员大卫-阿什（David Asher）在接受福克斯新闻采访时说，科学界关于COVID-19在武汉出现是由于动物的突变的共识是完全错误的。COVID-19病毒因人畜共患病而自然出现的观点是“荒谬的”。
 
-*排版发布：日本东京方舟农场 文柯Miles*
+阿什领导成立了一个小组，调查大流行病爆发的来源，研究冠状病毒到底是人畜共患病源还是实验室泄漏。他们得出了结论，武汉病毒研究所是压倒性的罪魁祸首。武汉病毒研究所是一个合成生物学中心，他们在合成生物学和所谓的功能增强技术方面做了很多。
+
+
+
+**文字版原文：[【热点播报】美国国务院前官员称COVID-19来自自然的说法是“荒谬的”](https://gnews.org/zh-hans/1281854/)**
+
+作者：纽约香草山写作组 四季
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
