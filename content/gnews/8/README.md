@@ -1,43 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点推荐】英国、挪威顶级科学家发现中共CCP病毒由人工制造，并试图掩盖痕迹的实锤证据
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1284031/)
+## 躺平，无声的反抗；不被剥削，从我做起
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1284052/)
 
-加拿大温哥华扬帆农场 – Michael.Tonny
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30140719/CCPMichael.Tonny-20210530-1.png)图片来源：rokna.net
-2021年5月30日，英国《每日邮报》发表题为[EXCLUSIVE: COVID-19 ‘has NO credible natural ancestor’ and WAS created by Chinese scientists who then tried to cover their tracks with ‘retro-engineering’ to make it seem like it naturally arose from bats, explosive new study claims](https://www.dailymail.co.uk/news/article-9629563/Chinese-scientists-created-COVID-19-lab-tried-cover-tracks-new-study-claims.html)的独家重磅新闻。英国达克利什教授和挪威索伦森博士二位科学家即将发表在剑桥《生物物理学发现季刊》（[Quarterly Review of Biophysics Discovery](https://www.cambridge.org/core/journals/quarterly-reviews-of-biophysics)）的22页研究论文中指出，没有任何可信的证据表明COVID-19（中共CCP病毒）来源于自然。在研发疫苗时，他们发现了中共CCP病毒是由中共国科学家制造的确凿证据。中共国科学家试图用「逆向工程」掩盖人工制造痕迹，使其看起来像是从蝙蝠自然产生，但留下了「独特的指纹」。
+作者：蓝色 （英国伦敦喜庄园）| 校对：仙女儿-文善 | 审核：Beicy-数学老师 | Page: Daoiii
 
-两位科学家的关键证据是，他们在中共CCP病毒的「棘蛋白」上发现4种并列的胺基酸，这些胺基酸都带有正电荷，会如磁铁般紧紧吸附人体細胞带负电荷的部分，因此极具传染性。然而物理定律显示，带正电的胺基酸会相互排斥，自然界生物体中极少见到连续带有3个正电荷的并列胺基酸，连续4个并列更是「极不可能」。他们由此认为，新冠病毒并非来自自然。
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/1e0ca943-e2f5-4383-9a2f-0557c66021b3.jpg?asset_id=e7b07a70-f4a9-44a6-a554-7bada3600671&amp;img_etag=%22e448ed7a2a68495028302eab6fceee2d%22&amp;size=1024)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/1e0ca943-e2f5-4383-9a2f-0557c66021b3.jpg?asset_id=e7b07a70-f4a9-44a6-a554-7bada3600671&amp;img_etag=%22e448ed7a2a68495028302eab6fceee2d%22&amp;size=1024)2019在国内引起热论的日剧 《我要准时下班》
 
-**评论：**
+笔者不谦虚地说，本人是躺平界先驱，已经躺平有15年了。
 
-达格利什（Angus Dalgleish） 和索伦森（Birger Sørensen）二位是世界顶尖的科学家，权威性毋庸置疑。
+当初上过一年的班，工作一年之后，看看手里的工资，都花在了工作的途中，根本剩不下钱。立即就明白了，这根本就是白干活，如此下去永无出头之日。本人在工作能力上没有任何问题，甚至是比平常人要高出一截，很清楚自己完全是被剥削了才会如此。
 
-根据维基百科介绍，达格利什[Angus  Dalgleish](https://en.wikipedia.org/wiki/Angus_Dalgleish) 是英国科学院医学科学院院士，伦敦圣乔治大学的肿瘤学教授，他是第一个创造了有效的“艾滋病毒疫苗（HIV/AIDS），该疫苗用于治疗确诊患者并允许他们停药数月。他在 HIV病毒学方面做出了开创性的观察。特别是，他将CD4确定为人类 HIV 的主要接受者，并提出了非洲Slim疾病与 HIV 感染之间联系的第一份报告。他还确定了感染HTLV-1病毒的患者的免疫反应与热带痉挛性轻瘫的密切关系。
+在此之后，就没有上过任何班，没有再参加任何工作。开启低消费模式，好好的活了15年，我手中的积蓄虽然不多，但是反而比一些辛苦工作了15年的朋友还要多。
 
-病毒学家索伦森（Birger Sørensen）是Immunor制药公司的董事长，该公司开发了一种名为 Biovacc-19的冠状病毒（中共CCP病毒）候选疫苗。达克利什教授还拥有该公司的股票期权。
+当然，本人不是单纯的躺平，当初的想法是：工作了也不会积攒下任何积蓄，与其浪费时间，不如把时间花在学习上。现在事实证明，当初的判断是正确的。参与爆料革命，加入英喜之后，我积攒出来的很多能力都用上了，效果还不错，而身边朋友则是白白辛苦忙活了10几年，什么都没有攒下，甚至离婚、躲债。
 
-通过二位科学家的论文，他们在中共CCP病毒独特的「棘蛋白」上研究发现了4种并列的带正电荷胺基酸，大大增加了病毒的传播能力，令它变成对人体致命且高度传播的病毒，而自然演化的病毒中，要有4种并列的带正电荷胺基酸极其不可能。说明中共CCP病毒是由人为操控，病毒是自然演化而成的可能性非常非常小。
+下面是刚刚摘录的墙内社交媒体热门留言，内容一看就知道，其实大家都看清了事实的真相。
 
-在二位科学家的论文中，展示了非常有说服力的两张图。一张图显示了两位科学家识别的六个“指纹”，他们说这表明该病毒一定是在实验室中制造的；第二张图显示了在 SARS-Cov-2 尖峰上发现的一排四个胺基酸如何带有正电荷，像磁铁一样附着在人体细胞上，使病毒具有极强的传染性。
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/0aef8abe-e442-4ac7-871f-671626a88f2f.png?asset_id=4ca5c1a4-43a7-4b57-9035-9da7e8a8ae95&amp;img_etag=%226de1feb9bcf68da9fbe9f12f0d47c16c%22&amp;size=5689)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/0aef8abe-e442-4ac7-871f-671626a88f2f.png?asset_id=4ca5c1a4-43a7-4b57-9035-9da7e8a8ae95&amp;img_etag=%226de1feb9bcf68da9fbe9f12f0d47c16c%22&amp;size=1024)
 
-物理定律意味着你不能连续有四个带正电的氨基酸，获得它的唯一方法是人工制造它，SARS-Cov-2 的这些特征是“独特的指纹”，表明有目的的操纵，它是自然过程结果的可能性非常小。
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/b7da8295-c77c-4aa7-b1fd-64d4722896d8.png?asset_id=e44714e9-a704-4f3c-bcf9-bf2afd260641&amp;img_etag=%22297a6d1d3ded9f3833d4f3c1bc090004%22&amp;size=3682)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/b7da8295-c77c-4aa7-b1fd-64d4722896d8.png?asset_id=e44714e9-a704-4f3c-bcf9-bf2afd260641&amp;img_etag=%22297a6d1d3ded9f3833d4f3c1bc090004%22&amp;size=1024)
 
-事实上，二位顶尖科学家的论文一直受到打压，直到美国近日敦促世卫组织就新冠病毒源头展开第二阶段独立调查，美国总統拜登要求情报部门彻查病毒源头，并在九十天内提交报告后，二位科学家长达22页的研究论文才得以在剑桥大学出版的《生物物理学发现季刊》（Quarterly Review of Biophysics Discovery）上发表。相信二位科学家的论文将会对世界追查中共CCP病毒源头带来重要线索，甚至法庭审判的重要依据。
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/eebcf7f3-b60b-467a-9b57-f18fdc4a7881.png?asset_id=f0aaa49d-77db-4a29-bb6c-da9946e2abff&amp;img_etag=%22297a6d1d3ded9f3833d4f3c1bc090004%22&amp;size=3682)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/eebcf7f3-b60b-467a-9b57-f18fdc4a7881.png?asset_id=f0aaa49d-77db-4a29-bb6c-da9946e2abff&amp;img_etag=%22297a6d1d3ded9f3833d4f3c1bc090004%22&amp;size=1024)
 
-在周三的美国参议院听证会上，白宫首席医学顾问安东尼·福奇博士承认，他不确定美国对武汉实验室研究人员的资助是否被用于有争议和风险的病毒功能增强实验，也就是福奇已经变相承认武毒所完全可能进行病毒功能增加实验。英挪二位顶尖科学家的研究成果，无疑是最直接的科学结论。
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/85add420-2402-4cf7-80a6-0c34dee338ce.png?asset_id=3b3f8b6c-b4eb-4cad-a6b1-457983885cec&amp;img_etag=%22692eddfefebaf0801afba5ca2f676630%22&amp;size=2582)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/85add420-2402-4cf7-80a6-0c34dee338ce.png?asset_id=3b3f8b6c-b4eb-4cad-a6b1-457983885cec&amp;img_etag=%22692eddfefebaf0801afba5ca2f676630%22&amp;size=1024)
 
-《华尔街日报》（The Wall Street Journal）5月23日援引美国情报报告称，2019年11月，武汉病毒研究所的三名研究人员“出现严重病情”，并被送医治疗。这比中国报告首例新冠肺炎（中共CCP病毒）病例早一个月。
+看看这些可怜的网友，抱怨一下还要躲避文字狱。不是中国人人种有问题，是被中共的手段操控了。也不是人人都不明白，是明白的人根本发不出声音。
 
-无论是病毒传播轨迹还是英挪科学家的研究成果，都非常明确的证明，中共CCP病毒并非来源于自然，而是由武毒所人工制造并利用逆向工程掩盖痕迹。接下来，无论中共CCP、中共外交部战狗们如何搬起石头、如何狡辩，最终只会砸向中共武毒所、中南坑自己，中共CCP被全世界团灭的日子不会太远！
+那个白忙活15年的哥们，他赚的钱，很大一部分也和我当初一样，都扔在工作上了，给关键部门行贿！！！
 
-截止2021年5月30日17:20，中共CCP病毒感染至少1.7亿人，已经至少有355万人被夺去无辜的生命。以中共CCP的流氓习性，如果世界不能立即对其采取有效措施，中共CCP投放更为致命、更具传播性的病毒完全可能。消灭中共CCP是彻底解决中共病毒继续祸害全人类的唯一路径！
+我还有一个网友，家里人给她花了10几万买了一个收费站的工作。一个月几千工资，大家可以算算，她要白干多久才能拿回给官员的行贿？
 
-（免责声明：本文只代表作者观点，跟GNEWS平台无关）
+而没有行贿的人，不是家里有关系，就是被公司剥削，而你的公司同样的也要行贿，钱就是从克扣你的工资里出的！
 
-编辑/审核： 文敏
+这就是白干的原因！
 
-校对/发稿：Shuang
+普通劳动者，能填饱肚子养家就不错了，你想通过努力改变人生，别做梦了。中共会抽干你每一滴血！
 
-+2
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/0c0f72bd-0c1a-4a41-90b2-56261a6d4662.jpg?asset_id=0f3ac63b-97d0-4ad5-a8b3-c1ddd2a665a2&amp;img_etag=%22553504032b74c0d3bff27f65fac07d13%22&amp;size=4968)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/0c0f72bd-0c1a-4a41-90b2-56261a6d4662.jpg?asset_id=0f3ac63b-97d0-4ad5-a8b3-c1ddd2a665a2&amp;img_etag=%22553504032b74c0d3bff27f65fac07d13%22&amp;size=1024)
+
+躺平，从我做起，你的每一次劳动都是给中共添加了一次继续奴役你的弹药。
+
+如果无法做到完全躺平，至少也要消极怠工，能不干的就不干，保障基本生存就可以了。
+
+付出50%的劳动，得到90%的工资，你何必再多干50%呢？
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+0
