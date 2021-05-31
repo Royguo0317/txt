@@ -1,25 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《老友记》的特别节目受到中共国审查
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1284198/)
+## 马来西亚宣布全国封锁
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1284313/)
 
-消息来源：意大利晚报（corriere.it）
-发布时间：2021年05月28日
-翻译整理：斩草要除根
+作者：大头猫| 校对：文明明| 审核：Beicy-数学老师| Page：小六月
 
-中共国的审查制度甚至没有放过《老友记》，在上一季播出的17年后六位主角再次聚首，全球数百万电视剧粉丝在屏幕前观看名为《重逢》的特辑。但在中文版中，中共国将大约一个半小时的节目缩短成了六分钟，其中 Lady Gaga、贾斯汀比伯和 K-Pop Bts 超级明星乐队的客串场景都给删除掉了，因为他们曾在过去以某种方式冒犯了北京。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30164437/%E8%80%81%E5%8F%8B%E8%AE%B01.jpg)德国之声中文网
-粉丝们纷纷表示“目瞪口呆”，爱奇艺、优酷和腾讯视频这三个主要媒体平台都彻底删除了这些音乐人的镜头，这在粉丝中顿时引起了轩然大波。《老友记》在中共国拥有庞大的粉丝群，许多年轻人认为通过该节目可以了解英语世界和美国文化。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30164526/%E8%80%81%E5%8F%8B%E8%AE%B02.jpg)
-类似这样的审查事件可以追溯到几年前。Lady Gaga于2016年被禁止前往中共国与达赖喇嘛会面。贾斯汀·比伯（Justin Bieber）自2014年因为参观有争议的东京靖国神社也无法再在该国演出。K-Pop Bts乐队组合里因为其中一位成员在去年一次节目中谈到了在 1950-53 年韩国和美国共同对抗中共国支持朝鲜这一事件。
+[!\[\]()!\[\](https://spark.adobe.com/page/YFhurypuKvZvO/images/52ff29e5-cfff-4c93-ae91-c628254fd3f0.jpg?asset_id=5966876a-24d0-4e00-b369-34dbee7aa252&amp;img_etag=%22980e62b7743b75fab80357805224ab44%22&amp;size=1024)](https://spark.adobe.com/page/YFhurypuKvZvO/images/52ff29e5-cfff-4c93-ae91-c628254fd3f0.jpg?asset_id=5966876a-24d0-4e00-b369-34dbee7aa252&amp;img_etag=%22980e62b7743b75fab80357805224ab44%22&amp;size=1024)
 
-简评：中共式的审查管控是一种行政行为，属于中共国大规模监控的一部分。中共更关心的是维护他们所把持的权力，任何有影响到其政治领域的都会得到惩罚，这已经到了前所未有的极端程度。所谓：”逆我者亡”这是形容中共手段最贴切的，在中共的淫威之下，似乎都要向其献媚才是合理的生存方式，何等的荒谬。
+马来西亚政府宣布6月1日起全国封锁，购物中心、工厂、夜市等全部关闭，只有医院、食品店等生活必需领域限时间开放。
 
-（个人观点）
+这个消息随即上了中共国的热搜。
 
-[新闻链接](https://www.corriere.it/esteri/21_maggio_28/cina-puntata-speciale-friends-censurata-scoppia-l-ira-fan-8d1a3ef2-bf84-11eb-b7a1-7e76296b457a.shtml)
+2020年上半年疫情期间，马来西亚被视为成功的榜样，染疫人数最多时一天上百人，死亡率极底。从数据来看，2020年7月初开始，政府放松入境人员防疫政策，确珍人数开始上升，至9月沙巴大选，沙巴确珍数快速上升。今年1月，全国每日确诊数上升至5000人，近日每日不幸感染人数近万人，死亡人数屡创新高，达到每日近百人。
 
-校对/上传：老中医
+据马国最新人口普查数据，全国人数为3270万人。目前的疫情可谓十分严重。本轮爆发之前，马国人民接种疫苗的热情不高，据媒体报导，只有2%，但仅5月29日一天，就有6.5万人完成接种，预约者超过50%，因为涌入的人太多，疫苗登记APP几度瘫痪。
+
+众所周知，马来西亚是紧跟中共国的、并拥有战略要塞马六甲的东盟国家，既不是英美之类的中共国劲敌，也不是印度这样的对手国家，为什么疫情会如此严重，确诊率几乎达到世界之最呢？马来西亚由马来人、华人和印度裔组成，几个主要的城市吉隆坡、槟城等非常国际化，如今百业凋零、物价上涨。相当多的人没有认识到这个病毒的本质。
+
+随着脸书对病毒来源话题的解封，病毒是超限生物武器的观点将进入更多马国人的视野。马国的英语普及率极高，社交媒介偏爱脸书。一旦病毒真相深入人心，更多的人将会觉醒。
+
+参考链接
+
+1. [https://www.chinapress.com.my/?p=2530633](https://www.chinapress.com.my/?p=2530633)
+2. [https://www.chinapress.com.my/?p=2530396](https://www.chinapress.com.my/?p=2530396)
+3. [https://www.chinapress.com.my/?p=2530543](https://www.chinapress.com.my/?p=2530543)
+
+
+（本文仅代表作者观点）
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/YFhurypuKvZvO/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/YFhurypuKvZvO/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -1,49 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热播快译】证据指出，2019年12月中共武汉实验室研究员妻子死于类似中共病毒症状
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1280161/)
+## 超过200名共和党人向佩洛⻄(Pelosi)施压敦促其进行COVID-19起源调查
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1284301/)
 
-作者：休斯顿星光农场 翻译：H.B
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
-**前总统川普执政期国务院的调查负责人告诉每日电讯新闻基金会，在中共武汉实验室的一位专门从事冠状病毒研究的工作人员的妻子在2019年12月死于与COVID-19相似的疾病**。
+#### 编译:Boxinglady (文拳)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24084204/1127485058_16218407341961n.jpg)图片来自网络
+200多个众议院共和党人正向其⺠主党同僚施加压力，要求他们了解COVID-19的起源并要求共政权对这场大流行病的掩盖行为负责。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29172236/%E5%8C%BB%E9%99%A2%E5%9B%BE%E7%89%87-edited.png)
+国会议员说，佩洛⻄“错误地宣称”“对中共责任的质疑”是“转移视线”，可能是指佩洛⻄自去年五月发表的讲话，她把当时川普总统指责中共对病毒负责的话描述为“有趣的转移视线”。
 
-图片来源：来自网络
+“越来越多的证据表明，这种大流行始于中共国实验室，而中共对此进行了掩盖。如果真是这样，那么中共就要为将近60万美国人和全世界数百万人的死亡负责。”
 
-这位任职于国务院并负责COVID-19起源调查的大卫-阿什说，这本来是该病毒在人类间传播的早期线索，然而中共当局承认该病毒可以“人传人”却发生在此之后的一个月，因而使得该病毒在全世界扩散。
+他们继续说:“每个失去某人的美国家庭都应该得到关于这种可怕病毒起源的答案，”他补充说，“众议院⺠主党人一直拒绝分派调查资源来获得这些答案，这是对这些家人们的冒犯。”
 
-中共政府在2020年1月中旬的报告中说，该病毒可在人类中传播。
+“中共国无法摆脱这一点。美国人应该得到答案。”斯卡利塞斯(Scalise)在5月28日的推文中写道。
+议员们引用了越来越多的证据，表明该病毒可能已经从武汉的一个实验室泄漏了，但这一说法被许多媒体和科学家们最初视为阴谋论而驳斥。
 
-据大卫-阿什说，是当时在中共武汉病毒研究所工作的一个人提供了关于这位冠状病毒研究员的妻子死亡的信息。
+乔·拜登(Joe Biden)总统的首席医学顾问安东尼·福奇(Anthony Fauci)博士最近支持了 更深入的病毒探测，并表示“肯定存在实验室泄漏的可能性”，扭转了他在2020年5月发表的 评论。
 
-《华尔街日报》周日的一篇报道称，2019年11月，有三名中共武汉实验室工作人员因类似COVID-19的症状住院治疗，早于之前报道的出现在12月8日的第一例COVID-19。这篇最新报道发现，在第一例确诊病例之前，中共武汉实验室（WIV）的工作人员在2019年秋季可能出现了COVID-19的症状，这也曾出现在川普政府最后几天发布的关于COVID-19起源的国务院声明中。
+美国卫生和公共服务部⻓Xavier Becerra虽然未直接提及中共国或武汉，但已呼吁世界卫生 组织(WHO)开展“透明，基于科学的第二阶段COVID起源研究”，以全面评估病毒和爆发 初期。”
 
-大卫-阿什说，这些中共实验室工作人员似乎更有可能患的是COVID-19，而不是流感。
+立法者说:“要让中共负责，”他们需要“获得国会调查员可用的全部工具，包括传票和强迫主 要证人作证的权力。”
 
-“有多少30-40多岁的正常人因为流感而病得很重，不得不住院？我被告知，该实验室工作人员几乎肯定都已注射流感疫苗。”
+他们还指出，北京一直拒绝共享原始数据和武汉实验室(WIV)记录，他们说这与中共的欺 骗模式相符，其中包括驱逐记者，提供COVID-19的虚假信息和让举报人沉默。
 
-“此外，他们又恰好都是关于COV RaTG13增强和COVID-19致病性的研究人员并且一起病重，这样的几率有多大？”大卫-阿什说。
+周二，一位中共国代表告诉世卫组织大会，原产地追踪的“中国部分”“已经完成”，并建议调 查人员将目光投向别处。尽管中国人否认，但寻找大流行病起源的压力仍在继续增加。
 
-美国务院在今年1月的声明中说，中共政府阻止了对之前患病的武汉病毒实验室（WIV）研究人员的采访。
+拜登在周三的罕⻅声明中表示，他已下令对这种病毒的起源进行情报调查，并希望在90天内 提交报告。
 
-根据国务院1月的声明，中共武汉实验室（WIV）的研究人员正在研究与SARS-CoV-2类似的病毒，但中共当局阻止了对其正在进行的此类研究进行访问。
+新闻来源:[https://www.zerohedge.com/political/over-200-republicans-press-pelosi-back- covid-19-origin-probe-hold-ccp-accountable?
+utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+zerohedge%2Ffe ed+%28zero+hedge+- +on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29](https://www.zerohedge.com/political/over-200-republicans-press-pelosi-back-%20covid-19-origin-probe-hold-ccp-accountable?
+utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffe%20ed+%28zero+hedge+-%20+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
-国务院一位高级官员告诉《华盛顿邮报》，拜登政府对国务院1月15日声明内容没有异议。该声明是在特朗普政府时期发表的，但是它只关注实验室的泄漏，没有关注病毒的其他可能来源，不是一种平衡的表述。
+本文仅代表个人观点，不代表 Gnews 平台
 
-周三，拜登政府呼吁美国情报界加倍努力，发现有关COVID-19来源的信息，并在90天内向他汇报。
+校对发布：紫橄榄
 
-周二，一位参加世界卫生组织大会的中共国代表宣布，中共政府已经完成了对COVID-19来源的部分调查，现在应该把调查重点转向其他国家。
-
-信息来源：
-
-[https://dailycaller.com/2021/05/28/covid-19-david-asher-mike-pompeo-world-health-organization/](https://dailycaller.com/2021/05/28/covid-19-david-asher-mike-pompeo-world-health-organization/)
-
-校对：文顺 ／Helen 发稿：文柳
-
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
-
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
-+1
+0

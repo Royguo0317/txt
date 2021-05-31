@@ -1,55 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】“反食品浪费”法规化，但粮食危机远未结束
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1284485/)
+## 美国安全机构监视默克尔？
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1284575/)
 
-香草山写作组 鹰(文言)
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30225030/7-25.jpg)
+根据路透哥本哈根5月30日报道，据丹麦国家广播电台DR报导，美国国家安全局(NSA)利用与丹麦对外情报部门的合作关系，对其邻国的高级官员进行监视，其中包括德国总理默克尔。
 
+DR引述了九个接触过调查的不具名消息来源表示，这些发现是丹麦国防情报局从2015年开始对NSA在合作关系中的作用进行内部调查的结果。
 
+丹麦是美国的亲密盟友，拥有数个连接瑞典、挪威、德国、荷兰和英国的海底互联网光缆的关键登陆站。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
+据DR报导，丹麦国防情报局的内部调查是在2014年启动的，因为前一年斯诺登泄密事件揭示了NSA的工作方式。
 
+对此事件，NSA没有立即回复置评请求，美国国家情报总监办公室未予置评。丹麦国防情报局发言人未予置评。
 
+但是，丹麦政府去年表示，将根据举报人报告的信息启动调查。这项调查预计将在今年晚些时候结束。
 
-新浪网5月28日转载北京日报客户端消息，《北京市反食品浪费规定》于27日正式施行，标志着节约粮食、反对浪费这一“省吃俭用”理念的法律条文化。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30213358/Screen-Shot-2021-05-30-at-9.19.22-PM.png)
-中共农业农村部披露，2021年投入“三夏”麦收的联合收割机将超过60万台，小麦面积达3.35亿亩；2020年冬小麦面积3.15亿亩，联合收割机65万台。从数据上看，2021年的小麦种植面积增长0.2亿亩。但与之相对的是由于自然灾害的频发，2021年4月农作物受灾面积333千公顷（其中绝收29.3千公顷），而进入5月后，南方进入汛期，长江汉口站水位达156年最高值，长江中下游干流主要控制站水位较2020年同期高4.6-7.0米等迹象都标志着今年的洪涝灾害要比2020年更为激烈。3.35亿亩小麦能否保证“大水之年是丰收之年”依旧仍待考察。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30213335/Screen-Shot-2021-05-30-at-9.19.28-PM.png)
-2020年上半年中共国累积进口粮食6090万吨，同比19年增长20.6%，其中进口小麦335万吨（同比增加90.3%）；而2021年前4个月，进口粮食5079.2万吨，进口规模比2020年同期增长57.8%。从小麦种植面积的增长，进口粮食规模猛增，可以看出国内粮食短缺危机并没有因2020年的“秋收硕果”和“粮食产量13.4亿吨”而得到缓解。反食品浪费法确实可以行政干预、遏制民间的浪费行为。然而，浪费挥霍最为严峻的是中共上层“生态”，他们依旧享有法外的特权。现在全国各种物价飞涨，全球对中共的经济脱钩和制裁加剧，中共“外汇买粮”的渠道也被进一步缩窄，国内的粮食危机还远没有结束。
+文贵先生曾在直播中透露，欧洲已经开始对中共在欧洲当地的蓝金黄势力进行全面的清查，并已经取得收获。此次丹麦国家广播电台的爆料，可能证明该行动已经获得了一定的结果，并提前向外界传递信号。从欧洲近期对中共态度的急速转向，可以看出中欧关系的快速破裂，根据文贵先生5月30日对中欧关系的深入解读，不难得出：欧洲已经对中共的渗透和邪恶的欧洲战略布局计划了解的很透彻并达成了全面的共识，本次病毒的人工制造并故意投放，就是中共公开征战世界的开始。相信欧洲做出这个政治转向也是结合各方面的因素所作的决定，其中情报是不可或缺的。欧洲为何被中共渗透和控制的如此之深，关键人物的引导和支持必不可少，放眼欧洲，对中共始终保持亲共政策的大国有哪些，就不难产生怀疑其背后利益纠葛的深层原因。
 
-新闻来源：
+看来欧洲政坛地震要来了，默克尔还能安全退休吗？
 
-《北京市反食品浪费规定》通过实施，全文来了https://news.sina.com.cn/c/2021-05-28/doc-ikmyaawc7969829.shtml
+（本文只代表作者观点，与Gnews平台无关。）
 
-“三夏”农机化生产顺利收官http://www.njhs.moa.gov.cn/nyjxhqk/202008/t20200804\_6349811.htm
+**新闻来源：**
 
-今年“三夏”收割机将超60万台https://politics.gmw.cn/2021-05/26/content\_34877338.htm
+[美国安全机构通过丹麦光缆监视默克尔等欧洲高级官员–丹麦媒体 | 路透 (reuters.com)](https://cn.reuters.com/article/usa-european-officialsspying-0530-sun-idCNKCS2DC04T?il=0)
 
-长江流域全面进入汛期，数十条河流现超警洪水https://www.sohu.com/a/468942059\_260616
-
-应急管理部发布2021年4月全国自然灾害情况https://finance.sina.com.cn/tech/2021-05-08/doc-ikmyaawc4138452.shtml
-
-数据 | 粮食进口量同比增长20%，但中国主粮对外依赖度仍很低https://www.jiemian.com/article/4849632.html
-
-美国印钞让全球买单？国际粮食价格疯涨！中国粮食进口已大增57%http://news.hexun.com/2021-05-10/203571024.html
-
-食为天︱为什么粮食进口不等于粮食缺口？https://www.thepaper.cn/newsDetail\_forward\_8860429
-![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+***校对发布**：文顾*
 
 0
