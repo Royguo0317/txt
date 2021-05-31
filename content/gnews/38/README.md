@@ -1,96 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】与战友书（一）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1285775/)
+## 郭先生0530XIX中共疫苗有致命危险,不要拿命去冲这个事情
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1285790/)
 
-## – 就是与家人书–
+编辑整理：
 
-作者：纽约香草山健身部 澄道
+华盛顿DC农场：YIMING（文鸣）；伦敦喜庄园：胖丁
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31111002/El5fqQaU4AAiUme_%E5%89%AF%E6%9C%AC.jpg)
+据[20210530 文贵直播：欧中协议被冻结的重大意义；中共将被WTO，世界银行，IMF踢出；法国情报局曝出孟宏伟被消失的真相；欧美通过香港P3实验室向中共提供资金；中共将彻底灭亡于2024，2025](https://gtv.org/video/id=60b38ee8f6ff4b33fb95c2fa)时间点1：32：24——
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg](https://lh5.googleusercontent.com/vLw6Y_b7B_ELY7tNgJ-ZeOlPtiZaj9LITymWl1OE5wOzdIkkX7DZBrFRJJhMt9xpPSvXBwsgxURfUXP8t3HmMF6_KbzyUQPdAO1r5czQIoPgP9oX5cyVQDtWPZyla7HiihEkkn5C)
+国内打疫苗的事情，我本来今天要说一说的啊。这个我相信大家你们都看过那个视频，我都不想再说啦啊。因为这个视频呀，大家已经都展示过了。我看一看啊，你们都看过这个，我都发过盖特。你们都知道这个，这有多可怕，是吧？
 
+所以说兄弟姐妹们，你们一定要记住，这个疫苗的事情要坚持住，不要拿着命来去冲这个事情去啊。强制打怎么办？那你强制，不被强制打呀，对吧？大家都看过那个那个，我就别在这儿给大家发了好不好？
 
+（郭先生用手机测试新更新版G-TV-IOS-APP播放视频功能）我看一看这个是什么感觉啊，欸，一般。（播放5月28日郭先生盖特发过的51秒时长的打疫苗危害的视频，视频字幕——
 
-灭共无他事
-铲毒愚公人
+我们现在的处的年代充斥着谎言，冠状病毒是致命的，没有预防和治疗方法，它是一个突发情况，需要保持社交距离和戴口罩，然后并没有作用，（有人提出）解决方案是mRNA疫苗，认为它安全有效，但事实并非如此，它反而造成巨大的伤害，而我们也知道这些mRNA疫苗将在未来几年发生造成更大的危害，我一直在说，凡是70岁以上的人，谁如果注射了这些mRNA疫苗很可能会在二、三年内不幸死亡，而我想说的是，凡是注射了mRNA疫苗的人，不管你是什么年龄，你的年龄都会大缩减，哪怕你只有30多岁，5-10年可能面临死亡，你可能产生过敏反应，神经认知和炎症，当然不孕不育也是主要的一个后果）。
 
-梅战友：
-您好
-见字如面
+欸，不会是断了吧？（郭先生以为直播断了，其实没断）天呐，天呐，这是断了呀？（郭先生身边人告诉他，没有啊，啊，没有啊）我这儿怎么断了呀？我这儿？（身边人说，重新点一下）来，来来来，你弄一下这个来。
 
-缘启于一次
-偶然
-＂欧们的七芒星＂
-人生有幸
-同框同聊
+接上文——
 
-敬仰于一首歌
-必然
-＂老人家之歌＂
-正道同行
-殊途同归
+[郭先生5月30日直播前播放视频文字汇总](https://gnews.org/zh-hans/1285030/)
 
-先
-发链接（邀您）
-到＂煮聊堂＂
-望能来做客
-可能链接着实太过多
-您太客气
-＂就不打扰了＂
-非常理解
+[郭先生0530I中国古编钟折射出来的中国历史之伟大之深奥](https://gnews.org/zh-hans/1285048/)
 
-后
-您又再三推荐发
-＂GENWS.爽文＂
-您说＂予人玫瑰
-手有余香＂
-一次两次三次
-次次走心
-由衷感恩
+[郭先生0530II中国长袍之妙让男人浑然一体让女人亭亭玉立](https://gnews.org/zh-hans/1285053/)
 
-思前
-小店想晋级＂米其林＂
-那就要做到＂唯一＂|
-才是唯一
-小店＂云餐＂（线上聚餐会）
-真＂唯品汇＂
+[郭先生0530III今天科技的巅峰并未使内心世界达到自然和美妙](https://gnews.org/zh-hans/1285080/)
 
-想后
-＂破裤子先蹬腿…..＂
-啥都不说
-从＂择名选味定品…＂干起
-日出一餐
-手工亲打造
-亲派送（各种媒聊）
-只关注养热鲜
+[郭先生0530IV清朝800年是人类最大的文明祸害是中国的灾难](https://gnews.org/zh-hans/1285087/)
 
-好了
-就写到这儿吧！
+[郭先生0530V北京恢复居住证制将使中国变成天下最大的监狱](https://gnews.org/zh-hans/1285131/)
 
-梅言梅语＂美＂妙声
-了诗了词了吟诵
+[郭先生0530VI灭共重磅接踵而至让战友们对胜利的到来有点懵](https://gnews.org/zh-hans/1285137/)
 
-再聊
-……..
+[郭先生0530VII中欧协议冻结意味共产党被打回到89年以前](https://gnews.org/zh-hans/1285145/)
 
-@澄道来了
-@爱动爱议码05312
+[郭先生0530VIII中共在世界失去代表性后怎么能代表中国人民](https://gnews.org/zh-hans/1285178/)
 
-校对/发稿：雪梨
+[郭先生0530IX欧洲因洞悉中共反人类流氓真相冻结中欧协议](https://gnews.org/zh-hans/1285456/)
 
-![This image has an empty alt attribute; its file name is 5_May-1-556x720-1.jpeg](https://lh3.googleusercontent.com/8fPG-b3k1OPDoyNGv4xUGowotNCaFBS_Zy6K0pET5dZlav_GDobq-Ggg7Ttc_cv1Jxic-MNIw5k-4AIUaFK4dcPj0Gi5wObqH5uhfy5PxMn9uHRth-SCaptbFEriybfU9tqIgPrD)
+[郭先生0530X普京说若欧洲听证会内容属实将视中共为敌人](https://gnews.org/zh-hans/1285493/)
 
-**更多资讯，更多关注**
+[郭先生0530XI欧中协议破灭让共产党核心利益破灭金融坍塌](https://gnews.org/zh-hans/1285516/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[郭先生0530XII没有爆料革命欧中关系一定不会是今天的关系](https://gnews.org/zh-hans/1285630/)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[郭先生0530XIII从科学家欧洲做证那天起中美关系回到二战之后](https://gnews.org/zh-hans/1285637/)
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[郭先生0530XIV新中国联邦有能力保证新中国按正确的方向走](https://gnews.org/zh-hans/1285651/)
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+[郭先生0530XV美国的民意大大震慑美国高层和与中共勾兑者](https://gnews.org/zh-hans/1285683/)
 
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[郭先生0530XVI有90%的可能中共将于2024至2025年间被灭](https://gnews.org/zh-hans/1285702/)
+
+[郭先生0530XVII国人在设计建造文化及信仰上因急功近利吃大亏](https://gnews.org/zh-hans/1285735/)
+
+[郭先生0530XVIII我们要在有生之年步步为营去建设新中国联邦](https://gnews.org/zh-hans/1285763/)
+
+发布：日本东京方舟农场 山川异域
 
 0

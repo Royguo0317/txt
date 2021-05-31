@@ -1,56 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉大学动物实验室是中共病毒大流行的起源地吗？
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1286115/)
+## 2021年5月29日 文贵先生盖特 9
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1286185/)
 
-翻译: JS709 | 校对: Elsie | 审核：断播
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31131049/Wuhan-University-1.jpg)来自塞林 (Sellin) 博士的帖子
-**中共****病毒是在中共国的实验室制造的，是中共国人民解放军（****PLA****）生物战计划的一部分。**
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-**这已经很清楚了。尚待解决的问题是它的释放方式，到底是事故还是故意的。**
+5/29/2021 中共五毛借古讽今，暗讽美国像清朝一样因傲慢而衰落 中共五毛假借讲述清朝欺负外国人而由盛转衰的故事，暗讽美国傲慢、无知和种族主义。该视频暗示美国正在拼命维护利益集团的权力、产生了社会撕裂并拒绝全球化。 5/29/2021 The CCP’s 50-Cent Army Uses the Past To Ridicule America: The US Is Declining Like the Qing Dynasty for Its Arrogance A member of CCP’s 50-Cent Army uses the story of the Qing Dynasty’s bullying of foreigners and its decline from prosperity to satirize that the US is arrogant, ignorant, and racist. It is also implied in the video that America is desperately trying to protect the power of its interest groups and that it has a divided society and rejects globalization.
 
-越来越多的证据表明，2019年11月发生了一次实验室事故。
+[【2021年5月29日】文贵先生盖特原文](https://gtv.org/getter/60b45abbba7ef9088d042a47)
 
-尽管没有得到证实，但解放军故意释放了中共病毒的传言不断，一种情形是2019年10月18日至27日在武汉举行的第七届CISM（国际军事体育理事会）世界军人运动会期间，他们释放了病毒。
-
-我于2021年5月20日发表在《网关专家》（Gateway Pundit）文章中，我引用了中共国内部的消息来源称：
-
-1. 一种完整或几乎完整的中共病毒于2019年的前几个月从中国人民解放军东部战区运抵武汉病毒研究所。
-2. 与流行的说法相反，中共病毒被送往武汉病毒所主要是为了检测。
-3. 检测任务分配给了一组年轻的病毒学家。该小组的负责人姓名是已知的，而这位负责人的科学背景与该角色是一致的。
-4. 测试是在非人灵长类动物上进行的。
-
-
-关于该信息，有两点要重点关注。
-
-首先，总部位于南京的中国人民解放军东部战区分离了蝙蝠冠状病毒ZC45和ZXC21，中国爆料人闫丽梦博士说，这两种病毒是实验室制造中共病毒的骨架。
-
-其次，大概是由武汉病毒所的科学家单超领导了这次非人灵长类动物测试。测试很可能不是在江夏区的生物安全4级实验室中进行，而是在武昌区的武汉大学ABSL-3级动物实验室进行，此实验室是中共病毒早期爆发的中心。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31131302/WU-ABSL-3.jpg)左下文字：在武汉CCP病毒感染高峰期，武昌地区的密度最高，而其中最高点在武汉大学P-3动物实验中心、武汉病毒所和解放军军区医院这三个区域。 右下文字：武汉大学的ABSL-3级非人灵长类动物实验中心。 照片姓名：晁山
-甚至武汉病毒所的“蝙蝠女”石正丽也表示，江夏区的生物安全四级实验室在疫情爆发前并未进行非人灵长类动物实验。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31131740/Bat-woman-P4.jpg)
-此外，我们推定的中共病毒非人灵长类动物实验的负责人单超列出的他的单位地址，不是在江夏区的生物安全4级实验室，而是靠近武汉大学的ABSL-3级实验室，在科技路上的武汉病毒所生物安全3级实验室。
-
-更多的证据，其中一些可看作是确凿证据，支持以下论点：武汉大学的ABSL-3级动物实验室在进行致病性和传染性研究时，可能释放了中共病毒，实验室工作人员可能受到了感染。
-
-尽管以前曾在2016年被授予国家“万人计划”领军人才荣誉称号，但在2020年5月6日，李红良突然被免去武汉大学动物实验中心主任和武汉大学ABSL-3级实验室主任的职务，报告如下：
-
-“经过调查，没有发现存在数据造假，但是发现许多论文都滥用了图像，反映了对实验数据严格处理的缺失。”
-
-之后，武汉大学的ABSL-3级实验室进行了一系列严格的安全检查，并于2020年8月24日专门针对冠状病毒的研究发布了新的安全标准。
-
-还有其他间接证据表明2019年11月武汉大学发生了不寻常的事情。
-
-大量证据表明，中共病毒大流行可能起源于武汉大学的ABSL-3级动物实验室。但它到底是中共病毒大流行的罪魁祸首还是解放军的一个更加邪恶行动的替罪羊？
-
-劳伦斯·塞林（Lawrence Sellin）博士有多年的国际商业工作经历，在美国陆军预备役中从事医学研究29年，并是参加过阿富汗和伊拉克战争的退伍军人。他的电子邮箱地址是[email protected]
-
-（作者真诚感谢中共病毒侦探@ann95657173和@TorontoFarmEN所做的贡献）
-
-原文作者：乔·霍夫特（Joe Hoft）
-嘉宾文章：劳伦斯·塞林（Lawrence Sellin）博士
-发布时间：2021年5月25日，上午7:25
-原文链接：[https://www.thegatewaypundit.com/2021/05/wuhan-universitys-animal-laboratory-origin-covid-19-pandemic/](https://www.thegatewaypundit.com/2021/05/wuhan-universitys-animal-laboratory-origin-covid-19-pandemic/)
+**喜联盟Gnews编辑部**
 
 0

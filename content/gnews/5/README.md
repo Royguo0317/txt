@@ -1,33 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 成千上万人聚集抗议冠状病毒，伦敦公交车上贴满反疫苗贴纸
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1286155/)
+## 【病毒专题】众议院共和党人要求南希 · 佩洛西调查中共病毒真相
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1285370/)
 
-作者：文复
+作者：休斯顿星光农场 写作部 FY（火星）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
+5 月 28 日，众议院共和党议员史蒂夫·斯卡利斯和他的200多名共和党同僚给南希·佩洛西（Nancy Pelosi）致信，呼吁民主党委员会调查中共在造成病毒大流行中的共谋行为。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31064818/photo_2021-05-31_17-16-26-1.jpg)
+*图片来源：DailyMail*
 
-抗议发生在上周 Covid 病例连续第二次超过 3,000人之后——这是自 4 月中旬以来感染人数首次达到这一水平——其间充满了对印度变种病毒的担忧。
+据每日邮报报道，在给民主党众议院议长的一封信中，共和党人说，有“越来越多的证据表明该病毒始于中（共）国的一个实验室”，而中国共产党“掩盖了它”。
 
-今天，一辆伦敦公共汽车上贴满了反疫苗接种的贴纸，数千位Covid-19 怀疑论者聚集在伦敦进行抗议。
+信中写道：“如果是这样，中共要对近60万美国人和全世界数百万人的死亡负责。这些关于中共责任的问题并不是转移视线的行为。”
 
-包括“没有大流行”和“真相会赢”的标语在内的阴谋论材料被贴在了车的双层甲板上。
+信中补充说：“恰恰相反，每一个失去亲人的美国家庭都应该得到关于这一可怕病毒来源的答案。”
 
-图片显示一位公交车司机正试图摘下挡风玻璃上的贴纸。
+据报道，共和党人提高了对调查的要求，因为众议院议员将提出两项与COVID-19有关的新法案，一项是允许受害者家属起诉中（共）国，另一项是成立一个类似于9/11事件的委员会来调查该大流行病的起源。
 
-事件发生之际，数千人在议会广场上参加“团结自由”集会，同时举行单独的“杀死法案”抗议活动。
+信息来源：
 
-一些示威者举着标语牌，上面写着“我的身体我选择”和“我们不是豚鼠”，而另一些示威者则指责媒体对病毒真相“撒谎”。
+[https://www.dailymail.co.uk/news/article-9630049/More-200-House-Republicans-demand-Pelosi-FINALLY-investigate-Chinas-complicity-pandemic.html](https://www.dailymail.co.uk/news/article-9630049/More-200-House-Republicans-demand-Pelosi-FINALLY-investigate-Chinas-complicity-pandemic.html)
 
-许多人表示他们认为大流行是一场骗局，而其他人也反对疫苗护照的想法。
+编辑：文顺    校对：Helen   发稿：文柳
 
-**评论：**
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
 
-**这是一个真相的面目并非对于每个人来说都十分清晰的时刻，很多西方民众也只是凭借着不相信政府的一贯直觉，去质疑出现一年多的病毒疫情。他们对病毒存在的不相信，可能会导致轻视病毒从而遭受病毒更严重的健康威胁，但他们对政府的质疑，对于政府管控政策的挑战，则有利于向政府施加压力，从而从客观上起到让病毒真相的全貌尽快公诸于世的促进作用。**
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
 
-**正在苏醒中的是民意，觉醒中的是人民，这是世界各国共同的大趋势，是全球灭共不可阻挡的洪流背景。**
-
-**文章来源：**[Mirror](https://www.mirror.co.uk/news/uk-news/london-bus-covered-anti-vax-24212434)
-
-**校对发稿：士多啤梨**
 
 0
