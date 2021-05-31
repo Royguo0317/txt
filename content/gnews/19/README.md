@@ -1,11 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210530
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1284109/)
+## 《老友记》的特别节目受到中共国审查
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1284198/)
 
-作者：2020喜马拉雅
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30150112/001-3-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30150134/002-2-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151126/003-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151131/004-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151211/005-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151217/006-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151220/007-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151255/008-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151300/009-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151306/010-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151306/011.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151319/012-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151341/013.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151350/014.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151356/015.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151401/016.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151406/017.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151409/018.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151419/019.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151426/020-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151448/021-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151448/022.jpg)
-审核：神奇四侠；发稿：神奇四侠
+消息来源：意大利晚报（corriere.it）
+发布时间：2021年05月28日
+翻译整理：斩草要除根
+
+中共国的审查制度甚至没有放过《老友记》，在上一季播出的17年后六位主角再次聚首，全球数百万电视剧粉丝在屏幕前观看名为《重逢》的特辑。但在中文版中，中共国将大约一个半小时的节目缩短成了六分钟，其中 Lady Gaga、贾斯汀比伯和 K-Pop Bts 超级明星乐队的客串场景都给删除掉了，因为他们曾在过去以某种方式冒犯了北京。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30164437/%E8%80%81%E5%8F%8B%E8%AE%B01.jpg)德国之声中文网
+粉丝们纷纷表示“目瞪口呆”，爱奇艺、优酷和腾讯视频这三个主要媒体平台都彻底删除了这些音乐人的镜头，这在粉丝中顿时引起了轩然大波。《老友记》在中共国拥有庞大的粉丝群，许多年轻人认为通过该节目可以了解英语世界和美国文化。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30164526/%E8%80%81%E5%8F%8B%E8%AE%B02.jpg)
+类似这样的审查事件可以追溯到几年前。Lady Gaga于2016年被禁止前往中共国与达赖喇嘛会面。贾斯汀·比伯（Justin Bieber）自2014年因为参观有争议的东京靖国神社也无法再在该国演出。K-Pop Bts乐队组合里因为其中一位成员在去年一次节目中谈到了在 1950-53 年韩国和美国共同对抗中共国支持朝鲜这一事件。
+
+简评：中共式的审查管控是一种行政行为，属于中共国大规模监控的一部分。中共更关心的是维护他们所把持的权力，任何有影响到其政治领域的都会得到惩罚，这已经到了前所未有的极端程度。所谓：”逆我者亡”这是形容中共手段最贴切的，在中共的淫威之下，似乎都要向其献媚才是合理的生存方式，何等的荒谬。
+
+（个人观点）
+
+[新闻链接](https://www.corriere.it/esteri/21_maggio_28/cina-puntata-speciale-friends-censurata-scoppia-l-ira-fan-8d1a3ef2-bf84-11eb-b7a1-7e76296b457a.shtml)
+
+校对/上传：老中医
 
 0
