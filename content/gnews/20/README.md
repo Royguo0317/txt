@@ -1,27 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Bonjour, Paris! ——法国巴黎七星农场成长记
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1286344/)
+## 中共和纳粹一样开始登记和限制专业工程技术人士出国！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1286620/)
 
-#### 作者：鸡蛋灌饼 素材：青青草原 校对：天鹅
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31153703/cover-15.jpg)
-转眼间，六四新中国联邦建国日一周年纪念日就快到了。而在这特别值得庆贺的日子里，是回顾法国巴黎七星农场从成立到成长过程的好时机。
+**摘要：在5月25日的盖特中，郭先生说共产党下一步将会和纳粹希特勒一样限制专业工程技术人士出国。它将通过脸部识别、边控等手段对这些人员进行全面控制。这种限制将持续到中共灭亡。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31172432/Miles_2021-05-25_g1.srt.txt)
+**中共和纳粹一样开始登记和限制专业工程技术人士出国！**
 
-法国，一个浪漫而传奇的国度；而巴黎，则是皇冠上的那颗明珠。在美丽的塞纳河畔，繁华的香榭丽舍大道旁，这里有着高耸入云的埃菲尔铁塔，也有着宏伟绚丽的卢浮宫。这里见证过大革命中被推上断头台的法王路易十六，也长眠着征战整个欧洲、夺过皇冠为自己加冕的拿破仑。这里爆发过混乱的巴黎公社运动，也创造出代表平等民主的自由女神。无数伟大的哲学家、艺术家在这里流连忘返，作为法律鼻祖之一的《民法典》和自由平等博爱的信仰从这里流传于世。而就在一年以前，法国巴黎七星农场也在这里成立了。
+**CCP Is Just Like Hitler – Restricting Professionals from Leaving China**
 
-巴黎七星农场建立至今，分别组织了“7.27”法国巴黎游行、“8.29”德国慕尼黑游行、 “10.19”瑞士苏黎世游行；参与了十三天翻译战斗活动，策划并实施了远赴德国的“惩贼行动”，长期开展了覆盖欧洲的“天女散花”反CCP宣传活动；并积极通过各种渠道，协助身处欧洲、墙内、以及世界各地的农场战友参与G系列投资。巴黎农场的工作，在欧洲范围内取得了一定的成果，并得到了郭文贵先生的肯定。
+昨天救出来的战友，告诉我很多国内公检法[人员]，现在受的煎熬。而且现在[共产党]对科学家、工程专业人士，正在进行全面的筛选调查。我今天告诉大家一个你们都无法想象的[事实]，希望战友们不要受到伤害。所有的工程师，所有的技术人员，共产党就会特别登记，限制出境。以后什么写代码的工程师啊，懂得工程高端技术的啊，建筑师啊，都不让出国啦。因为你[们]走了都不回来了。以后都要全面限制。全国联网脸部识别，边控控制，你哪儿都别去。从边控到城市控，从这个城市到那个城市都不行，咱不信走着看。
 
-其实，巴黎七星农场的诞生和成长并不是一帆风顺的。在成立初期，农场组织的各项活动遇到了各种各样的困难，CCP的阻挠、小粉红的对抗、甚至所在地警察的限制，都是经常遇到的事情。并且，由于自身缺乏经验和对业务评估的不足，巴黎七星农场也曾被降级为准农场，联盟派驻工作组到巴黎农场协助建设。从初期的误解、排斥，到后来的理解、配合、沟通，巴黎农场逐步从青涩走向成熟。
+The fellow fighter who was rescued yesterday told me a lot about the torment of the people within the judicial, prosecutorial and law enforcement systems in China. Moreover, [the CCP] is conducting full screening and investigation into China’s scientists and engineering professionals. Today I will share something that none of you could have imagined. I hope that my fellow fighters won’t get harmed. All engineers and technicians will be specifically registered by the CCP, and they will be restricted from leaving China later on. In the future, software engineers, those who understand high-end technology and engineering, and architects will not be allowed to go abroad because if they leave they will never return. In the future, it will be fully restricted. Through the national face recognition network and border control, they cannot go anywhere. From border control to the local control, everything will be under surveillance. You cannot even travel from one city to another. Just wait and see if you don’t believe this.
 
-不经风雨，难见彩虹。法国巴黎七星农场之所以能够经历风雨而仍然顽强支撑，在我看来，主要源于农场一直坚持的三个理念：团结、真诚、为真不破。
+当年的希特勒限制所有的德国的高级知识分子专业人士不能出国，直到希特勒被消灭。现在马上在中共开始。
 
-首先，巴黎七星农场的团结是有目共睹的，无论遇到什么困难，农场的每位战友都会伸出援手，大家都会从维护农场的角度出发，集思广益，思考解决方案，并积极参与到解决问题的工作中去。同时，团结的气氛，也形成了大家配合无间的默契。接到任务，农场的宣传组、文案组、各语言组、美工组、字幕组、视频组等各职能小组总能密切配合，圆满完成交代下来的任务。
+Hitler once restricted all senior German intellectuals and professionals from going abroad until he and his regime were eliminated. The CCP will implement this policy right away.
 
-我们之所以那么团结，原因就在于农场的第二个理念——真诚。农场真诚对待每一位战友，协助战友解决面临的困难和挑战。比如，在得知身处瑞士的“噼里啪啦”战友因病去世后，在欧洲因疫情即将采取封闭政策的背景下，农场还是组织了慰问团队，分别从法国、德国等地出发，专程赶赴苏黎世对战友家人进行悼念、慰问，参加了“噼里啪啦”战友的遗体告别仪式。我们秉持 “不抛弃、不放弃、不忘记”的原则，对战友不离不弃，始终把战友的利益和安全放在头等重要的位置。
+烧了你还不算，在你没死之前，你得好好的当奴隶。这就是共产党。跟着共产党，走进火葬场，咱不信走走看！
 
-为真不破是巴黎七星农场坚持的第三个原则。每次在联盟开会有重要举措的时候，农场都会尽快将联盟的工作安排和要求通过农场内部会议传达给每一名战友，同时会形成会议记录进行公布，使因时差、工作等各种原因而无法参加会议的战友也能第一时间了解到会议的内容。农场除需保密之外的安排完全向战友们公开、坦诚。我们相信公开才能形成信任，才能凝聚战友，形成合力，让战友们真正把农场当成自己的家，来维护和经营。这才是团结的源泉和动力所在！
+In addition to cremate you without any dignity, you have to act as a useful slave before you die. This is the CCP. Following the CCP is like walking straight into the crematorium. Let’s just wait and see!
 
-如今，随着“六四”新中国联邦成立一周年纪念日的到来，法国巴黎七星农场也度过了第一个年头。我们相信，无论经历多少岁月，遇到多少困难，只要坚持团结、真诚、为真不破的理念，法国巴黎七星农场就能在法国扎根并绽放光芒！
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60ada88d744cbc43136453a6](https://gtv.org/getter/60ada88d744cbc43136453a6) (8:29-end)
+鸣谢：
+[1] 感谢Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1272820/](https://gnews.org/zh-hans/1272820/)
+[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于 [https://gnews.org/1274259/](https://gnews.org/1274259/)
+
+* * *
+
+**整理校对 & 新闻撰写：【guocamole(文金欠)（纽约香草山农场）】
+字幕：【JennyL（纽约香草山农场）】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%25E7%258E%25AB%25E7%2591%25B0%25E5%259B%25AD%25E5%25B0%258F%25E9%2598%259F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

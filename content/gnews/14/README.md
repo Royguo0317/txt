@@ -1,45 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共和纳粹一样开始登记和限制专业工程技术人士出国！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1286620/)
+## “病毒实验室来源论”置主流媒体于窘迫中挣扎！
+` 加拿大多伦多枫叶农场 羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1286751/)
 
-**摘要：在5月25日的盖特中，郭先生说共产党下一步将会和纳粹希特勒一样限制专业工程技术人士出国。它将通过脸部识别、边控等手段对这些人员进行全面控制。这种限制将持续到中共灭亡。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31172432/Miles_2021-05-25_g1.srt.txt)
-**中共和纳粹一样开始登记和限制专业工程技术人士出国！**
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31181639/wds-1-edited.jpg)图片来源：TRUENORTH
 
-**CCP Is Just Like Hitler – Restricting Professionals from Leaving China**
 
-昨天救出来的战友，告诉我很多国内公检法[人员]，现在受的煎熬。而且现在[共产党]对科学家、工程专业人士，正在进行全面的筛选调查。我今天告诉大家一个你们都无法想象的[事实]，希望战友们不要受到伤害。所有的工程师，所有的技术人员，共产党就会特别登记，限制出境。以后什么写代码的工程师啊，懂得工程高端技术的啊，建筑师啊，都不让出国啦。因为你[们]走了都不回来了。以后都要全面限制。全国联网脸部识别，边控控制，你哪儿都别去。从边控到城市控，从这个城市到那个城市都不行，咱不信走着看。
+加拿大知名自媒体《真北方》于5月30日刊登其创始人亲自撰写的时事评论文章，就当前该国朝野上下愈燃愈烈的“中共病毒实验室来源论”对该国主流媒体的强烈冲击和无情震撼进行了详细地分析报道。全文编译如下：
 
-The fellow fighter who was rescued yesterday told me a lot about the torment of the people within the judicial, prosecutorial and law enforcement systems in China. Moreover, [the CCP] is conducting full screening and investigation into China’s scientists and engineering professionals. Today I will share something that none of you could have imagined. I hope that my fellow fighters won’t get harmed. All engineers and technicians will be specifically registered by the CCP, and they will be restricted from leaving China later on. In the future, software engineers, those who understand high-end technology and engineering, and architects will not be allowed to go abroad because if they leave they will never return. In the future, it will be fully restricted. Through the national face recognition network and border control, they cannot go anywhere. From border control to the local control, everything will be under surveillance. You cannot even travel from one city to another. Just wait and see if you don’t believe this.
+目前，在加拿大突然掀起的“COVID19实验室来源说”浪潮无疑凸显了当今主流媒体所把控的新闻业存在的严重问题和巨大弊端。
 
-当年的希特勒限制所有的德国的高级知识分子专业人士不能出国，直到希特勒被消灭。现在马上在中共开始。
+在过去的七天里，对（中共）病毒来源真相的定义竟然发生了难以置信的全面反转。该曾经被各国政界，主流媒体，医疗科技界，大型社交平台乃至平民百姓都彻底否定和抵制的“病毒实验室来源论”，突然一夜之间摇身成为引发疫情大流行的金科玉律。这种匪夷所思的彻底改变，着实让加拿大所有主流媒体为此窘迫异常，无所适从。
 
-Hitler once restricted all senior German intellectuals and professionals from going abroad until he and his regime were eliminated. The CCP will implement this policy right away.
+让我们把目光回顾到2020年1月，虽然当时加拿大报道了第一例冠状病毒感染，但人们却普遍认为该疫情仍然只是发生在中共国的一个本地医疗事故而已。随后，我们开始在网上目睹了武汉当局残酷地处置被感染者的图像新闻，以及野蛮逮捕并关押甚至“消失”那些报道疫情真相的医生和记者等吹哨人的种种卑劣行径。
 
-烧了你还不算，在你没死之前，你得好好的当奴隶。这就是共产党。跟着共产党，走进火葬场，咱不信走走看！
+我们知道，在本次疫情爆发之初，从共产主义中国传出的故事版本是：这种致命的神秘新型冠状病毒起源于武汉的某个潮湿海鲜市场。但当时被外界注意到的一个明显事实是，那里也是中共国最高安保措施的传染病实验室《武汉病毒研究所》所在地。该实验室以宽松的安全标准和研究危险疾病和致命病毒而闻名于世，并且它距离当局宣称的零号（中共）病毒感染者所在的海鲜市场仅隔步之遥。
 
-In addition to cremate you without any dignity, you have to act as a useful slave before you die. This is the CCP. Following the CCP is like walking straight into the crematorium. Let’s just wait and see!
+毕竟，中国是被我们敌对的共产主义专政所统治，且该独裁政权以散播谎言和掩盖事实而臭名昭著。西方那些开明的有识之士肯定会质疑中共当局所有与疫情相关的宣传，并试图在医学理论和事实证据上戳破其蓄意的谎言。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60ada88d744cbc43136453a6](https://gtv.org/getter/60ada88d744cbc43136453a6) (8:29-end)
-鸣谢：
-[1] 感谢Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1272820/](https://gnews.org/zh-hans/1272820/)
-[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于 [https://gnews.org/1274259/](https://gnews.org/1274259/)
+但不可思议的是，当时加拿大，美国乃至世界各地所有主流媒体却都完全忽略了上述这一明显的关联。更令人震惊的是，似乎在疫情真相背后，有一场邪恶运动在不断攻击和抹黑那些对该有争议的武汉实验室提出病毒来源质疑的任何机构和个人。
 
-* * *
+对此，特别是加拿大各主流媒体的记者们开始系统地对该理论大肆进行所谓的“揭穿”报道，并毫无医学根据地指责它是“谣言”，“虚假信息”，“恶作剧”甚至“阴谋论”。但可悲的是，这些主流记者最近却一改初衷地肯定了以上他们曾经极力打压的所谓“阴谋论”的正确性。在事实面前，这些“见风使舵”者不仅不承认自己的错误，相反，他们千方百计地试图确保其读者认为一直以来，主流媒体对病毒来源真相报道的正确性。有鉴于此，那请问：这些观点不停左右摇摆的人，还能算是真正专业称职的记者吗？
 
-**整理校对 & 新闻撰写：【guocamole(文金欠)（纽约香草山农场）】
-字幕：【JennyL（纽约香草山农场）】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%25E7%258E%25AB%25E7%2591%25B0%25E5%259B%25AD%25E5%25B0%258F%25E9%2598%259F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+要知道，作为合格的新闻记者必须首先要对发生的事件提出问题，然后核查各要素之间的关联，并对各党派和不同政客的观点，以及中共政权所散布的信息保持必要的怀疑态度。而实际上在加拿大，我们看到的大都是反新闻工作者的迫害行动。有太多的例证表明，这些主流媒体的新闻工作者在思想上不诚实，在道德上腐败以及对报道事实真相的同行们的排挤和嘲笑。
+
+但黑暗并非止于此，一些被公众视为不受任何政治影响且高居象牙塔的科学家们，现在也为此被迫公开承认，他们之前故意避免过早地核查“病毒实验室来源论”的正确性仅仅是因为某些著名的保守派议员对此观点提出了质疑。
+
+更有甚者，为了增加对该理论的迫害力度，像Facebook之类的社交媒体巨头此刻也无奈承认，他们之前隐藏和删除了大量有关“病毒实验室来源真相”帖子的链接数据，以此阻止这些“虚假信息”的广泛传播。
+
+就算今后主流媒体简单说一句“我忏悔并为此道歉！”也并不能就此为其免责开脱。因为真相只有一个，任何人都无法将它抹杀！
+
+[原文链接](https://tnc.news/2021/05/30/malcolm-the-lab-leak-flip-flop-shows-whats-wrong-with-journalism-today/)
+
+本文仅代表原媒体信息和其作者本人观点！
 
 0

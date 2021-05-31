@@ -1,15 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月29日 文贵先生盖特 9
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1286185/)
+## 朝警告美结束韩发展导弹的限制会引剧烈动荡
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1286227/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-5/29/2021 中共五毛借古讽今，暗讽美国像清朝一样因傲慢而衰落 中共五毛假借讲述清朝欺负外国人而由盛转衰的故事，暗讽美国傲慢、无知和种族主义。该视频暗示美国正在拼命维护利益集团的权力、产生了社会撕裂并拒绝全球化。 5/29/2021 The CCP’s 50-Cent Army Uses the Past To Ridicule America: The US Is Declining Like the Qing Dynasty for Its Arrogance A member of CCP’s 50-Cent Army uses the story of the Qing Dynasty’s bullying of foreigners and its decline from prosperity to satirize that the US is arrogant, ignorant, and racist. It is also implied in the video that America is desperately trying to protect the power of its interest groups and that it has a divided society and rejects globalization.
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31143421/N-6.jpg)wwaytv3.com
+韩国首尔（美联社）报道，朝鲜5月31日表示，美国允许韩国发展无限射程导弹技术是美国对朝鲜采取的又一个敌对政策。平壤警告美国，此举可能会导致朝鲜半岛局势发生“剧烈震荡”。
 
-[【2021年5月29日】文贵先生盖特原文](https://gtv.org/getter/60b45abbba7ef9088d042a47)
+美韩高层 5 月 21 日峰会后，美国结束了长达几十年对韩国发展导弹技术的限制，允许韩国发展无限射程武器，平壤当局对此表示非常愤怒。美国此前曾禁止韩国开发射程超过 800 公里（500 英里）的导弹。该射程的导弹足以让韩国军事力量覆盖整个朝鲜，却无法波及到其他邻国，如中共国和日本。
 
-**喜联盟Gnews编辑部**
+美国当初限制韩国发展导弹技术的初衷是维护亚太地区的和平，不至于让韩国的军事武器引起与中共国之间的军备竞赛。但自从 5 月 21 日美国解除对韩国发展导弹技术的限制后，一些韩国军事观察家在称赞美国是主动恢复了韩国的军事主权的同时，外界不免怀疑美国的真实意图是为了提高盟友与中共国进行军事竞争的能力。
+
+平壤当局并未正面发声，仍然是由“个别”评论员代为表达朝鲜政府的态度，这被外界解读为平壤为与拜登政府作进一步外交沟通留下了空间。据朝鲜官媒中央通讯社报道，朝鲜官方国际事务评论员 Kim Myong-chol 表示，美国不再限制韩国发展导弹技术的决定是美国对朝鲜的敌对政策，是一种可耻的两面派的做法。
+
+他认为，美国通过制造朝鲜半岛及其周边地区军事不对称来向朝鲜施压是个严重的错误，因为美方这种做法很可能导致朝鲜半岛现在军事技术上处于“战争状态”，结果很可能是引发周边各国的军备竞赛。
+
+参考链接：
+
+[North accuses U.S. of hostility for South Korean missile decision – Washington Times – 30/05/2021](https://www.washingtontimes.com/news/2021/may/30/north-accuses-us-of-hostility-for-south-korean-mis/)
 
 0
