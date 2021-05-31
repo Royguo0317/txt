@@ -1,97 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 章家敦宣称中共国故意传播Covid-19，美国应与中共国脱离联系
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1284474/)
+## 朝鲜照搬中共战狗叫嚣模式
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1284626/)
 
-**字幕内容：**
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30232017/8-28.jpg)
+根据路透首尔5月31日报道，朝鲜官方朝中社周一发表评论，批评美韩最近终止了对韩国发展弹道导弹设限的协议，并称这是华盛顿 “可耻的两面派”的表现。
 
-Gordon Chang
-章家敦
+何为“两面派”就是左右逢源，谁也不得罪。但美韩此举已经明确美国在朝韩问题上，是站在韩国背后的，又何谓“两面派”？
 
-No matter how this disease start it
-不管这种疾病是如何开始的
+韩国总统文在寅在本月早些时候赴华盛顿与美国总统拜登举行首次峰会后，便宣布废除联合导弹指南，该指南将韩国研发的弹道导弹射程限制在800公里(500英里)内，这给韩国防御朝鲜的导弹威胁设置了不可逾越的障碍。但此协议废除，韩国在面对来自朝鲜的导弹威胁，就有进一步采取措施的主动性，可谓一纸合约，彻底扭转朝韩两国在军事武装方面的地位。
 
-We know that Xi Jinping deliberately spread this beyond China’s borders
-我们知道习近平故意将其传播到中共国之外
+朝中社刊登了一篇被其称为 “国际事务评论家”的金明哲(Kim Myong Chol)的文章，指责美国在寻求禁止平壤发展弹道导弹时采用了双重标准。其称美国 “尽管口口声声说要进行对话，但却醉心于对抗，”金明哲表示，“结束限制的做法明确显示出，美国对朝鲜民主主义人民共和国(DPRK)的敌对政策及其可耻的两面派做法。”
 
-they lied about human-to-human transmission ability
-他们对病毒人传人的传播力撒谎
+金明哲称，朝鲜的目标是美国，而不是韩国军队，它将根据“对等原则”反击美国。
 
-they also force countries to take arrivals from China
-他们当时还迫使各国接受来自中国的旅客
+金明哲还批评了文在寅对终止指南的欢迎，称其 “令人厌恶，不光彩。”
 
-while they’re locking down their own country
-而他们封锁自己的国家
+朝鲜官员的做法颇有中共战狼外交部的风范，当失去了可以对抗的实力之后，所有的自我武装就是“嘴炮”，但朝鲜与中共不同的是，朝鲜还具备可以转向的空间，毕竟金正恩也能清楚地看到中共这个邻国大哥泥菩萨过江的窘迫局面，是继续跟在后面成为真正的“邪恶轴心国”的一员，还是“识时务者为俊杰”选择保持距离呢？相信金正恩会从他皇位长远的角度来做出他的判断。
 
-so this was deliberate spread
-所以这就是故意传播
+（本文只代表作者观点，与Gnews平台无关。）
 
-and that has great implications for how the Biden administration
-这对拜登政府的工作产生重大影响
+**新闻来源：**
 
-and everybody else around the world should be react
-世界各地的所有人都应该做出反应
+[朝鲜抨击美国结束限制韩国导弹射程的协议 | 路透 (reuters.com)](https://cn.reuters.com/article/north-korea-us-kr-missile-0531-idCNKCS2DC04M?il=0)
 
-because we talked about, oh, let’s cooperate
-因为我们讨论，噢，让我们与
-
-with the Chinese to prevent the next pandemic
-中共合作以防止下一次大流行
-
-well you can’t cooperate with a mass murderer
-好吧，你不能与大屠杀犯罪者合作
-
-which is really what China is right now
-这就是中共国现在的身份
-
-and that means we need to cut our ties with China
-这意味着我们需要切断与中共国的联系
-
-we need to make sure there are no technical cooperation agreements
-我们需要确保没有技术合作协议
-
-needs to get our pharmaceutical industry off of Chinese soil
-需要使我们的制药业离开中共国的国土
-
-and we need to stop enriching China with trade and investment
-而且我们需要停止通过贸易和投资来使中共国变的富足
-
-because it’s very difficult for us to realize the maliciousness in the evil that we have that just occurred
-因为我们很难意识到刚刚发生的恶魔的恶意
-
-and until we do that, we are leaving ourselves open for the next pathogen from China which probably will be that civilization color that I talked about which means that the ex-istence of our country is at stake
-除非我们这样做，否则我们就会为来自中共国的下一次攻击敞开大门
-
-这可能是我所谈到的文明色彩，这意味着我们国家的生存处于危险之中
-
-if we don’t understand what China did
-如果我们不了解中共国做了什么
-
-we can’t defend ourselves
-我们不能保卫自己
-
-if we continue our relationship with China
-如果我们继续与中共国的关系
-
-we’re basically saying it’s all right to kill millions of Americans in the future, because it’s acceptable
-我们基本上是在说，在未来杀死数百万美国人是可以的，是可以接受的
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接 :**
-
-[https://twitter.com/realamvoice/status/1397211131186454529?s=24](https://twitter.com/realamvoice/status/1397211131186454529?s=24)
-
-英听校：康州盘古农场 – Layka
-翻译：康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+***校对发布**：文顾*
 
 0

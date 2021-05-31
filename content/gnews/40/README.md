@@ -1,41 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共当局促喜马拉雅放弃赴美IPO改香港上市
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1284430/)
+## 博明认为可以查清中共病毒源头
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1284538/)
 
-作者：香草山健身部 Jack Li文阳
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30220446/V-2.jpg)thegenevadaily.com
+国会山报5月30日报道，国家安全前副顾问博明(Matthew Pottinger)周日在讨论中共武汉实验室起源理论时表示，他认为有可能查明新冠肺炎的起源。
 
+“我认为在90天内可以学到很多东西。”博明对NBC“会见新闻界”节目主持人查克·托德(Chuck Todd)说。他指的是拜登总统最近呼吁美国情报界提交一份关于中共病毒起源的90天报告。博明认为在世界各地科学家都开始披露病毒来源的科学研究，美国政府会有一个答案。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
+托德问博明，中共政府不合作的话他是否相信能够找到关于中共病毒起源的“明确答案”。博明回答，“我想我们可以。这可能需要超过90天的时间，但是你看……中共国有令人难以置信的、有道德的科学家，他们中的许多人在疫情早期站出来说，他们怀疑这是实验室泄漏。这些人被他们的政府系统性地压制了。” 他补充道，但是美国领导的全球寻找中共病毒源头的努力可能会鼓励这些科学家站出来。
 
+继香港实验室的闫丽梦博士勇敢站出来揭露中共病毒来源于武汉实验室之后，据郭文贵先生的爆料，有直接参与到病毒制作的科学家也站了出来，在欧洲参加秘密听证会并提供了更加详细的病毒制作的视频证据。而后还会有更多有良知的科学家会勇敢站出来揭露中共病毒真相。中共的功能增强研究不仅仅限于新冠病毒一种，还有更多变异毒株及更加致命的生物病毒武器，而中共已经做好了随时再次投毒以此让世界屈服的准备。
 
+为了避免生灵涂炭，“以毒灭共”刻不容缓。
 
-三位知情消息人士说，中共国正在敦促国内最大在线音频平台—喜马拉雅放弃赴美国上市计划，改为去香港上市。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30205814/Untitled-design-61.png)
-根据路透社报道，知情人士表示，喜马拉雅计划本月赴纽约上市，最近包括中共国国家互联网信息办公室在内的中共国监管机构敦促该公司取消赴美上市计划，改为去香港上市。消息人士称，喜马拉雅仍在与国家互联网信息办公室进行商谈。
+参考链接：
 
-美国国会众议院通过的《外国公司问责法案》，要求外国发行人连续三年不能满足美国上市公司会计监督委员会（PCAOB）对会计事务检查要求的，禁止其证券在美国交易，大量的中概股将被强制从美国证券市场退市。
-
-据报道，受中概股在美国市场跌跌不休，大量的中概股股价被腰斩的影响，喜马拉雅与另外两家公司——哈啰出行和七牛云正暂停了美国的上市计划，纷纷推迟了接受美国投资者的认购。尽管这三家公司已经向美国SEC递交了上市前的书面文件。
-
-到美国上市圈钱，是近二十年来中资公司的流行做法。但时过境迁，在美国的中概股全部面临着被退市的风险。被勒令退市的公司，要偿还美国投资者的投资款项。如果涉嫌数据造假，甚至会面临投资者的集体诉讼。如果其股价跌破发行价，再扣除金融公司的各项费用，上市公司将面临巨大的资金链断裂的风险，甚至会影响到公司的生存问题。
-
-中共替喜马拉雅公司着想，可谓用心良苦。况且，在中共的眼里香港的韭菜也是韭菜，还算肥壮。对于从美国退市和准备美股IPO的中资企业，既然不能去美国上市赚美元，改道香港也是眼下唯一的选择。
-
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24221039/5_May-1-556x720-2-3.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://thehill.com/homenews/sunday-talk-shows/556139-former-deputy-national-security-advisor-i-think-we-can-find-where](https://thehill.com/homenews/sunday-talk-shows/556139-former-deputy-national-security-advisor-i-think-we-can-find-where)
 
 0
