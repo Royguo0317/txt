@@ -1,11 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210530
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1284109/)
+## 【拆台新闻】中共用“偷天换日”术洗脑少年儿童“红心向党”认贼为父
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1284255/)
 
-作者：2020喜马拉雅
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30150112/001-3-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30150134/002-2-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151126/003-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151131/004-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151211/005-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151217/006-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151220/007-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151255/008-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151300/009-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151306/010-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151306/011.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151319/012-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151341/013.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151350/014.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151356/015.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151401/016.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151406/017.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151409/018.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151419/019.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151426/020-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151448/021-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151448/022.jpg)
-审核：神奇四侠；发稿：神奇四侠
+####  撰稿：紫橄榄
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30173644/6.jpeg)图片截至网络
+**【媒体观点】**
+
+2021年5月30日，央视网消息（新闻联播完整版）：在“六一”儿童节到来之际，共青团中央、全国少工委在各地开展“红领巾心向党”主题活动，广大少先队员通过参与诵读分享党史、参观寻访、致敬革命先烈等实践活动，传承红色基因，争做时代新人。
+
+这两天，由少先队辅导员、少先队工作者等组成的红领巾巡讲团正在全国中小学少先队组织、红色教育基地开展宣讲。…….
+
+在“六一”儿童节当天，共青团中央、全国少工委还将举行主题云队课，各地少先队员齐聚云端，共同举行少先队仪式、高唱红色歌曲，表达爱党爱国心声，让红色基因、革命薪火代代传承。……..
+
+**【笔者评论】**
+
+上述讯息为2021年5月30日中共国央视网发表其新闻联播的文字报道，笔者认为中共偷天换日洗脑少年儿童“红心向党”认贼为父。为此，笔者仅以四点看法概括如下：
+
+**一， 中国共产党无权代表中国与中国人**
+
+中共1949年在国民政府迁移到台湾后，临时接管中国但没有经过中国人一人一票选举，从来没有选择一个党派组成政府来管理中国，中共是非法政府，不能代表中国人民。中共的党章党规只能对他的党员有效，中共无权用他的党章党规来管辖非党员。
+
+所有中共用他的党章党规 取代这个国家的宪法与法治都是非法的，换句话就是非法组织独裁统治中国，从1949年10月1日直到今天。
+
+**二，未成年人的监护人是父母**
+
+每一个未成年人的监护人是父母和父母指定的法定监护人，任何人和团体无权取代孩子的 监护权，教育权和知情权。
+
+中共用少先队共青团等“红心向党”的全民洗脑，给全民和少年儿童输共产红魔的行为，等同于第二世界大战前的纳粹德国要德国孩子们认贼为父，  抛弃父母，这是伦理道德沦丧，是红魔大王蚕食人的灵魂而与亲人敌对跟从撒旦魔鬼。
+
+**三，中共对少年儿童的全民洗脑等同二战前的纳粹德国**
+
+二战前的德国希特勒政府，通过宣传以意识形态教导影响德国全部当代未成年人口 。孩子从小被灌输纳粹意识形态，认希特勒为国父胜于自己的父母亲人，强制儿童少年加入各种形式的少年及青年组织，纳粹党教导出儿童对日耳曼民族的仇恨（特别是犹太人）的憎恨。阅读煽动性的宣传刊物 ，受影响的孩子被教导要报告任何可能是不忠的活动或对话。孩子对任何人打小报告。通过这些手段，德国的青少年被教成尊重、遵循，拥抱纳粹党和希特勒的意识形态的群体。
+
+这些宣传对儿童的影响甚至持续到二战结束后。希特拉青年团员唱“德国今天承认我们，明天（就是）整个世界”。直到第二世界大战，盟军占领当局要求德国青年接受去纳粹化程序（一种设计来对抗纳粹宣传的负面影响的理性回归思想）。
+
+中共央视开始对中国孩子铺天盖地的红色洗脑宣传，与二战前期的纳粹德国是何等相似！ 这就是要全国的儿童少年认贼为父，抛弃亲人亲情社会伦理道德而与纳粹红魔拥抱追随红魔一生一世。
+
+**四，中共乱沦思维魔性十足，误民乱世**
+
+中共的邪恶本质用媒体宣传扭曲人的本性， 毁坏一切人类的信誉，不思进取，一切为我中心，世界全欠我的扭曲 思维，用共产及公有制在天上画大饼给民众 充饥，不劳而获，驭民五术以乱世绑架全民的自由思想与肉身躯。要世代为其奴隶，受其奴役。
+
+**总之，**中共发动媒体大肆宣洗脑全民，** **用偷天换日术洗脑少年儿童“红心向党”认贼为父，要儿童少年树起“红心向党”表忠心，认贼为父 ，抛弃自己的肉身父母与亲人，长大后为捍卫红色基因魔鬼控制世界而上战场当炮灰。
+
+中共要中国人民继续浸泡在暗无天日的深井温水中，欲再活100年继续统治！其目的要推进人类命运共同体，扩张全世界，消灭不听从其 掌舵指挥的 人类，中共红魔王的世界大重启计划是否能实现？让我们拭目以待……
+
+央视网https://news.cctv.com/2021/05/30/ARTIqfjmxx1GQb8rRMo5JPYQ210530.shtml?spm=C94212.PBZrLs0D62ld.EKoevbmLqVHC.48
+
+（本文仅代表个人观点，不代表 Gnews 平台）
+
+
 
 0

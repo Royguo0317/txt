@@ -1,40 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 超过200名共和党人向佩洛⻄(Pelosi)施压敦促其进行COVID-19起源调查
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1284301/)
+## 鲁迪·朱利安尼:闫丽梦博士冒着巨大风险说出武汉病毒实验室的真相
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1284355/)
 
-#### 编译:Boxinglady (文拳)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24084204/1127485058_16218407341961n.jpg)图片来自网络
-200多个众议院共和党人正向其⺠主党同僚施加压力，要求他们了解COVID-19的起源并要求共政权对这场大流行病的掩盖行为负责。
+鲁迪·朱利安尼 (前纽约市长)： 闫博士冒着巨大风险说出武汉病毒实验室的真相 【转闫博士推文：2020年9月10日，在曼哈顿朱利安尼市长的公寓里举行了一次历史性会议。 玛丽亚博士，班农先生和路德先生都是英雄，他们冒着很大风险告诉世界新冠病毒 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 的真相！ [#超限生物武器](https://twitter.com/hashtag/%E8%B6%85%E9%99%90%E7%94%9F%E7%89%A9%E6%AD%A6%E5%99%A8?src=hashtag_click) [#中共撒谎人民死亡](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E6%92%92%E8%B0%8E%E4%BA%BA%E6%B0%91%E6%AD%BB%E4%BA%A1?src=hashtag_click)】
 
-国会议员说，佩洛⻄“错误地宣称”“对中共责任的质疑”是“转移视线”，可能是指佩洛⻄自去年五月发表的讲话，她把当时川普总统指责中共对病毒负责的话描述为“有趣的转移视线”。
 
-“越来越多的证据表明，这种大流行始于中共国实验室，而中共对此进行了掩盖。如果真是这样，那么中共就要为将近60万美国人和全世界数百万人的死亡负责。”
 
-他们继续说:“每个失去某人的美国家庭都应该得到关于这种可怕病毒起源的答案，”他补充说，“众议院⺠主党人一直拒绝分派调查资源来获得这些答案，这是对这些家人们的冒犯。”
+> Dr Yan took great risk to tell the truth about the Wuhan Lab of Virology [https://t.co/dhw7loIMZ2](https://t.co/dhw7loIMZ2)
+> — Rudy W. Giuliani (@RudyGiuliani) [May 30, 2021](https://twitter.com/RudyGiuliani/status/1399030336915443716?ref_src=twsrc%5Etfw)
 
-“中共国无法摆脱这一点。美国人应该得到答案。”斯卡利塞斯(Scalise)在5月28日的推文中写道。
-议员们引用了越来越多的证据，表明该病毒可能已经从武汉的一个实验室泄漏了，但这一说法被许多媒体和科学家们最初视为阴谋论而驳斥。
 
-乔·拜登(Joe Biden)总统的首席医学顾问安东尼·福奇(Anthony Fauci)博士最近支持了 更深入的病毒探测，并表示“肯定存在实验室泄漏的可能性”，扭转了他在2020年5月发表的 评论。
 
-美国卫生和公共服务部⻓Xavier Becerra虽然未直接提及中共国或武汉，但已呼吁世界卫生 组织(WHO)开展“透明，基于科学的第二阶段COVID起源研究”，以全面评估病毒和爆发 初期。”
+鲁迪·朱利安尼 (前纽约市长)： 为什么拜登、民主党、大科技巨头和大众媒体均谴责这些一直在说病毒来自武汉实验室的人？
 
-立法者说:“要让中共负责，”他们需要“获得国会调查员可用的全部工具，包括传票和强迫主 要证人作证的权力。”
 
-他们还指出，北京一直拒绝共享原始数据和武汉实验室(WIV)记录，他们说这与中共的欺 骗模式相符，其中包括驱逐记者，提供COVID-19的虚假信息和让举报人沉默。
 
-周二，一位中共国代表告诉世卫组织大会，原产地追踪的“中国部分”“已经完成”，并建议调 查人员将目光投向别处。尽管中国人否认，但寻找大流行病起源的压力仍在继续增加。
+> Why did Biden, the Democrat party, Big Tech and Mass Media condemn these who have been saying virus emerged from Wuhan Lab?
+> — Rudy W. Giuliani (@RudyGiuliani) [May 30, 2021](https://twitter.com/RudyGiuliani/status/1398936129102036994?ref_src=twsrc%5Etfw)
 
-拜登在周三的罕⻅声明中表示，他已下令对这种病毒的起源进行情报调查，并希望在90天内 提交报告。
 
-新闻来源:[https://www.zerohedge.com/political/over-200-republicans-press-pelosi-back- covid-19-origin-probe-hold-ccp-accountable?
-utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+zerohedge%2Ffe ed+%28zero+hedge+- +on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29](https://www.zerohedge.com/political/over-200-republicans-press-pelosi-back-%20covid-19-origin-probe-hold-ccp-accountable?
-utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffe%20ed+%28zero+hedge+-%20+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
-本文仅代表个人观点，不代表 Gnews 平台
+参议员泰德·克鲁兹： 曾经有众多英勇的吹哨人，但是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府逮捕了他们，让他们被消失了。 如果不是因为 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的掩盖，[#新冠](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0?src=hashtag_click) 能维持在一个地域性的爆发是非常有可能的，而不是变成一场全球大流行。（附上他接受采访对这件事的阐述）
 
-校对发布：紫橄榄
+
+
+> There were multiple heroic whistleblowers but the Chinese government arrested them and disappeared them. 
+> 
+> If it were not for the CCP's cover up, there's a very real possibility that COVID-19 could have been contained as a regional outbreak instead of becoming a global pandemic. [pic.twitter.com/J47BMNVU0D](https://t.co/J47BMNVU0D)
+> — Ted Cruz (@tedcruz) [May 30, 2021](https://twitter.com/tedcruz/status/1399015742956318721?ref_src=twsrc%5Etfw)
+
+
+
+
 
 0

@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】拜登提交6万亿美元的2022财年预算
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1284424/)
+## 【圣城传声筒】香港的新模式
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1284527/)
 
-作者：香草山健身部 Jack Li文阳
+香草山香港部 自由鸟
 
 
 
@@ -12,38 +12,28 @@
 
 
 
-美国总统拜登5月28日提出了总值6万亿美元的2022财年预算，其中将大幅增加联邦开支。预算案上交给国会后，将由国会审核修改通过。拜登将其预算的重点放在了部分优先领域，包括基础设施、教育、研究、公共卫生、带薪休假和儿童保育等。
+国安法在港实施后，新香港怎样落实“剥夺政治权利终身”这个刑罚？这个大陆式的刑罚又怎样在港执行？这几个月，笔者读了不少因为初选案或者其它莫须有的国安法案，还读了被还押者的亲笔信。读起来一字一泪。之前还是慷慨激昂，现在就都纷纷交代自己要退出政坛、主动退党，解散组织，关闭社交媒体平台专号，不再参与政治，只希望做回普通人，陪伴家人过平淡日子。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30213212/WhatsApp-Image-2021-05-30-at-4.28.33-PM.jpeg)
+几个月的差别自然是因为国安法的横蛮远超任何人能够想像。惜日即使有心理准备、承担政治后果的人，都不会料到国安法可以这么随便地捏造任何罪名，可以仼意拘捕仼何人。如果被捕者抗拒从严，随便一个罪名都可能终身监禁，甚至死在大陆监狱里，家人亲友也可能因为当事人不合作或者家产会被所谓依法充公。亦或随时可以在法庭之外，专制政权的其他专政机器可以做手脚，随意折磨人，把一个人的意志都消磨掉。还要写悔过书，要求以后不违反国安法。换了哪一个当事人，作出的任何选择、决定都应该要百分百理解同尊重， 这就是新香港恶劣的现实环境。
 
-据报道，这次提出的预案包括了美国就业计划和美国家庭计划。除了先前制定的4万亿美元的基础设施、就业和经济提案，预算中还包括了额外的资金投入项目，包括投资专注于癌症等疾病的新型卫生研究机构，解决枪支暴力和气候危机，帮助无家可归者和遏制药物泛滥等。
+从前读过历史，现在亲历其境自然，更加能够代入其中。为何之前对当权政府敢于直斥其非，就算判监出来亦都继续发声？这说明，之前依然存在言论自由，还不至于完全丧失当权者的道德底线，依然存在一定的人性法治。但到现在就不得不改变了。身为反对派们已往事并不如烟，读起来令人心碎，特别是知道他们前半生精彩，更加令人慨叹后半生的无奈。更恐怖的是，中共专制今日又捲土重来，发生在已贵为国际金融中心、原本自由度最高的香港。不能不令人叹息。
 
-拜登要求国会为2022财政年度的可自由支配非国防项目拨款9320亿美元，比去年大幅增加，并提议提供7560亿美元的国防资金，这也比去年有所增长。
+这就是所谓的中共管治香港的新模式。
+![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+编辑/校对/发稿：正义的小新
 
-这份拜登上任以来的首份年度预算，其规模创下二战后最高的支出水平。
-
-拜登总统雄心勃勃的治国计划包括：
-
-提振疫情下的美国工业以更好地在全球竞争；大力投入美国已显落后的基础设施建设；并增加教育与科研的投入，对弥补中共渗透资金的退潮留下的缺口，尤为必要；
-
-在公共卫生方面，加大对抗中共病毒的投入，完善医疗卫生体系；
-
-在民生方面，一如既往的民主党做派，用高税收来支持社会保障体系；
-
-另外，在国防方面的投入，被一些议员诟病其在预算中所占比例偏低，可能会被调整。
-
-乱世需用猛招，现在用平常眼光来评价这份天价的预算，为时尚早。但从拜登总统上任后成熟老练与效果来看，他的治国预算大棋，同样值得期待。
-
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24221039/5_May-1-556x720-2-3.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-+1
+![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+0

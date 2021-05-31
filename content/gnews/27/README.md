@@ -1,21 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 越南出现超強混合病毒，越中边境地区感染人数激增
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1284219/)
+## 超过200名共和党人向佩洛⻄(Pelosi)施压敦促其进行COVID-19起源调查
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1284301/)
 
-加拿大多伦多枫叶农场 向真
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30171209/yahoo1-3.jpg)*图片来源：Yahoo.com*
-据布莱巴特新闻网5月30日报道，越南卫生部长阮青龙29日宣布，越南国内发现中共病毒新变异毒株的确诊病例。阮青龙称，这是印度型毒株和英国型毒株的混合体，这种由两种突变毒株结合产生的变异混合病毒，已经被证实在空气中的传播非常迅速，传染性更强，“咽喉液中病毒浓度迅速增加，并强烈地传播到周围环境”。阮青龙部长没有介绍这种新型混合毒株已扩散到何种程度，但他表示将很快宣布统计数据。
+#### 编译:Boxinglady (文拳)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24084204/1127485058_16218407341961n.jpg)图片来自网络
+200多个众议院共和党人正向其⺠主党同僚施加压力，要求他们了解COVID-19的起源并要求共政权对这场大流行病的掩盖行为负责。
 
-值得注意的是，越南靠近中共国的边境地区即越南北部，在4月下旬最早爆发疫情，而且感染人数一直在激增。另外，在越南至少发现了7种病毒，在短短的一个多月的时间内，就有这么多不同病毒同时进入越南，而且其中的两种毒株竟然神奇结合成传染性（其毒性未见披露）更强的新病毒，这是自然而然的现象，还是中共对越南的故意伤害？
+国会议员说，佩洛⻄“错误地宣称”“对中共责任的质疑”是“转移视线”，可能是指佩洛⻄自去年五月发表的讲话，她把当时川普总统指责中共对病毒负责的话描述为“有趣的转移视线”。
 
-此前越南和台湾一样，是应对中共病毒最成功的优等生，没有之一。就地缘政治而言，台湾、越南、马来西亚、新加坡等在西太平洋的战略地位最为重要，在马六甲海峡-南海-台海-东海这条当今全世界最重要的航线上互为犄角，这些国家和台湾一样最终都要选边站投靠美国，中共先下手为强向这些国家投毒是极有可能的。最近，新加坡、马来西亚、越南和台湾接连爆发来势凶猛的疫情，真的是巧合吗？
+“越来越多的证据表明，这种大流行始于中共国实验室，而中共对此进行了掩盖。如果真是这样，那么中共就要为将近60万美国人和全世界数百万人的死亡负责。”
 
-[原文链接](https://www.breitbart.com/europe/2021/05/29/vietnam-claims-to-have-identified-mutant-coronavirus-combining-british-and-indian-variants/)
+他们继续说:“每个失去某人的美国家庭都应该得到关于这种可怕病毒起源的答案，”他补充说，“众议院⺠主党人一直拒绝分派调查资源来获得这些答案，这是对这些家人们的冒犯。”
 
-* * *
+“中共国无法摆脱这一点。美国人应该得到答案。”斯卡利塞斯(Scalise)在5月28日的推文中写道。
+议员们引用了越来越多的证据，表明该病毒可能已经从武汉的一个实验室泄漏了，但这一说法被许多媒体和科学家们最初视为阴谋论而驳斥。
 
-编辑 发稿 云起时
+乔·拜登(Joe Biden)总统的首席医学顾问安东尼·福奇(Anthony Fauci)博士最近支持了 更深入的病毒探测，并表示“肯定存在实验室泄漏的可能性”，扭转了他在2020年5月发表的 评论。
 
-+1
+美国卫生和公共服务部⻓Xavier Becerra虽然未直接提及中共国或武汉，但已呼吁世界卫生 组织(WHO)开展“透明，基于科学的第二阶段COVID起源研究”，以全面评估病毒和爆发 初期。”
+
+立法者说:“要让中共负责，”他们需要“获得国会调查员可用的全部工具，包括传票和强迫主 要证人作证的权力。”
+
+他们还指出，北京一直拒绝共享原始数据和武汉实验室(WIV)记录，他们说这与中共的欺 骗模式相符，其中包括驱逐记者，提供COVID-19的虚假信息和让举报人沉默。
+
+周二，一位中共国代表告诉世卫组织大会，原产地追踪的“中国部分”“已经完成”，并建议调 查人员将目光投向别处。尽管中国人否认，但寻找大流行病起源的压力仍在继续增加。
+
+拜登在周三的罕⻅声明中表示，他已下令对这种病毒的起源进行情报调查，并希望在90天内 提交报告。
+
+新闻来源:[https://www.zerohedge.com/political/over-200-republicans-press-pelosi-back- covid-19-origin-probe-hold-ccp-accountable?
+utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+zerohedge%2Ffe ed+%28zero+hedge+- +on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29](https://www.zerohedge.com/political/over-200-republicans-press-pelosi-back-%20covid-19-origin-probe-hold-ccp-accountable?
+utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffe%20ed+%28zero+hedge+-%20+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+本文仅代表个人观点，不代表 Gnews 平台
+
+校对发布：紫橄榄
+
+0

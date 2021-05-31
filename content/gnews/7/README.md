@@ -1,41 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共当局促喜马拉雅放弃赴美IPO改香港上市
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1284430/)
+## 章家敦宣称中共国故意传播Covid-19，美国应与中共国脱离联系
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1284474/)
 
-作者：香草山健身部 Jack Li文阳
+**字幕内容：**
 
+Gordon Chang
+章家敦
 
+No matter how this disease start it
+不管这种疾病是如何开始的
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
+We know that Xi Jinping deliberately spread this beyond China’s borders
+我们知道习近平故意将其传播到中共国之外
 
+they lied about human-to-human transmission ability
+他们对病毒人传人的传播力撒谎
 
+they also force countries to take arrivals from China
+他们当时还迫使各国接受来自中国的旅客
 
-三位知情消息人士说，中共国正在敦促国内最大在线音频平台—喜马拉雅放弃赴美国上市计划，改为去香港上市。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30205814/Untitled-design-61.png)
-根据路透社报道，知情人士表示，喜马拉雅计划本月赴纽约上市，最近包括中共国国家互联网信息办公室在内的中共国监管机构敦促该公司取消赴美上市计划，改为去香港上市。消息人士称，喜马拉雅仍在与国家互联网信息办公室进行商谈。
+while they’re locking down their own country
+而他们封锁自己的国家
 
-美国国会众议院通过的《外国公司问责法案》，要求外国发行人连续三年不能满足美国上市公司会计监督委员会（PCAOB）对会计事务检查要求的，禁止其证券在美国交易，大量的中概股将被强制从美国证券市场退市。
+so this was deliberate spread
+所以这就是故意传播
 
-据报道，受中概股在美国市场跌跌不休，大量的中概股股价被腰斩的影响，喜马拉雅与另外两家公司——哈啰出行和七牛云正暂停了美国的上市计划，纷纷推迟了接受美国投资者的认购。尽管这三家公司已经向美国SEC递交了上市前的书面文件。
+and that has great implications for how the Biden administration
+这对拜登政府的工作产生重大影响
 
-到美国上市圈钱，是近二十年来中资公司的流行做法。但时过境迁，在美国的中概股全部面临着被退市的风险。被勒令退市的公司，要偿还美国投资者的投资款项。如果涉嫌数据造假，甚至会面临投资者的集体诉讼。如果其股价跌破发行价，再扣除金融公司的各项费用，上市公司将面临巨大的资金链断裂的风险，甚至会影响到公司的生存问题。
+and everybody else around the world should be react
+世界各地的所有人都应该做出反应
 
-中共替喜马拉雅公司着想，可谓用心良苦。况且，在中共的眼里香港的韭菜也是韭菜，还算肥壮。对于从美国退市和准备美股IPO的中资企业，既然不能去美国上市赚美元，改道香港也是眼下唯一的选择。
+because we talked about, oh, let’s cooperate
+因为我们讨论，噢，让我们与
 
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24221039/5_May-1-556x720-2-3.jpeg)
-**更多资讯，更多关注**
+with the Chinese to prevent the next pandemic
+中共合作以防止下一次大流行
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+well you can’t cooperate with a mass murderer
+好吧，你不能与大屠杀犯罪者合作
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+which is really what China is right now
+这就是中共国现在的身份
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+and that means we need to cut our ties with China
+这意味着我们需要切断与中共国的联系
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+we need to make sure there are no technical cooperation agreements
+我们需要确保没有技术合作协议
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+needs to get our pharmaceutical industry off of Chinese soil
+需要使我们的制药业离开中共国的国土
+
+and we need to stop enriching China with trade and investment
+而且我们需要停止通过贸易和投资来使中共国变的富足
+
+because it’s very difficult for us to realize the maliciousness in the evil that we have that just occurred
+因为我们很难意识到刚刚发生的恶魔的恶意
+
+and until we do that, we are leaving ourselves open for the next pathogen from China which probably will be that civilization color that I talked about which means that the ex-istence of our country is at stake
+除非我们这样做，否则我们就会为来自中共国的下一次攻击敞开大门
+
+这可能是我所谈到的文明色彩，这意味着我们国家的生存处于危险之中
+
+if we don’t understand what China did
+如果我们不了解中共国做了什么
+
+we can’t defend ourselves
+我们不能保卫自己
+
+if we continue our relationship with China
+如果我们继续与中共国的关系
+
+we’re basically saying it’s all right to kill millions of Americans in the future, because it’s acceptable
+我们基本上是在说，在未来杀死数百万美国人是可以的，是可以接受的
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接 :**
+
+[https://twitter.com/realamvoice/status/1397211131186454529?s=24](https://twitter.com/realamvoice/status/1397211131186454529?s=24)
+
+英听校：康州盘古农场 – Layka
+翻译：康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

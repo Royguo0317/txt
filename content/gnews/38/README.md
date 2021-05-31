@@ -1,43 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点推荐】英国、挪威顶级科学家发现中共CCP病毒由人工制造，并试图掩盖痕迹的实锤证据
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1284031/)
+## 慧眼看世界20210530
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1284109/)
 
-加拿大温哥华扬帆农场 – Michael.Tonny
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30140719/CCPMichael.Tonny-20210530-1.png)图片来源：rokna.net
-2021年5月30日，英国《每日邮报》发表题为[EXCLUSIVE: COVID-19 ‘has NO credible natural ancestor’ and WAS created by Chinese scientists who then tried to cover their tracks with ‘retro-engineering’ to make it seem like it naturally arose from bats, explosive new study claims](https://www.dailymail.co.uk/news/article-9629563/Chinese-scientists-created-COVID-19-lab-tried-cover-tracks-new-study-claims.html)的独家重磅新闻。英国达克利什教授和挪威索伦森博士二位科学家即将发表在剑桥《生物物理学发现季刊》（[Quarterly Review of Biophysics Discovery](https://www.cambridge.org/core/journals/quarterly-reviews-of-biophysics)）的22页研究论文中指出，没有任何可信的证据表明COVID-19（中共CCP病毒）来源于自然。在研发疫苗时，他们发现了中共CCP病毒是由中共国科学家制造的确凿证据。中共国科学家试图用「逆向工程」掩盖人工制造痕迹，使其看起来像是从蝙蝠自然产生，但留下了「独特的指纹」。
+作者：2020喜马拉雅
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30150112/001-3-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30150134/002-2-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151126/003-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151131/004-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151211/005-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151217/006-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151220/007-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151255/008-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151300/009-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151306/010-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151306/011.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151319/012-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151341/013.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151350/014.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151356/015.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151401/016.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151406/017.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151409/018.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151419/019.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151426/020-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151448/021-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151448/022.jpg)
+审核：神奇四侠；发稿：神奇四侠
 
-两位科学家的关键证据是，他们在中共CCP病毒的「棘蛋白」上发现4种并列的胺基酸，这些胺基酸都带有正电荷，会如磁铁般紧紧吸附人体細胞带负电荷的部分，因此极具传染性。然而物理定律显示，带正电的胺基酸会相互排斥，自然界生物体中极少见到连续带有3个正电荷的并列胺基酸，连续4个并列更是「极不可能」。他们由此认为，新冠病毒并非来自自然。
-
-**评论：**
-
-达格利什（Angus Dalgleish） 和索伦森（Birger Sørensen）二位是世界顶尖的科学家，权威性毋庸置疑。
-
-根据维基百科介绍，达格利什[Angus  Dalgleish](https://en.wikipedia.org/wiki/Angus_Dalgleish) 是英国科学院医学科学院院士，伦敦圣乔治大学的肿瘤学教授，他是第一个创造了有效的“艾滋病毒疫苗（HIV/AIDS），该疫苗用于治疗确诊患者并允许他们停药数月。他在 HIV病毒学方面做出了开创性的观察。特别是，他将CD4确定为人类 HIV 的主要接受者，并提出了非洲Slim疾病与 HIV 感染之间联系的第一份报告。他还确定了感染HTLV-1病毒的患者的免疫反应与热带痉挛性轻瘫的密切关系。
-
-病毒学家索伦森（Birger Sørensen）是Immunor制药公司的董事长，该公司开发了一种名为 Biovacc-19的冠状病毒（中共CCP病毒）候选疫苗。达克利什教授还拥有该公司的股票期权。
-
-通过二位科学家的论文，他们在中共CCP病毒独特的「棘蛋白」上研究发现了4种并列的带正电荷胺基酸，大大增加了病毒的传播能力，令它变成对人体致命且高度传播的病毒，而自然演化的病毒中，要有4种并列的带正电荷胺基酸极其不可能。说明中共CCP病毒是由人为操控，病毒是自然演化而成的可能性非常非常小。
-
-在二位科学家的论文中，展示了非常有说服力的两张图。一张图显示了两位科学家识别的六个“指纹”，他们说这表明该病毒一定是在实验室中制造的；第二张图显示了在 SARS-Cov-2 尖峰上发现的一排四个胺基酸如何带有正电荷，像磁铁一样附着在人体细胞上，使病毒具有极强的传染性。
-
-物理定律意味着你不能连续有四个带正电的氨基酸，获得它的唯一方法是人工制造它，SARS-Cov-2 的这些特征是“独特的指纹”，表明有目的的操纵，它是自然过程结果的可能性非常小。
-
-事实上，二位顶尖科学家的论文一直受到打压，直到美国近日敦促世卫组织就新冠病毒源头展开第二阶段独立调查，美国总統拜登要求情报部门彻查病毒源头，并在九十天内提交报告后，二位科学家长达22页的研究论文才得以在剑桥大学出版的《生物物理学发现季刊》（Quarterly Review of Biophysics Discovery）上发表。相信二位科学家的论文将会对世界追查中共CCP病毒源头带来重要线索，甚至法庭审判的重要依据。
-
-在周三的美国参议院听证会上，白宫首席医学顾问安东尼·福奇博士承认，他不确定美国对武汉实验室研究人员的资助是否被用于有争议和风险的病毒功能增强实验，也就是福奇已经变相承认武毒所完全可能进行病毒功能增加实验。英挪二位顶尖科学家的研究成果，无疑是最直接的科学结论。
-
-《华尔街日报》（The Wall Street Journal）5月23日援引美国情报报告称，2019年11月，武汉病毒研究所的三名研究人员“出现严重病情”，并被送医治疗。这比中国报告首例新冠肺炎（中共CCP病毒）病例早一个月。
-
-无论是病毒传播轨迹还是英挪科学家的研究成果，都非常明确的证明，中共CCP病毒并非来源于自然，而是由武毒所人工制造并利用逆向工程掩盖痕迹。接下来，无论中共CCP、中共外交部战狗们如何搬起石头、如何狡辩，最终只会砸向中共武毒所、中南坑自己，中共CCP被全世界团灭的日子不会太远！
-
-截止2021年5月30日17:20，中共CCP病毒感染至少1.7亿人，已经至少有355万人被夺去无辜的生命。以中共CCP的流氓习性，如果世界不能立即对其采取有效措施，中共CCP投放更为致命、更具传播性的病毒完全可能。消灭中共CCP是彻底解决中共病毒继续祸害全人类的唯一路径！
-
-（免责声明：本文只代表作者观点，跟GNEWS平台无关）
-
-编辑/审核： 文敏
-
-校对/发稿：Shuang
-
-+2
+0

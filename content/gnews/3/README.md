@@ -1,39 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】香港的新模式
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1284527/)
+## 新西兰将在中澳贸易争端中支持澳大利亚
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1284563/)
 
-香草山香港部 自由鸟
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30223936/E-12.jpg)alchetron.com
+《悉尼先驱报》5月30日报道，新西兰将支持澳大利亚与北京就大麦进口征收高额关税的持续贸易争端，这是在应对中共经济胁迫方面实现更大区域团结的关键一步。
 
+新西兰决定在世贸组织(WTO)案中充当第三方，与此同时，澳大利亚总理斯科特·莫里森(Scott Morrison)5月30日访问皇后区，与新西兰总理杰辛达·阿德恩(Jacinda Ardern)举行为期两天的会晤。此次会晤将以中共及其在印度洋-太平洋地区日益增长的影响力为主要议题。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
+新西兰贸易部长达米安·奥康纳(Damien O ‘Connor)表示，政府尚未被要求加入这一行动，但会参与，因为这一争端提出了对多边贸易体系的有效运作具有重要意义的系统性问题。
 
+堪培拉和北京之间的外交关系处于几十年来的最低水平，中共对澳大利亚征收了超过200亿美元的关税，以回应澳大利亚的一系列举动，包括呼吁对中共病毒起源进行全球调查，以及禁止中共电信巨头华为参与5G的推出。
 
+北京方面对澳大利亚产品征收了一系列关税，其中包括对大麦征收80%的关税，中共表示，澳大利亚以低于成本的价格向中共国倾销大麦损害了国内生产商的利益。去年12月，澳大利亚将这一争端提交世贸组织，世贸组织5月28日同意成立一个争端解决小组。
 
-国安法在港实施后，新香港怎样落实“剥夺政治权利终身”这个刑罚？这个大陆式的刑罚又怎样在港执行？这几个月，笔者读了不少因为初选案或者其它莫须有的国安法案，还读了被还押者的亲笔信。读起来一字一泪。之前还是慷慨激昂，现在就都纷纷交代自己要退出政坛、主动退党，解散组织，关闭社交媒体平台专号，不再参与政治，只希望做回普通人，陪伴家人过平淡日子。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30213212/WhatsApp-Image-2021-05-30-at-4.28.33-PM.jpeg)
-几个月的差别自然是因为国安法的横蛮远超任何人能够想像。惜日即使有心理准备、承担政治后果的人，都不会料到国安法可以这么随便地捏造任何罪名，可以仼意拘捕仼何人。如果被捕者抗拒从严，随便一个罪名都可能终身监禁，甚至死在大陆监狱里，家人亲友也可能因为当事人不合作或者家产会被所谓依法充公。亦或随时可以在法庭之外，专制政权的其他专政机器可以做手脚，随意折磨人，把一个人的意志都消磨掉。还要写悔过书，要求以后不违反国安法。换了哪一个当事人，作出的任何选择、决定都应该要百分百理解同尊重， 这就是新香港恶劣的现实环境。
+奥康纳表示，“新西兰以第三方身份参与这场争端，因为它提出了对基于规则的多边贸易体系的有效运行具有重要意义的系统性问题。”他说，公平适用贸易规则对新西兰及其出口商很重要，多年来该国已参与了60多起此类争端。
 
-从前读过历史，现在亲历其境自然，更加能够代入其中。为何之前对当权政府敢于直斥其非，就算判监出来亦都继续发声？这说明，之前依然存在言论自由，还不至于完全丧失当权者的道德底线，依然存在一定的人性法治。但到现在就不得不改变了。身为反对派们已往事并不如烟，读起来令人心碎，特别是知道他们前半生精彩，更加令人慨叹后半生的无奈。更恐怖的是，中共专制今日又捲土重来，发生在已贵为国际金融中心、原本自由度最高的香港。不能不令人叹息。
+莫里森将于周日下午抵达新西兰，中共的崛起及其在该地区的影响力预计将成为重要的讨论话题。莫里森在出访前发表的一份声明中表示，“阿德恩总理和我能够面对面会晤，这一简单事实突显了我们两国在控制疫情蔓延方面取得的成功。”
 
-这就是所谓的中共管治香港的新模式。
-![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-编辑/校对/发稿：正义的小新
+他说，“我们两国拥有共同的价值观和利益，我们希望我们这个大家庭在该地区拥有同样的东西。这些会谈将是我们继续努力支持一个开放、包容和弹性的印太地区的一个重要机会，主权国家可以在不受胁迫的情况下追求自己的利益。”
 
-**更多资讯，更多关注**
+在如何应对中共国日益强硬的问题上，新西兰部长最近发表的几项公开声明令莫里森政府感到失望。去年12月，新西兰外交部长纳纳亚·马胡塔(Nanaia Mahuta)提出为澳大利亚和中共国之间的停火协议进行调解，并表示双方需要“在一些双方目前意见相左的领域做出让步”。几个月后，奥康纳先生建议澳大利亚应该以更多的“尊重”和“外交”来对待中共国。最近几周，新西兰政府的言辞发生了转变称，新西兰出口商应该寻求贸易多元化。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+马胡塔指出，“显然，我们不能忽视澳大利亚与中共国的关系。如果它们靠近风暴眼，我们必须合理地问自己——风暴离我们越来越近可能只是时间问题。”
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+继欧盟冻结中欧贸易协议，世界各国开始追溯中共病毒来源之际，新西兰这个曾经作为五眼联盟中唯一一个拒绝与中共交恶的国家开始转向。
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+参考链接：
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[https://www.smh.com.au/politics/federal/new-zealand-to-side-with-australia-in-beijing-barley-tariff-dispute-20210530-p57wfc.html](https://www.smh.com.au/politics/federal/new-zealand-to-side-with-australia-in-beijing-barley-tariff-dispute-20210530-p57wfc.html)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-0
++1

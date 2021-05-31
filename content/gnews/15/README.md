@@ -1,38 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鲁迪·朱利安尼:闫丽梦博士冒着巨大风险说出武汉病毒实验室的真相
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1284355/)
+## 【热点播报】拜登提交6万亿美元的2022财年预算
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1284424/)
 
-鲁迪·朱利安尼 (前纽约市长)： 闫博士冒着巨大风险说出武汉病毒实验室的真相 【转闫博士推文：2020年9月10日，在曼哈顿朱利安尼市长的公寓里举行了一次历史性会议。 玛丽亚博士，班农先生和路德先生都是英雄，他们冒着很大风险告诉世界新冠病毒 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 的真相！ [#超限生物武器](https://twitter.com/hashtag/%E8%B6%85%E9%99%90%E7%94%9F%E7%89%A9%E6%AD%A6%E5%99%A8?src=hashtag_click) [#中共撒谎人民死亡](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E6%92%92%E8%B0%8E%E4%BA%BA%E6%B0%91%E6%AD%BB%E4%BA%A1?src=hashtag_click)】
-
-
-
-> Dr Yan took great risk to tell the truth about the Wuhan Lab of Virology [https://t.co/dhw7loIMZ2](https://t.co/dhw7loIMZ2)
-> — Rudy W. Giuliani (@RudyGiuliani) [May 30, 2021](https://twitter.com/RudyGiuliani/status/1399030336915443716?ref_src=twsrc%5Etfw)
+作者：香草山健身部 Jack Li文阳
 
 
 
-鲁迪·朱利安尼 (前纽约市长)： 为什么拜登、民主党、大科技巨头和大众媒体均谴责这些一直在说病毒来自武汉实验室的人？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
 
 
 
-> Why did Biden, the Democrat party, Big Tech and Mass Media condemn these who have been saying virus emerged from Wuhan Lab?
-> — Rudy W. Giuliani (@RudyGiuliani) [May 30, 2021](https://twitter.com/RudyGiuliani/status/1398936129102036994?ref_src=twsrc%5Etfw)
+美国总统拜登5月28日提出了总值6万亿美元的2022财年预算，其中将大幅增加联邦开支。预算案上交给国会后，将由国会审核修改通过。拜登将其预算的重点放在了部分优先领域，包括基础设施、教育、研究、公共卫生、带薪休假和儿童保育等。
 
+据报道，这次提出的预案包括了美国就业计划和美国家庭计划。除了先前制定的4万亿美元的基础设施、就业和经济提案，预算中还包括了额外的资金投入项目，包括投资专注于癌症等疾病的新型卫生研究机构，解决枪支暴力和气候危机，帮助无家可归者和遏制药物泛滥等。
 
+拜登要求国会为2022财政年度的可自由支配非国防项目拨款9320亿美元，比去年大幅增加，并提议提供7560亿美元的国防资金，这也比去年有所增长。
 
-参议员泰德·克鲁兹： 曾经有众多英勇的吹哨人，但是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府逮捕了他们，让他们被消失了。 如果不是因为 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的掩盖，[#新冠](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0?src=hashtag_click) 能维持在一个地域性的爆发是非常有可能的，而不是变成一场全球大流行。（附上他接受采访对这件事的阐述）
+这份拜登上任以来的首份年度预算，其规模创下二战后最高的支出水平。
 
+拜登总统雄心勃勃的治国计划包括：
 
+提振疫情下的美国工业以更好地在全球竞争；大力投入美国已显落后的基础设施建设；并增加教育与科研的投入，对弥补中共渗透资金的退潮留下的缺口，尤为必要；
 
-> There were multiple heroic whistleblowers but the Chinese government arrested them and disappeared them. 
-> 
-> If it were not for the CCP's cover up, there's a very real possibility that COVID-19 could have been contained as a regional outbreak instead of becoming a global pandemic. [pic.twitter.com/J47BMNVU0D](https://t.co/J47BMNVU0D)
-> — Ted Cruz (@tedcruz) [May 30, 2021](https://twitter.com/tedcruz/status/1399015742956318721?ref_src=twsrc%5Etfw)
+在公共卫生方面，加大对抗中共病毒的投入，完善医疗卫生体系；
 
+在民生方面，一如既往的民主党做派，用高税收来支持社会保障体系；
 
+另外，在国防方面的投入，被一些议员诟病其在预算中所占比例偏低，可能会被调整。
 
+乱世需用猛招，现在用平常眼光来评价这份天价的预算，为时尚早。但从拜登总统上任后成熟老练与效果来看，他的治国预算大棋，同样值得期待。
 
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24221039/5_May-1-556x720-2-3.jpeg)
+**更多资讯，更多关注**
 
-0
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1
