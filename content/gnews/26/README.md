@@ -1,29 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0530V北京恢复居住证制将使中国变成天下最大的监狱
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1285131/)
+## 台湾希望与澳洲签订自由贸易协定
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1285153/)
 
-编辑整理：
+翻译与评论：Shirley
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31040601/311.png)图片来自网络
+台湾正在推动与澳洲签订自由贸易协定，因为在该地区军事紧张局势加剧的情况下，台湾正努力减少中共国对其的影响。
 
-纽约香草山农场：月野兔；日本东京方舟农场：黎明之前
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31034708/W020140605039932458777_%E5%89%AF%E6%9C%AC.jpg)
-据[20210530 文贵直播：欧中协议被冻结的重大意义；中共将被WTO，世界银行，IMF踢出；法国情报局曝出孟宏伟被消失的真相；欧美通过香港P3实验室向中共提供资金；中共将彻底灭亡于2024，2025](https://gtv.org/video/id=60b38ee8f6ff4b33fb95c2fa)时间点30：47——
+台北驻布里斯班的经济文化办事处的新任总干事陶先生（Edward Tao）在一次独家采访中说，自由贸易协定对于被中共国“经济欺凌”的台湾和澳洲这两个国家都有意义。澳洲贸易、旅游和投资部长特汉（Dan Tehan）则拒绝发表评论。
 
-波若海（战友名字）：请文贵先生讲一下中共北京市恢复居住证制度是怎么回事儿？ 这个非常简单，就是回到文化大革命2.0，看看文化大革命的历史就知道了。马上实行计划制、分配制，就是再次地把老百姓把人圈在指定的地方，让你当奴隶，把中国变成一个天下最大的监狱和劳改营，根据你的老少有别、男女有别、身体的好坏有别、文化有别，根据当地你不同的环境把你圈起来，从这个村到那个村未来都要实行签注制度，签注就是签证，你从这个村里再出去到镇上去，你都得签，就这么简单，一定的！只要共产党在，一定的，记住我的话。
+台湾是澳洲的第六大出口市场，每年有大量的煤炭、液化天然气和农牧产品运往这个岛国。澳洲则从台湾购买电子产品和汽车零部件等，与台湾的贸易顺差约为90亿美元，并且台湾与澳洲的贸易额在未来几年内还有望增加。
 
-接上文——
+由于同宗同族的语言和文化背景的原因，台湾的很多公司， 特别是科技行业的公司，都向西去了中国。可是最近几年习神的战狼外交以及要改变现有国际秩序的野心，让全世界都看到了中共国的危险，各国的公司都在逐渐撤出中共国。
 
-[郭先生5月30日直播前播放视频文字汇总](https://gnews.org/zh-hans/1285030/)
+台湾也在此时修订了策略，转为“向南”，希望加强与东南亚、南亚和大洋洲18个国家之间的经济和贸易关系。而且台湾也在寻求澳洲的支持，希望加入泛太平洋伙伴关系，这是澳洲、文莱、加拿大、智利、日本、马来西亚、墨西哥、秘鲁、新西兰、新加坡和越南之间的自由贸易协定。
 
-[郭先生0530I中国古编钟折射出来的中国历史之伟大之深奥](https://gnews.org/zh-hans/1285048/)
+堪培拉政府目前正专注于与英国和欧盟的自贸协定谈判，同时也正在研究与以色列和欧洲自由贸易协定的范围。
 
-[郭先生0530II中国长袍之妙让男人浑然一体让女人亭亭玉立](https://gnews.org/zh-hans/1285053/)
+如果上述的东南亚、南亚、大洋洲、泛太平洋伙伴关系国家、英国、欧盟以及以色列等美国盟友都联合起来，组成一个把中共国排除在外的自由贸易区，那中共国怎么活呢？
 
-[郭先生0530III今天科技的巅峰并未使内心世界达到自然和美妙](https://gnews.org/zh-hans/1285080/)
+澳洲为了维持与中共国的关系，于2018年曾放弃与台湾签订贸易协议。而澳洲当年委曲求全换来的，却是现在澳中关系历史上的冰点。澳洲仅从自身利益出发，也会恢复澳台关系。
 
-[郭先生0530IV清朝800年是人类最大的文明祸害是中国的灾难](https://gnews.org/zh-hans/1285087/)
+世上没有任何一个国家，离开美国等西方国家的先进技术和资金的支持，还能够活下来的。习神希望建立一个替代美国的“世界新秩序”，注定就是他的“黄粱美梦”。
 
-发布：日本东京方舟农场 山川异域
+（本文仅代表个人观点）
 
+*审核：**Runaway  编辑：MG1*
+
+参考链接：
+
+[https://www.heraldsun.com.au/business/taiwan-wants-fta-with-australia-amid-rising-tensions-with-beijing/news-story/5b01c2d02b47e9bd14cd654e608dfe35](https://www.heraldsun.com.au/business/taiwan-wants-fta-with-australia-amid-rising-tensions-with-beijing/news-story/5b01c2d02b47e9bd14cd654e608dfe35)
+
+[https://www.sbs.com.au/chinese/mandarin/zh-hans/zhong-guo-ya-li-dao-zhi-ao-zhou-ju-jue-yu-tai-wan-qian-ding-zi-mao-xie-ding](https://www.sbs.com.au/chinese/mandarin/zh-hans/zhong-guo-ya-li-dao-zhi-ao-zhou-ju-jue-yu-tai-wan-qian-ding-zi-mao-xie-ding)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29223512/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
 0
