@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共回应美国病毒来源调查时，反咬一口要调查美国
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1285679/)
+## COVID-19是中共制造的超限生物武器，是故意释放的
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1285719/)
 
-05/27/2021 发言人赵立坚：美国根本不在乎事实和真相，只是想借疫情搞污名化和政治操弄，甩锅中国。这是对科学的不尊重，是对人民生命的不负责，更是对全球团结抗疫努力的破坏。
+05/29/2021 CNN印度采访闫丽梦博士时，闫博士说现在世界已经明白COVID-19来自实验室，但是人们也必须认识到这是中共制造的超限生物武器，并蓄意把病毒传到全世界，以达到他们的目的。这是中共长期谋划的。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
