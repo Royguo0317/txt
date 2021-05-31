@@ -1,33 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴西举行反政府示威活动
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1284034/)
+## 躺平，无声的反抗；不被剥削，从我做起
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1284052/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+作者：蓝色 （英国伦敦喜庄园）| 校对：仙女儿-文善 | 审核：Beicy-数学老师 | Page: Daoiii
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30140510/B-25.jpg)ibtimes.com
-5月29日星期六，据G1.Globo报道，巴西各地举行了反对总统贾尔·博尔索纳罗（Jair Bolsonaro）的政府及其防治中共病毒政策的示威活动。
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/1e0ca943-e2f5-4383-9a2f-0557c66021b3.jpg?asset_id=e7b07a70-f4a9-44a6-a554-7bada3600671&amp;img_etag=%22e448ed7a2a68495028302eab6fceee2d%22&amp;size=1024)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/1e0ca943-e2f5-4383-9a2f-0557c66021b3.jpg?asset_id=e7b07a70-f4a9-44a6-a554-7bada3600671&amp;img_etag=%22e448ed7a2a68495028302eab6fceee2d%22&amp;size=1024)2019在国内引起热论的日剧 《我要准时下班》
 
-所有26个州和联邦区都发生了抗议活动。据《卫报》报道，这些活动至少在200个城市和城镇举行，是自中共病毒感染扩散以来最大规模的反政府抗议活动。
+笔者不谦虚地说，本人是躺平界先驱，已经躺平有15年了。
 
-抗议者要求购买中共病毒疫苗，向民众提供紧急援助，恢复疫情期间的社会支持计划，尊重公民的教育和保健权利。一些示威者手持标语牌，要求弹劾博尔索纳罗。
+当初上过一年的班，工作一年之后，看看手里的工资，都花在了工作的途中，根本剩不下钱。立即就明白了，这根本就是白干活，如此下去永无出头之日。本人在工作能力上没有任何问题，甚至是比平常人要高出一截，很清楚自己完全是被剥削了才会如此。
 
-路透社指出，除了该国东北部的累西腓，大多数城市的集会都是和平的，警察在那里对抗议者使用了催泪瓦斯和橡皮子弹。
+在此之后，就没有上过任何班，没有再参加任何工作。开启低消费模式，好好的活了15年，我手中的积蓄虽然不多，但是反而比一些辛苦工作了15年的朋友还要多。
 
-由于对总统处理中共病毒引发的危机的不满，博尔索纳罗的人气急剧下降。研究公司PoderData 5月27日的民意调查显示，57%的巴西人赞成弹劾他。这比三个月前多了11个百分点。
+当然，本人不是单纯的躺平，当初的想法是：工作了也不会积攒下任何积蓄，与其浪费时间，不如把时间花在学习上。现在事实证明，当初的判断是正确的。参与爆料革命，加入英喜之后，我积攒出来的很多能力都用上了，效果还不错，而身边朋友则是白白辛苦忙活了10几年，什么都没有攒下，甚至离婚、躲债。
 
-在疫情的最初阶段，博尔索纳罗否认中共病毒的危险，称其被夸大了。他说：“我在一次对我的持刀攻击中幸存下来，一些寒冷不会带走我。”他长期以来一直拒绝因疫情而对国家施加限制，尤其反对引入社交距离和关闭商店。尽管有这种流行病，他继续参加与支持者的会议。在这些活动中，他经常不戴口罩出现。总统还认为，只有软弱的人才会做出自我封闭的决定。
+下面是刚刚摘录的墙内社交媒体热门留言，内容一看就知道，其实大家都看清了事实的真相。
 
-去年7月，这位政治家感染了中共病毒。他发高烧，身体虚弱。据医生说，他的肺部没有受到影响。
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/0aef8abe-e442-4ac7-871f-671626a88f2f.png?asset_id=4ca5c1a4-43a7-4b57-9035-9da7e8a8ae95&amp;img_etag=%226de1feb9bcf68da9fbe9f12f0d47c16c%22&amp;size=5689)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/0aef8abe-e442-4ac7-871f-671626a88f2f.png?asset_id=4ca5c1a4-43a7-4b57-9035-9da7e8a8ae95&amp;img_etag=%226de1feb9bcf68da9fbe9f12f0d47c16c%22&amp;size=1024)
 
-4月，巴西参议院启动了对总统处理该疫情的调查。据参议员罗德里戈·帕切科（Rodrigo Pacheco）称，这将与应对疫情的联邦资金如何在各州之间分配的审计同时进行。
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/b7da8295-c77c-4aa7-b1fd-64d4722896d8.png?asset_id=e44714e9-a704-4f3c-bcf9-bf2afd260641&amp;img_etag=%22297a6d1d3ded9f3833d4f3c1bc090004%22&amp;size=3682)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/b7da8295-c77c-4aa7-b1fd-64d4722896d8.png?asset_id=e44714e9-a704-4f3c-bcf9-bf2afd260641&amp;img_etag=%22297a6d1d3ded9f3833d4f3c1bc090004%22&amp;size=1024)
 
-根据巴西卫生部的数据，该国已确认有1640万例中共病毒感染病例，超过46.1万人死亡。根据约翰·霍普金斯大学的数据，该国的中共病毒死亡率在全世界排名第二（仅次于美国）。
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/eebcf7f3-b60b-467a-9b57-f18fdc4a7881.png?asset_id=f0aaa49d-77db-4a29-bb6c-da9946e2abff&amp;img_etag=%22297a6d1d3ded9f3833d4f3c1bc090004%22&amp;size=3682)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/eebcf7f3-b60b-467a-9b57-f18fdc4a7881.png?asset_id=f0aaa49d-77db-4a29-bb6c-da9946e2abff&amp;img_etag=%22297a6d1d3ded9f3833d4f3c1bc090004%22&amp;size=1024)
 
-参考链接：
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/85add420-2402-4cf7-80a6-0c34dee338ce.png?asset_id=3b3f8b6c-b4eb-4cad-a6b1-457983885cec&amp;img_etag=%22692eddfefebaf0801afba5ca2f676630%22&amp;size=2582)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/85add420-2402-4cf7-80a6-0c34dee338ce.png?asset_id=3b3f8b6c-b4eb-4cad-a6b1-457983885cec&amp;img_etag=%22692eddfefebaf0801afba5ca2f676630%22&amp;size=1024)
 
-[https://www.rbc.ru/politics/30/05/2021/60b2de4c9a7947bdc047d897](https://www.rbc.ru/politics/30/05/2021/60b2de4c9a7947bdc047d897)
+看看这些可怜的网友，抱怨一下还要躲避文字狱。不是中国人人种有问题，是被中共的手段操控了。也不是人人都不明白，是明白的人根本发不出声音。
+
+那个白忙活15年的哥们，他赚的钱，很大一部分也和我当初一样，都扔在工作上了，给关键部门行贿！！！
+
+我还有一个网友，家里人给她花了10几万买了一个收费站的工作。一个月几千工资，大家可以算算，她要白干多久才能拿回给官员的行贿？
+
+而没有行贿的人，不是家里有关系，就是被公司剥削，而你的公司同样的也要行贿，钱就是从克扣你的工资里出的！
+
+这就是白干的原因！
+
+普通劳动者，能填饱肚子养家就不错了，你想通过努力改变人生，别做梦了。中共会抽干你每一滴血！
+
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/0c0f72bd-0c1a-4a41-90b2-56261a6d4662.jpg?asset_id=0f3ac63b-97d0-4ad5-a8b3-c1ddd2a665a2&amp;img_etag=%22553504032b74c0d3bff27f65fac07d13%22&amp;size=4968)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/0c0f72bd-0c1a-4a41-90b2-56261a6d4662.jpg?asset_id=0f3ac63b-97d0-4ad5-a8b3-c1ddd2a665a2&amp;img_etag=%22553504032b74c0d3bff27f65fac07d13%22&amp;size=1024)
+
+躺平，从我做起，你的每一次劳动都是给中共添加了一次继续奴役你的弹药。
+
+如果无法做到完全躺平，至少也要消极怠工，能不干的就不干，保障基本生存就可以了。
+
+付出50%的劳动，得到90%的工资，你何必再多干50%呢？
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/GJ9doqG0eKtLE/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

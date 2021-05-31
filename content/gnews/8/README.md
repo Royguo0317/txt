@@ -1,35 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥说武汉实验室从事民用研究和军事活动
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1284333/)
+## 鲁迪·朱利安尼:闫丽梦博士冒着巨大风险说出武汉病毒实验室的真相
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1284355/)
 
-蒙特利尔皇家山战友团Spirit
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30190051/hjuygg-1.jpg)图片来源： Indo-Pacific Defense Forum
-据《福克斯新闻》5月29日报道，前国务卿迈克-蓬佩奥星期六表示要对中共病毒产生于这个秘密实验室的理论进行进一步审查时，讲到武汉病毒研究所（WIV）在进行民用研究的同时还从事了军事活动。
+鲁迪·朱利安尼 (前纽约市长)： 闫博士冒着巨大风险说出武汉病毒实验室的真相 【转闫博士推文：2020年9月10日，在曼哈顿朱利安尼市长的公寓里举行了一次历史性会议。 玛丽亚博士，班农先生和路德先生都是英雄，他们冒着很大风险告诉世界新冠病毒 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 的真相！ [#超限生物武器](https://twitter.com/hashtag/%E8%B6%85%E9%99%90%E7%94%9F%E7%89%A9%E6%AD%A6%E5%99%A8?src=hashtag_click) [#中共撒谎人民死亡](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E6%92%92%E8%B0%8E%E4%BA%BA%E6%B0%91%E6%AD%BB%E4%BA%A1?src=hashtag_click)】
 
-蓬佩奥在 《福克斯周末》 节目中说：”我可以肯定的是：我们知道他们在该实验室内从事与中国人民解放军有关的工作，所以在他们声称只是友好的民用研究的同时，还在进行军事活动。他说”武汉病毒研究所拒绝告诉我们是什么病毒，他们拒绝描述其本质序列等，他们拒绝世界卫生组织进入。”
 
-虽然人们普遍认为这种大流行病起源于武汉，但对于它是起源于附近的一个海鲜市场还是起源于这个神秘的研究所，人们一直在辩论。特朗普政府推动了实验室泄密理论，但它被媒体和一些专家淡化了，被宣布这是一个阴谋论。
 
-但最近几周，这一理论再次获得关注，特别是在中共阻挠世界卫生组织对病毒来源的调查，以及有报道称多名实验室工作人员在2019年11月因类似中共病毒的症状而住院后。
+> Dr Yan took great risk to tell the truth about the Wuhan Lab of Virology [https://t.co/dhw7loIMZ2](https://t.co/dhw7loIMZ2)
+> — Rudy W. Giuliani (@RudyGiuliani) [May 30, 2021](https://twitter.com/RudyGiuliani/status/1399030336915443716?ref_src=twsrc%5Etfw)
 
-拜登告诉情报界要 “加倍 “努力寻找病毒的来源，情报界本周表示正在 “积极地 “调查该病毒的来源，并将在90天内向拜登报告。
 
-武汉病毒研究所是中国顶尖的病毒研究实验室之一，在2003年严重急性呼吸系统综合症（SARS）爆发后建立了蝙蝠冠状病毒的基因信息档案，并在整个中共病毒疫情期间面临对其透明度的批评。
 
-但对特朗普官员来说，这已经是他们怀疑了很久的事情。特朗普总统在一份声明中说：”现在所有人都同意，我很早就称武汉为COVID-19（有时被称为中共病毒）的来源时，我是正确的。
+鲁迪·朱利安尼 (前纽约市长)： 为什么拜登、民主党、大科技巨头和大众媒体均谴责这些一直在说病毒来自武汉实验室的人？
 
-国务院在特朗普政府的后期曾发布了一份概况介绍，警告说 “如果最初的暴露只包括少数人，而且是无症状感染，那么实验室事故可能看上去像自然爆发。” 概况介绍还指出，”美国已经确定，武汉病毒研究所在出版物和秘密项目上与中共军方合作。至少从2017年起该研究所代表中国军方参与了机密研究，包括实验室动物实验“。
 
-蓬佩奥周六表示，拜登政府必须对大流行病的起源以及武汉研究所的情况进行调查。他说：”从去年春天，也就是2020年，当我第一次谈到这个问题时，我就知道有巨大的证据表明这是从武汉的那个实验室里出来的。我们知道有人在那里生病，有的科学家在那里生病，我们知道他们在做功能增强实验，使病毒拿更具传染性，更致命，这届政府必须追究到底”。
 
-蓬佩奥在福克斯的讲话非常有力量，这位前中情局局长，前国务卿没有大量的证据是不会轻易说出武汉病毒研究所从事军方活动，中共军方意味着中国共产党的指令，而不是简单的民事研究，待所有证据坐实后追讨和定罪这场大灾难的元凶――中国共产党。
+> Why did Biden, the Democrat party, Big Tech and Mass Media condemn these who have been saying virus emerged from Wuhan Lab?
+> — Rudy W. Giuliani (@RudyGiuliani) [May 30, 2021](https://twitter.com/RudyGiuliani/status/1398936129102036994?ref_src=twsrc%5Etfw)
 
-[原文链接](https://www.foxnews.com/politics/pompeo-wuhan-lab-military-activity-alongside-civilian-research)
 
-* * *
 
-*编辑、发稿 文锦*
+参议员泰德·克鲁兹： 曾经有众多英勇的吹哨人，但是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府逮捕了他们，让他们被消失了。 如果不是因为 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的掩盖，[#新冠](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0?src=hashtag_click) 能维持在一个地域性的爆发是非常有可能的，而不是变成一场全球大流行。（附上他接受采访对这件事的阐述）
+
+
+
+> There were multiple heroic whistleblowers but the Chinese government arrested them and disappeared them. 
+> 
+> If it were not for the CCP's cover up, there's a very real possibility that COVID-19 could have been contained as a regional outbreak instead of becoming a global pandemic. [pic.twitter.com/J47BMNVU0D](https://t.co/J47BMNVU0D)
+> — Ted Cruz (@tedcruz) [May 30, 2021](https://twitter.com/tedcruz/status/1399015742956318721?ref_src=twsrc%5Etfw)
+
+
+
+
 
 0

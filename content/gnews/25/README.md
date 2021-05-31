@@ -1,51 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小一视角】人民币升值实乃中共彻底脱钩前的准备
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1284065/)
+## 慧眼看世界20210530
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1284109/)
 
-*作者：经济小组/加拿大多伦多枫叶农场      我是1，小一*
+作者：2020喜马拉雅
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30150112/001-3-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30150134/002-2-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151126/003-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151131/004-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151211/005-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151217/006-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151220/007-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151255/008-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151300/009-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151306/010-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151306/011.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151319/012-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151341/013.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151350/014.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151356/015.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151401/016.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151406/017.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151409/018.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151419/019.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151426/020-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151448/021-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151448/022.jpg)
+审核：神奇四侠；发稿：神奇四侠
 
-*编审：经济小组/加拿大多伦多枫叶农场      向往真理*
-
-近日，人民币连续升值成为热门话题。笔者梳理了一下，目前，市场上主要有以下七种主流观点，总结如下：
-
-1. 是美元主动贬值，导致人民币变相升值：
-
-2. 国际大宗商品涨价，人民币升值可以抵消进口费用的大涨，抵御输入性通胀：
-
-3. 中共要沉船了，高层要往外跑。人民币升值后，在海外购买以美元计价的资产更加划算：
-
-4. 加快人民币国际化。人民币升值后，国企走出去收购海外资产更加划算：
-
-5. 坚挺的人民币给国内国际一个印象，中国很强大。对内粉红高潮，对外加速人民币国际化：
-
-6. 让国际热钱流入中共国，拉动经济，同时绑住国际企业，让各国不能轻易脱钩：
-
-7. 有利于偿还美元计价的国际债务。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30143212/da7c7f5a3f678c3d86faaaca7a6e8049.jpeg)
-但笔者认为，核心问题并不是人民币升值，升值只是一种结果而已，根本的问题在于“中共放弃汇率管理目标”。讨论汇率问题绝对不能仅仅讨论汇率，汇率是结果，是一个数据，这个结果是战略博弈的产物，是整盘大棋中的一步棋而已。那么，中共的动机是什么呢？
-
-**首先**，在中共的这盘大棋中，放毒统治地球已经是其既定方针了，必须一条道走到黑，没有逗号，只会有句号。至于时间持续多久，就要看全球各国联合灭共的实质性行动力有多强了。
-
-这样走下去，美国经济一定大崩溃，美元世界老大的地位不保，信用尽失。
-
-看到这点以后，中共主动与美元脱钩。因为现在这种跟随美元的汇率机制在遇到美元大风暴时，很可能彻底颠覆人民币。为了不被美元裹进去，提前退出来，减少冲击。
-
-**另外**，为关门朝鲜化做准备。加速数字人民币，脱离美元体系，自己玩内循环无锚货币。不管进退，这二步棋都需要人民币与美元主动脱钩。面对欧美携手，世界联合灭共的大趋势下，与其被动的被踢出各种国际组织，不如主动与世界脱钩。
-
-而现在这个时机很好。美元在主动贬值，人民币是被动升值，顺理成章执行这个计划，国际市场上不会过多动荡、猜忌、怀疑，也许还能吸点外资进来。
-
-中共要做老大，为将来引领世界做准备，放弃多年的跟随跑策略，是时候该主动超车了。习一定认为，美国的衰退让他已经丧失领跑世界的能力了，现在是大干一场的时候了。
-
-综上所述，真正的刺刀见红疯狂的事情即将上演，各位请系好安全带。在生死存亡的问题前，原材料上涨，中小型外贸企业出口难，房价、产业发展、民生问题等，这些根本不是中共会考虑的选项。顶多各地方政府可能会考虑，但面对计划经济的大一统路线，脱钩已经是人人心知肚明的方向了。
-
-中共很清楚，全球联合灭共的趋势已经不可阻挡，面前只剩两条路：要么关门朝鲜化，以虐待14亿人命为筹码活命；要么主动出击，全面跟世界干一场，没有中间选项。留给世界的时间不多了。
-
-（本文仅代表作者本人观点）
-
-* * *
-
-*发稿 文锦*
-
-+5
+0
