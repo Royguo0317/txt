@@ -1,55 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【一线新闻】东道主给战友们的第一份温暖
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1286327/)
+## 中共和纳粹一样开始登记和限制专业工程技术人士出国！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1286620/)
 
-前方记者：纽约香草山记者站 Kathy（文艺）
+**摘要：在5月25日的盖特中，郭先生说共产党下一步将会和纳粹希特勒一样限制专业工程技术人士出国。它将通过脸部识别、边控等手段对这些人员进行全面控制。这种限制将持续到中共灭亡。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31172432/Miles_2021-05-25_g1.srt.txt)
+**中共和纳粹一样开始登记和限制专业工程技术人士出国！**
 
-文字编写：纽约香草山健身部 童谣
+**CCP Is Just Like Hitler – Restricting Professionals from Leaving China**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191310/s2-7.jpg)
+昨天救出来的战友，告诉我很多国内公检法[人员]，现在受的煎熬。而且现在[共产党]对科学家、工程专业人士，正在进行全面的筛选调查。我今天告诉大家一个你们都无法想象的[事实]，希望战友们不要受到伤害。所有的工程师，所有的技术人员，共产党就会特别登记，限制出境。以后什么写代码的工程师啊，懂得工程高端技术的啊，建筑师啊，都不让出国啦。因为你[们]走了都不回来了。以后都要全面限制。全国联网脸部识别，边控控制，你哪儿都别去。从边控到城市控，从这个城市到那个城市都不行，咱不信走着看。
 
+The fellow fighter who was rescued yesterday told me a lot about the torment of the people within the judicial, prosecutorial and law enforcement systems in China. Moreover, [the CCP] is conducting full screening and investigation into China’s scientists and engineering professionals. Today I will share something that none of you could have imagined. I hope that my fellow fighters won’t get harmed. All engineers and technicians will be specifically registered by the CCP, and they will be restricted from leaving China later on. In the future, software engineers, those who understand high-end technology and engineering, and architects will not be allowed to go abroad because if they leave they will never return. In the future, it will be fully restricted. Through the national face recognition network and border control, they cannot go anywhere. From border control to the local control, everything will be under surveillance. You cannot even travel from one city to another. Just wait and see if you don’t believe this.
 
+当年的希特勒限制所有的德国的高级知识分子专业人士不能出国，直到希特勒被消灭。现在马上在中共开始。
 
+Hitler once restricted all senior German intellectuals and professionals from going abroad until he and his regime were eliminated. The CCP will implement this policy right away.
 
+烧了你还不算，在你没死之前，你得好好的当奴隶。这就是共产党。跟着共产党，走进火葬场，咱不信走走看！
 
-2021年5月31日，当地时间早上6点40，一线记者文艺战友再次从现场传来了报道。
+In addition to cremate you without any dignity, you have to act as a useful slave before you die. This is the CCP. Following the CCP is like walking straight into the crematorium. Let’s just wait and see!
 
-前两天一直在下雨，早晨天气还是很冷，纽约在春夏交替之间通常会出现倒春寒。视频中可以看到路面依旧有几处积水，很多行人穿上了厚外套或轻便羽绒服。文艺战友与金牛太太站在机场出口外等待迎接今天到达的第一位战友Marvin。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60ada88d744cbc43136453a6](https://gtv.org/getter/60ada88d744cbc43136453a6) (8:29-end)
+鸣谢：
+[1] 感谢Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1272820/](https://gnews.org/zh-hans/1272820/)
+[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于 [https://gnews.org/1274259/](https://gnews.org/1274259/)
 
-战友们在胸前举着新中国联邦蓝的欢迎标语牌，于人群中十分醒目，所以到来的战友能够一眼识别出来。话语之间，Marvin已经从机场大楼的另一个出口走出，向接机战友走来。虽然出口与约定有交错，但依旧顺利会师。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31153424/welcome.png)*文艺*，*纽约肯尼迪机场接机现场视频图片*
-这位来自康州农场的Marvin战友从洛杉矶飞到纽约。相互介绍之后，文艺首先关心战友的旅程是否辛苦。在了解接待人员凌晨4点就从曼哈顿赶来机场等待之后，Marvin也表达了对接待战友的感谢，之后在文艺的指引下坐上接送专车，由金牛战友送往酒店。
+* * *
 
-接待完第一位战友之后，文艺和尼娜坐在机场外的休息亭中吃了小面包当作早饭。7点22分，传来Marvin抵达酒店的消息。而下一位战友将在8点半到达另外机场。为了应对机场的变化、及时联络接机，一个接待团中的每位司机和接待员都配有对讲机。接待战友通过这种方式与司机们沟通后，已经安排了一辆车送她们前往下一个机场。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31154010/%E4%BA%AD%E5%AD%90%E5%90%83%E9%9D%A2%E5%8C%85.png)*文艺 纽约肯尼迪机场视频图片*
-由于疫情原因，接送飞机的亲属朋友统一不允许进入机场大楼，只能站在外面或在室外休息亭等待。文艺战友由于穿的比较少已经开始流鼻涕。但肩负东道主责任的香草山接待团，为了让远道而来的战友们，感受到一下飞机就有人接待的温暖，都宁愿选择奔波辛苦一点，甚至一大早就冒着天寒等待。
+**整理校对 & 新闻撰写：【guocamole(文金欠)（纽约香草山农场）】
+字幕：【JennyL（纽约香草山农场）】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%25E7%258E%25AB%25E7%2591%25B0%25E5%259B%25AD%25E5%25B0%258F%25E9%2598%259F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-Marvin战友刚下飞机的时候，文艺战友第一时间就把位置信息传给了他。这样的话，战友知道外面有人等待，就不会感到孤单，也免去战友们自己叫出租车的麻烦。这是六四一周年庆典之前，香草山愿意给战友们带来的第一份温暖。
-
-以上是文艺战友传来的今天第一位战友的接待工作。可以从司机接送、机场接待的细节中看到新中国联邦人的形象、素质、品格和境界。这就是新中国联邦人接触、沟通、交往的方式，这就是战友们的友谊。
-
-引用来源：文艺战友前方报道视频和音频
-
-编辑/校对/上传：Delilah小胖
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
-
-
-
-
-
-+2
+0

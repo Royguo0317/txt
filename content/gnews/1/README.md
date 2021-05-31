@@ -1,45 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共和纳粹一样开始登记和限制专业工程技术人士出国！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1286620/)
+## 警察与香港中环歌手
+` XINYUAN` [轉載自GNews](https://gnews.org/zh-hans/1286719/)
 
-**摘要：在5月25日的盖特中，郭先生说共产党下一步将会和纳粹希特勒一样限制专业工程技术人士出国。它将通过脸部识别、边控等手段对这些人员进行全面控制。这种限制将持续到中共灭亡。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31172432/Miles_2021-05-25_g1.srt.txt)
-**中共和纳粹一样开始登记和限制专业工程技术人士出国！**
+撰稿: 法国巴黎农场 – XINYUAN
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31181112/%E8%AD%A6%E5%AF%9F.jpeg)
+最近，在Youtube 上看到一个视频，一个香港男青年正在唱歌，身边围着几个警察，他们离得很近,成半圆形包围着他。看样子在阻止他唱歌，男青年怀抱着吉他，在唱一首名为《荣归香港》的歌曲。每每看到这种画面，总是感觉鼻子发酸。也为那位年轻人的抗争精神而感动，其中一个警察无理的把帽子扣在他的麦克上，他没有停止歌唱，并顺势拿起帽子像后面甩了出去。警察尴尬的跑过去把帽子捡了回来，一边歪着脑袋好像是气呼呼的样子看着年轻人，场面一扫前面的凝重，有点搞笑的感觉，好像俩人商量好的一幕小喜剧。这一幕使人想起中共拍摄的老套电影里的情节，八路军一身的正气，旁边是气急败坏的伪军或鬼子。只不过这次不是演员，而且年轻人真的是一身正气啊！瘦弱的身躯掩饰不住的散发出一身的浩然之气和力量。相信这种力量会震撼到观看视频的每个人。那位警察一副膀大腰圆的样子，至少看起来比年轻人健壮多了，应该可以做年轻人的长辈了。拜托能不能不要欺压年轻一辈。他也是在替你的家人和子孙后代呐喊，你真的希望你的家人活在一个残暴的社会里吗？现在你是警察，可以保护他们，你能保证你的后代还愿意做警察吗？或者还能被保护吗？会不会有可能像今天的年轻人一样， 连街头唱歌都会陷入危险之地。夜深人静的时候，你可以问问自己吗？静下来发自内心的好好想想， 好吗？
 
-**CCP Is Just Like Hitler – Restricting Professionals from Leaving China**
+当然，为了养家糊口，警察们也只能穿这一身皮，没能力也没决心脱掉这身制服，这可以理解。那如果你的良知尚存，能不能利用这身兽皮做些有利于民众的事情，不要恍惚了，以为穿上兽皮，就真是野兽了。那就真的得不偿失了。我们再回到刚才那个场景，警察看到一直无法制止年轻人的歌声，另外一个更年长些的警察开始用手指着年轻人，以期威吓他，但年轻人只是稍微放低了声音，而后，又渐渐高唱了起来 。反复了几次，警察们开始拿起他的家当，准备带走年轻人。这时旁边的民众不干了，开始大声抗议，警察们只能放弃。慢慢的，围观的民众越来越多，开始和年轻人合唱了起来。警察们只能双手交叉，眉头紧锁的站在那里，一副自我防御的样子。在这里，我不想丑化他们。甚至我会猜测他们心里一定恨不得马上辞职，扔掉这烂工作。也许紧锁的眉头正是他们的纠结，一边是上面的任务，一边是民众的团结对抗，他们会有多无奈。
 
-昨天救出来的战友，告诉我很多国内公检法[人员]，现在受的煎熬。而且现在[共产党]对科学家、工程专业人士，正在进行全面的筛选调查。我今天告诉大家一个你们都无法想象的[事实]，希望战友们不要受到伤害。所有的工程师，所有的技术人员，共产党就会特别登记，限制出境。以后什么写代码的工程师啊，懂得工程高端技术的啊，建筑师啊，都不让出国啦。因为你[们]走了都不回来了。以后都要全面限制。全国联网脸部识别，边控控制，你哪儿都别去。从边控到城市控，从这个城市到那个城市都不行，咱不信走着看。
+随后，警察们还要求年轻人拿出身份证件，年轻人很配合的拿出了证件，后来干脆自己拿过笔写了起来，一个外国人在拍照，旁边有一位港人在给他解释发生了什么。一番盘问结束后，吉他声再想起时，已经不是一个人在唱了、又是大合唱版的《荣归香港》，唱完后人们开始鼓掌欢呼。为保护了年轻人而欢呼，也为自己的勇气而欢呼。这时，忽然又增援了更多的警察，只是一个歌者，却感觉如临大敌。
 
-The fellow fighter who was rescued yesterday told me a lot about the torment of the people within the judicial, prosecutorial and law enforcement systems in China. Moreover, [the CCP] is conducting full screening and investigation into China’s scientists and engineering professionals. Today I will share something that none of you could have imagined. I hope that my fellow fighters won’t get harmed. All engineers and technicians will be specifically registered by the CCP, and they will be restricted from leaving China later on. In the future, software engineers, those who understand high-end technology and engineering, and architects will not be allowed to go abroad because if they leave they will never return. In the future, it will be fully restricted. Through the national face recognition network and border control, they cannot go anywhere. From border control to the local control, everything will be under surveillance. You cannot even travel from one city to another. Just wait and see if you don’t believe this.
+年轻人一首首的唱着，有人不断的把钱放地上的布袋里。我不懂艺术，但我真的感觉他唱的很有味道，期间不断有警察过来和他交涉，大概意思是让他停止唱歌。街对面还有不断增援而来的警察。不久，年轻人唱起了其他的英文歌曲。也不断有人附和跟着唱。
 
-当年的希特勒限制所有的德国的高级知识分子专业人士不能出国，直到希特勒被消灭。现在马上在中共开始。
+这么美好的旋律里，却看到街对面还有警察不断的穿梭而来，估计是担心引起骚乱吧。我相信除了中共国这种类似的强权国家外，没有任何一个国家政府会被一个街头歌手吓到这种程度。在那群警察里面，其中一位美女警察引起了我的注意，她看起来就是邻家美眉的样子，也很像减了短发的芭比娃娃。即使穿着警服，也难掩一种温柔美丽的气质。不知道她对这个工作如何看待？自己也是百姓，却经常要做一些侵犯百姓权利的事情，是一种什么样的矛盾感觉呢？会不会很沮丧？
 
-Hitler once restricted all senior German intellectuals and professionals from going abroad until he and his regime were eliminated. The CCP will implement this policy right away.
+其实仔细一想，很少有很坏的警察 大部份都是跟风走的， 香港目前是没有防火墙的，职业警察们稍微了解一下，就应该知道，现在的风向已变，那你们是不是也该调整一下方向了？在力所能及的情况下，善待这些为自由发声的民众。尽量不要做恶，否则被记录下来，最后吃不了 兜着走啊。现在遍布大街都能看见摄像头，还有民众手里的手机，除此之外，还有一套看不见的系统，就是你的良知。
 
-烧了你还不算，在你没死之前，你得好好的当奴隶。这就是共产党。跟着共产党，走进火葬场，咱不信走走看！
+时代已然不同，世界各地都有警察倒戈的，因为相当一部分警察类的角色都渐渐明白了唇亡齿寒的道理。也都意识到民主自由对自己的未来有多么重要！警察不再是戒备森严的立在民众前方，很多地方的警察甚至与示威民众合影留念。有些甚至脱掉警服，参与到示威或游行之中。大量警察的觉醒意味着时代的进步。在这种情况下，强权统治者真是越来越难以为继了。是啊，何苦为他们卖身卖命卖良心呢？
 
-In addition to cremate you without any dignity, you have to act as a useful slave before you die. This is the CCP. Following the CCP is like walking straight into the crematorium. Let’s just wait and see!
+请港警和所有警察同胞们深思！
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60ada88d744cbc43136453a6](https://gtv.org/getter/60ada88d744cbc43136453a6) (8:29-end)
-鸣谢：
-[1] 感谢Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1272820/](https://gnews.org/zh-hans/1272820/)
-[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于 [https://gnews.org/1274259/](https://gnews.org/1274259/)
-
-* * *
-
-**整理校对 & 新闻撰写：【guocamole(文金欠)（纽约香草山农场）】
-字幕：【JennyL（纽约香草山农场）】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%25E7%258E%25AB%25E7%2591%25B0%25E5%259B%25AD%25E5%25B0%258F%25E9%2598%259F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+(本文只代表个人观点)
 
 0
