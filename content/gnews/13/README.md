@@ -1,39 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [诗歌] 生与死
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1286236/)
+## 丹麦情报机构帮美国家安全局监视欧政治家
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1286626/)
 
-#### 作者：浴火重生 发布：滴水穿石
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31145349/IMG_20210531_115303_207.jpg)图片截自网络
-开枪吧，刽子手！
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-面对你的枪口，
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31173648/S-12.jpg)thehacktoday.com
+05月31日，丹麦情报机构帮助美国国家安全局（NSA）监视欧洲政治家，包括德国总理安格拉·默克尔（Angela Merkel）和外交部长（现任德国总统）弗兰克·瓦尔特·施泰因迈尔（Frank-Walter Steinmeier）。《南德意志报》对此进行了报道。
 
-我们不会低下高昂的头。
+据该报称，在2012-2014年期间，丹麦情报机构向美方提供了进入哥本哈根附近的一个特别站的机会，在那里进行了窃听。据该报称，从这个站台，可以接入互联网服务提供商的海底电缆。
 
-屠杀吧，法西斯！
+据欧洲新闻网报道，丹麦外交部和财政部以及军工企业的一家公司也受到监视。
 
-我们用生命呼唤，
+丹麦政府直到2015年才知道其情报部门与美国人的合作。在国家安全局前雇员爱德华·斯诺登(Edward Snowden)发表文章后，内阁才得到一份报告，原来丹麦帮助美国监视德国、法国、挪威、荷兰和瑞典的政治家。这一丑闻导致丹麦情报机构Forsvarets Efterretningstjeneste的负责人托马斯·阿伦基尔（Thomas Arenkil）辞职。
 
-民主和自由！
+据德国NDR电视频道报道，德国政府表示，他们并不知道有这种监控。默克尔的女发言人告诉该出版物，总理从报道中了解到有关监视的情况。
 
-再见吧，妈妈！
+2013年，斯诺登披露了机密信息，证实美国情报机构对世界各地的高级政治家和普通人进行监视–作为PRISM计划的一部分，美国家安全局和中央情报局在60个国家截获了电子邮件和对话。领先的IT巨头，如微软、谷歌、雅虎、脸书、苹果和其他公司都被发现与情报部门合作。
 
-孩儿不是不听话，
+机密信息公布后，斯诺登逃到了香港，然后移居到了俄罗斯。在美国，他被指控从事间谍活动和盗窃国家财产。去年8月，当时的美国总统唐纳德·川普承诺考虑赦免斯诺登。
 
-历史的今天选择了我们，
+2020年2月，《华盛顿邮报》和德国ZDF电视频道披露，中情局通过与上世纪末加密市场的领导者瑞士的Crypto AG公司合作，50年来一直在截获120多个国家的秘密通信。
 
-就用我们的热血铸成六月花。
+参考链接：
 
-朋友，别哭！
+[https://www.rbc.ru/politics/31/05/2021/60b45e5e9a79470c7adf9c71](https://www.rbc.ru/politics/31/05/2021/60b45e5e9a79470c7adf9c71)
 
-别说我们一无所有。
-
-我们扛着自己的尸首，
-
-走过五千年的风风雨雨，
-
-还会继续谱写我们的追求……
-![This image has an empty alt attribute; its file name is 063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg]()![This image has an empty alt attribute; its file name is 063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26030300/063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg)
 0

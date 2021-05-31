@@ -1,25 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朝警告美结束韩发展导弹的限制会引剧烈动荡
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1286227/)
+## 中共和纳粹一样开始登记和限制专业工程技术人士出国！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1286620/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+**摘要：在5月25日的盖特中，郭先生说共产党下一步将会和纳粹希特勒一样限制专业工程技术人士出国。它将通过脸部识别、边控等手段对这些人员进行全面控制。这种限制将持续到中共灭亡。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31172432/Miles_2021-05-25_g1.srt.txt)
+**中共和纳粹一样开始登记和限制专业工程技术人士出国！**
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31143421/N-6.jpg)wwaytv3.com
-韩国首尔（美联社）报道，朝鲜5月31日表示，美国允许韩国发展无限射程导弹技术是美国对朝鲜采取的又一个敌对政策。平壤警告美国，此举可能会导致朝鲜半岛局势发生“剧烈震荡”。
+**CCP Is Just Like Hitler – Restricting Professionals from Leaving China**
 
-美韩高层 5 月 21 日峰会后，美国结束了长达几十年对韩国发展导弹技术的限制，允许韩国发展无限射程武器，平壤当局对此表示非常愤怒。美国此前曾禁止韩国开发射程超过 800 公里（500 英里）的导弹。该射程的导弹足以让韩国军事力量覆盖整个朝鲜，却无法波及到其他邻国，如中共国和日本。
+昨天救出来的战友，告诉我很多国内公检法[人员]，现在受的煎熬。而且现在[共产党]对科学家、工程专业人士，正在进行全面的筛选调查。我今天告诉大家一个你们都无法想象的[事实]，希望战友们不要受到伤害。所有的工程师，所有的技术人员，共产党就会特别登记，限制出境。以后什么写代码的工程师啊，懂得工程高端技术的啊，建筑师啊，都不让出国啦。因为你[们]走了都不回来了。以后都要全面限制。全国联网脸部识别，边控控制，你哪儿都别去。从边控到城市控，从这个城市到那个城市都不行，咱不信走着看。
 
-美国当初限制韩国发展导弹技术的初衷是维护亚太地区的和平，不至于让韩国的军事武器引起与中共国之间的军备竞赛。但自从 5 月 21 日美国解除对韩国发展导弹技术的限制后，一些韩国军事观察家在称赞美国是主动恢复了韩国的军事主权的同时，外界不免怀疑美国的真实意图是为了提高盟友与中共国进行军事竞争的能力。
+The fellow fighter who was rescued yesterday told me a lot about the torment of the people within the judicial, prosecutorial and law enforcement systems in China. Moreover, [the CCP] is conducting full screening and investigation into China’s scientists and engineering professionals. Today I will share something that none of you could have imagined. I hope that my fellow fighters won’t get harmed. All engineers and technicians will be specifically registered by the CCP, and they will be restricted from leaving China later on. In the future, software engineers, those who understand high-end technology and engineering, and architects will not be allowed to go abroad because if they leave they will never return. In the future, it will be fully restricted. Through the national face recognition network and border control, they cannot go anywhere. From border control to the local control, everything will be under surveillance. You cannot even travel from one city to another. Just wait and see if you don’t believe this.
 
-平壤当局并未正面发声，仍然是由“个别”评论员代为表达朝鲜政府的态度，这被外界解读为平壤为与拜登政府作进一步外交沟通留下了空间。据朝鲜官媒中央通讯社报道，朝鲜官方国际事务评论员 Kim Myong-chol 表示，美国不再限制韩国发展导弹技术的决定是美国对朝鲜的敌对政策，是一种可耻的两面派的做法。
+当年的希特勒限制所有的德国的高级知识分子专业人士不能出国，直到希特勒被消灭。现在马上在中共开始。
 
-他认为，美国通过制造朝鲜半岛及其周边地区军事不对称来向朝鲜施压是个严重的错误，因为美方这种做法很可能导致朝鲜半岛现在军事技术上处于“战争状态”，结果很可能是引发周边各国的军备竞赛。
+Hitler once restricted all senior German intellectuals and professionals from going abroad until he and his regime were eliminated. The CCP will implement this policy right away.
 
-参考链接：
+烧了你还不算，在你没死之前，你得好好的当奴隶。这就是共产党。跟着共产党，走进火葬场，咱不信走走看！
 
-[North accuses U.S. of hostility for South Korean missile decision – Washington Times – 30/05/2021](https://www.washingtontimes.com/news/2021/may/30/north-accuses-us-of-hostility-for-south-korean-mis/)
+In addition to cremate you without any dignity, you have to act as a useful slave before you die. This is the CCP. Following the CCP is like walking straight into the crematorium. Let’s just wait and see!
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60ada88d744cbc43136453a6](https://gtv.org/getter/60ada88d744cbc43136453a6) (8:29-end)
+鸣谢：
+[1] 感谢Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1272820/](https://gnews.org/zh-hans/1272820/)
+[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于 [https://gnews.org/1274259/](https://gnews.org/1274259/)
+
+* * *
+
+**整理校对 & 新闻撰写：【guocamole(文金欠)（纽约香草山农场）】
+字幕：【JennyL（纽约香草山农场）】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%25E7%258E%25AB%25E7%2591%25B0%25E5%259B%25AD%25E5%25B0%258F%25E9%2598%259F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
