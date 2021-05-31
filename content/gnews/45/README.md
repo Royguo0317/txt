@@ -1,112 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】锅言灶语（十四）- 有话说之＂画＂外音–
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1285736/)
+## 郭先生0530XVI有90%的可能中共将于2024至2025年间被灭
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1285702/)
 
-作者：纽约香草山健身部 澄道
+编辑整理：
 
-![该图像的alt属性为空； 其文件名为 GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg](https://lh5.googleusercontent.com/vLw6Y_b7B_ELY7tNgJ-ZeOlPtiZaj9LITymWl1OE5wOzdIkkX7DZBrFRJJhMt9xpPSvXBwsgxURfUXP8t3HmMF6_KbzyUQPdAO1r5czQIoPgP9oX5cyVQDtWPZyla7HiihEkkn5C)
+伦敦喜庄园：万物归一；纽约香草山农场：&lt;文V&gt;🦅
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31102943/4-1143_%E5%89%AF%E6%9C%AC.jpg)
+据[20210530 文贵直播：欧中协议被冻结的重大意义；中共将被WTO，世界银行，IMF踢出；法国情报局曝出孟宏伟被消失的真相；欧美通过香港P3实验室向中共提供资金；中共将彻底灭亡于2024，2025](https://gtv.org/video/id=60b38ee8f6ff4b33fb95c2fa)时间点1：24：47——
 
+所以兄弟姐妹们，这个时刻需要我们有耐心、需要我们搂住，我们大概还要等到今年九月份以后，到年底才能达到高潮。9月份以前，不管发生什么，都会有变数、都会有起伏.
 
+今年不要忘了去年的庚子年、霹雳年，今年是辛丑年，今年是真正的共产党结束的关键一年。但是即使这样，我认为共产党的结束还要在2024年、2025年之间。2024，2025年之间，它的变数就在于中国绝大多数老百姓被洗脑太严重、无知，最终的以共灭共还受到这种挑战。它还有这么些年的经济体，中国老百姓还有饭吃，只有没饭吃的时候，这些家底全花完的时候，这些90%的人还有那10%的人的一小部分人才能醒过来。第二个，美国被中共渗透的太厉害，这一届政府当中很多人，并不一定敢真正动手灭中共。
 
-疫情还在
-小馆营业中
+所以说这两个原因，我们很可能到2024、2025，但有10%的可能，在这个中间擦枪走火，美国这届的军队还是很了不起的，这届军方的人会很果敢，欧洲是很坚决的，那么欧洲和美国军队一旦合作起来，也有可能就是斩首，有10%的可能。但是90%的可能我认为在2024、2025共产党彻底结束。
 
-一直坚持
-线上进修的
-厨二
-在一片疑异声中
-说了点心里话
-引争议
+接上文——
 
-＂终共＂巨无霸
-连锁太大了
-但它还是
-完成了？
-它想要的
-难以置信的目标
-布控（全球）
-筛查（人人）
+[郭先生5月30日直播前播放视频文字汇总](https://gnews.org/zh-hans/1285030/)
 
-＂老布＂夫妇
-在任四年
-顺利开创
-＂天安门＂
-亲人形象
-工具：脚踏车
+[郭先生0530I中国古编钟折射出来的中国历史之伟大之深奥](https://gnews.org/zh-hans/1285048/)
 
-＂克哥克嫂＂
-任职八载
-练就＂拉链门＂
-之＂莱蕴老司机＂
-创飘车之新风尚
-场地：办公室
+[郭先生0530II中国长袍之妙让男人浑然一体让女人亭亭玉立](https://gnews.org/zh-hans/1285053/)
 
-＂小布＂夫妻
-子承父业又八年
-成功引到
-报警专业户上
-＂911门＂
-事故现场：双子塔
+[郭先生0530III今天科技的巅峰并未使内心世界达到自然和美妙](https://gnews.org/zh-hans/1285080/)
 
-＂奥拜＂搭档
-戏演人生
-再瞒再盖再捂….
-出来混还是要还的
-掌控美选＂驴象＂之争
-＂硬盘门＂
-选战：多猫腻
+[郭先生0530IV清朝800年是人类最大的文明祸害是中国的灾难](https://gnews.org/zh-hans/1285087/)
 
-过眼云川
-使命必达？
-怎奈邪灵现
-沉船已
-诛人诛天
-＂生物武器门＂
-听证会：阎博士
+[郭先生0530V北京恢复居住证制将使中国变成天下最大的监狱](https://gnews.org/zh-hans/1285131/)
 
-文贵天成
-太空文明
-你我有幸
-涅槃重生
-一灯一智：G-TV GNEWS
-（媒体终极之战）
+[郭先生0530VI灭共重磅接踵而至让战友们对胜利的到来有点懵](https://gnews.org/zh-hans/1285137/)
 
-＂那仅仅
-是你自己个的认知而已＂
+[郭先生0530VII中欧协议冻结意味共产党被打回到89年以前](https://gnews.org/zh-hans/1285145/)
 
-面对着
-厨二的千古＂唇＂词
-二厨
-＂便＂出吃奶子劲
-吐出来
+[郭先生0530VIII中共在世界失去代表性后怎么能代表中国人民](https://gnews.org/zh-hans/1285178/)
 
-后厨
-静了
-已然听不到
-锅子
-灶子们
-的丁点声音了
-………
+[郭先生0530IX欧洲因洞悉中共反人类流氓真相冻结中欧协议](https://gnews.org/zh-hans/1285456/)
 
-@澄道来了
-@爱动爱议码05311
+[郭先生0530X普京说若欧洲听证会内容属实将视中共为敌人](https://gnews.org/zh-hans/1285493/)
 
-校对/发稿：雪梨
+[郭先生0530XI欧中协议破灭让共产党核心利益破灭金融坍塌](https://gnews.org/zh-hans/1285516/)
 
-![该图像的alt属性为空； 它的文件名为 5_May-1-556x720-1.jpeg](https://lh3.googleusercontent.com/8fPG-b3k1OPDoyNGv4xUGowotNCaFBS_Zy6K0pET5dZlav_GDobq-Ggg7Ttc_cv1Jxic-MNIw5k-4AIUaFK4dcPj0Gi5wObqH5uhfy5PxMn9uHRth-SCaptbFEriybfU9tqIgPrD)
+[郭先生0530XII没有爆料革命欧中关系一定不会是今天的关系](https://gnews.org/zh-hans/1285630/)
 
-**更多资讯，更多关注**
+[郭先生0530XIII从科学家欧洲做证那天起中美关系回到二战之后](https://gnews.org/zh-hans/1285637/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[郭先生0530XIV新中国联邦有能力保证新中国按正确的方向走](https://gnews.org/zh-hans/1285651/)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[郭先生0530XV美国的民意大大震慑美国高层和与中共勾兑者](https://gnews.org/zh-hans/1285683/)
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发布：日本东京方舟农场 山川异域
 
 0

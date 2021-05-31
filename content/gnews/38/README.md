@@ -1,59 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0530XVIII我们要在有生之年步步为营去建设新中国联邦
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1285763/)
+## 【香草诗词汇】与战友书（一）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1285775/)
 
-编辑整理：
+## – 就是与家人书–
 
-华盛顿DC农场：YIMING（文鸣）；伦敦喜庄园：胖丁
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31110245/image0-1-58_%E5%89%AF%E6%9C%AC.jpg)
-据[20210530 文贵直播：欧中协议被冻结的重大意义；中共将被WTO，世界银行，IMF踢出；法国情报局曝出孟宏伟被消失的真相；欧美通过香港P3实验室向中共提供资金；中共将彻底灭亡于2024，2025](https://gtv.org/video/id=60b38ee8f6ff4b33fb95c2fa)时间点1：30：36——
+作者：纽约香草山健身部 澄道
 
-新中国联邦也是这样的要步步为营、踏着脚,新中国联邦就是在我们有生之年，在我们就这些人就我这个年龄也好，有生之年能把新中国联邦建成一个让中国人真正地能承认的一个政治权力机构，能让新中国联邦的思想被中国人所接受，咱就是死而无憾啦。你想梦想着新中国联邦明天回去执政权力去，那你千万别妄想。新中国联邦没人做得到，不可能做得到，绝不可能啊，那真的是妄想。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg](https://lh5.googleusercontent.com/vLw6Y_b7B_ELY7tNgJ-ZeOlPtiZaj9LITymWl1OE5wOzdIkkX7DZBrFRJJhMt9xpPSvXBwsgxURfUXP8t3HmMF6_KbzyUQPdAO1r5czQIoPgP9oX5cyVQDtWPZyla7HiihEkkn5C)
 
-就像这个G-Fashion一样，大家一想，G-Fashion这去年建的，然后呢今年就比爱马仕还厉害、比LORO PIANA还厉害，不可能！任何一个品牌建立，大概需要建立一个网上店的话需要六个月，建立团队也需要大概六七个月，出现出来产品——一年时间，能逐渐的成熟起来——三年时间，你去看去，基本上都这样，否则他就是垃圾。
 
-G-Fashion已经走得太快太快了，所以出现这样那样的问题。完全，我现在向投资者，我承认了，他们把总裁给炒了。我说我承认百分之九十的责任，就我们要求太急，急功近利。它不符合事实、不符合逻辑，能造出这样的衣服让我很惊讶，很惊讶，很惊讶。包括我们很多精品的衣服，不可思议啊，当然了，这跟七哥的智慧和勤劳也是分不开的啊。
 
-接上文——
+灭共无他事
+铲毒愚公人
 
-[郭先生5月30日直播前播放视频文字汇总](https://gnews.org/zh-hans/1285030/)
+梅战友：
+您好
+见字如面
 
-[郭先生0530I中国古编钟折射出来的中国历史之伟大之深奥](https://gnews.org/zh-hans/1285048/)
+缘启于一次
+偶然
+＂欧们的七芒星＂
+人生有幸
+同框同聊
 
-[郭先生0530II中国长袍之妙让男人浑然一体让女人亭亭玉立](https://gnews.org/zh-hans/1285053/)
+敬仰于一首歌
+必然
+＂老人家之歌＂
+正道同行
+殊途同归
 
-[郭先生0530III今天科技的巅峰并未使内心世界达到自然和美妙](https://gnews.org/zh-hans/1285080/)
+先
+发链接（邀您）
+到＂煮聊堂＂
+望能来做客
+可能链接着实太过多
+您太客气
+＂就不打扰了＂
+非常理解
 
-[郭先生0530IV清朝800年是人类最大的文明祸害是中国的灾难](https://gnews.org/zh-hans/1285087/)
+后
+您又再三推荐发
+＂GENWS.爽文＂
+您说＂予人玫瑰
+手有余香＂
+一次两次三次
+次次走心
+由衷感恩
 
-[郭先生0530V北京恢复居住证制将使中国变成天下最大的监狱](https://gnews.org/zh-hans/1285131/)
+思前
+小店想晋级＂米其林＂
+那就要做到＂唯一＂|
+才是唯一
+小店＂云餐＂（线上聚餐会）
+真＂唯品汇＂
 
-[郭先生0530VI灭共重磅接踵而至让战友们对胜利的到来有点懵](https://gnews.org/zh-hans/1285137/)
+想后
+＂破裤子先蹬腿…..＂
+啥都不说
+从＂择名选味定品…＂干起
+日出一餐
+手工亲打造
+亲派送（各种媒聊）
+只关注养热鲜
 
-[郭先生0530VII中欧协议冻结意味共产党被打回到89年以前](https://gnews.org/zh-hans/1285145/)
+好了
+就写到这儿吧！
 
-[郭先生0530VIII中共在世界失去代表性后怎么能代表中国人民](https://gnews.org/zh-hans/1285178/)
+梅言梅语＂美＂妙声
+了诗了词了吟诵
 
-[郭先生0530IX欧洲因洞悉中共反人类流氓真相冻结中欧协议](https://gnews.org/zh-hans/1285456/)
+再聊
+……..
 
-[郭先生0530X普京说若欧洲听证会内容属实将视中共为敌人](https://gnews.org/zh-hans/1285493/)
+@澄道来了
+@爱动爱议码05312
 
-[郭先生0530XI欧中协议破灭让共产党核心利益破灭金融坍塌](https://gnews.org/zh-hans/1285516/)
+校对/发稿：雪梨
 
-[郭先生0530XII没有爆料革命欧中关系一定不会是今天的关系](https://gnews.org/zh-hans/1285630/)
+![This image has an empty alt attribute; its file name is 5_May-1-556x720-1.jpeg](https://lh3.googleusercontent.com/8fPG-b3k1OPDoyNGv4xUGowotNCaFBS_Zy6K0pET5dZlav_GDobq-Ggg7Ttc_cv1Jxic-MNIw5k-4AIUaFK4dcPj0Gi5wObqH5uhfy5PxMn9uHRth-SCaptbFEriybfU9tqIgPrD)
 
-[郭先生0530XIII从科学家欧洲做证那天起中美关系回到二战之后](https://gnews.org/zh-hans/1285637/)
+**更多资讯，更多关注**
 
-[郭先生0530XIV新中国联邦有能力保证新中国按正确的方向走](https://gnews.org/zh-hans/1285651/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[郭先生0530XV美国的民意大大震慑美国高层和与中共勾兑者](https://gnews.org/zh-hans/1285683/)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[郭先生0530XVI有90%的可能中共将于2024至2025年间被灭](https://gnews.org/zh-hans/1285702/)
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-[郭先生0530XVII国人在设计建造文化及信仰上因急功近利吃大亏](https://gnews.org/zh-hans/1285735/)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-发布：日本东京方舟农场 山川异域
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
