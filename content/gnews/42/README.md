@@ -1,63 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内热搜】民众的觉醒：拒绝中共毒鸡汤
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1284727/)
+## 病毒大流行时间线——2020年1月23日武汉封城；世界卫生组织召开紧急会议
+` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1284763/)
 
-作者：纽约香草山佛教部 369文驹
+作者：文永
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31005417/srchttp___res.hannews.com_.cn_a_10001_202001_23a15a5c22d3aa340b8282c793a9b12b.jpegreferhttp___res.hannews.com_.jpg)
 
+**2020年1月23日，武汉封城；世界卫生组织召开紧急会议，但没有就宣布国际卫生紧急事件问题达成一致**。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+*1*月*23*日，武汉关闭对外交通，开始为期*76*天的封城；世卫组织认为信息不足，没有宣布新冠疫情为国际卫生紧急事件。
 
+当天凌晨，武汉疫情防控指挥部发布通告，“从上午10时起，全市城市公交、地铁、轮渡、长途客运暂停运营；无特殊原因，市民不要离开武汉，机场、火车站离汉通道暂时关闭。” 武汉市大约900万居民从此开始[为期76天](https://news.sina.com.cn/o/2020-04-08/doc-iircuyvh6588476.shtml)的封城。
 
+根据[CGTN](https://news.cgtn.com/news/2020-01-27/5-million-people-left-Wuhan-before-the-lockdown-where-did-they-go--NACCu9wItW/index.html)和[南华早报](https://www.scmp.com/news/china/society/article/3047720/chinese-premier-li-keqiang-head-coronavirus-crisis-team-outbreak)报道，在当天武汉封城之前，已经有大约500万人离开武汉。
 
-5月30日，中共新华社专访某科学家并将冠以《拒绝躺平的86岁科学家》的文章发布在了微博上，随后该文章立马成为热搜。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31010409/8B4CA605-4D63-4DF8-A943-865854B9751D.png)
 
-该文章称，“科学家每天凌晨4点多起床，每天工作10至12个小时，没有节假日和周末。”科学家在文中表示，“最欣慰的是看到自己的成果有助于国家，感到自己没有白来这世界一趟。”
+人民日报转发武汉封城公告，图片来源：[搜狐新闻](https://www.sohu.com/a/368529534_391380)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31003022/86-1.jpg)图片来源：见水印
+当天，世界卫生组织（WHO）召开紧急会议，讨论是否宣布国际卫生紧急事件。根据[CNBC报道](https://www.cnbc.com/2020/01/22/who-postpones-decision-declaring-china-coronavirus-a-global-health-emergency.html)，WHO主席谭德赛称，在当天的会议上分歧很大，最终没有达成一致。
 
-当下社会，中共眼里的韭菜纷纷躺平了，使得镰刀不好割了。于是，中共搬了科学家出来站台。此刻，该科学家成了中共洗脑和压榨百姓的工具。但人民群众的眼睛是雪亮的，一眼就看出中共的猫腻，纷纷留言回怼。由此也可看出，在中共言论管控几近变态的当下，老百姓也要说出内心的想法，真是“天下苦秦久矣”。以下是部分回复摘录：
+谭德赛说：“我们今天的会议讨论得很好，但是显然还需要进一步信息才能我们得出结论。”
 
-1. 懂了，国家号召我们不能退休，要工作到86岁，每天工作12小时，没有节假日和周末。就这是党和国家如今对工农阶级的态度，是吗？
-2. 做自己喜欢的事和当牲口是一回事儿吗？
-3. 事实证明主流媒体只会为资本家说话，充当资本家的肉喇叭。
-4. 你们要再唠什么拒绝躺平，我可就要唱义勇军进行曲了。
-5. 不要视企业996白加黑为正常，社会主义国家，说好的八小时工作制别成空话。
-6. 真正躺平的是那些大房主，手里几十套房子躺着收房租。
-7. 呵呵，人多成那样，内卷那么严重，贫富差距超级巨大，房价虚高严重，一套房掏空6个钱包，还要压榨底层韭菜，真好，大家都挺住，不婚不育保平安吧。
-8. 我躺好了。
-9. 这种话题带上为国奉献的老科学家你们不亏心吗？？
-10. 明明是割韭菜的频率太快了，非要怪韭菜自己长得慢。
+WHO之前宣布的国际卫生紧急事件分别是：2009年猪流感、2014年埃博拉病毒、2016年寨卡病毒和2019年埃博拉病毒爆发。
 
+（文章仅代表作者观点，与G-News网站无关）
 
-如今，中共一方面用病毒、疫苗杀人，赚人命钱，一方面榨干有劳动能力的人最后一滴血汗钱。因此，当老百姓无奈选择躺下时，吃人不吐骨头的中共怎么可能愿意呢？而那些被中共洗脑的民众，不管主动醒悟，还是被动发现，正逐渐在中共的一个接一个的弥天谎言和阴谋中清醒过来。躺平既是现实的选择，也是无声的抗议，更是勇敢的战斗！
+* * *
 
-参考阅读：
-
-拒绝躺平的86岁科学家\_https://s.weibo.com/weibo?q=%23%E6%8B%92%E7%BB%9D%E8%BA%BA%E5%B9%B3%E7%9A%8486%E5%B2%81%E7%A7%91%E5%AD%A6%E5%AE%B6%23&Refer=top#\_loginLayer\_1622374097784
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+*发布：纽约香草山农场 shangshang*
 
 0
