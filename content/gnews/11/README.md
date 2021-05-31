@@ -1,96 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】与战友书（一）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1285775/)
+## 郭先生0530XXII GTV发新股9月截止接着是并购和功能金融化
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1285886/)
 
-## – 就是与家人书–
+编辑整理：
 
-作者：纽约香草山健身部 澄道
+华盛顿DC农场：YIMING（文鸣）；纽约香草山农场：酸酸乳(文少)；伦敦喜庄园：胖丁
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31114133/WhatsApp-Image-2020-10-28-at-12.09.34-AM-1_%E5%89%AF%E6%9C%AC.jpg)
+据[20210530 文贵直播：欧中协议被冻结的重大意义；中共将被WTO，世界银行，IMF踢出；法国情报局曝出孟宏伟被消失的真相；欧美通过香港P3实验室向中共提供资金；中共将彻底灭亡于2024，2025](https://gtv.org/video/id=60b38ee8f6ff4b33fb95c2fa)时间点1：46：42——
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg](https://lh5.googleusercontent.com/vLw6Y_b7B_ELY7tNgJ-ZeOlPtiZaj9LITymWl1OE5wOzdIkkX7DZBrFRJJhMt9xpPSvXBwsgxURfUXP8t3HmMF6_KbzyUQPdAO1r5czQIoPgP9oX5cyVQDtWPZyla7HiihEkkn5C)
+像G-TV，现在G-TV它不是靠数据，它也不是靠流量，G-TV就是它这个独有的价值，还有一个大家明白，我都不能多说，7月4号以后咱们再说，它未来的整个G-TV和G-News还有盖特，是不是？还有那个那个那个那个是吧？还有一些系统上去是吧？一些功能的增加，它意味着什么？所以说我着急啊，我着急呀。
 
+咱们新G-TV的股票的最迟有效期咱必须往后延，大概在九月底了，就是九月底是所有的发新股的结束期，九月底，然后呢开始时间一定会在七月初开始，一定会开始，我向大家保证啊，就六月底、六月底以前，6月20号以前和6月10号前一定开始，然后时间是7月、8月到9月1号左右或者九月初结束，好吧，因为我们不能落下更多的战友。仅我们，仅我们，我现在说的是仅我们一个战友，他就要买十亿股，是1块钱一股哦，你们买的是现在是给你们1块钱10股。
 
+那么我们必须让G-TV强大，G-TV强大现在靠三条，独特的价值，第二条下一步的并购，下一步并购得有钱，咱们战友你们加起来多少钱？你们没有机构投资者进来行吗？咱们大量并购，几十亿上百亿美元的钱，第二个并购；第三个把它的功能金融化，最后就是等着共产党灭亡了它的独到的价值，还有美中之间这个大战之后的防火墙的倒塌，迸发的价值不就这个吗？是吧。
 
-灭共无他事
-铲毒愚公人
+所以咱要现在先准备好，功能完善，咱就要把它弄好的起到独特的价值，然后大量的资金、机构投资者的钱进来，战友们没有那么多钱，你们钱很少的，让他们进来并购，然后共产党灭亡防火墙倒塌，叭~大爆发，我们成为一个以中国市场为背景的服务中国人和中美人民和世界人民唯一的桥梁的一个中英国际化的一个新google——搜索为主、语言翻译，然后加上支付宝功能的，然后社交媒体的多元化的平台。然后呢，它G-News就是一个社交媒体的门户网站，盖特是一个完全社交媒体的网站，然后加上一个金融支付功能，再配上喜联储。你佛嘞，昂~昂~，是吧。
 
-梅战友：
-您好
-见字如面
+大家要明白，现在大家有机会，以后这个机会成本会很高，所以说绝对不能让战友们任何人失去应得的机会，好吧。这今天我先说到这儿，好吧，这时间，时间不早了，11点了，我的天呐，我们一起来为75亿的世界人民、14亿新中国联邦的同胞们、香港同胞、台湾同胞、新疆同胞、西藏同胞和爆料革命的战友和家人们祈福。
 
-缘启于一次
-偶然
-＂欧们的七芒星＂
-人生有幸
-同框同聊
+阿弥陀佛！
 
-敬仰于一首歌
-必然
-＂老人家之歌＂
-正道同行
-殊途同归
+啪啪啪（郭先生击掌三下）！
 
-先
-发链接（邀您）
-到＂煮聊堂＂
-望能来做客
-可能链接着实太过多
-您太客气
-＂就不打扰了＂
-非常理解
+万福万神佑我新中国联邦！
 
-后
-您又再三推荐发
-＂GENWS.爽文＂
-您说＂予人玫瑰
-手有余香＂
-一次两次三次
-次次走心
-由衷感恩
+接上文——
 
-思前
-小店想晋级＂米其林＂
-那就要做到＂唯一＂|
-才是唯一
-小店＂云餐＂（线上聚餐会）
-真＂唯品汇＂
+[郭先生5月30日直播前播放视频文字汇总](https://gnews.org/zh-hans/1285030/)
 
-想后
-＂破裤子先蹬腿…..＂
-啥都不说
-从＂择名选味定品…＂干起
-日出一餐
-手工亲打造
-亲派送（各种媒聊）
-只关注养热鲜
+[郭先生0530I中国古编钟折射出来的中国历史之伟大之深奥](https://gnews.org/zh-hans/1285048/)
 
-好了
-就写到这儿吧！
+[郭先生0530II中国长袍之妙让男人浑然一体让女人亭亭玉立](https://gnews.org/zh-hans/1285053/)
 
-梅言梅语＂美＂妙声
-了诗了词了吟诵
+[郭先生0530III今天科技的巅峰并未使内心世界达到自然和美妙](https://gnews.org/zh-hans/1285080/)
 
-再聊
-……..
+[郭先生0530IV清朝800年是人类最大的文明祸害是中国的灾难](https://gnews.org/zh-hans/1285087/)
 
-@澄道来了
-@爱动爱议码05312
+[郭先生0530V北京恢复居住证制将使中国变成天下最大的监狱](https://gnews.org/zh-hans/1285131/)
 
-校对/发稿：雪梨
+[郭先生0530VI灭共重磅接踵而至让战友们对胜利的到来有点懵](https://gnews.org/zh-hans/1285137/)
 
-![This image has an empty alt attribute; its file name is 5_May-1-556x720-1.jpeg](https://lh3.googleusercontent.com/8fPG-b3k1OPDoyNGv4xUGowotNCaFBS_Zy6K0pET5dZlav_GDobq-Ggg7Ttc_cv1Jxic-MNIw5k-4AIUaFK4dcPj0Gi5wObqH5uhfy5PxMn9uHRth-SCaptbFEriybfU9tqIgPrD)
+[郭先生0530VII中欧协议冻结意味共产党被打回到89年以前](https://gnews.org/zh-hans/1285145/)
 
-**更多资讯，更多关注**
+[郭先生0530VIII中共在世界失去代表性后怎么能代表中国人民](https://gnews.org/zh-hans/1285178/)
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[郭先生0530IX欧洲因洞悉中共反人类流氓真相冻结中欧协议](https://gnews.org/zh-hans/1285456/)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[郭先生0530X普京说若欧洲听证会内容属实将视中共为敌人](https://gnews.org/zh-hans/1285493/)
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[郭先生0530XI欧中协议破灭让共产党核心利益破灭金融坍塌](https://gnews.org/zh-hans/1285516/)
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+[郭先生0530XII没有爆料革命欧中关系一定不会是今天的关系](https://gnews.org/zh-hans/1285630/)
 
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[郭先生0530XIII从科学家欧洲做证那天起中美关系回到二战之后](https://gnews.org/zh-hans/1285637/)
+
+[郭先生0530XIV新中国联邦有能力保证新中国按正确的方向走](https://gnews.org/zh-hans/1285651/)
+
+[郭先生0530XV美国的民意大大震慑美国高层和与中共勾兑者](https://gnews.org/zh-hans/1285683/)
+
+[郭先生0530XVI有90%的可能中共将于2024至2025年间被灭](https://gnews.org/zh-hans/1285702/)
+
+[郭先生0530XVII国人在设计建造文化及信仰上因急功近利吃大亏](https://gnews.org/zh-hans/1285735/)
+
+[郭先生0530XVIII我们要在有生之年步步为营去建设新中国联邦](https://gnews.org/zh-hans/1285763/)
+
+[郭先生0530XIX中共疫苗有致命危险,不要拿命去冲这个事情](https://gnews.org/zh-hans/1285790/)
+
+[郭先生0530XX GTV初始投资配股以及对相关农场的股权激励](https://gnews.org/zh-hans/1285825/)
+
+[郭先生0530XXI喜币必须在中共内斗导致资金恐慌性外逃时上市](https://gnews.org/zh-hans/1285858/)
+
+发布：日本东京方舟农场 山川异域
 
 0
