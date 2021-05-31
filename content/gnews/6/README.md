@@ -1,39 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [诗歌] 生与死
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1286236/)
+## 大流行使孩子的视力更差
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1286316/)
 
-#### 作者：浴火重生 发布：滴水穿石
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31145349/IMG_20210531_115303_207.jpg)图片截自网络
-开枪吧，刽子手！
+作者：文复
 
-面对你的枪口，
+医生说，许多孩子在病毒大流行时出现了视力问题。他们认为，罪魁祸首是看屏幕的时间增加。
 
-我们不会低下高昂的头。
+眼科医生说：他们看到越来越多的儿童（其中许多在虚拟学校就读）出现了新的、日益恶化的近视症状。在大流行之前，儿童近视率就已经在全球范围内增加了，但是一些研究表明，过去的一年加剧了这一问题。医生还报告了更多儿童数码眼疲劳的病例。
 
-屠杀吧，法西斯！
+近视率上升背后的一个主要理论认为，当儿童长时间看屏幕或书籍时，眼睛会进行调整以适应近距离焦点，这可能会改变和拉长眼睛的形状，导致近视。同样，减少户外时间可能会增加和恶化近视，因为人们在户外时往往会看得更远。自然光和外面的体育活动也可能起作用。 （成人通常不会因近视而严重恶化，因为童年后眼睛的生长通常会稳定下来。）
 
-我们用生命呼唤，
+费城威尔斯眼科医院的眼科医生朱莉娅·哈勒说：“我们知道近距离聚焦而不是在外面，会增加近视的发生率。”她说：“大流行产生了巨大的影响。”
 
-民主和自由！
+在 JAMA Ophthalmology 杂志 1 月份的一项研究中，中国的研究人员调查了大流行期间超过 120,000 名居家儿童的近视率，发现 6 至 8 岁儿童的近视率比前五年增加了三倍。
 
-再见吧，妈妈！
+简评：中共国社会的一切问题都可以追溯到中共的邪恶本质，这一点在此文中再次得到应证。
 
-孩儿不是不听话，
+文章来源：[The Wall Street Journal](https://www.wsj.com/articles/the-pandemic-made-kids-eyesight-worse-doctors-say-11622484000)
 
-历史的今天选择了我们，
+校对发稿：士多啤梨
 
-就用我们的热血铸成六月花。
-
-朋友，别哭！
-
-别说我们一无所有。
-
-我们扛着自己的尸首，
-
-走过五千年的风风雨雨，
-
-还会继续谱写我们的追求……
-![This image has an empty alt attribute; its file name is 063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg]()![This image has an empty alt attribute; its file name is 063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26030300/063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg)
 0

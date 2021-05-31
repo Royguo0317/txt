@@ -1,27 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 因在广州发现印度变种病毒，中共国下达自今年一月来的首次封锁令
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1286479/)
+## 中共和纳粹一样开始登记和限制专业工程技术人士出国！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1286620/)
 
-作者：文复
+**摘要：在5月25日的盖特中，郭先生说共产党下一步将会和纳粹希特勒一样限制专业工程技术人士出国。它将通过脸部识别、边控等手段对这些人员进行全面控制。这种限制将持续到中共灭亡。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31172432/Miles_2021-05-25_g1.srt.txt)
+**中共和纳粹一样开始登记和限制专业工程技术人士出国！**
 
-印度的第二波冠状病毒疫情最终在 5 月份达到顶峰，因为 7 天平均值在整个月内稳步下降，而死亡人数直到下半个月也仍然居高不下。 但比数字更重要的是，在印度首次发现的变异 COVID 毒株（一种标记为 B.1.617 的毒株）在全球传播时引起了恐慌。
+**CCP Is Just Like Hitler – Restricting Professionals from Leaving China**
 
-现在，中共国正在对最近由印度变种引起的一系列病例作出反应，以进一步收紧中共国与印度及其共同邻国之间的边界。在珠穆朗玛峰的顶峰实施新边界后，表面上是为了阻止来自尼泊尔方向的登山者，在那里受印度溢出病例激增的影响而越境，中共国城市广州已实施部分封锁，因为发现了群发病例。
+昨天救出来的战友，告诉我很多国内公检法[人员]，现在受的煎熬。而且现在[共产党]对科学家、工程专业人士，正在进行全面的筛选调查。我今天告诉大家一个你们都无法想象的[事实]，希望战友们不要受到伤害。所有的工程师，所有的技术人员，共产党就会特别登记，限制出境。以后什么写代码的工程师啊，懂得工程高端技术的啊，建筑师啊，都不让出国啦。因为你[们]走了都不回来了。以后都要全面限制。全国联网脸部识别，边控控制，你哪儿都别去。从边控到城市控，从这个城市到那个城市都不行，咱不信走着看。
 
-自从中共国实施与COVID相关的最后一次部分封锁以来已经过去了几个月了，上次封锁是在一月份期间在北京附近的河北省及其周边地区爆发病毒的。
+The fellow fighter who was rescued yesterday told me a lot about the torment of the people within the judicial, prosecutorial and law enforcement systems in China. Moreover, [the CCP] is conducting full screening and investigation into China’s scientists and engineering professionals. Today I will share something that none of you could have imagined. I hope that my fellow fighters won’t get harmed. All engineers and technicians will be specifically registered by the CCP, and they will be restricted from leaving China later on. In the future, software engineers, those who understand high-end technology and engineering, and architects will not be allowed to go abroad because if they leave they will never return. In the future, it will be fully restricted. Through the national face recognition network and border control, they cannot go anywhere. From border control to the local control, everything will be under surveillance. You cannot even travel from one city to another. Just wait and see if you don’t believe this.
 
-离开该市（广州也是省会城市，人口超过 1500万）的人必须在出行前 72 小时内检测出病毒呈阴性。截至当地时间周一 11：40 ，全球最繁忙的航空旅行枢纽之一广州白云国际机场已经取消了约 520 个航班。
+当年的希特勒限制所有的德国的高级知识分子专业人士不能出国，直到希特勒被消灭。现在马上在中共开始。
 
-早些时候，当局宣布对5月21日发现首例感染者的荔湾区多条街道居民实行居家令。省卫健委副主任陈斌（音）向新华社证实，在广州当地所有自 5 月 21 日发现的传播病例与 B.1.617 印度变种有关。
+Hitler once restricted all senior German intellectuals and professionals from going abroad until he and his regime were eliminated. The CCP will implement this policy right away.
 
-自2019年12月武汉爆发疫情以来，中共国在很大程度上已遏制了COVID-19的传播。尽管病例（官方的）减慢了蔓延速度，随着对这种病毒起源的审查越来越加强，更多的证据显示病毒来自武汉的一个实验室。与此同时，遗传学家发现更多证据表明该疫苗可能是人造的，这是福奇博士和其他人所倡导的“功能获得”研究的结果。（福奇博士甚至多年来还辩称大流行病的潜在益处超过了它对社会造成的风险。）
+烧了你还不算，在你没死之前，你得好好的当奴隶。这就是共产党。跟着共产党，走进火葬场，咱不信走走看！
 
-文章来源：[zerohedge](https://www.zerohedge.com/covid-19/china-orders-first-lockdown-january-indian-mutant-discovered-guangzhou?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+In addition to cremate you without any dignity, you have to act as a useful slave before you die. This is the CCP. Following the CCP is like walking straight into the crematorium. Let’s just wait and see!
 
-校对发稿：士多啤梨
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60ada88d744cbc43136453a6](https://gtv.org/getter/60ada88d744cbc43136453a6) (8:29-end)
+鸣谢：
+[1] 感谢Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1272820/](https://gnews.org/zh-hans/1272820/)
+[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于 [https://gnews.org/1274259/](https://gnews.org/1274259/)
 
+* * *
 
+**整理校对 & 新闻撰写：【guocamole(文金欠)（纽约香草山农场）】
+字幕：【JennyL（纽约香草山农场）】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%25E7%258E%25AB%25E7%2591%25B0%25E5%259B%25AD%25E5%25B0%258F%25E9%2598%259F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
