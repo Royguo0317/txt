@@ -1,117 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 青白记
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1285104/)
+## 【班农战斗室】985-986 期简讯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1285138/)
 
-作者：X-Wing| 校对：胖丁|审核：Julia Win|Page：小雨
+#### 翻译：七彩光
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31032747/053112.jpg)
+#### 校对/编辑：文泓
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31040000/Picture1122.png)
+图片来源：墨尔本雅典娜农场设计组（精灵蓝）
 
-## （1）
+**主持人：史蒂夫-班农**
 
-千锤万凿出深山，烈火焚烧若等闲。
-粉骨碎身浑不怕，要留清白在人间。
+嘉宾：Frank Gaffney, MG Jospeh Arbuckle, BG Don Bolduc, BG Scott Perry, BG Bill Welch, RADM Jon Bayless
 
-这是明代政治家、文学家于谦创作的一首七言绝句。作者托物言志，直抒情怀，表达坚守高尚节气的决心，立志要做纯洁清白之人。
+## **1****、退休将领们警告：不费一枪一弹，马克思主义就将我们置于失去宪政共和国的巨大危险之中**
 
-小时候读过这诗，未曾觉得脏兮兮的石灰有什么美值得咏的，也没有觉得“清白”有多重要，身正不怕影斜。
+一群退役的“美国护旗官”继续发出他们的战斗警告，即美国正处于马克思主义思潮的危险时刻。
 
-后来长大一些，读过些书，方晓得人的“清白”（名声，气节）相当紧要，女人为了它会跳井殉情，武夫为保护它宁肯剁手剖腹，大丈夫不仅咏诗明志，更有金刚勇气般若智慧无所畏惧如郭文贵，一人敌一国，青史留名，且待后人评。
+《战斗室》接待了许多勇敢的（陆军）将军和海军将领，他们在一封信上签名，警告美国必须清醒地认识到我们正面临一场共产主义革命。
 
-## （2）
+乔.阿巴克（Joseph Arbuckle）将军说：“我们正处于极度危险之中，除非我们有所作为来扭转局面，否则将面临失去宪政共和国的巨大危险。”
 
-宋瓷当中有一种小众的青白瓷，胎骨的白度很高，但披覆上去的釉层却会在比较厚的地方，隐现出淡淡的青色，青、白相映成趣。青白瓷又称“影青”，是宋代简约纯粹美学的至高表现之一，釉色青白淡雅，色泽温润如玉，淡定、清秀和疏朗，如影随行，影青之美也。
+国会议员、斯科特-佩里（Scott Perry）准将说，（马克思主义）对军队的文化攻击是试图从根本上改造美国。
 
-瓷器的原料高岭土属于石灰的一种。高岭土经过高温烧制和能工巧匠之手，可以幻化为雨过天青色的宋汝或影青，或千变万化朦胧精致的青花瓷，可见石灰还真是不一般。
+他说：“左派正在异常勤奋地工作，实质是为改变美国，现在美国执法部门和军队站出来反对，这实际是在捍卫美国宪法的最后堡垒。”
 
-## （3）
+退役美国海军副司令乔恩.贝勒斯（Jon Bayless）说，面临着边境危机、能源危机以及马克思主义，美国正处于危险之中。
 
-![]()![](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6c/Flag_of_the_Republic_of_China_canton_construction_sheet.svg/1280px-Flag_of_the_Republic_of_China_canton_construction_sheet.svg.png)
+他说：“这是一个失去理性和常识的时代，我们正为我们的国家而战，我们是当代的民兵。”
 
-这个徽记和旗帜想必大家都在抗日神剧中多次见过，有必要说明一下“青天白日”的设计理念（来自[搜狗百科](https://baike.sogou.com/v4906055.htm?fromTitle=%25E9%259D%2592%25E5%25A4%25A9%25E7%2599%25BD%25E6%2597%25A5%25E6%2597%2597)）：
+阿巴克将军总结说，现在面临的最大的威胁不是外国，而是国内。
 
-*青色代表光明纯洁、民族和自由；白色代表坦白无私、民权和平等；*
+他说：“在我看来，目前我们国家生存面临的最大威胁在国家内部，存在于民主党领导下的国会大厅，存在于白宫内部。”
 
-*白日的十二道光芒，代表著一年十二个月，一天十二个时辰；也象征著国家的命脉，随著时间的前进永存于世界；更鼓舞国人与时俱进，自强不息。*
+阿巴克将军说：“不费一枪一弹，我们就被这种意识形态占领了。问题是，这种情况是如何发生的，以及该如何处理。”
 
-*青天白日，取象宏美，中华民国为远东大国，日出东方为之最者，且青天白日，示光明正照自由平等之义。*
+阿巴克将军认为，解决方案就是让美国人民控制他们的地方教育系统，让教会和社区参与进来，并使他们的地方成为第一和第二修正案的庇护场所。
 
-“青天白日满地红”—— 1921年5月5日，孙中山在广州就任非常大总统时定此旗为中华民国国旗。
+【备注：宪法《第一修正案》规定，国会不制定有关宗教信仰建立或禁止其自由行使的法律。它保护言论自由，新闻出版，集会以及要求政府提出申诉的权利；《第二修正案》赋予公民携带武器的权利。】
 
-![迎風招展的青天白日滿地紅| Taiwanese flag, Flag emoji, Emblem logo]()![迎風招展的青天白日滿地紅| Taiwanese flag, Flag emoji, Emblem logo](https://i.pinimg.com/originals/cd/73/46/cd73468b5d050817a0d8771100a993c8.jpg)
+## 2、班农抨击精英们让普通民众为自我毁灭而买单
 
-中华民国国歌只有48个字:
+Stephen K. Bannon went off on the elites for setting up a system in which the Deplorables underwrite their own destruction.
 
-***三民主义，吾党所宗，以建民国，以进大同。***
-***咨尔多士，为民前锋；夙夜匪懈，主义是从。***
-***矢勤矢勇，必信必忠；一心一德，贯彻始终。***
+班农抨击美国精英们建立了一套系统，在这个系统中，美国人民正在为自我毁灭而买单。
 
-青天白日，朗朗乾坤。是指光天化日，政治开明，天下太平的环境。
+他周六在《战斗室》节目中说：“我们正在为世界上人类面临的最大的生存威胁–中共买单。”
 
-仍记得小时候听说书先生的一声大喝：呔！青天白日（光天化日），朗朗乾坤。大胆狂徒，竟然敢强抢民女。。。。。。
+“这个骗局是，它们（中共国）是世界经济体系的核心——由这个世界的精英们设立的”，班农说：“原本不需要这样的。
 
-## （4）
+“我们通过代言人允许这样的事情发生”，他说：“（但是）世界历史上最伟大的人们（美国人民）正在为自我毁灭提供担保。”
 
-近日有英国每日邮报(Daily Mail)等英文新闻，混淆是非，抹黑郭先生。
+“在爱国者坟墓里的每一位爱国者会如何评价我们所做的事情呢？”
 
-看过去三年，口炮式灭共、小骂大帮忙、桌子下收钱“砸锅”的伪类层出不穷，假反共掺沙子的狗粮伪类“砸锅”的不乏其人，假挺郭真离间之伪类走狗也有不少，然而，今安在？那些假民运、欺民贼、骗捐党、砸锅团、口炮党们哪一个有什么好下场的？丑恶、阴险与龌龊俱大白于天下，一如其主，为众人所唾弃。
+【备注：5月31日是美国阵亡将士纪念日。】
 
-而七哥领导的爆料革命愈战愈勇，G系列产品迭出，喜币平台也顺利上线，打了无数伪类和CCP的脸。国际形势反共涛涛浪潮更不必多说，青白分明。所以这种英国小报的言论，真是懒得去驳。不过是再多一个抹黑搅浑水的，徒增笑耳。爆料革命大势所趋，唯真不破，黑的不能洗白，白的也抹不黑，2+2永远等于4。
+## 3、纳瓦罗历数福奇造成的死亡
 
-[!\[\]()!\[\](https://spark.adobe.com/page/dnMuYW8dw11qe/images/c820ffd2-5951-4e2e-8025-a3cdb37e8d16.jpg?asset_id=15ca639c-8b4c-46cb-82af-96aa21a9f992&amp;img_etag=%22fe7abc39adb05ca18037a5975c9a3b0f%22&amp;size=1024)](https://spark.adobe.com/page/dnMuYW8dw11qe/images/c820ffd2-5951-4e2e-8025-a3cdb37e8d16.jpg?asset_id=15ca639c-8b4c-46cb-82af-96aa21a9f992&amp;img_etag=%22fe7abc39adb05ca18037a5975c9a3b0f%22&amp;size=1024)
+彼得.纳瓦罗（Peter Navarro）博士回到了《战斗室》，痛斥福奇（Fauci）博士是史上最大的刽子手，而且证据确凿。
 
-郭先生真要在乎自己在欧美人眼中的“名声”，何不出钱优化粉饰谷歌搜索结果，优先显示有利于自己名誉的英文网页结果？这点小钱根本不足挂齿。
+纳瓦罗说，在艾滋病流行期间，福奇对13000人的死亡负有责任；因阻挠羟氯喹的使用导致20000至40000人死亡；因资助（武毒所）新冠病毒的功能性增强研究而导致（世界上）数百万人死亡。
 
-同样道理，在大外宣上投入重金全球到处蓝金黄的中共，不但青的说成白的，黑的也说成白的，颠倒黑白，难道能逃脱得了树倒猢狲散，众叛亲离，墙倒众人推的下场？
+是福奇造成了“历史上最大规模谋杀，他也是一个连环杀手，”纳瓦罗说。
 
-“真相很少纯粹，也决不简单”。
-唯真不破，Truth prevails，却是千古不变的道理。
-宋瓷中的汝窑“寥若晨星”，世所罕见。
+他说：“在你们通过推特（Twitter）爆出重磅消息之前，先去读一下我的数百篇论文。”
 
-而青白之疏影，石灰之气节，青天白日，朗朗乾坤，岂非一目了然乎？
+纳瓦罗说：“如果新冠病毒是从实验室泄露的，那么托尼.福奇就是病毒之父，大流行病的教父，他手上沾满了鲜血。”
 
-近日在一粤菜餐馆吃饭，见菜单上一个小菜名曰“青青白白”，以为是“一清二白”的小葱拌豆腐，点过菜上得头盘来，却是一小盘凉拌黄瓜，放了白糖、醋、蒜等调料，也是一个酸爽。
+## 4、班农抨击中共、福奇和大媒体：“你们的双手沾满了鲜血”
 
-“青白”二字放飞思绪，是以为记。
+班农撕下了中共、托尼.福奇和腐败的媒体的面具，他们在掩盖了中共病毒的起源。他在周六的《战斗室》节目中说：“你们尽可以对彼得.纳瓦罗说所有这些尖酸刻薄的话，你想怎么说就怎么说，鲜血沾满了你们罪恶的双手。”
 
-**本文参考链接：**
+班农指出，一场清算即将到来，今年夏天，当病毒的起源和总统大选被盗真相大白时，将是对精英阶层的一次考研。
 
-- [剖析新一輪砸郭現象中的謬論](https://gnews.org/zh-hant/159766/)
-- [欺民贼群丑图：砸郭伪类、假民运、骗捐党、吃六四血馒头、诋毁香港…](https://gnews.org/zh-hans/84596/)
-- [郭先生0216:盖特技术问题、毒疫苗、欺民贼、Sara退款说明、中国现状](https://gnews.org/zh-hans/915481/)
-- [正义与邪恶的较量！砸郭的把自己都砸进去了](https://gnews.org/zh-hans/161411/)
-- [画皮—聊聊挺郭变砸郭伪类的阴险与龌龊](https://gnews.org/zh-hans/164319/)
+“你们不可能再掩盖这个事实真相了”， 班农说，“这（病毒）是一种武器，我们都知道它是一种武器，它已杀死了大量的中国人。”
 
+（文章内容仅代表作者观点）
 
-***文章仅代表个人观点***
+参考资料：维基百科
 
-***欢迎阅读作者更多文章：***
+原文链接：
 
-- [少年记](https://gnews.org/zh-hans/1256998/)
-- [双城记（2）——上海](https://gnews.org/zh-hans/1254539/)
-- [骑墙记](https://gnews.org/zh-hans/1249247/)
-- [双城记（1）——City记](https://gnews.org/zh-hans/1238353/)
-- [价值观记（2）——发丧(sāng)记](https://gnews.org/zh-hans/1248903/)
-- [价值观记（1）](https://gnews.org/zh-hans/1232036/)
-- [巴别塔记](https://gnews.org/zh-hans/1195801/)
-- [BULLY记](https://gnews.org/zh-hans/1188970/)
-- [无冕记](https://gnews.org/zh-hans/1180655/)
-- [点火记](https://gnews.org/zh-hans/1176727/)
-- [如雷记](https://gnews.org/zh-hans/1164914/)
-- [石头记](https://gnews.org/zh-hans/1156293/)
-- [钉子记](https://gnews.org/zh-hans/614837/)
+1. [Retired Generals Warn: ‘We Are in Great Danger of Losing Our Republic’ to Marxism Without a Single Shot Fired](https://warroom.org/2021/05/29/retired-generals-warn-we-are-in-great-danger-of-losing-our-republic-to-marxism-without-a-single-shot-fired/)
 
+2. [Bannon Blasts Elites for Making Deplorables Pay for Their Own Destruction](https://warroom.org/2021/05/29/bannon-blasts-elites-for-making-deplorables-pay-for-their-own-destruction/)
 
-编辑：【英国伦敦喜庄园编辑部】
+3. [Navarro Reveals the ‘Fauci Body Count’](https://warroom.org/2021/05/29/navarro-reveals-the-fauci-body-count/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/dnMuYW8dw11qe/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/dnMuYW8dw11qe/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
-
-
+4. [Bannon Hits CCP, Fauci, and Media: ‘This Blood Will Not Wash Off Your Hands’](https://warroom.org/2021/05/29/bannon-hits-ccp-fauci-and-media-this-blood-will-not-wash-off-your-hands/)
 
 0
