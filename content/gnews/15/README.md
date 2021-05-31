@@ -1,114 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 金里奇：两党法案，允许新冠病毒受害家庭起诉中共
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1284341/)
+## 鲁迪·朱利安尼:闫丽梦博士冒着巨大风险说出武汉病毒实验室的真相
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1284355/)
 
-视频字幕/听写：云岭 | 翻译：Roberts | 校对：Wade | 简评/文字整理/编辑：胖丁| Page：我是球大哥
-[!\[\]()!\[\](https://spark.adobe.com/page/N86Yr3ueTKIqo/images/e6ed8661-9d4d-4c79-aa26-c90a170f9a8a.png?asset_id=a3f88053-9534-4f1f-bfde-2737d532d3cc&amp;img_etag=%22a72de2ff55f4797ac38899dda71689b4%22&amp;size=1024)](https://spark.adobe.com/page/N86Yr3ueTKIqo/images/e6ed8661-9d4d-4c79-aa26-c90a170f9a8a.png?asset_id=a3f88053-9534-4f1f-bfde-2737d532d3cc&amp;img_etag=%22a72de2ff55f4797ac38899dda71689b4%22&amp;size=1024)
-**简评：**
-
-众议院立法部门即将推出两份针对中共国的两党法案，其中一个法案允许新冠病毒受害家庭起诉中共，要求赔偿。因为病毒来自中共国武汉实验室，经过人工改造并释放出来，导致几百万人死亡、全球经济危机，并破坏了世界秩序，中共应该承担责任。
-
-应该增加对中共国30%-40%的关税，以便积累足够的基金援助受害家庭。其他国家如果采取同样的措施，中共国的经济会因为出口而下滑，直至崩溃。
-
-拜登政府某种程度上想成为习近平的朋友，而不是对抗中共。
-
-GTV视频链接：[关于病毒来源现在发现压倒性的证据，中共国应该承担责任, 应该对中共国增加关税，将所得资金投入基金，帮助美国受害家庭起诉中共!](https://gtv.org/video/id=60b2492bba7ef9088d0361a6)
+鲁迪·朱利安尼 (前纽约市长)： 闫博士冒着巨大风险说出武汉病毒实验室的真相 【转闫博士推文：2020年9月10日，在曼哈顿朱利安尼市长的公寓里举行了一次历史性会议。 玛丽亚博士，班农先生和路德先生都是英雄，他们冒着很大风险告诉世界新冠病毒 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 的真相！ [#超限生物武器](https://twitter.com/hashtag/%E8%B6%85%E9%99%90%E7%94%9F%E7%89%A9%E6%AD%A6%E5%99%A8?src=hashtag_click) [#中共撒谎人民死亡](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E6%92%92%E8%B0%8E%E4%BA%BA%E6%B0%91%E6%AD%BB%E4%BA%A1?src=hashtag_click)】
 
 
 
-**视频字幕：**
-
-**主持人**：众议院立法部门已经准备就绪，他们在今天推出两份针对中共国的两党法案。
-
-其中一个法案允许新冠病毒受害家庭起诉北京。
-
-这里是福克斯撰稿人，众议院前议长，纽特·金里奇，先生你好！早晨好！
-
-非常想知道你对这一计划的分析，我们就从此说起吧。然后我再问你几个问题。这一法案会有什么影响？
-
-**纽特·金里奇**：好的。我们都是有常识和专业知识的。
-
-常识就是，这个病毒是人造的，几乎可以肯定是来自武汉。
-
-中共国应该承担责任。
-
-中共国向世界卫生组织撒谎，向全世界撒谎。
-
-他们现在不允许进行任何实质性的调查。
-
-这个病毒开始被称作“武汉病毒”或者“中国病毒”，事实也是如此。
-
-可悲的是，一年多时间里，西方世界被中共国欺骗，而且接受了这种欺骗。
-
-他们认为实验室制造不可思议。
-
-现在发现压倒性的证据，从技术的角度看，疾病从动物传到人的进化速度是非常低的。
-
-然而这个病毒来的非常快，我认为是故意改造疾病。也许是因为糟糕的操作规范从实验室泄漏，也许不是故意的。
-
-不论如何，中共国要对死去的几百万人，对全球经济危机和世界秩序的破坏负责。
-
-不能放过中共国。
-
-**主持人**：好的，我同意你所说的一切。
-
-不管你可以证明多少证据，我不知道你能在中共政府那里得到诚实的答案吗？
-
-现在你有90天的时间，我不知道你在这期间可以做什么。
-
-也许收集更多的证据，写一份很长的报告，让全世界看得更清楚。
-
-也许你与盟国，日本、韩国、澳大利亚，你的北约同盟。团结全世界迫使北京承认。
-
-但是即便如此，中国共产党也不会公开承认。
-
-所以要给习近平主席施加什么样的压力呢？ 你继续讲。
-
-**纽特·金里奇**：我们应该对中共国产品增加30-40%的关税。
-
-把得来的钱投入一个基金帮助受害家庭，让他们起诉。就像人们遇到的任何工业纠纷。
-
-我们都看过广告。你有损失就给律师事务所打电话。
-
-因为中共国扮演的坏角色，我们要增加他们的关税。
-
-并且一直保持这样的关税，直到我们有足够的资金理赔所有美国受害家庭。
-
-其他国家应该注意观察，并且采取同样的措施。
-
-这样的话，习近平就会面临真正的问题，因为他的出口业会使得其经济下滑，直到崩溃。
-
-然后他就有来自国内真正的问题，而不是仅仅言论谴责。
-
-**主持人**：最后一个问题。
-
-这里是大卫·阿舍昨天下午接受约翰·罗伯茨的采访，关于情报界的很有趣的评论，听听。
-
-我很有信心，我认为在此阶段一定会发现很多情报，但是他们能说多少是另一回事。
-
-在蓬佩奥的领导下，我们解密了很多信息。
-
-我当然希望、也知道国会两党都同意，本届政府会做同样的事情。
-
-为了我们和人类的未来，我们应该找到真相。
-
-非常有趣。我不知道你有没有看这个采访，你怎么看事情的发展？
-
-**纽特·金里奇**：这届政府某种程度上想成为习近平的朋友，而不是敌人。
-
-我非常怀疑，拜登总统是否会让美国人民知道美国情报机构所知道的事情。
-
-如果是的话，我会非常吃惊。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+> Dr Yan took great risk to tell the truth about the Wuhan Lab of Virology [https://t.co/dhw7loIMZ2](https://t.co/dhw7loIMZ2)
+> — Rudy W. Giuliani (@RudyGiuliani) [May 30, 2021](https://twitter.com/RudyGiuliani/status/1399030336915443716?ref_src=twsrc%5Etfw)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/N86Yr3ueTKIqo/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/N86Yr3ueTKIqo/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+鲁迪·朱利安尼 (前纽约市长)： 为什么拜登、民主党、大科技巨头和大众媒体均谴责这些一直在说病毒来自武汉实验室的人？
+
+
+
+> Why did Biden, the Democrat party, Big Tech and Mass Media condemn these who have been saying virus emerged from Wuhan Lab?
+> — Rudy W. Giuliani (@RudyGiuliani) [May 30, 2021](https://twitter.com/RudyGiuliani/status/1398936129102036994?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： 曾经有众多英勇的吹哨人，但是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府逮捕了他们，让他们被消失了。 如果不是因为 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的掩盖，[#新冠](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0?src=hashtag_click) 能维持在一个地域性的爆发是非常有可能的，而不是变成一场全球大流行。（附上他接受采访对这件事的阐述）
+
+
+
+> There were multiple heroic whistleblowers but the Chinese government arrested them and disappeared them. 
+> 
+> If it were not for the CCP's cover up, there's a very real possibility that COVID-19 could have been contained as a regional outbreak instead of becoming a global pandemic. [pic.twitter.com/J47BMNVU0D](https://t.co/J47BMNVU0D)
+> — Ted Cruz (@tedcruz) [May 30, 2021](https://twitter.com/tedcruz/status/1399015742956318721?ref_src=twsrc%5Etfw)
+
+
+
+
 
 0

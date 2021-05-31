@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共当局促喜马拉雅放弃赴美IPO改香港上市
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1284430/)
+## 【鹰眼墙国】“反食品浪费”法规化，但粮食危机远未结束
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1284485/)
 
-作者：香草山健身部 Jack Li文阳
+香草山写作组 鹰(文言)
 
 
 
@@ -12,30 +12,44 @@
 
 
 
-三位知情消息人士说，中共国正在敦促国内最大在线音频平台—喜马拉雅放弃赴美国上市计划，改为去香港上市。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30205814/Untitled-design-61.png)
-根据路透社报道，知情人士表示，喜马拉雅计划本月赴纽约上市，最近包括中共国国家互联网信息办公室在内的中共国监管机构敦促该公司取消赴美上市计划，改为去香港上市。消息人士称，喜马拉雅仍在与国家互联网信息办公室进行商谈。
+新浪网5月28日转载北京日报客户端消息，《北京市反食品浪费规定》于27日正式施行，标志着节约粮食、反对浪费这一“省吃俭用”理念的法律条文化。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30213358/Screen-Shot-2021-05-30-at-9.19.22-PM.png)
+中共农业农村部披露，2021年投入“三夏”麦收的联合收割机将超过60万台，小麦面积达3.35亿亩；2020年冬小麦面积3.15亿亩，联合收割机65万台。从数据上看，2021年的小麦种植面积增长0.2亿亩。但与之相对的是由于自然灾害的频发，2021年4月农作物受灾面积333千公顷（其中绝收29.3千公顷），而进入5月后，南方进入汛期，长江汉口站水位达156年最高值，长江中下游干流主要控制站水位较2020年同期高4.6-7.0米等迹象都标志着今年的洪涝灾害要比2020年更为激烈。3.35亿亩小麦能否保证“大水之年是丰收之年”依旧仍待考察。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30213335/Screen-Shot-2021-05-30-at-9.19.28-PM.png)
+2020年上半年中共国累积进口粮食6090万吨，同比19年增长20.6%，其中进口小麦335万吨（同比增加90.3%）；而2021年前4个月，进口粮食5079.2万吨，进口规模比2020年同期增长57.8%。从小麦种植面积的增长，进口粮食规模猛增，可以看出国内粮食短缺危机并没有因2020年的“秋收硕果”和“粮食产量13.4亿吨”而得到缓解。反食品浪费法确实可以行政干预、遏制民间的浪费行为。然而，浪费挥霍最为严峻的是中共上层“生态”，他们依旧享有法外的特权。现在全国各种物价飞涨，全球对中共的经济脱钩和制裁加剧，中共“外汇买粮”的渠道也被进一步缩窄，国内的粮食危机还远没有结束。
 
-美国国会众议院通过的《外国公司问责法案》，要求外国发行人连续三年不能满足美国上市公司会计监督委员会（PCAOB）对会计事务检查要求的，禁止其证券在美国交易，大量的中概股将被强制从美国证券市场退市。
+新闻来源：
 
-据报道，受中概股在美国市场跌跌不休，大量的中概股股价被腰斩的影响，喜马拉雅与另外两家公司——哈啰出行和七牛云正暂停了美国的上市计划，纷纷推迟了接受美国投资者的认购。尽管这三家公司已经向美国SEC递交了上市前的书面文件。
+《北京市反食品浪费规定》通过实施，全文来了https://news.sina.com.cn/c/2021-05-28/doc-ikmyaawc7969829.shtml
 
-到美国上市圈钱，是近二十年来中资公司的流行做法。但时过境迁，在美国的中概股全部面临着被退市的风险。被勒令退市的公司，要偿还美国投资者的投资款项。如果涉嫌数据造假，甚至会面临投资者的集体诉讼。如果其股价跌破发行价，再扣除金融公司的各项费用，上市公司将面临巨大的资金链断裂的风险，甚至会影响到公司的生存问题。
+“三夏”农机化生产顺利收官http://www.njhs.moa.gov.cn/nyjxhqk/202008/t20200804\_6349811.htm
 
-中共替喜马拉雅公司着想，可谓用心良苦。况且，在中共的眼里香港的韭菜也是韭菜，还算肥壮。对于从美国退市和准备美股IPO的中资企业，既然不能去美国上市赚美元，改道香港也是眼下唯一的选择。
+今年“三夏”收割机将超60万台https://politics.gmw.cn/2021-05/26/content\_34877338.htm
 
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24221039/5_May-1-556x720-2-3.jpeg)
+长江流域全面进入汛期，数十条河流现超警洪水https://www.sohu.com/a/468942059\_260616
+
+应急管理部发布2021年4月全国自然灾害情况https://finance.sina.com.cn/tech/2021-05-08/doc-ikmyaawc4138452.shtml
+
+数据 | 粮食进口量同比增长20%，但中国主粮对外依赖度仍很低https://www.jiemian.com/article/4849632.html
+
+美国印钞让全球买单？国际粮食价格疯涨！中国粮食进口已大增57%http://news.hexun.com/2021-05-10/203571024.html
+
+食为天︱为什么粮食进口不等于粮食缺口？https://www.thepaper.cn/newsDetail\_forward\_8860429
+![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+编辑/校对/发稿：正义的小新
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 0

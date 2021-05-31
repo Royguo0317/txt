@@ -1,90 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/05/26 班农采访(3)：新中国联邦对西方世界影响巨大
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1284303/)
+## 超过200名共和党人向佩洛⻄(Pelosi)施压敦促其进行COVID-19起源调查
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1284301/)
 
-视频字幕：free20200604 | 听写/翻译：Wade | 校对： 葡萄树 | 简评/文字整理/编辑：胖丁| Page：我是球大哥
+#### 编译:Boxinglady (文拳)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24084204/1127485058_16218407341961n.jpg)图片来自网络
+200多个众议院共和党人正向其⺠主党同僚施加压力，要求他们了解COVID-19的起源并要求共政权对这场大流行病的掩盖行为负责。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2B77pghBEki7y/images/46ef6b59-6b9d-4c3f-9a5a-5bc739ed11a2.png?asset_id=58d17d39-bf1d-469e-8630-6be091042555&amp;img_etag=%22567e233a2e118cc9b8ce6ca8e1d2a91a%22&amp;size=1024)](https://spark.adobe.com/page/2B77pghBEki7y/images/46ef6b59-6b9d-4c3f-9a5a-5bc739ed11a2.png?asset_id=58d17d39-bf1d-469e-8630-6be091042555&amp;img_etag=%22567e233a2e118cc9b8ce6ca8e1d2a91a%22&amp;size=1024)
+国会议员说，佩洛⻄“错误地宣称”“对中共责任的质疑”是“转移视线”，可能是指佩洛⻄自去年五月发表的讲话，她把当时川普总统指责中共对病毒负责的话描述为“有趣的转移视线”。
 
-**简评：**
+“越来越多的证据表明，这种大流行始于中共国实验室，而中共对此进行了掩盖。如果真是这样，那么中共就要为将近60万美国人和全世界数百万人的死亡负责。”
 
-在台湾问题上，有一些美国人不顾中国人民的人权和生存现状支持中共，但仍然有80%的美国人支持台湾。欧盟一个小国立陶宛，上周脱离了中共组织，显示出欧洲反共、脱共的势头。但是达沃斯党、世界经济论坛仍然与中共深度勾结。
+他们继续说:“每个失去某人的美国家庭都应该得到关于这种可怕病毒起源的答案，”他补充说，“众议院⺠主党人一直拒绝分派调查资源来获得这些答案，这是对这些家人们的冒犯。”
 
-文贵先生的直播，新中共联邦的节目持续不断对事实真相的报道，以及新中国联邦人自身正直、追求民主自由的行为，使西方民主世界开始对抗独裁中共。新中国联邦影响巨大。
+“中共国无法摆脱这一点。美国人应该得到答案。”斯卡利塞斯(Scalise)在5月28日的推文中写道。
+议员们引用了越来越多的证据，表明该病毒可能已经从武汉的一个实验室泄漏了，但这一说法被许多媒体和科学家们最初视为阴谋论而驳斥。
 
-GTV视频链接：[美国很多人不顾一切地向中共下跪，这周的台湾事件就显示出了美国的分化](https://gtv.org/video/id=60b32648ba7ef9088d03b042)
+乔·拜登(Joe Biden)总统的首席医学顾问安东尼·福奇(Anthony Fauci)博士最近支持了 更深入的病毒探测，并表示“肯定存在实验室泄漏的可能性”，扭转了他在2020年5月发表的 评论。
 
+美国卫生和公共服务部⻓Xavier Becerra虽然未直接提及中共国或武汉，但已呼吁世界卫生 组织(WHO)开展“透明，基于科学的第二阶段COVID起源研究”，以全面评估病毒和爆发 初期。”
 
+立法者说:“要让中共负责，”他们需要“获得国会调查员可用的全部工具，包括传票和强迫主 要证人作证的权力。”
 
-**视频字幕：**
+他们还指出，北京一直拒绝共享原始数据和武汉实验室(WIV)记录，他们说这与中共的欺 骗模式相符，其中包括驱逐记者，提供COVID-19的虚假信息和让举报人沉默。
 
-**Bannon**：看看WWE摔跤明星（John Sena）在台湾问题上向中共下跪。
+周二，一位中共国代表告诉世卫组织大会，原产地追踪的“中国部分”“已经完成”，并建议调 查人员将目光投向别处。尽管中国人否认，但寻找大流行病起源的压力仍在继续增加。
 
-他昨天被美国人骂惨了。美国人因他对中共的软弱感到耻辱，他没有捍卫台湾和世界各地华人的自由。
+拜登在周三的罕⻅声明中表示，他已下令对这种病毒的起源进行情报调查，并希望在90天内 提交报告。
 
-这显示出在美国有很多人不关心新疆人，不关心中国人，不关心中共国的奴工，还有活摘器官。
+新闻来源:[https://www.zerohedge.com/political/over-200-republicans-press-pelosi-back- covid-19-origin-probe-hold-ccp-accountable?
+utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+zerohedge%2Ffe ed+%28zero+hedge+- +on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29](https://www.zerohedge.com/political/over-200-republicans-press-pelosi-back-%20covid-19-origin-probe-hold-ccp-accountable?
+utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffe%20ed+%28zero+hedge+-%20+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
-他们只想卖电影、卖时装、外包廉价商品。
+本文仅代表个人观点，不代表 Gnews 平台
 
-他们会不顾一切地向中共下跪。
-
-这周的台湾事件显示出了美国的分化，80%的美国人支持台湾。
-
-但还有20%向中共下跪，歌颂中共。
-
-**主持人**：没错，对美国这样伟大的国家，这真是巨大的耻辱。事实上有些人没有向中共下跪。
-
-比如，欧盟在上周冻结了中欧投资协议。
-
-一个中共眼里一无是处的小国家— 立陶宛，也站了出来。
-
-中共一向看不起那些他们自以为能够控制的小国。
-
-立陶宛脱离了中共的17+1组织。
-
-这是否显示出欧洲已经掀起了反共、脱共的势头？
-
-**Bannon**: 欧洲之所以能有这样的势头，正是因为你们的节目和其它尤其是欧洲的节目。散居各地的华人不断施压。
-
-你们迫使西方民主世界对抗中共的罪恶。
-
-这就是为什么我们看到了欧洲对中共的反抗。
-
-因为人们看了你们的节目，听了文贵的直播，看到新中国联邦，正直的新中国联邦人。
-
-并以此与中共的残酷相比较。
-
-因此，我们有了这样的势头。但没有我希望的强烈，因为一些被中共收买的精英。
-
-达沃斯党，世界经济论坛，完全与中共勾兑在一起。
-
-所以我们还有很多事情要做。但我们能有眼前这样的小小胜利，是因为你们的平台、你们的声音。
-
-我认为你们还没有意识到自己产生了多么巨大的影响。
-
-**主持人**：班农先生，我在伦敦感受到了人们对我们的支持。他们爱中国人，不爱中共。
-
-**Bannon**：人们爱中国人，不爱中共，因为他们明白了中共的独裁本质对中国人的压迫和残害。
-
-[**完整访谈视频**](https://www.youtube.com/watch?v=vmEtr7kLJvI)
-
-**主播**：Angela, Daniel, Mike, Dr. TCC和 Winston
-
-- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
-- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
-
-
-***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2B77pghBEki7y/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/2B77pghBEki7y/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+校对发布：紫橄榄
 
 0
