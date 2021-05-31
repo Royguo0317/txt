@@ -1,18 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒大流行时间线——2020年3月4日，全球感染病例突破10万例
-` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1285122/)
+## 病毒大流行时间线—— 2020年3月11日，世界卫生组织正式宣布中共病毒为大流行病
+` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1285130/)
 
 作者：文永
 
-2020年*3*月*4*日，全球感染人数已经超过*10*万，死亡人数超过*3200*人。
+在*3*月*11*日当天的新闻发布会上，世界卫生组织主席谭德赛宣布，中共病毒为大流行病，并已造成*110*个国家和地区超过*11.8*万人感染。
 
-根据Worldometers.info网站数据显示，2020年3月4日，全球感染人数已经突破10万人，为100,426人。死亡人数已超过3200人。
+在3月11日当天的[新闻发布会](https://www.youtube.com/watch?v=xKPWngYf2Wk)上，世界卫生组织主席谭德赛宣布，中共病毒可以被归类为大流行病。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31034046/2AA07EF8-794B-49BE-ACAA-7FF307E23496.png)
-
-2020年3月4日，全球感染人数已经突破10万人， 图片来源: [worldometers.info](https://www.worldometers.info/coronavirus/worldwide-graphs/%23total-cases)
+谭德赛在会上讲到，截至当天，全球已经有超过11.8万例感染，覆盖了全球110个国家和地区，造成超过4200人死亡。
 
 （文章仅代表作者观点，与G-News网站无关）
 
