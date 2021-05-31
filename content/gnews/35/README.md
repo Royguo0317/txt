@@ -1,49 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】面对新冠病毒疫苗，美国大学生该何去何从？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1284620/)
+## 117名员工对德州医院要求接种中共病毒疫苗提起诉讼
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1284651/)
 
-作者：纽约香草山健身部  幸福鸟
+阿黎
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30234448/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE1215.png)
+据《大纪元》英文版5月30日报道，休斯顿卫理公会医院的100多名员工对其雇主提起诉讼，因为雇主要求所有员工接受中共病毒疫苗以保住他们的工作。
 
+这117名员工在法庭上控诉，中共病毒疫苗是实验性的，他们不想成为 “小白鼠”，其雇主要求他们注射是非法的。”他们的诉状上写道：“卫理公会医院正在强迫其员工成为人类的’小白鼠’，作为继续就业的条件……医院的中共病毒疫苗接种任务 “要求雇员接受医学实验，作为我们养活家人的前提条件”。
 
+他们拒绝接受 “实验性中共病毒 mRNA “疫苗，如辉瑞公司和莫得纳（Moderna）公司生产的疫苗。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+诉讼中说：”在美国历史上第一次，雇主强迫雇员参加实验性疫苗试验，作为继续就业的条件。”
 
+休斯顿卫理公会首席执行官兼总裁马克-布姆在他的一封信中，指示员工在6月7日之前必须注射疫苗，如不服从，可被停职和最终解雇。
 
+同时，在诉讼的最开始部分，还包括了据称是休斯顿卫理公会分支机构的首席执行官大卫-伯纳德的一段话。伯纳德对一名员工说：”100%的疫苗接种比你的个人自由更重要。……你们每个人都是可以替换的。如果你不喜欢自己的工作，可以离开，我们会（找人）取代你的位置”。
 
-根据美国疾病控制与预防中心的数据，将近一半的成年美国人已经完全接种了新冠病毒疫苗；而在18至24岁的年轻人中，也有大约30％已经接种了疫苗。据报道，经过一年多的在线课程，目前美国大多数大学都在为秋季正常返回校园做准备。尽管联邦政府并未强制要求打新冠病毒疫苗，但各大学在疫苗方面的做法还是五花八门，令学生和家长困惑不已。
+**评：**
 
-![]()![](https://www.gannett-cdn.com/presto/2021/04/05/NTGS/85c45e73-c1df-410c-bc06-aaadbe9d28a7-FLGAI-040521-UFStudentCovidVaccineMass-01.jpg?width=980&amp;height=731&amp;fit=crop&amp;format=pjpg&amp;auto=webp)图片来源：USA Today
+越来越多的中共病毒疫苗伤害和死亡的事件在全球范围内曝出，越来越多的专家站出来指出疫苗有害的真相。在德克萨斯州这个在美国相对开放和自由的州，竟然有医院以解雇相威胁，要求雇员接受疫苗。是医院管理者不明疫苗危害真相，还是他们在做疫苗大佬的帮凶？
 
-根据《高等教育内幕》所列的清单，到目前为止，约有400所大学准备要求在校上课的学生接种强生、莫德纳或辉瑞的疫苗。另外，美国4,000所学位授予院校几乎都在鼓励或帮助学生接种疫苗。《高等教育内幕》称，有些大学为了鼓励学生接种疫苗甚至提供现金、大学赠品或免学费课程等奖励措施；有些大学则要求学生必须提供疫苗接种证书；有的要求未接种疫苗的学生必须戴口罩，并且还必须继续接受冠状病毒核酸检测；有的甚至禁止未打疫苗的学生进入校园。
+这117个雇员是勇敢的，他们不畏失去工作的威胁，坚决捍卫他们的自由。如果人人都拒绝疫苗，谁还能威胁到你？我们需要的是对疫苗说“不”。
 
-面对新冠病毒疫苗，美国大学生究竟该何去何从？
+[原文链接](https://www.theepochtimes.com/117-healthcare-workers-file-lawsuit-against-hospital-for-requiring-covid-19-vaccine_3836644.html)
 
-参考阅读：
+* * *
 
-[Colleges hope students get COVID-19 vaccines for fall semester – but can they require it?](https://www.usatoday.com/story/news/education/2021/05/30/covid-vaccine-college-require-mandate-fall-semester-exception/5244826001/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+*编辑、发稿 文锦*
 
 0

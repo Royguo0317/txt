@@ -1,35 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒大流行时间线——2020年1月23日武汉封城；世界卫生组织召开紧急会议
-` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1284763/)
+## 中共一次次掩盖疫情的目的
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1284848/)
 
-作者：文永
+台湾宝岛农场 文旦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31011317/%E6%93%B7%E5%8F%96531.jpg)
+美国德州资深共和党众议员迈克尔·麦考尔（Michael McCaul）周日（5月30日）谴责中共一次又一次隐瞒病毒疫情，美国应该对中共实施经济惩罚，将供应链带出中共国。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31005417/srchttp___res.hannews.com_.cn_a_10001_202001_23a15a5c22d3aa340b8282c793a9b12b.jpegreferhttp___res.hannews.com_.jpg)
+共和党议员们说：「越来越多的证据表明，这种流行病始于中共实验室，而中共对此进行掩盖。」「如果是这样的话，中共就要为将近60万美国人和全世界数百万人的死亡负责。」
 
-**2020年1月23日，武汉封城；世界卫生组织召开紧急会议，但没有就宣布国际卫生紧急事件问题达成一致**。
+中共隐瞒疫情在国际上已成趋势，那么中共为什么要隐瞒疫情呢?病毒不是世界的共同敌人吗?
 
-*1*月*23*日，武汉关闭对外交通，开始为期*76*天的封城；世卫组织认为信息不足，没有宣布新冠疫情为国际卫生紧急事件。
+中共在疫情爆发初期，掩盖疫情，派解放军至实验室进行销毁样本，噤声想查明真相的所有人，并利用科学界、科学杂志、媒体、社交媒体等宣传工具，散布虚假信息，影响公众及世界各国政府对病毒的认知，及解决方向，甚至疫苗研究方向。
 
-当天凌晨，武汉疫情防控指挥部发布通告，“从上午10时起，全市城市公交、地铁、轮渡、长途客运暂停运营；无特殊原因，市民不要离开武汉，机场、火车站离汉通道暂时关闭。” 武汉市大约900万居民从此开始[为期76天](https://news.sina.com.cn/o/2020-04-08/doc-iircuyvh6588476.shtml)的封城。
+为什么要让病毒使世界更多人被感染呢?
 
-根据[CGTN](https://news.cgtn.com/news/2020-01-27/5-million-people-left-Wuhan-before-the-lockdown-where-did-they-go--NACCu9wItW/index.html)和[南华早报](https://www.scmp.com/news/china/society/article/3047720/chinese-premier-li-keqiang-head-coronavirus-crisis-team-outbreak)报道，在当天武汉封城之前，已经有大约500万人离开武汉。
+中共的释放病毒，是具有战略性目的，影响舆论及认知之后，这个病毒随即可以破坏各国经济体系、医疗体系、政府功能、引起民众大量不满、引发社会动荡、更危险的是会进入无政府状态，分裂他国人民与政府。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31010409/8B4CA605-4D63-4DF8-A943-865854B9751D.png)
+为什么要用病毒使世界大乱呢?
 
-人民日报转发武汉封城公告，图片来源：[搜狐新闻](https://www.sohu.com/a/368529534_391380)
+因为中共是一个极权独裁，利用贪污腐败、偷、抢、拐、骗绑架他国各大市场公司、政客、等重要人员，利用国家的力量去陷害、绑架、威逼、利用、渗透、或组织反政府的力量，并利用宣传工具去影响他国人民，在这个过程中谋夺利益，建立影响力，建立威望，破坏国际秩序，建立两极化世界。
 
-当天，世界卫生组织（WHO）召开紧急会议，讨论是否宣布国际卫生紧急事件。根据[CNBC报道](https://www.cnbc.com/2020/01/22/who-postpones-decision-declaring-china-coronavirus-a-global-health-emergency.html)，WHO主席谭德赛称，在当天的会议上分歧很大，最终没有达成一致。
+在这几年中，中共官方的所作所为，一目了然，有目的性的一步一步推动超限战，各种层面的超限战，想制造完美犯罪，利用各种方式，破坏各地区稳定，进而加强中共利益及威望。
 
-谭德赛说：“我们今天的会议讨论得很好，但是显然还需要进一步信息才能我们得出结论。”
+中共的贪婪、中共对权力的欲望、中共的体制使得世界会认真看待，并让它必走向灭亡。
 
-WHO之前宣布的国际卫生紧急事件分别是：2009年猪流感、2014年埃博拉病毒、2016年寨卡病毒和2019年埃博拉病毒爆发。
+传播真相，缺你不可，你很重要，你的一小步，将是灭共的一大步。
 
-（文章仅代表作者观点，与G-News网站无关）
+资料来源:
 
-* * *
+[美议员：中共一次次瞒疫应予以经济惩罚-大纪元](https://www.epochtimes.com/b5/21/5/31/n12986865.htm)
 
-*发布：纽约香草山农场 shangshang*
+[209议员吁佩洛西查病毒起源让中共担责-大纪元](https://www.epochtimes.com/b5/21/5/30/n12985261.htm)
+
+台湾宝岛农场youtobe:
+
+[5月30日郭文贵：将军科学家在欧洲议会用大量视频、文件证明中共防毒计划和已准备了上千种冠状病毒](https://www.youtube.com/watch?v=I8PKRKXdSyo)
+
+希望大家帮忙订阅分享!!!感谢你!!!
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+文章审核：zhong
+
+文章发布：Little Liu
 
 0

@@ -1,97 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 章家敦宣称中共国故意传播Covid-19，美国应与中共国脱离联系
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1284474/)
+## 美国安全机构监视默克尔？
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1284575/)
 
-**字幕内容：**
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30225030/7-25.jpg)
+根据路透哥本哈根5月30日报道，据丹麦国家广播电台DR报导，美国国家安全局(NSA)利用与丹麦对外情报部门的合作关系，对其邻国的高级官员进行监视，其中包括德国总理默克尔。
 
-Gordon Chang
-章家敦
+DR引述了九个接触过调查的不具名消息来源表示，这些发现是丹麦国防情报局从2015年开始对NSA在合作关系中的作用进行内部调查的结果。
 
-No matter how this disease start it
-不管这种疾病是如何开始的
+丹麦是美国的亲密盟友，拥有数个连接瑞典、挪威、德国、荷兰和英国的海底互联网光缆的关键登陆站。
 
-We know that Xi Jinping deliberately spread this beyond China’s borders
-我们知道习近平故意将其传播到中共国之外
+据DR报导，丹麦国防情报局的内部调查是在2014年启动的，因为前一年斯诺登泄密事件揭示了NSA的工作方式。
 
-they lied about human-to-human transmission ability
-他们对病毒人传人的传播力撒谎
+对此事件，NSA没有立即回复置评请求，美国国家情报总监办公室未予置评。丹麦国防情报局发言人未予置评。
 
-they also force countries to take arrivals from China
-他们当时还迫使各国接受来自中国的旅客
+但是，丹麦政府去年表示，将根据举报人报告的信息启动调查。这项调查预计将在今年晚些时候结束。
 
-while they’re locking down their own country
-而他们封锁自己的国家
+文贵先生曾在直播中透露，欧洲已经开始对中共在欧洲当地的蓝金黄势力进行全面的清查，并已经取得收获。此次丹麦国家广播电台的爆料，可能证明该行动已经获得了一定的结果，并提前向外界传递信号。从欧洲近期对中共态度的急速转向，可以看出中欧关系的快速破裂，根据文贵先生5月30日对中欧关系的深入解读，不难得出：欧洲已经对中共的渗透和邪恶的欧洲战略布局计划了解的很透彻并达成了全面的共识，本次病毒的人工制造并故意投放，就是中共公开征战世界的开始。相信欧洲做出这个政治转向也是结合各方面的因素所作的决定，其中情报是不可或缺的。欧洲为何被中共渗透和控制的如此之深，关键人物的引导和支持必不可少，放眼欧洲，对中共始终保持亲共政策的大国有哪些，就不难产生怀疑其背后利益纠葛的深层原因。
 
-so this was deliberate spread
-所以这就是故意传播
+看来欧洲政坛地震要来了，默克尔还能安全退休吗？
 
-and that has great implications for how the Biden administration
-这对拜登政府的工作产生重大影响
+（本文只代表作者观点，与Gnews平台无关。）
 
-and everybody else around the world should be react
-世界各地的所有人都应该做出反应
+**新闻来源：**
 
-because we talked about, oh, let’s cooperate
-因为我们讨论，噢，让我们与
+[美国安全机构通过丹麦光缆监视默克尔等欧洲高级官员–丹麦媒体 | 路透 (reuters.com)](https://cn.reuters.com/article/usa-european-officialsspying-0530-sun-idCNKCS2DC04T?il=0)
 
-with the Chinese to prevent the next pandemic
-中共合作以防止下一次大流行
-
-well you can’t cooperate with a mass murderer
-好吧，你不能与大屠杀犯罪者合作
-
-which is really what China is right now
-这就是中共国现在的身份
-
-and that means we need to cut our ties with China
-这意味着我们需要切断与中共国的联系
-
-we need to make sure there are no technical cooperation agreements
-我们需要确保没有技术合作协议
-
-needs to get our pharmaceutical industry off of Chinese soil
-需要使我们的制药业离开中共国的国土
-
-and we need to stop enriching China with trade and investment
-而且我们需要停止通过贸易和投资来使中共国变的富足
-
-because it’s very difficult for us to realize the maliciousness in the evil that we have that just occurred
-因为我们很难意识到刚刚发生的恶魔的恶意
-
-and until we do that, we are leaving ourselves open for the next pathogen from China which probably will be that civilization color that I talked about which means that the ex-istence of our country is at stake
-除非我们这样做，否则我们就会为来自中共国的下一次攻击敞开大门
-
-这可能是我所谈到的文明色彩，这意味着我们国家的生存处于危险之中
-
-if we don’t understand what China did
-如果我们不了解中共国做了什么
-
-we can’t defend ourselves
-我们不能保卫自己
-
-if we continue our relationship with China
-如果我们继续与中共国的关系
-
-we’re basically saying it’s all right to kill millions of Americans in the future, because it’s acceptable
-我们基本上是在说，在未来杀死数百万美国人是可以的，是可以接受的
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接 :**
-
-[https://twitter.com/realamvoice/status/1397211131186454529?s=24](https://twitter.com/realamvoice/status/1397211131186454529?s=24)
-
-英听校：康州盘古农场 – Layka
-翻译：康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+***校对发布**：文顾*
 
 0

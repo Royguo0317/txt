@@ -1,33 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国安全机构监视默克尔？
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1284575/)
+## 【热点播报】面对新冠病毒疫苗，美国大学生该何去何从？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1284620/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30225030/7-25.jpg)
-根据路透哥本哈根5月30日报道，据丹麦国家广播电台DR报导，美国国家安全局(NSA)利用与丹麦对外情报部门的合作关系，对其邻国的高级官员进行监视，其中包括德国总理默克尔。
+作者：纽约香草山健身部  幸福鸟
 
-DR引述了九个接触过调查的不具名消息来源表示，这些发现是丹麦国防情报局从2015年开始对NSA在合作关系中的作用进行内部调查的结果。
 
-丹麦是美国的亲密盟友，拥有数个连接瑞典、挪威、德国、荷兰和英国的海底互联网光缆的关键登陆站。
 
-据DR报导，丹麦国防情报局的内部调查是在2014年启动的，因为前一年斯诺登泄密事件揭示了NSA的工作方式。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-对此事件，NSA没有立即回复置评请求，美国国家情报总监办公室未予置评。丹麦国防情报局发言人未予置评。
 
-但是，丹麦政府去年表示，将根据举报人报告的信息启动调查。这项调查预计将在今年晚些时候结束。
 
-文贵先生曾在直播中透露，欧洲已经开始对中共在欧洲当地的蓝金黄势力进行全面的清查，并已经取得收获。此次丹麦国家广播电台的爆料，可能证明该行动已经获得了一定的结果，并提前向外界传递信号。从欧洲近期对中共态度的急速转向，可以看出中欧关系的快速破裂，根据文贵先生5月30日对中欧关系的深入解读，不难得出：欧洲已经对中共的渗透和邪恶的欧洲战略布局计划了解的很透彻并达成了全面的共识，本次病毒的人工制造并故意投放，就是中共公开征战世界的开始。相信欧洲做出这个政治转向也是结合各方面的因素所作的决定，其中情报是不可或缺的。欧洲为何被中共渗透和控制的如此之深，关键人物的引导和支持必不可少，放眼欧洲，对中共始终保持亲共政策的大国有哪些，就不难产生怀疑其背后利益纠葛的深层原因。
+根据美国疾病控制与预防中心的数据，将近一半的成年美国人已经完全接种了新冠病毒疫苗；而在18至24岁的年轻人中，也有大约30％已经接种了疫苗。据报道，经过一年多的在线课程，目前美国大多数大学都在为秋季正常返回校园做准备。尽管联邦政府并未强制要求打新冠病毒疫苗，但各大学在疫苗方面的做法还是五花八门，令学生和家长困惑不已。
 
-看来欧洲政坛地震要来了，默克尔还能安全退休吗？
+![]()![](https://www.gannett-cdn.com/presto/2021/04/05/NTGS/85c45e73-c1df-410c-bc06-aaadbe9d28a7-FLGAI-040521-UFStudentCovidVaccineMass-01.jpg?width=980&amp;height=731&amp;fit=crop&amp;format=pjpg&amp;auto=webp)图片来源：USA Today
 
-（本文只代表作者观点，与Gnews平台无关。）
+根据《高等教育内幕》所列的清单，到目前为止，约有400所大学准备要求在校上课的学生接种强生、莫德纳或辉瑞的疫苗。另外，美国4,000所学位授予院校几乎都在鼓励或帮助学生接种疫苗。《高等教育内幕》称，有些大学为了鼓励学生接种疫苗甚至提供现金、大学赠品或免学费课程等奖励措施；有些大学则要求学生必须提供疫苗接种证书；有的要求未接种疫苗的学生必须戴口罩，并且还必须继续接受冠状病毒核酸检测；有的甚至禁止未打疫苗的学生进入校园。
 
-**新闻来源：**
+面对新冠病毒疫苗，美国大学生究竟该何去何从？
 
-[美国安全机构通过丹麦光缆监视默克尔等欧洲高级官员–丹麦媒体 | 路透 (reuters.com)](https://cn.reuters.com/article/usa-european-officialsspying-0530-sun-idCNKCS2DC04T?il=0)
+参考阅读：
 
-***校对发布**：文顾*
+[Colleges hope students get COVID-19 vaccines for fall semester – but can they require it?](https://www.usatoday.com/story/news/education/2021/05/30/covid-vaccine-college-require-mandate-fall-semester-exception/5244826001/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

@@ -1,43 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】“躺平”是为了能站着！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1284849/)
+## 美国权威医生彼得·麦卡洛：疫情大流行从一开始就是关于疫苗
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1284894/)
 
-作者：纽约香草山翻译部 GBW
+加拿大草原三省战友之家-馬馬虎虎
 
+**美国权威医生彼得·麦卡洛（Peter A. McCullough）2021年5月19日的采访（第三部分）: 疫情大流行从一开始就是关于疫苗**
 
+1. 疫情大流行从一开始就是关于疫苗
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+2. 有超过 4,000 名美国人；超过10,000欧洲人在接种疫苗后的第 1、2、3 天死亡
 
+3. 我们在为自己挖坑，可能制造一个真正毁灭人类的超级病毒
 
+4. 美国人和全世界的人们都应该格外警惕
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31011921/89-3.jpg)
+[美国权威医生彼得·麦卡洛（Peter A. McCullough）2021年5月19日的采访 （第一部分）: 全球黑暗力量对中共病毒早期治疗方案的打压](https://gnews.org/zh-hans/1281888/)
 
-中国人很努力工作，却没有体面的生活。原来中国人不是在“努力”，而是做了中共的“奴隶”，直到精疲力尽。当中国人“躺平”，中共打造的监牢就会失去动力而倒塌。貌似消极的“躺平”却是积极智慧的行动。“躺平”是为了能站着！
+[美国权威医生彼得·麦卡洛（Peter A. McCullough）2021年5月19日的采访（第二部分）: 人们正在被伤害着！揭露两个医疗监管历史上最大的恶行](https://gnews.org/zh-hans/1281964/)
 
-（本文仅代表作者观点）
+* * *
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
+*编辑、发稿 文锦*
 
 0
