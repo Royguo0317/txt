@@ -1,39 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [诗歌] 生与死
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1286236/)
+## 台积电获得日本政府190亿日元研发费用
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1286250/)
 
-#### 作者：浴火重生 发布：滴水穿石
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31145349/IMG_20210531_115303_207.jpg)图片截自网络
-开枪吧，刽子手！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31150504/F5569CC8-789A-465A-B325-69B1B0318AB6_4_5005_c.jpeg)图片来源： https://finance.sina.com.cn
+#### 加拿大多伦多枫叶农场 丁过 
 
-面对你的枪口，
+执掌日本产业政策的日本经济产业省，由于在提高民间经济活力、开拓对外经济联系和发展方面成效卓著，是日本优秀官僚的代名词。中共病毒疫情大流行以来，日本在汽车整车等中高端产品方面的出口逆势增长，成为疫情中动荡的世界经济的一个稳定器，其中，日本获得正常的芯片供应起到了关键作用。
 
-我们不会低下高昂的头。
+日本经济产业省 31日宣布，日本政府将拨款190亿日元（约合人民币11亿元）给台湾半导体巨头台积电（TSMC），用于在日本国内进行半导体制造技术研究开发，将有逾20家日本半导体企业参与研发。台积电今年2月宣布将在日本新设基地。日本半导体产业曾领先全球，但近年来逐渐落后于美国、韩国和台湾，因此，日本经济产业省表示，将于近期出台强化半导体产业竞争力的战略。
 
-屠杀吧，法西斯！
+在全球大部分汽车制造厂受芯片供应短缺影响导致产量下降的情况下，日本八大车商4月全球产量与去年同月相比增长了约2.3倍。日本4月份已经连续两个月工矿业生产指数超过疫情前水平。继去年年底巴菲特大量买进日本五大商社的股份之后，美国高盛集团今年加倍投资日本房地产。日本经济一枝独秀，主要得益于其合理的民主治理模式。反观中共国，因为中共倒行逆施，中国满目疮痍，中共放毒残害人类，即将被全世界清算，无辜的中国人民或将遭受一场新的浩劫。
 
-我们用生命呼唤，
+参考链接：
 
-民主和自由！
+[日政府将为台积电半导体研发拨款190亿日元](https://china.kyodonews.net/news/2021/05/4a931e84ccbd-190.html)
 
-再见吧，妈妈！
+[日本八大车商4月全球产量增至2.3倍](https://china.kyodonews.net/news/2021/05/623b70b01b77-423.html)
 
-孩儿不是不听话，
+[美国高盛对日本房地产投资将翻番](https://cn.nikkei.com/industry/propertiesconstruction/44912-2021-05-31-11-18-43.html)
 
-历史的今天选择了我们，
+[日本4月工矿业生产指数超过疫情前水平](https://china.kyodonews.net/news/2021/05/151e3a419b90-4.html)
 
-就用我们的热血铸成六月花。
+[巴菲特向日本五大商社投资60亿美元](https://www.ftchinese.com/story/001089196?archive)
 
-朋友，别哭！
 
-别说我们一无所有。
 
-我们扛着自己的尸首，
-
-走过五千年的风风雨雨，
-
-还会继续谱写我们的追求……
-![This image has an empty alt attribute; its file name is 063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg]()![This image has an empty alt attribute; its file name is 063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26030300/063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg)
-0
++1

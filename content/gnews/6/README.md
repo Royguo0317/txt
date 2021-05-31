@@ -1,25 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朝警告美结束韩发展导弹的限制会引剧烈动荡
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1286227/)
+## [诗歌] 生与死
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1286236/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+#### 作者：浴火重生 发布：滴水穿石
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31145349/IMG_20210531_115303_207.jpg)图片截自网络
+开枪吧，刽子手！
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31143421/N-6.jpg)wwaytv3.com
-韩国首尔（美联社）报道，朝鲜5月31日表示，美国允许韩国发展无限射程导弹技术是美国对朝鲜采取的又一个敌对政策。平壤警告美国，此举可能会导致朝鲜半岛局势发生“剧烈震荡”。
+面对你的枪口，
 
-美韩高层 5 月 21 日峰会后，美国结束了长达几十年对韩国发展导弹技术的限制，允许韩国发展无限射程武器，平壤当局对此表示非常愤怒。美国此前曾禁止韩国开发射程超过 800 公里（500 英里）的导弹。该射程的导弹足以让韩国军事力量覆盖整个朝鲜，却无法波及到其他邻国，如中共国和日本。
+我们不会低下高昂的头。
 
-美国当初限制韩国发展导弹技术的初衷是维护亚太地区的和平，不至于让韩国的军事武器引起与中共国之间的军备竞赛。但自从 5 月 21 日美国解除对韩国发展导弹技术的限制后，一些韩国军事观察家在称赞美国是主动恢复了韩国的军事主权的同时，外界不免怀疑美国的真实意图是为了提高盟友与中共国进行军事竞争的能力。
+屠杀吧，法西斯！
 
-平壤当局并未正面发声，仍然是由“个别”评论员代为表达朝鲜政府的态度，这被外界解读为平壤为与拜登政府作进一步外交沟通留下了空间。据朝鲜官媒中央通讯社报道，朝鲜官方国际事务评论员 Kim Myong-chol 表示，美国不再限制韩国发展导弹技术的决定是美国对朝鲜的敌对政策，是一种可耻的两面派的做法。
+我们用生命呼唤，
 
-他认为，美国通过制造朝鲜半岛及其周边地区军事不对称来向朝鲜施压是个严重的错误，因为美方这种做法很可能导致朝鲜半岛现在军事技术上处于“战争状态”，结果很可能是引发周边各国的军备竞赛。
+民主和自由！
 
-参考链接：
+再见吧，妈妈！
 
-[North accuses U.S. of hostility for South Korean missile decision – Washington Times – 30/05/2021](https://www.washingtontimes.com/news/2021/may/30/north-accuses-us-of-hostility-for-south-korean-mis/)
+孩儿不是不听话，
 
+历史的今天选择了我们，
+
+就用我们的热血铸成六月花。
+
+朋友，别哭！
+
+别说我们一无所有。
+
+我们扛着自己的尸首，
+
+走过五千年的风风雨雨，
+
+还会继续谱写我们的追求……
+![This image has an empty alt attribute; its file name is 063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg]()![This image has an empty alt attribute; its file name is 063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26030300/063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg)
 0
