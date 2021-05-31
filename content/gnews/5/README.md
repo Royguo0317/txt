@@ -1,86 +1,150 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共超限战灭港行动（廿五）占中运动之缉拿梁振英
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1285000/)
+## 2021/05/31 英喜时事速递
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1285054/)
 
-#### 搜集/撰文：岁月如歌 / 封面合成：文粤
+收集：Alicia，Cindy，Daniel，Filon，The flying hawk，感言，文大石
+*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31031925/f7080e7f4b7e4494a171f80ca15dd382-1.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31020132/5311.jpg)
-9月24日下午学联带领示威的同学游行至中环，在黄昏时刻回到添马公园。在启程的时警方立刻举黄旗警告：「你现正违反法例，你可能被监控」。但学生们不理会警方警告。 9月25日，学生罢课继续在添马公园进行，得到越来越多的市民来支持，整个公园草地几乎都坐满了人，大约有5000人左右。 48小时过去了，梁振英特首并没有出来和学生进行对话，继续躲避。晚上9:30集会结束后，学联带领4000名示威者，在没有得到警方发出「不反对通知书」的情况下，发起包围保卫礼宾府“缉拿梁振英”行动，他们沿路高呼抗议人大「落闸」以及特首没有在规定期限内与学生进行对话。
-
-没有警方的「不反对通知书」意味着游行不合法，游行人士很有可能有被捕的风险，学联副秘书长岑傲晖提醒大家：这次去“缉拿”梁振英的行动是公民抗命，并没有依照《公安条例》向警方申请不反对通知书，有可能会被捕，但最多只能扣留2天。他提醒学生这次游行的风险，学联成立了法律小队，大家要做好被捕前的准备，把姓名电话等资料备案，，一旦被捕可以提供帮助。他还提醒大家要注意：例如记下警员编号、你有权保持缄默、要及时联络外界、并要求提供饮食或见医生等来保护自己。在游行队伍向礼宾府走去的过程中，警方封死行车路线只允许示威者走人行通道，导致示威者不满一度冲出警察防线，警方也在举红旗警告：「停止冲击，否则使用武力」 。情况一度危急好在学生适时让步才不至于发生冲突。沿途不断有市民加入，或在路边鼓掌为他们打气。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31020149/5312.jpg)图片来自BBC
-示威队伍到达礼宾府后门时高呼「梁振英出来对话」，「我要功能组别收皮（完蛋，结束）」，又扔纸飞机往礼宾府。警方阻止示威队伍前往礼宾府正门示威，并要求所有示威者掉头离开。礼宾府正门的路，被警方排成四层警员把守和铁马拦路，死守不让示威者靠近。部分示威者拒绝掉头高呼「反对原地踏步」，「先开路」等口号，大家席地而坐给梁振英半小时时间出来会见示威者。但梁振英没有现身。学联经过商议宣布留守，抗议梁振英缩头乌龟、警方无理阻挠示威。直到凌晨还有800市民留守。学联呼吁市民一早到礼宾府声援「一起接梁振英上班」。学联秘书长周永康说，学生留守至早上，并非提前占中，要求梁振英回应学生确立公民提名等四大诉求，若不回应会直接号召市民包围政总。学联今天的罢课不怕学籍会将会继续在门前举行，呼吁市民下班到场支持。
-
-特首梁振英并没有因为被围困要出来与罢课的学生进行对话，而是出席百人基金主办的青年分享会与近4000名中学生交流。他被问到对罢课怎么看时回答说，「中学生认识社会、关心社会态度正确，但罢课并非时事问题，而是“政治动员”。希望学生以事论、思考罢课手段是否合适」。他一面表示，明白这次学生罢课的原因是对政改框架的不满，另一面又强调特首选举安排必须根据《基本法》及人大常委决定，还故意提到先前公民党，立法院会议员郭佳麟指中央定框架是“搬龙门”的说法不正确。现场学生反问他历史上都有罢课、罢工捍卫国家权益，为何今日大专生罢课就是不理智？他说，罢课的年龄、目的、手段不同，影响也不同，即使同一手段在不同时期也可以有不同的判断。梁振英还说，2017年香港实现一人一票普选特首是重大的跨越，在这情况下大家要想，是否还坚持因《基本法》没有的公民提名，要用罢课的手段去争取。他还说，全国人大常委的决定，是基于基本法的，我们是否要撇开《基本法》另外搞一套呢？他说，政府的最新民调显示有70%的市民认为如果2017年就一人一票选特首他们会去投票。提醒大家不要被利用阻止自己行使公民权利。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31020201/5313.jpg)图片来自新纪元周刊
-从梁振英的说话中，可以看出他是道貌岸然的伪君子，更是中共的好党员好地下党员。他所说的每一句话每一个字都在维护中共利益，在为中共洗地。谈吐完全一副中共特色：中共在香港一面假惺惺的立法规定，一定会蹲序渐进地给予香港人实现民主普选，一面拿出自己缔造的维护其利益的《基本法》做盾牌阻止市民追求民主选举。好丑都在《基本法》。地下党员梁振英由中共一首捧上宝座，对党感恩戴德，百般维护，对香港市民的诉求完全不顾，一副中共的嘴脸。前面的两届特首虽然也要维护和听从中共，至少还在推动普选，到了梁振英就完全站在中共一方了。 2017年特首选举由中共钦定候选人，再由市民一人一票投票钦点候选人这种假选举是众所周知的，梁振英竟能说成是一人一票普选特首是重大的跨越，有意抹去中共搞小圈子选举，误导大家。但是学生不是笨蛋，能分辨他的混淆视听，有中学生追问他「你僭建同逼你个女影相做骚都是正道？（你认同违章建筑和逼你的女儿照相做表演做秀都是正道）」。
-
-（未完待续）
+## Susan [email protected]
 
 
-【本文件代表作者个人观点】
 
-参考链接：
-[星岛日报](https://hk.finance.yahoo.com/news/%E6%A2%81%E6%8C%AF%E8%8B%B1%E6%8C%87%E7%BD%A2%E8%AF%BE%E6%98%AF-%E6%94%BF%E6%B2%BB%E5%8A%A8%E5%91%98-215523770.html)[-梁振英指罢课是-政治动员](https://hk.finance.yahoo.com/news/%E6%A2%81%E6%8C%AF%E8%8B%B1%E6%8C%87%E7%BD%A2%E8%AF%BE%E6%98%AF-%E6%94%BF%E6%B2%BB%E5%8A%A8%E5%91%98-215523770.html)
+> 有計劃的投毒、有計劃栽贓西方利用黑命貴和antifa製造種族矛盾，嫁禍西方白人族群，利用全球收集到的病毒進行改造再投放讓世界持續中毒，這些都在爆料革命的爆料中給予了詳細的披露。以美國為首的西方世界不管採取什麼行動和利用什麼手段，都有必要把中共這個百年恐怖組織從地球上剪除乾淨，免留後患 [pic.twitter.com/rlt9du3s5b](https://t.co/rlt9du3s5b)
+> — Susan Sing (@SusanSing5) [May 30, 2021](https://twitter.com/SusanSing5/status/1398857186923712512?ref_src=twsrc%5Etfw)
 
-[苹果日报](https://hk.appledaily.com/local/20140926/TPFIFHWWAZTYZQGEL6WAEIT3CQ/)[-千人围礼宾府通宵缉拿梁振英](https://hk.appledaily.com/local/20140926/TPFIFHWWAZTYZQGEL6WAEIT3CQ/)
 
-[维基百科](https://zh.m.wikipedia.org/wiki/2014%E5%B9%B4%E9%A6%99%E6%B8%AF%E5%AD%A6%E7%95%8C%E5%A4%A7%E7%BD%A2%E8%AF%BE)[-2014年香港学界大罢课](https://zh.m.wikipedia.org/wiki/2014%E5%B9%B4%E9%A6%99%E6%B8%AF%E5%AD%A6%E7%95%8C%E5%A4%A7%E7%BD%A2%E8%AF%BE)
 
-导读：
-中共超限战灭港行动
 
-[中共超限战灭港行动（一）临时立法会成立](https://gnews.org/zh-hans/1163020/)
+> 评论：福克斯等媒体已经开始吹风中共故意释放病毒！ 福克斯评论员说，媒体应该质问拜登政府：如果是中共国故意释放，美国该采取什么行动？
 
-[中共超限战灭港行动（二）是谁为临时立法会摇旗呐喊？](https://gnews.org/zh-hans/1170091/)
 
-[中共超限战灭港行动（三）临立会主席范徐丽泰与特首董建华的父辈们](https://gnews.org/zh-hans/1178528/)
+## Gnews-索尼克：[蓬佩奥公开表示要彻查病毒真相，并向中共追责](https://gnews.org/zh-hans/1283112/)
 
-[中共超限战灭港行动（四）变色龙范徐丽泰](https://gnews.org/zh-hans/1183152/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30043204/Snipaste_2021-05-30_16-31-08.png)
 
-[中共超限战灭港行动（五）公安恶法匆促落实](https://gnews.org/zh-hans/1187269/)
 
-[中共超限战灭港行动（六）英解密档案](https://gnews.org/zh-hans/1200256/)
+> 评论：蓬佩奥通过FOX电视台采访暗示了是中共武毒所是病毒来源之一并且有故意投毒的嫌疑，也是为全美对疫情追责讨论推进到这一步的一个提前吹风。
 
-[中共超限战灭港行动（七）基本法](https://gnews.org/zh-hans/1217241/)[23](https://gnews.org/zh-hans/1217241/)[条如何产生](https://gnews.org/zh-hans/1217241/)
 
-[中共超限战灭港行动（八）基本法](https://gnews.org/zh-hans/1230623/)[23](https://gnews.org/zh-hans/1230623/)[条与港版国安法有什么关系](https://gnews.org/zh-hans/1230623/)
+## 文雍Gnews：[【文雍漫谈】韭菜的柔情 镰刀永远不懂](https://gnews.org/zh-hans/1282708/)
 
-[中共超限战灭港行动（九）](https://gnews.org/zh-hans/1236409/)[0708](https://gnews.org/zh-hans/1236409/)[双普选政改梦想与曾宪梓](https://gnews.org/zh-hans/1236409/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30005437/20210529-01-2.jpg)
 
-[中共超限战灭港行动（十）](https://gnews.org/zh-hans/1241573/)[0708](https://gnews.org/zh-hans/1241573/)[双普选梦想破灭](https://gnews.org/zh-hans/1241573/)
 
-[中共超限战灭港行动（十一）](https://gnews.org/zh-hans/1247459/)[0708](https://gnews.org/zh-hans/1247459/)[双普选第五份报告遭民意否决](https://gnews.org/zh-hans/1247459/)
+> 评论：把戏不可久玩。信息高速发展的时代，不论如何洗脑宣传，年轻人总还是能看清真相。他们知道自由的味道，也明白被剥削的苦楚。对比权衡，最终也就明白了前进的方向。
 
-[中共超限战灭港行动（十二）双普选政改被否后的“爱国者论”](https://gnews.org/zh-hans/1250435/)
 
-[*中*共超限战灭港行动（十三）](https://gnews.org/zh-hans/1252992/)[2012](https://gnews.org/zh-hans/1252992/)[双普选被否和遁序渐进民主政制的骗局](https://gnews.org/zh-hans/1252992/)
+## 英喜农场Gnews：[以利交者，利穷则散](https://gnews.org/zh-hans/1266132/)
 
-[中共超限战灭港行动（十四）](https://gnews.org/zh-hans/1255969/)[2010](https://gnews.org/zh-hans/1255969/)[年元旦还我普选大游行和](https://gnews.org/zh-hans/1255969/)[零八宪章](https://gnews.org/zh-hans/1255969/)
+![]()![](https://spark.adobe.com/page/ikWohA0BdkuAN/images/a0c20b33-1eba-4b9b-be01-a6e1e70c6055.jpg?asset_id=c62eba5e-dab2-4f56-ab53-2c82a889fd90&amp;img_etag=%2220f7f1bac5d5dac1429e11e2880b73f9%22&amp;size=2560)
 
-[中共超限战灭港行动（十五）](https://gnews.org/zh-hans/1258853/)[2017](https://gnews.org/zh-hans/1258853/)[年双普选咨询给中共带来的恐惧](https://gnews.org/zh-hans/1258853/)
 
-[中共超限战灭港行动（十六）让爱与和平占领中环前夕](https://gnews.org/zh-hans/1261582/)
+> 评论：合伙赚钱可行，拿钱损命谁都知道不可取。当中共獠牙露出，愈发直白要挟世界，世界也就会收回贪婪的手，渐渐回归正途。
 
-[中共超限战灭港行动（十七）特首梁振英警告恫吓占领中环运动](https://gnews.org/zh-hans/1263765/)
 
-[中共超限战灭港行动（十八）占中运动尚未开始 中共已吓尿了](https://gnews.org/zh-hans/1265816/)
+## TAIWAN Gnews：[中共商品就是毒](https://gnews.org/zh-hans/1282861/)
 
-[中共超限战灭港行动（十九）占中运动筹备如火如荼](https://gnews.org/zh-hans/1268414/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30023732/%E6%93%B7%E5%8F%96530-.jpg)
 
-[中共超限战灭港行动（二十）](https://gnews.org/zh-hans/1270792/)[622公投](https://gnews.org/zh-hans/1270792/)
 
-[中共超限战灭港行动（廿一）中共卑鄙手段：反占中](https://gnews.org/zh-hans/1272990/)
+> 评论：共党体制下，个人劳动和创新的正途不被尊重，也就萌生了社会走邪路比创造下限的环境。现今中国大陆衣食住行方方面面的毒果又都在反向侵蚀着每一个中国人。破除体制才是唯一整顿之途。
 
-[中共超限战灭港行动（廿二）占中运动开始](https://gnews.org/zh-hans/1275025/)
 
-[中共超限战灭港行动（廿三）占中运动之](https://gnews.org/zh-hans/1277771/)[922罢课](https://gnews.org/zh-hans/1277771/)
+## 纽约香草山 Gnews：[【世事解评】南亚地区染疫总数破3000万 占全球18%](https://gnews.org/zh-hans/1281455/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29145745/Untitled-design-50.png)
 
-[中共超限战灭港行动（廿四）占中运动之移师添马公园](https://gnews.org/zh-hans/1280070/)
+> 评论：全球疫情大流行已年半有余，即使就如今掌握的事实真相，此病毒也能找出众多不寻常之处。全球所有政府在这次灾难的无能，最终会让所有人民明白政客体制的累赘，这也是平民主义的历史必然。
 
-*审稿：卡西欧**/**校对：文粤**/**上传：天网灰灰*
 
+## 社评：美情报部门调查病毒暴露四大硬伤
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31030935/CCP-5.jpg)
+
+
+> 评论：就只问中共国CCP一句话，为什么没有一个科学家敢站出来与闫丽梦博士直播辩论CCP VIRUS呢，大国担当呢，四个自信呢？
+
+
+## 为中国人民谋幸福是中国共产党人始终不渝的初心
+
+![](https://img.sogoucdn.com/v2/thumb/retype/ext/auto/q/75?appid=200698&amp;url=https%3A%2F%2Fpic.wenwen.soso.com%2Fpqpic%2Fwenwenpic%2F0%2F20190723160656-418592549_png_425_425_238822%2F0)
+
+
+> 评论：不要脸的CCP，在中国现在除了你们两百多个家族幸福，14亿中国人民何时有过幸福，被你们奴役了七十几年了，建墙与世界隔离，就是为了让自己家族享受自由世界的幸福。
+
+
+## 连线三城网红，9国15位外媒记者“云看真实新疆”
+
+![连线网红， 9国15位外媒记者“云看真实新疆”_古丽·卡日]()![连线网红， 9国15位外媒记者“云看真实新疆”_古丽·卡日](https://p0.itc.cn/q_70/images03/20210528/fe9c131f0cbf4d6fbb126cccb2081da7.jpeg)
+
+
+> 评论：真实的新疆，CCP敢让记者进去看看真实情况，说说真实话吗？演戏现在只有骗你们自己，世界已经苏醒，也看明白了你们的狼子野心，反人类罪是要被送上绞刑架的，请“习大神”参考齐奥塞斯库的下场
+
+
+## 郁慕明：正在大陆酒店隔离准备打疫苗，此前经历了严密而安心的入境防疫检测
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31030949/635462629e1146769ffc8686a5e53de5.png)
+
+
+> 评论：跟着共产党，跑向火葬场，台湾这个新党前主席郁慕明想打中共疫苗，赶紧来打，欢迎欢迎，八十国联为即将找CCP算账呀，这个时候竟然还为中共站台，脑子被门夹了
+
+
+## 社评：布林肯除了污蔑香港，没有牌可打了
+
+![Blinken: Autonomie in Gefahr – USA verhängen wegen Hongkonger Wahlreform  weitere Sanktionen | Tages-Anzeiger]()![Blinken: Autonomie in Gefahr – USA verhängen wegen Hongkonger Wahlreform  weitere Sanktionen | Tages-Anzeiger](https://cdn.unitycms.io/image/ocroped/1200,1200,1000,1000,0,0/5Ykwgqpf0lk/7bMbZaFxKZN9eEdTIx7H1E.jpg)
+
+
+> 评论：CCP，你们何时能讲一句真话，香港这个世界金融中心被你们搞成现在这个样子，你们不觉得可耻吗？
+
+
+## 大纪元：[胡锡进抛中美核战论分析：泄中南海恐惧之事](https://www.epochtimes.com/gb/21/5/29/n12985111.htm)
+
+![胡锡进抛中美核战论 分析：泄中南海恐惧之事]()![胡锡进抛中美核战论 分析：泄中南海恐惧之事](https://i.epochtimes.com/assets/uploads/2021/05/id12985247-GettyImages-3209100-600x400.jpg)
+
+
+> 评论：胡叼盘的疯狗言论是中共对美国疫情追责和就此即将出手的一种恐惧，并且自认为用高烈度摊牌这种核讹诈来吓阻美国，但是中共自身的假擀面杖实力并不具备和美国进行核对抗的能力，这更能证明中共自身心虚不敢让美国等国家去武毒所溯源。
+
+
+## 德国之声：[德语媒体：疫情溯源 拜登的一步妙棋](https://www.dw.com/zh/%E5%BE%B7%E8%AF%AD%E5%AA%92%E4%BD%93%E7%96%AB%E6%83%85%E6%BA%AF%E6%BA%90-%E6%8B%9C%E7%99%BB%E7%9A%84%E4%B8%80%E6%AD%A5%E5%A6%99%E6%A3%8B/a-57701743)
+
+![Weltspiegel 03.02.2021 | China Wuhan | WHO-Untersuchung]( "Weltspiegel 03.02.2021 | China Wuhan | WHO-Untersuchung")![Weltspiegel 03.02.2021 | China Wuhan | WHO-Untersuchung](https://static.dw.com/image/56438730_303.jpg "Weltspiegel 03.02.2021 | China Wuhan | WHO-Untersuchung")
+
+
+> 评论：中共做贼心虚，一定极力阻止调查，就会露出蛛丝马迹。
+
+
+## 德国之声：[老友记重聚特辑：哪些画面在中国被删？](https://www.dw.com/zh/%E8%80%81%E5%8F%8B%E8%AE%B0%E9%87%8D%E8%81%9A%E7%89%B9%E8%BE%91%E5%93%AA%E4%BA%9B%E7%94%BB%E9%9D%A2%E5%9C%A8%E4%B8%AD%E5%9B%BD%E8%A2%AB%E5%88%A0/a-57711843)
+
+![Friends TV Serie | Still]( "Friends TV Serie | Still")![Friends TV Serie | Still](https://static.dw.com/image/57675756_303.jpg "Friends TV Serie | Still")
+
+
+> 评论：粉丝得知自己收看的是删减版本后，惊讶不已：“真没想到，《老友记》也会被阉割？”有人愤怒地质问道：”我们中国观众就不配看完整版吗？”不消灭中共，中国观众永远看不到完整版。
+
+
+## 法广：[陕北延安掀黄土红色旅游热](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210530-%E9%99%95%E5%8C%97%E5%BB%B6%E5%AE%89%E6%8E%80%E9%BB%84%E5%9C%9F%E7%BA%A2%E8%89%B2%E6%97%85%E6%B8%B8%E7%83%AD)
+
+![延安“杨家岭” 资料照片](https://s.rfi.fr/media/display/6e7d2648-c12e-11eb-a9e6-005056bf87d6/w:980/p:16x9/yjlt1.webp)
+
+
+> 评论：中共今年建党届满百年，各地掀起“红色旅游潮”，又是一波洗脑旅游潮。
+
+
+## 法广：[美国议员提议美军特种兵可训练台湾军人](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210529-%E7%BE%8E%E5%9B%BD%E8%AE%AE%E5%91%98%E6%8F%90%E8%AE%AE%E7%BE%8E%E5%86%9B%E7%89%B9%E7%A7%8D%E5%85%B5%E8%AE%AD%E7%BB%83%E5%8F%B0%E6%B9%BE%E5%86%9B%E4%BA%BA)
+
+![关于美国特种兵的报道图片](https://s.rfi.fr/media/display/cf1e927a-c08e-11eb-a893-005056bf87d6/w:980/p:16x9/ttzb7.webp)
+
+
+> 评论：美助理防长提名人指特战部队可训练台军对抗中共解放军。另外，共和党籍参议员霍利（Josh Hawley）在听证会中也提出一个构想，即美国特种部队可助台湾一臂之力，以抵挡中共入侵。
+
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

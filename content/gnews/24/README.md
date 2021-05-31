@@ -1,27 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒大流行时间线——2020年1月20日中共央视采访钟南山，首次公开承认病毒能够人传人
-` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1284740/)
+## 【战友心声】“躺平”是为了能站着！
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1284849/)
 
-作者：文永
+作者：纽约香草山翻译部 GBW
 
-2020年*1*月*20*日，钟南山亮相央视，公开承认存在人传人情况，并强调病毒很可能来自于野生动物。
 
-中央电视台[当天采访](https://finance.sina.com.cn/wm/2020-01-21/doc-iihnzhha3794004.shtml)卫健委专家组组长钟南山。钟南山在采访中提到，肯定存在人传人的现象。
 
-钟南山在视频中提到，在广东有2个病例，没去过武汉，但家人去了武汉，当家人回来以后，他们也染上了新型冠状病毒肺炎。采访中另外也提到，目前已经有医护人员被感染。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-钟南山同时强调，病毒很可能来自野生动物，可能性比较大的包括竹鼠、獾这类野生动物。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31003142/D09B09EC-7237-44B2-8A9B-E45575ACEA7F.png)
 
-2020年1月20日，钟南山接受首次公开承认中共病毒存在人传人情况，图片来源：[新浪网](https://finance.sina.com.cn/wm/2020-01-21/doc-iihnzhha3794004.shtml)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31011921/89-3.jpg)
 
-（文章仅代表作者观点，与G-News网站无关）
+中国人很努力工作，却没有体面的生活。原来中国人不是在“努力”，而是做了中共的“奴隶”，直到精疲力尽。当中国人“躺平”，中共打造的监牢就会失去动力而倒塌。貌似消极的“躺平”却是积极智慧的行动。“躺平”是为了能站着！
 
-* * *
+（本文仅代表作者观点）
 
-*发布：纽约香草山农场 shangshang*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
 
 0
