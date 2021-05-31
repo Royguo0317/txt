@@ -1,38 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鲁迪·朱利安尼:闫丽梦博士冒着巨大风险说出武汉病毒实验室的真相
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1284355/)
+## 【热点播报】中共建党百年活动 境外记者不能临时进京采访
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1284409/)
 
-鲁迪·朱利安尼 (前纽约市长)： 闫博士冒着巨大风险说出武汉病毒实验室的真相 【转闫博士推文：2020年9月10日，在曼哈顿朱利安尼市长的公寓里举行了一次历史性会议。 玛丽亚博士，班农先生和路德先生都是英雄，他们冒着很大风险告诉世界新冠病毒 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 的真相！ [#超限生物武器](https://twitter.com/hashtag/%E8%B6%85%E9%99%90%E7%94%9F%E7%89%A9%E6%AD%A6%E5%99%A8?src=hashtag_click) [#中共撒谎人民死亡](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E6%92%92%E8%B0%8E%E4%BA%BA%E6%B0%91%E6%AD%BB%E4%BA%A1?src=hashtag_click)】
-
-
-
-> Dr Yan took great risk to tell the truth about the Wuhan Lab of Virology [https://t.co/dhw7loIMZ2](https://t.co/dhw7loIMZ2)
-> — Rudy W. Giuliani (@RudyGiuliani) [May 30, 2021](https://twitter.com/RudyGiuliani/status/1399030336915443716?ref_src=twsrc%5Etfw)
+作者：香草山健身部 Jack Li文阳
 
 
 
-鲁迪·朱利安尼 (前纽约市长)： 为什么拜登、民主党、大科技巨头和大众媒体均谴责这些一直在说病毒来自武汉实验室的人？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
 
 
 
-> Why did Biden, the Democrat party, Big Tech and Mass Media condemn these who have been saying virus emerged from Wuhan Lab?
-> — Rudy W. Giuliani (@RudyGiuliani) [May 30, 2021](https://twitter.com/RudyGiuliani/status/1398936129102036994?ref_src=twsrc%5Etfw)
+今年是中共成立100周年，7月1日前后，北京将举行隆重的庆祝活动。中共官媒新华社周五报导：将邀请部分在京的港澳台记者和外国记者现场采访庆祝活动，出于疫情顾虑，不邀请境外记者临时来京采访。
 
+在全球疫情大流行之际，为了营造中共国一家独好的政治氛围，中共各种宣传机器开启了高调的“庆祝”活动。北京设立了专门的[新闻中心](https://www.ntdtv.com/gb/%E6%96%B0%E9%97%BB%E4%B8%AD%E5%BF%83.htm)，该中心设在北京梅地亚中心，将于6月26日正式运行。
 
+为了便于中外记者采访，新闻中心将负责接待前来采访庆祝活动的中外记者，组织新闻发布会和记者招待会，联系安排中外记者采访活动，并开设新闻中心官方网站和微信公号，为记者采访报道庆祝活动提供必要的信息服务和技术保障。确保到场报道的记者，在当局的严密监管下，按照中共的安排报道。
 
-参议员泰德·克鲁兹： 曾经有众多英勇的吹哨人，但是 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 政府逮捕了他们，让他们被消失了。 如果不是因为 [#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的掩盖，[#新冠](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0?src=hashtag_click) 能维持在一个地域性的爆发是非常有可能的，而不是变成一场全球大流行。（附上他接受采访对这件事的阐述）
+另外中共以防控疫情为由，禁止[境外记者](https://www.ntdtv.com/gb/%E5%A2%83%E5%A4%96%E8%AE%B0%E8%80%85.htm)临时到北京采访。届时新闻中心网站将提供相关文件、照片和影片，供无法到场采访的媒体使用，让他们也能按中共的意图报道。
 
+全世界正在与中共全面脱钩，国内经济一片萧条，面临崩溃的边缘。国际追责病毒真相如火如荼的推进，中共国在日渐孤立之际，迎来了这个最难过的“盛典”。
 
+中共为了掩盖真相，调动宣传机器，严厉网络控制，各地轰轰烈烈造势，为党“报喜献礼”，制造虚假繁荣，淡化危机，为墙内营造虚假幻象。中共的内忧外患，末日乱象绝对不会让墙内人民看到。
 
-> There were multiple heroic whistleblowers but the Chinese government arrested them and disappeared them. 
-> 
-> If it were not for the CCP's cover up, there's a very real possibility that COVID-19 could have been contained as a regional outbreak instead of becoming a global pandemic. [pic.twitter.com/J47BMNVU0D](https://t.co/J47BMNVU0D)
-> — Ted Cruz (@tedcruz) [May 30, 2021](https://twitter.com/tedcruz/status/1399015742956318721?ref_src=twsrc%5Etfw)
+中共最不想人民知道的其实就是，今年的庆典很可能是中共的最后一次了。
 
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24221039/5_May-1-556x720-2-3.jpeg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,35 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆炸性研究声称证明了中共科学家制造了中共病毒
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1284431/)
+## 【圣城传声筒】香港的新模式
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1284527/)
 
-翻译: JS709 | 校对: Nick | 审核：V
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30205244/p1-1.jpg)在武汉病毒学研究所的一个实验室内，工人在鼠笼旁边工作。 法新社｜盖蒂图片社
-一项新的重磅研究声称有证据表明中共国科学家在一实验室中制造了中共病毒，然后试图对该病毒的版本实施逆向工程编辑，使其看起来像是从蝙蝠自然进化而来的。
+香草山香港部 自由鸟
 
-《每日邮报》周六援引即将发表的研究报告报道说：英国教授安格斯·达格利什 (Angus Dalgleish) 和挪威科学家比尔格·索伦森 (Birger Sørensen) 博士写道他们已经有了“中共国自去年以来进行逆向工程”的主要证据，但被学术界和主要医学期刊所忽视。
 
-该项研究得出的结论是：“它是自然进化过程的结果的可能性很小。” 该病毒每天仍在全世界杀死12,000人。
 
-达格利什是伦敦肿瘤学教授，以一种艾滋病毒疫苗的突破性研究而闻名。索伦森是一名病毒学家，也是一家名为 Immunor 制药公司的主席，该公司开发了一种名为 Biovacc-19 的中共病毒候选疫苗。达格利什还持有该公司的金融股份。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
 
-他们说，正是在研究中共病毒疫苗期间，他们两个发现了“独特的指纹”，表明该病毒并非来自大自然。露马脚的线索：在携带中共病毒的病毒中发现了罕见的一排四个氨基酸，这些氨基酸释放出正电荷并与带负电的人体细胞结合。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30205218/p2.jpg)一些科学家认为，这种病毒可能源于中共国武汉病毒研究所。 法新社｜盖蒂图片社
-物理定律告诉我们不可能有带正电的四个氨基酸排成一排，达格利什告诉《每日邮报》“获此结果的唯一方法是人为制造。”
 
-他们还跟踪了已发表的中共国研究成果（其中一些是与美国的大学合作完成的）以表明制造出这种病毒的工具是如何制作的。其中的大部分成果涉及“功能增强”研究，该研究涉及在实验室中控制天然病毒以使其更具感染力，从而使科学家能够研究其对人类的潜在影响。
 
-美国在2014年暂时禁止了此类研究。安东尼·福奇（Anthony Fauci）博士上周在国会说，无法知道中共国是否将60万美元的医学研究资金用于功能增强研究。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30205202/p3.jpg)英国教授安格斯·达格利什（如图）和挪威科学家比尔格·索伦森博士声称有证据证明中共病毒是在实验室中制造的。 克里斯·拉德本（Chris Radburn）/ PA Wire / ZUMAPRESS.com
-两位科学家写道：“一种自然病毒大流行会逐渐变异而变得更具传染性，但致病性降低，这是许多人对中共病毒大流行所期望的，但似乎并未发生。”
+国安法在港实施后，新香港怎样落实“剥夺政治权利终身”这个刑罚？这个大陆式的刑罚又怎样在港执行？这几个月，笔者读了不少因为初选案或者其它莫须有的国安法案，还读了被还押者的亲笔信。读起来一字一泪。之前还是慷慨激昂，现在就都纷纷交代自己要退出政坛、主动退党，解散组织，关闭社交媒体平台专号，不再参与政治，只希望做回普通人，陪伴家人过平淡日子。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30213212/WhatsApp-Image-2021-05-30-at-4.28.33-PM.jpeg)
+几个月的差别自然是因为国安法的横蛮远超任何人能够想像。惜日即使有心理准备、承担政治后果的人，都不会料到国安法可以这么随便地捏造任何罪名，可以仼意拘捕仼何人。如果被捕者抗拒从严，随便一个罪名都可能终身监禁，甚至死在大陆监狱里，家人亲友也可能因为当事人不合作或者家产会被所谓依法充公。亦或随时可以在法庭之外，专制政权的其他专政机器可以做手脚，随意折磨人，把一个人的意志都消磨掉。还要写悔过书，要求以后不违反国安法。换了哪一个当事人，作出的任何选择、决定都应该要百分百理解同尊重， 这就是新香港恶劣的现实环境。
 
-《邮报》无法立即联系到两位科学家发表评论。
+从前读过历史，现在亲历其境自然，更加能够代入其中。为何之前对当权政府敢于直斥其非，就算判监出来亦都继续发声？这说明，之前依然存在言论自由，还不至于完全丧失当权者的道德底线，依然存在一定的人性法治。但到现在就不得不改变了。身为反对派们已往事并不如烟，读起来令人心碎，特别是知道他们前半生精彩，更加令人慨叹后半生的无奈。更恐怖的是，中共专制今日又捲土重来，发生在已贵为国际金融中心、原本自由度最高的香港。不能不令人叹息。
 
-关于这项研究的新闻出现在对中共病毒起源的重新关注之际，中共病毒的起源早已被宣称是在中共国一个海鲜市场上从蝙蝠跳传给了人类。
+这就是所谓的中共管治香港的新模式。
+![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+编辑/校对/发稿：正义的小新
 
-原文作者：艾琳·AJ·康纳利（Eileen AJ Connelly）
-发布时间：2021年5月29日| 上午8:35 | 更新版
-原文链接：https://nypost.com/2021/05/29/explosive-study-claims-to-prove-chinese-scientists-created-covid/
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 0

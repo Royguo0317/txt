@@ -1,11 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210530
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1284109/)
+## 越南出现超強混合病毒，越中边境地区感染人数激增
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1284219/)
 
-作者：2020喜马拉雅
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30150112/001-3-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30150134/002-2-11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151126/003-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151131/004-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151211/005-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151217/006-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151220/007-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151255/008-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151300/009-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151306/010-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151306/011.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151319/012-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151341/013.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151350/014.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151356/015.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151401/016.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151406/017.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151409/018.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151419/019.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151426/020-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151448/021-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30151448/022.jpg)
-审核：神奇四侠；发稿：神奇四侠
+加拿大多伦多枫叶农场 向真
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30171209/yahoo1-3.jpg)*图片来源：Yahoo.com*
+据布莱巴特新闻网5月30日报道，越南卫生部长阮青龙29日宣布，越南国内发现中共病毒新变异毒株的确诊病例。阮青龙称，这是印度型毒株和英国型毒株的混合体，这种由两种突变毒株结合产生的变异混合病毒，已经被证实在空气中的传播非常迅速，传染性更强，“咽喉液中病毒浓度迅速增加，并强烈地传播到周围环境”。阮青龙部长没有介绍这种新型混合毒株已扩散到何种程度，但他表示将很快宣布统计数据。
 
-0
+值得注意的是，越南靠近中共国的边境地区即越南北部，在4月下旬最早爆发疫情，而且感染人数一直在激增。另外，在越南至少发现了7种病毒，在短短的一个多月的时间内，就有这么多不同病毒同时进入越南，而且其中的两种毒株竟然神奇结合成传染性（其毒性未见披露）更强的新病毒，这是自然而然的现象，还是中共对越南的故意伤害？
+
+此前越南和台湾一样，是应对中共病毒最成功的优等生，没有之一。就地缘政治而言，台湾、越南、马来西亚、新加坡等在西太平洋的战略地位最为重要，在马六甲海峡-南海-台海-东海这条当今全世界最重要的航线上互为犄角，这些国家和台湾一样最终都要选边站投靠美国，中共先下手为强向这些国家投毒是极有可能的。最近，新加坡、马来西亚、越南和台湾接连爆发来势凶猛的疫情，真的是巧合吗？
+
+[原文链接](https://www.breitbart.com/europe/2021/05/29/vietnam-claims-to-have-identified-mutant-coronavirus-combining-british-and-indian-variants/)
+
+* * *
+
+编辑 发稿 云起时
+
++1

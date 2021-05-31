@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共建党百年活动 境外记者不能临时进京采访
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1284409/)
+## 【鹰眼墙国】“反食品浪费”法规化，但粮食危机远未结束
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1284485/)
 
-作者：香草山健身部 Jack Li文阳
+香草山写作组 鹰(文言)
 
 
 
@@ -12,32 +12,44 @@
 
 
 
-今年是中共成立100周年，7月1日前后，北京将举行隆重的庆祝活动。中共官媒新华社周五报导：将邀请部分在京的港澳台记者和外国记者现场采访庆祝活动，出于疫情顾虑，不邀请境外记者临时来京采访。
+新浪网5月28日转载北京日报客户端消息，《北京市反食品浪费规定》于27日正式施行，标志着节约粮食、反对浪费这一“省吃俭用”理念的法律条文化。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30213358/Screen-Shot-2021-05-30-at-9.19.22-PM.png)
+中共农业农村部披露，2021年投入“三夏”麦收的联合收割机将超过60万台，小麦面积达3.35亿亩；2020年冬小麦面积3.15亿亩，联合收割机65万台。从数据上看，2021年的小麦种植面积增长0.2亿亩。但与之相对的是由于自然灾害的频发，2021年4月农作物受灾面积333千公顷（其中绝收29.3千公顷），而进入5月后，南方进入汛期，长江汉口站水位达156年最高值，长江中下游干流主要控制站水位较2020年同期高4.6-7.0米等迹象都标志着今年的洪涝灾害要比2020年更为激烈。3.35亿亩小麦能否保证“大水之年是丰收之年”依旧仍待考察。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30213335/Screen-Shot-2021-05-30-at-9.19.28-PM.png)
+2020年上半年中共国累积进口粮食6090万吨，同比19年增长20.6%，其中进口小麦335万吨（同比增加90.3%）；而2021年前4个月，进口粮食5079.2万吨，进口规模比2020年同期增长57.8%。从小麦种植面积的增长，进口粮食规模猛增，可以看出国内粮食短缺危机并没有因2020年的“秋收硕果”和“粮食产量13.4亿吨”而得到缓解。反食品浪费法确实可以行政干预、遏制民间的浪费行为。然而，浪费挥霍最为严峻的是中共上层“生态”，他们依旧享有法外的特权。现在全国各种物价飞涨，全球对中共的经济脱钩和制裁加剧，中共“外汇买粮”的渠道也被进一步缩窄，国内的粮食危机还远没有结束。
 
-在全球疫情大流行之际，为了营造中共国一家独好的政治氛围，中共各种宣传机器开启了高调的“庆祝”活动。北京设立了专门的[新闻中心](https://www.ntdtv.com/gb/%E6%96%B0%E9%97%BB%E4%B8%AD%E5%BF%83.htm)，该中心设在北京梅地亚中心，将于6月26日正式运行。
+新闻来源：
 
-为了便于中外记者采访，新闻中心将负责接待前来采访庆祝活动的中外记者，组织新闻发布会和记者招待会，联系安排中外记者采访活动，并开设新闻中心官方网站和微信公号，为记者采访报道庆祝活动提供必要的信息服务和技术保障。确保到场报道的记者，在当局的严密监管下，按照中共的安排报道。
+《北京市反食品浪费规定》通过实施，全文来了https://news.sina.com.cn/c/2021-05-28/doc-ikmyaawc7969829.shtml
 
-另外中共以防控疫情为由，禁止[境外记者](https://www.ntdtv.com/gb/%E5%A2%83%E5%A4%96%E8%AE%B0%E8%80%85.htm)临时到北京采访。届时新闻中心网站将提供相关文件、照片和影片，供无法到场采访的媒体使用，让他们也能按中共的意图报道。
+“三夏”农机化生产顺利收官http://www.njhs.moa.gov.cn/nyjxhqk/202008/t20200804\_6349811.htm
 
-全世界正在与中共全面脱钩，国内经济一片萧条，面临崩溃的边缘。国际追责病毒真相如火如荼的推进，中共国在日渐孤立之际，迎来了这个最难过的“盛典”。
+今年“三夏”收割机将超60万台https://politics.gmw.cn/2021-05/26/content\_34877338.htm
 
-中共为了掩盖真相，调动宣传机器，严厉网络控制，各地轰轰烈烈造势，为党“报喜献礼”，制造虚假繁荣，淡化危机，为墙内营造虚假幻象。中共的内忧外患，末日乱象绝对不会让墙内人民看到。
+长江流域全面进入汛期，数十条河流现超警洪水https://www.sohu.com/a/468942059\_260616
 
-中共最不想人民知道的其实就是，今年的庆典很可能是中共的最后一次了。
+应急管理部发布2021年4月全国自然灾害情况https://finance.sina.com.cn/tech/2021-05-08/doc-ikmyaawc4138452.shtml
 
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24221039/5_May-1-556x720-2-3.jpeg)
+数据 | 粮食进口量同比增长20%，但中国主粮对外依赖度仍很低https://www.jiemian.com/article/4849632.html
+
+美国印钞让全球买单？国际粮食价格疯涨！中国粮食进口已大增57%http://news.hexun.com/2021-05-10/203571024.html
+
+食为天︱为什么粮食进口不等于粮食缺口？https://www.thepaper.cn/newsDetail\_forward\_8860429
+![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
+编辑/校对/发稿：正义的小新
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 0
