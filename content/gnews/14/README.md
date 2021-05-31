@@ -1,23 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朝鲜男子售卖韩剧及音乐光碟 金正恩下令枪决
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1285133/)
+## 台湾希望与澳洲签订自由贸易协定
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1285153/)
 
-#### 作者：yyshere
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31041540/sdgSnipaste_2021-05-31_16-14-52.png)
-据信，一名朝鲜李姓男子最近因被举报偷偷贩售韩国影视剧、戏剧和音乐的光碟，遭朝鲜最高领导人金正恩直接下令处决，行刑时约有500人在场观看，其中男子的家人被迫站在第一排全程目睹行刑过程。李姓男子在被捕后承认贩售的光碟和闪存USB，每份售价约在5美元至12美元之间，朝鲜当局正在追查他的影音供应来源。
+翻译与评论：Shirley
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31040601/311.png)图片来自网络
+台湾正在推动与澳洲签订自由贸易协定，因为在该地区军事紧张局势加剧的情况下，台湾正努力减少中共国对其的影响。
 
-据消息人士透露，李姓男子是朝鲜元山农业管理委员会的首席工程师，被邻里监督组织一名班长的女儿向当局举报，他私下贩售韩国影视剧、戏剧和音乐的光碟和闪存USB，随后被警方逮捕。在被抓捕之后约40天，李姓男子被执行枪决，在场观看行刑的大约500人里，还包括了元山市官员，教师和大学学生。
+台北驻布里斯班的经济文化办事处的新任总干事陶先生（Edward Tao）在一次独家采访中说，自由贸易协定对于被中共国“经济欺凌”的台湾和澳洲这两个国家都有意义。澳洲贸易、旅游和投资部长特汉（Dan Tehan）则拒绝发表评论。
 
-据目击的消息人士称，行刑后尸体“被布袋装起，再塞进一个箱子里运往别处”，李姓男子的妻子当场昏厥，随后四名行刑队员“把她拎起，像丢一件行李一样扔进一辆车内”。据信，李姓男子的妻儿都将被送入政治犯集中营。
+台湾是澳洲的第六大出口市场，每年有大量的煤炭、液化天然气和农牧产品运往这个岛国。澳洲则从台湾购买电子产品和汽车零部件等，与台湾的贸易顺差约为90亿美元，并且台湾与澳洲的贸易额在未来几年内还有望增加。
 
-消息来源： 路透社
+由于同宗同族的语言和文化背景的原因，台湾的很多公司， 特别是科技行业的公司，都向西去了中国。可是最近几年习神的战狼外交以及要改变现有国际秩序的野心，让全世界都看到了中共国的危险，各国的公司都在逐渐撤出中共国。
 
-（本文系作者个人观点，不代表GNEWS平台）
+台湾也在此时修订了策略，转为“向南”，希望加强与东南亚、南亚和大洋洲18个国家之间的经济和贸易关系。而且台湾也在寻求澳洲的支持，希望加入泛太平洋伙伴关系，这是澳洲、文莱、加拿大、智利、日本、马来西亚、墨西哥、秘鲁、新西兰、新加坡和越南之间的自由贸易协定。
 
-* * *
+堪培拉政府目前正专注于与英国和欧盟的自贸协定谈判，同时也正在研究与以色列和欧洲自由贸易协定的范围。
 
-*排版发布：日本东京方舟农场 文柯Miles*
+如果上述的东南亚、南亚、大洋洲、泛太平洋伙伴关系国家、英国、欧盟以及以色列等美国盟友都联合起来，组成一个把中共国排除在外的自由贸易区，那中共国怎么活呢？
 
+澳洲为了维持与中共国的关系，于2018年曾放弃与台湾签订贸易协议。而澳洲当年委曲求全换来的，却是现在澳中关系历史上的冰点。澳洲仅从自身利益出发，也会恢复澳台关系。
+
+世上没有任何一个国家，离开美国等西方国家的先进技术和资金的支持，还能够活下来的。习神希望建立一个替代美国的“世界新秩序”，注定就是他的“黄粱美梦”。
+
+（本文仅代表个人观点）
+
+*审核：**Runaway  编辑：MG1*
+
+参考链接：
+
+[https://www.heraldsun.com.au/business/taiwan-wants-fta-with-australia-amid-rising-tensions-with-beijing/news-story/5b01c2d02b47e9bd14cd654e608dfe35](https://www.heraldsun.com.au/business/taiwan-wants-fta-with-australia-amid-rising-tensions-with-beijing/news-story/5b01c2d02b47e9bd14cd654e608dfe35)
+
+[https://www.sbs.com.au/chinese/mandarin/zh-hans/zhong-guo-ya-li-dao-zhi-ao-zhou-ju-jue-yu-tai-wan-qian-ding-zi-mao-xie-ding](https://www.sbs.com.au/chinese/mandarin/zh-hans/zhong-guo-ya-li-dao-zhi-ao-zhou-ju-jue-yu-tai-wan-qian-ding-zi-mao-xie-ding)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29223512/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
 0
