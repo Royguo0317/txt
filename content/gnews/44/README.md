@@ -1,45 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】如不立法限制，人工智能将使奥威尔式的《1984》成为现实
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1284531/)
+## 顺丰控股又有大动作
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1284546/)
 
-香草山写作组   四季
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30222721/6-33.jpg)
+据路透北京5月29日报道，中国物流巨头–顺丰控股周五晚发布公告称，为了拓展公司多元化融资渠道，搭建同城实业国际资本运作平台，公司拟分拆控股子公司同城实业赴香港联交所主板上市。
 
+杭州顺丰同城实业有限公司于2019年成立，该公司以顺丰同城急送品牌为现有客户和潜在客户提供专业、优质的即时配送服务。而根据顺丰控股今年3月份的公告，其通过全资子公司深圳顺丰泰森控股（集团）有限公司对同城实业增资4亿余元，增资后顺丰控股对顺丰同城合计的持股比例将从65.46%增加至66.76%。顺丰同城2020年的营收为48.44亿，净亏损7.8亿，顺丰同城2021年前两个月净亏损就达1.3亿。
 
+另据公告，顺丰控股拟部分要约收购嘉里物流51.8%股权，若成功完成本次交易，标的公司仍将保持联交所主板上市地位，其最低公众持股比例将从25%更改为15%。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
+这桩经过三、四年的收购交易，于今年2月达成“联姻”，交易完成后顺丰将取代由“糖王”郭鹤年家族持有的嘉里控股，成为嘉里物流的控股股东，而嘉里物流将成为顺丰的国际部，并将为亚洲最大物流集团。
 
+一则上市，一则收购，信息量巨大。同城实业作为一个成立不久，并持续亏损的企业，并不具备足够的上市亮点。但依然选择在此时间上市，可见其母公司的现金流压力不再具备支撑其子公司运营的基础，而转向资本市场“吸金”。而同时对嘉里物流的收购交易，则显示顺丰控股的国际布局并没有因为公司主营业务受影响而有改变。这不禁让我们想起顺丰在2020美国总统选举中的作用，**其布局广泛的国际物流网络，究竟是为了拓展业务收入还是为了中共国家机器的特殊目的呢**？无论是何种动因，在公司业务因为疫情受损的眼下，求助于资本市场持续供血，并不惜代价坚持完成中共交予的特殊任务，是比较合理的背后逻辑。
 
+（本文只代表作者观点，与Gnews平台无关。）
 
-微软总裁布拉德-史密斯在英国BBC《广角镜》节目中警告，随着科技的发展，人工智能技术会变成万能的眼睛。如果政府制定的规章条例，不能保护公众免受人工智能监控的侵扰，那么乔治-奥威尔在他的《1984》一书中描写的乌托邦式的场景将可能在2024年成为现实。
+**新闻来源：**
 
-史密斯举例表示，中共国已经实施以人工智能为主导的极权主义。中共使用人工智能监控其公民，已经抹去了公民的自由意志，将他们转化为国家的顺民。其社会信用评分让公民受到约束。为了防止西方出现这种乌托邦，立法者需要现在就采取行动。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30213226/Screen-Shot-2021-05-30-at-9.19.54-PM.png)
-史密斯说，“如果我们不制定在未来保护公众的法律，因技术正在飞速发展，我们要追赶上它将是非常困难的”。
+[中国顺丰控股拟分拆同城实业赴港上市 部分要约收购嘉里物流51.8%股权 | 路透 (reuters.com)](https://cn.reuters.com/article/sfspinoffipo-hk-plan-0529-sat-idCNKCS2DC01L?il=0)
 
-人工智能是政府采用奥威尔式的监视和控制的一个重要工具。 政府每时每刻都可以看到每个人所做的一切，听到每个人所说的一切。人工智能具有集中监控公民的权力。这些监控工具对一个人的了解比他们对自己的了解还要多。
+***校对发布**：文顾*
 
-科技的进步给人类社会带来了前所未有的繁荣，但是也给少数人统治多数人提供了空前的技术手段。在高科技给我们的生活带来便利的同时，我们必须加深对隐私保护的理解，拒绝中共式的共产主义集权。
-
-原文链接：
-
-[https://www.zerohedge.com/markets/microsoft-president-warns-orwells-1984-202](https://www.zerohedge.com/markets/microsoft-president-warns-orwells-1984-202)
-![This image has an empty alt attribute; its file name is 5_May.jpg]()![This image has an empty alt attribute; its file name is 5_May.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01022529/5_May.jpg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-0
++1

@@ -1,52 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】第四次出席两院院士大会 习近平为科技创新“划重点”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1284581/)
+## 【热点播报】面对新冠病毒疫苗，美国大学生该何去何从？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1284620/)
 
-作者：纽约香草山健身部   文真
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+作者：纽约香草山健身部  幸福鸟
 
 
 
-5月28日，习近平第四次出席两院院士大会，第二次出席中（共）国科协全国代表大会。会上，习明确强调了科技创新已经成为国际战略博弈的主要战场。以下让我们具体分析习究竟强调了哪些重点。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30230026/79-9.jpg)图源网络
 
-重点一，“要加强原创性、引领性科技攻关，坚决打赢关键核心技术攻坚战。”
 
-中共把“科技创新”当做“战场”，这本身就有违“科学精神”。本来“科技创新”的源动力是好奇心和探索精神，而中共的科技大会旨在强调和规定科技工作者及其科技研究要为党的需要服务。科技工作者的头脑已经被党的要求禁锢了，何谈“创新”！
+根据美国疾病控制与预防中心的数据，将近一半的成年美国人已经完全接种了新冠病毒疫苗；而在18至24岁的年轻人中，也有大约30％已经接种了疫苗。据报道，经过一年多的在线课程，目前美国大多数大学都在为秋季正常返回校园做准备。尽管联邦政府并未强制要求打新冠病毒疫苗，但各大学在疫苗方面的做法还是五花八门，令学生和家长困惑不已。
 
-这还说明，中共已经明确认识到国际社会和中共全面脱钩的形势。在美国“无尽边疆法案”通过后，双方科技脱钩已成定局。习此刻强调“原创性”和“核心技术攻坚”无非是因为靠盗窃知识产权的机会不再存在，要靠自己“创新”了。
+![]()![](https://www.gannett-cdn.com/presto/2021/04/05/NTGS/85c45e73-c1df-410c-bc06-aaadbe9d28a7-FLGAI-040521-UFStudentCovidVaccineMass-01.jpg?width=980&amp;height=731&amp;fit=crop&amp;format=pjpg&amp;auto=webp)图片来源：USA Today
 
-重点二，“创新不问出身，英雄不论出处。要改革重大科技项目立项和组织管理方式。要研究真问题。要让那些想干事、能干事、干成事的科技领军人才挂帅出征，要让有真才实学的科技人员英雄有用武之地！”
+根据《高等教育内幕》所列的清单，到目前为止，约有400所大学准备要求在校上课的学生接种强生、莫德纳或辉瑞的疫苗。另外，美国4,000所学位授予院校几乎都在鼓励或帮助学生接种疫苗。《高等教育内幕》称，有些大学为了鼓励学生接种疫苗甚至提供现金、大学赠品或免学费课程等奖励措施；有些大学则要求学生必须提供疫苗接种证书；有的要求未接种疫苗的学生必须戴口罩，并且还必须继续接受冠状病毒核酸检测；有的甚至禁止未打疫苗的学生进入校园。
 
-这充分暴露了中共国高端科技人才的短缺和聘用机制的弊端。中共国的洗脑教育导致人在受教育的过程中只能接受标准答案，从而逐渐丧失了独立思考辨析的能力。因此，中共国的教育体制很难培养出有独立创新精神的科技人才。另外，科研人员的职称评定大多采取“一刀切”的硬性评定指标，忽略了学科的差异性。同时在教职申请方面更是“近亲繁殖”严重，不能做到公平公正。中共逆向淘汰的体制导致中共国缺少利于人才生存和发展的环境。
-
-重点三，科技管理改革，不能只做“加法”，要善于做“减法”。“决不能让科技人员把大量时间花在一些无谓的迎来送往活动上，花在不必要的评审评价活动上，花在形式主义、官僚主义的种种活动上！”
-
-在中共国，无论科研立项、经费申请，还是职称审评，没有人际关系和利益往来是无法达成的。再说，两院院士大会和科协代表大会本身就是“形式主义”和“官僚主义”，其本质就是这科技官僚“迎来送往”和拉关系的好时机。倘若真如习所说，何不取消这类大会，节约这些科技工作者宝贵的时间和精力，多出些科技成果呢？
-
-习近平作为小学毕业的法律博士，其在两院院士和科协代表大会发言就是外行人为行内人“划重点”。这一举动的本质上就是为科技工作者洗脑：科技研究要为党的需要服务。因此，只要“党的需要高于一切”的官本位思想不除，国内根本不可能实现真正的科技创新。
+面对新冠病毒疫苗，美国大学生究竟该何去何从？
 
 参考阅读：
 
-时政新闻眼丨第四次出席两院院士大会 习近平为科技创新“划重点”\_https://news.sina.com.cn/c/xl/2021-05-29/doc-ikmxzfmm5317736.shtml
+[Colleges hope students get COVID-19 vaccines for fall semester – but can they require it?](https://www.usatoday.com/story/news/education/2021/05/30/covid-vaccine-college-require-mandate-fall-semester-exception/5244826001/)
 
-习近平在两院院士大会中国科协第十次全国代表大会上的讲话金句\_https://news.sina.com.cn/c/xl/2021-05-29/doc-ikmyaawc8156560.shtml
-
-[时政新闻眼丨第四次出席两院院士大会，习近平为科技创新“划重点”](https://www.youtube.com/watch?v=jjwEirEQGOo)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01030517/5_May-2.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
 
 编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
@@ -54,11 +38,11 @@
 
 **[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 

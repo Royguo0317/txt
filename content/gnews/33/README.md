@@ -1,49 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】面对新冠病毒疫苗，美国大学生该何去何从？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1284620/)
+## 【独立观点】美国与中共国的接触时代已经终结，竞争时代到来
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1284622/)
 
-作者：纽约香草山健身部  幸福鸟
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+作者：纽约香草山健身部 Ivy001
 
 
 
-根据美国疾病控制与预防中心的数据，将近一半的成年美国人已经完全接种了新冠病毒疫苗；而在18至24岁的年轻人中，也有大约30％已经接种了疫苗。据报道，经过一年多的在线课程，目前美国大多数大学都在为秋季正常返回校园做准备。尽管联邦政府并未强制要求打新冠病毒疫苗，但各大学在疫苗方面的做法还是五花八门，令学生和家长困惑不已。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
 
-![]()![](https://www.gannett-cdn.com/presto/2021/04/05/NTGS/85c45e73-c1df-410c-bc06-aaadbe9d28a7-FLGAI-040521-UFStudentCovidVaccineMass-01.jpg?width=980&amp;height=731&amp;fit=crop&amp;format=pjpg&amp;auto=webp)图片来源：USA Today
 
-根据《高等教育内幕》所列的清单，到目前为止，约有400所大学准备要求在校上课的学生接种强生、莫德纳或辉瑞的疫苗。另外，美国4,000所学位授予院校几乎都在鼓励或帮助学生接种疫苗。《高等教育内幕》称，有些大学为了鼓励学生接种疫苗甚至提供现金、大学赠品或免学费课程等奖励措施；有些大学则要求学生必须提供疫苗接种证书；有的要求未接种疫苗的学生必须戴口罩，并且还必须继续接受冠状病毒核酸检测；有的甚至禁止未打疫苗的学生进入校园。
 
-面对新冠病毒疫苗，美国大学生究竟该何去何从？
+5月26日，美国国家安全委员会印太协调人库尔特.坎贝尔（Kurt Campbell）在斯坦福大学组织的一场活动中发表演讲，他表示：美国与中（共）国的接触时代已经终结，竞争才是全新的战略核心。
 
-参考阅读：
+不久前的5月4日，在台湾问题辩论上，库尔特.坎贝尔还坚持认为美国政府应该继续原来的“战略模糊”，这样才是最安全和有利的政策，因为“战略清晰”会激怒中共国，进而打破现在的台海平衡状态。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30233526/Untitled-design-63.png)
+不过短短22天，白宫在对待中共国的战略上，就发生如此重大的转变。由于中共国在习近平的独裁领导下，对外实行战狼政策：中印边境的武装冲突，针对澳大利亚的经济胁迫，南海诸岛的实质性侵略，对台湾的武力威胁升级，对香港民主的摧毁和血腥镇压……让美国政府意识到北京已经转向倚重“粗野实力”，这表明“中共已经决定要扮演更为强势的角色”。
 
-[Colleges hope students get COVID-19 vaccines for fall semester – but can they require it?](https://www.usatoday.com/story/news/education/2021/05/30/covid-vaccine-college-require-mandate-fall-semester-exception/5244826001/)
+坎贝尔表示，美国战略改变的另一个核心因素就是习近平，一个对经济不感兴趣的冷酷独裁者，意味着中共国会继续他的无视规则、不可协商以及难以预测的霸权扩张政策。有鉴于此，美国必须重新定位与中共国的关系。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01023943/5_May-1.jpg)
+坎贝尔发表这段坦率而犀利的谈话，表明美国政府已经把中共国从合作者的定位，改变成竞争者的定位。美国政府反制中共国的战略越来越清晰，并且正在把更多的战略焦点、经济利益和军事实力转移到印太地区，这是美国有史以来第一次。
 
-编辑/校对/发稿：Irene木木
+图片来源：Reuters
 
+https://www.huaglad.com/aunews/20210528/433059.html
+
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193555/5_May-1-556x720-1.jpeg)
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

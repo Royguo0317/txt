@@ -1,43 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独立观点】美国与中共国的接触时代已经终结，竞争时代到来
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1284622/)
+## 【新闻速递】美国前副国家安全顾问： 我们可以找到中共病毒的起源
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1284533/)
 
-作者：纽约香草山健身部 Ivy001
+作者：休斯顿星光农场 写作部 文顺
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
+5月30日，美国前副国家安全顾问马修·波廷格在接受NBC采访时表示，他认为有可能在周日讨论武汉实验室起源理论时确定中共病毒的起源。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30222704/Screenshot-2021-05-30-212058.jpg)
+图片来源：Thehill
 
+最近，拜登总统要求美国情报界就COVID-19的起源在90天内提交一份准确的报告，并敦促中共参与COVID-19起源的调查。
 
+对此，波廷格说：”我认为，在90天内可以学到很多东西。” 他补充说：“可以想象，我们会有一个答案，即使没有得到一个明确的答案，我们也将拥有一个基础，让世界各地的科学家能够进一步揭示真相。他们现在会更加大胆，因为他们知道这是美国的一个优先事项。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193828/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpg)
+波廷格认为，即使中共不合作，也能找到关于COVID-19起源的 “明确答案”。他说：“这可能需要超过90天的时间，但令人难以置信的是，中共国有许多有道德的科学家，其中许多人在病毒大流行的早期阶段就站出来说，他们怀疑这是实验室的泄漏。”
 
+他表示，尽管这些人因为揭露真相受到中共的打压，但是美国领导的全球寻找COVID-19起源的努力，可能会鼓励这些科学家勇敢的站出来。
 
+此外，波廷格表示，一些科学家在中共病毒爆发的早期发表的声明减缓了对病毒起源的调查。因为他们不仅驳斥了病毒来源于实验室的想法，实际上还讽刺了那些认为它可能来自实验室的人。
 
-5月26日，美国国家安全委员会印太协调人库尔特.坎贝尔（Kurt Campbell）在斯坦福大学组织的一场活动中发表演讲，他表示：美国与中（共）国的接触时代已经终结，竞争才是全新的战略核心。
+他补充道：”我认为，这更像是一个体制缺陷。事实上，情报界确实希望（疾病控制和预防中心）能够起带头作用，并成为监测疫情和类似情况的主导机构。”
 
-不久前的5月4日，在台湾问题辩论上，库尔特.坎贝尔还坚持认为美国政府应该继续原来的“战略模糊”，这样才是最安全和有利的政策，因为“战略清晰”会激怒中共国，进而打破现在的台海平衡状态。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/30233526/Untitled-design-63.png)
-不过短短22天，白宫在对待中共国的战略上，就发生如此重大的转变。由于中共国在习近平的独裁领导下，对外实行战狼政策：中印边境的武装冲突，针对澳大利亚的经济胁迫，南海诸岛的实质性侵略，对台湾的武力威胁升级，对香港民主的摧毁和血腥镇压……让美国政府意识到北京已经转向倚重“粗野实力”，这表明“中共已经决定要扮演更为强势的角色”。
+信息来源：
 
-坎贝尔表示，美国战略改变的另一个核心因素就是习近平，一个对经济不感兴趣的冷酷独裁者，意味着中共国会继续他的无视规则、不可协商以及难以预测的霸权扩张政策。有鉴于此，美国必须重新定位与中共国的关系。
+https://thehill.com/homenews/sunday-talk-shows/556139-former-deputy-national-security-advisor-i-think-we-can-find-where?rl=1
 
-坎贝尔发表这段坦率而犀利的谈话，表明美国政府已经把中共国从合作者的定位，改变成竞争者的定位。美国政府反制中共国的战略越来越清晰，并且正在把更多的战略焦点、经济利益和军事实力转移到印太地区，这是美国有史以来第一次。
+校对/发稿：Helen
 
-图片来源：Reuters
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
 
-https://www.huaglad.com/aunews/20210528/433059.html
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
 
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193555/5_May-1-556x720-1.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
