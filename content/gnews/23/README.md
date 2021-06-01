@@ -1,27 +1,206 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】5/31/2021文贵盖特：以毒灭共已和共产党的垂死挣扎，会形成非常有趣的国际政治现象
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/1287035/)
+## 中国病毒学家闫丽梦博士因讲真话而曾被互联网抹去
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1287135/)
 
-制作： 【彩虹桥】
+**字幕内容：**
 
-兄弟姐妹们， 5月31号，尊敬的战友们好。刚刚睡醒的时候，在3点钟跟某个人通电话，亚洲的，醒来之后，他发信息，说：“Miles，你给我打过来吧。” 我就给他打过去了。他原来在国内也是个相当牛的人，现在到了海外来了，跟了我们爆料革命一年了，昨天各种的说法吧，希望他能够劝说几个他熟悉的人弃暗投明，加入爆料革命。今天再给我回复信息说:“文贵，我经过激烈的心理斗争,经过了各方面的慎重考虑，我不怕共产党了。”我说:“就这么大的事啊？好，恭喜你！我不怕共产党了。”
+**Dr. Li-Meng Yan**
+**闫丽梦博士**
 
-真没法弄，有些人天生就是懦夫，天生的骨子里面就不带着勇气，自来不带勇气，还有些人天生就带着自私，而且天生有的人他就是奴才，没办法。说完以后，我告诉他说：“只要我说了算，永远不会让你加入到我们这儿来。”从此拉倒。为什么呢？他骨子里经过利益取舍，权衡之后，蛇鼠两端，最后他做了个决定。一旦条件平衡的时候就成敌人了。就这么简单，对不？兄弟姐妹们？这个常识大家有的吧？
+I really hope they can come to reach the clear conclusion within 90 days
+我真的希望他们能在90天内得出明确结论
 
-另外，前天我给咱们几个战友说，我说英国，包括我给很多咱们的特殊的战友说:“一定记住，英国首相一定唱反调。”英首相唱反调了吧？为啥？战友们知道吗？英国首相不唱反调，就说明共产党的蓝金黄力量还不够。而且欧洲会有一两个，两三个国家出来的。但是你会发现这些人唱反调，最终对整个全球的“以毒灭共”是大好事。而且共产党这些天，杨娘娘去俄罗斯，包括去德国、法国、英国，这一系列的人，拎着几百亿的钱，带着各种承若和投资项目，也带着某些人的“缺点”、证据、录像带、U盘。不行你看看，是吧？银行信息，很多人你们不知道，有些话我不方便说，等有时间我给在家再讲讲，很便宜…没那么难。大家想的太神乎了。何况这么大的动静呢？但是世界决定这件事输和赢的，就像欧中协议被干掉一样，不是说英国，也不是法国和德国，最终还是美国在背后起的力量，这个地方才说了算。
+First, I have present enough evidence
+首先，我已经通过我发表的三份报告
 
-另外一个，大家要看到更重要的事情，经济，在经济目前各国政客…西方是资本主义社会，也就是钱是爹，钱是主义。在经济面前，很多人都会放弃原则，都要选择利己主义。对自己的任期，对自己的政治的权力，为了这些什么都可以放弃，这就是西方资本主义带来的劣病。经济上由于共产党所有病毒，以及共产党的假、偷、骗、抢，给各国带来的危害，谁要是想走另外一条路，那是找死呢。最重要的，经济等到世界出现滑坡的时候，你会发现共产党大势已去。能挽回吗？大家试试，它一定是的。想现在让人民币坚挺，操纵汇率，甚至不惜代价把中国人的未来，都卖给这些利益集团，来换取西方放过对它们这次截杀的可能，它都没用的。
+including scientific and also intelligence evidence through my three published reports
+提出了足够的证据，包括科学和情报证据
 
-毫不夸张的说，从一周前基本已经定局共产党就死在病毒上了，死在病毒上，就是个时间和方式的问题。促使它死亡的根本的手段，就是经济，经济越坏它死的越快，经济要是如果缓慢的滑坡，它就死的慢。但是它不会坐以待毙的，它会想尽一切办法，求生欲望很强啊，这是可以理解的。从来没有一个帝国在临灭亡前，它认为自己是灭亡的；从没有一个帝国的国民，认为帝国是会灭亡的；也从没有一个帝国在灭亡前，真的以为自己会全部消失的，没有，从来没有，历史上几千年来告诉人类，人到那个时候就已经失去理智了。可是大势总是不可逆转的，自然现象，谁也逆转不了。
+and also I have given a lot of other information through medias
+而且我也通过媒体提供了很多其他信息
 
-另外一个，我想跟兄弟姐妹们说的，今天和明天，大量的战友已经凝聚纽约。七哥每时每刻都在兴奋的状态。想到那么多战友在那里，头两天我的保镖看到很多战友开着车游行，还有看到这么多安保措施全面上去，还是希望所有战友们，纽约很冷，多穿点衣服，特别冷。纽约说冻感冒就一会儿的事，早晚可以差5度到10度，像这两天差了10度。要吃好，不要乱吃，出去玩的时候注意安全。务必戴手套，务必要带口罩，务必要保证防病毒摆第一位。安全第一，好好享受这个国际大城市纽约。然后相聚世贸中心102层。大家记住：102层的节目，6月3号，一定会给你惊讶的，一定会给你惊喜的，一定会让你想象不到的精彩。太多的战友在背后辛勤的工作。一天十几、二十小时的工作，真的是太不容易了。这一次我们新中国联邦一周年的会，在世界上所造成的影响，你们未来会看到的。
+and now uh we also know that there is a PLA textbook
+而且现在我们还知道了解放军有一本教科书
 
-不但如此，在西方政界带来了一股新的政治气息，这种政治气息，就是我们今年下半年要做到的，以毒灭共之后，让全世界都问一个问题：灭掉共产党的中国应该走向何方？谁是我们可以信任合作的伙伴？什么样的中国人是我们认为能合作的中国人？我们也会给中国人一个选择：中国人到底未来要当一个什么样的中国人？我们中国人最快乐，最健康的，希望自己的家人和自己未来是什么样子？我们什么样的中国人能跟世界和平共处？让家人的安全、利益得到保障？有尊严的在世界上活着？什么样的政治形势和什么样的中国人，符合中国人的利益？新中国联邦的一周年，从一周年之后，今天大家都没感觉，一定是纽约时间6月3号，大陆时间6月4号凌晨开始，一周年的活动之后，很多人会想这些问题。默默的想…有道理。有道理…这就是我们要达到的目的。
+which have some or clearly mentioned back to 2015 in a open way
+其中有些或明确提到可以追溯到2015年
 
-同时我们把更多中国的精英，不同年龄、不同领域的精英们凝聚在一起。让大家来探讨，让大家来批评，让大家来参与。这就是我们要准备好，新中国人未来的一个形象和政治定位，和中国人相处的方式，和中国人和世界相处的方式，以及我们中国人到底要什么？这是整个从几天后，也就是这里的6月3号，大陆的6月4号凌晨开始，我相信这是中国人重新的开始！没有任何人可以挡住！共产党你完了！
+I mean they tell it as an open secret to the people
+我的意思是他们说这是一个公开的秘密
 
-走着看！我不多说了，说的搂不住了，还有很多好消息。兄弟姐妹们，一切都已经开始。6月1号，七哥的歌打榜 《马背英雄》，别忘了兄弟，捧场。
+There will be the novel bioweapon developed based on coronavirus
+将会有基于冠状病毒开发的新型生物武器
+
+and which can be looks like nature occurring
+而且看起来像大自然出现的
+
+the important thing is to deny, to spread the misinformation
+重要的是要去否认，一旦人们意识到这是来自实验室
+
+once people realize it’s from the lab
+要发布关于病毒错误信息，去误导人们
+
+So what we need to do is
+所以我们需要做的是
+
+we need to collaborate with more and more scientists or professional people
+我们需要与越来越多的科学家或专业人士合作
+
+and together with our public to show the evidence
+并与我们的公众一起展示证据
+
+to show the people let people understand
+向人们展示，让人们理解
+
+this is really the bioweapon the novel bioweapon,
+这就是真正的生物武器，新型的生物武器
+
+unrestricted bioweapon made by PLA
+解放军制造的超限战的生化武器
+
+Not only one lab， not only Wuhan lab
+不只是一个实验室，不只是武汉实验室
+
+they do a lot of things，
+他们做了很多事情
+
+they donate money and effort to develop it
+他们捐赠金钱和努力去发展它
+
+to harm the whole world and it is intentionally release
+来伤害全世界，这是故意释放的
+
+not lab leak we need to show this evidence
+不是实验室泄漏，我们需要展示证据
+
+we need to work together
+我们需要一起工作
+
+and we need to stop the pandemic as soon as possible
+我们需要尽快停止这个大流行
+
+and hold the Chinese government accountable
+而且追究中共国政府的责任
+
+Benny （Newsmax host)
+本尼 (Newsmax 主持人）
+
+Very quickly doctor last question
+很快，博士，最后的问题
+
+because we are out of time
+因为我们快没时间了
+
+have you been contacted by American intelligence？
+美国情报部门曾与您联系过吗？
+
+have you been contacted by any by NIH by anyone who may be studying the coronavirus origins
+美国国立卫生研究院是否有任何可能在研究
+冠状病毒起源的人与你联系过？
+
+Dr. Li-Meng Yan
+闫丽梦博士
+
+Actually I can tell you now is
+实际上，我现在可以告诉您的是
+
+from the first day I came to U.S.
+从我来到美国的第一天起
+
+FBI Homeland and other people start contact me
+联邦调查局、国土安全部和其他人就开始联系我
+
+and I do believe that they have connected information
+而且我确实相信他们已经关联了信息
+
+and listening to my word
+而且听我的阐述
+
+but I hope more people can do it
+但我希望更多的人可以做到
+
+and also yeah they were like bioweapon experts
+并且是的， 就像那些生物武器专家
+
+they totally agree with my work
+他们完全同意我的报告
+
+and also like Dr. Navarro and also Mr. Bannon
+而且还有像纳瓦罗博士和班农先生
+
+all these people they try to help people understand what happened
+所有这些人，他们试图帮助人们了解发生了什么
+
+there are many people work uh to promote this truth to the public
+有很多人在向公众宣传这个真相
+
+but we do need more people to get involved
+但是我们确实需要更多的人参与
+
+and yes people from even NIH turn to me
+是的，甚至美国国立卫生研究院的人都转向
+开始支持我的观点
+
+the one previously told people that it’s from nature
+就是以前告诉这是来自自然的人
+
+and even try to rebut me in New York time or CNN
+他们甚至试图在《纽约时报》或CNN上反驳我
+
+now they tell to me they admit that this is lab origin
+现在他们告诉我，他们承认这是实验室起源
+
+and they want to get my suggestion
+而且他们想得到我的建议
+
+and I’m happy to provide my knowledge and the information to people
+而且我很高兴向人们提供我的知识和信息
+
+whoever won’t know the truth
+给那些不知真相的人
+
+Benny
+本尼
+
+Truth is what we need now more than ever
+真相是我们比以往任何时候都更需要的
+
+and experts like yourself people who are truly brave
+还有像你这样的专家真正勇敢的人
+
+you are truly brave doctor
+你是真正的勇敢的，博士
+
+Thank you so much
+非常感谢你
+
+we certainly support your research and your truth
+我们当然会支持你的研究和你的真相
+
+Thank you for joining us
+感谢您加入我们的节目
+
+Dr. Li-Meng Yan
+闫丽梦博士
+
+Thank you, Benny
+谢谢你，本尼
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 : [https://www.youtube.com/watch?v=VXnSoVaMQmM](https://www.youtube.com/watch?v=VXnSoVaMQmM)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Layka
+审片：康州盘古农场- 银龙
+字幕+视频制作：康州盘古农场 -青梅煮酒
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

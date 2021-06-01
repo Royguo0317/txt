@@ -1,47 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】中共疫苗事故频发 疑点重重
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1287373/)
+## 【锐语】爆炸性研究证明中国科学家不但创造了新冠病毒 还做逆向工程掩饰来源
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1287464/)
 
-配音：香草山录音组 蒙古鸿雁
+英国教授安格斯·达格利什 (Angus Dalgleish) 和挪威科学家比尔格·索伦森 (Birger Sørensen) 博士在纽约时报写道，他们已经掌握了“中国进行逆向工程”的主要证据。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+一项重磅炸弹的新研究声称有证据表明中共国的科学家在实验室中创造了COVID-19，然后试图对该病毒的版本进行逆向工程，使其看起来像是从蝙蝠自然进化而来的。英国教授 Angus Dalgleish 和挪威科学家 Birger Sørensen 博士说自去年以来，他们已经有了“在中国进行逆向工程”的主要证据，但被学术界和主要医学期刊忽视了。他们将很快发布这篇报告。
 
+Dalgleish 是一位伦敦肿瘤学教授，以在 HIV 疫苗方面的突破性工作而闻名。Sørensen 是病毒学家，也是 Immunor 制药公司的主席，该公司开发了一种名为 Biovacc-19 的冠状病毒候选疫苗。Dalgleish 还持有该公司的财务股份。
 
+他们说，在他们的COVID-19疫苗研究期间，他们俩碰到了“独特的指纹”，表明该病毒不是自然产生的。线索是在携带 COVID 的病毒中罕见地发现一排四个氨基酸，这些氨基酸释放出正电荷并与阴性人体细胞结合。“物理定律意味着你不能连续有四个带正电荷的氨基酸，”达格利什告诉《每日邮报》。“获得它的唯一方法是人工制造它。”他们还跟踪了已发表的中国研究，其中一些研究是与美国大学合作完成的，展示制造病毒的工具是如何制造的。审查工作的很大一部分涉及“功能获得”研究，其中涉及在实验室中操纵天然病毒以使其更具传染性，从而使科学家能够研究它们对人类的潜在影响。
 
+不断有科学界的人物出来，从多个角度，多方面，证实了病毒的实验室起源论，早在疫情开始爆发的时候，很多科学家就已经发现不对头，但是他们的观点和言论受到科技媒体的限制和打压，也被科学界与中共同谋的高层所威胁。经过一年多的我们英雄科学家的呼吁，和许多新联帮线下的无名战友的争取，病毒溯源的事情才进展到了今天这个程度。会不断有新的科学证据出来，来印证，这就是中共在实验室制造的病毒，这次疫情爆发不是实验室泄露，就是中共对全世界全人类发起的超限生物战争。
 
+参考链接：
 
+[https://www.foxnews.com/world/explosive-study-claims-to-prove-chinese-scientists-created-covid](https://www.foxnews.com/world/explosive-study-claims-to-prove-chinese-scientists-created-covid)
 
+图片新闻：[https://www.foxnews.com/](https://www.foxnews.com/)
 
-中共目前批准紧急使用的有四款疫苗，国药集团武汉生物的两种灭活疫苗，还有北京科兴灭活疫苗，康希诺生物腺病毒载体疫苗（单针免疫）。记者在一个每天都可接种两万人次的大型疫苗接种点，进行了长达一个多月的观察采访。以下是灭活疫苗和单针免疫腺病毒疫苗的接种事故综合报道。
+整理撰稿：蓝精灵
 
+校对发布：Penny
 
-
-**文字版原文：[【一线新闻】中共疫苗事故频发 疑点重重](https://gnews.org/zh-hans/1283359/)**
-
-
-
-现场记者：木头人
-后台撰稿：纽约香草山健身部 童谣
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

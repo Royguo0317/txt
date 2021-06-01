@@ -1,16 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 5月31日国殇日美国前总统唐纳德 · 川普的声明
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1287049/)
+## 【有声读物】如不立法限制，人工智能将使奥威尔式的《1984》成为现实
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1287293/)
 
-在这个阵亡将士纪念日，我们记念那些为捍卫我们的国家、我们的家庭、我们的公民、和我们神圣的自由而战斗到最后一息的殒落的英雄们。 他们深沉的奉献、钢铁般的决心、和他们纯洁的爱国之心，在人类历史上是无与伦比的。 在遥远的战场、遥远的海洋和高空之上，他们击败了我们的敌人，献出了自己的生命，以使美国获得胜利。他们做出了最大的牺牲，从而使我们的人民才得以安全地生活，我们的国家才能够和平繁荣。正是因为他们的英勇，我们才能作为一个群体，一起继续追求美国的光荣前程。 我们的一切，以及我们希望成为的一切，都归功于这些无与伦比的英雄们。 他们留下的记忆和他们的遗产是不朽的。 我们对他们及其家人的忠诚是永恒而持久的。 美国的战士是地球上所有国家中为正义、和平、自由和安全而存在的最强大的力量。上帝保佑我们阵亡的士兵、水手、海岸警卫队员、飞行员和海军陆战队员。 我们今天、永远、并一直向他们致敬。
+配音：香草山录音组 蒙古鸿雁
 
-
-
-> Statement by Donald J. Trump, 45th President of the United States of America [https://t.co/ics4ETKiqh](https://t.co/ics4ETKiqh)
-> — 推推党宣传小部长 (@tuituidang) [June 1, 2021](https://twitter.com/tuituidang/status/1399517319672610819?ref_src=twsrc%5Etfw)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
+
+
+
+
+
+微软总裁布拉德-史密斯在英国BBC《广角镜》节目中警告，随着科技的发展，人工智能技术会变成万能的眼睛。如果政府制定的规章条例，不能保护公众免受人工智能监控的侵扰，那么乔治-奥威尔在他的《1984》一书中描写的乌托邦式的场景将可能在2024年成为现实。
+
+
+
+**文字版原文：[【热点播报】如不立法限制，人工智能将使奥威尔式的《1984》成为现实](https://gnews.org/zh-hans/1284531/)**
+
+作者：纽约香草山写作组   四季
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,35 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 好莱坞的价值观是可以任由中共揉捏
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1286971/)
+## “权力集中能干大事”——共产党骗人的政治谎言！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1286235/)
 
-翻译：康州盘古农场- TrueSky
+**摘要：在2021年5月24日的盖特视频中，郭先生痛批中共所谓“集中权力才能干大事”的政治谎言，指出正是这种谎言导致了21位优秀草根运动员的死亡，这个数字比这次巴以战争中死亡的以色列人还多。这21位运动员的死亡表明中共没有资格举办冬奥会。中共还把这个只有猪才相信的逻辑运用到了经济领域，结果是全国的资源和财富集中在不到200个家族的手中，他们控制的银行的崩塌最终会带来中国经济的崩塌。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31202743/Miles_2021-05-24-g1.srt.txt)
+**“权力集中能干大事”——共产党骗人的政治谎言！**
 
-校对：康州盘古农场- 柯镇恶
+**“To Do Great Things with the Concentration of Power” – A CCP’s Political Lie! **
 
-编辑：康州盘古农场- 傻小子
+权力集中能干大事”——这种骗人的政治谎言！[共产党]告诉中国人：“权力集中能干大事”。权力集中也能像希特勒一样，杀死更多的人，是吧？是能干大事啊，也能杀死更多的人呐，对不对？而且官僚、无知、低效工作。
 
-发布：康州盘古农场 – 彩虹 Rainbow
+“To do great things with the concentration of power” – a deceptive political lie! The CCP told the Chinese: “We can do great things with centralized power.” The concentration of power can also kill more people like what Hitler did, right? Indeed, through it you may do great things, but you can also kill more people, right? Also it is featured with bureaucratic, ignorant, and inefficient work.
 
-**据《nationalreview.com》，2021年5月26日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31192222/lki.jpg)
-**2020年7月20日，中国上海，人们在一家电影院观看电影。(Aly Song/Reuters)**
+运动员，一个世界级的马拉松，能让运动员冻死21个人。 以色列，以巴战争，发了几千发导弹才死了12个以色列人。共产党能杀21个最优秀的运动员，最优秀的人。这就叫“集中权力干大事，集中资源干大事”。资源都集中了，谁还给你干事啊？中间要不是放羊的农民，我们这些草根能死更多人。真的是太多人无知到了极点！有些人竟深信不疑！说句老实话，有些人是被害的轻，早晚死他家人的时候就老实了。相信共产主义什么“集中资源，集中权力干大事”这王八蛋逻辑。
 
-动作片明星约翰·塞纳在宣传他的新电影《速度与激情9》时，因无意中将台湾称为一个“国家”而冒犯了中共，他为此进行了凄惨卑微的道歉。这可能为好莱坞低三下四的懦弱创造了新的低点。正如赫赫有名的David Burge在推特上所说：“我不能责怪约翰·塞纳，他不能冒着职业生涯的风险，被拖到北京的非中国活动委员会面前。“
+You (the CCP) can make 21 athletes freeze to death in a world-class marathon event, while in the Israeli-Palestinian war, thousands of missiles were fired, resulting in only 12 Israelis deaths. The CCP killed 21 of the best athletes, the best people. Is this what you call “concentrating power to do great things and concentrating resources to do great things”? When you centralize all the resources, who will still work for you? If it weren’t for the sheep-herding farmers, more grass-root athletes would have died. Too many people are really ignorant to the extreme, and some people even believe [what the CCP said] without a shadow of a doubt. To be honest, those people are not hurt badly enough by the CCP. They would shut up sooner or later if it were their family members who died. Don’t believe in the CCP’s bastard logic of “concentrating resources and centralizing power to do great things”!
 
-如今，好莱坞对中（共）国市场的增长如此着迷，以至于电影公司经常将其（在中国）每部电影票房的75%分给中（共）国利益相关者，编造故事情节以取悦中（共）国的审查员（比如《奇异博士》中的藏族角色）。在迪斯尼的案例中，他们甚至要求一家美国杂志删除奥斯卡获奖导演赵婷（Chloé Zhao）在8年前提到的关于她祖国的谎言和压迫的言论。《2012》和《火星人》等电影散发着鼓吹共产中国的创造力和人道主义的恶臭。塞纳花了10多年时间学习汉语普通话，这表明了：好莱坞的人愿意花大力气来取悦这个（即将成为世界上最大的）电影市场。
+另外一个，兄弟姐妹们要看到，现在经济上不是集中资源干大事吗，钱都集中中南坑啦，这聚集的几天怎么样？大家记住：民生[银行]不倒，招商[银行]不倒，平安[银行]不倒，中国经济不会倒，包括邮储银行。还显摆呢？民生银行我原来说1.7万亿[金融票据]，结果昨天有人告诉我说：“文贵，你说太少了，3万亿找不着。”弄不回来了！任何一个猪脑袋都知道中国所有的资源，所有的财富就在那不超过200个家族手里控制着。你愿意当猪，你愿意当狗你愿意愚人自愚——愚蠢的人自己愚弄自己——你自己去玩去。不要带走所有的同胞。
 
-电影业自诩为种族主义、性别歧视和过度碳排放的激烈反对者，静安他们习惯性地屈服于一个奴役穆斯林、以惊人的规模持续性地杀害女婴、燃烧大量煤炭以致其碳排放量是美国的两倍多的政权。每场奥斯卡颁奖典礼，都充满了对美国所谓的不公正现象的厌恶；每时每刻，好莱坞都在威胁要抵制这个州或那个州的某些所谓不可容忍的立法行为。然而很难想象的是，为了换取继续在中（共）国创造1/4票房收益的权利，好莱坞并不在乎献出何种程度的谄媚。去年，在翻拍的《花木兰》的字幕中，迪斯尼感谢了在新疆省迫害维吾尔人的“安全机构”。
+In addition, brothers and sisters, you should see that the same logic has also been applied to the CCP’s economy by centralizing resources to do great things. The money is concentrated in the hands of those people in the Zhongnanhai pit. How has the state of the economy and the banks changed in the past few days? Please remember: If Minsheng Bank, China Merchants Bank, Ping An Bank do not fail, including China Postal Savings Bank, then China’s economy will not collapse. The CCP is still showing off? I said earlier that Minsheng Bank had lost 1.7 trillion worth of bank notes. But somebody told me yesterday: “Miles, you understated the amount. It is actually 3 trillion that cannot be found.” They can’t get it back. Any pig head knows that no more than 200 families control all the resources and wealth in China. If you are willing to be a pig, a dog, a stupid person who fools himself, or a self-fooling idiot, then just play by yourself. Don’t take away all the compatriots.
 
-在屈服于北京的路上，好莱坞人并不孤单。自我标榜为“国王”（King）的勒布朗·詹姆斯（LeBron James）在反驳休斯顿火箭队总经理达里尔·莫雷（Daryl Morey）对香港民主运动的支持时，大谈中共的政治宣传。这证明他是习近平的附庸。马克·扎克伯格急于让脸书在中（共）国解禁，他在那里用普通话发表了油腔滑调的的演讲，努力使自己看起来像是那个政权的朋友。苹果公司则游说反对一项将惩罚中（共）国的强迫劳动工厂并阻止其商品出口到美国的法案。
+运动员的事情就发生了问题，冬奥会还会有吗？这样的中共国还能搞冬奥会吗？那不都冻死个球的啦？！
 
-然而，好莱坞对中（共）国皮鞋的品味设定了标准。当中（共）国审查人员要求昆汀·塔伦蒂诺从《好莱坞往事》中删除一段（搞笑的）调侃70年代香港动作明星李小龙的场景时，塔伦蒂诺告诉中（共）国，让它闭嘴。塔伦蒂诺愿意为他的作品辩护，这在他的行业中是如此疯狂地反常，以至于这竟成为头了条新闻。所以不要指望他的任何同行会坚持从独裁者手中拯救艺术的原则。好莱坞，这个伟大的美国机构，正朝着成为中（共）国的全资子公司的方向发展。
+What happened to the athletes indicates problems. Will the Winter Olympics still happen? Can Communist China who behaves like this still host the Winter Olympics? Wouldn’t all the athletes freeze to death?
 
-原文链接：[https://www.nationalreview.com/2021/05/hollywoods-values-prove-flexible-in-china/](https://www.nationalreview.com/2021/05/hollywoods-values-prove-flexible-in-china/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60aba2a8744cbc431363c46e](https://gtv.org/getter/60aba2a8744cbc431363c46e) (00:47-02:57)
+鸣谢：[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1269395/](https://gnews.org/zh-hans/1269395/)
+[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于 [https://gnews.org/1271900/](https://gnews.org/1271900/)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+* * *
 
-0
+**整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
+字幕：【Melody太阳的旋律】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++1

@@ -1,38 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议员泰德·克鲁兹：武汉实验室泄漏事件需要的关键证据
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1287087/)
+## 福克斯报道英国情报机构认可病毒实验室泄露
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1287338/)
 
-参议员泰德·克鲁兹： 武汉实验室泄漏事件需要的关键证据：“（[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)）应该已从该实验室的工作人员那里获取了血液样本。” “这就是他们没有公开的证据。” “如果，事实上，血液样本显示…实验室里的人感染了这种病毒”
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31212950/L-7.jpg)
+迄今为止，美国情报机构仍然没有作出中共病毒来自实验室的结论，拜登在上周推卸责任的声明中抱怨，“截至今天，美国情报机构已经‘结合了两种可能的情况’，但还没有就这个问题得出最终结论，他们目前的立场是，虽然情报机构中有两个因素倾向于自然说，一个因素更倾向于实验室说……”【1】美国情报机构是中共渗透的重灾区，时至今日给出这样的结果不足为奇，令人难以想象的是拜登如此过度依赖情报机构，且下令停止了蓬佩奥主导的溯源调查，这就非常令人不解了！
 
+《福克斯新闻》报道，“英国情报部门重新评估了中共病毒实验室泄漏理论，现在称其‘可行’”，指出，美国和英国呼吁世卫组织更深入地调查中共病毒的可能来源。【2】
 
-> 1/x Critical evidence needed on Wuhan lab leak: “[The CCP] would have blood samples from the workers in that lab.”
-> 
-> “And that’s the evidence that they haven’t made public.”
-> 
-> “If, in fact, the blood samples show that a high prevalence of….”[https://t.co/PUmCeprS4s](https://t.co/PUmCeprS4s)
-> — Ted Cruz (@tedcruz) [May 31, 2021](https://twitter.com/tedcruz/status/1399207163243995140?ref_src=twsrc%5Etfw)
+全文如下：
 
+据报道，英国情报部门目前正在重新评估他们对中共国武汉病毒研究所一个实验室泄漏中共病毒的理论的立场。
 
+伦敦《星期日泰晤士报》（the Sunday Times of London）星期日（5月30日）的一篇报道引述英国间谍的话说，他们最初驳斥了实验室泄漏理论，但现在说这是“可行的”。
 
-…如果实验室里的人接触过这种病毒，这就是一个确凿的证据，证明这种病毒在实验室里传播。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 也会有他们第一次被抽取时的样本，也就是他们患病时的样本。毫无疑问……”
+该报援引一位消息人士的话说：“可能有一些证据让我们走了一条路，也有一些证据让我们走了另一条路。”不管怎样，中共都会撒谎，我不认为我们都会了解。
 
+引用这段话之际，美国和英国都在加紧呼吁世界卫生组织对中共病毒的可能来源进行更深入的研究，包括对中共国进行新的访问，在那里发现了第一批人类感染病例。
 
+世卫组织和中共国专家在3月份发布了第一份报告，提出了关于疫情可能如何出现的四个假设，联合小组说，最有可能的情况是中共病毒通过中间动物从蝙蝠身上跳到人身上，从实验室爆发的可能性被认为“极不可能”。
 
-> 2/x “…people in that lab have been exposed to this virus, that’s pretty definitive proof that this coursed through that lab. And they would also have the samples from the time that they were first drawn, which was the time when they had those illnesses. There’s no question….”
-> — Ted Cruz (@tedcruz) [May 31, 2021](https://twitter.com/tedcruz/status/1399207619177418752?ref_src=twsrc%5Etfw)
+拜登政府希望加强呼吁中共国对疫情（来源的调查）更加开放，旨在抵消共和党议员们对总统不够强硬的抱怨，并借此机会就所谓的阻挠向中共国施压。
 
+共和党人，包括前总统唐纳德·川普（Donald Trump）都宣称了一种理论，即病毒是从实验室事故中产生的，而不是通过人类与中共国受感染动物的自然接触而产生的。
 
+美国前食品和药物管理局（Food and Drug Administration Commissioner）局长斯科特·戈特利布（Scott Gottlieb）周日在接受哥伦比亚广播公司（CBS）“面向全国（Face The Nation）”节目采访时说，实验室意外泄漏“一直都在发生”。
 
-“…毫无疑问，当他们在实验室里爆发疾病时，他们会在实验室里做血常规取样。这只是在那种级别的实验室里的正常控制流程。所以他们会得到这些信息。”
+戈特利布说：“事实上，这种实验室泄漏事件时有发生。”即使在美国这里，我们也遇到过不幸，在中共国，最近6次已知的SARS-1疫情都是从实验室里爆发出来的，包括最近一次已知的疫情，这是一次相当广泛的疫情，中共国最初不愿透露是从实验室里爆发的。”
 
+而本月早些时候《华尔街日报》（the Wall Street Journal）报道称，武汉病毒学研究所的三名研究人员在2019年末表现出与中共病毒一致的症状，需要住院治疗。
 
+与此同时，拜登总统说，情报部门尚未确定这场疫情是在人类接触受感染的动物之后开始的，还是因为实验室事故，要求官员们将在未来几个月内就他们的结论提交一份最新报告。
 
-> 3/x “…no question that when they had an outbreak of an illness in that lab that they would have done routine blood sampling in that lab. That’s just normal controls in a lab of that quality. So they would have that information.”
-> — Ted Cruz (@tedcruz) [May 31, 2021](https://twitter.com/tedcruz/status/1399207927907508228?ref_src=twsrc%5Etfw)
+（原文完）
 
+相关链接：
 
+【1】[https://gnews.org/zh-hans/1274404/](https://gnews.org/zh-hans/1274404/)
+
+【2】[https://www.foxnews.com/world/uk-intelligence-reassess-covid-lab-leak-theory-now-say-its-feasible](https://www.foxnews.com/world/uk-intelligence-reassess-covid-lab-leak-theory-now-say-its-feasible)
 
 0

@@ -1,44 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】如不立法限制，人工智能将使奥威尔式的《1984》成为现实
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1287293/)
+## 【锐语】中欧协议破裂 红色基因地图和藏宝图会被挖掘出来吗？
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1287419/)
 
-配音：香草山录音组 蒙古鸿雁
+泰勒德登2021 年 5 月 31 日发表文章：习近平强硬外交“适得其反”后，中国争先恐后地挽救欧盟投资协议
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+在一个多星期前，中欧投资协议被欧洲议会暂停，北京的情绪被广泛报道为集体“震惊”，因为在去年 12 月才完成的交易之前进行了长达数年的马拉松式谈判。北京目前正在采取外交攻势以挽救该协议，最近举行了一系列高层会议，旨在维持从波兰到匈牙利、塞尔维亚、法国到爱尔兰的全面投资协议 (CAI) 的有效性。日经新闻说，就像在别处观察到的那样，“中东欧大部分地区对中国的热情已经降温，由于人权问题和投资停滞将幻灭的合作伙伴推向美国，北京感到震惊” （小象评：不是震惊，是惊恐和愤怒，长达数年有七年了。）
 
+上周，中国外交部长王毅认为，达成投资协议具有里程碑意义的七年不应与中国认为的“独立问题”挂钩。 王在周二的一次远程电话会议上对慕尼黑安全会议说： “投资协议不是单方面的青睐；与新疆有关的问题关系到中国的主权与安全。” “欧盟一些人试图将不同性质的问题联系起来并将贸易问题转化为政治问题是不可接受的，而且不会有任何结果，”他补充说。
 
+欧洲是中共的深水利益区，文贵先生指出欧洲协议的冻结，意义重大，在政治层面，它意味着中欧关系的破裂，将中国与海外的关系彻底打回到1989年以前。中共为何要和欧洲进行如此漫长的合作谈判呢？因为中共的利益家族，他们的藏宝图，私生子基因地图，大部分都在欧洲。着说明中欧协议对他们来说是多么的重要。
 
+参考链接：
 
+[https://www.zerohedge.com/economics/china-scrambles-save-eu-investment-deal-after-xis-hardline-diplomacy-backfires](https://www.zerohedge.com/economics/china-scrambles-save-eu-investment-deal-after-xis-hardline-diplomacy-backfires)
 
+图片来源：[https://www.scmp.com/](https://www.scmp.com/)
 
+整理撰稿：蓝精灵
 
-微软总裁布拉德-史密斯在英国BBC《广角镜》节目中警告，随着科技的发展，人工智能技术会变成万能的眼睛。如果政府制定的规章条例，不能保护公众免受人工智能监控的侵扰，那么乔治-奥威尔在他的《1984》一书中描写的乌托邦式的场景将可能在2024年成为现实。
+校对发布：Penny
 
-
-
-**文字版原文：[【热点播报】如不立法限制，人工智能将使奥威尔式的《1984》成为现实](https://gnews.org/zh-hans/1284531/)**
-
-作者：纽约香草山写作组   四季
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

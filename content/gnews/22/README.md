@@ -1,35 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拒绝注射疫苗的人将被抓捕
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1287017/)
+## 今日纽约-新中国联邦战友们首次盛情相聚之地
+` 加拿大多伦多枫叶农场 羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1286979/)
 
-作者：武松Sam
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31195237/2568.png)图片来源：网络
-根据联邦政府相关人员提供的信息表明，拜登政权所推动的注射疫苗共分成五个不同的阶段：
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31201127/qd5-1-edited.jpg)GNEWS记者站 签到处金喜农场战友英姿
 
-第1阶段-自愿（由大的新闻媒体宣传推动，医生们进行鼓吹），这个阶段通过大的新闻媒体进行鼓吹，让那些轻信的人认为注射刺突蛋白生物武器会以某种方式“拯救”他们。
 
-第2阶段-奖励（彩票、免费啤酒、免费甜甜圈等），这个阶段会让那些愚蠢到用生命换取啤酒和甜甜圈的人注射疫苗。可悲的是这样的人有很多，甚至全球主义者也意识到智商这么低的人对人类文明没有任何贡献。
+据来自喜联盟GNEWS记者站新中国联邦周年庆典纽约现场的最新报道，随着各地农场战友们的陆续机场到达迎接，活动现场签到处登记，以及酒店入住手续的妥善安排办理。首次面对面相拥相聚的珍贵机缘，使得现场早已欣喜激动的气氛逐渐变得欢快热烈起来。来宾们的欢声笑语在肩并肩战斗的情谊中诚挚绽放，洋溢无疆！相信此时此刻在庆典现场的战友们，无论如何都难以用有限的言语来表达出新中国联邦刚刚开启的信仰之星河，赐予其所有追随者心底无尽的希望和再次迸发的勇气。以下是本记者站副站长AN战友给大家带来的幸福瞬间：
 
-第 3 阶段-轻微惩罚，在这个阶段他们利用一些公共服务类的公司拒绝人们获得某些便利的服务（例如航空旅行、游轮、餐馆、体育赛事、音乐会等）。这个阶段希望让未接种疫苗人的生活变得极其不方便，我们现在就在这里。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31201342/qd14-edited.jpg)GNEWS记者站 刚刚签到的美女战友团
 
-第 4 阶段-刑事罚款或入狱（政府部门），这一阶段将在虚假的新闻媒体将持续爆发的刺突蛋白暴发并导致死亡的情况归咎于那些不注射疫苗的人。一些司法管辖区将通过法律要求人们持续接种疫苗，任何拒绝遵守的人将被罚款或监禁。
 
-第 5 阶段-军事行动（军事部门），这一阶段将发生在疫苗影子政府与拜登/奥巴马政权合作上演大规模假枪击悲剧，该悲剧可归咎于反疫苗者和枪支拥有者。一旦这一事件发生，拜登和民主党将呼吁将美国军队转向美国人民并在全国范围内没收枪支，并在军队的枪口下强制接种中共病毒疫苗。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31201516/qd13-edited.jpg)GNEWS记者站 签到处的问候
 
-正如一位政府内部人士告知的那样，拜登政权已被命令无论如何都要在美国成年人中实现70%的疫苗接种率。从本质上讲，疫苗大屠杀是早已计划好的。人口减少是这个邪恶计划的预期结果，随后是经济崩溃和美利坚合众国的毁灭，执行这个计划的正是那些操纵2020年美国总统大选并通过政变非法夺取政权的人。推动中共病毒疫苗注射的这五个阶段，揭示了疫苗影子政府将如何假装是“好人”，直到他们出现在你的门口并用步枪抵住你。请记住：没收枪支是他们最重要的一步，因为只有首先解除民众的武装，强制注射疫苗才能成功。
 
-评：中共病毒是在中共最高层直接指挥、参与下，由中共军方、病毒实验室及其他国家邪恶势力一起研发的超限战生物武器，在感染数亿人，数千万人死亡的情况下，又通过疫苗生物武器再次对全世界人类进行掠夺和杀害。新中国联邦早在去年1月份就提醒过全世界，在中共交出原始毒株之前，不可能有有效的疫苗，同时郭文贵先生在今年4月份强调中共最高层有解药。全世界正义的人民只有联合起来推翻中共政权，才有希望拿到解药，才能恢复往日安宁的生活。只要中共及其邪恶势力存在一天，人类都有可能存在被毁灭的危险。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31201644/qd12-edited.jpg)GNEWS记者站 来宾们陆续抵达现场
 
-原文链接：
 
-[https://www.naturalnews.com/2021-05-31-the-five-phases-of-vaccine-compliance.html](https://www.naturalnews.com/2021-05-31-the-five-phases-of-vaccine-compliance.html)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31202900/qd15.jpg)GNEWS记者站 三侠客：文戈七雄，长岛哥，文科
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-编辑/发布：比卡丘
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31203103/qd7-2-edited.jpg)GNEWS记者站 Lina和Ada 母女战友亮相
 
-20210531
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-0
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31203536/qd3-3-edited.jpg)GNEWS记者站 美女们战友们青青，伊莎贝拉，文心，AN之首次相聚
+
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31203835/qd4-2-edited.jpg)GNEWS记者站 机场初来乍到的勇士
+
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31204015/qd1-5.jpg)GNEWS记者站 七哥老妹在登记处迎宾
+
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31204935/qd17-edited.jpg)GNEWS记者站副站长AN采访七哥老妹
+
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31205121/qd18-edited.jpg)GNEWS记者站 老凯西装笔挺接待战友
+
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31205249/qd19-edited.jpg)GNEWS记者站 欢迎小酒窝夫妇
+
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31210028/qd20-edited.jpg)GNEWS记者站 加拿大杨帆农场：森林深处，飞翔的小鸟，喜马拉雅农场2
+
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31210259/qd22-edited.jpg)GNEWS记者站 现场外的纽约天空
+
+
+以上是GNEWS记者站通讯员羟氯喹64编写的现场实况报道。
+
++1
