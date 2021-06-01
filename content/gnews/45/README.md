@@ -1,73 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】以巴冲突：停火了，又没有停火
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1286219/)
+## 中共和纳粹一样开始登记和限制专业工程技术人士出国！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1286620/)
 
-作者：纽约香草山福音部 Jinglechenge
+**摘要：在5月25日的盖特中，郭先生说共产党下一步将会和纳粹希特勒一样限制专业工程技术人士出国。它将通过脸部识别、边控等手段对这些人员进行全面控制。这种限制将持续到中共灭亡。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31172432/Miles_2021-05-25_g1.srt.txt)
+**中共和纳粹一样开始登记和限制专业工程技术人士出国！**
 
-以色列是夹在约旦河与地中海之间的一块狭长地带，总面积21937平方公里，只比新泽西稍微大四分之一，要知道新泽西的大小在美国排名倒数第五。所以，以色列真的是弹丸之地。
+**CCP Is Just Like Hitler – Restricting Professionals from Leaving China**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31141448/%E5%9B%BE%E7%89%8778.png)
+昨天救出来的战友，告诉我很多国内公检法[人员]，现在受的煎熬。而且现在[共产党]对科学家、工程专业人士，正在进行全面的筛选调查。我今天告诉大家一个你们都无法想象的[事实]，希望战友们不要受到伤害。所有的工程师，所有的技术人员，共产党就会特别登记，限制出境。以后什么写代码的工程师啊，懂得工程高端技术的啊，建筑师啊，都不让出国啦。因为你[们]走了都不回来了。以后都要全面限制。全国联网脸部识别，边控控制，你哪儿都别去。从边控到城市控，从这个城市到那个城市都不行，咱不信走着看。
 
-自从1948年建国以来，以色列一次又一次遭受了周围阿拉伯国家的围剿，但都活了下来。不但没有被消失，反而一直受到神的保佑，越来越强，土地越来越大。
+The fellow fighter who was rescued yesterday told me a lot about the torment of the people within the judicial, prosecutorial and law enforcement systems in China. Moreover, [the CCP] is conducting full screening and investigation into China’s scientists and engineering professionals. Today I will share something that none of you could have imagined. I hope that my fellow fighters won’t get harmed. All engineers and technicians will be specifically registered by the CCP, and they will be restricted from leaving China later on. In the future, software engineers, those who understand high-end technology and engineering, and architects will not be allowed to go abroad because if they leave they will never return. In the future, it will be fully restricted. Through the national face recognition network and border control, they cannot go anywhere. From border control to the local control, everything will be under surveillance. You cannot even travel from one city to another. Just wait and see if you don’t believe this.
 
-因川普的亚伯拉罕协议使以色列逐渐与周边阿拉伯国家关系正常化，这让 Hamas 和 Islamic Jihad 恐怖组织很不爽，感受到了被阿拉伯国家出卖、孤立的威胁，知道靠拉仇恨、打恐怖牌行不通了，所以他们借机挑起了冲突，让以色列不但受到无差别的专门针对平民的火箭弹袭击，更是因自卫反击而在世界范围内受到前所未见的舆论攻击(Abraham Accords, the historic set of peace agreements, brokered by the Trump administration between Israel, Bahrain, and the United Arab Emirates)。
+当年的希特勒限制所有的德国的高级知识分子专业人士不能出国，直到希特勒被消灭。现在马上在中共开始。
 
-世界名模 Bella Hadid 用歌 from the river to the sea palestine will be free 企图唱衰以色列，BLM也誓言要抹去(wipe out)以色列，Hamas 和 Islamic Jihad 在世界各地的支持者、潜伏者也决心要把以色列淹死在地中海。以AOC和RT为首的四人帮充当了 Hamas 和 Islamic Jihad 的代言人，公开支持并为其募捐，其他左派及其控制的媒体也一边倒地支持 Hamas 和 Islamic Jihad 恐怖组织。白宫政府甚至在5月21日凌晨2:00停火后又为巴勒斯坦提供了1.12亿美元的加沙重建援助(总数3.6亿美元的一部分)。Hamas 和 Islamic Jihad 用火箭弹攻击以色列，遭反击才导致自己的恐怖基地和情报大楼等被炸，现在居然由美国纳税人出钱重建，重建后再来一波攻击？ 没有比这更荒唐可笑的事了，只能用岂有此理来形容！
+Hitler once restricted all senior German intellectuals and professionals from going abroad until he and his regime were eliminated. The CCP will implement this policy right away.
 
-其实，这种灭犹的事情在历史上又不是第一次发生。当以色列的祖先以撒还幼小时，就受到了阿拉伯人祖先以实玛利的逼迫(创世记21章)，几百年后在埃及几乎也遭没顶之灾，所有男婴一出生就被法老吩咐淹死：“以色列人所生的男孩，你们都要丢在河里；一切的女孩，你们要存留她的性命。” (出埃及记1:22 )
+烧了你还不算，在你没死之前，你得好好的当奴隶。这就是共产党。跟着共产党，走进火葬场，咱不信走走看！
 
-后来的亚述王、巴比伦王在撒玛利亚、耶路撒冷相继屠城，将人掳走(列王记、历代志)，又有亚甲族人哈曼要将掳去的犹太人通通消灭(以斯帖记)。
+In addition to cremate you without any dignity, you have to act as a useful slave before you die. This is the CCP. Following the CCP is like walking straight into the crematorium. Let’s just wait and see!
 
-公元70年，提多将军率领罗马大军再次围困耶路撒冷达4个月25天之久，拆除城墙，拆毁圣殿，只剩下被称为西墙的部分墙基。当时正值犹太人的三大节日之一，城内粮食很快消耗殆尽，甚至出现了人食人的惨剧。大约有110万人丧生，97000犹太人被虏，很多被卖到埃及为奴。后来的半个多世纪耶路撒冷无人居住，直到罗马皇帝哈德良重建耶路撒冷城。但作为惩罚措施，他不准犹太人进入耶路撒冷，禁止犹太人在耶路撒冷居住。犹太人被彻底赶出了这一地区，从此流浪各地，其间经历了希特勒的大屠杀，直到1948年以色列国成立为止。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60ada88d744cbc43136453a6](https://gtv.org/getter/60ada88d744cbc43136453a6) (8:29-end)
+鸣谢：
+[1] 感谢Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1272820/](https://gnews.org/zh-hans/1272820/)
+[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于 [https://gnews.org/1274259/](https://gnews.org/1274259/)
 
-停火后，恐怖头子 Ismail Haniyeh 终于从藏身处出来高呼胜利，成功阻止了以色列与周边阿拉伯国家建立和平关系的尝试，成功强迫了周边阿拉伯国家与自己的恐怖站在一起，并感谢自己的金主伊朗和叙利亚，感谢各国政要为自己站台，感谢世界各地上街袭击犹太人的极端份子。真的是丧心病狂！“感谢”这么美好的字眼从他嘴里说出来简直是亵渎。
+* * *
 
-像CCP一样，所有这些撒旦意识形态，都得为自己树立一个敌人，找一个对象来恨，为自己的失败找一个替罪羔羊，要不然就活不下去。
+**整理校对 & 新闻撰写：【guocamole(文金欠)（纽约香草山农场）】
+字幕：【JennyL（纽约香草山农场）】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%25E7%258E%25AB%25E7%2591%25B0%25E5%259B%25AD%25E5%25B0%258F%25E9%2598%259F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-面对绑架杀害自己同胞的邪恶敌人，以色列做了什么呢？袭击中以色列 Tel Aviv’s Ichilov 医院的医生正在为这位恐怖头子的姪女做骨髓移植手术治疗她的癌症！这也不是第一次了。早在2014年，同一家医院就治疗过这位恐怖头子的女儿；2014年6月，耶路撒冷的Augusta Victoria医院治疗过这位恐怖头子的老岳母；一年前，以色列才治疗过这位恐怖头子一岁孙女的感染。这是典型的以怨报德，忘恩负义。
-
-现在，热战虽然停止了，但媒体战、外交战却开始了。
-
-他们能得逞吗？我们来看圣经是怎么说的。
-
-只是越发苦害以色列人，以色列人越发多起来，越发蔓延，埃及人就因以色列人愁烦(出埃及记1:12)。
-
-所以，这些攻击以色列的人，他们的愁苦必加增，以色列却会更加多起来，地土加增，人口加增。
-
-虽然有左派为他们吹号，但正义的力量也在凝聚。主管外交关系委员会的两位参议员Ted Cruz 和 Bill Hagerty，昨天(5/30/2021) 到达了以色列，将到被轰炸得最严重的南部视察，看看如何帮助以色列增强其防御系统，并告诉以色列老百姓，美国的保守力量是他们的坚强后盾，因为以色列是正邪大战的前沿。
-
-参考：
-
-1.https://www.dailymail.co.uk/news/article-9586515/State-Israel-condemns-Bella-Hadid-advocating-throwing-Jews-sea.html
-
-2.https://thenationalpulse.com/breaking/blm-founder-calls-for-end-of-israel/
-
-3.https://www.breitbart.com/middle-east/2021/05/27/hamas-chief-haniyehs-niece-treated-for-cancer-in-israeli-hospital/
-
-4.https://www.theguardian.com/world/2020/sep/22/we-feel-betrayed-palestinians-fear-cost-of-arab-states-deals-with-israel
-
-5.https://freebeacon.com/national-security/cruz-and-hagerty-land-in-israel-to-assess-damage-from-hamas-war/
-
-6.https://pandemic.warroom.org，EP 965, EP975
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/17193555/5_May-1-556x720-1.jpeg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0
