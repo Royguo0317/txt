@@ -1,24 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】爆炸性研究证明中国科学家不但创造了新冠病毒 还做逆向工程掩饰来源
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1287464/)
+## 【锐语】关注时间点 重新观看陈薇将军给小朋友介绍疫苗知识
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1287535/)
 
-英国教授安格斯·达格利什 (Angus Dalgleish) 和挪威科学家比尔格·索伦森 (Birger Sørensen) 博士在纽约时报写道，他们已经掌握了“中国进行逆向工程”的主要证据。
+下面的链接是2020年9月1日的视频，2019年1月份武汉新冠疫情大爆发，视频中陈微说：Covid-19疫苗在2020年2月26日开始下线。原话是这样说的“我们研究的重组新冠疫苗，在2月26号，我们的第一批疫苗在生产线上下线了，也就是我们有了正式的这个疫苗。那一天正好是我的生日”
 
-一项重磅炸弹的新研究声称有证据表明中共国的科学家在实验室中创造了COVID-19，然后试图对该病毒的版本进行逆向工程，使其看起来像是从蝙蝠自然进化而来的。英国教授 Angus Dalgleish 和挪威科学家 Birger Sørensen 博士说自去年以来，他们已经有了“在中国进行逆向工程”的主要证据，但被学术界和主要医学期刊忽视了。他们将很快发布这篇报告。
+陈薇将军在武汉爆发疫情之后，第一时间带领了生化部队奔赴武汉病毒研究所，不是华南海鲜市场，不是金银谭医院，是不是还去了武汉大学那个虐待猴子的动物实验室，这个就不知道了。小象听过文贵先生在一次直播中谈到武汉病毒研究所的内部结构，地面建筑是标准的实验室建筑，地下还有好几层工字形建筑，地下属于军队方面掌管的实验室，谁都不知道里面再干什么。塞林博士和安娜女士，闫丽梦博士最近指出了人物王长军团队来自武汉，王长军是陈薇团队的重要人物。
 
-Dalgleish 是一位伦敦肿瘤学教授，以在 HIV 疫苗方面的突破性工作而闻名。Sørensen 是病毒学家，也是 Immunor 制药公司的主席，该公司开发了一种名为 Biovacc-19 的冠状病毒候选疫苗。Dalgleish 还持有该公司的财务股份。
+疫苗的研发需要时间，历史上从来就没有一个在疫情爆发后，一年两年就研制出来的疫苗，而陈薇将军仅仅距离武汉初始爆发两个月后就生产出来了！
 
-他们说，在他们的COVID-19疫苗研究期间，他们俩碰到了“独特的指纹”，表明该病毒不是自然产生的。线索是在携带 COVID 的病毒中罕见地发现一排四个氨基酸，这些氨基酸释放出正电荷并与阴性人体细胞结合。“物理定律意味着你不能连续有四个带正电荷的氨基酸，”达格利什告诉《每日邮报》。“获得它的唯一方法是人工制造它。”他们还跟踪了已发表的中国研究，其中一些研究是与美国大学合作完成的，展示制造病毒的工具是如何制造的。审查工作的很大一部分涉及“功能获得”研究，其中涉及在实验室中操纵天然病毒以使其更具传染性，从而使科学家能够研究它们对人类的潜在影响。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31224645/283.jpg)
 
-不断有科学界的人物出来，从多个角度，多方面，证实了病毒的实验室起源论，早在疫情开始爆发的时候，很多科学家就已经发现不对头，但是他们的观点和言论受到科技媒体的限制和打压，也被科学界与中共同谋的高层所威胁。经过一年多的我们英雄科学家的呼吁，和许多新联帮线下的无名战友的争取，病毒溯源的事情才进展到了今天这个程度。会不断有新的科学证据出来，来印证，这就是中共在实验室制造的病毒，这次疫情爆发不是实验室泄露，就是中共对全世界全人类发起的超限生物战争。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31225425/284.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31225528/285.jpg)
+
+关于病毒溯源，小象听文贵先生在5月30日的直播节目中是这么说的，可以解释一下为何疫苗在如此短的时间内就出来了：
+
+“欧洲议会请了一位来自中国的科学家讲讲到底发生了什么？这位将军向他们展示了手里的视频和文件。中共有计划在香港，武汉放毒。第一次在广州试过，没成功。后来主要目标就是军运会。军运会没成功，最后是在海鲜市场放的。为的就是停止香港街头运动，干掉川普大选，毁掉世界经济，让世界经济转向中共。”最后，中共成功了。小象想起在2018年底11.12月份的时候，广州的朋友确实说起过一件事情，就是在广州的所有的学校突然爆发了流感，有学校班级有一半的同学感冒发烧，但是查了很多资料没有找到，有兴趣的读者和听众可以去搜集一下资料，在评论区留言和解读一下，是否和文贵先生说的广州放毒未遂有关联。
 
 参考链接：
 
-[https://www.foxnews.com/world/explosive-study-claims-to-prove-chinese-scientists-created-covid](https://www.foxnews.com/world/explosive-study-claims-to-prove-chinese-scientists-created-covid)
 
-图片新闻：[https://www.foxnews.com/](https://www.foxnews.com/)
+
+> 【[#病毒真相](https://twitter.com/hashtag/%E7%97%85%E6%AF%92%E7%9C%9F%E7%9B%B8?src=hash&amp;ref_src=twsrc%5Etfw)】陈薇少将是 [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) 流行病学和病毒学专家，专门研究生物防御。在2020年9月1日的这段视频中，她告诉公众：“Covid-19重组蛋白疫苗在2020年2月26日开始下线！”
+> 武汉疫情爆发1月下旬封城，仅一个月后中共军方推出疫苗。这表明 [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) 早就掌握了新冠病毒！[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/B9AEWpbNe5](https://t.co/B9AEWpbNe5)
+> — 加拿大多伦多枫叶农场 (@TorontoFarmCN) [May 31, 2021](https://twitter.com/TorontoFarmCN/status/1399483923583938571?ref_src=twsrc%5Etfw)
+
+
+
+图片来源：[https://udn.com/](https://udn.com/)
 
 整理撰稿：蓝精灵
 
