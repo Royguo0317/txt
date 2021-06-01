@@ -1,68 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇终于承认新冠病毒可能来自武汉实验室
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1287900/)
+## 澳门警方以颠覆、诽谤和疫情为由禁止六·四纪念活动
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1287999/)
 
-新闻来源：Zerohedge零对冲| 作者：TYLER DURDEN 泰勒·德顿| 发布时间： 2021年5月24日
+新闻来源：《香港自由新闻》Hongkong Free Press| 作者：SELINA CHENG| 发布时间：2021年5月26日
 
-翻译/简评：clau| PR校对：村民彼得潘 |审核：Beicy-数学老师 | Page：小六月
+翻译/简评：文明明|校对：clau|审核：Beicy-数学老师|Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/DMdyOWCrUg4hs/images/bb5ca8df-3c7d-499f-90d5-e434e1d4f724.jpg?asset_id=dbd03332-7e9d-46c7-8348-36011b1a154a&amp;img_etag=%223130c1669f2f39dc48a0cf66c327bdab%22&amp;size=1024)](https://spark.adobe.com/page/DMdyOWCrUg4hs/images/bb5ca8df-3c7d-499f-90d5-e434e1d4f724.jpg?asset_id=dbd03332-7e9d-46c7-8348-36011b1a154a&amp;img_etag=%223130c1669f2f39dc48a0cf66c327bdab%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/5UN0jGwyZNDza/images/0e39039d-39d8-4e14-a069-be2f49637ec6.jpg?asset_id=53221760-d7e1-4181-b72a-03869f7707ea&amp;img_etag=%223209c82a4d3964da863569c46a1f01fa%22&amp;size=1024)](https://spark.adobe.com/page/5UN0jGwyZNDza/images/0e39039d-39d8-4e14-a069-be2f49637ec6.jpg?asset_id=53221760-d7e1-4181-b72a-03869f7707ea&amp;img_etag=%223209c82a4d3964da863569c46a1f01fa%22&amp;size=1024)
 
 **简评：**
 
-在国会接受公开听证的几个小时后，安东尼·福奇博士推翻了自己在过去一年来相信的“新冠病毒是自然进化而来”的观点，开始接受“新冠病毒实验室起源理论”，并公开表示应该继续调查新冠病毒起源的真相。
+“六四”在即，澳门警方发出“六四”守夜活动集会限令。澳门警方去年以防疫为由禁止举行“六四”纪念活动，而今年首度以举行“六四”纪念活动是违法行为为由，而不批准集会。
 
-福奇“跳船”并开始“撇清”关系了。截至目前，福奇已经接受了两次参议院的公开听证会，均否认了他及他领导下的美国国立卫生研究院(NIH)和美国国家过敏和传染病研究所(NIAID)了解和支持任何形式的针对蝙蝠病毒的功能增强性研究。紧跟爆料革命的战友们都知道根据郭文贵先生的情报，福奇的这一转变和有了解中共功能增强性实验的科学家即将站出来发声有关。
+警方的文件说，澳门往年“六四”集会摄影展的图片和标语，诸如“结束一党统治“或“停止政治迫害”等，违反了《刑法典》，可构成煽动颠覆现有制度、损害公众对当局的信心，并构成诽谤罪。
 
-作为研究资金传递的中间人、生态健康联盟的主席达萨克，是否也会接受调查和质询呢？面对福奇的“甩锅”，他又会如何应对呢？也还是会一问三不知吗？如果福奇公开说出来的话，最后和关键科学家提供的证据对不上怎么办呢？网越收越紧了。持续关注以毒灭共事态的进展，关注Gnews、GTV和Getome！
+澳门民主发展联盟主席区锦新表示，他们自1990年起每年都举行“六四”守夜集会，而澳门现行《刑法典》制订于1995年，无论《刑法典》订立前后，“六四”纪念活动从来不存在违反相关法律的问题，每年的集会都是和平、理性、守法进行的。
+
+32年前的“六四”，中共派出坦克和全副武装的军队在天安门广场进行清场和大屠杀，结束了这场由学生倡导的、长达几个月的和平示威活动。数以万计的无辜学生和平民遇难。30多年来，香港、澳门的市民们自发地在这一天举行烛光守夜活动，祭逝者英灵，督生者铭记。在当前国际上的病毒溯源追责、国内金融濒临崩盘、党内高层明争暗斗、老百姓生活不堪负重的多重压力下，中共在“六四”这个敏感的日子，更是心虚害怕，生怕会发生什么不可控的事情。所以才会对纪念活动如临大敌，草木皆兵。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/5UN0jGwyZNDza/images/c9aef0cb-34ec-4ddf-a2fa-1bfaa0533908.jpg?asset_id=3b7f5d62-8d6c-41db-a58e-169c5de5ac6b&amp;img_etag=%2242beaa6d0a8fb90b8bcfbc0b6d959cf6%22&amp;size=2560)](https://spark.adobe.com/page/5UN0jGwyZNDza/images/c9aef0cb-34ec-4ddf-a2fa-1bfaa0533908.jpg?asset_id=3b7f5d62-8d6c-41db-a58e-169c5de5ac6b&amp;img_etag=%2242beaa6d0a8fb90b8bcfbc0b6d959cf6%22&amp;size=1024)
 
 **原文翻译：**
 
-## **福奇终于承认新冠病毒可能来自武汉实验室，“不相信”自然进化理论**
+## **澳门警方以颠覆、诽谤和新冠疫情为由再次禁止天安门屠杀守夜活动**
 
-本月早些时候，就在参议员兰德·保罗（共和党——肯塔基州）就大流行病的错误信息——以及安东尼·福奇的美国国立卫生研究院资助武汉病毒研究所有风险的合作这一事实——对福奇进行抨击后几小时后，这位美国顶级病毒学家（也是收入最高的政府雇员）在大流行病的起源问题上愤怒地反驳，我们只能认为这是为了将注意力从他自己的罪责上转移开。
+**澳门的一位民主派立法委员说：“30年来，这种纪念活动一直是合法的，他们现在突然说这是非法的。”**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/DMdyOWCrUg4hs/images/f12ffca5-b1e6-499e-bb67-94ad80d72938.png?asset_id=58189967-ba86-4bfe-9cd6-181fed2ac71b&amp;img_etag=%224ce1a3719ac78d6dfacf03ef55390b69%22&amp;size=2560)](https://spark.adobe.com/page/DMdyOWCrUg4hs/images/f12ffca5-b1e6-499e-bb67-94ad80d72938.png?asset_id=58189967-ba86-4bfe-9cd6-181fed2ac71b&amp;img_etag=%224ce1a3719ac78d6dfacf03ef55390b69%22&amp;size=1024)
+这是澳门当局第二次禁止该市一年一度的天安门大屠杀守夜活动，理由是该活动的目的和口号会涉及违反当地一系列的刑事法律，包括煽动、颠覆和诽谤等。
 
-回顾一下，从新冠病毒爆发之初，福奇鹦鹉学舌般重复中共的论点——坚持认为该病毒可能来自中共国的实验室。
+该活动的组织者澳门民主发展联盟表示，会就警方的决定向法院提出上诉。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/DMdyOWCrUg4hs/images/592efbe7-119c-400c-8931-4dcd0207ea29.png?asset_id=713af2f2-d417-41a7-b62f-ddbd44ed878d&amp;img_etag=%2216435cf5e676cc875a415cefa2e36e63%22&amp;size=2560)](https://spark.adobe.com/page/DMdyOWCrUg4hs/images/592efbe7-119c-400c-8931-4dcd0207ea29.png?asset_id=713af2f2-d417-41a7-b62f-ddbd44ed878d&amp;img_etag=%2216435cf5e676cc875a415cefa2e36e63%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/5UN0jGwyZNDza/images/ad7d2193-8d17-426f-9a8f-cd0350a8a2d1.jpg?asset_id=0d613264-e726-48f5-8418-a920e263b785&amp;img_etag=%22a8d5335b20f75118995854b603ceb933%22&amp;size=1024)](https://spark.adobe.com/page/5UN0jGwyZNDza/images/ad7d2193-8d17-426f-9a8f-cd0350a8a2d1.jpg?asset_id=0d613264-e726-48f5-8418-a920e263b785&amp;img_etag=%22a8d5335b20f75118995854b603ceb933%22&amp;size=1024)2020年6月4日，澳门警方驱散了留在议事亭的人群，每年的天安门守夜活动都在这里举行。档案照片：陈世美（Chan Sai-mei）、蔡志超（Choi Chi-chio）/联合社会报
 
-[!\[\]()!\[\](https://spark.adobe.com/page/DMdyOWCrUg4hs/images/6dd5be5e-979a-4c13-8724-a70618859165.png?asset_id=ba22b4c5-9747-43b3-9cea-421530b12640&amp;img_etag=%229e58e808dca897f8fbcf2034bec78d51%22&amp;size=2560)](https://spark.adobe.com/page/DMdyOWCrUg4hs/images/6dd5be5e-979a-4c13-8724-a70618859165.png?asset_id=ba22b4c5-9747-43b3-9cea-421530b12640&amp;img_etag=%229e58e808dca897f8fbcf2034bec78d51%22&amp;size=1024)
+周三，澳门民选立法会议员吴国昌（Antonio Ng）和区锦新（Au Kam-san）在他们脸书主页上公布了警方的禁令。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/DMdyOWCrUg4hs/images/b1ecbd78-9be5-4d46-b28f-51666b2c4ea4.png?asset_id=bab2c783-a068-4993-acbd-b25b2b44114b&amp;img_etag=%22a96c3e8cb55de68c6315b2f8b9883a5f%22&amp;size=1024)](https://spark.adobe.com/page/DMdyOWCrUg4hs/images/b1ecbd78-9be5-4d46-b28f-51666b2c4ea4.png?asset_id=bab2c783-a068-4993-acbd-b25b2b44114b&amp;img_etag=%22a96c3e8cb55de68c6315b2f8b9883a5f%22&amp;size=1024)
+在一份12页的警方文件中显示，摄影展曾用的标语——每年作为澳门六四守夜活动的同步活动——预示今年的守夜活动将被认为触犯刑法。
 
-然而，在被兰德·保罗拷问的数小时后——福奇在下午波因特(Poynter)的“美国的联合事实：事实核查节日”活动中突然改变了自己的观点，据福克斯新闻报道。
+文件说，“结束一党统治“或“停止政治迫害”等口号将构成煽动颠覆现有制度、损害公众对当局的信心，并构成诽谤罪。同时，来参加活动的人群也会对该市的新冠疫情造成风险。
 
-当《政治事实》（Politifact）的凯蒂-桑德斯(Katie Sanders)问他是否仍然相信新冠病毒是自然进化来的，福奇回答说：“不相信。我对此并不确信，我认为我们应该继续调查在中共国发生的事情，直到我们继续尽最大努力了解发生的事情。”
+[!\[\]()!\[\](https://spark.adobe.com/page/5UN0jGwyZNDza/images/31399090-94c7-4259-99db-3f79fc95d9e5.jpg?asset_id=66c4cdac-2b49-416b-bcb0-33daa092b347&amp;img_etag=%22f2d67cd7afe4a90c3998ecf393b296d9%22&amp;size=1024)](https://spark.adobe.com/page/5UN0jGwyZNDza/images/31399090-94c7-4259-99db-3f79fc95d9e5.jpg?asset_id=66c4cdac-2b49-416b-bcb0-33daa092b347&amp;img_etag=%22f2d67cd7afe4a90c3998ecf393b296d9%22&amp;size=1024)2009年6月4日澳门的守夜活动。照片：Vincent Chan/维基百科
 
-“当然，调查它的人说它很可能是从一个动物群体中出现的，然后感染了个人，但它也可能是别的东西，我们需要找出这一点。所以，这就是为什么我说我完全赞成任何调查，以研究病毒的起源。”他紧张的补充道。
+发生在1989年6月4日的天安门大屠杀结束了在当时的中国由学生领导的、长达几个月的示威活动。据估计，当解放军被派往北京镇压抗议者时，有数百人，也许数千人被杀害。
 
-请看下面的内容——注意福奇是如何对保罗提起美国国立卫生研究院的资助而感到不安的——同时用没有人提出的错误论点来误导，他资助的非政府组织生态健康联盟参与了新冠病毒的创造。
+一直以来，香港和澳门的居民都有举行大规模的守夜活动来纪念天安门事件的受害者的传统，但当局自2019年以来禁止了这些活动，理由是在新冠病毒大流行期间要保持社交距离。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/DMdyOWCrUg4hs/images/5c17a06f-bf56-4f4b-9ef5-ba412ec80469.png?asset_id=6dbcb99f-8376-423c-844b-34c3dbeb1f4d&amp;img_etag=%22921d4278fd2c81ee90f9e9879a07e62c%22&amp;size=1024)](https://spark.adobe.com/page/DMdyOWCrUg4hs/images/5c17a06f-bf56-4f4b-9ef5-ba412ec80469.png?asset_id=6dbcb99f-8376-423c-844b-34c3dbeb1f4d&amp;img_etag=%22921d4278fd2c81ee90f9e9879a07e62c%22&amp;size=1024)
+**上诉法院**
 
-正如我们在3月指出的，福奇的美国国立卫生研究院资助了一些牵涉到武汉病毒研究所科学家的项目，包括武汉实验室对蝙蝠冠状病毒的大部分工作。据《每日电讯报》报道，2017年，福奇的机构在没有政府监督机构批准的情况下恢复了对一项有争议的拨款的资助。
+自大流行开始一年多以来，澳门本地并没有任何新冠病例的纪录。
 
-相关背景为，2014年奥巴马政府暂停了对蝙蝠冠状病毒功能增强性研究的联邦资助。在这一决定的四个月前，福奇的美国国立卫生研究院通过向彼得·达萨克领导的非营利组织生态健康联盟拨款，有效地将这项研究转移到了武汉病毒研究所（WIV）。
+澳门民主发展联盟主席告诉《香港自由新闻》的记者：“警方引用了1995年就制定的法律，但是这些法律30年来并没有改变过。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/DMdyOWCrUg4hs/images/8d9d0ff6-37c4-497e-aa69-401423c477ec.png?asset_id=39da831c-d59c-4274-b8a5-68e796285c56&amp;img_etag=%221b60758e461774b3251db17833782364%22&amp;size=2560)](https://spark.adobe.com/page/DMdyOWCrUg4hs/images/8d9d0ff6-37c4-497e-aa69-401423c477ec.png?asset_id=39da831c-d59c-4274-b8a5-68e796285c56&amp;img_etag=%221b60758e461774b3251db17833782364%22&amp;size=1024)生态健康联盟主席彼得·达萨克
+他说：“30年来，这从来都是合法的，现在，他们突然说这是非法的。”该联盟将就警方的决定向终审法院提出上诉。
 
-2014年6月，美国国立卫生研究院在“了解蝙蝠冠状病毒出现的风险”项目下，支付了生态健康联盟370万美元赠款中的第一笔666,442美元，并在2019年5月之前每年支付类似款项。
+[!\[\]()!\[\](https://spark.adobe.com/page/5UN0jGwyZNDza/images/46814861-f161-407e-890e-505cf33e4d0a.jpg?asset_id=eaba7793-a93d-4f31-b7fb-023fb79e3c37&amp;img_etag=%22fc883ae409d05b6c0a8b31e505d807bf%22&amp;size=1024)](https://spark.adobe.com/page/5UN0jGwyZNDza/images/46814861-f161-407e-890e-505cf33e4d0a.jpg?asset_id=eaba7793-a93d-4f31-b7fb-023fb79e3c37&amp;img_etag=%22fc883ae409d05b6c0a8b31e505d807bf%22&amp;size=1024)2020年，香港. 照片：Sam Lee/联合社会报
 
-值得注意的是，据《华盛顿邮报》的乔希·罗金（Josh Rogin）报道，多年来，在“蝙蝠女”石正丽博士的领导下，武汉病毒研究所“公开参与了与美国大学和机构合作进行的功能增强性研究”。
+他说：“我不知道法院是否会做出公平的裁决，如果这是一个有关政治的问题，法院可能无法公平处理。”
 
-而现在，资助生态健康联盟的福奇突然把手举起来，在整个事件中装作无辜。
+今年的活动将转移到联盟私下的室内会址，组织者预计参加活动的人数将少于10人，而如果在户外举行守夜活动的话，则可以有约300人参加。
+
+[🔗原文链接](https://hongkongfp.com/2021/05/26/macau-police-ban-tiananmen-massacre-vigil-again-citing-subversion-defamation-and-covid-19-concerns/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/DMdyOWCrUg4hs/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/DMdyOWCrUg4hs/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/5UN0jGwyZNDza/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/5UN0jGwyZNDza/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 +1

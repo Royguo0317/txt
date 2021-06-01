@@ -1,26 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 推特拒绝回复是否会继续审查冠状病毒实验室起源论的言论
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1287687/)
+## 美国政府取消小米作为中共军事公司的称号
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1287768/)
 
-翻译：康州盘古农场 – 格格巫
-校对：康州盘古农场 – TrueSky
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – Mike Li
 编辑：康州盘古农场 – 明子
 
-据《dailymail.co.u》作者：MARTIN ROBINSON、JAMES TAPSFIELD和RORY TINGLE 为 MAILONLINE，2021 年 5 月 28 日报道：
+据《雅虎》作者：Rita Liao，2021年5月25日报道：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31235427/2021-6-4-001-2.png)
+落入川普政府视线的小米是中共国高调的科技公司之一，已经从美国政府指定其为中共军工企业的黑名单上删除。
 
-Twitter拒绝说明它是否会审查冠状病毒实验室泄漏理论或认为它“具有误导性”-因为Facebook和左倾媒体在美国调查后掉头。Facebook被指控通过禁止讨论理论来扼杀言论自由，但在乔拜登说要进一步调查之后决定停止这样做 。Twitter 不会说它是否会删除或标记用户对辩论的提及。
+5月25日提交的一份文件显示，美国哥伦比亚特区地方法院已经撤销了国防部于1月份将小米指定为中共国军事公司的决定。
 
-在社交媒体巨头 Facebook 在一波政治压力后取消了禁令之后，推特今天拒绝透露它是否会审查冠状病毒实验室泄漏理论或认为它“具有误导性”。在乔·拜登 (Joe Biden)下令中央情报局调查该病毒是否来自武汉实验室之后，Facebook被指控“表现出其真实和丑陋的色彩”并扼杀了言论自由。Facebook在周三才改变了政策。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31232640/2021-6-1-001-1.jpg)
-MailOnline 昨晚联系了 Twitter，询问它是否允许就这一假设进行辩论，该假设在美国调查宣布之前已被 Facebook 和左倾媒体视为阴谋论。一位发言人回应称，该网络的政策，是将对构成“重大伤害风险”的“虚假或误导性”声明采取行动。当被具体问及是否认为武汉实验室的理论是“虚假或误导”时，发言人没有给出是或否的回答，而是重复了一般政策。推特还在官方指南中表示，它将对那些传播流行病受到“恶意或强大力量”影响的账户采取行动。它没有澄清它是否相信 Covid-19 是人造病毒的理论属于这一类。
+2月，小米就其被列入中共国军事黑名单一事起诉了美国政府。3月，华盛顿特区法院颁布了小米关于国防部指定的初步禁令，该禁令将禁止小米公司在美国的所有商业活动。
 
-今天主要专家表示，联合国的调查是查明新冠病毒是否来自武汉实验室的唯一途径。剑桥大学的一位学者和排名第 10 的顾问表示，该理论尚未得到“充分探索”，而一位受人尊敬的哈佛大学流行病学家表示，病毒从安全设施中逃脱的说法不再是“非主流的边缘说法”。
+判决称，该决定是“武断和任性的”，禁止任何人购买或持有小米的证券。该裁决是为了防止对这家中共国手机制造商造成“不可弥补的伤害”。
 
-原文链接：
+小米对脱离黑名单有这样的说法。
 
-[https://www.dailymail.co.uk/news/article-9629057/Twitter-REFUSES-say-censor-Coronavirus-lab-leak-theory.html](https://www.dailymail.co.uk/news/article-9629057/Twitter-REFUSES-say-censor-Coronavirus-lab-leak-theory.html)
+公司感谢其全球用户、合作伙伴、员工和股东的信任和支持。本公司重申，它是一个公开、透明、公开交易、独立经营和管理的公司。公司将继续为用户提供可靠的消费类电子产品和服务，并坚持不懈地以诚实的价格打造令人惊叹的产品，让世界上每个人都能通过创新技术享受更美好的生活。
+
+小米的国内竞争对手华为仍在为被列入美国贸易黑名单而挣扎，该名单禁止其获得美国的关键技术，并使其在全球的智能手机销售陷入瘫痪。
+
+原文链接：[https://www.zerohedge.com/covid-19/uk-government-says-who-needs-explore-all-possible-theories-covid-origins](https://www.zerohedge.com/covid-19/uk-government-says-who-needs-explore-all-possible-theories-covid-origins)
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
 康州盘古农场欢迎您加入:(或点击上方图片）
 

@@ -1,22 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】波兰周二审理与华为有关的中国间谍案
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1287835/)
+## 【锐语】美国金融当局正计划对 1.5 万亿美元的加密货币市场进行监管
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1287972/)
 
-涉及一名前波兰特勤局特工和华为一名前雇员的间谍案周二(6月1日)在华沙一家法院开庭。与此同时，一些欧洲国家正在考虑是否将这家中国电信巨头的设备排除在它们的5G电信网络之外。波兰于2019年1月逮捕了这两名男子，理由是他们涉嫌为中国从事间谍活动。波兰检方指称，39岁的王伟晶以华为高管的身份为掩护，在七年多的时间里为中国从事间谍活动，试图增强华为影响波兰政府的能力，并“使其能够（参与）管理国家（并建立）技术基础设施，”法庭文件显示。
+什洛帕布2021年6月1日在republic今天发表关于加密货币的文章：
 
-自被捕后一直被拘留的王伟晶还被控招募一名前波兰特工皮奥特·D(Piotr D.)。检察官说，这名特工告知了他影响波兰救援和公共安全服务电台网络的方式。波兰被告皮奥特·D在政府高层工作多年，并且被控“主动提出自己愿意成为关公共行政管理方面的信息来源。
+由于缺乏监督的担忧日益加剧，美国金融当局正计划对 1.5 万亿美元的加密货币市场进行监管。早些在川普政府时代，鼓励个人在金融系统内使用加密货币。然而，随着拜登政府对在美国使用加密货币采取不同的方法，现在预计这种情况会发生变化。
 
-两人都否认有任何不当行为。检察官说，这名根据隐私规则要求不透露姓氏的网络安全专家告知了王伟晶一个监控系统，这个监控体系是为了防止入侵者接触到通过华沙军事大学创建的光纤通信网络发送的机密信息。
+美国计划监管加密市场。
 
-华为在王被捕后将其解雇，但帮助支付了他的法律费用。华为上个月在一份声明中告诉路透社，华为的活动“符合透明度的最高标准，并遵守法律法规。”波兰总理马特乌什·莫拉维茨基(Mateusz Morawiecki)领导的政府去年提出了一项立法草案，该草案可能导致华为实际上被排除在5G网络建设之外，但这项提案尚未在议会进行讨论。华为表示，将其排除在5G之外意味着波兰经济将遭受近120亿美元的损失，而且5G的推出也将被推迟几年的时间。华为对瑞典禁止使用其5G网络设备的禁令提出了法律挑战，正在等待当地法院的判决。今年4月，罗马尼亚政府也批准了一项法案，实际上禁止中国和华为参与该国5G网络的建设
+此举是在任命 Michael Hsu 之后做出的，他于 5 月初被任命为美国代理货币审计长。Hsu表示他希望美国官员共同努力，确保为庞大的加密货币市场设定监管范围。引用 2008 年的金融危机，他表示，随着金融科技创造新的支付处理工具，新的支付技术产生了一个不受监管的影子银行系统。
 
-华为作为中共在海外的军事力量的直接参与者，现在被躲过围追堵截，已经要去养猪了，芯片短缺，和自己研发能力受限，它的困境会越来越艰难。
+印度储备银行对印度加密货币的看法。
+
+与此同时，就印度而言，印度储备银行周一澄清说，银行不能阻止人们投资加密货币。印度储备银行发布澄清声明，表示其2018 年通函不再有效。这是在多家私人和公共银行向客户发送反对虚拟货币交易的信件之后发生的。这些银行引用了印度储备银行 2018 年的通知，警告客户不要投资加密货币市场。
+
+这里的加密货币是指不受政府监管的比特币，货币等虚拟货币，任何不和实体货币挂钩的虚拟货币都将被各国政府拒绝，监管或者取缔。文贵先生曾在直播中告诉过大家，原来一个自由的比特币，被中共控制了大部分，变成了一个由一个流氓集团控制的货币，从而进行一系列的非法的金融活动，变成了一个上下币震收割全世界财富的工具。
 
 参考链接：
 
-[https://www.voachinese.com/a/poland-trial-huawei-china-espionage-case-20210531/5911891.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/poland-trial-huawei-china-espionage-case-20210531/5911891.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+[https://www.republicworld.com/world-news/us-news/us-financial-authorities-to-crackdown-on-regulate-1-dollars-5-cents-trillion-cryptocurrency-market.html](https://www.republicworld.com/world-news/us-news/us-financial-authorities-to-crackdown-on-regulate-1-dollars-5-cents-trillion-cryptocurrency-market.html)
+
+图片来源：[https://www.republicworld.com/](https://www.republicworld.com/world-news/us-news/us-financial-authorities-to-crackdown-on-regulate-1-dollars-5-cents-trillion-cryptocurrency-market.html)
 
 整理撰稿：蓝精灵
 
