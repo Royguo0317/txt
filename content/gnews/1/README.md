@@ -1,38 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议员泰德·克鲁兹：武汉实验室泄漏事件需要的关键证据
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1287087/)
+## 【小象评奇文】高福说：新冠疫情已越来越流感化，我们今后可能每年都需要打疫苗
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1287157/)
 
-参议员泰德·克鲁兹： 武汉实验室泄漏事件需要的关键证据：“（[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)）应该已从该实验室的工作人员那里获取了血液样本。” “这就是他们没有公开的证据。” “如果，事实上，血液样本显示…实验室里的人感染了这种病毒”
+小象知道这句话是目前国内所有的医界人士的认知，这个认知已经铺垫了三年了，从武汉发生疫情开始，几乎医务界就在内部逐步统一了这个认知，最开始是不用担心和惊恐，和流感一样，然后是以后和人类并存，高感染率，低死亡率。在铺垫了三年后， 终于高福代表科学出来给民众上课了，一下是在2021年5月30日高福的演讲：向科学要答案，摘要如下：
 
+5月30日，在中国科学院学部第七届学术年会上，中国科学院院士、中国疾控中心主任高福作了题为《疾病防控与健康中国：向科学要答案》的专题报告。他认为，扑灭新冠病毒的希望越来越渺小，我们可能要像流感一样与其长期共处。
 
+小象很受启发：我们要向科学要答案，科学说解决任何事情要从根本出发，去搞清楚它的本质是什么。那么问题来了：新冠病毒怎么来的？它的源头在哪里呢？
 
-> 1/x Critical evidence needed on Wuhan lab leak: “[The CCP] would have blood samples from the workers in that lab.”
-> 
-> “And that’s the evidence that they haven’t made public.”
-> 
-> “If, in fact, the blood samples show that a high prevalence of….”[https://t.co/PUmCeprS4s](https://t.co/PUmCeprS4s)
-> — Ted Cruz (@tedcruz) [May 31, 2021](https://twitter.com/tedcruz/status/1399207163243995140?ref_src=twsrc%5Etfw)
+高福院士在会上表示，围堵、压制、缓疫是中国应对疫情的三个举措，“新冠疫情在武汉出现后，我们采取的是围堵策略。武汉解封后，仅出现过一次小规模的疫情。此后我国出现的基本上都是输入型病例，随之采取的是压制、缓疫措施。
 
+这个是真的，武汉开始爆发的时候，把人封在城里，封在家里，据说有在家里的慢性病去世的，还报道过有个小娃娃和老爷爷一起，老爷爷去世了三天后小娃娃才被人发现，小象想到那张照片啊，眼泪就掉下来了。最近广州又开始爆发了，果然也是输入病例，据报道是有个印度人躺在担架床上，他躺在床上的时候呢，那个手就紧紧抓着床边的把杆，然后第二天有个阿婆，就是那个喜欢喝茶的老奶奶，来了这间医院，监控说阿婆手多，哪里都去摸一把，不小心就触摸到了那个把杆，还补充了那个床没有来得及消毒。然后阿婆就感染了，属于接触传染，中间还隔离了至少6.7个小时。看到这里，小象头很晕，围堵，压制，减缓，是对病毒还是对人？这几天在著名的广州，都在拍鬼片，半夜三更白色鬼魅一样的一群人去社区拉人隔离，还一栋楼一栋楼的拖家带口的被拉走。以后这是常态吗？
 
+“一种病毒如果在地球上没有了，这就叫消灭，人类已经消灭了天花和牛瘟；如果病毒只是在部分地区被消灭了，那就叫消除。”高福院士指出，如果从一开始全球都按照中国的这种抗疫方法做，新冠病毒无论是消除也好消灭也好，都是有希望的，由于新冠病毒目前在全球大流行，目前扑灭的希望已越来越渺小。
 
-…如果实验室里的人接触过这种病毒，这就是一个确凿的证据，证明这种病毒在实验室里传播。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 也会有他们第一次被抽取时的样本，也就是他们患病时的样本。毫无疑问……”
+高福院士认为全球大流行都是因为西方其他国家的错，因为没有把人锁定在家里。不过他可能忘记了，一开始他们说只是普通的流感，4月份就会结束的。好会甩锅啊。
 
+据介绍，疫苗生产有7条技术路线，目前全球已有200多种新冠疫苗，其中88种已进入临床试验阶段，我国已有5款疫苗进入临床使用。随着疫苗接种的普及，我们什么时候能回到正常生活？高福院士对此认为，我们习惯了流感以后，每年会发生流感，这就叫“正常生活”。
 
+最新疫苗代言人，高院士是呼吁大家赶紧打疫苗呢， 而且以后还要半年打一次，打一辈子么？这种正常生活太可怕了吧。小象想的是，不知道高福先生打了疫苗没有。
 
-> 2/x “…people in that lab have been exposed to this virus, that’s pretty definitive proof that this coursed through that lab. And they would also have the samples from the time that they were first drawn, which was the time when they had those illnesses. There’s no question….”
-> — Ted Cruz (@tedcruz) [May 31, 2021](https://twitter.com/tedcruz/status/1399207619177418752?ref_src=twsrc%5Etfw)
+“新冠疫情已越来越‘流感化’，我们今后可能每年都需要打疫苗，就像流感一样和新冠病毒长期共处。”他认为，由于新冠疫苗的普遍接种，人们建立起了群体免疫，但届时疫苗最主要的功能不是防感染，而是防重症和防死亡。
 
+小象觉得这是当今世界上最奇怪的最不科学的一件事情，一个病毒，不知道它的起源，一年半载疫苗就出来了，不研究推广治疗的放大，只有含糊的疫苗数据，突然全世界都要和病毒做好朋友了，和病毒和解了，以后每年都要打疫苗了。有违常识，有位科学的逻辑，这是和科学要答案呢，还是用伪科学来掩盖事实真相呢？
 
+参考链接：
 
-“…毫无疑问，当他们在实验室里爆发疾病时，他们会在实验室里做血常规取样。这只是在那种级别的实验室里的正常控制流程。所以他们会得到这些信息。”
+网易首页 &gt; 网易号 &gt; 正文2021-05-30 21:30:09　来源: 纵相新闻
 
+整理撰稿：蓝精灵
 
+校对发布：Penny
 
-> 3/x “…no question that when they had an outbreak of an illness in that lab that they would have done routine blood sampling in that lab. That’s just normal controls in a lab of that quality. So they would have that information.”
-> — Ted Cruz (@tedcruz) [May 31, 2021](https://twitter.com/tedcruz/status/1399207927907508228?ref_src=twsrc%5Etfw)
-
-
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

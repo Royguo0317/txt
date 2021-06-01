@@ -1,55 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 罪证确凿：中共国计划在第三次世界大战中使用生物武器
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1287046/)
+## “权力集中能干大事”——共产党骗人的政治谎言！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1286235/)
 
-**作者：**Ethan Huff 2021-05-31
+**摘要：在2021年5月24日的盖特视频中，郭先生痛批中共所谓“集中权力才能干大事”的政治谎言，指出正是这种谎言导致了21位优秀草根运动员的死亡，这个数字比这次巴以战争中死亡的以色列人还多。这21位运动员的死亡表明中共没有资格举办冬奥会。中共还把这个只有猪才相信的逻辑运用到了经济领域，结果是全国的资源和财富集中在不到200个家族的手中，他们控制的银行的崩塌最终会带来中国经济的崩塌。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31202743/Miles_2021-05-24-g1.srt.txt)
+**“权力集中能干大事”——共产党骗人的政治谎言！**
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31200351/8653.png)图片来源：Ethan Huff原文
-《自然新闻》主流媒体突然对中共冠状病毒的起源进行了报道，认为这种病毒可能来自中共国的一家实验室。新的证据表明，中共国故意释放病毒，而不是一个”意外”，目的是发动第三次世界大战。
+**“To Do Great Things with the Concentration of Power” – A CCP’s Political Lie! **
 
-安东尼·福其在武汉病毒学研究所（WIV）的秘密”功能增强”研究，现在被许多人认为最终导致中共病毒的产生。在它释放后，它被用来在全球范围内引入共产主义。看来福奇还煽动性地与中共国军方密谋，中共国军方一直希望使用致命的冠状病毒生物武器来攻击美国、印度和其他敌人。
+权力集中能干大事”——这种骗人的政治谎言！[共产党]告诉中国人：“权力集中能干大事”。权力集中也能像希特勒一样，杀死更多的人，是吧？是能干大事啊，也能杀死更多的人呐，对不对？而且官僚、无知、低效工作。
 
-一时间，谈论福奇的功能增强研究、WIV或将中共病毒与中共国联系在一起的任何其他联系完全不再是禁区。现在，媒体正在改变叙述，这似乎是把即将开战的可能性与这些叙述交织在一起。
+“To do great things with the concentration of power” – a deceptive political lie! The CCP told the Chinese: “We can do great things with centralized power.” The concentration of power can also kill more people like what Hitler did, right? Indeed, through it you may do great things, but you can also kill more people, right? Also it is featured with bureaucratic, ignorant, and inefficient work.
 
-LifeSiteNews的史蒂芬·莫舍写道：”我们不需要太多的想象力飞跃来预测，导致我们被迫堕胎和绝育、强摘器官和实时种族灭绝的杀人政权发展出致命的生物武器并以释放到全世界。
+运动员，一个世界级的马拉松，能让运动员冻死21个人。 以色列，以巴战争，发了几千发导弹才死了12个以色列人。共产党能杀21个最优秀的运动员，最优秀的人。这就叫“集中权力干大事，集中资源干大事”。资源都集中了，谁还给你干事啊？中间要不是放羊的农民，我们这些草根能死更多人。真的是太多人无知到了极点！有些人竟深信不疑！说句老实话，有些人是被害的轻，早晚死他家人的时候就老实了。相信共产主义什么“集中资源，集中权力干大事”这王八蛋逻辑。
 
-“我们现在知道，中共国的军事战略家正计划这样做。
+You (the CCP) can make 21 athletes freeze to death in a world-class marathon event, while in the Israeli-Palestinian war, thousands of missiles were fired, resulting in only 12 Israelis deaths. The CCP killed 21 of the best athletes, the best people. Is this what you call “concentrating power to do great things and concentrating resources to do great things”? When you centralize all the resources, who will still work for you? If it weren’t for the sheep-herding farmers, more grass-root athletes would have died. Too many people are really ignorant to the extreme, and some people even believe [what the CCP said] without a shadow of a doubt. To be honest, those people are not hurt badly enough by the CCP. They would shut up sooner or later if it were their family members who died. Don’t believe in the CCP’s bastard logic of “concentrating resources and centralizing power to do great things”!
 
-**中共是想发动第三次世界大战来对付它的敌人吗？**
+另外一个，兄弟姐妹们要看到，现在经济上不是集中资源干大事吗，钱都集中中南坑啦，这聚集的几天怎么样？大家记住：民生[银行]不倒，招商[银行]不倒，平安[银行]不倒，中国经济不会倒，包括邮储银行。还显摆呢？民生银行我原来说1.7万亿[金融票据]，结果昨天有人告诉我说：“文贵，你说太少了，3万亿找不着。”弄不回来了！任何一个猪脑袋都知道中国所有的资源，所有的财富就在那不超过200个家族手里控制着。你愿意当猪，你愿意当狗你愿意愚人自愚——愚蠢的人自己愚弄自己——你自己去玩去。不要带走所有的同胞。
 
-澳大利亚战略政策研究所（ASPI）发现了一本中共国书籍，该书声称中共国军事科学家一直在致力于开发一个”新时代的基因武器”，该武器可以”被人工操纵成为一种新的人类疾病病毒，然后被武器化并释放出来”。
+In addition, brothers and sisters, you should see that the same logic has also been applied to the CCP’s economy by centralizing resources to do great things. The money is concentrated in the hands of those people in the Zhongnanhai pit. How has the state of the economy and the banks changed in the past few days? Please remember: If Minsheng Bank, China Merchants Bank, Ping An Bank do not fail, including China Postal Savings Bank, then China’s economy will not collapse. The CCP is still showing off? I said earlier that Minsheng Bank had lost 1.7 trillion worth of bank notes. But somebody told me yesterday: “Miles, you understated the amount. It is actually 3 trillion that cannot be found.” They can’t get it back. Any pig head knows that no more than 200 families control all the resources and wealth in China. If you are willing to be a pig, a dog, a stupid person who fools himself, or a self-fooling idiot, then just play by yourself. Don’t take away all the compatriots.
 
-2015年卷名为《非典的非自然起源和作为基因生物武器的人造病毒新物种》，提到了第三次世界大战和这些用于作战的新生物武器。会不会就是我们现在看到早期阶段的武汉病毒？
+运动员的事情就发生了问题，冬奥会还会有吗？这样的中共国还能搞冬奥会吗？那不都冻死个球的啦？！
 
-更有趣的是直接提到经过改造的冠状病毒，中共国军方认为这种病毒很容易武器化。实际上，中共国科学家已经将SARS作为生物武器的理想候选者，而SARS是中共病毒的”表妹”。
+What happened to the athletes indicates problems. Will the Winter Olympics still happen? Can Communist China who behaves like this still host the Winter Olympics? Wouldn’t all the athletes freeze to death?
 
-世界卫生组织（WHO）和其他全球性实体将中共冠状病毒称为”非典病毒类型”，这进一步构建了该病例。ASPI执行董事彼得·詹宁斯称这一发现最接近于”我们获得的确凿罪证”。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60aba2a8744cbc431363c46e](https://gtv.org/getter/60aba2a8744cbc431363c46e) (00:47-02:57)
+鸣谢：[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1269395/](https://gnews.org/zh-hans/1269395/)
+[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于 [https://gnews.org/1271900/](https://gnews.org/1271900/)
 
-詹宁斯进一步表示：”我认为这意义重大，因为它清楚地表明，中共国科学家正在考虑对不同冠状病毒株的军事应用，并考虑如何部署这种病毒。
+* * *
 
-“它开始坚定了我们认定的可能性：中共病毒病原体的意外释放是用于军事目的。
+**整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
+字幕：【Melody太阳的旋律】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-这可以解释为什么中国共产党（CCP）抵制对中共病毒真实起源的所有外部调查，而是选择推动长期被驳斥的说法，即它来自当地海鲜市场里被污染的蝙蝠。
-
-詹宁斯说：”如果这是一个来自海鲜市场的感染传播案例，那么合作符合中共国的利益。”我们已经有了相反的观点。
-
-时至今天，中共所有的努力就是阻挠外国实体深入挖掘中共病毒起源的所有努力。这会不会是中共政权在掩盖它试图发动第三次世界大战？
-
-更多有关中共和中共冠状病毒的新闻可以在Pandemic.news找到。
-
-**评：**随着越来越多的中共制造并释放其超限生化武器——中共病毒到全世界的人证物证和视频曝光于西方各国的战略情报机关和相关国家的媒体，世界各国政府人士、情报主管官员以及主流媒体等的叙事方式开始转向，中共病毒起源于中共国病毒实验室，并非2020年初中共病毒全球大流行以来中共一直坚称的自然来源说。中共军方深度卷入并主导了中共病毒的制造，而且是中共军方释放中共病毒，目的是发动对全球的第三次世界大战——超限生化武器世界大战，这一观点已经被越来越多的证据支持并得到世界上越来越多的国家的认同。值得注意的是，当前西方的认知、观点和看法完全是背书去年中共病毒刚刚爆发时，病毒学家闫丽梦博士率先站出来揭露的中共病毒的真相，以及文贵先生获得的来自中共政府、军方和民间的绝密内部情报。文贵先生发起并领导的爆料革命及其盟友美国正义的正义人士是世界上唯一坚持传播中共病毒真相的力量，这是任何人都绕不过去的事实。值得庆幸的是，世界各国在付出生命、健康、经济大衰退等巨大的代价后，终于觉醒过来，认清了中共的惊天阴谋和魔鬼的行径。中共在中共病毒真相即将被全部曝光于全世界而慌了手脚，已经无力继续掩盖下去，中共被追责被消灭的日子已经屈指可数！
-
-##### **原文：**Ethan Huff,“ Smoking gun: Communist China plans to fight WWIII with bioweapons”.《Natural News》, May 31, 2021.** **[https://www.naturalnews.com/2021-05-31-smoking-gun-communist-china-fight-wwiii-bioweapons.html](https://www.naturalnews.com/2021-05-31-smoking-gun-communist-china-fight-wwiii-bioweapons.html)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：比卡丘
-
-20210531
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-
-
-0
++1

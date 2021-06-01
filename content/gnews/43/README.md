@@ -1,33 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【病毒专题】众议院共和党人要求南希 · 佩洛西调查中共病毒真相
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1285370/)
+## 朝警告美结束韩发展导弹的限制会引剧烈动荡
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1286227/)
 
-作者：休斯顿星光农场 写作部 FY（火星）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
-5 月 28 日，众议院共和党议员史蒂夫·斯卡利斯和他的200多名共和党同僚给南希·佩洛西（Nancy Pelosi）致信，呼吁民主党委员会调查中共在造成病毒大流行中的共谋行为。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31064818/photo_2021-05-31_17-16-26-1.jpg)
-*图片来源：DailyMail*
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-据每日邮报报道，在给民主党众议院议长的一封信中，共和党人说，有“越来越多的证据表明该病毒始于中（共）国的一个实验室”，而中国共产党“掩盖了它”。
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31143421/N-6.jpg)wwaytv3.com
+韩国首尔（美联社）报道，朝鲜5月31日表示，美国允许韩国发展无限射程导弹技术是美国对朝鲜采取的又一个敌对政策。平壤警告美国，此举可能会导致朝鲜半岛局势发生“剧烈震荡”。
 
-信中写道：“如果是这样，中共要对近60万美国人和全世界数百万人的死亡负责。这些关于中共责任的问题并不是转移视线的行为。”
+美韩高层 5 月 21 日峰会后，美国结束了长达几十年对韩国发展导弹技术的限制，允许韩国发展无限射程武器，平壤当局对此表示非常愤怒。美国此前曾禁止韩国开发射程超过 800 公里（500 英里）的导弹。该射程的导弹足以让韩国军事力量覆盖整个朝鲜，却无法波及到其他邻国，如中共国和日本。
 
-信中补充说：“恰恰相反，每一个失去亲人的美国家庭都应该得到关于这一可怕病毒来源的答案。”
+美国当初限制韩国发展导弹技术的初衷是维护亚太地区的和平，不至于让韩国的军事武器引起与中共国之间的军备竞赛。但自从 5 月 21 日美国解除对韩国发展导弹技术的限制后，一些韩国军事观察家在称赞美国是主动恢复了韩国的军事主权的同时，外界不免怀疑美国的真实意图是为了提高盟友与中共国进行军事竞争的能力。
 
-据报道，共和党人提高了对调查的要求，因为众议院议员将提出两项与COVID-19有关的新法案，一项是允许受害者家属起诉中（共）国，另一项是成立一个类似于9/11事件的委员会来调查该大流行病的起源。
+平壤当局并未正面发声，仍然是由“个别”评论员代为表达朝鲜政府的态度，这被外界解读为平壤为与拜登政府作进一步外交沟通留下了空间。据朝鲜官媒中央通讯社报道，朝鲜官方国际事务评论员 Kim Myong-chol 表示，美国不再限制韩国发展导弹技术的决定是美国对朝鲜的敌对政策，是一种可耻的两面派的做法。
 
-信息来源：
+他认为，美国通过制造朝鲜半岛及其周边地区军事不对称来向朝鲜施压是个严重的错误，因为美方这种做法很可能导致朝鲜半岛现在军事技术上处于“战争状态”，结果很可能是引发周边各国的军备竞赛。
 
-[https://www.dailymail.co.uk/news/article-9630049/More-200-House-Republicans-demand-Pelosi-FINALLY-investigate-Chinas-complicity-pandemic.html](https://www.dailymail.co.uk/news/article-9630049/More-200-House-Republicans-demand-Pelosi-FINALLY-investigate-Chinas-complicity-pandemic.html)
+参考链接：
 
-编辑：文顺    校对：Helen   发稿：文柳
-
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
-
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
-
+[North accuses U.S. of hostility for South Korean missile decision – Washington Times – 30/05/2021](https://www.washingtontimes.com/news/2021/may/30/north-accuses-us-of-hostility-for-south-korean-mis/)
 
 0

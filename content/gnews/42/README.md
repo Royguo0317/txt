@@ -1,15 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年5月31日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1286198/)
+## [诗歌] 生与死
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1286236/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+#### 作者：浴火重生 发布：滴水穿石
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31145349/IMG_20210531_115303_207.jpg)图片截自网络
+开枪吧，刽子手！
 
-5月31日：尊敬的战友们好！以毒灭共已和共产党的垂死挣扎……会形成非常有趣的国际政治现象。世界经济的好坏．决定了共产党灭亡的速度……新中国联邦一周年的重大意义，就是让所有的中国人来共同的探讨，我们到底应该拥有一个什么样的政治制度？什么样的中国人才是我们自己喜欢的中国人，一切都已经开始！
+面对你的枪口，
 
-[【2021年5月31日】文贵先生盖特原文](https://gtv.org/getter/60b4f217ba7ef9088d045bfc)
+我们不会低下高昂的头。
 
-**喜联盟Gnews编辑部**
+屠杀吧，法西斯！
 
+我们用生命呼唤，
+
+民主和自由！
+
+再见吧，妈妈！
+
+孩儿不是不听话，
+
+历史的今天选择了我们，
+
+就用我们的热血铸成六月花。
+
+朋友，别哭！
+
+别说我们一无所有。
+
+我们扛着自己的尸首，
+
+走过五千年的风风雨雨，
+
+还会继续谱写我们的追求……
+![This image has an empty alt attribute; its file name is 063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg]()![This image has an empty alt attribute; its file name is 063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26030300/063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg)
 0

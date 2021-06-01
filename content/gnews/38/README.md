@@ -1,39 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [诗歌] 生与死
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1286236/)
+## 【一线新闻】东道主给战友们的第一份温暖
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1286327/)
 
-#### 作者：浴火重生 发布：滴水穿石
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31145349/IMG_20210531_115303_207.jpg)图片截自网络
-开枪吧，刽子手！
+前方记者：纽约香草山记者站 Kathy（文艺）
 
-面对你的枪口，
+文字编写：纽约香草山健身部 童谣
 
-我们不会低下高昂的头。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191310/s2-7.jpg)
 
-屠杀吧，法西斯！
 
-我们用生命呼唤，
 
-民主和自由！
 
-再见吧，妈妈！
 
-孩儿不是不听话，
+2021年5月31日，当地时间早上6点40，一线记者文艺战友再次从现场传来了报道。
 
-历史的今天选择了我们，
+前两天一直在下雨，早晨天气还是很冷，纽约在春夏交替之间通常会出现倒春寒。视频中可以看到路面依旧有几处积水，很多行人穿上了厚外套或轻便羽绒服。文艺战友与金牛太太站在机场出口外等待迎接今天到达的第一位战友Marvin。
 
-就用我们的热血铸成六月花。
+战友们在胸前举着新中国联邦蓝的欢迎标语牌，于人群中十分醒目，所以到来的战友能够一眼识别出来。话语之间，Marvin已经从机场大楼的另一个出口走出，向接机战友走来。虽然出口与约定有交错，但依旧顺利会师。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31153424/welcome.png)*文艺*，*纽约肯尼迪机场接机现场视频图片*
+这位来自康州农场的Marvin战友从洛杉矶飞到纽约。相互介绍之后，文艺首先关心战友的旅程是否辛苦。在了解接待人员凌晨4点就从曼哈顿赶来机场等待之后，Marvin也表达了对接待战友的感谢，之后在文艺的指引下坐上接送专车，由金牛战友送往酒店。
 
-朋友，别哭！
+接待完第一位战友之后，文艺和尼娜坐在机场外的休息亭中吃了小面包当作早饭。7点22分，传来Marvin抵达酒店的消息。而下一位战友将在8点半到达另外机场。为了应对机场的变化、及时联络接机，一个接待团中的每位司机和接待员都配有对讲机。接待战友通过这种方式与司机们沟通后，已经安排了一辆车送她们前往下一个机场。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31154010/%E4%BA%AD%E5%AD%90%E5%90%83%E9%9D%A2%E5%8C%85.png)*文艺 纽约肯尼迪机场视频图片*
+由于疫情原因，接送飞机的亲属朋友统一不允许进入机场大楼，只能站在外面或在室外休息亭等待。文艺战友由于穿的比较少已经开始流鼻涕。但肩负东道主责任的香草山接待团，为了让远道而来的战友们，感受到一下飞机就有人接待的温暖，都宁愿选择奔波辛苦一点，甚至一大早就冒着天寒等待。
 
-别说我们一无所有。
+Marvin战友刚下飞机的时候，文艺战友第一时间就把位置信息传给了他。这样的话，战友知道外面有人等待，就不会感到孤单，也免去战友们自己叫出租车的麻烦。这是六四一周年庆典之前，香草山愿意给战友们带来的第一份温暖。
 
-我们扛着自己的尸首，
+以上是文艺战友传来的今天第一位战友的接待工作。可以从司机接送、机场接待的细节中看到新中国联邦人的形象、素质、品格和境界。这就是新中国联邦人接触、沟通、交往的方式，这就是战友们的友谊。
 
-走过五千年的风风雨雨，
+引用来源：文艺战友前方报道视频和音频
 
-还会继续谱写我们的追求……
-![This image has an empty alt attribute; its file name is 063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg]()![This image has an empty alt attribute; its file name is 063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26030300/063B0E70-1CC2-4B4A-A6F5-C866AEDC87BF.jpeg)
-0
+编辑/校对/上传：Delilah小胖
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/13130410/5_May-1-1.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
+
+
+
+
+
++2
