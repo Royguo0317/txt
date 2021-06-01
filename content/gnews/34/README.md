@@ -1,41 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 与福奇有关的武汉研究人员协助被美国制裁的中共准军事部队，以压迫维吾尔族穆斯林
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1288123/)
+## 有毒的S蛋白
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1288957/)
 
-翻译：飞利普|校对：烟波浩渺|审核：V
+MyWay
 
-现在被许多人认为是中共病毒的潜在来源的武汉病毒研究所——与因对维吾尔人“严重侵犯人权”最先被美国政府制裁的新疆准军事部队合作进行科学研究。
+本文精要：
 
-在此之后，由于[资助](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)在有争议的实验室对蝙蝠冠状病毒的研究，并[派遣](https://thenationalpulse.com/exclusive/fauci-scientists-attended-wuhan-lab-conference/)科学家就危险的功能增强[研究](https://thenationalpulse.com/exclusive/fauci-researchers-headlined-wuhan-gain-of-function-event/)提供建议，对安东尼·福奇博士的国家过敏和传染病研究所 (NIAID) 的审查越来越严格。 除了将纳税人的钱汇给武毒所（其网站[之前](https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/)将美国国立卫生研究院（NIH）列为研究合作伙伴）之外，福奇的机构现在可以与资助一个与新疆生产建设兵团（XPCC）合作的实体相关联。
+**最新研究发现疫苗产生的刺突蛋白（S蛋白）会通过注射部位进入血液，S蛋白不仅和血栓、心脏和大脑损伤有关，还对哺乳期婴儿和成人的生育能力有潜在风险。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25103607/vaccinate-4833616__340_mh1615017706384-1.jpg)
+从理论上讲，mRNA疫苗的免疫过程会分如下三个步骤：
 
-拜登和[川普的](https://home.treasury.gov/news/press-releases/sm1073)财政部都[制裁了](https://www.nbcnews.com/politics/politics-news/biden-admin-announces-sanctions-against-chinese-officials-over-human-rights-n1261745)新疆生产建设兵团（XPCC）领导人的“严重[侵犯](https://www.hrw.org/news/2020/02/20/more-evidence-chinas-horrific-abuses-xinjiang)新疆少数民族人权，据报道，这包括大规模的任意拘留和严重的身体虐待。”国土安全部（DHS）[还](https://www.dhs.gov/news/2020/12/02/dhs-issues-detention-order-cotton-products-made-xinjiang-production-and-construction)禁止该建设兵团的棉花进入美国，理由是其与[监狱和强迫劳动](https://www.dhs.gov/news/2020/12/02/dhs-issues-detention-order-cotton-products-made-xinjiang-production-and-construction)有关。
-
-包括《华盛顿邮报》在内的主流媒体都认为新疆生产建设兵团是[针对](https://www.washingtonpost.com/opinions/global-opinions/chinas-repression-of-the-uighurs-began-10-years-ago-now-their-survival-is-at-stake/2019/07/04/3b568470-9daa-11e9-85d6-5211733f92c7_story.html)维吾尔人的“镇压工具”，而中共国官方媒体将该组织描述为中共国人民解放军（PLA）的一个分支，旨在“维护社会主义稳定”和“成为中共国的一支顶级民兵部队”。
-
-中共领导人习近平视察了兵团，甚至称赞他们是“稳定力量”
-
-尽管存在这些明显的军事联系和侵犯人权的行为，武毒所还与兵团官员会晤并签署了合作协议。
-
-2013年8月3日，武毒所网站上一则现已删除的[帖子](http://www.whiov.cas.cn/xwzx/zhxw/201308/t20130803_3908388.html)披露了与兵团的“科技合作”。
-
-有一个事件摘要记录了武毒所所长、党委书记、副研究员如何前往新疆会见兵团干部：
-
-“*2013**年**7**月**30**日，应新疆建设兵团第十师北屯科技局邀请，中共国科学院武毒所所长陈新文，中共国科学院武毒所党委书记袁志明，中共国科学院武汉分院科技合作处处长办公室主任李伟、病毒所虫媒病毒病媒控制学科组阎建平副研究员到北屯市商讨合作事宜。”*
-
-据报道，这次会议的重点是“实施新的科技项目——生物灭蚊”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01021101/pp.png)已删除的报道
+1. 首先，新冠 mRNA疫苗在上臂肌肉进行注射后，mRNA会进入免疫细胞，免疫细胞就利用mRNA模板合成蛋白质片段，蛋白质片段形成后，免疫细胞会把mRNA分解排除体外。
+2. 细胞将mRNA产生的蛋白质片段呈现在细胞表面，免疫系统认识到蛋白质片段属于异物，开始建立免疫反应和制造抗体，过程和自然感染新冠类似。
+3. 机体获得对新冠免疫能力，在感染新冠后不会发病或不会有严重后果风险。
 
 
-另一篇被删的[文章](http://www.whiov.cas.cn/xwzx/zhxw/201308/t20130803_3908385.html)披露了武毒所参加了2013年“中共国科学院-新疆科技合作洽谈会”，在会上，中共国科学院与兵团签署了近30个“合作项目”，其中包括 武毒所和兵团十师联合承担的“高效安全蚊虫防控技术集成与示范”项目。
+新冠病毒通过S蛋白感染人类细胞，疫苗制造商选择针对这种独特的蛋白质，使接种者的细胞制造这种蛋白质，然后在理论上唤起对这种蛋白质的免疫反应，防止病毒再次感染细胞。
 
-这些联系是在《国家脉搏》发现了有关武毒所研究人员承诺“[不折不扣](https://gnews.org/zh-hans/1263642/)”执行中国共产党的议程，以及在实验室工作的与军方有关的[研究人员](https://thenationalpulse.com/breaking/wuhan-lab-erased-military-researchers-from-site/)的帖子被删除之后发生的。
+但在实际研究中发现并非如此，最初，疫苗研究人员曾假设新型mRNA新冠疫苗的行为与 “传统 “疫苗一样，所产生的S蛋白将会停留在肩部肌肉的接种部位或者停留在免疫系统，但结果恰恰相反，日本的研究数据显示，**冠状病毒的S蛋白可以进入血液，并且在接种后的几天内通过循环系统在器官和组织中积累，最终S蛋白在脾脏、骨髓、肝脏、肾上腺，以及在卵巢中有相当高的浓度。**科学界已经发现，如果S蛋白进入血液循环，纳米颗粒会对所有对心血管系统造成害，如血液凝固和出血等都是由于病毒本身的S蛋白引起的。
 
-原文作者：娜塔莉·温特斯(NATALIE WINTERS)
-发布时间：2021年5月29日
-原文链接：[https://thenationalpulse.com/exclusive/wuhan-collaborated-with-sanctioned-xinjiang-military/](https://thenationalpulse.com/exclusive/wuhan-collaborated-with-sanctioned-xinjiang-military/)
+安大略省圭尔夫大学的病毒免疫学家和副教授拜伦·布莱德（Byram Bridle）一篇经过同行评议的研究表明，接受过莫得纳（Moderna）公司新冠疫苗的13名年轻医护人员中的3人的血浆中检测到了S蛋白。在其中一名工人身上，S蛋白在体内循环了29天。 实验动物在血液中注射了纯化的S蛋白后出现了心血管问题，而且S蛋白还被证明可以穿过血脑屏障并对大脑造成损害。
 
+以前疫苗研究者错误是认为S蛋白是一种很好的目标抗原，不是一种毒素或致病蛋白，而且不会进入血液循环中。但现在证据表明恰恰相反，在注射肌肉部位制造的S蛋白会进入血液循环。而且一旦进入血液循环，S蛋白就可以附着在血小板和血管内壁细胞的特定ACE-2受体上，导致血小板凝结，或者使机体出现凝血功能障碍，导致出血。这也是很多人疫苗注射后出现心脏问题的原因。
 
+美国疾病控制和预防中心（CDC）最近宣布正在研究关于接种新冠疫苗后出现 **“轻微 ”**心脏疾病的报告，上周仅康涅狄格州就有18名青少年因服用新冠疫苗后不久出现心脏问题而住院治疗。
 
-+1
+而且研究还表明，母亲接种过疫苗的哺乳期婴儿有可能从母亲的乳汁中获得S蛋白，因为血液中的任何蛋白质都会在母乳中得到浓缩，在VAERS中已经有了哺乳期婴儿出现胃肠道出血疾病的报告。另外VAERS还报告描述了一个5个月大的母乳喂养的婴儿，其母亲在3月份接受了辉瑞公司的第二剂疫苗后第二天，该婴儿出现皮疹，拒绝哺乳并发烧。该婴儿被诊断为血栓性血小板减少性紫癜，这是一种罕见的血液疾病，全身小血管中会形成血凝块，这名婴儿最终死亡。
+
+小儿风湿病学家帕特里克·惠兰（J.Patrick Whelan）曾警告FDA疫苗咨询委员会，新冠疫苗中的S蛋白有可能造成微血管损伤，导致对肝脏、心脏和大脑的损害，这些都没有在安全试验中没有评估。虽然惠兰对疫苗的价值没有异议，但他认为如果由于在短期内没有意识到基于S蛋白的疫苗对其他器官的意外影响，可能会导致数亿人的大脑或心脏微血管遭受长期甚至永久性的损害，那将是非常糟糕的。
+
+在日本机构公布的辉瑞疫苗的数据中，在睾丸和卵巢中也发现的高浓度S蛋白，已经有数以千计的报告称，打过新冠疫苗的妇女出现了月经紊乱，还有数百份关于接种疫苗的孕妇流产的报告，以及关于男性生殖器官紊乱的报告。
+
+拜伦·布莱德还附上一份简短的报告，概述了支持他在采访中所说的关键科学证据。该报告是与他在加拿大COVID护理联盟（CCCA）的同事一起写的，该联盟是一个由加拿大独立医生、科学家和专业人士组成的团体，其宣称的目标是 “提供有关新冠的顶级质量、基于证据的信息，意在减少住院和拯救更多生命”。
+
+鉴于辉瑞公司的疫苗试验中年轻研究对象的数量很少，而且临床试验的时间有限，CCCA说，在儿童和青少年接种疫苗之前，必须回答有关S蛋白的问题，包括S蛋白是否会穿过血脑屏障，是否会干扰精液生产或排卵，以及是否会穿过胎盘并影响发育中的婴儿或哺乳期的婴儿。
+
+LifeSiteNews向加拿大公共卫生局发送了CCCA的声明，并要求对布莱德的担忧做出回应。该机构答复说，它正在处理这些问题，但在发表前没有发出答复。辉瑞、莫得纳和强生公司没有对有关布莱德关注的问题作出回应。
+
+截至2021年5月21日向美国政府的疫苗不良事件报告系统（VAERS）报告的迄今为止的4000多例死亡和近15000例住院。由于它是一个被动的报告系统，这些报告可能只是不良事件的冰山一角，因为哈佛皮尔格林医疗集团的一项研究发现，医生在接种疫苗后应该报告的病人的副作用中，实际上只有不到1%报告给VAERS。
+
+拜伦·布莱德于周一（5月31日）上午通过电子邮件向LifeSiteNews发送了一份声明，称自电台采访以来，他收到了数百封诽谤和攻击的的、电子邮件，甚至有人用他名字作域名创建一个诽谤性网站。在当今的时代，一个学术人员再也不能诚实和基于科学地回答人们的合法问题而不用担心被骚扰和恐吓了，然而对公众隐瞒科学事实的事情他做不到。
+
+*新闻来源：*
+
+[Vaccine researcher admits ‘big mistake,’ says spike protein is dangerous ‘toxin’](https://www.lifesitenews.com/news/vaccine-researcher-admits-big-mistake-says-spike-protein-is-dangerous-toxin)
+
+* * *
+
+*编辑、发稿 文锦*
+
++3

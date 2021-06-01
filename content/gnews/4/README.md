@@ -1,20 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】“躺平”就是灭共，就是重生
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1288377/)
+## 慧眼看世界20210601
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1289302/)
 
-#### 撰稿：Ermat【㊙️翻Gnews原创组】
-责编：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01043349/%E8%BA%BA%E5%B9%B3.jpg)图片来源：Chinatimes
-“躺平”一词突然间在中共国内成为网络热搜词。意思是，一部分人对买房、买车、结婚、生娃、高消费，一概说“不”。仅仅以最低的成本维持生活，尽可能少的被盘剥。于是，“躺平主义”就这样产生了。这虽为官方和主流媒体所不耻，但却是一副灭共良方和自我的重生。
+作者：2020喜马拉雅
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01120127/01.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01120348/02.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01120554/03.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01120623/04.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01120722/05.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01120957/06.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01121041/07.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01121703/08.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01122045/09.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01122629/10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01122753/11.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01122844/12.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01124018/13-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01124126/14.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01124314/15-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01124345/16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01124420/17.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01124508/18-1.jpg)
 
-“躺平”是对残酷现实社会的一种默默抗争，犹如“徐庶进曹营，一言不发”。如果这种非暴力抗争模式在全国上演，势必对中共经济造成重创。因病毒疫情，中共国对外出口大幅缩水，使内循环经济变得至关重要。而韭菜们的躺平，恰恰击中了要害，让中共无所适从。面对着这一片片光秃秃的韭菜地，无论是收割机，还是镰刀都无用武之地，总不能连根拔起吧。
 
-而且，“躺平”后，你有更多时间思考人生、思考社会；有更多时间学习、锻炼、充实自己。因此“躺平”不是迷惘、不是颓废，而是隐忍、是蓄势待发、是重生。就如同冯巩说的这段相声，“假如生活忽悠了你，别吱声、别憋屈、别堆碎、别尿唧，你就在那旮沓趴着，就像洋喇子似的蛄蛹、蛄蛹，可劲的蛄蛹，早晚有一天，你会变成一只美丽的扑了蛾子，扑着俩大翅膀子，爱咋腾飞就咋腾飞吧。”
-
-是的，自我腾飞、自我重生的这一天一定会到来。因此，无需上街游行、无需暴力抗争，只需“躺平”了。只要全国人民都“躺平”，那么中共一定也“躺平”。
-
-（本文仅代表作者个人观点）
+审核：神奇四侠；发稿：Nuevo唐人
 
 0

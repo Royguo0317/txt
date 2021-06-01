@@ -1,33 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】美国金融当局正计划对 1.5 万亿美元的加密货币市场进行监管
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1287972/)
+## 福奇与武汉病毒实验室“功能增强”研究的渊源
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1288910/)
 
-什洛帕布2021年6月1日在republic今天发表关于加密货币的文章：
+新闻来源：国家脉动 (The National Pulse)| 作者：Natale Winters| 发布时间： 2021年5月25日
+翻译/简评：苹果树| 校对：clau|审核：SilverSpurs7 | Page：小六月
 
-由于缺乏监督的担忧日益加剧，美国金融当局正计划对 1.5 万亿美元的加密货币市场进行监管。早些在川普政府时代，鼓励个人在金融系统内使用加密货币。然而，随着拜登政府对在美国使用加密货币采取不同的方法，现在预计这种情况会发生变化。
+[!\[\]()!\[\](https://spark.adobe.com/page/XknERyFTpBfXK/images/a31b5b48-758b-4c74-812b-d363c3773112.png?asset_id=372733c3-6987-4875-9220-a8f073859224&amp;img_etag=%22df959bb83e447230e039e51d2bfbb7c1%22&amp;size=1024)](https://spark.adobe.com/page/XknERyFTpBfXK/images/a31b5b48-758b-4c74-812b-d363c3773112.png?asset_id=372733c3-6987-4875-9220-a8f073859224&amp;img_etag=%22df959bb83e447230e039e51d2bfbb7c1%22&amp;size=1024)
 
-美国计划监管加密市场。
+**简评：**
 
-此举是在任命 Michael Hsu 之后做出的，他于 5 月初被任命为美国代理货币审计长。Hsu表示他希望美国官员共同努力，确保为庞大的加密货币市场设定监管范围。引用 2008 年的金融危机，他表示，随着金融科技创造新的支付处理工具，新的支付技术产生了一个不受监管的影子银行系统。
+《国家脉动》的这篇独家报道揭露了福奇所坚称的：“NIH从未，而且现在也没有资助过武汉病毒研究所进行功能增强研究”是谎言。因为就在两个星期前，福奇博士和一名教授共同主持讨论了有关冠状病毒大爆发的专题。这位教授与武汉实验室有深度合作，她还从福奇领导的美国国家过敏和传染病研究所 (NIAID)得到科研经费达36年之久。
 
-印度储备银行对印度加密货币的看法。
+福奇，作为NIAID的主任和美国总统的首席医疗顾问，他的谎言对美国乃至世界的危害是不可估量的。在疫情爆发到今天已经过去一年又余，美国民众对福奇的话信以为真，尤其不谙世事的年轻人更是深信不疑。但是，人们不知道的是他一直在试图掩盖什么！从他一开始建议人们不用戴口罩，到后来在听证会扭捏作态，把口罩摘了戴、戴了摘的样子，到否认硫酸羟氯奎加锌片可用于病毒预防和早期治疗，无视闫丽梦博士的科学论文，推广疫苗，阻挠病毒溯源，到今天他在事实面前强词夺理，有意无意地把他与武汉病毒实验室之间的内在瓜葛昭然于天下。他的每句话听起来都似乎政治正确、天衣无缝，但实质言之无物、漏洞百出，让人不得不相信他被中共深度“蓝金黄”， 捞到了怎样不可告人的利益。所以，《国家脉动》的这篇独家报道揭穿福奇的谎言，意义深远。
 
-与此同时，就印度而言，印度储备银行周一澄清说，银行不能阻止人们投资加密货币。印度储备银行发布澄清声明，表示其2018 年通函不再有效。这是在多家私人和公共银行向客户发送反对虚拟货币交易的信件之后发生的。这些银行引用了印度储备银行 2018 年的通知，警告客户不要投资加密货币市场。
+截止这篇译文发稿时，福奇已经改口。郭文贵先生在5月27日的直播中爆出的内情是，福奇已得知有更实锤的人证物证达到欧洲，他不得不改口支持彻查武汉病毒实验室和病毒来源，以逃脱责任。这只是刚刚开始，美国乃至世界的民众都在看，看他如何自圆其谎。跟随文贵先生的爆料革命的人们都明白，福奇是美国等西方国家被中共利益捆绑的一个典型例子。让人无法相信的是，当利益绑架良知的时候，即使一个以诚信为本的社会，即使搞科学的人，本应视事实如生命，但也可以堕落得如此之地步。谎言终归是谎言，必将在事实面前不攻自破。
 
-这里的加密货币是指不受政府监管的比特币，货币等虚拟货币，任何不和实体货币挂钩的虚拟货币都将被各国政府拒绝，监管或者取缔。文贵先生曾在直播中告诉过大家，原来一个自由的比特币，被中共控制了大部分，变成了一个由一个流氓集团控制的货币，从而进行一系列的非法的金融活动，变成了一个上下币震收割全世界财富的工具。
+**原文翻译：**
 
-参考链接：
+## 独家报道：福奇与武汉实验室的“功能增强”顾问共同主持小组讨论
 
-[https://www.republicworld.com/world-news/us-news/us-financial-authorities-to-crackdown-on-regulate-1-dollars-5-cents-trillion-cryptocurrency-market.html](https://www.republicworld.com/world-news/us-news/us-financial-authorities-to-crackdown-on-regulate-1-dollars-5-cents-trillion-cryptocurrency-market.html)
+安东尼·福奇（Anthony Fauci）博士否认了其领导的联邦机构与武汉病毒研究所之间有合作关系。然而，他在一次视频会议中，与研究人员一起，向有争议的实验室提供了有关“功能增强”研究的建议。《国家脉动》（The National Pulse）独家披露。
 
-图片来源：[https://www.republicworld.com/](https://www.republicworld.com/world-news/us-news/us-financial-authorities-to-crackdown-on-regulate-1-dollars-5-cents-trillion-cryptocurrency-market.html)
+美国国家过敏和传染病研究所（NIAID）主任福奇在美国免疫学家协会于2021年5月举行的免疫学视频会议上发表了讲话。一同出席主持会议的还有琳达·赛夫（Linda Saif）教授。尽管福奇曾试图将NIAID的资金与武汉病毒学研究所分开，但他与赛夫的从属关系还是为一连串的证明福奇在撒谎的证据增添了又一例证。
 
-整理撰稿：蓝精灵
+赛夫曾应邀作为特邀嘉宾于2017年在武汉病毒学研究所“第二届中美面对新发性感染、实验室安全和全球卫生安全挑战学术研讨会”上讲话。根据武汉实验室会议纪要，该研讨会包含五个研讨专题，其中第一个就是“功能增强研究，基因编辑，定向和传递以及其他新生物技术”。
 
-校对发布：Penny
+[!\[\]()!\[\](https://spark.adobe.com/page/XknERyFTpBfXK/images/017f5b67-a526-41d4-a491-7a5837ed6216.png?asset_id=928f9780-9399-4987-b192-db47e0769189&amp;img_etag=%228001ba855514163c8be967535a58f6fc%22&amp;size=1024)](https://spark.adobe.com/page/XknERyFTpBfXK/images/017f5b67-a526-41d4-a491-7a5837ed6216.png?asset_id=928f9780-9399-4987-b192-db47e0769189&amp;img_etag=%228001ba855514163c8be967535a58f6fc%22&amp;size=1024)活动广告
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+赛夫和福奇一起主持进行了“新冠病毒和大疫情的科学——经验教训”专题小组讨论，他们的这次合作与以往的长期合作如出一辙。他们的合作始于1985年。自那时起，赛夫一直都得到NIAID的研究资助。她共获得了美国国立卫生研究院（NIH）的56笔科研经费，其中43笔来自福奇的NIAID。
 
-0
+[!\[\]()!\[\](https://spark.adobe.com/page/XknERyFTpBfXK/images/d96d2815-550f-4985-b30f-5295793ce902.png?asset_id=7c527805-b00f-474d-8e6f-a78c02414718&amp;img_etag=%22840990315f32366b6fc26a6e11fc7fd4%22&amp;size=3413)](https://spark.adobe.com/page/XknERyFTpBfXK/images/d96d2815-550f-4985-b30f-5295793ce902.png?asset_id=7c527805-b00f-474d-8e6f-a78c02414718&amp;img_etag=%22840990315f32366b6fc26a6e11fc7fd4%22&amp;size=1024) 视频会议
+
+福奇和赛夫共同主持的专题小组讨论，这一事实是在兰德·保罗（Rand Paul）参议员和福奇之间进行了激烈的交锋之后被挖出来。在与保罗参议员的交锋中，福奇试图将NIAID与武汉实验室拉开距离。
+
+除了在NIH和武汉病毒学研究所之间建立工作关系之外，该网站现已被删除的内容中还详细介绍了被明确标记为在武汉进行的功能增强性研究。但是，福奇向保罗参议员宣称：“NIH从未而且现在也没有资助过武汉病毒研究所进行功能增强研究。”
+
+[原文链接](https://thenationalpulse.com/exclusive/fauci-cohosted-panel-with-wuhan-gof-adviser/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+[!\[\]()!\[\](https://spark.adobe.com/page/XknERyFTpBfXK/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/XknERyFTpBfXK/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+
++2

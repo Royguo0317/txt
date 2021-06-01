@@ -1,25 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉病毒研究所成员之妻很可能在2019年末就死于中共病毒
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1288259/)
+## 自由女神 新中国联邦人终于来了
+` 加拿大多伦多枫叶农场 羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1288967/)
 
-#### 翻译报道：William
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01105719/qd5-edited.jpg)乘船观自由女神的战友们（图片来源：GNEWS记者站 杰西）
 
-#### 责编：人间四月
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01032627/image-2.png)[图面来源](https://www.businessinsider.com/virologist-who-said-china-released-coronavirus-works-with-steve-bannon-2020-9)
-根据美国每日传讯新闻(DailyCaller)埃莉诺·巴托(Eleanor Bartow)的报道，川普政府时期在美国国务院(State Department)负责调查调查冠状病毒起源的负责人大卫·阿舍 (David Asher) 表示，武汉一名研究冠状病毒的实验室研究员的妻子于 2019 年 12 月过世，原因很可能就是由冠状病毒引起 。大卫表示，该实验室成员的太太因中共病毒过世，这本来应该是该病毒能在人与人之间传播的早期线索，但中共当时对外界表示该病毒不具备人传人的特性，中共直到隔年2020年 1 月中旬才报告改称该病毒可在人际之间传播。
 
-根据《华尔街日报》报道，在第一例冠状病毒病例于12 月 8 日确诊之前，早在2019 年 11 月就有三名武汉实验室研究人员因有类似冠状病毒的症状而住院。该报道表示，在第一例确诊之前，很有可能就有武汉实验室研究人员感染了冠状病毒，这份资料出现在国务院在川普政府任期最后几天发布关于冠状病毒起源的声明中。
+据Gnews记者站6月1日上午9点从纽约庆典活动现场发来的最新消息：在经历了昨天舟车劳顿之累，以及战友初聚的激动之后，新世贸中心酒店一夜的安然休憩，让战友们今天再次精神抖擞，整装待发。
 
-大卫说，相较一般流感，实验室研究人员应该更容易感染冠状病毒病毒。大卫质疑到底有多少 30 到 40 多岁的青壮年会因为一般流感而病得如此严重，以至于必须住院？他说有人告诉他，实验室工作人员几乎都会注射一般流感的疫苗。大卫认为这几名研究员负责冠状病毒RaTG13相关的增强致病性实验，又有冠状病毒感染的症状，这两件事并不是巧合。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01110353/qd2-edited.jpg)战友们的水果早餐（GNEWS记者站 星空Amber）
 
-根据国务院 1 月份的声明，中共已阻止任何媒体采访之前生病的武汉实验时研究人员。并且，武汉实验室研究人员负责研究类似于 SARS-CoV-2 的病毒，中共也已阻止任何在武汉实验室进行的访问以及提供相关研究的记录。一位国务院高级官员告诉《华盛顿邮报》，拜登政府对该部门 1 月 15 日在川普政府期间发表的声明中的信息没有异议，并且拜登政府正在专注调查实验室泄漏而非其他的病毒来源。
 
-[原文出处](https://dailycaller.com/2021/05/28/冠狀病毒-david-asher-mike-pompeo-world-health-organization/)
+初夏阳光遍洒的曼哈顿，轻浪渐欢的哈德逊河，处处飘扬着与蓝天同色，与日月齐辉的新中国联邦信仰之星旗帜，战友们欣喜难掩的心歌笑语曲和着自由的微风，涟漪洋溢在明朗无际的幸福里。
 
-#### 译评:
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01110509/qd4-edited.jpg)哈德逊河畔信仰之星旗（GNEWS记者站 杰西）
 
-目前相关大小媒体都看到病毒来自中共武汉实验室以及中共隐藏病毒真相的相关报导，在这样的美国国内舆论运作酝酿下，追究病毒真相的民意将持续高涨，为之后的任何的对中行动包含军事行动作最好的支撑。接下来，世界各国主流媒体也将会争相报导中共病毒来自中共武汉实验室的相关新闻。等3个月后，美国情报机关调查结果正式公布病毒来自中共武汉实验室，美国就可以根据调查证据、以强大民意为基础地向中共作出任何咎责行动。
 
-0
+此时此刻，战友们满怀期盼，诚意向往的无疑就是一直护佑新中国联邦诞生成长，发展壮大的自由女神，我们的信仰之源，我们的力量之泉，我们的未来之地，我们的希望之芒。新中国联邦人来了，终于来了，我们心中祈祷至今的自由女神！
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01110702/qd6-edited.jpg)即将启航船往圣地：自由女神（GNEWS记者站 杰西）
+
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01111724/qd7-edited.jpg)小王子带队乘LADYMAY2观自由女神（GNEWS记者站 星空Amber）
+
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01112852/qd10-edited.jpg)首批待等待LADYMAYII的战友们（GNEWS记者站 星空Amber）
+
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01114213/qd6-1-edited.jpg)战友船前展示战装（GNEWS记者站 星空Amber）
+
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01114349/qd2-1-edited.jpg)我准备好了（GNEWS记者站 星空Amber）
+
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01114507/qd4-1-edited.jpg)ME TOO 难掩的喜悦（GNEWS记者站 星空Amber）
+
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01115523/qd7-1.jpg)出发前的交谈 准备好了吗（GNEWS记者站 AN）
+
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01121416/qd10-1-edited.jpg)耐心等待出发的战友们（GNEWS记者站 星空Amber）
+
+
+以上是来自GNEWS记者站羟氯喹64的编写报道。
+
++4

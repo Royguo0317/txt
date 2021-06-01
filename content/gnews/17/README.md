@@ -1,73 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内404】这个时代不应该有渎神罪
-` 公民之聲` [轉載自GNews](https://gnews.org/zh-hans/1288266/)
+## 重磅：科学家战友和欧洲合作 提供实验室制作病毒录像
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1289089/)
 
-*（以下内容由发布者个人引用自互联网，以供读者自行品读思考，其中观点不代表G-News平台意见。）*
+**摘要：2021年5月26日盖特视频中，郭先生说被救出来的科学家战友和欧洲情报部门合作，提供解放军实验室制作病毒的所有视频资料和一些官方文件；他说根据绝对准确的情报，共产党的高官没有一人打了疫苗，而且怀疑美国高官也没有打；共产党在经济上的一切动作都是配合着病毒的，对印度释放病毒是有步骤，有计划的，要战略性地控制亚洲。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01113424/Miles_2021-05-26_g1.srt.txt)
+**重磅：科学家战友和欧洲合作 提供实验室制作病毒录像
+Bombshell: Scientist Surrenders Videos of PLA Labs Making Virus**
 
-作者/发布时间：赤评/2021年5月28日
+今天上午的会对我们来讲是非常非常重要的，是关于“以毒灭共”很关键的一部分。就是我们救出的战友，其中一个的家人又来联系，要到欧洲去跟欧洲的情报部门合作，再提供更多[病毒]的证据。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01033240/546sayi590djkgjo90f534rgdsg.jpg)
+This morning’s meeting is very, very important to us. It is a critical part of taking down the CCP with the truth of the virus. Of the fellow fighters we rescued, the family of one of them made contact again. They were going to Europe to cooperate with European intelligence agencies and provide more evidence of the virus.
 
-闭关写本子二十多天，交稿后，恍如隔世。许多新词涌现，失温、躺平……，许多死亡惊心动魄：有人跳楼死；有人爬山死（甘肃白银）；有人路过死（大连宝马撞人案）……
+再提供的证据是什么呢？有在实验室还有军方，不是在武汉是在其它的地方，实验整个病毒当时的所有的视频。这个事太大了，太大太大了。还有就是要提供一些官方的文件，官方的文件。所有这些事情都会更大地提升人们对冠状病毒——共产党病毒的认知。
 
-有人死而未得安宁。袁国士之殇惊天地泣鬼神。吃饱不忘种米人。但有人吃得太饱发出不和谐的声音，迅速被法办。人人拍手称快。只是感觉法办得太快，不知道他倒底说了啥。让你吃饱饭你还有意见，到底啥意见？难道喜欢饿着？但因为消毒太快，我们不知道他说了什么胡话。
+What is the additional evidence? They have all the videos from the laboratory and the military, not in Wuhan but in other places, showing the entire experiment with the virus at that time. This matter is huge, it’s too huge! They will also present some official documents, CCP’s official documents. All of these will further raise people’s awareness of the truth of this coronavirus – the CCP virus.
 
-以前叫引蛇出洞，让更多隐藏分子粉墨登场，然后收网，全民声讨，肃清余毒。在这样的讨论中，可以让更多的人知道袁国士怎样养活8亿人，今天怎样继续养活更多人。这叫用事实教育人民，打击敌人。但现在失去了这样一次教育机会。大概是担心负面议论有损英雄烈士形象。担心也是有道理的。但不应该全民噤若寒蝉，不允许有一点不同声音，否则便是渎神。
+这就是为什么福奇，福奇老头，听说有这样的证人和这样的证据的时候马上改口。《华尔街日报》现在也改腔了，也不再帮共产党了。现在也提出这个病毒的来源有问题了，所谓的严肃媒体很多人也都在说这个[病毒来源]有问题了。什么问题呢？就是[病毒]到底是人制造还是来自自然？等等这一系列的事情都说明了在2019年年底的时候，实际上这个病毒已经开始在释放了。但是由于释放的不成功，把自己人也给干灭了。
 
-在我们这个时代，不应该有渎神罪。这绝不是法办的初衷。我相信那些遭法办者，一定是因为恶意造谣。如果只是议论一个人的贡献大小，指出别人也有过贡献，并且讲的都是事实。那就不是侮辱。就我个人而言，听到再多不和谐的声音，都不会降低一寸对袁隆平先生的敬意。
+This is why Fauci, that old Fauci, immediately shifted gears when he heard of such witnesses and such evidence. The Wall Street Journal has now changed its tune and no longer helps the CCP. Now they have begun to say that there is a problem with the origin of this virus. Many people in the mainstream media are also saying that there is a problem with the origin of the virus. What problem is it? Whether the virus was created by humans, or came from nature. A sequence of evidence indicates that the virus had actually begun to be released at the end of 2019. However, the release was unsuccessful. The virus killed their own people.
 
-我们要有这种定力。这种定力来自对科学和人格的信仰。我看到1966年袁老师发表的那篇论文，感受到什么是一个科学家的定力，什么是人格的力量。1966年，正是一片红海洋，一片山呼万岁。袁的论文上来第一句就是：“水稻具有杂种优势现象……”
+另外，我们现在得到绝对准确的情报，共产党的高官没有任何人打了疫苗的。所以这个科学家特别严肃地告诉我说：“文贵，一定告诉所有的战友们，就是千万不要打疫苗。”他说他也不相信美国的高官会打疫苗。他说如果真要打疫苗的话最好在第三方见证下让他们打打试试。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01033312/1rhfhgd3h456rthtrh132h.jpg)
+In addition, we now have obtained absolutely accurate intelligence that none of the high-ranking CCP officials have been vaccinated. So, this scientist told me very seriously, “Miles, you must tell all the fellow fighters not to get a vaccination.” He said that he did not believe that senior officials in the United States were getting a vaccination. He said that if you really want to get a vaccination, it’s best to ask them to try it first under the witness of a third party.
 
-不讲政治优势，不讲制度优势，不讲被什么思想武装的优势……不装逼，不扯淡。全是干货。后来有人很扯蛋。比如这一篇，发表在堂堂《遗传学报》上。
+所以说现在官方、政府让任何人打疫苗的时候，大家应该提出：如果让我打[疫苗]，好，让第三方公证，所有打疫苗的后果你们负责。任何一个妻子、丈夫和孩子，都有责任要求指定你打疫苗的人做出担保和保证，并且他本人必须打。他本人打的时候应该是在第三方的所有的见证下去打。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01033337/2hrt5h6trh5rt6h5tr.jpg)
+So, if an official or the government asks anybody to get a vaccination, people should say, “If you want me to get vaccinated, okay, let’s have a third party to notarize that you will be responsible for all the consequences of the vaccine.” Any wife, husband, and child would be obligated to ask the person who requires you to get vaccinated to provide guarantees and assurance, and the official must also get vaccinated themselves. When they get the vaccination, it should be witnessed by a third party.
 
-如果那个时代不结束，相信最后袁国士也必须这么写，必须这么说。我们庆幸那样一个时代结束。我们庆幸袁隆平没有被那个时代改造。但是，有人不想那个时代结束。那个时代都没能改造袁隆平，现在有人要改造他。在生前接受采访的时候，袁隆平说，三年困难的时候，他亲眼看到有人在他眼前饿死。
+这个消息今天对我来说非常非常震撼。虽然我们讲了一年多了，但来自这样亲身参与共产党病毒[研究]的科学家讲出这样的话来，对我来说还是非常大的震撼的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01033400/3htrh465trh465tr4h83jyj.jpg)
+This news today is very, very mind-blowing to me. Although we have been talking about the virus for more than a year, it is still very shocking for me to hear such words from a scientist who personally participated in the research of the CCP virus.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01033432/4hfgh4654ht65r1231iu33sd.jpg)
+我不希望有一天证明我们爆料革命说的打疫苗是危险的，吃羟氯喹不管用是假的，还有共产党[制造了]病毒是不对的，等等这些都是我不希望发生的。在内心里希望我们说的是错的，因为人类可以不用那么危险的面对人造的冠状病毒，这是非常非常重要的。可是呢，这不是我们想象的，这个世界真的是太多疯狂的人物了。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01033458/5grg3reg65rhyjuykiul55.jpg)
+I actually wished that the Whistleblower Movement would be proven wrong one day. We have said that vaccines are dangerous, that hydroxychloroquine works and the CCP has created the virus, and so on. These are things that I didn’t hope to happen. In my heart, I hoped that what we said was wrong, then humans would not have to risk facing the man-made coronavirus. It is very, very important. However, things are not as what we hoped. There are really too many crazy people in this world.
 
-某球时报报道这段话，就变成了下面这个说法：
+这位战友明确地说：接下来共产党还有更多的病毒给世界准备着呢。这就完全和科学家，还有《路德访谈》，还有博士军团讲的话完全是一样的。这让7哥很担心。今天中午吃饺子，本来今天我说我不吃饭了，我这一听这话我就想吃，结果吃了很多饺子。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01033531/6htrkpre5647895ht4r6hj4r65j.jpg)
+This fellow fighter made it clear that the CCP had prepared more viruses for the world. This is exactly the same as what the scientist (Dr. Li-Meng Yan), Lude Media, and the PhD Team said. This makes me, your Brother Miles very worried. I ate dumplings at noon today. Originally, I said that I would not eat anymore. But when I heard this, I wanted to eat, and ended up with eating a lot of them.
 
-是袁隆平说谎，还是媒体说谎？这算不算侮辱英雄烈士？这不但是侮辱英雄烈士，也是侮辱大众的智商和记忆。某些媒体已成谎言集散地。是什么让他们丧失定力？丧失诚实和良知？怎么纪念袁隆平？袁隆平首先是一个科学家。英雄烈士不容侮辱，那么，科学家就可以侮辱吗？
+同时在开这个会的时候，他还告诉我另外一个信息：共产党在市场经济、股票，包括对外的汇率控制上一切都是配合着病毒的。而且他深信印度的病毒是有步骤，有计划的，报复印度和中共在边界上的这场小型的战争。同时也是战略性的绝对控制亚洲，不允许任何在亚洲像印度、日本对它们有任何的挑战。这就是共产党真把自己当成世界的老大了。
 
-一个科学家，用科学成果报国，是他的本份。终其一生做出杰出成就和贡献的科学家值得尊重。终其一生没有做出杰出成就和贡献的科学家也值得尊重。因为，他有可能在铺路。他有可能成为巨人的肩膀。
+At the same time, during the meeting, he also told me another piece of information. The CCP is coordinating all its operations of the market economy, stocks, and foreign exchange rate control around the virus. And he was convinced that the virus outbreak in India is a step-by-step planned action by the CCP to retaliate for the small-scale border war between India and the CCP. At the same time, it is also for absolute strategic control of Asia. The CCP will not allow any country in Asia like India and Japan to have the ability to challenge it. The CCP really regards itself as the world’s boss.
 
-哪怕他没能铺路，没能成为巨人的肩膀，甚至走了弯路，走了歧路，走向失败。但失败乃成功之母。就算他不是成功之母，他的失败没有孕育出他人的成功之花……
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60aedebe744cbc431364a7e2](https://gtv.org/getter/60aedebe744cbc431364a7e2) (00:31-4:48)
+鸣谢：[1] 感谢 盘古小蚂蚁、Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1275140/](https://gnews.org/zh-hans/1275140/)
+[2] 感谢 YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于 [https://gnews.org/1277812/](https://gnews.org/1277812/)
 
-我们也敬仰他为科学奉献一生的精神。我们没权利嘲笑侮辱一个失败者。科学研究是有天份的，天份有大有小。但研究者的精神和人格一样伟大。我们不能说，你有天份做出重大发明就是爱国的。他没有天份拿不出成果就是不爱国。这样下去就会搞死人。
+* * *
 
-再说，科学的问题是允许讨论的，而且是鼓励讨论的，否则科学就不会发展。爱因斯坦的相对论，霍金的黑洞理论，都可以讨论。人家并不因为有不同观点，就说是侮辱了英雄烈士。为什么到袁隆平这里就不可以讨论呢？当然，你一定要说袁隆平的贡献比爱因斯坦大，比霍金大，所以不容议论。
-
-……嗯，你对。
-
-袁隆平的确是英雄，是否烈士不论。但我担心的是，那种刻意掩盖袁隆平科学家身份的做法，将阻碍对科学问题的讨论。
-
-彭湃新闻报道，有同事回忆：有次看到网上有文章对袁隆平不恭敬，把文章给他看，担心他不开心。但他看后笑着说，“他那个人（指文章作者）就那样”。在之后的一次评奖中，袁隆平还是把奖给了那篇文章的作者。对这样的袁隆平，我们充满敬意。
-
-再推而论之。英雄烈士不可以侮辱。科学家不可以侮辱。那么，普通人就可以侮辱吗？如果那些议论是人身攻击，侮辱人格，歪曲事实，肆意抹黑……那么，哪怕是针对一个普通人，也是不允许的，被攻击者本人和家属均有权起诉。
-
-我们这个时代，缺乏人格信仰。无视人格，追逐神格，迷失自我。多少人在权力、金钱面前放弃尊严，放弃良知。皆因他们知道人格一钱不值。但没有人格，便没有做人的底线。这是社会失序的开始。
-
-国民无人格，又何以维护国格？只有先维护好普通人的尊严，只有真正建立起人格信仰，才能从根本上维护英雄烈士的尊严。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01033603/7dfg4h68tr8k3ul6asdsaf.jpg)
-
-袁隆平书房，挂着他的一首自题小诗：“山外青山楼外楼，自然探秘永无休。成功易使人陶醉，莫把百尺当尽头”他从未自我满足过。他从未把自己当神。他是同事眼里幽默风趣的“90后梗王”。
-
-***新闻线索/采集：Peter Wong***
-
-***编辑/校对：Peter Wong***
-
-***排版发布：文柯Miles***
+**字幕：【XO小粉红】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%25E7%258E%25AB%25E7%2591%25B0%25E5%259B%25AD%25E5%25B0%258F%25E9%2598%259F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

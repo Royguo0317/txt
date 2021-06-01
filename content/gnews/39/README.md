@@ -1,15 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒大流行时间线—— 2020年1月8日，已经有多个国家和地区出现来自武汉的疑似或确诊病例
-` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1287804/)
+## 百元先生要钱记
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1287251/)
 
-作者：文永
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01010622/111025672_hi060208732_afp-1.jpg)
-截至2020年1月8日，已经在包括韩国、泰国、香港在内的多个国家和地区，出现来自武汉的疑似或确诊病例。
+#### 文字编辑：翼族
 
-搜狐网在[1月4日报道](https://www.sohu.com/a/364712426_115479)，香港疑似病例已经达到7名，均有武汉旅行史。而香港府对此已经启动严重应变级别。
+#### 作者：贵水
 
-根据[维基百科显示](https://en.wikipedia.org/wiki/Timeline_of_the_COVID-19_pandemic_in_January_2020)，1月8日，韩国和泰国均出现第一例来自武汉的疑似病例。
+#### 绘图：min泽尔 
 
-0
+#### 图片编辑：文康
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31211604/21-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31211716/22-9.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31211657/23-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31211722/24-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31211736/25-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31211743/26-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31211802/27-2.png)
+从关注、跟随爆料革命到参与其中，一路真的是五味杂陈。只是身在墙内，我很难有什么实质性的行为。已近中年的我外号100，因口袋长期不超过100块得此号。一天，对掌管财政权的老婆要一万美刀投资G系列，还没等我把准备了几天的话说出来，老婆同意了!问其缘何答应的如此爽快?老婆撂下一句，你每天半夜对着手机哭哭笑笑已经一年多了，看的出来你是真的！我像傻瓜一样站着许久……真想给她磕一个!中国人不善于表达，现在我想对她说：“谢谢你，老婆!”
+
+郭先生不但给了我们真相、给了我们希望，还要给我们体面的生活，感恩郭先生，感谢爆料革命，最后感谢全球为灭共付出的战友，不灭不休!为了此生、余生、后代!
+
+（文章内容仅代表作者观点）
+
++2

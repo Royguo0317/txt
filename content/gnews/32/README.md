@@ -1,15 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国人民是中共政权的“最大受害者”
-` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1288179/)
+## 中共为何对“躺平”如此惧怕？
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1288975/)
 
-- 中文简介： 天空新闻主持人和嘉宾：事实上，中共政权的最大受害者是中共国人—如果他们说任何反对政府的话，就会被关进监狱。澳大利亚人明白这里大多数中共国人后裔与中共政权完全没有关係，大部分澳大利亚人能够区分政权和个人。
-- 英文标题：Chinese people are the ‘biggest victim’ of the Chinese communist regime.
-- 英文简介：“In fact the biggest victims of the Chinese Communist regime are Chinese people – they’re the ones who get locked up if they say anything against their government. Australians know very well that most people of Chinese descent who are here have got absolutely nothing to do with the Chinese communist regime, most Australians can distinguish between the regime and the individua,” Sky News host and guests said.
-- 原文链接：[https://mega.nz/file/jE40iBQK#vAF9tDgHN2VS3AuKskl-wvOXBftfYKeGIRwjeGQaEi8](https://mega.nz/file/jE40iBQK#vAF9tDgHN2VS3AuKskl-wvOXBftfYKeGIRwjeGQaEi8)
+作者：韩国喜韩农场 白素贞
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01095248/COVER.jpg)
 
+图片来自网络
 
+近日，中共国这个“拥核大国”居然在惧怕两个字—“躺平”！难道说“躺平”的杀伤力超过“核武器”？那么，令中共如此惧怕的“躺平”到底意味着什么呢？
 
-0
+“两年多没有工作了，都在玩，没觉得哪里不对，压力主要来自身边人互相对比后寻找的定位和长辈的传统观念，它们会无时无刻刺激着你的神经。当你看新闻热搜每次也都是明星恋爱、怀孕等‘生育周边’之类，就像某些‘看不见的生物’在制造一种思维强压给你，人大可不必如此。我可以像第欧根尼只睡在自己的木桶里晒太阳，也可以像赫拉克利特住在山洞里思考‘逻各斯’，既然这片土地从没真实存在高举人主体性的思潮，那我可以自己制造给自己，躺平就是我的智者运动，只有躺平，人才是万物的尺度。”——这是最近在中共国百度贴吧广泛流传的帖子内容，题为《躺平既是正义》。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01095302/Picture2.png)
+
+就是这么一个作者用躺平描述生存状态的帖子，引来无数年轻人的崇尚，“躺平”迅速流行网络，成为热议焦点的同时，却招来了中共各大官方新闻媒体的轮番批判。
+
+南方日报的《躺平’可耻，哪来的正义感？》，光明日报的《引导‘躺平族’珍惜韶华奋发有为》，新华社的《“新华社谈‘躺平族’：‘未富先躺’须警惕！》，新浪财经《躺平就是毒鸡汤，不仅不正义，而且可耻》，更为惊人的是湖北经视直播《“认命”可以，“躺平”不行》。真是口诛笔伐，中共党媒对着“躺平”倡导者群起围殴。
+
+从这些批判中可以看到中共的恐惧。笔者不禁要说，中共恐惧的是大量失业者以“躺平发声”的方式一旦形成反政府思潮，在面临病毒真相揭露在即的压力下，可谓内外交困，一旦民众造反，势不可挡。
+
+正如躺平族所言：“不买房，不买车，不结婚，不生娃，不消费，维持生存最低标准，拒绝成为他人赚钱的机器和被剥削的奴隶。”可以说“躺平”族不反对，不配合，有明确的主观思想，且付诸于行动！这是中共闻声变色之所在。
+
+如果说今天的世界各国对“中共病毒”真相的追查追责，是中共的“外忧”，那“躺平”绝对是中共的“内患”。年轻人思想上意识到了中共体制的压迫剥削，主动选择“躺平”。对于“2020年8月24日，习近平所谓的西方发达国家针对中共国的封锁提出：2035年的远景目标‘重点通畅国内大循环为主’”的讲话来看，“躺平”意味着无法实现“中共梦”。令中共恐惧又无法回避的现实是：“躺平”正在加速中共经济的“血”崩！
+
+“躺平”不伤害、不损害、不侵犯任何人的利益，是平和的自主生存的一种选择，不违反道德何来的可耻？如果说核武器爆炸是可见的暴力，那“躺平”就是加速中共经济血崩的非暴力革命。中共十分清楚，外有爆料革命，内加“躺平”革命，“外忧”加“内患”势必加速中共的灭亡。
+
+（文章仅代表作者本人观点，与GNEWS无关）
+
+参考链接：
+[1].[zh.wikipedia.org/wiki/躺平](https://zh.wikipedia.org/wiki/躺平)
+[2].[躺平主义危险吗](http://躺平主义危险吗)
+
+*责任编辑：华盛顿DC农场 光之子(沙加)*
+*校对：日本东京方舟农场 老蚂蚁666*
+*发布：Hong*
+
++2
