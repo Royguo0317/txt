@@ -1,27 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】中欧协议破裂 红色基因地图和藏宝图会被挖掘出来吗？
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1287419/)
+## 【墙内热搜】“童心向党”，可悲的六一
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1287468/)
 
-泰勒德登2021 年 5 月 31 日发表文章：习近平强硬外交“适得其反”后，中国争先恐后地挽救欧盟投资协议
+作者：纽约香草山写作组  木白
 
-在一个多星期前，中欧投资协议被欧洲议会暂停，北京的情绪被广泛报道为集体“震惊”，因为在去年 12 月才完成的交易之前进行了长达数年的马拉松式谈判。北京目前正在采取外交攻势以挽救该协议，最近举行了一系列高层会议，旨在维持从波兰到匈牙利、塞尔维亚、法国到爱尔兰的全面投资协议 (CAI) 的有效性。日经新闻说，就像在别处观察到的那样，“中东欧大部分地区对中国的热情已经降温，由于人权问题和投资停滞将幻灭的合作伙伴推向美国，北京感到震惊” （小象评：不是震惊，是惊恐和愤怒，长达数年有七年了。）
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-上周，中国外交部长王毅认为，达成投资协议具有里程碑意义的七年不应与中国认为的“独立问题”挂钩。 王在周二的一次远程电话会议上对慕尼黑安全会议说： “投资协议不是单方面的青睐；与新疆有关的问题关系到中国的主权与安全。” “欧盟一些人试图将不同性质的问题联系起来并将贸易问题转化为政治问题是不可接受的，而且不会有任何结果，”他补充说。
 
-欧洲是中共的深水利益区，文贵先生指出欧洲协议的冻结，意义重大，在政治层面，它意味着中欧关系的破裂，将中国与海外的关系彻底打回到1989年以前。中共为何要和欧洲进行如此漫长的合作谈判呢？因为中共的利益家族，他们的藏宝图，私生子基因地图，大部分都在欧洲。着说明中欧协议对他们来说是多么的重要。
 
-参考链接：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31221903/%E7%AB%A5%E5%BF%83%E5%90%91%E5%85%9A%EF%BC%8C%E5%8F%AF%E6%82%B2%E7%9A%84%E5%85%AD%E4%B8%80-2.jpg)
 
-[https://www.zerohedge.com/economics/china-scrambles-save-eu-investment-deal-after-xis-hardline-diplomacy-backfires](https://www.zerohedge.com/economics/china-scrambles-save-eu-investment-deal-after-xis-hardline-diplomacy-backfires)
+六一儿童节本是孩子们最快乐的节日。可悲的是在墙国内的学校开展轰轰烈烈的“童心向党”的文艺演出。甚至是幼儿园的小朋友都穿着红卫兵的衣服，歌唱中共。
 
-图片来源：[https://www.scmp.com/](https://www.scmp.com/)
+从亿万学校的舞台，到所有人的朋友圈，再到中共媒体铺天盖地的宣传。六一儿童节，成为了中共对人民赤裸裸的洗脑的政治宣传。
 
-整理撰稿：蓝精灵
+这是中国人的悲哀。看看那些无邪的儿童，从小却被“红毒”洗脑，他们能成长为精神独立，身心健康的正常人吗？
 
-校对发布：Penny
+“韭菜”“五毛”，可悲的中国人成为奴隶，从他们出生起就被圈养，纯真的童年早被玷污。不推翻中共，这个民族何来未来？
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31221854/%E7%AB%A5%E5%BF%83%E5%90%91%E5%85%9A%EF%BC%8C%E5%8F%AF%E6%82%B2%E7%9A%84%E5%85%AD%E4%B8%80-1.jpg)
+
+校对/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

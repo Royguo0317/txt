@@ -1,37 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国自诩利用电子游戏成瘾进行共产主义灌输
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1287530/)
+## 【一线新闻】那种感动叫战友之情——肯尼迪机场迎接战友的心情
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1287497/)
 
-翻译：康州盘古农场 – KY
+前方记者：纽约香草山记者站 Kathy（文艺）
 
-校对：康州盘古农场 – Layka
+文字编写：纽约香草山农场 写作4组 Delilah小胖
 
-编辑：康州盘古农场 – 明子
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191310/s2-7.jpg)
 
-发布：康州盘古农场 – 彩虹 Rainbow
 
-**据《Breitbart》作者：加布里埃尔·雷耶斯(GABRIELLE REYES) ，2021年5月28日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31223432/woy.png)
-中共官方喉舌《环球时报》周四称，中国青年人已经 “沉迷 ”于通过中共国政府推广的智能手机应用游戏了解中国共产党的历史。
 
-一位名叫周颖的22岁中国大学毕业生本周告诉《环球时报》，她“从未想过自己有一天会沉迷于”通过政府赞助的移动应用程序来了解中共的历史，但她“享受探索的过程”，该应用程序采用视频游戏来吸引其用户。
 
-该游戏挑战玩家“在游戏中展示的一幅1910年代的上海画作中找到五个对象，包括卡尔-马克思的画像和1919年五四运动的海报。每当周颖成功找到一件物品，游戏就会向她展示与该物品相关的人物或事件的简要介绍。” 据《环球时报》报道。
 
-1919年的五四运动开始于中国的国家首都北京，是由学生领导的对《凡尔赛条约》某些条款的抗议，该条约确立了结束第一次世界大战的和平条款，将中国的山东省移交给了日本。来自北京各地的约3000名学生抗议者聚集在北京天安门广场，谴责中国政府向中国的长期对手日本让出领土的决定。示威活动最终演变成暴力事件，一些学生袭击了一名中国政府官员，并放火烧了另一名官员的家。北京的抗议活动在中国各地引发了全国性的动乱，1919年天安门广场示威的两位领导人-陈独秀和李大钊后来在1921年7月帮助创建了中国共产党。
+下面的视频，香草山农场的文艺战友，在纽约肯尼迪国际机场外拍摄的接机环境画面。今天，2021年5月31日星期一，参加新中国联邦周年庆典的战友们将会集中抵达纽约。请您点击视频画面，了解现在纽约肯尼迪机场的情况，还可以感受一下咱们接机战友的心情。
+*文艺战友2021年3月31日下午在美国纽约肯尼迪国际机场接战友（1）*
+引用来源：文艺战友的现场视频
 
-中共国将于2021年7月1日纪念中国共产党成立100周年。中国政府官员鼓励国家的年轻一代参与纪念活动，通过互动事件和活动了解更多关于共产党的历史，例如《环球时报》周四推广的视频游戏。
+编辑/校对/发稿：Delilah小胖
 
-周颖玩的这款从5月发布测试版后的游戏被冠以“上海的(革命性)火花”的名号，吸引了许多年轻人。据该报报道，这是最近几十个手机游戏之一，据说这些游戏以介绍（中国共产）党的历史和发展为中心，以Z世代(1997年后出生的)为目标。
+**更多资讯，更多关注**
 
-《环球时报》指出：”中共党史学习手机游戏的出现，以及包括脱口秀和棋牌游戏在内的其他一些形式，迎合了中国青年人对学习（中国共产党）党史的热情，今年是中国共产党成立100周年，这是一个重要的里程碑。”
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-原文链接：[https://www.breitbart.com/asia/2021/05/28/china-boasts-using-video-game-addiction-communist-indoctrination/](https://www.breitbart.com/asia/2021/05/28/china-boasts-using-video-game-addiction-communist-indoctrination/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191415/M5-2.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
+
+
+
+
 
 0
