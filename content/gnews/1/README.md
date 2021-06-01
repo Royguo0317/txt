@@ -1,33 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国儿童成长中所面临的风险
-` XINYUAN` [轉載自GNews](https://gnews.org/zh-hans/1286974/)
+## 参议员泰德·克鲁兹：武汉实验室泄漏事件需要的关键证据
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1287087/)
 
-撰稿：法国巴黎农场 – XINYUAN
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31193141/%E4%B8%89%E8%83%8E.jpeg)
-中国儿童在从小到大的成长过程中，可能比国外的儿童遭遇更多不该承受的压力与问题，下面我们来看一下中国孩子在成长中所要面对的问题。
+参议员泰德·克鲁兹： 武汉实验室泄漏事件需要的关键证据：“（[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)）应该已从该实验室的工作人员那里获取了血液样本。” “这就是他们没有公开的证据。” “如果，事实上，血液样本显示…实验室里的人感染了这种病毒”
 
-众所周知，长久以来，大量的中国父母从澳洲或加拿大等国购买奶粉，这甚至已经形成了一条产业链，为什么会出现这种现象？一定是某个环节出了问题。是的，中国的食品出了问题，相应的奶粉一定也会出问题。因此我们经常会在报纸上看到很多毒奶粉导致的各种问题，比如让人触目惊心的大头娃娃事件，但这些只是我们所能看到的冰山一角。其实还有更多被隐藏起来的，我们看不到的隐患。
 
-除了毒奶粉事件，我们还会看到毒疫苗、假疫苗及过期疫苗等各种各样与疫苗相关的事件频发。这些事件已经导致了很多婴幼儿的伤残瘫痪，甚至死亡事件。
 
-除此之外，当我们的孩子们生病的时候，虽然绝大部分只是发烧普通的感冒发烧。却要吃抗生素或者输液。在这个过程中，医院是赚足了银子。可孩子们的身体却雪上加霜。为未来埋下了不可知的隐患。
+> 1/x Critical evidence needed on Wuhan lab leak: “[The CCP] would have blood samples from the workers in that lab.”
+> 
+> “And that’s the evidence that they haven’t made public.”
+> 
+> “If, in fact, the blood samples show that a high prevalence of….”[https://t.co/PUmCeprS4s](https://t.co/PUmCeprS4s)
+> — Ted Cruz (@tedcruz) [May 31, 2021](https://twitter.com/tedcruz/status/1399207163243995140?ref_src=twsrc%5Etfw)
 
-当我们的孩子们到了进入幼儿园的年龄，入园后，还要警惕被扎针的风险。目前从媒体的报道来看，山东，深圳，呼市等城市都都出现过这种情况，而且不仅局限于红黄蓝幼儿园。在普通幼儿园也时有发生，表面看来，似乎这只是少数幼儿园出现的怪象，但也足以让每个家长胆寒。更让人细思极恐的是，这还与性侵幼儿挂上了钩。
 
-终于，当家长们在胆战心惊中熬过了毒奶粉，毒疫苗，和幼儿园阶段，而且也没有被猖獗的人贩子拐走。没想到进入小学后，孩子们却步入了另一个角逐场。一条通往大学的漫长而又残酷的竞争之旅。在这个角斗场上，学生们被繁重的课业压的抬不起头来。老师与家长们和学生们也用排名互相折磨着。
 
-就这样，一路熬到了高考，上了大学。按理说可以松一口气了，但是并没有像想象的那样可以轻松了。目前的大学毕业基本上等于失业的代名词，所以很多人不得不选择继续一穷二白的读研究生。而选择去工作的人中，大部分却走上了贷款买房的艰难历程。有些甚至耗尽了祖产。这其中的艰辛真是一言难尽。很多人就是在这各种重压之下变了味。活的人不像人，鬼不像鬼。
+…如果实验室里的人接触过这种病毒，这就是一个确凿的证据，证明这种病毒在实验室里传播。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 也会有他们第一次被抽取时的样本，也就是他们患病时的样本。毫无疑问……”
 
-写到这里，我愈发明白，为什么这么多人选择不结婚，不生育。不是因为他们不爱孩子，也不是因为他不想要孩子，而是因为他们要不起也不敢要，谁敢让自己的孩子生活在这样的环境中，那得需要多大的勇气？在这处处是陷阱，吃穿用的无处不是毒的环境中，生存真的是需要勇气的。把孩子生在这样的环境中难道不是一种罪过吗？可这又是谁之过呢？可耻的是中共国最近还在要求人们为了国家而多生育，完全无视人的自由意志和尊严。
 
-对有钱人来说，孩子不敢喝国内奶粉，可以买国外的奶粉，但对于中下层阶级的人来说，那就真的无从选择，只能认命了。记得有一年夏天，我在一个农村的街边，看到一堆玩耍的孩子，有的手里举着黄色的冰棍，颜色出奇的鲜艳。有的拿着一瓶汽水，于是我到小店买了一瓶汽水和一个冰棍儿。但我喝那瓶汽水的时候，我感觉那完全是用香精勾兑出来的味道，充满了一种化学品的味道。而冰棒也有一种不可思议的甜。吃完喝完之后，感觉吃进去的都是一堆化学制剂。孩子们却浑然不知，咀嚼的津津有味。真是让我看得无可奈何。
 
-前两天看到一个视频里有首歌，名叫《我为祖国生二胎》，听着这首歌，在我脑补着几个画面，一个老巫婆和她油光满面的老情人坐在轿子上，对几个贫病交加，瘦骨嶙峋，满脸是汗的轿夫说：你们快干不动了，替我生几个娃娃继续抬吧…。
+> 2/x “…people in that lab have been exposed to this virus, that’s pretty definitive proof that this coursed through that lab. And they would also have the samples from the time that they were first drawn, which was the time when they had those illnesses. There’s no question….”
+> — Ted Cruz (@tedcruz) [May 31, 2021](https://twitter.com/tedcruz/status/1399207619177418752?ref_src=twsrc%5Etfw)
 
-作为轿夫的我们听到这无理要求，心里确实应该好好掂量掂量了。
 
-（本文仅代表个人观点）
+
+“…毫无疑问，当他们在实验室里爆发疾病时，他们会在实验室里做血常规取样。这只是在那种级别的实验室里的正常控制流程。所以他们会得到这些信息。”
+
+
+
+> 3/x “…no question that when they had an outbreak of an illness in that lab that they would have done routine blood sampling in that lab. That’s just normal controls in a lab of that quality. So they would have that information.”
+> — Ted Cruz (@tedcruz) [May 31, 2021](https://twitter.com/tedcruz/status/1399207927907508228?ref_src=twsrc%5Etfw)
+
+
 
 0

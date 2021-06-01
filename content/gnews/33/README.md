@@ -1,33 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【病毒专题】众议院共和党人要求南希 · 佩洛西调查中共病毒真相
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1285370/)
+## 因在广州发现印度变种病毒，中共国下达自今年一月来的首次封锁令
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1286479/)
 
-作者：休斯顿星光农场 写作部 FY（火星）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
-5 月 28 日，众议院共和党议员史蒂夫·斯卡利斯和他的200多名共和党同僚给南希·佩洛西（Nancy Pelosi）致信，呼吁民主党委员会调查中共在造成病毒大流行中的共谋行为。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31064818/photo_2021-05-31_17-16-26-1.jpg)
-*图片来源：DailyMail*
+作者：文复
 
-据每日邮报报道，在给民主党众议院议长的一封信中，共和党人说，有“越来越多的证据表明该病毒始于中（共）国的一个实验室”，而中国共产党“掩盖了它”。
+印度的第二波冠状病毒疫情最终在 5 月份达到顶峰，因为 7 天平均值在整个月内稳步下降，而死亡人数直到下半个月也仍然居高不下。 但比数字更重要的是，在印度首次发现的变异 COVID 毒株（一种标记为 B.1.617 的毒株）在全球传播时引起了恐慌。
 
-信中写道：“如果是这样，中共要对近60万美国人和全世界数百万人的死亡负责。这些关于中共责任的问题并不是转移视线的行为。”
+现在，中共国正在对最近由印度变种引起的一系列病例作出反应，以进一步收紧中共国与印度及其共同邻国之间的边界。在珠穆朗玛峰的顶峰实施新边界后，表面上是为了阻止来自尼泊尔方向的登山者，在那里受印度溢出病例激增的影响而越境，中共国城市广州已实施部分封锁，因为发现了群发病例。
 
-信中补充说：“恰恰相反，每一个失去亲人的美国家庭都应该得到关于这一可怕病毒来源的答案。”
+自从中共国实施与COVID相关的最后一次部分封锁以来已经过去了几个月了，上次封锁是在一月份期间在北京附近的河北省及其周边地区爆发病毒的。
 
-据报道，共和党人提高了对调查的要求，因为众议院议员将提出两项与COVID-19有关的新法案，一项是允许受害者家属起诉中（共）国，另一项是成立一个类似于9/11事件的委员会来调查该大流行病的起源。
+离开该市（广州也是省会城市，人口超过 1500万）的人必须在出行前 72 小时内检测出病毒呈阴性。截至当地时间周一 11：40 ，全球最繁忙的航空旅行枢纽之一广州白云国际机场已经取消了约 520 个航班。
 
-信息来源：
+早些时候，当局宣布对5月21日发现首例感染者的荔湾区多条街道居民实行居家令。省卫健委副主任陈斌（音）向新华社证实，在广州当地所有自 5 月 21 日发现的传播病例与 B.1.617 印度变种有关。
 
-[https://www.dailymail.co.uk/news/article-9630049/More-200-House-Republicans-demand-Pelosi-FINALLY-investigate-Chinas-complicity-pandemic.html](https://www.dailymail.co.uk/news/article-9630049/More-200-House-Republicans-demand-Pelosi-FINALLY-investigate-Chinas-complicity-pandemic.html)
+自2019年12月武汉爆发疫情以来，中共国在很大程度上已遏制了COVID-19的传播。尽管病例（官方的）减慢了蔓延速度，随着对这种病毒起源的审查越来越加强，更多的证据显示病毒来自武汉的一个实验室。与此同时，遗传学家发现更多证据表明该疫苗可能是人造的，这是福奇博士和其他人所倡导的“功能获得”研究的结果。（福奇博士甚至多年来还辩称大流行病的潜在益处超过了它对社会造成的风险。）
 
-编辑：文顺    校对：Helen   发稿：文柳
+文章来源：[zerohedge](https://www.zerohedge.com/covid-19/china-orders-first-lockdown-january-indian-mutant-discovered-guangzhou?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+校对发稿：士多啤梨
 
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24064634/Screenshot_2021-03-25_230524-16.jpg)
 
 
 0
