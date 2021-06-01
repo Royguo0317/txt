@@ -1,48 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “权力集中能干大事”——共产党骗人的政治谎言！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1286235/)
+## 福克斯报道英国情报机构认可病毒实验室泄露
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1287338/)
 
-**摘要：在2021年5月24日的盖特视频中，郭先生痛批中共所谓“集中权力才能干大事”的政治谎言，指出正是这种谎言导致了21位优秀草根运动员的死亡，这个数字比这次巴以战争中死亡的以色列人还多。这21位运动员的死亡表明中共没有资格举办冬奥会。中共还把这个只有猪才相信的逻辑运用到了经济领域，结果是全国的资源和财富集中在不到200个家族的手中，他们控制的银行的崩塌最终会带来中国经济的崩塌。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31202743/Miles_2021-05-24-g1.srt.txt)
-**“权力集中能干大事”——共产党骗人的政治谎言！**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**“To Do Great Things with the Concentration of Power” – A CCP’s Political Lie! **
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31212950/L-7.jpg)
+迄今为止，美国情报机构仍然没有作出中共病毒来自实验室的结论，拜登在上周推卸责任的声明中抱怨，“截至今天，美国情报机构已经‘结合了两种可能的情况’，但还没有就这个问题得出最终结论，他们目前的立场是，虽然情报机构中有两个因素倾向于自然说，一个因素更倾向于实验室说……”【1】美国情报机构是中共渗透的重灾区，时至今日给出这样的结果不足为奇，令人难以想象的是拜登如此过度依赖情报机构，且下令停止了蓬佩奥主导的溯源调查，这就非常令人不解了！
 
-权力集中能干大事”——这种骗人的政治谎言！[共产党]告诉中国人：“权力集中能干大事”。权力集中也能像希特勒一样，杀死更多的人，是吧？是能干大事啊，也能杀死更多的人呐，对不对？而且官僚、无知、低效工作。
+《福克斯新闻》报道，“英国情报部门重新评估了中共病毒实验室泄漏理论，现在称其‘可行’”，指出，美国和英国呼吁世卫组织更深入地调查中共病毒的可能来源。【2】
 
-“To do great things with the concentration of power” – a deceptive political lie! The CCP told the Chinese: “We can do great things with centralized power.” The concentration of power can also kill more people like what Hitler did, right? Indeed, through it you may do great things, but you can also kill more people, right? Also it is featured with bureaucratic, ignorant, and inefficient work.
+全文如下：
 
-运动员，一个世界级的马拉松，能让运动员冻死21个人。 以色列，以巴战争，发了几千发导弹才死了12个以色列人。共产党能杀21个最优秀的运动员，最优秀的人。这就叫“集中权力干大事，集中资源干大事”。资源都集中了，谁还给你干事啊？中间要不是放羊的农民，我们这些草根能死更多人。真的是太多人无知到了极点！有些人竟深信不疑！说句老实话，有些人是被害的轻，早晚死他家人的时候就老实了。相信共产主义什么“集中资源，集中权力干大事”这王八蛋逻辑。
+据报道，英国情报部门目前正在重新评估他们对中共国武汉病毒研究所一个实验室泄漏中共病毒的理论的立场。
 
-You (the CCP) can make 21 athletes freeze to death in a world-class marathon event, while in the Israeli-Palestinian war, thousands of missiles were fired, resulting in only 12 Israelis deaths. The CCP killed 21 of the best athletes, the best people. Is this what you call “concentrating power to do great things and concentrating resources to do great things”? When you centralize all the resources, who will still work for you? If it weren’t for the sheep-herding farmers, more grass-root athletes would have died. Too many people are really ignorant to the extreme, and some people even believe [what the CCP said] without a shadow of a doubt. To be honest, those people are not hurt badly enough by the CCP. They would shut up sooner or later if it were their family members who died. Don’t believe in the CCP’s bastard logic of “concentrating resources and centralizing power to do great things”!
+伦敦《星期日泰晤士报》（the Sunday Times of London）星期日（5月30日）的一篇报道引述英国间谍的话说，他们最初驳斥了实验室泄漏理论，但现在说这是“可行的”。
 
-另外一个，兄弟姐妹们要看到，现在经济上不是集中资源干大事吗，钱都集中中南坑啦，这聚集的几天怎么样？大家记住：民生[银行]不倒，招商[银行]不倒，平安[银行]不倒，中国经济不会倒，包括邮储银行。还显摆呢？民生银行我原来说1.7万亿[金融票据]，结果昨天有人告诉我说：“文贵，你说太少了，3万亿找不着。”弄不回来了！任何一个猪脑袋都知道中国所有的资源，所有的财富就在那不超过200个家族手里控制着。你愿意当猪，你愿意当狗你愿意愚人自愚——愚蠢的人自己愚弄自己——你自己去玩去。不要带走所有的同胞。
+该报援引一位消息人士的话说：“可能有一些证据让我们走了一条路，也有一些证据让我们走了另一条路。”不管怎样，中共都会撒谎，我不认为我们都会了解。
 
-In addition, brothers and sisters, you should see that the same logic has also been applied to the CCP’s economy by centralizing resources to do great things. The money is concentrated in the hands of those people in the Zhongnanhai pit. How has the state of the economy and the banks changed in the past few days? Please remember: If Minsheng Bank, China Merchants Bank, Ping An Bank do not fail, including China Postal Savings Bank, then China’s economy will not collapse. The CCP is still showing off? I said earlier that Minsheng Bank had lost 1.7 trillion worth of bank notes. But somebody told me yesterday: “Miles, you understated the amount. It is actually 3 trillion that cannot be found.” They can’t get it back. Any pig head knows that no more than 200 families control all the resources and wealth in China. If you are willing to be a pig, a dog, a stupid person who fools himself, or a self-fooling idiot, then just play by yourself. Don’t take away all the compatriots.
+引用这段话之际，美国和英国都在加紧呼吁世界卫生组织对中共病毒的可能来源进行更深入的研究，包括对中共国进行新的访问，在那里发现了第一批人类感染病例。
 
-运动员的事情就发生了问题，冬奥会还会有吗？这样的中共国还能搞冬奥会吗？那不都冻死个球的啦？！
+世卫组织和中共国专家在3月份发布了第一份报告，提出了关于疫情可能如何出现的四个假设，联合小组说，最有可能的情况是中共病毒通过中间动物从蝙蝠身上跳到人身上，从实验室爆发的可能性被认为“极不可能”。
 
-What happened to the athletes indicates problems. Will the Winter Olympics still happen? Can Communist China who behaves like this still host the Winter Olympics? Wouldn’t all the athletes freeze to death?
+拜登政府希望加强呼吁中共国对疫情（来源的调查）更加开放，旨在抵消共和党议员们对总统不够强硬的抱怨，并借此机会就所谓的阻挠向中共国施压。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60aba2a8744cbc431363c46e](https://gtv.org/getter/60aba2a8744cbc431363c46e) (00:47-02:57)
-鸣谢：[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1269395/](https://gnews.org/zh-hans/1269395/)
-[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于 [https://gnews.org/1271900/](https://gnews.org/1271900/)
+共和党人，包括前总统唐纳德·川普（Donald Trump）都宣称了一种理论，即病毒是从实验室事故中产生的，而不是通过人类与中共国受感染动物的自然接触而产生的。
 
-* * *
+美国前食品和药物管理局（Food and Drug Administration Commissioner）局长斯科特·戈特利布（Scott Gottlieb）周日在接受哥伦比亚广播公司（CBS）“面向全国（Face The Nation）”节目采访时说，实验室意外泄漏“一直都在发生”。
 
-**整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
-字幕：【Melody太阳的旋律】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】**
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+戈特利布说：“事实上，这种实验室泄漏事件时有发生。”即使在美国这里，我们也遇到过不幸，在中共国，最近6次已知的SARS-1疫情都是从实验室里爆发出来的，包括最近一次已知的疫情，这是一次相当广泛的疫情，中共国最初不愿透露是从实验室里爆发的。”
 
-+1
+而本月早些时候《华尔街日报》（the Wall Street Journal）报道称，武汉病毒学研究所的三名研究人员在2019年末表现出与中共病毒一致的症状，需要住院治疗。
+
+与此同时，拜登总统说，情报部门尚未确定这场疫情是在人类接触受感染的动物之后开始的，还是因为实验室事故，要求官员们将在未来几个月内就他们的结论提交一份最新报告。
+
+（原文完）
+
+相关链接：
+
+【1】[https://gnews.org/zh-hans/1274404/](https://gnews.org/zh-hans/1274404/)
+
+【2】[https://www.foxnews.com/world/uk-intelligence-reassess-covid-lab-leak-theory-now-say-its-feasible](https://www.foxnews.com/world/uk-intelligence-reassess-covid-lab-leak-theory-now-say-its-feasible)
+
+0

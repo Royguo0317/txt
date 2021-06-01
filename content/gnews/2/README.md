@@ -1,53 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【一线新闻】那种感动叫战友之情——肯尼迪机场迎接战友的心情
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1287497/)
+## 批评家称苹果为了迎合中共而抵制用户安装第三方程序
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1287805/)
 
-前方记者：纽约香草山记者站 Kathy（文艺）
+翻译：康州盘古农场 -格格巫
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 -明子
 
-文字编写：纽约香草山农场 写作4组 Delilah小胖
+据《自由灯塔》作者：桑蒂·鲁伊斯（Santi Ruiz）在2021年5月24日报道：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01000315/2021-6-1-001-1.jpg)
+苹果正在抵制让iPhone用户安装第三方应用程序的压力，批评人士称此举是这家科技巨头为迎合中国共产党所做的最新尝试。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191310/s2-7.jpg)
+苹果产品的用户只能从Apple的App Store下载应用程序。该封闭系统还使苹果决定哪些应用程序可以在该平台上使用。州和联邦立法者已敦促苹果允许从App Store外部下载，以增加竞争，但其他研究人员警告说，封闭的系统也有利于中共国的专制政府。
 
+林肯网络（Lincoln Network）政策主管扎克·格雷夫斯（Zach Graves）告诉《华盛顿自由灯塔》，苹果的封闭系统“扩大了中共国强迫苹果审查或监督异议人士的影响力。”他说,苹果的系统是“像中共国这样的专制政权控制的即插即用的瓶颈。”这使中共国政府很容易向苹果施加压力。
 
+苹果公司与中共国保持着良好的关系。中国是一个主要的消费市场，也是该公司大部分供应链的所在地。根据《纽约时报》最近的一项调查，苹果公司经常与CCP合作，通过一家国有公司存储用户数据，并在进入App Store之前审查了数以万计的应用程序。据《信息》报道，它还与多家使用维吾尔族奴隶劳动的中共国公司合作，为iPhone生产零件。国家安全局前总顾问斯图尔特·贝克对《自由灯塔》说，该系统成为中共的“瓶颈”。
 
+苹果公司积极游说反对亚利桑那州和明尼苏达州的州立法者提出的法案，这项法案将打破该公司对苹果产品内容的锁定。在亚利桑那州，苹果评论家声称该公司聘请了亚利桑那州州长的前参谋长，以促成一项幕后交易，使该法案无法实施。根据亚利桑那州州代表里贾纳·科布（Regina Cobb）的说法，苹果公司聘请了“几乎每个镇上的游说者”。苹果公司还成功游说反对北达科他州的一项类似法案。在联邦一级,参议员艾米·克洛布查（Amy Klobuchar）（明尼苏达州）呼吁司法部在最近的参议院听证会上对该应用商店进行更密切的调查。
 
+苹果公司从其封闭的系统中获得了财务上的收益，从应用程序里的大多数付款中抽取30%的费用。该公司表示，这些费用对于维护Apple生态系统的安全性是必不可少的，而App Store是其中不可或缺的一部分。苹果首席合规官凯尔·安德尔（Kyle Andeer）在4月告诉参议院司法委员会，该公司对可用应用程序的监督，目的是保护用户免受恶意软件的侵害。但是Google流行的操作系统Android允许其应用程序商店外的应用程序被广泛认为是安全的。研究人员说，开放苹果的系统不会构成重大的安全风险。贝克告诉《自由灯塔》，封闭系统“绝不是安全的保证”。格雷夫斯用更为苛刻的话说：“关于封闭系统对于安全和隐私必不可少的说法是错误的。”如果有的话，苹果公司的封闭系统可能会使世界各地的用户面临风险。
 
-下面的视频，香草山农场的文艺战友，在纽约肯尼迪国际机场外拍摄的接机环境画面。今天，2021年5月31日星期一，参加新中国联邦周年庆典的战友们将会集中抵达纽约。请您点击视频画面，了解现在纽约肯尼迪机场的情况，还可以感受一下咱们接机战友的心情。
-*文艺战友2021年3月31日下午在美国纽约肯尼迪国际机场接战友（1）*
-引用来源：文艺战友的现场视频
+电子前沿基金会特别顾问科里·多克托洛（Cory Doctorow）说：“这不仅仅与中共国用户有关。” “这也是关于与中共国用户交流的美国用户，他们会因此受到影响。”多克托洛告诉《自由灯塔》，如果受监视的中国用户通过iPhone应用程序与美国朋友或家人进行对话，则这些美国用户可能会受到攻击。贝克说，苹果对其App Store的辩护是大型科技公司经常采用的论点。他说：“苹果已经成为一个中间人，可以说“你应该付钱给我们，是因为我们想要这笔钱，否则我们就会使你受伤。” 我认为硅谷的每家公司都受到这种说法的某些版本的影响。”
 
-编辑/校对/发稿：Delilah小胖
+原文链接：
 
-**更多资讯，更多关注**
+[https://freebeacon.com/latest-news/critics-say-apple-keeps-its-app-store-closed-to-aid-chinese-censorship/](https://freebeacon.com/latest-news/critics-say-apple-keeps-its-app-store-closed-to-aid-chinese-censorship/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191415/M5-2.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

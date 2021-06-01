@@ -1,41 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内热搜】“童心向党”，可悲的六一
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1287468/)
+## 英国情报人员认为实验室泄漏“可行”，正在寻求暗网情报
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1287676/)
 
-作者：纽约香草山写作组  木白
+翻译：康州盘古农场 – 郭班之樱
+校对：康州盘古农场 – TrueSky
+编辑：康州盘古农场 – 明子
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+据《新闻大全》作者：埃里克·麦克，2021年5月30日报道：
+![英国情报人员不仅认为武汉实验室泄漏新型冠状病毒（SARS-CoV-2）是“合理的”，而且正在从暗网上的消息来源处寻求情报以进行调查和揭露。]()![英国情报人员不仅认为武汉实验室泄漏新型冠状病毒（SARS-CoV-2）是“合理的”，而且正在从暗网上的消息来源处寻求情报以进行调查和揭露。](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31232122/2021-6-1-001.jpg)
+鸟瞰图显示了武汉病毒研究所的P4实验室 （赫克托雷塔马尔/法新社通过盖蒂图片社）
 
+据伦敦[《星期日时报》](https://www.thetimes.co.uk/article/covid-wuhan-lab-leak-is-feasible-say-british-spies-cvtxjjwpc)报道，英国情报人员不仅认为武汉实验室泄漏SARS-CoV-2 是“合理的”，而且正在从暗网上的消息来源处寻求情报以进行调查和揭露。
 
+包括前总统唐纳德·川普在内的美国共和党人早就注意到，武汉病毒学研究所所在的中国武汉爆发的巧合，在逻辑上指向了实验室泄漏。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31221903/%E7%AB%A5%E5%BF%83%E5%90%91%E5%85%9A%EF%BC%8C%E5%8F%AF%E6%82%B2%E7%9A%84%E5%85%AD%E4%B8%80-2.jpg)
+英国情报机构寻求在中国有可能掌握 COVID-19 全球大流行起源情报的消息来源。
 
-六一儿童节本是孩子们最快乐的节日。可悲的是在墙国内的学校开展轰轰烈烈的“童心向党”的文艺演出。甚至是幼儿园的小朋友都穿着红卫兵的衣服，歌唱中共。
+尽管世界卫生组织在中共国政府的监视下对武汉的访问声称实验室泄漏“不太可能”，但将在科学杂志上发表的一项科学研究很快宣称有证据证明武汉病毒研究所在世界上传播了这种传染病，谋害了估计 350 万人。
 
-从亿万学校的舞台，到所有人的朋友圈，再到中共媒体铺天盖地的宣传。六一儿童节，成为了中共对人民赤裸裸的洗脑的政治宣传。
+从武汉释放的病毒并不新鲜。 1996 年，[美国疾病控制中心](https://www.cdc.gov/mmwr/preview/mmwrhtml/00043786.htm)曾警告过一种“[A 型武汉](https://www.baltimoresun.com/)”毒株，此前到川普政府期间因被称为“武汉病毒”而未受到自由媒体批评。
 
-这是中国人的悲哀。看看那些无邪的儿童，从小却被“红毒”洗脑，他们能成长为精神独立，身心健康的正常人吗？
+《华尔街日报》本周的报道指出，在中共国承认该地区爆发致命疫情之前，武汉病毒研究所的科学家于 2019 年 11 月因流感类似症状而寻求了住院治疗。当时中共国声称这种感染是从蝙蝠传播到了动物，在附近的海鲜市场上，动物被屠宰作为食物出售而传给了人类。
 
-“韭菜”“五毛”，可悲的中国人成为奴隶，从他们出生起就被圈养，纯真的童年早被玷污。不推翻中共，这个民族何来未来？
+另外，总统乔·拜登于本周关闭了在川普卸任前由川普国务卿迈克·蓬佩奥和前总统发起的国务院调查。拜登呼吁美国情报界带领调查，并在90天内提交报告。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31221854/%E7%AB%A5%E5%BF%83%E5%90%91%E5%85%9A%EF%BC%8C%E5%8F%AF%E6%82%B2%E7%9A%84%E5%85%AD%E4%B8%80-1.jpg)
+一位消息人士对《英国时报》说：“可能有成千上万的证据带我们走一条路，而另一些证据却又引导我们到另一条路：无论哪一条路，中共都会撒谎，我认为我们永远都不会知道”。
 
-校对/发稿：雪梨
+但是，研究从中共国的病毒样本中寻找一种疫苗的科学家们在[2020年6月警告说](https://www.newsmax.com/scitech/covid-19-wuhan-chimera-man-made/2020/06/10/id/971586/)，SARS-CoV-2病毒是“初步证据”，显示了该病毒是中共国制造的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+进行这项研究的更新即将出炉，其中包括声称“现在已经超出了合理的怀疑范围”，这证明中共国科学家不仅在实验室里成功研制了COVID-19，而且还掩盖了一切，并让潜在的举报人沉默。
 
-**更多资讯，更多关注**
+率先发放了“ 艾滋病毒疫苗”的英国教授安格斯·达尔格利什（Angus Dalgleish）和收到了疫苗研发样品的挪威科学家比尔格·索伦森（BirgerSørensen）博士，他们俩深信“ SARS-CoV-2没有可靠的自然鼻祖”。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+引用的科学证据包括刺突蛋白质上连续四个氨基酸的详细信息，所有这些蛋白质都带有“正”电荷。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[达格里什对英国《每日邮报》](https://www.dailymail.co.uk/news/article-9629563/Chinese-scientists-created-COVID-19-lab-tried-cover-tracks-new-study-claims.html)说：“物理定律意味着你不能连续有四个带正电荷的氨基酸，唯一获得这样的方法是人为地制造它。”
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+自然界中是找不到连续出现的正电荷，因为就像磁体一样，正电荷会附着在负电荷上并排斥相邻的正电荷。 科学家说，这种磁性联系使得COVID-19感染致命性，因为该病毒的四个正电荷簇牢固地锁在带负电荷的人体细胞上，能够复制并繁殖，从而抑制削弱免疫系统。
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+达尔格利什与索伦森的研究更新中包括了美国在冠状病毒研究中共同策划的爆炸性指控，包括通过分包赠款60万美元给生态健康联盟，为武汉病毒研究所，以及在美国和中国都有争议的功能研究提供资助。
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接：[https://www.newsmax.com/newsfront/british-spies-intelligence-wuhan/2021/05/30/id/1023237/](https://www.newsmax.com/newsfront/british-spies-intelligence-wuhan/2021/05/30/id/1023237/)
 
 0
