@@ -1,49 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Lemuria
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1288241/)
+## 530南澳战友在行动
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1288346/)
 
-作者：文护念 | 校对：SilverSpurs7 | 审核：X-Wing
+撰稿人：冰沙奶茶
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040450/101.jpg)原创图片
+5月30日，澳喜农场成功举办了庆祝新中国联邦成立一周年，联合六大城市同步的线上以及线下活动，进一步将新中国联邦、爆料革命、病毒真相的宣传推向新高度。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01032556/060106.jpg)
+当天的阿德莱德一扫秋冬的阴霾，阳光灿烂。战友们都提前来到集合地点，虽然大部分都是首次见面，但当报上名字的时候，一听声音都是相识已久的老友，自然是非常开心。到场每位战友在参与GTV短暂的现场连线直播后，就开始本次活动的重头戏-游行。
 
-幽暗的势力
-正在降沉
-断层的信仰
-苏醒重来
-文明的板块
-破土上升
+游行从维多利亚广场开始到国会大厦结束。游行中带领我们喊口号的是文果和原始丫头，口号声不但提振战友们士气，也感染了路人驻足观望。尤其是在原始丫头的带领下，真正喊出新中国联邦人的气势，战友们的斗志完全被激发出来。事后在我们南澳小组里，都夸她“丫头顶了半边天”，“不是简单的丫头，是给力的火车头”。
 
-我们用尽
-全身的动能
-去触发 
-觉醒的齿轮
+到了国会大厦我们开始街头宣传。我们所在的位置是一个繁忙的交通路口，来往的车辆、行人很多。我们的口号声依然吸引西人的目光，有经过车辆在等红灯的时候摇下车窗对我们竖起大拇指，有感兴趣的路人我们耐心讲解他们所想了解和我们想要传递的信息，有一位澳洲小哥还接受连线采访。这也让我们感受到当地人对新中国联邦、爆料革命、病毒真相的探索的热情。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040808/102-2.png)原创图片
+在这次活动中，虽然我们南澳战友人数少，但是气势上一点也不弱，因为我们有行动力超强的组织者和积极投入的每一位战友，还有我们的摄影师，她是NiYang夫人，是她帮忙记录下每个精彩瞬间，让我们又这么多出彩的照片可以回味。我们坚信有了这第一次实战经验，下次一定会做得更好。我们会把宣传活动持续坚持下去，直到我们所在城市的每个人都知新中国联邦，爆料革命、直到病毒真相大白天下，否则我们绝不停止战斗。
 
-七芒之星
-冉冉地上扬
-刺破了
-嚣张的夜瘴
-启动
-唯真不破的热能
-烧死
-撒旦的幽灵
+（本文纯属个人观点）
 
-不动情的勇者
-手持
-护念的锋刀
-开天辟地
-参赞之化育
-未来成为
-公义的参照物
+*审稿：Gradient Boost  编辑：MG1*
 
-*编者注：Lemuria（译为利莫里亚大陆或狐猴洲），是假设的大陆，位于印度洋海域，介乎马达加斯加岛、泰米尔纳德邦及西澳之间。*
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01003057/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 0

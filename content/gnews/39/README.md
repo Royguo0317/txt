@@ -1,35 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 批评家称苹果为了迎合中共而抵制用户安装第三方程序
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1287805/)
+## 2021/05/31-001 文贵先生盖特精华
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1287981/)
 
-翻译：康州盘古农场 -格格巫
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 -明子
+听写： 万物归一 | 校对：樂禧禧 | Page：我是球大哥
 
-据《自由灯塔》作者：桑蒂·鲁伊斯（Santi Ruiz）在2021年5月24日报道：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01000315/2021-6-1-001-1.jpg)
-苹果正在抵制让iPhone用户安装第三方应用程序的压力，批评人士称此举是这家科技巨头为迎合中国共产党所做的最新尝试。
+[!\[\]()!\[\](https://spark.adobe.com/page/TnGV0NFTIhDUG/images/4bb78dce-7da3-49ed-8a35-0b4f94934ce7.png?asset_id=6c4ea924-1478-478e-97f9-819310de2204&amp;img_etag=%2243eb1301d7efedbcd334ae6a26cd6e5e%22&amp;size=1024)](https://spark.adobe.com/page/TnGV0NFTIhDUG/images/4bb78dce-7da3-49ed-8a35-0b4f94934ce7.png?asset_id=6c4ea924-1478-478e-97f9-819310de2204&amp;img_etag=%2243eb1301d7efedbcd334ae6a26cd6e5e%22&amp;size=1024)
 
-苹果产品的用户只能从Apple的App Store下载应用程序。该封闭系统还使苹果决定哪些应用程序可以在该平台上使用。州和联邦立法者已敦促苹果允许从App Store外部下载，以增加竞争，但其他研究人员警告说，封闭的系统也有利于中共国的专制政府。
+**5月31日：尊敬的战友们好！以毒灭共已和共产党的垂死挣扎……会形成非常有趣的国际政治现象。世界经济的好坏．决定了共产党灭亡的速度……新中国联邦一周年的重大意义，就是让所有的中国人来共同的探讨，我们到底应该拥有一个什么样的政治制度？什么样的中国人才是我们自己喜欢的中国人，一切都已经开始！**
 
-林肯网络（Lincoln Network）政策主管扎克·格雷夫斯（Zach Graves）告诉《华盛顿自由灯塔》，苹果的封闭系统“扩大了中共国强迫苹果审查或监督异议人士的影响力。”他说,苹果的系统是“像中共国这样的专制政权控制的即插即用的瓶颈。”这使中共国政府很容易向苹果施加压力。
+[G-TV链接](https://gtv.org/getter/60b4f217ba7ef9088d045bfc)
 
-苹果公司与中共国保持着良好的关系。中国是一个主要的消费市场，也是该公司大部分供应链的所在地。根据《纽约时报》最近的一项调查，苹果公司经常与CCP合作，通过一家国有公司存储用户数据，并在进入App Store之前审查了数以万计的应用程序。据《信息》报道，它还与多家使用维吾尔族奴隶劳动的中共国公司合作，为iPhone生产零件。国家安全局前总顾问斯图尔特·贝克对《自由灯塔》说，该系统成为中共的“瓶颈”。
+[!\[\]()!\[\](https://spark.adobe.com/page/TnGV0NFTIhDUG/images/993b561e-af20-4601-9bf1-a6dad466447f.png?asset_id=b82f0819-91da-4e82-bfc6-39c4adcb8cd0&amp;img_etag=%22929540edc72f89906bd716ab7247c66e%22&amp;size=2560)](https://spark.adobe.com/page/TnGV0NFTIhDUG/images/993b561e-af20-4601-9bf1-a6dad466447f.png?asset_id=b82f0819-91da-4e82-bfc6-39c4adcb8cd0&amp;img_etag=%22929540edc72f89906bd716ab7247c66e%22&amp;size=1024)
 
-苹果公司积极游说反对亚利桑那州和明尼苏达州的州立法者提出的法案，这项法案将打破该公司对苹果产品内容的锁定。在亚利桑那州，苹果评论家声称该公司聘请了亚利桑那州州长的前参谋长，以促成一项幕后交易，使该法案无法实施。根据亚利桑那州州代表里贾纳·科布（Regina Cobb）的说法，苹果公司聘请了“几乎每个镇上的游说者”。苹果公司还成功游说反对北达科他州的一项类似法案。在联邦一级,参议员艾米·克洛布查（Amy Klobuchar）（明尼苏达州）呼吁司法部在最近的参议院听证会上对该应用商店进行更密切的调查。
+• 国内一牛人现在到了海外，如果文贵说了算，就不会让他加入爆料革命。因为这种经过利益取舍，权衡之后，首鼠两端，最后做出决定要加入爆料革命的，一旦条件不满足，就会变成敌人。
 
-苹果公司从其封闭的系统中获得了财务上的收益，从应用程序里的大多数付款中抽取30%的费用。该公司表示，这些费用对于维护Apple生态系统的安全性是必不可少的，而App Store是其中不可或缺的一部分。苹果首席合规官凯尔·安德尔（Kyle Andeer）在4月告诉参议院司法委员会，该公司对可用应用程序的监督，目的是保护用户免受恶意软件的侵害。但是Google流行的操作系统Android允许其应用程序商店外的应用程序被广泛认为是安全的。研究人员说，开放苹果的系统不会构成重大的安全风险。贝克告诉《自由灯塔》，封闭系统“绝不是安全的保证”。格雷夫斯用更为苛刻的话说：“关于封闭系统对于安全和隐私必不可少的说法是错误的。”如果有的话，苹果公司的封闭系统可能会使世界各地的用户面临风险。
+• 英国首相一定唱反调，还会有一到两个国家出来配合，换个角度看，对灭共是大好事。杨洁篪带着承诺和项目，甚至带着某些人的黑材料到俄、德、英、法等国周旋。但最后一定是美国说了算。
 
-电子前沿基金会特别顾问科里·多克托洛（Cory Doctorow）说：“这不仅仅与中共国用户有关。” “这也是关于与中共国用户交流的美国用户，他们会因此受到影响。”多克托洛告诉《自由灯塔》，如果受监视的中国用户通过iPhone应用程序与美国朋友或家人进行对话，则这些美国用户可能会受到攻击。贝克说，苹果对其App Store的辩护是大型科技公司经常采用的论点。他说：“苹果已经成为一个中间人，可以说“你应该付钱给我们，是因为我们想要这笔钱，否则我们就会使你受伤。” 我认为硅谷的每家公司都受到这种说法的某些版本的影响。”
+• 在经济面前很多人会放弃原则。另外经济大滑坡之时，中共不管采取什么手段去挽回，也将大势已去。一周前就可以定义中共死在病毒上了，死亡速度取决于经济的好坏。
 
-原文链接：
+• 这两天大量战友汇聚在纽约，务必注意病毒。6月3号在102层的节目一定会给大家带来惊喜。其影响力会在未来显现出来。
 
-[https://freebeacon.com/latest-news/critics-say-apple-keeps-its-app-store-closed-to-aid-chinese-censorship/](https://freebeacon.com/latest-news/critics-say-apple-keeps-its-app-store-closed-to-aid-chinese-censorship/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+• 一周年后，会使大家思考很多关于未来中国和中国人的走向问题。同时凝聚更多的不同领域不同年龄的精英来探讨参与。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/TnGV0NFTIhDUG/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/TnGV0NFTIhDUG/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

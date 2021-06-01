@@ -1,31 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士接受Newsmax采访称中共主动向世界投放病毒
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1288257/)
+## 纳瓦罗：中国将病毒武器化给美国造成的损失超过20万亿美元
+` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1288421/)
 
-#### 撰稿：默凡
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01033413/hi%E5%92%8Chi.jpg)
-闫博士5月底接受Newsmax电视台采访主要内容：
-
-1、当闫博士通过路德社“119节目”向全世界揭露中共病毒真相时，她不确定是否能看到真相全面揭开的那一天，但她始终相信那一天会到来。闫博士揭露中共病毒真相，并告知中共病毒就是中共军方拥有的舟山蝙蝠病毒骨架改造的，这让中共感到害怕。
-
-2、中共非常害怕病毒真相被公诸于众，所以他们动用所有力量来掩盖病毒真相，攻击闫博士。但现在全世界都开始认识到中共病毒就是中共策划的一场超限生物武器攻击，病毒正在摧毁整个社会。
-
-3、我们现在要让越来越多的科学家和专业人士向人们展示证据，让人们明白中共病毒就是中共发起的超限生物武器攻击，中共发动国内多家实验室从事病毒研究，中共主动向全世界投放中共病毒，我们要尽快团结起来，阻止疫情，向中共追责。
-
-参考链接：
+- 中文简介：彼得-纳瓦罗博士追踪了中国如何通过关闭自己的边界，但向世界开放旅行（同时囤积医疗用品）来将病毒武器化。 纳瓦罗计算了中共将病毒武器化的真实成本。
+- 英文标题：Navarro: China Weaponizing Virus Cost U.S. Over $20 Trillion
+- 英文简介：Dr. Peter Navarro traces how China weaponized the virus by closing down its own borders, but opening travel up to the world (while hoarding medical supplies.) Navarro calculated the true cost of the CCP weaponizing the virus.
+- 原视频链接：[https://rumble.com/vhp7xz-navarro-china-weaponizing-virus-cost-u.s.-over-20-trillion.html](https://rumble.com/vhp7xz-navarro-china-weaponizing-virus-cost-u.s.-over-20-trillion.html)
 
 
 
-> 闫丽梦博士Newsmax采访第二部分
-> 
-> （嘻栈第14次无故被葑！请关注xin号） [pic.twitter.com/RXsZAzTMuW](https://t.co/RXsZAzTMuW)
-> — 洛子峰 (@Lhotse\_luozi) [May 31, 2021](https://twitter.com/Lhotse_luozi/status/1399415750293561345?ref_src=twsrc%5Etfw)
-
-
-
-（本文仅代表作者本人观点）
 
 0

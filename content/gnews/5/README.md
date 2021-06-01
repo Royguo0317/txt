@@ -1,14 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 博夫谈中国借贷及挑战美元
-` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1288301/)
+## 两党联合，以毒灭共全面加速
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1288420/)
 
-- 中文简介：Odeon Capital Group首席金融策略师迪克-博夫(Dick Bove)谈中共试图获得全球影响力
-- 英文标题：Bove on China lending, taking on US dollar
-- 英文简介：Odeon Capital Group chief financial strategist Dick Bove on China’s attempts to gain global influence.
-- 原视频链接：[https://video.foxbusiness.com/v/6255929761001](https://video.foxbusiness.com/v/6255929761001)
+新闻来源：《自由灯塔》Washington Free Beacon| 作者：Philip Caldwell| 发布时间：2021年5月26日
+翻译/简评：新街口|校对：小小妹|审核：SilverSpurs7|Page：小雨
 
+[!\[\]()!\[\](https://spark.adobe.com/page/jPJVUzhPNpCEN/images/f3264661-8e58-48f4-ab61-b84da23bacc5.jpg?asset_id=13166e91-d83b-4928-87d2-81d77c2f232a&amp;img_etag=%221affbda85848e09ff21bb45b14cf6696%22&amp;size=1024)](https://spark.adobe.com/page/jPJVUzhPNpCEN/images/f3264661-8e58-48f4-ab61-b84da23bacc5.jpg?asset_id=13166e91-d83b-4928-87d2-81d77c2f232a&amp;img_etag=%221affbda85848e09ff21bb45b14cf6696%22&amp;size=1024)
+
+**简评：**
+
+在众议院能源和商业委员会监督小组中，民主党和共和党两党此次联合，共同呼吁对新冠病毒是否从中共实验室泄露进行调查具有非常重要的意义。
+
+在川普总统任职期间，由于民主党和共和党之间的不合作，两党的钟摆效应被中共所利用。尽管川普政府希望对病毒起源进行调查和追责，但由于共和党在众议院中的少数地位，以及媒体和共和党建制派的反对和不配合，对中共病毒起源的调查始终无法向前推进。
+
+从拜登总统上任以来，随着以闫丽梦博士为代表的爆料革命对中共制毒、放毒罪行坚持不懈地揭发和大声疾呼，再加上从4月以来印度受中共病毒打击的惨状在全球媒体的持续曝光，二者的相互印证使越来越多的卫生官员和机构开始相信病毒是来自中共的实验室。在这种大背景下，以前一直把实验室泄露理论看作是阴谋论的众多媒体和各国政界的态度也随之开始转变。对以福奇为首的医疗界就病毒起源问题开始进行的多个听证会则是这种转变开始的一个标志性事件。
+
+福奇的听证会不久，拜登政府就要求美国情报界90天内提交病毒起源报告。紧接着，此次在参议院中民主党和共和党就联合起来共同要求调查病毒起源。因此，从最近美国政坛的这一系列一环紧扣一环的举动，我们可以看到两党联合，以毒灭共已经开始全面加速。
+
+**原文翻译：**
+
+## 众议院民主党人签署协议调查中共国实验室是否泄露了病毒
+
+[!\[\]()!\[\](https://spark.adobe.com/page/jPJVUzhPNpCEN/images/edce8819-63c1-4684-85b4-dad008725d65.jpg?asset_id=a0f4a4a3-5527-4869-8543-49c5db2300b9&amp;img_etag=%22e6c1092a52318d1e35a392e613e65dc0%22&amp;size=2560)](https://spark.adobe.com/page/jPJVUzhPNpCEN/images/edce8819-63c1-4684-85b4-dad008725d65.jpg?asset_id=a0f4a4a3-5527-4869-8543-49c5db2300b9&amp;img_etag=%22e6c1092a52318d1e35a392e613e65dc0%22&amp;size=1024)
+
+众议院能源和商业委员会监督小组委员会的民主党主席赞同共和党议员的呼吁，要求对COVID-19大流行的起源进行调查，尤其是针对新冠病毒是否从中共国实验室泄露的展开调查。
+
+在周三的听证会上，众议员迈克尔•伯吉斯（得克萨斯州）敦促小组委员会主席戴安娜•德吉特（科罗拉多州）指示调查机构对新冠病毒的起源进行调查。德吉特表示，她支持进行此类调查，包括对该病毒是否来源于实验室进行调查。她还说，她与小组委员会的共和党领导人达成了一致。几个月来，共和党领导人一直在呼吁就大流行的起源给与答复，而民主党人和媒体则低估了实验室泄漏的可能性。
+
+德吉特说：“我同意，我认为我们进行调查非常重要……尤其是如果该病毒是从某个实验室泄露的，因为这一定会对国际健康产生影响。” “我已经与副主席[众议员摩根•格里菲斯（维吉尼亚州）]进行过交谈。无论我们能做些什么，我认为中共国不会向该委员会出示任何文件，但我们将进行任何适当的调查，格里菲斯先生和我在这一点上立场相同。”
+
+随着越来越多的卫生官员和机构开始相信实验室泄漏理论，民主党人对大流行病根源进行彻底调查的支持也在增加。既SARS-CoV-2是从进行蝙蝠冠状病毒基因改造研究的中国武汉病毒学研究所泄露出来的。
+
+美国国家过敏和传染病研究所所长安东尼•福奇在2020年5月很大程度上排除了实验室泄漏理论，称“非常非常强烈”的证据表明该病毒“不可能被人为故意修改”。 但是他本月改变了口吻，说他现在“不相信”该病毒是自然出现的。CDC主任罗谢尔•瓦伦斯基（Rochelle Walensky）本月也承认，新冠病毒可能是从实验室泄漏的。
+
+委员会副主席凯西•麦克莫里斯•罗杰斯（华盛顿）赞扬民主党人支持共和党为调查该病毒的起源所做的努力。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/jPJVUzhPNpCEN/images/2f5cab46-a201-4917-88e5-b002a082a363.png?asset_id=da90ba27-6850-462e-9698-5b373be09e86&amp;img_etag=%2221a3f145a11d9c8a815176ae008a31fb%22&amp;size=1024)](https://spark.adobe.com/page/jPJVUzhPNpCEN/images/2f5cab46-a201-4917-88e5-b002a082a363.png?asset_id=da90ba27-6850-462e-9698-5b373be09e86&amp;img_etag=%2221a3f145a11d9c8a815176ae008a31fb%22&amp;size=1024)凯西•麦克莫里斯•罗杰斯接受福克斯新闻采访
+
+麦克莫里斯•罗杰斯说：“能源和商业委员会将继续领导并敦促拜登政府和美国政府对中共国进行调查，追究中共国的责任，并在公共领域获得有关COVID-19大流行如何起源的信息。” “我们对委员会内两党共同支持调查COVID-19是否源于实验室事故表示欢迎，并对此感到鼓舞。我们必须竭尽全力，进行彻底的排查。”
+
+拜登政府已表示支持对这种流行病的起源进行调查，但批评人士说，政府对深入了解这一事实的承诺并不真实。本周一，白宫新闻秘书詹•普萨基（Jen Psaki）并未就美国将如何对该流行病进行调查提供具体解释，而是呼吁世界卫生组织“支持专家对流行病的起源进行评估”。世卫组织2月对武汉的访问否定了实验室泄漏理论，但该团队的发现甚至遭到世卫组织负责人的批评。中共国政权的官员参加了与武汉病毒学研究所员工进行的访问的访谈，而访问的唯一美国人在2020年2月整编了一封信，将实验室泄漏假说称之为“阴谋论”。
+
+[🔗原文链接](https://freebeacon.com/coronavirus/house-dems-sign-on-to-investigate-whether-virus-leaked-from-chinese-lab/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/jPJVUzhPNpCEN/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/jPJVUzhPNpCEN/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 
 
