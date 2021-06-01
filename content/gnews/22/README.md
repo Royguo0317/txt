@@ -1,53 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 今日纽约-新中国联邦战友们首次盛情相聚之地
-` 加拿大多伦多枫叶农场 羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1286979/)
+## 福克斯报道英国情报机构认可病毒实验室泄露
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1287338/)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31201127/qd5-1-edited.jpg)GNEWS记者站 签到处金喜农场战友英姿
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31212950/L-7.jpg)
+迄今为止，美国情报机构仍然没有作出中共病毒来自实验室的结论，拜登在上周推卸责任的声明中抱怨，“截至今天，美国情报机构已经‘结合了两种可能的情况’，但还没有就这个问题得出最终结论，他们目前的立场是，虽然情报机构中有两个因素倾向于自然说，一个因素更倾向于实验室说……”【1】美国情报机构是中共渗透的重灾区，时至今日给出这样的结果不足为奇，令人难以想象的是拜登如此过度依赖情报机构，且下令停止了蓬佩奥主导的溯源调查，这就非常令人不解了！
 
-据来自喜联盟GNEWS记者站新中国联邦周年庆典纽约现场的最新报道，随着各地农场战友们的陆续机场到达迎接，活动现场签到处登记，以及酒店入住手续的妥善安排办理。首次面对面相拥相聚的珍贵机缘，使得现场早已欣喜激动的气氛逐渐变得欢快热烈起来。来宾们的欢声笑语在肩并肩战斗的情谊中诚挚绽放，洋溢无疆！相信此时此刻在庆典现场的战友们，无论如何都难以用有限的言语来表达出新中国联邦刚刚开启的信仰之星河，赐予其所有追随者心底无尽的希望和再次迸发的勇气。以下是本记者站副站长AN战友给大家带来的幸福瞬间：
+《福克斯新闻》报道，“英国情报部门重新评估了中共病毒实验室泄漏理论，现在称其‘可行’”，指出，美国和英国呼吁世卫组织更深入地调查中共病毒的可能来源。【2】
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31201342/qd14-edited.jpg)GNEWS记者站 刚刚签到的美女战友团
+全文如下：
 
+据报道，英国情报部门目前正在重新评估他们对中共国武汉病毒研究所一个实验室泄漏中共病毒的理论的立场。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31201516/qd13-edited.jpg)GNEWS记者站 签到处的问候
+伦敦《星期日泰晤士报》（the Sunday Times of London）星期日（5月30日）的一篇报道引述英国间谍的话说，他们最初驳斥了实验室泄漏理论，但现在说这是“可行的”。
 
+该报援引一位消息人士的话说：“可能有一些证据让我们走了一条路，也有一些证据让我们走了另一条路。”不管怎样，中共都会撒谎，我不认为我们都会了解。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31201644/qd12-edited.jpg)GNEWS记者站 来宾们陆续抵达现场
+引用这段话之际，美国和英国都在加紧呼吁世界卫生组织对中共病毒的可能来源进行更深入的研究，包括对中共国进行新的访问，在那里发现了第一批人类感染病例。
 
+世卫组织和中共国专家在3月份发布了第一份报告，提出了关于疫情可能如何出现的四个假设，联合小组说，最有可能的情况是中共病毒通过中间动物从蝙蝠身上跳到人身上，从实验室爆发的可能性被认为“极不可能”。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31202900/qd15.jpg)GNEWS记者站 三侠客：文戈七雄，长岛哥，文科
+拜登政府希望加强呼吁中共国对疫情（来源的调查）更加开放，旨在抵消共和党议员们对总统不够强硬的抱怨，并借此机会就所谓的阻挠向中共国施压。
 
+共和党人，包括前总统唐纳德·川普（Donald Trump）都宣称了一种理论，即病毒是从实验室事故中产生的，而不是通过人类与中共国受感染动物的自然接触而产生的。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31203103/qd7-2-edited.jpg)GNEWS记者站 Lina和Ada 母女战友亮相
+美国前食品和药物管理局（Food and Drug Administration Commissioner）局长斯科特·戈特利布（Scott Gottlieb）周日在接受哥伦比亚广播公司（CBS）“面向全国（Face The Nation）”节目采访时说，实验室意外泄漏“一直都在发生”。
 
+戈特利布说：“事实上，这种实验室泄漏事件时有发生。”即使在美国这里，我们也遇到过不幸，在中共国，最近6次已知的SARS-1疫情都是从实验室里爆发出来的，包括最近一次已知的疫情，这是一次相当广泛的疫情，中共国最初不愿透露是从实验室里爆发的。”
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31203536/qd3-3-edited.jpg)GNEWS记者站 美女们战友们青青，伊莎贝拉，文心，AN之首次相聚
+而本月早些时候《华尔街日报》（the Wall Street Journal）报道称，武汉病毒学研究所的三名研究人员在2019年末表现出与中共病毒一致的症状，需要住院治疗。
 
+与此同时，拜登总统说，情报部门尚未确定这场疫情是在人类接触受感染的动物之后开始的，还是因为实验室事故，要求官员们将在未来几个月内就他们的结论提交一份最新报告。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31203835/qd4-2-edited.jpg)GNEWS记者站 机场初来乍到的勇士
+（原文完）
 
+相关链接：
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31204015/qd1-5.jpg)GNEWS记者站 七哥老妹在登记处迎宾
+【1】[https://gnews.org/zh-hans/1274404/](https://gnews.org/zh-hans/1274404/)
 
+【2】[https://www.foxnews.com/world/uk-intelligence-reassess-covid-lab-leak-theory-now-say-its-feasible](https://www.foxnews.com/world/uk-intelligence-reassess-covid-lab-leak-theory-now-say-its-feasible)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31204935/qd17-edited.jpg)GNEWS记者站副站长AN采访七哥老妹
-
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31205121/qd18-edited.jpg)GNEWS记者站 老凯西装笔挺接待战友
-
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31205249/qd19-edited.jpg)GNEWS记者站 欢迎小酒窝夫妇
-
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31210028/qd20-edited.jpg)GNEWS记者站 加拿大杨帆农场：森林深处，飞翔的小鸟，喜马拉雅农场2
-
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31210259/qd22-edited.jpg)GNEWS记者站 现场外的纽约天空
-
-
-以上是GNEWS记者站通讯员羟氯喹64编写的现场实况报道。
-
-+1
+0

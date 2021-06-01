@@ -1,27 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 谷歌正在成为美国的“医生”
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1287126/)
+## 【有声读物】香港的新模式
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1287337/)
 
-作者：武松Sam
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31202324/8689856.png)图片来源：图片
-据报道来自美国田纳西州纳什维尔的HCA Healthcare 与谷歌达成合作，将3200万份私人患者医疗记录上传到谷歌“云”，这些记录将被谷歌用来创建算法用来指导医生和医护人员如何治疗他们的病人，谷歌正计划成为美国的“医生”。
+配音：香草山录音组 蒙古鸿雁
 
-HCA 目前在美国经营着186家医院和大约2000个医疗保健站点，它提供给谷歌的3200万份私人患者医疗记录据称将被匿名化并删除个人信息。谷歌的人工智能 (AI) 将接管这些患者信息并创建无需人工干预即可定制患者护理的计算机程序。换句话说机器很快就会为那些患者提供治疗方案及药物。据推测，谷歌的“行星级数据库”将通过计算哪些药物和疫苗对他们的身体最有效，从而改善对患者的治疗方案。然后HCA将使用此信息向其员工提供有关如何更好的开展工作的建议。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-早在 2019 年谷歌推出了名为“Project Nightingale”的医疗人工智能计划，试图接管现代医学。为了控制地球上所有需要控制的东西，谷歌正忙着开发可以轻松窃取私人信息并将其资本化的技术，即使在医疗保健领域也是如此。现在我们看到了谷歌与HCA合作的成果，即隐私入侵和技术权力盗取。在中共病毒 (Covid-19) 肆虐期间，HCA 已经采用了类似的技术来监测 “阳性”患者，该系统会通知护理人员应该进行哪些方案来治疗中共病毒。此次合作标志着谷歌第二次进军医疗保健领域。几年前，总部位于圣路易斯的 Ascension 也出于同样的目的与谷歌合作，将超过 5000 万份私人医疗记录输入谷歌的人工智能系统。但是患者是否知道他们的私人数据被转移给了这家科技巨头？他们是否应该被告知并有机会选择同意或拒绝？
 
-评：大型科技公司一直以来不遗余力的收集人类指纹、虹膜、人脸、基因等各种私人信息，并主导和参与人脸识别、基因改造、杂交等大型研究项目并大量运用的实际生活中，他们的目的并非要造福人类，而是在他们背后深层政府的要求下用这些先进的技术控制和奴役人类。2019年底开始的中共病毒和疫苗就是最好的例证，中共病毒是在中共最高层直接指挥、参与下，由中共军方、病毒实验室及其他国家邪恶势力一起研发的超限战生物武器。中共利用蓝金黄等手段利诱、威胁、胁迫科学家、各大新闻媒体、各大知名期刊杂志为其站台，承认中共病毒自然学说理论。但是纸是包不住火的，爆料革命闫丽梦博士等正义人士用事实、科学证据揭露中共病毒是来自实验室，是人工制造的超限战生物武器。在感染数千万人，数百万人死亡的情况下，又通过疫苗生物武器再次对全世界人类进行掠夺和杀害。全世界正义的人民只有联合起来推翻中共政权和影子政府，才有希望拿到解药，才能恢复往日安宁的生活。只要中共及其邪恶势力存在一天，人类随时都有可能存在被毁灭的危险。
 
-原文链接：
 
-[https://www.naturalnews.com/2021-05-31-hca-healthcare-partnership-google-exposing-patient-records.html#](https://www.naturalnews.com/2021-05-31-hca-healthcare-partnership-google-exposing-patient-records.html#)
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-编辑/发布：比卡丘
 
-20210531
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+国安法在港实施后，新香港怎样落实“剥夺政治权利终身”这个刑罚？这个大陆式的刑罚又怎样在港执行？这几个月，笔者读了不少因为初选案或者其它莫须有的国安法案，还读了被还押者的亲笔信。读起来一字一泪。之前还是慷慨激昂，现在就都纷纷交代自己要退出政坛、主动退党，解散组织，关闭社交媒体平台专号，不再参与政治，只希望做回普通人，陪伴家人过平淡日子。
+
+
+
+**文字版原文：[【圣城传声筒】香港的新模式](https://gnews.org/zh-hans/1284527/)**
+
+作者：纽约香草山香港部 自由鸟
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0

@@ -1,41 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CNN大转弯：病毒溯源存人类历史上最严重的掩盖
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1287045/)
+## “权力集中能干大事”——共产党骗人的政治谎言！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1286235/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**摘要：在2021年5月24日的盖特视频中，郭先生痛批中共所谓“集中权力才能干大事”的政治谎言，指出正是这种谎言导致了21位优秀草根运动员的死亡，这个数字比这次巴以战争中死亡的以色列人还多。这21位运动员的死亡表明中共没有资格举办冬奥会。中共还把这个只有猪才相信的逻辑运用到了经济领域，结果是全国的资源和财富集中在不到200个家族的手中，他们控制的银行的崩塌最终会带来中国经济的崩塌。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31202743/Miles_2021-05-24-g1.srt.txt)
+**“权力集中能干大事”——共产党骗人的政治谎言！**
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31200350/C-35.jpg)preforthat.com
-曾经是攻击天使闫博士最猖狂的左媒之一CNN现在称，中共病毒的起源存在着“人类历史上最严重的掩盖”！
+**“To Do Great Things with the Concentration of Power” – A CCP’s Political Lie! **
 
-这是众议院外交事务委员会迈克尔·麦考尔（Michael McCaul）接受CNN的杰克·塔珀（Jake Tapper）采访时的用语，塔珀一副痛改前非的打扮，戴上了眼镜，搞得笔者差点没有认出这个长期以来为左派民主党叫嚣、攻击川普总统是阴谋论传播者的主持人。
+权力集中能干大事”——这种骗人的政治谎言！[共产党]告诉中国人：“权力集中能干大事”。权力集中也能像希特勒一样，杀死更多的人，是吧？是能干大事啊，也能杀死更多的人呐，对不对？而且官僚、无知、低效工作。
 
-CNN报道说，德克萨斯州众议员迈克尔·麦考尔是众议院外交事务委员会的资深共和党人，他周日（5月30日）声称，中共病毒的起源存在着人类历史上“最严重的掩盖”。
+“To do great things with the concentration of power” – a deceptive political lie! The CCP told the Chinese: “We can do great things with centralized power.” The concentration of power can also kill more people like what Hitler did, right? Indeed, through it you may do great things, but you can also kill more people, right? Also it is featured with bureaucratic, ignorant, and inefficient work.
 
-“你知道，我确实认为它很可能是从实验室里冒出来的，很可能是意外。” 麦考尔在《国情咨文》节目中对CNN的杰克·塔珀说，但没有提供证据，支持他的说法“这是人类历史上最严重的一次掩盖行动，造成350万人死亡，在全球造成了经济破坏。”
+运动员，一个世界级的马拉松，能让运动员冻死21个人。 以色列，以巴战争，发了几千发导弹才死了12个以色列人。共产党能杀21个最优秀的运动员，最优秀的人。这就叫“集中权力干大事，集中资源干大事”。资源都集中了，谁还给你干事啊？中间要不是放羊的农民，我们这些草根能死更多人。真的是太多人无知到了极点！有些人竟深信不疑！说句老实话，有些人是被害的轻，早晚死他家人的时候就老实了。相信共产主义什么“集中资源，集中权力干大事”这王八蛋逻辑。
 
-麦考尔发表上述评论之前，美国总统拜登发出指示，命令情报界加倍努力，调查中共病毒疫情的起源，并在90天内向他报告。一份美国情报报告发现，中共国武汉病毒研究所的几名研究人员在2019年11月患病，不得不住院。
+You (the CCP) can make 21 athletes freeze to death in a world-class marathon event, while in the Israeli-Palestinian war, thousands of missiles were fired, resulting in only 12 Israelis deaths. The CCP killed 21 of the best athletes, the best people. Is this what you call “concentrating power to do great things and concentrating resources to do great things”? When you centralize all the resources, who will still work for you? If it weren’t for the sheep-herding farmers, more grass-root athletes would have died. Too many people are really ignorant to the extreme, and some people even believe [what the CCP said] without a shadow of a doubt. To be honest, those people are not hurt badly enough by the CCP. They would shut up sooner or later if it were their family members who died. Don’t believe in the CCP’s bastard logic of “concentrating resources and centralizing power to do great things”!
 
-据一位知情人士透露，其他议员也要求就病毒的来源作出答复，众议院外交事务委员会（House Foreign Affairs Committee）成员本月早些时候就此事收到了一份机密简报，该委员会长期以来一直在调查疫情的起源，该消息人士拒绝透露，在简报中是否讨论了提到这些住院研究人员的情报报告。
+另外一个，兄弟姐妹们要看到，现在经济上不是集中资源干大事吗，钱都集中中南坑啦，这聚集的几天怎么样？大家记住：民生[银行]不倒，招商[银行]不倒，平安[银行]不倒，中国经济不会倒，包括邮储银行。还显摆呢？民生银行我原来说1.7万亿[金融票据]，结果昨天有人告诉我说：“文贵，你说太少了，3万亿找不着。”弄不回来了！任何一个猪脑袋都知道中国所有的资源，所有的财富就在那不超过200个家族手里控制着。你愿意当猪，你愿意当狗你愿意愚人自愚——愚蠢的人自己愚弄自己——你自己去玩去。不要带走所有的同胞。
 
-关于该病毒是从武汉的一个实验室泄露出来的，还是起源于自然的，一场激烈的辩论已经展开。最初，著名科学家公开嘲笑当时的总统唐纳德·川普及其盟友信奉的所谓实验室泄漏理论是阴谋论，而情报界在2020年4月下旬发表了一份罕见的公开声明，申明“也同意广泛的科学共识，即中共病毒不是人造的或转基因的。”
+In addition, brothers and sisters, you should see that the same logic has also been applied to the CCP’s economy by centralizing resources to do great things. The money is concentrated in the hands of those people in the Zhongnanhai pit. How has the state of the economy and the banks changed in the past few days? Please remember: If Minsheng Bank, China Merchants Bank, Ping An Bank do not fail, including China Postal Savings Bank, then China’s economy will not collapse. The CCP is still showing off? I said earlier that Minsheng Bank had lost 1.7 trillion worth of bank notes. But somebody told me yesterday: “Miles, you understated the amount. It is actually 3 trillion that cannot be found.” They can’t get it back. Any pig head knows that no more than 200 families control all the resources and wealth in China. If you are willing to be a pig, a dog, a stupid person who fools himself, or a self-fooling idiot, then just play by yourself. Don’t take away all the compatriots.
 
-但早在2020年3月27日，美国国防情报局——情报界最强大的科学机构之一所在地——在《新闻周刊》（Newsweek）报道的一项机密评估中发现，病毒有可能是由于“不安全的实验室做法”而“意外”出现的。
+运动员的事情就发生了问题，冬奥会还会有吗？这样的中共国还能搞冬奥会吗？那不都冻死个球的啦？！
 
-美国国家情报局局长艾薇儿·海恩斯（Avril Haines）上个月也作证说，美国情报机构还不清楚中共病毒最初在中共国“在何地、何时或如何传播”，但仍专注于两个主要理论，“它是人类与受感染动物接触后自然产生的，还是实验室事故。”
+What happened to the athletes indicates problems. Will the Winter Olympics still happen? Can Communist China who behaves like this still host the Winter Olympics? Wouldn’t all the athletes freeze to death?
 
-而中共国政府缺乏透明度，数据共享受限，也阻碍了情报部门彻底调查实验室泄密理论的能力，美国和英国上周呼吁中共国参与世界卫生组织（WHO）对疫情起源的第二阶段调查，但中共国回应称，其在调查中的作用“已经完成”。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60aba2a8744cbc431363c46e](https://gtv.org/getter/60aba2a8744cbc431363c46e) (00:47-02:57)
+鸣谢：[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1269395/](https://gnews.org/zh-hans/1269395/)
+[2] 感谢YY、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于 [https://gnews.org/1271900/](https://gnews.org/1271900/)
 
-（原文完）
+* * *
 
-CNN竟然还称“最初，著名科学家公开嘲笑当时的总统唐纳德·川普及其盟友信奉的所谓实验室泄漏理论是阴谋论”，恬不知耻，媒体中你CNN攻击川普总统信奉阴谋论是最激烈的，现在想撇清关系了？
+**整理校对 & 新闻撰写：【7PawBear（纽约香草山农场）】
+字幕：【Melody太阳的旋律】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-与邪恶划清界限，向正道主义靠拢还来得及！
-
-原文链接：
-
-[https://www.cnn.com/2021/05/30/politics/michael-mccaul-coronavirus-origins-cnntv/index.html](https://www.cnn.com/2021/05/30/politics/michael-mccaul-coronavirus-origins-cnntv/index.html)
-
-0
++1

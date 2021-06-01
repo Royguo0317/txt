@@ -1,33 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国国土安全部称无疫苗护照计划
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1287445/)
+## 【墙内热搜】“童心向党”，可悲的六一
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1287468/)
 
-蒙特利尔皇家山战友团 Spirit
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31220915/image1-29.jpg)图片来源：Cleveland 19 News
-据《零对冲》（Zero Hedge）5月30日报道，国土安全部（DHS）周五收回了该机构负责人原来的言论，他在当天早些时候表示，联邦政府正在 “非常仔细地研究 “要求疫苗护照出入境美国的想法。
+作者：纽约香草山写作组  木白
 
-美国广播公司 《早安美国 》的一位主持人问国土安全部负责人亚历杭德罗-马约卡斯，”很快到夏季，欧洲和其他国家将开放。我们能否看到疫苗护照在国际上旅行，无论是进入或离开美国？”马约卡斯回答，”我们正在密切关注这个问题。”
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-但国土安全部说，马约卡斯只是在谈论美国人将需要使用这种护照进入其他国家。 “我们一直说，我们正在研究如何确保在国外旅行的美国人有一个快速和简单的方式进入其他国家。这是马约卡斯所指的；确保所有美国旅行者将能够轻松地满足任何预期的外国入境要求。”该机构的一位发言人告诉新闻媒体。该部门还说：”不会有联邦疫苗数据库，联邦也不会强制要求每个人必须获得疫苗接种凭证。
 
-白宫在回应马约尔卡斯的声明时也说了同样的话。 在被要求解释马约卡斯的言论时，女发言人卡琳-让-皮埃尔在空军一号上对记者说：”美国政府认识到其他国家已经或可能有外国入境要求，我们将监测这些要求并帮助所有美国旅行者满足这些要求，但我们不会，联邦不会强制要求任何人获得疫苗接种证书”。拜登政府此前曾多次表示，它不会在联邦层面上要求疫苗护照，或疫苗接种证明。
 
-然而，政府正在与私营公司合作，为疫苗护照系统制定指导方针。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31221903/%E7%AB%A5%E5%BF%83%E5%90%91%E5%85%9A%EF%BC%8C%E5%8F%AF%E6%82%B2%E7%9A%84%E5%85%AD%E4%B8%80-2.jpg)
 
-许多团体都对疫苗护照提出了担忧，认为要求提供疫苗接种证明是对政府权力的过度扩张。一些州已经禁止要求提供护照，如佐治亚州，以及参议员特德-克鲁兹（Ted Cruz）、迈克-布劳恩（Mike Braun）和辛西娅-卢米斯（Cynthia Lummis）阿-卫欧（R-Wyo）周五宣布，他们将提出一项法案，以禁止疫苗护照。
+六一儿童节本是孩子们最快乐的节日。可悲的是在墙国内的学校开展轰轰烈烈的“童心向党”的文艺演出。甚至是幼儿园的小朋友都穿着红卫兵的衣服，歌唱中共。
 
-“美国人不应该因为COVID-19疫苗状况而受到歧视，不管是在工作中还是在日常生活中。美国人拥有既定的隐私权，而任何强制性的疫苗护照都会破坏这种权利。疫苗护照将是对那些无论出于何种原因而不接种COVID-19疫苗的人的歧视。克鲁兹在一份声明中说：”我们应该通过增加对病人的保护来鼓励个人接种疫苗，而不是强制接种。
+从亿万学校的舞台，到所有人的朋友圈，再到中共媒体铺天盖地的宣传。六一儿童节，成为了中共对人民赤裸裸的洗脑的政治宣传。
 
-“事实是，出于合法的原因，不是每个人都能接受COVID-19疫苗。我接种了疫苗，因为这对我来说是正确的决定，但是人们应该自由地做出适合他们的决定，如果他们有顾虑，可以咨询他们的医生。不能接种疫苗的人不应该被剥夺日常生活的各个方面或参与社会的机会“。克鲁兹补充说：”强制要求接种疫苗或要求所有个人在恢复正常生活之前完全接种疫苗可能会阻止美国完全重新开放。”
+这是中国人的悲哀。看看那些无邪的儿童，从小却被“红毒”洗脑，他们能成长为精神独立，身心健康的正常人吗？
 
-美国在本周早些时候达到了50%的成年人完全接种CCP病毒疫苗的里程碑。截至5月28日，这一比例上升到近51%，即1.313亿18岁或以上的美国人已经完全接种疫苗。
+“韭菜”“五毛”，可悲的中国人成为奴隶，从他们出生起就被圈养，纯真的童年早被玷污。不推翻中共，这个民族何来未来？
 
-现在的局势是未接种疫苗的人担心会受到歧视，数年内疫苗的副作用和死亡大面积来临时，那时应该是接种疫苗的人才会担心吧。希望尽快叫停疫苗，疫苗护照永远不会推出。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31221854/%E7%AB%A5%E5%BF%83%E5%90%91%E5%85%9A%EF%BC%8C%E5%8F%AF%E6%82%B2%E7%9A%84%E5%85%AD%E4%B8%80-1.jpg)
 
-[原文链接](https://www.zerohedge.com/political/homeland-security-walks-back-directors-claim-us-taking-close-look-vaccine-passports?utm_campaign=&amp;utm_content=Zerohedge%3A+The+Durden+Dispatch&amp;utm_medium=email&amp;utm_source=zh_newsletter):
+校对/发稿：雪梨
 
-编辑、发稿 ctt
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
