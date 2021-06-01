@@ -1,41 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内热搜】“童心向党”，可悲的六一
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1287468/)
+## 由于地方政府考虑到汽车的“安全风险”，特斯拉在中（共）国进一步受限
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1287646/)
 
-作者：纽约香草山写作组  木白
+翻译：康州盘古农场 – 柯镇恶
+校对：康州盘古农场 – 郭班之樱
+编辑：康州盘古农场 – 明子
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+据《零对冲》作者：TYLER DURDEN  2021年5月30日报道：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31231353/2021-6-4-001.png)
+特斯拉和中国共产党之间的坎坷之路似乎还在继续。
 
+据[彭博社报道](https://www.autonews.com/china/some-chinese-government-agencies-review-tesla-ownership-among-staff)，这家汽车制造商在中（共）国正面临“进一步的影响”，因为一些地方政府正在审查其员工中特斯拉汽车的拥有情况，理由是这些汽车存在潜在的安全风险。
 
+在浙江和广西，政府机构已被要求检查并报告拥有特斯拉汽车的员工。报告指出，出于所谓的安全风险，员工被“禁止”开车进入某些官方区域。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31221903/%E7%AB%A5%E5%BF%83%E5%90%91%E5%85%9A%EF%BC%8C%E5%8F%AF%E6%82%B2%E7%9A%84%E5%85%AD%E4%B8%80-2.jpg)
+其他中（共）国官方机构也纷纷效仿。例如，中国气象局已经告诉其员工不要购买特斯拉电动汽车，如果他们已经购买了，则要转让车辆的所有权。中共中宣部（是的，实际上就是这么叫的）也在“检查是否有员工或他们的家人拥有特斯拉汽车”。
 
-六一儿童节本是孩子们最快乐的节日。可悲的是在墙国内的学校开展轰轰烈烈的“童心向党”的文艺演出。甚至是幼儿园的小朋友都穿着红卫兵的衣服，歌唱中共。
+特斯拉与中（共）国关系的任何持续重大问题都可能对这家汽车制造商造成毁灭性打击，因为该公司依赖这个全球最大的汽车市场来帮助其全速生产，以满足华尔街日益乐观的预期。
 
-从亿万学校的舞台，到所有人的朋友圈，再到中共媒体铺天盖地的宣传。六一儿童节，成为了中共对人民赤裸裸的洗脑的政治宣传。
+回想一下，在 5 月中旬，我们注意到由于担心其摄像头，特斯拉汽车已被禁止进入一些中（共）国政府大楼。
 
-这是中国人的悲哀。看看那些无邪的儿童，从小却被“红毒”洗脑，他们能成长为精神独立，身心健康的正常人吗？
+据路透社5月报道，“出于对安装在汽车上的摄像头的安全考虑”，一些中（共）国政府官员的工作人员被告知，不要将特斯拉汽车停放在政府大楼内。
 
-“韭菜”“五毛”，可悲的中国人成为奴隶，从他们出生起就被圈养，纯真的童年早被玷污。不推翻中共，这个民族何来未来？
+根据同一份报告，北京和上海的“至少两个政府机构”也被告知了同样的情况。目前尚不清楚这对多少员工和车辆产生了直接影响。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31221854/%E7%AB%A5%E5%BF%83%E5%90%91%E5%85%9A%EF%BC%8C%E5%8F%AF%E6%82%B2%E7%9A%84%E5%85%AD%E4%B8%80-1.jpg)
+报告指出，尽管许多车辆都安装了摄像头和传感器，但这一限制“仅适用于特斯拉汽车”。
 
-校对/发稿：雪梨
+这不是中（共）国第一次将安全问题作为禁止特斯拉汽车的理由。早在 3 月份， 中（共）国就禁止了特斯拉汽车进入军事基地，原因是类似的对汽车摄像头的担忧。该禁令是由于“对车辆内置摄像头收集敏感数据的担忧”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+回想一下，在他们最近对特斯拉的态度（在马斯克奇怪地谴责比特币之后）做出有点是180度的改变之前，中（共）国官方媒体对美国汽车制造商除了友好之外什么都没有。
 
-**更多资讯，更多关注**
+我们已经记录了过去几个月来特斯拉与中共之间持续的争吵，这显然是（至少公开的是）在上海车展上的一名抗议者声称特斯拉车辆出现刹车故障这一事件催化的。这引起了中（共）国媒体强烈地羞辱，他们称特斯拉对此事的处理是一次“大错”，并暗示这可能对特斯拉在中（共）国市场“造成严重损害”。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+原文链接：[https://www.zerohedge.com/markets/tesla-facing-further-fallout-china-local-governments-mull-security-risks-vehicles](https://www.zerohedge.com/markets/tesla-facing-further-fallout-china-local-governments-mull-security-risks-vehicles)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
