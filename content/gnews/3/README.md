@@ -1,15 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纳瓦罗：中国将病毒武器化给美国造成的损失超过20万亿美元
-` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1288421/)
+## 【独立观点】普京与卢卡申科的暧昧关系
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1288296/)
 
-- 中文简介：彼得-纳瓦罗博士追踪了中国如何通过关闭自己的边界，但向世界开放旅行（同时囤积医疗用品）来将病毒武器化。 纳瓦罗计算了中共将病毒武器化的真实成本。
-- 英文标题：Navarro: China Weaponizing Virus Cost U.S. Over $20 Trillion
-- 英文简介：Dr. Peter Navarro traces how China weaponized the virus by closing down its own borders, but opening travel up to the world (while hoarding medical supplies.) Navarro calculated the true cost of the CCP weaponizing the virus.
-- 原视频链接：[https://rumble.com/vhp7xz-navarro-china-weaponizing-virus-cost-u.s.-over-20-trillion.html](https://rumble.com/vhp7xz-navarro-china-weaponizing-virus-cost-u.s.-over-20-trillion.html)
+作者：纽约香草山健身部 童谣
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
 
 
+
+白俄罗斯暴力劫机事件的发酵，引发了来自欧洲和美国的全面制裁。导致卢卡申科也体会了一把“泰山压顶”的感觉，不得不再次向普京寻求帮助。而大哥一出手也是阔气，帮小弟说话毫不含糊，但这件事情是否如表面一样“纯洁”，我们来捋捋看。
+
+5月23日白俄罗斯当局以炸弹威胁为由派一架战机紧急升空，迫使一架瑞安航空的飞机在明斯克降落，并拘留一名反对派记者。白俄罗斯独裁者明目张胆劫持客机非法逮捕异己者Nexta新闻机构的前编辑和其女友之后，还要强迫这位无辜人质“电视认罪”。并把这个视频和“哈马斯恐怖威胁”当作劫机抓人的“正当理由”，显然白俄罗斯的做法实在拙劣，卢卡申科几乎以裸奔的姿态向前冲锋，丝毫没有一点掩饰的想法。
+
+事发后当天，欧盟27国领导人召开紧急会议，要求白俄罗斯立即释放被捕的普罗塔塞维奇及其女友萨佩加，并表示会冻结向白俄罗斯提供的30亿欧元计划，以及采取必要措施禁止来自白俄罗斯的航班进入其领空，此举也大概会使白俄罗斯航空公司损失5000万美元。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01034711/file-20200916-16-1o80awp.jpeg)
+
+总体看来，即使是为了抓捕异见者，对于一位没有底线的独裁者来说，也显得过于草率，或更有一种“耍花枪”的嫌疑。而且如此大动阵仗的白俄罗斯遭到欧盟制裁后经济损失惨重。并有最新消息显示美国将于6月3日恢复此前解除的、对9家白罗斯国有企业的制裁；另外，美国也将暂停与白俄罗斯关于相互利用领空的条约。
+
+我们知道卢卡申与普京一直交好，此事不免让人想到，白俄罗斯之所以有底气如此嚣张，其背后绝对离不开大哥的支持。而5月27日就有俄罗斯总理到达白俄罗斯访问送来温暖，不过好像总理的到来还不能给白俄罗斯吃下定心丸。28日卢卡申科就又火急火燎找到普京一谈就是5个小时，可以看得出在欧盟和美国的联合制裁下，卢卡申科早已十分慌乱。
+
+正如中共媒体所写“老卢情绪很激动，不停地向普京诉说着心中的委屈”。据报道卢卡申科还要向普京展示与瑞安航班紧急迫降有关的“一些文件”。不知道文件中藏着什么秘密，使得普京要立即在未来几周内提供5亿美元贷款支持卢卡申科。
+
+再看普京的谈话其实也很有意思，如果为了帮小弟说话，可以直接指责欧盟。但是普京说的是“欧盟双重标准”，举的例子却是美国。普大帝侃侃而谈，“2013年美国为了要捉拿中情局前雇员斯诺登，导致被误指载着斯诺登的玻利维亚总统专机迫降奥地利，但外界对事件保持沉默”。那么言外之意就是，欧盟的制裁没有问题，但不能只制裁白俄，也该制裁“有同样问题的”美国。
+
+如此看来，普大帝的醉翁之意还是回到了616日内瓦的美俄谈判上。在此之际，普京如果为了谈判桌上的筹码拿白俄罗斯做戏也不是没有可能。老油条们为了耍政治手腕，一两个无辜人士的安全又能算得了什么呢？而白俄也不过只是普大帝手中的一个冲锋陷阵的小兵罢了。
+
+参考素材：
+
+[瑞安航空ceo称其客机迫降白俄罗斯是一起国家支持的劫持事件](https://cn.wsj.com/articles/%E7%91%9E%E5%AE%89%E8%88%AA%E7%A9%BAceo%E7%A7%B0%E5%85%B6%E5%AE%A2%E6%9C%BA%E8%BF%AB%E9%99%8D%E7%99%BD%E4%BF%84%E7%BD%97%E6%96%AF%E6%98%AF%E4%B8%80%E8%B5%B7%E5%9B%BD%E5%AE%B6%E6%94%AF%E6%8C%81%E7%9A%84%E5%8A%AB%E6%8C%81%E4%BA%8B%E4%BB%B6-11621899612)
+
+[普京与卢卡申科谈及瑞安航空客机迫降事件 指欧盟双重标准](https://www.8world.com/news/world/article/putin-lukashenko-meeting-1491516)
+
+[普京终于出手了 果然很不一般！](https://news.sina.com.cn/w/2021-05-29/doc-ikmxzfmm5303476.shtml)
+
+编辑/上传：童谣，校对/发布：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

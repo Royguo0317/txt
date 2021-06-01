@@ -1,31 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拍案惊奇短评系列之二十一——放过孩子
-` 左媛专栏` [轉載自GNews](https://gnews.org/zh-hans/1288001/)
+## 中共国人民是中共政权的“最大受害者”
+` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1288179/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01010507/76DE5477-998D-4F95-A87B-D402FD3EACA1.jpeg)
-#### 作者：左媛
-
-
-```
-又是一年儿童节。
-     共产党是不会错过任何节的，而且赋予了它们特有的党性。这不，习近平给江苏淮安小学生回信说：希望你们结合自身成长实际学好党史，以英雄人物为榜样……从小坚定听党话跟党走的决心……
-     
-     笔者忍不住大喝一声：CCP，习近平，放过我们的孩子！
-     共产党的历史就是一部不堪入目的秽史：杀人越货，欺世盗名，强奸乱交，坑蒙拐骗，奴役百姓，毁我河山……掐指一算，共产党统治中国70年有余，竟然没有做过一件有益于国家有益于人民的事情，连一件也没有；相反，有害于国家有害于人民的事情多到罄竹难书！百姓的孩子来到世上要么被饿死，要么被毒奶粉毒疫苗害死，要么倍大火围困烧死，要么被地震塌楼砸死，要么被洗脑机器虐死……如今，中共又谋划以秽史来污染孩子单纯的心灵，成批成批地污染，无人能逃脱！
-    
-     你党的少年英雄人物有谁？赖宁救山火而被烧死，龙梅玉荣为了救集体的羊群被冻僵而伤残……他们都被你树为英雄，被广为宣传。孩子们健康安全的成长难道不是第一重要吗？救山火难道不是专业的成年人的职责吗？羊命比人命还重要吗？为了党的享乐，人民要彻底奉献一切包括孩子，这样的党就该灭亡！几十年过去了，中国人的生命意识也有所提高，中共党魁竟然还要求孩子们以“英雄人物”为榜样，继续送死？一句“让领导先走”已经一次性葬送了近300名儿童的生命，你党还嫌不够吗？
-   
-     “听党话跟党走”，在躺平风靡的今天，对很多年轻人来说已经不灵了。听爹妈的话，爹妈把好吃好喝的都给孩子；听党的话，党会要了你的劳力再要你的命。跟爹娘走，爹娘牵你的手怕你摔着；跟党走，它会上你家牵牛扒房杀父奸妻！很多年轻人不好骗了，就来骗年幼无辜的孩子，有党性没人性的恶魔！
-    
-       别人过儿童节，是为了更好地保障儿童的权利、保护儿童的成长，你党过儿童节，却向儿童灌输精神毒品——学党史听党话跟党走。该死的CCP！
-     再次棒喝共产党：习近平，放过我们的孩子！
-```
+- 中文简介： 天空新闻主持人和嘉宾：事实上，中共政权的最大受害者是中共国人—如果他们说任何反对政府的话，就会被关进监狱。澳大利亚人明白这里大多数中共国人后裔与中共政权完全没有关係，大部分澳大利亚人能够区分政权和个人。
+- 英文标题：Chinese people are the ‘biggest victim’ of the Chinese communist regime.
+- 英文简介：“In fact the biggest victims of the Chinese Communist regime are Chinese people – they’re the ones who get locked up if they say anything against their government. Australians know very well that most people of Chinese descent who are here have got absolutely nothing to do with the Chinese communist regime, most Australians can distinguish between the regime and the individua,” Sky News host and guests said.
+- 原文链接：[https://mega.nz/file/jE40iBQK#vAF9tDgHN2VS3AuKskl-wvOXBftfYKeGIRwjeGQaEi8](https://mega.nz/file/jE40iBQK#vAF9tDgHN2VS3AuKskl-wvOXBftfYKeGIRwjeGQaEi8)
 
 
-2021.5.31 于纽约
 
-（本文仅代表作者个人观点）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01010840/31F2AB1A-9D63-4B6B-A14D-322E7906A703.jpeg)
+
 0

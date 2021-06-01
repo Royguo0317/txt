@@ -1,15 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国人民是中共政权的“最大受害者”
-` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1288179/)
+## 日本财经简讯 2021年5月28日
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1288180/)
 
-- 中文简介： 天空新闻主持人和嘉宾：事实上，中共政权的最大受害者是中共国人—如果他们说任何反对政府的话，就会被关进监狱。澳大利亚人明白这里大多数中共国人后裔与中共政权完全没有关係，大部分澳大利亚人能够区分政权和个人。
-- 英文标题：Chinese people are the ‘biggest victim’ of the Chinese communist regime.
-- 英文简介：“In fact the biggest victims of the Chinese Communist regime are Chinese people – they’re the ones who get locked up if they say anything against their government. Australians know very well that most people of Chinese descent who are here have got absolutely nothing to do with the Chinese communist regime, most Australians can distinguish between the regime and the individua,” Sky News host and guests said.
-- 原文链接：[https://mega.nz/file/jE40iBQK#vAF9tDgHN2VS3AuKskl-wvOXBftfYKeGIRwjeGQaEi8](https://mega.nz/file/jE40iBQK#vAF9tDgHN2VS3AuKskl-wvOXBftfYKeGIRwjeGQaEi8)
+素材：喜马拉雅东京樱花团 / Orange文橘，北京军区
+文稿：喜马拉雅东京樱花团 / Totoro
+
+![](https://lh6.googleusercontent.com/kbG4nI5jyrsGMlgNaf9C_gDbajGg-8k8JoLesN_j9zQyypuan0DVLb7Q2YITb9Dh6VKoqO9DXRTtWn7Lze91DiQ8HDZyY27sMLFKwY-s3G8V68UtEdBPNb9q7ALyNF3iNXaDMXZn)
+
+1. 5月21日，七国集团（G7）气候和环境部长总结了一份联合声明，重点是暂停对燃煤发电出口的支持。声明指出，将在今年年底前采取具体措施“彻底结束”政府对燃煤发电的支持，仅对“未采取减排措施”的设施停止支持，并附加条件，允许个别政府酌情继续支持。经济产业省（METI）的一位高级官员解释说：“没有必要对包括正在进行的项目进行审查。”一位从事燃煤火电出口的电力行业官员表示：日本（缺乏资源的状况）和亚洲的情况已经得到认可。
+
+2. 根据研究公司富士经济的一项调查，当中共病毒在全球蔓延时，与健康有关的家用电器，如电子温度计和血压计的全球市场销售额显著增长。对日本39种消费电子产品的全球市场调查表明，2020年温度计和血压计的销售额与2019年相比分别增长了71.9%和18.9%。空气净化器和机器人吸尘器的销售额也出现了两位数的增长，反映了人们对清洁的认识不断提高。
+
+3. 今年1月至3月期间的年化GDP（国内生产总值）为负5.1%。2020年财政年度的国内生产总值也下降了4.6%，成为战后最大落幅。内阁办公室宣布，排除物价变化的影响，今年1月至3月期间的实际国内生产总值比前一时期低1.3%。年化国内生产总值下降5.1%，是三个季度以来的首次负增长。1月，为了应对一种新型冠状病毒的传播，宣布了第二个紧急状态，这导致消费者支出下降，特别是对包括外出就餐的服务业的支出。
+
+4. 2021年5月25日，日本政府已经开始研究为因中共病毒而陷入困境的家庭建立一个新的支持系统。政府将调整该制度，向符合诸如储蓄少于100万日元、接近公共援助的水平等条件的家庭在三个月内提供最多30万日元的资助。该计划预计将有约20万人使用，并将由2021年财政预算提供约500亿日元的资金。日本公明党也于4月26日向政府提出建立一个为贫困者提供支持制度的建议。随着中共病毒疫情的拖延，一些人在使用重建生活的“一般支持基金”和用于生活费用的“紧急小额贷款基金”都出现了使用额度到达上限的情况。日本政府正计划为短期生活费用提供新的支持，以弥补寻找工作所需的时间。
+
+（喜马拉雅东京樱花团财经组）
 
 
 
-
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*校对：喜马拉雅东京樱花团 / 東洋武士*
+*责任编辑：喜马拉雅东京樱花团 / 文小白*
+*发布：喜马拉雅东京樱花团 / 老黑*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/29232256/%E6%A8%B1%E8%8A%B1%E5%9B%A2%E4%BA%8C%E7%BB%B4%E7%A0%81-1.jpg)
 0

@@ -1,15 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 哈德逊研究所高级研究员迈克尔∙多兰(Michael Doran)：中国共产党统治中东的计划内幕
-` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1288349/)
+## 【健身健心】户外登山运动对我们的精神生活，有哪些好处？
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1288422/)
 
-- 中文简介：哈德逊研究所高级研究员迈克尔-多兰说，中共正在寻求一步一步地控制中东，从在战略要地建设港口到扩大在该地区的海军存在。
-- 英文标题：Inside Communist China’s Plans to Dominate the Middle East—Michael Doran
-- 英文简介：The Chinese Communist Party is seeking to, step by step, dominate the Middle East, says Hudson Institute senior fellow Michael Doran—from building ports in strategic locations to expanding its naval presence in the region.
-- 原视频链接：[https://rumble.com/vho76x-inside-communist-chinas-plans-to-dominate-the-middle-eastmichael-doran-amer.html](https://rumble.com/vho76x-inside-communist-chinas-plans-to-dominate-the-middle-eastmichael-doran-amer.html)
+作者：香草山健身部 格格
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
 
 
-0
+登山是常见的一项户外有氧运动，人们都知道运动对身体健康有诸多好处，登山也不例外，从医学角度来说，它对人的视力、心肺功能、四肢协调能力、体内多余脂肪的消耗、延缓人体衰老等有直接的益处。我经过长期登山运动，从精神生活角度谈谈，登山运动带给我们的五大好处。
+
+1. 能亲眼见到的风景别人无法做到
+
+人们往往通过照片或视频鉴赏高山的壮观和美丽，真正能到达那里的人少之又少。当你到达顶峰时，一览众山小，可以心无旁骛地欣赏罕见的山景（条件是天气晴好）。
+
+特别对有摄影爱好的登山者来说，那真是大自然赠予的绝美礼物。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01034109/%E5%9B%BE%E7%89%8779.png)
+
+2. 能交到一群很棒的朋友
+
+登山爱好者都是一群很优秀的人，他们的性格都有一些相似之处：积极向上，坚强自信，乐观开朗。为了登顶，登山爱好者会花很长的时间在一起，通过彼此了解，建立友情，通过这种方式交到一生的朋友。
+
+3. 让你学会耐心、坚持和感恩
+
+登山运动并不容易，长时间攀登，对身体和心理都是考验；完成一次成功的登顶，可能需要花费几小时、几天甚至几个月，可能还需要进行多次尝试。在登山中学会永不放弃，明白所有的付出最终都是值得的。郭先生的爆料革命就像登山，为了达到灭共目标，实现新中国联邦宣言中的梦想，我们坚定信念，全力以赴，克服困难，直到胜利。
+
+4. 能让你深刻认识环境保护的重要性
+
+通过登山，能增长许多山林动植物知识，会更加尊重我们所拥有的山地资源。人类对山地资源的开发和人为干预，破坏了自然环境，使许多动植物物种濒临灭绝，所以我们会自觉地用任何可能的方式去保护我们赖以生存的环境。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01034319/%E5%9B%BE%E7%89%8780.png)
+
+5. 学会随时做好应变的准备
+
+山里的天气瞬息万变，登山的路不止一条，登山的方式也不止一种，你必须随时做好应变的准备。
+
+郭先生的爆料革命也是一样，灭共形势总是不断地在变化，而郭先生总能找到最好的策略来应对这些变化，让灭共事业走向顶峰。
+
+登山看似一件让人感到身心俱疲的事，但也是一件让人心情变得愉悦、身体得到锻炼的伟大的事。如今CCP病毒肆虐全球，危害人类生命，运动场馆被迫关闭，人们的正常活动长时间受到限制，那就让我们走进大自然，来一次说走就走的登山之旅吧。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1

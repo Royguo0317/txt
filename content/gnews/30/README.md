@@ -1,41 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 与福奇有关的武汉研究人员协助被美国制裁的中共准军事部队，以压迫维吾尔族穆斯林
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1288123/)
+## 美国前国安顾问博明认为病毒很可能来自实验室
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1288202/)
 
-翻译：飞利普|校对：烟波浩渺|审核：V
+#### 翻译报道：人参
 
-现在被许多人认为是中共病毒的潜在来源的武汉病毒研究所——与因对维吾尔人“严重侵犯人权”最先被美国政府制裁的新疆准军事部队合作进行科学研究。
+#### 责编：意翎
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01024756/1-1.png)图片来自于Twitter
+文章来自于The Hill
 
-在此之后，由于[资助](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)在有争议的实验室对蝙蝠冠状病毒的研究，并[派遣](https://thenationalpulse.com/exclusive/fauci-scientists-attended-wuhan-lab-conference/)科学家就危险的功能增强[研究](https://thenationalpulse.com/exclusive/fauci-researchers-headlined-wuhan-gain-of-function-event/)提供建议，对安东尼·福奇博士的国家过敏和传染病研究所 (NIAID) 的审查越来越严格。 除了将纳税人的钱汇给武毒所（其网站[之前](https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/)将美国国立卫生研究院（NIH）列为研究合作伙伴）之外，福奇的机构现在可以与资助一个与新疆生产建设兵团（XPCC）合作的实体相关联。
+前美国副国安顾问马修·博明周日在接受NBC主持人查科·托德的采访的时候说出了他的观点：当水落石出的那一刻，你们很有可能会看到这个病毒起源于中国武汉病毒实验室。
 
-拜登和[川普的](https://home.treasury.gov/news/press-releases/sm1073)财政部都[制裁了](https://www.nbcnews.com/politics/politics-news/biden-admin-announces-sanctions-against-chinese-officials-over-human-rights-n1261745)新疆生产建设兵团（XPCC）领导人的“严重[侵犯](https://www.hrw.org/news/2020/02/20/more-evidence-chinas-horrific-abuses-xinjiang)新疆少数民族人权，据报道，这包括大规模的任意拘留和严重的身体虐待。”国土安全部（DHS）[还](https://www.dhs.gov/news/2020/12/02/dhs-issues-detention-order-cotton-products-made-xinjiang-production-and-construction)禁止该建设兵团的棉花进入美国，理由是其与[监狱和强迫劳动](https://www.dhs.gov/news/2020/12/02/dhs-issues-detention-order-cotton-products-made-xinjiang-production-and-construction)有关。
+博明说：“现任总统拜登要求国家情报机构在90天内查清病毒来源。90天可以做很多事情，可以查清很多事实，我坚信我们会从全球的科学家们那里得到最终结论。现在查明病毒来源是美国的当务之急，这将给世界一个真相。”
 
-包括《华盛顿邮报》在内的主流媒体都认为新疆生产建设兵团是[针对](https://www.washingtonpost.com/opinions/global-opinions/chinas-repression-of-the-uighurs-began-10-years-ago-now-their-survival-is-at-stake/2019/07/04/3b568470-9daa-11e9-85d6-5211733f92c7_story.html)维吾尔人的“镇压工具”，而中共国官方媒体将该组织描述为中共国人民解放军（PLA）的一个分支，旨在“维护社会主义稳定”和“成为中共国的一支顶级民兵部队”。
+主持人问博明：“如果中共国政府不配合，我们是否有足够的能力查清病毒的真实来源呢？”博明回答道：“如果中共国政府不配合，我们也有能力查明真相，虽然时间可能会长些。你知道吗？中共国有一批有良知的科学家，他们在病毒全球大流行的初期就从中共国逃出来了。我们得到的信息是：他们怀疑病毒来自于中共国的实验室泄露，但是他们并不敢公开发声，因为他们即使逃岀来，仍然遭受着中共的威胁。但是，现在美国在主导调查病毒的起源，我们会联合全球的盟友，尽量减少他们的压力，鼓励他们勇敢地站出来。”
 
-中共领导人习近平视察了兵团，甚至称赞他们是“稳定力量”
+当查科·托德问道：“病毒溯源的进度如此缓慢，这是否和前总统川普有关？”博明回答：“病毒溯源迟迟没有进展的原因其实主要来自一些所谓的科学家，他们在病毒全球大流行的初期发布了未经证实的虚假消息，否认病毒来自于实验室，这也给了那些有良知的科学家以巨大的压力，他们的声音被压制了。我们确实希望CDC(美国疾病预防控制中心)能够负起有效监控疫情的领导职责，然而他们没有做到，我认为这是一个制度上的缺陷。”
 
-尽管存在这些明显的军事联系和侵犯人权的行为，武毒所还与兵团官员会晤并签署了合作协议。
+[原文链接](https://thehill.com/homenews/sunday-talk-shows/556139-former-deputy-national-security-advisor-i-think-we-can-find-where)
 
-2013年8月3日，武毒所网站上一则现已删除的[帖子](http://www.whiov.cas.cn/xwzx/zhxw/201308/t20130803_3908388.html)披露了与兵团的“科技合作”。
+#### 评: 
 
-有一个事件摘要记录了武毒所所长、党委书记、副研究员如何前往新疆会见兵团干部：
+博明作为前副国家安全顾问，曾主管亚太事务，会说普通话，曾经任职《华尔街日报》驻中共国记者，对中国非常了解。
 
-“*2013**年**7**月**30**日，应新疆建设兵团第十师北屯科技局邀请，中共国科学院武毒所所长陈新文，中共国科学院武毒所党委书记袁志明，中共国科学院武汉分院科技合作处处长办公室主任李伟、病毒所虫媒病毒病媒控制学科组阎建平副研究员到北屯市商讨合作事宜。”*
+美国现在对病毒溯源的工作确实一步紧似一步，现任官员不方便直接表态的观点就由前政府官员先出来吹风，当民意足够，现任官员会紧紧跟上。在这个过程中，我们看到的不是美国两党的驴象之争，而是两党的紧密合作。现在病毒来源的问题已经走到了实验室泄露的认定，下一步可能就要从“泄露”进化到“投放”了，当拜登总统的90天大限到了的时候，得出的结论会不会令共匪魂飞魄散?让我们拭目以待。
 
-据报道，这次会议的重点是“实施新的科技项目——生物灭蚊”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01021101/pp.png)已删除的报道
-
-
-另一篇被删的[文章](http://www.whiov.cas.cn/xwzx/zhxw/201308/t20130803_3908385.html)披露了武毒所参加了2013年“中共国科学院-新疆科技合作洽谈会”，在会上，中共国科学院与兵团签署了近30个“合作项目”，其中包括 武毒所和兵团十师联合承担的“高效安全蚊虫防控技术集成与示范”项目。
-
-这些联系是在《国家脉搏》发现了有关武毒所研究人员承诺“[不折不扣](https://gnews.org/zh-hans/1263642/)”执行中国共产党的议程，以及在实验室工作的与军方有关的[研究人员](https://thenationalpulse.com/breaking/wuhan-lab-erased-military-researchers-from-site/)的帖子被删除之后发生的。
-
-原文作者：娜塔莉·温特斯(NATALIE WINTERS)
-发布时间：2021年5月29日
-原文链接：[https://thenationalpulse.com/exclusive/wuhan-collaborated-with-sanctioned-xinjiang-military/](https://thenationalpulse.com/exclusive/wuhan-collaborated-with-sanctioned-xinjiang-military/)
-
-
-
-+1
+0
