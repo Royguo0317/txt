@@ -1,41 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CNN大转弯：病毒溯源存人类历史上最严重的掩盖
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1287045/)
+## 【有声读物】香港的新模式
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1287337/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+配音：香草山录音组 蒙古鸿雁
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31200350/C-35.jpg)preforthat.com
-曾经是攻击天使闫博士最猖狂的左媒之一CNN现在称，中共病毒的起源存在着“人类历史上最严重的掩盖”！
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-这是众议院外交事务委员会迈克尔·麦考尔（Michael McCaul）接受CNN的杰克·塔珀（Jake Tapper）采访时的用语，塔珀一副痛改前非的打扮，戴上了眼镜，搞得笔者差点没有认出这个长期以来为左派民主党叫嚣、攻击川普总统是阴谋论传播者的主持人。
 
-CNN报道说，德克萨斯州众议员迈克尔·麦考尔是众议院外交事务委员会的资深共和党人，他周日（5月30日）声称，中共病毒的起源存在着人类历史上“最严重的掩盖”。
 
-“你知道，我确实认为它很可能是从实验室里冒出来的，很可能是意外。” 麦考尔在《国情咨文》节目中对CNN的杰克·塔珀说，但没有提供证据，支持他的说法“这是人类历史上最严重的一次掩盖行动，造成350万人死亡，在全球造成了经济破坏。”
 
-麦考尔发表上述评论之前，美国总统拜登发出指示，命令情报界加倍努力，调查中共病毒疫情的起源，并在90天内向他报告。一份美国情报报告发现，中共国武汉病毒研究所的几名研究人员在2019年11月患病，不得不住院。
 
-据一位知情人士透露，其他议员也要求就病毒的来源作出答复，众议院外交事务委员会（House Foreign Affairs Committee）成员本月早些时候就此事收到了一份机密简报，该委员会长期以来一直在调查疫情的起源，该消息人士拒绝透露，在简报中是否讨论了提到这些住院研究人员的情报报告。
 
-关于该病毒是从武汉的一个实验室泄露出来的，还是起源于自然的，一场激烈的辩论已经展开。最初，著名科学家公开嘲笑当时的总统唐纳德·川普及其盟友信奉的所谓实验室泄漏理论是阴谋论，而情报界在2020年4月下旬发表了一份罕见的公开声明，申明“也同意广泛的科学共识，即中共病毒不是人造的或转基因的。”
 
-但早在2020年3月27日，美国国防情报局——情报界最强大的科学机构之一所在地——在《新闻周刊》（Newsweek）报道的一项机密评估中发现，病毒有可能是由于“不安全的实验室做法”而“意外”出现的。
+国安法在港实施后，新香港怎样落实“剥夺政治权利终身”这个刑罚？这个大陆式的刑罚又怎样在港执行？这几个月，笔者读了不少因为初选案或者其它莫须有的国安法案，还读了被还押者的亲笔信。读起来一字一泪。之前还是慷慨激昂，现在就都纷纷交代自己要退出政坛、主动退党，解散组织，关闭社交媒体平台专号，不再参与政治，只希望做回普通人，陪伴家人过平淡日子。
 
-美国国家情报局局长艾薇儿·海恩斯（Avril Haines）上个月也作证说，美国情报机构还不清楚中共病毒最初在中共国“在何地、何时或如何传播”，但仍专注于两个主要理论，“它是人类与受感染动物接触后自然产生的，还是实验室事故。”
 
-而中共国政府缺乏透明度，数据共享受限，也阻碍了情报部门彻底调查实验室泄密理论的能力，美国和英国上周呼吁中共国参与世界卫生组织（WHO）对疫情起源的第二阶段调查，但中共国回应称，其在调查中的作用“已经完成”。
 
-（原文完）
+**文字版原文：[【圣城传声筒】香港的新模式](https://gnews.org/zh-hans/1284527/)**
 
-CNN竟然还称“最初，著名科学家公开嘲笑当时的总统唐纳德·川普及其盟友信奉的所谓实验室泄漏理论是阴谋论”，恬不知耻，媒体中你CNN攻击川普总统信奉阴谋论是最激烈的，现在想撇清关系了？
+作者：纽约香草山香港部 自由鸟
 
-与邪恶划清界限，向正道主义靠拢还来得及！
 
-原文链接：
 
-[https://www.cnn.com/2021/05/30/politics/michael-mccaul-coronavirus-origins-cnntv/index.html](https://www.cnn.com/2021/05/30/politics/michael-mccaul-coronavirus-origins-cnntv/index.html)
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

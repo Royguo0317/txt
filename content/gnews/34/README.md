@@ -1,38 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议员泰德·克鲁兹：武汉实验室泄漏事件需要的关键证据
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1287087/)
+## 【有声读物】中共建党百年活动 境外记者不能临时进京采访
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1287359/)
 
-参议员泰德·克鲁兹： 武汉实验室泄漏事件需要的关键证据：“（[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)）应该已从该实验室的工作人员那里获取了血液样本。” “这就是他们没有公开的证据。” “如果，事实上，血液样本显示…实验室里的人感染了这种病毒”
+配音：香草山录音组 蒙古鸿雁
 
-
-
-> 1/x Critical evidence needed on Wuhan lab leak: “[The CCP] would have blood samples from the workers in that lab.”
-> 
-> “And that’s the evidence that they haven’t made public.”
-> 
-> “If, in fact, the blood samples show that a high prevalence of….”[https://t.co/PUmCeprS4s](https://t.co/PUmCeprS4s)
-> — Ted Cruz (@tedcruz) [May 31, 2021](https://twitter.com/tedcruz/status/1399207163243995140?ref_src=twsrc%5Etfw)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-…如果实验室里的人接触过这种病毒，这就是一个确凿的证据，证明这种病毒在实验室里传播。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 也会有他们第一次被抽取时的样本，也就是他们患病时的样本。毫无疑问……”
 
 
 
-> 2/x “…people in that lab have been exposed to this virus, that’s pretty definitive proof that this coursed through that lab. And they would also have the samples from the time that they were first drawn, which was the time when they had those illnesses. There’s no question….”
-> — Ted Cruz (@tedcruz) [May 31, 2021](https://twitter.com/tedcruz/status/1399207619177418752?ref_src=twsrc%5Etfw)
+
+今年是中共成立100周年，7月1日前后，北京将举行隆重的庆祝活动。中共官媒新华社周五报导：将邀请部分在京的港澳台记者和外国记者现场采访庆祝活动，出于疫情顾虑，不邀请境外记者临时来京采访。
+
+在全球疫情大流行之际，为了营造中共国一家独好的政治氛围，中共各种宣传机器开启了高调的“庆祝”活动。北京设立了专门的新闻中心，该中心设在北京梅地亚中心，将于6月26日正式运行。
 
 
 
-“…毫无疑问，当他们在实验室里爆发疾病时，他们会在实验室里做血常规取样。这只是在那种级别的实验室里的正常控制流程。所以他们会得到这些信息。”
+**文字版原文：[【热点播报】中共建党百年活动 境外记者不能临时进京采访](https://gnews.org/zh-hans/1284409/)**
+
+作者：纽约香草山健身部 Jack Li文阳
 
 
 
-> 3/x “…no question that when they had an outbreak of an illness in that lab that they would have done routine blood sampling in that lab. That’s just normal controls in a lab of that quality. So they would have that information.”
-> — Ted Cruz (@tedcruz) [May 31, 2021](https://twitter.com/tedcruz/status/1399207927907508228?ref_src=twsrc%5Etfw)
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

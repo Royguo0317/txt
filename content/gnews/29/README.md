@@ -1,206 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国病毒学家闫丽梦博士因讲真话而曾被互联网抹去
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1287135/)
+## 【锐语】国防科技大军事科学家在英国研究气溶胶和石墨烯
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1287319/)
 
-**字幕内容：**
+杰克·莱恩2021年5月29日在星期日邮报发表透露：中国武器科学家一直致力于剑桥大学新战场材料的关键研究，冯俊宗博士曾是剑桥大学石墨烯的“访问研究员”，他在研究的这种材料的强度是钢的 200 倍，但比橡胶更有弹性，具有巨大军事潜力，石墨烯也可以导电。2004 年，曼彻斯特大学的一个团队首先从石墨中提取了它。冯博士于 2016 年被拍到身穿中国解放军军装。这位中国军事科学家一直在剑桥大学的一个团队进行研究，研究在英国发现的一种革命性物质。38 岁的 Junzong Feng 博士一直在剑桥大学纳米工程组担任“访问研究员”。
 
-**Dr. Li-Meng Yan**
-**闫丽梦博士**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31213130/279-scaled.jpg)
 
-I really hope they can come to reach the clear conclusion within 90 days
-我真的希望他们能在90天内得出明确结论
+在 NanoEngineering 网站上使用的照片中，冯博士穿着宽松的蓝色开领衬衫，但在 2016 年在家乡的国防技术竞赛中获得一等奖后，他自豪地穿着中国人民解放军的制服拍摄了一张照片。这位科学家在 18 岁时加入了解放军国防科技大学，并因其开创性的武器研究而在中共国广受中共的赞誉，最近被任命为纳米工程组所开展工作的学术论文的合著者。这位学者穿着制服的照片是在捷克共和国智库 Sinopsis 删除的中文网页上发现的。随附的推荐信称赞冯博士拥有“17 项国家发明（国防）专利”，并列出了他在武器开发方面的奖项。
 
-First, I have present enough evidence
-首先，我已经通过我发表的三份报告
+冯博士在剑桥石墨烯中心工作的揭露将加剧安全部门对中国科学家参与英国研究敏感领域的担忧。虽然冯博士没有任何不当之处，但他与中国军方的联系是在外交部、特别部门和英国皇家海军委员会的专家编制的一份学术名单中，该名单涉嫌向北京传递敏感信息，包括英国的开创性技术。驻中国的前外交部外交官马修·亨德森说：“几十年来，英国开创性的军民两用研究经常包括中国科学家，但这种程度的参与真的符合英国的利益吗？必须安全地进行已知或可能具有国防和安全应用的新材料和技术的工作，否则它将继续成为系统性竞争对手的牺牲品。
 
-including scientific and also intelligence evidence through my three published reports
-提出了足够的证据，包括科学和情报证据
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31213130/279-scaled.jpg)
 
-and also I have given a lot of other information through medias
-而且我也通过媒体提供了很多其他信息
+剑桥大学对冯博士的介绍将他描述为“气凝胶”方面的专家，这是世界上最轻的固体，并表示他一直在研究“用于高性能吸光层的喷墨打印气凝胶”。然而，在中国发表的专利和研究论文表明，他一直在研究如何将气凝胶用于军队。
 
-and now uh we also know that there is a PLA textbook
-而且现在我们还知道了解放军有一本教科书
+这种合作似乎很常见。《星期日邮报》发现，自 2016 年以来，剑桥石墨烯中心的工作人员和与解放军有联系的中国大学的学者共同撰写了 9 篇研究论文。其中包括应用物理与计算数学研究所，该研究所在发展核弹头这方面发挥了关键作用。剑桥大学的一位发言人说：“冯俊宗博士在大学期间没有进行任何实验，无法进入实验室，也没有参加小组研究会议。“我们与中国研究人员的合作使我们能够相互分享专业知识，但不涉及具有直接军事应用的研究。我们拒绝任何其他暗示的指控或推论。他补充说，该大学从未“与……中国的军事机构建立任何正式关系”。中国大使馆发言人表示：“中英学术交流是中英关系不可分割的一部分。”冯博士没有回应置评请求。
 
-which have some or clearly mentioned back to 2015 in a open way
-其中有些或明确提到可以追溯到2015年
+剑桥大学对冯博士的介绍将他描述为“气凝胶”方面的专家，这是世界上最轻的固体，并表示他一直在研究“用于高性能吸光层的喷墨打印气凝胶”。然而，在中国发表的专利和研究论文表明，他一直在研究如何将气凝胶用于军队。-小象看到这一段，气溶胶气溶胶，在新冠病毒开始爆发的时候，中共公开在媒体上说过：这是一种新的病毒，很大可能通过气溶胶传染：小象心里有问号，为何所有的海外的和病毒能挂上钩的学者科研人员，是由八九都来自部队院校呢？
 
-I mean they tell it as an open secret to the people
-我的意思是他们说这是一个公开的秘密
+查了下国防科技大学官方网站的介绍：
 
-There will be the novel bioweapon developed based on coronavirus
-将会有基于冠状病毒开发的新型生物武器
+国防科技大学的前身是1953年创建于哈尔滨的中国人民解放军军事工程学院，即著名的“哈军工”，陈赓大将任首任院长兼政治委员。“哈军工”创办于朝鲜战争期间，是新中国第一所高等军事工程学院，其卓越的办学成效铸就了我国国防科技和高等教育史上一座丰碑。1970年，学院主体南迁长沙，改名为长沙工学院。1978年，改建为中国人民解放军国防科学技术大学。1999年，长沙炮兵学院、长沙工程兵学院和长沙政治学院并入国防科学技术大学。2017年，中央军委决策，以国防科学技术大学、国际关系学院、国防信息学院、西安通信学院、电子工程学院，以及理工大学气象海洋学院为基础，重建国防科技大学，并将军委装备发展部第63研究所划归国防科技大学，归军委建制领导。
 
-and which can be looks like nature occurring
-而且看起来像大自然出现的
+小象认为这是妥妥的中共军队的军事院校。最后说了，归军委建制领导，国防科技大学的学生自动归入国家部队的编制体系，是军人。
 
-the important thing is to deny, to spread the misinformation
-重要的是要去否认，一旦人们意识到这是来自实验室
+参考链接：
 
-once people realize it’s from the lab
-要发布关于病毒错误信息，去误导人们
+[https://www.dailymail.co.uk/news/article-9632899/Chinese-weapon-scientist-heart-UK-military-research.html](https://www.dailymail.co.uk/news/article-9632899/Chinese-weapon-scientist-heart-UK-military-research.html)
 
-So what we need to do is
-所以我们需要做的是
+[https://www.nudt.edu.cn/xxgk/kdjj/index.htm](https://www.nudt.edu.cn/xxgk/kdjj/index.htm)
 
-we need to collaborate with more and more scientists or professional people
-我们需要与越来越多的科学家或专业人士合作
+图片来源：[https://www.nudt.edu.cn/](https://www.nudt.edu.cn/)
 
-and together with our public to show the evidence
-并与我们的公众一起展示证据
+整理撰稿：蓝精灵
 
-to show the people let people understand
-向人们展示，让人们理解
+校对发布：Penny
 
-this is really the bioweapon the novel bioweapon,
-这就是真正的生物武器，新型的生物武器
-
-unrestricted bioweapon made by PLA
-解放军制造的超限战的生化武器
-
-Not only one lab， not only Wuhan lab
-不只是一个实验室，不只是武汉实验室
-
-they do a lot of things，
-他们做了很多事情
-
-they donate money and effort to develop it
-他们捐赠金钱和努力去发展它
-
-to harm the whole world and it is intentionally release
-来伤害全世界，这是故意释放的
-
-not lab leak we need to show this evidence
-不是实验室泄漏，我们需要展示证据
-
-we need to work together
-我们需要一起工作
-
-and we need to stop the pandemic as soon as possible
-我们需要尽快停止这个大流行
-
-and hold the Chinese government accountable
-而且追究中共国政府的责任
-
-Benny （Newsmax host)
-本尼 (Newsmax 主持人）
-
-Very quickly doctor last question
-很快，博士，最后的问题
-
-because we are out of time
-因为我们快没时间了
-
-have you been contacted by American intelligence？
-美国情报部门曾与您联系过吗？
-
-have you been contacted by any by NIH by anyone who may be studying the coronavirus origins
-美国国立卫生研究院是否有任何可能在研究
-冠状病毒起源的人与你联系过？
-
-Dr. Li-Meng Yan
-闫丽梦博士
-
-Actually I can tell you now is
-实际上，我现在可以告诉您的是
-
-from the first day I came to U.S.
-从我来到美国的第一天起
-
-FBI Homeland and other people start contact me
-联邦调查局、国土安全部和其他人就开始联系我
-
-and I do believe that they have connected information
-而且我确实相信他们已经关联了信息
-
-and listening to my word
-而且听我的阐述
-
-but I hope more people can do it
-但我希望更多的人可以做到
-
-and also yeah they were like bioweapon experts
-并且是的， 就像那些生物武器专家
-
-they totally agree with my work
-他们完全同意我的报告
-
-and also like Dr. Navarro and also Mr. Bannon
-而且还有像纳瓦罗博士和班农先生
-
-all these people they try to help people understand what happened
-所有这些人，他们试图帮助人们了解发生了什么
-
-there are many people work uh to promote this truth to the public
-有很多人在向公众宣传这个真相
-
-but we do need more people to get involved
-但是我们确实需要更多的人参与
-
-and yes people from even NIH turn to me
-是的，甚至美国国立卫生研究院的人都转向
-开始支持我的观点
-
-the one previously told people that it’s from nature
-就是以前告诉这是来自自然的人
-
-and even try to rebut me in New York time or CNN
-他们甚至试图在《纽约时报》或CNN上反驳我
-
-now they tell to me they admit that this is lab origin
-现在他们告诉我，他们承认这是实验室起源
-
-and they want to get my suggestion
-而且他们想得到我的建议
-
-and I’m happy to provide my knowledge and the information to people
-而且我很高兴向人们提供我的知识和信息
-
-whoever won’t know the truth
-给那些不知真相的人
-
-Benny
-本尼
-
-Truth is what we need now more than ever
-真相是我们比以往任何时候都更需要的
-
-and experts like yourself people who are truly brave
-还有像你这样的专家真正勇敢的人
-
-you are truly brave doctor
-你是真正的勇敢的，博士
-
-Thank you so much
-非常感谢你
-
-we certainly support your research and your truth
-我们当然会支持你的研究和你的真相
-
-Thank you for joining us
-感谢您加入我们的节目
-
-Dr. Li-Meng Yan
-闫丽梦博士
-
-Thank you, Benny
-谢谢你，本尼
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 : [https://www.youtube.com/watch?v=VXnSoVaMQmM](https://www.youtube.com/watch?v=VXnSoVaMQmM)
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Layka
-审片：康州盘古农场- 银龙
-字幕+视频制作：康州盘古农场 -青梅煮酒
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

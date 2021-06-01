@@ -1,27 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】突发疫情 世界杯预赛赛事主办权移交阿联酋
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1286960/)
+## 参议员泰德·克鲁兹：武汉实验室泄漏事件需要的关键证据
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1287087/)
 
-中国足协周一（5月31日）宣布，由于马尔代夫和叙利亚两国足球队最近发生疫情，这两支球队入境中国需要隔离从而影响到它们参加赛事，因此世界杯预赛A组剩下的有关赛事将从中国苏州转移至阿联酋迪拜举行。中国国家足球队剩余的比赛也将转至迪拜进行。中国足球协会的通知说，“根据亚足联的建议，中国足球协会同意，决定2022国际足联卡塔尔世界杯和2023亚足联中国亚洲杯联合预选赛第二阶段(四十强赛)A组的剩余比赛，将不在苏州举办，转移至阿联酋迪拜继续举行。”除了马尔代夫和叙利亚两支球队出现疫情外，中国近日疫情恶化也是中国足协这次作出把原定在中国举办的赛事主办权转交给迪拜的因素之一。
+参议员泰德·克鲁兹： 武汉实验室泄漏事件需要的关键证据：“（[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click)）应该已从该实验室的工作人员那里获取了血液样本。” “这就是他们没有公开的证据。” “如果，事实上，血液样本显示…实验室里的人感染了这种病毒”
 
-中国国家卫健委周一报告说，全国周日新增病例27例子，其中当中20例本土病例均在广东省，广州有18例，佛山有2例。据报道，广州白云国际机场已经有519个航班被取消。在全球大流疫期间，这个机场是世界上最繁忙的机场之一。去年，这个机场接待旅客4380万人次。疫情引起当地恐慌，广东民众抢打疫苗，疫苗接种站排起长队，通宵不断。
 
-上周六，广州政府下令本市荔湾区的五个街区的居民留在家里不要外出。那里的娱乐设施和市场也都奉命关闭。广东这一波疫情始于5月21日，当天荔湾区有一名75岁的女性确诊，基因测序发现她感染的是印度变种病毒株。这名老人近期没有去过国内中高风险地区、没有境外旅居史，发病前14天都在广州生活。目前还没有找到这名女性感染的源头。广州疾控中心表示，此轮疫情传播速度极快，人们在一起吃顿饭都可以造成病毒传播。
 
-这在热爱足球的广东的很多球迷失望了。党媒疯狂的疫情渲染和疫苗宣传，让人们完全无视源头这个最最关键的问题。媒体的报道出多个源头方案，而且以谣辟谣，用一些夸张的，搞笑的，甚至低俗的视频，朋友圈截图，段子，吸引了所有人的注意。人们已经完全失去焦点，注意力完全被转移到了疫情如何严重，疫苗去哪里打，哪里检测核酸，哪里又被封了。这种手段屡试不爽。
+> 1/x Critical evidence needed on Wuhan lab leak: “[The CCP] would have blood samples from the workers in that lab.”
+> 
+> “And that’s the evidence that they haven’t made public.”
+> 
+> “If, in fact, the blood samples show that a high prevalence of….”[https://t.co/PUmCeprS4s](https://t.co/PUmCeprS4s)
+> — Ted Cruz (@tedcruz) [May 31, 2021](https://twitter.com/tedcruz/status/1399207163243995140?ref_src=twsrc%5Etfw)
 
-参考链接：
 
-[https://www.voachinese.com/a/China-to-transfer-hosting-of-world-cup-qualifiers-to-Dubai-20210531/5911198.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/China-to-transfer-hosting-of-world-cup-qualifiers-to-Dubai-20210531/5911198.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
 
-图片来源：[https://www.voachinese.com/](https://www.voachinese.com/a/China-to-transfer-hosting-of-world-cup-qualifiers-to-Dubai-20210531/5911198.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+…如果实验室里的人接触过这种病毒，这就是一个确凿的证据，证明这种病毒在实验室里传播。[#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 也会有他们第一次被抽取时的样本，也就是他们患病时的样本。毫无疑问……”
 
-整理撰稿：蓝精灵
 
-校对发布：Penny
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+> 2/x “…people in that lab have been exposed to this virus, that’s pretty definitive proof that this coursed through that lab. And they would also have the samples from the time that they were first drawn, which was the time when they had those illnesses. There’s no question….”
+> — Ted Cruz (@tedcruz) [May 31, 2021](https://twitter.com/tedcruz/status/1399207619177418752?ref_src=twsrc%5Etfw)
+
+
+
+“…毫无疑问，当他们在实验室里爆发疾病时，他们会在实验室里做血常规取样。这只是在那种级别的实验室里的正常控制流程。所以他们会得到这些信息。”
+
+
+
+> 3/x “…no question that when they had an outbreak of an illness in that lab that they would have done routine blood sampling in that lab. That’s just normal controls in a lab of that quality. So they would have that information.”
+> — Ted Cruz (@tedcruz) [May 31, 2021](https://twitter.com/tedcruz/status/1399207927907508228?ref_src=twsrc%5Etfw)
+
+
 
 0
