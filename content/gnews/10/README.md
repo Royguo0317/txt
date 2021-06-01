@@ -1,49 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】在军民融合战略下，中共解放军正在资助基因编辑、人类性能增强等方面的研究
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1287998/)
+## 与福奇有关的武汉研究人员协助被美国制裁的中共准军事部队，以压迫维吾尔族穆斯林
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1288123/)
 
-生物技术武器化：中国军队如何为“新战争领域”做准备。
+翻译：飞利普|校对：烟波浩渺|审核：V
 
-在北京的军民融合战略下，解放军正在资助基因编辑、人类性能增强等方面的研究。
+现在被许多人认为是中共病毒的潜在来源的武汉病毒研究所——与因对维吾尔人“严重侵犯人权”最先被美国政府制裁的新疆准军事部队合作进行科学研究。
 
-当今生物技术和基因工程的进步在医学领域有着令人兴奋的应用，但也有着令人震惊的影响，包括军事领域。中共的军民融合国家战略已将生物学列为优先事项，而中共人民解放军是走在扩展和利用这一知识的最前沿。
+在此之后，由于[资助](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)在有争议的实验室对蝙蝠冠状病毒的研究，并[派遣](https://thenationalpulse.com/exclusive/fauci-scientists-attended-wuhan-lab-conference/)科学家就危险的功能增强[研究](https://thenationalpulse.com/exclusive/fauci-researchers-headlined-wuhan-gain-of-function-event/)提供建议，对安东尼·福奇博士的国家过敏和传染病研究所 (NIAID) 的审查越来越严格。 除了将纳税人的钱汇给武毒所（其网站[之前](https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/)将美国国立卫生研究院（NIH）列为研究合作伙伴）之外，福奇的机构现在可以与资助一个与新疆生产建设兵团（XPCC）合作的实体相关联。
 
-解放军的浓厚兴趣反映在战略著作和研究中，这些著作和研究认为生物学的进步有助于改变冲突的形式或形态。例如：2010年的《生物战争优势》（制生权战争），第三军医大学教授郭继卫在这本书中强调生物对未来战争的影响。 2015年，时任军事医学科学院院长贺福初提出，生物技术将成为国防新的“战略制高点”，从生物材料到“脑控”武器。贺少将因此成为领导中国军事科学事业的军事科学院副院长。国防大学前校长、退役上将张仕波在2017 年出版的一本书中讨论了七个“新的战争领域” ，他总结道：“现代生物技术的发展正逐渐显示出具有进攻性特征的强烈能力的迹象”，包括使用“特定种族基因攻击”的可能性。 2017年版的军事战略科学（战略学）是解放军国防大学出版的一本相对权威的教科书，首次将生物学作为军事斗争的领域，同样提到了新型军事战略的潜力。生物战包括“特定种族基因攻击”。
+拜登和[川普的](https://home.treasury.gov/news/press-releases/sm1073)财政部都[制裁了](https://www.nbcnews.com/politics/politics-news/biden-admin-announces-sanctions-against-chinese-officials-over-human-rights-n1261745)新疆生产建设兵团（XPCC）领导人的“严重[侵犯](https://www.hrw.org/news/2020/02/20/more-evidence-chinas-horrific-abuses-xinjiang)新疆少数民族人权，据报道，这包括大规模的任意拘留和严重的身体虐待。”国土安全部（DHS）[还](https://www.dhs.gov/news/2020/12/02/dhs-issues-detention-order-cotton-products-made-xinjiang-production-and-construction)禁止该建设兵团的棉花进入美国，理由是其与[监狱和强迫劳动](https://www.dhs.gov/news/2020/12/02/dhs-issues-detention-order-cotton-products-made-xinjiang-production-and-construction)有关。
 
-这些只是中国军事学者和科学家正在探索军事创新方向的广泛且不断发展的文献中的几个例子。按照这些思路，解放军正在寻求生物学的军事应用，并寻找与其他学科的有希望的交叉点，包括脑科学、超级计算和人工智能。2016年以来，中央军委先后资助了军事脑科学、先进仿生系统、生物与仿生材料、人类性能提升、“新概念”生物技术等项目。
+包括《华盛顿邮报》在内的主流媒体都认为新疆生产建设兵团是[针对](https://www.washingtonpost.com/opinions/global-opinions/chinas-repression-of-the-uighurs-began-10-years-ago-now-their-survival-is-at-stake/2019/07/04/3b568470-9daa-11e9-85d6-5211733f92c7_story.html)维吾尔人的“镇压工具”，而中共国官方媒体将该组织描述为中共国人民解放军（PLA）的一个分支，旨在“维护社会主义稳定”和“成为中共国的一支顶级民兵部队”。
 
-基因编辑
+中共领导人习近平视察了兵团，甚至称赞他们是“稳定力量”
 
-与此同时，中国在CRISPR基因编辑技术的人体试验数量方面一直处于世界领先地位。十几个临床试验是众所周知的，并且有些活动已经引起全球争议。目前尚不清楚中共科学家何建奎是否可能获得了政府的批准甚至资助，他编辑了世界上第一个转基因人类的胚胎。这一消息引起了世界各地的强烈反对，中国后来出台新立法以加强对此类研究的监督。然而，回顾中共以往在医疗保健和医学科学领域的历史，有理由怀疑中共将认为这些活动充其量在道德上是有问题的，或者在最坏的情况下是残酷和不寻常的。
+尽管存在这些明显的军事联系和侵犯人权的行为，武毒所还与兵团官员会晤并签署了合作协议。
 
-但令人惊讶的是，中国的 CRISPR 试验中有多少是在解放军总医院进行的，包括抗癌试验。事实上，解放军的医疗机构已经成为基因编辑和其他军事医学和生物技术新前沿研究的主要中心。解放军军事医学科学院，简称AMMS，被中共吹捧为“培养军事医学人才的摇篮”，最近直接划归军事科学院管辖，而军事科学院本身也发生了转变，专注科技创新，这一变化可能表明医学科学与军事研究更紧密地结合在一起。
+2013年8月3日，武毒所网站上一则现已删除的[帖子](http://www.whiov.cas.cn/xwzx/zhxw/201308/t20130803_3908388.html)披露了与兵团的“科技合作”。
 
-2016 年，AMMS 博士研究员发表了一篇论文《人类绩效增强技术评估研究》，将 CRISPR-Cas 描述为可能提高部队战斗力的三大主要技术之一。支持性研究着眼于药物莫达非的有效性，该药物可用于增强认知能力；而在经颅磁刺激这一脑部刺激技术上，同时也认为CRISPR-Cas作为“军事威慑技术”的“巨大潜力”，中国应“掌握主动”发展。
+有一个事件摘要记录了武毒所所长、党委书记、副研究员如何前往新疆会见兵团干部：
 
-人工智能+生物技术
+“*2013**年**7**月**30**日，应新疆建设兵团第十师北屯科技局邀请，中共国科学院武毒所所长陈新文，中共国科学院武毒所党委书记袁志明，中共国科学院武汉分院科技合作处处长办公室主任李伟、病毒所虫媒病毒病媒控制学科组阎建平副研究员到北屯市商讨合作事宜。”*
 
-生物技术和人工智能的交汇有望产生独特的协同效应。人类基因组的浩瀚在最大的大数据中，几乎需要人工智能和机器学习来为 CRISPR 相关治疗或增强方面的进步指明道路。
+据报道，这次会议的重点是“实施新的科技项目——生物灭蚊”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01021101/pp.png)已删除的报道
 
-在2016年，遗传信息的潜在战略价值率领的中国政府推出的国家基因库（国家基因库），想要成为世界上最大的此类数据的存储库。其宗旨是“开发利用我国宝贵的遗传资源，维护国家生物信息学安全，提升我国抢占生物技术领域战略制高点的能力”。这项工作由BGI管理，该公司前身为北京基因组公司，该公司是北京在该领域事实上的全国冠军。BGI 已经在廉价基因测序方面建立了优势，专注于从各种来源收集大量数据。该公司的业务遍及全球，包括位于加利福尼亚和澳大利亚的实验室。
 
-美国决策者对该公司获取美国人基因信息的途径感到担忧，BGI 一直在寻求一系列合作伙伴关系，包括与加州大学和费城儿童医院就人类基因组测序进行合作。华大基因在新疆的研究和合作伙伴关系也引发了对其与侵犯人权行为的联系的质疑，包括强制收集新疆维吾尔人的基因信息。华大基因的研究与军事研究活动之间似乎也存在联系，尤其是与解放军国防科技大学的联系。BGI 的生物信息学研究使用天河超级计算机处理生物医学应用的遗传信息，而 BGI 和 NUDT 研究人员已合作发表了多篇论文，包括设计使用 CRISPR 的工具。
+另一篇被删的[文章](http://www.whiov.cas.cn/xwzx/zhxw/201308/t20130803_3908385.html)披露了武毒所参加了2013年“中共国科学院-新疆科技合作洽谈会”，在会上，中共国科学院与兵团签署了近30个“合作项目”，其中包括 武毒所和兵团十师联合承担的“高效安全蚊虫防控技术集成与示范”项目。
 
-生物技术的广阔前沿
+这些联系是在《国家脉搏》发现了有关武毒所研究人员承诺“[不折不扣](https://gnews.org/zh-hans/1263642/)”执行中国共产党的议程，以及在实验室工作的与军方有关的[研究人员](https://thenationalpulse.com/breaking/wuhan-lab-erased-military-researchers-from-site/)的帖子被删除之后发生的。
 
-在谈论潜在“基因武器”和“不流血胜利”可能性的战略家的指导下，密切关注中国军方对生物学这一新兴战争领域的兴趣将变得越来越重要。尽管使用 CRISPR 来编辑基因仍然是新的，但这些工具和技术正在迅速发展，军事应用的可能性范围也可能继续发生变化。在此过程中，中国研究计划缺乏透明度和伦理考虑的不确定性增加了技术风险。
+原文作者：娜塔莉·温特斯(NATALIE WINTERS)
+发布时间：2021年5月29日
+原文链接：[https://thenationalpulse.com/exclusive/wuhan-collaborated-with-sanctioned-xinjiang-military/](https://thenationalpulse.com/exclusive/wuhan-collaborated-with-sanctioned-xinjiang-military/)
 
-参考链接：
 
-[https://www.defenseone.com/ideas/2019/08/chinas-military-pursuing-biotech/159167/](https://www.defenseone.com/ideas/2019/08/chinas-military-pursuing-biotech/159167/)
 
-图片来源：[https://www.defenseone.com/](https://www.defenseone.com/ideas/2019/08/chinas-military-pursuing-biotech/159167/)
-
-整理翻译：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
-
-0
++1

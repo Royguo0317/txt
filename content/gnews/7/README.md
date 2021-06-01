@@ -1,41 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 与福奇有关的武汉研究人员协助被美国制裁的中共准军事部队，以压迫维吾尔族穆斯林
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1288123/)
+## 209位共和党众议员要求佩罗西调查中共谋杀罪证——病毒来源
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1287326/)
 
-翻译：飞利普|校对：烟波浩渺|审核：V
+#### 翻译：雨季仰光
 
-现在被许多人认为是中共病毒的潜在来源的武汉病毒研究所——与因对维吾尔人“严重侵犯人权”最先被美国政府制裁的新疆准军事部队合作进行科学研究。
+#### 校对：卡拉马佐夫姐姐
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01002528/1.png)[图片来源](https://www.nytimes.com/2017/06/14/us/politics/who-is-steve-scalise.html)
+据《每日邮报》（Mail Online）报道, 共和党众议院党鞭斯蒂夫·斯卡利斯（Steve Scalise）于周五早上给众议院议长佩罗西致信, 要点如下：
 
-在此之后，由于[资助](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)在有争议的实验室对蝙蝠冠状病毒的研究，并[派遣](https://thenationalpulse.com/exclusive/fauci-scientists-attended-wuhan-lab-conference/)科学家就危险的功能增强[研究](https://thenationalpulse.com/exclusive/fauci-researchers-headlined-wuhan-gain-of-function-event/)提供建议，对安东尼·福奇博士的国家过敏和传染病研究所 (NIAID) 的审查越来越严格。 除了将纳税人的钱汇给武毒所（其网站[之前](https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/)将美国国立卫生研究院（NIH）列为研究合作伙伴）之外，福奇的机构现在可以与资助一个与新疆生产建设兵团（XPCC）合作的实体相关联。
-
-拜登和[川普的](https://home.treasury.gov/news/press-releases/sm1073)财政部都[制裁了](https://www.nbcnews.com/politics/politics-news/biden-admin-announces-sanctions-against-chinese-officials-over-human-rights-n1261745)新疆生产建设兵团（XPCC）领导人的“严重[侵犯](https://www.hrw.org/news/2020/02/20/more-evidence-chinas-horrific-abuses-xinjiang)新疆少数民族人权，据报道，这包括大规模的任意拘留和严重的身体虐待。”国土安全部（DHS）[还](https://www.dhs.gov/news/2020/12/02/dhs-issues-detention-order-cotton-products-made-xinjiang-production-and-construction)禁止该建设兵团的棉花进入美国，理由是其与[监狱和强迫劳动](https://www.dhs.gov/news/2020/12/02/dhs-issues-detention-order-cotton-products-made-xinjiang-production-and-construction)有关。
-
-包括《华盛顿邮报》在内的主流媒体都认为新疆生产建设兵团是[针对](https://www.washingtonpost.com/opinions/global-opinions/chinas-repression-of-the-uighurs-began-10-years-ago-now-their-survival-is-at-stake/2019/07/04/3b568470-9daa-11e9-85d6-5211733f92c7_story.html)维吾尔人的“镇压工具”，而中共国官方媒体将该组织描述为中共国人民解放军（PLA）的一个分支，旨在“维护社会主义稳定”和“成为中共国的一支顶级民兵部队”。
-
-中共领导人习近平视察了兵团，甚至称赞他们是“稳定力量”
-
-尽管存在这些明显的军事联系和侵犯人权的行为，武毒所还与兵团官员会晤并签署了合作协议。
-
-2013年8月3日，武毒所网站上一则现已删除的[帖子](http://www.whiov.cas.cn/xwzx/zhxw/201308/t20130803_3908388.html)披露了与兵团的“科技合作”。
-
-有一个事件摘要记录了武毒所所长、党委书记、副研究员如何前往新疆会见兵团干部：
-
-“*2013**年**7**月**30**日，应新疆建设兵团第十师北屯科技局邀请，中共国科学院武毒所所长陈新文，中共国科学院武毒所党委书记袁志明，中共国科学院武汉分院科技合作处处长办公室主任李伟、病毒所虫媒病毒病媒控制学科组阎建平副研究员到北屯市商讨合作事宜。”*
-
-据报道，这次会议的重点是“实施新的科技项目——生物灭蚊”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01021101/pp.png)已删除的报道
+- 继民主党拒绝调查对中共阴谋释放病毒的指控后，他和200多名同僚要求深入调查病毒起源。
+- 与此同时，民主党却在推进一个激进的左翼议程来继续提升自1979年来最高的通胀率，而非展开病毒调查。
+- 信中表示“每个失去亲人的家庭都应得到这个可怕病毒的起源的答案”。
+- 众议院共和党成员们也将提出一项法案允许每个受害者家庭起诉中共。
+- 同时也将设立一个911事件类似的调查委员会来开展病毒大流行的起源的调查。
 
 
-另一篇被删的[文章](http://www.whiov.cas.cn/xwzx/zhxw/201308/t20130803_3908385.html)披露了武毒所参加了2013年“中共国科学院-新疆科技合作洽谈会”，在会上，中共国科学院与兵团签署了近30个“合作项目”，其中包括 武毒所和兵团十师联合承担的“高效安全蚊虫防控技术集成与示范”项目。
+众议院共和党党鞭斯蒂夫·斯卡利斯和他200多位同僚已敦促佩罗西指示其民主党主导的委员们调查中共在病毒大流行中的阴谋举措。在给民主党众议院发言人的信中，共和党直指“越来越多的证据表明病毒起源于中共实验室而中共却极力掩盖真相”。“如果证据确凿的话，中共必须为近60万美国死难者及全球几百万死者负责。而对中共的追责并不是一种转移注意力的行为，就像您（佩洛西）说的那样”，信中继续阐明，“与此相反，众议院民主党们持续不断地反对对病毒起源调查的行为是对每个受害者家庭的侮辱和冒犯，他们应该得到真相。”“共和党人一直以来不断呼吁彻查中共病毒起源并公布中共的阴谋和掩盖真相的企图，而一直以来我们的呼声被故意忽视。民主党却在此时强推激进左翼的议程，这导致目前通胀率推升至自1979年最高点。”
 
-这些联系是在《国家脉搏》发现了有关武毒所研究人员承诺“[不折不扣](https://gnews.org/zh-hans/1263642/)”执行中国共产党的议程，以及在实验室工作的与军方有关的[研究人员](https://thenationalpulse.com/breaking/wuhan-lab-erased-military-researchers-from-site/)的帖子被删除之后发生的。
+此外，共和党众议员们将提出两项新的病毒相关的法案，一是允许受害者家庭起诉中共政府，另外成立一个类似911事件的专项调查委员会来查清病毒大流行的起源。
 
-原文作者：娜塔莉·温特斯(NATALIE WINTERS)
-发布时间：2021年5月29日
-原文链接：[https://thenationalpulse.com/exclusive/wuhan-collaborated-with-sanctioned-xinjiang-military/](https://thenationalpulse.com/exclusive/wuhan-collaborated-with-sanctioned-xinjiang-military/)
+拜登总统要求美国情报机构90天内对一系列“有待证实的证据”进行调查汇报，而众议院的这些举动正是相应的跟进和落实。
 
+据《纽约时报》披露，大量证据有待计算机的进一步分析，分析结果有望使病毒实验室泄露这一理论和更多信息得以浮出水面，并且使那些实验室工作人员在病毒扩散之前就被感染以及冠状病毒如何在武汉传播的事实得以真相大白。
 
+《福克斯新闻》（Fox News）周五报导，来自宾夕法尼亚的民主党众议员康纳·兰姆（Conor Lamb）和共和党众议员布莱恩·菲茨帕特里克（Brian Fitzpatrick）将发起一项《不再重蹈覆辙：阻止病毒在全球爆发法案》，此法案将剥夺中共的主权豁免，法案同时也会对任何“在大流行期间故意误导国际社会”的国家进行相应制裁。
 
-+1
+此外，另一项《美国制造：应急准备法案》也已由菲茨帕特里克议员提交至上届国会议程。他目前已联合另外四位共和党及五位民主党议员们一起上呈给本届国会讨论。福克斯新闻表示，此提案将形成两党联合的类似911事件的调查委员会，旨在查明中共病毒起源真相以及寻求美国对此的回应。在未来美国面临一些物理或医疗方面的国家灾难时，这些回应措施向白宫及国会提议了哪些物资供应必须由美国制造来提供。个人防护用品的短缺在去年病毒大流行之初对美国医疗人员对于美国感染人群的安全保障造成了不小的打击和影响。
+
+“在应对目前这种危机的时候，我们再也不能猝不及防，束手无策，”有媒体在披露提案时表示，“我们绝不能容忍近60万人失去生命的风险再次发生，也绝不能让人们的日常生活被摧毁得一塌糊涂，乱七八糟。”
+
+菲茨帕特里克早在周一就已发出强烈呼吁“我们现在就需要答案！”，这可是在白宫发布美国情报界对病毒来源不能达成一致的解密信息之前。
+
+情报界目前对于病毒到底是起源于自然，继而由动物传染给人类，还是由武汉实验室“逃逸”的不同论点发生了分歧。
+
+“有充分的理由相信，为了掩盖病毒起源真相，媒体进行了很多歪曲报道。我们应该得到答案。无论多么艰难，不达目标绝不停止。“ 这位宾夕法尼亚共和党人坚定地表示。
+
+至本周五为止，593，292名美国人死于中共冠状病毒，还有超过33，217，000位美国公民被感染。
+
+#### 评：
+
+在以毒灭共的的大形势下，美国政坛正在针对中共病毒的溯源调查和追责紧锣密鼓地推进各种提案，目标明确，节奏提速。
+
+共和党民主党在这个共同大目标下难得地摈弃党派之争，一致携手，戮力推进各项提案并不断落实成一个又一个法案，大锤小锤不断砸下，灭共的脚步越来越近，越来越清晰。
+
+尽管依然存在中共蓝金黄余毒，情报部门那些为虎作伥地异类和与中共勾结的势力也将跟福奇那一小撮机会主义者和腐败贪婪的政客一样，迫于不可逆转的形势，终将站到灭共的队伍之中，否则不是被历史所鄙弃就是和中共一起陪葬！
+
+原文链接：[China’s complicity in causing pandemic that’s killed 593,000 Americans – after Dems repeatedly refused to probe Wuhan lab](https://www.dailymail.co.uk/news/article-9630049/More-200-House-Republicans-demand-Pelosi-FINALLY-investigate-Chinas-complicity-pandemic.html)
+
+0

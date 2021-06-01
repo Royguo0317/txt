@@ -1,41 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中国一些地方政府要求员工不要拥有特斯拉汽车
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1287627/)
+## 【一线新闻】那种感动叫战友之情——肯尼迪机场迎接战友的心情
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1287497/)
 
-作者：纽约香草山健身部 Jack Li文阳
+前方记者：纽约香草山记者站 Kathy（文艺）
+
+文字编写：纽约香草山农场 写作4组 Delilah小胖
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191310/s2-7.jpg)
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24215852/GNEW-GTV-MOS-LOGO-2-2-1-768x103-1.jpeg)
 
 
+下面的视频，香草山农场的文艺战友，在纽约肯尼迪国际机场外拍摄的接机环境画面。今天，2021年5月31日星期一，参加新中国联邦周年庆典的战友们将会集中抵达纽约。请您点击视频画面，了解现在纽约肯尼迪机场的情况，还可以感受一下咱们接机战友的心情。
+*文艺战友2021年3月31日下午在美国纽约肯尼迪国际机场接战友（1）*
+引用来源：文艺战友的现场视频
 
-出于对安全方面因素考虑，中共国一些地方政府和机构，禁止其属下员工拥有特斯拉汽车。这是继今年3月中共当局禁止军方人员及家属驾驶特斯拉汽车进入军事设施之后，特斯拉在中共国的生存空间再次收窄。
+编辑/校对/发稿：Delilah小胖
 
-据报道，中共国浙江和广西政府要求政府机构检查并上报所属员工拥有特斯拉汽车的情况，并明令禁止关键部门的员工驾车进入某些办公区。报道说，中共国气象局还通知其员工禁止购买特斯拉汽车，若已经拥有，则需将汽车转给他人。
-
-据称，特斯拉汽车为了监控其自动驾驶和分辨事故责任，车内的内置摄像头会持续记录影像，车内的电脑会记录车辆使用时间、地点，汽车会采集与车辆同步的手机联系人名单等数据和资料。中共却认为特斯拉汽车的强大功能有可能为中共政权带来安全风险，所以当局限制军方人员、政府工作人员和重要国企人员使用特斯拉汽车。
-
-另外，中共国还担心特斯拉汽车搜集的某些数据可能会被发送回美国，对中共国的国家安全造成威胁。对此，特斯拉首席执行官马斯克表示，不会利用特斯拉汽车搜集的数据进行间谍活动。他说，如果特斯拉电动汽车被用来进行间谍活动，他的公司就会被关闭。特斯拉5月25日表示，将在中共国建立一个新设施储存本地用户的数据，并承诺把中共国境内出售汽车收集的所有用户数据留在中共国境内。中共坏事做多了，看谁都是象它一样的坏人。
-
-当初中共国引进特斯拉生产线的时候，不会不知道特斯拉所具备的信息采集功能。但为了拿到特斯拉的核心技术，中共威逼利诱，软硬兼施，请君入瓮。但相信中共没有得逞，所以仍不断为难特斯拉。
-
-另外，马斯克的“星链”计划能够突破中共的防火墙，一旦“星链”成功运行，特斯拉汽车就是一个”星链“接收器，这就吓死中共了。所以中共一定会逐步禁止军人、警察、公务员和国企员工使用特斯拉，因为这些人是最容易开智，并有能力推翻中共的群体。
-
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/24221039/5_May-1-556x720-2-3.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 [**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12191415/M5-2.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12160942/logo-3.jpeg)
+
+
+
+
 
 0

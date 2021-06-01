@@ -1,41 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【锐语】关注时间点 重新观看陈薇将军给小朋友介绍疫苗知识
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1287535/)
+## 由于地方政府考虑到汽车的“安全风险”，特斯拉在中（共）国进一步受限
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1287646/)
 
-下面的链接是2020年9月1日的视频，2019年1月份武汉新冠疫情大爆发，视频中陈微说：Covid-19疫苗在2020年2月26日开始下线。原话是这样说的“我们研究的重组新冠疫苗，在2月26号，我们的第一批疫苗在生产线上下线了，也就是我们有了正式的这个疫苗。那一天正好是我的生日”
+翻译：康州盘古农场 – 柯镇恶
+校对：康州盘古农场 – 郭班之樱
+编辑：康州盘古农场 – 明子
 
-陈薇将军在武汉爆发疫情之后，第一时间带领了生化部队奔赴武汉病毒研究所，不是华南海鲜市场，不是金银谭医院，是不是还去了武汉大学那个虐待猴子的动物实验室，这个就不知道了。小象听过文贵先生在一次直播中谈到武汉病毒研究所的内部结构，地面建筑是标准的实验室建筑，地下还有好几层工字形建筑，地下属于军队方面掌管的实验室，谁都不知道里面再干什么。塞林博士和安娜女士，闫丽梦博士最近指出了人物王长军团队来自武汉，王长军是陈薇团队的重要人物。
+据《零对冲》作者：TYLER DURDEN  2021年5月30日报道：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31231353/2021-6-4-001.png)
+特斯拉和中国共产党之间的坎坷之路似乎还在继续。
 
-疫苗的研发需要时间，历史上从来就没有一个在疫情爆发后，一年两年就研制出来的疫苗，而陈薇将军仅仅距离武汉初始爆发两个月后就生产出来了！
+据[彭博社报道](https://www.autonews.com/china/some-chinese-government-agencies-review-tesla-ownership-among-staff)，这家汽车制造商在中（共）国正面临“进一步的影响”，因为一些地方政府正在审查其员工中特斯拉汽车的拥有情况，理由是这些汽车存在潜在的安全风险。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31224645/283.jpg)
+在浙江和广西，政府机构已被要求检查并报告拥有特斯拉汽车的员工。报告指出，出于所谓的安全风险，员工被“禁止”开车进入某些官方区域。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31225425/284.jpg)
+其他中（共）国官方机构也纷纷效仿。例如，中国气象局已经告诉其员工不要购买特斯拉电动汽车，如果他们已经购买了，则要转让车辆的所有权。中共中宣部（是的，实际上就是这么叫的）也在“检查是否有员工或他们的家人拥有特斯拉汽车”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/31225528/285.jpg)
+特斯拉与中（共）国关系的任何持续重大问题都可能对这家汽车制造商造成毁灭性打击，因为该公司依赖这个全球最大的汽车市场来帮助其全速生产，以满足华尔街日益乐观的预期。
 
-关于病毒溯源，小象听文贵先生在5月30日的直播节目中是这么说的，可以解释一下为何疫苗在如此短的时间内就出来了：
+回想一下，在 5 月中旬，我们注意到由于担心其摄像头，特斯拉汽车已被禁止进入一些中（共）国政府大楼。
 
-“欧洲议会请了一位来自中国的科学家讲讲到底发生了什么？这位将军向他们展示了手里的视频和文件。中共有计划在香港，武汉放毒。第一次在广州试过，没成功。后来主要目标就是军运会。军运会没成功，最后是在海鲜市场放的。为的就是停止香港街头运动，干掉川普大选，毁掉世界经济，让世界经济转向中共。”最后，中共成功了。小象想起在2018年底11.12月份的时候，广州的朋友确实说起过一件事情，就是在广州的所有的学校突然爆发了流感，有学校班级有一半的同学感冒发烧，但是查了很多资料没有找到，有兴趣的读者和听众可以去搜集一下资料，在评论区留言和解读一下，是否和文贵先生说的广州放毒未遂有关联。
+据路透社5月报道，“出于对安装在汽车上的摄像头的安全考虑”，一些中（共）国政府官员的工作人员被告知，不要将特斯拉汽车停放在政府大楼内。
 
-参考链接：
+根据同一份报告，北京和上海的“至少两个政府机构”也被告知了同样的情况。目前尚不清楚这对多少员工和车辆产生了直接影响。
 
+报告指出，尽管许多车辆都安装了摄像头和传感器，但这一限制“仅适用于特斯拉汽车”。
 
+这不是中（共）国第一次将安全问题作为禁止特斯拉汽车的理由。早在 3 月份， 中（共）国就禁止了特斯拉汽车进入军事基地，原因是类似的对汽车摄像头的担忧。该禁令是由于“对车辆内置摄像头收集敏感数据的担忧”。
 
-> 【[#病毒真相](https://twitter.com/hashtag/%E7%97%85%E6%AF%92%E7%9C%9F%E7%9B%B8?src=hash&amp;ref_src=twsrc%5Etfw)】陈薇少将是 [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) 流行病学和病毒学专家，专门研究生物防御。在2020年9月1日的这段视频中，她告诉公众：“Covid-19重组蛋白疫苗在2020年2月26日开始下线！”
-> 武汉疫情爆发1月下旬封城，仅一个月后中共军方推出疫苗。这表明 [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) 早就掌握了新冠病毒！[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/B9AEWpbNe5](https://t.co/B9AEWpbNe5)
-> — 加拿大多伦多枫叶农场 (@TorontoFarmCN) [May 31, 2021](https://twitter.com/TorontoFarmCN/status/1399483923583938571?ref_src=twsrc%5Etfw)
+回想一下，在他们最近对特斯拉的态度（在马斯克奇怪地谴责比特币之后）做出有点是180度的改变之前，中（共）国官方媒体对美国汽车制造商除了友好之外什么都没有。
 
+我们已经记录了过去几个月来特斯拉与中共之间持续的争吵，这显然是（至少公开的是）在上海车展上的一名抗议者声称特斯拉车辆出现刹车故障这一事件催化的。这引起了中（共）国媒体强烈地羞辱，他们称特斯拉对此事的处理是一次“大错”，并暗示这可能对特斯拉在中（共）国市场“造成严重损害”。
 
+原文链接：[https://www.zerohedge.com/markets/tesla-facing-further-fallout-china-local-governments-mull-security-risks-vehicles](https://www.zerohedge.com/markets/tesla-facing-further-fallout-china-local-governments-mull-security-risks-vehicles)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-图片来源：[https://udn.com/](https://udn.com/)
-
-整理撰稿：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
