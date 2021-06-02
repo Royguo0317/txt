@@ -1,71 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】为应对人口老龄化，三孩生育政策出台
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1290356/)
+## 中共病毒疫苗接种追踪报道 &#8211; 唁
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1290729/)
 
-香草山写作组 静水流深
+#### 作者: nstar
+
+### 一场惨悲的肥皂剧——唁逝去的参与者(3)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02002231/image-19.png)
+**生命是有限的，但****记忆是无限的**
+
+32岁的心理治疗师达娜·奥特曼 (Dana Ottmann) (Foto: iStock)
+
+\*1988年8月30日✝2021年3月9日
+
+突然间，我们心爱的女儿-我们心爱的孙女意外地离开了我们
+
+佩特拉. 奥特曼和霍斯特. 奥特曼博士及所有亲属的讣告背后的戏剧性很难用语言表达。
+
+3月9日，来自德国北莱茵-威斯特法伦 (Nordrhein-Westfalen) 州赫福德(Herford) 区的一名年轻女子达娜·奥特曼（Dana Ottmann）在11天前接种了阿斯利康中共病毒疫苗后死亡。但是，当时尚不清楚死亡原因是否是由于接种中共病毒疫苗造成的.
+
+由于母亲将女儿的死亡与接种疫苗联系起来，但又担心会被掩盖，因此于3月底决定，将独生女儿的死亡公之于众。应比勒费尔德检察官办公室(der Staatsanwaltschaft Bielefeld)的要求，这名 32 岁的女子随后在明斯特(Münster)接受了法医解剖。北莱茵-威斯特法伦州的赫福德区区在周三的一份声明中宣布了这一调查结果。尸检表明，这位32岁的心理治疗师的确是死于阿斯利康中共病毒疫苗接种的致命的副作用。
+
+“现在我可以肯定了，我的女儿实际上是接种(中共病毒)疫苗的受害者，”这位退休的学校副校长告诉威斯特法伦报社(Westfalen-Blatt)的记者。
+
+通常情况下，开发一种新疫苗需要7-15年的时间，在此期间，必须一步一步地在动物和人类身上进行大量试验。这段时间是必要的，以评估接种疫苗可能产生哪些副作用，可能产生哪些长期后果，以及这种情况发生的频率如何。如果这些副作用和后果过于严重，候选疫苗将无法进入市场，研究将被停止。以前所有开发基因疫苗的尝试都因为这些副作用而失败，没有得到批准。
+
+然而现在，这些研究的很大一部分已经被放弃了，理由是严重的(中共病毒 ) 大流行病需要快速的疫苗。法国药品管理局CTIAP（Centre Territorial d’Information Indépendante et d’Avis Pharmaceutiques）似乎比德国当局更加勇敢和独立。它在审查后得出结论，所有4种COVID疫苗（阿斯利康、Moderna、BioNTech/辉瑞、强生）应立即停止使用–获得许可的这4种疫苗都不安全或有效。它们都只是在临床证据不足的情况下获得了紧急批准,  它们的活性成分的质量、其佐剂和制造工艺都有缺陷。(来源1\*)
+
+但是，德国和国际官方声明有一个统一的基调：疫苗接种是安全、有效的，只有少数可接受的副作用。
+
+这也是为什么当 达娜·奥特曼（Dana Ottmann)于 2 月 25 日上午前往疫苗接种中心时，她一点也不担忧。这名年轻女子曾是一名成功的自行车手，受雇于在威斯特伐利亚州洛讷的贝罗利纳(Berolina-Rehaklinik im westfälischen Löhne) 的康复诊所工作.  与德国医疗保健系统的所有员工一样，威斯特伐利亚康复诊所的员工也面临着迅速接种疫苗的巨大压力。但 达娜·奥特曼并没有特别担心。她本人只有 32 岁，她因感染 Sars-CoV-2(中共 病毒)而死亡的风险几乎为零。然而，心理学家想到了她要保护的病人。在接种阿斯利康中共病毒疫苗后的第二天早上，她头疼得厉害。她归咎于偏头痛，偏头痛偶尔会折磨她，她在关于她以前疾病的调查问卷中适当地说明了这一点。她没有任何其他疾病，也没有服用避孕药。但在内心深处，这位年轻的心理学家感觉到这次她的痛苦感觉与往常不同。
+
+**…  母亲佩特拉-奥特曼在这个星期二的早晨感到恐慌。她的女儿已经抱怨严重的身体不适达一周之久，今天早上她不仅留下了WhatsApp信息，而且还打了几个电话，但都没有得到女儿的回复。她果断地踩下油门，尽快赶到女儿所住的邻村。当她终于到达目的地并匆匆上楼去达娜·奥特曼的公寓时，女儿对她的门铃声没有任何反应。… 母亲更紧张了 … 她只能用颤抖的手从夹克口袋里摸出备用钥匙 … 当她的母亲冲进公寓时，浴室里出现了一幅可怕的画面 … 在2021年3月9日这一天，她正面临着一个做父母的永远不应该经历的可怕时刻 …**
+
+………
+
+专门处理此类案件的格赖夫斯瓦尔德大学(Universität Greifswald)免疫学和输血医学研究所确定，阿斯利康中共病毒疫苗的免疫反应导致了达娜-奥特曼的死亡。原因是凝血功能紊乱，脑内出血。
+
+这绝不是一个孤立的案例。
+
+特别是在最近几周，与接种中共病毒疫苗有关的脑出血报道成为西班牙和卢森堡等其他欧盟国家的头条新闻。
+
+然而, 在德国, 关于中共病毒疫苗接种后死亡的报告往往只是在死者当地的”地方媒体”上出现。而且，报告通常排除了任何与中共病毒疫苗接种的因果关系。
+
+保罗-埃利希研究所(PEI)位于法兰克福，负责医药产品的审批和评估。根据该研究所的记录，截至4月中旬，在接种阿斯利康的中共病毒疫苗后，已报告了59例窦性和脑静脉血栓。59例脑血栓中的45例涉及20至79岁的女性。
+
+关于此, 当局现在做的是什么？
+
+*自**4**月**1**日起**，**罗**伯特**–**科赫研究所**(Robert-Koch-Institut)**的常**设**疫苗接种委**员**会**(Ständige Impfkommission)**建议仅* *60**岁及以上的人接种阿斯利康产品。原因是据罗伯特**–**科赫研究所称**，**这些严重的**，**有时甚至是致命的副作用主要发生在**55**岁以下的女性中。*
+
+这是如何变态的，邪恶的逻辑! 无语 … 只希望对此负有责任的人能被绳之以法!
+
+只接种中共病毒疫苗就可以让这样一个年轻健康的女士失去生命 … 除去难以置信的伤心 ,它让我们更加铭记:
+
+**«****在不知道****C C P****病毒的原因情况下，任何疫苗都是对人类的伤害****»****！**
+
+在这里, 向达娜·奥特曼女士和她的家人表达诚挚的哀悼!
+
+**【文章仅代表作者个人观点】**
+
+参考文献:
+
+[1](https://thebl.tv/politics/french-drug-evaluation-center-concludes-all-4-covid-vaccines-should-be-discontinued.html) [2](https://www.welt.de/politik/deutschland/plus229668113/32-Jahre-alt-geimpft-gestorben-ist-AstraZeneca-schuld.html) [3](https://www.epochtimes.de/gesundheit/medizin/rechtsmedizin-bestaetigt-frau-32-stirbt-nach-impfung-mit-astrazeneca-a3503232.html) [4](https://www.compact-online.de/obduktion-belegt-32-jaehrige-aus-nrw-starb-an-den-folgen-einer-corona-impfung/) [5](https://www.epochtimes.de/politik/deutschland/mutter-fragt-der-tod-meiner-tochter-ein-kollateralschaden-a3486015.html)
+
+https://www.compact-shop.de/shop/compact-magazin/compact-5-2021-impfstreik-warum-millionen-keine-spritze-wollen/
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+https://www.compact-shop.de/shop/compact-magazin/compact-5-2021-impfstreik-warum-millionen-keine-spritze-wollen/
 
 
-
-2021年5月31日新华社消息，为积极应对人口老龄化，我国将出台重大政策举措。中共中央政治局5月31日召开会议，会议指出：进一步优化生育政策，实施一对夫妻可以生育三个子女政策及配套支持措施，有利于改善我国人口结构、落实积极应对人口老龄化国家战略、保持我国人力资源禀赋优势。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01211030/Screen-Shot-2021-06-01-at-9.07.43-PM.png)
-这充分验证了“计划生育”是一项基本国策啊，根据时机，择数而生。这个配套支持措施是什么措施呢？五个字言简意赅，意味深长，令人回味无穷。一边造毒，放毒杀人，杀到全世界；一边造毒疫苗，强制打毒疫苗，继续毒害在病毒流行期间存活的人们。条条大路，没给一条活路。带着身体内的毒疫苗继续造人。韭菜割了一波又一波，恨不得连根拔起还怪根太浅。
-
-过去民不聊生是指：老百姓失去赖以生存的条件。如今老百姓依然没有赖以生存的良好环境和条件，却还要肩负“使命”为国家而生育。民不聊生的现代含义：现代人，因生活压力过大，没有生育孩子的意愿，连聊一聊都不愿意。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01211019/Screen-Shot-2021-06-01-at-9.07.55-PM.png)
-针对这一措施，网友调侃：“哈哈哈哈哈，80、90后，独生子女这两代人，一对夫妻养4个老人，再拉扯3个孩子，然后干到65岁，还没领上退休金就挂了”……“专家能不能给这两代人，每人发个烈士证啊，为国家而生，为国家而死。如果没死还带9个孙辈。”
-
-有网友做联：
-
-上联：一个家庭，两个夫妻，生三个孩子，养四个老人。
-
-下联：八点上班，晚九下班，费十分力气，还百万房贷。
-
-横批：韭菜的一生。
-
-另有网友回复，横批：不如单身。
-
-有网友赋文：
-
-夫80后者，初从文，未及义务教育之免费，不逮高等学校之分配，适值扩招，过五关，斩六将，硕博相继，数年乃成，负债十万。
-
-觅生计，十年无休，披星戴月，秉烛达旦，终蓄十万。然楼市暴涨，不足购房，遂投股市，翌年缩至万余，抑郁成疾，久病难愈。
-
-医保曰，不符大病之条例，拒赔。乃倾其所有，如院一周病无果，因欠费被逐院门。友怜之，赊三鹿一包，冲而饮，卒。
-
-唉！我们八零、九零后真的太难了，史书会不会称我们为韭菜一代？？
-
-有网友遥想若单年后的美好“愿景”：
-
-63岁清晨7点闹钟响起，去三个房间看了三个孩子是不是都乖乖在睡觉，帮9个孙子孙女做好早饭，再去两个房间看一眼四个老人是不是都还好好的睡着觉，安心的挤地铁去上班。
-
-既然老龄化加速了，人口红利难继续了，还要在人口统计数据上作假以应对老龄化，让年轻一代生孩子，而且是吃着毒食物，呼吸毒空气，打着毒疫苗来延续下一代。做中共国的韭菜，实乃不幸，实乃悲哀！
-
-参考来源：
-
-三孩生育政策来了
-
-https://news.sina.com.cn/c/2021-05-31/doc-ikmyaawc8565283.shtml
-![This image has an empty alt attribute; its file name is 6_june-1.jpg]()![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1.jpeg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 +1

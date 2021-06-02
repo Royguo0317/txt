@@ -1,46 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【诗歌】你死了，心愿却留下
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1290128/)
+## 40种农业化学品用来种植毒甜薯
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1290539/)
 
-[作者]：浴火重生-2020 [发表]：Candy
+5/28/2021 一位网民发了一段视频显示一个叫慧谷的公司使用40种化学药剂用来种植甜薯。高邑县大约1500亩土地之前种植过这种甜薯的农地遭受农作物绝收。这种商标为‘薯匠’的产品售价高昂，因为其甜度高，主要消费者为小孩。
 
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-```
-你死了 
-却还在活着 
-牢笼曾经囚禁着你的躯体
-可是你的心却从来自由的 
-爬出来吧，给尔自由 
-可是谁又愿意成为一具行尸走肉 
-没有自由的空气 
-心灵上有的只能是窒息 
-为了发出自己的呐喊 
-你坐穿了牢底 
-参天的大树 
-取决于它的根系
-它拥抱着神州的土地 
-繁衍生息
-泪水有着永恒的记忆 
-沉默有着力量的积聚 
-晨曦有冲破黑暗的勇气 
-啊，你是风 
-告诉我们乌云经受不住风的吹拂 
-你是雨
-告诉我们沙漠经受不了雨的润育 
-去吧 
-天堂里没有监狱 
-讲吧 
-银河不够，
-给你整个宇宙 
-爱吧 
-站在十维空间的你
-
- 一一纪念为民主自由捐躯的英雄
-```
-
-
-（以上内容仅代表个人观点）
-![This image has an empty alt attribute; its file name is 66573ACB-5779-4156-8018-754A8CE66D37.jpeg]()![This image has an empty alt attribute; its file name is 66573ACB-5779-4156-8018-754A8CE66D37.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27033533/66573ACB-5779-4156-8018-754A8CE66D37.jpeg)
 0

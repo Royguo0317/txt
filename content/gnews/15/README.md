@@ -1,44 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 近20%的新冠病毒感染者出院后无法独立生活
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1290242/)
+## 【热点播报】广州疫情警报，数百万市民排队检测，争抢接种疫苗
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1290622/)
 
-新闻来源：《国家脉动》| 作者：Natalie Winters | 发布时间：2021年5月29日
-
-翻译/简评：Claire | 校对：SilverSpurs7 | 审核：Beicy-数学老师 | Page：我是球大哥
-
-[!\[\]()!\[\](https://spark.adobe.com/page/p4FViBedjrT9H/images/8a06a7c3-c4b6-48f3-ab63-7cfe5a7dfbb2.png?asset_id=f2c8da62-17fd-4e34-8b3a-1dd0a167520b&amp;img_etag=%220c2d272017fc887efe50daf594bf9074%22&amp;size=1024)](https://spark.adobe.com/page/p4FViBedjrT9H/images/8a06a7c3-c4b6-48f3-ab63-7cfe5a7dfbb2.png?asset_id=f2c8da62-17fd-4e34-8b3a-1dd0a167520b&amp;img_etag=%220c2d272017fc887efe50daf594bf9074%22&amp;size=1024)
-
-密歇根大学在评估了近300名新冠病毒患者后发表最新研究，在入院接受治疗的新冠病人中，有将近一半的病人在出院时身体情况更糟，需要额外的治疗或者需要使用耐用医疗设备。这其中，近20%的人丧失了相当多的能力，以至于他们在出院后无法独立生活。
-
-新冠病毒之所以危险，除了会引发多种严重的并发症，还跟它的后遗症有关。全球多国的多项研究均表明，新冠后遗症比想象中的还要糟糕，而很多后遗症对患者的一生都造成不可逆的影响，或许在未来，咳嗽、呼吸困难将跟随一辈子。而造成这一切的幕后黑手就是中共。新中国联邦人要团结起来，揭发中共的假恶丑，中共必灭！
-
-**原文翻译：**
-
-## **研究表明：几乎50%的新冠病患出院时“情况更糟”**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/p4FViBedjrT9H/images/7a08f3ec-783e-4bdb-b3ce-7d62419e67a9.jpg?asset_id=73f1f004-f4dc-44fe-8c8b-e57d598ca96c&amp;img_etag=%226f427eb561445865e0e3af9a9e98a3bc%22&amp;size=2560)](https://spark.adobe.com/page/p4FViBedjrT9H/images/7a08f3ec-783e-4bdb-b3ce-7d62419e67a9.jpg?asset_id=73f1f004-f4dc-44fe-8c8b-e57d598ca96c&amp;img_etag=%226f427eb561445865e0e3af9a9e98a3bc%22&amp;size=1024)
-
-**一项最新研究显示，有45%因感染新冠肺炎住院治疗的患者在出院时处于“更糟糕的状况”。**
-
-该研究由密歇根大学（University of Michigan）进行，在评估了近300名患者后，发表在PM＆R (美国物理医学与康复医学研究院官方杂志)杂志上。[总结](https://labblog.uofmhealth.org/body-work/nearly-half-of-covid-19-patients-left-hospital-worse-physical-condition)指出：“他们分析了患者的出院位置、出院时的治疗需求以及是否需要耐用医疗设备或其它服务。”
-
-研究人员发现，“[45%因感染新冠病毒住院的病人在出院时，身体机能明显下降。](https://onlinelibrary.wiley.com/doi/10.1002/pmrj.12624)”
-
-报告的首席作者、医学博士阿莱西亚·K·道恩特(Alecia K. Daunter)指出，患者“幸存了下来，但这些人离开医院后身体的状况比之前要差。”他补充说：“如果他们仍需要门诊治疗或现在需要拄拐杖走路，则发生了一些影响他们出院计划的事情。”
-
-在经历了功能衰退的新冠肺炎的幸存者中，有80%的人在出院后被推荐接受额外治疗。研究报告补充说：“在所有患者中，近20%的人丧失了相当多的能力，以至于他们在出院后无法独立生活。”
-
-[原文链接](https://thenationalpulse.com/breaking/almost-half-of-covid-patients-leave-in-worse-condition/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+作者：纽约香草山农场健身部 Jack Li文阳
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/p4FViBedjrT9H/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/p4FViBedjrT9H/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-+1
+
+
+据报道，近日，中共国广州的新冠疫情拉起警报，政府限制市民出行。5月30日开始，广州市启动第二轮大规模核酸筛查，疫苗接种点大排长龙，当局对离开广州的人员实施新的管制。
+
+广州官方下令封闭了中心城区荔湾区的五条街道，居民被要求留在家中，每个家庭每天只可以派一名成员购买必需品。与此同时，中小学和店铺被关闭，人们被禁止在室内餐厅用餐，路上行人稀少。
+
+从5月26日起当局强制对市民核酸大排查，几百万市民在30度以上的高温下，昼夜排队等候检测。到6月1日12时，全市核酸大排查累计检测样本347万份，其中第二轮检测样本179万份，已发现阳性42例。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01231714/Untitled-design-75.png)
+广州严格管控市民出行。疫情防控指挥部5月30日宣布，从星期一晚上10点开始，所有离开广州辖区的旅客、私家车司机和乘客必须持有72小时内核酸检测阴性证明才能离开。自5月21日新增1例本土新冠确诊病例后，广州市民接种疫苗的意愿高涨，各接种点人满为患，争抢接种疫苗。
+
+中共国限制国人出国，入境旅客需出示最近的检测报告，并需强制隔离14天，可谓铁桶般严实，要从境外传入，简直天方夜谭。而且，以中共病毒的传播力，四十多人的疫情，可以说小看了中共病毒。
+
+这场据称是喝早茶传播开的新发疫情，描述得甚有广府特色。广州有超过一百万大学生，而且以群居方式生活，奇怪的是竟无一所大学传出疫情，让人甚为不解。
+
+当局成功展现了中共国善用的用强制手段快速控制疫情，可谓一举几得。广州市政府可以向中共邀功请赏，大谈成功经验。也可以大大提高市民的疫苗接种意愿。平常中共对负面事件都是低调宣传，甚至掩盖。这次广州当局的雷霆行动让人看得眼花缭乱，犹如电影般精彩，让人不禁联想此举是给印度与台湾施加压力。
+
+参考阅读：https://www.yicai.com/news/101068830.html
+
+https://www.voachinese.com/a/china-guangzhou-covid-20210531/5910629.html
+
+https://www.ntdtv.com/b5/2021/05/31/a103131521.html
+
+https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210530-%E5%B9%BF%E4%B8%9C%E7%96%AB%E6%83%85%E7%8E%B0%E5%8D%B0%E5%BA%A6%E8%8B%B1%E5%9B%BD%E5%8F%98%E5%BC%82%E7%97%85%E6%AF%92%E6%A0%AA
+
+http://news.carnoc.com/list/562/562307.html
+
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
