@@ -1,24 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【点睛要闻】福奇跳船为哪桩？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1289066/)
+## 香港政府各部门正联手打压民间关注“六四”事件
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1290165/)
 
-#### 撰稿：待命（文晓）【㊙️翻Gnews原创组】
-责编：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01104324/fauci.jpg)图片来源：微博
-美国资深传染病学专家安东尼·福奇近日开始跳船，在网上掀起了轩然大波。对此，5月26日，网易发表了一篇题为《[“背叛了中国科学家！”为自保选择湮灭真相，福奇永不值得原谅](http://dy.163.com/article/GATOGRVV0544RR8P.html)》的文章，笔者很不理解该篇报道中的几处用词，愿借此文与读者们共同启动我们的思考功能。
+新闻来源：《香港自由新闻》HKFP| 作者：CANDICE CHAU| 发布时间：2021年5月28日
 
-感到奇怪之一，该篇文章的作者为什么用“背叛”一词来形容福奇？“背叛”，中文释义为“背离叛变”。福奇本是美国公民，入美国国籍的华人都知道，入籍时的誓言中就有要忠于美国的誓词。这福奇怎么就背叛“中国科学家”了呢？难道福奇之前一直都是忠于“中国科学家”的？难道福奇本就是文中提到的“中国科学家”的同谋？否则，何来“背叛”？
+翻译/简评：叶知秋（文义）|校对：SilverSpurs7|审核：Beicy-数学老师|Page：小雨
 
-感到奇怪之二，该篇文章的作者为什么用“永不值得原谅”来形容福奇？“原谅”，中文释义为“对人的错误给予宽恕，不责备”。 福奇是美国公民，难道每个美国公民发表自己的看法，或者表明自己的立场，都要中共来断定这个美国公民的话是否错误？可否原谅吗？除非福奇与中共的关系已经超越了一般美国公民。难道是中共曾给了福奇什么好处，什么承诺?而且福奇也已接受了那些好处或承诺？否则，有什么可以原谅不原谅的？这是什么逻辑？
+[!\[\]()!\[\](https://spark.adobe.com/page/vChM741BAfUu9/images/50756b58-daa0-4b0d-9165-c27aa9d59ccc.jpg?asset_id=1e0673d4-ad89-477d-b8da-a1d2fd6f4dce&amp;img_etag=%22a25fdfcacb4df79a3c7a1461313e70c3%22&amp;size=2560)](https://spark.adobe.com/page/vChM741BAfUu9/images/50756b58-daa0-4b0d-9165-c27aa9d59ccc.jpg?asset_id=1e0673d4-ad89-477d-b8da-a1d2fd6f4dce&amp;img_etag=%22a25fdfcacb4df79a3c7a1461313e70c3%22&amp;size=1024)
 
-回顾中共病毒肆虐全球这一年多，当时福奇给出的答案是“在研究了新冠病毒的基因序列之后，大部分科学家都认为新冠病毒应该是先在动物身上发生变异，再传播到人身上。换句话说，所谓病毒是从实验室制造出来的，完全是无稽之谈”。而在近期美国国会的一场听证会上，美国共和党右翼保守派资深政客兰德·保罗质问福奇“是因为你在领导美国国立卫生研究院时，给美国和中共合作的一项病毒研究提供了经费，才“诞生”了中共病毒，福奇就是中共的“帮凶”。
+**简评：**
 
-这声质问打中了福奇的七寸，他毕竟是病毒学专家啊，懂得该改口自保。于是，听证会留下了福奇这么一句话“我认为我们应该继续调查中国到底发生了什么”。
+虽然自2019年兴起至今的香港反送中运动遭到了中共政府的疯狂打压，但是香港人没有向极权屈服。从香港支联会(Hong Kong Alliance)组织纪念“六四”烛光守夜活动到本文所述香港医管局员工阵线(Hospital Authority Employees Alliance)组织放映天安门大屠杀事件相关影片，香港人正在以一种大无畏的精神坚持不懈地与邪恶的中共政权作斗争。郭文贵先生称香港为中国人的圣城，香港人也在用持续不断的行动向世界诠释圣城精神。
 
-众所周知，中共一贯都是“听话就用你，不听话就骂你”。就此，我们有必要去思考、去追究为何中共对福奇跳船如此愤怒？福奇和中共之间，到底是什么关系？
+“六四”天安门事件作为中国人民争取民主运动的里程碑事件，如今的墙内普通老百姓几乎很少有人知晓，更别提纪念了。香港却能持续30多年，不断以各种形式纪念“六四”天安门大屠杀事件，缅怀那些为了中国民主事业而牺牲的战士，这份坚持，让我们大陆民众感到无比汗颜。
 
-（本文仅代表作者个人观点）
+相对于邪恶的中共国国家机器，香港人的力量仍然很薄弱，相对于被中共蒙蔽双眼的墙内老百姓，香港人看起来仍然很孤单。为了能够延续这仅存的难得的中华民族的抗争精神，我们爆料革命的战友们，一定要不断扩大宣传，宣传香港危机的真相、宣传冠状病毒的真相，唤醒那些依然沉睡着的中国人民，向世界揭露中共政权的黑暗统治，让世界各国认清共产极权的邪恶本质，联合全世界的正义力量，尽快把中国共产党这个人类社会的毒瘤铲除，还世界人民一片晴朗的天空。
 
-+1
+**原文翻译：**
+
+## **香港政府官员到访医管局工会，警告不要放映天安门大屠杀事件的纪录片**
+
+**工会官员质疑这起事件是否表明“国家机器正联手打压民间关注六四事件”。**
+
+政府官员查看了工会办公室，警告他们不要放映两部有关天安门大屠杀的电影纪录片。
+
+电影、报刊及物品管理办事处(OFNAA)（简称：电检处）的官员星期四出现在医管局员工阵线(HAEA)办公室，称该工会在电影放映中放映的一部电影违反了《电影检查条例》。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/vChM741BAfUu9/images/a5e588c2-24e6-4c07-a3ac-2945f0a337b3.jpg?asset_id=f7bd6b16-b6a2-4ffd-b29e-af19cb322848&amp;img_etag=%22be96e510849cf2a35f698bcdaeefac84%22&amp;size=1024)](https://spark.adobe.com/page/vChM741BAfUu9/images/a5e588c2-24e6-4c07-a3ac-2945f0a337b3.jpg?asset_id=f7bd6b16-b6a2-4ffd-b29e-af19cb322848&amp;img_etag=%22be96e510849cf2a35f698bcdaeefac84%22&amp;size=1024)医管局员工阵线(HAEA)直播中显示电检处(OFNAA)官员和警察于2021年5月27日到访他们的办公室。照片：医管局员工阵线，通过视频截图。
+
+一份工会声明称，电检处(OFNAA)的两名工作人员拒绝出示他们的职员证，并在未经批准的情况下拍摄了一名医管局员工阵线(HAEA)的工作人员和该办公室的照片。警方后来证实，这两人都是电检处的真正成员。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/vChM741BAfUu9/images/0f8435d6-9c69-4d1d-8d2f-425870f31dd1.png?asset_id=b6d670bd-6295-4abc-a817-cad6e7ad5614&amp;img_etag=%222b27feed98fe68bce54bd3ef3e9e3f8d%22&amp;size=1024)](https://spark.adobe.com/page/vChM741BAfUu9/images/0f8435d6-9c69-4d1d-8d2f-425870f31dd1.png?asset_id=b6d670bd-6295-4abc-a817-cad6e7ad5614&amp;img_etag=%222b27feed98fe68bce54bd3ef3e9e3f8d%22&amp;size=1024)
+
+这部有争议的电影《我已经毕业了》是一部纪录片，讲述了天安门大屠杀之后大学毕业生的生活。医管局员工阵线(HAEA)于上周六组织了一场这部纪录片的电影放映。
+
+在给医管局员工阵线(HAEA)的一封信中，电检处(OFNAA)表示，该纪录片未获得符合《电检条例》的批准证书，在公共场所或需要会员资格的场所对这部电影进行任何放映都可能违反该法律。
+
+电检处还就即将在周六放映的另一部关于天安门大屠杀的纪录片，《动词变位》(Conjugation),对医管局员工阵线(HAEA)提出警告，表示该影片在放映之前必须获得批准。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/vChM741BAfUu9/images/fac239f7-3ae1-4f81-92bd-f19fae4a8447.png?asset_id=c26026c5-41e0-4b7c-9d50-780b3d172bcd&amp;img_etag=%2201bf7e3f429daaaf55090cf0a8b4c778%22&amp;size=1024)](https://spark.adobe.com/page/vChM741BAfUu9/images/fac239f7-3ae1-4f81-92bd-f19fae4a8447.png?asset_id=c26026c5-41e0-4b7c-9d50-780b3d172bcd&amp;img_etag=%2201bf7e3f429daaaf55090cf0a8b4c778%22&amp;size=1024)
+
+警察是被电检处(OFNAA)的官员叫到现场的，当医管局员工阵线(HAEA)的一名工作人员质疑为什么官员们可以在私人处所拍照时，警察则质问该工作人员是否“打开了大门”。
+
+“我们强烈谴责电检处(OFNAA)和警方对此事的处理，”医管局员工阵线(HAEA)在声明中写道，“……这起事件提起了一个问题，即国家机器正联手打压民间关注六四事件。”
+
+该工会还表示，他们上周六只是在电影放映中播放了一段YouTube视频，并质疑放映网上影片资源是否违法。
+
+🔗[原文链接](https://hongkongfp.com/2021/05/28/hong-kong-govt-officials-visit-medical-union-to-warn-against-tiananmen-massacre-doc-screenings/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/vChM741BAfUu9/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/vChM741BAfUu9/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
+0

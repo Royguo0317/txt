@@ -1,39 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 金曲《马背英雄》唱出了真的英雄！
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1289394/)
+## 【热点播报】中共卫健委发布江苏一例人类首次感染H10N3事件
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1290378/)
 
-喜马拉雅的文雅
-《马背英雄》歌曲试听，完整正版请到相应商城欣赏
-2021年美东时间6月1日晚7时，郭先生的最新金曲《马背英雄》如期而至，让亿万期待已久的战友真真切切过了一把蒙古瘾、草原情！
+香草山健身部 文鹰
 
-有多久了，我们忘记了是谁霸占了我们的土地，侵占了我们的家园；
 
-有多久了，我们忽视了是谁偷走了我们的财富，抢夺了我们的拥有；
 
-有多久了，我们忍受了是谁剥夺了我们的语言，泯灭了我们的文化；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-有多久了，我们遗失了兄弟妻女被奴役、被蹂躏的记忆；
 
-有多久了，我们无暇顾及母亲的悲伤和孩子的希望？
 
-因为这一切苦难和灾难的根源都是中国共产党带来的。中共欺骗和压迫了我们中国人72年，让我们变得麻木愚昧、面目可憎。
+中共官方国家卫生健康委员会6月1日通报，江苏省发现一例人感染H10N3禽流感病例。
 
-2017年爆料革命一声惊雷，郭先生从此让世间变了天地。从此，我们中国人从困顿中觉悟，从泥泞中站立，从恐惧中坚强。
+江苏镇江，某男41岁，4月23号出现发热等症状，4月28号因病情加重收入当地医疗机构救治。5月28号经中共国家疾控中心，检测病患全基因序列测定，发现为H10N3病毒阳性。江苏男子发生被感染的具体经过未能曝露详情。
 
-这四年如歌的历史，让我们因爆料革命敢于为真相呐喊，敢于向强权反抗，敢于担当，忘记恐惧。
+目前患者病情稳定已出院。地方政府也排查病患的相关密切接触者，均为发现异常情况。这一事件，是中共国首次检测到H10N3禽流感病毒。禽类跨种传播感染人类事件，世界上鲜有报告发现。虽然“发生大规模传播风险极低”。但也不可掉以轻心，有媒体报道H7N9禽流感在2016年和2017年曾造成300人死亡事件。
 
-《马背英雄》豪放不羁的节奏、刚中带柔的曲调，尤其是我们的七哥、爆料革命的引领者— 郭文贵先生浑厚雄壮、刚劲沙哑的声音，让我们眼前展现出辽阔的草原上，驰骋疆场的征战英雄、驾驭奔腾骏马的飒爽英姿；把本来劲爆的音乐发挥出极尽完美的表现形式，再次如惊雷闪电般，唤醒了中华同胞的记忆。我们想起了奋力反抗的勇敢，想起了征战沙场的豪情，想起了抛洒热血的无畏，也想起了作为中国人应有的模样！
+中共国有不同禽流感毒株的样本，民间科研单位能检测到，军方单位也会共享数据。文贵先生在其盖特中谈到，中共解放军一位将军级别人员，近期在欧洲听证会上作证，声明中共军方拥有上千种用于超限生物战的生物战剂。这一次突发事件，会不会是在民间先试水，“温水煮青蛙”不得而知。
 
-为了心中的信仰正义，为了养育我们的草原热土，为了自己和家人摆脱奴役，就算牺牲也是荣耀！爆料革命中无数战友跟随郭先生一道，表现出坚强的意志并做出英勇的行动正如这首歌曲中的马背英雄般，是这个时代、也是人类真正的英雄！
+中共释放病毒计划才刚刚开始，人类需要加倍提高警惕！
 
-这首歌唱华夏沃土蒙古风的劲歌，想必将刮遍中华大地，深入所有海内外华人的心田。如果您也听得热血沸腾、热泪盈眶，那么中共想必已经闻风丧胆了！
+消息来源：
 
-这不是广告，也无需宣传，您亲耳聆听，才会同意是否我的文字已经无法诠释这首《马背英雄》带给您的所有遐想和冲动。
+[http://www.nhc.gov.cn/yjb/s3578/202106/e6b795e7ba3a41b2914e3ed270ff6078.shtml](http://www.nhc.gov.cn/yjb/s3578/202106/e6b795e7ba3a41b2914e3ed270ff6078.shtml)
 
-新歌如期在[**亚马逊音乐**](https://music.amazon.com/albums/B0968ZSBRY)和[**Spotify**](https://open.spotify.com/album/7kkTYRYZDThjvp5eers92T)上线（英文名The Hero)，5小时后，苹果商城iTune仍然无法上线，不知是不是被英雄歌王郭先生的歌喉所折服，还是被震击心灵的灭共豪情和勇敢精神所吓坏。
+[https://www.usnews.com/news/world/articles/2021-05-31/china-reports-human-case-of-h10n3-bird-flu](https://www.usnews.com/news/world/articles/2021-05-31/china-reports-human-case-of-h10n3-bird-flu)
+![This image has an empty alt attribute; its file name is 6_june-1.jpg]()![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+编辑/校对/发稿：正义的小新
 
-感谢英雄歌王郭先生唱出了真英雄的滋味，感谢爆料革命[**音乐制作组**](https://gnews.org/zh-hans/1288338/)的倾情奉献。
+**更多资讯，更多关注**
 
-+1
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1.jpeg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+0

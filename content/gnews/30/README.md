@@ -1,74 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】锅言灶语（十二）- 有话说之＂四六时分＂线上周会-
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1289035/)
+## Tippinsights调查显示：44%的美国人现在相信冠状病毒是在中共实验室造出来的
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1290092/)
 
-作者：纽约香草山健身部 澄道
+作者：雨山溪桥客 | 审核： V
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+**根据最新的****[Tippinsights](https://tippinsights.com/44-believe-coronavirus-is-manmade-half-of-them-say-it-was-intentionally-released/)****民意调查发现****44%****的美国人认为冠状病毒是实验室制造的**
 
+以下是[Tippinsights](https://tippinsights.com/44-believe-coronavirus-is-manmade-half-of-them-say-it-was-intentionally-released/)在线调查了1305位美国成年人，他们认为病毒起源的地方：[1]
 
+- **44% ****的人认为它是在实验室开发的**
+- 22% 认为它来自动物
+- 11% 认为这是一种自然发生的病毒
+- 8% 的人认为病毒是人类生活习惯的结果
+- 16% 不确定它的起源
 
-小馆维系
-实属难得
-无有员工
-何来生存
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01191949/p112.png)
+而在认为病毒是人造的 44% 的群众中，接近54%的人认为它是有意从实验室释放出来的**，从这份最新民意报告中可以看出中共病毒的****超限生物武器性质慢慢的被民众所了解以及接受，** 真相的面纱开始被慢慢揭开。
 
-战友前行砥砺为之
-沟通无误为真不破
+而在去年，病毒自然起源却成为社交媒体以及学术权威和民众的共识。当一个普通人对另一个朋友说这个病毒是人工制造，或者在社交媒体发布对于病毒的质疑，他会被直接打上阴谋论虚假宣传的标签，并且被社交媒体直接封号。美国财经播客门户的《零对冲》网站(ZeroHedge) 在2020 年2月1日, 因发文质疑武汉CCP病毒与一位科学家以及其实验室有千丝万缕关系后，其推特账号被永久关停。而在之后Buzzfeed的记者因为撰写了一篇有关《零对冲》的热门文章， 被编辑直接以剽窃的莫须有名义开除。闫博士为真不破严谨的病毒报告没有得到社交媒体新闻网站的重视，反而被各种封杀污名化，真相一直被一张邪恶的网阻拦。
 
-小馆提升
-进身及人
-无有修心
-何往跃艰
+而当2021年 5月《华尔街日报》第一次报道病毒可能来自实验室的相关情报证据，社交媒体和新闻网站都开始纷纷转向，18名科学家在美国《科学》杂志上发表公开信指出，冠状病毒COVID-19（中共病毒）可能源自武汉病毒研究所意外泄露的假说， 拜登政府要求情报部门90日天内提供关于病毒起源报告。巴西总统将病毒定义为中共的生物战。世界的媒体、科学界开始发生转向，中共病毒的实验室起源真正成为了共识。而这背后，是闫博士和无数战友的汗水甚至生命才换来的！真相不是免费的！
 
-并肩修持砥砺为之
-塑身进身揍柴焰高
+美国前总统林肯先生说过，你可以在一时蒙骗所有人，也可以在长时间蒙骗一些人，但不可能在长时间蒙骗所有的人。中共军事学家2015年写的生物战一书《非典非自然起源和人制人新种病毒基因武器》，把中共所有的谎言和画皮都自己戳破。中共实施了完美犯罪计划以及企图彻底隐瞒病毒真相， 但是它低估了正义力量的勇气和智慧。中共的周密计划、控制舆论和信息、销毁样本、篡改、造假和毁坏数据等等皆被琉璃盏般戳破。病毒真相一定会浮现在世人眼里，罪恶之人一定会被律法惩戒！
 
-沟通会议
-时分必要
-周四六时
-习以为规
+【本文仅代表作者个人观点】
 
-灭共一如继往
-惩贼永不掉头
+参考资料：
 
-战友们行装备好
-集结吧
-战友们勇往迈进
-出击吧
+[1] [https://www.thegatewaypundit.com/2021/06/44-americans-now-believe-coronavirus-cooked-china-lab/](https://www.thegatewaypundit.com/2021/06/44-americans-now-believe-coronavirus-cooked-china-lab/)
 
-锅子
-俺严个＂演说家＂
-灶子
-酷似个＂理论家＂
-
-就翠花接地气
-是个行动＂家＂
-
-端着
-时令无分的
-五谷养生粥进来了
-…….
-
-@澄道来了
-@爱动爱议码06011
-
-校对/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
