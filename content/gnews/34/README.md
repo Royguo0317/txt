@@ -1,57 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】国企“混改”范围、力度双加剧，“公私合营”进入明面化
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1290449/)
+## 【班农战斗室】989-990-991 期简讯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1291169/)
 
-香草山写作组 鹰(文言)
+翻译：七彩光
+校对/编辑：枳实
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02072953/989-990-991_.png)
+主持人：史蒂夫·班农
+
+嘉宾：Steve Cortes, Dr. Yan, Colby Covington, BG Bill Welch, Jack Posobiec, Dr. Peter Navarro, Boris Epshteyn, Garland Favorito, Kevin Freeman, Larry Hetu
+
+#### **1.揭露：比尔•巴尔和克里斯托弗•雷如何阻止川普对付安提法**
+
+周二，杰克•波索比克（Jack Posobiec）在《战斗室》节目中预告了关于安提法（Antifa）的新书，该书揭示了克里斯托弗•雷(Christopher Wray)和比尔•巴尔（Bill Barr）如何阻止川普总统对付这个国内的恐怖组织。
+
+联邦调查局局长雷 “（只是）耸了耸肩，却什么也没做，”波索比克说。”同时他转过身来，检阅下他对推进2021年1月6日的国会事件还需要做些什么。”
+
+[《安提法： 黑幕后的故事》](https://www.antifabook.com/)一书还披露，司法部长巴尔威胁说，如果韦雷被解雇，他将辞职，因为两人都搪塞阻碍对国内左翼恐怖分子的起诉。同时，雷在白宫办公室会议上假装不明白什么是安提法。
+
+“够了，他应该被当场解雇。”班农说。”他是联邦调查局的负责人。”
+
+波索比克说：”雷只会轻描淡写地说’嗯，这只是一种意识形态’，仅此而已，不会采取任何实际行动去对付他们。”
+
+该书披露了国土安全部的内部邮件，邮件揭示了政府知道安提法组织严密，使用先进的恐怖战术，不仅仅是一群不守规矩的暴徒。
+
+川普总统不断要求对安提法采取行动，但却被官僚机构阻挠。”你看到的是总统一再要求……而官僚们……基本上与这些左翼组织的腐败沆瀣一气，让这些组织继续任性发展，最终侵蚀了国家，”波索比克说。
+
+波索比克还揭示了安提法的历史，追根溯源到共产主义、毛主席、红卫兵和中共。
+
+####  **2.科尔比·卡温顿抨击勒布朗•詹姆斯、约翰•塞纳是“软蛋”、中共玩偶，决心带回世界冠军头衔送给MAGA**
+
+终极格斗冠军赛（UFC）拳手科尔比·卡温顿（Colby Covington）周二在《战斗室》节目中对“觉醒”暴徒（the woke mob）、勒布朗•詹姆斯（LeBron James）、约翰•塞纳（John Cena）和大科技公司进行了抨击。
+
+他说：”我不会向任何人低头，没有人需要被告诉如何思考或做什么。”
+
+卡温顿抨击了勒布朗•詹姆斯的虚伪和虚假的社会正义卫士身份，他依靠在中国的血汗工厂工作的妇女来制造他的鞋子。”那家伙是个废物，是个垃圾，”卡温顿说。”他所关心的只是充实自己的钱包，向中国磕头。”真正的英雄是执法部门和军队中的英雄，”他说。”他们牺牲自己的生命来保卫我们的自由。”
+
+卡温顿说，NBA是 个”软蛋”，并抨击詹姆斯和约翰•塞纳是 “中国的玩偶”。“你不必向所谓“觉醒”暴徒屈服，”他说。
+
+卡温顿对塞纳也不留情，塞纳最近因为在台湾宣传他电影（的话语）而向中国共产党道歉。卡温顿说：”约翰•塞纳只是表演一个斗士，而我做的是真正的战斗。他服用类固醇以便有一身‘假’肌肉，但他却没有骨气，没有脊梁骨。台湾是他们自己的国家。我们需要与共产主义作斗争。约翰•塞纳试图向他的中国主子屈服，这绝对是一种耻辱。”如果我在一个房间里看到约翰•塞纳，我会把他打的嘴出血。”
+
+另外，卡温顿透露他正在努力将一个世界冠军头衔带回家送给MAGA运动的人们。”我们被骗走了一次选举，”他说。”我们被这种骗局愚弄，人们渴望胜利，那我就带来胜利。我想把世界冠军的名誉带回送给他们。
+
+“没有人愿意再为正确的事情站出来，”卡温顿说。”我不会把我的灵魂卖给魔鬼，我不会为钱出卖灵魂。”
+
+####  **3.“**最糟糕的状况**”**：** **史蒂夫**•**科尔特斯解释拜登经济是如何破坏你的钱包的
+
+《Newsmax》主持人史蒂夫•科尔特斯（Steve Cortes）解释了为什么在乔•拜登的领导下，美国在财政上正走向 “最坏的情况”。
+
+“欢迎回到1970年代，”他说。”我不是指好的方面，如迪斯科音乐和绸缎衬衫。我指的是最糟糕的方面：滞胀。”科尔特斯报告说，上周五数据显示个人收入下降了13%，这是是历史上下降最多的，并且是在通货膨胀飙升的时候。”二十年来首次，在价格上涨的同时，人们的收入却在下降崩溃，”科尔特斯说，”这对美国公民来说是最糟糕的情况。这是世界历史中最糟糕的状况。”
+
+“这是乔•拜登施政直接导致的后果，”他说。科尔特斯解释了为什么这样严峻的经济形势是放弃了川普总统坚持的经济民族主义的结果。”在奥巴马时期，只有前10%的收入者获得了净收益，”科尔特斯说。”而美国其他90%的人……变得更穷。”同时，在川普总统执政期间，底层收入者获得的收益最大。对于工人们来讲，2019年是有记录以来收入最好的一年。”每个人都做得很好，”他说。”奋斗的人们，最需要这样机会的人们在2019年做得最好，证明经济民族主义对那些努力奋斗的人们是有益处的。”
+
+参考资料：维基百科
+
+原文链接：
+
+###### 1. [REVEALED: How Bill Barr and Chris Wray Blocked Trump From Going After Antifa](https://warroom.org/2021/06/01/revealed-how-bill-barr-and-chris-wray-blocked-trump-from-going-after-antifa/)
+
+###### 2. [Colby Covington Unleashes on ‘Soft’ ‘Chinese Finger Puppets’ LeBron and John Cena, Vows to Bring World Title Home to MAGA](https://warroom.org/2021/06/01/colby-covington-unleashes-on-soft-chinese-finger-puppets-lebron-and-john-cena-vows-to-bring-world-title-home-to-maga/)
+
+###### 3. [‘Worst Case Scenario’: Steve Cortes Explains How Biden Economy is Devastating to Your Pocket Book](https://warroom.org/2021/06/01/worst-case-scenario-steve-cortes-explains-how-biden-economy-is-devastating-to-your-pocket-book/)
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
-
-
-新浪网6月1日转载人民日报海外版消息，2020年中共国有企业混改项目引入社会资本1971.2亿元，同比19年增加13.4%。
-
-2015年，中共国务院发布《关于国有企业发展混合所有制经济的意见》，正式拉开国企以股权牟社会资本的序幕。此后，石油、天然气、铁路、民航、电信等“七大领域”先后开启出售股权的行径。2018年开展的“混改”试点、双百行动等又将混改趋势蔓延至各地方直属国企。截至2019年8月央企混改比例超70%。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01214636/Screen-Shot-2021-06-01-at-9.40.50-PM.png)
-虽然国企混改名义上是稀释股权，通过引入民营资本的方式变更股权结构和实际控制人，但结合《上市公司治理准则》中明确的各上市公司应当加强党建和党组织的政治核心作用，上市美国的700家中概股公司实际控制人均为中共政府，可以看出，中共本质上是要利用民企来盗取西方科技资本。中共对国内大型民企各种监管、打压式掌控，混改后的企业即便名义上归属民企，但公司运营、募资以及各种商业活动必须经过中共批准。和混改前相比，国企只是筹集了数量可观的社会资本而已。
-
-根据中共财政部数据，2020年国有企业营收同比增长14.1%，2021年一季度国有企业利润总额创下两年平均增长8.3%的“佳绩”。反观民营企业，如阿里巴巴、百度、腾讯、美团等大型民企接连遭遇大额罚款；中小微企业数量从2020年上半年的8000万家降至2021年4月底的超4000万家。不但数量减半，各大商场、店铺等实体企业更是举步维艰。国有经济本就拥有巨大政策红利和财政扶持，在此前提下，其依旧吸纳千亿社会资本入驻。而民企中不但占全国企业总数70%，却只能苟延馋喘，各种激励贷款政策毫无实效。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01214622/Screen-Shot-2021-06-01-at-9.40.56-PM.png)
-中共的国有企业资产规模占全部企业的22.9%，解决就业人数占比仅为20.6%。无论是对GDP的贡献，还是对经济的创新驱动上，都与中小微企业相差甚远。然而，中小微企业却被打入冷宫任其生灭，而国有企业依旧你能通过低入高出的模式赚取人民财富。中共对国企的不遗余力的扶持，对民企的大肆抢掠，不但与市场经济自由竞争的发展规律背道而驰，也是明目张胆地掠夺社会和人民私人财富。
-
-新闻来源：
-
-去年国企混改项目通过产权市场引入社会资本超1970亿https://news.sina.com.cn/c/2021-06-01/doc-ikmyaawc8652911.shtml
-
-一季度中国国有企业主要经济指标保持较高增速https://finance.sina.com.cn/tech/2021-04-27/doc-ikmyaawc2172273.shtml
-
-财政部：2020年国企营收同比增长2.1％ 利润达上年同期95.5％https://new.qq.com/omn/20210128/20210128A0ANCC00.html
-
-国企“混改”的新趋势http://www.sasac.gov.cn/n2588025/n4423279/n4517386/n10745109/c10862862/content.html
-
-国资委:央企+互联网是国企混改模式 不是公私合营http://www.sasac.gov.cn/n2588025/n4423279/n4517386/n10745109/c10862862/content.html
-
-2020年中国中小微企业数字化升级研究报告https://www.sohu.com/a/387379855\_445326#
-
-《创业报告2020》：去年新增小微企业数量近1500万家，今年新增直播企业超9000家https://wenhui.whb.cn/zhuzhan/cs/20200717/361371.html
-![This image has an empty alt attribute; its file name is 6_june-1.jpg]()![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1.jpeg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
-0
++1

@@ -1,25 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】福奇大量电邮全曝光，呼吁战友整理信息、揭露真相
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1290758/)
+## 6/2/2021今日重磅-热议襄大集团的请求函：请求无偿捐献并申请被政府接管
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1291540/)
 
-作者：休斯顿星光农场 写作部 文顺
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01225742/Screenshot-2021-06-01-215655.jpg)
-6月1日，推友爆出3000余页的福奇电子邮件内容，呼吁战友一起整理、深挖信息，广泛传播，揭露真相！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02011035/Screenshot-2021-06-02-000947.jpg)
-*图片来源：福奇推特截图*
+今日重磅突发：今日湖北知名民企-襄大集团申请政府接管的请求函，引发热议！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02105842/OIP.jpg)
+6月2日，湖北知名民企-襄大集团申请政府接管的请求函，引发热议！
 
-以下为被曝光邮件文件链接：
+**爆料人为湖北襄大集团董事长之女，直言父亲遭当地所谓的专案组迫害，自己现在加州大学读博，被迫临时回国替父亲管理公司。**
 
-[https://assets.documentcloud.org/documents/20793561/leopold-nih-foia-anthony-fauci-emails.pdf](https://assets.documentcloud.org/documents/20793561/leopold-nih-foia-anthony-fauci-emails.pdf)
+张德武是湖北襄大集团有限公司董事长。值得注意的是，襄大曾名列全国工商联发布的**“中国民营企业****500强”**，员工7100余人，亦曾连续14年被写入宜城市政府工作报告。近年曾以250万头生猪的年产量位居全国同业第7名。
 
-编辑：文顺 校对：Helen 发稿：Helen
+2019年11月12日，包括张德武在内的多名襄大集团人员被湖北省十堰市司法机关控制（该案系异地管辖），**张德武等人被羁押至今**，企业遭遇了过山车式的滑坡：
 
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+**本来正处于上市辅导期，融资扩张在即，券商立即中止、撤离了!**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02110431/Picture1-3.png)
+下面襄大集团主动要求捐献给政府并申请被接管的邀请函：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02111124/Picture2.jpg)
+根据了解，此次专案组的设立，在于重审17年前的旧案。
+2002年2月，宜城检察院以张德武犯妨害公务、寻衅滋事、非法拘禁等罪名，向宜城法院提起公诉。经过一审、二审、再审，张德武被判无罪。
 
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01225742/Screenshot-2021-06-01-215655.jpg)
+2019年11月，多名被告人被以涉嫌聚众冲击国家机关罪带走，继而被以涉黑移送审查起诉。一年后，张德武17年前的旧案被提起抗诉。
 
+时隔17年之久再次提起抗诉，在司法实践中几乎是没有的，而且该案审理的都是“小罪名”，在刑法领域并不是很严重的指控。
+
+所以，在事态尚未明确的情况下，当地公安局无权利冻结企业的1.54亿生产经营资金，其流氓做法与强盗无疑！
+
+随着中国经济环境的变差，中共各地机关部门，越来越直接明目张胆的赤裸抢劫，竟然逼得民企不得不将企业捐给国家，这是中共统治下中国企业的真实处境，襄大集团不是被抢劫的第一个，也绝对不会是最后一个，未来将会有更多名营企业被中共直接掠夺！
+
+【秘密翻译组-金融团队】
+
+作者：简体字
 
 0

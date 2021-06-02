@@ -1,25 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欢迎新中国联邦战友回家（4）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1290608/)
+## 珍妮法官：福奇在2017年就预测到今天的疫情大流行
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1291318/)
 
-制作：香草山视频部
+5/30/2021 根据珍妮法官展示的短视频，安东尼·福奇博士曾在2017年预测川普任内会发生意想不到的疫情大流行。福奇的“水晶球”预测未来疫情的能力非常吓人。
 
-发稿：雪梨
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

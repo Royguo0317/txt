@@ -12,132 +12,132 @@
 
 ---
 
-### [【突发】福奇大量电邮全曝光，呼吁战友整理信息、揭露真相](/content/gnews/1/README.md)
+### [6/2/2021今日重磅-热议襄大集团的请求函：请求无偿捐献并申请被政府接管](/content/gnews/1/README.md)
+ ` 秘密翻译组金融团队`
+
+### [【突发】福奇大量电邮全曝光，呼吁战友整理信息、揭露真相](/content/gnews/2/README.md)
  ` HoustonLitstar`
 
-### [【热点播报】中共卫健委发布江苏一例人类首次感染H10N3事件](/content/gnews/2/README.md)
- ` 纽约香草山MOS01`
-
-### [【热点播报】“唱衰美国专家”为政治局委员上课](/content/gnews/3/README.md)
- ` 纽约香草山MOS02`
-
-### [“一带一路”桥头堡意大利转向 强烈谴责中共侵犯人权](/content/gnews/4/README.md)
- ` 日本东京方舟农场`
-
-### [【拆台新闻】一尊对大外宣不满意了，你们好自为之](/content/gnews/5/README.md)
- ` 闪电侠`
-
-### [拍案惊奇短评系列之二十二——北京，是谁的北京](/content/gnews/6/README.md)
- ` 左媛专栏`
-
-### [中共病毒疫苗接种追踪报道 &#8211; 唁](/content/gnews/7/README.md)
+### [中共国将面临第一阶段贸易协议的审查](/content/gnews/3/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频【字幕】6/1/2021文贵盖特：共产党以一国之力要阻止《马背英雄》上线！他们能成功吗？](/content/gnews/8/README.md)
- ` Caihongqiao`
+### [未阻止中共军方窃取技术 美商务部遭国会批失职](/content/gnews/4/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [佛州州长称需彻查福奇在“功能增强”中的角色](/content/gnews/9/README.md)
- ` HimalayaRussia`
+### [【香港快讯】 6月2日 港共政府即日起不再公布与疫苗无潜在关联之死亡个案](/content/gnews/5/README.md)
+ ` 喜馬拉雅-粵語組`
 
-### [疫苗加速度又是一次对灾难的故意放纵](/content/gnews/10/README.md)
- ` 闪电侠`
+### [意大利：一年失去87万个工作岗位](/content/gnews/6/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【热点播报】陆克文给西方支招，应团结起来反对中共国](/content/gnews/11/README.md)
- ` 纽约香草山MOS01`
+### [重磅：达扎克发邮件感谢福奇否认了病毒实验室泄密理论](/content/gnews/7/README.md)
+ ` 澳喜农场`
 
-### [女权组织斥中共应废除所有强制性人口控制](/content/gnews/12/README.md)
- ` HimalayaRussia`
+### [求政府接管才是中共抓人的真实目的](/content/gnews/8/README.md)
+ ` 澳喜农场`
 
-### [在中共国，躺平即是正义](/content/gnews/13/README.md)
- ` 恩典农场`
+### [2021/06/01-001 文贵先生盖特精华](/content/gnews/9/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
 
-### [福奇，原来你与高福是铁杆兄弟](/content/gnews/14/README.md)
- ` 闪电侠`
+### [【勿忘六四】不屈的精神3—郭文贵先生](/content/gnews/10/README.md)
+ ` 喜馬拉雅-粵語組`
 
-### [【热点播报】广州疫情警报，数百万市民排队检测，争抢接种疫苗](/content/gnews/15/README.md)
- ` 纽约香草山MOS01`
+### [打疫苗后过敏性休克心脏衰竭的田一千还好吗](/content/gnews/11/README.md)
+ ` NewFOC`
 
-### [高福与福奇2020年3月邮件涉及与疫苗相关的保密文件](/content/gnews/16/README.md)
- ` GM65`
+### [【拍案惊奇】恒大通过哈佛向福奇索要疫情信息](/content/gnews/12/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [【五月花谈】躺平乱想日记](/content/gnews/17/README.md)
+### [匈牙利首都或改名四条道路铭记北京的人权罪行](/content/gnews/13/README.md)
+ ` 曹操`
+
+### [【文字版】路德时评2021.5.30晚间（路博艾谈）：美众议院情报委员会议员特纳福克斯采访说”完全有可能是中共生物武器并且是故意释放“意味着什么？中共发动超越60年前朝鲜开战前夕的舆论战全面对准美国意味着什么？](/content/gnews/14/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [视频中共国在工业软件领域落后太多，然而最可怕的是我们落后却不自知](/content/gnews/15/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [【五月花谈】何以为家（上篇）](/content/gnews/16/README.md)
  ` 波士顿五月花农场`
 
-### [香港或对拒绝接种疫苗者实施社会惩罚](/content/gnews/18/README.md)
- ` HimalayaRussia`
+### [【路德简报】6/1/2021晚：福奇800封邮件曝光， 福奇明知到病毒来自实验室却谎称病毒来自自然](/content/gnews/17/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [【周年庆典热播】法制基金官方G-TV账户上线筹备庆典直播](/content/gnews/19/README.md)
- ` HoustonLitstar`
+### [【路德简报】6/1/201早：美国特种部队赴台训练国军协防等级提升 备战应对中共](/content/gnews/18/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [视频【字幕视频】道德经](/content/gnews/20/README.md)
+### [【热点播报】苏姓病患就是COVID-19的‘零号病人’吗？](/content/gnews/19/README.md)
  ` 纽约香草山MOS02`
 
-### [【独立观点】英国情报机关认为新冠病毒或来自中共国实验室](/content/gnews/21/README.md)
- ` 纽约香草山MOS03`
+### [视频闫丽梦博士：我们实际上正处在战争之中](/content/gnews/20/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [视频欢迎新中国联邦战友回家（4）](/content/gnews/22/README.md)
+### [视频中共疫苗存在很大再次感染病毒的风险](/content/gnews/21/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [视频珍妮法官：福奇在2017年就预测到今天的疫情大流行](/content/gnews/22/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [一艘正在下沉的国家之船会淹没所有人](/content/gnews/23/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [【聚焦】李飞飞入主德国拜耳，是治病还是致命](/content/gnews/24/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [视频大多数中国农村人仍生活在极端贫困中](/content/gnews/25/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [家庭反洗脑系列：第十篇 那六点半的琴声](/content/gnews/26/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【热点播报】广东官方大媒体爆新冠疫苗真实效果，钟南山面无表情瘫坐会场](/content/gnews/27/README.md)
  ` 纽约香草山MOS02`
 
-### [中共以商业方式购买美国人的数据](/content/gnews/23/README.md)
- ` HimalayaRussia`
+### [教皇收紧教会的法律](/content/gnews/28/README.md)
+ ` Shuizhuyu`
 
-### [【五月花评】浅谈为什么只有推翻CCP，中国才有希望](/content/gnews/24/README.md)
- ` 波士顿五月花农场`
+### [6/2/2021 财经快讯: 欧佩克+谨慎恢复石油供应油价上涨; 联邦基金利率下调未触发管理利率调整](/content/gnews/29/README.md)
+ ` 秘密翻译组金融团队`
 
-### [【香草诗词汇】新中国联邦人来了– ＂64＂建邦周年聚-](/content/gnews/25/README.md)
- ` 纽约香草山MOS03`
+### [重磅：达萨克与福奇的电邮泄露了什么？](/content/gnews/30/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [《华盛顿邮报》对15个月前的科顿报道作更正](/content/gnews/26/README.md)
- ` HimalayaRussia`
+### [伊扎克·赫尔佐格（Izchak Herzog）成为以色列新总统](/content/gnews/31/README.md)
+ ` Shuizhuyu`
 
-### [视频40种农业化学品用来种植毒甜薯](/content/gnews/27/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [中共国 它是万毒之源](/content/gnews/32/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [中共盟友柬埔寨希望与美国“重置关系”](/content/gnews/28/README.md)
- ` HimalayaRussia`
+### [躺平是民众觉醒的开始](/content/gnews/33/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [视频【粤语配音】塞林博士：COVID-19是解放军生物战计划的产物](/content/gnews/29/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [【班农战斗室】989-990-991 期简讯](/content/gnews/34/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [【新闻速递】澳洲总理：中共试图离间澳大利亚和新西兰](/content/gnews/30/README.md)
- ` HoustonLitstar`
+### [中共国用冠状病毒恐怖威慑巴西](/content/gnews/35/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [【3秒灭共】中国经济即时动向](/content/gnews/31/README.md)
- ` HoustonLitstar`
+### [科技寡头联合大型制药公司犯下反人类罪行](/content/gnews/36/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [视频【粤语配音】纳瓦罗：中共武器化病毒给美国造成损失超过20万亿美元](/content/gnews/32/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+### [《华盛顿邮报》成为从坚信武汉实验室泄漏“被揭穿的阴谋论”转向的最新媒体](/content/gnews/37/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [【鹰眼强国】儿童用品质量不合格率难降，质量问题成“老大难”](/content/gnews/33/README.md)
- ` 纽约香草山MOS01`
+### [【聚焦】福奇邮件门——达扎克感谢福奇否认中共病毒实验室泄漏](/content/gnews/38/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [【鹰眼墙国】国企“混改”范围、力度双加剧，“公私合营”进入明面化](/content/gnews/34/README.md)
- ` 纽约香草山MOS01`
+### [沙特最大证券市场交易系统崩溃](/content/gnews/39/README.md)
+ ` 曹操`
 
-### [中共移交世界杯预选赛主办权，会否为冬奥会换地作铺垫](/content/gnews/35/README.md)
- ` 闪电侠`
+### [依赖中共国疫苗 拉丁美洲死亡人数超百万](/content/gnews/40/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [【鹰眼墙国】鼓吹“三孩政策”难解出生率“迫降”趋势](/content/gnews/36/README.md)
- ` 纽约香草山MOS01`
+### [CCP是全世界上的万祸之源（四）&#8212;&#8212;&#8212;伊甸战斗室盖特七日谈（第十二期）](/content/gnews/41/README.md)
+ ` 喜马拉雅农场新西兰站`
 
-### [等不及见战友](/content/gnews/37/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
+### [福奇的邮件被披露](/content/gnews/42/README.md)
+ ` Shuizhuyu`
 
-### [【圣城传声筒】今年的6.4，注定是一个新的开始](/content/gnews/38/README.md)
- ` 纽约香草山MOS01`
-
-### [【圣城传声筒】从初选47人案押后的判决，看背后的政治意图](/content/gnews/39/README.md)
- ` 纽约香草山MOS01`
-
-### [【独立观点】 拜登：习近平自信15年内会“吃掉”美国](/content/gnews/40/README.md)
- ` 纽约香草山MOS03`
-
-### [【独立观点】读道德经所想-第一章](/content/gnews/41/README.md)
- ` 纽约香草山MOS01`
-
-### [[每日快讯]05/30/2021新中国联邦未来只是监管中国民主法治民主自由的第三方，不是政权的拥有者，只有人才才是国家的栋梁](/content/gnews/42/README.md)
- ` 喜马拉雅德国慕尼黑感恩农场`
-
-### [【世事解评】为应对人口老龄化，三孩生育政策出台](/content/gnews/43/README.md)
- ` 纽约香草山MOS01`
+### [CCP是全世界上的万祸之源（三）&#8212;&#8212;&#8212;伊甸战斗室盖特七日谈（第十二期）](/content/gnews/43/README.md)
+ ` 喜马拉雅农场新西兰站`
 
