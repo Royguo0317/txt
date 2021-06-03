@@ -1,37 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选主题专栏：福奇：不问病毒来源，与中共疾控中心“共度难关”
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1294165/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（三十四）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1294145/)
 
-《路德社》精选主题专栏组出品
+作者：纽约香草山信息部 6zero4
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03081852/fuqi.jpeg)
-
-英国每日邮报6月2日刊登关于福奇邮件门的报导，标题是“我们将一起度过难关”-新发布的电子邮件揭示了福奇博士在 中共病毒 爆发之初，与中共病毒专家进行的友好通讯—但他却没有向对方提出任何病毒从何而来的问题。
-
-报导称，《华盛顿邮报》通过信息自由申请（freedom of information），获准访问美国总统首席医疗顾问福奇从2020 年 3 月到 4 月的866页电子邮件，从中发现福奇与中共疾病预防控制中心主任高福之间的电子邮件交流，“在美国受中共病毒大流行全面袭击时”，报导称，福奇对高福采取了热情及 友好的语气，“但却没有问任何有关病毒起源的问题”。
-
-福奇曾在 2020 年 3 月告诉美国人，口罩不是防止 COVID-19 传播的有效工具。同月，中共疾病与预防控制中心主任高福接受美国《科学》杂志采访，指出美国专家（包括福奇）告诉他们的公民不需要戴口罩是一个“大错误”。随后高福发邮件给福奇，对福奇将如何看待他的这番言论感到焦虑。 他在 3 月 28 日发给福奇的信里说：“我看到了《科学》杂志的采访……那只是记者的措辞。”希望你能理解。让我们共同努力，让病毒离开地球”。能这么在乎和及时地为自己的言论向当事人进行辩解，只能说高福平时与福奇的关系绝对在一般朋友之上。
-
-果然，福奇热情地回信：“我完全理解。没问题。我们将一起度过难关”。2020年4月3日，福奇正式改变了戴口罩的立场，告诉美国人他们应该捂住鼻子和嘴巴以阻止传播。这位顶级医生因为发出前后矛盾的混乱信息，遭到了众多专家和数百万美国人的猛烈抨击。
-
-不到一周后，好朋友高福给福奇发来了慰问电，对正遭受猛烈谴责的福奇表达支持。2020年4月8日，他写道：“我看到一些新闻（希望是假的），你正在被一些人攻击。希望你在这种非理性的情况下一切顺利，”三天后福奇回答：’谢谢你的好意。尽管这个世界上有一些疯狂的人，但一切都很好，”。
-
-作为美国最重要的对抗中共病毒的决策专家，在与中共病毒起源地的疾控中心主任频繁通讯中，竟然丝毫未提及病毒来源的问题，实在匪夷所思，只能说这位拿着美国政府最高工资的顶级医学专家，对解决中共病毒毫无兴趣，目标只是让美国人民打疫苗。福奇去年大部分时间都在贬低病毒实验室泄露理论，这是不是有目的地将病毒自然起源理论早早盖棺论定，从而为疫苗计划顺利开展铺平道路。
-
-2020年4 月 1 日发送的一封邮件显示，福奇与比尔·盖茨通过电话谈到了政府与比尔和梅琳达·盖茨基金会，合作开发潜在冠状病毒疫苗的可能性。比尔.盖茨和福奇都曾先后在2015及2017年预言了疫情大流行，2020年又在中共病毒肆虐美国时，迅速携手开发疫苗，不问病毒来源，只求迅速推广疫苗。从掩盖病毒来源，误导民众不戴口罩，打压羟氯喹等廉价有效药物，到可能涉及的伪造中共病毒感染率和死亡率等，如此种种，让人不得不怀疑，福奇，是不是真如媒体所说的“病毒之父”。他经手的，通过钻法律漏洞，资助武汉病毒研究所的研究经费，所涉及的功能增强实验，又与中共有着何种程度的暗箱操作？这些都关系着人类是否能狗真正走出中共病毒的威胁。当全世界聚焦中共这一放毒杀人犯时，对背后长期资助，配合中共的福奇们，同样不能轻易放过。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
 
-[参考链结](https://www.dailymail.co.uk/news/article-9641309/Newly-released-emails-reveal-Dr-Faucis-friendly-messages-CHINESE-expert.html)
+6月1日塞林博士的3连推：
 
-【文章仅代表作者个人观点】
+第1推，转发TorontoMapleLeafFarmCanada战友回应塞林博士自己昨天最后一推的推文，PLA-AMMS的童贻刚曾经在2020年1月告诉媒体，基于对27个武汉COVID-19感染者的病毒基因序列的分析和计算，他们认为病毒是从2019年10月1日进化到现在这个状况的。这意味着这款超限生物武器是PLA在2019年10月1日前就已经准备好了的。并贴上2020年1月29日«科技日报»转发Science在2020年1月26日刊发的这篇文章“华南海鲜市场‘翻盘’？未必是新冠冠状病毒发源地！”中谈到这些细节的网页截图，以及童贻刚和曹务春等CCP-PLA军官的正装照。这是COVID-19侦探TorontoMapleLeafFarmCanada的关键发现，PLA生物武器专家童贻刚在2020年1月26日说，COVID-19病毒早在2019年10月1日就已经完全成形，这与此后CCP发布的任何病毒进化数据都不匹配，表明COVID-19很可能就是一种生物武器，即PLA病毒。
 
-本文作者：sherryok水云间
 
-审核校对：jake心锁
 
-上传排版：糊糊文婴
+> Critical find by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@TorontoFarmEN](https://twitter.com/TorontoFarmEN?ref_src=twsrc%5Etfw) – On Jan 26, 2020, PLA biowarfare expert Yigang Tong said [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) fully evolved by Oct 1, 2019, which doesn't match any of the possible evolutionary data published since, indicating COVID-19 is a [#PLAVirus](https://twitter.com/hashtag/PLAVirus?src=hash&amp;ref_src=twsrc%5Etfw) and likely bioweapon. [https://t.co/o3MTuHNamg](https://t.co/o3MTuHNamg)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 1, 2021](https://twitter.com/LawrenceSellin/status/1399639506538672131?ref_src=twsrc%5Etfw)
 
-0
+
+
+第2推，为什么哥伦比亚大学的Vincent Racaniello出现在一个长期被怀疑是CCP大外宣的频道？来自美国政府不愿透露姓名的消息人士说，美国科学家正在直接协助CCP的宣传工作，我们在此曝光他们。并附上4天前“今日华尔街”记者李琦采访Vincent Racaniello的视频。（Vincent Racaniello真容浮出水面）
+
+
+
+> Why is Vincent Racaniello of Columbia University on a channel long-suspected of being an outlet for CCP propaganda? Unnamed sources in the U.S. government say U.S.-based scientists are directly assisting the CCP in its propaganda effort. Expose them here.[https://t.co/QheGZsPG79](https://t.co/QheGZsPG79)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 1, 2021](https://twitter.com/LawrenceSellin/status/1399735707447431169?ref_src=twsrc%5Etfw)
+
+
+
+第3推，致那些没有立即领会到PLA军官童贻刚在2020年1月29日那篇文章中所阐明的事情之意义的人，他是在不知不觉中告诉全世界：PLA制造了COVID-19！并再次贴上这篇文章的网页截图及童贻刚的照片。
+
+
+
+> For those who may not have immediately grasped the significance of PLA military officer Yigang Tong's statement in the January 29, 2020 article. He is unwittingly telling the world:
+> "The People's Liberation Army made [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) "
+> (thanks to [@TorontoFarmEN](https://twitter.com/TorontoFarmEN?ref_src=twsrc%5Etfw))[https://t.co/ctrmOno1ff](https://t.co/ctrmOno1ff) [pic.twitter.com/rf2c2jdLoh](https://t.co/rf2c2jdLoh)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 1, 2021](https://twitter.com/LawrenceSellin/status/1399771352739975169?ref_src=twsrc%5Etfw)
+
+
+
+6月2日塞林博士2连推：
+
+第1推，塞林博士转发自己昨天接受Rumble记者Two Mikes主题为“你不能像他们在病毒产生上为所欲为后还睁眼说它不是生物武器”的采访视频，深度剖析了COVID-19的起源及中共生物武器计划。
+
+
+
+> 'You Can't Do the Things They've Done With That Virus and Say It's Not a Weapon'
+> In depth interview with Dr. Lawrence Sellin about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) and China's biowarfare program.[#PLAVirus](https://twitter.com/hashtag/PLAVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/ThuyHxuUxV](https://t.co/ThuyHxuUxV)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 2, 2021](https://twitter.com/LawrenceSellin/status/1400003692414312453?ref_src=twsrc%5Etfw)
+
+
+
+第2推，转发Joe Hoft今天刚刚发表在The Gateway Pundit上的一篇文章“明尼苏达大学是如何为中共生物战计划做贡献的”。目前尚不清楚李放在明大到底有多少科研成果，通过与PLA关联的武汉科研机构的广泛合作，而进入了中共的生物战计划。
+
+
+
+> It is yet unclear how much of Fang Li’s research at the University of Minnesota may have found its way into China’s biological warfare program via his extensive collaboration with Wuhan research institutions and their links to the People’s Liberation Army.[https://t.co/ni9fRebUbR](https://t.co/ni9fRebUbR)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 2, 2021](https://twitter.com/LawrenceSellin/status/1400107592408522755?ref_src=twsrc%5Etfw)
+
+
+
+**童贻刚**，现任北京化工大学生命科学与技术学院教授兼院长，其学历和经历也很耀眼：
+
+1. 1984-1988年间，本科就读于复旦大学遗传专业；
+2. 1988-1991年间，研究生就读于AMMS的医学遗传学专业；
+3. 1991-1997年间，就职于北京军区总医院的主治医师；
+4. 1997-2000年间，博士就读于AMMS的微生物学专业；
+5. 2000-2005年间，在加拿大英属哥伦比亚大学(UBC)做博士后研究，并获该校著名的Micheal Smith化学荣誉奖章；
+6. 2005-2018年间，回国后在AMMS微生物流行病研究所先后任研究员和研究室主任。
+
+
+童贻刚本身就是PLA-AMMS高级技术军官，其在微生物学和化学方面都有非常深厚的历练和造诣，可见他就是PLA生化武器顶级专家之一，因此他对CCP-PLA-AMMS开发的COVID-19这款生物武器肯定了如指掌，因此其在疫情早期的2020年1月曾经有意无意向媒体透露的这些信息，暗示着COVID-19这款超限生物武器，是 PLA早在2019年10月1日前就已经准备好了，是为中共国第70个国庆盛典准备的生日大礼包啊！就是名正言顺的PLA病毒啊！
+
+在COVID-19病毒起源真相和科学界与CCP广泛勾结的证据如雨后春笋般涌现在美国和全世界面前之际，美国科学家和媒体界还有不少死不悔改的亡命徒继续裸奔，继续与CCP穿同一条裤子唱戏，直接协助CCP的病毒自然起源宣传工作，搅混水以混淆视听。哥伦比亚大学医学院的微生物学和免疫学教授Vincent Racaniello，以及“今日华尔街”媒体平台就是这样的小丑。这倒不是展示了他们不怕死的精神，也不是他们因为即将入土的CCP而兔死狐悲，而是昭示着他们实在是被CCP捏死了春袋，在CCP断气才松手的绝望中，只能被拽着亦步亦趋，痛苦而绝望地亡命天涯吧！
+
+校对/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++2

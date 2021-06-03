@@ -1,46 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】福奇被曝光的邮件铁证如山
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1294043/)
+## 内塔尼亚胡呼吁抵制未来政府
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1294035/)
 
-作者：纽约香草山媒体部 蜜蜂
+信息来源：德国世界报网络版 
+发布时间：2021年6月03日
+翻译 /整理/ 简评： Shuizhuyu
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03072429/taylor-brandon-Y8r0RTNrIWM-unsplash-scaled.jpg)
 
 
+以色列可能会有一个新政府：来自未来党的 Jair Lapid 建立了一个多党联盟。应该尽快开始执政。
 
-据挖掘病毒来源真相“特种部队战士”我们的好战友🔥火来2号🔥6月2号发推：
-“2020年2月17日这封邮件触目惊心，哈尔滨某护士通过Jodie Dillman向福奇爆料：
-1 哈尔滨的死亡人数远远高于公开报道人数
-2 死在医院大厅和医护人员死亡都不计入死亡人数
-3 医护人员没有防护装备
-4 死前没有确诊的，不计入新冠死亡人数
+以色列即将卸任的总理本雅明·内塔尼亚胡在推特上呼吁议会成员抵制未来政府。周四，他批评了极右翼贾米纳党的指定继任者纳夫塔利·贝内特 (Naftali Bennett)。
 
-卧槽！这位哈尔滨的护士勇敢爆料，但是她选错了人”。
+据说这次是第一次以色列政府有阿拉伯政党参政。政治专家乔纳森弗里曼将他们归类为宗教和温和的伊斯兰。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03071336/%E5%9B%BE%E7%89%8711.png)
+简评： 以色列最近政坛发生了变化， 我们无权也无意去评论政府更迭的好坏。 我们只能说， 不管如何， 这个政府是民选出来的， 具体选举中是否有各种蹊跷， 我们也不得而知。 原来的政府确实也传出了腐败的丑闻。 让我们静观以色列的变化， 不管如何， 我们只有一个愿望， 新政府不要和中共勾兑。
 
-难怪羟氯喹这么简单有效的药一下在全世界变得那么复杂！新冠疫苗这么复杂的事变得这么火爆！美国疫情如此严重白宫的疫情发布会他每次出场却若无其事！闫博士的爆料的声音屡屡受挫遭打压！抵达欧洲的那位病毒学专家军方人士公然不敢来美国！原来都同这位美国“医药领域的泰斗”福奇有着千丝万缕的联系。他就是中共安放在人类心脏部位的定时炸弹，中共的忠实走狗，杀人不见血的刽子手！
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03071955/licensed-image.jpg)
-
-一年多以来人们脑海里浮现的诸多问号，由福奇的海量邮件正在给出再也不能混淆视听，闭人耳目的答案。铁证如山，真相即将大白于天下。这是爆料革命战友拼搏战斗的战果。是新中国联邦成立周年的礼物。
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+🔗[Israel-Netanjahu-ruft-zu-Widerstand-gegen-kuenftige-Regierung-au](https://www.welt.de/politik/ausland/article231551791/Israel-Netanjahu-ruft-zu-Widerstand-gegen-kuenftige-Regierung-auf.html)f
 
 0

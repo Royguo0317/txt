@@ -1,43 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】今年的6.4，注定是一个新的开始
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1294052/)
+## 中共对福奇邮件的解读提醒我们注意其他的中共同路人
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1294061/)
 
-配音：香草山录音组 蒙古鸿雁
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03073023/84_%E5%89%AF%E6%9C%AC.jpg)
+据[**七环视频**](https://weibo.com/6066193547?refer_flag=1001030103_) [2021年06月02日 23:05](https://weibo.com/6066193547/KimQV3tyo?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+【[#美媒披露*福奇*千页*邮件*#](https://s.weibo.com/weibo?q=%23%E7%BE%8E%E5%AA%92%E6%8A%AB%E9%9C%B2%E7%A6%8F%E5%A5%87%E5%8D%83%E9%A1%B5%E9%82%AE%E4%BB%B6%23)：普及新冠知识，忧疫苗研发】当地时间6月1日，美媒根据美国《信息自由法》申请获得美国传染病学专家*福奇*的数千页*邮件*内容，时间跨度从2020年1月至6月，披露了*福奇*在应对美国新冠疫情时的处境。*福奇*曾在去年4月的*邮件*里表示，当前的应对措施让自己夜不能寐，主要是指新冠疫苗的研发治疗方法。现年80岁的*福奇*已经服务过6任美国总统。[O美媒披露*福奇*千页*邮件*：普及新冠知识，忧疫苗研发](http://t.cn/A6VOSEKh) [L七环视频的微博视频](http://t.cn/A6VOSEWx)
 
+在林林总总的邮件中能够找到美化福奇的邮件，可以说中共也是费了心思，当全世界都在拿着放大镜审视福奇在中共主导的这场反人类的超限生物战中的犯罪角色时，中共的宣传机器也开足马力，那么中共在视频里表扬了哪些人呢？他们是——
 
+脸书创使人：扎克伯格；
 
+比尔及梅琳达.盖茨基金会高级顾问：埃米利奥.埃米尼；
 
+我们完全有理由相信中共是用这种方式提醒我们不能仅仅盯着福奇，还要盯着扎克伯格及他控制的脸书，还要盯着埃米利奥.埃米尼和他背后的比尔及梅琳达.盖茨基金会，当然啦那个喜欢中国baijiu和卡拉OK的Perter Daszak也须臾不能忘记。
 
-
-
-在经历完轰轰烈烈，齐上齐落的2019-2020年反修例、反极权的抗争运动后，临近2021年6月4日，香港民间不同的民主团体正面临一个历史性的选择。面对中共政权以及港共政府的疯狂打压，有人选择黯然离开，有人选择默默支持，更有人选择继续坚守发声。
-
-
-
-**文字版原文：[【圣城传声筒】今年的6.4，注定是一个新的开始](https://gnews.org/zh-hans/1290394/)**
-
-作者：香草山香港部写作组
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（文章内容仅代表作者个人观点）
 
 0
