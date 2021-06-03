@@ -1,39 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共挑战澳大利亚贸易注定会失败
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1293407/)
+## 肯尼迪议员说，事实证明福奇与中共一直在隐瞒病毒真相
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1293504/)
 
-撰稿：信心满满
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03030948/13B0F356-18E4-46BB-B16D-AB049E84A094-edited.png)
-图片网络截图
+#### 文章撰写:【默凡】
 
-中共武汉病毒大爆发，中共故意掩盖使病毒传播到世界各地。 澳大利亚从去年到目前一共感染人数29，978，死亡人数910. 因此， 病毒对澳大利亚经济打击是严重的， 不少小的生意无法经营下去，大约29500人员失业，失业率为7.9%。 在病毒爆发前，失业率一直是5.2%。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03035745/156g4reg313sdg56erisdfagndex.jpg)
 
-澳大利亚Morrison政府在去年9月25号举行75届联合国大会上要求调查武汉病毒来源后，中共国驻堪培拉大使就对澳大利亚贸易发出威胁。澳大利亚又在今年对中共国对待新疆维吾尔族谴责。随后，中共对澳大利亚实施了贸易制裁，停止进口澳洲牛肉，对澳洲进口产品加收了80.5%的关税，阻止了4.39亿澳币大麦交易，还对澳大利亚红酒进行反倾销调查。
+福奇800多封邮件被曝光之后，肯尼迪议员接受福克斯电视台采访时表示：
 
-澳大利亚作为一个民主自由，又是五眼联盟的国家之一，通过其独立不惧中共国淫威
+1、所有证据终于证实福奇和中共一直在掩盖病毒真相，他们过去一直说中共病毒来自中共实验室泄漏属于阴谋论。
 
-做好了防止病毒大爆发措施， 经济和就业得到了改善. 今年澳洲统计局3月公布的数据，失业率下降5.6%，就业人数1千3百万。
+2、从病毒疫情暴发的第一天，我们就该怀疑并提出病毒可能来自实验室泄漏，但是人们不愿意去彻查真相，而中共与福奇一直说病毒来自自然，可一年多以来没有任何证据显示病毒来自自然。
 
-中共国对澳洲铁矿石和天然气的需求并没有减少因为中共国是一个能源消耗大国。它需要澳洲优质铁矿石和天然气。
-
-最近铁矿石和天然气价格飙升，铁矿石每吨200美金，天然气价格已经回到两年之前水平。这些价格上涨对澳洲经济是非常有利，相反对中共国是不利的。澳洲虽然在红酒，小麦上被征不平等高额税由于中共国报复， 但是， 铁矿石和天然气价格利好大大抵消了红酒和小麦的损失。
+3、我们需要查明真相，并阻止此类事件再次发生，功能增强型实验就是制造「弗兰肯斯坦」。
 
 
 
-（文章观点纯属个人）
+> 肯尼迪议员：
+> 事实证据终于揭穿了中共和福奇，他们一直掩盖病毒真相
+> 功能增强研究就是制造「弗兰肯斯坦」
+> 我们一定要查明真相，避免再次发生
+> 
+> 还记得是谁第一个说“新冠病毒就是中共制造的「弗兰肯斯坦」”的吗？什么时候说的？ [pic.twitter.com/ZKX6t6nT9V](https://t.co/ZKX6t6nT9V)
+> — 洛子峰 (@Lhotse\_luozi) [June 3, 2021](https://twitter.com/Lhotse_luozi/status/1400245185301213188?ref_src=twsrc%5Etfw)
 
-*审核、编辑：cindy*
 
-资料来源：
 
-[https://www.reuters.com/article/us-health-coronavirus-australia-china-idUSKCN26H00T](https://www.reuters.com/article/us-health-coronavirus-australia-china-idUSKCN26H00T)
+本文仅代表作者本人观点，不代表Gnews平台
 
-[https://www.theguardian.com/business/2020/oct/15/australias-unemployment-rate](https://www.theguardian.com/business/2020/oct/15/australias-unemployment-rate)
+* * *
 
-[https://www.9news.com.au/national/australia-s-unemployment-rate-falls-in-march](https://www.9news.com.au/national/australia-s-unemployment-rate-falls-in-march)
+*排版发布：日本东京方舟农场 文柯Miles*
 
-[https://www.abs.gov.au/statistics/labour/employment-and-unemployment/labour-force-australia/latest-release](https://www.abs.gov.au/statistics/labour/employment-and-unemployment/labour-force-australia/latest-release)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01003057/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 0

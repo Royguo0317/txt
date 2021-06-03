@@ -1,47 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】澳大利亚前总理力挺现政府，捍卫国家主权和利益绝不退让
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1293148/)
+## 福奇邮件曝光掩盖病毒人工问题联合打压实验室来源
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1293307/)
 
-作者： 纽约香草山健身部 Jack Li文阳
+台湾宝岛农场 文旦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03020105/%E6%93%B7%E5%8F%9663-0-1.jpg)
+近日美媒对美国首席传染病专家福西（Anthony Fauci，福奇）的多封邮件进行分析，其中福西与中共疾病预防控制中心主任高福的邮件往来，引发外界强烈关注。
 
+周二（6月1日），《华盛顿邮报》披露，他们通过《信息自由法》申请获得了866页福西的电子邮件，这些电子邮件的时间是2020年3月和4月，正值世界卫生组织宣布疫情为「大流行病」和全球进行管制措施的时候。
 
+病毒爆发初期，各界为何对实验室来源地说法是阴谋论，原因终于曝光了，中共联合美国重要的核心科学家们，一起打压实验室来源说，提倡病毒自然来源说，这背后的目的是为什么呢?又为什么要这样做呢?病毒不是人类公敌吗?
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+从邮件内容可以知道，福奇立马询问是否有参与功能增强实验的合约，对提出本次世纪大流行的病毒研究有人工合成迹象的科学家进行游说、对科学界们及WHO进行秘密会议，积极打压实验室来源说，并开设节目来扰乱所有资讯等等一切作为。
 
+福奇并与中共高进行邮件联系，这一切的一切是为了什么?又要掩盖什么目的?
 
+2021年5月才刚听证会完的福奇，这些邮件的曝光，完全是对他在听证会的言语，做出最强大的反击，为什么要继续说谎呢?
 
-继澳大利亚前总理陆克文表示，各国要团结起来对抗中共之后，另一位澳大利亚前总理特恩布尔(Malcolm Turnbull)也说，澳大利亚在捍卫国家主权和利益时绝不能退让，屈从只会招来被对方鄙视，两位前总理先后发声直指中共，绝非偶然。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03001238/Untitled-design-80.png)图片来源：WSJ
-5月31日，特恩布尔在洛伊国际政策研究所(Lowy Institute for International Policy)表示，由于中共国在南中国海、工业间谍、战狼外交以及贸易制裁等方面越来越咄咄逼人，澳大利亚的民意越来越倾向于与中共国对抗。
+如今病毒来自中共实验室，已经无法某灭，因此我们不应该称病毒为中共大外宣的「新冠病毒」，应改称「中共病毒」来摆脱中共大外宣的混淆视听。又中国在中共统治的数十年来，实际上是受伤害最严重的受害者，世界应该要对中共不能代表中国有所认识，因此我们针对的是中共国而非中国。
 
-不久前，澳大利亚前总理陆克文（Kevin Rudd）对BBC说，各国要避免单独作战，应该团结起来，对抗中共国日益增长的经济和地缘政治胁迫。
+中共病毒核心就是ZC45和ZXC21的中共特有种蝙蝠，全球只有中共国内有，并被加以军方列管的蝙蝠，真相是如此的恐怖，但这就是真相，需要面对如今的超限生化武器的超限战争。
 
-在星期一的讲话中，特恩布尔前总理说，有些人或许对莫里森政府发表对中共的言论提出批评，但真正的问题在于中共国，而非澳大利亚。澳大利亚不应该单方面退缩，去解冻两国关系。澳洲必须坚守阵地，继续捍卫自己的价值和利益。另外他建议，澳大利亚官员们在言辞上需小心谨慎，避免激怒中共。
+未来也将曝光超过866封得更多邮件，隐藏着更巨大的邪恶架构。
 
-澳大利亚总理斯科特·莫里森于4月23日，呼吁世界卫生组织所有成员国支持对新冠病毒全球大流行进行独立调查，澳大利亚在追查中共病毒问题上走在世界的最前面，因此，遭到中共的贸易报复。
+传播真相，缺你不可，你很重要，你的一小步，将是灭共的一大步。
 
-两位前总理先后出来，支持澳大利亚政府的中共国政策，内容和声调一致，直指中共，意义重大。
+资料来源:
 
-陆克文是澳大利亚工党资深领导人，特恩布尔和莫里森同属于自由党。工党和自由党是澳大利亚的两大政党。证明澳大利亚在应对中共的问题上，两党达成一致共识，共同支持莫里森政府对中共的强硬态度。
+[福西邮件解密与中共疾控主任的来往惹关注-大纪元](https://www.epochtimes.com/b5/21/6/2/n12994234.htm)
 
-同时，两位前总理都提到言辞谨慎，避免激怒中共。暗示要与西方盟国步调一致，紧跟美国其后，因为澳大利亚在人口、经济和军事与中共国无法直接对抗。与盟国联合起来，才是澳大利亚抗共的最好方式。
+[BREAKING: Fauci Sent Panicked Gain-of-Function E-mails to Staff in Early COVID Days.](https://thenationalpulse.com/breaking/fauci-sent-panicked-gain-of-function-e-mails-to-staff-in-early-covid-days/)
 
-参考阅读：https://www.voachinese.com/a/australia-members-should-support-proposed-coronavirus-inquiry-20200423/5388160.html
+[Fauci Emails Give Insight To Early Days Of COVID Response](https://www.buzzfeednews.com/article/nataliebettendorf/fauci-emails-covid-response)
 
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
-**更多资讯，更多关注**
+[2020 Exploded The Myth About Left Wing Love Of The Poor](https://www.zerohedge.com/political/2020-exploded-myth-about-left-wing-love-poor)
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[Fauci’s Emails with Chinese CDC Director: ‘We Will Get Through Together’](https://www.breitbart.com/politics/2021/06/01/anthony-fauci-chinese-cdc-directors-email-exchanges-exposed-through-together/)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+福奇邮件下载网址:
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+[leopold-nih-foia-anthony-fauci-emails.pdf (documentcloud.org)](https://assets.documentcloud.org/documents/20793561/leopold-nih-foia-anthony-fauci-emails.pdf)
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+台湾宝岛农场youtobe:
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[2021.05.30珍妮法官：福奇曾在2017年就预测川普政府会遇上意想不到的疫情大流行](https://www.youtube.com/watch?v=B4DTNIQ2INo)
+
+希望大家帮忙订阅分享!!!感谢大家!!!
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+文章审核：zhong
+
+文章发布：Little Liu
 
 0

@@ -1,32 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 肯尼迪议员说，事实证明福奇与中共一直在隐瞒病毒真相
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1293504/)
+## 最新证据显示：福奇知道石正丽进行『功能增强型』研究
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1293570/)
 
 #### 文章撰写:【默凡】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03035745/156g4reg313sdg56erisdfagndex.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03043411/432E23sdag432654-6GmVoAE8z6G.jpg)
 
-福奇800多封邮件被曝光之后，肯尼迪议员接受福克斯电视台采访时表示：
-
-1、所有证据终于证实福奇和中共一直在掩盖病毒真相，他们过去一直说中共病毒来自中共实验室泄漏属于阴谋论。
-
-2、从病毒疫情暴发的第一天，我们就该怀疑并提出病毒可能来自实验室泄漏，但是人们不愿意去彻查真相，而中共与福奇一直说病毒来自自然，可一年多以来没有任何证据显示病毒来自自然。
-
-3、我们需要查明真相，并阻止此类事件再次发生，功能增强型实验就是制造「弗兰肯斯坦」。
+2015年11月9日，《Naturemedicine》发表了一篇由Ralph Baric和石正丽共同完成的题为《A SARS-like cluster of circulating bat coronaviruses shows potential for human emergence 》的论文，该论文是典型的关于冠状病毒『功能增强型』实验的文章。石正丽为这个项目提供了S蛋白序列和质粒，这篇论文还专门声明，『功能增强型』实验虽然已经被NIH终止，但所有工作都在NIH终止前完成，并且是在NIH的审核下最终完成。
 
 
 
-> 肯尼迪议员：
-> 事实证据终于揭穿了中共和福奇，他们一直掩盖病毒真相
-> 功能增强研究就是制造「弗兰肯斯坦」
-> 我们一定要查明真相，避免再次发生
-> 
-> 还记得是谁第一个说“新冠病毒就是中共制造的「弗兰肯斯坦」”的吗？什么时候说的？ [pic.twitter.com/ZKX6t6nT9V](https://t.co/ZKX6t6nT9V)
-> — 洛子峰 (@Lhotse\_luozi) [June 3, 2021](https://twitter.com/Lhotse_luozi/status/1400245185301213188?ref_src=twsrc%5Etfw)
+> 让福奇惊慌失措的文章，就是这篇Ralph Baric和石正丽合作发表的关于冠状病毒的典型的功能增强型实验文章。石正丽为这个项目提供了S蛋白序列和质粒。文中还专门声明，功能增强实验虽然被NIH终止，但所有工作都在终止前已做完，并且在NIH的审核下最终完成🤬🤬🤬 [https://t.co/VZlPbX6gcr](https://t.co/VZlPbX6gcr) [pic.twitter.com/R6nAmI50xD](https://t.co/R6nAmI50xD)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [June 2, 2021](https://twitter.com/jsdfposjpqyuee1/status/1400112636037984261?ref_src=twsrc%5Etfw)
 
 
+
+从石正丽发表的这篇文章可以非常清楚地知道，福奇很清楚石正丽正在进行『功能增强型』实验，并且NIH也参与该实验室的审核工作。目前，已经有足够证据证明福奇在听证会上撒谎。
 
 本文仅代表作者本人观点，不代表Gnews平台
 
