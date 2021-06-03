@@ -1,72 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国医生:来自世界各地的证据表明 COVID 疫苗导致更多死亡和感染（第二部分，共三部分）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1293698/)
+## 【战友心声】念64为新中国联邦一周年祝福贺彩。
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1293131/)
 
-- 作者：Jenny Ball
+**作者**：香草山美食部 杉杉
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
 
 
-***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年6月3日电/西喜社——**
 
-看看世卫组织公布的经证实的事实：
 
-我们在下面展示了世卫组织发布的接种疫苗最多的国家的大流行曲线（我们的评论用红色标出）。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03053109/image-59.png)
-亚洲
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03001631/11.2020.06.04-cn.jpg)
 
-在尼泊尔这个拥有 2800 万人口的国家，使用中共国疫苗和印度阿斯利康（AstraZeneca）的疫苗接种活动于 2021 年 1 月底开始。到那时，经过十个月，该国已确诊病例 270,092 例，死亡 2,017 例，每日平均新增病例达 350例。
+2021.6.4日新中国联邦成立一周年！在这个值得欢庆的日子里，我兴奋不已。在激动万分的同时，又感叹时光匆匆，忆往夕峥嵘又一年。脑海里依旧浮现的是去年的今天，文贵先生和班农先生，在神圣的自由女神旁边，宣布新中国联邦成立，郝海东先生铿锵有力地宣读新中国联邦建立宣言的场景。感叹一年以来，爆料革命、新中国联邦、G系列发展的迅速和不易；感叹文贵先生，这个我心中男神的智慧和伟大；感叹闫丽梦博士，这个年轻的科学家这一年多，为唤醒全世界而举证CCP病毒真相的耐力和勇气；感叹所有千千万万为了灭共事业奋斗，为了爆料革命、新中国联邦而奋斗的战友们的力量和不易！
 
-疫苗接种开始四个月后，疫情爆发，目前，平均每天有 8,000 例新病例。 截至 5 月 22 日，尼泊尔有 497,052 例确诊病例（+ 90%）和 6,024 例死亡（+ 200%）。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03053217/image-60.png)
-在泰国这个拥有 7000 万人口的国家，使用中共国疫苗的接种活动于 3 月的第一周开始。 到目前为止，自流行病开始以来，该国仅记录了 25,000 例感染者和 83 例因 COVID-19 而死亡的病例。
+今天，再次踏入这片松林，心潮澎湃、思绪万千、双目湿润，仰苍茸仿佛我的七哥映入眼帘。再仰慕这棵棵参天大松，问天地问鬼神！这365天里，这些苍天大树历经何等风霜雨雪暴晒严寒。文贵先生和新中国联邦、爆料革命，就像这些屹立不倒的松树，尽管狂风暴雨电闪雷鸣冰天雪地，百般践踏蹂躏与背叛，可泣可叹可敬，历经磨难。看今天，展现在世人面前的他，这365天惊艳的蜕变，他不屈不饶宁折不弯，他顽强正义勇气，器宇轩昂，感天动地泣鬼神。他肩扛使命，迎风傲雪，挺拔屹立着，迎接神护天佑给予的缕缕金色阳光，从他顽强生命的缝隙中照射着庇护他。
 
-自接种疫苗开始，两个月内，记录的感染人数增加了5倍（5月22日为123,066），死亡人数增加了9倍（5月22日为735）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03011259/image0-29.jpg)
 
-在柬埔寨这个拥有 2700 万人口的国家
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03053320/image-61.png)
-在蒙古这个拥有 330 万居民的国家
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03053356/image-62.png)
-南美洲
+历经这又365天的锤炼，七哥变得更加自信、自爱，更加帅气、意气风发！他立若芝兰玉树，笑如朗月入怀，他是君子怀幽趣，谦恭礼乐才，他是铮铮铁骨男子汉，敢上九天揽月，敢下五洋捉鳖。借用路德先生的一句话“文贵先生是前无古人后无来者消灭共产党CCP的完美掘墓人”! 他一定将一如既往地引领着新中国联邦爆料革命人，再创一个个消灭共产党CCP的高潮，直到这恶魔僵尸CCP病毒，共产党永远消失在这个地球上！
 
-在哥伦比亚，一个拥有 5000 万居民的国家，是受疫情影响严重的国家，疫情开始急剧下降，直到2021年2月18日疫苗接种运动开始。从那时起，每日感染人数翻了两番，每日死亡率增加了 3 倍。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03053431/image-63.png)
-智利，拥有 1800 万人口的国家。疫苗接种于 12 月 24 日开始，总共向不到 2000 万人接种了近 1710 万剂疫苗。 但是，尽管南美洲的疫苗接种覆盖率最高且严格限制，但每日感染人数和死亡人数仍接近疫苗接种运动开始前的三倍。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03053502/image-64.png)
-在拥有 2.17 亿人口的巴西
+编辑/上传：遍地开花 审核/发布：飞虹
 
-疫苗接种于 1 月 18 日开始，每周死亡率稳定在 7,000 左右
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03053536/image-65.png)
-中东地区
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
 
-阿拉伯联合酋长国，拥有 1050 万居民
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03053612/image-66.png)
-科威特，人口 420 万
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03053633/image-67.png)
-欧洲
+**更多资讯，更多关注**
 
-980 万人口的匈牙利
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-疫苗接种活动于 2 月底开始，随后每周污染急剧增加，从 2 月 25 日的 25,576 例上升到一个月后的 62,265 例，然后逐渐回落到接种疫苗前的水平。
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-在两个半月内，匈牙利的感染人数比流行 11 个月人数翻了一番，（从 14,000 至 29,000）到（400,000 至 800,000）死亡人数。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03053749/image-68.png)
-2000 万人口的罗马尼亚
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-疫苗接种活动于 12 月底开始，当时疫情正在减弱，根据 2021 年 5 月 4 日的官方数据，布加勒斯特的疫苗接种率是全国最高的，有 31.2% 的合格人口接种了疫苗。但在开始接种疫苗后不久，每日感染人数和死亡率就增加了。在疫苗接种开始之前，在流行病十个月之后，罗马尼亚有 618,000 人被感染，15,000 人死亡。 接种疫苗五个月后，数量增加了一倍。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03053818/image-69.png)
-人口 38,000的摩纳哥， 接种前只有 3 例死亡，接种开始后死亡 32 例。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03053847/image-70.png)
-直布罗陀，34,000 居民，整个人群接种疫苗后死亡率增加了 800%（从 10 到 94）。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03053907/image-71.png)
-从这些官方数据可以推断出什么？
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-素材：Jenny Ball ； 审核：文乐； 校对：信心满满； 发稿：Nuevo唐人
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-**素材链接：**[www.lifesitenews.com](https://www.lifesitenews.com/opinion/evidence-from-around-the-world-suggests-covid-vaccines-are-leading-to-more-deaths-and-infections-french-medical-doctor)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
+
+
 
 +2

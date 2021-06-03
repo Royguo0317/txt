@@ -1,46 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】福奇被曝光的邮件铁证如山
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1294043/)
+## 【有声读物】160 多位专家联合声明 COVID 疫苗“不必要、无效和不安全”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1294073/)
 
-作者：纽约香草山媒体部 蜜蜂
+配音：香草山录音组 蒙古鸿雁
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-据挖掘病毒来源真相“特种部队战士”我们的好战友🔥火来2号🔥6月2号发推：
-“2020年2月17日这封邮件触目惊心，哈尔滨某护士通过Jodie Dillman向福奇爆料：
-1 哈尔滨的死亡人数远远高于公开报道人数
-2 死在医院大厅和医护人员死亡都不计入死亡人数
-3 医护人员没有防护装备
-4 死前没有确诊的，不计入新冠死亡人数
 
-卧槽！这位哈尔滨的护士勇敢爆料，但是她选错了人”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03071336/%E5%9B%BE%E7%89%8711.png)
 
-难怪羟氯喹这么简单有效的药一下在全世界变得那么复杂！新冠疫苗这么复杂的事变得这么火爆！美国疫情如此严重白宫的疫情发布会他每次出场却若无其事！闫博士的爆料的声音屡屡受挫遭打压！抵达欧洲的那位病毒学专家军方人士公然不敢来美国！原来都同这位美国“医药领域的泰斗”福奇有着千丝万缕的联系。他就是中共安放在人类心脏部位的定时炸弹，中共的忠实走狗，杀人不见血的刽子手！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03071955/licensed-image.jpg)
+2021 年 5 月 19 日，数十名医学专家发出了关于COVID-19 疫苗的警告，声明注射疫苗的“不必要、无效和不安全”，疫苗可能导致“可预见的大规模死亡”，160多位专家签名表示支持。
 
-一年多以来人们脑海里浮现的诸多问号，由福奇的海量邮件正在给出再也不能混淆视听，闭人耳目的答案。铁证如山，真相即将大白于天下。这是爆料革命战友拼搏战斗的战果。是新中国联邦成立周年的礼物。
+“简而言之，现有证据和科学表明，COVID-19疫苗是不必要，无效和不安全的，” COVID-19 伦理医生在两周前的一封公开信中说。“授权、胁迫或管理实验性 COVID-19 疫苗接种的医疗工作者，正在使人群和患者面临严重、不必要和不合理的医疗风险。”
 
-校对/发稿：飞虹
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**文字版原文：[【医疗前沿世界】160 多位专家联合声明 COVID 疫苗“不必要、无效和不安全”](https://gnews.org/zh-hans/1292312/)**
+
+作者：纽约香草山金融部 AT
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

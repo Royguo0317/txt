@@ -1,27 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以色列组成脆弱联盟以取代现任政府
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1294001/)
+## 【有声读物】今年的6.4，注定是一个新的开始
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1294052/)
 
-#### 文章撰写:【默凡】
+配音：香草山录音组 蒙古鸿雁
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03070644/32Snipfasd32aste_2021-06-03_19-06-16.png)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-以色政党团体星期三（6月2日）晚间达成脆弱的组阁协议，或将取代长期担任总理的内塔尼亚胡。
 
-以色列“拥有未来”党领袖拉皮德（Yair Lapid）星期三晚间说，他已经获得以色列议会的多数支持。此时距离午夜最后期限不到一个小时。强硬派民族主义政党“右倾党”（Yamina）领袖贝内特（Naftali Bennett）星期日宣布支持拉皮德领导的联盟。两人之间的协议将让贝内特先担任总理两年，再由拉皮德接任。
 
-但按照目前的情况，拉皮德领导的执政联盟在以色列议会拥有微弱的多数。新政府将在十天后宣誓就职，内坦尼亚胡阵营因此有足够的时间去拉拢议员，让他们投反对票。
 
-今年71岁的内塔尼亚胡2009年以后一直担任总理，还在1990年代担任过三年的总理。他正在接受腐败刑事指控的法庭审判，但他否认有任何过错。
 
-参考文章：[以色列政界人士组成脆弱联盟以取代内塔尼亚胡政府](https://www.voachinese.com/a/israeli-coalition-formed-20210602/5914291.html)
 
-本文仅代表作者本人观点，不代表Gnews平台
 
-* * *
+在经历完轰轰烈烈，齐上齐落的2019-2020年反修例、反极权的抗争运动后，临近2021年6月4日，香港民间不同的民主团体正面临一个历史性的选择。面对中共政权以及港共政府的疯狂打压，有人选择黯然离开，有人选择默默支持，更有人选择继续坚守发声。
 
-*排版发布：日本东京方舟农场 文柯Miles*
+
+
+**文字版原文：[【圣城传声筒】今年的6.4，注定是一个新的开始](https://gnews.org/zh-hans/1290394/)**
+
+作者：香草山香港部写作组
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
