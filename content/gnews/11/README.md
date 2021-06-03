@@ -1,31 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 打疫苗后过敏性休克心脏衰竭的田一千还好吗
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1291455/)
+## 金正恩或任命其妹为朝鲜政权二号人物
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1292994/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02100408/1_%E5%89%AF%E6%9C%ACdd-.png)
-据[**gengck**](https://weibo.com/1960589282?refer_flag=1001030103_)[2021年6月2日19:39](https://weibo.com/1960589282/Kikh2uTnD?refer_flag=1001030103_)  来自 [vivo NEX AI智慧旗舰](https://app.weibo.com/t/feed/2jt7bq)
+俄罗斯莫斯科喀秋莎农场   银河
 
-*一*个网名叫*田一千*的女孩因为打疫苗后身体出现问题，大家都很关心，我也特地私信问候了下，她回复了，看样子人还在。希望她能渡过难关，恢复健康。🙏 [2无锡](http://t.cn/R2WxpQa) ​
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02225606/K.png)totalfratmove.com
+华盛顿时报6月2日报道，朝鲜政权内部的高层变动引发了新的猜测，即金正恩可能即将正式任命他的妹妹为朝鲜政权的二号人物，这样如果他死亡或身患绝症，她就可以正式接管政府。
 
-微博配图一、
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02093931/74dc37e2ly1gr402on5hmj20d50sg0tu.jpg)
-微博配图二、
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02093919/74dc37e2ly1gr402oyhc8j20d50sg3zn.jpg)
-微博配图三、
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02093908/74dc37e2ly1gr402p9s50j20d50sggmg.jpg)
-微博配图4、
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02093900/74dc37e2ly1gr402psauqj20sp12z0wf.jpg)
-那么对于最后一幅配图到底能说明什么呢？根据这条微博下面的评论——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02094332/1_%E5%89%AF%E6%9C%AC.png)
-在[**田一千**](https://weibo.com/u/5797504634?refer_flag=1005055013_)的新浪微博主页显示最近的一条微博是——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02100754/%E6%8D%95%E8%8E%B7.png)
-她在2021年5月28日21：44分发微博说她发生了过敏性休克；她在2021年5月29日00：17分发微博说，她已经脱离危险了，但医院通知她要自费，在2021年5月28日下午抢救费就花了5000；她在2021年5月29日上午11：08发微博说，医生说她心脏已经开始衰竭了，让她考虑转院，但她已经决定放弃治疗。
+韩国联合通讯社(Yonhap News Agency)报道说，现年37岁的金正恩在10年前开始执政，今年1月在朝鲜首都平壤罕见地召开了劳动党全国代表大会，并在大会上设立了“第一书记”的职位。这个职位暂未公布人选，但可能会由金正恩33岁的妹妹金与正担任。韩联社以密切报道金氏政权的发展而闻名。
 
-她还活着吗？接种疫苗出现过敏性休克需要本人自费吗？如果博主因接种中共疫苗而致死或致残是不是也是全部责任自负呢？在她的相关微博全部消失之后，这些问题恐怕永远不会有答案了。
+目前尚不清楚朝鲜政权变化将如何影响这个拥有核武器威慑的政权对世界其他国家的姿态，但不排除会产生广泛的影响。美国官员密切关注有关朝鲜政权内部变化的报道，认为这些变化可能会为外交活动创造机会，或引发挑衅和升级。
 
-（文章内容仅代表作者个人观点）
+前川普政府试图利用川普与金正恩的峰会，说服朝鲜政权放弃其几十年来违反联合国安理会决议秘密建立的核武器武库之后，外交活动陷入停顿。美国、朝鲜和韩国的外交关系陷入僵局已达两年之久，新任拜登政府一直把朝鲜政策放在一边。许多人认为，金正恩准备等待拜登政府下台，并打赌美国及其盟友最终将被迫接受朝鲜是一个核国家。
 
-+4
+美分析人士表示,拜登总统最近在白宫会见韩国总统显示两国试图用团结的方式应对平壤,向朝鲜施压的手段或许会递减。平壤领导层越来越相信，核武器是生存的必要条件，并认为没有迫切需要放弃核武库。
+
+前中央情报局官员、长期担任美国外交顾问的德特拉尼(Joseph DeTrani)表示朝鲜不会放弃核武器，“他们努力了很久才得到这个。这是一种威慑，为政权的生存提供了保障。”
+
+在金正日接受了紧急心脏手术并罹患重病的谣言引发国际头条新闻大约一年后，金氏政权内部可能出现的结构性转变的推测再次引发关注。当时有报道称，金与正可能被选为朝鲜政权的家族继承人，谣言尚未得到证实。自金正日和金与正她的祖父金日成(Kim Il-sung)上世纪40年代成为朝鲜领袖以来，金氏王朝一直在统治朝鲜。
+
+韩联社报道6月2日援引前韩国统一部部长的推测，在紧急情况下，包括那些涉及领导人金正日的健康状况，金与正将有可能成为暂时的继任者直到权力移交给金正恩的儿子。
+
+参考链接：
+
+[https://www.washingtontimes.com/news/2021/jun/2/kim-yo-jong-kim-jong-uns-sister-likely-being-forma/](https://www.washingtontimes.com/news/2021/jun/2/kim-yo-jong-kim-jong-uns-sister-likely-being-forma/)
+
++1

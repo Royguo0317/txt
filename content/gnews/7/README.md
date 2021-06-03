@@ -1,40 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅：达扎克发邮件感谢福奇否认了病毒实验室泄密理论
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1291462/)
+## COVID-19是一种人造的病毒！艾滋病发现者称 &#8220;只能在实验室中创造&#8221;
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1293048/)
 
-翻译评论： Rosa
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02101436/98c6c12a-d0da-4466-b707-e4ce7a595695-730x487-1.jpg)图片来源：
-[https://redstate.com/scotthounsell/2021/06/01/breaking-wuhan-lab-funder-email-thanks-fauci-for-running-defense-on-lab-leak-theory-n389836](https://redstate.com/scotthounsell/2021/06/01/breaking-wuhan-lab-funder-email-thanks-fauci-for-running-defense-on-lab-leak-theory-n389836)
-[原文链接：](https://redstate.com/scotthounsell/2021/06/01/breaking-wuhan-lab-funder-email-thanks-fauci-for-running-defense-on-lab-leak-theory-n389836)
+#### 编撰：PEACEMAN、叶落知秋（文秋）
+复核：七角星
 
-众所周知，安东尼-福奇博士一直支持生态健康联盟【EcoHealth Alliance】在中国进行的关于蝙蝠冠状病毒的功能增益研究。 虽然福奇一直试图与生态健康联盟【EcoHealth Alliance】的项目保持距离，包括该组织主席彼得-达扎克博士的项目，但新发布的电子邮件详细说明了达斯扎克对福奇否定实验室泄漏理论的赞誉。
+零对冲（ZERO HEDGE）近日报道中称：随着主流媒体和政治家开始提出/承认COVID-19的来源可能是武汉的一个实验室（意外泄露或其他原因）–我们在1月份首次提起世界注意此事，然后被嘲笑、审查和责备–似乎更多真正的 “科学家”（至少那些没有被武汉的实验室支付或为其工作的科学家）愿意承认我们一直以来注意到的事实:这种病毒是人造的。报道中GilmoreHealth.com的Robert Miller写道，与主流社会所推崇的COVID 19病毒是自然突变的结果以及它是由蝙蝠通过穿山甲传染给人类的说法相反，1983年发现HIV病毒的Luc Montagnier博士不同意，他说这种病毒是人造的。
 
-达斯扎克似乎在围绕SARS-CoV-2起源的所有问题上都有自己的观点（后面会有更多的介绍），他在2020年4月18日给福奇发了一封邮件，就在美国最初爆发的六个星期后，感谢福奇博士对实验室泄露理论的否定。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02230911/2020-04-17_5-34-16.jpg)
 
-这封电子邮件的令人不安的性质在于，达扎克是世界卫生组织调查SARS-CoV-2起源的主要调查员之一，而且他再次资助了武汉病毒所【WIV】无可争议的功能增益研究。 在这种情况下，达扎克的影响贯穿于整个调查过程中，甚至到了散布错误信息的地步，以转移生态健康联盟【EcoHealth Alliance】与实验室释放理论相关的潜在责任。
+2008年诺贝尔医学奖得主Luc Montagnier教授声称，SARS-CoV-2是一种被操纵的病毒，是在中国武汉的一个实验室里意外释放的。据说中国的研究人员在他们研究艾滋病疫苗的工作中使用了冠状病毒。据信在SARS-CoV-2的基因组中发现了HIV的DNA片段。根据2008年因与Françoise Barré-Sinoussi（弗朗索瓦丝-巴雷-西努西）一起 “发现 “艾滋病毒是艾滋病流行的原因而获得诺贝尔医学奖的Luc Montagnier教授的说法，SARS-CoV-2是一种被操纵的病毒，在2019年最后一个季度从中国武汉的一个实验室意外释放。
 
-福奇的回应显示，两人是直呼其名的，并且在过去有业务往来。两人显然对彼此都很熟悉。
+根据Montagnier教授的说法，这个以研究冠状病毒而闻名的实验室在寻找艾滋病疫苗的过程中，试图将其中一种病毒作为艾滋病毒的载体!
 
-随着这一事件的继续发展，很明显，这里发生的事情比以前披露的要多。 就在SARS-CoV-2最初爆发的几个月后，福奇和达扎克还在就SARS-CoV-2的起源交换电子邮件，这表明对这个实验室泄漏的可能性缺乏认真可信的调查。 正如以前所报道的，中共国研究人员花了14年时间才确定2003年SARS-CoV病毒的来源。 中共国官员对SARS-CoV-2做出了同样的判断，后来世卫组织（达扎克作为牵头人参与其中）在短短几周内也做出了同样的判断。
+“Montagnier教授在接受Jean-François Lemoine博士在Pourquoi Docteur的每日播客采访时解释说：”与我的同事、生物统计学家Jean-Claude Perez一起，我们仔细分析了这种RNA病毒的基因组描述，并补充说其他人已经探索了这条途径。
 
-现在质疑SARS-CoV-2病毒的来源已不再是异端邪说，它开始变得越来越像从一开始就被掩盖了。
+印度研究人员已经试图公布分析结果，显示这种冠状病毒基因组包含另一种病毒的序列，……HIV病毒（艾滋病病毒），但由于来自主流的压力太大，他们被迫撤回了他们的发现。
 
-评论： 福奇医生和中共走狗达扎克之间的紧密联系已经公诸于众。
+在一个具有挑战性的问题中，Jean-François Lemoine博士推断，正在调查的冠状病毒可能来自于一个本来就感染了HIV的病人。
 
-现在围绕中共病毒是生物武器的议题已经无可辩驳，焦点已经进一步发展到讨论中共是否早有预谋的策划了这次对世界发动的超限生物战的范畴。
+“不，”Luc Montagnier说，”为了在这个基因组中插入HIV序列，需要分子工具，而这只能在实验室中完成。”根据2008年诺贝尔医学奖得主的说法，一个合理的解释是在武汉实验室发生的意外。他还补充说，这项工作的目的是寻找艾滋病疫苗。
 
-路德社今日透露说，福奇的江湖地位在美国无人可以撼动，其背后的团队牢牢的掌控着媒体资源并可以轻易决定任何一家美国大型医药企的生死存亡，可谓没有任何一个组织和个人敢于压上自己的前途公开向福奇发起挑战。
+无论如何，由Montagnier教授辩护的这篇论文有一个积极的转变。据他说，这种病毒的改变元素会随着它的传播而被消除。
 
-而此次福奇的邮件成功的被媒体曝光这说明美国业界有一股更大的力量正在推动事件的走向，其势头已经盖过了福奇和背后势力。
+“大自然不接受任何分子修补，它将消除这些非自然的变化，即使什么都不做，事情也会变得更好，但不幸的是，在许多人死亡之后”。
 
-接下来留给福奇的只有两个选择：要么赶紧转变阵营加入全球向中共讨伐病毒真相的阵营；要么跟中共一同奔向死亡。
+Montagnier教授补充说，在干扰波的帮助下，我们可以消除这些序列，从而阻止大流行病。
 
-（文章纯属个人观点）
+这足以引起一些激烈的争论! 以至于Montagnier教授的言论也可以把他归入 “阴谋论者 “的行列。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+他回答说：”阴谋家是相反的阵营，隐藏真相。”他不想指责任何人，但希望中共承认他认为在他们的实验室里发生的事情。回答中他用了伊朗的例子，伊朗在对意外击中乌克兰飞机承担全部责任后，能够赢得国际社会的尊重。他补充说，希望中共能够做正确的事情。
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![This image has an empty alt attribute; its file name is %E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg]()![This image has an empty alt attribute; its file name is %E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01003057/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
-+1
+“在任何情况下，真相总是会浮出水面，这取决于中国政府是否承担责任。”
+
+点评：仍记得零对冲媒体在推特的帐号由于说出中共病毒的部分真相而被限制的事情；仍记得西方主流媒体鼓吹病毒自然来源的学说；仍记得印度研究人员试图公布中共病毒包含HIV序列而承受压力不得不撤稿的情况；仍记得福奇和皮特达扎克等一众科学家失智般地为中共推脱和误导的非科学的言辞…..
+
+真相已经一点点被揭开，COVID-19是中共超限生物武器的事实终将会大白于天下！
+
+参考链接：[COVID-19 Is A Man-Made Virus: HIV-Discoverer Says “Could Only Have Been Created In A Lab”](https://www.zerohedge.com/health/covid-19-man-made-virus-hiv-discoverer-says-could-only-have-been-created-lab)
+
+（文章只代表编者观点，与GENEWS平台无关）
+
+0

@@ -1,51 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6/2/2021 财经快讯: 欧佩克+谨慎恢复石油供应油价上涨; 联邦基金利率下调未触发管理利率调整
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1291203/)
+## 6月2日美国政要反共推特精选：美国人民应该得到关于这场病毒大流行起源的答案
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1292682/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02080617/%E5%9B%BE%E7%89%871-2.png)[图片来源](https://www.cnbc.com/)
-**1.****美国财长耶伦与中共国副总理刘鹤视频通话**
+众议员布里安·马斯克： 美国人民应该得到关于这场大流行起源的答案，那些责任人必须被追究责任! （转国家评论网站报道：福奇在2012年的论文中指出，功能增强性研究的好处大于流行病风险）
 
-[中共国官方媒体称，中共国副总理刘鹤和美国财政部长珍妮特·耶伦就两国经济关系“非常重要”进行了视频通话。财政部表示，耶伦讨论了关于拜登“支持经济持续强劲复苏的计划，以及在符合美国利益的领域进行合作的重要性”。上周，刘鹤与美国贸易代表凯瑟琳·戴（Katherine Tai）进行了自拜登总统上任以来的首次通话。](https://www.cnbc.com/2021/06/02/us-treasury-secretary-yellen-chinas-vice-premier-liu-he-hold-call.html)
 
-评论：视频通话是“秘密”会议？大部分主流美国媒体都未能及时跟踪报导如此重要的中美国际会议？！
 
-**2.****美联邦基金利率下调未触发管理利率调整**
+> The American people deserve answers about the origins of this pandemic and those responsible must be held accountable![https://t.co/7W5xQQfMVb](https://t.co/7W5xQQfMVb)
+> — Rep. Brian Mast (@RepBrianMast) [June 2, 2021](https://twitter.com/RepBrianMast/status/1400165318056501250?ref_src=twsrc%5Etfw)
 
-[联邦基金利率 (EFFR) 上周五从 0.06% 降至 0.05%，略高于 2020 年 4 月创下的 0.04% 历史低点。 4 月底该利率为 0.05%，但五月初反弹至 0.06%。超额准备金利率（IOER）目前为0.10%，隔夜逆回购利率（RRP）目前为0%，两者有助于央行将联邦基金利率保持在目标范围内。分析师还指出，持续的现金过剩给短期利率带来了压力。自 3 月以来，大量现金的使金融机构隔夜向央行贷款金额一直在增长，上周四创下 4850 亿美元的历史新高。周二，纽约联储进行了仅 4480 亿美元的每日隔夜逆回购操作。](https://www.reuters.com/article/usa-fed-fed-funds/dip-in-u-s-fed-funds-rate-not-expected-to-spur-action-yet-idUSL2N2NJ289)
 
-**3.****美国商会拟引进外国工人就业**
 
-[美国商会正在游说州和联邦立法者大幅提高合法移民率，特别是外国签证工人进入美国劳动力市场。商会主席兼首席执行官苏珊娜·克拉克 (Suzanne Clark) 称该游说活动是为了解决商界面临的“工人短缺”问题；尽管仍有1640 万美国人失业，520 万人未充分就业。](https://www.breitbart.com/politics/2021/06/01/chamber-of-commerce-launches-lobbying-effort-for-more-foreign-workers/)
+众议员埃莉斯·斯特凡尼克(众议院共和党主席）： 福奇的电子邮件证明了共和党一年多以来所说的话：武汉实验室泄漏理论是可信的。 美国人民应该知道真相。国会必须对 COVID-19 的起源展开调查。
 
-[这些措施对大企业来说是一个福音，因为美国劳动力市场膨胀，雇主可以削减美国人的工资，降低劳动力成本，增加利润率。然而，该游说活动的目标在很大程度上违背大多数美国人的意愿。移民研究中心的史蒂文·卡马罗塔 (Steven Camarota) 的一项特别研究显示，美国外国移民工人每增加 1%，美国本土工人每周工资可能就会减少 0.5%。](https://www.breitbart.com/politics/2021/06/01/chamber-of-commerce-launches-lobbying-effort-for-more-foreign-workers/)
 
-**4.****美国肉类巨头JBS 因黑客攻击关闭工厂**
 
-[美国农业部发布了一项重要更新，内容涉及拜登政府为缓解 JBS 勒索软件攻击后潜在的供应限制和价格飙升所采取的措施。路透社的头条新闻引用了与 JBS 交谈过的拜登政府官员的话说，“俄罗斯是黑客攻击的源头”。彭博社报道称，由于周末的勒索软件攻击，JBS 在美国的所有肉类工厂都已关闭；JBS 勒索软件攻击对美国食品供应构成威胁，JBS是全球最大的牛肉公司，控制着美国大约四分之一的牛肉市场。如果 JBS 在持续一段时间内不能屠宰牛或猪，可能会出现肉类短缺，价格可能会飙升。随着 JBS 勒索软件攻击的消息传出后，“肉类短缺”已成为全美国人民谷歌搜索的热门关键词。](https://www.zerohedge.com/commodities/cyber-attack-hits-jbs-global-meat-processing-operations)
+> [#FauciEmails](https://twitter.com/hashtag/FauciEmails?src=hash&amp;ref_src=twsrc%5Etfw) prove what Republicans have said for 1+ year: the Wuhan Lab leak theory is credible.
+> 
+> The American people deserve to know the truth. Congress must launch an investigation into the origin of COVID-19.
+> — Rep. Elise Stefanik (@RepStefanik) [June 2, 2021](https://twitter.com/RepStefanik/status/1400137463172042754?ref_src=twsrc%5Etfw)
 
-评论：分不清主流媒体到底是“制造恐慌”还是“报道真相”？！例如，零对冲里面提到的彭博社和路透社，一致把焦点指向俄罗斯黑客，尽管莫斯科方面一直都在否认。
 
-**5.****欧佩克+谨慎恢复石油供应，油价上涨**
 
-[国际石油基准价格周二上涨近 3% 至每桶 71.34 美元，以沙特阿拉伯和俄罗斯为首的欧佩克+ 产油国表示，虽然需求正在复苏，但与中共病毒大流行相关的不确定性仍然存在，抑制他们进一步增加产量。但欧佩克+部长们同意推进在 7 月开始向市场缓慢释放更多石油产量的计划。](https://www.ft.com/content/e74a09b0-9ce3-46f0-95b9-5fa7f0792dce)
+众议员吉姆·乔丹： 福奇到底都知道些什么？晚上美国东部时间9:10/美国中部时间晚上8:10，上福克斯新闻台与肖恩·哈尼蒂[@seanhannity](https://twitter.com/seanhannity)和马克·梅多斯[@MarkMeadows](https://twitter.com/MarkMeadows)对谈。欢迎收看！ 【链接文章来自[http://theblaze.com](https://t.co/jBE86VH0M3?amp=1)：共和党人要求拜登政府就‘使用美国纳税人的钱资助武毒所实验室的研究’提供答案】
 
-**6.****伊朗部长称石油产量可“轻松”翻倍**
 
-[伊朗石油部长赞加内 Bijan Zanganeh 周一表示，德黑兰将其石油产量提高到每天 650 万桶不存在问题；德黑兰认为石油是政治影响力和安全的基础。赞加内早些时候宣布了该部新财政年度的计划，目标产量为日产450 万桶。一半以上的产量将用于出口，其余部分将用于国内需求。伊朗部长还强调，德黑兰不打算向欧佩克组织寻求增加石油产量的许可。](https://sputniknews.com/business/202105311083041171-iran-can-easily-double-oil-production-to-65mln-barrels-per-day-minister-says/)
 
-**7.****97% 印度家庭因中共病毒收入下降**
+> What did Dr. Fauci know? Discussing that and more with [@seanhannity](https://twitter.com/seanhannity?ref_src=twsrc%5Etfw) and [@MarkMeadows](https://twitter.com/MarkMeadows?ref_src=twsrc%5Etfw) on Fox News at 9:10 p.m. ET / 8:10 p.m. CT. 
+> 
+> Tune in! [https://t.co/JGtJt4gFBW](https://t.co/JGtJt4gFBW)
+> — Rep. Jim Jordan (@Jim\_Jordan) [June 3, 2021](https://twitter.com/Jim_Jordan/status/1400248136233324545?ref_src=twsrc%5Etfw)
 
-[CMIE智库周一称，超过10万名印度人因在第二波疫情中感染中共病毒而失去工作， 97％的印度家庭受访者因为疫情出现收入下降。4 月份完成的一项 CMIE 调查发现，只有 3% 的印度人在中共病毒大流行年期间收入增加， 55% 表示收入下降，42% 表示收入保持不变。CMIE首席执行官维亚斯称，如果对通货膨胀进行调整，印度97% 的家庭在病毒大流行期间收入下降。印度政府周一公布的经济数据显示，2020 年经济收缩 7.3%，这是印度自 1947 年脱离英国独立以来最严重的衰退。](https://www.breitbart.com/asia/2021/06/01/report-97-indian-households-lose-income-coronavirus-wave/)
 
-**8.****欧元区 5 月份通胀率升至 2%**
 
-[欧元区 5 月份通胀率升至 2%，两年多来首次超过欧洲央行的目标，使下周关于是否维持超宽松货币政策的决定复杂化。欧元区的升值可能会加剧投资者的担忧，即各国央行将加速缩减去年为应对中共病毒大流行而推出的大规模货币刺激措施。欧洲央行管理委员会下周开会决定是否调整其货币政策，包括最近加快的债券购买步伐，以应对中共病毒封锁措施放松，经济活动增加和价格上涨的问题。欧元区通胀率在去年连续几个月低于零后反弹，促使大多数经济学家预测今年的通胀率将超过欧洲央行不超过但接近 2% 的目标。](https://www.ft.com/content/1b075b3a-f307-44e0-b3a4-b1f3f267bea7)
+参议员玛莎·布莱克本： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 一定要为他们在传播新冠病毒中的角色承担后果。
 
-[根据欧盟统计局的数据，欧元区能源价格同比上涨 13.1% 是推动 19 国单一货币区消费者价格指数略高于预期的主要因素。欧盟统计局表示，欧盟 4 月失业率降至 8%，为九个月以来的最低水平。失业人数下降至 1,540 万人，比 3 月减少 134,000 人，但仍比 2020 年 4 月高出近 130 万人。](https://www.ft.com/content/1b075b3a-f307-44e0-b3a4-b1f3f267bea7)
 
-By 【秘密翻译组-金融组】
-作者：Apple
+
+> The Chinese Communist Party must face consequences for their role in COVID-19’s spread.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 2, 2021](https://twitter.com/MarshaBlackburn/status/1400147063866728449?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 共产中国至少要对掩盖武汉病毒的传播负有责任。这种掩盖继续把每一个生命都置于下一次大流行的危险之中。
+
+
+
+> Communist China at the VERY LEAST is guilty of covering up the spread of the Wuhan virus. The coverup continues putting every single living being at risk of the next great pandemic.
+> — Mike Pompeo (@mikepompeo) [June 2, 2021](https://twitter.com/mikepompeo/status/1400133643960520704?ref_src=twsrc%5Etfw)
+
+
 
 +1
