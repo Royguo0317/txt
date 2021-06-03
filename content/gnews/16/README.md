@@ -1,40 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从富士康连跳到夺命马拉松看中共一贯的逃责手法
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1293546/)
+## 最新证据显示：福奇知道石正丽进行『功能增强型』研究
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1293570/)
 
-作者：穆清 | 校对：SilverSpurs7 | 审核：Beicy-数学老师 | Page: Daoiii
+#### 文章撰写:【默凡】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/w9Ohuabqg2Mya/images/4f17d16b-4820-4dbd-93ab-a7f5fb0c16cf.png?asset_id=c4f582c9-7e1b-4125-946c-737f142904c3&amp;img_etag=%22dabb9f35c08105abc05942f4cbf293f5%22&amp;size=1024)](https://spark.adobe.com/page/w9Ohuabqg2Mya/images/4f17d16b-4820-4dbd-93ab-a7f5fb0c16cf.png?asset_id=c4f582c9-7e1b-4125-946c-737f142904c3&amp;img_etag=%22dabb9f35c08105abc05942f4cbf293f5%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03043411/432E23sdag432654-6GmVoAE8z6G.jpg)
 
-近日，天气格外闷热潮湿，几场大雨也不能冲走这种压抑的闷热感。对于甘肃马拉松赛21人遇难的悲剧，中共当局的态度毫不例外，采用一贯的手法将“ 人祸”甩锅给“ 天灾”来进行舆论引导，将事故主要原因归咎于极端天气，更有甚者，将部分原因归于选手不懂放弃，大谈“ 任何比赛的终点不是完赛，而是安全回家”的谬论，以混淆视听。中共这种流氓可耻的逃责手法，笔者从富士康连跳事件中就深有体会。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/w9Ohuabqg2Mya/images/d47e4426-4116-49e2-bb7e-556abb764a8d.png?asset_id=32b2ae17-d6d7-4082-94c1-3b5b677704ef&amp;img_etag=%2291cb6f12219713d3d63b877b6e1750c4%22&amp;size=1024)](https://spark.adobe.com/page/w9Ohuabqg2Mya/images/d47e4426-4116-49e2-bb7e-556abb764a8d.png?asset_id=32b2ae17-d6d7-4082-94c1-3b5b677704ef&amp;img_etag=%2291cb6f12219713d3d63b877b6e1750c4%22&amp;size=1024)中国甘肃救援人员运送这次致命马拉松的幸存者2021年5月22日 AFP – STR
-
-2010年，在富士康被曝出“ 十四连跳”后，笔者就参加过中共国电子代工厂劳工生存现状的秘密调研。深入厂区，每栋楼顶加装的钢丝拦网格外惹眼，说是为了防止员工跳楼。来这里打工的基本上都是一二十岁涉世未深的孩子。为了追求效益的最大化，工厂有意将来自不同地区、互不相识的工友安排在约30平米左右8-12人的宿舍里，同住的工友会被分成白班和夜班，一个月轮班一次，且同一班的工友又会被分到不同的生产线上（部门）。因作息时间不同，虽共处一室，工友之间却鲜有交流，成为彼此的陌生人。一位工友告诉笔者，他来这里一个月了都不知道睡在上铺的室友长啥样。
-
-对于流水线上的普工而言，每天劳作的时间长达10小时以上，禁止携带手机、说话、吃东西，上厕所都得找领导顶岗，因为流水线是不停止运行的。工作十分的单一、枯燥，像机器一样每天重复上千次的动作，如有懈怠，就会遭到线长的训斥或被克扣工资。每月基本工资一千左右，不加班就不能养活自己，更别说赚钱养家了。因此他们不得不求着领导让其加班，但拼死拼活干完一个月，也买不起一部iPhone手机。当笔者站在厂区门口，看到成千上万张疲倦、冰冷、迷茫、绝望的年轻面孔，突然明白压死骆驼的最后一根稻草是什么。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/w9Ohuabqg2Mya/images/a0b086a3-24b2-4b7b-b2da-2bbe88ab02db.jpg?asset_id=eb442194-340a-4c3d-b0f1-b5a980b93186&amp;img_etag=%2233701c8da6b3dde4fb1ca8f74c65a34f%22&amp;size=2560)](https://spark.adobe.com/page/w9Ohuabqg2Mya/images/a0b086a3-24b2-4b7b-b2da-2bbe88ab02db.jpg?asset_id=eb442194-340a-4c3d-b0f1-b5a980b93186&amp;img_etag=%2233701c8da6b3dde4fb1ca8f74c65a34f%22&amp;size=1024)
-
-富士康用严苛且泯灭人性的管理方式隔绝员工之间的交流，用低廉的薪水变相强迫员工长时间、超负荷劳作，使其成为冰冷的机器。每每想起这些，笔者都深恶痛绝，曾一度拒绝使用苹果产品，它凝聚着无数中国年轻人的青春和血汗，也曾认为所有罪恶的根源是来自西方无良企业的贪婪。自从跟随爆料革命后，笔者才顿然看清这一切背后最大的黑手—中共。在中共国，以富士康为代表的“血汗工厂”不计其数，它们都是中共独裁专制下寄生于中国人民身上的毒瘤。为了攫取利益，中共主动联合西方贪婪的资本家，罔顾基本人权和人性底线，待中国百姓如猪狗，使其成为蒙眼的驴，以满足于自己无尽的贪欲。
-
-当富士康接连爆出员工跳楼自杀的悲剧后，中共当局进行了全面的舆论管控，将责任引向被娇宠的“ 新生代”员工自身心理承受力的脆弱，以及企业文化的缺失和管理机制的僵化，用“甩锅”的方式，掩盖自己作为既得利益的黑老大身份。再来看今天的夺命马拉松，其逃责的手法如出一辙，最终的目的都是想把自己的罪责转嫁给天灾和受害者自身，生怕民众看清事实，从而影响自己伟光正的形象。
-
-纵观70余年，中共历来只管捞钱上位，不顾人性道德，视百姓如草芥，视生命如粪土。因此中共每逢坏事败露，就千方百计“甩锅”逃责，不是天灾就是别人的过错，自己永远伟光正。例如，三年饥荒人祸被说成是三年自然灾害，南方水患又说是千年一遇，自己制造生化病毒却推责美国，更可耻是不给人民选票（民主）却说是中国人素质不高，难道现在中国人的素质还比不上200多年前的英国人、美国人吗？对于当下的墙民而言，又如何实现破局呢？笔者十分认同郭先生提出的“ 躺平”策略，简单又不失智慧，无声又富有力量，用躺平的方式停止向中共输送滋养它的血液，使其饥饿消亡。
-
-（本文仅代表作者个人观点）
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+2015年11月9日，《Naturemedicine》发表了一篇由Ralph Baric和石正丽共同完成的题为《A SARS-like cluster of circulating bat coronaviruses shows potential for human emergence 》的论文，该论文是典型的关于冠状病毒『功能增强型』实验的文章。石正丽为这个项目提供了S蛋白序列和质粒，这篇论文还专门声明，『功能增强型』实验虽然已经被NIH终止，但所有工作都在NIH终止前完成，并且是在NIH的审核下最终完成。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/w9Ohuabqg2Mya/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/w9Ohuabqg2Mya/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+> 让福奇惊慌失措的文章，就是这篇Ralph Baric和石正丽合作发表的关于冠状病毒的典型的功能增强型实验文章。石正丽为这个项目提供了S蛋白序列和质粒。文中还专门声明，功能增强实验虽然被NIH终止，但所有工作都在终止前已做完，并且在NIH的审核下最终完成🤬🤬🤬 [https://t.co/VZlPbX6gcr](https://t.co/VZlPbX6gcr) [pic.twitter.com/R6nAmI50xD](https://t.co/R6nAmI50xD)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [June 2, 2021](https://twitter.com/jsdfposjpqyuee1/status/1400112636037984261?ref_src=twsrc%5Etfw)
 
 
+
+从石正丽发表的这篇文章可以非常清楚地知道，福奇很清楚石正丽正在进行『功能增强型』实验，并且NIH也参与该实验室的审核工作。目前，已经有足够证据证明福奇在听证会上撒谎。
+
+本文仅代表作者本人观点，不代表Gnews平台
+
+* * *
+
+*排版发布：日本东京方舟农场 文柯Miles*
 
 0

@@ -1,41 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 近期有关中共病毒疫苗的荒唐宣传
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1293315/)
+## 中共挑战澳大利亚贸易注定会失败
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1293407/)
 
-作者 台湾宝岛农场 Y.M.O
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03023135/%E6%93%B7%E5%8F%9663-2.jpg)
-5月21日中共国深圳盐田疫情发生到现在已经过去了十余天，按照中共官方的说法目前对于疫情的管控和筛查仍在继续。深圳市疾控中心副主任冯铁建在接受采访时也对此次疫情进行了分析，又臭又长的话有很多，不过其中有一段发言倒是引人关注。
+撰稿：信心满满
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03030948/13B0F356-18E4-46BB-B16D-AB049E84A094-edited.png)
+图片网络截图
 
-在回答为什么此次发现的多为无症状感染者这个问题时，冯铁建认为，第一个原因主要还是发现得早，早发现早控制早治疗，使感染者没有发展成疾病就进行有效治疗和管控了；第二个原因是，根据深圳这次疫情，对龙岗盐田部分区域分析，发现一个有趣的特点，有个工厂疫苗的接种率高于全市平均水平，发现的多是无症状感染者，这有可能跟我们疫苗接种有关系的。
+中共武汉病毒大爆发，中共故意掩盖使病毒传播到世界各地。 澳大利亚从去年到目前一共感染人数29，978，死亡人数910. 因此， 病毒对澳大利亚经济打击是严重的， 不少小的生意无法经营下去，大约29500人员失业，失业率为7.9%。 在病毒爆发前，失业率一直是5.2%。
 
-看完这段话我觉得各方的看法都很尴尬吧。首先是普通民众的态度，目前文字通稿看不到评论，不过在流传出的几个短视频中评论已经是炸锅了，这还是在中共高压网络审查的大环境下。而中共应该也不会满意这样的回答吧，记得两会期间中共学者田飞龙撰文放风称中央需要的不是橡皮图章或忠诚的废物。而冯铁建的这番回答估计不仅废物是坐实了，甚至忠诚度够不够都要被中共打上一个问号。
+澳大利亚Morrison政府在去年9月25号举行75届联合国大会上要求调查武汉病毒来源后，中共国驻堪培拉大使就对澳大利亚贸易发出威胁。澳大利亚又在今年对中共国对待新疆维吾尔族谴责。随后，中共对澳大利亚实施了贸易制裁，停止进口澳洲牛肉，对澳洲进口产品加收了80.5%的关税，阻止了4.39亿澳币大麦交易，还对澳大利亚红酒进行反倾销调查。
 
-在普通民众的印象中，疫苗的意义就是完全免疫，就算有些疫苗需要多次接种那也是因为病毒变异的关系。现在突然说疫苗接种让无症状感染者的比例升高民众当然会恐慌了，民众想知道比例升高的原因以及中共疫苗真正的作用是什么，而这和官方极力推广疫苗的趋势也是不符的。如果中共不像现在一路加速到底的话，本来完全可以甩锅给病毒变异。但之前病毒变异的新闻出现的时候，墙内就已经在宣传国产疫苗对各个变异毒株都有效，甚至包括未知的变异毒株。这样病毒变异这条路就被自己堵死了，于是只能更加荒唐地直接修改疫苗的定义，更加明目张胆地将疫苗合理化。
+澳大利亚作为一个民主自由，又是五眼联盟的国家之一，通过其独立不惧中共国淫威
 
-现在广东新闻网的置顶微博中，高福说由于新冠疫苗的普遍接种，人们建立起了群体免疫，但届时疫苗最主要的功能不是防感染，而是防重症和防死亡。墙内的民众可不是傻子，他们没有忘记过去接种过国外捐助的优秀疫苗，也没忘记国产的许多毒疫苗。对于个体感受来说，疫苗最后只有成功和失败两种结局，不存在任何的中间状态。而中共这种将无症状和轻症作为中间状态掩饰自己的做法，既是对疫苗这个事物的侮辱，也是对这些中共病毒感染者的侮辱，并且防重症和防死亡这怎么看都是羟氯喹的主要作用吧。
+做好了防止病毒大爆发措施， 经济和就业得到了改善. 今年澳洲统计局3月公布的数据，失业率下降5.6%，就业人数1千3百万。
 
-另外最近墙内社交平台上关于印度新冠疫苗Covaxin不灭活的消息传得很多，这样的消息除了增加中共与印度的对立，估计也是为中共自己的疫苗留个伏笔，即某些批次的疫苗违反了某些生产规范导致灭活不彻底，与中共无关。不过中共自己的疫苗究竟是什么，也许在这样的报道中把主语换成中共离真相就更近一些。
+中共国对澳洲铁矿石和天然气的需求并没有减少因为中共国是一个能源消耗大国。它需要澳洲优质铁矿石和天然气。
 
-新闻链接
+最近铁矿石和天然气价格飙升，铁矿石每吨200美金，天然气价格已经回到两年之前水平。这些价格上涨对澳洲经济是非常有利，相反对中共国是不利的。澳洲虽然在红酒，小麦上被征不平等高额税由于中共国报复， 但是， 铁矿石和天然气价格利好大大抵消了红酒和小麦的损失。
 
-[深圳市疾控中心谈盐田疫情四个特点：截至目前波及范围很有限\_冯铁建](https://www.sohu.com/a/469887953_161795)[微博](https://m.weibo.cn/1764220904/4643287555902834)
 
-[印度本土灭活疫苗可能没灭活！印媒：Covaxin或有质量问题，总理莫迪也接种了](https://finance.sina.com.cn/tech/2021-06-02/doc-ikqcfnaz8672219.shtml)
 
-GNEWS其它相关文章
+（文章观点纯属个人）
 
-[【热点播报】广东官方大媒体爆新冠疫苗真实效果，钟南山面无表情瘫坐会场– GNEWS](https://gnews.org/zh-hans/1291285/)
+*审核、编辑：cindy*
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+资料来源：
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[https://www.reuters.com/article/us-health-coronavirus-australia-china-idUSKCN26H00T](https://www.reuters.com/article/us-health-coronavirus-australia-china-idUSKCN26H00T)
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+[https://www.theguardian.com/business/2020/oct/15/australias-unemployment-rate](https://www.theguardian.com/business/2020/oct/15/australias-unemployment-rate)
 
-文章审核：zhong
+[https://www.9news.com.au/national/australia-s-unemployment-rate-falls-in-march](https://www.9news.com.au/national/australia-s-unemployment-rate-falls-in-march)
 
-文章发布：Little Liu
-
+[https://www.abs.gov.au/statistics/labour/employment-and-unemployment/labour-force-australia/latest-release](https://www.abs.gov.au/statistics/labour/employment-and-unemployment/labour-force-australia/latest-release)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01003057/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 0
