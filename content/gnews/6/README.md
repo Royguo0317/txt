@@ -1,14 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 群星熠熠生辉时 新中国联邦人正式亮相纽约新世贸！
-` 加拿大多伦多枫叶农场 羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1294536/)
+## 中共不遗余力地消除天安门事件的影响
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1294888/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121355/q16-edited-1.png)
-据喜联盟GNEWS记者站于6月3日早上11点半发来的报道：环球瞩目，筹备良久的新中国联邦周年庆典于当日上午11点左右，在纽约曼哈顿新世贸中心102层如期开礼。本次盛典活动的特邀嘉宾，新中国联邦建国的功臣战友们相继盛装亮相于本次气氛热烈的红地毯仪式上。
+##  翻译：龟仙人 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03124841/24-600x344-1.png) 六四档案截图
+美联社6月3日报道：中共在1989年的8964的大屠杀虽然已经过去32年，但是对于当时的参与者来说，还远远没有结束。范宝林就是其中的一位。他在监狱中服刑17年，去年他偷偷离开中国，以逃避监视，包括在他的公寓里安装摄像机和对他的家人施加压力，阻止他从事更多的活动。
 
-在现场美女战友主持人苍天之女的娓娓点道下，伴随着节奏感动人的乐曲，来宾们容光焕发，精神抖擞地陆续登场并挥笔签字，合影留念于这一永载新中国联邦史册激动人心的光辉时刻。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03115956/q2-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120118/q1-1-edited-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120206/q3-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120252/q4-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120328/q5-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120416/q6-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120452/q7-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120535/q9-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120611/q10-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120646/q11-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120728/q12-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120813/q13-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120856/q14-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121120/q18-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121159/q17-edited.png)
-以上是喜联盟GNEWS记者站通讯员羟氯喹64的报道。图片来源：GTV
+中共的领导人监禁或驱使活动家流亡，并在很大程度上成功地确保年轻人对六四事件知之甚少。但是，在经过三十多年和三次领导层更迭之后，他们仍然不遗余力地试图阻止人们提及那场造成数百人甚至可能数千上万人死亡的大屠杀。
+
+樊纲参加了示威活动，后来为中共的安全机构工作，1999年因向海外活动人士提供有关监视中国民主流亡者的机密文件而被捕。2016年获释，他说：“一旦你上了中国政府的黑名单，你就会被终身追踪。”
+
+在周五1989年6月4日对抗议者进行军事袭击的周年纪念日之前，樊纲在另一个亚洲国家告诉美联社，“一旦你上了中国政府的黑名单，你就会被终身追踪。”
+
+根据樊纲提供给美联社的一份文件（他说这是他的判决报告），樊纲因将安全机构文件传真给洛杉矶的一个民主运动团体并 “表示同情和支持 ”而被判定为 “非法向国外提供国家机密”。该文件说，他曾承诺利用他的职位传递有关该组织的情报报告。
+
+死者的亲属受到监视，在纪念日之前，一些人被拘留或被迫暂时离家，以防止他们做任何可能引起注意的事情。大陆的公共纪念活动一直被禁止。在香港和澳门这些政治控制较少的中共领土上，曾经公开举行过悼念活动，但今年当局禁止了这些活动。
+
+现在樊纲已经离开了中共国，他说：”我不会再回到中国了，这是一条不归路”。
+
+新闻来源：[美联社](https://apnews.com/article/china-government-and-politics-921c300e9057ea339d356c867bb9899f)
+
+文章仅代表作者个人观点
+
+校对发布：紫橄榄
 
 0

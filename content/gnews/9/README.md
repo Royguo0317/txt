@@ -1,83 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## COVID-19背景信息1.1:中共病毒研究与973计划
-` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1294374/)
+## 中共官员被欧洲某国扣下&nbsp; 缴获更多中共病毒情报
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1294918/)
 
-作者：DT团队
+**摘要：在2021年5月27日的盖特视频中，文贵先生披露欧洲某国在边境扣下一名中共官员，缴获了大量中共收买一些国家的卫生官员和科学家的情报，导致我们看到今天很多美国和西方人士开始拼命洗白，不敢再和中共站在一起。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03123622/Miles_2021-05-27-getter.srt.txt)
+**中共官员被欧洲某国扣下****  ****缴获更多中共病毒情报**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03102030/3B783C80-D68E-4606-85EA-5AE142D3412F.jpeg)
+**A European Country Seizes More Intelligence About the CCP Virus from a CCP Official at Border Control**
 
-*篇首声明：本系列旨在阐述中共国自2005年以来开展有关病毒研究、中共国科研教育机构与香港之间的联系，所有信息均来源于互联网，任何人使用检索引擎都能够获取以下所有信息。分析所提出的线索与结论，仅代表本人观点。*
+共产党某部门的重要官员，在去欧洲某国的时候，直接在边防给扣下了。而且从这个官员处获得了大量情报，关于和这些国家联系的所有的什么卫生官员和科学家。很让人惊讶。
 
-**以下为本系列之——COVID-19背景信息1.1:中共病毒研究与973计划**
+An important official from one of the CCP’s agencies has been detained at the border in transit to a European country. A great amount of intelligence information, about all the health officials and scientists in these countries who have connections with the CCP, has been obtained. Very astonishing.
 
-**“973”****计划：**全名**国家重点基础研究发展计划**，被**中共国务院科技部**于**1997****年**组织建立，和**国务院财政部**、**国家自然科学基金委员会**与相关主管部门共同实施，“旨在解决国家战略需求中的重大科学问题”，简称“973”计划。“973”计划由科技部召集专家顾问组，顾问组有对该年度“973”计划立项有决策与监督权力，一般一个项目执行期为**5****年**，项目执行2年后实行中期评估，评估项目的“工作状态”与“研究前景”，以调整确定后三年的研究计划。2016年2月，中共国科技部将其并入**国家重点研发计划**，“973”计划被它替代（等同于名称更换，实体形式保留）。该计划的实施经费由财政部、基金委拨款支持。
+但是由于使用了中共的蓝盾系统，[情报]暂时打不开。所以人家问我说：“Miles，你们有没有办法破解中共的蓝盾系统？”我说：“很容易，你们找以色列的某某公司就可以帮你解开蓝盾。”但是这件事情，绝对会改变共产党病毒在这个世界上的真相，会提前大大促进。这是天意。
 
-根据网络信息整理获得的**中共****973****计划项目清单**，现摘列1999-2015年间与病毒研究直接相关的项目：
+But the intelligence information is protected by the CCP’s Bluedon Information Security Technology System and cannot be accessed for the time being. So, they asked me: “Miles, is there any way to crack the Bluedon system?” I told them it was easy, and they could have it cracked by soliciting an Israeli company. Definitely, this incident will greatly accelerate the truth of the CCP virus being revealed to the world. God is helping us.
 
+随着这些科学家的出逃成功，家人被拯救的成功，以及现在美国和西方世界知道了这些人出来以后，很多人都赶快想把自己给洗干净，都站出来当英雄了。迟到的正义也叫正义，迟到的真相也叫真相。所以说在这种情况下，这个在截住这些官员……很多官员或者被搜查了电脑，或者信息被拿走，他不会说的，他不会说的。
 
-| **年份** | **项目编号** | **项目名称** | **首席科学家** | **第一承担单位** |
-| --- | --- | --- | --- | --- |
-| 1999 | – | 重要传染病防治基础研究 | 金奇 | 中国预防医学科学院病毒学研究所 |
-| 2005 | 2005CB522900  | 人类重要病原体致病机制研究 | 金奇 | 中国预防医学科学院病毒学研究 |
-| **2005** | **2005CB523000 ** | **动物源性病毒跨种间感染与传播机制研究** | **高福** | **中国科学院微生物研究所** |
-| 2005 | 2005CB523200  | 动物重大传染病病原变异与致病的分子机制 | 童光志 | 中国科学院哈尔滨兽医研究所 |
-| 2006 | 2006CB504200  | 人类免疫缺陷病毒生物学和免疫应答机制研究 | 张林琦 | 中国医学科学院 |
-| 2006 | 2006CB504300  | 感染与免疫的基础研究 | 舒红兵<br>高光侠 | 武汉大学 |
-| 2009 | 2009CB522100  | 呼吸系统疾病与损伤基础研究  | 钟南山 | 广州医学院 |
-| 2010 | 2010CB530100 | 重要病毒的入侵机制研究 | 胡勤学 | 中国科学院武汉病毒研究所 |
-| 2010 | 2010CB833600 | 抗体-抗原分子识别的结构基础和功能研究 | 郭亚军 | 第二军医大学 |
-| 2010 | 2010CB911800 | 细胞抗病毒先天免疫相关蛋白的生物学研究 | 郭德银 | 武汉大学 |
-| **2011** | **2011CB504700** | **重要病毒跨种间感染与传播致病的分子机制研究** | **高福** | **中国科学院微生物研究所** |
-| 2011 | 2011CB504800 | 病毒潜伏感染的分子机制 | 刘奋勇 | 武汉大学 |
-| 2011 | 2011CB504900 | 重要病原体变异规律与致病机制研究 | 金奇 | 中国医学科学院病原生物学研究所 |
-| 2012 | 2012CB910200  | 天然免疫应答相关蛋白的鉴定、结构与功能  | 舒红兵  | 武汉大学 |
-| 2012 | 2012CB911100  | 病毒与宿主细胞相互作用分子机制的研究  | 于晓方  | 吉林大学  |
-| 2012 | 2012CB518900 | 病毒与细胞相互作用导致炎症的基础研究 | 吴建国 | 武汉大学 |
-| 2012 | 2012CB519000 | 重要病毒持续性感染形成和维持的分子机制研究 | 袁正宏 | 复旦大学 |
-| 2014 | 2014CB542500 | 慢性病毒感染的体液应答机制及功能重塑 | 祁海 | 清华大学 |
-| 2014 | 2014CB542600 | 动物病毒－宿主相互作用机制的研究 | 蒋争凡 | 北京大学 |
-| 2014 | 2014CB542700 | 猪繁殖与呼吸综合征病毒与宿主相互作用/调控病毒复制及宿主免疫应答的机制 | 杨汉春  | 中国农业大学 |
-| 2014 | 2014CB542800 | 新发、再发传染病病原体的结构研究 | 饶子和 | 南开大学 |
-| 2015 | 2015CB910500 | 流感等重要病毒与宿主动态互作的细胞分子机制 | 陈吉龙 | 中国科学院微生物研究所 |
+With the successful escape of these scientists from mainland China and the successful rescue of their families, many scientists in the US and the West get to know this and want to clear their names quickly. They have chosen to step forward, to be heroes. Late justice is still justice, and late facts are still the truth. In this case, many of these CCP officials were stopped, their computers were searched, and the information was taken away. However, they would not admit that. They would not admit.
 
+但是我深信随着这些国家、这些州、这些地区、世界各国逐渐发现原来自己相信的共产党的这些所谓朋友，是在自己的国家放毒和收买政府官员。
 
-**表****1. 1998-2015****年间中共国****“973”****计划种以病毒为主题的研究项目**
+But I am convinced that these states, these regions, and different countries in the world will gradually realize that these “friends” from the CCP that they trusted, have been poisoning them and buying government officials in their countries.
 
-通过这份表可得到的线索有：
+刚刚在北京举行的中东某国二把手和王岐山的开会，正在酝酿着在世界上再一次造谣和诋毁美国。但是有些官员回国以后就直接被收拾了。这些信息暂时你们都不会知道。但随着时间，你们都会发现，都会明白。
 
-1、从1998-2015年的研究项目分布看，**有关病毒研究的非军方项目，可能最早起始于中国预防医学科学院病毒学研究所**。当时该机构的负责人之一是中国分子病毒学泰斗**侯德云**，为中国培养了一大批病毒学界的骨干人物。该机构于2002年改组为**中国疾病预防控制中心**，后该机构一直也是病毒研究的核心参与单位。
+Wang Qishan and a Middle Eastern country’s second most powerful individual just had a meeting in Beijing. They have plotted to diffuse rumors around the world and discredit the US once again. Some of the officials were arrested right after they returned to their countries. But the information is not going to be known to the public for now, so you are not going to catch it publicly any time soon. As time goes by, you will understand and find out what happened.
 
-2、所有参与病毒研究的第一承担单位，除相关科研机构外，**参与的高校基本都是中共国内一流的综合性大学**，由此可知综合性大学对病毒方面的研究能力，是中共实行病毒项目所依赖的重要力量。
+“以毒灭共”现在已经不是全球联合行动，自动联合行动那么简单，而是全人类都在行动。当世界知道共产党病毒威胁每个人的生命和安全，和家人安全和财产安全的时候，我相信没有哪个傻子还和共产党一起，跟着共产党非要走进火葬场不可吗？我不相信！这个世界上最最现实的就是金钱、实力。还有威胁到个人安全和利益的时候，我相信没有人没有任何理由跟着共产党。
 
-**3****、上述参与病毒研究的众多研究者，多数可能同样参与了****2016****病毒项目**，成为该项目的核心人物或重要课题/子课题的负责人，这一点可以中共媒体报道、学术文章为依据进行判断/筛选。
+Nowadays, destroying the CCP with the truth of the virus is not as simple as a global joint action or an automatic joint action, but the entire human race is taking action. When the world realizes that the CCP virus has threatened everybody’s life and security, everybody’s family, and the safety of their property, I believe no one, not even a fool, will continue to side with the CCP. Will they follow the CCP and walk straight to the crematorium? I don’t think so! The most realistic thing in this world is money and strength. And when personal safety and interests are under serious threat, I believe there will be no reason for anybody to still stand with the CCP.
 
-**4、不同项目的课题间存在着不同学科分支的交叉关系，**这是中共国多个研究机构与高校之间协同分工、对病毒进行系统性研究的合作基础。
+在这种情况下，兄弟姐妹们，你们会看到一波又一波的，一浪又一浪的反共的国际浪潮，“以法灭共”，“以毒灭共”，“以真相灭共”，跟着爆料革命和新中国联邦，真正地拯救这个世界。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03102105/FC3C9327-02DF-4724-9D93-BA48B167358D.png)
+Under these circumstances, brothers and sisters, you will see wave after wave of global anti-CCP movements, adhering to the strategies of destroying the CCP with the law, with the truth of the virus, and with facts, following the Whistleblower Movement and the New Federal State of China (NFSC), to truly save the world.
 
-**图****1. ****来自中科院的项目通稿（截图来自中科院官方网站）**
+共产党打开潘多拉盒子的那一天起，还有武汉实验室进门那个碑上写着“这是个潘多拉的盒子”那天起，共产党就注定了灭亡！
 
-与2016病毒计划的主题直接相关的是编号2005CB523000和编号2011CB504700的两个项目，该项目首席科学家是现中共国疾控中心主任的高福，多年来**一直在从事人兽共患病跨种感染与传播**的研究工作。通过图1信息可分析得到的线索有：
+The day the CCP opened its Pandora’s box (i.e., released the coronavirus), the day a stone monument was erected in the Wuhan Virology Institute, engraved with the slogan “This is Pandora’s box,” the CCP was finished!
 
-**1****、两个项目之间是递进关系**，且研究重点逐渐转了向禽流感病毒与SARS(CoV)等病毒。
-
-2、对人兽共患病病原的研究得到中共国国家资金的长期支持，说明对病毒的跨种传播研究，中共国已经持续了至少15年，且**这是中共高层方面一直感兴趣的研究方向**。
-
-3、通稿明确指出2011-2015年病毒研究项目的参与单位包括了中科院微生物研究所（牵头组织）、中科院武汉病毒研究所、军事医学科学院微生物流行病研究所、病毒病所在内。结合2020年被披露的武毒所与COVID-19的联系，说明**这一系列的病毒研究很可能与****COVID-19****有着密切关系**，值得深入调查分析。
-
-4、线索3中提及的参与单位，在后续分析的2016病毒项目全部参与其中，且研究课题主题也相同，说明**2016****病毒项目就是高福在****2005-2015****期间病毒项目的延续**。
-
-此外，从网络中获取到的、**高福在****2005-2015****期间的项目书**（《动物源性病毒跨种间感染与传播机制研究项目书》和《重要病毒跨种间感染与传播致病的分子机制研究项目书》，见源信息索引到这些文件），两者的研究内容与两者之间的逻辑关系，不但可以佐证上述分析出的线索，也是对2016病毒项目深入分析的重要切入点。
-
-（文章内容仅代表作者个人观点）
-
-DT中共病毒系列文章：
-[COVID-19起底:中共超限生物武器的前世今生 – GNEWS](https://gnews.org/zh-hans/1294359/)
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60b027ef744cbc431365191d](https://gtv.org/getter/60b027ef744cbc431365191d) (0:24-3:38)
+鸣谢：[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于 [https://gnews.org/zh-hans/1277813/](https://gnews.org/zh-hans/1277813/)
+[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于[https://gnews.org/1280422/](https://gnews.org/1280422/)
 
 * * *
 
-*发布：纽约香草山农场 shangshang*
+**字幕：【XO小粉红】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

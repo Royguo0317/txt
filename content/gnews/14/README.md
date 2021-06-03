@@ -1,27 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## COVID-19起底:中共超限生物武器的前世今生
-` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1294359/)
+## 群星熠熠生辉时 新中国联邦人正式亮相纽约新世贸！
+` 加拿大多伦多枫叶农场 羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1294536/)
 
-作者：DT团队
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121355/q16-edited-1.png)
+据喜联盟GNEWS记者站于6月3日早上11点半发来的报道：环球瞩目，筹备良久的新中国联邦周年庆典于当日上午11点左右，在纽约曼哈顿新世贸中心102层如期开礼。本次盛典活动的特邀嘉宾，新中国联邦建国的功臣战友们相继盛装亮相于本次气氛热烈的红地毯仪式上。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03101717/5BF74C04-6533-4B9C-9834-C7FEF89E9504.jpeg)
-
-*篇首声明：本系列旨在阐述中共国自2005年以来开展有关病毒研究、中共国科研教育机构与香港之间的联系，所有信息均来源于互联网，任何人使用检索引擎都能够获取以下所有信息。分析所提出的线索与结论，仅代表本人观点。*
-
-**以下为本系列开篇——COVID-19起底:中共超限生物武器的前世今生**
-
-从2020年1月19日自媒体路德访谈首次向全球直播披露COVID-19疫情以来，全世界对中共国冠状病毒真相的探索从未停止。根据中共国媒体宣传与政府机构的公开信息，COVID-19可能源于中共国于2016年立项的 “重大突发动物源性人兽共患病跨种感染与传播机制研究”的病毒研究项目。该项目由中国疾病预防与控制中心病毒传染病预防所牵头实施，与中共国解放军军事医学科学院合作，联合国内17家科研机构与高校，中国科学院武汉病毒研究所作为背后的主要研究机构，由中共国专项财政拨款和国家自然科学基金支持该系列项目经费，同时利用科研机构的国际合作关系，开展了大量蛋白质组分析、反向遗传、病毒重组、毒力增强等研究内容，部分资金则来自于中共军方的军事研究项目。这表明中共当局完全具有将人工改造的病毒武器化的动机、能力与可能性。
-
-此外，中共国对病毒的研究不仅局限于联合国内研究机构，有中共国国家自然科学基金国际合作处的公开信息表明，中共国以国际合作研究项目的形式，与国际上多个高校的专业研究机构与研究人士有密切合作关系，构建了一个庞大的全球病毒学术网络。其中香港大学的生物安全三级实验室作为国际卫生组织（WHO）的全球参比实验室，中共国通过国家自然科学基金与香港大学教育资助委员会的合作，以联合研究项目的方式，通过广州医科大学、汕头大学与香港大学建立的合作关系，可能在该项目上亦有密切合作。
-
-事实上，COVID-19背后还有中共更大的战略与计划。根据中共国“973”计划、“传染病防治” 科技重大专项、国家重点研发计划等公开资料表明，中共正在通过数量众多、“化整为零” 、复杂隐蔽的国家级科研项目，以军事单位与普通机构分工明确、互相配合的课题研究方式，来解决病毒武器化过程中的工程技术问题。其主要研究目标是对人畜共患病病原——包括冠状病毒、流感病毒、埃博拉病毒、登革热病毒、西尼罗病毒、基孔雅肯病毒——开展病毒分析鉴定、病毒传播与进化、病毒与宿主相互作用、有效抗病毒药物研制的大规模长期研究。这表明中共当局掌握有其它功能性增强的病毒作为生物武器的潜在可能，其它病毒也有可能正在甚至已经被生物武器化，这给全人类的生命健康安全带来了巨大的风险。
-
-（文章内容仅代表作者个人观点）
-
-* * *
-
-*发布：纽约香草山农场 shangshang*
+在现场美女战友主持人苍天之女的娓娓点道下，伴随着节奏感动人的乐曲，来宾们容光焕发，精神抖擞地陆续登场并挥笔签字，合影留念于这一永载新中国联邦史册激动人心的光辉时刻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03115956/q2-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120118/q1-1-edited-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120206/q3-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120252/q4-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120328/q5-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120416/q6-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120452/q7-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120535/q9-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120611/q10-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120646/q11-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120728/q12-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120813/q13-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120856/q14-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121120/q18-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121159/q17-edited.png)
+以上是喜联盟GNEWS记者站通讯员羟氯喹64的报道。图片来源：GTV
 
 0
