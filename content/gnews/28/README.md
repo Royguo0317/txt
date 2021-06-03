@@ -1,14 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 群星熠熠生辉时 新中国联邦人正式亮相纽约新世贸！
-` 加拿大多伦多枫叶农场 羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1294536/)
+## 法国将从 6 月 15 日开始为青少年接种 COVID-19 疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1294959/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121355/q16-edited-1.png)
-据喜联盟GNEWS记者站于6月3日早上11点半发来的报道：环球瞩目，筹备良久的新中国联邦周年庆典于当日上午11点左右，在纽约曼哈顿新世贸中心102层如期开礼。本次盛典活动的特邀嘉宾，新中国联邦建国的功臣战友们相继盛装亮相于本次气氛热烈的红地毯仪式上。
+- 作者: 里奇
 
-在现场美女战友主持人苍天之女的娓娓点道下，伴随着节奏感动人的乐曲，来宾们容光焕发，精神抖擞地陆续登场并挥笔签字，合影留念于这一永载新中国联邦史册激动人心的光辉时刻。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03115956/q2-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120118/q1-1-edited-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120206/q3-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120252/q4-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120328/q5-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120416/q6-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120452/q7-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120535/q9-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120611/q10-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120646/q11-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120728/q12-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120813/q13-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120856/q14-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121120/q18-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121159/q17-edited.png)
-以上是喜联盟GNEWS记者站通讯员羟氯喹64的报道。图片来源：GTV
 
-0
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+
+**西班牙2021年6月3日电/西喜社——**
+
+法国政府周三表示，法国将于 6 月 15 日开始为 12 岁以上的青少年接种辉瑞 BioNTech 疫苗，此举旨在帮助避免因 COVID-19 风险而在 9 月份关闭学校。
+
+与此同时，法国新的 COVID-19 病例数连续第二天保持在 10,000 以下，每日死亡人数比上周大幅下降，随着疫苗接种活动的扩大，进一步缓解了医院的压力。
+
+法国于去年年底开始接种疫苗，优先考虑养老院居民，通过降低年龄门槛和取消职业或健康状况等条件，逐渐扩大了接种资格。从 5 月 31 日起，所有 18 岁以上的人都可以接种 COVID-19 疫苗。
+
+马克龙总统周三早些时候告诉记者，从 6 月 15 日起，12 至 18 岁的年轻人获准接种 COVID-19 疫苗。
+
+卫生部长奥利维尔·维兰 (Olivier Veran) 表示，将向青少年接种辉瑞疫苗，这些疫苗将在自愿的基础上,在大型疫苗接种中心进行，需要父母同意。
+
+他在接受 TF1 电视台采访时说：“这将帮助我们提高集体免疫力，并使我们能够避免在 9 月份关闭课堂和学校，并保护有时也会出现 COVID 症状的青少年。”
+
+他说，美国已经有 600 万青少年接种了疫苗，以色列和德国也准备为这个年龄组接种疫苗。
+
+“在抗击流行病的过程中，为青少年接种疫苗是很正常的，我们得到了欧洲和法国卫生当局的批准” 维兰说。
+
+欧盟委员会周五授权辉瑞 (PFE.N) 及其合作伙伴 BioNTech SE 的 COVID-19 疫苗用于 12 岁以上的儿童，为在美国和加拿大获得类似许可后，在 27 个国家/地区的更广泛推广铺平了道路。
+
+法国卫生部周三报告了 8,743 例新病例，低于周二的 9,848 例。这是自 9 月以来首次在周末或银行假期之后的两天内出现新病例低于 10,000 的情况。周三医院有 96 例新的冠状病毒感染者死亡，而上周三为 144 例。
+
+目前法国的 COVID-19 死亡总数为 109,758，感染病例总数为 568 万。
+
+**点评: 福奇博士的丑闻刚刚开场，不知道后面牵涉的大鳄有多少，黑幕有多深。可是欧洲政客们仍然不作不死的节奏，罔顾疫苗造成的惊人死亡率和致伤率，硬要给年少学生打疫苗。这个世界真的太奇幻怪诞！未来的地球或许真的不需要实体的国家形态，因为政客们太自私冷酷无知！明明凶手大白于天下，不去强烈谴责和追凶，却偏要舍本逐末继续愚弄自己的国民。可悲！**
+
+素材: 里奇； 审核： Jenny Ball； 校对：信心满满； 发稿：Nuevo唐人
+
+**新闻来源:** [路透社](https://www.reuters.com/world/europe/french-teenagers-aged-12-18-can-get-covid-vaccine-june-15-macron-2021-06-02/)
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
+
+
++1

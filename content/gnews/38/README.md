@@ -1,33 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国曝出4例注射疫苗后仍染疫者
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1294501/)
+## 群星熠熠生辉时 新中国联邦人正式亮相纽约新世贸！
+` 加拿大多伦多枫叶农场 羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1294536/)
 
-俄罗斯莫斯科喀秋莎农场 娜洁仕达
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121355/q16-edited-1.png)
+据喜联盟GNEWS记者站于6月3日早上11点半发来的报道：环球瞩目，筹备良久的新中国联邦周年庆典于当日上午11点左右，在纽约曼哈顿新世贸中心102层如期开礼。本次盛典活动的特邀嘉宾，新中国联邦建国的功臣战友们相继盛装亮相于本次气氛热烈的红地毯仪式上。
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03105509/V.jpg)news.umiamihealth.org
-腾讯网6月3日报道**：**在这次中共国本土感染病例中**，**发现有4例注射了第1针中共病毒疫苗，还没来得及打第二针，就被感染了。
-
-中共国国家卫健委官网消息：6月2日0—24时，31个省（自治区、直辖市）和新疆生产建设兵团报告新增确诊病例24例，其中境外输入病例9例（上海3例，广东2例，四川2例，北京1例，福建1例），本土病例15例（均在广东）。
-
-中共政府坚称此次疫情中接种疫苗有用，尤其是预防重症效果突出。然而有点常识的人都明白，注射疫苗的目的是预防流行病的传染。按照中共国的解释，疫苗是预防重症，其实隐藏的意思就是疫苗不能杜绝传染，只是减轻重症。如此说来，“减轻重症”的疫苗难道不是药物吗？
-
-药物和疫苗的本质区别是疫苗用在健康人身上起预防作用，药物用在患者身上起治疗作用。如果疫苗不能预防传染，那用在健康人身上就是一个错误的行为。
-
-进入5月份以来中共国接种疫苗在全国大范围强力推进，官方报道已超6亿人。企事业单位要求 “应种尽种”，并计入领导绩效考核，无法接种的人员必须有医生证明，签署免责条款，要求不接种人员被传染上“后果自负”。社区由居委会工作人员上门做工作，且每天上报进度。
-
-疫苗的副作用在中共国是不会被曝光的，笔者了解到中共国有注射疫苗之后发高烧的、失聪的、进ICU抢救的，甚至有几天内就死亡的，然而在中共国，真相不会被报道，公众无法了解到。
-
-在一个没有言论自由的国家里，没有一个人是安全的，无论你是既得利益者，还是普通百姓，没有真相，不能发声，只有被奴役、被愚弄！
-
-新闻来源：
-
-[https://new.qq.com/omn/20210603/20210603A04DNQ00.html](https://new.qq.com/omn/20210603/20210603A04DNQ00.html)
-
-[https://www.thepaper.cn/ne](https://www.thepaper.cn/ne)
-
-本文只代表作者观点，与GNEWS无关
+在现场美女战友主持人苍天之女的娓娓点道下，伴随着节奏感动人的乐曲，来宾们容光焕发，精神抖擞地陆续登场并挥笔签字，合影留念于这一永载新中国联邦史册激动人心的光辉时刻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03115956/q2-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120118/q1-1-edited-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120206/q3-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120252/q4-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120328/q5-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120416/q6-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120452/q7-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120535/q9-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120611/q10-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120646/q11-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120728/q12-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120813/q13-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120856/q14-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121120/q18-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121159/q17-edited.png)
+以上是喜联盟GNEWS记者站通讯员羟氯喹64的报道。图片来源：GTV
 
 0

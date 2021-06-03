@@ -1,35 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《文贵说》| 图片连载（八十六）
-` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1294213/)
+## 日本称俄罗斯扣留渔船的行为是不可接受的
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1294609/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03085830/s76.jpg)
-**爆料革命干得最伟大的事情，就是把中国人和共产党分开，但是共产党用他们的邪恶手段拼命往回拉，让中国人与世界绝缘，让全世界仇恨中国人。**
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-**—— 郭文贵先生 2020年10月5日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03085759/21-1-29CN.jpg)
-**我们中国人发生的一切事情，就是对世界的无知，对文明和人性的无视，导致的严重后果，核心是没有信仰。**
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03113051/J.jpg)yenisafak.com
+06月03日，日本政府认为5月28日俄罗斯边防军在鄂霍次克海扣留一艘日本渔船的行为是不可接受的。内阁秘书长加藤胜信在东京的一次新闻发布会上这样说。
 
-**—— 郭文贵先生 2020年10月5日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03085846/s77.jpg)
-**官方发言要讲证据，事实，经过程序，必须要对社会负责。这就是中共与美国的不同，不是总统想怎样就怎样。**
+俄罗斯方面声称，这艘日本船只在俄罗斯专属经济区内捕鱼。日本方面坚持认为，捕鱼活动是在日本的专属经济区。加藤说，“我们认为，俄罗斯方面的行动是不可接受的。”
 
-**—— 郭文贵先生 2020年10月5日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03085813/cn.jpg)
-**共产主义利用资本主义控制资本主义；利用资本控制民主；利用资本主义来达到实现共产主义统治全世界。**
+他回顾说，该国外交部曾就该船被扣押一事向俄罗斯提出抗议，并要求释放该船。
 
-**—— 郭文贵先生 2020年11月7日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03085744/21-1-20CN-1.jpg)
-**全球惩贼考验的是，战友的耐力、智慧、决心。**
+5月28日，一艘悬挂日本国旗的渔船在鄂霍次克海被发现。它被俄联邦安全局边防局的官员扣留。
 
-**—— 郭文贵先生 2020年10月5日**
+在被拘留的船只上发现了活蟹、煮熟的和冷冻的螃蟹产品以及捕鱼设备。这艘双桅船被带到了科萨科夫港。
 
+参考链接：
 
+[https://www.rbc.ru/rbcfreenews/60b869309a7947eb210cb8b6](https://www.rbc.ru/rbcfreenews/60b869309a7947eb210cb8b6)
 
-- **更多精美海报请点击:**
-- [***Getome 文贵说｜Words From Miles***](https://getome.com/user/wordsfrommiles)
-- [***G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4#getter)
-
-
-+1
+0
