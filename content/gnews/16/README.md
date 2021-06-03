@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦一周年大事记
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1293089/)
+## 布达佩斯因中共侵犯人权行为重新为街道命名
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1293063/)
 
-制作：纽约香草山设计部
+俄罗斯莫斯科喀秋莎农场   银河
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02233852/B-3.jpg)scmp.com
+路透社6月2日报道，匈牙利首都布达佩斯市长宣布，他将重新命名位于一所中共国大学拟建校园附近的街道，以纪念中共国政府侵犯人权行为。
 
+其中一条街道将以西藏流亡精神领袖达赖喇嘛(Dalai Lama)的名字命名。北京方面称达赖喇嘛为危险的分裂分子。另一条将被命名为“维吾尔烈士之路”(Uyghur Martyrs’ Road)，维吾尔族是中共种族灭绝和反人类罪行的受害者。第三条将被命名为“自由香港路”，以纪念中共对香港民主自由运动的血腥镇压。第四个街道将以一名入狱的中国天主教主教的名字命名，中共对宗教进行了残酷的打压控制。
 
+这些重新命名的街道将汇集在中共国复旦大学计划开设的一个校区，此校区将为6000名学生和500名教师提供文科、医学、商科和工程等硕士课程。
 
-发稿：雪梨
+“复旦项目会让人对匈牙利30年前在共产主义垮台时所承诺的许多价值观产生怀疑。”布达佩斯市长卡拉松尼·盖尔盖伊 (Gergely Karácsony)说。盖尔盖伊是一位自由主义反对派代表，计划明年参加竞选，将匈牙利右翼总理维克多·欧尔班(Viktor Orbán)拉下台。欧尔班的社会保守主义、民族保守主义和欧洲怀疑主义以及他的建立“非自由国家”的主张引起了国际上的广泛关注。自2010年欧尔班第二次执政以来，匈牙利经历了民主倒退，转向威权主义。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+欧尔班的自由主义反对者指责他讨好中共国、俄罗斯和其他不自由的政府，同时又因为限制司法和媒体的独立性而激怒了欧洲盟友。
 
-**更多资讯，更多关注**
+匈牙利领先的私立大学中欧大学(Central European University)于2019年将大部分业务迁至邻国奥地利，原因是欧尔班政府实施了危及该校地位的法律改革，并对该校创始人乔治·索罗斯(George Soros)发起了一场公开仇恨运动。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+盖尔盖伊告诉记者，中共国校区将消耗匈牙利纳税人近20亿美元，并与政府早些时候为匈牙利学生建造宿舍和设施的协议相悖。自由派智库共和研究所(Republikon Institute) 6月1日公布的一项民意调查显示，66%的匈牙利人反对建立该校园，仅27%的人支持。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+欧尔班政府曾因中共国提供的21亿美元贷款重建布达佩斯-贝尔格莱德铁路的协议，以及他通过快速通道批准一种中共国生产的中共病毒疫苗而受到批评，而这种疫苗目前仍未获得欧盟的批准。
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+参考链接：
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+[https://www.reuters.com/world/china/budapest-names-streets-planned-chinese-university-after-uyghurs-hong-kong-2021-06-02/](https://www.reuters.com/world/china/budapest-names-streets-planned-chinese-university-after-uyghurs-hong-kong-2021-06-02/)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

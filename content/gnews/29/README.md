@@ -1,25 +1,102 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国呼吁北约深化与日本的关系应对中俄威胁
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1292969/)
+## 【香草诗词汇】锅言灶语（第一季尾篇）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1292984/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+## –治大国如烹小鲜–
+– ＂64＂建邦周年纪–
+–口味歇业下季筹中–
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02224257/N-1.jpg)merics.org
-共同通讯社 (Kyodo News) 6月2日报道，美国国务卿布林肯(Antony Blinken) 6月1日鼓励北大西洋公约组织(North Atlantic Treaty Organization，简称:北约)深化与日本的合作，该组织正寻求提高应对中共崛起和俄罗斯威胁的能力。
+作者：纽约香草山健身部 澄道
 
-美国国务院说，在北约外长的一次虚拟会议上，布林肯强调了联盟伙伴关系的重要性，并将澳大利亚、日本、新西兰和韩国列为北约应该加强联系的国家。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-美国国务院没有进行详细说明，但布林肯表示将支持北约秘书长斯托尔滕贝格的努力，使这个30个成员国的联盟“更有弹性和能力应对来自俄罗斯和中共国的系统性挑战”。
 
-拜登(Joe Biden)总统领导的美国政府一直在团结盟友和志同道合的国家，共同应对民主国家面临的来自中共国和俄罗斯等专制国家对国际规则的挑战。在美国的主要盟友中，日本一直被置于美国对抗中共国在印度洋-太平洋地区野心的战略中心，日本首相菅义伟(Yoshihide Suga)成为拜登今年1月就职以来在白宫会晤的首位外国领导人。
 
-拜登政府还一直鼓励日本和韩国改善因战时赔偿问题而日益恶化的双边关系，以加深合作共同抵抗中共和朝鲜威胁。
+建店缘启
+灭共惩贼相宜中
+有话要说
+锅言灶语画外鸣
 
-参考链接：
+锅子
+灶子
+厨二
+翠花
+翠绿
+帮厨阿姨
 
-[https://english.kyodonews.net/news/2021/06/bdf40f7c1c09-us-calls-on-nato-to-deepen-ties-with-japan-amid-chinas-rise.html](https://english.kyodonews.net/news/2021/06/bdf40f7c1c09-us-calls-on-nato-to-deepen-ties-with-japan-amid-chinas-rise.html)
+曾经的
+人才济济
+自发合和同灭共
+曾经的
+干劲十足
+无我无求只铲毒
+
+怎奈
+＂口味难听＂
+COVID-19到如今
+店内仅剩
+厨二
+及灶子
+二位
+且言语不停
+……
+
+为＂64＂周年聚
+北美神奇健身教练
+亲手打造
+＂郭氏烧鸡＂
+请问喻义是啥呀？
+仅仅是在
+为战友们食用？
+
+摇着头的
+厨二
+情不自禁发出
+喃喃低语
+但又好像
+自言自语
+声虽有点弱
+但音节中不乏笃定：
+＂治大国如烹小鲜！＂
+吗？
+
+什么意思！？
+你还是想要
+再＂烹小鲜＂
+开灶续张？
+
+我跟您
+ 讲实话
+
+二厨与
+翠绿
+现已深耕
+＂take away＂
+外卖业（Toronto）
+月收万美金
+您觉得他们
+还能回店吗？
+…..
+
+@澄道来了
+@爱动爱议码06022
+
+校对/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
