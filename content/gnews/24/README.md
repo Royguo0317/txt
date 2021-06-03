@@ -1,43 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】今年的6.4，注定是一个新的开始
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1294052/)
+## 北约秘书长和英首相支持对白俄罗斯实施制裁
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1294129/)
 
-配音：香草山录音组 蒙古鸿雁
+#### 文章撰写:【默凡】
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03081053/gq323Snipaste_202sdaf1-06-03_20-10-27.png)
 
+美国之音新闻网6月3日报道：星期三（6月2日），北约秘书长斯托尔滕贝格在英国首相官邸举行的联合新闻发布会上说，白俄罗斯迫降民用飞机并逮捕一名记者的这类行为，违反了国际规范和规则，并呼吁白俄罗斯立即释放拉曼·普拉塔塞维奇（Raman Pratasevich）和他的女友。他对英国、欧盟和其他盟国对白俄罗斯实施制裁表示支持。
 
+英国首相约翰逊说，现在重要的是确保这些制裁得到全面实施，也有可能会继续观察制裁力度是否要进一步加大，这一事件“骇人听闻，令人愤慨”，盟国联手抗议很重要。
 
+参考文章：[北约秘书长和英首相支持对白俄罗斯做出强烈回应](https://www.voachinese.com/a/NATO-stoltenberg-britain-johnson-support-strong-response-to-belarus/5914030.html)
 
+本文仅代表作者本人观点，不代表Gnews平台
 
+* * *
 
-
-在经历完轰轰烈烈，齐上齐落的2019-2020年反修例、反极权的抗争运动后，临近2021年6月4日，香港民间不同的民主团体正面临一个历史性的选择。面对中共政权以及港共政府的疯狂打压，有人选择黯然离开，有人选择默默支持，更有人选择继续坚守发声。
-
-
-
-**文字版原文：[【圣城传声筒】今年的6.4，注定是一个新的开始](https://gnews.org/zh-hans/1290394/)**
-
-作者：香草山香港部写作组
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*排版发布：日本东京方舟农场 文柯Miles*
 
 0

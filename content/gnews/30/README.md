@@ -1,67 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我的父亲（组诗）————新中国联邦一周年纪念
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1293999/)
+## 【有声读物】160 多位专家联合声明 COVID 疫苗“不必要、无效和不安全”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1294073/)
 
-作者：1608米
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03070559/%E7%88%B6%E4%BA%B2.png)
-图片来自网络
+配音：香草山录音组 蒙古鸿雁
 
-《幸福的回忆满是泪水》
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-我不知道父亲为啥要生我
-甚至他自己也不知道
 
-几十年后，我终于明白
-因为我爱他
-他也爱我
 
-现在当我想起父亲时
-我只想哭，偷偷一个人
-这是我偷偷给他的礼物
-唯一的礼物
 
-哭完后，我就会笑
-浅浅地，抿一抿嘴
 
-幸福……
-为曾经拥有过这样的父亲
 
-《父亲一生清澈如水》
 
-我的父亲，一生
-清澈如水
+2021 年 5 月 19 日，数十名医学专家发出了关于COVID-19 疫苗的警告，声明注射疫苗的“不必要、无效和不安全”，疫苗可能导致“可预见的大规模死亡”，160多位专家签名表示支持。
 
-他给我的印象，永远
-都清澈如清晨的阳光
+“简而言之，现有证据和科学表明，COVID-19疫苗是不必要，无效和不安全的，” COVID-19 伦理医生在两周前的一封公开信中说。“授权、胁迫或管理实验性 COVID-19 疫苗接种的医疗工作者，正在使人群和患者面临严重、不必要和不合理的医疗风险。”
 
-清澈——是父亲一生
-最好的写照
 
-我的父亲，一生
-清澈如水
 
-《一个拥抱温暖一生》
+**文字版原文：[【医疗前沿世界】160 多位专家联合声明 COVID 疫苗“不必要、无效和不安全”](https://gnews.org/zh-hans/1292312/)**
 
-我曾经抱过我的父亲
-在我人生的盛年
+作者：纽约香草山金融部 AT
 
-深情地，用力地
-我给我父亲一个满满地拥抱
 
-唯一的一个
 
-不知道那个拥抱是否
-来得太晚
-对于父亲，对于我
+音频处理/发稿：雪梨
 
-我不知道我该哭
-还是该笑
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-一个拥抱
-是我对父亲全部的回报
+**更多资讯，更多关注**
 
-审核：cindy
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01003057/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
-+1
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

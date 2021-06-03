@@ -1,48 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】新中国联邦成立一周年庆典
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1293208/)
+## 内塔尼亚胡呼吁抵制未来政府
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1294035/)
 
-配音：香草山福音部 ARTEMIS
+信息来源：德国世界报网络版 
+发布时间：2021年6月03日
+翻译 /整理/ 简评： Shuizhuyu
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03072429/taylor-brandon-Y8r0RTNrIWM-unsplash-scaled.jpg)
 
 
+以色列可能会有一个新政府：来自未来党的 Jair Lapid 建立了一个多党联盟。应该尽快开始执政。
 
-七哥心中有大智慧。
-七哥心中有大爱。
+以色列即将卸任的总理本雅明·内塔尼亚胡在推特上呼吁议会成员抵制未来政府。周四，他批评了极右翼贾米纳党的指定继任者纳夫塔利·贝内特 (Naftali Bennett)。
 
-新中国人肩并肩跨越世界。
-GTV帅哥美女们闪亮登场，新人新形象。
-正义传播成为主流媒体。
+据说这次是第一次以色列政府有阿拉伯政党参政。政治专家乔纳森弗里曼将他们归类为宗教和温和的伊斯兰。
 
+简评： 以色列最近政坛发生了变化， 我们无权也无意去评论政府更迭的好坏。 我们只能说， 不管如何， 这个政府是民选出来的， 具体选举中是否有各种蹊跷， 我们也不得而知。 原来的政府确实也传出了腐败的丑闻。 让我们静观以色列的变化， 不管如何， 我们只有一个愿望， 新政府不要和中共勾兑。
 
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
 
-**文字版原文：[【战友心声】新中国联邦成立一周年庆典](https://gnews.org/zh-hans/1292418/)**
-
-作者：纽约香草山福音部 ARTEMIS
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+🔗[Israel-Netanjahu-ruft-zu-Widerstand-gegen-kuenftige-Regierung-au](https://www.welt.de/politik/ausland/article231551791/Israel-Netanjahu-ruft-zu-Widerstand-gegen-kuenftige-Regierung-auf.html)f
 
 0

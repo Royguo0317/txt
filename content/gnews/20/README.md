@@ -1,45 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】160 多位专家联合声明 COVID 疫苗“不必要、无效和不安全”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1294073/)
+## 台湾外交部谴责中共干预台湾疫苗采购
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1294172/)
 
-配音：香草山录音组 蒙古鸿雁
+#### 文章撰写:【默凡】
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03082403/65Sgnipaste_2021-06-03dsaf_20-23-38.png)
 
+法新社6月2日报道：日本外务大臣日前表示，日本正在研发多种中共病毒疫苗提供给台湾。随后中共国外交部发言人汪文斌对此表示，「坚决反对藉疫情搞政治作秀，甚至干涉中共国内政」。
 
+对此，台湾外交部发言人欧江安今天表示，在台湾政府与全民共同对抗疫情、全力向外取得疫苗之际，中共国外交部和国台办等单位多次发表不实言论，企图制造台湾社会矛盾，并干预台湾疫苗采购程序，外交部予以最严厉的谴责。
 
+台湾外交部表示，台湾相关部门正尽全力促使已经购买的疫苗尽速到货，并取得足够的疫苗以保护台湾人民健康。外交部要正告中共国政府，停止利用疫情进行毫无必要的操作，遂行政治外交目的。
 
+另台湾疫情指挥中心发言人庄人祥今天宣布，因应疫苗供应愈来愈多，如果6月到8月间疫苗量足够，就会启动大规模接种，6月起将有800家诊所加入接种行列，8月起增到2000家。未来包括医院、基层诊所及小区接种站，所有接种据点加起来，每周接种数可达100万剂。
 
+参考文章：[台湾外交部谴责中国制造台湾社会矛盾干预疫苗采购](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210602-%E5%8F%B0%E6%B9%BE%E5%A4%96%E4%BA%A4%E9%83%A8%E8%B0%B4%E8%B4%A3%E4%B8%AD%E5%9B%BD%E5%88%B6%E9%80%A0%E5%8F%B0%E6%B9%BE%E7%A4%BE%E4%BC%9A%E7%9F%9B%E7%9B%BE%E5%B9%B2%E9%A2%84%E7%96%AB%E8%8B%97%E9%87%87%E8%B4%AD)
 
+本文仅代表作者本人观点，不代表Gnews平台
 
-2021 年 5 月 19 日，数十名医学专家发出了关于COVID-19 疫苗的警告，声明注射疫苗的“不必要、无效和不安全”，疫苗可能导致“可预见的大规模死亡”，160多位专家签名表示支持。
+* * *
 
-“简而言之，现有证据和科学表明，COVID-19疫苗是不必要，无效和不安全的，” COVID-19 伦理医生在两周前的一封公开信中说。“授权、胁迫或管理实验性 COVID-19 疫苗接种的医疗工作者，正在使人群和患者面临严重、不必要和不合理的医疗风险。”
-
-
-
-**文字版原文：[【医疗前沿世界】160 多位专家联合声明 COVID 疫苗“不必要、无效和不安全”](https://gnews.org/zh-hans/1292312/)**
-
-作者：纽约香草山金融部 AT
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*排版发布：日本东京方舟农场 文柯Miles*
 
 0
