@@ -12,135 +12,135 @@
 
 ---
 
-### [【路德简报】6/2/2021晚： 俄明确打脸中共： 俄中不结盟！](/content/gnews/1/README.md)
+### [2021/06/02-001 文贵先生盖特精华](/content/gnews/1/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [【香草诗词汇】你我相连 -站在巨人肩膀上 一切都已经开始-](/content/gnews/2/README.md)
+ ` 纽约香草山MOS03`
+
+### [高唱《喜马拉雅自由之巅》庆祝新中国联邦成立一周年](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [视频路德时评简讯（视频版）:特纳议员称病毒完全有可能是中共生物武器并且是故意释放( 2021.5.30晚间路德社简讯之路博冠谈)](/content/gnews/2/README.md)
- ` 路德社`
-
-### [【DC大中华时事】中共教育部建议香港在法律上明确普通话及简体字地位](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [现在实验室泄漏理论是“政治正确的” ,那来看看11个关键问题](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【币圈】-数字货币动态- 2021.06.03](/content/gnews/5/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【拆台新闻】中共深知经济奔溃在即，加紧推广数字货币](/content/gnews/6/README.md)
- ` 索尼克`
-
-### [【每日快报】习近平要塑造“可信可爱可敬”的中共国形象，战狼外交走到头了？ 2021.06.03](/content/gnews/7/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [【世事解评】新一代走上“千人计划”之旅的顶尖华裔科学家](/content/gnews/8/README.md)
- ` 纽约香草山MOS01`
-
-### [【拆台新闻】中共国疫苗接种剂次超7亿，灾难正在临近](/content/gnews/9/README.md)
- ` 索尼克`
-
-### [路德时评简讯（视频版）:欧日首脑联合声明再次震动中共( 2021.5.27晚间路德社简讯之路博冠谈)](/content/gnews/10/README.md)
- ` 路德社`
-
-### [【路德简报】6/2/2021早：面对全球对中共病毒真相讨伐声浪 习神欲改装战狼 变换外宣打法](/content/gnews/11/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2021年6月3日 文贵先生盖特 1](/content/gnews/12/README.md)
+### [2021年6月3日 文贵先生盖特 2](/content/gnews/4/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [视频路德时评简讯（视频版）:中共官媒称美情报部门调查病毒真相有四大硬伤( 2021.5.30早间路德社简讯之路安墨谈)](/content/gnews/13/README.md)
+### [灭共路上 缺你不可](/content/gnews/5/README.md)
+ ` 澳喜农场`
+
+### [《文贵说》| 图片连载（八十六）](/content/gnews/6/README.md)
+ ` 文贵说｜Words From Miles`
+
+### [【路德简报】6/2/2021晚： 俄明确打脸中共： 俄中不结盟！](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [视频路德时评简讯（视频版）:特纳议员称病毒完全有可能是中共生物武器并且是故意释放( 2021.5.30晚间路德社简讯之路博冠谈)](/content/gnews/8/README.md)
  ` 路德社`
 
-### [【聚焦】李飞飞加盟拜耳是否预示着疫苗定时炸弹倒计时的开始？](/content/gnews/14/README.md)
+### [【DC大中华时事】中共教育部建议香港在法律上明确普通话及简体字地位](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [现在实验室泄漏理论是“政治正确的” ,那来看看11个关键问题](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【币圈】-数字货币动态- 2021.06.03](/content/gnews/11/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【拆台新闻】中共深知经济奔溃在即，加紧推广数字货币](/content/gnews/12/README.md)
+ ` 索尼克`
+
+### [【每日快报】习近平要塑造“可信可爱可敬”的中共国形象，战狼外交走到头了？ 2021.06.03](/content/gnews/13/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【世事解评】新一代走上“千人计划”之旅的顶尖华裔科学家](/content/gnews/14/README.md)
+ ` 纽约香草山MOS01`
+
+### [【拆台新闻】中共国疫苗接种剂次超7亿，灾难正在临近](/content/gnews/15/README.md)
+ ` 索尼克`
+
+### [路德时评简讯（视频版）:欧日首脑联合声明再次震动中共( 2021.5.27晚间路德社简讯之路博冠谈)](/content/gnews/16/README.md)
+ ` 路德社`
+
+### [【路德简报】6/2/2021早：面对全球对中共病毒真相讨伐声浪 习神欲改装战狼 变换外宣打法](/content/gnews/17/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2021年6月3日 文贵先生盖特 1](/content/gnews/18/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+
+### [视频路德时评简讯（视频版）:中共官媒称美情报部门调查病毒真相有四大硬伤( 2021.5.30早间路德社简讯之路安墨谈)](/content/gnews/19/README.md)
+ ` 路德社`
+
+### [【聚焦】李飞飞加盟拜耳是否预示着疫苗定时炸弹倒计时的开始？](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频路德时评简讯（视频版）:跨两党追责中共法案即将推出( 2021.5.28晚间路德社简讯之路博冠谈)](/content/gnews/15/README.md)
+### [视频路德时评简讯（视频版）:跨两党追责中共法案即将推出( 2021.5.28晚间路德社简讯之路博冠谈)](/content/gnews/21/README.md)
  ` 路德社`
 
-### [明尼苏达大学如何为中共国的生物战项目做出贡献](/content/gnews/16/README.md)
+### [明尼苏达大学如何为中共国的生物战项目做出贡献](/content/gnews/22/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频路德时评简讯（视频版）:比利时担心阿里巴巴是间谍窝(2021.5.25早间路德社简讯之路路安墨谈)](/content/gnews/17/README.md)
+### [视频路德时评简讯（视频版）:比利时担心阿里巴巴是间谍窝(2021.5.25早间路德社简讯之路路安墨谈)](/content/gnews/23/README.md)
  ` 路德社`
 
-### [灭共诗三首](/content/gnews/18/README.md)
+### [灭共诗三首](/content/gnews/24/README.md)
  ` 神奇四侠`
 
-### [【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（三十四）](/content/gnews/19/README.md)
+### [【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（三十四）](/content/gnews/25/README.md)
  ` 纽约香草山MOS02`
 
-### [台湾外交部谴责中共干预台湾疫苗采购](/content/gnews/20/README.md)
+### [台湾外交部谴责中共干预台湾疫苗采购](/content/gnews/26/README.md)
  ` 索尼克`
 
-### [《路德社》精选主题专栏：福奇：不问病毒来源，与中共疾控中心“共度难关”](/content/gnews/21/README.md)
+### [《路德社》精选主题专栏：福奇：不问病毒来源，与中共疾控中心“共度难关”](/content/gnews/27/README.md)
  ` 路德社精选`
 
-### [国际劳工组织最新报告显示，全球就业受疫情重创](/content/gnews/22/README.md)
+### [国际劳工组织最新报告显示，全球就业受疫情重创](/content/gnews/28/README.md)
  ` 索尼克`
 
-### [布里德尔教授宣称“刺突蛋白对人类有毒且危险”](/content/gnews/23/README.md)
+### [布里德尔教授宣称“刺突蛋白对人类有毒且危险”](/content/gnews/29/README.md)
  ` 喜马拉雅巴黎七星农场`
 
-### [北约秘书长和英首相支持对白俄罗斯实施制裁](/content/gnews/24/README.md)
+### [北约秘书长和英首相支持对白俄罗斯实施制裁](/content/gnews/30/README.md)
  ` 索尼克`
 
-### [【香草诗词汇】响鼓秀埸（四）- 羊大秀之＂响鼓也有秀＂画外音-](/content/gnews/25/README.md)
+### [【香草诗词汇】响鼓秀埸（四）- 羊大秀之＂响鼓也有秀＂画外音-](/content/gnews/31/README.md)
  ` 纽约香草山MOS03`
 
-### [中共建党百年之际 党史学习被90后小粉红热捧](/content/gnews/26/README.md)
+### [中共建党百年之际 党史学习被90后小粉红热捧](/content/gnews/32/README.md)
  ` 秘密翻译组G-Translators`
 
-### [谷歌对跟川普有关联的中共病毒医生分享的文档进行审查](/content/gnews/27/README.md)
+### [谷歌对跟川普有关联的中共病毒医生分享的文档进行审查](/content/gnews/33/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [【新闻大破解节目】明居正教授：武毒论集体转向](/content/gnews/28/README.md)
+### [【新闻大破解节目】明居正教授：武毒论集体转向](/content/gnews/34/README.md)
  ` G-NEWS TAIWAN`
 
-### [【热点播报】CCP用新病毒警告威胁全世界吗？——人类首例H1ON3禽流感感染在中共国报出](/content/gnews/29/README.md)
+### [【热点播报】CCP用新病毒警告威胁全世界吗？——人类首例H1ON3禽流感感染在中共国报出](/content/gnews/35/README.md)
  ` 纽约香草山MOS02`
 
-### [【有声读物】160 多位专家联合声明 COVID 疫苗“不必要、无效和不安全”](/content/gnews/30/README.md)
+### [【有声读物】160 多位专家联合声明 COVID 疫苗“不必要、无效和不安全”](/content/gnews/36/README.md)
  ` MOSREC`
 
-### [视频【有声读物】世卫组织一再助纣为虐：批准中共疫苗紧急使用](/content/gnews/31/README.md)
+### [视频【有声读物】世卫组织一再助纣为虐：批准中共疫苗紧急使用](/content/gnews/37/README.md)
  ` MOSREC`
 
-### [中共对福奇邮件的解读提醒我们注意其他的中共同路人](/content/gnews/32/README.md)
+### [中共对福奇邮件的解读提醒我们注意其他的中共同路人](/content/gnews/38/README.md)
  ` NewFOC`
 
-### [为什么中共在故意泄露病毒之后还能维持其在国际上的地位](/content/gnews/33/README.md)
+### [为什么中共在故意泄露病毒之后还能维持其在国际上的地位](/content/gnews/39/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频【有声读物】今年的6.4，注定是一个新的开始](/content/gnews/34/README.md)
+### [视频【有声读物】今年的6.4，注定是一个新的开始](/content/gnews/40/README.md)
  ` MOSREC`
 
-### [内塔尼亚胡呼吁抵制未来政府](/content/gnews/35/README.md)
+### [内塔尼亚胡呼吁抵制未来政府](/content/gnews/41/README.md)
  ` Shuizhuyu`
 
-### [一微博博主弟弟因接种CCP病毒疫苗引发脑出血身亡](/content/gnews/36/README.md)
+### [一微博博主弟弟因接种CCP病毒疫苗引发脑出血身亡](/content/gnews/42/README.md)
  ` 澳喜农场`
 
-### [【热点播报】福奇被曝光的邮件铁证如山](/content/gnews/37/README.md)
+### [【热点播报】福奇被曝光的邮件铁证如山](/content/gnews/43/README.md)
  ` 纽约香草山MOS02`
 
-### [视频【有声读物】英国情报机关认为新冠病毒或来自中共国实验室](/content/gnews/38/README.md)
+### [视频【有声读物】英国情报机关认为新冠病毒或来自中共国实验室](/content/gnews/44/README.md)
  ` MOSREC`
-
-### [视频【有声读物】广州疫情警报，数百万市民排队检测，争抢接种疫苗](/content/gnews/39/README.md)
- ` MOSREC`
-
-### [我的父亲（组诗）————新中国联邦一周年纪念](/content/gnews/40/README.md)
- ` 澳喜农场`
-
-### [以色列组成脆弱联盟以取代现任政府](/content/gnews/41/README.md)
- ` 索尼克`
-
-### [视频中国有良知的科学家被中共系统性噤声,我们将看到更多信息爆出来](/content/gnews/42/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【战友心声】念64为新中国联邦一周年祝福贺彩。](/content/gnews/43/README.md)
- ` 纽约香草山MOS03`
-
-### [伊朗的核武之谜](/content/gnews/44/README.md)
- ` Shuizhuyu`
 

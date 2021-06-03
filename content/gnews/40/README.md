@@ -1,67 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我的父亲（组诗）————新中国联邦一周年纪念
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1293999/)
+## 【有声读物】今年的6.4，注定是一个新的开始
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1294052/)
 
-作者：1608米
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03070559/%E7%88%B6%E4%BA%B2.png)
-图片来自网络
+配音：香草山录音组 蒙古鸿雁
 
-《幸福的回忆满是泪水》
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-我不知道父亲为啥要生我
-甚至他自己也不知道
 
-几十年后，我终于明白
-因为我爱他
-他也爱我
 
-现在当我想起父亲时
-我只想哭，偷偷一个人
-这是我偷偷给他的礼物
-唯一的礼物
 
-哭完后，我就会笑
-浅浅地，抿一抿嘴
 
-幸福……
-为曾经拥有过这样的父亲
 
-《父亲一生清澈如水》
 
-我的父亲，一生
-清澈如水
+在经历完轰轰烈烈，齐上齐落的2019-2020年反修例、反极权的抗争运动后，临近2021年6月4日，香港民间不同的民主团体正面临一个历史性的选择。面对中共政权以及港共政府的疯狂打压，有人选择黯然离开，有人选择默默支持，更有人选择继续坚守发声。
 
-他给我的印象，永远
-都清澈如清晨的阳光
 
-清澈——是父亲一生
-最好的写照
 
-我的父亲，一生
-清澈如水
+**文字版原文：[【圣城传声筒】今年的6.4，注定是一个新的开始](https://gnews.org/zh-hans/1290394/)**
 
-《一个拥抱温暖一生》
+作者：香草山香港部写作组
 
-我曾经抱过我的父亲
-在我人生的盛年
 
-深情地，用力地
-我给我父亲一个满满地拥抱
 
-唯一的一个
+音频处理/发稿：雪梨
 
-不知道那个拥抱是否
-来得太晚
-对于父亲，对于我
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-我不知道我该哭
-还是该笑
+**更多资讯，更多关注**
 
-一个拥抱
-是我对父亲全部的回报
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-审核：cindy
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01003057/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
-+1
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

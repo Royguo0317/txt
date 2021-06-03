@@ -1,27 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以色列组成脆弱联盟以取代现任政府
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1294001/)
+## 内塔尼亚胡呼吁抵制未来政府
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1294035/)
 
-#### 文章撰写:【默凡】
+信息来源：德国世界报网络版 
+发布时间：2021年6月03日
+翻译 /整理/ 简评： Shuizhuyu
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03070644/32Snipfasd32aste_2021-06-03_19-06-16.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03072429/taylor-brandon-Y8r0RTNrIWM-unsplash-scaled.jpg)
 
-以色政党团体星期三（6月2日）晚间达成脆弱的组阁协议，或将取代长期担任总理的内塔尼亚胡。
 
-以色列“拥有未来”党领袖拉皮德（Yair Lapid）星期三晚间说，他已经获得以色列议会的多数支持。此时距离午夜最后期限不到一个小时。强硬派民族主义政党“右倾党”（Yamina）领袖贝内特（Naftali Bennett）星期日宣布支持拉皮德领导的联盟。两人之间的协议将让贝内特先担任总理两年，再由拉皮德接任。
+以色列可能会有一个新政府：来自未来党的 Jair Lapid 建立了一个多党联盟。应该尽快开始执政。
 
-但按照目前的情况，拉皮德领导的执政联盟在以色列议会拥有微弱的多数。新政府将在十天后宣誓就职，内坦尼亚胡阵营因此有足够的时间去拉拢议员，让他们投反对票。
+以色列即将卸任的总理本雅明·内塔尼亚胡在推特上呼吁议会成员抵制未来政府。周四，他批评了极右翼贾米纳党的指定继任者纳夫塔利·贝内特 (Naftali Bennett)。
 
-今年71岁的内塔尼亚胡2009年以后一直担任总理，还在1990年代担任过三年的总理。他正在接受腐败刑事指控的法庭审判，但他否认有任何过错。
+据说这次是第一次以色列政府有阿拉伯政党参政。政治专家乔纳森弗里曼将他们归类为宗教和温和的伊斯兰。
 
-参考文章：[以色列政界人士组成脆弱联盟以取代内塔尼亚胡政府](https://www.voachinese.com/a/israeli-coalition-formed-20210602/5914291.html)
+简评： 以色列最近政坛发生了变化， 我们无权也无意去评论政府更迭的好坏。 我们只能说， 不管如何， 这个政府是民选出来的， 具体选举中是否有各种蹊跷， 我们也不得而知。 原来的政府确实也传出了腐败的丑闻。 让我们静观以色列的变化， 不管如何， 我们只有一个愿望， 新政府不要和中共勾兑。
 
-本文仅代表作者本人观点，不代表Gnews平台
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
 
-* * *
-
-*排版发布：日本东京方舟农场 文柯Miles*
+🔗[Israel-Netanjahu-ruft-zu-Widerstand-gegen-kuenftige-Regierung-au](https://www.welt.de/politik/ausland/article231551791/Israel-Netanjahu-ruft-zu-Widerstand-gegen-kuenftige-Regierung-auf.html)f
 
 0
