@@ -1,22 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评摘要】福奇800多封邮件被曝光验证了太多信息
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1294568/)
+## 群星熠熠生辉时 新中国联邦人正式亮相纽约新世贸！
+` 加拿大多伦多枫叶农场 羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1294536/)
 
-视频剪辑 :  洛杉矶天使农场 – 小腾腾说
-中听校： 洛杉矶天使农场 – 雨山溪桥客
-英翻译：洛杉矶天使农场 – Arthur
-英校对：洛杉矶天使农场 – 烟波浩淼
-字幕+视频制作：洛杉矶天使农场 – 小腾腾说
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121355/q16-edited-1.png)
+据喜联盟GNEWS记者站于6月3日早上11点半发来的报道：环球瞩目，筹备良久的新中国联邦周年庆典于当日上午11点左右，在纽约曼哈顿新世贸中心102层如期开礼。本次盛典活动的特邀嘉宾，新中国联邦建国的功臣战友们相继盛装亮相于本次气氛热烈的红地毯仪式上。
 
-**【路德时评摘要】2021.6.1 晚间**
-
-**路德:**
-这里面之前的邮件看到没有，第一体现在他们在控制科学的质疑，媒体，你看，通过控制封号，控制误导，这就是超限科学误导，第二点超限科学误导，第三点是不是啊，第三点，然后内部小团体来做一些啊这种事情，这里面这一个，Zero Hedge挖的这个更加猛，他说，福奇给一个叫Auchincloss这是搞一个病毒研究的科学家，Zero Hedge说，你跟福奇这个紧急的电话之后，然后这个邮件的内容什么意思啊。
-
-我们请教了相关的人士说，说福奇发邮件给这个Auchincloss说，这个石正丽2015年的这个文章里面，这里面的gain of function到底跟NIH有没有关系，然后他回复说，那个是在2015发的，2015年之后就没有关系了，就没让她写function了，说白了，福奇门清这个gain of function，你看2月一号他就知道，只要跟gain of function有关他必死无疑，他第一时间就赶紧问他底下的人，底下的人说2015年之前合同里写了跟gain of function，后来就没让他们写了，这就是撇清关系，福奇第一时间就撇清关系。
-
-大家看看，所有的网友都说，这就是生物武器呀，你看到没有，福奇还在撒谎，大家想想，关键他是知道，明明知道给钱给了武汉，他们做了gain of function，居然还要安德森一直在商量怎么写个自然的是不是，你看这个里面，这个Redstate也挖出这个邮件，说武汉Daszak发邮件给福奇，感谢他，Dismissing，Dismissing啥意思，忽视掩盖掉，把它整个都消除掉，实验室来源的这个理论，第一时间对准的就是咋们，这就是我们告诉大家，那时候我们做节目，遇到多大的压力，知道吧，说我们是骗子，说咋们路德社，咋们爆料革命都是骗子，就是福奇说的，就是福奇在白宫。
+在现场美女战友主持人苍天之女的娓娓点道下，伴随着节奏感动人的乐曲，来宾们容光焕发，精神抖擞地陆续登场并挥笔签字，合影留念于这一永载新中国联邦史册激动人心的光辉时刻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03115956/q2-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120118/q1-1-edited-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120206/q3-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120252/q4-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120328/q5-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120416/q6-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120452/q7-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120535/q9-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120611/q10-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120646/q11-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120728/q12-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120813/q13-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120856/q14-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121120/q18-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121159/q17-edited.png)
+以上是喜联盟GNEWS记者站通讯员羟氯喹64的报道。图片来源：GTV
 
 0

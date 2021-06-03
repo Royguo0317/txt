@@ -1,144 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻大破解节目】明居正教授：武毒论集体转向
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1294083/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（三十四）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1294145/)
 
-台湾宝岛农场
+作者：纽约香草山信息部 6zero4
 
-（封面图片为闫丽梦博士的观点与新闻大破解无关）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-新闻大破解节目影片：[🔥挺「武毒泄漏说」！透视拜登为何转向？中共趁疫抄底.以疫谋霸！美对中战略排序调整中！ ｜明居正｜吴嘉隆｜@新闻大破解【2021年5月28日】](https://youtu.be/dXDIUWRRRws)
 
-**明居正教授整理病毒相关时间线 **
 
-2019/09，中共在武汉附近演习「新型冠状病毒泄漏危机」。
+6月1日塞林博士的3连推：
 
-2019/10，武汉病毒研究所因不明原因对外通讯中断了好几天。
+第1推，转发TorontoMapleLeafFarmCanada战友回应塞林博士自己昨天最后一推的推文，PLA-AMMS的童贻刚曾经在2020年1月告诉媒体，基于对27个武汉COVID-19感染者的病毒基因序列的分析和计算，他们认为病毒是从2019年10月1日进化到现在这个状况的。这意味着这款超限生物武器是PLA在2019年10月1日前就已经准备好了的。并贴上2020年1月29日«科技日报»转发Science在2020年1月26日刊发的这篇文章“华南海鲜市场‘翻盘’？未必是新冠冠状病毒发源地！”中谈到这些细节的网页截图，以及童贻刚和曹务春等CCP-PLA军官的正装照。这是COVID-19侦探TorontoMapleLeafFarmCanada的关键发现，PLA生物武器专家童贻刚在2020年1月26日说，COVID-19病毒早在2019年10月1日就已经完全成形，这与此后CCP发布的任何病毒进化数据都不匹配，表明COVID-19很可能就是一种生物武器，即PLA病毒。
 
-2019/12/06，于柳叶刀医学杂志发表的一篇文章指出，12/01已知的一位男性确诊病患，并未去过华南海鲜市场。该名确诊者的家人也并未去过华南海鲜市场，但家人于五天后因染病身亡。
 
-2019/12/30，李文亮医生于微信上警戒同行。
 
-2019/12/31，李文亮医生被警察传唤前一天，中共中央派遣医疗组到武汉进行调查。
+> Critical find by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@TorontoFarmEN](https://twitter.com/TorontoFarmEN?ref_src=twsrc%5Etfw) – On Jan 26, 2020, PLA biowarfare expert Yigang Tong said [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) fully evolved by Oct 1, 2019, which doesn't match any of the possible evolutionary data published since, indicating COVID-19 is a [#PLAVirus](https://twitter.com/hashtag/PLAVirus?src=hash&amp;ref_src=twsrc%5Etfw) and likely bioweapon. [https://t.co/o3MTuHNamg](https://t.co/o3MTuHNamg)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 1, 2021](https://twitter.com/LawrenceSellin/status/1399639506538672131?ref_src=twsrc%5Etfw)
 
-2020/1/1，李文亮医生被警察传唤。
 
-2020/1/10，中共发表官方报告称病毒、疫情可防可控。 （隐瞒疫情）
 
-2020/1/15，中共隐瞒疫情，赴美签署贸易协定。
+第2推，为什么哥伦比亚大学的Vincent Racaniello出现在一个长期被怀疑是CCP大外宣的频道？来自美国政府不愿透露姓名的消息人士说，美国科学家正在直接协助CCP的宣传工作，我们在此曝光他们。并附上4天前“今日华尔街”记者李琦采访Vincent Racaniello的视频。（Vincent Racaniello真容浮出水面）
 
-2020/1/20，中南山出面表态，病毒可能发生人传人。
 
-2020/1/23，武汉封城。武汉市场周先旺：封城前已经有五百万人在全中国流串、数万人出境在世界范围内382个城市流窜。
 
-2020/1/25，习近平表示需要严防。
+> Why is Vincent Racaniello of Columbia University on a channel long-suspected of being an outlet for CCP propaganda? Unnamed sources in the U.S. government say U.S.-based scientists are directly assisting the CCP in its propaganda effort. Expose them here.[https://t.co/QheGZsPG79](https://t.co/QheGZsPG79)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 1, 2021](https://twitter.com/LawrenceSellin/status/1399735707447431169?ref_src=twsrc%5Etfw)
 
-明居正教授表示，从时程表可知美国调查疫情来源很重要。美国应调查的疑点如下：
 
-1. 中共隐瞒疫情
-2. 中共勾结世界卫生组织
-3. 中共抢买防疫物资
-4. 中共将疫情、病毒问题甩锅美国
-5. 中共趁机抄底
-6. 中共意图以疫谋大
 
+第3推，致那些没有立即领会到PLA军官童贻刚在2020年1月29日那篇文章中所阐明的事情之意义的人，他是在不知不觉中告诉全世界：PLA制造了COVID-19！并再次贴上这篇文章的网页截图及童贻刚的照片。
 
-**美国首次反应中共隐瞒疫情却未进一步行动？**
 
-04/12，布林肯首次公开表态「中共有隐瞒疫情」，但美国并没有采取后续行动。
 
-明居正教授认为，美国身为世界强国，在表态中共隐瞒疫情之后，应该会有一连串密集的配套措施、采取行动。但美国却一反常态的沉寂许久，直到现在才开始采取调查疫情真相的行动，或许是该准备的材料都已经备齐。
+> For those who may not have immediately grasped the significance of PLA military officer Yigang Tong's statement in the January 29, 2020 article. He is unwittingly telling the world:
+> "The People's Liberation Army made [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) "
+> (thanks to [@TorontoFarmEN](https://twitter.com/TorontoFarmEN?ref_src=twsrc%5Etfw))[https://t.co/ctrmOno1ff](https://t.co/ctrmOno1ff) [pic.twitter.com/rf2c2jdLoh](https://t.co/rf2c2jdLoh)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 1, 2021](https://twitter.com/LawrenceSellin/status/1399771352739975169?ref_src=twsrc%5Etfw)
 
-**中共避不参加国际生物武器会议可疑！**
 
-04/26，召开国际的生物武器会议，中共以技术性理由临时不出席，非常可疑、不合理。
 
-明居正教授对于中共以技术性理由拒绝参与生物武器会议一事，认为依照中共的个性，在重要的会议、敏感的时刻「若中共对本次世纪大疫情真是无辜、疫情也与生物武器无关，中共应该要正大光明的参与会议，并且表态反击国际舆论」。
+6月2日塞林博士2连推：
 
-因此，中共不参加国际的生物武器会议一事，大大地增加了国际对疫情、病毒的疑问。
+第1推，塞林博士转发自己昨天接受Rumble记者Two Mikes主题为“你不能像他们在病毒产生上为所欲为后还睁眼说它不是生物武器”的采访视频，深度剖析了COVID-19的起源及中共生物武器计划。
 
-- 注：所谓中共的个性，于节目中主持人、明居正教授以「中共扰乱联合国安全理事会」一事为例，认为中共连联合国安全理事会都敢捣乱，为何不敢参与国际的生物武器会议？
 
 
-明居正教授进一步指出，在美国政府表态要追查疫情、病毒真相时，中共驻美大使馆紧接着在05/27表示「美国政府不应该把溯源政治化」。
+> 'You Can't Do the Things They've Done With That Virus and Say It's Not a Weapon'
+> In depth interview with Dr. Lawrence Sellin about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) and China's biowarfare program.[#PLAVirus](https://twitter.com/hashtag/PLAVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/ThuyHxuUxV](https://t.co/ThuyHxuUxV)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 2, 2021](https://twitter.com/LawrenceSellin/status/1400003692414312453?ref_src=twsrc%5Etfw)
 
-美国政府只公开表示要调查病毒来源，而且调查病毒来源绝对是必经的过程，为何中共政府会在如此敏感的时机点做出反击，并且认定美国将病毒溯源政治化？
 
-嘉宾吴嘉隆于节目中表示，美国于本次疫情当中死亡人数超过「两次世界大战死亡人数总和」。明居正教授表示，在此前提下任何国家都有资格溯源、调查病毒真相。
 
-又为了溯源，调查病毒发源地为合理。中共如此反应，才是真正不合理之处。
+第2推，转发Joe Hoft今天刚刚发表在The Gateway Pundit上的一篇文章“明尼苏达大学是如何为中共生物战计划做贡献的”。目前尚不清楚李放在明大到底有多少科研成果，通过与PLA关联的武汉科研机构的广泛合作，而进入了中共的生物战计划。
 
-明居正教授认为，中共的发言，诸如：「美国的作为将混淆视听使病毒溯源更加困难、让政治病毒横行全世界、阻碍国际合作防控疫情」等，都是非常不合理的发言。但明居正教授反面推论，认为中共如此反应更是证明了中共对于病毒存在的心虚。
 
-**嘉宾吴嘉隆分析：病毒溯源从「公卫体系转情报体系」大有文章。**
 
-嘉宾吴嘉隆于节目中表示，习近平还没去武汉之前，派孙力军前往武汉。孙力军前往武汉据说取得很多资料。
+> It is yet unclear how much of Fang Li’s research at the University of Minnesota may have found its way into China’s biological warfare program via his extensive collaboration with Wuhan research institutions and their links to the People’s Liberation Army.[https://t.co/ni9fRebUbR](https://t.co/ni9fRebUbR)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 2, 2021](https://twitter.com/LawrenceSellin/status/1400107592408522755?ref_src=twsrc%5Etfw)
 
-孙力军，于国外取得公卫硕士，并且在中共负责公安。理论上，派孙力军前往武汉调查是合理的举动。但孙力军于武汉取得的资料，是送到位于澳洲的亲人手上
 
-澳洲成功拦截孙力军在武汉取得的病毒相关资料，采许下列行动：
 
-1. 情报共享：利用五眼联盟情报共享机制，加大对病毒溯源的共识。
-2. 澳洲提出独立调查病毒来源
+**童贻刚**，现任北京化工大学生命科学与技术学院教授兼院长，其学历和经历也很耀眼：
 
+1. 1984-1988年间，本科就读于复旦大学遗传专业；
+2. 1988-1991年间，研究生就读于AMMS的医学遗传学专业；
+3. 1991-1997年间，就职于北京军区总医院的主治医师；
+4. 1997-2000年间，博士就读于AMMS的微生物学专业；
+5. 2000-2005年间，在加拿大英属哥伦比亚大学(UBC)做博士后研究，并获该校著名的Micheal Smith化学荣誉奖章；
+6. 2005-2018年间，回国后在AMMS微生物流行病研究所先后任研究员和研究室主任。
 
-中共对于澳洲政府要独立调查病毒来源，做出「拒买澳洲牛肉、澳洲红酒、禁止观光客与留学生赴澳洲」等制裁措施。
 
-对此，嘉宾吴嘉隆认为可以预知到「澳洲、美国、英国」等，应该对病毒资料有掌握一定程度的资讯。并且在这阵子逐步的推出，逐步的要查病毒真相。
+童贻刚本身就是PLA-AMMS高级技术军官，其在微生物学和化学方面都有非常深厚的历练和造诣，可见他就是PLA生化武器顶级专家之一，因此他对CCP-PLA-AMMS开发的COVID-19这款生物武器肯定了如指掌，因此其在疫情早期的2020年1月曾经有意无意向媒体透露的这些信息，暗示着COVID-19这款超限生物武器，是 PLA早在2019年10月1日前就已经准备好了，是为中共国第70个国庆盛典准备的生日大礼包啊！就是名正言顺的PLA病毒啊！
 
-**明居正教授：美国对中共战略定位有根本性变化**
+在COVID-19病毒起源真相和科学界与CCP广泛勾结的证据如雨后春笋般涌现在美国和全世界面前之际，美国科学家和媒体界还有不少死不悔改的亡命徒继续裸奔，继续与CCP穿同一条裤子唱戏，直接协助CCP的病毒自然起源宣传工作，搅混水以混淆视听。哥伦比亚大学医学院的微生物学和免疫学教授Vincent Racaniello，以及“今日华尔街”媒体平台就是这样的小丑。这倒不是展示了他们不怕死的精神，也不是他们因为即将入土的CCP而兔死狐悲，而是昭示着他们实在是被CCP捏死了春袋，在CCP断气才松手的绝望中，只能被拽着亦步亦趋，痛苦而绝望地亡命天涯吧！
 
-美国对中共的定位改变，是进行内部党派政治斗争。民主党与共和党的政治斗争之下，同时面临到美国国内疫情趋缓（无法完全终止）、经济逐渐稳定、缺少政治斗争议题等，因此将病毒溯源明面化，作为政治斗争的主要议题。
+校对/发稿：雪梨
 
-明居正教授认为，美国虽然将病毒真相当作政治斗争议题，但事实上已经在病毒真相上反守为攻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-**病毒是实验室产物**
+**更多资讯，更多关注**
 
-嘉宾吴嘉隆认为，现在几乎可以确定病毒是武汉实验室制造、泄露出来的。但关键在于如何泄漏的？以及对应的延伸争议？
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-1. 病毒在运送过程中意外泄漏：实验室如何管理？
-2. 将病毒武器化，蓄意投放：不可能制作一种病毒。待第一种病毒疫苗开始接种后，中共便会释放其他种病毒。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-美国在病毒真相的调查途径，从公卫体系开始着手调查，已经转变为情报体系。整个意义就不一样了，若美国改以情报体系调查病毒真相，便是将疫情发生定性为「生物战争、病毒武器化」的方向。
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-世界有两种战争是不可被接受的：核子战争、生化战争。
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-若美国以情报体系调查病毒真相，并且成功揭发中共蓄意将病毒作为生物武器投放于世界，再配合上川普政府认定中共在人权议题上犯下了「灭绝种族罪、反人类罪」等，将使中共永世不得翻身。
-
-美国内部对病毒应早有情报，但选择联合民主体系，且逐步的采取采取病毒调查措施，目的在于增加中共内部压力，激化中共内部矛盾。
-
-**中共故意促成病毒大流行的证据**
-
-嘉宾吴嘉隆认为：中共于2020/01/15，与白宫签署贸易协议时，早知道将爆发疫情，仍去签署协议。
-
-中共与美国于2020/01/15签署贸易协议的几天后，中共便将武汉疫情表面化、正式化。 （吴嘉隆表示是1/15的三天后1/18中共将武汉疫情台面化；明居正教授则说明1/10中共对外称病毒可防可控，1/20中南山宣布可能人传人）
-
-后续病毒爆发被世界重视时，中共著手收买国际组织、隐瞒疫情、烟灭证据阻碍调查，一系列刻意的行为更证明了中共在病毒爆发上并非无辜。
-
-**中共已经对台发动了超限混合战**：
-
-中共在疫苗方面，利用疫苗外交挖角中华民国邦交、疫苗统战来分化台湾朝野。企图利用内外联合，打垮民主防疫典范的台湾。 （备注：超限战是中共解放军长期发展的战争模式，利用人流将生物武器病毒在世界大流行，摆脱传统地对战争的限制，因此称为超限战）
-
-嘉宾吴嘉隆表示，美国现在对病毒的溯源、追究，是民主党推动，并非出自川普政府、共和党。因此可以得知，美国内部已经取得一定程度的共识。
-
-对疫情的追究，吴嘉隆强调「是美国政府，不论党派，都应该要做的事」。美国自身深受到病毒伤害很重，追究病毒责任是必要的。又美国作为世界领导，为盟友追究病毒、疫情责任，采取调查病毒行动是非常合理的。
-
-中共对于美国采取行动调查病毒真相的反应，除了凸显中共的蓄意以外，更可以落实中共利用疫情、病毒谋取政治利益。
-
-中共企图利用病毒战取代贸易战，在美国政权交接时，使拜登政府「解除或降低对中共的制裁性关税、重新签订新的美共贸易协议」。但目前来说，从客观事实上可以知道中共意图利用病毒谋取政治利益一事，取得了空前的失败。
-
-（所有内容皆以本人或原节目内容为主）
-
-整理╱zhong
-
-发布╱小刘
-
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-
-[点击此处加入「台湾宝岛农场」 Discord伺服器](https://discord.gg/zE5xTQzArt)
-
-0
++2
