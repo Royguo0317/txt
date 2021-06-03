@@ -1,36 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国《台湾外交检讨法案》拟正名台湾代表处
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1288909/)
+## 【有声读物】世卫组织一再助纣为虐：批准中共疫苗紧急使用
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1294063/)
 
-【日本东京方舟农场】 撰稿：青衣      素材采编：武汉老温      校对：MIMI
+配音：香草山录音组 蒙古鸿雁
 
-据《美国之音》5月29日报道，美国国会跨党派议员星期五（5月28日）推出一项加强美国同台湾关系的法案，指示美国国务院与台湾磋商，将「台北驻美经济文化代表处」更名为「台湾驻美代表处」。台湾外交部表示，未来将持续关注法案的后续进展，并与美国国会友人及行政部门保持密切联系，稳健深化台美实质性伙伴关系。
-
-美国国会众议员28日提交的这项《台湾外交检讨法案》（Taiwan Diplomatic Review Act），要求将驻美国的「台北驻美经济文化代表处」正名为「台湾驻美代表处」。此外，这项草案还包含《台湾特使法案》（Taiwan Envoy Act）内容，此法案要求美国在台协会（AIT）处长的任命须获美国参议院同意。
-
-此外，对于台湾官员与外交人员无法取得外交签证，而是以投资者签证取而代之，议员们认为，这无法准确代表他们作为台湾官方代表在美国的任务目的，因此《台湾外交检讨法案》将创建一个仅适用于台湾官员的新签证类别。这将不仅对台湾驻美官员有利，也鼓励美台官员建立更紧密的政府联系。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01091819/2C6764ED-40B4-4698-9931-92864A5B65F0.jpeg)
-
-这项《台湾外交检讨法案》是由加州民主党议员舍尔曼（Brad Sherman）和俄亥俄州共和党议员夏伯特（Steve Chabot）共同提出，并获得了维吉尼亚州民主党议员康纳利（Gerry Connolly）、佛罗里达州共和党议员迪亚兹·巴拉特（Diaz-Balart）、新泽西州民主党议员席瑞斯（Albio Sires）和科罗拉多州共和党议员巴克（Ken Buck）的联署。
-
-舍尔曼议员5月28日发布新闻稿表示，《台湾关系法》规定了美国维护和促进美国人民与台湾人民之间广泛、密切和友好关系的政策。台湾是美国的重要民主盟友，《台湾外交检讨法案》所传达的是，现在是国务院与国会采取行动加强与台湾关系的时候，应该采取行动鼓励美台官员间更强有力的接触。将驻美代表处正名为「台湾代表处」，并对AIT处长进行听证任命程序，将能重申美国对与台湾建立稳固关系的承诺。
-
-作为众议院「台湾连线」（Taiwan Caucus）共同主席的夏伯特议员也指出，这项法案目的在于确定台湾在美代表得到应有的尊严，并加强国会对台湾政策的监督，为两国政府互动带来必要的进展。
-
-台湾外交部表示，美国国会长期以来透过立法等方式，就台美关系重要议题表达正面友好立场，台湾外交部感谢美国国会两党议员采取各项友台作为。未来台湾外交部将持续关注法案的后续进展，并与美国国会友人及行政部门保持密切联系，稳健深化台美实质伙伴关系。
-
-美国国会近期提交和审议的一系列新法案，几乎都是针对中共国的。此次这项新法案将进一步提升台湾在美地位，事实上是从立法上将台湾视作一个独立国家，不再承认台湾属于中共国，是对「一中政策」的一个重新诠释。
-
-注：本文仅代表作者观点
-
-参考链接：
-
-1. [https://twitter.com/VOAChinese/status/1398656512218652675](https://twitter.com/VOAChinese/status/1398656512218652675)
-2. [https://twitter.com/RFI\_Cn/status/1398929943459889159](https://twitter.com/RFI_Cn/status/1398929943459889159)
-3. [https://www.cna.com.tw/news/firstnews/202105290020.aspx](https://www.cna.com.tw/news/firstnews/202105290020.aspx)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-+1
+
+
+
+
+
+6月2日周二CNBC报导，世界卫生组织（WHO）批准中共生产的科兴疫苗作为紧急上市使用。众所周知，世卫组织紧急批准列表是向各个国家的监督机构发出的关于产品安全性和有效性的信号。
+
+而今，科兴疫苗成为第二只获世卫组织背书的中共生产的疫苗。此前，世卫组织已于5月7日紧急批准中共的国药疫苗使用——该疫苗目前已在非发达国家广泛应用。科兴表示，截至五月底，其疫苗在国内外供应超过六亿支，已接种超过4.3亿支。
+
+
+
+**文字版原文：[【热点播报】世卫组织一再助纣为虐：批准中共疫苗紧急使用](https://gnews.org/zh-hans/1292454/)**
+
+作者：纽约香草山媒体部 7bends
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
