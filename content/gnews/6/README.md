@@ -1,25 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯呼吁北约加强与日韩建立关系
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1293743/)
+## 【有声读物】英国情报机关认为新冠病毒或来自中共国实验室
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1294039/)
 
-#### 文章撰写:【默凡】
+配音：香草山录音组 蒙古鸿雁
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03060430/2gsdSnipaste_2021-06-03_18-03-28.png)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-北约外长会议周二（6月1日）召开，北约秘书长斯托尔滕贝格(Jens Stoltenberg)主持了这次视频会议。美国国务卿布林肯在会议上呼吁北约加强与澳大利亚、日本、新西兰和韩国的合作，以应对中共国崛起和俄国威胁所带来的挑战。
 
-美国国务卿布林肯谈论了即将举行的北约峰会，并重申美国对北约的承诺，强调重振联盟是拜登政府的优先目标。布林肯对北约秘书长斯托尔滕贝格致力于使由30个会员国组成的北约联盟在应对中俄“系统性挑战”方面“更具韧性和实力”的努力表示支持。
 
-拜登总统入主白宫后，一直强调要加强美国与盟国的关系。美国同时也呼吁盟国之间要加强合作。布林肯在北约外长会议上的发言中特别强调盟国之间的伙伴关系，包括北约与欧盟的合作。他鼓励北约深化与澳大利亚、日本、新西兰和韩国的关系。
 
-参考文章：[美国呼吁北约深化与日韩关系 敦促太平洋岛国警惕“经济胁迫”](https://www.voachinese.com/a/US-calls-on-NATO-to-deepen-ties-with-Japan-20210602/5913811.html)
 
-本文仅代表作者本人观点，不代表Gnews平台
 
-* * *
 
-*排版发布：日本东京方舟农场 文柯Miles*
+英国 “星期日泰晤士报”（Sunday Times）报导，英国情报机构现在认为，Covid-19全球大流行病始于中共国一个研究实验室泄露，是可行的。
+
+自从16个月前中共国当局首度证实武汉出现一种新的人传人致命病毒以来，英国、美国和其他西方国家的情报机关似乎回避武汉病毒研究所可能与疫情爆发有关。尽管武汉病毒研究所从事源于蝙蝠的冠状病毒研究，但包括英国在内的西方国家情报界起初都认为，这种病毒是从实验室外洩的可能性“微乎其微”。
+
+
+
+**文字版原文：[【独立观点】英国情报机关认为新冠病毒或来自中共国实验室](https://gnews.org/zh-hans/1290555/)**
+
+作者：纽约香草山健身部 文真
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

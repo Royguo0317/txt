@@ -1,26 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年6月1日秘翻快报【头条新闻】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1293916/)
+## 【有声读物】今年的6.4，注定是一个新的开始
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1294052/)
 
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03062337/IMAGE-2021-06-03-181943.jpg)](https://gtv.org/video/id=60b86350cea8a738525e8a02)
-**新闻总结：**
+配音：香草山录音组 蒙古鸿雁
 
-1. 香港人遭遇镇压仍以各自方式「灵活」悼念六四
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-2. 中共延迟法定退休年龄并出台三孩政策
 
-3. 中共高级军官王长军是CCP病毒来源的关键，曾研究如何将病毒扩散到美国
 
-4. 中共国的原材料成本创十年最快增长速度  企业压力增大
 
-5. 澳洲前总理马尔科姆·特恩布尔要求澳大利亚人 “为自己站出来 “反对中共
 
-6. 中共病毒变种毒株扩散至44个国家地区 东南亚疫情飙升
 
-**By:秘翻快报组**
 
-**GTV链接:**[https://gtv.org/video/id=60b86350cea8a738525e8a02](https://gtv.org/video/id=60b86350cea8a738525e8a02)
+在经历完轰轰烈烈，齐上齐落的2019-2020年反修例、反极权的抗争运动后，临近2021年6月4日，香港民间不同的民主团体正面临一个历史性的选择。面对中共政权以及港共政府的疯狂打压，有人选择黯然离开，有人选择默默支持，更有人选择继续坚守发声。
+
+
+
+**文字版原文：[【圣城传声筒】今年的6.4，注定是一个新的开始](https://gnews.org/zh-hans/1290394/)**
+
+作者：香草山香港部写作组
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
