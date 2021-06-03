@@ -1,30 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 伊朗的核武之谜
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1293967/)
+## 【有声读物】英国情报机关认为新冠病毒或来自中共国实验室
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1294039/)
 
-信息来源：德国世界报网络版 
-记者：   汉斯·鲁勒（Hans Rühle）
-发布时间：2021年6月01日
-翻译 /整理/ 简评： Shuizhuyu
+配音：香草山录音组 蒙古鸿雁
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03065723/A-general-view-of-the-Natanz-uranium-enrichment-facility-south-of-Tehran.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-图片来源：路透社
 
-伊朗现在拥有武器级铀，通往炸弹的道路似乎很短。或者不是？以色列本可以为西方争取更多时间——通过一场壮观的秘密行动，对伊朗造成严重后果。
 
-4 月 11 日，伊朗报告了纳坦兹核设施发生的“事件”，导致设施的电源供应完全瘫痪，最初没有任何解释。但就在第二天，几名伊朗官员谈到了“恐怖袭击”的“破坏”。
 
-尽管如此，伊朗领导人最初试图淡化损失并预测该工厂将立即全部恢复。但当伊朗前原子能机构负责人贝鲁兹·卡马尔万迪从病床边向伊朗电视台报道称，他在视察设施时突然掉入一个七米深的洞中并重伤时，伊朗即试图将“事件”轻描淡写并关闭此设施。
 
-简评： 伊朗是一个邪恶轴心之一， 这样的流氓国家拥有核武器，无疑是全世界的灾难。伊朗和中共都是一样的， 并不敢也不能使用他们的核武器， 但是可以威胁全世界， 让世界向他们妥协。 所以，这种国家不可以拥有核武器。 全世界的高科技是可以制止这些流氓国家拥有核武器。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+英国 “星期日泰晤士报”（Sunday Times）报导，英国情报机构现在认为，Covid-19全球大流行病始于中共国一个研究实验室泄露，是可行的。
 
-🔗[Irans-Atomprogramm-Das-Natanz-Mysterium](https://www.welt.de/politik/ausland/plus231510379/Irans-Atomprogramm-Das-Natanz-Mysterium.html.)
+自从16个月前中共国当局首度证实武汉出现一种新的人传人致命病毒以来，英国、美国和其他西方国家的情报机关似乎回避武汉病毒研究所可能与疫情爆发有关。尽管武汉病毒研究所从事源于蝙蝠的冠状病毒研究，但包括英国在内的西方国家情报界起初都认为，这种病毒是从实验室外洩的可能性“微乎其微”。
+
+
+
+**文字版原文：[【独立观点】英国情报机关认为新冠病毒或来自中共国实验室](https://gnews.org/zh-hans/1290555/)**
+
+作者：纽约香草山健身部 文真
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

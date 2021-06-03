@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】新中国联邦成立一周年庆典
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1293208/)
+## 【有声读物】广州疫情警报，数百万市民排队检测，争抢接种疫苗
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1294024/)
 
-配音：香草山福音部 ARTEMIS
+配音：香草山录音组 蒙古鸿雁
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,18 +14,15 @@
 
 
 
-七哥心中有大智慧。
-七哥心中有大爱。
+据报道，近日，中共国广州的新冠疫情拉起警报，政府限制市民出行。5月30日开始，广州市启动第二轮大规模核酸筛查，疫苗接种点大排长龙，当局对离开广州的人员实施新的管制。
 
-新中国人肩并肩跨越世界。
-GTV帅哥美女们闪亮登场，新人新形象。
-正义传播成为主流媒体。
+广州官方下令封闭了中心城区荔湾区的五条街道，居民被要求留在家中，每个家庭每天只可以派一名成员购买必需品。与此同时，中小学和店铺被关闭，人们被禁止在室内餐厅用餐，路上行人稀少。
 
 
 
-**文字版原文：[【战友心声】新中国联邦成立一周年庆典](https://gnews.org/zh-hans/1292418/)**
+**文字版原文：[【热点播报】广州疫情警报，数百万市民排队检测，争抢接种疫苗](https://gnews.org/zh-hans/1290622/)**
 
-作者：纽约香草山福音部 ARTEMIS
+作者：纽约香草山健身部 Jack Li文阳
 
 
 

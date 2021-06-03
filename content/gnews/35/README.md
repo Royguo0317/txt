@@ -1,25 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯呼吁北约加强与日韩建立关系
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1293743/)
+## 【有声读物】新中国联邦成立一周年庆典
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1293208/)
 
-#### 文章撰写:【默凡】
+配音：香草山福音部 ARTEMIS
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03060430/2gsdSnipaste_2021-06-03_18-03-28.png)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-北约外长会议周二（6月1日）召开，北约秘书长斯托尔滕贝格(Jens Stoltenberg)主持了这次视频会议。美国国务卿布林肯在会议上呼吁北约加强与澳大利亚、日本、新西兰和韩国的合作，以应对中共国崛起和俄国威胁所带来的挑战。
 
-美国国务卿布林肯谈论了即将举行的北约峰会，并重申美国对北约的承诺，强调重振联盟是拜登政府的优先目标。布林肯对北约秘书长斯托尔滕贝格致力于使由30个会员国组成的北约联盟在应对中俄“系统性挑战”方面“更具韧性和实力”的努力表示支持。
 
-拜登总统入主白宫后，一直强调要加强美国与盟国的关系。美国同时也呼吁盟国之间要加强合作。布林肯在北约外长会议上的发言中特别强调盟国之间的伙伴关系，包括北约与欧盟的合作。他鼓励北约深化与澳大利亚、日本、新西兰和韩国的关系。
 
-参考文章：[美国呼吁北约深化与日韩关系 敦促太平洋岛国警惕“经济胁迫”](https://www.voachinese.com/a/US-calls-on-NATO-to-deepen-ties-with-Japan-20210602/5913811.html)
 
-本文仅代表作者本人观点，不代表Gnews平台
 
-* * *
 
-*排版发布：日本东京方舟农场 文柯Miles*
+七哥心中有大智慧。
+七哥心中有大爱。
+
+新中国人肩并肩跨越世界。
+GTV帅哥美女们闪亮登场，新人新形象。
+正义传播成为主流媒体。
+
+
+
+**文字版原文：[【战友心声】新中国联邦成立一周年庆典](https://gnews.org/zh-hans/1292418/)**
+
+作者：纽约香草山福音部 ARTEMIS
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
