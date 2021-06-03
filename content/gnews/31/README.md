@@ -1,36 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大象快讯】扎克伯格和福奇的互动邮件曝光
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1292773/)
+## 【香草诗词汇】急功近利 – 欲速则不达步步则为嬴–
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1292961/)
 
-第一封是扎克伯格发给福奇的，邮件大意：
+作者：纽约香草山健身部 澄道
 
-托尼，非常感谢，分享一些我们可以帮助你发送信息的方法。这不是公开的，但我们正在建立一个冠状病毒的信息中心，我们将把它放在每个人的Facebook上（2亿和全球25亿人的社交媒体上），由两个目标：一是确保人们可以从可靠的来源获取权威的信息，二是提供人们使用互联网的想法。作为这个中心的核心部分， 我们认为可以直播您和有影响力的政治人物的24小时直播，也可采用其他方式。我们可会和健康专家做一系列的节目放在这个中心。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02215015/E241jgkWYAENUm8.jpg)
-
-第二封邮件是福奇发给比勒的，题目为来自马克扎克伯格的邀请，大意：
-
-我会打电话给马克，告诉他我有兴趣做这件事情，然后还会告诉他你会帮他拿到美国国家政府联络点的名字。我同意，如果比尔同意的话，他应该可以把权力交给白宫。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02215240/E241mBsWUA8hYK6.jpg)
-
-参考链接：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
 
-> Anthony Fauci Also Conspired With Mark Zuckerberg.. [pic.twitter.com/g7Qwi6uuWu](https://t.co/g7Qwi6uuWu)
-> — J̵̟̦̲̞̭̱̀̈́͑̄̇̈́̚͝ustice (@The\_Justice7) [June 2, 2021](https://twitter.com/The_Justice7/status/1400115520062607360?ref_src=twsrc%5Etfw)
+一家名店
+没有半年的定位
+没有一年左右的
+品牌尝试
+及十年八年
+历练
+是不行的
 
+跨大步
+原地踏步
+同样不可取
 
+唯有钟情于沉淀沉淀
+再沉淀
+沉淀溢檀香
+切记急功
 
-图片来源：[https://twitter.com/](https://twitter.com/)
+只有流连于打磨打磨
+再打磨
+打磨光弥久
+应避近利
 
-整理撰稿：蓝精灵
+建设新中国联邦
+本质上讲
+大体相同
+也或是
+远远不止
+更为复杂
 
-校对发布：Penny
+急功者
+各扫门前雪
+只为个人目的达成
+不则手段
+搞不好最先迷失自己
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+近利者
+不分尺寸
+竭塘而鱼
+成为利益的爬虫者
 
-+1
+新中国联邦人
+不计一时一利
+谋天下人
+
+新中国联邦
+不图一族一国
+千年和平
+
+@澄道来了
+@爱动爱议码06021
+
+校对/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

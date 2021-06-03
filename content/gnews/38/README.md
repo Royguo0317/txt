@@ -1,56 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月2日美国政要反共推特精选：美国人民应该得到关于这场病毒大流行起源的答案
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1292682/)
+## 全球精英利用3家巨型金融公司控制着88%的标普500股权公司
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1292787/)
 
-众议员布里安·马斯克： 美国人民应该得到关于这场大流行起源的答案，那些责任人必须被追究责任! （转国家评论网站报道：福奇在2012年的论文中指出，功能增强性研究的好处大于流行病风险）
+**作者：**Michael Snyder 2021-06-02
 
+**翻译：**加拿大温哥华圆成农场 卢卡斯
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02214320/357866.png)图片来源：Michael Snyder原文
+毫无疑问，大公司绝对主宰着我们今天的社会。他们控制着我们吃什么，他们控制着我们在电视上看的东西，他们拥有我们购物的大部分商店，他们提供我们国家所依赖的能量，他们制造我们使用的几乎所有产品。
 
+数以千万计的美国人靠为这些庞大的公司服务为生，在这一点上，一些最大的公司比许多小国都大。当然，这些公司并不是食物链的顶端。
 
-> The American people deserve answers about the origins of this pandemic and those responsible must be held accountable![https://t.co/7W5xQQfMVb](https://t.co/7W5xQQfMVb)
-> — Rep. Brian Mast (@RepBrianMast) [June 2, 2021](https://twitter.com/RepBrianMast/status/1400165318056501250?ref_src=twsrc%5Etfw)
+它们有自己的主人，全球精英们利用3家巨型金融公司来控制目前在标普500指数（S&P 500）上市的88%的公司。
 
+我所说的这三家金融公司是黑石、先锋和道富。
 
+据美国有线电视新闻网（CNN）报道，这些公司管理的资产合计为15万亿美元：
 
-众议员埃莉斯·斯特凡尼克(众议院共和党主席）： 福奇的电子邮件证明了共和党一年多以来所说的话：武汉实验室泄漏理论是可信的。 美国人民应该知道真相。国会必须对 COVID-19 的起源展开调查。
+“黑石、先锋和道富管理着惊人的 15万亿美元总资产，相当于美国经济规模的四分之三以上。”
 
+但这实际上是一个老数字。我想想出一个新的数字，如是我开始挖掘。
 
+根据维基百科的数据，截至2021年1月，黑石管理的资产为8.67万亿美元。
 
-> [#FauciEmails](https://twitter.com/hashtag/FauciEmails?src=hash&amp;ref_src=twsrc%5Etfw) prove what Republicans have said for 1+ year: the Wuhan Lab leak theory is credible.
-> 
-> The American people deserve to know the truth. Congress must launch an investigation into the origin of COVID-19.
-> — Rep. Elise Stefanik (@RepStefanik) [June 2, 2021](https://twitter.com/RepStefanik/status/1400137463172042754?ref_src=twsrc%5Etfw)
+先锋几乎和黑石一样大。根据维基百科，截至2021年1月，先锋管理的资产为6.2万亿美元。
 
+虽然没有其他两家那么大，但截至今年第一个月，道富管理的资产为3.1万亿美元。
 
+因此，这些数字相加，”三巨头”在2021年1月管理的资产接近18万亿美元，而这个数字现在几乎肯定要更高一些。
 
-众议员吉姆·乔丹： 福奇到底都知道些什么？晚上美国东部时间9:10/美国中部时间晚上8:10，上福克斯新闻台与肖恩·哈尼蒂[@seanhannity](https://twitter.com/seanhannity)和马克·梅多斯[@MarkMeadows](https://twitter.com/MarkMeadows)对谈。欢迎收看！ 【链接文章来自[http://theblaze.com](https://t.co/jBE86VH0M3?amp=1)：共和党人要求拜登政府就‘使用美国纳税人的钱资助武毒所实验室的研究’提供答案】
+这是一大堆几乎无法想象的钱。
 
+有时候人们会忘记一万亿美元到底是多少钱。如果你在耶稣出生时还活着，从那以后你每天花费一百万美元，你仍然不会花一万亿美元。
 
+总的来说，”三巨头”代表88%目前标普500指数（S&P 500）上市公司的最大持股规模。
 
-> What did Dr. Fauci know? Discussing that and more with [@seanhannity](https://twitter.com/seanhannity?ref_src=twsrc%5Etfw) and [@MarkMeadows](https://twitter.com/MarkMeadows?ref_src=twsrc%5Etfw) on Fox News at 9:10 p.m. ET / 8:10 p.m. CT. 
-> 
-> Tune in! [https://t.co/JGtJt4gFBW](https://t.co/JGtJt4gFBW)
-> — Rep. Jim Jordan (@Jim\_Jordan) [June 3, 2021](https://twitter.com/Jim_Jordan/status/1400248136233324545?ref_src=twsrc%5Etfw)
+成为上市公司的最大所有者并不意味着你可以做任何你想做的事，但它确实给了你巨大的权力。
 
+延申阅读：仅仅两家公司，先锋和黑石，就控制着地球，而且世界最富有的1% 拥有82% 的世界财富（[https://humansarefree.com/2021/05/only-two-companies-control-the-planet.html](https://humansarefree.com/2021/05/only-two-companies-control-the-planet.html)）。
 
+例如，上个月黑石和先锋在埃克森美孚董事会中任命了两名新成员。埃克森美孚不想要这些新的董事会成员，但现在他们被迫接受他们。
 
-参议员玛莎·布莱克本： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 一定要为他们在传播新冠病毒中的角色承担后果。
+这些新的董事会成员将有助于确保埃克森美孚更加完全符合全球精英的气候议程。
 
+对于全球精英阶层来说，通过实施公司结构变革比通过全球各种政府机构进行变革要容易得多。
 
+事实上，许多人会争辩说，在2021年，公司对我们日常生活的影响远远大于任何政府实体。
 
-> The Chinese Communist Party must face consequences for their role in COVID-19’s spread.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 2, 2021](https://twitter.com/MarshaBlackburn/status/1400147063866728449?ref_src=twsrc%5Etfw)
+不幸的是，我们不能做太多工作来改变这些公司的行为方式，因为他们对它们的主人负责。
 
+极其重要：黑石巨型公司刚刚接管了美国财政部和美联储。
 
+在这一点上，为什么似乎这么多公司有类似的文化的原因之一是，他们中的许多人是由完全相同的人在最顶端控制着。
 
-前国务卿蓬佩奥： 共产中国至少要对掩盖武汉病毒的传播负有责任。这种掩盖继续把每一个生命都置于下一次大流行的危险之中。
+如果你不顺从，你不太可能被这些公司之一雇用，如果你被录用，你不太可能上升到很远的公司高层。
 
+我们需要开始更多地谈论”公司暴政”。因为即使政府实体可能仍然声称保护”自主”和”自由”，但事实是，那些拒绝由全球精英强推给他们的文化的人，将日益被边缘化到达社会的边缘。
 
+美国的创始人非常怀疑所有权力的集中。今天在我们身处的社会中，财富和权力比以往更加集中，这不是一件好事。
 
-> Communist China at the VERY LEAST is guilty of covering up the spread of the Wuhan virus. The coverup continues putting every single living being at risk of the next great pandemic.
-> — Mike Pompeo (@mikepompeo) [June 2, 2021](https://twitter.com/mikepompeo/status/1400133643960520704?ref_src=twsrc%5Etfw)
+事实上，这是我们生活方式的生存威胁，但并没有很多人关注到这一点。
 
+别指望我们华盛顿的政客们会做任何事。他们希望保持竞选捐款资金流，因此很少有人有兴趣对抗来自华尔街的大钱利益。
 
+Michael Snyder的新书《美国未来的迷失预言》现已以平装本和亚马逊的Kindle发行。
 
+**评：**这篇文章揭露了极少数全球精英通过控制三家巨型金融公司（黑石、先锋和道富）主宰着我们今天的社会，今天为止这些公司管理的资产合计为18万亿美元，达到美国经济规模的四分之三以上。他们控制着的大公司绝对控制着我们吃喝玩乐和我们使用的能源，他们制造了我们所需要的几乎所有产品。仅仅先锋和黑石这两家公司就控制着地球，而且世界最富有的1% 拥有82% 的世界财富。这些极少数全球精英利用他们掌控的资本，可以影响、控制包括美国在内的世界各国政府政治，金融经济，工业生产，媒体娱乐等等，从去年美国的总统大选可见一斑。数十年来他们控制的资本通过华尔街跟中共的勾兑，帮助中共监控控制，残酷压榨剥削14亿中共国现代奴隶，从中获取巨额利润，同时使得中共迅速壮大，一直到2019年中共违背人类道德伦理，制造释放中共病毒祸害全人类，对每一个地球人的生命健康和财富安全都造成了巨大的伤害。中共病毒全球大流行的终结必将导致共产主义和资本主义消失于未来的新世界，因为人类终于看清了这二个主义的具有同样的本质——阴险黑暗、残忍嗜血和非正义，人类将不会容忍他们继续存在于地球；人类新的追求将是代变着正义、光明和爱心的正道主义，这就是我们新中国联邦人的信仰和追求。
+
+##### **原文：**Michael Snyder, “Global Elite Use 3 Giant Financial Companies To Control 88% Of The Corporations Listed On The S&P 500”.《Human Are Free》, June 02, 2021.** **[https://humansarefree.com/2021/06/global-elite-use-3-giant-financial-companies-to-control-88-of-the-corporations-listed-on-the-sp-500.html](https://humansarefree.com/2021/06/global-elite-use-3-giant-financial-companies-to-control-88-of-the-corporations-listed-on-the-sp-500.html)
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：比卡丘
+
+20210602
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01083510/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 +1

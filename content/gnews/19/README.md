@@ -1,29 +1,110 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大象快讯】军舰沉没后 伊朗德黑兰以南的主要炼油厂发生大火
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1292991/)
+## 【香草诗词汇】我们是战友——记念新中国联邦成立一周年
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1292786/)
 
-伊朗最大的一艘军舰在阿曼湾着火后沉没数小时后，德黑兰南部的一家炼油厂发生了大火。 国家电视台播放的画面显示，从它所说的燃烧的船只中升起一股巨大的烟雾。在船沉没之前，消防工作持续了“20 个小时”。海军说：“考虑到火势蔓延，拯救哈格号的任务失败了，它沉入了贾斯克附近的水域。”
+**作者**：香草山美食部 蓝天大海
 
-伊朗塔斯尼姆通讯社援引海军公共关系负责人 Behzad Jahanian 的话说，该船于周二上午 11:00（格林威治标准时间 0630）起火，因为它在“训练任务”期间处于“国内水域”。起火原因“仍不清楚”。该船于周三上午 8:30（格林威治标准时间 0400）左右沉没。所有 400 名学员和船员都安全下船，其中 20 人受轻伤或烧伤。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042102/WhatsApp_Image_2020-10-24_at_04.33.05-8-768x103-1.jpeg)
 
-最近几个月，有报道称伊朗的航运船队遭到袭击，这些袭击与其死敌以色列有关。今年 4 月，伊朗指责以色列制造了炸毁红海军舰 MV Saviz 的爆炸事件，称这次“袭击”是使用水雷进行的。上个月，一艘以色列货船在从坦桑尼亚航行到印度时在阿拉伯海被导弹击中，以色列安全部门指责德黑兰。 2 月，以色列拥有的 MV Helios Ray 汽车运输船在阿联酋海岸航行时也遭到爆炸袭击。
 
-爆炸事件也是中东水域长达数年的影子战争的一部分，与沙特阿拉伯和阿联酋有关的船只也遭到破坏，包括 2019 年的一系列爆炸事件，几乎将美国和伊朗推向战争。 以色列和伊朗最近一直在为奥巴马在 2015 年签署的一项旨在阻止伊朗获得核武器以换取贸易激励措施的协议而争吵不休。川普政府2018 年废除了这笔交易。拜登政府现在希望与德黑兰重新谈判条款，这似乎引发了最新一轮的战斗。 尽管发生了冲突，但关于该协议的谈判仍在维也纳进行，其中还包括对叙利亚的袭击和对伊朗核计划的袭击。
 
-有网友说军舰是被某种太空武器击沉。
 
-参考链接：
 
-[https://www.dailymail.co.uk/news/article-9645655/Huge-blaze-breaks-key-oil-refinery-south-Tehran-just-hours-mystery-inferno-naval-ship.html?ito=social-twitter\_mailonline](https://www.dailymail.co.uk/news/article-9645655/Huge-blaze-breaks-key-oil-refinery-south-Tehran-just-hours-mystery-inferno-naval-ship.html?ito=social-twitter_mailonline)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02215206/image0-28.jpg)
 
-图片来源：[https://www.dailymail.co.uk/](https://www.dailymail.co.uk/)
+我们互不相识
+我们素未谋面
+在七哥爆料革命的感召下
+我们汇集在一起
+七哥是神的使者
+是共产党的克星
+我们都肩负使命
+随时听从神的召唤
+我们从此站在一起
+我们是肩並肩的战友
 
-整理翻译：蓝精灵
+一年前
+在举世记念的日子里
+在爆料革命的大潮中
+新中国联邦承载着光荣的使命
+诞生于一片自由的土壤
+她像一轮初升的太阳
+犹如呱呱落地的婴儿
+披着朝霞
+充满希望
+从此我们有了自己的国度
 
-校对发布：Penny
+国歌声响起
+七芒星飘扬
+《新中国联邦宣言》响彻云霄
+我们集结在国旗下
+牢记我们的使命和目标
+Take down the ccp
+解救我们亲爱的同胞
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+我们必须坚韧不拔
+我们必须团结一致
+无论惊涛骇浪
+无论艰难险阻
+那怕ccp迫害阻挡
 
-+2
+我们也有武器
+我们也有战场
+那是纸和笔
+那是屏幕和键盘
+那是GTV和GNEWS
+那是我们坚定的信念和信仰
+
+剑出鞘，枪上膛
+笔墨丹青化做一颗颗炮弹
+炸向敌人的阵营
+揭露ccp阴谋
+揭露病毒真相
+让敌人丢盔弃甲
+闻风丧胆
+
+新中国联邦在风雨中成长
+伴随着时代前进的步伐
+一岁了
+还是一个婴儿
+需要哺育
+需要呵护
+但是她并不软弱
+她无比坚强
+她充满了希望
+她是明天的巨人
+
+战友们
+让我们一起成长
+共同迎接喜马拉雅的曙光
+憧憬我们未来的国度
+无限美好
+我们需要更加努力
+一个没有共产党的新中国
+就在前方
+
+校对/发稿：遍地开花
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
+
+
+
+
+
+
+
+0

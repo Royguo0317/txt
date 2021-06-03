@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦一周年大事记
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1293089/)
+## 路德时评简讯（视频版）:杨洁篪在莫斯科与普京打了本地电话(2021.5.28早间路德社简讯之路安艾谈)
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1293095/)
 
-制作：纽约香草山设计部
+《路德社》出品
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+以下视频是详细内容：
+
+内容摘要：
+
+一、杨洁篪在莫斯科与普京打了本地电话
+
+二、赵战狼污蔑美德克里特堡和731部队有关
 
 
 
-发稿：雪梨
+制作：路德社简讯视频组
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+审核校对：玫瑰新闻组
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+上传排版：玫瑰新闻组
 
 0

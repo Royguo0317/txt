@@ -1,29 +1,102 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象评奇文】好慌，CGTN一早发文说世卫组织专家排除了 COVID-19 的人为来源
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1292887/)
+## 【香草诗词汇】锅言灶语（第一季尾篇）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1292984/)
 
-2021年6月3日，央视海外版CGTN发了一个有气无力的短新闻：
+## –治大国如烹小鲜–
+– ＂64＂建邦周年纪–
+–口味歇业下季筹中–
 
-俄罗斯病毒学家和世界卫生组织专家德米特里·利沃夫说，对 COVID-19 的人工来源的担忧没有任何价值。“冠状病毒主要是与蝙蝠有关的病毒。有人可能在蝙蝠过夜的房间或蝙蝠通常大量居住的洞穴中被感染，”他说。利沃夫上周告诉俄罗斯一个电视节目，在驯化野生动物的过程中，大约有 150 种病毒从动物传染给人类。“一个人可能吃了一些与蝙蝠有生态联系的动物的肉，从而成为第一个感染源”，他补充说。
+作者：纽约香草山健身部 澄道
 
-要告诉CGTN， 由科学家已经做过实验了，Covid-19不能感染蝙蝠。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-我们可以看到，CGTN是一个全英文的网站， 使得国内的老百姓，相信共产党的， 可以看央视，有疑问的，像看看国外媒体的，就是CGTN， 还有中国日报，新华社这些英文版本，其实看的都是中共的媒体。有一个问题，难道在海外没有独立的非红匪的媒体吗？有，除了GTV和Gnews，战斗室等几个媒体。但是这个新媒体也一直在受到打压，好象Gnews就象一个不屈不饶的破旧拖拉机，吭哧吭哧地顽强的往前跑。
 
-至于大部分的主流媒体，在享受着中共地海量广告费，推广费的同时，当然也是为中共说话的， 中共还培养了很多媒体业从业人士，派往海外，记者站，他们挂着海外媒体的旗号，领着共匪的钱，说着共匪让他们说的话，这是一种无形的宣传渗透， 是无声的媒体战争。通过这次海外生物病毒炸弹的投放，炸醒一些媒体，我们要知道，媒体是未来，是科学的传播者，是大众认知世界和真相的窗口，为何所有的独裁集权国家，他们不愿意开放媒体，不想让老百姓说话呢。因为他们和他们的子子孙孙要欺骗你，代表你，奴役你，不能让他们和红媒一起毒害全人类了。
 
-参考链接：
+建店缘启
+灭共惩贼相宜中
+有话要说
+锅言灶语画外鸣
 
-[https://news.cgtn.com/news/2021-06-03/WHO-expert-rules-out-man-made-origin-of-COVID-19-10LYKKORGtq/index.html](https://news.cgtn.com/news/2021-06-03/WHO-expert-rules-out-man-made-origin-of-COVID-19-10LYKKORGtq/index.html)
+锅子
+灶子
+厨二
+翠花
+翠绿
+帮厨阿姨
 
-图片来源：[https://news.cgtn.com/](https://news.cgtn.com/news/2021-06-03/WHO-expert-rules-out-man-made-origin-of-COVID-19-10LYKKORGtq/index.html)
+曾经的
+人才济济
+自发合和同灭共
+曾经的
+干劲十足
+无我无求只铲毒
 
-整理撰稿：蓝精灵
+怎奈
+＂口味难听＂
+COVID-19到如今
+店内仅剩
+厨二
+及灶子
+二位
+且言语不停
+……
 
-校对发布：Penny
+为＂64＂周年聚
+北美神奇健身教练
+亲手打造
+＂郭氏烧鸡＂
+请问喻义是啥呀？
+仅仅是在
+为战友们食用？
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+摇着头的
+厨二
+情不自禁发出
+喃喃低语
+但又好像
+自言自语
+声虽有点弱
+但音节中不乏笃定：
+＂治大国如烹小鲜！＂
+吗？
 
-+1
+什么意思！？
+你还是想要
+再＂烹小鲜＂
+开灶续张？
+
+我跟您
+ 讲实话
+
+二厨与
+翠绿
+现已深耕
+＂take away＂
+外卖业（Toronto）
+月收万美金
+您觉得他们
+还能回店吗？
+…..
+
+@澄道来了
+@爱动爱议码06022
+
+校对/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
