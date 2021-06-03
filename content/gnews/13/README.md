@@ -1,45 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】英国情报机关认为新冠病毒或来自中共国实验室
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1294039/)
+## 【热点播报】CCP用新病毒警告威胁全世界吗？——人类首例H1ON3禽流感感染在中共国报出
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1294082/)
 
-配音：香草山录音组 蒙古鸿雁
+作者： 纽约香草山媒体部7bends
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
 
+路透社6月1日报道，中共国江苏一位41岁男子已由北京国家卫生委员会（NHC）确认为首例人类感染罕见的H1ON3禽流感病例。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03073723/image0-6.jpg)
+
+据中共方面说，该名镇江男子于4月28日住院，5月28日被确诊为H1ON3感染，但没有详细说明是怎样被感染的。北京国家卫生委员会说该男子目前情况稳定，可以出院。与他密切接触者被调查后未发现被感染。
+
+世界卫生组织WHO表示，不清楚该名患者接触H1ON3病毒的来源，但确定尚无人传人的迹象，WHO还表示说大流行的威胁是持续存在的。
+
+这些言论听起来多么耳熟又令人惊恐。中共国又拿新病毒警告威胁全世界，世卫组织又在密切配合吗？
+
+当CCP病毒在武汉爆发时，中共政府说没有人传人，WTO与之配合也说无人传人迹象。若不是2020年1月19日爆料革命路德社闫博士爆出人传人、大爆发、强变异、来自实验室，中共怎么能在4小时后宣布武汉封城，不得不承认人传人。
+
+为什么近年来所有这些稀奇古怪或已绝迹多年的传染病，却总是由中共国首先传出？Sars之后，中共在中国各地建了众多的P2、P3、P4实验室，到底在干些什么？
+
+参考阅读：
+
+https://www.reuters.com/business/healthcare-pharmaceuticals/china-reports-human-case-h10n3-bird-flu-2021-06-01/
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
 
-英国 “星期日泰晤士报”（Sunday Times）报导，英国情报机构现在认为，Covid-19全球大流行病始于中共国一个研究实验室泄露，是可行的。
-
-自从16个月前中共国当局首度证实武汉出现一种新的人传人致命病毒以来，英国、美国和其他西方国家的情报机关似乎回避武汉病毒研究所可能与疫情爆发有关。尽管武汉病毒研究所从事源于蝙蝠的冠状病毒研究，但包括英国在内的西方国家情报界起初都认为，这种病毒是从实验室外洩的可能性“微乎其微”。
-
-
-
-**文字版原文：[【独立观点】英国情报机关认为新冠病毒或来自中共国实验室](https://gnews.org/zh-hans/1290555/)**
-
-作者：纽约香草山健身部 文真
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

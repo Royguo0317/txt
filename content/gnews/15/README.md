@@ -1,67 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我的父亲（组诗）————新中国联邦一周年纪念
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1293999/)
+## 【有声读物】世卫组织一再助纣为虐：批准中共疫苗紧急使用
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1294063/)
 
-作者：1608米
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03070559/%E7%88%B6%E4%BA%B2.png)
-图片来自网络
+配音：香草山录音组 蒙古鸿雁
 
-《幸福的回忆满是泪水》
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-我不知道父亲为啥要生我
-甚至他自己也不知道
 
-几十年后，我终于明白
-因为我爱他
-他也爱我
 
-现在当我想起父亲时
-我只想哭，偷偷一个人
-这是我偷偷给他的礼物
-唯一的礼物
 
-哭完后，我就会笑
-浅浅地，抿一抿嘴
 
-幸福……
-为曾经拥有过这样的父亲
 
-《父亲一生清澈如水》
 
-我的父亲，一生
-清澈如水
+6月2日周二CNBC报导，世界卫生组织（WHO）批准中共生产的科兴疫苗作为紧急上市使用。众所周知，世卫组织紧急批准列表是向各个国家的监督机构发出的关于产品安全性和有效性的信号。
 
-他给我的印象，永远
-都清澈如清晨的阳光
+而今，科兴疫苗成为第二只获世卫组织背书的中共生产的疫苗。此前，世卫组织已于5月7日紧急批准中共的国药疫苗使用——该疫苗目前已在非发达国家广泛应用。科兴表示，截至五月底，其疫苗在国内外供应超过六亿支，已接种超过4.3亿支。
 
-清澈——是父亲一生
-最好的写照
 
-我的父亲，一生
-清澈如水
 
-《一个拥抱温暖一生》
+**文字版原文：[【热点播报】世卫组织一再助纣为虐：批准中共疫苗紧急使用](https://gnews.org/zh-hans/1292454/)**
 
-我曾经抱过我的父亲
-在我人生的盛年
+作者：纽约香草山媒体部 7bends
 
-深情地，用力地
-我给我父亲一个满满地拥抱
 
-唯一的一个
 
-不知道那个拥抱是否
-来得太晚
-对于父亲，对于我
+音频处理/发稿：雪梨
 
-我不知道我该哭
-还是该笑
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-一个拥抱
-是我对父亲全部的回报
+**更多资讯，更多关注**
 
-审核：cindy
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01003057/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
-+1
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

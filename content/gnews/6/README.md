@@ -1,45 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】世卫组织一再助纣为虐：批准中共疫苗紧急使用
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1294063/)
+## 国际劳工组织最新报告显示，全球就业受疫情重创
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1294151/)
 
-配音：香草山录音组 蒙古鸿雁
+#### 文章撰写:【默凡】
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03081752/32Snipasdfsate_2021-06-03_20-17-06.png)
 
+6月3日，联合国国际劳工组织周四发布年度”全球就业与社会展望”报告，报告指出，到今年底，全球失业人口仍将远高于2019年底时的1亿8700万，就业人口则距离疫情前水平还差了7500万人。
 
+按照国际劳工组织的计算，这相当于今年全球失业率将达到6.3%，远高于疫情前的5.4%。而尽管明年全球失业人口预估将略降至2亿500万人，就业人口与疫情前差距缩小至2300万人，且失业率降至5.7%，但距离2019年水平仍有段距离。就业人口成长速度不足以填补疫情造成的损失，这种情况至少会持续到2023年。
 
+国际劳工组织经济学家及报告主笔库恩（Stefan Kuehn）告诉路透社，如果考虑到疫情造成许多劳工被迫工时减少等其他因素，全球就业市场受到的冲击其实还更严重。库恩说，光看失业人口，不能了解劳动市场受到冲击的全貌。例如美国就业人口大幅流失后，企业又开始招募人力；但在其他地区尤其是欧洲，许多劳工仍以缩短工时形式维持就业。
 
+据国际劳工组织估计，与2019年相较，2020年全球减少的工作时数相当於1亿4400万份全职工作，到今年第二季差距仍高达1亿2700万份全职工作。
 
+参考文章：[国际劳工组织：全球就业受疫情重创 今年全球最少有2.2亿人失业](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210602-%E5%9B%BD%E9%99%85%E5%8A%B3%E5%B7%A5%E7%BB%84%E7%BB%87-%E5%85%A8%E7%90%83%E5%B0%B1%E4%B8%9A%E5%8F%97%E7%96%AB%E6%83%85%E9%87%8D%E5%88%9B-%E4%BB%8A%E5%B9%B4%E5%85%A8%E7%90%83%E6%9C%80%E5%B0%91%E6%9C%892-2%E4%BA%BF%E4%BA%BA%E5%A4%B1%E4%B8%9A)
 
+本文仅代表作者本人观点，不代表Gnews平台
 
-6月2日周二CNBC报导，世界卫生组织（WHO）批准中共生产的科兴疫苗作为紧急上市使用。众所周知，世卫组织紧急批准列表是向各个国家的监督机构发出的关于产品安全性和有效性的信号。
+* * *
 
-而今，科兴疫苗成为第二只获世卫组织背书的中共生产的疫苗。此前，世卫组织已于5月7日紧急批准中共的国药疫苗使用——该疫苗目前已在非发达国家广泛应用。科兴表示，截至五月底，其疫苗在国内外供应超过六亿支，已接种超过4.3亿支。
-
-
-
-**文字版原文：[【热点播报】世卫组织一再助纣为虐：批准中共疫苗紧急使用](https://gnews.org/zh-hans/1292454/)**
-
-作者：纽约香草山媒体部 7bends
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*排版发布：日本东京方舟农场 文柯Miles*
 
 0
