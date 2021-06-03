@@ -1,51 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】新东方等15家教育机构被处罚，民营教育前景堪忧
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1293096/)
+## 福奇邮件曝光掩盖病毒人工问题联合打压实验室来源
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1293307/)
 
-作者：纽约香草山健身部 Jack Li文阳
+台湾宝岛农场 文旦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03020105/%E6%93%B7%E5%8F%9663-0-1.jpg)
+近日美媒对美国首席传染病专家福西（Anthony Fauci，福奇）的多封邮件进行分析，其中福西与中共疾病预防控制中心主任高福的邮件往来，引发外界强烈关注。
 
+周二（6月1日），《华盛顿邮报》披露，他们通过《信息自由法》申请获得了866页福西的电子邮件，这些电子邮件的时间是2020年3月和4月，正值世界卫生组织宣布疫情为「大流行病」和全球进行管制措施的时候。
 
+病毒爆发初期，各界为何对实验室来源地说法是阴谋论，原因终于曝光了，中共联合美国重要的核心科学家们，一起打压实验室来源说，提倡病毒自然来源说，这背后的目的是为什么呢?又为什么要这样做呢?病毒不是人类公敌吗?
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+从邮件内容可以知道，福奇立马询问是否有参与功能增强实验的合约，对提出本次世纪大流行的病毒研究有人工合成迹象的科学家进行游说、对科学界们及WHO进行秘密会议，积极打压实验室来源说，并开设节目来扰乱所有资讯等等一切作为。
 
+福奇并与中共高进行邮件联系，这一切的一切是为了什么?又要掩盖什么目的?
 
+2021年5月才刚听证会完的福奇，这些邮件的曝光，完全是对他在听证会的言语，做出最强大的反击，为什么要继续说谎呢?
 
-据墙内媒体消息，六一儿童节当天，国内15家校外培训机构包括：新东方、学而思、精锐教育、掌门1对1、华尔街英语、哒哒英语等被处以顶格罚款共计3650万元。
+如今病毒来自中共实验室，已经无法某灭，因此我们不应该称病毒为中共大外宣的「新冠病毒」，应改称「中共病毒」来摆脱中共大外宣的混淆视听。又中国在中共统治的数十年来，实际上是受伤害最严重的受害者，世界应该要对中共不能代表中国有所认识，因此我们针对的是中共国而非中国。
 
-从中共国家市场监管总局了解到，该15家机构因涉及虚构教师资质、虚构执教履历、夸大培训效果、夸大机构实力、编造用户评价、虚构价格而遭到处罚。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03000009/Untitled-design-79.png)
-近日，《民办教育促进法实施条例》修订版颁布，将于2021年9月1日起施行。《条例》道出了民营教育机构受压制的原因：优质教育资源不断向少数学校（民营教育机构）聚集，造成新的教育资源配置不公。
+中共病毒核心就是ZC45和ZXC21的中共特有种蝙蝠，全球只有中共国内有，并被加以军方列管的蝙蝠，真相是如此的恐怖，但这就是真相，需要面对如今的超限生化武器的超限战争。
 
-民营学校对优质生源的圈围，加剧了整个社会的教育焦虑情绪，其实就是引起了当局的担忧。民营凭“虚构、夸大、编造”办学，怎能抢得了优等生源？当局是自打嘴巴。
+未来也将曝光超过866封得更多邮件，隐藏着更巨大的邪恶架构。
 
-《条例》说更大的问题是，大量民营“教育人”变成了“生意人”，使民校在办学过程中的利益取向逐步取代公益性质。公益是由国家提供的，你做你的公益，他做他的生意。民营教育机构只是民间机构，又有何能力妨碍官家给社会做公益呢？老百姓宁愿花钱受教育，心甘情愿。如果国营的学校已经能满足百姓的需要，百姓又怎会多花冤枉钱呢？
+传播真相，缺你不可，你很重要，你的一小步，将是灭共的一大步。
 
-中共当局对民营教育机构发出了整顿的信号，冠以所谓的“虚构、夸大、编造”的罪名，实则是因为民营教育机构抢了国营学校的饭碗。关键是现在中共的经济已经到了穷途末路，教育、医疗、殡葬成了仅剩的几个还能来钱的行业，相信都会被逐步的收归国有。
+资料来源:
 
-还有，在中共的眼里，民营教育机构忽视了对学生的洗脑教育。中共需要的是韭菜，不需要脑子，只需要服从。
+[福西邮件解密与中共疾控主任的来往惹关注-大纪元](https://www.epochtimes.com/b5/21/6/2/n12994234.htm)
 
-习近平指引中共国走进文革2.0，与全世界为敌，放着好日子不过，重新艰难探索。很显然，民营教育机构已经阻碍了他的倒退的步伐，所以，在劫必然难逃。
+[BREAKING: Fauci Sent Panicked Gain-of-Function E-mails to Staff in Early COVID Days.](https://thenationalpulse.com/breaking/fauci-sent-panicked-gain-of-function-e-mails-to-staff-in-early-covid-days/)
 
-参考阅读：https://finance.sina.com.cn/china/2021-06-01/doc-ikmxzfmm5883389.shtml
+[Fauci Emails Give Insight To Early Days Of COVID Response](https://www.buzzfeednews.com/article/nataliebettendorf/fauci-emails-covid-response)
 
-https://finance.sina.com.cn/china/2021-06-01/doc-ikmyaawc8732734.shtml
+[2020 Exploded The Myth About Left Wing Love Of The Poor](https://www.zerohedge.com/political/2020-exploded-myth-about-left-wing-love-poor)
 
-https://finance.sina.com.cn/china/2021-06-01/doc-ikmxzfmm5883389.shtml
+[Fauci’s Emails with Chinese CDC Director: ‘We Will Get Through Together’](https://www.breitbart.com/politics/2021/06/01/anthony-fauci-chinese-cdc-directors-email-exchanges-exposed-through-together/)
 
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
-**更多资讯，更多关注**
+福奇邮件下载网址:
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[leopold-nih-foia-anthony-fauci-emails.pdf (documentcloud.org)](https://assets.documentcloud.org/documents/20793561/leopold-nih-foia-anthony-fauci-emails.pdf)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+台湾宝岛农场youtobe:
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+[2021.05.30珍妮法官：福奇曾在2017年就预测川普政府会遇上意想不到的疫情大流行](https://www.youtube.com/watch?v=B4DTNIQ2INo)
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+希望大家帮忙订阅分享!!!感谢大家!!!
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+文章审核：zhong
+
+文章发布：Little Liu
 
 0

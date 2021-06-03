@@ -1,31 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布达佩斯因中共侵犯人权行为重新为街道命名
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1293063/)
+## 【热点播报】澳大利亚前总理力挺现政府，捍卫国家主权和利益绝不退让
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1293148/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者： 纽约香草山健身部 Jack Li文阳
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02233852/B-3.jpg)scmp.com
-路透社6月2日报道，匈牙利首都布达佩斯市长宣布，他将重新命名位于一所中共国大学拟建校园附近的街道，以纪念中共国政府侵犯人权行为。
 
-其中一条街道将以西藏流亡精神领袖达赖喇嘛(Dalai Lama)的名字命名。北京方面称达赖喇嘛为危险的分裂分子。另一条将被命名为“维吾尔烈士之路”(Uyghur Martyrs’ Road)，维吾尔族是中共种族灭绝和反人类罪行的受害者。第三条将被命名为“自由香港路”，以纪念中共对香港民主自由运动的血腥镇压。第四个街道将以一名入狱的中国天主教主教的名字命名，中共对宗教进行了残酷的打压控制。
 
-这些重新命名的街道将汇集在中共国复旦大学计划开设的一个校区，此校区将为6000名学生和500名教师提供文科、医学、商科和工程等硕士课程。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-“复旦项目会让人对匈牙利30年前在共产主义垮台时所承诺的许多价值观产生怀疑。”布达佩斯市长卡拉松尼·盖尔盖伊 (Gergely Karácsony)说。盖尔盖伊是一位自由主义反对派代表，计划明年参加竞选，将匈牙利右翼总理维克多·欧尔班(Viktor Orbán)拉下台。欧尔班的社会保守主义、民族保守主义和欧洲怀疑主义以及他的建立“非自由国家”的主张引起了国际上的广泛关注。自2010年欧尔班第二次执政以来，匈牙利经历了民主倒退，转向威权主义。
 
-欧尔班的自由主义反对者指责他讨好中共国、俄罗斯和其他不自由的政府，同时又因为限制司法和媒体的独立性而激怒了欧洲盟友。
 
-匈牙利领先的私立大学中欧大学(Central European University)于2019年将大部分业务迁至邻国奥地利，原因是欧尔班政府实施了危及该校地位的法律改革，并对该校创始人乔治·索罗斯(George Soros)发起了一场公开仇恨运动。
+继澳大利亚前总理陆克文表示，各国要团结起来对抗中共之后，另一位澳大利亚前总理特恩布尔(Malcolm Turnbull)也说，澳大利亚在捍卫国家主权和利益时绝不能退让，屈从只会招来被对方鄙视，两位前总理先后发声直指中共，绝非偶然。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03001238/Untitled-design-80.png)图片来源：WSJ
+5月31日，特恩布尔在洛伊国际政策研究所(Lowy Institute for International Policy)表示，由于中共国在南中国海、工业间谍、战狼外交以及贸易制裁等方面越来越咄咄逼人，澳大利亚的民意越来越倾向于与中共国对抗。
 
-盖尔盖伊告诉记者，中共国校区将消耗匈牙利纳税人近20亿美元，并与政府早些时候为匈牙利学生建造宿舍和设施的协议相悖。自由派智库共和研究所(Republikon Institute) 6月1日公布的一项民意调查显示，66%的匈牙利人反对建立该校园，仅27%的人支持。
+不久前，澳大利亚前总理陆克文（Kevin Rudd）对BBC说，各国要避免单独作战，应该团结起来，对抗中共国日益增长的经济和地缘政治胁迫。
 
-欧尔班政府曾因中共国提供的21亿美元贷款重建布达佩斯-贝尔格莱德铁路的协议，以及他通过快速通道批准一种中共国生产的中共病毒疫苗而受到批评，而这种疫苗目前仍未获得欧盟的批准。
+在星期一的讲话中，特恩布尔前总理说，有些人或许对莫里森政府发表对中共的言论提出批评，但真正的问题在于中共国，而非澳大利亚。澳大利亚不应该单方面退缩，去解冻两国关系。澳洲必须坚守阵地，继续捍卫自己的价值和利益。另外他建议，澳大利亚官员们在言辞上需小心谨慎，避免激怒中共。
 
-参考链接：
+澳大利亚总理斯科特·莫里森于4月23日，呼吁世界卫生组织所有成员国支持对新冠病毒全球大流行进行独立调查，澳大利亚在追查中共病毒问题上走在世界的最前面，因此，遭到中共的贸易报复。
 
-[https://www.reuters.com/world/china/budapest-names-streets-planned-chinese-university-after-uyghurs-hong-kong-2021-06-02/](https://www.reuters.com/world/china/budapest-names-streets-planned-chinese-university-after-uyghurs-hong-kong-2021-06-02/)
+两位前总理先后出来，支持澳大利亚政府的中共国政策，内容和声调一致，直指中共，意义重大。
 
-+1
+陆克文是澳大利亚工党资深领导人，特恩布尔和莫里森同属于自由党。工党和自由党是澳大利亚的两大政党。证明澳大利亚在应对中共的问题上，两党达成一致共识，共同支持莫里森政府对中共的强硬态度。
+
+同时，两位前总理都提到言辞谨慎，避免激怒中共。暗示要与西方盟国步调一致，紧跟美国其后，因为澳大利亚在人口、经济和军事与中共国无法直接对抗。与盟国联合起来，才是澳大利亚抗共的最好方式。
+
+参考阅读：https://www.voachinese.com/a/australia-members-should-support-proposed-coronavirus-inquiry-20200423/5388160.html
+
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
