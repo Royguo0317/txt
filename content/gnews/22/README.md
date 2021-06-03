@@ -1,29 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦一周年大事记
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1293089/)
+## 【每日快讯】05/30/2021：中共将欧洲四外长参加”数博会“，宣传成”访华谈合作“，可见中欧关系彻底失势
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1293109/)
 
-制作：纽约香草山设计部
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+制作：Cantonese工作室
 
 
 
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+播报： 二丫
+资料整理：陆柒陆捌 一帘幽梦 闪电
+海报製作： 儂民
+视频製作: ken
+![]()![](https://cdn.discordapp.com/attachments/574855309877575681/849455508310065182/image0.png)![]()![](https://cdn.discordapp.com/attachments/574855309877575681/849455508652949535/image1.png)![]()![](https://cdn.discordapp.com/attachments/574855309877575681/849455509240938556/image2.png)
 0
