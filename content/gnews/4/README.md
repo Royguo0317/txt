@@ -1,51 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象锐语】世界上最富有的 25 位千禧一代亿万富翁
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1293194/)
+## 致命的棘蛋白(S蛋白)
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1293269/)
 
-泰勒德登在2021 年 6 月 2 日零对冲发表文章：
+台湾宝岛农场 马克强
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03014300/%E6%93%B7%E5%8F%9663.jpg)
+从2020年初到现在，中共病毒COVID-19已经造成造成全球3百50几万人的丧命。而中共病毒感染人体的途径，主要是透过棘蛋白(spike protein)或称为S蛋白与人体细胞表面受体血管收缩素转换酶2(ACE2)结合，并且在后续阶段中催化病毒的基因体并释放到细胞中以进行感染 (注1)。然而，随着疫情的延烧与扩散，有越来越多的研究与发现指出，棘蛋白本身就是造成人致命的主要原因。
 
-全球有 2,755 位亿万富翁，他们的总身价超过 13 万亿美元。在这些超级富豪中，Visual Capitalist 的艾弗里库普指出，只有100 多位是千禧一代，出生于 1981 年至 1996 年之间。这一年轻一代占全球所有亿万富翁的 3.8% 左右，总净资产为 5731 亿美元。以下可视化使用福布斯的数据并详细说明了他们的财富来源、总净资产、国籍和年龄。
+病毒中的**棘蛋白**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03004545/The-Worlds-25-Millennial-Billionaires_Millennial-Billionaire-1.jpg)
+全球顶尖生物医学研究机构”萨尔克生物研究所”（Salk Institute）于2021年4月30发表的文章中证实，COVID-19病毒中的棘蛋白是造成致命血栓的主要原因 (注2)。著名医学杂志Circulation Research的研究中指出，SARS-CoV-2的棘蛋白会抑制ACE2的功能，并在透过瓦解细胞中粒线体的功能后，进而造成血管内表层细胞功能丧失，最终形成所在区域组织的损伤 (注3)。
 
-谁是千禧一代亿万富翁？
+也就是说，中共病毒造成的是血管系统的伤害，而不是一般所认为的呼吸系统。近来的许多案例发现，特别是血栓的情况发生在肺部的微小血管中，进而造成肺泡换气的阻碍，最终形成肺部组织的纤维化。日本研究的资料显示，棘蛋白在进入血液中会随着循环系统并聚集在许多的器官或组织，包括，脾脏、骨髓、肝脏、肾上腺与卵巢等（注4）。其他的还包括神经与大脑等系统。
 
-最年长的千禧一代将在 2021年年满40 岁，而最年轻的才刚满 25 岁。 这意味着千禧一代的亿万富翁通常是世界上最年轻的亿万富翁，除了两位 Z 世代：24岁的中国王泽龙和18岁德国的凯文·大卫·莱曼 (Kevin David Lehmann) 。在美国拥有最多 33 位千禧一代亿万富翁，中国以 23 位位居第二，其他大多数国家都远远落后。
+**疫苗中的棘蛋白**
 
-在美国，千禧一代亿万富翁通常与 Snapchat、Airbnb 和 Facebook 等知名科技公司联系在一起。其他人则是巨额家族财富的继承人，例如：卢卡斯·沃尔顿（Lukas Walton），沃尔玛创始人山姆·沃尔顿的孙子，也是美国最富有家族的原始掌门人。在中国，一些千禧一代的亿万富翁真的很突出，比如Relx创始人 Kate Wang。这位 39 岁的女士仅在三年前，即 36岁的时候创办了她的电子烟和电子烟公司，预计很快将争夺中国女首富的头衔。
+依据2021年5月31日发表在LifeSiteNews的一篇文章显示，加拿大安大略省Guelph大学病毒免疫学家兼助理教授Byram Bridle指出，在注射COVID-19疫苗之后，原本认为mRNA所产生的棘蛋白，在发挥作用使人体产生抗体之后，应该停留在肩膀的肌肉中。但是，从合作的日本机构所提供的资料显示，由注射疫苗所产生的棘蛋白最后却进入到血液循环中。这种情况就可以解释，为什么会有成千上万的疫苗副作用报告，如血栓、心脏疾病、脑部损伤、及生殖系统等问题 (注4)。
 
-亿万富翁成长
+最令人害怕的是目前所有的疫苗设计，无论是透过mRNA或腺病毒的方式，都会使人体内累积出大量的棘蛋白，进而诱发血管发炎以及损伤，最后促成中风、心脏病、偏头痛、血栓等其他有害人体的反应 (注5)。
 
-总体而言，与 2020 年相比，亿万富翁的总净资产增加了8 万亿美元，2021年新增约 493 人。事实上，86% 的亿万富翁比一年前更富有。但让我们看看亿万富翁俱乐部中千禧一代的财富是如何变化的。以下是 2020 年至 2021 年前五名最富有的千禧一代的净资产差异：
+注射mRNA疫苗的人可谓是『移动的棘蛋白制造工厂』。也就是说，透过接触可以将棘蛋白传播给那些未注射疫苗的人，这就叫做自我扩散疫苗(self-replicating vaccines) (注5)。
 
-马克·扎克伯格：+350 亿美元
+截至目前为止，美国FDA还没批准让任何一款COVID-19疫苗获取为中、长期安全的许可，而只是给与紧急授权许可。这说明了目前施打疫苗的人都 ”勇敢” 的参与做实验，而真正中、长期会产生什么的后果目前没有人知道。
 
-张一鸣：+194亿美元
+最后我们将COVID-19病毒与疫苗做几个归纳：
 
-杨惠妍：+93亿美元
+- COVID-19病毒造成的是：血管系统损伤而不是呼吸系统的损伤。
+- 棘蛋白会随着血液循环系统聚集在任何的器官或组织。
 
-达斯汀莫斯科维茨：+ 85亿美元
 
-苏华：+149亿美元
+- 既使没有病毒，疫苗产生的棘蛋白也会损害人体细胞并引发血管的疾病。
 
-对于排名前 25 位的千禧一代亿万富翁中的每一位，净资产要么增加，要么保持不变（或者他们是亿万富翁头衔的新手）。除了一个人，卢卡斯·沃尔顿之外，所有人都是如此，他的净资产从 2020 年到 2021 年减少了近 30 亿美元。虽然全球约有 106 位千禧一代亿万富翁，但他们的净资产总和仅占亿万富翁总财富的一小部分。那么这一代人真正拥有多少经济权力和影响力？在查看美国千禧一代的平均财富时， 世代力量指数已经确定，这一年轻一代仅拥有美国 9.6% 的经济实力。以下是美国千禧一代财富指标的快速浏览：
 
-千禧一代仅占美国商界领袖的 7%，他们拥有 730 亿美元的股票和共同基金份额，他们占小企业领导者的 13%，他们占美国亿万富翁财富的 7%。在全球范围内， 估计有 18 亿千禧一代。在这群人中，只有 100 多人身价数十亿——而且鉴于许多人仍处于职业生涯的早期阶段，未来可能会有许多千禧一代的亿万富翁。
+- 在中共病毒的肆虐下，疫苗公司透过洗脑或者欺骗的方鼓吹大家去打疫苗，而不去提倡便宜又有效预防的药物如，喹宁+锌片等 (注6)。并且在国家的紧急授权状态下，民众施打疫苗所产生的后果由民众自负，疫苗公司可以不用负任何的责任。
 
-小象觉得零对冲这篇文章根据福布斯的资料来统计时不全面的，如果仔细研究一下红色的亿万富翁，可能会出来另外一个崭新的版本，毕竟，他们搜刮了十几亿人几十年的所有财富。
 
-参考链接：
+（本文仅代表个人立场）
 
-[https://www.zerohedge.com/personal-finance/these-are-worlds-25-richest-millennial-billionaires](https://www.zerohedge.com/personal-finance/these-are-worlds-25-richest-millennial-billionaires)
+文章来源：
 
-图片来源：[https://www.zerohedge.com/](https://www.zerohedge.com/)
+1. [棘状蛋白与ACE2结合有10种结构变化？破解新冠病毒感染过程| GeneOnline News](https://geneonline.news/ten-structures-of-ace2-spike-protein/)
+2. [The novel coronavirus’ spike protein plays additional key role in illness](https://www.salk.edu/news-release/the-novel-coronavirus-spike-protein-plays-additional-key-role-in-illness/)
+3. [SARS-CoV-2 Spike Protein Impairs Endothelial Function via Downregulation of ACE 2](https://www.ahajournals.org/doi/10.1161/CIRCRESAHA.121.318902)
+4. [Vaccine researcher admits ‘big mistake,’ says spike protein is dangerous ‘toxin ‘](https://www.lifesitenews.com/news/vaccine-researcher-admits-big-mistake-says-spike-protein-is-dangerous-toxin)
+5. [Bombshel​​l Salk Institute science paper reveals the covid spike protein is what’s causing deadly blood clots… and it’s in all the covid vaccines (by design)](https://pandemic.news/2021-05-07-salk-institute-reveals-the-covid-spike-protein-causing-deadly-blood-clots.html#)
+6. [HCQ for COVID-19: real-time analysis of all 298 studies](https://c19hcq.com/)
 
-整理撰稿：蓝精灵
 
-校对发布：Penny
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-0
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+文章审核：zhong
+
+文章发布：Little Liu
+
++1

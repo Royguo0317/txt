@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象评奇文】好慌，CGTN一早发文说世卫组织专家排除了 COVID-19 的人为来源
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1292887/)
+## 美国呼吁北约深化与日本的关系应对中俄威胁
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1292969/)
 
-2021年6月3日，央视海外版CGTN发了一个有气无力的短新闻：
+俄罗斯莫斯科喀秋莎农场   银河
 
-俄罗斯病毒学家和世界卫生组织专家德米特里·利沃夫说，对 COVID-19 的人工来源的担忧没有任何价值。“冠状病毒主要是与蝙蝠有关的病毒。有人可能在蝙蝠过夜的房间或蝙蝠通常大量居住的洞穴中被感染，”他说。利沃夫上周告诉俄罗斯一个电视节目，在驯化野生动物的过程中，大约有 150 种病毒从动物传染给人类。“一个人可能吃了一些与蝙蝠有生态联系的动物的肉，从而成为第一个感染源”，他补充说。
+编辑上传   水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02224257/N-1.jpg)merics.org
+共同通讯社 (Kyodo News) 6月2日报道，美国国务卿布林肯(Antony Blinken) 6月1日鼓励北大西洋公约组织(North Atlantic Treaty Organization，简称:北约)深化与日本的合作，该组织正寻求提高应对中共崛起和俄罗斯威胁的能力。
 
-要告诉CGTN， 由科学家已经做过实验了，Covid-19不能感染蝙蝠。
+美国国务院说，在北约外长的一次虚拟会议上，布林肯强调了联盟伙伴关系的重要性，并将澳大利亚、日本、新西兰和韩国列为北约应该加强联系的国家。
 
-我们可以看到，CGTN是一个全英文的网站， 使得国内的老百姓，相信共产党的， 可以看央视，有疑问的，像看看国外媒体的，就是CGTN， 还有中国日报，新华社这些英文版本，其实看的都是中共的媒体。有一个问题，难道在海外没有独立的非红匪的媒体吗？有，除了GTV和Gnews，战斗室等几个媒体。但是这个新媒体也一直在受到打压，好象Gnews就象一个不屈不饶的破旧拖拉机，吭哧吭哧地顽强的往前跑。
+美国国务院没有进行详细说明，但布林肯表示将支持北约秘书长斯托尔滕贝格的努力，使这个30个成员国的联盟“更有弹性和能力应对来自俄罗斯和中共国的系统性挑战”。
 
-至于大部分的主流媒体，在享受着中共地海量广告费，推广费的同时，当然也是为中共说话的， 中共还培养了很多媒体业从业人士，派往海外，记者站，他们挂着海外媒体的旗号，领着共匪的钱，说着共匪让他们说的话，这是一种无形的宣传渗透， 是无声的媒体战争。通过这次海外生物病毒炸弹的投放，炸醒一些媒体，我们要知道，媒体是未来，是科学的传播者，是大众认知世界和真相的窗口，为何所有的独裁集权国家，他们不愿意开放媒体，不想让老百姓说话呢。因为他们和他们的子子孙孙要欺骗你，代表你，奴役你，不能让他们和红媒一起毒害全人类了。
+拜登(Joe Biden)总统领导的美国政府一直在团结盟友和志同道合的国家，共同应对民主国家面临的来自中共国和俄罗斯等专制国家对国际规则的挑战。在美国的主要盟友中，日本一直被置于美国对抗中共国在印度洋-太平洋地区野心的战略中心，日本首相菅义伟(Yoshihide Suga)成为拜登今年1月就职以来在白宫会晤的首位外国领导人。
+
+拜登政府还一直鼓励日本和韩国改善因战时赔偿问题而日益恶化的双边关系，以加深合作共同抵抗中共和朝鲜威胁。
 
 参考链接：
 
-[https://news.cgtn.com/news/2021-06-03/WHO-expert-rules-out-man-made-origin-of-COVID-19-10LYKKORGtq/index.html](https://news.cgtn.com/news/2021-06-03/WHO-expert-rules-out-man-made-origin-of-COVID-19-10LYKKORGtq/index.html)
+[https://english.kyodonews.net/news/2021/06/bdf40f7c1c09-us-calls-on-nato-to-deepen-ties-with-japan-amid-chinas-rise.html](https://english.kyodonews.net/news/2021/06/bdf40f7c1c09-us-calls-on-nato-to-deepen-ties-with-japan-amid-chinas-rise.html)
 
-图片来源：[https://news.cgtn.com/](https://news.cgtn.com/news/2021-06-03/WHO-expert-rules-out-man-made-origin-of-COVID-19-10LYKKORGtq/index.html)
-
-整理撰稿：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
-
-+1
+0
