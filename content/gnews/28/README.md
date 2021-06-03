@@ -1,23 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 高唱《喜马拉雅自由之巅》庆祝新中国联邦成立一周年
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1294385/)
+## 群星熠熠生辉时 新中国联邦人正式亮相纽约新世贸！
+` 加拿大多伦多枫叶农场 羟氯喹64` [轉載自GNews](https://gnews.org/zh-hans/1294536/)
 
-**作者：Faller 2021-06-02**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03101907/15-4.jpg)图片截图自歌曲《喜马拉雅自由之巅》
-2020年6月4 日，郭文贵先生在纽约，手持《新中国联邦宣言》，在班农先生的见证下，在上苍灵光的照耀下，咬指以血盟誓，宣告新中国联邦诞生。6月4日， 是32年前八九六四天安门惨案的纪念日，对于追寻民主自由的中国人来说，六四曾是中华儿女的灾难日。选择6月4日作为新中国联邦的诞生日，那些冤死枉死在天安门广场和牢狱里的八九英灵们，对民权民主法治中国的期望得以延续，中国人不愿为奴的心声在《新中国联邦宣言》里得到详细的展现。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121355/q16-edited-1.png)
+据喜联盟GNEWS记者站于6月3日早上11点半发来的报道：环球瞩目，筹备良久的新中国联邦周年庆典于当日上午11点左右，在纽约曼哈顿新世贸中心102层如期开礼。本次盛典活动的特邀嘉宾，新中国联邦建国的功臣战友们相继盛装亮相于本次气氛热烈的红地毯仪式上。
 
-这一年里新中国联邦人通过GTV和GNews，展示中国共产党以假恶盗骗的手段奴化中国人民并想把世界拖入同样道路的野心；揭露中共释放实验室制造的新冠病毒霍乱世界的邪魔行为。新联邦中国人以其真实正义、善良勤奋和智慧勇敢展现在世界面前。
-
-转眼又到6月4日，新中国联邦一岁了。4年前，郭文贵先生点燃爆料革命这把火，追求真相正道的人纷纷跟随。这一年，新联邦中国人在消灭邪魔共产党的道路上唤醒了世界，让许多国家看清了中共完美犯罪，用权利金钱女色腐蚀世界的野心。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03101924/16-2.jpg)图片来自喜马拉雅华盛顿DC农场
-放声歌唱新中国联邦国歌《喜马拉雅自由之巅》庆祝新中国联邦一岁：用真理铸成剑，斩邪恶与欺骗，七千勇士保卫着母亲尊严……，可以真实地看见中国人稳步朝着实现一人一票选举新政府的目标更近一步了！
-
-庆祝新中国联邦成立一周年！神赐美好家园！
-
-
-
-***发布**：文顾*
+在现场美女战友主持人苍天之女的娓娓点道下，伴随着节奏感动人的乐曲，来宾们容光焕发，精神抖擞地陆续登场并挥笔签字，合影留念于这一永载新中国联邦史册激动人心的光辉时刻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03115956/q2-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120118/q1-1-edited-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120206/q3-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120252/q4-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120328/q5-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120416/q6-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120452/q7-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120535/q9-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120611/q10-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120646/q11-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120728/q12-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120813/q13-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03120856/q14-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121120/q18-edited.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03121159/q17-edited.png)
+以上是喜联盟GNEWS记者站通讯员羟氯喹64的报道。图片来源：GTV
 
 0
