@@ -1,61 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 致命的棘蛋白(S蛋白)
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1293269/)
+## 【热点播报】日本政府将为台积电半导体研发拨款190亿日元
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1293400/)
 
-台湾宝岛农场 马克强
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03014300/%E6%93%B7%E5%8F%9663.jpg)
-从2020年初到现在，中共病毒COVID-19已经造成造成全球3百50几万人的丧命。而中共病毒感染人体的途径，主要是透过棘蛋白(spike protein)或称为S蛋白与人体细胞表面受体血管收缩素转换酶2(ACE2)结合，并且在后续阶段中催化病毒的基因体并释放到细胞中以进行感染 (注1)。然而，随着疫情的延烧与扩散，有越来越多的研究与发现指出，棘蛋白本身就是造成人致命的主要原因。
+作者：纽约香草山健身部 文真
 
-病毒中的**棘蛋白**
-
-全球顶尖生物医学研究机构”萨尔克生物研究所”（Salk Institute）于2021年4月30发表的文章中证实，COVID-19病毒中的棘蛋白是造成致命血栓的主要原因 (注2)。著名医学杂志Circulation Research的研究中指出，SARS-CoV-2的棘蛋白会抑制ACE2的功能，并在透过瓦解细胞中粒线体的功能后，进而造成血管内表层细胞功能丧失，最终形成所在区域组织的损伤 (注3)。
-
-也就是说，中共病毒造成的是血管系统的伤害，而不是一般所认为的呼吸系统。近来的许多案例发现，特别是血栓的情况发生在肺部的微小血管中，进而造成肺泡换气的阻碍，最终形成肺部组织的纤维化。日本研究的资料显示，棘蛋白在进入血液中会随着循环系统并聚集在许多的器官或组织，包括，脾脏、骨髓、肝脏、肾上腺与卵巢等（注4）。其他的还包括神经与大脑等系统。
-
-**疫苗中的棘蛋白**
-
-依据2021年5月31日发表在LifeSiteNews的一篇文章显示，加拿大安大略省Guelph大学病毒免疫学家兼助理教授Byram Bridle指出，在注射COVID-19疫苗之后，原本认为mRNA所产生的棘蛋白，在发挥作用使人体产生抗体之后，应该停留在肩膀的肌肉中。但是，从合作的日本机构所提供的资料显示，由注射疫苗所产生的棘蛋白最后却进入到血液循环中。这种情况就可以解释，为什么会有成千上万的疫苗副作用报告，如血栓、心脏疾病、脑部损伤、及生殖系统等问题 (注4)。
-
-最令人害怕的是目前所有的疫苗设计，无论是透过mRNA或腺病毒的方式，都会使人体内累积出大量的棘蛋白，进而诱发血管发炎以及损伤，最后促成中风、心脏病、偏头痛、血栓等其他有害人体的反应 (注5)。
-
-注射mRNA疫苗的人可谓是『移动的棘蛋白制造工厂』。也就是说，透过接触可以将棘蛋白传播给那些未注射疫苗的人，这就叫做自我扩散疫苗(self-replicating vaccines) (注5)。
-
-截至目前为止，美国FDA还没批准让任何一款COVID-19疫苗获取为中、长期安全的许可，而只是给与紧急授权许可。这说明了目前施打疫苗的人都 ”勇敢” 的参与做实验，而真正中、长期会产生什么的后果目前没有人知道。
-
-最后我们将COVID-19病毒与疫苗做几个归纳：
-
-- COVID-19病毒造成的是：血管系统损伤而不是呼吸系统的损伤。
-- 棘蛋白会随着血液循环系统聚集在任何的器官或组织。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
-- 既使没有病毒，疫苗产生的棘蛋白也会损害人体细胞并引发血管的疾病。
+
+日本经济产业省5月31日宣布，将拨款约190亿日元与半导体巨头“台湾积体电路制造”（TSMC）在日本合作进行半导体制造技术研发。20余家日本企业将参加该芯片技术综合研究所的建立。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03024110/%E5%9B%BE%E7%89%877.png)
+
+据报道，日本经济产业省将从新能源与产业技术综合开发机构（NEDO）的基金中拨出约190亿日元资助台积电，主要有两个项目，分别是5G通讯基础设施研发和尖端半导体制造技术。项目参与者不仅包括包括日本信越化学、旭化成、揖斐电、索尼半导体、住友、昭和电工材料、芝浦机电等日本知名企业，还有东京大学等研究机构。
+
+台积电与日本的合作囊括从研发到原材料供应和制造的芯片全产业链，表明双方是具有诚意的深度合作。台积电与中共国多家半导体企业有合作，曾是华为的芯片供应商。此次台积电宣布在日本建立研发和生产基地，表明台积电将其亚洲芯片产业链脱离中共国的态度。
+
+台积电与日本的合作是互惠互利的双赢合作。台积电是世界著名芯片研发和生产厂商，近年来加速全球布局。在芯片研发领域可与IBM匹敌。不久前，台积电与麻省理工学院共同发布研究成果，利用半金属Bi作为二维材料接触电极，在1纳米芯片研究上取得突破性进展。日本与台积电合作有利于提振日本经济和日本企业在竞争激烈的芯片行业的总体实力。
+
+在中共国和美国的关系日渐紧张的情势下，台湾的独立性和国际地位变成双方争执的焦点。芯片产业是台湾的支柱产业，约占台湾GDP的30%。台积电在日本的合作发展项目，有利于巩固台湾半导体和芯片的优势地位。日本和台湾同属美国第一岛链防御体系，加强日台的经济技术合作有利于巩固美国在亚太安全的战略部署，对中共形成合围之势。
+
+引用：
+
+https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20210531-%E6%97%A5%E6%9C%AC%E6%94%BF%E5%BA%9C%E5%B0%86%E4%B8%BA%E5%8F%B0%E7%A7%AF%E7%94%B5%E5%8D%8A%E5%AF%BC%E4%BD%93%E7%A0%94%E5%8F%91%E6%8B%A8%E6%AC%BE190%E4%BA%BF%E6%97%A5%E5%85%83
+
+https://www.zaobao.com.sg/realtime/china/story20210601-1150879
+
+https://finance.sina.com.cn/tech/2021-06-01/doc-ikmxzfmm5833801.shtml
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
 
-- 在中共病毒的肆虐下，疫苗公司透过洗脑或者欺骗的方鼓吹大家去打疫苗，而不去提倡便宜又有效预防的药物如，喹宁+锌片等 (注6)。并且在国家的紧急授权状态下，民众施打疫苗所产生的后果由民众自负，疫苗公司可以不用负任何的责任。
 
+**更多资讯，更多关注**
 
-（本文仅代表个人立场）
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-文章来源：
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-1. [棘状蛋白与ACE2结合有10种结构变化？破解新冠病毒感染过程| GeneOnline News](https://geneonline.news/ten-structures-of-ace2-spike-protein/)
-2. [The novel coronavirus’ spike protein plays additional key role in illness](https://www.salk.edu/news-release/the-novel-coronavirus-spike-protein-plays-additional-key-role-in-illness/)
-3. [SARS-CoV-2 Spike Protein Impairs Endothelial Function via Downregulation of ACE 2](https://www.ahajournals.org/doi/10.1161/CIRCRESAHA.121.318902)
-4. [Vaccine researcher admits ‘big mistake,’ says spike protein is dangerous ‘toxin ‘](https://www.lifesitenews.com/news/vaccine-researcher-admits-big-mistake-says-spike-protein-is-dangerous-toxin)
-5. [Bombshel​​l Salk Institute science paper reveals the covid spike protein is what’s causing deadly blood clots… and it’s in all the covid vaccines (by design)](https://pandemic.news/2021-05-07-salk-institute-reveals-the-covid-spike-protein-causing-deadly-blood-clots.html#)
-6. [HCQ for COVID-19: real-time analysis of all 298 studies](https://c19hcq.com/)
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-
-文章审核：zhong
-
-文章发布：Little Liu
-
-+1
+0

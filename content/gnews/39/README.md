@@ -1,49 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【周年庆典热播】班农访谈新中国联邦&#8211;中国人的诺亚方舟：自救救人， 拯救西方，造福世界
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1293183/)
+## 福奇邮件曝光掩盖病毒人工问题联合打压实验室来源
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1293307/)
 
-作者： 休斯顿星光农场 星光小蚂蚁
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01225742/Screenshot-2021-06-01-215655.jpg)
-2021年6月4日新中国联邦建国一周年之际， G-TV英喜频道采访了美国白宫前战略顾问斯蒂芬·班农先生。班农先生在直播中高度赞扬了新中国联邦为全人类所做出的巨大贡献。
+台湾宝岛农场 文旦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03020105/%E6%93%B7%E5%8F%9663-0-1.jpg)
+近日美媒对美国首席传染病专家福西（Anthony Fauci，福奇）的多封邮件进行分析，其中福西与中共疾病预防控制中心主任高福的邮件往来，引发外界强烈关注。
 
-班农先生表示：“即将在纽约举行的庆祝新中国联邦建国一周年的活动，是具有重大历史意义的。为什么这么说呢？ 因为我们现在所知道的所有关于中共病毒的真相，包括病毒来源于武汉实验室并被中共蓄意释放，及中共试图掩盖和操纵事实， 让病毒在全世界传播，如果没有郭先生领导的爆料革命和新中国联邦的勇士，这个世界仍会继续被中共的谎言所欺骗。我们无从知道真相，也就更谈不上追究中共和解放军（PLA）制造和传播病毒的责任了。
+周二（6月1日），《华盛顿邮报》披露，他们通过《信息自由法》申请获得了866页福西的电子邮件，这些电子邮件的时间是2020年3月和4月，正值世界卫生组织宣布疫情为「大流行病」和全球进行管制措施的时候。
 
-班农先生说：“在这个重要时刻，新中国联邦将会吸引和聚集更多的、来自全世界所有的反共正义力量”。 爆料革命将会领导世界灭共的大潮，浩浩荡荡，顺之则昌，逆之则亡。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03001324/Screenshot-2021-06-02-230118.jpg)
-*图片来源：休斯顿星光农场 设计部 透明的遮羞布*
+病毒爆发初期，各界为何对实验室来源地说法是阴谋论，原因终于曝光了，中共联合美国重要的核心科学家们，一起打压实验室来源说，提倡病毒自然来源说，这背后的目的是为什么呢?又为什么要这样做呢?病毒不是人类公敌吗?
 
-班农先生还盛赞了新中国联邦人的勇敢和坚韧不拔的品质。 “很多中国人为了追求自由，选择了背井离乡，来到世界各国。摆脱了中共的独裁统治和奴役的中国人，可以自由地发挥他们的聪明才智，用他们的勤劳在海外都得到了经济和文化上的发展。
+从邮件内容可以知道，福奇立马询问是否有参与功能增强实验的合约，对提出本次世纪大流行的病毒研究有人工合成迹象的科学家进行游说、对科学界们及WHO进行秘密会议，积极打压实验室来源说，并开设节目来扰乱所有资讯等等一切作为。
 
-班农先生感慨地说，我们应该永远记住32年前在天安门广场上那些为争取自由而付出生命的年轻的中国人。他们向往自由，并为之付出了生命的代价。 班农先生还说， 西方人其实并不真正的了解“8964“真相，也并不理解纪念”8964“的真正意义。 他们知道很多关于”柏林墙“的故事， 但是他们不知道，血腥镇压中国人追求民主自由的不仅仅是中共，还有西方权贵和精英阶层。因为”天安门屠城血案“爆发的30天后， 当时的美国总统乔治·布什秘密派出了白宫国家安全顾问史考克罗(Brent Scowcroft) 到北京跟中共勾兑，告诉中共领导人天安门大屠杀不会有严重后果。 所以不管中国人多想获得自由，西方政客都会不犹豫地站在中共政党的一边，哪怕面对中共对手无寸铁的学生和百姓的大屠杀，付出血的代价，他们都在所不惜。
+福奇并与中共高进行邮件联系，这一切的一切是为了什么?又要掩盖什么目的?
 
-根据老布什总统图书馆获得的解密文件显示，当时的美国国会想对中共实施严厉制裁，但是老布什总统（共和党）反对这一行动。他在给邓小平的信中表示，愿意承担来自美国国会要求立刻切断与中共经贸互动的巨大压力。还说让美国和中共政府的关系回到正轨。 “8964“惨案发生不久，在**同年****7****月**批准了特别豁免令，允许波音公司出售商用喷射机给中共。**同年****10****月**放松军事制裁，允许中共官员回美。在面对中国的巨大消费市场和廉价劳动力，西方权贵和精英们不但没有严厉制裁和施压中共，反而选择了大开绿灯，与虎谋皮，继续奴役中国人民 。并且对中共的姑息，不分党派区别， 完全一致。 **1994****年**，克林顿总统（民主党）宣布把中共国的最惠国经济待遇和人权问题分离， 也就是说中共国的人权问题不再影响西方跟中共的经济合作。 **2001****年**小布什总统（共和党）帮助中共正式加入了WTO（世贸组织），从此中共政党全面开始在西方翻云覆雨， 肆无忌惮地在国际社会 “蓝金黄”西方各国政要，利诱西方精英阶层一起收割14亿中国人的韭菜。 直到2017年， 郭先生带领的爆料革命，赋予了中国人追求真相和正义的勇气，他带领上亿爆料革命战友一起跟邪恶的中共政党和忘义的西方利益集团抗争，为中国人的自由和尊严而战，不屈不挠。
+2021年5月才刚听证会完的福奇，这些邮件的曝光，完全是对他在听证会的言语，做出最强大的反击，为什么要继续说谎呢?
 
-班农先生说， 新中国联邦的成立的历史意义是巨大的， 因为它结束了中国人被中共和西方无良政客与权贵所奴役的命运。新中国联邦代表的是中国人真正美好的未来，不受任何强权所奴役。
+如今病毒来自中共实验室，已经无法某灭，因此我们不应该称病毒为中共大外宣的「新冠病毒」，应改称「中共病毒」来摆脱中共大外宣的混淆视听。又中国在中共统治的数十年来，实际上是受伤害最严重的受害者，世界应该要对中共不能代表中国有所认识，因此我们针对的是中共国而非中国。
 
-班农先生还说， 新中国联邦虽然是一个Baby（一岁的婴孩），但是它已经展现了非常强大而不可估测的力量， 它已经为这个世界做出了前所未有的巨大贡献。
+中共病毒核心就是ZC45和ZXC21的中共特有种蝙蝠，全球只有中共国内有，并被加以军方列管的蝙蝠，真相是如此的恐怖，但这就是真相，需要面对如今的超限生化武器的超限战争。
 
-班农先生还把自己经营的War  Room Pandemic （战斗室）的成功归功于爆料革命和新中国联邦传播的真相。他说前几天NBC报道War  Room Pandemic的成功故事， 都是得益于他参与爆料革命， 才能够跟向西方世界揭露中共政党危害人类的真相。War  Room Pandemic （战斗室）也有讲英语的新中国联邦华人参与，才让他的节目获得了很多的观众群， 走到了自媒体的最前排。
+未来也将曝光超过866封得更多邮件，隐藏着更巨大的邪恶架构。
 
-班农还高度赞扬了G-TV和G-News。他说，“ G-TV和G-News不但是中国人了解真相的平台， 也是西方人获得真实信息和真相的平台。在明天庆祝新中国联邦建国一周年庆典上， 你们会听到现场西方嘉宾的发言，当他们讲到中共时， 你们就会知道他们对中共的深刻了解和认识都是来自于你们的平台G-TV和G-News。是你们的努力，让西方人和全世界的人了解了真相。 感谢你们！”
+传播真相，缺你不可，你很重要，你的一小步，将是灭共的一大步。
 
-2020年6月3日（北京时间6月4日），班农先生在纽约曼哈顿和爆料革命领袖郭文贵先生共同宣告了新中国联邦成立， 并宣读了英文版的宣言。班农说，中共是一个流氓组织，它不应该继续奴役中国人。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03001357/Screenshot-2021-06-02-231228.jpg)
-信息来源：
+资料来源:
 
-[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20190711-%E7%BE%8E%E5%9B%BD%E5%85%AD%E5%9B%9B%E6%A1%A3%E6%A1%88%E8%A7%A3%E5%AF%86-%E6%98%BE%E7%A4%BA%E8%80%81%E5%B8%83%E4%BB%80%E5%A6%82%E4%BD%95%E5%B8%AE%E5%8A%A9%E9%82%93%E5%B0%8F%E5%B9%B3%E5%BA%A6%E8%BF%87%E9%9A%BE%E5%85%B3](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20190711-%E7%BE%8E%E5%9B%BD%E5%85%AD%E5%9B%9B%E6%A1%A3%E6%A1%88%E8%A7%A3%E5%AF%86-%E6%98%BE%E7%A4%BA%E8%80%81%E5%B8%83%E4%BB%80%E5%A6%82%E4%BD%95%E5%B8%AE%E5%8A%A9%E9%82%93%E5%B0%8F%E5%B9%B3%E5%BA%A6%E8%BF%87%E9%9A%BE%E5%85%B3)
+[福西邮件解密与中共疾控主任的来往惹关注-大纪元](https://www.epochtimes.com/b5/21/6/2/n12994234.htm)
 
-[https://www.latimes.com/archives/la-xpm-1994-05-27-mn-62877-story.html](https://www.latimes.com/archives/la-xpm-1994-05-27-mn-62877-story.html)
+[BREAKING: Fauci Sent Panicked Gain-of-Function E-mails to Staff in Early COVID Days.](https://thenationalpulse.com/breaking/fauci-sent-panicked-gain-of-function-e-mails-to-staff-in-early-covid-days/)
 
-[https://thediplomat.com/2016/12/bush-gave-china-permanent-normal-trade-relations-status-with-the-us-15-years-ago-what-did-that-change/](https://thediplomat.com/2016/12/bush-gave-china-permanent-normal-trade-relations-status-with-the-us-15-years-ago-what-did-that-change/)
+[Fauci Emails Give Insight To Early Days Of COVID Response](https://www.buzzfeednews.com/article/nataliebettendorf/fauci-emails-covid-response)
 
-[https://gtv.org/video/id=60b7889cf6ff4b33fb995b00](https://gtv.org/video/id=60b7889cf6ff4b33fb995b00)
+[2020 Exploded The Myth About Left Wing Love Of The Poor](https://www.zerohedge.com/political/2020-exploded-myth-about-left-wing-love-poor)
 
-编辑/校对/发稿：Helen
+[Fauci’s Emails with Chinese CDC Director: ‘We Will Get Through Together’](https://www.breitbart.com/politics/2021/06/01/anthony-fauci-chinese-cdc-directors-email-exchanges-exposed-through-together/)
 
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+福奇邮件下载网址:
 
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01225742/Screenshot-2021-06-01-215655.jpg)
+[leopold-nih-foia-anthony-fauci-emails.pdf (documentcloud.org)](https://assets.documentcloud.org/documents/20793561/leopold-nih-foia-anthony-fauci-emails.pdf)
+
+台湾宝岛农场youtobe:
+
+[2021.05.30珍妮法官：福奇曾在2017年就预测川普政府会遇上意想不到的疫情大流行](https://www.youtube.com/watch?v=B4DTNIQ2INo)
+
+希望大家帮忙订阅分享!!!感谢大家!!!
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+文章审核：zhong
+
+文章发布：Little Liu
+
 0

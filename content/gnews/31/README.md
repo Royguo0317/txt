@@ -1,61 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇邮件曝光掩盖病毒人工问题联合打压实验室来源
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1293307/)
+## 中共挑战澳大利亚贸易注定会失败
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1293407/)
 
-台湾宝岛农场 文旦
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03020105/%E6%93%B7%E5%8F%9663-0-1.jpg)
-近日美媒对美国首席传染病专家福西（Anthony Fauci，福奇）的多封邮件进行分析，其中福西与中共疾病预防控制中心主任高福的邮件往来，引发外界强烈关注。
+撰稿：信心满满
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03030948/13B0F356-18E4-46BB-B16D-AB049E84A094-edited.png)
+图片网络截图
 
-周二（6月1日），《华盛顿邮报》披露，他们通过《信息自由法》申请获得了866页福西的电子邮件，这些电子邮件的时间是2020年3月和4月，正值世界卫生组织宣布疫情为「大流行病」和全球进行管制措施的时候。
+中共武汉病毒大爆发，中共故意掩盖使病毒传播到世界各地。 澳大利亚从去年到目前一共感染人数29，978，死亡人数910. 因此， 病毒对澳大利亚经济打击是严重的， 不少小的生意无法经营下去，大约29500人员失业，失业率为7.9%。 在病毒爆发前，失业率一直是5.2%。
 
-病毒爆发初期，各界为何对实验室来源地说法是阴谋论，原因终于曝光了，中共联合美国重要的核心科学家们，一起打压实验室来源说，提倡病毒自然来源说，这背后的目的是为什么呢?又为什么要这样做呢?病毒不是人类公敌吗?
+澳大利亚Morrison政府在去年9月25号举行75届联合国大会上要求调查武汉病毒来源后，中共国驻堪培拉大使就对澳大利亚贸易发出威胁。澳大利亚又在今年对中共国对待新疆维吾尔族谴责。随后，中共对澳大利亚实施了贸易制裁，停止进口澳洲牛肉，对澳洲进口产品加收了80.5%的关税，阻止了4.39亿澳币大麦交易，还对澳大利亚红酒进行反倾销调查。
 
-从邮件内容可以知道，福奇立马询问是否有参与功能增强实验的合约，对提出本次世纪大流行的病毒研究有人工合成迹象的科学家进行游说、对科学界们及WHO进行秘密会议，积极打压实验室来源说，并开设节目来扰乱所有资讯等等一切作为。
+澳大利亚作为一个民主自由，又是五眼联盟的国家之一，通过其独立不惧中共国淫威
 
-福奇并与中共高进行邮件联系，这一切的一切是为了什么?又要掩盖什么目的?
+做好了防止病毒大爆发措施， 经济和就业得到了改善. 今年澳洲统计局3月公布的数据，失业率下降5.6%，就业人数1千3百万。
 
-2021年5月才刚听证会完的福奇，这些邮件的曝光，完全是对他在听证会的言语，做出最强大的反击，为什么要继续说谎呢?
+中共国对澳洲铁矿石和天然气的需求并没有减少因为中共国是一个能源消耗大国。它需要澳洲优质铁矿石和天然气。
 
-如今病毒来自中共实验室，已经无法某灭，因此我们不应该称病毒为中共大外宣的「新冠病毒」，应改称「中共病毒」来摆脱中共大外宣的混淆视听。又中国在中共统治的数十年来，实际上是受伤害最严重的受害者，世界应该要对中共不能代表中国有所认识，因此我们针对的是中共国而非中国。
+最近铁矿石和天然气价格飙升，铁矿石每吨200美金，天然气价格已经回到两年之前水平。这些价格上涨对澳洲经济是非常有利，相反对中共国是不利的。澳洲虽然在红酒，小麦上被征不平等高额税由于中共国报复， 但是， 铁矿石和天然气价格利好大大抵消了红酒和小麦的损失。
 
-中共病毒核心就是ZC45和ZXC21的中共特有种蝙蝠，全球只有中共国内有，并被加以军方列管的蝙蝠，真相是如此的恐怖，但这就是真相，需要面对如今的超限生化武器的超限战争。
 
-未来也将曝光超过866封得更多邮件，隐藏着更巨大的邪恶架构。
 
-传播真相，缺你不可，你很重要，你的一小步，将是灭共的一大步。
+（文章观点纯属个人）
 
-资料来源:
+*审核、编辑：cindy*
 
-[福西邮件解密与中共疾控主任的来往惹关注-大纪元](https://www.epochtimes.com/b5/21/6/2/n12994234.htm)
+资料来源：
 
-[BREAKING: Fauci Sent Panicked Gain-of-Function E-mails to Staff in Early COVID Days.](https://thenationalpulse.com/breaking/fauci-sent-panicked-gain-of-function-e-mails-to-staff-in-early-covid-days/)
+[https://www.reuters.com/article/us-health-coronavirus-australia-china-idUSKCN26H00T](https://www.reuters.com/article/us-health-coronavirus-australia-china-idUSKCN26H00T)
 
-[Fauci Emails Give Insight To Early Days Of COVID Response](https://www.buzzfeednews.com/article/nataliebettendorf/fauci-emails-covid-response)
+[https://www.theguardian.com/business/2020/oct/15/australias-unemployment-rate](https://www.theguardian.com/business/2020/oct/15/australias-unemployment-rate)
 
-[2020 Exploded The Myth About Left Wing Love Of The Poor](https://www.zerohedge.com/political/2020-exploded-myth-about-left-wing-love-poor)
+[https://www.9news.com.au/national/australia-s-unemployment-rate-falls-in-march](https://www.9news.com.au/national/australia-s-unemployment-rate-falls-in-march)
 
-[Fauci’s Emails with Chinese CDC Director: ‘We Will Get Through Together’](https://www.breitbart.com/politics/2021/06/01/anthony-fauci-chinese-cdc-directors-email-exchanges-exposed-through-together/)
-
-福奇邮件下载网址:
-
-[leopold-nih-foia-anthony-fauci-emails.pdf (documentcloud.org)](https://assets.documentcloud.org/documents/20793561/leopold-nih-foia-anthony-fauci-emails.pdf)
-
-台湾宝岛农场youtobe:
-
-[2021.05.30珍妮法官：福奇曾在2017年就预测川普政府会遇上意想不到的疫情大流行](https://www.youtube.com/watch?v=B4DTNIQ2INo)
-
-希望大家帮忙订阅分享!!!感谢大家!!!
-
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-
-文章审核：zhong
-
-文章发布：Little Liu
-
+[https://www.abs.gov.au/statistics/labour/employment-and-unemployment/labour-force-australia/latest-release](https://www.abs.gov.au/statistics/labour/employment-and-unemployment/labour-force-australia/latest-release)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01003057/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 0

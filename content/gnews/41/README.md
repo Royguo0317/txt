@@ -1,47 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】澳大利亚前总理力挺现政府，捍卫国家主权和利益绝不退让
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1293148/)
+## 致命的棘蛋白(S蛋白)
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1293269/)
 
-作者： 纽约香草山健身部 Jack Li文阳
+台湾宝岛农场 马克强
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03014300/%E6%93%B7%E5%8F%9663.jpg)
+从2020年初到现在，中共病毒COVID-19已经造成造成全球3百50几万人的丧命。而中共病毒感染人体的途径，主要是透过棘蛋白(spike protein)或称为S蛋白与人体细胞表面受体血管收缩素转换酶2(ACE2)结合，并且在后续阶段中催化病毒的基因体并释放到细胞中以进行感染 (注1)。然而，随着疫情的延烧与扩散，有越来越多的研究与发现指出，棘蛋白本身就是造成人致命的主要原因。
+
+病毒中的**棘蛋白**
+
+全球顶尖生物医学研究机构”萨尔克生物研究所”（Salk Institute）于2021年4月30发表的文章中证实，COVID-19病毒中的棘蛋白是造成致命血栓的主要原因 (注2)。著名医学杂志Circulation Research的研究中指出，SARS-CoV-2的棘蛋白会抑制ACE2的功能，并在透过瓦解细胞中粒线体的功能后，进而造成血管内表层细胞功能丧失，最终形成所在区域组织的损伤 (注3)。
+
+也就是说，中共病毒造成的是血管系统的伤害，而不是一般所认为的呼吸系统。近来的许多案例发现，特别是血栓的情况发生在肺部的微小血管中，进而造成肺泡换气的阻碍，最终形成肺部组织的纤维化。日本研究的资料显示，棘蛋白在进入血液中会随着循环系统并聚集在许多的器官或组织，包括，脾脏、骨髓、肝脏、肾上腺与卵巢等（注4）。其他的还包括神经与大脑等系统。
+
+**疫苗中的棘蛋白**
+
+依据2021年5月31日发表在LifeSiteNews的一篇文章显示，加拿大安大略省Guelph大学病毒免疫学家兼助理教授Byram Bridle指出，在注射COVID-19疫苗之后，原本认为mRNA所产生的棘蛋白，在发挥作用使人体产生抗体之后，应该停留在肩膀的肌肉中。但是，从合作的日本机构所提供的资料显示，由注射疫苗所产生的棘蛋白最后却进入到血液循环中。这种情况就可以解释，为什么会有成千上万的疫苗副作用报告，如血栓、心脏疾病、脑部损伤、及生殖系统等问题 (注4)。
+
+最令人害怕的是目前所有的疫苗设计，无论是透过mRNA或腺病毒的方式，都会使人体内累积出大量的棘蛋白，进而诱发血管发炎以及损伤，最后促成中风、心脏病、偏头痛、血栓等其他有害人体的反应 (注5)。
+
+注射mRNA疫苗的人可谓是『移动的棘蛋白制造工厂』。也就是说，透过接触可以将棘蛋白传播给那些未注射疫苗的人，这就叫做自我扩散疫苗(self-replicating vaccines) (注5)。
+
+截至目前为止，美国FDA还没批准让任何一款COVID-19疫苗获取为中、长期安全的许可，而只是给与紧急授权许可。这说明了目前施打疫苗的人都 ”勇敢” 的参与做实验，而真正中、长期会产生什么的后果目前没有人知道。
+
+最后我们将COVID-19病毒与疫苗做几个归纳：
+
+- COVID-19病毒造成的是：血管系统损伤而不是呼吸系统的损伤。
+- 棘蛋白会随着血液循环系统聚集在任何的器官或组织。
 
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
+- 既使没有病毒，疫苗产生的棘蛋白也会损害人体细胞并引发血管的疾病。
 
 
-继澳大利亚前总理陆克文表示，各国要团结起来对抗中共之后，另一位澳大利亚前总理特恩布尔(Malcolm Turnbull)也说，澳大利亚在捍卫国家主权和利益时绝不能退让，屈从只会招来被对方鄙视，两位前总理先后发声直指中共，绝非偶然。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03001238/Untitled-design-80.png)图片来源：WSJ
-5月31日，特恩布尔在洛伊国际政策研究所(Lowy Institute for International Policy)表示，由于中共国在南中国海、工业间谍、战狼外交以及贸易制裁等方面越来越咄咄逼人，澳大利亚的民意越来越倾向于与中共国对抗。
+- 在中共病毒的肆虐下，疫苗公司透过洗脑或者欺骗的方鼓吹大家去打疫苗，而不去提倡便宜又有效预防的药物如，喹宁+锌片等 (注6)。并且在国家的紧急授权状态下，民众施打疫苗所产生的后果由民众自负，疫苗公司可以不用负任何的责任。
 
-不久前，澳大利亚前总理陆克文（Kevin Rudd）对BBC说，各国要避免单独作战，应该团结起来，对抗中共国日益增长的经济和地缘政治胁迫。
 
-在星期一的讲话中，特恩布尔前总理说，有些人或许对莫里森政府发表对中共的言论提出批评，但真正的问题在于中共国，而非澳大利亚。澳大利亚不应该单方面退缩，去解冻两国关系。澳洲必须坚守阵地，继续捍卫自己的价值和利益。另外他建议，澳大利亚官员们在言辞上需小心谨慎，避免激怒中共。
+（本文仅代表个人立场）
 
-澳大利亚总理斯科特·莫里森于4月23日，呼吁世界卫生组织所有成员国支持对新冠病毒全球大流行进行独立调查，澳大利亚在追查中共病毒问题上走在世界的最前面，因此，遭到中共的贸易报复。
+文章来源：
 
-两位前总理先后出来，支持澳大利亚政府的中共国政策，内容和声调一致，直指中共，意义重大。
+1. [棘状蛋白与ACE2结合有10种结构变化？破解新冠病毒感染过程| GeneOnline News](https://geneonline.news/ten-structures-of-ace2-spike-protein/)
+2. [The novel coronavirus’ spike protein plays additional key role in illness](https://www.salk.edu/news-release/the-novel-coronavirus-spike-protein-plays-additional-key-role-in-illness/)
+3. [SARS-CoV-2 Spike Protein Impairs Endothelial Function via Downregulation of ACE 2](https://www.ahajournals.org/doi/10.1161/CIRCRESAHA.121.318902)
+4. [Vaccine researcher admits ‘big mistake,’ says spike protein is dangerous ‘toxin ‘](https://www.lifesitenews.com/news/vaccine-researcher-admits-big-mistake-says-spike-protein-is-dangerous-toxin)
+5. [Bombshel​​l Salk Institute science paper reveals the covid spike protein is what’s causing deadly blood clots… and it’s in all the covid vaccines (by design)](https://pandemic.news/2021-05-07-salk-institute-reveals-the-covid-spike-protein-causing-deadly-blood-clots.html#)
+6. [HCQ for COVID-19: real-time analysis of all 298 studies](https://c19hcq.com/)
 
-陆克文是澳大利亚工党资深领导人，特恩布尔和莫里森同属于自由党。工党和自由党是澳大利亚的两大政党。证明澳大利亚在应对中共的问题上，两党达成一致共识，共同支持莫里森政府对中共的强硬态度。
 
-同时，两位前总理都提到言辞谨慎，避免激怒中共。暗示要与西方盟国步调一致，紧跟美国其后，因为澳大利亚在人口、经济和军事与中共国无法直接对抗。与盟国联合起来，才是澳大利亚抗共的最好方式。
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-参考阅读：https://www.voachinese.com/a/australia-members-should-support-proposed-coronavirus-inquiry-20200423/5388160.html
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-校对/发稿：火内
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
-**更多资讯，更多关注**
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+文章审核：zhong
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+文章发布：Little Liu
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
