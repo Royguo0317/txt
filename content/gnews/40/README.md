@@ -1,23 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 也谈“躺平”现象
-` 喜韩Gnews中文` [轉載自GNews](https://gnews.org/zh-hans/1293380/)
+## 中共挑战澳大利亚贸易注定会失败
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1293407/)
 
-作者：雅典娜三号 配图：闪闪 审核发布：웬샤밍
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03025127/image0-1-3.jpg)
-近日，“躺平”一词在网络上刷屏，它最初来自百度贴吧中一个已被删除的帖子《躺平即是正义》。该帖一出来立即引发许多年轻人共鸣，“躺平学”在网上一路走红。“躺平族”主张不买房、不买车、不结婚生子、不消费，维持最低生存标准的状态。
+撰稿：信心满满
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03030948/13B0F356-18E4-46BB-B16D-AB049E84A094-edited.png)
+图片网络截图
 
-**一、“躺平”现象的时代背景**
+中共武汉病毒大爆发，中共故意掩盖使病毒传播到世界各地。 澳大利亚从去年到目前一共感染人数29，978，死亡人数910. 因此， 病毒对澳大利亚经济打击是严重的， 不少小的生意无法经营下去，大约29500人员失业，失业率为7.9%。 在病毒爆发前，失业率一直是5.2%。
 
-为什么这个时代出现了“躺平”现象呢？因为中共恶魔对中国民众的压榨已经到了极限了，已经无油可榨了。房子、医疗、教育、养老、税赋等等都像大山一样压在老百姓头上。底层民众无论如何奋斗，都无法逃脱中共恶魔吸血鬼般的残酷盘剥，也无法改变自己现有的困境。怎么办呢？那就改变自己的生活态度，降低自己的生活欲望。不焦虑，不奢望，对于前程没有什么向往、期待和盼头，每天就宅在家里，安于现状。甚至有的年轻人，不买房、不买车、不结婚生子、不消费、不工作，就这么安静放松地躺着。“躺平”是老百姓被中共恶魔压榨殆尽后的无奈之举。
+澳大利亚Morrison政府在去年9月25号举行75届联合国大会上要求调查武汉病毒来源后，中共国驻堪培拉大使就对澳大利亚贸易发出威胁。澳大利亚又在今年对中共国对待新疆维吾尔族谴责。随后，中共对澳大利亚实施了贸易制裁，停止进口澳洲牛肉，对澳洲进口产品加收了80.5%的关税，阻止了4.39亿澳币大麦交易，还对澳大利亚红酒进行反倾销调查。
 
-**二、“躺平”是“大觉醒”的开端**
+澳大利亚作为一个民主自由，又是五眼联盟的国家之一，通过其独立不惧中共国淫威
 
-躺平下来的人们在思考，在觉醒：为什么自己奋斗了几十年还是两手空空呢？是自己不够努力吗？我挣的钱去哪里了？为什么“赵家人”不劳动反而活的有滋有味呢？造成自己生活困境的罪魁祸首是谁呢？人们一定会在“躺平”中认识到中共恶魔才是造成自己贫困的总根源，从而带来全民的“大觉醒”。
+做好了防止病毒大爆发措施， 经济和就业得到了改善. 今年澳洲统计局3月公布的数据，失业率下降5.6%，就业人数1千3百万。
 
-**三、“躺平”是全民反抗的初始形式**
+中共国对澳洲铁矿石和天然气的需求并没有减少因为中共国是一个能源消耗大国。它需要澳洲优质铁矿石和天然气。
 
-既然不能有尊严的站着，也不想屈辱的跪下，那就躺下。“躺平”即是无奈之举，也是向“赵家人”发出无声的反抗：我可以卑微的躺下，也不想成为你们任意收割的韭菜。老百姓以这种新的不合作运动对中共恶魔说“不”。“躺平”中，灵魂在觉醒，怒火在中烧，力量在凝聚！随着真相的广泛传播和灭共大潮的迅猛发展，“躺平族”一定不再躺平，他们一定会成为顶天立地的自由人！
+最近铁矿石和天然气价格飙升，铁矿石每吨200美金，天然气价格已经回到两年之前水平。这些价格上涨对澳洲经济是非常有利，相反对中共国是不利的。澳洲虽然在红酒，小麦上被征不平等高额税由于中共国报复， 但是， 铁矿石和天然气价格利好大大抵消了红酒和小麦的损失。
 
+
+
+（文章观点纯属个人）
+
+*审核、编辑：cindy*
+
+资料来源：
+
+[https://www.reuters.com/article/us-health-coronavirus-australia-china-idUSKCN26H00T](https://www.reuters.com/article/us-health-coronavirus-australia-china-idUSKCN26H00T)
+
+[https://www.theguardian.com/business/2020/oct/15/australias-unemployment-rate](https://www.theguardian.com/business/2020/oct/15/australias-unemployment-rate)
+
+[https://www.9news.com.au/national/australia-s-unemployment-rate-falls-in-march](https://www.9news.com.au/national/australia-s-unemployment-rate-falls-in-march)
+
+[https://www.abs.gov.au/statistics/labour/employment-and-unemployment/labour-force-australia/latest-release](https://www.abs.gov.au/statistics/labour/employment-and-unemployment/labour-force-australia/latest-release)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01003057/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 0

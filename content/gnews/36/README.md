@@ -1,39 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共挑战澳大利亚贸易注定会失败
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1293407/)
+## 喜韩农场回眸
+` 喜韩Gnews中文` [轉載自GNews](https://gnews.org/zh-hans/1293445/)
 
-撰稿：信心满满
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03030948/13B0F356-18E4-46BB-B16D-AB049E84A094-edited.png)
-图片网络截图
+作者：理想国 配图：闪闪 审核发布：웬샤밍
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03032335/016E348A-0E7E-4F41-A880-896FA2FC8EFC.jpeg)
+我们从和平时代，突然跳入世界被胁迫、充满挑战的紧张时期，是战胜还是被压垮，都是我们唯一的选择。
 
-中共武汉病毒大爆发，中共故意掩盖使病毒传播到世界各地。 澳大利亚从去年到目前一共感染人数29，978，死亡人数910. 因此， 病毒对澳大利亚经济打击是严重的， 不少小的生意无法经营下去，大约29500人员失业，失业率为7.9%。 在病毒爆发前，失业率一直是5.2%。
+这个中途，我们是被剩下的，健康的，知道真相的支撑人。突如其来的病毒…经济的崩溃…医疗系统的瘫痪…失去亲人的悲痛…希望之光被劫持…昨日今日都在经历着……
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03032309/3B9E4515-91C1-4BF7-8251-45848FBED739.png)
+回想这一切，我们是幸运的吗？不是也是，因为我们是强制被塞进网络智能的洗脑人，另一面，我们也是用手指就可以杀人和救人先行者，然而使命给了我们光……真相和重生，而真相的终极意义确是：别人的命运，就掌握在你的手中，Doscord农场群的建立，使于你能参与进来，尽你所能………解救更多生命！
 
-澳大利亚Morrison政府在去年9月25号举行75届联合国大会上要求调查武汉病毒来源后，中共国驻堪培拉大使就对澳大利亚贸易发出威胁。澳大利亚又在今年对中共国对待新疆维吾尔族谴责。随后，中共对澳大利亚实施了贸易制裁，停止进口澳洲牛肉，对澳洲进口产品加收了80.5%的关税，阻止了4.39亿澳币大麦交易，还对澳大利亚红酒进行反倾销调查。
+郭先生就是世界的蝴蝶效应，我们的新中国联邦就是蜻蜓点水，用波光粼粼来震动整个湖面…整片大海，时间证明，我们做到了！！
 
-澳大利亚作为一个民主自由，又是五眼联盟的国家之一，通过其独立不惧中共国淫威
+农场建立初期，被洗脑者充当违类，这浅意识的语言攻击，被反噬的当然只是当事者的珍贵时间，而最让人们心痛的，却是高级的蛇与燕子，背负着觉知，成为钱与权利的奴隶，行尸走肉的喘息着，做着自己不想做的事，墙内又有多少这样的镜像。
 
-做好了防止病毒大爆发措施， 经济和就业得到了改善. 今年澳洲统计局3月公布的数据，失业率下降5.6%，就业人数1千3百万。
+世界暖了，人心也就暖了，我们反洗脑者不追逐也不针对，因为好坏没有定义，只在一念，用温暖救赎温暖，时间也会融化这些冰冷者…
 
-中共国对澳洲铁矿石和天然气的需求并没有减少因为中共国是一个能源消耗大国。它需要澳洲优质铁矿石和天然气。
+我们终于意识到洗脑的威力，是我们听从了潜意识，来到这里，被洗脑反复吞噬的我们，经历着反洗脑的磨炼与升华，无论个人还是集体，我们燃烧着、交织着、挣扎着……但这一切都在化蛹为蝶，首尔喜马拉雅农场就在这样的环境，一分一刻的成长。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03032355/F56F0EC0-1E0A-42ED-BA31-5CE4C8A8FE1A-scaled.jpeg)
+农场是让战友的心灵不再战战兢兢，我们被挤压到这如履薄冰悲痛的时代，这条船是要送我们上岸，它是一个怀抱，温暖的…
 
-最近铁矿石和天然气价格飙升，铁矿石每吨200美金，天然气价格已经回到两年之前水平。这些价格上涨对澳洲经济是非常有利，相反对中共国是不利的。澳洲虽然在红酒，小麦上被征不平等高额税由于中共国报复， 但是， 铁矿石和天然气价格利好大大抵消了红酒和小麦的损失。
+我相信，历史总是重复的，也确实在重复着，这场浩大的生物武器战争，我们的参与、行动，已经被历史刻上了记号！我们也要努力为这场战争涂上美丽的句号！战友们，继续加油！
 
-
-
-（文章观点纯属个人）
-
-*审核、编辑：cindy*
-
-资料来源：
-
-[https://www.reuters.com/article/us-health-coronavirus-australia-china-idUSKCN26H00T](https://www.reuters.com/article/us-health-coronavirus-australia-china-idUSKCN26H00T)
-
-[https://www.theguardian.com/business/2020/oct/15/australias-unemployment-rate](https://www.theguardian.com/business/2020/oct/15/australias-unemployment-rate)
-
-[https://www.9news.com.au/national/australia-s-unemployment-rate-falls-in-march](https://www.9news.com.au/national/australia-s-unemployment-rate-falls-in-march)
-
-[https://www.abs.gov.au/statistics/labour/employment-and-unemployment/labour-force-australia/latest-release](https://www.abs.gov.au/statistics/labour/employment-and-unemployment/labour-force-australia/latest-release)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01003057/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 0
