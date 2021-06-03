@@ -1,36 +1,102 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大象快讯】扎克伯格和福奇的互动邮件曝光
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1292773/)
+## 【香草诗词汇】锅言灶语（第一季尾篇）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1292984/)
 
-第一封是扎克伯格发给福奇的，邮件大意：
+## –治大国如烹小鲜–
+– ＂64＂建邦周年纪–
+–口味歇业下季筹中–
 
-托尼，非常感谢，分享一些我们可以帮助你发送信息的方法。这不是公开的，但我们正在建立一个冠状病毒的信息中心，我们将把它放在每个人的Facebook上（2亿和全球25亿人的社交媒体上），由两个目标：一是确保人们可以从可靠的来源获取权威的信息，二是提供人们使用互联网的想法。作为这个中心的核心部分， 我们认为可以直播您和有影响力的政治人物的24小时直播，也可采用其他方式。我们可会和健康专家做一系列的节目放在这个中心。
+作者：纽约香草山健身部 澄道
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02215015/E241jgkWYAENUm8.jpg)
-
-第二封邮件是福奇发给比勒的，题目为来自马克扎克伯格的邀请，大意：
-
-我会打电话给马克，告诉他我有兴趣做这件事情，然后还会告诉他你会帮他拿到美国国家政府联络点的名字。我同意，如果比尔同意的话，他应该可以把权力交给白宫。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02215240/E241mBsWUA8hYK6.jpg)
-
-参考链接：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
 
-> Anthony Fauci Also Conspired With Mark Zuckerberg.. [pic.twitter.com/g7Qwi6uuWu](https://t.co/g7Qwi6uuWu)
-> — J̵̟̦̲̞̭̱̀̈́͑̄̇̈́̚͝ustice (@The\_Justice7) [June 2, 2021](https://twitter.com/The_Justice7/status/1400115520062607360?ref_src=twsrc%5Etfw)
+建店缘启
+灭共惩贼相宜中
+有话要说
+锅言灶语画外鸣
 
+锅子
+灶子
+厨二
+翠花
+翠绿
+帮厨阿姨
 
+曾经的
+人才济济
+自发合和同灭共
+曾经的
+干劲十足
+无我无求只铲毒
 
-图片来源：[https://twitter.com/](https://twitter.com/)
+怎奈
+＂口味难听＂
+COVID-19到如今
+店内仅剩
+厨二
+及灶子
+二位
+且言语不停
+……
 
-整理撰稿：蓝精灵
+为＂64＂周年聚
+北美神奇健身教练
+亲手打造
+＂郭氏烧鸡＂
+请问喻义是啥呀？
+仅仅是在
+为战友们食用？
 
-校对发布：Penny
+摇着头的
+厨二
+情不自禁发出
+喃喃低语
+但又好像
+自言自语
+声虽有点弱
+但音节中不乏笃定：
+＂治大国如烹小鲜！＂
+吗？
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+什么意思！？
+你还是想要
+再＂烹小鲜＂
+开灶续张？
 
-+1
+我跟您
+ 讲实话
+
+二厨与
+翠绿
+现已深耕
+＂take away＂
+外卖业（Toronto）
+月收万美金
+您觉得他们
+还能回店吗？
+…..
+
+@澄道来了
+@爱动爱议码06022
+
+校对/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

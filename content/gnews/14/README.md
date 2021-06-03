@@ -1,25 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国呼吁北约深化与日本的关系应对中俄威胁
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1292969/)
+## 2021年预计全球失业人数至少2.2亿人
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1293041/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02224257/N-1.jpg)merics.org
-共同通讯社 (Kyodo News) 6月2日报道，美国国务卿布林肯(Antony Blinken) 6月1日鼓励北大西洋公约组织(North Atlantic Treaty Organization，简称:北约)深化与日本的合作，该组织正寻求提高应对中共崛起和俄罗斯威胁的能力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/02231142/E.jpg)ece.engin.umich.edu
+《德国之声》当地时间6月3日转载了一份新的联合国报告，报告显示中共病毒大流行期间的失业破坏了世界“五年的进展”。而且这种情况预计不会很快恢复。
 
-美国国务院说，在北约外长的一次虚拟会议上，布林肯强调了联盟伙伴关系的重要性，并将澳大利亚、日本、新西兰和韩国列为北约应该加强联系的国家。
+联合国国际劳工组织(ILO)6月2日发布的一份报告称，全球就业增长要到2023年才能恢复到大流行前的水平。《2021年世界就业和社会展望报告》预计，今年至少有2.2亿人失业，预计明年只有轻微改善。
 
-美国国务院没有进行详细说明，但布林肯表示将支持北约秘书长斯托尔滕贝格的努力，使这个30个成员国的联盟“更有弹性和能力应对来自俄罗斯和中共国的系统性挑战”。
+全球劳动力市场受到中共病毒大流行的沉重打击，复苏缓慢。预计2022年的失业人数为2.05亿，仍高于2019年的1.87亿。报告称，“至少在2023年之前，就业增长将不足以弥补遭受的损失。”
 
-拜登(Joe Biden)总统领导的美国政府一直在团结盟友和志同道合的国家，共同应对民主国家面临的来自中共国和俄罗斯等专制国家对国际规则的挑战。在美国的主要盟友中，日本一直被置于美国对抗中共国在印度洋-太平洋地区野心的战略中心，日本首相菅义伟(Yoshihide Suga)成为拜登今年1月就职以来在白宫会晤的首位外国领导人。
+大量失业对全球不平等造成了灾难性的影响，妇女、年轻人和那些在非正式部门工作的人受到的打击最大。
 
-拜登政府还一直鼓励日本和韩国改善因战时赔偿问题而日益恶化的双边关系，以加深合作共同抵抗中共和朝鲜威胁。
+国际劳工组织的报告称，自2019年以来，有1.08亿人陷入贫困或极端贫困。
+
+该报告指出，“五年以来，中共国在消除劳动贫困方面取得的进展已经付之一炬。”
+
+联合国劳工机构预测，如果疫情没有爆发，全球可能会创造大约3000万个新工作岗位。而相反的是目前许多小企业已经破产或面临严重困难。
+
+国际劳工组织主席认为后疫情时代“工作将变得不同”。国际劳工组织总干事盖伊·莱德指出，中共病毒疫情后将出现更多“混合工作形式”。全球供应链的公司可能会寻求流程简化，这可能对世界各地的生产产生“深远的”影响。
+
+该报告预测，2021年下半年就业增长将开始不均衡，今年将创造1亿个新职位。然而，“预计许多新增就业岗位的生产率和质量都较低。”
+
+事实上失业率并没有反映出对劳动力市场的影响。如果考虑到被迫减少的工作时间，真正的影响要大得多。虽然有的国家，例如美国已重新开始招聘，但在欧洲，许多员工仍被困在缩短工时的计划中。
 
 参考链接：
 
-[https://english.kyodonews.net/news/2021/06/bdf40f7c1c09-us-calls-on-nato-to-deepen-ties-with-japan-amid-chinas-rise.html](https://english.kyodonews.net/news/2021/06/bdf40f7c1c09-us-calls-on-nato-to-deepen-ties-with-japan-amid-chinas-rise.html)
+[https://www.dw.com/en/employment-will-not-recover-from-covid-pandemic-until-2023-report/a-57764946?maca=en-rss-en-all-1573-rdf](https://www.dw.com/en/employment-will-not-recover-from-covid-pandemic-until-2023-report/a-57764946?maca=en-rss-en-all-1573-rdf)
 
 0
