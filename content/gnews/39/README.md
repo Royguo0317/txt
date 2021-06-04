@@ -1,39 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦成立一周年6月4日直播同步精要文字版（七）
-` 喜联盟七哥直播组` [轉載自GNews](https://gnews.org/zh-hans/1295288/)
+## 劳伦斯·塞林（Laurence Sellin）博士对Covid-19起源的更新
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1295745/)
 
-听写：
-纽约香草山农场 Dolores
-纽约香草山农场 GForever(文紫)
-首尔喜韩农场 郭先生家的Snow
-多伦多枫叶农场 Aviva
+**字幕内容：**
 
-校对整合：
-纽约香草山农场 GForever(文紫)
+**劳伦斯·塞林（Laurence Sellin）博士**
 
-封面制作/发布：
-纽约香草山农场 369文驹
+the PLA’S biowarfare program has three levels
+人民解放军的生物战计划分为三个级别
 
+first, there is a core secret military level
+首先，是一个核心秘密军事级别
 
+Layered on top of that are China’s universities and civilian institutions
+在此之上的是中共国的大学和民间机构
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03155743/7.%E8%BF%88%E5%85%8B%E5%B0%94%E5%BC%97%E6%9E%97%E7%AF%87.jpg)
+it is that the middle layer which gives the PLA
+正是中间层让人民解放军
 
+access to the knowledge and skills of the international virus research community
+能够接触到国际病毒研究界的知识和技能
 
+overall command and control of the PLA’s biowarfare program
+总体指挥并且控制人民解放军的生物战计划
 
-迈克尔弗林（Michael Flynn）将军在主会场发言：
+is done through the Academy of military medical Sciences
+是通过军事医学科学院去完成的
 
-1.我真的希望能跟每一个人都可以拍照留念，这是世界上一个重大的转型时期，只要我还活着，我不能让这个国家被社会主义控制，我已经度过了我人生中最糟糕的时刻，在座的各位都在担心下一代和这个国家未来的，我们的价值观和原则是共同的。这个文件就是美国的宪法， 4500个字的《独立宣言》，这就是我们的价值观，这是我们相互的一个承诺。他们都在讨论美国到底发生了什么，我们被赋予自由的权利。在过去的几个月，我去过15个州，我看到了一个非常大的改革和大觉醒，每个人都非常重要，通过我的学习，我知道千年百年的计划是有多么的重要，你们真的非常了不起。我看到超限战这本书里边所讲的让我着迷，他们说他们要在未来这样做成主导世界的大国。我已经无法忍受，现在联邦政府的腐败，我们看到了川普的真实，我要给大家介绍一下，在每个州我们是如何作战的。每个人我们应该怎样做新中国联邦这是一件非常一重大的事情，新中国联邦会成为美国的盟友。
+in coordination with China’s ostensibly civilian
+与中共国表面上看是平民的合作
 
-2.新中国联邦是一个非常重要的事情。这条路一定会让你有一个非常大的潜力，我在海军的时候会给战士一些分享，当你要把自己潜能最大化的时候，我在说美国，也在说新中国联邦。我们一定要冒险，一定要跳出圈子里头，一定要引领，你要牺牲你的时间。对所有在做的人来讲，有孩子在服役当中，当他宣誓的时候不是要成为一个卡车司机，而是要把你的生命要奉献这个国家。我们每次谈到这种意识形成的时候，我们国家的形成，我们新中国联邦的成立。我们不要放弃，当你形成了骑士，你做的就是对的。像我们的先辈一样，也是好几十年才形成这个宣言。新中国联邦要睁大眼睛，清醒地认识到不是每个人都想成为冠军，但是要站起来勇敢捍卫自己该捍卫的事情，并不是每个人都会正确的选择敢于挑战一切。
+Academy of Science and the Centers for Disease Control
+科学院和疾病控制中心
 
-3.我们就处在战争当中。这就是在谈我们的信息战。这就如同温水煮青蛙，我告诉你很多美国人不愿意放弃。二战以后就开始了，从那时候到现在中共一直在要成为一个超级大国的道路上。对我们美国来讲，中共的帝国主义就像日本的帝国主义一样，我们该如何做呢？你们该勇敢的站起来，有很多很多的华人，形成团结的力量，这就是新中共国联邦，这一点太重要了。我要维护这个国家任何一个人，跟我一样呼吸自由的空气。上帝保佑美国，上帝保佑新中国联邦。
+over many years there has been a massive virus collection effort
+多年来，已经进行了大量的病毒收集工作
 
+led by the PLA’s Veterinary Institute headquartered in Tianhang ？
+由总部位于长春的解放军兽医研究所带领
 
+other facilities such as the Wuhan Institute of virology
+其他设施，如武汉病毒学研究所
 
+have been involved in the collection of viruses
+参与了这病毒的收集
 
+some type coronavirus were selected
+某些类型的冠状病毒被收集了
 
+for further bio-warfare development
+用于进一步发展生物战
 
+based on their potential to jump from bat to human
+基于它们从蝙蝠跳到人类的潜能
+
+that was a fundamental PLA biowarfare criteria
+是人民解放军生物战的基本标准
+
+that is the ability to blame nature for an actual biowarfare attack
+这就有能力将实际的生物战袭击归咎于自然
+
+Two bat coronaviruses isolated by the PLA were ZC45 and ZXC21
+被解放军分离出的两种蝙蝠冠状病毒是ZC45和ZXC 21
+
+identified by Dr. Li Meng Yan as the coronavirus backbone for covid-19
+是被闫丽梦博士鉴定为Covid-19的骨干病毒
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 : [https://www.youtube.com/watch?v=jROJAZz67bY](https://www.youtube.com/watch?v=jROJAZz67bY)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – 郭班之樱
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 +1

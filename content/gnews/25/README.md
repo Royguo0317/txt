@@ -1,27 +1,122 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新中国联邦一周年】塞林博士对中共病毒是实验室制造及生化战项目之一毫不怀疑
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1295445/)
+## 劳伦斯·塞林（Laurence Sellin）博士对Covid-19起源的更新
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1295976/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03162647/7434i3456magdfsa3245e0.jpg)
+**字幕内容：**
 
-2021年6月3日下午，劳伦斯·塞林博士举办了一场现场直播采访新中国联邦人。6月3日这天众多中国人正欢欣鼓舞的庆祝新中国联邦成立的第一个纪念日。在采访当中，劳伦斯·塞林博士号召信仰自由中国的中国人民与美国人民一起战斗推翻中国共产党。
+**伦斯·塞林（Laurence Sellin）博士**
 
-塞林博士指出是中国共产党导致了中共病毒的全球大流行。他说明了在过去一年中，他的工作就是找出中共病毒的来源，曝光中共生化武器的项目并找出曾服务于中共邪恶计划那些在美国的帮凶。他提到一群反对中共的年轻的中国人对他的工作提供了巨大的帮助，他们使用中文挖掘了大量的文件。塞林博士相信这些机智和有奉献精神的年轻的中国人代表了一个自由和成功的新中国的未来。
+I am Dr. Laurence Sellin
+我是劳伦斯·塞林（Laurence Sellin）博士
 
-塞林博士强调他和他的团队成员在中共病毒的起源上正确无误，他们非常确定中共病毒是实验室制造的产物，并且是中共生化战争项目的一部分。塞林博士也说明在中共生化武器项目方面已经掌握大量的证据；例如，病毒结构本身。塞林博士说，“没有人曾制造过如同我们在COVID-19中看到的那样的人工改造来研究自然，并且自然演化也不能解释那些人工改造的出现。”塞林博士对中共病毒是一个生化武器，以及它的创造是由中共解放军主导的一个军方项目这一点毫不怀疑。
+First I would like to thank
+首先我要感谢
 
-在采访中，塞林博士还说，“生化战的基本原则就是保持否认的能力，这种能力就是将病毒怪罪于自然，将疾病的暴发怪罪于自然。”塞林博士认为中共病毒就是为此而这样设计的。
+all the young anti-communist Chinese men and women
+所有的中国年轻的反共产主义者
 
-另外，塞林博士称中共病毒不是从中共实验室“泄露的”，而是由中共有意“泄露的“。这是有着邪恶意图的邪恶计划的一部分。中共对中共病毒的大流行的责任方面绝不是无辜的。塞林博士同时告诉观众，他和他的团队已经识别了中共生物战项目的结构和组织，以及这个项目是如何导致了中共病毒的大流行。
+The Laobaixing who have worked with me
+与我一起工作的老百姓
 
-* * *
+to expose the truth about the laboratory origin of Covid-19
+揭露有关Covid-19实验室起源的真相
 
-*中文撰稿：Grace*
+Yes, Covid-19 was created in a laboratory
+是的，Covid-19是在实验室里研造的
 
-*翻译：MaggieKZ 图片：熙*
+and it was a product of the people’s liberation army biowarfare program
+而且这是人民解放军“生物战计划”的一个产物
 
-*发布：流光飞舞 文柯Miles*
+I no longer use the word “leak” to describe what happened
+我不再使用“泄漏”一词来描述发生了什么
 
-+1
+because that infers negligence but innocence of intent
+因为这会导致疏忽，但意图无罪
+
+the Chinese Communist party and the people’s Liberation Army are not Innocent
+中国共产党和人民解放军不是无辜的
+
+so it does not matter how covid-19 was released
+所以Covid-19是如何被释放的不重要
+
+because it was part of an evil plan with evil intent
+因为这是邪恶阴谋邪恶计划的一部分
+
+together we have proven that covid-19 came from a laboratory
+加在一起，我们证明了covid-19来自实验室
+
+and because of our hard work
+而且由于我们的努力工作
+
+the world is beginning to accept that fact
+世界开始接受这个事实
+
+the creation of covid-19 with part of a process
+研造covid-19是流程的一部分
+
+that has been underway for decades
+已经进行了数十年
+
+but one that was greatly accelerated in 2016
+但在2016年大大加速了
+
+by the fusion of military and civilian research as directed
+通过按照指示的军事和民用研究的融合
+
+by the CCP 13 Five-Year Plan
+通过中共的第13个五年计划
+
+since the beginning of the pandemic
+自从大流行的开始
+
+it has been our goal to discover how covid-19 with made
+去探索covid-19是如何研造的已成为我们的目标
+
+and who made it
+并且是谁制造的
+
+the answers to those questions reside in an analysis of the structure
+这些问题的答案在于结构分析
+
+and organization of the PLA biowarfare program
+和人民解放军生物战计划的组织
+
+as you know we have been using a technique
+如您所知，我们一直在使用一种技术
+
+I call virus research network analysis
+我称它为病毒研究网络分析
+
+it is a modification of traffic analysis
+它是流量分析的修改
+
+a method developed during the early days of World War II
+第二次世界大战初期开发的一种方法
+
+by Britain’s Gordon Welchman at Bletchley Park
+由英国的戈登·韦尔奇曼在布莱奇利公园创造的
+
+which contributed to the breaking of Germany’s Enigma code
+有助于破解了德国的Enigma密码
+
+Let us now review what we know
+现在让我们回顾一下我们所知道的
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接：[https://youtu.be/NpRQoau0ELQ](https://youtu.be/NpRQoau0ELQ)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – 郭班之樱
+字幕+视频制作：康州盘古农场 -青梅煮酒
+审片：康州盘古农场- 银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0
