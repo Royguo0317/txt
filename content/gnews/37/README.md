@@ -1,48 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国称马来西亚附近的军事飞行是常规训练
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1297734/)
+## 【热点播报】秘鲁、匈牙利人均死亡率跃升全球最高
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1297809/)
 
-翻译：康州盘古农场 – TrueSky
+**作者：纽约香草山健身部 童谣**
 
-校对：康州盘古农场 – 心照
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
-编辑：康州盘古农场 – 心照
 
-发布：康州盘古农场 – 彩虹 Rainbow
 
-**据《bangkokpost.com》2021年6月2日报道**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04130645/aidd3.jpg)
-在这张周一拍摄的图片中，可以看到一架尾部挂有中共国国旗的飞机。(马拉西亚皇家空军/Handout via Reuters)
+南美洲国家秘鲁31日正式将其累计冠病死亡人数向上修正超过一倍，从6万9342起上调至18万零764起，这使秘鲁一跃成为全球人均冠病死亡率最高的国家，每100万居民就有5484人死于冠病。全球新冠病毒死亡率第二高的国家是匈牙利，按人均计算，匈牙利每100万居民有3077人被冠病夺走生命。
 
-中共国周三表示，在东南亚国家指责北京侵犯其主权后，16架军机飞越马来西亚附近争议激烈的水域是例行训练。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04133625/%E6%9C%AA%E5%91%BD%E5%90%8D%E7%9A%84%E8%AE%BE%E8%AE%A1-68.png)
 
-马来西亚周一出动战斗机，拦截出现在婆罗洲岛附近的中共国空军运输机，在南海上空，马来西亚与北京有重迭的领土主张。
+而中共媒体数据显示，这两个国家是世界上接种中共疫苗最早和最多的国家之一。
 
-马来西亚外交部长批评这次飞行是”入侵”行为，并表示政府将向北京提出抗议并召见中共国大使。
+看这两个新冠病毒死亡率飙升的国家，一个荣耀获得中共媒体恭喜：“匈牙利成为唯一一个为民众接种中国国药疫苗的欧盟国家。”据最新消息，匈牙利还要斥巨资引入中共疫苗生产链。
 
-但中共国驻吉隆坡大使馆的一位发言人说，”这些活动是中共国空军的例行飞行训练，不针对任何国家”。他说：”根据相关国际法，中共国军机在相关空域享有飞越自由。”
-发言人在一份声明中补充说，这些飞机没有进入任何其他国家的领土领空。
+另一个秘鲁是拉丁美洲签署新冠疫苗采购合同最多的国家之一，截至目前已接种了277万剂疫苗。而讽刺的是3月5号秘鲁媒体报导，中国国药疫苗有效率最低，只有11.5%。秘鲁前总统毕斯卡拉也在4月份被爆出去年10月提前接种中国国药集团研发的中共病毒疫苗，但毕斯卡拉4月25日说，他和妻子双双确诊染疫。
 
-据马来西亚空军称，这些飞机进入了婆罗洲马来西亚部分的60海里（110公里）范围内，对于试图与他们（中共军方）联系的努力没有回应，促使马来西亚出动战机。
-他们在进入马来西亚领海的领空前掉头了。
+这种由一个政府或某几个国家领导人引发的全国性悲剧，都是源于深受中共蓝金黄之毒，并深信了中共疫苗。而郭先生和闫丽梦博士一直在强调的是，中共疫苗就是定时生物炸弹、人体的特洛伊木马。没有一款疫苗能够解决病毒问题，这里秘鲁和匈牙利的数据则进一步证明了，疫苗只会带来更大的死亡和致命后果。
 
-但外交部长Hishammuddin Hussein说他们（中共军方）进入了该国的”海洋区”一个离海岸更远的区域，并将这一事件描述为”侵犯了马来西亚的领空和主权”。
+参考阅读：
 
-中共国对几乎所有的南中国海都提出了主权要求，并在小岛屿和环礁上建造了许多军事哨所，这激怒了对该水域有竞争性要求的其他国家。
+https://www.zaobao.com.sg/realtime/world/story20210601-1150860
 
-马中关系通常比较融洽，但周一的事件是在该海域的紧张局势加剧之后发生的，该海域是关键航道的所在地，据信还蕴藏着丰富的石油和天然气资源。
+http://www.xinhuanet.com/world/2021-06/01/c\_1127518401.htm
 
-去年，一艘中共国测量船与一艘马来西亚石油勘探船在婆罗洲岛附近发生了长期对峙。
-该海域的其他索赔者包括越南、菲律宾、文莱和台湾。
+http://www.xinhuanet.com/world/2021-05/20/c\_1127469971.htm
 
-美国也曾派军舰通过该水域，以维护国际航行自由权，这激怒了中共国。
+https://finance.sina.com.cn/world/gjcj/2021-06-01/doc-ikmyaawc8760358.shtml
 
-原文连接：[https://www.bangkokpost.com/world/2125723/china-says-military-flight-off-malaysia-was-routine-training](https://www.bangkokpost.com/world/2125723/china-says-military-flight-off-malaysia-was-routine-training)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+校对/发稿：飞虹
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-0
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1

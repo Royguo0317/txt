@@ -1,48 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/04 文贵先生盖特精华
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1298083/)
+## 美国安全机构正密切关注可能驶向委内瑞拉的两艘伊朗军舰
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1298130/)
 
-听写： 苹果树 | 校对：樂禧禧 | Page：我是球大哥
+翻译：康州盘古农场 – 格格巫
 
-[!\[\]()!\[\](https://spark.adobe.com/page/hh8w7fIbwiE85/images/e4dee035-e589-4f8a-b006-8d1669ad20f8.png?asset_id=deafa5d3-e958-43ac-8ba2-32d4f410c973&amp;img_etag=%2253a7c885f5b03bfdb972e6b91010508b%22&amp;size=1024)](https://spark.adobe.com/page/hh8w7fIbwiE85/images/e4dee035-e589-4f8a-b006-8d1669ad20f8.png?asset_id=deafa5d3-e958-43ac-8ba2-32d4f410c973&amp;img_etag=%2253a7c885f5b03bfdb972e6b91010508b%22&amp;size=1024)
+校对：康州盘古农场 – Mike Li
 
-**6月4号：尊敬的战友们好！新的一天已经开始……世界政治，经济，军事的全面处在动荡的和战争的边缘。我们务必要强大我们自己！抓住这个历史关键的时刻……实现我们以钱灭共．以毒灭共.以共灭共．以美灭共的目标，一切都已经开始！**
+编辑：康州盘古农场 – 心照
 
-[G-TV链接](https://gtv.org/getter/60ba2d44c04fd544b4692cd9)
+发布：康州盘古农场 – 彩虹 Rainbow
 
-[!\[\]()!\[\](https://spark.adobe.com/page/hh8w7fIbwiE85/images/7ac6e7f9-87d5-4763-b066-71bb14aa9baa.png?asset_id=fb85b1ac-c0c1-44c4-a444-06c17bae15c8&amp;img_etag=%2270df450c046d561af778d0a8248c9f7c%22&amp;size=2560)](https://spark.adobe.com/page/hh8w7fIbwiE85/images/7ac6e7f9-87d5-4763-b066-71bb14aa9baa.png?asset_id=fb85b1ac-c0c1-44c4-a444-06c17bae15c8&amp;img_etag=%2270df450c046d561af778d0a8248c9f7c%22&amp;size=1024)
+**据《DAILYMAIL.COM》作者：ANDREW COURT 2021 年 5 月 30 日 报道**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04163939/boots-2021-06-04-133741.png)
+两艘伊朗军舰沿非洲东海岸向南航行，目前还不清楚他们要去哪里，但美国安全专家认为他们可能会前往委内瑞拉。伊朗和委内瑞拉在过去十年成为亲密盟友；两者都受到美国的严厉制裁。委内瑞拉距离美洲大陆仅1500英里，该地区的伊朗军舰可能会威胁到华盛顿
 
-• 共产党还在控制着14亿同胞，昨天是个伟大的日子。但6.4中共国内像地狱一般，手机换不了头像，WhatsApp、GMessager、VPN用不了，基本上网都快不行。他们的恐惧就是我们的武器！
+美国安全机构正密切关注可能驶向委内瑞拉的两艘伊朗军舰。匿名消息人士周六告诉Politico，一艘伊朗护卫舰和一艘名为Makran的前油轮目前正沿着非洲东海岸向南航行。情报官员仍然对伊朗这两艘船的动机感到困惑，他们不确定他们载有什么样的货物。然而，如果这些船只最终抵达委内瑞拉，这可能表明伊朗总统哈桑·鲁哈尼正试图恐吓华盛顿。
 
-• 美国、欧洲房地产、世界的大宗贸易的交易、互联网上的虚拟金融的货币的起伏，这都预示到世界的一场重大的经济危机的到来。
+由于该国面临严重的天然气短缺，伊朗已向委内瑞拉派遣了多艘油轮。伊朗还在委内瑞拉建立了汽车组装厂和大型水泥厂。然而，根据Politico的说法，尼古拉斯·马杜罗总统的政府被告知，“欢迎伊朗军舰将是一个错误”。伊朗船只离美国如此之近，不到1,500英里，这可能会使乔·拜登与这个伊斯兰国家开始谈判的计划复杂化。
 
-• 从中东到亚洲，北约全球都在布重兵、重武器。俄罗斯要么打美，要么打共。
+伊朗和委内瑞拉在过去十年中已成为亲密盟友。早在 2018 年，前总统川普就放弃了奥巴马与德黑兰达成的伊朗核协议。本月早些时候，共和党参议员帕特·图米要求拜登继续对伊朗实施制裁，此前伊朗精英革命卫队发布了一段令人不寒而栗的宣传视频，该视频描绘了美国国会大厦被导弹炸毁，他们的士兵“解放”了耶路撒冷。伊朗伊斯兰共和国革命卫队（IRGC）在伊朗国营电视台播放了这段视频，然后最高领袖阿里·哈梅内伊向全国发表了电视讲话。参议员图米说：“拜登政府的首要任务应该是确保伊朗不能进行这样的袭击，而不是通过取消制裁来投降。”
 
-• GTV昨天使用自己的源代码直播，同时翻译9种语言，这让GTV的投资者受益和升值，边灭共边赚钱。
+原文链接：[https://www.dailymail.co.uk/news/article-9633707/US-security-agencies-monitoring-TWO-Iranian-warships-heading-Venezuela.html?ito=social-twitter\_dailymailus](https://www.dailymail.co.uk/news/article-9633707/US-security-agencies-monitoring-TWO-Iranian-warships-heading-Venezuela.html?ito=social-twitter_dailymailus)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-• 现在世界都恐惧共产党灭亡导致全世界金融危机，这将是资本财富流向我们喜联储。
-
-• 昨天到今天，训练了爆料革命新中国联邦未来的支柱、栋梁，锻炼技术、行动队伍。
-
-• 布隆伯格、华尔街日报，所有写咱们爆料革命负面的、诋毁文贵的，都一定是中国记者，还绝大多数是个女的。
-
-• 美国世界的政治、媒体的巨变，跟着冠状病毒真相的到来，世界经济的巨大的跌幅甚至是危机灾难！我们新中国联邦会是第一个能站在高峰，是世界经济、军事的麻烦最大受益者！
-
-• 昨天每个节目都是精彩的、真的、没工资的，都是奉献的！昨天的一切都会留在我们美好的记忆中，它是我们走向未来的成功最重要的基石。
-
-• 谢谢我们看不见、听不见、甚至不知道叫什么名字的无数个默默无闻的战友辛勤的工作、无私的奉献！没有你们爆料革命不可能成功！没有你们这一切都不可能发生！谢谢！
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/hh8w7fIbwiE85/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/hh8w7fIbwiE85/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
