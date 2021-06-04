@@ -1,39 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦成立一周年6月4日直播同步精要文字版（十五）
-` 喜联盟七哥直播组` [轉載自GNews](https://gnews.org/zh-hans/1295958/)
+## 新冠疫情下的印度又添黑木耳病-画面过于惨绝人寰-慎入！！！
+` 喜韩Gnews中文` [轉載自GNews](https://gnews.org/zh-hans/1296739/)
 
-听写：
-纽约香草山农场 Karen（海啸）
-纽约香草山农场 Dolores
-
-校对整合：
-纽约香草山农场 GForever(文紫)
-
-封面制作/发布：
-纽约香草山农场 369文驹
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03211658/15%E8%B7%AF%E5%BE%B7.jpg)
-
-
-
-路德在主会场发言：
-
-1.爆料革命，没你不行！ Take Down the CCP，就差一个你！作为法治社会的董事，非常感谢千千万万的战友，感谢美国的朋友——朱利安尼先生、班农先生、还有摩根一家、拉希姆、娜塔丽、比尔格茨，纳瓦罗先生。我们的战友这几年很难，太憋屈、太不容易了，今天我们扬眉吐气，我们能跟全世界最牛的政治家在一起，因为唯真不破。
-
-2.所有的真相都来自于爆料革命，这就是我们真的力量和勇气。中共的十面埋伏，杀人诛心，让我们很憋屈。我相信大家都很憋屈。我知道来自世界各地的你们都冒着病毒的风险来参加这个活动，但是大家什么都不怕了，因为我们心中有一个呼喊：自由！我们的诉求很简单，连发声的权利都不给，为了子孙后代我们也要站出来。新中国联邦走到今天，这么多人和我们站在一起，是日拱一卒的结果。
-
-3.新中国联邦成立一年，路德社三年，文贵先生爆料了四年，筹划了七年。我们的声音不仅涵盖中国的市场，还辐射世界各地。文贵先生的爆料从一个人到一个生态，鸟语花香的生态，就差你一个！灭共就差你一个，坚持住，中共一定会灭亡。
-
-
-
-
-
-
-
-
-
+作者：웬샤밍
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04031807/4-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04031749/3-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04031726/2-3.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04031700/1-10.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04031826/5-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04031842/6-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04031900/7-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04031918/8-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04031937/9-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04031950/10-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04032014/11-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04032035/12-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04032059/13-2.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04032118/14-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04032137/15-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04032200/16-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04032218/17-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04032242/18-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04032310/20.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04032259/19-2.jpg)
 0

@@ -12,138 +12,123 @@
 
 ---
 
-### [【热点播报】拜登政府将禁止投资中共国59家企业](/content/gnews/1/README.md)
+### [慕尼黑红衣主教向教皇提出辞呈](/content/gnews/1/README.md)
+ ` Shuizhuyu`
+
+### [【热点播报】拜登政府将禁止投资中共国59家企业](/content/gnews/2/README.md)
  ` 纽约香草山MOS02`
 
-### [【6.4庆典】 闫博士走出了天使之路](/content/gnews/2/README.md)
+### [【6.4庆典】 闫博士走出了天使之路](/content/gnews/3/README.md)
  ` 喜馬拉雅的文雅 Wenya Himalaya`
 
-### [历史性的会晤——郭先生和闫博士首次面对面](/content/gnews/3/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
+### [【文字版】路德时评2021.6.1晚间（路博冠谈）：北约秘书长说要对北京采取更加强硬立场意味着什么？福奇800多封被曝光邮件震撼全美，太重磅了，彻底验证咱们去年的所有节目信息！](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [新中国联邦一周年庆典，改变世界的三巨头郭文贵、闫丽梦、路德，首次相聚](/content/gnews/4/README.md)
- ` 纽约香草山MOS02`
+### [【G时评】一份散发着茅台味道的病毒报告](/content/gnews/5/README.md)
+ ` GISELLE`
 
-### [【新中国联邦一周年】班农先生：新中国联邦的存在就是要实现立即、彻底、消灭中国共产党！](/content/gnews/5/README.md)
- ` 秘密翻译组-原创组`
-
-### [【新中国联邦成立一周年】纽约主会场的首席嘉宾——班农先生](/content/gnews/6/README.md)
- ` 秘密翻译组-原创组`
-
-### [【新中国联邦一周年】新中国联邦是黑夜中的唯一之星](/content/gnews/7/README.md)
- ` 秘密翻译组-原创组`
-
-### [【新中国联邦一周年】杰克·波索别克演讲： 自由万岁！](/content/gnews/8/README.md)
- ` 秘密翻译组G-Translators`
-
-### [《马背英雄》畅想曲之 对自由勇气的追逐和向往](/content/gnews/9/README.md)
- ` 加拿大多伦多枫叶农场 羟氯喹64`
-
-### [视频劳伦斯·塞林（Laurence Sellin）博士对Covid-19起源的更新](/content/gnews/10/README.md)
- ` 康州盘古农场 Himalaya CT Pangu`
-
-### [【鹰眼墙国】儿童化妆品乱象是对“儿童经济”的无节制“开发”](/content/gnews/11/README.md)
- ` 纽约香草山MOS02`
-
-### [视频【新中国联邦一周年】中国爆料者们冒着生命危险向美国病毒防疫中心发出警告，最后全部被福奇出卖](/content/gnews/12/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [天使的控拆——新中国联邦周年闫丽梦博士演讲记](/content/gnews/13/README.md)
- ` 秘密翻译组-原创组`
-
-### [【鹰眼墙国】“西技东学”沦为偷窃、山寨，科技发展陷入“闭门造车”](/content/gnews/14/README.md)
- ` 纽约香草山MOS02`
-
-### [【每日快讯】06/02/2021：福奇800多封邮件被曝光](/content/gnews/15/README.md)
+### [COVID-19是实验室产物，是解放军的生物武器](/content/gnews/6/README.md)
  ` 喜马拉雅德国慕尼黑感恩农场`
 
-### [【新中国联邦一周年】路德在会场大声疾呼“Take down the CCP, 缺了你不行”](/content/gnews/16/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【鹰眼墙国】养老金“喜迎”17连涨，养老金亏空依旧严峻](/content/gnews/17/README.md)
- ` 纽约香草山MOS02`
-
-### [【医疗前沿世界】福奇邮件中隐匿的病毒非自然信息浅析](/content/gnews/18/README.md)
- ` 纽约香草山MOS01`
-
-### [白宫还在为福奇辩护](/content/gnews/19/README.md)
- ` HimalayaRussia`
-
-### [新中国联邦成立一周年6月4日直播同步精要文字版（十九）](/content/gnews/20/README.md)
- ` 喜联盟七哥直播组`
-
-### [【新中国联邦一周年】朱利安尼市长控诉中共病毒和共产主义试图摧毁美国民主、法治和宗教自由](/content/gnews/21/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【鹰眼墙国】食品安全问题依旧频发，反食品浪费法效果乏陈](/content/gnews/22/README.md)
- ` 纽约香草山MOS02`
-
-### [【班农战斗室】992-993-994 期简讯](/content/gnews/23/README.md)
- ` 墨尔本雅典娜农场`
-
-### [新中国联邦成立一周年6月4日直播同步精要文字版（十八）](/content/gnews/24/README.md)
- ` 喜联盟七哥直播组`
-
-### [视频劳伦斯·塞林（Laurence Sellin）博士对Covid-19起源的更新](/content/gnews/25/README.md)
- ` 康州盘古农场 Himalaya CT Pangu`
-
-### [新中国联邦成立一周年6月4日直播同步精要文字版（十七）](/content/gnews/26/README.md)
- ` 喜联盟七哥直播组`
-
-### [《马背英雄》——伟大的长生天](/content/gnews/27/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
-
-### [【新中国联邦一周年】 《马背英雄》](/content/gnews/28/README.md)
- ` 秘密翻译组-原创组`
-
-### [【新中国联邦一周年】闫丽梦是中国人民、美国人民乃至全人类的英雄！](/content/gnews/29/README.md)
- ` 秘密翻译组G-Translators`
-
-### [新中国联邦成立一周年6月4日直播同步精要文字版（十六）](/content/gnews/30/README.md)
- ` 喜联盟七哥直播组`
-
-### [【新中国联邦一周年】比尔-格茨讲话：世界需要集中所有的精力和资源来打败中共](/content/gnews/31/README.md)
- ` 坐看云起时`
-
-### [新中国联邦成立一周年6月4日直播同步精要文字版（十五）](/content/gnews/32/README.md)
- ` 喜联盟七哥直播组`
-
-### [【新中国联邦一周年】 马背灭共](/content/gnews/33/README.md)
- ` 秘密翻译组-原创组`
-
-### [视频【新中国联邦一周年】闫博士决心爆料那一刻](/content/gnews/34/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [世卫组织顶级官员感谢福奇发表支持COVID-19自然起源的谎言](/content/gnews/35/README.md)
- ` 康州盘古农场 Himalaya CT Pangu`
-
-### [新中国联邦——颠覆旧秩序 集结正义力量 走向人类光明](/content/gnews/36/README.md)
- ` HoustonLitstar`
-
-### [2021年06月03日澳喜要闻（每日更新）](/content/gnews/37/README.md)
+### [视频安红：我们坚定地与澳洲政府站在一起对中共说不](/content/gnews/7/README.md)
  ` 澳喜农场`
 
-### [【新中国联邦一周年】美国总统选举尚未结束 大选翻盘正在进行](/content/gnews/38/README.md)
+### [苹果是CCP打击真相媒体的帮凶](/content/gnews/8/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [参议员汤姆·科顿指出所有新释放出的旁证继续指向实验室就是病毒来源](/content/gnews/9/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [情妇举报贪腐 朝鲜高官被处决](/content/gnews/10/README.md)
+ ` 曹操`
+
+### [中企绳索再次勒紧](/content/gnews/11/README.md)
+ ` 澳喜农场`
+
+### [美国调查未成年男性接种疫苗后心肌炎](/content/gnews/12/README.md)
+ ` Shuizhuyu`
+
+### [新加坡颁布针对中共国广东的边境控制令](/content/gnews/13/README.md)
+ ` 曹操`
+
+### [台湾疫情持续 4号新增死亡21例引关注](/content/gnews/14/README.md)
+ ` 曹操`
+
+### [马拉西亚将获得泰国产阿斯利康疫苗](/content/gnews/15/README.md)
+ ` 曹操`
+
+### [【墙内新闻浅析】权威快报丨中共一大纪念馆开馆](/content/gnews/16/README.md)
+ ` Ru Wei`
+
+### [写给弟弟的一封信](/content/gnews/17/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [印度和澳洲正在加强贸易关系](/content/gnews/18/README.md)
+ ` 澳喜农场`
+
+### [【新中国联邦一周年】世界与我们同庆](/content/gnews/19/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频劳伦斯·塞林（Laurence Sellin）博士对Covid-19起源的更新](/content/gnews/39/README.md)
- ` 康州盘古农场 Himalaya CT Pangu`
+### [【文字版】路德时评2021.5.31晚间（路博艾冠谈）：中共大做文章丹麦媒体曝出的美国家安全局窃听欧盟领导人意图何在？](/content/gnews/20/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [新中国联邦成立一周年6月4日直播同步精要文字版（十四）](/content/gnews/40/README.md)
- ` 喜联盟七哥直播组`
+### [美国国立卫生研究院院长柯林斯还在为中共病毒自然来源站台](/content/gnews/21/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [【新中国联邦一周年】麦克·林德尔：掌握中共大选夜干预美总统大选的实锤网络攻击证据](/content/gnews/41/README.md)
- ` 秘密翻译组G-Translators`
+### [【世事解评】得不到的赔偿——疫苗伤害索赔](/content/gnews/22/README.md)
+ ` 纽约香草山MOS01`
 
-### [敦促NBA球星结束在中共国为强迫劳动代言](/content/gnews/42/README.md)
- ` 康州盘古农场 Himalaya CT Pangu`
+### [2021年6月4日 文贵先生盖特 1](/content/gnews/23/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [6月3日美国参众议员对福奇电子邮件事件的推特点评](/content/gnews/43/README.md)
- ` 美国政要等...直译推`
+### [文贵先生6月3日盖特要点](/content/gnews/24/README.md)
+ ` 左媛专栏`
 
-### [《路德时评》重磅解读人民日报钟声社论批美病毒真相溯源，及邮件曝光墙内护士曾向福奇爆料疫情真相](/content/gnews/44/README.md)
- ` 香柏树`
+### [习近平试图“美化”中共国](/content/gnews/25/README.md)
+ ` Shuizhuyu`
 
-### [新中国联邦成立一周年6月4日直播同步精要文字版（十三）](/content/gnews/45/README.md)
- ` 喜联盟七哥直播组`
+### [这个六四注定与众不同](/content/gnews/26/README.md)
+ ` 澳喜农场`
+
+### [【G时评】川普开出10万亿罚单的重要意义](/content/gnews/27/README.md)
+ ` GISELLE`
+
+### [视频【新中国联邦一周年】闫丽梦博士：这就是真相的力量！](/content/gnews/28/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [视频【新中国联邦一周年】闫丽梦博士：在我们的朋友和盟友的帮助下，疫情真相终于被揭穿](/content/gnews/29/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [秘鲁是世界上中共病毒死亡率最高的国家](/content/gnews/30/README.md)
+ ` Shuizhuyu`
+
+### [美国再度实施制裁](/content/gnews/31/README.md)
+ ` G-NEWS TAIWAN`
+
+### [新冠疫情下的印度又添黑木耳病-画面过于惨绝人寰-慎入！！！](/content/gnews/32/README.md)
+ ` 喜韩Gnews中文`
+
+### [视频【新中国联邦一周年】闫博士: 早在1月份我就看到过彼得·达扎克与中共勾结的邮件](/content/gnews/33/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [天安门32周年纪念 ——美国国务院声明](/content/gnews/34/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [视频【新中国联邦一周年】闫丽梦博士：我们正全力推进消灭中共政权，马克思和共产主义。来自新中国联邦的每一个人都很重要](/content/gnews/35/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [莱茵河畔激荡起的“蓝色波浪”——记久别的线下游行暨船游直播](/content/gnews/36/README.md)
+ ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
+
+### [【热点播报】世卫组织批准紧急使用中共科星新冠疫苗](/content/gnews/37/README.md)
+ ` 纽约香草山MOS02`
+
+### [达者不再兼济天下 却怪穷者独善其身-躺平](/content/gnews/38/README.md)
+ ` 喜韩Gnews中文`
+
+### [蝴蝶翅膀的扇动，需要你我的一阵风——新中国联邦一周年三人谈](/content/gnews/39/README.md)
+ ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
+
+### [【勿忘六四】不屈的精神——郭文贵先生与新中国联邦爆料革命](/content/gnews/40/README.md)
+ ` 喜馬拉雅-粵語組`
 

@@ -1,18 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】06/02/2021：福奇800多封邮件被曝光
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1296173/)
+## 马拉西亚将获得泰国产阿斯利康疫苗
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1297015/)
 
-#### 制作：Cantonese工作室
+#### 撰稿：yyshere
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04044250/%E7%8E%AF%E7%90%83%E7%BD%91.jpg)图片来源：环球网
+马来西亚六月4号宣布将有条件批准使用由泰国暹罗生物科技（Siam Bioscience）生产的英国牛津阿斯利康Covid-19（CCP病毒）疫苗。马来西亚卫生总监诺希山发表声明表示，这批疫苗到货后，相信将有助于推动疫苗的接种进度。
 
+据悉马来西亚在6月将收到泰国生产的第一批61万支阿斯利康疫苗，7月还将收到41万支，8月和9月将收到120万支。
 
+此前，马来西亚因担忧阿斯利康疫苗可能引发血栓的风险而暂时放弃使用，但后来因国内疫情恶化，确诊病例急速攀升，再次把阿斯利康纳入全国接种疫苗清单。截至目前，马来西亚已购买了1280万剂阿斯利康疫苗，其中一半是来自全球冠病疫苗获取机制COVAX，另一半是直接向疫苗制造商采购。
 
-播报：文依
-资料整理：Elaine、闪电、An
-海报制作：侬民、Penny
-视频制作：Ken
+在泰国方面，阿斯利康泰国在2号宣布，由暹罗生物科技生产的首批600万支阿斯利康疫苗已经就绪，即将转交给泰国公共卫生部，并在本月内向全国范围内的疫苗接种点配送。根据泰国疫情应急管理中心的计划，从6月7号开始将启动18岁以上的成年人的全面接种计划，接种者将不受国籍限制。
 
-## 摘要：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03222415/Snapshot-47629.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03222418/Snapshot-87811.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03222423/Snapshot-115499.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03222426/Snapshot-174201.png)
+但根据目前的接种数据来看，马来西亚和泰国两国民众的接种意愿并不很高。
+
+消息来源： 马来西亚CDC 泰国CCSA
+
+（本文系作者个人观点）
+
 0

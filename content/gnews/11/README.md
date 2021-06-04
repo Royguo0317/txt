@@ -1,57 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】儿童化妆品乱象是对“儿童经济”的无节制“开发”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1296202/)
+## 中企绳索再次勒紧
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1297049/)
 
-香草山写作组  鹰(文言)
+撰稿人：东南
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04045355/20210604_Task7.jpg)（澳喜农场文宣）
+美国总统拜登在6月3日（周三）签署行政令，将59家中国企业列入禁止美国个人与机构投资的“黑名单”。拜登政府的这一举措，延续了前任总统川普去年11月签订的行政令，还将中企“黑名单”扩容，增加到59家。新的行政令涵盖了在中国境外从事监控、利用中国监控技术来打压人权和制造威胁的企业，都列入投资禁令范围。华盛顿指，这59家企业与中国军方有关联。此举是为了保证美国投资不会流入损害美国与盟友安全及价值观的中国公司。中国电信、中国移动、华为、监控设备制造商海康威视、芯片制造商中芯国际榜上有名。
 
+新命令禁止美国人投资这些公司，在8月2日制裁开始前有60天的宽限期，已经投资这些公司的美国人，无论是直接投资，还是通过共同基金、指数基金或其他基金进行投资，都有一年的时间撤资。
 
+很明显拜登政府这次是完完全全延续了之前川普总统对于中共一贯的打压政策，特别之处是在“六四”这个中华民族悲伤的纪念日前给CCP送上了一份“大礼”，而反观中共这边经历了一轮轮的打击后，粉红战狼们依旧没有消停，还是在那叫嚣着对等制裁，鸡血天天打，叫喊声一个比一个响亮，期待主子能听到并有所行动，可惜的是切实有力的行动真的是一个都没看到。难道对等的反击制裁有那么困难吗？中共也禁止美企在国内的投资不就对等了吗？还要提醒你们主子在国内那些美国公司的名字吗？老说以其人之道还治其身，苹果，波音，特斯拉，通用微软，戴尔等等……动一个试试去啊。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+在现今美国和世界的纷纷抵制中共的大环境下，制裁这59家中企绝不会是个句号，剩下的那些暂时还没有进入禁止名单内的公司，相信之后的命运也会如出一辙，全球灭共的车轮一旦启动就不会停下。让我们一起拭目以待下一批被制裁的中企名单出炉。
 
+（文章纯属个人观点）
 
+*审**稿、**编辑**：光耀**华**夏*
 
-环球网6月3日转载法制日报消息，虽然近年来儿童化妆品产业规模逐年上涨，2020年儿童化妆品消费量同比19年增长300%，但多数商家依旧通过掺杂违规原材料的方式降低成本。
+文章参考：
 
-2020年国内儿童化妆品市场总额约100亿元（约占19年国内换妆品零售总额2992亿元3.3%），虽然占比较小，但随着近年来互联网和移动娱乐APP的普及，再加上小网红现象的层出不穷，各大短视频平台儿童相关的视频播放量是其他类型视频观看次数的3倍.相互叠加下儿童化妆品作为新兴产业“装大趋势”在所难免。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03220247/Screen-Shot-2021-06-03-at-10.01.28-PM.png)
-在国内儿童化妆品行业中，外资品牌强生和本土企业青蛙王子瓜分了主要市场：其中，强生市场份额超50%，其他的各个市场的小品牌所囊括。与大型企业的高标准和品牌担当不同，为了抢占市场，不少商家相继推出儿童美妆产品。虽然价格上比成人化妆品优惠且种类繁多，但质量标准普遍不高，甚至危及儿童健康，并多以规避彩妆法规的玩具店、电商等渠道销售。
+[BBC News：美国拜登政府扩增中国企业投资“黑名单”](https://www.bbc.com/zhongwen/simp/world-57352852?at_campaign=64&amp;at_custom2=twitter&amp;at_custom1=%5Bpost+type%5D&amp;at_medium=custom7&amp;at_custom4=4E96CDE2-C4D6-11EB-BEBE-07AE923C408C&amp;at_custom3=BBC+Chinese)
 
-在多个电商平台简单搜索，就能找到琳琅满目的儿童化妆品。虽然标称“不含激素”、“安全无害”字样，且销量十分可观，但产品却大都以儿童玩具、装扮套装等类别获取产品认证书，而套装中的眼影、口红、腮红等彩妆却无化妆品生产许可证编号。即便是有备案的儿童化妆品，由于彩妆成分和成人化妆品相差不大，仍包含防腐剂、着色剂、香精等。而儿童皮肤防御屏障较弱、易过敏，所以家长购买儿童化妆品仍就需要谨慎对待。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03220229/Screen-Shot-2021-06-03-at-10.01.32-PM.png)
-2013年《儿童化妆品申报与审评指南》出台，明确指出12岁及以下儿童化妆品配方中应当减少使用着色剂、防腐剂、香精等，同时规定厂家不宜使用祛斑、美白、止汗、除臭等功效的成分，并应当按照《化妆品行政许可申报受理规定》申报许可。但在具体执行中，添加违规用料商家和厂家却屡见不鲜。虽然2019年至今，多个地方政府发布儿童化妆品质量问题通报，但政府监管频率较低，线下抽查检查的监管力度也远远比不上儿童化妆品行业的发展速度。行政监管依旧力不从心。
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-虽然早在2013年国内就已有儿童化妆品的相关规定，《化妆品安全技术规范（2015版）》中对也对涉及儿童化妆品的部分项目更进行了细致界定：如菌落总数不得大于500CFU/mL或500CFU/g（同比大人化妆品菌落数减半）。然而，美妆低龄化的趋势将上述规定淹没，不但备案的儿童化妆品质量问题多发（2020年底包含青蛙王子在内的26家儿童化妆品生产企业被通报），更有不法分子擅自“跨界”，故意将儿童化妆品以玩具、日用品等方式贩卖。这种投机取巧的行径，不但反映出行政监管的有名无实，更揭示了当今利益至上的崇尚金钱的社会风气。在祸害山山水水后，中共仍以整肃营商环境的名义，将敛财触角伸向儿童美妆行业。
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01003057/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-1.jpg)
 
-新闻来源：
-
-儿童化妆品乱象：为降低成本部分产品掺杂违禁原料https://china.huanqiu.com/article/43NpN08GgoF
-
-儿童化妆品安全问题频发 山东、辽宁等多地开展检查整理工作https://new.qq.com/omn/20210412/20210412A05VNT00.html
-
-“儿童化妆品”市场乱象亟待规范https://baby.sina.com.cn/news/2021-04-16/doc-ikmxzfmk7113856.shtml
-
-儿童化妆品为何“藏”在玩具盒里卖？https://edu.sina.com.cn/zxx/2021-06-01/doc-ikmxzfmm5837470.shtml
-
-儿童美妆低龄化趋势明显，多地整顿儿童化妆品市场https://new.qq.com/omn/20210325/20210325A0D4I900.html
-
-![This image has an empty alt attribute; its file name is 6_june.jpg]()![This image has an empty alt attribute; its file name is 6_june.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 0
