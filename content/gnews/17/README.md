@@ -1,16 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦周年庆典花絮
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1295078/)
+## 【新中国联邦一周年】美国社交媒体屏蔽了任何有关武汉实验室的言论
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1295560/)
 
-![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03142418/WhatsApp-Video-2021-06-03-at-14.05.17-2.mp4)
-（本文仅代表作者个人观点）
+06/03/2021 比尔·格茨：美国社交媒体当时屏蔽了何有关武汉实验室的言论。这样的事情永远不应该在美国这样一个自由国家发生。
 
-* * *
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-*作者：为子孙爱七哥.文运*
-
-*发布：流光飞舞 文柯Miles*
-
-0
++1
