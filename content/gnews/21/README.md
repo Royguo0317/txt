@@ -1,37 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 六四 中华民族从死里重生
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1298008/)
+## 慧眼看世界20210604
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1297977/)
 
-作者：Faller 2020-06-03
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04161330/image-104.png)图片来自喜马拉雅华盛顿DC农场
-六四，对于中国共产党，是续命和死亡。
+素材：2020喜马拉雅
 
-六四，对于华夏儿女，是被扼杀和重生。
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-经过上世纪八九六四的人知道，那一天发生在天安门广场的屠杀；那一年中华儿女为了自由民主，和平抗议独裁政府。强权最终用人民子弟兵手里的枪去射杀，用坦克碾压了手无寸铁的抗争者。无数参与过当年活动的人被投送到监狱被鞭打被枪决或被消失；幸存的或缄默或逃亡海外，大陆的官网找不到关于这一惨案的消息，这一屠戮好像从未发生过。八九六四，共产党用掩盖和遗忘用中华儿女的鲜血延续了独裁者的生命；中国人渴望站着活的追求，被扼杀。
+**西班牙2021年6月4日电/西喜社——**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162519/01-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162518/02-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162521/03-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162527/04-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162537/05-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162543/06-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162544/07-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162545/08-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162807/09-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162821/10-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162822/11-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162839/12-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162845/13-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162834/photo_2021-06-04_10-59-33.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162841/photo_2021-06-04_10-59-42.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162856/14-4.jpg)
+审核：神奇四侠；发稿：神奇四侠
 
-被残害的灵魂是不死的，历经30载，香港维多利亚公园每一年会有烛光祭奠英灵，哪怕强权政府不允许这一纪念活动，烛光依然在心中；一些逃亡海外或还在大陆的六四幸存者的心底没有忘记对自由的追寻：
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
 
-邪魔共产党毒化了中华的土地、空气、河流和人心！
-
-他们的贪婪和独裁，掠夺了人民的辛劳和财富！
-
-独裁者奴化中国人、欺骗和毒害世界的恶行还在继续！
-
-中华母亲的泪水化成酸雨，告她的孩子们：她的心在痛！
-
-永不为奴是神州儿女的呐喊！为自由抗争是血性勇士的行动！
-
-新中国联邦成立了，在2020的六四! 六四幸存者郭文贵先生以血与上苍立约结千年和平，上帝给每个人的人权、信仰言论自由和私有财产神圣不可侵犯的权利，是新中国联邦人的宣言。面对肆虐全球的疫情，魔鬼以病毒祸害全人类的本性显露了。真相只有一个，新冠病毒的谎言会被彻底揭穿。制造新冠病毒的魔鬼，用他的骄傲和邪恶，亲自做了一个吊死自己的绞刑架。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04161425/image-105.png)图片来自喜马拉雅华盛顿DC农场
-为真相疾呼呐喊的中华儿女，在揭露共产党魔鬼谎言和邪恶的本质的同时，以正义良知、勇气智慧凝结成新中国人的信用。 2021六四，是中华儿女走向新生，是魔鬼共产党奔向它的消亡。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04161519/6403.jpg)图片来自喜马拉雅华盛顿DC农场
-六四，曾是中华儿女追求自由民主精神被扼杀。六四，是华夏族群永不为奴灵魂和行动的重生。
-
-祝福中华民族！
-
-发布：GLC
-
-+1
+0

@@ -1,73 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月3日美国参众议员对福奇电子邮件事件的推特点评
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1295817/)
+## [疫情下的西班牙]西班牙进入“后疫情时代”了吗？（ 续）——疫情管理新政策之争
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1297730/)
 
-众议员加拉格尔： 福奇博士最近发布的电子邮件，突显了一个令人不安的趋势:福奇博士与多个明显存在利益冲突的人合作，给实验室泄漏假说泼了冷水。 我在几周前的视频中分析了为什么会这样
-
-
-
-> The recent release of Dr. Fauci's e-mails highlights a disturbing trend in which Dr. Fauci worked with multiple individuals with clear conflicts of interests to throw cold-water on the lab leak hypothesis. 
-> 
-> I broke down why this might be the case weeks ago in this video ⬇️ [https://t.co/Y9LBFbQkNl](https://t.co/Y9LBFbQkNl)
-> — Rep. Mike Gallagher (@RepGallagher) [June 3, 2021](https://twitter.com/RepGallagher/status/1400500858144669696?ref_src=twsrc%5Etfw)
+- 作者：gokuabuela
 
 
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-众议员道格·柯林斯： 我们将讨论最新的掩盖福奇，以及为什么没有记者询问白宫有关他的电子邮件。 他应该被传讯还是被解雇?两个一起来怎样?你觉得呢? 请在下午3点收听WMLB 1690AM或约翰·弗雷德里克斯电台节目!
+**西班牙2021年6月4日电/西喜社——**
 
+【如果你们不执行，那中央政府会让你们执行】
 
+卫生部长卡罗琳娜-达利亚斯（Carolina Darias）周五表示，她相信各自治区会尊重地区间委员会批准的关于疫情的 “新的管理条例 ”文件。并警告说，如果他们不这样做，政府将不得不 “使其得到履行”。在马德里、巴斯克地区、加利西亚、卡斯蒂利亚-莱昂和安达卢西亚等地区政府本周四反对中央行政部门，特别是反对卫生部制定的新规则之后，达利亚斯在接受Cadena SER的采访时表达了这一点。
 
-> We will be discussing the latest in the [#FauciCoverUp](https://twitter.com/hashtag/FauciCoverUp?src=hash&amp;ref_src=twsrc%5Etfw) and why ZERO reporters are asking the White House about his emails.
-> 
-> Should he be subpoenaed or fired? How about BOTH? What do you think?
-> 
-> Hear it all @ 3PM on WMLB 1690AM or the John Fredericks Radio App! [#TheDougCollinsShow](https://twitter.com/hashtag/TheDougCollinsShow?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Doug Collins (@RepDougCollins) [June 3, 2021](https://twitter.com/RepDougCollins/status/1400519325220540419?ref_src=twsrc%5Etfw)
+达利亚斯认为，该文件是13个自治区参与的结果，并不是中央政府的单方面命令，理应得到各自治区的执行。
 
+围绕这份新的管理条例，表面上看，各自治区争论最多的是娱乐场所晚上应该几点关门，有的自治区要求从凌晨2点延长到3点，有的要求给与自治区更多的灵活的权力。实质上，争夺的是制定政策的权力：利用各地疫情的不同情况，是否有可能绕过中央政府的决定，而自己制定关于疫情“限制措施”的权力。因为“限制措施”牵涉到出行权，聚会权，自由权和民众的切身经济利益，是在挑战宪法的权力。虽然特殊情况下，“是急从权”，大家争的就是这个“权”。
 
+【自治区反叛中央政府管理疫情的新计划】
 
-众议员吉姆·乔丹： 拜登总统将像处理边境危机一样处理福奇博士的电子邮件事件。 换句话说，交给哈里斯副总统来无视这个问题。
+解除国家紧急状态后的降级管理是在没有共识和没有共同治理的情况下开始的。政府拒绝了延长警戒状态和制定新的降级立法，而是将决定权交给地区间卫生委员会，并在各自治区之间寻求共识。没有什么比这更离谱的了，因为在这个大流行病的最后阶段，在卫生部的提议下，对夜生活和酒店及餐饮业的营业时间采取的第一个重大措施，已经得到了多达六个自治区的拒绝。他们中的一些人已经威胁说不遵守该规定。
 
+不仅仅是各地自治区政府，最高法院也介入其中，认为特殊情况下需要制定特殊的法律解释条文，目前的【卫生法】无法应对现在的状况，从某种程度上否定了中央政府和卫生部利用疫情，集中权力的做法。
 
+因为疫苗接种范围的扩大，以及感染人数的下降，给了西班牙民众一个错觉，以为进入了“后疫情时代”，病毒真的远去了吗？
 
-> President Biden will handle Dr. Fauci’s emails like he did the border crisis. 
-> 
-> In other words, appoint Vice President Harris to ignore the problem.
-> — Rep. Jim Jordan (@Jim\_Jordan) [June 3, 2021](https://twitter.com/Jim_Jordan/status/1400564307813883906?ref_src=twsrc%5Etfw)
+【西班牙一艘护卫舰爆发病毒感染，发现16名无症状感染者】
 
+护卫舰上共有150名船员，经过PCR检测，目前已发现16名无症状感染者。所有船员将被隔离10天。
 
+只要中共未灭，疫情就不会结束。任何放松警惕的行动都将会付出巨大代价。
 
-众议员迈克·沃尔茨： 作为众议院研究与技术小组委员会的高级成员，我致力于弄清楚 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 武毒所发生的事情，为什么美国纳税人的钱被输送到那里，以及 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的起源。 【附纽约邮报的文章：众议院共和党人要求美国政府就资金支持武毒所“功能增强型”研究的具体情况进行汇报】
+素材：gokuabuela；审核：Aries的星； 校对：信心满满； 发稿：信心的选择
 
+相关新闻内容来源：1.[机密报](https://www.elconfidencial.com/espana/2021-06-04/darias-sobre-la-nueva-normativa_3115387/)/2.[机密报](https://www.elconfidencial.com/espana/2021-06-03/las-ccaa-se-rebelan-ante-intento-de-moncloa-de-tomar-el-control-de-la-desescalada_3113772/)/3.[机密报](https://www.elconfidencial.com/espana/galicia/2021-06-04/brote-coronavirus-fragata-ferrol-asintomaticos-covid19-armada_3115980/)
 
+[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
 
-> As Ranking Member of the House Research & Tech Subcommittee, I’m committed to getting to the bottom of what happened at China’s Wuhan Institute of Virology, why taxpayer money was sent there, and the origins of COVID.[https://t.co/cNNJRbAHPB](https://t.co/cNNJRbAHPB)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 3, 2021](https://twitter.com/michaelgwaltz/status/1400563419997249542?ref_src=twsrc%5Etfw)
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
 
-
-
-众议员兰斯·古登： 福奇博士应用的唯一科学是政治学。
-
-
-
-> The only science Dr. Fauci has applied is political science.
-> — Lance Gooden (@Lancegooden) [June 3, 2021](https://twitter.com/Lancegooden/status/1400552314377846785?ref_src=twsrc%5Etfw)
-
-
-
-朱利安尼（纽约前市长）： 我现在将2020年的病毒大流行称为‘蝠奇大流行’。 蝠奇大流行传播给全世界的不是什么‘中国病毒’，也不是‘武汉病毒’，而是 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click)（中国共产党病毒）。
-
-
-
-> I will now refer to the Pandemic of 2020 as THE FAUCI PANDEMIC.
-> 
-> It spread, not China virus, not Wuhan virus, but CCP VIRUS (Chinese Communist Party Virus) all over the world.
-> — Rudy W. Giuliani (@RudyGiuliani) [June 3, 2021](https://twitter.com/RudyGiuliani/status/1400568481427427338?ref_src=twsrc%5Etfw)
-
-
-
-
-
-0
++2
