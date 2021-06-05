@@ -1,17 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210605
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1300868/)
+## 【新中国联邦一周年】6.4 我们扬帆起程 庆新中国联邦周年生日快乐
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1300733/)
 
-素材：2020喜马拉雅
+温哥华扬帆农场 – 海变石
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05130134/11-9.jpg)
+太平洋西岸，世界最宜居之城温哥华，2021年6月4日，晴。
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+晨曦中日光携着灰色的云照在绿茵茵的草坪上，新中国联邦人正在紧张兴奋地忙碌着，他们身着海蓝色的T恤，上面印有“新中国联邦/ NEW FEDERAL STATE OF CHINA ”，头戴印有金色七芒星的蓝色运动帽，有的手握新中国联邦的国旗，有的举着标语牌。 这是来自温哥华扬帆农场的战友们。
 
-**西班牙2021年6月5日电/西喜社——**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144631/001-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144635/002.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144645/003-2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144645/004.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144653/005.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144658/006.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144704/007.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144712/008.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144721/009.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144728/010.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144732/011.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144737/012.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144742/013.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144748/014.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144754/015.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144816/16-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144820/17-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144828/18-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144828/19-4.jpg)
-审核：神奇四侠；发稿：神奇四侠
+当地时间上午10：00战友高喊着，来到中共国驻温哥华领事馆大门前，举行6.4庆祝新中国联邦成立一周年活动。 在一阵HAPPY BIRTHDAY OF NEW FEDERAL STATE OF CHINA 和TAKE DOWN CCP的口号声后，首先开始的是升新中国联邦国旗仪式。战友们左手护心，右手执旗、举牌，向国旗行注目礼。伴随着深沉而明亮的新中国联邦国歌《喜马拉雅 自由之巅》，蓝色的国旗徐徐上升，自由飘扬——新中国联邦国旗稳稳伫立在中共国温哥华领事馆大门前！接着宣读”新中国联邦宣言”; 战友们激动地欢呼：新中国联邦生日快乐！
 
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+蓝色的旗帜，蓝色的新中国联邦人，鲜明的标语牌，在战友们高亢口号中高扬着、舞动着，” 没有共产党，才有新中国！CCP MADE COVID-19…” 表达着中国人战胜恐惧，撕裂中共独裁残酷统治的铁幕，追求自由的决心和意志！整个活动在歌声和口号交替中进行。吸引了无数过往车辆的关注与鸣笛支持，许多人从车窗中高高举起手臂向我们竖起大拇指，表达他们的支持。
+
+最后，在文贵先生的新歌《马背英雄》的雄壮歌声中，战友们踏着铿锵有力的节奏结束了四小时的庆新中国联邦周年生日快乐，反抗中共独裁的示威活动。再次回到那片绿草坪上，战友们分享了ABBS和文敏两位战友买来的“HAPPY BIRTHDAY NFSC“生日蛋糕。
+
+四年来文贵先生以他卓尔不凡的雄才伟略、唯真不破的历历铁证、体恤百姓的大爱，以及他的诙谐风趣，开启了中国人的民智，唤醒了西方主流社会对中共本质的认识，赢得了他们的支持合作，更吸引了越来越多的中国人相信并参与爆料革命！爆料革命、CCP病毒、郭文贵先生、闫丽梦博士、路德社……这一切构成了当今世界的主旋律！以毒灭共，自由之光乍现 。
+
+几千年来，中国人第一次与代表这个世界文明的力量真正联合在一起，彻底消灭皇权独裁，铲除中共恶魔，建立一个法制、自由、民主的新中国，使中华民族纳入世界文明体系，与西方建立千年的和平！蓝色代表着自由、和平、开阔、睿智、博爱，海洋代表着永恒、博大、理想、生命的力量、激情和神秘。祝愿新中国联邦大展宏图，蓝色的七芒星国旗早日在中国大地飘扬！
+
+编审：文敏
+
+发稿：Shuang
 
 0
