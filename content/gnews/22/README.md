@@ -1,49 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】尽管城市已重新开放，但曼哈顿的办公楼空置率仍在继续飙升
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1301124/)
+## 中共病毒的Delta变体更具侵略性和传染性
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1301121/)
 
-香草山写作组 四季
+```
+新闻来源：今日意大利（today.it）
+发布时间：2021年06月04日
+翻译整理/简评：斩草要除根
+```
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05173018/808c4620-c052-11eb-8def-04e2679259f0.jpeg)图片来源：Pixabay图库
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+最近被世界卫生组织更名为 Delta 的印度变种 B.1.617.2 现已在英国普遍传播，这个新变种的病毒毒株似乎比之前在肯特发现的变种（B.117 或 Alpha）更加具传染性，根据英国公共卫生部 (*PHE*) 发布的数据，Delta 变体的住院风险也高达 *Alpha* 的 2.6 倍。
 
+虽然说这些是初步分析还需要进一步的研究，但从在苏格兰和英格兰进行的公共卫生调查来看，第一剂疫苗的有效性降低似乎得到了证实。该文件指出减少不低于 15-20%，但在第二次给药后，保护作用会有所增加。然而，该文件还指出，就阿斯利康而言，即使两次接种后的疗效也存在“高度不确定性”。在辉瑞的案例中，英国公共卫生部之前的一项分析报告称，第一次接种后的保护率为 33%，第二次后为 60%。
 
+至于更大的传染性，英国公共卫生部的专家指出，*Delta*变种明显比 *Alpha* 更具传染性，而后者又比原始菌株更具传染性。英国国家卫生系统的报告提到了 12,431 例确定的 Delta 变体病例，而一周前发布的最新公告中为 6,959 例。
 
-零对冲6月4日报道，自病毒大流行开始一年多以后，纽约市的经济正轰轰烈烈地重新开放。但是，办公楼市场仍处于困境。据高力公司（Colliers）的商业房地产经纪报告，即使租约增加，曼哈顿的办公空间供应仍在不断创下新的记录。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05122804/%E7%BA%BD%E7%BA%A6.jpeg)
-写字楼5月份的供应率连续第12个月上升到17%。自大流行病开始以来，空置率猛增70%，达到惊人的9200万平方英尺。高力公司表示，转租占总供应量的23%，是去年7月以来的最低值，转租的库存空间比大流行病开始以来多了75%
+#### **简评**：
 
-虽然需求正在恢复，但是由于在家工作成为“新常态”，曼哈顿的写字楼的供应过剩可能是长期的趋势。因无法获得租金，建筑运营商最终可能会陷入财务困境。
+**可以肯定的是这个Delta变种绝对不会是中共病毒的最后一个变种体，还会有更多的变种出现。当前寄希望于靠疫苗来阻止病毒和变种的传播是徒劳的。中共病毒在以另外一种方式在消耗着各个国家的人力、财力，直到有一天世界会发现，如果不面对病毒的真相，其所做的一切都是徒劳。**
+（本文只代表译者观点，与Gnews无关）
 
-根据卡斯尔系统（Kastle Systems）的数据，截至5月下旬，纽约地区只有约18%的办公人员返回工作岗位。虽然摩根大通、高盛和脸书等大公司准备在未来几个月让员工返回办公室，但根据卡斯尔系统针对全美国重返工作岗位的数据，人员重返办公室的速度非常缓慢。
+**新闻原文链接：**
+🔗[La variante Delta del coronavirus è più aggressiva e contagiosa: cosa dicono gli ultimi dati](https://www.today.it/attualita/variante-delta.html)
 
-曼哈顿空置的摩天大楼不仅仅是办公楼。随着人们成群结队地逃离这个自由的城市，前往郊区，住宅库存也在激增。
+* * *
 
-中共病毒肆虐全球，对经济的打击和对人类生活方式的改变是惊人的。昔日自由繁荣的城市正在被摧毁，实在令人唏嘘。进入6月，以毒灭共已是大势所趋。全人类都应该行动起来，揭露病毒真相，向中共追责，结束这一人类灾难。
-
-原文链接：
-
-[https://www.zerohedge.com/markets/manhattan-office-supply-continues-soar-even-city-reopens](https://www.zerohedge.com/markets/manhattan-office-supply-continues-soar-even-city-reopens)
-
-![This image has an empty alt attribute; its file name is 6_june.jpg]()![This image has an empty alt attribute; its file name is 6_june.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+***编辑整理/校对: **Ting Guo*
 
 0
