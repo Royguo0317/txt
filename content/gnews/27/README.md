@@ -1,33 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七国集团财长承诺全球最低税率为 15%
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1300931/)
+## 阿舍呼吁成立中共病毒调查委员会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1301008/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年6月05日
-翻译 /整理/ 简评： Shuizhuyu
+俄罗斯莫斯科喀秋莎农场   银河
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05152219/IMG_0567.jpg)
+编辑上传   水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05155635/A-2.jpg)eaglesvine.com
+DaiLy Caller 6月4日报道，前国务院调查员戴维·阿舍 (David Asher)表示，他希望看到一个类似9/11事件的委员会来调查中共病毒大流行的起源。
 
+阿舍表示，关于中共政府知道些什么以及什么时候知道的，有很多疑问也让他感到担忧。例如，一些专家，比如白宫高级医疗顾问安东尼·福奇博士，起初似乎没有兴趣向中共国施压来获得真正的答案。
 
-七个主要工业化国家 (G 7) 已表示赞成对大公司征收 15% 的全球最低税。 德国财长 Olaf Scholz 将该协议描述为“税收革命”。
+阿舍首先指出，最新报道称，武汉一家实验室的三名工作人员因2019年11月出现中共病毒症状而住院。而福奇似乎更关心质疑是否会被视为敌对。福奇的回应是：“弄清楚到底是什么显然符合中共国的利益。你需要开放和合作。你可以得到它的一个方法是不要指责。”
 
-七个主要工业化国家（G 7）已就全球税收改革的基本框架达成一致。各国希望共同采取行动打击谷歌和苹果等大型科技公司的避税行为。英国财政部长里希·苏纳克周六在伦敦表示，他和他的同事已经签署了相应的协议。
+阿舍强调中共公开掩盖错误并不符合中共利益。美国需要成立像9/11专项委员会把事情弄清楚。需要对中共进行经济上的制裁并阻止此类事情的再度发生。
 
-“我很高兴地说，经过多年的讨论，七国集团国家的财政部长今天就改革全球税收制度以适应全球数字时代达成了历史性协议，最重要的是确保正确的公司在正确的地方缴纳正确的税是公平的，”苏纳克在推特上发布的视频消息中说。
+参考链接：
 
-计划对大公司征收 15% 的最低税。这体现在七国集团财长会议的最终宣言中。大公司产生销售额的国家也应该比以前从公司缴纳的税款中受益更多。这对许多新兴市场来说应该会更好。
-
-7 月的 20 国集团会议可能至关重要: 工业化国家的协议必须存在于更大的范围内——例如与 G20 与中国、印度和巴西等最重要的新兴国家。 G-20 会议可能具有决定性意义。
-
-多年来，国际层面一直在努力制定公司的最低税收。其背景是大公司的避税策略，它们经常以算术方式将利润转移到低税率的国家。大型科技公司尤其受到关注。
-
-简评：G7 是7个主要工业化国家的一个组织， 他们定期举行峰会。 这次峰会制定了这个税收政策。 多年来， 欧洲的很多国家一直抱怨这些大的科技公司在收受方面打擦边球， 因为他们是国际公司， 可以通过计算的方式把税收放到最低的国家去 。这次采取了最低税率， 也就是希望这些大公司能够在公司经营所在国上税，或者到任何国家上税都要用最低税率15%。
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
-
-🔗[G-7-Finanzminister-verpflichten-sich-auf-globale-Mindeststeuer-von-15-Prozent](https://www.welt.de/politik/ausland/article231610667/G-7-Finanzminister-verpflichten-sich-auf-globale-Mindeststeuer-von-15-Prozent.html)
+[https://dailycaller.com/2021/06/04/chinese-feel-pain-economically-david-asher-investigator-covid-commission-david-asher/](https://dailycaller.com/2021/06/04/chinese-feel-pain-economically-david-asher-investigator-covid-commission-david-asher/)
 
 0

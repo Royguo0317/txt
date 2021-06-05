@@ -1,28 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】英六位前外相促约翰逊将香港危机纳入G7峰会议程
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1300865/)
+## 【新闻速递】比特币是一场“闹剧”
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1300961/)
 
 作者：休斯顿星光农场 写作部 FY（火星）
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
-6月4日，横跨三十七年历史的英国六位前外相，联名致函英国首相约翰逊，促请其将香港危机和中共持续违反《中英联合声明》等议题纳入即将召开的G7峰会议程。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144921/Screenshot-2021-06-05-134737.jpg)
-***图片来源：法广中文***
+6月3日，法国资产管理公司Amundi的首席投资官帕斯卡·布朗克在一次新闻发布会上 （Pascal Blanque）表示，比特币等加密货币是一场“闹剧”，是金融市场形成泡沫的表现。
 
-据法广网报道，联署者分别在1977年至2014年期间出任外相，包括欧文、聂伟敬、施仲宏、贝嘉晴、文礼彬及夏伟林。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05153947/Screenshot-2021-06-05-143830.jpg)
 
-联署信指出，北京在过去数个月，以《港区国安法》为名，拘捕47名参与初选的民主派人士及前立法会议员；另又大肆改革香港的选举制度，修订入境条例，赋权当局可以禁止个别人士离港。经过这些操作，差不多所有香港著名的民主声音不是身处监狱或等候审讯，便是流亡海外，国际社会对香港的危机应作出更强而有力的回应。
+***图片来源：网络***
 
-联署人认为，英国作为联合声明签署国，应采取主导地位促成此事，敦促约翰逊在七国集团峰会的会议议程中，让国际社会响应在香港出现的危机，以及就中共国持续违反《中英联合声明》的处理达成共识，以确保在联合国备案的联合声明和“一国两制”得以落实。
+据路透社报道，比特币目前的交易价格约为39,364美元，在中共国加大力度打击比特币挖矿和交易以防范投机和金融风险之后，比特币在上个月下跌了35%。
 
-11至13日，由美国、加拿大、日本、英国、法国、德国、意大利组成的七大工业国集团（G7）将在英国召开领袖峰会，美国总统拜登（Joe Biden）、日本首相菅义伟、德国总理默克尔（Angela Merkel）等各国领导人届时都将出席。
-
-据报道，G7峰会曾在去年6月中发表联合公报，促请中共国停止在港实施《港区国安法》，认为国安法严重损害“一国两制”方针和香港的言度自治。但是中共人大常委会其后依然通过《国安法》。
+“比特币将因推动央行采用数字货币而被记住，” 布朗克说，“政府和监管机构最终将‘停止音乐’。”
 
 信息来源：
 
-[https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210605-%E6%8C%87%E9%A6%99%E6%B8%AF%E7%8E%B0%E5%8D%B1%E6%9C%BA-%E8%8B%B1%E5%89%8D%E5%A4%96%E7%9B%B8%E4%BF%83%E7%BA%A6%E7%BF%B0%E9%80%8A%E7%BA%B3%E5%85%A5%E4%B8%83%E5%9B%BD%E5%B3%B0%E4%BC%9A%E8%AE%AE%E7%A8%8B](https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210605-%E6%8C%87%E9%A6%99%E6%B8%AF%E7%8E%B0%E5%8D%B1%E6%9C%BA-%E8%8B%B1%E5%89%8D%E5%A4%96%E7%9B%B8%E4%BF%83%E7%BA%A6%E7%BF%B0%E9%80%8A%E7%BA%B3%E5%85%A5%E4%B8%83%E5%9B%BD%E5%B3%B0%E4%BC%9A%E8%AE%AE%E7%A8%8B)
+[https://cn.reuters.com/article/bitcoin-amundi-0604-idCNKCS2DG062](https://cn.reuters.com/article/bitcoin-amundi-0604-idCNKCS2DG062)
 
 编辑：文顺 校对/发稿：Helen
 
@@ -32,4 +28,4 @@
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
 
 
-0
++1
