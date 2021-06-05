@@ -1,61 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【一线新闻】送战友，踏征程
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1300506/)
+## 卢比奥回应拜登对福奇的袒护：必须解雇他！
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1300806/)
 
-前方记者：纽约香草山记者站 Kathy (文艺）
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-后方编写：纽约香草山农场 写作4组 Delilah小胖
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05133554/B-6.jpg)themajorawards.com
+窃位总统拜登逆潮流而动，替中共掩盖病毒，终止了蓬佩奥主导的唯一官方对中共病毒的调查，对邪共的同谋、出卖爆料革命战友、谋划攻击天使闫博士的老贼福奇竭力袒护，还公开表示对老贼非常有信心【1】。这种倒行逆施的行为自然会引起正义力量的警惕。《福克斯新闻》发表卢比奥撰写的文章，题目“如果拜登相信科学，他必须解雇福奇”，文章摘要指出，福奇已经多次证明了，在公共卫生方面，他有转移目标的历史【2】。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+全文如下：
 
+要理解中共病毒疫情的真正代价还需要几十年时间，病毒导致全球数百万人死亡，无数小企业被迫关闭，数十亿人被囚禁在家中，但对我们孩子的影响和长期的健康影响在一段时间内还不得而知。应该不遗余力地了解中共病毒的起源，我们不能因为政党或国家之间的争斗而忽视常识的可能性。认为人类第一次感染中共病毒可能是由实验室事故引起的，这绝不是“阴谋”。
 
+不需要过度活跃的想象力就可以理解人类的无误性，也不需要怀疑为什么中共病毒疫情会首先在同一个城市爆发，而这个城市正是专门研究这类病毒的实验室所在地。
 
+一些科学家对各种可能性持谨慎态度，但其他科学家，如国家过敏和传染病研究所所长福奇，驳斥了病毒可能来自实验室的观点，这对一位著名的公共卫生官员来说是一次巨大的判断失误——尽管回顾过去并不令人惊讶，因为他一直以来都是基于个人判断，即他认为美国人民什么时候“准备好”听取事实。
 
+在大多数以科学为基础的工作中，这种（判断失误）会招致强大的火力攻击，但福奇可以不承担任何责任，与此同时，一些试图提出实验室泄漏可能性问题的同行却被静音。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05131150/Copy-of-16x9-feature-photos-MOS-logos-3.png)*图片来源：Kathy文艺战友纽约曼哈顿现场报道*
+最近，当被问到为什么根据我们对武汉病毒学研究所（WIV）的了解，他否定了实验室泄漏假说时，福奇回答说：“我没有否定任何东西。”
 
-据香草山农场GNews纽约记者站的Kathy文艺战友，今天上午从美国纽约曼哈顿现场传回的报道，参加新中国联邦周年庆祝的战友代表们，目前正在返程中。战友们依依惜别，场面非常感人。再一次，香草山农场本地接待团队，再次担负起送战友们到达机场的任务。
-*战友们开始返程（视频来源：Kathy文艺战友现场报道）*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05123726/Copy-of-16x9-feature-photos-MOS-logos-2-1.png)
+那是彻头彻尾的谎言，在2020年5月接受《国家地理》（National Geographic）采访时，他对“科学家在实验室外发现病毒，将其带回实验室，然后病毒泄露”的说法嗤之以鼻，并补充说“[病毒]一开始就在野外，这就是为什么我不明白他们在说什么，也就是为什么我不花很多时间进行无休止争论的理由。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05120143/1-12.png)
+但没有人知道这种中共病毒（科学家称之为SARS-CoV-2）是否“一开始就在野外”，福奇引用了“历史经验”，但没有人发现蝙蝠携带这种病毒或它的直接祖先携带。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05120203/31-1.png)
+实验室泄漏的说法并非“无休止”，他们为一个令人费解的问题提供了一个似是而非的答案，如果这种病毒来自蝙蝠，那么生活在1100多英里外云南的蝙蝠是如何感染武汉的人类的？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05120224/35.png)
+最初的解释，海鲜市场，那里没有出售蝙蝠，也没有找到动物为中间宿主，就连北京方面也表示，市场并不是溢出点。福奇的两个主要先例，SARS-CoV-1和MERS，并没有受到这个问题的影响，在这些病毒爆发时，附近的实验室也没有研究中共病毒。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05120237/36.png)
+武毒所研究人员多次前往云南研究蝙蝠冠状病毒，我们只能合理地问他们是否将蝙蝠或蝙蝠样本运回武汉，并意外地感染了自己？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05120301/34.png)
+网上的照片显示，在没有适当保护的情况下处理蝙蝠，2018年，美国外交官参观了武毒所新的BSL-4实验室，并就此问题发出警告。武毒所主要在不太安全的BSL-2和BSL-3实验室进行中共病毒研究，SARS-CoV-1曾多次从中共国、新加坡和台湾的实验室泄露。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05122744/Copy-of-16x9-feature-photos-MOS-logos-1-1.png)
-*Kathy文艺战友纽约现场报道*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05122804/%E7%BA%BD%E7%BA%A6.jpeg)*图片来源：Kathy文艺战友*
+武毒所的研究人员从云南的一个矿洞中采集了SARS-CoV-2（一种名为RaTG13的蝙蝠病毒）的样本，确定了已知的SARS-CoV-2的近亲，据报道，他们在疫情前已经研究了数年，但没有发表任何研究结果。（编者注，这个RaTG13闫博士去年就指出是石正丽上传的假序列，目的就是为了混淆视听。）
 
-编辑/校对/上传：Delilah小胖
+如果他们也对SARS-CoV-2进行了未发表的研究呢？我们怎么知道这两种病毒的基因组结构之间的差异，大约百分之四，不是由武毒所的功能增强研究产生的？
 
-参考来源：
+这种可能性提供了一个潜在的原因，为什么我们科学机构中的不经选举的官僚们会立即抹黑实验室泄漏的解释。
 
-Kathy文艺一线报道
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
-**更多资讯，更多关注**
+福奇博士现在已经声名狼藉地否认了国家卫生研究院（NIH）资助武毒所的功能增强研究，但这是一个被疏忽的谎言，2015年，北卡罗来纳大学教堂山分校（University of North Carolina Chapel Hill）和武毒所的研究人员合作进行了一项功能增强研究，主要由美国纳税人资助，只有美国人得到了国家卫生研究院（NIH）的资助，但是武毒所得到了美国国际开发署（USAID ，United States Agency for International Development）的补助。
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+美国资金充裕，他们到底做了什么？中共国研究人员将蝙蝠冠状病毒的一种关键基因成分，称为刺突蛋白（spike protein），插入到一种人工鼠型SARS-CoV-1的脊骨中，结果就出现了一种在自然界中找不到的病原体，这种病原体可能在人类细胞中“引起强烈感染”，武毒所为这种嵌合创造提供了棘突蛋白序列，SARS-CoV-2的刺突蛋白也是导致该病毒对人类如此具有传染性的原因。
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+福奇利用自己在政府中的地位，以及他在自由媒体上当之无愧的正面声誉，故意歪曲实验室泄漏的含义，将其与生物武器计划混为一谈（这只是武汉获得功能增强研究的一个可能动机），否则他就显得太老了。
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+我们对中共病毒起源的调查才刚刚开始，但有一点是明确的：安东尼·福奇一再证明，在公共卫生方面，他有转移目标的历史，隐瞒不符合自己叙述的事实，发表不恰当的个人判断，歪曲事实。
 
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+在竞选期间，拜登说：“我会选择科学而不是小说。”
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+现在是他兑现诺言并解雇福奇的时候了。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+（全文完）
 
+看得出这是一篇在天使闫博士指导下，或者读懂了闫博士论文的文章，卢比奥参议员用言简意赅的语言描述清楚了中共制毒原理，适合普通大众理解中共病毒。也能揭穿老贼装聋作傻、转移目标的伎俩，不知拜登是不是还会装傻，继续袒护老贼？
 
+参考链接：
 
+【1】[https://gnews.org/zh-hans/1298236/](https://gnews.org/zh-hans/1298236/)
 
+【2】[https://www.foxnews.com/opinion/biden-science-fire-fauci-sen-marco-rubio](https://www.foxnews.com/opinion/biden-science-fire-fauci-sen-marco-rubio)
 
-+1
+0
