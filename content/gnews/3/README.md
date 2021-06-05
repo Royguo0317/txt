@@ -1,29 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【3秒灭共】特斯拉在中共国订单斩半
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1299429/)
+## 【热点播报】达扎克被任命为《柳叶刀》调查COVID来源的特别小组负责人
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1300428/)
 
-作者：休斯顿农场星光农场 写作部 火星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
-据法广网6月4日消息，随着中共政府加强对美国电动汽车厂商特斯拉的审查，特斯拉5月中国订单较4月减少近一半，股价应声急挫近5%。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05115011/Screenshot-2021-06-05-104905.jpg)
-据报道，中共国是特斯拉电动汽车的第二大市场，占其销量的30%左右。但因中共加强审查，该公司在中共国的月度净订单从4月份的逾1.8万份降至5月份的约9,800份，导致其股价在午后交易中下跌近5%，最新报价578美元。
+作者：纽约香草山农场 四季
 
-2019年，特斯拉在上海建立第一家海外工厂时，获得了上海的大力支持，生产Model 3电动轿车和Model Y运动型多用途车。Model 3轿车曾是中国最畅销的电动汽车。
 
-但是，在中美关系日益紧张的大背景下，中共监管机构对特斯拉公司以消费者投诉增多而加剧安全担忧为由，采取强硬立场，导致该公司电动汽车销量急速下滑。
 
-据中共国汽车工业协会(CPCA)秘书长崔东树称，特斯拉4月份在中共国销售了11,671辆Model 3和Model Y汽车，3月份在中共国共生产35,478辆汽车，大部分在本地销售。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-信息来源：
 
-[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210604-%E7%89%B9%E6%96%AF%E6%8B%89%E5%9C%A8%E4%B8%AD%E5%9B%BD%E8%AE%A2%E5%8D%95%E9%9D%A2%E4%B8%B4%E8%85%B0%E6%96%A9](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210604-%E7%89%B9%E6%96%AF%E6%8B%89%E5%9C%A8%E4%B8%AD%E5%9B%BD%E8%AE%A2%E5%8D%95%E9%9D%A2%E4%B8%B4%E8%85%B0%E6%96%A9)
 
-编辑：文順      校对：Helen      发稿：文柳
+据零对冲6月4日报道，受人尊敬的科学杂志《柳叶刀》成立了一个“特别工作组”，用以调查导致全球大流行的冠状病毒的起源。该工作组将重点分析就COVID起源提出的所有理论数据，分析SARS-CoV-2能够冲出武汉并在全球传播的原因。
 
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+![]()![](https://assets.zerohedge.com/s3fs-public/styles/inline_image_mobile/public/inline-images/GettyImages-1231072709.jpg?itok=KOQqy6vY)图片来源：零对冲
 
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
+然而，《柳叶刀》决定雇用资助武汉实验室功能增强研究的彼得-达扎克作为领导人。事实表明，达扎克已经对武汉实验室正在进行的研究之性质撒了谎——在疫情发生后，他声称不知道这是否是功能增强病毒。另外，达扎克作为世卫组织调查小组的首席调查员，在2021年2月访问武汉实验室的3个小时内就确定病毒不是实验室泄漏。而在最近公布的电子邮件中，达扎克感谢福奇博士在对实验室泄漏这种可能性进行任何科学研究之前就否定了该理论。所以，他可能是这个星球上最不适合对新冠来源进行客观分析数据的科学家。
+
+达扎克作为生态健康联盟的主席，是资助武汉病毒研究所实验室的承包商，也是该实验室研究项目的合作者和共同作者——他在过去的几年里向武汉病毒研究所投入了至少60万美元。同时，达扎克也为世界卫生组织工作，他公开承认自己参与了操作冠状病毒的工作。在2019年12月的一个视频里达扎克说，“冠状病毒相当好，你可以在实验室里很容易地操作它们。S蛋白可以驱动很多事情的发生。我们与北卡罗来纳大学教堂山分校（UNC）的拉尔夫·巴里克（Ralph Baric）教授合作在实验室里做一些工作，比如，获得可以构建蛋白质的序列, 插入另一种病毒的骨架。”
+
+此外，正如《每日邮报》和其他媒体所报道的，达扎克“策划了一场‘欺凌’运动，胁迫顶级科学家在一封给《柳叶刀》的信上签字，旨在将他用美国资金资助的武汉实验室关于COVID-19的责任排除在外”。达扎克利用他的影响力使该杂志发表了这封信，信中说，“即使声称实验室泄漏理论有任何可信度，也等于在散布‘恐惧、谣言和偏见’。”该信进一步指出，“我们团结一致，强烈谴责暗示COVID-19不是自然来源的阴谋论”。信中甚至还大言不惭地指出，“我们声明没有竞争性利益”。这封信有效地将科学界达成对实验室泄漏可能性“共识”的讨论关闭了整整一年。
+
+世卫组织科学顾问杰米-梅茨尔（Jamie Metzl）将达扎克的信描述为“科学宣传以及一种形式的暴行和恐吓。通过给任何持不同观点的人贴上阴谋论者的标签，《柳叶刀》这封信是完全违反科学方法的最恶劣形式的欺凌”。
+
+通过信息自由法案（The Freedom of Information Act）发布的电子邮件显示，事实上，达扎克已经确保这封信没有任何与生态健康联盟的联系，甚至考虑将他自己的名字从信中删除。
+
+更糟糕的是，《柳叶刀》成立的“特别工作组”的其他成员几乎都是达扎克的爪牙，其中一些人帮助他起草了那封明确指出“实验室泄漏理论是阴谋论”的信，还有一些人要么与他一起为脸书进行“事实核查”，要么在该活动中被引用为消息来源。考虑到这一切，《柳叶刀》的调查结果显而易见，它不应该，也不可能被用作反对实验室泄漏理论的可信的证据。
+
+科学界和医学界在冠状病毒灾难中整体沦陷是人类的悲哀，好在近期越来越多的科学家站出来揭露病毒真相。迟到的良知也是良知，迟到的正义也是正义。希望冠状病毒来源能被尽早认定，全球都应该团结起来向中共追究责任。
+
+参考阅读：
+
+[Scientist At Center Of Lab-Leak Controversy Put In Charge Of The Lancet’s Task Force To Investigate COVID Origin](https://www.zerohedge.com/covid-19/scientist-center-lab-leak-controversy-put-charge-lancets-task-force-investigate-covid)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
 0
