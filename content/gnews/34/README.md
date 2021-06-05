@@ -1,35 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】英六位前外相促约翰逊将香港危机纳入G7峰会议程
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1300865/)
+## 未被监测到的中共国渔船船队涉嫌入侵阿根廷水域
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1301022/)
 
-作者：休斯顿星光农场 写作部 FY（火星）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
-6月4日，横跨三十七年历史的英国六位前外相，联名致函英国首相约翰逊，促请其将香港危机和中共持续违反《中英联合声明》等议题纳入即将召开的G7峰会议程。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144921/Screenshot-2021-06-05-134737.jpg)
-***图片来源：法广中文***
+最近的一份报告记录了多达 6,000 艘外国渔船在阿根廷国家水域边界关闭公共跟踪设备超过 24 小时，敲响了警钟，即他们可能在该国专属经济区 (EEZ) 非法捕鱼。
 
-据法广网报道，联署者分别在1977年至2014年期间出任外相，包括欧文、聂伟敬、施仲宏、贝嘉晴、文礼彬及夏伟林。
+“中共国船队对这些事件中的 66% 负有责任，”总部位于华盛顿的致力于保护和恢复全球海洋的非营利组织 Oceana 在 6 月份的报告中说。该报告称，数百艘中共国渔船主要以短鳍鱿鱼为目标，这对阿根廷的经济和生态系统都至关重要。
 
-联署信指出，北京在过去数个月，以《港区国安法》为名，拘捕47名参与初选的民主派人士及前立法会议员；另又大肆改革香港的选举制度，修订入境条例，赋权当局可以禁止个别人士离港。经过这些操作，差不多所有香港著名的民主声音不是身处监狱或等候审讯，便是流亡海外，国际社会对香港的危机应作出更强而有力的回应。
+分析得出的结论是，从 2018 年 1 月到今年 4 月，未被发现的捕鱼活动总时间超过 60 万小时，许多船只在阿根廷专属经济区 1 英里范围内关闭了自动识别系统 (AIS)。
 
-联署人认为，英国作为联合声明签署国，应采取主导地位促成此事，敦促约翰逊在七国集团峰会的会议议程中，让国际社会响应在香港出现的危机，以及就中共国持续违反《中英联合声明》的处理达成共识，以确保在联合国备案的联合声明和“一国两制”得以落实。
+Global Fishing Watch 的 AIS 是 Oceana、SkyTruth 和 Google 于 2016 年推出的在线技术平台，可监控和记录船舶名称、船旗国和位置的数据。
 
-11至13日，由美国、加拿大、日本、英国、法国、德国、意大利组成的七大工业国集团（G7）将在英国召开领袖峰会，美国总统拜登（Joe Biden）、日本首相菅义伟、德国总理默克尔（Angela Merkel）等各国领导人届时都将出席。
+据美国之音报道，中国是世界上最大的渔业国，拥有世界四分之一的渔船和超过世界总捕捞量的三分之一。中共国渔业部门在 2020 年对非法和滥用捕捞进行了处罚，但专家表示，目前尚不清楚这些措施的执行情况。
 
-据报道，G7峰会曾在去年6月中发表联合公报，促请中共国停止在港实施《港区国安法》，认为国安法严重损害“一国两制”方针和香港的言度自治。但是中共人大常委会其后依然通过《国安法》。
+新闻来源：[zerohedge](https://www.zerohedge.com/markets/undetected-chinese-fishing-fleets-suspected-invading-argentinas-waters-report?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
-信息来源：
+编译：Boxinglady (文拳）
 
-[https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210605-%E6%8C%87%E9%A6%99%E6%B8%AF%E7%8E%B0%E5%8D%B1%E6%9C%BA-%E8%8B%B1%E5%89%8D%E5%A4%96%E7%9B%B8%E4%BF%83%E7%BA%A6%E7%BF%B0%E9%80%8A%E7%BA%B3%E5%85%A5%E4%B8%83%E5%9B%BD%E5%B3%B0%E4%BC%9A%E8%AE%AE%E7%A8%8B](https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210605-%E6%8C%87%E9%A6%99%E6%B8%AF%E7%8E%B0%E5%8D%B1%E6%9C%BA-%E8%8B%B1%E5%89%8D%E5%A4%96%E7%9B%B8%E4%BF%83%E7%BA%A6%E7%BF%B0%E9%80%8A%E7%BA%B3%E5%85%A5%E4%B8%83%E5%9B%BD%E5%B3%B0%E4%BC%9A%E8%AE%AE%E7%A8%8B)
+校对发稿：士多啤梨
 
-编辑：文顺 校对/发稿：Helen
-
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
-
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
-
+本文仅代表个人观点，不代表 Gnews 平台
 
 0

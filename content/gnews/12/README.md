@@ -1,34 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒的Delta变体更具侵略性和传染性
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1301121/)
+## 【2021年6月4日特别节目】闫博士：我们知道会有多难 会遭受怎样的死亡威胁 但是我们将推翻CCP消灭马列主义思想
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1301201/)
 
-```
-新闻来源：今日意大利（today.it）
-发布时间：2021年06月04日
-翻译整理/简评：斩草要除根
-```
+**编辑;华盛顿DC农场 路德简报项目组**
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05175946/E3IbxtNXEAEpR3z.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05180007/E3IbxtPWUAEGej_.jpg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05173018/808c4620-c052-11eb-8def-04e2679259f0.jpeg)图片来源：Pixabay图库
 
-最近被世界卫生组织更名为 Delta 的印度变种 B.1.617.2 现已在英国普遍传播，这个新变种的病毒毒株似乎比之前在肯特发现的变种（B.117 或 Alpha）更加具传染性，根据英国公共卫生部 (*PHE*) 发布的数据，Delta 变体的住院风险也高达 *Alpha* 的 2.6 倍。
 
-虽然说这些是初步分析还需要进一步的研究，但从在苏格兰和英格兰进行的公共卫生调查来看，第一剂疫苗的有效性降低似乎得到了证实。该文件指出减少不低于 15-20%，但在第二次给药后，保护作用会有所增加。然而，该文件还指出，就阿斯利康而言，即使两次接种后的疗效也存在“高度不确定性”。在辉瑞的案例中，英国公共卫生部之前的一项分析报告称，第一次接种后的保护率为 33%，第二次后为 60%。
+> 2021 年6月4日 特别节目 
+> 
+> 1.新中国联邦成立一周年 灭共盛会群星璀璨
+> 
+> 2.路德演讲： 今天病毒真相得到世界认可 新中国联邦人扬眉吐气 
+> 
+> 3.闫博士：我们知道会有多难 会遭受怎样的死亡威胁 但是我们将推翻CCP消灭马列主义思想 [pic.twitter.com/p9S6mUL31L](https://t.co/p9S6mUL31L)
+> — 平民爆料 (@WM18320321) [June 5, 2021](https://twitter.com/WM18320321/status/1401212979027320836?ref_src=twsrc%5Etfw)
 
-至于更大的传染性，英国公共卫生部的专家指出，*Delta*变种明显比 *Alpha* 更具传染性，而后者又比原始菌株更具传染性。英国国家卫生系统的报告提到了 12,431 例确定的 Delta 变体病例，而一周前发布的最新公告中为 6,959 例。
 
-#### **简评**：
 
-**可以肯定的是这个Delta变种绝对不会是中共病毒的最后一个变种体，还会有更多的变种出现。当前寄希望于靠疫苗来阻止病毒和变种的传播是徒劳的。中共病毒在以另外一种方式在消耗着各个国家的人力、财力，直到有一天世界会发现，如果不面对病毒的真相，其所做的一切都是徒劳。**
-（本文只代表译者观点，与Gnews无关）
-
-**新闻原文链接：**
-🔗[La variante Delta del coronavirus è più aggressiva e contagiosa: cosa dicono gli ultimi dati](https://www.today.it/attualita/variante-delta.html)
-
-* * *
-
-***编辑整理/校对: **Ting Guo*
-
-0
++1

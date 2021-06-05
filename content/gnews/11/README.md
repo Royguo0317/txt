@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟委员会开始对脸书展开调查
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1301142/)
+## 川普称领导众议院的想法“很有趣”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1301214/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年6月04日
-翻译 /整理/ 简评： Shuizhuyu
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05173707/brett-jordan-tWX_ho-328k-unsplash-scaled.jpg)
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05181154/T-3.jpg)republicanwire.org
+06月05日，美国前总统唐纳德·川普对成为美国国会众议院议长的建议感兴趣。他告诉《国会山报》。
 
+“你知道，这太有趣了。”川普说。他指出，一些同事曾建议他竞选参议院，但领导众议院的想法“可能看起来更好”。
 
-欧盟委员会正在调查脸书是否正在以反竞争的方式利用其在其他市场的分类广告服务 脸书的Facebook Marketplace 的地位。不排除该集团“扭曲网络分类广告服务领域竞争”的可能性。
+同时，这位前总统评估他参加国会中期选举的可能性非常低。川普可能成为众议院议长的想法是由他的前顾问史蒂夫·班农在前一天提出的。
 
-欧盟委员会因涉嫌在分类广告服务 Facebook Marketplace 中违反竞争法而对 Facebook 展开正式调查。欧盟竞争事务专员玛格丽特·维斯塔格 (Margrethe Vestager) 周五在布鲁塞尔宣布了这一消息。
+为了领导美国众议院，川普必须首先在一个地区获胜，然后大多数国会议员必须支持他作为议长的候选人。然而，民主党成员在美国众议院拥有多数席位，因此川普不太可能当选为议长。
 
-通过市场，社交网络的用户可以私下相互购买和出售商品。根据其自己的信息，欧盟委员会希望澄清 Facebook 是否正在以反竞争的方式利用其在市场的地位提供这项服务。如果竞争公司在 Facebook 上宣传他们的服务，Facebook 可能会获得具有经济价值的数据，然后将其用于对抗竞争对手。
+正如《国会山报》所指出的，川普当选国会议员充满了许多困难，其中最主要的是已完成的按地区登记的过程。同时，该报提醒说，此前川普只宣布支持某些国会候选人，但没有想过自己要成为一名立法者。
 
-简评： 近几年脸书以及遇到了多次麻烦， 扎克伯格也多次到美国国会进行听证。 现在欧盟对脸书也有怀疑了。 调查一下， 是好事。
+2020年12月，在仍是美国总统的时候，川普不排除他参加2024年总统选举的可能性。“这是一个伟大的四年。我们试图再争取四年时间。如果没有，我会在四年后再见。”他说。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+2021年2月，川普说他得到了选民的支持，但现在谈论竞选还为时过早。3月，他再次表示，选民有希望在三年内看到他参加竞选。
 
-🔗[Facebook-EU-Kommission-startet-Untersuchung-Verdacht-auf-Wettbewerbsverstoss](https://www.welt.de/wirtschaft/article231584505/Facebook-EU-Kommission-startet-Untersuchung-Verdacht-auf-Wettbewerbsverstoss.html)
+今年4月，这位前总统表示，相信共和党人将在2024年成为总统。他还说，在2022年，共和党将重新获得众议院的多数席位。
 
-+1
+参考链接：
+
+[https://www.rbc.ru/politics/05/06/2021/60badae09a79474a3474b18b](https://www.rbc.ru/politics/05/06/2021/60badae09a79474a3474b18b)
+
+0

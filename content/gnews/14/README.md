@@ -1,49 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】尽管城市已重新开放，但曼哈顿的办公楼空置率仍在继续飙升
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1301124/)
+## 美国务院工作人员被警告不要调查中共病毒来源
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1301171/)
 
-香草山写作组 四季
+俄罗斯莫斯科喀秋莎农场  银河
 
+编辑上传   水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05175333/o-1.jpg)steverotter.com
+《纽约邮报》6月3日报道，一位前官员在一份令人震惊的报告中透露，国务院工作人员被警告不要调查中共病毒起源，因为这将”打开一个麻烦的盒子”。
 
+国务院军控、核查和合规局前代理助理秘书托马斯·迪南诺(Thomas DiNanno)称这个警告“像是在掩盖事实”，“我不打算参与其中。”《名利场》杂志引用了1月9日的一份长达5页的备忘录，在备忘录中，概述了国务院技术人员的“担忧和蔑视”，以及“对简报和演示完全没有回应”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+该杂志称，共有四名前国务院官员称，他们被警告不要调查大流行的“实验室泄漏”理论，并多次被建议不要打开“潘多拉的盒子”。
 
+《名利场》(Vanity Fair)在其近1.2万字的报告中称，国防部军控、核查和合规局的一小群官员获得了机密情报，表明武汉病毒学研究所的三名科学家于2019年秋季在对中共病毒样本进行“功能获得”实验时患病。克里斯托弗·朴 (Christopher Park)，国务院在生物方面的美国国际安全与防扩散政策主管,告诉他们不要说任何信息以防可能会指向美国政府自身在功能性研究中的作用。
 
+一位熟悉情况的消息人士表示，在场的一些人“绝对震惊”，因为一名政府官员“在这场正在发生的灾难面前，竟然如此赤裸裸地反对透明度”。
 
-零对冲6月4日报道，自病毒大流行开始一年多以后，纽约市的经济正轰轰烈烈地重新开放。但是，办公楼市场仍处于困境。据高力公司（Colliers）的商业房地产经纪报告，即使租约增加，曼哈顿的办公空间供应仍在不断创下新的记录。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05122804/%E7%BA%BD%E7%BA%A6.jpeg)
-写字楼5月份的供应率连续第12个月上升到17%。自大流行病开始以来，空置率猛增70%，达到惊人的9200万平方英尺。高力公司表示，转租占总供应量的23%，是去年7月以来的最低值，转租的库存空间比大流行病开始以来多了75%
+功能增强研究可以增加病毒的传染性和毒性，2014年10月，奥巴马总统领导下的美国政府下令“暂停”对流感、中东呼吸综合征(MERS)和SARS病毒这类实验的新资助，但《名利场》杂志称，“为保护公众健康或国家安全迫切需要”的项目被豁免。
 
-虽然需求正在恢复，但是由于在家工作成为“新常态”，曼哈顿的写字楼的供应过剩可能是长期的趋势。因无法获得租金，建筑运营商最终可能会陷入财务困境。
+这篇文章说，2017年，在特朗普总统的领导下，这项禁令被取消，取而代之的是一个名为P3CO的审查系统，即潜在的流行病病原体护理和监督，这使得审查过程处于保密状态。据报道，资助这项研究的美国国立卫生研究院(National Institutes of Health)的一位长期任职的官员称，P3CO不过是装点门面而已。
 
-根据卡斯尔系统（Kastle Systems）的数据，截至5月下旬，纽约地区只有约18%的办公人员返回工作岗位。虽然摩根大通、高盛和脸书等大公司准备在未来几个月让员工返回办公室，但根据卡斯尔系统针对全美国重返工作岗位的数据，人员重返办公室的速度非常缓慢。
+“如果你禁止功能增强的研究，你就禁止了所有的病毒学。”这位官员告诉《名利场》。
 
-曼哈顿空置的摩天大楼不仅仅是办公楼。随着人们成群结队地逃离这个自由的城市，前往郊区，住宅库存也在激增。
+非营利组织生态健康联盟(EcoHealth Alliance)从美国国立卫生研究院(NIH)获得的为期五年、价值340万美元的拨款中，向武汉研究所提供了近60万美元的纳税人资金。
 
-中共病毒肆虐全球，对经济的打击和对人类生活方式的改变是惊人的。昔日自由繁荣的城市正在被摧毁，实在令人唏嘘。进入6月，以毒灭共已是大势所趋。全人类都应该行动起来，揭露病毒真相，向中共追责，结束这一人类灾难。
+美国国立卫生研究院主任柯林斯上周在众议院拨款小组委员会作证时表示，武汉实验室的研究人员“没有得到国立卫生研究院批准进行功能增强研究”。但柯林斯补充说，“当然，我们不知道他们可能有其他资金来源，也不知道他们可能在我们批准的拨款范围之外进行其他活动。”
 
-原文链接：
+前美国疾病控制与预防中心(Centers for Disease Control and Prevention)主任罗伯特·雷德菲尔德(Robert Redfield)表示，他因为公开支持中共病毒从中共国实验室泄漏的说法而受到了死亡威胁。
 
-[https://www.zerohedge.com/markets/manhattan-office-supply-continues-soar-even-city-reopens](https://www.zerohedge.com/markets/manhattan-office-supply-continues-soar-even-city-reopens)
+随着彻查病毒真相的呼声越来越高，福奇的邮件泄露了他对病毒真相知道的远比他承认的要多。拜登政府一方面迫于压力承诺在90天内调查病毒真相，一边力挺隐瞒真相的福奇，让人质疑拜登在整个中共病毒疫情中与中共深度勾兑的参与程度。是调查真相还是如对他的质疑般是寻求缓冲，寻找机会继续为中共隐瞒，需要等待进一步的认证。
 
-![This image has an empty alt attribute; its file name is 6_june.jpg]()![This image has an empty alt attribute; its file name is 6_june.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+参考链接：
 
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+[https://nypost.com/2021/06/03/state-dept-staffers-were-warned-against-probing-covid-origin-report/](https://nypost.com/2021/06/03/state-dept-staffers-were-warned-against-probing-covid-origin-report/)
 
 0
