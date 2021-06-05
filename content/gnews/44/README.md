@@ -1,33 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Sellin上校号召战友让刘善虑“出名”
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1300089/)
+## 新加坡卫生部表示将暂停广东旅客入境
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1300129/)
 
 #### 文章撰写:【默凡】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05085246/3l5iuggsadfsdsfg.6244.jpeg)Shan-Lu Liu
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05092415/1S234nip45aste_20dsa4621-06-05_234531-22-28-1.png)
 
-6月5日，Sellin上校发推说道：让刘善虑出名。
+近日，中共国广东省广州市爆发新一波疫情，从5月21日至6月3日，确诊病例已接近80例。新加坡卫生部6月4日表示，鉴于广东近期新冠疫情确诊案例增加，将紧缩边境管制，禁止过去21天内曾到中共国广东、持有航空通行证的短期旅客入境新加坡。
 
+新加坡卫生部发布新闻稿表示，抗疫工作小组密切关注全球疫情发展，有鉴于广东省确诊案例增加，将紧缩对来自广东旅客的边境管制措施。
 
+新加坡卫生部表示，鉴于广州确诊案例上升，自5日晚上11时59分起，过去21天内曾到广东省、持有航空通行证（ATP）的短期旅客将不被允许入境新加坡。过去21天内有广东旅游史的新加坡公民、永久居民及长期准证持有者，抵达新加坡后必须接受PCR检测，并在住处隔离7天；隔离期满前需要再次接受PCR检测。另外，过去21天内待在广东以外的中共国其他地区的旅客在抵达新加坡后，将持续在机场接受检测，取代隔离。
 
-> Make this guy famous.[@shanluliu](https://twitter.com/shanluliu?ref_src=twsrc%5Etfw) [pic.twitter.com/SFsDGGZmsC](https://t.co/SFsDGGZmsC)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 4, 2021](https://twitter.com/LawrenceSellin/status/1400872953177313286?ref_src=twsrc%5Etfw)
-
-
-
-刘善虑是灵宝市阳平镇徐营村刘家峡人，1984年从灵宝一高毕业，考进河南医科大学(现郑州大学医学院)，1990年考入中共国预防医学科学院(现中共国疾病控制中心)病毒学研究所，获微生物学及免疫学硕士学位。1994年赴美国西雅图华盛顿大学深造，获哲学博士学位。
-
-目前，刘善虑是美国俄亥俄州立大学逆转录病毒研究中心终身正教授、病毒学和新发病原体研究中心主任，主要从事病毒侵入细胞机制、病毒免疫逃逸机制等方面的研究工作。多年来，他荣获并承担美国国立卫生研究院（NIH）等多个研究机构多项研究基金，在Plos Pathogens、PNAS、Cell Microbiology、Journal of Virology等国际著名杂志上发表论文40多篇，担任Cancer Research、Journal of Virology、Journal of Biological Chemistry等多个国际刊物的审稿人。
-
-参考文章：
-
-[1][美国密苏里大学刘善虑博士到访广州生物院](https://www.cas.cn/hzjl/gjjl/hzdt/201406/t20140627_4144701.shtml)
-
-[2][从灵宝走出去的科学家—美籍华裔教授刘善虑，成功入选美国微生物科学院院士](https://www.sohu.com/a/219216343_99980578)
-
-[3][Shan-Lu Liu](https://mcdb.osu.edu/people/liu.6244)
+参考文章：[新加坡：将暂停广东旅客入境](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210604-%E6%96%B0%E5%8A%A0%E5%9D%A1-%E5%B0%86%E6%9A%82%E5%81%9C%E5%B9%BF%E4%B8%9C%E6%97%85%E5%AE%A2%E5%85%A5%E5%A2%83)
 
 本文仅代表作者本人观点，不代表Gnews平台
 
