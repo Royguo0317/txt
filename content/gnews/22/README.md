@@ -1,35 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】英六位前外相促约翰逊将香港危机纳入G7峰会议程
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1300865/)
+## 阿舍呼吁成立中共病毒调查委员会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1301008/)
 
-作者：休斯顿星光农场 写作部 FY（火星）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
-6月4日，横跨三十七年历史的英国六位前外相，联名致函英国首相约翰逊，促请其将香港危机和中共持续违反《中英联合声明》等议题纳入即将召开的G7峰会议程。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144921/Screenshot-2021-06-05-134737.jpg)
-***图片来源：法广中文***
+俄罗斯莫斯科喀秋莎农场   银河
 
-据法广网报道，联署者分别在1977年至2014年期间出任外相，包括欧文、聂伟敬、施仲宏、贝嘉晴、文礼彬及夏伟林。
+编辑上传   水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05155635/A-2.jpg)eaglesvine.com
+DaiLy Caller 6月4日报道，前国务院调查员戴维·阿舍 (David Asher)表示，他希望看到一个类似9/11事件的委员会来调查中共病毒大流行的起源。
 
-联署信指出，北京在过去数个月，以《港区国安法》为名，拘捕47名参与初选的民主派人士及前立法会议员；另又大肆改革香港的选举制度，修订入境条例，赋权当局可以禁止个别人士离港。经过这些操作，差不多所有香港著名的民主声音不是身处监狱或等候审讯，便是流亡海外，国际社会对香港的危机应作出更强而有力的回应。
+阿舍表示，关于中共政府知道些什么以及什么时候知道的，有很多疑问也让他感到担忧。例如，一些专家，比如白宫高级医疗顾问安东尼·福奇博士，起初似乎没有兴趣向中共国施压来获得真正的答案。
 
-联署人认为，英国作为联合声明签署国，应采取主导地位促成此事，敦促约翰逊在七国集团峰会的会议议程中，让国际社会响应在香港出现的危机，以及就中共国持续违反《中英联合声明》的处理达成共识，以确保在联合国备案的联合声明和“一国两制”得以落实。
+阿舍首先指出，最新报道称，武汉一家实验室的三名工作人员因2019年11月出现中共病毒症状而住院。而福奇似乎更关心质疑是否会被视为敌对。福奇的回应是：“弄清楚到底是什么显然符合中共国的利益。你需要开放和合作。你可以得到它的一个方法是不要指责。”
 
-11至13日，由美国、加拿大、日本、英国、法国、德国、意大利组成的七大工业国集团（G7）将在英国召开领袖峰会，美国总统拜登（Joe Biden）、日本首相菅义伟、德国总理默克尔（Angela Merkel）等各国领导人届时都将出席。
+阿舍强调中共公开掩盖错误并不符合中共利益。美国需要成立像9/11专项委员会把事情弄清楚。需要对中共进行经济上的制裁并阻止此类事情的再度发生。
 
-据报道，G7峰会曾在去年6月中发表联合公报，促请中共国停止在港实施《港区国安法》，认为国安法严重损害“一国两制”方针和香港的言度自治。但是中共人大常委会其后依然通过《国安法》。
+参考链接：
 
-信息来源：
-
-[https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210605-%E6%8C%87%E9%A6%99%E6%B8%AF%E7%8E%B0%E5%8D%B1%E6%9C%BA-%E8%8B%B1%E5%89%8D%E5%A4%96%E7%9B%B8%E4%BF%83%E7%BA%A6%E7%BF%B0%E9%80%8A%E7%BA%B3%E5%85%A5%E4%B8%83%E5%9B%BD%E5%B3%B0%E4%BC%9A%E8%AE%AE%E7%A8%8B](https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210605-%E6%8C%87%E9%A6%99%E6%B8%AF%E7%8E%B0%E5%8D%B1%E6%9C%BA-%E8%8B%B1%E5%89%8D%E5%A4%96%E7%9B%B8%E4%BF%83%E7%BA%A6%E7%BF%B0%E9%80%8A%E7%BA%B3%E5%85%A5%E4%B8%83%E5%9B%BD%E5%B3%B0%E4%BC%9A%E8%AE%AE%E7%A8%8B)
-
-编辑：文顺 校对/发稿：Helen
-
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
-
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
-
+[https://dailycaller.com/2021/06/04/chinese-feel-pain-economically-david-asher-investigator-covid-commission-david-asher/](https://dailycaller.com/2021/06/04/chinese-feel-pain-economically-david-asher-investigator-covid-commission-david-asher/)
 
 0
