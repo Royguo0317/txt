@@ -1,90 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “集中力量办大事”真的是社会主义的优势吗？
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1300010/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（三十六）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1300088/)
 
-作者：User\_ID\_0001 | 校对：西川 Stanly | 审核：Beicy-数学老师 | Page: Daoiii
+作者：纽约香草山信息部 6zero4
 
-[!\[\]()!\[\](https://spark.adobe.com/page/LTr6n6mqsThD2/images/b5080e1c-a92a-496a-93c2-f17a150d33ec.jpg?asset_id=c3279d0c-f399-43c0-9849-1bdec997069f&amp;img_etag=%224ca51c82439f601ad80222f0782409d1%22&amp;size=1024)](https://spark.adobe.com/page/LTr6n6mqsThD2/images/b5080e1c-a92a-496a-93c2-f17a150d33ec.jpg?asset_id=c3279d0c-f399-43c0-9849-1bdec997069f&amp;img_etag=%224ca51c82439f601ad80222f0782409d1%22&amp;size=1024)切尔诺贝利(迷你剧)剧照
-
-
-> “社会主义制度的优势在于集中力量办大事”，此言出自改开时期的邓小平，之后流传甚广，几乎成为全民的常识，甚至还写入政治课本，成为不容置疑的标准答案。CCP把病毒洒向人间以来，国外疫情不断高涨，而国内在野蛮封城等强力措施下疫情却得到良好控制，此论更是甚嚣尘上。然而细究之下，此话值得商榷之处甚多。
-
-
-### **一、社会主义国家的目标是实现公有制和按需分配，由此产生了社会主义国家无法克服的内生问题，就是“行政权力过于集中而又缺乏有效监督”**
-
-“大事”可能的确是需要“大的力量”来解决，不过因为缺乏有效监督，政府在制定重大决策时，往往带有很大的随意性和主观性，甚至个别领导可以通过强力的国家机器，把个人意志强加到一方百姓甚至全体国民身上。因此，在决定什么才是”大事“这个问题上，即在“发力方向”上，社会主义国家鲜有明智的决策，造成“越努力越错误”的悲剧。在中央政府层级上，远如共匪窃国以来历次祸国殃民的政治运动、朝鲜战争；近如三峡大坝，南水北调，一带一路，莫不如此。在地方层级上，领导“拍脑门决定、拍胸脯保证、拍大腿后悔、拍屁股走人”的荒唐事也是数不胜数。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/LTr6n6mqsThD2/images/00129316-bfe1-4614-a3ac-8a475bd6062a.jpg?asset_id=6efe5e38-6353-4681-ab68-ffd31104f317&amp;img_etag=%22160dbdb0e0733331bc17da5e6e27912f%22&amp;size=2560)](https://spark.adobe.com/page/LTr6n6mqsThD2/images/00129316-bfe1-4614-a3ac-8a475bd6062a.jpg?asset_id=6efe5e38-6353-4681-ab68-ffd31104f317&amp;img_etag=%22160dbdb0e0733331bc17da5e6e27912f%22&amp;size=1024)
-
-### **二、其次，用行政力量解决问题并非万能药方，甚至是最差选项。行政权力的行使，天然的具有强迫性，形式化、官僚化、唯长官意志为上、假公济私等缺陷**
-
-典型例子莫如武汉疫情期间，红十字会仓库里抗疫物资堆叠成山，领导司机可以随到随取；而医院却苦苦等待无米下锅，一线的医护人员只能到红十字会登门讨要！在受到各界强烈质疑后，武汉红十字会竟理直气壮地表示“我们只管接收，不管分发”，把权力的傲慢表现得淋漓尽致。而在红十字会和专业的物流公司对接后，急缺的物资便奇迹般各就各位、顺畅地到达各个医院。
-
-再如几年来轰轰烈烈的精准扶贫，须知政府不能包办一个人的人生。如果一个人因懒惰而贫困，那是他的个人选择；如果一个人因为没有机会而贫困，那是社会活力不够或机会不平等；如果一个人因丧失劳动能力而贫困，那理应由社会救济和保障机制来解决；如果一个人因病致贫，那是医疗保障系统出了问题。。。总之政府应该做的是维持公平的社会环境，促进经济的健康发展和提供足够的社会保障，使每个人都可以公平地、没有后顾之忧地为自己创造美好的生活；而不是亲自下场给每一个贫困户开小灶。这样不仅造成政府资源的错配和浪费，也导致扶贫行为在冗长的行政流程中走样变形。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/LTr6n6mqsThD2/images/2f92318c-8ee3-4210-a34d-261137441de6.jpg?asset_id=c8a9d4da-e90a-4b70-93bc-f79629bc754b&amp;img_etag=%22d3a8719a5aa6eef12e950edd306da2d5%22&amp;size=2560)](https://spark.adobe.com/page/LTr6n6mqsThD2/images/2f92318c-8ee3-4210-a34d-261137441de6.jpg?asset_id=c8a9d4da-e90a-4b70-93bc-f79629bc754b&amp;img_etag=%22d3a8719a5aa6eef12e950edd306da2d5%22&amp;size=1024)中共国农村扶贫建设
-
-因此，专业的事应由专业的人来做，个人的事由个人来负责，才是社会正常运行的方式。政府只需扮演好自己的角色，不必事必躬亲。
-
-### **三、世间万物自有其发展规律，人为扭曲自然规律或许可以获取短期的预期利益，但往往为日后的灾难埋下祸根**
-
-深圳的赛格大厦施工时曾创造2.7天盖一层楼的纪录，被誉为“深圳速度”，获得1996年中建总公司优秀工程设计一等奖和2000年国家科技进步二等奖，可谓是“集中力量办大事”的典型实践。可惜当时风光无限，如今却成为“欲速则不达”的反面典型。考虑到中国的房地产30年来突飞猛进的速度，大大小小“赛格大厦”恐怕早已遍立全国。中国的房屋寿命只有30年，不仅仅是悲观的预测，而是正在实现中的悲剧！
-
-而“计划生育”政策，则是比日后可能的全国危楼、全国拆楼更大的、更不可弥补的历史悲剧。“一人超生，全村结扎” “宁可血流成河，不可超生一个” “今日逃避计生政策外出，明天回家一切财产全无” “宁肯断子绝孙，也要让党放心” “上吊给根绳，喝药给一瓶” “宁肯流出来，不许生出来”，这些野蛮的政策标语闻之令人胆战心惊。山东某地竟然还推行“百日无孩”政策，主张当地妇女无论是怀孕第几胎，还是怀孕几个月，一概强迫人工流产，以此造成社会恐慌，以及大量孕妇被迫流产。当年执行计划生育政策，不可谓“力量不集中”，也确实达到预期目的，降低了新生儿的绝对数量；但因违背了人口发展规律和根深蒂固的“重男轻女”的民情，其两大恶果，人口老龄化和男女比例失衡，在今天已显露无疑。就算开放二胎和三胎，新生儿要也到20或30年后才能形成社会主力，远水焉能解得近渴？我们可以集中力量让人不生，现在也正在集中力量让人多生，但不知怎样能集中力量令时光加速呢？！
-
-[!\[\]()!\[\](https://spark.adobe.com/page/LTr6n6mqsThD2/images/60b31c3f-6013-490f-9148-c1d466a60161.jpg?asset_id=23c80968-00c2-43fd-a91a-10867924128a&amp;img_etag=%222de29a595e8807a7591eaf8b14aa7d27%22&amp;size=1024)](https://spark.adobe.com/page/LTr6n6mqsThD2/images/60b31c3f-6013-490f-9148-c1d466a60161.jpg?asset_id=23c80968-00c2-43fd-a91a-10867924128a&amp;img_etag=%222de29a595e8807a7591eaf8b14aa7d27%22&amp;size=1024)“集中力量办大事”工程——三峡大坝
-
-### **四、谈到集中力量办大事，最为人津津乐道的成功案例莫过于两弹一星和探月工程**
-
-**但是须知，美国的曼哈顿工程和登月计划也是集中力量办大事的代表事例，所以集中力量办大事并非社会主义国家独有的超自然能力。简而言之，在满足下列条件的情况下，由政府来集中国家力量做科技研发是可行的：**
-
-1. 研发目标清晰，技术方向明确，做短平快的实用性而非基础理论性的研究。
-2. 政府或国家是研发成果的唯一客户。
-3. 不在乎研发成本，也不在乎成果质量高低，更重要的是在短期内解决有无的问题。原子弹是典型代表。
-
-
-但是需要注意的是，虽然美国也有上述集中力量办大事的例子，但都是被动参与。如果不是纳粹和苏联集中力量获得了先发优势，美国其实并无必要被动跟进。集中力量办大事正如金庸武侠中的七伤拳，内力深厚的美国偶尔为之，不仅可轻松制敌，亦无损自身；而根基不牢却又急功近利的社会主义国家却招招使出七伤拳，却是未伤人先伤己，使得越多死得越快。
-
-### **五、最适合集中力量解决的，往往是低级的、重复性、低脑力的活动，极端例子如搬砖。**
-
-**越是需要大量脑力劳动、上下游产业链密切配合、紧跟市场变化的产业，越是只能在市场经济中随机碰撞产生**
-
-现代夜郎国朝鲜可以组织十万人跳阿里郎，气势恢宏，确实只有金家王朝才做得到，但朝鲜却绝无可能创作出40亿点击量的《江南Style》；朝鲜的制造业可以在领袖生日之际集中力量让人民吃上半块豆腐；但绝不可能生产出三星手机和现代汽车。同样，在中国能体现社会主义优势的，除了上述的两弹一星和探月工程具有较高科技含量外，其他大多是巨型基建工程，如三峡大坝，南水北调，青藏铁路等；如十万人的阿里郎一样，只是低层次社会活动的巨无霸版。我国钢铁产能占据全世界产能的一半还多，靠的不是集中力量大炼钢铁，而是改革开放、引入外资和世界接轨。可悲的是，现在我们又要投资万亿集中力量“大炼芯片”，已有大量骗资和烂尾案例曝光后被新闻报导。
-
-### **六、因为行政权力过于集中而又缺乏有效监督，社会主义国家有大量的根本性问题反而是其永远无法集中力量解决的。如：**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/LTr6n6mqsThD2/images/2ff4796b-450f-4789-88e3-64ee28f402b6.jpg?asset_id=6030a264-0bb1-4392-b1b9-251aff112456&amp;img_etag=%228d114f7d6d82fbc872c9a11f1241947e%22&amp;size=1024)](https://spark.adobe.com/page/LTr6n6mqsThD2/images/2ff4796b-450f-4789-88e3-64ee28f402b6.jpg?asset_id=6030a264-0bb1-4392-b1b9-251aff112456&amp;img_etag=%228d114f7d6d82fbc872c9a11f1241947e%22&amp;size=1024)
-
-- 我们可以以举国之力在奥运会上夺金，却绝不可能以举国之力增强人民体质；
-- 我们可以集中力量打黑除恶如同秋风扫落叶，但查处腐败官员却总是高高举起轻轻放下；
-- 我们可以集中力量引入外国留学生并提供全额奖学金和三个学伴，但绝不可能加大对基础教育的投入；
-- 我们可以集中力量让工人下岗，但却绝不可能提供全民养老；
-- 我们可以集中力量封楼封城，但绝不可能考虑居民可能饿死在家中；
-- 我们可以集中力量让全民打问题疫苗，但绝不可能告诉你两块钱一片的老药硫酸羟氯喹就可以让你保命；
-- 我们可以集中力量一次援助非洲600美元，但绝不可能取消30年只募捐了161亿人民币的希望工程；
-- 我们可以集中力量打击P2P，但受害者的钱绝不可能找回来；
-- 我们可以集中力量发展房地产，但空置率绝对统计不出来；
-- 我们可以集中力量反腐，但官员财产绝不可能公开；
-- 我们可以集中力量推行一胎化政策，但绝不可能妥善照顾失独家庭；
-- 我们可以集中力量推行二胎甚至三胎政策，但绝不可能降低育儿成本；
-- 我们可以集中力量提高公务员待遇，但农民工“恶意”讨要薪金却是犯法
-
-
-秦始皇可以集中力量修长城，隋炀帝可以集中力量开凿运河；集中力量办大事，其实是社会主义国家继承的所有专制社会的通病，而非其独有的优势。当政府可以有权随意地集中力量做它想做的事情，那么它做的往往是大坏事，大错事，而不是大好事。纵观历史，政府所做的恶远远超过它做的善，历史给我们的最大教训之一就是要把权力关在笼子里。我们宁愿限制政府在职责范围外行善的能力，也要绝对防范政府在职责范围内行恶的可能。集中力量办大事不过是洗脑式的美化宣传，小政府大社会才是我们应该追求的目标。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/LTr6n6mqsThD2/images/7d3e0f11-0f64-4a77-bc82-03fd16d0c37f.png?asset_id=0e1e3835-b518-479a-820a-da5b931f46e6&amp;img_etag=%22832d76a588a65b7c73c278f06db05240%22&amp;size=1024)](https://spark.adobe.com/page/LTr6n6mqsThD2/images/7d3e0f11-0f64-4a77-bc82-03fd16d0c37f.png?asset_id=0e1e3835-b518-479a-820a-da5b931f46e6&amp;img_etag=%22832d76a588a65b7c73c278f06db05240%22&amp;size=1024)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/LTr6n6mqsThD2/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/LTr6n6mqsThD2/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
 
-+1
+6月4日塞林博士的6连推：
+
+第1推，转发“火来2号”战友贴上塞林博士接受新中国联邦一周年庆典主会场主持人Ada小姐的视频采访截图。非常荣幸，能够在法制基金举办的新中国联邦一周年庆典上发表讲话。
+
+
+
+> I had the honor of speaking at the Rule of Law Foundation's first anniversary of the New Federal State of China. [https://t.co/A6SitoglK5](https://t.co/A6SitoglK5)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 4, 2021](https://twitter.com/LawrenceSellin/status/1400680520829313024?ref_src=twsrc%5Etfw)
+
+
+
+第2推，在一篇编纂出色的COVID-19起源报告中，其矿洞故事及其所谓的RaTG13蝙蝠冠状病毒将Tucker Carlson愚弄了，其实RaTG13既不能很好地与人类甚至蝙蝠的受体结合，更不符合进化路径，它要么是一个合成中间体，要么就是假的病毒基因序列。并贴上Tucker Carlson早期在节目中引述石正丽“云南矿洞说”里的RaTG13是COVID-19起源之视频片段。
+
+
+
+> In an otherwise excellent report on [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s origin Tucker Carlson gets fooled by the mine story and the alleged bat coronavirus RaTG13, which doesn't bind well to human or bat receptors nor fits the evolutionary pathway. It is either a synthetic intermediate or a fake sequence [pic.twitter.com/ut2T71iE3a](https://t.co/ut2T71iE3a)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 4, 2021](https://twitter.com/LawrenceSellin/status/1400690946661130245?ref_src=twsrc%5Etfw)
+
+
+
+第3推，转发“火来2号”战友回应塞林博士上一推的推文，您完全正确，只关注于WIV将让大量CCP军事生物武器项目逃出公众视线。并贴上一张标注着COVID-19骨架ZC45/ZXC21真实起源地浙江舟山、WIV以及COVID-19假祖先RaTG13/RaTG15发源地云南墨江，这3个地方在中国地图上的位置关系图。COVID-19侦探“火来2号”完美地诠释了这个问题，并提供了一张出色的图片作为论证的起点。RaTG13不是真实的东西，它要么是一个合成中间体，要么就是假的病毒基因序列。COVID-19由实验室制造并与PLA生物武器计划关联。
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) describes the issue perfectly and provides an excellent slide that is the starting point for the argument. RaTG13 is not real, either a synthetic intermediate or a fake sequence. COVID-19 is lab-made AND linked to the PLA's bioweapon program. [https://t.co/M5C2W7TQO5](https://t.co/M5C2W7TQO5)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 4, 2021](https://twitter.com/LawrenceSellin/status/1400699466450149379?ref_src=twsrc%5Etfw)
+
+
+
+第4推，各位COVID-19侦探请注意，为了掩护PLA，CCP正在计划着对自己那个虚假的COVID-19自然起源学说的失败做出回击，诸如泄露的假新闻、虚假RaTG13、WIV等。全面打开你们的侦探雷达，让他们的谎言无处遁形！贴上了CCP七常委为背景并加上文字“CCP VIRUS”的宣传图片。
+
+
+
+> Attention all [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives – To protect the PLA, the CCP is planning to respond to the failure of the CCP's fake natural-occurring theory of [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw)'s origin – fake news about a leak, fake RaTG13, Wuhan Institute of Virology. Turn on your radars. Shut down their lies. [pic.twitter.com/vqjV8rVQQI](https://t.co/vqjV8rVQQI)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 4, 2021](https://twitter.com/LawrenceSellin/status/1400846125758914560?ref_src=twsrc%5Etfw)
+
+
+
+第5推，各位COVID-19侦探请注意，将你们的焦点聚集在PLA身上，COVID-19起源问题暴露了所有的PLA科学家，以及与PLA合作的所有美国和中国科学家，把他们的照片贴上来，CCP试图将注意力从PLA身上转移开！并再次贴上那张标注着COVID-19骨架ZC45/ZXC21真实起源地浙江舟山、WIV以及COVID-19假祖先RaTG13/RaTG15发源地云南墨江，这3个地方在中国地图上的位置关系图。
+
+
+
+> Attention all [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives – Focus your attention on the People's Liberation Army, the source of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) Expose all PLA scientists and all U.S. and Chinese scientists working with the PLA. Post their photos here. The CCP is trying to distract attention away from the PLA. [pic.twitter.com/uPX1D6I7Ex](https://t.co/uPX1D6I7Ex)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 4, 2021](https://twitter.com/LawrenceSellin/status/1400867160981921792?ref_src=twsrc%5Etfw)
+
+
+
+第6推，贴上了美国微生物科学院院士、俄亥俄州立大学逆转录病毒研究中心终身正教授、病毒学和新发病原体研究中心主任刘善虑的照片。
+
+
+
+> Make this guy famous.[@shanluliu](https://twitter.com/shanluliu?ref_src=twsrc%5Etfw) [pic.twitter.com/SFsDGGZmsC](https://t.co/SFsDGGZmsC)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 4, 2021](https://twitter.com/LawrenceSellin/status/1400872953177313286?ref_src=twsrc%5Etfw)
+
+
+
+CCP-PLA科学家们早期精心编纂的COVID-19病毒自然起源理论，及以RaTG13等虚构的病毒祖先和各种五花八门的宿主如穿山甲、竹鼠等为蓝本的支持报告，曾经将整个世界误导到了一个极其荒谬的泥潭，连大名鼎鼎的福克斯金牌主播Tucker Carlson也未幸免，被石正丽那引人入胜的“云南矿洞”故事无情地愚弄了。自疫情爆发以来一年半的时间里，人类处于被病毒吞噬的汪洋大海中，媒体界、舆论界、科学界、政治界一片黑暗，CCP的病毒自然起源说一手遮天，不容任何人讨论和质疑其它任何起源问题，尤其是视真理和严谨为生命的医学科学家，在福奇和谭德赛等世界顶级医学技术官僚的主导和怂恿甚至威胁下，本应神圣并造福人类健康的科学家们，黯然失色，很多已经退变成为腐朽的、邪恶的帮凶，协助CCP-PLA搬弄是非、混淆视听、误导世界、掩盖真相、涂炭生灵，呜呼哀哉！
+
+曾几何时、星移斗转、柳暗花明，在闫博士关于COVID-19起源的无可辩驳的3个报告之无尽鞭策与拷问下，在天使闫博士抛家弃业、舍生忘死、日复一日、争分夺秒地为病毒真相呐喊，为拯救人类呕心沥血的真情感召下，在塞林博士及众新中国联邦战友夜以继日、日拱一卒、循循善诱、稳步推进的病毒真相揭秘战役下，上天实在看不下人间这一出由CCP导演的病毒真相荒诞剧继续往下演了。按照文贵先生的说法，是在一位携带大量COVID-19病毒的实验和制造证据，并成功出逃到欧洲的PLA科学家亮出核心证据后，福奇领衔的医学科学界和媒体界立即开始改口并转向的，如今我们已经看到了正义战胜邪恶的势头！
+
+在局势急速逆转，CCP看到自己苦心经营的谎言即将被彻底击穿，病毒真相呼之欲出，尤其是PLA及其生物战计划已经处在世界舆论的聚光下的生死关头，吓得简直尿裤子惊慌失措了，没有了当初向全世界放毒时的胆量以承认病毒的真实起源，但又不会束手就擒主动伏法。于是，CCP为了掩护自己那个在保障自己传宗接代问题上最可靠的亲儿子PLA，正在谋划着对自己那个已经露馅的COVID-19自然起源学说做出回应和反击，一系列各种稀奇古怪的理论与所谓的数据和报告很快将在CCP控制的宣传口倾巢而出，试图在扩大疫情的背景下逆转舆情乃至翻盘，以救CCP自己及其豢养在全世界的CCP-PLA科学家于人民群众口水汇集而成的汪洋大海中。因此文贵先生和塞林博士都提醒广大战友，尤其是COVID-19侦探们，要一如既往地全面打开我们的侦探雷达，用我们那千锤百炼的火眼金睛去识破并揭穿CCP的谎言和阴谋，让他们的谎言无处遁形，让他们的阴谋曝光于天下！
+
+塞林博士接受新中国联邦一周年庆典主会场主持人Ada小姐的视频采访截图，不但塞林博士自己感到非常荣幸，我们新中国联邦人也倍感荣幸，感谢塞林博士、福林将军、朱利安尼、班农、纳瓦罗等一众德高望重、位高权重的美国战友与新中国联邦站在一起，共同面对无比凶残和邪恶的CCP！
+
+我们香草山农场作为东道主，负责在法制基金这个平台上举办新中国联邦一周年庆典，其完美的成功尽显了香草山农场的能力和实力，更展示了新中国联邦人的优秀和国际化，庆典的主持人Ada小姐那美丽的笑容、完美的妆扮、自信的仪态、典雅的气质、敏捷的思维、利索的谈吐、流利的英文、强大的气场等在自由世界修炼出来的特质，让每一个新中国联邦人倍感自豪和骄傲！
+
+校对/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

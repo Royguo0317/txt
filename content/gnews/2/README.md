@@ -1,27 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美中貿易關係嚴重失衡
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1300505/)
+## 2021年6月5日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1300568/)
 
-美國貿易代表表示，世界上最大的兩個經濟體之間的貿易關係存在“嚴重失衡”，拜登政府致力於平衡這種關係。
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-貿易代表凱瑟琳·泰週六在回答有關美國是否會繼續執行2020年一月與中共國簽署的貿易協議的問題時對記者說：“這種貿易關係的某些部分是不健康的，並且隨著時間的推移在一些非常重要的方面損害了美國經濟。”
+6月5日：尊敬的战友们好！30分钟左右七哥直播乱播！ 【[https://pjmedia.com/columns/paula-bolyard/2021/06/04/report-high-ranking-chinese-defector-working-with-dia-has-direct-knowledge-of-chinas-bioweapons-program-and-its-very-bad-n1452251](https://pjmedia.com/columns/paula-bolyard/2021/06/04/report-high-ranking-chinese-defector-working-with-dia-has-direct-knowledge-of-chinas-bioweapons-program-and-its-very-bad-n1452251)】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05120642/8733cd216bde6bd3c315e648b1e65721.jpg)
+[【2021年6月5日】文贵先生盖特原文](https://gtv.org/getter/60bb897ac04fd544b469e3d9)
 
-發表上述言論之際，兩國似乎正在加強經濟討論，中共國副總理劉鶴在過去兩週與戴秉國和財政部長珍妮特耶倫都進行了交談。儘管中共國表示，這些會談表明雙方已重新開始正常溝通，但沒有任何公開跡象表明雙邊關稅或兩國之間就其他經濟熱點進行討論有任何進展。
-
-美國政府正在重新審視其對華立場，並沒有對其前任總統唐納德川普普那裡繼承的政策做出任何重大改變，而戴秉國承諾在2020 年1 月的貿易協定基礎上再接再厲，並於5 月5日表示，她尊重這一連續性美國的政策。
-
-然而，越來越多的跡象表明新政府的政策將採取的方向。白宮亞洲事務高級官員上個月表示，美國正在進入與中共國激烈競爭的時期，本屆政府繼續實施特朗普時代的禁令，禁止一些中共國公司在美國投資。
-
-簡評：在中共病毒起源真相高度被聚焦的今天，美國政府再次表態與中共國貿易脫鉤的態度與決心。現任政府繼續沿襲了前任川普總統政府的對華經濟制裁政策，以美為首的全球從政治,經濟,軍事，外交全方位制裁追責中共的步伐正在加速中。
-
-新聞來源：[bloomberg](https://www.bloomberg.com/news/articles/2021-06-05/u-s-china-trade-relationship-significantly-imbalanced-tai-says)
-
-編譯：Boxinglady (文拳）
-
-校對發稿：士多啤梨
-
-本文僅代表個人觀點，不代表 Gnews 平台
+**喜联盟Gnews编辑部**
 
 0

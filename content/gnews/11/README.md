@@ -1,35 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】6/3/2021文贵盖特：向万佛万神祈福，新中国联邦一周年…在自由之塔的庆祝活动圆满成功
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/1300308/)
+## 美国经济一定是灾难！巨大的灾难！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1300429/)
 
-制作： 【彩虹桥】
+**摘要：在2021年5月29日的盖特视频中，郭先生警告美国和世界：“美国经济一定是灾难，巨大的灾难！全球经济会进入巨大的灾难！”他透露世界级大佬都在抛售股票、房产，换现金，换数字货币，屯黄金，在深山老林或孤岛上修防御工事，准备好过中共倒台后世界末日般的生活。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05110809/Miles_20210529-g2.srt.txt)
+**美国经济一定是灾难！巨大的灾难！**
 
-6月3号，兄弟姐妹们，今天这么大的日子，6月3号，14亿中国人的再升天，14亿中国人新生的一周年，今年是太关键了。
+**The US Economy Is Going to Be a Disaster, a Huge Disaster!**
 
-兄弟姐妹们，是不是今天就不应该再锻炼了呢？ 不中..不中..也得锻炼。我准备了剪子，是不是应该这样啊，是不是这样？不对，应该这样..今天七哥到了新世纪了，应该这样…为什么要这样知道吧？到了给共产党开膛刨肚的时候了。美国经济现在已经在预期当中近6个月达到了最高点。
+很多战友们就是[问]关于美国经济、世界的经济。我在直播中、在这里告诉大家 — 美国经济一定是灾难，巨大的灾难！全球经济会进入巨大的灾难！我敢负责任在这儿说。为什么很多战友们现在问我这个事。我说：我没办法回答，我怎么回答你呢？我只能告诉你这将是个巨大的灾难，谁都挡不住，它没有任何选择。
 
-美国经济达到最高点的时候,也就是崩盘下垂的时候,只要美国经济下滑,美国就两件事得干,一定把内部的经济问题转移到外面去,这不是给咱新中国联邦送大礼吗？转哪儿去啊？转坦桑尼亚去,有用吗？美国能转移到尼日利亚去吗？它能转到埃及去吗？没用！转哪儿去啊？The Chinese Communist Party！弄它们去了，是吧？这样经济好，美国不会真正收拾共产党的。
+Many fellow fighters are concerned about the US and the world economy. In this video clip, I can tell you that the US economy is going to be a disaster, a huge disaster! And the global economy is going to be a huge disaster too! I can responsibly say it here. Many fellow fighters ask me about this. But it’s very difficult to answer, how can I answer you? I can only tell you that it is going to be a huge disaster. No one can stop it. And there is no other solution.
 
-福奇邮件可不止那么多,看到后面了吗？“娜娜酱”你看那英文好的，跟她男朋友，一直在弄，对吧？所以说兄弟姐妹们，今天这么好的日子，再大的日子也不能让你不锻炼。不要给自己的懦弱，也不要给自己的无知和懒惰，去找任何借口，所以今天必须锻炼。你们都看到了七哥是几点开始的？将近5点，4点多睡的觉，7点钟起床到现在，精神抖擞。当然必须打坐，不打坐整个脑子都是糊涂的，打坐，然后一直到现在。
+咱就不在经济上说了啊。那些技术数据你也没必要知道。当你知道是灾难的结果的时候，你还往里冲，那叫侥幸，那叫幻想。你倒多大霉都是活该 — 这是肯定的。
 
-国内咱们有的战友，今天才告知我福奇邮件出来后，好几个国内的战友被抓，因为当初他们傻乎乎的跟福奇有联系，福奇还钓他们的鱼。现在这些人都被抓了，他们才告诉我，说原来不敢跟我说。我最早知道福奇这家伙就是从这些战友嘴里知道的。太多话现在不方便说，到择机再说。福奇的邮件远不止那么多，福奇在关键的时候倒下，比一早就倒下好得多。福奇是最大的一个诱饵，诱出了美国，世界的科学界跟共产党“蓝金黄”的勾兑和世界科学杂志、科学媒体、知识媒体的勾兑。看看美国几个大严肃媒体全闭嘴了吧？这些人都是勾兑在一起的。原来我跟你们说过你们不相信，“人尸丸”和共产党控制世界的计划。
+We are not discussing the technical, economic statistics, and you don’t need to know that. But it will be a fluke and a fantasy for you to still rush to invest in the market when you have learned the result will be catastrophic. If so, you don’t deserve any sympathy, no matter how much you will lose – that’s for sure.
 
-在几个月前，就是我说的美国那个朋友，到中国转了一圈，见了中南坑的老杂毛，说到兴奋的时候，人家端起酒说：“哎，喝杯酒吧，你是我在美国的好朋友。不要那么紧张，50年前世界才多少人啊？全地球？这么大个地球75亿人，死个几百万几千万不算啥事儿。”说人是很爱忘记的，活着的人是不会为死去的人去有任何斗争和挣扎的，最多三星期。这个美国人当时就傻了。说：“喝了吧”领导把一杯铁盖茅台喝了，这个美国人回来跟我说，上次我直播说的那个，他一下看透了。他说：他们根本就不在乎，他说从那一句话就知道，他们早就准备好了世界死上几千万，几亿人了。福奇知道，美国更比福奇大的官都知道。
+我给你们讲两个你们永远不会得到的数据，我给你们说一下。第一个就我了解的这些基金，聪明的这些绝大多数都悄悄地、默默地往外换现金。现金到手以后都不留现金，绝大多数人都换了他相信的数字货币，也就把钱放在空中去了，放在云中去了。还有人真的就买了大量的实体黄金。没有人买钻石的，只有傻子才买钻石呢。
 
-现在说福奇是坏人？谁掩盖了坏人？到现在福奇啥事儿没有？媒体啥事儿不说，为啥呀？很简单嘛，背后有故事，这背后的故事很可悲，全人类就咱新中国联邦，爆料革命在说。这就是新中国联邦的伟大，爆料革命的伟大。兄弟姐妹们，当今天你再看完新中国联邦一周年纪念活动完以后，你看这个世界经济会有啥变化。就从今天开始，从下周一你们就开始数吧。美国经济，西方经济，资本市场的经济，独裁国家的经济，大额贸易，能源和石油，然后是金融市场，金融大战，货币大战……再过一段时间你们就明白了。
+I will tell you about two aspects and data that you will never hear. Let me tell you this. Firstly, most of these funds that I know, the smart ones, are quietly cashing out their holding, but rather than keeping the cash in their hands, the vast majority of them have invested the cash in digital currencies that they trust. It’s like putting money in the air and the cloud, making their money safe. In addition, some funds invested in large quantities of physical gold. Nobody invested in diamonds. Only fools would do that.
 
-昨天晚上12点你们收到好消息了吧？New G-TV！还听到好消息，听说“九指妖”打疫苗了。我听完以后，哎呀，还挺惋惜的，这么快就想去见上帝去吗？她要给那么多人介绍上帝没介绍成，自己要去见上帝去了？太着急了吧？听说打疫苗了。然后听说Jenathan也反了，我给你们说吧，我两周前就跟大家说了，反了..反了..能不反吗，是不是？吃屎的人在一起，他能不反吗？要不然Jenathan今天也要站到世贸102层了，是吧？这就是人的选择，一生中选择错误一次，一切结束。
+另外，让我更加惊讶的是人家是房产能卖就卖，那都是拥有的房产都是你永远不知道的，都是在几千万上亿美元的，30%，40%，打对折就卖。有人都十几套房子，就留两套，[其它]全卖了。房产会暴跌，永远出不去。
 
-七哥昨天秀了肌肉以后，战友们这不是吹牛的。这是肌肉，这是欺民贼说我浇凉水浇出来的。所以一切都是结果，一切都是行动。所以说战友们你看到这个雨，大家记住啊，放心，关键的时间七哥保证让它没雨。今天所有人说100%一天下雨，但我告诉大家，今天会有几阵雨，七哥挡不住，但是今天关键时刻保证没雨。咱走着看！敢现在就吹这个牛。我一会儿沐浴更衣，去祈祷万佛万神给我们新中国联邦人，开一个方便之门，让世界知道知道俺是干啥滴，咱都是干啥滴？
+Another fact that surprised me more was that they sold as many properties as they could. The properties that you will never know and worth tens to hundreds of millions of dollars, were sold at 30%, 40%, or 50% discounts. Some people who used to own more than a dozen properties only kept two houses and sold the rest. They believe that the real estate market is going to collapse and there might be no chance in future to sell them.
 
-现在国内的VPN全面挂掉。只要咱七哥一直播，只要一大直播立马全挂。不但挂掉，连海外使用华为手机的人，包括在香港很多人使用三星手机的人，很多人有国内软件的，手机不管用，上G-TV不管用，太多人给我发信息了。
+股票更不要提了，能卖就卖，能抵押就做抵押。特别是那些能兑换成贴现的那些股份，能赎出的全赎出 — 就在这两三个月[的动作]。记住我今天的直播Getter。大家这个时候在股票市场你还想赚钱的话，那就真的是自寻死路了。
 
-但是也有很多真的不懂事的战友，从昨天晚上到现在哭声一片：“七哥，我要G-TV，我要喜币，我投诉方舟农场，我投诉樱花农场，我投诉韩国农场……” 你说你…咱们今天这么大个日子，兄弟姐妹相聚，咱能不能过了今天再说呢？兄弟姐妹们？咱懂点事儿行不？非这时候大早上起来，你说你这了那的，然后还有指挥七哥的：“七哥，你告诉联盟委员会，给我邮件，我投资的事情。”把七哥当秘书，一堆人，还不是一个两个，而且原来那些人还都这么干，这是人的性格改不了。你让七哥当秘书，能不能今天不当秘书，明天再当秘书啊？回来给我发信息：“七哥对不起啊，我可没想让你当我秘书。”兄弟，咱们今天都是心情愉快的，咱们要祈福，一定要先祈福，今天现场的战友们开始的时候，千万别忘了祈福。祈福！祈福！祈福！向万佛万神祈福！祈福完了以后，然后我们再开始所有的新中国联邦的。
+Not to mention stocks. They sold as many stocks as they could, or mortgaged the stocks as much as possible. Especially those shares that can be redeemed for cash were all sold. All these things happened in the last two or three months. I think you should keep in mind what I have told you in this Getter. Anyone who still wants to make money in the stock market at this point is really guaranteeing financial losses.
 
-今天七哥不能到现场，心情非常难受。我只能在一个角落里，孤独的看着你们再那儿直播，多难受啊，兄弟姐妹们，但是我是高兴的，为了你们的安全，你们说我去不去世贸啊？我就想今天晚上我要去咋办呢？你们能把我踢出来吗？不会吧？咱们电视上见。
+你要想押赌什么黄金涨、黄金降，你能押住那个点儿，基本上等于到宇宙中去找亲人那[概率]，那么难。能找着吗？不可能的。你要能找着的话，这个世界就都归你了。不是开玩笑的。所以很多人给我发信息问我的时候，我真没办法说。我咋说呢，兄弟姐妹们？这不是开玩笑的，这不是开玩笑的。
 
-祝新中国联邦一周年纪念日，今天的庆祝活动圆满成功！万佛万神庇佑所有的今天战友们顺利、开心、平安、健康！万佛万神庇佑所有的爆料革命的战友们！共产党，你完球蛋了！
+Do you think you can gamble correctly on the ebb or flow of the price of gold? It is like looking for somebody you know in the universe. Do you think it is possible? No way. If you could, the world would be yours. This is no joke. So many questions you asked that I have no idea how to reply. How can I say, brothers and sisters? I am not joking.
+
+特别是我再给兄弟姐妹们说的，美国现在完全印钞票，欧洲很多国家都印钞票。欧洲2/3的国家是资不抵债，像意大利、比利时、希腊，这些国家都[已经]破产个球的了，是不是？还在那儿玩呢？然后最大的，共产党啊，共产党它100%完了。它完了，这个世界的经济会好吗？某些地方会好，某些产业甚至是“穿天猴”似的。[问题是]你能把握得住吗？永远在发战争财，发股票财，真的对普通人来讲，就是到宇宙里找亲人的感觉—不要去想。
+
+In particular, brothers and sisters, I am telling you one more thing: the US is in a situation where it has over-issued (printed) paper money to finance its deficits (monetizing the debt). Many countries in Europe are in the same situation. Two thirds of Europe is insolvent. Countries like Italy, Belgium, Greece are bankrupt, aren’t they? But they are still playing this game of printing money. The largest such economy is the CCP’s, which is 100% going to be over. When the CCP falls, will the world’s economy still be good? Some things can be good. Some industries may even be like a rocket ride to the sky. The question is, can you catch it? Getting rich in a war, getting rich in stocks, is really as impossible for the ordinary person as looking for somebody you know in the universe. You shouldn’t think about these impossibilities.
+
+这几天就天天都太多[这些信息了]。因为我们这个圈子里有个协议，永远不能说出去。我就告诉大家，跟我长期合作的那几个基金，所有人都准备好未来几年到山里活着去。在欧洲的，在苏黎世的房子，人家都是准备了大量的生活供给措施。苏黎世的，还有在希腊的，在岛上的，英国那些大豪宅里面的，都准备着未来过上3、5年躲在深山老林里的生活。几大家族，像他们现在在南法那些大房子都是重修、重建，都是建立高墙壁垒，跟碉堡似的。
+
+I get too many of these messages every day. There is a protocol in my circle that some things should never be mentioned to the public. Let me explain it like this. People of some funds that I have worked with for a long time have prepared secluded survival retreats in the mountains. They have prepared large amounts of essential provisions in their houses in Europe or Zurich. Also, some people have prepared 3 to 5 years of essential supplies that they will need to survive, on islands in Greece or in their mansions in England. Several prominent families are fortifying their homes with high walls and barriers in the south of France, like forts.
+
+不是开玩笑的，兄弟姐妹们。这个共产党灭亡前的动静在全世界大家都闻到了。而且这个病毒一定共产党只要是不交出解药，不告诉[世界]真相，病毒一定是越来越恐怖。你可别看这几天大家觉得在美国低了，那是很可怕的。
+
+I’m not kidding you, brothers and sisters. Everybody smells the CCP’s demise. As long as the CCP doesn’t hand over the antidote and doesn’t tell the world the truth about the coronavirus, the virus is bound to be more and more dangerous.  It doesn’t look as if the US has improved recently. The coronavirus is still lethal.
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60b26211ba7ef9088d036e80](https://gtv.org/getter/60b26211ba7ef9088d036e80) (0:06-5:26)
+鸣谢：[1] 感谢Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于[https://gnews.org/zh-hans/1281506/](https://gnews.org/zh-hans/1281506/)
+[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于[https://gnews.org/1286516/](https://gnews.org/1286516/)
+
+* * *
+
+**字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
