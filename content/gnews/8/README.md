@@ -1,74 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/02 班农专访(1) 新中国联邦第一个发出病毒预警，将成为超级英雄
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1300025/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（三十六）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1300088/)
 
-视频字幕：free20200604 | 听写：云岭 |翻译：Roberts| 翻译校正：云岭 |简评/文字整理/编辑：胖丁|Page：小雨
+作者：纽约香草山信息部 6zero4
 
-[!\[\]()!\[\](https://spark.adobe.com/page/aOXCFCnmykVXI/images/c2b48f66-5616-4464-a1ec-cdac86b82d7f.jpg?asset_id=508d70d0-b369-4e4b-8870-1daaadddd528&amp;img_etag=%22607e5464aca28e8b5f2b26101cf8fbe7%22&amp;size=1024)](https://spark.adobe.com/page/aOXCFCnmykVXI/images/c2b48f66-5616-4464-a1ec-cdac86b82d7f.jpg?asset_id=508d70d0-b369-4e4b-8870-1daaadddd528&amp;img_etag=%22607e5464aca28e8b5f2b26101cf8fbe7%22&amp;size=1024)
-
-**简评：**
-
-在病毒爆发前，只有新中国联邦、法治基金、法治社会向世界发出过警告。但是，美国不但不听，还竭力打压闫博士、郭文贵先生和战斗室，并误导大众。战斗室作为美国最大的媒体平台，闫丽梦博士被推选为班农战斗室2020年度最受观众喜欢的女嘉宾。
-
-新中国联邦、GNews、GTV、郭文贵、闫丽梦博士、战斗室将被视为超级英雄，拥有强大的力量。福奇的邮件也验证了新中国联邦情报的准确。病毒事件最终会真相大白。在新中国联邦的庆典上，会有很多著名的非中文演讲者现身，包括川普运动的支持者。
-
-1968年中共发起的文化大革命正在美国上演，试图在美国推进马克思主义，破坏传统家庭和社会结构。麦克•林德尔随后会发起一个巨大的法律诉讼，他会出示证据并起诉中共偷盗美国大选。这在美国还是第一次。在新中国联邦周年庆典上做这件事意义重大，影响深远。
-
-大浪淘沙，新中国联邦如潮起汹涌，恶人如潮落退却。我们正在赢得胜利。
-
-[GTV链接](https://gtv.org/video/id=60ba2b5ec04fd544b4692bcc)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
 
-**视频字幕：**
+6月4日塞林博士的6连推：
 
-**主持人**：只有新中国联邦、法治基金、法治社会在病毒爆发前提醒世界大瘟疫的到来。我们给出了很多细节，但是没有人听。我们给出的信息都被忽视了。闫丽梦博士被称为说谎者，但是她所说的现在都已被证实。那么美国和全世界将来会怎么对待我们？
-
-**班农：**我想这就是为什么你们这么多人来这次庆典。我说你们还像一个小婴儿，我的意思是……我想你们没有完全想象出郭文贵、GNEWS、GTV、爆料革命、法治社会、法治基金和新中国联邦有多大力量。所有这些加在一起，实话说，力量太强大了。
-
-现在有一个最强有力的。你们已经看到福奇的邮件被爆出来了，下周我们要详细谈的就是这个。很显然爆料革命和郭文贵在事先提醒过大家类似福奇邮件的事情。
-
-（2020年）1月中旬路德和郭文贵，1月20 号战斗室开始，我们警告全世界，尤其警告美国，正在发生的事情。是的，他们不仅不听，更糟糕的是，他们不断打压。社交媒体寡头想尽办法打压战斗室。打压郭文贵。当闫丽梦博士由法治基金和法治社会帮助出逃香港来到美国的时候，他们所做的简直无聊透顶。他们尽力打压她，误导大众等等。
-
-但是真相正在浮出水面。闫丽梦博士被推选为战斗室2020年度女士。记住，如果考虑各个方面，包括下载量，战斗室可能是美国最大的平台。**她是迄今为止观众最喜欢的女嘉宾。**观众也喜欢Liz Yore和 Natalie Winters。有很多女性嘉宾，这个很重要，闫丽梦博士是美国观众第一喜欢的。为什么呢？他们记得闫博士第一次上节目用她的方式，用心说着清晰的英语。这个非常重要。
-
-是的，沒有人听我们的。但是现在，想一想48小时，72小时发生的变化。福奇邮件暴露了他与蝙蝠女（石正丽）和武汉实验室的误导，还有与中共军方的联系，这些都会真相大白。
-
-新中国联邦、GNEWS、GTV、郭文贵、闫丽梦博士、爆料革命，战斗室将被视为超级英雄。因为如果世界听了他们的，会避免多少灾难。我要告诉你，从现在开始，他们会在各方面都听我们的。对中共来说，这是最坏的事情，对吧？现在人们不会放过他们。
-
-说真的，星期四（新中国联邦庆典）有很多著名的非中文演讲者排队，还没有公布呢，有川普运动的很重磅人物演讲。尽管拜登偷走了大选，川普运动比以往任何时候都更加有力量，比川普执政期间更加有影响力。因为，杂音逐渐消去，人们开始完全专注和明白所发生的事情。
-
-**“文化大革命”来到了美国，我们在经历1968年的文化大革命。这些“黑命贵”、“安提法”就是红卫兵，试图推进马克思主义，就像当年强加于中国人民的那样。**记住，中国共产党做的就是破坏传承了几万年的伟大文明的家庭，以祖先、以父母、以家庭为核心的文明。文贵非常幸福，他的爸爸妈妈有8个孩子，是一个非常传统的大家庭。中共就是要破坏传统家庭。这就是文化大革命本质。**破坏公民社会的基本结构，破坏中国传统公民社会。这正是这些恶魔们正在美国所做的**。看看现在变性和种族批判理论，与邪恶的马克思主义完全是一样的。
-
-我们不会让这些发生。很多母亲加入川普运动，使之更加有影响力。从“茶会”开始，我从事这项事业已经10年或12年了。之前我只是个银行投资家和海军军官。我读了历史，开始对政治感兴趣。以前我从来都与政治无关。2008、2009年金融危机的时候，我开始介入政治，现在我很了解政治。**我们正在赢得胜利。我们一定赢。**
-
-**昨天推特上说，川普总统8月份回归。**我们拭目以待。我知道的是，从亚利桑那到乔治亚州，到宾西法尼亚有很多问题，并且还会增加。
-
-**这个节目的观众，每一个中国人，应该关注麦克•林德尔**。我想，麦克•林德尔在接下来的48小时会开始一个巨大的法律诉讼。不是对诉讼的应对，是他自己的诉讼。他要开始一个巨大诉讼。诉讼中，他会点名中国共产党。中共因为偷盗选举被起诉，他会出示证据。这将有巨大的影响，在美国也是第一次。他等到新中国联邦成立纪念日做这件事情是有象征意义的。我认为这件事非常非常非常重要。
-
-总之，正在发生的事情很多很多。因为与新中国联邦、爆料革命、法治基金和文贵一起，我们是正在涨起的潮水，而那些坏人是正在退去的潮水。
-
-**[完整访谈视频](https://gtv.org/video/id=60b7889cf6ff4b33fb995b00)**
-
-🎤**主播：**Winston，Daniel，Mike，Dr. TCC
-
-- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
-- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+第1推，转发“火来2号”战友贴上塞林博士接受新中国联邦一周年庆典主会场主持人Ada小姐的视频采访截图。非常荣幸，能够在法制基金举办的新中国联邦一周年庆典上发表讲话。
 
 
-***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:00 （美东时间09：00）直播***
 
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+> I had the honor of speaking at the Rule of Law Foundation's first anniversary of the New Federal State of China. [https://t.co/A6SitoglK5](https://t.co/A6SitoglK5)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 4, 2021](https://twitter.com/LawrenceSellin/status/1400680520829313024?ref_src=twsrc%5Etfw)
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/aOXCFCnmykVXI/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/aOXCFCnmykVXI/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
+第2推，在一篇编纂出色的COVID-19起源报告中，其矿洞故事及其所谓的RaTG13蝙蝠冠状病毒将Tucker Carlson愚弄了，其实RaTG13既不能很好地与人类甚至蝙蝠的受体结合，更不符合进化路径，它要么是一个合成中间体，要么就是假的病毒基因序列。并贴上Tucker Carlson早期在节目中引述石正丽“云南矿洞说”里的RaTG13是COVID-19起源之视频片段。
 
 
+
+> In an otherwise excellent report on [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s origin Tucker Carlson gets fooled by the mine story and the alleged bat coronavirus RaTG13, which doesn't bind well to human or bat receptors nor fits the evolutionary pathway. It is either a synthetic intermediate or a fake sequence [pic.twitter.com/ut2T71iE3a](https://t.co/ut2T71iE3a)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 4, 2021](https://twitter.com/LawrenceSellin/status/1400690946661130245?ref_src=twsrc%5Etfw)
+
+
+
+第3推，转发“火来2号”战友回应塞林博士上一推的推文，您完全正确，只关注于WIV将让大量CCP军事生物武器项目逃出公众视线。并贴上一张标注着COVID-19骨架ZC45/ZXC21真实起源地浙江舟山、WIV以及COVID-19假祖先RaTG13/RaTG15发源地云南墨江，这3个地方在中国地图上的位置关系图。COVID-19侦探“火来2号”完美地诠释了这个问题，并提供了一张出色的图片作为论证的起点。RaTG13不是真实的东西，它要么是一个合成中间体，要么就是假的病毒基因序列。COVID-19由实验室制造并与PLA生物武器计划关联。
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) describes the issue perfectly and provides an excellent slide that is the starting point for the argument. RaTG13 is not real, either a synthetic intermediate or a fake sequence. COVID-19 is lab-made AND linked to the PLA's bioweapon program. [https://t.co/M5C2W7TQO5](https://t.co/M5C2W7TQO5)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 4, 2021](https://twitter.com/LawrenceSellin/status/1400699466450149379?ref_src=twsrc%5Etfw)
+
+
+
+第4推，各位COVID-19侦探请注意，为了掩护PLA，CCP正在计划着对自己那个虚假的COVID-19自然起源学说的失败做出回击，诸如泄露的假新闻、虚假RaTG13、WIV等。全面打开你们的侦探雷达，让他们的谎言无处遁形！贴上了CCP七常委为背景并加上文字“CCP VIRUS”的宣传图片。
+
+
+
+> Attention all [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives – To protect the PLA, the CCP is planning to respond to the failure of the CCP's fake natural-occurring theory of [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw)'s origin – fake news about a leak, fake RaTG13, Wuhan Institute of Virology. Turn on your radars. Shut down their lies. [pic.twitter.com/vqjV8rVQQI](https://t.co/vqjV8rVQQI)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 4, 2021](https://twitter.com/LawrenceSellin/status/1400846125758914560?ref_src=twsrc%5Etfw)
+
+
+
+第5推，各位COVID-19侦探请注意，将你们的焦点聚集在PLA身上，COVID-19起源问题暴露了所有的PLA科学家，以及与PLA合作的所有美国和中国科学家，把他们的照片贴上来，CCP试图将注意力从PLA身上转移开！并再次贴上那张标注着COVID-19骨架ZC45/ZXC21真实起源地浙江舟山、WIV以及COVID-19假祖先RaTG13/RaTG15发源地云南墨江，这3个地方在中国地图上的位置关系图。
+
+
+
+> Attention all [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives – Focus your attention on the People's Liberation Army, the source of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) Expose all PLA scientists and all U.S. and Chinese scientists working with the PLA. Post their photos here. The CCP is trying to distract attention away from the PLA. [pic.twitter.com/uPX1D6I7Ex](https://t.co/uPX1D6I7Ex)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 4, 2021](https://twitter.com/LawrenceSellin/status/1400867160981921792?ref_src=twsrc%5Etfw)
+
+
+
+第6推，贴上了美国微生物科学院院士、俄亥俄州立大学逆转录病毒研究中心终身正教授、病毒学和新发病原体研究中心主任刘善虑的照片。
+
+
+
+> Make this guy famous.[@shanluliu](https://twitter.com/shanluliu?ref_src=twsrc%5Etfw) [pic.twitter.com/SFsDGGZmsC](https://t.co/SFsDGGZmsC)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 4, 2021](https://twitter.com/LawrenceSellin/status/1400872953177313286?ref_src=twsrc%5Etfw)
+
+
+
+CCP-PLA科学家们早期精心编纂的COVID-19病毒自然起源理论，及以RaTG13等虚构的病毒祖先和各种五花八门的宿主如穿山甲、竹鼠等为蓝本的支持报告，曾经将整个世界误导到了一个极其荒谬的泥潭，连大名鼎鼎的福克斯金牌主播Tucker Carlson也未幸免，被石正丽那引人入胜的“云南矿洞”故事无情地愚弄了。自疫情爆发以来一年半的时间里，人类处于被病毒吞噬的汪洋大海中，媒体界、舆论界、科学界、政治界一片黑暗，CCP的病毒自然起源说一手遮天，不容任何人讨论和质疑其它任何起源问题，尤其是视真理和严谨为生命的医学科学家，在福奇和谭德赛等世界顶级医学技术官僚的主导和怂恿甚至威胁下，本应神圣并造福人类健康的科学家们，黯然失色，很多已经退变成为腐朽的、邪恶的帮凶，协助CCP-PLA搬弄是非、混淆视听、误导世界、掩盖真相、涂炭生灵，呜呼哀哉！
+
+曾几何时、星移斗转、柳暗花明，在闫博士关于COVID-19起源的无可辩驳的3个报告之无尽鞭策与拷问下，在天使闫博士抛家弃业、舍生忘死、日复一日、争分夺秒地为病毒真相呐喊，为拯救人类呕心沥血的真情感召下，在塞林博士及众新中国联邦战友夜以继日、日拱一卒、循循善诱、稳步推进的病毒真相揭秘战役下，上天实在看不下人间这一出由CCP导演的病毒真相荒诞剧继续往下演了。按照文贵先生的说法，是在一位携带大量COVID-19病毒的实验和制造证据，并成功出逃到欧洲的PLA科学家亮出核心证据后，福奇领衔的医学科学界和媒体界立即开始改口并转向的，如今我们已经看到了正义战胜邪恶的势头！
+
+在局势急速逆转，CCP看到自己苦心经营的谎言即将被彻底击穿，病毒真相呼之欲出，尤其是PLA及其生物战计划已经处在世界舆论的聚光下的生死关头，吓得简直尿裤子惊慌失措了，没有了当初向全世界放毒时的胆量以承认病毒的真实起源，但又不会束手就擒主动伏法。于是，CCP为了掩护自己那个在保障自己传宗接代问题上最可靠的亲儿子PLA，正在谋划着对自己那个已经露馅的COVID-19自然起源学说做出回应和反击，一系列各种稀奇古怪的理论与所谓的数据和报告很快将在CCP控制的宣传口倾巢而出，试图在扩大疫情的背景下逆转舆情乃至翻盘，以救CCP自己及其豢养在全世界的CCP-PLA科学家于人民群众口水汇集而成的汪洋大海中。因此文贵先生和塞林博士都提醒广大战友，尤其是COVID-19侦探们，要一如既往地全面打开我们的侦探雷达，用我们那千锤百炼的火眼金睛去识破并揭穿CCP的谎言和阴谋，让他们的谎言无处遁形，让他们的阴谋曝光于天下！
+
+塞林博士接受新中国联邦一周年庆典主会场主持人Ada小姐的视频采访截图，不但塞林博士自己感到非常荣幸，我们新中国联邦人也倍感荣幸，感谢塞林博士、福林将军、朱利安尼、班农、纳瓦罗等一众德高望重、位高权重的美国战友与新中国联邦站在一起，共同面对无比凶残和邪恶的CCP！
+
+我们香草山农场作为东道主，负责在法制基金这个平台上举办新中国联邦一周年庆典，其完美的成功尽显了香草山农场的能力和实力，更展示了新中国联邦人的优秀和国际化，庆典的主持人Ada小姐那美丽的笑容、完美的妆扮、自信的仪态、典雅的气质、敏捷的思维、利索的谈吐、流利的英文、强大的气场等在自由世界修炼出来的特质，让每一个新中国联邦人倍感自豪和骄傲！
+
+校对/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
