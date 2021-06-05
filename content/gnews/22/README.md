@@ -1,37 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 200多名共和党人敦促佩洛西支持中共病毒起源调查追责中共
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1298480/)
+## 摇摆州2020大选审计动态
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1298645/)
 
-翻译：康州盘古农场 – 柯镇恶
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-校对：康州盘古农场 – Freeearth
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04213804/A-1.jpg)whowhatwhy.org
+亚利桑那州手工重新计票完成了67%，即已经完成140 万张的清点【1】；佐治亚州的法庭审计有望进行，据班农先生说，尽管该州的共和党建制派尽最大努力阻止这一进程，但法庭审计必须进行。班农先生乐观地估计，在全面法庭审计完成后，三个共和党参议院的席位将回归【2】；宾夕法尼亚州参议院代表团现场考察了亚利桑那州的法庭审计工作后表示，如果我们在宾夕法尼亚州进行法庭审计，这就是样板【3】。
 
-编辑：康州盘古农场 – 格格巫
+川普总统6月4日发表声明，敦促宾夕法尼亚州参议院进行法庭审计【4】；威斯康星州的法庭审计困难重重，虽然3月下旬州议会授权调查的决议以58票对35票获得通过后【5】，一直没有实际上的进展，截止上周，审计变成了州议长“雇佣三名退休警察来检查选举的完整性？……但不会启动法庭审计【6】。
 
-发布：康州盘古农场 – 彩虹 Rainbow
+新罕布什尔州的重新审计在几轮折腾后最终得以通过，但由于三位审计员中，两位与民主党有瓜葛，人们并不看好，称“审计在开始之前就结束了——三位审计员中有两位与民主党国会大佬佩洛西和舒默有利益关系”。【7】
 
-**据《大纪元时报》作者：傅伊娃（EVA FU） 2021年5月29日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04203617/viru.png)
-超过 200 名众议院共和党人正在向民主党施加压力，要求他们深入了解中共病毒的起源，并让中（共）国政权对大流行病的掩盖行为负责。
+密歇根州没有传出要进行法庭审计的消息。
 
-5 月 28 日，这200多名共和党众议员在给议长南希·佩洛西(Nancy Pelosi) 的信中说：“我们要求您指示适当的民主党委员会主席立即加入共和党的呼吁，要求中共 (CCP) 为其在造成全球中共病毒大流行的行为负责。” 这项行动由众议院少数党领袖凯文·麦卡锡（加利福尼亚州共和党）、少数党党鞭代表史蒂夫·斯卡利斯（拉斯维加斯共和党）和众议院共和党会议主席埃莉斯·史蒂芬尼克领导，并有 209 名众议院共和党人加入。
+以上各州的选举人票为：亚利桑那州11票、佐治亚州16票、宾夕法尼亚州20票、威斯康星州10票、新罕布什尔州4票、密歇根州16票。川普总统目前为232票，需要38票的翻转。
 
-议员们表示，佩洛西“错误地声称”“有关中共责任的问题”是一种“转移注意力”，这可能指的是佩洛西去年 5 月的言论。她将时任总统川普对中（共）国的指责描述为“有趣的转移注意力”。“越来越多的证据表明，大流行是从中（共）国实验室开始的，而中共掩盖了它。如果真是这样，中共就要为将近60万美国人和全世界数百万人的死亡负责。”他们继续说道，每个失去亲人的美国家庭都应该得到“关于这种可怕病毒的起源的答案,”并补充说：“众议院民主党人一直拒绝分配调查资源来获得这些答案，这是对他们的侮辱。”斯卡利斯议员（Scalise）在5月28日的推文中写道。“中（共）国不能煳弄过去。美国人应该得到答案。”大纪元时报已联系佩洛西办公室征求评论。
+参考链接：
 
-立法者们引用了越来越多的证据表明，该病毒可能是从武汉实验室泄露的。这一想法最初被许多媒体和科学家视为阴谋论而不予理会。在川普政府最后几天发布的国务院情况说明书披露，武汉病毒研究所 (WIV) （位于最初被认为是爆发源头的海鲜市场附近）的研究人员，在2019 年秋季出现了类似中共病毒的症状。 最近，一份未公开的情报报告也浮出水面，称3名武汉病毒研究所（ WIV ）的工作人员在 11 月病倒以至于需要治疗乔·拜登总统的首席医学顾问安东尼·福奇（Anthony Fauci）博士最近支持进行更深入的病毒调查，并表示实验室泄漏的可能性“肯定存在”。这推翻了他在 2020 年 5 月发表的评论。美国卫生与公共服务部长泽维尔·贝塞拉（Xavier Becerra）虽然没有直接提及中国或武汉，但呼吁世界卫生组织（WHO）发起一项“透明的、基于科学的”第二阶段中共病毒(COVID )的起源研究，“以全面评估病毒的来源和病毒爆发的早期情况。”
+【1】[https://www.thegatewaypundit.com/2021/06/huge-arizona-audit-begins-finish-hand-recount-67-1-4-million-completed/](https://www.thegatewaypundit.com/2021/06/huge-arizona-audit-begins-finish-hand-recount-67-1-4-million-completed/)
 
-“为了让中共承担责任，”立法者表示，他们需要“获得国会调查人员可用的全套工具，包括文件传票和强制关键证人作证的权力。”信中说：“迄今为止，整个众议院的民主党委员会主席都拒绝分配这些资源来质疑中共病毒的起源。”他们还指出，中共一贯拒绝分享原始数据和武汉病毒研究所（ WIV ）的实验室记录。他们说这符合中共的欺骗模式，包括将记者限制在中共病毒的虚假信息中和让举报人保持沉默。
-尽管世卫组织领导的武汉考察团裁定实验室事故理论“极不可能”，但专家和世界领导人都批评该调查结果缺乏独立性。小组的外国专家要求提供原始数据和样本，但他们的中（共）国同行却只提供了摘要。周二，一名中（共）国代表告诉世界卫生组织大会，溯源调查的“中共国部分”“已经完成”，并建议调查人员另寻他处。尽管中（共）国进行了否认，但要求查明大流行如何开始的压力仍在继续增加。
+【2】[https://www.thegatewaypundit.com/2021/06/steve-bannon-georgia-will-hold-forensic-audit-three-republican-senate-seats-coming-back-full-forensic-audit-completed-video/](https://www.thegatewaypundit.com/2021/06/steve-bannon-georgia-will-hold-forensic-audit-three-republican-senate-seats-coming-back-full-forensic-audit-completed-video/)
 
-拜登在周三罕见的声明中表示，他已下令对该病毒的起源进行情报调查，并希望在 90 天内得到报告。他说，美国情报部门“围绕两种可能的情况进行了整合”，但尚未就此问题得出明确结论。
-上周五，参议院通过了一项两党决议，要求世界卫生组织采取“极度紧迫的”行动，并“彻底查明”这一大流行病的起源。众议院共和党议员在他们的信中表示，国会应该将病毒调查工作掌握在自己手中。立法者们在信中写道，“很明显，世卫组织未能就中共病毒大流行的起源和中共的责任做出最终决定。这项任务落在了我们国会身上。”
+【3】[https://www.thegatewaypundit.com/2021/06/audit-pa-model-pennsylvania-senator-doug-mastriano-speaks-arizona-audit-tour-video/](https://www.thegatewaypundit.com/2021/06/audit-pa-model-pennsylvania-senator-doug-mastriano-speaks-arizona-audit-tour-video/)
 
-原文链接：[https://www.theepochtimes.com/over-200-republicans-press-pelosi-to-back-covid-19-origin-probe-hold-the-ccp-accountable\_3836160.html](https://www.theepochtimes.com/over-200-republicans-press-pelosi-to-back-covid-19-origin-probe-hold-the-ccp-accountable_3836160.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+【4】[https://www.donaldjtrump.com/news/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-06.04.21-02](https://www.donaldjtrump.com/news/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-06.04.21-02)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+【5】[https://gnews.org/zh-hans/1014742/](https://gnews.org/zh-hans/1014742/)
+
+【6】[https://www.thegatewaypundit.com/2021/05/skunk-wisconsin-speaker-robin-vos-hires-three-retired-cops-look-election-integrity-wont-launch-forensic-audit-despite-late-night-ballot-dump/](https://www.thegatewaypundit.com/2021/05/skunk-wisconsin-speaker-robin-vos-hires-three-retired-cops-look-election-integrity-wont-launch-forensic-audit-despite-late-night-ballot-dump/)
+
+【7】[https://www.thegatewaypundit.com/2021/05/breaking-exclusive-windham-new-hampshire-2020-election-audit-started-two-three-auditors-conflicts-pelosi-schumer/](https://www.thegatewaypundit.com/2021/05/breaking-exclusive-windham-new-hampshire-2020-election-audit-started-two-three-auditors-conflicts-pelosi-schumer/)
 
 0

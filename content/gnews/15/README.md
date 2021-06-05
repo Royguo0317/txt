@@ -1,37 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 摇摆州2020大选审计动态
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1298645/)
+## 【大象快讯】福奇的上司承认中国共产党实际上参与了武汉实验室
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1298729/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+拉西姆在国家脉博发表文章说：美国国立卫生研究院 (NIH) 所长弗朗西斯·柯林斯 (Francis Collins) 博士在昨天接受休·休伊特(Hugh Hewitt) 采访时，似乎直接反驳了他的下属安东尼·福奇 (Anthony Fauci) 博士，而且柯林斯博士在接受资深电台主持人采访时承认了美国与武汉实验室的合作：
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04213804/A-1.jpg)whowhatwhy.org
-亚利桑那州手工重新计票完成了67%，即已经完成140 万张的清点【1】；佐治亚州的法庭审计有望进行，据班农先生说，尽管该州的共和党建制派尽最大努力阻止这一进程，但法庭审计必须进行。班农先生乐观地估计，在全面法庭审计完成后，三个共和党参议院的席位将回归【2】；宾夕法尼亚州参议院代表团现场考察了亚利桑那州的法庭审计工作后表示，如果我们在宾夕法尼亚州进行法庭审计，这就是样板【3】。
+“嗯，我们，当我们提供资助时，它附带有关于受助人应该用这些资金做什么的条款。我们需要年度报告来看看这是否真的是他们一直在做的事情。我们相信受助人是诚实的，不具有欺骗性。去武汉的赠款是健康联盟（Eco Health） 的分包合同，专门用于尝试对可以从中国洞穴蝙蝠中分离的病毒进行分类，比方是SARS，我们有充分的理由想要了解更多和从那里出来的 MERS病毒之类的。因此，我们基本上将这些标准附加到了赠款中。当然，我们提供给武汉病毒研究所的资金，我敢肯定，只是他们总资金的一小部分。我们无法控制他们用这些资金做什么。”
 
-川普总统6月4日发表声明，敦促宾夕法尼亚州参议院进行法庭审计【4】；威斯康星州的法庭审计困难重重，虽然3月下旬州议会授权调查的决议以58票对35票获得通过后【5】，一直没有实际上的进展，截止上周，审计变成了州议长“雇佣三名退休警察来检查选举的完整性？……但不会启动法庭审计【6】。
+柯林斯继续承认中国共产党实际上参与了武汉实验室，但试图淡化他们的影响。事实上正如《国家脉搏》所揭示的那样，该实验室举办共产主义学习课程，以提高“党性”和对中国共产党的忠诚。
 
-新罕布什尔州的重新审计在几轮折腾后最终得以通过，但由于三位审计员中，两位与民主党有瓜葛，人们并不看好，称“审计在开始之前就结束了——三位审计员中有两位与民主党国会大佬佩洛西和舒默有利益关系”。【7】
-
-密歇根州没有传出要进行法庭审计的消息。
-
-以上各州的选举人票为：亚利桑那州11票、佐治亚州16票、宾夕法尼亚州20票、威斯康星州10票、新罕布什尔州4票、密歇根州16票。川普总统目前为232票，需要38票的翻转。
+当被问及 NIH 是否会与朝鲜等其他侵犯人权者和暴政者合作时，柯林斯博士回答说：“可能不会”，然后补充道：“我认为你在妖魔化武汉病毒研究所，因为它纯粹是中共的一个工具。那里肯定有联系，但让我们说清楚。在该研究所工作的科学家在理解病毒学方面是世界上最好的。其中许多人与包括美国在内的其他国家/地区的其他人建立了长期关系，相互尊重，共享大量信息。我认为我们基本上不应该说好，因为他们在那个国家，他们是邪恶的。我认为你在那个方面做得太过分了。”这一令人震惊的消息与安东尼·福奇博士的说法相悖，即 NIH/NIAID 称美国没有与武汉实验室合作进行功能获得研究。
 
 参考链接：
 
-【1】[https://www.thegatewaypundit.com/2021/06/huge-arizona-audit-begins-finish-hand-recount-67-1-4-million-completed/](https://www.thegatewaypundit.com/2021/06/huge-arizona-audit-begins-finish-hand-recount-67-1-4-million-completed/)
 
-【2】[https://www.thegatewaypundit.com/2021/06/steve-bannon-georgia-will-hold-forensic-audit-three-republican-senate-seats-coming-back-full-forensic-audit-completed-video/](https://www.thegatewaypundit.com/2021/06/steve-bannon-georgia-will-hold-forensic-audit-three-republican-senate-seats-coming-back-full-forensic-audit-completed-video/)
 
-【3】[https://www.thegatewaypundit.com/2021/06/audit-pa-model-pennsylvania-senator-doug-mastriano-speaks-arizona-audit-tour-video/](https://www.thegatewaypundit.com/2021/06/audit-pa-model-pennsylvania-senator-doug-mastriano-speaks-arizona-audit-tour-video/)
+> [Fauci’s Boss Admits Funding Wuhan Lab: ‘We Had No Control Over What They Were Doing.’](https://thenationalpulse.com/news/faucis-boss-admits-funding-wuhan-lab-we-had-no-control-over-what-they-were-doing/)
 
-【4】[https://www.donaldjtrump.com/news/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-06.04.21-02](https://www.donaldjtrump.com/news/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-06.04.21-02)
 
-【5】[https://gnews.org/zh-hans/1014742/](https://gnews.org/zh-hans/1014742/)
 
-【6】[https://www.thegatewaypundit.com/2021/05/skunk-wisconsin-speaker-robin-vos-hires-three-retired-cops-look-election-integrity-wont-launch-forensic-audit-despite-late-night-ballot-dump/](https://www.thegatewaypundit.com/2021/05/skunk-wisconsin-speaker-robin-vos-hires-three-retired-cops-look-election-integrity-wont-launch-forensic-audit-despite-late-night-ballot-dump/)
+图片来源：[https://thenationalpulse.com/](https://thenationalpulse.com/)
 
-【7】[https://www.thegatewaypundit.com/2021/05/breaking-exclusive-windham-new-hampshire-2020-election-audit-started-two-three-auditors-conflicts-pelosi-schumer/](https://www.thegatewaypundit.com/2021/05/breaking-exclusive-windham-new-hampshire-2020-election-audit-started-two-three-auditors-conflicts-pelosi-schumer/)
+整理撰稿：蓝精灵
 
-0
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
+
++1

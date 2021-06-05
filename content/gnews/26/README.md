@@ -1,31 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大象快讯】美国国会及行政当局中国委员会主席发表声明纪念六四事件32周年
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1298427/)
+## 【鹰眼墙国】易地搬迁资金利用存疑
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1298579/)
 
-2021年6月4日 （北京时间晚），美国国会及行政当局中国委员会（CECC）主席民主党参议员默克里（Jeff Merkley）和共同主席、民主党众议员麦戈文（James McGovern）星期四（6月3日）发表声明，纪念六四天安门事件32周年。
+香草山写作组  鹰(文言)
 
-美国国会及行政当局中国委员会的声明全文如下：
 
-今天，我们向1989年春天聚集在北京和其他400多座城市街头呼吁民主、人权和结束腐败的所有人的勇气和牺牲致敬。对这些抗议活动的暴力镇压粉碎了对权利和改革的和平要求，并使美中关系继续复杂化直至今日。
 
-因为所有关于1989年抗议活动的讨论都继续受到审查，纪念活动也被禁止——甚至现在，在以前自治的香港也是如此——我们承诺每年纪念这一重要事件，直至每个中国人都能够自由且不受限制地纪念。我们与幸存的受害者家属站在一起，包括勇敢的天安门母亲，她们冒着巨大的个人风险，仍然在寻求真相和正义。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
 
-流血事件发生32年后，中国政府继续残酷镇压中国人民行使基本自由的能力。国际社会必须团结一致，结束对良心犯的任意拘留和虐待，结束在新疆发生的种族灭绝，结束对西藏文化和数亿中国公民宗教自由的摧残以及通过国际条约，结束对香港人民自由的系统性破坏。
 
-天安门精神在中国依然存在，到处都聚集着热爱自由的人们。我们铭记这一悲惨的周年纪念日，并承诺为未来而努力，让天安门一代人的追求最终能够在中国和世界各地得以实现。
 
-参考链接：
+环球网6月4日转载央视网消息，中共发改委称“十三五”期间完成960余万易地搬迁任务并实现脱贫目标，已有378万搬迁群众就业。
 
-[https://www.voachinese.com/a/CECC-statement-on-32nd-anniversary-of-Tiananmen-protests-20210604/5916663.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/CECC-statement-on-32nd-anniversary-of-Tiananmen-protests-20210604/5916663.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+根据中共发改委数据，2001年至2015年，中共累积发放中央补助资金363亿元以用于680余万地方群众的易地搬迁工作；“十二五”期间，共下达中央预算补助投资231亿元，全国各类投资累积800亿元用于394万群众的搬迁工作；“十三五”中央补助资金800亿元，全国各类资金6000亿元用于960多万建档立卡贫困群众的搬迁。也就是说，2001到2010年搬迁286万余人花费了中央补助资金约132亿元。2010-2015年虽然搬迁任务量增长约37.7%，但资金规模增幅达75%；而2016-2-20年搬迁960万（是“十二五”搬迁群众数量的约2.43倍），而投入中央资金规模却是十二五期间的3.46倍。资金的“利用率”呈显著降低的趋势。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04211114/Screen-Shot-2021-06-04-at-9.10.57-PM.png)
+参考中共统计局数据，2015年GDP为67.67万亿元；2020年GDP为101.60万亿元，较2015年涨幅约50%，2015年农村居民人均可支配收入11422元；2020年对应为17131元，涨幅约49.98%。农村人均收入和GDP增长幅度近乎持平，然而搬迁群众的人均“耗资”却从“十二五”的800亿/394万，约20304元/人增至62500元/人，涨幅达300%。也就是说，经济发展和人均收入“稳步”增长的前提下，个人“搬迁费用”却翻了3倍。对照2020年5月份李克强声称的“6亿人月薪不足1000元”的现状，可见易地搬迁的“脱贫”行动遍布中饱私囊和瞒报侵占现象。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04211128/Screen-Shot-2021-06-04-at-9.10.53-PM.png)
+再者，全国易地扶贫搬迁建档立卡贫困户人均纯收入从2016年的4221元提至2019年的9313元，虽有提高但依旧远低于2019年农村居民可支配收入16021元的平均水平。参考2020年农村居民人均消费支出13713元（2019年对应为13328元），9313元的纯收入依旧无法满足正常开支。上述960万搬迁群众中，378万人实现就业，即平均每2.53人中1人已就业。也就是说，迁入新居并至少1人就业的搬迁家庭依旧是“入不敷出”，而这种结果却被中共恬不知耻的称作“全面脱贫”。搬迁过程中的人均“耗费”存疑，搬迁家庭“收不抵支”的现状，不但打脸中共“脱贫”谎言，更揭露了中共官僚体制的以权谋私和搜刮民财现状。
 
-图片来源：[https://www.voachinese.com/](https://www.voachinese.com/)
+新闻来源：
 
-整理撰稿：蓝精灵
+国家发改委：有劳动力的易地搬迁家庭实现至少1人就业 已有378万搬迁群众就业https://china.huanqiu.com/article/43OdK7B1iBs
 
-校对发布：Penny
+中国的易地扶贫搬迁政策https://www.ndrc.gov.cn/fzggw/jgsj/dqs/sjdt/201803/t20180330\_1050716.html
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+“十三五”易地扶贫搬迁任务全面完成https://finance.sina.com.cn/tech/2020-12-04/doc-iiznezxs5086250.shtml
+
+近千万人易地扶贫搬迁任务全面完成https://finance.sina.com.cn/tech/2021-01-29/doc-ikftpnny2595629.shtml
+
+国家发改委：“十三五”将加大易地扶贫搬迁资金支持http://www.xinhuanet.com/politics/2015-11/12/c\_128419767.htm
+
+统计局：2020年农村居民人均消费支出13713元 实际下降0.1%https://finance.sina.com.cn/china/gncj/2021-01-18/doc-ikftpnnx8725841.shtml
+
+![This image has an empty alt attribute; its file name is 6_june.jpg]()![This image has an empty alt attribute; its file name is 6_june.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 0

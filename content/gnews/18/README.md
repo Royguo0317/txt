@@ -1,27 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大象快讯】独家：中共高级叛逃者“直接了解”几个中国特种武器项目
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1298607/)
+## 【香草诗词汇】一代天问 -＂64＂是什么？- 不得不吐不吐不快
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1298692/)
 
-詹妮弗·范拉尔于美国东部时间 2021 年 6 月 4 日发表独家文章：
+作者：纽约香草山健身部 澄道
 
-一位不愿透露姓名的情报界人士告诉 RedState，据说有史以来最高级别的叛逃者之一，他一直在与国防情报局 (DIA) 合作数月。这些消息人士称，这位逃离中共的高级官员直接了解中共的特殊武器计划，包括生物武器计划。提供给 RedState 的信息证实并澄清了记者 Adam Housley 周四晚上的报道。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-RedState 的消息来源说这部分是真的。他们说，联邦调查局局长克里斯托弗·雷被这些信息“埋伏”了，兰利也不知道。消息人士称，DIA 领导层将逃亡者者留在他们的秘密服务网络中，以防止兰利和国务院接触到此人，因为 DIA 领导层认为 FBI、CIA 和其他几个机构内部存在中共间谍或者消息泄露渠道。
 
-联邦机构消息人士告诉 RedState，逃亡者已经在 DIA 工作了三个月，他向美国官员提供了广泛的、技术上详细的汇报。在DIA的评估中，逃亡者提供的信息是合法的。消息人士称，对逃亡者信息的信心，导致了对安东尼·福奇博士的突然信任危机，并补充说，美国陆军传染病医学研究所 (USAMRIID)向 DIA 提供详细信息的人员，已经证实了非常技术性的信息细节由逃亡者提供。
 
-参考链接：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04215308/%E4%B8%80%E4%BB%A3%E5%A4%A9%E5%95%8F.png)
 
-[https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238)
+＂64＂是什么？
+心中疑问
+岂止三十载！
+香港同胞＂六四烛光＂
+坚守年年
 
-图片来源：[https://redstate.com/](https://redstate.com/)
+＂64＂是什么？
+掉落花朵
+散撒在蛇口码头
+边麻雀行动的
+＂救命非救赎＂
 
-整理撰稿：蓝精灵
+坦克广埸上
+的碾压
+是在展给世人
+邪恶本性
+＂魔鬼撒旦＂
 
-校对发布：Penny
+主流媒体上
+几十年禁言诋毁
+是在宣告
+纳粹再现
+＂谎言千遍暨真理＂
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+清丰看守所
+＂三断过后
+死镣铐＂
+＂三教九流
+了不起＂
 
-+1
+即是地狱
+又是殿堂
+
+落水广场
+＂天圆地方
+灵魂所＂
+＂东魂西技
+佛手掌＂
+
+即是文庙
+又归天堂
+
+＂64＂是什么？
+世上没有从天而降
+的英雄
+只有挺身而出的
+上天使徒
+我笃定七哥就是！
+
+＂64＂是什么？
+这道菜
+非喜玛拉雅之巅
+非地狱之深
+你我远远未能
+品之味
+天之问
+
+注：
+三断：七哥进看守所两周胳臂断腿断肋骨断
+三教：伊斯兰教佛教道教
+
+@澄道来了
+@爱动爱议码06041
+
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 6_june-1.jpg]()![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

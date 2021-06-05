@@ -1,45 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象锐语】1989 年的胜利与悲剧：忘记天安门就是背叛自由就是向暴政投降
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1298501/)
+## 6月4日美国政要反共推特精选：纪念伟大的六四
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1298640/)
 
-MIKE POMPEO 和 MILES YU在六四纪念日发表文章：1989 年的胜利与悲剧：为什么天安门仍然重要
+美国国务院： 今天，我们向1989年在天安门广场和平呼吁自由和民主却被暴力终止的勇敢的中国人民致敬。[#捍卫人权](https://twitter.com/hashtag/%E6%8D%8D%E5%8D%AB%E4%BA%BA%E6%9D%83?src=hashtag_click)[#StandUp4HumanRights](https://twitter.com/hashtag/StandUp4HumanRights?src=hashtag_click) 【附美国务院制作的纪念8964视频】Quote Tweet
 
-32 年前，美国取得了胜利，1989 年柏林墙倒塌，冷战很快结束。但 32 年前的今天也标志着另外一个悲剧，作为当时在最高领导人邓小平领导下的中国共产党武装力量人民解放军，将坦克开进北京的天安门广场，屠杀了数百甚至数千名中国民主示威者。
 
-那一年，一个共产主义帝国被证明太弱而无法生存，而另一个被证明太残暴，以至于无法将自己扔进历史的灰烬中。
 
-在苏维埃帝国瓦解之后，许多西方国家争先恐后地宣布“历史的终结”。经过几十年的冷战，希望共产主义这个对自由和民主的最严重威胁永远结束是可以理解的。
+> Today, we honor the brave Chinese people whose peaceful calls for freedom and democracy came to a violent end in Tiananmen Square in 1989. [#StandUp4HumanRights](https://twitter.com/hashtag/StandUp4HumanRights?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/87wMYZIvAR](https://t.co/87wMYZIvAR)
+> — Department of State (@StateDept) [June 4, 2021](https://twitter.com/StateDept/status/1400693807100932096?ref_src=twsrc%5Etfw)
 
-柏林胜利的一厢情愿会掩盖天安门悲剧的真正含义。这两个事件的特点是人们对自由的渴望与共产党人粉碎自由的决心之间，展示出史诗般斗争的英雄表现，如 1956 年在匈牙利和 1968 年在捷克斯洛伐克发生的那样。 但自 1989 年以来，许多西方的知识分子和政治精英认为这场斗争结束了。他们淡化了中国共产党仍然是一个致力于颠覆自由民主国家领导的，以规则为基础的国际秩序的马克思列宁主义专政的程度。
 
-美国人集体意识中对天安门事件的健忘症对我们的安全和自由造成了严重后果。这种心态——直到过去五年两党对中国挑战的觉醒后才改变，这导致美国政府采取误导的外交政策，就好像中华人民共和国不再存在共产主义一样。事实上，绝大多数中国人已经放弃了这种破产的意识形态。但是，中国共产党的核心垄断了世界上人口最多的国家的所有权力和资源，并且深刻而教条地致力于马克思列宁主义的基本原则。它借助先进技术系统地洗脑整个国家，向青年灌输共产主义教条，将人民困在巨大的信息防火墙中，不允许私人财产不受国家控制，通过一党专政进行统治，将普遍人权和对个人的尊重视为对其权力的威胁。并从根本上致力于与西方资本主义社会进行生死斗争。
 
-1989 年天安门广场的抗议者并没有忘记中国共产党的本质。 站在广场上的 33 英尺高的“民主女神”雕像的创造者在政权大屠杀前几天宣布，“今天，这里在人民广场，人民女神高高耸立，向全世界宣告：中国人民的民主意识觉醒了。新时代开始了！”
+参议员汤姆·科顿： 32年前的今天，世界看到了 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的真面目。 但透过镇压的黑暗和枪炮的硝烟，也有一个向往自由的民族的勇气和高贵。我们今天铭记那些勇敢的灵魂，并敬重他们的牺牲。
 
-在道德更加清晰的时代，美国的精英们也会认识到中国共产党的本质。但他们往往深信民主和自由市场的必然性和说服力。许多人认为，通过最大程度的经济参与和政策修正，中华人民共和国将成为像西方一样的自由民主国家。尽管世界上大部分人现在都了解北京威胁的现实，但仍有太多精英无法理解中国共产党的核心领导层在意识形态上是教条式的和僵化的。它旨在以自己的形象尽可能多地改变世界。
 
-我们理应庆祝的柏林胜利不能排除我们今天纪念的天安门悲剧。我们不仅在广场上向英雄致敬，而且提醒全世界，对于中国共产党政权决不能抱有任何幻想，即使在其最具有改革意识的领导人的领导下，它也屠杀了自己的人民，北京仍然为这场屠杀而屠杀。拒绝公开和透明地说明。今天，这个政权正在对新疆自己的人民实施种族灭绝。
 
-自由世界与中国共产党的较量，并非始于总书记至上的习近平2012 年。党的“强硬派”（如习近平）和党的“改革者”（如邓小平）有着可追溯到马克思、列宁和毛泽东的深刻意识形态承诺。美国的政策绝不能希望回到邓时代。他们必须站在中国人民一边，正如1989年天安门广场的英雄所表明的那样。
+> 32 years ago today, the world saw the true face of the Chinese Communist Party. But through the darkness of repression and smoke of gunfire, there was also the courage and nobility of a people that dream of freedom. We remember those brave souls today and honor their sacrifice.
+> — Tom Cotton (@SenTomCotton) [June 4, 2021](https://twitter.com/SenTomCotton/status/1400865910404042752?ref_src=twsrc%5Etfw)
 
-警方逮捕了年度香港天安门广场守夜活动组织者。忘记天安门就是背叛自由，就是向暴政投降。在与北京进行了数十年的误导接触之后，自由世界面临着来自 1989 年中国共产党政权的生存威胁，该政权将柏林视为一种警告，而不是希望。今天的北京政权在意识形态上更加活跃，在经济、军事和技术上更有能力。但美国以前战胜过这样的敌人，它可以再次胜利。
 
-迈克·蓬佩奥 2018 年至 2021 年担任美国国务卿，2017 年至 2018 年担任中央情报局局长。他曾于 2011 年至 2017 年担任堪萨斯州共和党国会议员。
 
-历史学家和战略家 Miles Yu 曾担任国务院国务卿蓬佩奥的首席中国政策顾问。他是哈德逊研究所、2049 项目研究所的高级研究员和胡佛研究所的客座研究员。
+众议院外交委员会共和党领袖： 麦考尔[@RepMcCaul](https://twitter.com/RepMcCaul)：“32 年前， [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 在天安门屠杀了数千名倡导基本权利的勇敢、和平的公民。那天遭受苦难的人们活在我们的记忆中。我们继续为中华人民共和国和香港的那些仍然在等待基本人权的人民而战.”
 
-参考链接：
 
-[https://thehill.com/opinion/international/556735-the-triumph-and-tragedy-of-1989-why-tiananmen-still-matters](https://thehill.com/opinion/international/556735-the-triumph-and-tragedy-of-1989-why-tiananmen-still-matters)
 
-图片来源：[https://thehill.com/](https://thehill.com/)
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw): "32 years ago the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) massacred thousands of brave, peaceful citizens advocating for basic rights in [#TiananmenSquare](https://twitter.com/hashtag/TiananmenSquare?src=hash&amp;ref_src=twsrc%5Etfw). Those who suffered that day live on in our memory. We continue the fight for those in the PRC & Hong Kong who still wait for basic human rights."
+> — House Foreign Affairs GOP (@HouseForeignGOP) [June 4, 2021](https://twitter.com/HouseForeignGOP/status/1400850118660833284?ref_src=twsrc%5Etfw)
 
-整理撰稿：蓝精灵
 
-校对发布：Penny
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+蓬佩奥（前国务卿）： 32年前，天安门广场发生了一场悲剧，凸显了热爱自由的中国人民与北京暴政之间的对比。 今天，我们纪念天安门的英雄们。
+
+
+
+> 32 years ago, a tragedy occurred in Tiananmen Square that highlighted the contrast between the freedom-loving Chinese people and the tyranny of the regime in Beijing. 
+> 
+> Today, we commemorate the heroes of Tiananmen. [pic.twitter.com/59C8PuO6Jb](https://t.co/59C8PuO6Jb)
+> — Mike Pompeo (@mikepompeo) [June 4, 2021](https://twitter.com/mikepompeo/status/1400853918142320646?ref_src=twsrc%5Etfw)
+
+
+
+
 
 0
