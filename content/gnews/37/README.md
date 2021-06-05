@@ -1,8 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新中国联邦一周年】天道-魔道-正道-人间道
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1299200/)
+## 【新中国联邦一周年】鲁迪•朱利安尼：我们必须站出来反对那些被中共收买的政客、企业和科技公司。我们不能再让我们的人民蒙在鼓里
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1299258/)
+
+06/03/2021 鲁迪•朱利安尼：美国竟然需要一年时间才认识到是中共在传播中共病毒，这令人难以置信。我们必须站出来反对那些被中共收买的政客、企业和科技公司。我们不能再让我们的人民蒙在鼓里了。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
