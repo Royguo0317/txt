@@ -1,43 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国的疫苗真能打吗
-` XINYUAN` [轉載自GNews](https://gnews.org/zh-hans/1299619/)
+## “欧洲神秘战友”即将出场，灭共雷霆之势正在到来
+` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1299750/)
 
-撰稿：法国巴黎农场 – XINYUAN
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05044436/image0-10.jpg)
-我们来盘点一下中国孩子从小到大要打的11种疫苗
+美东时间6月4日下午两点，RedState1网站报道称：一名据信是中共国有史以来最高级别的“叛逃者”已经与DIA（Defense Intelligence Agency, 美国国防情报局）合作数月。这位神秘叛逃者对中国的特殊武器项目有直接了解，并透漏其中与生化武器相关项目相关的情报非常让人担忧。
 
-出生后24小时内：乙肝疫苗第一針、卡介苗
+此信息的提供者 [ADAM HOUSLEY](https://twitter.com/adamhousley?s=20) (https://twitter.com/adamhousley?s=20 )发推称：中共为为摆脱追责正试图制造变异病毒，和更为广泛的传播，为COVID-19的自然来源假说创造逻辑闭环。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05052448/%E6%88%AA%E5%B1%8F2021-06-05-%E4%B8%8B%E5%8D%884.30.51.png)
+消息来源称，这位神秘叛逃者提供的信息是导致对福奇博士信任危机的直接原因，其中的技术细节已经由美国陆军医学研究所的传染病情报局证实。
 
-满1个月：乙肝疫苗第二针
+福奇的邮件印证了爆料革命自病毒爆发以来一直在传播的病毒真相，但是为什么如此重磅的信息截至今日引起的只是媒体对病毒来源的大面积噤声，对福奇博士和邮件事件中提到的比尔∙盖茨、扎克伯格并没有任何官方的进一步行动。 这条在新中国联邦一周年庆之际发出的重磅报道，让世界和全球华人更清楚的认识到，越来越多中国人正在站出来，在中共和新中国联邦之间选择与新中国联邦站在一起，越来越多的力量正在涌向灭共的第一线。
 
-满2个月：脊髓灰质炎疫苗第一粒
+参考链接：
 
-满3个月：脊髓灰质炎疫苗第二粒、百白破疫苗第一针
+1. [Redstate](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238?cf_chl_captcha_tk=4ff828be82f9a37eac04d5ab06862704a3651eec-1622885161-0-ASI1JIbMpPXUoEkMK7l4VFHjySxHFs07sdkEytEqjRmFmvTJWuJmQ4cLn8bnPM6zPyuu8q19bVb9z6P2xOs4Q2O7o6qqX7JSWQ6bXjEwZJktXucl_09R88gGCf2ey0-aEn-vuOubujETqocHvJh9wxRWVwEzqosp4UNeCkTYnFdzEwzHKdy3fszbuL7FenONyCu63Vgw_FEW9utuBTdMV38p1ORkO4g3oD2rTmITmO8uSWFr9Mx6-_pPioCcXQxQxF6qQ4LG2a8Js5G2x8tE1byHXd1Et3ygU54rcX-B4ZtRyH57YJdHIWuqFyy5TMjZoeXhkjmBtWipzDy6fbnrD1v9Fw8jT97-ZUt2g7niqFU8gCYE5ZZjCkTihFNOzj-lCS2MidBYqnWlA-slURkTsA0-u_KOSJ8InfL5vcHONR_DkXpkkF6dGD9MSys7aH3s2AcqFxq3yPiSUYO6Wv2co4gp0M8SEgDFIu6AF0JXDZ0evY1_oQOcOF_eOAy3CtC6bWphfRA7chn-6tLjYZ87pEl-EzRms1makyGXnxTHjCjH-5uDwOsEJJPHScL1fSGPlDrMMgGj7Nna3zzhD64yktNONjL9n-IsmKSTr_loef3xDL3sSDKF7Pviu3SfcvHTHF50i50tEya2Ju5CDs2RZin9cybIxS_296aycfkOE75ksXs0rCx-55xEgkZe3wwejKyfh3AG39doByDeNxsiy_7Bs9ZVe16-F95BpnIKdb6cPtKF9TtUXhM8YGyvdu6CKEEncpXbPinNF2zFDqQFnlQJtXyy9MaRURpPNzyPvPR8)
+2. [pjmedia](https://pjmedia.com/columns/paula-bolyard/2021/06/04/report-high-ranking-chinese-defector-working-with-dia-has-direct-knowledge-of-chinas-bioweapons-program-and-its-very-bad-n1452251)
 
-满4个月：脊髓灰质炎疫苗第三粒、百白破疫苗第二针
 
-满5个月：百白破疫苗第三针
 
-满6个月：乙肝疫苗第三针、A群流脑疫苗第一针
 
-记得当我把经过认证的医疗本给瑞典的校医看时，她看到中国孩子要打这么多的疫苗时，那一脸震惊的表情让我第一次感到也许我错了。因为在打疫苗这件事上，我是毫不含糊，完全认真执行的。有些选择项目也都打了。而且基本都是用的自以为安全的国外疫苗。那孩子到底需不需要打如  此多的疫苗？国外的就一定安全吗？这的确需要很多做父母的审慎思考。爱心因为这关系到孩子的健康成长。还有最近的新冠疫苗，是真的有效吗？会不会反而有害？
-
-本来，接种疫苗是为了防止某些疾病的爆发，特别是儿童经常需要接种各种疫苗，例如为了预防儿童麻疹，最好的方式就是接种麻疹疫苗。但是中国的疫苗不但数量众多，而且问题频出。使得任何一个家长都无法安心，即使谨慎再谨慎，也招架不住各种疫苗事件的频频曝发。而且不但存在毒假疫苗的问题。还有过期疫苗的泛滥。例如：
-
-江苏金湖县一家卫生院给145名婴幼儿接种了过期的脊灰疫苗。导致多名孩子出现不良反应。虽然事后中共声称，县疾控中心的多名领导已被免职，涉事的卫生院多名人员也被立案调查。但我们都知道，这只是走走形式而已。对这些受害者并没有实质上的帮助。而且疫苗事件还是层出不穷。
-
-直到2018年7月，随着上市企业长生生物的疫苗事件爆发，引起了舆论风暴，中共领导人才假意准备彻查。但指望一个强盗政府去查如何被盗，是不是太不靠谱？
-
-2019年3月，《疫苗管理法》被正式提交给中共审议，并于12月1日起施行。但这又能如何？中共国的疫苗就能安全了吗？此法案的诞生会不会是为强制百姓打新冠疫苗而做的铺垫呢？因为疫苗事件已持续十多年，为什么偏偏在病毒爆发前才立法呢？做为中共国的百姓，面对如此无良的政府，永远要多些思考。以防误入陷阱。
-
-当我们在维基百科上查寻对[中共疫苗乱象](https://zh.m.wikipedia.org/wiki/中国大陆疫苗乱象)的解释时，词条上明确指出是从中共国成立以后，出现在中国大地上的一种疫苗怪象。从中也可以看出有关疫苗的一切乱象都与中共国脱不了干系。
-
-回顾这些年来，中国毒/假疫苗以及过期疫苗事件频发，这些事件所造成的恐慌及家长们无助痛苦的表情还历历在目。而因疫苗问题所导致的儿童患病、瘫痪等问题也没有得到解决，天知道有多少家庭因此陷入各种困境。这一切的伤痛还没有过去，泪痕也未擦干。我们怎能再次相信这样的政府和机构，只因它们忽然摇身一变，“好心的”愿意免费为我们提供新冠疫苗，我们就信了吗？其实，从他们以往的种种劣迹，完全可以判断的出，这些机构并不单纯，背后的操控者据说都是几大红色家族。而且都是漠视生命，良心尽失的金钱至上主义者。这就像一个品行恶劣，刚被释放的惯犯，忽然哪天拿糖哄着人吃，是不是反而会引起我们的警惕，马上远离呢？
-
-而且越来越多的证据已经表明，新冠病毒来自中共政府的恶意释放。况且这已经远超病毒范筹，被认定为是生化武器。武器怎么可能会有疫苗呢？而且一个从来都唯利是图，恨不得榨干百姓的政府兼放毒的邪恶组织，忽然哪天愿意免费给你疫苗，你认为那真的是想救你吗？还是背后有比免费疫苗更大的利益和交易呢？如果你正在考虑是否要接种疫苗，希望你能深思熟虑再行动，因为这不是省几个钱的问题，搞不好会给自己带来生命的危险。爆料革命的闫博士也一再呼吁，吃羟氯喹加锌片的功效远超疫苗，的确，正如以色列政府所说，疫苗的危害是不可知和不可控的。因此，这种情况下，我们唯有远离新冠疫苗，吃羟氯喹加锌片才是保护自己和家人的最佳方式。
-
-(本文仅代表个人观点)
-
-0
++1

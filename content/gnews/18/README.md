@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “欧洲神秘战友”即将出场，灭共雷霆之势正在到来
-` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1299750/)
+## 《路德社》精选新闻简讯：美国议员弗雷德-凯勒（Fred Keller ）对Newsmax说：我们需要弄清 COVID-19的起源
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1299823/)
 
-美东时间6月4日下午两点，RedState1网站报道称：一名据信是中共国有史以来最高级别的“叛逃者”已经与DIA（Defense Intelligence Agency, 美国国防情报局）合作数月。这位神秘叛逃者对中国的特殊武器项目有直接了解，并透漏其中与生化武器相关项目相关的情报非常让人担忧。
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-此信息的提供者 [ADAM HOUSLEY](https://twitter.com/adamhousley?s=20) (https://twitter.com/adamhousley?s=20 )发推称：中共为为摆脱追责正试图制造变异病毒，和更为广泛的传播，为COVID-19的自然来源假说创造逻辑闭环。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05052448/%E6%88%AA%E5%B1%8F2021-06-05-%E4%B8%8B%E5%8D%884.30.51.png)
-消息来源称，这位神秘叛逃者提供的信息是导致对福奇博士信任危机的直接原因，其中的技术细节已经由美国陆军医学研究所的传染病情报局证实。
+据Newsmax报道，宾夕法尼亚州众议员弗雷德-凯勒（Fred Keller）周二告诉Newsmax，国会应该举行 “听证会”，调查COVID-19的来源以及中共是否对其不诚实。
 
-福奇的邮件印证了爆料革命自病毒爆发以来一直在传播的病毒真相，但是为什么如此重磅的信息截至今日引起的只是媒体对病毒来源的大面积噤声，对福奇博士和邮件事件中提到的比尔∙盖茨、扎克伯格并没有任何官方的进一步行动。 这条在新中国联邦一周年庆之际发出的重磅报道，让世界和全球华人更清楚的认识到，越来越多中国人正在站出来，在中共和新中国联邦之间选择与新中国联邦站在一起，越来越多的力量正在涌向灭共的第一线。
+凯勒在 “美国议程”节目中谈到，他和他的同事希望看到本周在众议院举行听证会，以查清到底发生了什么，以及COVID-19（中共病毒）是如何被释放的，因为这不仅仅要对美国人民，而且要对全世界负责。在过去的一年半里，中国共产党在任何事情上都不诚实。
 
-参考链接：
+当被问及如何证明中共对世界欺骗时，凯勒说：”我很乐观，国会将能够拥有情报资源，美国政府将能够提供情报资源，让相关的内部人员证明谁是2019年第一批感染这种疾病的科学家？为什么他们会被沉默？一年前，当有人讨论武汉实验室出现这种情况的可能性时，为什么这被认为是假新闻？有人甚至因为这个想法而被解雇和嘲笑。现在，为什么媒体和大众突然转向了？因为这种可能性确实存在。我们需要弄清楚这个问题，这样我们就可以让中共负责，可以确保这种情况不会再发生在我们身上。”
 
-1. [Redstate](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238?cf_chl_captcha_tk=4ff828be82f9a37eac04d5ab06862704a3651eec-1622885161-0-ASI1JIbMpPXUoEkMK7l4VFHjySxHFs07sdkEytEqjRmFmvTJWuJmQ4cLn8bnPM6zPyuu8q19bVb9z6P2xOs4Q2O7o6qqX7JSWQ6bXjEwZJktXucl_09R88gGCf2ey0-aEn-vuOubujETqocHvJh9wxRWVwEzqosp4UNeCkTYnFdzEwzHKdy3fszbuL7FenONyCu63Vgw_FEW9utuBTdMV38p1ORkO4g3oD2rTmITmO8uSWFr9Mx6-_pPioCcXQxQxF6qQ4LG2a8Js5G2x8tE1byHXd1Et3ygU54rcX-B4ZtRyH57YJdHIWuqFyy5TMjZoeXhkjmBtWipzDy6fbnrD1v9Fw8jT97-ZUt2g7niqFU8gCYE5ZZjCkTihFNOzj-lCS2MidBYqnWlA-slURkTsA0-u_KOSJ8InfL5vcHONR_DkXpkkF6dGD9MSys7aH3s2AcqFxq3yPiSUYO6Wv2co4gp0M8SEgDFIu6AF0JXDZ0evY1_oQOcOF_eOAy3CtC6bWphfRA7chn-6tLjYZ87pEl-EzRms1makyGXnxTHjCjH-5uDwOsEJJPHScL1fSGPlDrMMgGj7Nna3zzhD64yktNONjL9n-IsmKSTr_loef3xDL3sSDKF7Pviu3SfcvHTHF50i50tEya2Ju5CDs2RZin9cybIxS_296aycfkOE75ksXs0rCx-55xEgkZe3wwejKyfh3AG39doByDeNxsiy_7Bs9ZVe16-F95BpnIKdb6cPtKF9TtUXhM8YGyvdu6CKEEncpXbPinNF2zFDqQFnlQJtXyy9MaRURpPNzyPvPR8)
-2. [pjmedia](https://pjmedia.com/columns/paula-bolyard/2021/06/04/report-high-ranking-chinese-defector-working-with-dia-has-direct-knowledge-of-chinas-bioweapons-program-and-its-very-bad-n1452251)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05055948/060504.png)
 
+凯勒还说，美国国家过敏和传染病研究所所长安东尼-福奇博士和生态健康联盟组织主席彼得-达斯扎克博士是 “我们名单上最重要的人”，他们要作证。
 
+随着福奇1000多封邮件陆续被曝光，中共对病毒掩盖的真相渐渐露出水面，美国越来越多寻求真相的政治人物站了出来，世界即将掀起对中共声讨的浪潮。真相你可以掩盖一时，但不能掩盖一世。
 
+[援引原文](https://www.newsmax.com/newsmax-tv/fredkeller-newsmax-covid-19/2021/06/01/id/1023512/)
 
-+1
+本文作者：林林虎
+审核校对：Barry Jack
+上传排版：糖果儿
+
+0
