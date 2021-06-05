@@ -1,31 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 土地财政的收归政策会给中共续命吗？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1299727/)
+## “欧洲神秘战友”即将出场，灭共雷霆之势正在到来
+` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1299750/)
 
-撰稿：最后的救赎
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05050355/%E5%9B%BE%E7%89%87PPT%E5%8F%98PNG-3.jpg)
-图片来自互联网络
-昨天，中共的财政部发布一则消息：将国有土地使用权出让收入、矿产资源专项收入、海域使用金、无居民海岛使用金四项政府非税收收入划转税务部门征收。自2021年7月1日起在河北、内蒙、浙江等省市进行试点，计划自2022年1月1日起在全国范围实施。
+美东时间6月4日下午两点，RedState1网站报道称：一名据信是中共国有史以来最高级别的“叛逃者”已经与DIA（Defense Intelligence Agency, 美国国防情报局）合作数月。这位神秘叛逃者对中国的特殊武器项目有直接了解，并透漏其中与生化武器相关项目相关的情报非常让人担忧。
 
-中共这项政策的实质性含义可解释如下：卖地收入转由税务部门征收，不再由地方财政收取，不再进入地方财政的“政府性基金收入”项目。这意味着，地方政府的小金库彻底没有了，而出让土地的收入曾经作为地方政府的收入的主要来源被切断了，将来的每一笔支出，将被严格管控，简而言之，中央伪政府豪夺了地方政府的饭碗。
+此信息的提供者 [ADAM HOUSLEY](https://twitter.com/adamhousley?s=20) (https://twitter.com/adamhousley?s=20 )发推称：中共为为摆脱追责正试图制造变异病毒，和更为广泛的传播，为COVID-19的自然来源假说创造逻辑闭环。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05052448/%E6%88%AA%E5%B1%8F2021-06-05-%E4%B8%8B%E5%8D%884.30.51.png)
+消息来源称，这位神秘叛逃者提供的信息是导致对福奇博士信任危机的直接原因，其中的技术细节已经由美国陆军医学研究所的传染病情报局证实。
 
-这样的征收政策变化，彰显了中共中央政府入不敷出的窘迫局面，美中、美欧等全球主要经济体的关系事实上已经走向不可逆装的脱钩状态，他们压榨国内底层人民的血汗换取外汇的所谓外向型经济模式已经走向了穷途末路，美国对中采取的技术封锁措施，随着中概股在美国的全面退市，后期产生的巨大影响，正在不断产生作用，中共的经济正在走向孤立和终结。
+福奇的邮件印证了爆料革命自病毒爆发以来一直在传播的病毒真相，但是为什么如此重磅的信息截至今日引起的只是媒体对病毒来源的大面积噤声，对福奇博士和邮件事件中提到的比尔∙盖茨、扎克伯格并没有任何官方的进一步行动。 这条在新中国联邦一周年庆之际发出的重磅报道，让世界和全球华人更清楚的认识到，越来越多中国人正在站出来，在中共和新中国联邦之间选择与新中国联邦站在一起，越来越多的力量正在涌向灭共的第一线。
 
-地方政府已经出现入不敷出的局面，这样的政策出台，表面上看起来是对地方政府加强管控，彻底截断了地方政府赖以生存的经济来源，地方政府一方面可能会减少基层事业编制人员和临时工的工资补贴等，同时又会加剧对地方老百姓的横征暴敛，社会矛盾将骤然加剧，更多底层的体制内受益者会感受到压力，他们会跳出来反对中共吗？土地财政权的丧失，会导致地方政府对房地产彻底失去兴趣，同时，他们会将积累三十年的土地债务支撑下去吗？大厦将倾，房地产崩盘的信号已经非常明显。
+参考链接：
 
-表面上这是中共中央政府和地方政府的愈演愈烈的争利行为，实质上是中共在中国执政合法性上的难以为继，与民争利升级为中央与地方的割裂，中央与地方的矛盾事实上也是中共权贵阶层之间的矛盾，这种内部矛盾将进一步演化为分裂和生死之争。
+1. [Redstate](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238?cf_chl_captcha_tk=4ff828be82f9a37eac04d5ab06862704a3651eec-1622885161-0-ASI1JIbMpPXUoEkMK7l4VFHjySxHFs07sdkEytEqjRmFmvTJWuJmQ4cLn8bnPM6zPyuu8q19bVb9z6P2xOs4Q2O7o6qqX7JSWQ6bXjEwZJktXucl_09R88gGCf2ey0-aEn-vuOubujETqocHvJh9wxRWVwEzqosp4UNeCkTYnFdzEwzHKdy3fszbuL7FenONyCu63Vgw_FEW9utuBTdMV38p1ORkO4g3oD2rTmITmO8uSWFr9Mx6-_pPioCcXQxQxF6qQ4LG2a8Js5G2x8tE1byHXd1Et3ygU54rcX-B4ZtRyH57YJdHIWuqFyy5TMjZoeXhkjmBtWipzDy6fbnrD1v9Fw8jT97-ZUt2g7niqFU8gCYE5ZZjCkTihFNOzj-lCS2MidBYqnWlA-slURkTsA0-u_KOSJ8InfL5vcHONR_DkXpkkF6dGD9MSys7aH3s2AcqFxq3yPiSUYO6Wv2co4gp0M8SEgDFIu6AF0JXDZ0evY1_oQOcOF_eOAy3CtC6bWphfRA7chn-6tLjYZ87pEl-EzRms1makyGXnxTHjCjH-5uDwOsEJJPHScL1fSGPlDrMMgGj7Nna3zzhD64yktNONjL9n-IsmKSTr_loef3xDL3sSDKF7Pviu3SfcvHTHF50i50tEya2Ju5CDs2RZin9cybIxS_296aycfkOE75ksXs0rCx-55xEgkZe3wwejKyfh3AG39doByDeNxsiy_7Bs9ZVe16-F95BpnIKdb6cPtKF9TtUXhM8YGyvdu6CKEEncpXbPinNF2zFDqQFnlQJtXyy9MaRURpPNzyPvPR8)
+2. [pjmedia](https://pjmedia.com/columns/paula-bolyard/2021/06/04/report-high-ranking-chinese-defector-working-with-dia-has-direct-knowledge-of-chinas-bioweapons-program-and-its-very-bad-n1452251)
 
-伴随着以毒灭共的全球巨大力量的凝聚，中共内部是无法化解日益膨胀的内部压力的，内部矛盾会促使以共灭共局面的形成，不断调整的所谓经济政策，无非是延缓其灭亡的时间，而续命不得法，造成的结果就是：死得更快！
 
-(本文仅代表作者个人观点)
 
-编辑：云彩
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
-
-0
++1

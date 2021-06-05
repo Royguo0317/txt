@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “欧洲神秘战友”即将出场，灭共雷霆之势正在到来
-` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1299750/)
+## 红魔的黄昏
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1299833/)
 
-美东时间6月4日下午两点，RedState1网站报道称：一名据信是中共国有史以来最高级别的“叛逃者”已经与DIA（Defense Intelligence Agency, 美国国防情报局）合作数月。这位神秘叛逃者对中国的特殊武器项目有直接了解，并透漏其中与生化武器相关项目相关的情报非常让人担忧。
+#### 翻译报道： Chris
 
-此信息的提供者 [ADAM HOUSLEY](https://twitter.com/adamhousley?s=20) (https://twitter.com/adamhousley?s=20 )发推称：中共为为摆脱追责正试图制造变异病毒，和更为广泛的传播，为COVID-19的自然来源假说创造逻辑闭环。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05052448/%E6%88%AA%E5%B1%8F2021-06-05-%E4%B8%8B%E5%8D%884.30.51.png)
-消息来源称，这位神秘叛逃者提供的信息是导致对福奇博士信任危机的直接原因，其中的技术细节已经由美国陆军医学研究所的传染病情报局证实。
+#### 责编：胡天
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05055549/image-113.png)
+根据大卫·史迪威（DAVID R. STILWELL）在国会山报 (The Hill)的报道，中共一直自诩自己是世界上“负责任的大国“，并且想要取代美国， 但实际上中共恶事做尽，实际行动与嘴上说的背道而驰。
 
-福奇的邮件印证了爆料革命自病毒爆发以来一直在传播的病毒真相，但是为什么如此重磅的信息截至今日引起的只是媒体对病毒来源的大面积噤声，对福奇博士和邮件事件中提到的比尔∙盖茨、扎克伯格并没有任何官方的进一步行动。 这条在新中国联邦一周年庆之际发出的重磅报道，让世界和全球华人更清楚的认识到，越来越多中国人正在站出来，在中共和新中国联邦之间选择与新中国联邦站在一起，越来越多的力量正在涌向灭共的第一线。
+1989年6月4日的天安门大屠杀粉碎了一场新生的民主运动。根据2017年BBC的报告约有10000人牺牲于这场屠杀，但中共却声称只有200名公民被杀。不仅如此，中共在中国境内封禁一切相关真相，而且最近还取缔了每年在香港举行的天安门守夜活动，剥夺香港最后一丝的自治权。
 
-参考链接：
+西藏也一直深受中共的迫害，几十年来一直禁止外交官和非政府组织进入，更离谱的是中共命令要求达赖喇嘛按照中共的法律在中国转世。除此之外，中共在新疆实施了更惨无人道的种族屠杀，在各种铁证面前中共仍然死鸭子嘴硬，遮掩真相。
 
-1. [Redstate](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238?cf_chl_captcha_tk=4ff828be82f9a37eac04d5ab06862704a3651eec-1622885161-0-ASI1JIbMpPXUoEkMK7l4VFHjySxHFs07sdkEytEqjRmFmvTJWuJmQ4cLn8bnPM6zPyuu8q19bVb9z6P2xOs4Q2O7o6qqX7JSWQ6bXjEwZJktXucl_09R88gGCf2ey0-aEn-vuOubujETqocHvJh9wxRWVwEzqosp4UNeCkTYnFdzEwzHKdy3fszbuL7FenONyCu63Vgw_FEW9utuBTdMV38p1ORkO4g3oD2rTmITmO8uSWFr9Mx6-_pPioCcXQxQxF6qQ4LG2a8Js5G2x8tE1byHXd1Et3ygU54rcX-B4ZtRyH57YJdHIWuqFyy5TMjZoeXhkjmBtWipzDy6fbnrD1v9Fw8jT97-ZUt2g7niqFU8gCYE5ZZjCkTihFNOzj-lCS2MidBYqnWlA-slURkTsA0-u_KOSJ8InfL5vcHONR_DkXpkkF6dGD9MSys7aH3s2AcqFxq3yPiSUYO6Wv2co4gp0M8SEgDFIu6AF0JXDZ0evY1_oQOcOF_eOAy3CtC6bWphfRA7chn-6tLjYZ87pEl-EzRms1makyGXnxTHjCjH-5uDwOsEJJPHScL1fSGPlDrMMgGj7Nna3zzhD64yktNONjL9n-IsmKSTr_loef3xDL3sSDKF7Pviu3SfcvHTHF50i50tEya2Ju5CDs2RZin9cybIxS_296aycfkOE75ksXs0rCx-55xEgkZe3wwejKyfh3AG39doByDeNxsiy_7Bs9ZVe16-F95BpnIKdb6cPtKF9TtUXhM8YGyvdu6CKEEncpXbPinNF2zFDqQFnlQJtXyy9MaRURpPNzyPvPR8)
-2. [pjmedia](https://pjmedia.com/columns/paula-bolyard/2021/06/04/report-high-ranking-chinese-defector-working-with-dia-has-direct-knowledge-of-chinas-bioweapons-program-and-its-very-bad-n1452251)
+中共犯下的罪行并没有止步于此，反而变本加厉，2019年底中共病毒爆发，中共不仅没有想办法控制病毒，反而勾兑世界卫生组织，遮掩病毒的危害，虚报感染率和死亡率，中共官方报告称，湖北感染中共病毒的死亡人数是4500人，但是通过一些间接可信的数据，例如骨灰盒，装尸袋的使用数量可以证明实际死亡人数远超于官方声明的数量。由于中共掩盖真相，让本来可控的疫情在全球肆虐，全球数以百万的生命死于中共病毒。
 
+看到中共一味的遮掩事实，这不禁令人想起1986年苏联切尔诺贝利核事故，这场核事故让人们认识到，专制制度必须对人民和世界负责。随着世界上越来越多的国家看透中共的伎俩，中共的“世界大国“形象如同泡影一般，现在重要的是希望越来越多的百姓能认识的中共的邪恶，不要被中共拉做挡箭牌。
 
+#### 评论：
 
+六四运动一直是中共的敏感话题，但是纸是包不住火的，即使身在墙内的大部分同胞也清楚六四到底发生了什么。而且我还注意到随着爆料革命的不断推进，中共近几年对六四运动的敏感度越来越高，在2020年六四期间墙内的媒体，视频网站就开始禁止出现坦克军事类的信息，而且在那段期间某些平台以维护系统唯由，关闭评论区。今年也是同样的状况绝非巧合，这种刻意的掩饰可见中共是多么害怕真相，恐惧人民的力量，中共虽热扼杀了万人的民主运动，但是民主却化作种子，种入亿万人的心中，随着中共病毒真相不断被公布，我相信中共的死期快到了。
 
-+1
+原文链接： [Tiananmen and COVID-19 show China’s fragility as a great power](https://thehill.com/opinion/international/556746-tiananmen-and-covid-19-show-chinas-fragility-as-a-great-power?rl=1)
+
+0

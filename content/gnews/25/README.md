@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 红魔的黄昏
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1299833/)
+## 中共病毒伤害脑神经系统，患者出现脑部和精神疾病
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1299961/)
 
-#### 翻译报道： Chris
+台湾宝岛农场 Amitofu
 
-#### 责编：胡天
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05055549/image-113.png)
-根据大卫·史迪威（DAVID R. STILWELL）在国会山报 (The Hill)的报道，中共一直自诩自己是世界上“负责任的大国“，并且想要取代美国， 但实际上中共恶事做尽，实际行动与嘴上说的背道而驰。
+根据卫报报道英国牛津大学一项研究指出，33%新型冠状病毒患者，在确诊后6个月脑部受到侵害，**显示新型冠状病毒会直接侵犯大脑和中枢神经系统**，在患者康复后罹患与大脑有关的疾病风险增高，被诊断出患有神经系统疾病、精神病、焦虑症和情绪障碍，对患者心理健康与脑部的影响不可忽视。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05064503/ccpCranialnerves-400x225.jpg)
+英国牛津大学教授Maxime Taquet发表于《刺胳针精神病学》期刊（The Lancet Psychiatry），研究人员在6个月期间分析超过 23.6万名患者数据，数据于2020年1月20日至12月13日期间，在美国确诊新冠肺炎患者的病例中，包括住院及无须住院患者，并与感染流感、呼吸道感染两组患者作对比，针对 14 种神经和心理健康状况分析，**研究团队发现****33.6%****患者在感染后****6****个月，被诊断出患有脑部神经疾病，其中有近****20%****患者在确诊****3****个月内****，****被诊断患精神疾病，约有****1/9****无须住院的患者****，****被诊断出患有忧郁症****、****中风、颅内或大脑急性出血、**** ****痴呆、精神病等，与从流感中康复的人相比，新冠病毒患者出现神经系统疾病和精神病的风险高出**** 44%****。**
 
-1989年6月4日的天安门大屠杀粉碎了一场新生的民主运动。根据2017年BBC的报告约有10000人牺牲于这场屠杀，但中共却声称只有200名公民被杀。不仅如此，中共在中国境内封禁一切相关真相，而且最近还取缔了每年在香港举行的天安门守夜活动，剥夺香港最后一丝的自治权。
+中共长期制造生物病毒在Sellin博士科学溯源中，证实美国FDA和国家传染病研究院NIH的安东尼·福奇和他NIH同事柯林斯与香港大学P3实验室顶级冠状病毒专家马里克裴伟士 Malik Peiris有一个重要的合同，**马里克团队能增强****E****蛋白中****SARS****病毒极大毒性，可直接伤害脑部和神经系统并具高传染能力特性**，也就是生化病毒的功能增强，中共透过马里克新冠状病毒的专业与解放军合作，以舟山蝙蝠病毒ZC45/ZXC21为骨架，通过人为的基因改造技术在刺突蛋白中引入弗林酶切位点，功能增强S蛋白、E蛋白毒性，100%被复制于SARS-COV-2病毒中，使病毒更具强变异性和传染性。
 
-西藏也一直深受中共的迫害，几十年来一直禁止外交官和非政府组织进入，更离谱的是中共命令要求达赖喇嘛按照中共的法律在中国转世。除此之外，中共在新疆实施了更惨无人道的种族屠杀，在各种铁证面前中共仍然死鸭子嘴硬，遮掩真相。
+牛津大学精神病学系Maxime Taquet教授证实，新冠病毒确实会造成神经系统疾病和精神疾病，虽然研究没有发现新冠病毒患者较容易罹患与病毒有关的两种神经系统疾病，格林巴利症候群和帕金森氏症，但许多此类疾病属于慢性或复发性的，某些患者将来可能会出现此类疾病，也就是患中共病毒的影响可能会在多年后，对患者健康和社会安全带来巨大影响。阿弥陀佛\_/\\_祈祷万佛万神加持75亿人不受到中共病毒的威胁
 
-中共犯下的罪行并没有止步于此，反而变本加厉，2019年底中共病毒爆发，中共不仅没有想办法控制病毒，反而勾兑世界卫生组织，遮掩病毒的危害，虚报感染率和死亡率，中共官方报告称，湖北感染中共病毒的死亡人数是4500人，但是通过一些间接可信的数据，例如骨灰盒，装尸袋的使用数量可以证明实际死亡人数远超于官方声明的数量。由于中共掩盖真相，让本来可控的疫情在全球肆虐，全球数以百万的生命死于中共病毒。
+本文仅代表个人立场
 
-看到中共一味的遮掩事实，这不禁令人想起1986年苏联切尔诺贝利核事故，这场核事故让人们认识到，专制制度必须对人民和世界负责。随着世界上越来越多的国家看透中共的伎俩，中共的“世界大国“形象如同泡影一般，现在重要的是希望越来越多的百姓能认识的中共的邪恶，不要被中共拉做挡箭牌。
+資料來源:文贵先生、班农战斗室、路德社、闫丽梦博士、博士军团、爆料革命
 
-#### 评论：
+[Covid linked to risk of mental illness and brain disorder, study suggests](https://www.theguardian.com/world/2021/jan/25/covid-linked-to-risk-of-mental-illness-and-brain-disorder-study-suggests?fbclid=IwAR2hX41ZkOf0AqxUSxj12Qb6PKWY6aEt94kDNtvdFQu0mOriz3PWR_-reDs)
 
-六四运动一直是中共的敏感话题，但是纸是包不住火的，即使身在墙内的大部分同胞也清楚六四到底发生了什么。而且我还注意到随着爆料革命的不断推进，中共近几年对六四运动的敏感度越来越高，在2020年六四期间墙内的媒体，视频网站就开始禁止出现坦克军事类的信息，而且在那段期间某些平台以维护系统唯由，关闭评论区。今年也是同样的状况绝非巧合，这种刻意的掩饰可见中共是多么害怕真相，恐惧人民的力量，中共虽热扼杀了万人的民主运动，但是民主却化作种子，种入亿万人的心中，随着中共病毒真相不断被公布，我相信中共的死期快到了。
+[A Mouse Model of SARS-CoV-2 Infection and Pathogenesis](https://www.cell.com/cell-host-microbe/pdfExtended/S1931-3128%2820%2930302-4)
 
-原文链接： [Tiananmen and COVID-19 show China’s fragility as a great power](https://thehill.com/opinion/international/556746-tiananmen-and-covid-19-show-chinas-fragility-as-a-great-power?rl=1)
+[1 in 3 People Who Survive COVID-19 Are Left With ‘Brain Disease’ or Psychiatric Disorders, Says New Study](https://www.health.com/condition/infectious-diseases/coronavirus/covid-survivors-brain-disease-psychiatric-disorders)
+
+审核:Athena雅典娜 发布:Amitofu
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
 0

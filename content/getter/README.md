@@ -17,6 +17,11 @@
 **郭文贵MILES** `2021-02-21T15:56:09`
 ##
 
+[6月5日：尊敬的战友们好！30分钟左右七哥直播乱播！  【https://pjmedia.com/columns/paula-bolyard/2021/06/0...](/content/getter/content/2021/06/60bb897ac04fd544b469e3d9.md)
+
+**郭文贵MILES** `2021-06-05T14:26:02`
+##
+
 [6月4号O 写作做的这个视频跟安红的性格．非常像：非常非常的棒￼【最后是安红战友一脚把CCP 踹进了垃圾桶……】](/content/getter/content/2021/06/60babae3c04fd544b469741a.md)
 
 **郭文贵MILES** `2021-06-04T23:44:35`
@@ -155,10 +160,5 @@
 [5月28日：一切都已经开始！￼〖https://www.dailymail.co.uk/news/article-9630049/More-200-House-...](/content/getter/content/2021/05/60b16dafba7ef9088d0299bf.md)
 
 **郭文贵MILES** `2021-05-28T22:24:47`
-##
-
-[5月28日：人生在世是最最关键的就是决策能力．这是起码的常识．在不知道C C P病毒的原因情况下，任何疫苗都是对人类的伤害！](/content/getter/content/2021/05/60b1305dba7ef9088d0277d6.md)
-
-**郭文贵MILES** `2021-05-28T18:03:09`
 ##
 
