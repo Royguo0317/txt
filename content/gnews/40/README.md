@@ -1,53 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】秘鲁、匈牙利人均死亡率跃升全球最高
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1297809/)
+## 俄常驻欧盟代表评估断开SWIFT不会是灾难
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1297867/)
 
-**作者：纽约香草山健身部 童谣**
+喜马拉雅俄罗斯喀秋莎农场 洛夫斯基灭CCP
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04141639/S-1.jpg)vestnikkavkaza.net
+06月04日，断开SWIFT支付系统对俄罗斯来说不会是一场灾难。据俄新社报道，俄罗斯常驻欧盟代表弗拉基米尔·奇佐夫（Vladimir Chizhov）在圣彼得堡国际经济论坛（SPIEF）期间这样说。
 
+“我们没有感觉到威胁。但我确信，即使这样也不会成为我们的灾难。”奇佐夫说。
 
+早些时候，国家杜马金融市场委员会主任阿纳托利·阿克萨科夫（Anatoly Aksakov）说，如果俄罗斯被切断连接，SWIFT支付系统将“自取灭亡”。根据该议员的估计，断开连接只会在适应期内对俄罗斯的金融系统造成冲击。“我们今天不是金融信息系统的一部分，合作伙伴将迅速进入那里，系统将立即开始正常运作。SWIFT在与我们断开连接后，实际上是自取灭亡。” 阿克萨科夫认为。
 
-南美洲国家秘鲁31日正式将其累计冠病死亡人数向上修正超过一倍，从6万9342起上调至18万零764起，这使秘鲁一跃成为全球人均冠病死亡率最高的国家，每100万居民就有5484人死于冠病。全球新冠病毒死亡率第二高的国家是匈牙利，按人均计算，匈牙利每100万居民有3077人被冠病夺走生命。
+4月，欧洲议会通过了一项决议，要求切断俄罗斯与SWIFT的联系。建议在俄罗斯入侵乌克兰的情况下出台相关措施。该文件是针对反对派活动家阿列克谢·纳瓦尔尼（Alexei Navalny）的情况、俄罗斯军队被拉到乌克兰边境以及“俄罗斯对捷克共和国的攻击”而批准的。然而，SWIFT是一家私营公司，所以欧盟无权责成SWIFT将俄罗斯从其系统中断开，欧洲外交部长约瑟夫·博雷尔（Josep Borrell）说。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04133625/%E6%9C%AA%E5%91%BD%E5%90%8D%E7%9A%84%E8%AE%BE%E8%AE%A1-68.png)
+反过来，中央银行第一副主席奥尔加·斯科罗博加托娃（Olga Skorobogatova）保证，不存在俄罗斯与SWIFT切断联系的风险。
 
-而中共媒体数据显示，这两个国家是世界上接种中共疫苗最早和最多的国家之一。
+2019年11月，《经济时报》写道，印度、俄罗斯和中共国正在研究建立一个替代SWIFT的机构。俄罗斯的金融信息系统（RSPFS）可以与中共国的CIPS国际银行间支付系统连接。
 
-看这两个新冠病毒死亡率飙升的国家，一个荣耀获得中共媒体恭喜：“匈牙利成为唯一一个为民众接种中国国药疫苗的欧盟国家。”据最新消息，匈牙利还要斥巨资引入中共疫苗生产链。
+参考链接：
 
-另一个秘鲁是拉丁美洲签署新冠疫苗采购合同最多的国家之一，截至目前已接种了277万剂疫苗。而讽刺的是3月5号秘鲁媒体报导，中国国药疫苗有效率最低，只有11.5%。秘鲁前总统毕斯卡拉也在4月份被爆出去年10月提前接种中国国药集团研发的中共病毒疫苗，但毕斯卡拉4月25日说，他和妻子双双确诊染疫。
-
-这种由一个政府或某几个国家领导人引发的全国性悲剧，都是源于深受中共蓝金黄之毒，并深信了中共疫苗。而郭先生和闫丽梦博士一直在强调的是，中共疫苗就是定时生物炸弹、人体的特洛伊木马。没有一款疫苗能够解决病毒问题，这里秘鲁和匈牙利的数据则进一步证明了，疫苗只会带来更大的死亡和致命后果。
-
-参考阅读：
-
-https://www.zaobao.com.sg/realtime/world/story20210601-1150860
-
-http://www.xinhuanet.com/world/2021-06/01/c\_1127518401.htm
-
-http://www.xinhuanet.com/world/2021-05/20/c\_1127469971.htm
-
-https://finance.sina.com.cn/world/gjcj/2021-06-01/doc-ikmyaawc8760358.shtml
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.rbc.ru/rbcfreenews/60b988669a79475d4ef14dae](https://www.rbc.ru/rbcfreenews/60b988669a79475d4ef14dae)
 
 +1

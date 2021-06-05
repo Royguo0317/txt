@@ -1,17 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210604
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1297977/)
+## 《哀声与希望》
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1298129/)
 
-素材：2020喜马拉雅
+作者：墙内战友
 
 ***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
 **西班牙2021年6月4日电/西喜社——**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162519/01-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162518/02-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162521/03-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162527/04-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162537/05-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162543/06-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162544/07-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162545/08-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162807/09-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162821/10-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162822/11-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162839/12-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162845/13-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162834/photo_2021-06-04_10-59-33.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162841/photo_2021-06-04_10-59-42.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162856/14-4.jpg)
-审核：神奇四侠；发稿：神奇四侠
 
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+忆往昔
+岁月的船帆上
+记载着我们华人的多少血泪
+岁月的帆船上
+承载着多少枉死的冤魂
+是它们
+用“打土豪分田地”的蛊惑
+让我们无知的前辈为它们把炮灰充当
+是它们
+用谎言欺骗我们成为了它们的铁壁铜墙
+是它们
+用暴力掠夺了我们的国家
+是它们
+所谓的“三年自然灾害”给我们造成了千万生命的死亡
+是它们
+用所谓的“文革”给我们带来了十年浩劫
+是它们
+让我们数代精英放弃了理想去“上山下乡”
+是它们
+无能借控制人口增长掩盖它们治国无方
+是它们
+所谓的“计划生育”造成了我们所有家庭的损伤和死亡
+是它们
+用谎言和打压控制了我们的思想
+是它们
+用残酷剥夺了我们的自由和人权
+是它们
+毁灭了我们的文化打断了中华的脊梁
+是它们
+残害了我们的父母兄弟和我们的子孙
+是它们
+强奸了我们的姐妹戕害了我们的爹娘
+是它们
+假借“改开”枯竭我们的能源
+把我们的生存环境破坏
+而把我们的财富纳入它们的兜
+是它们
+三十年前的今天（89.64）残忍的屠杀了我们的亲人让我们亲人的献血染红了天安门广场
+天空中
+多少英灵的索命之声在中南坑的上空震荡
+是它们
+借一句“改变民居”把我们的私有财产掠夺
+造成了多少冤假错案和人身伤亡
+是它们
+以假治国导致了我们在国内外的信誉沦丧
+是它们
+用“为人民服务”强奸了我们的智商和情商
+是它们
+邪恶的动机满世界施读造成了整个国际恐慌
+使整个人类生灵涂炭又把我们绑架在它的战车上
+醒来吧
+我亲爱的亲人啊
+一定要看透法西斯这个恶党
+只有把它彻底消灭才能让我们的中华重见阳光
+抬望眼
+看今朝
+能救我们的只有新中国联邦
 
-0
++1
