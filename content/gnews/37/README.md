@@ -1,47 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月4日美国政要反共推特精选：纪念伟大的六四
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1298640/)
+## 有迹可循：中共病毒来自实验室
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1298757/)
 
-美国国务院： 今天，我们向1989年在天安门广场和平呼吁自由和民主却被暴力终止的勇敢的中国人民致敬。[#捍卫人权](https://twitter.com/hashtag/%E6%8D%8D%E5%8D%AB%E4%BA%BA%E6%9D%83?src=hashtag_click)[#StandUp4HumanRights](https://twitter.com/hashtag/StandUp4HumanRights?src=hashtag_click) 【附美国务院制作的纪念8964视频】Quote Tweet
+#### 翻译：九龙皇帝
+校对：文旺
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04222534/%E5%95%8A%E5%95%8A%E5%95%8A%E5%95%8A.jpg)
+**中共病毒来自武汉病毒研究所一点都不令人惊讶。**
 
+英国最畅销报纸《太阳报》(The Sun)近日对中共病毒来自实验室的说法作出了深入的报导。该报道指出，中共国对生物实验室的安全措施一直都不严格，过去40多年出现过很多宗严重的实验室安全事故，同时也让缺乏保护装备的员工身处危险之中。所以越来越多的人开始怀疑COVID-19（中共病毒）是从武汉实验室泄露的，而不相信病毒是由动物传染给人类的官方说法。中共国不仅拒绝开放全面调查而且还极尽所能地狡辩否认，这更让人怀疑他们是在掩盖罪责。
 
+最初，病毒来自实验室被认为是阴谋论，现在却得到了广泛的关注，包括美国总统拜登(Joe Biden)下令情报部门须在90天内提交病毒来源报告。据了解，英国情报部门经过评估后，已将COVID-19来自实验室的可能性，由“渺茫”(Remote)提升为“有可能”(Feasible)。站出来要求对中共病毒进行全面调查的科学家已越来越多，美国罗格斯大学化学及化学生物学教授埃布特(Richard H Ebright)对中共病毒通过动物传播给人类的说法持开放态度，他表示，世界需要对实验室泄漏的说法进行全面调查。
 
-> Today, we honor the brave Chinese people whose peaceful calls for freedom and democracy came to a violent end in Tiananmen Square in 1989. [#StandUp4HumanRights](https://twitter.com/hashtag/StandUp4HumanRights?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/87wMYZIvAR](https://t.co/87wMYZIvAR)
-> — Department of State (@StateDept) [June 4, 2021](https://twitter.com/StateDept/status/1400693807100932096?ref_src=twsrc%5Etfw)
+艾布特教授留意到了一些“值得注意”的“间接证据”，那就是，武汉实验室是中共国唯一一家处理蝙蝠冠状病毒(Bat Coronavirus)的机构，拥有世界上最大的马蹄蝠(Horseshoe-bat)病毒库，包括与“新冠病毒”(SARS-CoV-2) 最相似的近亲病毒。他还注意到，一些相关研究指出，科学家从矿山收集到的一种病毒，与导致中共病毒的SARS-CoV-2的相似度为96.2%。
 
+报导指出，疫情始于武汉，但这座有1,100万人口的城市区域内并没有马蹄蝠群落，而且武汉也不在最近的已知马蹄蝠群落的飞行范围内。但是位于武汉的病毒研究所，却在进行着世界上最大的马蹄蝠病毒研究项目。
 
+埃布特教授说，“武汉实验室积极地在云南寻找新的马蹄蝠病毒，然后带到武汉进行大规模生产、基因改造和新型病毒研究，这些行为绝对值得怀疑，尤其是拒绝让世卫人员进入调查。一个寻求清白的国家一定会乐意打开大门和数据库配合调查，但中国和武汉实验室在过去18个月中的行为，看起来更像是一个隐瞒罪责的国家。”
 
-参议员汤姆·科顿： 32年前的今天，世界看到了 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的真面目。 但透过镇压的黑暗和枪炮的硝烟，也有一个向往自由的民族的勇气和高贵。我们今天铭记那些勇敢的灵魂，并敬重他们的牺牲。
+**人们对武汉实验室了解多少？**
 
+武汉实验室，位处病毒始源城市武汉的中心地带。是中共国第一家获得最高生物安全级别4级 (BSL-4)认证的P4实验室。该机构范围内的科学家可被允许研究无法治愈的疾病，实验室安全标准非常严格，进入和离开设施前都需要穿有气闸的全身套装并接受化学淋浴。该实验室由“蝙蝠女”科学家石正丽博士领导，2015 年以来专门研究蝙蝠传播的病毒实验。
 
+该实验室在2012年测试了一个神秘病毒，该病毒曾杀死了1000英里外云南省的三名矿工，有人认为这个病毒可能是COVID-19的真正起源，也有人认为，这种测试旨在研究蝙蝠病毒可能传播给人类的风险。《自然医学》(Nature Medicine)杂志曾经报导，该实验室在2015年制造了一种可感染人类的新型混合“超级病毒”，但目前无法把2015年制造的病毒与中共病毒大流行链接起来。中共国也一如既往地否认了实验室泄漏的说法。
 
-> 32 years ago today, the world saw the true face of the Chinese Communist Party. But through the darkness of repression and smoke of gunfire, there was also the courage and nobility of a people that dream of freedom. We remember those brave souls today and honor their sacrifice.
-> — Tom Cotton (@SenTomCotton) [June 4, 2021](https://twitter.com/SenTomCotton/status/1400865910404042752?ref_src=twsrc%5Etfw)
+随着对武汉实验室的怀疑越来越多，全球对实验室安全的担忧也在增加。伦敦国王学院(King’s College London)的专家最近编写了一份报告，题为“全球生物实验室图谱”，其目的是强调实验室对病毒大流行构成的“重大风险”。同时美国方面也有报告指出，《美国疾病受限生物制剂和毒素》（BSAT）名单上的219个病毒被释放，13个被丢失，包括有伊波拉病毒、原始沙士病毒、拉沙热病毒和可引起炭疽病的细菌菌株。此外，台湾和新加坡也曾有沙士病毒泄漏的报导。
 
+**当年的沙士，已向世人传递不少玄机，新中共病毒正是其加强版。**
 
+报导称，寻求揭露中共国生物安全漏洞的DRASTIC小组成员德马夫 (Gilles Demaneuf)一直在重点研究2004年中共国实验室泄漏期间发生的事情。2004年中共国的实验室事故，使两名研究人员感染了沙士(SARS-CoV-1)，并传播给了其他人，导致一人死亡。当时从事蝙蝠沙士冠状病毒项目的武汉实验室的生物安全等级只达2级，其研究人员防护装备不足，甚至连手套都没有。此事被揭发后人们才了解到，沙士菌株的样本当时先被随意放置在实验室走廊外面，后来研究人员在把样本放到显微镜时受到了感染。台湾和新加坡也曾有沙士病毒泄漏的报导。
 
-众议院外交委员会共和党领袖： 麦考尔[@RepMcCaul](https://twitter.com/RepMcCaul)：“32 年前， [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 在天安门屠杀了数千名倡导基本权利的勇敢、和平的公民。那天遭受苦难的人们活在我们的记忆中。我们继续为中华人民共和国和香港的那些仍然在等待基本人权的人民而战.”
+其后，2004年4月，该研究所的一名研究生感染了沙士病毒，在火车上发病后接受了病毒性肺炎治疗。为她治疗的一名护士和另一名研究人员也受到了感染。直至4月底，共有700人被隔离，四代传播共纪录有11个病例。世界卫生组织（WHO）对实验室的失误进行了严厉批评，指出，“非常担忧武汉实验室对沙士冠状病毒样本的存储方式、地点和处理程序”，但是世卫组织承诺的完整调查报告最后也不了了之。
 
+评论：
 
+不论是“泄漏”还者“刻意投放”，病毒可以肯定是中共制造的。随着沼泽地力量的翻盘，快速推进的对福奇医生隐瞒病毒来源丑闻的揭露，以及全世界领袖正面临着经济和政治压力，追责中共已是大势所趋。进入6月份，以毒灭共渐入佳境。在接下来的3个月，虽然中共会加大勾兑西方黑暗势力，但随着福奇医生的第二波邮件被爆出、将军科学家在欧洲揭露出核弹级威力的证据，以及阎丽梦博士真正威力的爆发，9月至12月的以毒灭共小高潮绝对能震惊全世界，唤醒更多沼泽地力量和人心。
 
-> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw): "32 years ago the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) massacred thousands of brave, peaceful citizens advocating for basic rights in [#TiananmenSquare](https://twitter.com/hashtag/TiananmenSquare?src=hash&amp;ref_src=twsrc%5Etfw). Those who suffered that day live on in our memory. We continue the fight for those in the PRC & Hong Kong who still wait for basic human rights."
-> — House Foreign Affairs GOP (@HouseForeignGOP) [June 4, 2021](https://twitter.com/HouseForeignGOP/status/1400850118660833284?ref_src=twsrc%5Etfw)
+原文：[DANCE WITH DEATH China’s gung ho biolabs have ‘REPEATEDLY released deadly viruses onto the world’ – so Covid ‘lab leak’ is no shock](https://www.thesun.co.uk/news/15126591/chinas-biolabs-released-deadly-viruses-covid-lab-leak/)
 
-
-
-蓬佩奥（前国务卿）： 32年前，天安门广场发生了一场悲剧，凸显了热爱自由的中国人民与北京暴政之间的对比。 今天，我们纪念天安门的英雄们。
-
-
-
-> 32 years ago, a tragedy occurred in Tiananmen Square that highlighted the contrast between the freedom-loving Chinese people and the tyranny of the regime in Beijing. 
-> 
-> Today, we commemorate the heroes of Tiananmen. [pic.twitter.com/59C8PuO6Jb](https://t.co/59C8PuO6Jb)
-> — Mike Pompeo (@mikepompeo) [June 4, 2021](https://twitter.com/mikepompeo/status/1400853918142320646?ref_src=twsrc%5Etfw)
-
-
-
-
-
-0
++1

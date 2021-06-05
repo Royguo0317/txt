@@ -1,37 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 摇摆州2020大选审计动态
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1298645/)
+## 对杭州动物园猎豹事件的掩盖，体现了中共的一贯作风
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1298762/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+翻译：康州盘古农场 – 柯镇恶
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04213804/A-1.jpg)whowhatwhy.org
-亚利桑那州手工重新计票完成了67%，即已经完成140 万张的清点【1】；佐治亚州的法庭审计有望进行，据班农先生说，尽管该州的共和党建制派尽最大努力阻止这一进程，但法庭审计必须进行。班农先生乐观地估计，在全面法庭审计完成后，三个共和党参议院的席位将回归【2】；宾夕法尼亚州参议院代表团现场考察了亚利桑那州的法庭审计工作后表示，如果我们在宾夕法尼亚州进行法庭审计，这就是样板【3】。
+校对：康州盘古农场 – Mike Li
 
-川普总统6月4日发表声明，敦促宾夕法尼亚州参议院进行法庭审计【4】；威斯康星州的法庭审计困难重重，虽然3月下旬州议会授权调查的决议以58票对35票获得通过后【5】，一直没有实际上的进展，截止上周，审计变成了州议长“雇佣三名退休警察来检查选举的完整性？……但不会启动法庭审计【6】。
+编辑：康州盘古农场 – 格格巫
 
-新罕布什尔州的重新审计在几轮折腾后最终得以通过，但由于三位审计员中，两位与民主党有瓜葛，人们并不看好，称“审计在开始之前就结束了——三位审计员中有两位与民主党国会大佬佩洛西和舒默有利益关系”。【7】
+发布：康州盘古农场 – 彩虹 Rainbow
 
-密歇根州没有传出要进行法庭审计的消息。
+**据《大纪元时报》作者：Alexander Liao 2021年5月31日的评论文章：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04212958/2tiger.jpg)
+最近在中国发生了一件奇怪的事情。杭州三只豹子逃离动物园，在市内流浪了20多天。其中一名仍然逃脱在外。
+4月19日，杭州动物园因管理疏忽，三只幼豹逃跑。动物园并没有通知地方政府和当地居民有三只豹子失踪了的信息。但5月7日至8日，杭州居民报告称，他们在附近的森林中发现了一只豹子。现在每个人都有智能手机，所以当发现豹子在城市里横冲直撞时，居民们赶紧在网上发布视频。
+杭州是中国的一线城市。在一个人口数百万的大城市里发现野生豹子是不可想象的。你能想象纽约市居民在曼哈顿发现豹子吗？于是，大家立刻怀疑它来自于当地的动物园。动物园“野生动物世界”迅速发表声明称，没有豹子逃脱。这引发了人们对豹子来源的更多困惑。然而，几天后，动物园方面终于承认，在4月19日正式披露的三周之前，共有三只幼豹逃脱了。
 
-以上各州的选举人票为：亚利桑那州11票、佐治亚州16票、宾夕法尼亚州20票、威斯康星州10票、新罕布什尔州4票、密歇根州16票。川普总统目前为232票，需要38票的翻转。
+杭州市副市长接着报告说，警方于 4 月 19 日发现豹子已经逃跑，这比当地居民第一次目击事件还要早几周。该动物园向警方承认，最初没有报告该事件，是因为担心该消息会影响五一劳动节期间来到动物园的参观的游客人数。
+当局随后动员起来捕捉豹子。很快，一只豹子被抓获，另一只被猎犬“咬死”。据一段视频显示，四只大型猎犬环绕豹子并撕咬它。视频中可以听到搜捕人员说“继续咬死它”。这段视频在虐待动物方面引起了很多争议，也引起了中国公民的很多不满。随后，中共国营媒体出面报道称，豹子并没有被咬死，倒下的豹子只是被麻醉子弹击中。第三只豹子还没有被发现。
 
-参考链接：
+当动物园最终公开承认豹子逃脱时，他们披露说，他们最初是因为害怕引起公众恐慌而拒绝公布实情。对于生活在自由世界中的读者来说，这可能是荒谬的。但是，在中国共产党（CCP）体制下，这是意料之中的。这是中共的一贯作风。
 
-【1】[https://www.thegatewaypundit.com/2021/06/huge-arizona-audit-begins-finish-hand-recount-67-1-4-million-completed/](https://www.thegatewaypundit.com/2021/06/huge-arizona-audit-begins-finish-hand-recount-67-1-4-million-completed/)
+**另一场掩盖**
 
-【2】[https://www.thegatewaypundit.com/2021/06/steve-bannon-georgia-will-hold-forensic-audit-three-republican-senate-seats-coming-back-full-forensic-audit-completed-video/](https://www.thegatewaypundit.com/2021/06/steve-bannon-georgia-will-hold-forensic-audit-three-republican-senate-seats-coming-back-full-forensic-audit-completed-video/)
+另一个最近的例子是，中共政权的地方和国家官员处理中国境内最初的 COVID-19 爆发的方式。
+中共当局至少在 2019 年 12 月就知道一种致命的新型病毒，该病毒可通过人类接触传播。然而，中共政府官员对病毒进行了掩盖，而不是向公众公开披露。最终死于COVID-19 的李文亮医生是众多因警告他人有关该病毒而受到监禁威胁的医生之一。许多独立的中国记者因报道病毒在中国的早期传播有多糟糕的真相而被监禁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04212947/doctor1.jpg)
+这种隐瞒一直持续到 2020 年1月底。他们在应对病毒方面的延误极大地导致了一场不可逆转的全球灾难。中共长期隐瞒 COVID-19 而不向世界其他地区传达威胁的借口，竟然也是出于对公众恐慌的担忧。
+这种危险的隐瞒发生在中共体制中，因为它是一个专制机构。中共政权系统地控制着互联网、媒体、法院和官员的任命。独裁意味着垄断所有法律，包括惩罚说谎的法律。在中共体制下，如果骗子的谎言符合中共维护名誉和权力的目的，骗子就可以逍遥法外，甚至能够得到保护。在民主社会中，这些威权措施都无法实现。在民主社会中，对社会造成广泛不利影响的说谎者可能会面临负面后果。对于中共来说，谎言和掩饰也要付出很大的代价，但付出代价的不是骗子，也不是中共。是普通人在付出代价。不管你是否相信这些谎言，只要你是一个普通人，没有权力也不富裕，你就必须为中共政权的错误付出代价。
 
-【3】[https://www.thegatewaypundit.com/2021/06/audit-pa-model-pennsylvania-senator-doug-mastriano-speaks-arizona-audit-tour-video/](https://www.thegatewaypundit.com/2021/06/audit-pa-model-pennsylvania-senator-doug-mastriano-speaks-arizona-audit-tour-video/)
+由于人工智能面部识别增强型监控摄像头的部署，中共国是世界上监控最严密的国家之一。特别是在东部发达地区，广泛的监测技术一直活跃，即使是农村地区也不例外。一位 BBC 记者曾试图逃避中共的安全系统，但他在7分钟内就被当局找到了。
 
-【4】[https://www.donaldjtrump.com/news/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-06.04.21-02](https://www.donaldjtrump.com/news/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-06.04.21-02)
+杭州是中国经济最发达的地区之一，人口密度非常高。一只两岁的豹子怎么可能在这个城市失踪30天？然而，当地官员和动物园仍然坚持认为第三只豹尚未找到。我怀疑这仍然是一个谎言，以防止公众或动物权利组织对杀害幼豹的愤怒。在中共统治下，撒谎和掩饰是久经考验的策略。
 
-【5】[https://gnews.org/zh-hans/1014742/](https://gnews.org/zh-hans/1014742/)
+原文链接：[https://www.theepochtimes.com/coverup-of-escaped-leopards-from-china-zoo-is-typical-ccp-tactic\_3835628.html](https://www.theepochtimes.com/coverup-of-escaped-leopards-from-china-zoo-is-typical-ccp-tactic_3835628.html)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-【6】[https://www.thegatewaypundit.com/2021/05/skunk-wisconsin-speaker-robin-vos-hires-three-retired-cops-look-election-integrity-wont-launch-forensic-audit-despite-late-night-ballot-dump/](https://www.thegatewaypundit.com/2021/05/skunk-wisconsin-speaker-robin-vos-hires-three-retired-cops-look-election-integrity-wont-launch-forensic-audit-despite-late-night-ballot-dump/)
-
-【7】[https://www.thegatewaypundit.com/2021/05/breaking-exclusive-windham-new-hampshire-2020-election-audit-started-two-three-auditors-conflicts-pelosi-schumer/](https://www.thegatewaypundit.com/2021/05/breaking-exclusive-windham-new-hampshire-2020-election-audit-started-two-three-auditors-conflicts-pelosi-schumer/)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

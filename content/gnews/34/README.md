@@ -1,82 +1,303 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读众多美政治家出席新中国联邦周年庆，及英主流媒体再次报道闫博士
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1298668/)
+## 战友展览板【6/3-4】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1298646/)
 
-直播视频：
+**西班牙巴塞罗那喜悦农场** wenwu
 
-
-
-《路德时评》2021年6月4日早间节目主要内容：
-
-一、众多美政治家出席新中国联邦周年庆
-
-6月4日是新中国联邦成立一周年的日子，新中国联邦隆重举行了一周年庆典，班农先生、朱利安尼先生、弗林将军等多位美国政要出席新中国联邦成立一周年庆典。同时，这一天也是纪念“八九·六四”北京学生运动的日子，1989年，无数中国年轻人聚集在天安门为中国实现民主与自由而呐喊，最终遭到中共武装镇压，死伤无数。
-
-路德社评论：
-
-1、“六四精神”就是呼吁全民参与，每个人都要站出来的精神；其次就是要传承“日拱一族”的精神，不抛弃不放弃，简单的事情重复做，重复的事情用心做，这样就一定能成功，这也是中共最恐惧的。
-
-2、新中国联邦成立这一周年已经取得了巨大飞跃，得到了世界正义力量的认同。虽然川普总统没有顺利连任，但是蓬佩奥国务卿卸任前直接宣布中共在新疆犯下种族灭绝罪和反人类罪，以及川普总统助理纳瓦罗先生仍在孜孜不倦地推动中共病毒真相，再加上闫博士的三篇病毒报告，这些已经让人感受到灭共的推进速度如此之快。
-
-3、多位美国政要出席了新中国联邦成立一周年庆典，朱利安尼先生曾被英女王授勋，还是2001年度《时代周刊》的封面人物，班农先生是前总统顾问，弗林将军曾是美国军队高级将领。Sellin上校、比尔·格茨、班农先生、弗林将军等多位政要就是看到新中国联邦人坚持正义，坚定灭共的决心，并且还经受住了各种质疑和反对，才认可新中国联邦。
-
-4、这些美国政要参加新中国联邦庆典支持新中国联邦，他们也需要我们为他们站台，因为真相来自于新中国联邦，现在，美国了解中共邪恶真相的第一手资料就来自爆料革命新中国联邦。他们已经意识到原本自由和正义的美国正在沉默，所有爆料革命战友都站在世界最前排。“六四庆典”之前，中共病毒实验室来源已经成为美国主流声音，福奇的八百封邮件验证他与中共勾结来隐瞒病毒真相，这一切都来自中共病毒真相，这些正义人士必须要为自由而战，他们很清楚只要揭露中共病毒真相，中共必亡。
-
-5、美国从上世纪79年至今，已经给中共国四十多年时间，他们彻底看清中共的邪恶本质，中共体制已无转变的可能，也对中共彻底失去了耐心。共和党核心力量仍在推动灭共，虽然川普总统没有连任，但他仍有八千多万支持者，共和党仍掌控美国三十个州，在参众两院占有半壁江山，况且共和党在军情界的影响力远大过民主党，历史上艾森豪威尔将军和里根总统等共和党人士在消灭共产主义体制上都做出巨大贡献。
-
-6、新中国联邦强调每个个体都要发挥各自领域的光和热，这和中共体制完全不同，习神号称自己单肩能挑二百斤重物（畜生就是如此），阅读过无数本名著，他自以为什么都专业，这就是中共体系的毒瘤，只要是领导就自以为干什么都专业，最终的结果就是外行领导内行。爆料革命推动的“缺你不可”就是“你的领域你做主”，每个个体都要在各自擅长的领域发挥主观能动性，所谓的联邦就是每个个体的联合。
-
-7、在中共国，只要被套上英雄的光环就必须是完美的，不允许有任何瑕疵，反观美国，无论你是否是英雄，是否身居高位，在法律面前人人平等。因为大家都是普通人，只是每个人特长有所不同。中共病毒疫情之前，闫博士此前通过爆料革命看清了中共邪恶本性，她在香港亲眼看见了中共的恐怖统治，但是她当时认为自己只是一个病毒学家，在揭露中共邪恶上无所作为，现在看来，闫博士为人类做出了巨大贡献，最核心的就是勇气和坚持。
-
-8、中国人还有一个大毛病就是喜欢建功立业，这导致中国人从小就喜欢追逐名利，总想在家谱上留下重要一笔。西方社会所推崇的就和中国文化不同，圣经中的耶稣就出身在马槽，一生没有任何官职，甚至被犹太人打成异类，但耶稣影响了整个世界，这和中国所推崇的成功大相径庭。西方历史是通过老百姓个体记录下的历史，个体的伟大最后成就了现代文明，中国自古以来只记载所谓王侯将相的英雄事迹，非常强调帝王文化，而非平民文化。
-
-9、中共“完美地”融合了西方共产主义的邪恶与中华文民的糟粕，并剔除了所有应该传扬的优点，所以中共成为有史以来最邪恶的体制。
-
-二、英主流媒体《每日邮报》再次报道闫博士
-
-6月4日，川普总统现任顾问Jason Miller发推说，第一位揭露病毒来自武汉实验室的中国病毒学家说福奇邮件验证了她的一直以来的观点——中共病毒就是超限生物武器，以及福奇与医学专家的科学误导。Miller还附上英国最具影响力的媒体Dailymail新闻网对闫博士揭露病毒真相的报道。
+【以毒灭共】推文。如下
 
 
 
-> Chinese virologist who was among first to tout Wuhan lab theory says Fauci's emails back-up what she's been saying all along – the coronavirus is 'an unrestricted bioweapon' – and blasts Fauci and medical experts for cover-up [https://t.co/cV4H92a4CL](https://t.co/cV4H92a4CL) via [@MailOnline](https://twitter.com/MailOnline?ref_src=twsrc%5Etfw)
-> — Jason Miller (@JasonMillerinDC) [June 4, 2021](https://twitter.com/JasonMillerinDC/status/1400642231258779649?ref_src=twsrc%5Etfw)
+> 福奇邮件中文（更新中）–谷歌直译有点惨，仅供参考。
+> 英文不好的，可以先快速浏览，发现重要信息，再对应原英文邮件重点解读。
+> ✊✊✊[https://t.co/Dw5xK0zWXw](https://t.co/Dw5xK0zWXw)
+> — Eric8848 新号 (@BEric8848) [June 2, 2021](https://twitter.com/BEric8848/status/1400061646010306564?ref_src=twsrc%5Etfw)
 
 
-
-路德社评论：
-
-1、川普总统顾问Miller称闫博士是揭露中共病毒真相第一人，英国极具影响力的新闻网Dailymail也报道闫博士是最早揭露中共病毒真相的病毒学家，福奇的邮件验证闫博士的爆料完全正确。
-
-2、俄国官媒MK（类似于中共国新华网）也开始正面报道闫博士，说闫博士称中共病毒就是生物武器。这些媒体此时报道闫博士揭露中共病毒真相的新闻，似乎是在给新中国联邦献礼。
+**[福奇邮件中文（更新中）–谷歌直译有点惨，仅供参考](https://mega.nz/folder/fVJGwbKJ#ps1X32rKKHw7jF-xWiNtuw)**
 
 
+> PLA General Yigang Tong thought [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) virus “evolved to have target-human features, which happened on 1 Oct, 2019” -Why does it sound like a gift from military to PRC China for National Day?
+> Tong is also the leader of China Team in WHO origin investigation, with a civil title. [https://t.co/vriebG7ztA](https://t.co/vriebG7ztA)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [June 2, 2021](https://twitter.com/DrLiMengYAN1/status/1400062781576069130?ref_src=twsrc%5Etfw)
 
-> 俄罗斯官媒Московский Комсомолец，简称MK, 正面报道闫丽梦博士，说"中国病毒学家称冠状病毒是生物武器"
+
+1. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1400062781576069130?s=20)**：
+*解放军童贻刚将军认为#COVID19病毒 “进化到具有针对人类的特征，这发生在2019年10月1日”–怎么听起来像是军方送给中国的国庆礼物？童贻刚也是世卫组织原产地调查中国小组的组长，有一个民事头衔；澄清一下，2019 年 10 月 1 日是中华人民共和国成立 70 周年。按照中国文化，这是习主席最大的一天。 佟一公将军的话清楚地暗示，#COVID19病毒是在庆典前研制出来的，是解放军送给中共政权的礼物*
+
+
+> [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw), 1 Jun, 2021
+> – People now know [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) is from lab in Wuhan. But lab accidental leak is NOT the cause. With understanding of China, all evidence points to intentional release.
+> – We are in fact in CCP’s [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw), misinformation is part of the war! [https://t.co/dum52JrW8Z](https://t.co/dum52JrW8Z)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [June 2, 2021](https://twitter.com/DrLiMengYAN1/status/1400060049536466944?ref_src=twsrc%5Etfw)
+
+
+2.**[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1400060049536466944?s=20)**：
+*WarRoomPandemic, 2021年6月1日
+人们现在知道#COVID19是来自武汉的实验室。但实验室的意外泄漏并不是原因。根据对中国的了解，所有证据都表明是故意释放。我们实际上处于中共的#超限生物战中，科学误导是战争的一部分!*
+
+
+> 为了保险起见，数小时后，Mesa Biotech的CEO Hong Cai亲自给福奇发邮件，希望他能帮忙。很显然，Hong Cai通过前约翰霍普金斯校长和现任Mesa Biotech主席William R. Brody的私人关系和福奇搭上线。这是蓝金黄的典型案例：拿下美国科研界的一个大佬，同时也就拿下了他所有的人脉关系，进而手眼通天👀🤬 [https://t.co/TH71dIK2kO](https://t.co/TH71dIK2kO) [pic.twitter.com/DdcbizkHPu](https://t.co/DdcbizkHPu)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [June 2, 2021](https://twitter.com/jsdfposjpqyuee1/status/1399901513212841991?ref_src=twsrc%5Etfw)
+
+
+3. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1399901513212841991?s=20)**：
+*为了保险起见，数小时后，Mesa Biotech的CEO Hong Cai亲自给福奇发邮件，希望他能帮忙。很显然，Hong Cai通过前约翰霍普金斯校长和现任Mesa Biotech主席William R. Brody的私人关系和福奇搭上线。这是蓝金黄的典型案例：拿下美国科研界的一个大佬，同时也就拿下了他所有的人脉关系，进而手眼通天*
+
+
+> Could Dr. Fauci answer the questions before exit?
+> 1. Why did he mislead Americans using misinformation? 
+> 2. Why did ban the early treatment of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) & suppressed the useful drugs?
+> 3. Why did he strongly believe COVID19 vaccines in trial phase, even for kids? [@JackPosobiec](https://twitter.com/JackPosobiec?ref_src=twsrc%5Etfw) [https://t.co/OF2wgl0u6A](https://t.co/OF2wgl0u6A)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [June 2, 2021](https://twitter.com/DrLiMengYAN1/status/1400103000065163270?ref_src=twsrc%5Etfw)
+
+
+4. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1400103000065163270?s=20)**：
+*福奇博士在退出前可以回答下列问题？1.他为什么使用错误信息误导美国人？2.为什么禁止早期治疗#COVID19并禁止使用有用的药物？3.为什么他坚信新冠病毒疫苗处于试验阶段，即使是针对儿童疫苗？*
+
+
+> What Fang Li did in this paper is a CANONICAL GoF study funded by NIH with the help of CCP military-linked scientists Shibo Jiang and Lanying Du. Also, a graduate student from Wuhan University Yang yang, an assistant professor now at Iowa State University now, was the 1st author [https://t.co/559KGYHpWh](https://t.co/559KGYHpWh) [pic.twitter.com/i13vDjumnT](https://t.co/i13vDjumnT)
+> — Zion, a Deplorable老百姓💪 (@ZionaEmanuel) [June 2, 2021](https://twitter.com/ZionaEmanuel/status/1400182850209685512?ref_src=twsrc%5Etfw)
+
+
+5. **[老百姓推特](https://twitter.com/ZionaEmanuel/status/1400182850209685512?s=20)**：
+*李放在这篇论文中所做的，是在中共军方联系的科学家姜世勃和杜兰英的帮助下，由美国国立卫生研究院资助的CANONICAL GoF研究。另外，武汉大学的研究生杨阳，现在是爱荷华州立大学的助理教授，是第一作者*
+
+
+> [@zerohedge](https://twitter.com/zerohedge?ref_src=twsrc%5Etfw) 金万洙 中科院研究基因编辑的博导，2003年毕业于日本岐阜大学并获得博士学位，先后在日本理化学研究所分子遗传学研究室,哈佛大学医学院Joslin Diabetes Center进行博士后研究。作为中国科学院“百人计划”引进国外杰出人才于2010年11月全职回国，担任中国科学院动物研究所研究员、博士生导师 [pic.twitter.com/wEsNQf9XFH](https://t.co/wEsNQf9XFH)
+> — Devon Y (@devonJ32130301) [June 2, 2021](https://twitter.com/devonJ32130301/status/1399935505760866308?ref_src=twsrc%5Etfw)
+
+
+6. **[DEVON Y推特](https://twitter.com/devonJ32130301/status/1399935505760866308?s=20)**：
+*金万洙 中科院研究基因编辑的博导，2003年毕业于日本岐阜大学并获得博士学位，先后在日本理化学研究所分子遗传学研究室,哈佛大学医学院Joslin Diabetes Center进行博士后研究。作为中国科学院“百人计划”引进国外杰出人才于2010年11月全职回国，担任中国科学院动物研究所研究员、博士生导师*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04215652/E26_aqWVUAI5989.png)7. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1400267342127374336?s=20)**：
+*美国NIH看过武汉生物武器研究报告，并且愿意支持*
+
+
+> 福奇邮件第644页，2020.2.17 来自哈尔滨的中国护士，就给福奇爆料，中共严重瞒报死亡数据👍👍👍 [pic.twitter.com/VkctVAVFQ4](https://t.co/VkctVAVFQ4)
+> — Eric8848 新号 (@BEric8848) [June 2, 2021](https://twitter.com/BEric8848/status/1400218987527540738?ref_src=twsrc%5Etfw)
+
+
+8. **[ERIC8848推特](https://twitter.com/BEric8848/status/1400218987527540738?s=20)**：
+*福奇邮件第644页，2020.2.17 来自哈尔滨的中国护士，就给福奇爆料，中共严重瞒报死亡数据。随后福奇立刻出卖了这位中国护士给中共政府。6小时后，护士全家族都消失了！*
+
+
+> 来自芝加哥大学的研究员Dr. Buikema在去年2月28日建议福奇简化新冠疫苗临床试验过程，让疫苗能够更快投入使用。福奇让Dr. Cristina Cassetti，NIH传染病院副主管回复该邮件，并且要求Dr. Cassetti提及疫苗依赖性增强。这证明福奇在疫苗研发初期就很清楚疫苗可能带来的抗体依赖增强作用(ADE) [https://t.co/ZJmZt3D0dH](https://t.co/ZJmZt3D0dH)
+> — 李昂纳多 (@RealLiAngNaDuo) [June 2, 2021](https://twitter.com/RealLiAngNaDuo/status/1400147383254716418?ref_src=twsrc%5Etfw)
+
+
+9. **[李昂纳多推特](https://twitter.com/RealLiAngNaDuo/status/1400147383254716418?s=20)**：
+*来自芝加哥大学的研究员Dr. Buikema在去年2月28日建议福奇简化新冠疫苗临床试验过程，让疫苗能够更快投入使用。福奇让Dr. Cristina Cassetti，NIH传染病院副主管回复该邮件，并且要求Dr. Cassetti提及疫苗依赖性增强。这证明福奇在疫苗研发初期就很清楚疫苗可能带来的抗体依赖增强作用(ADE)*
+
+
+> [https://t.co/cifflxV4DI](https://t.co/cifflxV4DI) 中共在2018年的新闻里曾经公开承认成功将流感病毒做到人传人。为了确认成功，背后必然有人体实验，不然不可能知道成功了。释放病毒进行社区传播实验肯定早都习以为常了。[@LawrenceSellin](https://twitter.com/LawrenceSellin?ref_src=twsrc%5Etfw) [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) [@lude\_media](https://twitter.com/lude_media?ref_src=twsrc%5Etfw) [pic.twitter.com/euhOqSvcmg](https://t.co/euhOqSvcmg)
+> — 蓝色 (@nathlon20) [June 3, 2021](https://twitter.com/nathlon20/status/1400277271072567305?ref_src=twsrc%5Etfw)
+
+
+*[10. **蓝色推特**：
+中共在2018年的新闻里曾经公开承认成功将流感病毒做到人传人。为了确认成功，背后必然有人体实验，不然不可能知道成功了。释放病毒进行社区传播实验肯定早都习以为常了](http://www.xinhuanet.com/science/2018-01/04/c_136871944.htm)*
+
+
+> 塞林博士说中共军方已经彻底渗透美国的生物防御项目实验室，大学和国防部相关项目。近期，他将有专门的文章进行报道 [https://t.co/4APwuLSVCJ](https://t.co/4APwuLSVCJ) [pic.twitter.com/QnRLsTmOB8](https://t.co/QnRLsTmOB8)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [June 3, 2021](https://twitter.com/jsdfposjpqyuee1/status/1400357418521948164?ref_src=twsrc%5Etfw)
+
+
+11. **[火来推特](https://twitter.com/jsdfposjpqyuee1/status/1400357418521948164?s=20)**：
+*塞林博士说中共军方已经彻底渗透美国的生物防御项目实验室，大学和国防部相关项目。近期，他将有专门的文章进行报道*
+
+
+> As I said on [@newsmax](https://twitter.com/newsmax?ref_src=twsrc%5Etfw), Dr. Fauci's emails 'verifying my words from the beginning’
+> – “Dr. Fauci & his allies are Chinese Communist Party’s good friends, close friends, and also close friends to Malik Peiris. Ask Dr. Fauci, HE KNOWS, AND I KNOW.”[#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw), 2 Oct, of 2020 [https://t.co/W4J8auMnBU](https://t.co/W4J8auMnBU)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [June 3, 2021](https://twitter.com/DrLiMengYAN1/status/1400445645798903812?ref_src=twsrc%5Etfw)
+
+
+12. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1400445645798903812?s=20)**：
+*正如我在@newsmax上所说，Fauci博士的邮件’从一开始就验证了我的话- “Fauci博士和他的盟友是中共的好朋友，密友，也是Malik Peiris的密友。问福奇博士，他知道，我也知道。”
+WarRoomPandemic, 2 October, of 2020*
+
+
+> 😱 【惊爆证据 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) 科学家制造病毒】|真相传媒 视频
 > 
-> Московский Комсомолец [@mkomsomolets](https://twitter.com/mkomsomolets?ref_src=twsrc%5Etfw), Московская правда [@Mos\_pravda](https://twitter.com/Mos_pravda?ref_src=twsrc%5Etfw), Известия [@izvestia\_ru](https://twitter.com/izvestia_ru?ref_src=twsrc%5Etfw), Аргументы и Факты [@aifonline](https://twitter.com/aifonline?ref_src=twsrc%5Etfw), 都是标准的俄罗斯半官方官媒(官方是塔斯社 [@tass\_agency](https://twitter.com/tass_agency?ref_src=twsrc%5Etfw)) [https://t.co/NbAdZkjLuf](https://t.co/NbAdZkjLuf)
-> — Xi Jin Pig🐷🐷🐷🐷🐷 (@KoronaKitaya) [June 4, 2021](https://twitter.com/KoronaKitaya/status/1400730977220005892?ref_src=twsrc%5Etfw)
+> 英国和挪威科学家惊爆，[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 病毒 是中共科学家制造的！不是从自然进化而来的。[#证据](https://twitter.com/hashtag/%E8%AF%81%E6%8D%AE?src=hash&amp;ref_src=twsrc%5Etfw) 确凿，请看视频。
+>  [#Covid](https://twitter.com/hashtag/Covid?src=hash&amp;ref_src=twsrc%5Etfw) [#新冠病毒](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) [#冠状病毒](https://twitter.com/hashtag/%E5%86%A0%E7%8A%B6%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/GDzN6eurK5](https://t.co/GDzN6eurK5)
+> — 诗和远方 (@realcolidorra) [June 3, 2021](https://twitter.com/realcolidorra/status/1400346452757561344?ref_src=twsrc%5Etfw)
+
+
+13. **[诗和远方推特](https://twitter.com/realcolidorra/status/1400346452757561344?s=20)**：
+*从物理角度（正电荷）看，病毒只可能是人造的*
+
+
+> Dr. Li-Meng Yan, who was among the first people to tout the Wuhan lab theory – said in her latest report [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) is 'an unrestricted bioweapon' – and Dr. Anthony Fauci was among the scientists and organizations who knew about it and tried to hide it. [https://t.co/RzodD3VB4Z](https://t.co/RzodD3VB4Z)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [June 3, 2021](https://twitter.com/DrLiMengYAN1/status/1400564007090675713?ref_src=twsrc%5Etfw)
+
+
+14. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1400564007090675713?s=20)**：
+*[闫丽梦指责福奇知道新冠病毒是生物武器，并掩盖了它](https://www.dailymail.co.uk/news/article-9648687/Chinese-virologist-says-Fauci-emails-claim-coronavirus-unrestricted-bioweapon.html)*
+
+
+> 20210602閆博士接受Newsmax採訪1/2
+> 1.主：蝠奇醫生應該自己辭職，它是時候該落幕了
+> 2.蝠奇郵件門的郵件佐證了閆博士去年在疫情伊始所說的事情
+> 3.去年一月蝠奇們就知道怎麼回事
+> 4.郵件中的一部分實驗方法行不通
+> 5.郵件顯示蝠奇有多深的認識、它對此的反應等等 [pic.twitter.com/B14o2LGs8x](https://t.co/B14o2LGs8x)
+> — Andy5 (@andy5\_123) [June 3, 2021](https://twitter.com/andy5_123/status/1400484043741818883?ref_src=twsrc%5Etfw)
+
+
+**[20210602闫博士接受Newsmax採访](https://twitter.com/andy5_123/status/1400484043741818883?s=20)**
+*1.主：蝠奇医生应该自己辞职，它是时候该落幕了
+2.蝠奇邮件门的邮件佐证了闫博士去年在疫情伊始所说的事情
+3.去年一月蝠奇们就知道怎么回事
+4.邮件中的一部分实验方法行不通
+5.邮件显示蝠奇有多深的认识、它对此的反应等等*
+
+
+> In the FOIA emails, Fauci admits:
+> 
+> “The typical mask you buy at a drug store is not really effective at keeping out a virus, which is small enough to pass through the material.”
+> 
+> Remember when social media companies censored doctors for saying this? [pic.twitter.com/rFFtSfggoi](https://t.co/rFFtSfggoi)
+> — Dr. Simone Gold (@drsimonegold) [June 3, 2021](https://twitter.com/drsimonegold/status/1400580635035643916?ref_src=twsrc%5Etfw)
+
+
+**[口罩防不住新冠病毒](https://twitter.com/drsimonegold/status/1400580635035643916?s=20)**
+
+
+> Another nice interview done by brave journalist [@PBiraia](https://twitter.com/PBiraia?ref_src=twsrc%5Etfw) 
+> “Last year in an exclusive interview to [@TheWeekLive](https://twitter.com/TheWeekLive?ref_src=twsrc%5Etfw), Dr. Yan was the first one to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) a man-made virus. She talks about origins yet again, this time even more boldly”
+> COVID19 from CCP’s Army![https://t.co/IoaPVjhkDg](https://t.co/IoaPVjhkDg)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [June 4, 2021](https://twitter.com/DrLiMengYAN1/status/1400802073982214144?ref_src=twsrc%5Etfw)
+
+
+15. **[闫丽梦博士推特](https://twitter.com/DrLiMengYAN1/status/1400802073982214144?s=20)**：
+*[勇敢的印度记者@PBiraia所做的又一次漂亮的采访
+“去年在接受@TheWeekLive的独家采访时，闫博士是第一个提出#COVID19人造病毒的人。她又一次谈到了起源，这次更加大胆”——病毒来自中共军队的COVID19](https://www.theweek.in/theweek/cover/2021/06/03/the-real-virus-came-from-zhoushan-and-chinese-military-found-it-dr-li-meng-yan.html)*
+【灭共时代】
 
 
 
-3、Selllin上校也发推提名闫丽梦博士获得诺贝尔和平奖，她揭露中共病毒来源于实验室和病毒就是生物武器的勇气阻止中共未来再次给全球带来灾难。可见，Sellin博士作为美国军情界上校完全认可了闫博士揭露的中共病毒真相，这就是日拱一族的力量，爆料革命推动灭共最重要的就是唯真不破，用事实真相积累信任。
+> 哇，拜登政府真是会挑时间啊，6月4日签署行政命令把华为在内的59家中共企业列入黑名单。
+> 按郭先生的话：是脱钩滴开始涅？还是开膛破肚的开始涅？[@lude\_media](https://twitter.com/lude_media?ref_src=twsrc%5Etfw) [@andy5\_123](https://twitter.com/andy5_123?ref_src=twsrc%5Etfw) [pic.twitter.com/GxIW08DRjC](https://t.co/GxIW08DRjC)
+> — 公民 – SEVEN (@NFSC\_007) [June 3, 2021](https://twitter.com/NFSC_007/status/1400599312980054019?ref_src=twsrc%5Etfw)
+
+
+**[公民推特](https://twitter.com/NFSC_007/status/1400599312980054019?s=20)**：
+*哇，拜登政府真是会挑时间啊，6月4日签署行政命令把华为在内的59家中共企业列入黑名单。 按郭先生的话：是脱钩滴开始涅？还是开膛破肚的开始涅*
+
+
+> 曾經是伊朗海軍噸位最高的補給艦"Kharg"，在阿曼灣海域莫名其妙的發生火災，大火居然還撲不滅，居然燒了20多個小時。然後居然就沉了……伊朗最近流年不利啊，奇奇怪怪的爆炸火災啥的實在是太多了。🤔[https://t.co/uXd9RhlIwB](https://t.co/uXd9RhlIwB)
+> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [June 3, 2021](https://twitter.com/BoDiplo/status/1400251403533230083?ref_src=twsrc%5Etfw)
+
+
+**[BO博士推特](https://twitter.com/BoDiplo/status/1400251403533230083?s=20)**：
+*曾经是伊朗海军吨位最高的补给舰”Kharg”，在阿曼湾海域莫名其妙的发生火灾，大火居然还扑不灭，居然烧了20多个小时。然后居然就沉了……伊朗最近流年不利啊，奇奇怪怪的爆炸火灾啥的实在是太多了*
+
+
+> 这是怎么一回事，美国海关和边境保护局跑到中共过海域执法还是中共国的渔船跑去美国海域了。
+> 如果是后者，让我联想到了两名中共国青年跑台湾的事。
+> 不明觉厉～赶脚美国疫情将要有变化了 [pic.twitter.com/9jn64DmdLh](https://t.co/9jn64DmdLh)
+> — 公民 – SEVEN (@NFSC\_007) [June 2, 2021](https://twitter.com/NFSC_007/status/1400123151736926211?ref_src=twsrc%5Etfw)
+
+
+**[公民记者推特](https://twitter.com/NFSC_007/status/1400123151736926211?s=20)**：
+*这是怎么一回事，美国海关和边境保护局跑到中共过海域执法还是中共国的渔船跑去美国海域了*
+
+
+> 瘋狗胡錫進的核戰言論被西方英文媒體刊登。呵呵😎傳播速度很快啊🤣[https://t.co/BQDNSfXAMm](https://t.co/BQDNSfXAMm)
+> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [June 2, 2021](https://twitter.com/BoDiplo/status/1400077931599351815?ref_src=twsrc%5Etfw)
+
+
+**[BO博士推特](https://twitter.com/BoDiplo/status/1400077931599351815?s=20)**：
+*[疯狗胡锡进的核战言论被西方英文媒体刊登](https://www.newsweek.com/china-state-media-says-country-must-prepare-nuclear-war-us-after-biden-asks-covid-probe-1596568)*
+
+
+> The CCP's barbarism killed thousands in 1989. Its cover-up of the Wuhan Virus continues while thousands die each day. 
+> 
+> Let us always remember the nature of Communism and the tyranny that always follows.[https://t.co/7L1KPTcDRL](https://t.co/7L1KPTcDRL)
+> — Mike Pompeo (@mikepompeo) [June 4, 2021](https://twitter.com/mikepompeo/status/1400804090507112450?ref_src=twsrc%5Etfw)
+
+
+[***中共的野蛮行为在1989年杀害了数千人。它对武汉病毒的掩盖仍在继续，而每天都有数千人死亡。
+让我们永远记住共产主义的本质和永远随之而来的暴政***](https://thehill.com/opinion/international/556735-the-triumph-and-tragedy-of-1989-why-tiananmen-still-matters)
+
+
+> Today, the entire world remembers the bloody massacre of more than 10,000 student protestors by the Chinese Communist Government. The CCP has erased this event and its images from public view inside China but we won’t let them forget. [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) [@globaltimesnews](https://twitter.com/globaltimesnews?ref_src=twsrc%5Etfw) [@ChinaDaily](https://twitter.com/ChinaDaily?ref_src=twsrc%5Etfw) [pic.twitter.com/aBV8Oi2xZ5](https://t.co/aBV8Oi2xZ5)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 4, 2021](https://twitter.com/Jkylebass/status/1400797169418973187?ref_src=twsrc%5Etfw)
+
+
+凯尔巴斯：不忘8964
+
+
+> 今天，我们追悼32年前，在1989年6月4日于天安门广场和平示威但遭到残暴镇压的受难者。为了悼念他们，我们要求中国政府允许对此和其他人权议题的自由讨论。在此阅读我们的声明：[https://t.co/uJLA1x2Spm](https://t.co/uJLA1x2Spm)
+> — 美国驻华使领馆 US MissionCN (@USA\_China\_Talk) [June 4, 2021](https://twitter.com/USA_China_Talk/status/1400690525464846343?ref_src=twsrc%5Etfw)
+
+
+**[美大使馆](https://twitter.com/usa_china_talk/status/1400690525464846343?s=21)**推特：
+*今天，我们追悼32年前，在1989年6月4日于天安门广场和平示威但遭到残暴镇压的受难者。为了悼念他们，我们要求中国政府允许对此和其他人权议题的自由讨论*
+
+
+> “ ‘Who controls the past,’ ran the Party slogan, ‘controls the future: who controls the present controls the past.’ “
+> 
+> — George Orwell’s 1984 [https://t.co/PmTJBNTzBl](https://t.co/PmTJBNTzBl)
+> — Jerry Dunleavy (@JerryDunleavy) [June 4, 2021](https://twitter.com/JerryDunleavy/status/1400860800454103049?ref_src=twsrc%5Etfw)
+
+
+**[司法记者推特](https://twitter.com/JerryDunleavy/status/1400860800454103049?s=20)**：
+*中共控制了过去就控制了未来*
+
+
+> 请看专门研究中共党史的社科院教授陈铁健，给你讲讲中共的真实历史：
+> 
+> 骗、绑、抓……
+> 
+> 从它成立的那天起，就一直干着偷坟掘墓的事！ [pic.twitter.com/HaqY3USE2L](https://t.co/HaqY3USE2L)
+> — RICHARD FULL (@RICHARD08999364) [June 3, 2021](https://twitter.com/RICHARD08999364/status/1400512962155237385?ref_src=twsrc%5Etfw)
+
+
+**[理查德推特](https://twitter.com/RICHARD08999364/status/1400512962155237385?s=20)**：
+*请看专门研究中共党史的社科院教授陈铁健，给你讲讲中共的真实历史： 骗、绑、抓…… 从它成立的那天起，就一直干着偷坟掘墓的事*
+【新中国联邦一周年】
 
 
 
-> I nominate Dr. Li-Meng YAN [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) for the Nobel Peace Prize. Her courage in exposing the laboratory origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) and its creation as a bioweapon will prevent a future global disaster perpetrated by the Chinese Communist Party.[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/T7oYkfSeCf](https://t.co/T7oYkfSeCf)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 4, 2021](https://twitter.com/LawrenceSellin/status/1400656981296353290?ref_src=twsrc%5Etfw)
+> 感谢三位大神！😂🙏🙏🙏 [pic.twitter.com/p73Muno1s4](https://t.co/p73Muno1s4)
+> — 约翰 (@JohnDoe1284495) [June 3, 2021](https://twitter.com/JohnDoe1284495/status/1400486469957931021?ref_src=twsrc%5Etfw)
 
 
 
-4、当闫博士通过路德社“119节目”揭露中共病毒真相后，美国日拱一族不断推进向全世界传递病毒真相。Sellin上校本身具备生物学背景和反恐背景，上校军衔已经是美国生物战领域最高级别将领，要获得美国上校军衔非常艰难，这需要积累无数军功。美国军方所推行的军衔制非常严格，军衔制的好处就是即使在混乱的战场上，军衔较低的美国军人一定得服从军衔高的军人，反观中共国，只要有关系有钱就能当上军队将领，中共给文艺兵少将军衔纯粹是胡扯，这些文艺兵完全不具备战场指挥能力。
 
-5、美国军人体系有极强的实战能力，这些美国将领每年都需要参加体能测试和专业技能测试，即使是退役军官也是如此，所以退役军官仍然具备实战能力。中共军队就是党卫军，军队体制就是劣币驱逐良币，不看重实战能力，具备文艺技能居然能成为军队将领，甚至连中共军委副主席的实战能力都远不如美国上校，这种集中力量办大事的独裁体制培养出来的将领只会在前线唱《小背篓》，或者比喝茅台的能力，比叠豆腐块，比踢正步，比拍领导马屁的能力……大量军费都被中共将领贪污，几乎用不到一线实战，所以中共军队根本就不具备实战能力，军队纯粹就是为维稳而存在，吓唬吓唬国内老百姓，这就是中共党卫军的荒谬。
 
-[点击观看往期《路德时评》节目总结文章](点击观看往期《路德时评》节目总结文章)
+> 终于看见了郝海东夫妇了，爱死你们了😁😻😻😻😻😻😻😻😻😻😻 [pic.twitter.com/i61lLCzl8p](https://t.co/i61lLCzl8p)
+> — Jay Yates (@lazydjay) [June 3, 2021](https://twitter.com/lazydjay/status/1400513771060314112?ref_src=twsrc%5Etfw)
 
-文章撰写：【重生】  编辑：【香柏树】
 
-本文仅代表作者个人观点
 
-+4
+
+
+> 生日快樂🎂 [pic.twitter.com/ucliIm16AT](https://t.co/ucliIm16AT)
+> — 政清@台灣農場 (@chingtaiwanfarm) [May 31, 2021](https://twitter.com/chingtaiwanfarm/status/1399440328533315587?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> [#新中国联邦一周年](https://twitter.com/hashtag/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6%E4%B8%80%E5%91%A8%E5%B9%B4?src=hash&amp;ref_src=twsrc%5Etfw) [#新中国联邦](https://twitter.com/hashtag/%E6%96%B0%E4%B8%AD%E5%9B%BD%E8%81%94%E9%82%A6?src=hash&amp;ref_src=twsrc%5Etfw) 
+> 闫博士 [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) 在新中国联邦一周年庆典上寄语战友，勉励战友！ [pic.twitter.com/60ph4jr0Vt](https://t.co/60ph4jr0Vt)
+> — 公民 – SEVEN (@NFSC\_007) [June 3, 2021](https://twitter.com/NFSC_007/status/1400527271283224576?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 新中国联邦一周年 
+> 
+> 彼得.纳瓦罗:由于反川普媒体以及像福奇这样的人,我未能向美国人民分发6000万片羟氯喹.
+> 【NFSC 1-year Anniversary】Peter Navarro: I failed to distribute 60 million tablets of HCQ to the American people, because of anti-Trump media and people like Fauci.[@RealPNavarro](https://twitter.com/RealPNavarro?ref_src=twsrc%5Etfw) [pic.twitter.com/AnWifDSU3l](https://t.co/AnWifDSU3l)
+> — 诗和远方 (@realcolidorra) [June 4, 2021](https://twitter.com/realcolidorra/status/1400727606492897283?ref_src=twsrc%5Etfw)
+
+
+
+
+
++1

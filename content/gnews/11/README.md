@@ -1,52 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共军方在2016年谋划了如何将病毒传播到美国
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1298970/)
+## 【热点播报】前CDC主任因病毒来自实验室理论受到来自科学界的死亡威胁
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1299096/)
 
-翻译：康州盘古农场 – 柯镇恶
+作者：香草山农场写作组 静水流深
 
-校对：康州盘古农场 – Mike Li
-
-编辑：康州盘古农场 – 格格巫
-
-发布：康州盘古农场 – 彩虹 Rainbow
-
-**据《门户新闻专家》作者：Joe Hoft 2021年5月31日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04232904/vir4w.jpg)
-本文由劳伦斯·塞林（Lawrence Sellin） 和 陈安娜（Anna Chen） 提供。
-
-COVID-19 的设计具有许多生物武器的特征，特别是高传染性、低致死率和高无症状传播率。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04232950/bio.jpg)
-**超限生物武器的特征：**
-
-1. 高传染性
-2. 低致死率
-3. 显着的剧毒性
-4. 对温度不敏感
-5. 高无症状传播率
-6. 抗环境变化
-7. 具有空前的破坏力
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
-中共解放军（PLA）生物武器的另一个重要特征（该列表中未提及）是：伪装其来源。也就是说，通过设计一种可以归咎于自然爆发的病毒，来掩饰生物战攻击的实质。
 
-位于南京的中国人民解放军东部战区司令部高级军官王长军，负责分离了蝙蝠冠状病毒 ZC45 和 ZXC21。据中国举报人严丽梦博士称，这就是用于创造 COVID- 19的骨架。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04232937/tru.jpg)
-当地方政府失去对 COVID-19 爆发的控制后，中国生物战计划负责人（据推测的）陈薇少将负责武汉的“清理”行动时，王长军是她团队的一员，尽管他不是来自于对武汉具有管辖权的解放军中部战区司令部。2020 年9月，王长军因其与 COVID-19 相关的角色而被中国共产党领导人习近平授予“国家荣誉勋章”。王长军不仅对可以感染人类的蝙蝠冠状病毒感兴趣，而且对病毒性呼吸道感染如何传播（尤其是对没有表现出疾病症状的个人，即无症状感染的个体）也感兴趣。王长军广泛研究了解放军士兵的腺病毒呼吸道感染，并于 2016 年创建了流行病学模型，包括此类病毒性呼吸道感染可以如何从中国传播到美国。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04232924/fol.jpg)
-与此次爆发相关的HAdV7六邻体序列的全球迁移地图。红点表示地点。红色箭头实线表示，在10000次蒙特卡洛测试下和稀疏错误发现校正之后，统计学上两点之间的有效路径（P&lt;0.05）。
-《在中国东部新兵中造成严重的呼吸道疾病爆发的HAdV7病毒的流行病学和传播特征》
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05005222/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%89%8DCDC%E4%B8%BB%E4%BB%BB%E5%9B%A0%E7%97%85%E6%AF%92%E6%9D%A5%E8%87%AA%E5%AE%9E%E9%AA%8C%E5%AE%A4%E7%90%86%E8%AE%BA%E5%8F%97%E5%88%B0%E6%9D%A5%E8%87%AA%E7%A7%91%E5%AD%A6%E7%95%8C%E7%9A%84%E6%AD%BB%E4%BA%A1%E5%A8%81%E8%83%81.jpg)图片来源：AP
 
-除了中国共产党及其同情者之外，现在每个人都应该相信 COVID-19 病毒是在实验室中制造的，并且是中国人民解放军生物战计划的一部分。
-（向为本文作出贡献的COVID-19侦探 @neophighter致谢）
+据[NewsMax报道](https://www.newsmax.com/us/robert-redfield-wuhan-wiv-virologist/2021/06/03/id/1023782/)，前美国疾病控制中心主任罗伯特·雷德菲尔德博士周四告诉《名利场》，因为向媒体公开表示怀疑COVID-19源自武汉病毒研究所，他收到了来自其他科学家的死亡威胁。
 
-劳伦斯·塞林博士已从商业和医学研究的国际职业生涯中退休。他在美国陆军预备役服役 29 年，是参加过阿富汗和伊拉克战争的退伍军人。他的电子邮件地址是 [email protected]。
+病毒学家雷德菲尔德博士对《名利场》说，“我的观点是，我仍然认为武汉的这种病原体最可能是来自实验室，是逃出来的”，“我受到了威胁和排斥，因为我提出了另一种假设”， “我以为这是政治家的做法。我没想到会来自科学界”。
 
-原文链接：[https://www.thegatewaypundit.com/2021/05/breaking-exclusive-2016-chinese-military-officer-key-covid-19s-origin-mapped-virus-spread-u-s/](https://www.thegatewaypundit.com/2021/05/breaking-exclusive-2016-chinese-military-officer-key-covid-19s-origin-mapped-virus-spread-u-s/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+病毒来自实验室的理论曾一度被认为是阴谋论，而如今正得到越来越多的关注。《名利场》的报道称，美国政府甚至曾阻碍了对该理论的讨论。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+川普政府时期的前助理国务卿托马斯·迪纳诺称，该部门的工作人员曾警告领导人 “不要对COVID-19的来源进行调查”，因为这可能会 “打开一个麻烦的盒子”。迪纳诺告诉《名利场》，这些警告 “有掩盖真相的味道”，“我不打算成为其中的一部分”。
 
-0
+在另一份日期为12月9日的文件中，一名官员警告同事不要问关于武汉实验室冠状病毒研究的问题，因为这将引起对美国政府支持该研究的关注。
+
+负责国务院日常COVID-19起源调查的哈德逊研究所高级研究员大卫·阿什告诉新闻媒体，很明显，联邦政府内部 “有一个巨大的职能收益官僚机构”。
+
+一位前美国卫生官员告诉《名利场》，一个 “由美国美元资助的研究所正试图教一种蝙蝠病毒感染人类细胞，然后在同一个中（共）国城市出现了一种病毒”，这太巧合了。他还说，不考虑实验室泄漏COVID-19的假说，是 “智力上的不诚实”。
+
+罗格斯大学的理查德·埃布莱特博士告诉《名利场》，他怀疑蝙蝠冠状病毒研究是在以下 “三个地方 ”进行的：中共国武汉、德克萨斯州的加尔维斯顿和北卡罗来纳州的教堂山，而“不是十几个城市”。
+
+甚至《名利场》也承认对川普总统或由他任命的人（如雷德菲尔德）所持的观点有偏见，并表示，“我们还是要问，为什么疫情会始于这座城市呢？而这座城市有一个世界上最广泛的蝙蝠病毒收藏、做研究最积极的实验室。”
+
+上周，拜登总统指示美国情报界要加倍努力，调查COVID-19大流行病的起源，并在90天内向他报告。
+
+如果说出病毒真相就面临死亡威胁，说明病毒就是由中共制造的生物武器，就是有政治目的的。随着广泛的传播与更多真相逐步浮出水面，世界上会有更多的人了解到病毒的真相。到时候，制造病毒的中共一定会如过街老鼠，无地自容。
+
+编辑/校对/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1
