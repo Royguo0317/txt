@@ -1,37 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 摇摆州2020大选审计动态
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1298645/)
+## “掀锅盖”系列：20210531“经济崩溃就是中共崩溃，64之后探讨新中国人的未来和定位
+` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1298753/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**郭先生口述内容：**
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04213804/A-1.jpg)whowhatwhy.org
-亚利桑那州手工重新计票完成了67%，即已经完成140 万张的清点【1】；佐治亚州的法庭审计有望进行，据班农先生说，尽管该州的共和党建制派尽最大努力阻止这一进程，但法庭审计必须进行。班农先生乐观地估计，在全面法庭审计完成后，三个共和党参议院的席位将回归【2】；宾夕法尼亚州参议院代表团现场考察了亚利桑那州的法庭审计工作后表示，如果我们在宾夕法尼亚州进行法庭审计，这就是样板【3】。
+英首相一定唱反调
 
-川普总统6月4日发表声明，敦促宾夕法尼亚州参议院进行法庭审计【4】；威斯康星州的法庭审计困难重重，虽然3月下旬州议会授权调查的决议以58票对35票获得通过后【5】，一直没有实际上的进展，截止上周，审计变成了州议长“雇佣三名退休警察来检查选举的完整性？……但不会启动法庭审计【6】。
+但是你会发现这些人唱反调
 
-新罕布什尔州的重新审计在几轮折腾后最终得以通过，但由于三位审计员中，两位与民主党有瓜葛，人们并不看好，称“审计在开始之前就结束了——三位审计员中有两位与民主党国会大佬佩洛西和舒默有利益关系”。【7】
+最终是对整个全球的以毒灭共是大好事
 
-密歇根州没有传出要进行法庭审计的消息。
+而且共产党这些天
 
-以上各州的选举人票为：亚利桑那州11票、佐治亚州16票、宾夕法尼亚州20票、威斯康星州10票、新罕布什尔州4票、密歇根州16票。川普总统目前为232票，需要38票的翻转。
+这个杨娘娘去俄罗斯
 
-参考链接：
+包括去德国法国英国
 
-【1】[https://www.thegatewaypundit.com/2021/06/huge-arizona-audit-begins-finish-hand-recount-67-1-4-million-completed/](https://www.thegatewaypundit.com/2021/06/huge-arizona-audit-begins-finish-hand-recount-67-1-4-million-completed/)
+拎着几百亿的钱
 
-【2】[https://www.thegatewaypundit.com/2021/06/steve-bannon-georgia-will-hold-forensic-audit-three-republican-senate-seats-coming-back-full-forensic-audit-completed-video/](https://www.thegatewaypundit.com/2021/06/steve-bannon-georgia-will-hold-forensic-audit-three-republican-senate-seats-coming-back-full-forensic-audit-completed-video/)
+带着各种的承诺和投资项目
 
-【3】[https://www.thegatewaypundit.com/2021/06/audit-pa-model-pennsylvania-senator-doug-mastriano-speaks-arizona-audit-tour-video/](https://www.thegatewaypundit.com/2021/06/audit-pa-model-pennsylvania-senator-doug-mastriano-speaks-arizona-audit-tour-video/)
+包括也带着某些人的缺点和证据和录像带
 
-【4】[https://www.donaldjtrump.com/news/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-06.04.21-02](https://www.donaldjtrump.com/news/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-06.04.21-02)
+是不是
 
-【5】[https://gnews.org/zh-hans/1014742/](https://gnews.org/zh-hans/1014742/)
+U盘银行信息
 
-【6】[https://www.thegatewaypundit.com/2021/05/skunk-wisconsin-speaker-robin-vos-hires-three-retired-cops-look-election-integrity-wont-launch-forensic-audit-despite-late-night-ballot-dump/](https://www.thegatewaypundit.com/2021/05/skunk-wisconsin-speaker-robin-vos-hires-three-retired-cops-look-election-integrity-wont-launch-forensic-audit-despite-late-night-ballot-dump/)
+但是这个世界上决定这件事情输和赢的
 
-【7】[https://www.thegatewaypundit.com/2021/05/breaking-exclusive-windham-new-hampshire-2020-election-audit-started-two-three-auditors-conflicts-pelosi-schumer/](https://www.thegatewaypundit.com/2021/05/breaking-exclusive-windham-new-hampshire-2020-election-audit-started-two-three-auditors-conflicts-pelosi-schumer/)
+最终还是美国在背后起的力量
+
+最重要的
+
+经济等到世界出现滑坡的时候
+
+你会发现共产党大势已去
+
+不但如此就在西方政界
+
+带来了一股新的一种政治的气息
+
+以毒灭共之后让全世界都在问一个问题
+
+灭掉共产党的中国应该走向何方
+
+谁是我们可以信任合作的伙伴
+
+什么样的中国人是我们认为能合作的中国人
+
+我们也会给中国人一个选择
+
+我们中国人到底未来走向
+
+就要当个什么样的中国人
+
+新中国联邦的一周年
+
+纽约时间6月3号大陆时间6月4号凌晨开始
+
+这个一周年的活动之后
+
+很多人会想这个问题
+
+同时我们把更多的中国的精英们凝聚在一起
+
+让大家来探讨新中国人未来的
+
+一个形象和政治定位
+
+\*所有经过节选，编辑和剪辑的简报和视频形式仅供留存及传播，分享信息！
+
+\*所有信息以郭文贵先生源盖特视频和直播视频为准！
+
+
+
+听写整理：作而无作
+
+翻译：文紗（kazusa）
+
+校对：SugarPup
+
+视频制作：农夫，雨声（文忠）
+
+审核：掀锅盖组
+
+上传：糊糊文婴
 
 0
