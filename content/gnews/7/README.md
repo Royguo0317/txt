@@ -1,45 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象锐语】1989 年的胜利与悲剧：忘记天安门就是背叛自由就是向暴政投降
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1298501/)
+## 摇摆州2020大选审计动态
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1298645/)
 
-MIKE POMPEO 和 MILES YU在六四纪念日发表文章：1989 年的胜利与悲剧：为什么天安门仍然重要
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-32 年前，美国取得了胜利，1989 年柏林墙倒塌，冷战很快结束。但 32 年前的今天也标志着另外一个悲剧，作为当时在最高领导人邓小平领导下的中国共产党武装力量人民解放军，将坦克开进北京的天安门广场，屠杀了数百甚至数千名中国民主示威者。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04213804/A-1.jpg)whowhatwhy.org
+亚利桑那州手工重新计票完成了67%，即已经完成140 万张的清点【1】；佐治亚州的法庭审计有望进行，据班农先生说，尽管该州的共和党建制派尽最大努力阻止这一进程，但法庭审计必须进行。班农先生乐观地估计，在全面法庭审计完成后，三个共和党参议院的席位将回归【2】；宾夕法尼亚州参议院代表团现场考察了亚利桑那州的法庭审计工作后表示，如果我们在宾夕法尼亚州进行法庭审计，这就是样板【3】。
 
-那一年，一个共产主义帝国被证明太弱而无法生存，而另一个被证明太残暴，以至于无法将自己扔进历史的灰烬中。
+川普总统6月4日发表声明，敦促宾夕法尼亚州参议院进行法庭审计【4】；威斯康星州的法庭审计困难重重，虽然3月下旬州议会授权调查的决议以58票对35票获得通过后【5】，一直没有实际上的进展，截止上周，审计变成了州议长“雇佣三名退休警察来检查选举的完整性？……但不会启动法庭审计【6】。
 
-在苏维埃帝国瓦解之后，许多西方国家争先恐后地宣布“历史的终结”。经过几十年的冷战，希望共产主义这个对自由和民主的最严重威胁永远结束是可以理解的。
+新罕布什尔州的重新审计在几轮折腾后最终得以通过，但由于三位审计员中，两位与民主党有瓜葛，人们并不看好，称“审计在开始之前就结束了——三位审计员中有两位与民主党国会大佬佩洛西和舒默有利益关系”。【7】
 
-柏林胜利的一厢情愿会掩盖天安门悲剧的真正含义。这两个事件的特点是人们对自由的渴望与共产党人粉碎自由的决心之间，展示出史诗般斗争的英雄表现，如 1956 年在匈牙利和 1968 年在捷克斯洛伐克发生的那样。 但自 1989 年以来，许多西方的知识分子和政治精英认为这场斗争结束了。他们淡化了中国共产党仍然是一个致力于颠覆自由民主国家领导的，以规则为基础的国际秩序的马克思列宁主义专政的程度。
+密歇根州没有传出要进行法庭审计的消息。
 
-美国人集体意识中对天安门事件的健忘症对我们的安全和自由造成了严重后果。这种心态——直到过去五年两党对中国挑战的觉醒后才改变，这导致美国政府采取误导的外交政策，就好像中华人民共和国不再存在共产主义一样。事实上，绝大多数中国人已经放弃了这种破产的意识形态。但是，中国共产党的核心垄断了世界上人口最多的国家的所有权力和资源，并且深刻而教条地致力于马克思列宁主义的基本原则。它借助先进技术系统地洗脑整个国家，向青年灌输共产主义教条，将人民困在巨大的信息防火墙中，不允许私人财产不受国家控制，通过一党专政进行统治，将普遍人权和对个人的尊重视为对其权力的威胁。并从根本上致力于与西方资本主义社会进行生死斗争。
-
-1989 年天安门广场的抗议者并没有忘记中国共产党的本质。 站在广场上的 33 英尺高的“民主女神”雕像的创造者在政权大屠杀前几天宣布，“今天，这里在人民广场，人民女神高高耸立，向全世界宣告：中国人民的民主意识觉醒了。新时代开始了！”
-
-在道德更加清晰的时代，美国的精英们也会认识到中国共产党的本质。但他们往往深信民主和自由市场的必然性和说服力。许多人认为，通过最大程度的经济参与和政策修正，中华人民共和国将成为像西方一样的自由民主国家。尽管世界上大部分人现在都了解北京威胁的现实，但仍有太多精英无法理解中国共产党的核心领导层在意识形态上是教条式的和僵化的。它旨在以自己的形象尽可能多地改变世界。
-
-我们理应庆祝的柏林胜利不能排除我们今天纪念的天安门悲剧。我们不仅在广场上向英雄致敬，而且提醒全世界，对于中国共产党政权决不能抱有任何幻想，即使在其最具有改革意识的领导人的领导下，它也屠杀了自己的人民，北京仍然为这场屠杀而屠杀。拒绝公开和透明地说明。今天，这个政权正在对新疆自己的人民实施种族灭绝。
-
-自由世界与中国共产党的较量，并非始于总书记至上的习近平2012 年。党的“强硬派”（如习近平）和党的“改革者”（如邓小平）有着可追溯到马克思、列宁和毛泽东的深刻意识形态承诺。美国的政策绝不能希望回到邓时代。他们必须站在中国人民一边，正如1989年天安门广场的英雄所表明的那样。
-
-警方逮捕了年度香港天安门广场守夜活动组织者。忘记天安门就是背叛自由，就是向暴政投降。在与北京进行了数十年的误导接触之后，自由世界面临着来自 1989 年中国共产党政权的生存威胁，该政权将柏林视为一种警告，而不是希望。今天的北京政权在意识形态上更加活跃，在经济、军事和技术上更有能力。但美国以前战胜过这样的敌人，它可以再次胜利。
-
-迈克·蓬佩奥 2018 年至 2021 年担任美国国务卿，2017 年至 2018 年担任中央情报局局长。他曾于 2011 年至 2017 年担任堪萨斯州共和党国会议员。
-
-历史学家和战略家 Miles Yu 曾担任国务院国务卿蓬佩奥的首席中国政策顾问。他是哈德逊研究所、2049 项目研究所的高级研究员和胡佛研究所的客座研究员。
+以上各州的选举人票为：亚利桑那州11票、佐治亚州16票、宾夕法尼亚州20票、威斯康星州10票、新罕布什尔州4票、密歇根州16票。川普总统目前为232票，需要38票的翻转。
 
 参考链接：
 
-[https://thehill.com/opinion/international/556735-the-triumph-and-tragedy-of-1989-why-tiananmen-still-matters](https://thehill.com/opinion/international/556735-the-triumph-and-tragedy-of-1989-why-tiananmen-still-matters)
+【1】[https://www.thegatewaypundit.com/2021/06/huge-arizona-audit-begins-finish-hand-recount-67-1-4-million-completed/](https://www.thegatewaypundit.com/2021/06/huge-arizona-audit-begins-finish-hand-recount-67-1-4-million-completed/)
 
-图片来源：[https://thehill.com/](https://thehill.com/)
+【2】[https://www.thegatewaypundit.com/2021/06/steve-bannon-georgia-will-hold-forensic-audit-three-republican-senate-seats-coming-back-full-forensic-audit-completed-video/](https://www.thegatewaypundit.com/2021/06/steve-bannon-georgia-will-hold-forensic-audit-three-republican-senate-seats-coming-back-full-forensic-audit-completed-video/)
 
-整理撰稿：蓝精灵
+【3】[https://www.thegatewaypundit.com/2021/06/audit-pa-model-pennsylvania-senator-doug-mastriano-speaks-arizona-audit-tour-video/](https://www.thegatewaypundit.com/2021/06/audit-pa-model-pennsylvania-senator-doug-mastriano-speaks-arizona-audit-tour-video/)
 
-校对发布：Penny
+【4】[https://www.donaldjtrump.com/news/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-06.04.21-02](https://www.donaldjtrump.com/news/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-06.04.21-02)
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+【5】[https://gnews.org/zh-hans/1014742/](https://gnews.org/zh-hans/1014742/)
+
+【6】[https://www.thegatewaypundit.com/2021/05/skunk-wisconsin-speaker-robin-vos-hires-three-retired-cops-look-election-integrity-wont-launch-forensic-audit-despite-late-night-ballot-dump/](https://www.thegatewaypundit.com/2021/05/skunk-wisconsin-speaker-robin-vos-hires-three-retired-cops-look-election-integrity-wont-launch-forensic-audit-despite-late-night-ballot-dump/)
+
+【7】[https://www.thegatewaypundit.com/2021/05/breaking-exclusive-windham-new-hampshire-2020-election-audit-started-two-three-auditors-conflicts-pelosi-schumer/](https://www.thegatewaypundit.com/2021/05/breaking-exclusive-windham-new-hampshire-2020-election-audit-started-two-three-auditors-conflicts-pelosi-schumer/)
 
 0

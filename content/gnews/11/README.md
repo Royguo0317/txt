@@ -1,48 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 如果美国再次遭遇国家卫生紧急情况，会造成毁灭性打击
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1298349/)
+## 【鹰眼墙国】易地搬迁资金利用存疑
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1298579/)
 
-翻译:康州盘古农场 – Layka
+香草山写作组  鹰(文言)
 
-校对:康州盘古农场 – 格格巫
 
-编辑:康州盘古农场 –格格巫
 
-发布：康州盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
 
-据《www.dailymail.co.uk》安娜贝尔·格罗斯曼（ANNABEL GROSSMAN）2021年5月30日报道
 
-• 中共产品定价如此之低，美国公司很难与之竞争
-• 至少三家美国公司停止生产外科口罩和防护服
-• 其他公司被迫缩减生产和裁员
-• 这些初创企业已介入，以帮助解决大流行开始时前线工人防护设备的危险短缺问题
-• 2020年中共国口罩出口超2200亿个，去年成为全球唯一增长的主要经济体
 
-在冠状病毒大流行期间一直在生产口罩和防护设备的美国公司因进口中共产品导致销售额严重下降而面临倒闭的危险。业内专家指出，来自中共国的产品价格如此之低，国内公司几乎无法与之竞争，许多公司已经开始裁员。这些公司的老板警告说，如果美国面临另一场国家卫生紧急情况，其影响可能对美国造成毁灭性打击。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04194629/mackss.jpg)
-《纽约时报》的一篇报道显示，至少有 3 家公司已停止生产外科口罩和医用防护服。
+环球网6月4日转载央视网消息，中共发改委称“十三五”期间完成960余万易地搬迁任务并实现脱贫目标，已有378万搬迁群众就业。
 
-其他人则被迫缩减生产，其中包括弗吉尼亚州一家成立一年的外科口罩制造商，该制造商已解雇了其 280 名员工中的大部分。“我们的行业处于破碎模式，”高级个人防护装备公司的共同所有人布伦特迪利告诉《纽约时报》。“从现在起六个月后，我们中的许多人将不在身边，下次出现国家卫生紧急情况时，这对美国不利。”在大流行开始时，包括 高级个人防护装备在内的许多初创企业介入，以帮助解决一线工作人员防护设备的危险短缺问题，卫生专家表示，这很可能是导致高感染率的原因之一。中共国在大流行开始时停止了防护装备的出口，但此后以美国可比产品十分之一的价格重返市场。如果另一场危机袭击美国，拜登政府现在面临着确保医护人员得到充分保护的压力。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04194711/hhhh.png)
-佛罗里达州一家医用缝合公司德美科技的副总裁小路易斯·阿奎罗(Luis Arguello Jr.) 本月早些时候解雇了 1,500 名制造外科口罩的工人。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04195307/kkk-1.png)
-德美科技 担心在未来几周内，另外 500 名制造 N95 口罩的工人也可能会被解雇
+根据中共发改委数据，2001年至2015年，中共累积发放中央补助资金363亿元以用于680余万地方群众的易地搬迁工作；“十二五”期间，共下达中央预算补助投资231亿元，全国各类投资累积800亿元用于394万群众的搬迁工作；“十三五”中央补助资金800亿元，全国各类资金6000亿元用于960多万建档立卡贫困群众的搬迁。也就是说，2001到2010年搬迁286万余人花费了中央补助资金约132亿元。2010-2015年虽然搬迁任务量增长约37.7%，但资金规模增幅达75%；而2016-2-20年搬迁960万（是“十二五”搬迁群众数量的约2.43倍），而投入中央资金规模却是十二五期间的3.46倍。资金的“利用率”呈显著降低的趋势。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04211114/Screen-Shot-2021-06-04-at-9.10.57-PM.png)
+参考中共统计局数据，2015年GDP为67.67万亿元；2020年GDP为101.60万亿元，较2015年涨幅约50%，2015年农村居民人均可支配收入11422元；2020年对应为17131元，涨幅约49.98%。农村人均收入和GDP增长幅度近乎持平，然而搬迁群众的人均“耗资”却从“十二五”的800亿/394万，约20304元/人增至62500元/人，涨幅达300%。也就是说，经济发展和人均收入“稳步”增长的前提下，个人“搬迁费用”却翻了3倍。对照2020年5月份李克强声称的“6亿人月薪不足1000元”的现状，可见易地搬迁的“脱贫”行动遍布中饱私囊和瞒报侵占现象。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04211128/Screen-Shot-2021-06-04-at-9.10.53-PM.png)
+再者，全国易地扶贫搬迁建档立卡贫困户人均纯收入从2016年的4221元提至2019年的9313元，虽有提高但依旧远低于2019年农村居民可支配收入16021元的平均水平。参考2020年农村居民人均消费支出13713元（2019年对应为13328元），9313元的纯收入依旧无法满足正常开支。上述960万搬迁群众中，378万人实现就业，即平均每2.53人中1人已就业。也就是说，迁入新居并至少1人就业的搬迁家庭依旧是“入不敷出”，而这种结果却被中共恬不知耻的称作“全面脱贫”。搬迁过程中的人均“耗费”存疑，搬迁家庭“收不抵支”的现状，不但打脸中共“脱贫”谎言，更揭露了中共官僚体制的以权谋私和搜刮民财现状。
 
-《卫报》和凯撒健康新闻进行的一项为期一年的名为“迷失在前线”的研究发现，在大流行的第一年，超过 3,600 名美国医护人员死亡。这一系列调查报告发现，这些死亡中的许多是可以预防的，并将口罩和其他个人防护装备的普遍短缺，确定为医护人员面临的风险增加的主要因素之一。白宫 Covid-19 供应协调员蒂姆·曼宁 (Tim Manning) 表示，政府正在应对国内 PPE 生产商面临的挑战，但公司表示，他们需要更实质性的贸易政策和供应链改革才能维持生计。
+新闻来源：
 
-本月早些时候，疾病预防控制中心更新了其建议，并表示在大多数情况下，完全接种疫苗的美国人不必在室外和室内戴口罩。那些没有接种疫苗的人仍然处于危险之中，需要继续戴口罩和保持社交距离。在美国，飞机、公共汽车、火车和其他形式的公共交通工具以及机场和火车站等交通枢纽仍然需要戴口罩。口罩要求放宽导致防护装备需求下降，但业内人士表示，廉价中国设备的涌入更具破坏性。贸易组织美国口罩制造商协会告诉《纽约时报》说，其 27 名成员已经解雇了一半的劳动力。该集团正计划向世界贸易组织提出不公平的贸易投诉，称从中共国进口的大部分设备的售价低于在美国的生产成本。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04194655/ooo-1.png)
-由联合安全科技初创公司生产的口罩。 疫情初期，多家初创企业介入，帮助解决一线工人防护设备短缺的问题
-2020 年 1 月，中国江苏省南通市一家医用口罩和连身衣工厂的工人正在劳动。中国去年出口了超过 2200 亿个口罩
+国家发改委：有劳动力的易地搬迁家庭实现至少1人就业 已有378万搬迁群众就业https://china.huanqiu.com/article/43OdK7B1iBs
 
-2020年中共国出口口罩超过2200亿只，去年成为全球唯一增长的主要经济体。今年1月，商务部副部长钱克明告诉记者，除口罩外，中共国去年出口了23亿件防护装备和10亿个检测试剂盒。一位海关官员透露，仅口罩出货量就价值 3400 亿元人民币（385 亿英镑）。 海关发言人李奎文说：“（数量）相当于为中共国以外的世界上每个人提供近40个口罩。”佛罗里达州一家医疗缝合公司德美科技 (DemeTech)的副总裁路易斯·阿奎洛 (Luis Arguello Jr.) 将廉价中共国产品的涌入描述为“全面的经济战”。本月早些时候，为德美科技制造外科口罩的 1,500 名工人被解雇，另外 500 名制造 N95 口罩的工人也可能在未来几周内被解雇。他告诉《纽约时报》：“中共国的使命是确保这个行业没有人能幸存下来，而且到目前为止他们正在获胜。”
+中国的易地扶贫搬迁政策https://www.ndrc.gov.cn/fzggw/jgsj/dqs/sjdt/201803/t20180330\_1050716.html
 
-原文链接：[https://www.dailymail.co.uk/news/article-9634361/US-mask-making-companies-struggling-stay-afloat-China-floods-market-inexpensive-gear.html](https://www.dailymail.co.uk/news/article-9634361/US-mask-making-companies-struggling-stay-afloat-China-floods-market-inexpensive-gear.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+“十三五”易地扶贫搬迁任务全面完成https://finance.sina.com.cn/tech/2020-12-04/doc-iiznezxs5086250.shtml
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+近千万人易地扶贫搬迁任务全面完成https://finance.sina.com.cn/tech/2021-01-29/doc-ikftpnny2595629.shtml
+
+国家发改委：“十三五”将加大易地扶贫搬迁资金支持http://www.xinhuanet.com/politics/2015-11/12/c\_128419767.htm
+
+统计局：2020年农村居民人均消费支出13713元 实际下降0.1%https://finance.sina.com.cn/china/gncj/2021-01-18/doc-ikftpnnx8725841.shtml
+
+![This image has an empty alt attribute; its file name is 6_june.jpg]()![This image has an empty alt attribute; its file name is 6_june.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 0

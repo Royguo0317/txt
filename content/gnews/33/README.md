@@ -1,17 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## BBC：共军在天安门开枪
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1298144/)
+## 新中国联邦周年千叶草战友感言
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1298205/)
 
-字幕：芥末       翻译：绒绒兔     供稿：红色马克杯
+作者：千叶草
 
-得益于苏联访问，各国记者云集北京，32年前的1989.6.4记者们冒着生命危险拍到了震撼的画面。
+* * *
 
-让我们跟着这则32年前的新闻，铭记当夜。
-
-
-
-发布：GLC
+*发稿 文锦*
 
 0

@@ -1,37 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象锐语】BBC意味深长的报道了比利时病毒学家的故事
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1298535/)
+## 【香草诗词汇】一代天问 -＂64＂是什么？- 不得不吐不吐不快
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1298692/)
 
-BBC 新闻欧洲记者让·麦肯齐 (Jean Mackenzie)在2021-6-5日报道一个病毒学家的事：
+作者：纽约香草山健身部 澄道
 
-2021 年 6 月 4 日，全副武装的士兵参加了对马斯梅赫伦国家公园 Hoge Kempen 边缘地区的密集扫荡，寻找 Jürgen Conings。近三个星期以来，比利时著名的病毒学家一直与他的妻子和 12 岁的儿子住在一个安全屋里，由安全人员看守。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-尽管在整个大流行期间世界各地的科学家都受到了攻击，但对 Marc Van Ranst 教授的威胁比大多数人更严重。他一直是士兵尤尔根·康宁斯 (Jürgen Conings) 的目标，他对病毒学家和 Covid 封锁有偏激的看法。这位军事射击教官拿着火箭筒和机关枪在逃，比利时警方找不到他。“威胁是非常真实的，”范兰斯特教授在他的安全屋告诉我，因为他重温了他和家人于 5 月 18 日躲藏起来的那个晚上。“这位前士兵全副武装，在我家门口等我下班回家的路上等了三个小时。”那天晚上，警方说 Jürgen Conings 带着精选的重型武器离开了他的军营，直奔病毒学家的家。Marc Van Ranst 通常在男人等他的时候下班回来。但这次他早早回来了，和家人在一起。“不幸的是，他是一名训练有素的狙击手，拥有重型盔甲、军用级材料和武器。所以，你不想让这类人来追捕你，”他讽刺地告诉我，尽管他的生命受到威胁，而且他现在生活的环境极其严格，但这位成为比利时应对新冠病毒大流行的最公众人物的病毒学家却异常冷静。他甚至开了一个关于在家工作的笑话，尽管他承认这将它带到了极端。“我们并不害怕，我们只是小心翼翼。我 12 岁的儿子米洛对此非常勇敢。“这很超现实，但知道总比不知道好，因为至少我可以采取这些预防措施。让我生气的是我儿子已经在里面呆了将近三个星期。我真的很讨厌。”
 
-比利时警方现在卷入了全面的搜捕行动。数以百计的军官、直升机和军用卡车已经在数英亩的土地上进行了搜查，但他们似乎离找到他已经不远了。作为搜索的一部分，荷兰边境附近的一个大型国家公园一度被封锁。
 
-BBC这篇新闻，没有介绍病毒学家的背景，我们在网上搜索了一些资料：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04215308/%E4%B8%80%E4%BB%A3%E5%A4%A9%E5%95%8F.png)
 
-第一财经2020年8月28日文章题为：“新冠再感染是个案还是常态？专家称下结论仍需更多病例”，是这样写的：再感染的问题使人们担心潜在的针对新冠病毒的疫苗的功效。“新冠病毒看起来比流感病毒更稳定，但是仍在改变。”范·兰斯特博士称，“病毒会突变，这意味着潜在的疫苗不会持续5年甚至10年，就像流感一样，疫苗开发者必须定期对其进行重新设计。”
+＂64＂是什么？
+心中疑问
+岂止三十载！
+香港同胞＂六四烛光＂
+坚守年年
 
-腾讯新闻的报导：
+＂64＂是什么？
+掉落花朵
+散撒在蛇口码头
+边麻雀行动的
+＂救命非救赎＂
 
-荷兰行动组织“病毒真相”（Virus Waarheid）头目恩格尔（Willem Engel）和比利时病毒学家范兰斯特（Marc Van Ranst）在推特Twitter对话的屏幕截图，将显示在荷兰2000多个地点的广告牌上。
+坦克广埸上
+的碾压
+是在展给世人
+邪恶本性
+＂魔鬼撒旦＂
 
-这是一个很有意思的事情，这位病毒学家质疑病毒真相的组织者，而受到右翼军人的威胁。难道，追溯病毒真相不是病毒学家应该做的事情吗？ 后续我们会继续跟踪， 看看这位顶级病毒专家在这次疫情中扮演的是什么角色，BBC在此时写这篇发生在一个星期之前的事情有何用意。另外，据报道，该名老兵已经被找到。
+主流媒体上
+几十年禁言诋毁
+是在宣告
+纳粹再现
+＂谎言千遍暨真理＂
 
-参考链接：
+清丰看守所
+＂三断过后
+死镣铐＂
+＂三教九流
+了不起＂
 
-[https://www.bbc.com/news/world-europe-57358492?xtor=AL-72-%5Bpartner%5D-%5Bbbc.news.twitter%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D&at\_custom4=4319981E-C58F-11EB-B7F4-84C54744363C&at\_campaign=64&at\_custom1=%5Bpost+type%5D&at\_custom3=%40BBCWorld&at\_medium=custom7&at\_custom2=twitter](https://www.bbc.com/news/world-europe-57358492?xtor=AL-72-%5Bpartner%5D-%5Bbbc.news.twitter%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D&amp;at_custom4=4319981E-C58F-11EB-B7F4-84C54744363C&amp;at_campaign=64&amp;at_custom1=%5Bpost+type%5D&amp;at_custom3=%40BBCWorld&amp;at_medium=custom7&amp;at_custom2=twitter)
+即是地狱
+又是殿堂
 
-图片来源：[https://www.bbc.com/](https://www.bbc.com/)
+落水广场
+＂天圆地方
+灵魂所＂
+＂东魂西技
+佛手掌＂
 
-整理撰稿：蓝精灵
+即是文庙
+又归天堂
 
-校对发布：Penny
+＂64＂是什么？
+世上没有从天而降
+的英雄
+只有挺身而出的
+上天使徒
+我笃定七哥就是！
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+＂64＂是什么？
+这道菜
+非喜玛拉雅之巅
+非地狱之深
+你我远远未能
+品之味
+天之问
+
+注：
+三断：七哥进看守所两周胳臂断腿断肋骨断
+三教：伊斯兰教佛教道教
+
+@澄道来了
+@爱动爱议码06041
+
+发稿：雪梨
+
+![This image has an empty alt attribute; its file name is 6_june-1.jpg]()![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

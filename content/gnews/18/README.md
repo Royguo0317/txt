@@ -1,43 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [圣城传声筒] 八九六四 星火相传
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1298261/)
+## 【大象快讯】美国国会及行政当局中国委员会主席发表声明纪念六四事件32周年
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1298427/)
 
-作者：香草山香港部 自由鸟
+2021年6月4日 （北京时间晚），美国国会及行政当局中国委员会（CECC）主席民主党参议员默克里（Jeff Merkley）和共同主席、民主党众议员麦戈文（James McGovern）星期四（6月3日）发表声明，纪念六四天安门事件32周年。
 
+美国国会及行政当局中国委员会的声明全文如下：
 
+今天，我们向1989年春天聚集在北京和其他400多座城市街头呼吁民主、人权和结束腐败的所有人的勇气和牺牲致敬。对这些抗议活动的暴力镇压粉碎了对权利和改革的和平要求，并使美中关系继续复杂化直至今日。
 
-![This image has an empty alt attribute; its file name is gnews-logo.jpeg](https://lh3.googleusercontent.com/TsF04C0n1XUtqkb6MFfVHLeBC_LNuKIUr6zonuBocONJWoeiXC8Y8-PGkXnW6ar6ryP_wDW1PYyW8mlVoNtOW6ADq4vuBLb63fTTdv5aTL9Af1yM8peYe2g2T04cWkTLJzWJjIXH)
+因为所有关于1989年抗议活动的讨论都继续受到审查，纪念活动也被禁止——甚至现在，在以前自治的香港也是如此——我们承诺每年纪念这一重要事件，直至每个中国人都能够自由且不受限制地纪念。我们与幸存的受害者家属站在一起，包括勇敢的天安门母亲，她们冒着巨大的个人风险，仍然在寻求真相和正义。
 
+流血事件发生32年后，中国政府继续残酷镇压中国人民行使基本自由的能力。国际社会必须团结一致，结束对良心犯的任意拘留和虐待，结束在新疆发生的种族灭绝，结束对西藏文化和数亿中国公民宗教自由的摧残以及通过国际条约，结束对香港人民自由的系统性破坏。
 
+天安门精神在中国依然存在，到处都聚集着热爱自由的人们。我们铭记这一悲惨的周年纪念日，并承诺为未来而努力，让天安门一代人的追求最终能够在中国和世界各地得以实现。
 
-今年6.4维园烛光晚会被港府严禁举行，本来政府有义务做好应有的安排保障市民可以行使言论自由的人权，过去的31年来都可以在维园举行悼念活动，从不见这个权利被剥夺。今年被取消，实为香港法治后退了一大步。
+参考链接：
 
-取消6.4集会，反映出当权者对真相是多么恐惧，烛光晚会尽管只是和平的聚会，坚守公义的价值，坚守真相，32年从没有改变。希望追究行凶者的责任，也希望中国早日走上民主之路，使人民活得更有尊严。
+[https://www.voachinese.com/a/CECC-statement-on-32nd-anniversary-of-Tiananmen-protests-20210604/5916663.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/CECC-statement-on-32nd-anniversary-of-Tiananmen-protests-20210604/5916663.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
 
-多年来港人就好似柔弱的烛光candle，虽然是无力改变外在的环境，但一点一点的加起来，可以照亮人心。
-![This image has an empty alt attribute; its file name is Untitled-design-91.png](https://lh5.googleusercontent.com/lFzjXDnL5QZKJ4XHVM6zMfssR9Y6LAIXlxC5JF8T9QY0f6_DubSRYySGGbirSfBlqHBQEfM5NTNlyYSj7xXApa8Cv1MP6hi7cFgTpR5qdtjgC3tygdbxSC1cCvVk6NbjbnWVMSEX)
-虽然今年严禁烛光晚会，但还是有很多有心人用各种方式，各尽所能在每个角落坚定地将记念6.4的信念传承下去。
+图片来源：[https://www.voachinese.com/](https://www.voachinese.com/)
 
-网上也流传利用各种方式来悼念，向八.九民运死难者致哀，拒绝遗忘，守护真相，坚守信仰。也有不少人正在准备好好整理这段历史，为了找到更加有效的方法令到公众同下一代可以更清楚认识到这段历史的前因后果。并通过历史文物深入了解真相。
+整理撰稿：蓝精灵
 
-这段历史绝对不会从此消失，有幸的是有爆料革命接棒，会传播的更广更有影响力。
+校对发布：Penny
 
-(图片来源：德国之声)
-
-校对/发稿：火内
-![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://lh5.googleusercontent.com/HNkuDhUGeai5kszRMXFWD_oiXqiRS5e87UwxqM78RzFy_BNP9x4GwHu7IoD652vk1uO9wlkSBarYfxYAZ832M4TR3lz5jWacD64IGFQaKIpuyYWlY535aBfqoCFkP67nFTCYRZoH)
-更多资讯，更多关注
-
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[纽约香草山农场GTV-MOS TALK](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)香草山访谈
-
-[纽约香草山农场Twitter](https://twitter.com/HIMALAYA_MOS)(中文)
-
-[纽约香草山农场Twitter(英文)](https://twitter.com/MosHimalaya)
-
-[纽约香草山农场YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0
