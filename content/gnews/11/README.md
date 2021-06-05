@@ -1,43 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [圣城传声筒] 八九六四 星火相传
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1298261/)
+## 如果美国再次遭遇国家卫生紧急情况，会造成毁灭性打击
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1298349/)
 
-作者：香草山香港部 自由鸟
+翻译:康州盘古农场 – Layka
 
+校对:康州盘古农场 – 格格巫
 
+编辑:康州盘古农场 –格格巫
 
-![This image has an empty alt attribute; its file name is gnews-logo.jpeg](https://lh3.googleusercontent.com/TsF04C0n1XUtqkb6MFfVHLeBC_LNuKIUr6zonuBocONJWoeiXC8Y8-PGkXnW6ar6ryP_wDW1PYyW8mlVoNtOW6ADq4vuBLb63fTTdv5aTL9Af1yM8peYe2g2T04cWkTLJzWJjIXH)
+发布：康州盘古农场 – 彩虹 Rainbow
 
+据《www.dailymail.co.uk》安娜贝尔·格罗斯曼（ANNABEL GROSSMAN）2021年5月30日报道
 
+• 中共产品定价如此之低，美国公司很难与之竞争
+• 至少三家美国公司停止生产外科口罩和防护服
+• 其他公司被迫缩减生产和裁员
+• 这些初创企业已介入，以帮助解决大流行开始时前线工人防护设备的危险短缺问题
+• 2020年中共国口罩出口超2200亿个，去年成为全球唯一增长的主要经济体
 
-今年6.4维园烛光晚会被港府严禁举行，本来政府有义务做好应有的安排保障市民可以行使言论自由的人权，过去的31年来都可以在维园举行悼念活动，从不见这个权利被剥夺。今年被取消，实为香港法治后退了一大步。
+在冠状病毒大流行期间一直在生产口罩和防护设备的美国公司因进口中共产品导致销售额严重下降而面临倒闭的危险。业内专家指出，来自中共国的产品价格如此之低，国内公司几乎无法与之竞争，许多公司已经开始裁员。这些公司的老板警告说，如果美国面临另一场国家卫生紧急情况，其影响可能对美国造成毁灭性打击。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04194629/mackss.jpg)
+《纽约时报》的一篇报道显示，至少有 3 家公司已停止生产外科口罩和医用防护服。
 
-取消6.4集会，反映出当权者对真相是多么恐惧，烛光晚会尽管只是和平的聚会，坚守公义的价值，坚守真相，32年从没有改变。希望追究行凶者的责任，也希望中国早日走上民主之路，使人民活得更有尊严。
+其他人则被迫缩减生产，其中包括弗吉尼亚州一家成立一年的外科口罩制造商，该制造商已解雇了其 280 名员工中的大部分。“我们的行业处于破碎模式，”高级个人防护装备公司的共同所有人布伦特迪利告诉《纽约时报》。“从现在起六个月后，我们中的许多人将不在身边，下次出现国家卫生紧急情况时，这对美国不利。”在大流行开始时，包括 高级个人防护装备在内的许多初创企业介入，以帮助解决一线工作人员防护设备的危险短缺问题，卫生专家表示，这很可能是导致高感染率的原因之一。中共国在大流行开始时停止了防护装备的出口，但此后以美国可比产品十分之一的价格重返市场。如果另一场危机袭击美国，拜登政府现在面临着确保医护人员得到充分保护的压力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04194711/hhhh.png)
+佛罗里达州一家医用缝合公司德美科技的副总裁小路易斯·阿奎罗(Luis Arguello Jr.) 本月早些时候解雇了 1,500 名制造外科口罩的工人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04195307/kkk-1.png)
+德美科技 担心在未来几周内，另外 500 名制造 N95 口罩的工人也可能会被解雇
 
-多年来港人就好似柔弱的烛光candle，虽然是无力改变外在的环境，但一点一点的加起来，可以照亮人心。
-![This image has an empty alt attribute; its file name is Untitled-design-91.png](https://lh5.googleusercontent.com/lFzjXDnL5QZKJ4XHVM6zMfssR9Y6LAIXlxC5JF8T9QY0f6_DubSRYySGGbirSfBlqHBQEfM5NTNlyYSj7xXApa8Cv1MP6hi7cFgTpR5qdtjgC3tygdbxSC1cCvVk6NbjbnWVMSEX)
-虽然今年严禁烛光晚会，但还是有很多有心人用各种方式，各尽所能在每个角落坚定地将记念6.4的信念传承下去。
+《卫报》和凯撒健康新闻进行的一项为期一年的名为“迷失在前线”的研究发现，在大流行的第一年，超过 3,600 名美国医护人员死亡。这一系列调查报告发现，这些死亡中的许多是可以预防的，并将口罩和其他个人防护装备的普遍短缺，确定为医护人员面临的风险增加的主要因素之一。白宫 Covid-19 供应协调员蒂姆·曼宁 (Tim Manning) 表示，政府正在应对国内 PPE 生产商面临的挑战，但公司表示，他们需要更实质性的贸易政策和供应链改革才能维持生计。
 
-网上也流传利用各种方式来悼念，向八.九民运死难者致哀，拒绝遗忘，守护真相，坚守信仰。也有不少人正在准备好好整理这段历史，为了找到更加有效的方法令到公众同下一代可以更清楚认识到这段历史的前因后果。并通过历史文物深入了解真相。
+本月早些时候，疾病预防控制中心更新了其建议，并表示在大多数情况下，完全接种疫苗的美国人不必在室外和室内戴口罩。那些没有接种疫苗的人仍然处于危险之中，需要继续戴口罩和保持社交距离。在美国，飞机、公共汽车、火车和其他形式的公共交通工具以及机场和火车站等交通枢纽仍然需要戴口罩。口罩要求放宽导致防护装备需求下降，但业内人士表示，廉价中国设备的涌入更具破坏性。贸易组织美国口罩制造商协会告诉《纽约时报》说，其 27 名成员已经解雇了一半的劳动力。该集团正计划向世界贸易组织提出不公平的贸易投诉，称从中共国进口的大部分设备的售价低于在美国的生产成本。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04194655/ooo-1.png)
+由联合安全科技初创公司生产的口罩。 疫情初期，多家初创企业介入，帮助解决一线工人防护设备短缺的问题
+2020 年 1 月，中国江苏省南通市一家医用口罩和连身衣工厂的工人正在劳动。中国去年出口了超过 2200 亿个口罩
 
-这段历史绝对不会从此消失，有幸的是有爆料革命接棒，会传播的更广更有影响力。
+2020年中共国出口口罩超过2200亿只，去年成为全球唯一增长的主要经济体。今年1月，商务部副部长钱克明告诉记者，除口罩外，中共国去年出口了23亿件防护装备和10亿个检测试剂盒。一位海关官员透露，仅口罩出货量就价值 3400 亿元人民币（385 亿英镑）。 海关发言人李奎文说：“（数量）相当于为中共国以外的世界上每个人提供近40个口罩。”佛罗里达州一家医疗缝合公司德美科技 (DemeTech)的副总裁路易斯·阿奎洛 (Luis Arguello Jr.) 将廉价中共国产品的涌入描述为“全面的经济战”。本月早些时候，为德美科技制造外科口罩的 1,500 名工人被解雇，另外 500 名制造 N95 口罩的工人也可能在未来几周内被解雇。他告诉《纽约时报》：“中共国的使命是确保这个行业没有人能幸存下来，而且到目前为止他们正在获胜。”
 
-(图片来源：德国之声)
+原文链接：[https://www.dailymail.co.uk/news/article-9634361/US-mask-making-companies-struggling-stay-afloat-China-floods-market-inexpensive-gear.html](https://www.dailymail.co.uk/news/article-9634361/US-mask-making-companies-struggling-stay-afloat-China-floods-market-inexpensive-gear.html)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-校对/发稿：火内
-![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://lh5.googleusercontent.com/HNkuDhUGeai5kszRMXFWD_oiXqiRS5e87UwxqM78RzFy_BNP9x4GwHu7IoD652vk1uO9wlkSBarYfxYAZ832M4TR3lz5jWacD64IGFQaKIpuyYWlY535aBfqoCFkP67nFTCYRZoH)
-更多资讯，更多关注
-
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[纽约香草山农场GTV-MOS TALK](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)香草山访谈
-
-[纽约香草山农场Twitter](https://twitter.com/HIMALAYA_MOS)(中文)
-
-[纽约香草山农场Twitter(英文)](https://twitter.com/MosHimalaya)
-
-[纽约香草山农场YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

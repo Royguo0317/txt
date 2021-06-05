@@ -1,29 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦成立一周年的伟大意义
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1297953/)
+## 慧眼看世界20210604
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1297977/)
 
-作者：比卡丘
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04151915/WhatsApp-Image-2021-06-04-at-3.16.04-PM.jpeg)图片来源：GNEWS编辑部美工组
-今天终于迎来了期待已久的大日子，新中国联邦成立一周年的庆典活动在中共的强力干扰下如期举行！早上看到战友们早早的分批抵达庆典现场，看到战友们神采飞扬的走着红毯，看到闫博士和路德先生出现在文贵先生18楼的公寓里，看到班农先生、比尔格茨先生和弗林将军等一众美国灭共盟友在现场的演讲，听到《马背英雄》的歌声一遍遍响起。。。。。。，整个会场变成了灭共的战场，“TAKE DOWN THE CCP” 响彻云霄！
+素材：2020喜马拉雅
 
-下午闫博士和路德转战现场，与大家一起继续揭露病毒真相。班农先生更是满怀感激的说：“你是中国的英雄，你是美国人的英雄，你是全人类的英雄！”随即送上一个大大的熊抱，那一刻感天动地，无数战友为之动容。闫博士太不容易了，一个柔弱的女子肩负起了拯救全人类的使命，她没有退缩，甚至没有一丝犹豫，这样天使般的美女怎能叫人不心疼，不爱恋！
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-晚上朱利安尼先生、摩根先生以及枕头哥（迈克\*林德尔）等人的加入，彻底将庆典推向了高潮！今晚的爆料，可以说是有人欢喜有人忧！爆料革命战友和美国盟友一起交流信息，共商灭共大计，不管是闫博士的英文演讲，还是美国人讲的中文相声，大家都听得津津有味，没有任何违和感！这一刻，我深刻的感受到，新中国联邦成立一周年的意义升华了，新中国联邦已经不仅仅是中国人的新联邦，他已经成为一个全球正义者的联盟。
+**西班牙2021年6月4日电/西喜社——**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162519/01-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162518/02-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162521/03-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162527/04-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162537/05-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162543/06-5.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162544/07-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162545/08-1.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162807/09-3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162821/10-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162822/11-4.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162839/12-8.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162845/13-6.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162834/photo_2021-06-04_10-59-33.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162841/photo_2021-06-04_10-59-42.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04162856/14-4.jpg)
+审核：神奇四侠；发稿：神奇四侠
 
-今天的新中国联邦人才是真正中国人的样子! 我们敬天、法祖、守法、爱人，我们忠于我们的信仰，我们遵循心中的正道！我们讲信修睦，我们靠自己的实力赢得世界的尊重与认可！
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
 
-我们已经改写了人类的历史，人类上从来没有发生过像我们新中国联邦和爆料革命一样，给人类带来了无限的希望和无限的力量，我们利用现代科技，可以实现不流血的革命。新中国联邦的建立结束了中国自夏朝以来，打江山坐江山的恶性循环；同时也结束了自西方工业革命以来，以侵略扩张为目的的战争。
-
-郭先生打造的G系列金融帝国，成功的打破了世界货币和贸易的壁垒，使资金可以自由、合法的在全世界流动；新中国联邦的建立则将全世界的人团结了起来，在这里不分男女，不分老幼，不分贫富，不分种族，只要坚持唯真不破，坚守正道主义，我们就是战友！试想一下，当一个国家的钱和人都可以自由流动的时候，这个国得有多大呢？他还有边界吗？我们的新中国联邦真的是可以大到无边无际，小到让你看不见摸不着，他像空气一样存在，人类一刻也离不开他。
-
-人类的历史已经被改写，世界因此已经变得不同，新中国联邦不仅是中国人的希望，更是全人类的希望，今天的成绩会激励着我们每一个新中国联邦人继续向前！向前！向前！
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：比卡丘
-
-20210604
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01083510/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-+3
+0

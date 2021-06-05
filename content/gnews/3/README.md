@@ -1,67 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国允许夫妇生三胎
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1298425/)
+## 【小象锐语】BBC意味深长的报道了比利时病毒学家的故事
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1298535/)
 
-新闻来源：《香港自由新闻》Hong Kong Free Press| 作者：法新社 AFP| 发布时间：2021年5月31日
+BBC 新闻欧洲记者让·麦肯齐 (Jean Mackenzie)在2021-6-5日报道一个病毒学家的事：
 
-翻译/简评：文明明|校对：小小妹|审核：Beicy-数学老师|Page：小雨
+2021 年 6 月 4 日，全副武装的士兵参加了对马斯梅赫伦国家公园 Hoge Kempen 边缘地区的密集扫荡，寻找 Jürgen Conings。近三个星期以来，比利时著名的病毒学家一直与他的妻子和 12 岁的儿子住在一个安全屋里，由安全人员看守。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sWvTKGgSfhOio/images/c2c4aa88-4184-4828-a9bc-392b276f3c20.jpg?asset_id=edca8335-5874-4509-a7d0-c6d3c6cda9cb&amp;img_etag=%2249ecd20a2465ba0211905bb0b6d1237f%22&amp;size=2560)](https://spark.adobe.com/page/sWvTKGgSfhOio/images/c2c4aa88-4184-4828-a9bc-392b276f3c20.jpg?asset_id=edca8335-5874-4509-a7d0-c6d3c6cda9cb&amp;img_etag=%2249ecd20a2465ba0211905bb0b6d1237f%22&amp;size=1024)
+尽管在整个大流行期间世界各地的科学家都受到了攻击，但对 Marc Van Ranst 教授的威胁比大多数人更严重。他一直是士兵尤尔根·康宁斯 (Jürgen Conings) 的目标，他对病毒学家和 Covid 封锁有偏激的看法。这位军事射击教官拿着火箭筒和机关枪在逃，比利时警方找不到他。“威胁是非常真实的，”范兰斯特教授在他的安全屋告诉我，因为他重温了他和家人于 5 月 18 日躲藏起来的那个晚上。“这位前士兵全副武装，在我家门口等我下班回家的路上等了三个小时。”那天晚上，警方说 Jürgen Conings 带着精选的重型武器离开了他的军营，直奔病毒学家的家。Marc Van Ranst 通常在男人等他的时候下班回来。但这次他早早回来了，和家人在一起。“不幸的是，他是一名训练有素的狙击手，拥有重型盔甲、军用级材料和武器。所以，你不想让这类人来追捕你，”他讽刺地告诉我，尽管他的生命受到威胁，而且他现在生活的环境极其严格，但这位成为比利时应对新冠病毒大流行的最公众人物的病毒学家却异常冷静。他甚至开了一个关于在家工作的笑话，尽管他承认这将它带到了极端。“我们并不害怕，我们只是小心翼翼。我 12 岁的儿子米洛对此非常勇敢。“这很超现实，但知道总比不知道好，因为至少我可以采取这些预防措施。让我生气的是我儿子已经在里面呆了将近三个星期。我真的很讨厌。”
 
-**简评：**
+比利时警方现在卷入了全面的搜捕行动。数以百计的军官、直升机和军用卡车已经在数英亩的土地上进行了搜查，但他们似乎离找到他已经不远了。作为搜索的一部分，荷兰边境附近的一个大型国家公园一度被封锁。
 
-5月31日，中共中央政治局召开会议，听取“十四五”时期积极应对人口老龄化重大政策举措汇报，审议了《关于优化生育政策促进人口长期均衡发展的决定》。习近平还在会上说：“为了积极应对人口老龄化……一对夫妇可以有三个孩子”。自此，中共彻底放开了实行了近四十年的计划生育政策。
+BBC这篇新闻，没有介绍病毒学家的背景，我们在网上搜索了一些资料：
 
-中共用这么大的阵仗来谈生育政策，并非像他们说的那样“事关国家发展和民生福祉”，而是说明中共国的人口老龄化问题和出生率下降问题已经严重威胁到了中共的统治，中共已预计到人口危机将会影响到它的政治和经济的发展。
+第一财经2020年8月28日文章题为：“新冠再感染是个案还是常态？专家称下结论仍需更多病例”，是这样写的：再感染的问题使人们担心潜在的针对新冠病毒的疫苗的功效。“新冠病毒看起来比流感病毒更稳定，但是仍在改变。”范·兰斯特博士称，“病毒会突变，这意味着潜在的疫苗不会持续5年甚至10年，就像流感一样，疫苗开发者必须定期对其进行重新设计。”
 
-专家预计，由于人口老龄化迅速增长，以目前的生育率来看，到2050年，三分之一的中国人将成为老年人，劳动力短缺不仅会影响经济发展，也无法承担起数以亿计的老年人的养老。而且，传统的重男轻女的思想使得中国的男女比例严重失调，在今后的10年里，适龄的结婚和生育的妇女将减少30%，在生活的重压下，许多有能力、受过良好教育的妇女宁愿选择单身或丁克家庭。这又给已经在急剧下降的生育率雪上加霜。中共将自食四十年丧尽天良的计划生育政策所带来的苦果。
+腾讯新闻的报导：
 
-**原文翻译：**
+荷兰行动组织“病毒真相”（Virus Waarheid）头目恩格尔（Willem Engel）和比利时病毒学家范兰斯特（Marc Van Ranst）在推特Twitter对话的屏幕截图，将显示在荷兰2000多个地点的广告牌上。
 
-# **官媒：中共国允许夫妇生三胎**
+这是一个很有意思的事情，这位病毒学家质疑病毒真相的组织者，而受到右翼军人的威胁。难道，追溯病毒真相不是病毒学家应该做的事情吗？ 后续我们会继续跟踪， 看看这位顶级病毒专家在这次疫情中扮演的是什么角色，BBC在此时写这篇发生在一个星期之前的事情有何用意。另外，据报道，该名老兵已经被找到。
 
-据中共官媒周一报道，由于这次人口普查显示出人口迅速老龄化，中共国已经开始放宽了计划生育政策，允许夫妇生育三个孩子，使这个世界上人口最多的国家四十年来对出生率的严厉管控得到缓解。
+参考链接：
 
-近40年来，中共国坚决执行了备受争议的“独生子女政策”，这是全世界最严厉的计划生育法规之一。由于考虑到劳动力老龄化和经济停滞的普遍现象，该政策在2016年被放宽为“二胎政策”。
+[https://www.bbc.com/news/world-europe-57358492?xtor=AL-72-%5Bpartner%5D-%5Bbbc.news.twitter%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D&at\_custom4=4319981E-C58F-11EB-B7F4-84C54744363C&at\_campaign=64&at\_custom1=%5Bpost+type%5D&at\_custom3=%40BBCWorld&at\_medium=custom7&at\_custom2=twitter](https://www.bbc.com/news/world-europe-57358492?xtor=AL-72-%5Bpartner%5D-%5Bbbc.news.twitter%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D&amp;at_custom4=4319981E-C58F-11EB-B7F4-84C54744363C&amp;at_campaign=64&amp;at_custom1=%5Bpost+type%5D&amp;at_custom3=%40BBCWorld&amp;at_medium=custom7&amp;at_custom2=twitter)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sWvTKGgSfhOio/images/9af0e4d4-41c5-4f45-846e-7aae8018cc48.jpg?asset_id=59d7b1f6-f4ff-4cd6-9994-74b7d6462919&amp;img_etag=%222aabe494e18cb84a5b3bb968b8fff249%22&amp;size=2560)](https://spark.adobe.com/page/sWvTKGgSfhOio/images/9af0e4d4-41c5-4f45-846e-7aae8018cc48.jpg?asset_id=59d7b1f6-f4ff-4cd6-9994-74b7d6462919&amp;img_etag=%222aabe494e18cb84a5b3bb968b8fff249%22&amp;size=1024)近40年来，中共国坚决执行了备受争议的“独生子女政策”，这是全世界最严厉的计划生育法规之一。由于考虑到劳动力老龄化和经济停滞的普遍现象，该政策在2016年被放宽为“二胎政策”。
+图片来源：[https://www.bbc.com/](https://www.bbc.com/)
 
+整理撰稿：蓝精灵
 
-国家统计局上个月表示，尽管政府积极鼓励夫妇多生孩子，但中共国的年出生人数仍继续急剧下降，2020年达到了仅1200万人的历史最低水平。
+校对发布：Penny
 
-低出生率带来的人口危机惊动了以习近平为首的共产党。有专家预计到2050年，短缺的年轻劳动力不仅要支撑经济发展，还不得不供养数以亿计的老年人。
-
-新华社援引了习近平在周一主持的中共中央政治局会议上说的：“为了积极应对人口老龄化……一对夫妇可以有三个孩子”。
-
-据国家统计局透露，中共国的生育率为1.3，低于维持人口稳定所需的正常水平。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/sWvTKGgSfhOio/images/7385dde3-ca6d-444f-b6fe-61c86b7c13be.jpg?asset_id=3faf742e-8132-47ad-8968-ce8ae622f23b&amp;img_etag=%225b2770bd9a0b58dfdcbdbb88e53c9bc5%22&amp;size=2560)](https://spark.adobe.com/page/sWvTKGgSfhOio/images/7385dde3-ca6d-444f-b6fe-61c86b7c13be.jpg?asset_id=3faf742e-8132-47ad-8968-ce8ae622f23b&amp;img_etag=%225b2770bd9a0b58dfdcbdbb88e53c9bc5%22&amp;size=1024)习近平。 图片来源：世界经济论坛/Flickr网络相簿
-
-上个月公布的十年一次的2020年人口普查结果还显示，中共国的人口增长速度是自上世纪60年代以来最慢的，将近14.1亿。
-
-这与劳动力人口的急剧下降同时发生，进一步引发了人们对人口危机的担忧。
-
-由于几十年来的“独生子女”政策和传统的社会对男孩的偏爱，使得这一代人往往有选择性地堕胎和遗弃女婴，因此，中共国的男女性别比例也严重失衡。
-
-尽管在过去几年里，这一政策有所松动，但是，并没有像政策制定者所希望的那样促使婴儿潮的到来。
-
-近年来，结婚率的下降也是导致了出生率的下降的原因之一。生活成本的上升，以及越来越多有能力和受过教育的妇女推迟生育，或者不生。
-
-人口变化对中共国这个世界第二大经济体的经济和政治极具影响。
-
-预计到2050年，三分之一的中国人将成为老年人，将给国家的养老金和医保带来巨大压力。
-
-🔗[原文链接](https://hongkongfp.com/2021/05/31/china-allows-couples-to-have-three-children-state-media/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】Edited by：【Himalaya London Club UK】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/sWvTKGgSfhOio/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/sWvTKGgSfhOio/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0
