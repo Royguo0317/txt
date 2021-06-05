@@ -1,23 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “欧洲神秘战友”即将出场，灭共雷霆之势正在到来
-` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1299750/)
+## 中共病毒伤害脑神经系统，患者出现脑部和精神疾病
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1299961/)
 
-美东时间6月4日下午两点，RedState1网站报道称：一名据信是中共国有史以来最高级别的“叛逃者”已经与DIA（Defense Intelligence Agency, 美国国防情报局）合作数月。这位神秘叛逃者对中国的特殊武器项目有直接了解，并透漏其中与生化武器相关项目相关的情报非常让人担忧。
+台湾宝岛农场 Amitofu
 
-此信息的提供者 [ADAM HOUSLEY](https://twitter.com/adamhousley?s=20) (https://twitter.com/adamhousley?s=20 )发推称：中共为为摆脱追责正试图制造变异病毒，和更为广泛的传播，为COVID-19的自然来源假说创造逻辑闭环。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05052448/%E6%88%AA%E5%B1%8F2021-06-05-%E4%B8%8B%E5%8D%884.30.51.png)
-消息来源称，这位神秘叛逃者提供的信息是导致对福奇博士信任危机的直接原因，其中的技术细节已经由美国陆军医学研究所的传染病情报局证实。
+根据卫报报道英国牛津大学一项研究指出，33%新型冠状病毒患者，在确诊后6个月脑部受到侵害，**显示新型冠状病毒会直接侵犯大脑和中枢神经系统**，在患者康复后罹患与大脑有关的疾病风险增高，被诊断出患有神经系统疾病、精神病、焦虑症和情绪障碍，对患者心理健康与脑部的影响不可忽视。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05064503/ccpCranialnerves-400x225.jpg)
+英国牛津大学教授Maxime Taquet发表于《刺胳针精神病学》期刊（The Lancet Psychiatry），研究人员在6个月期间分析超过 23.6万名患者数据，数据于2020年1月20日至12月13日期间，在美国确诊新冠肺炎患者的病例中，包括住院及无须住院患者，并与感染流感、呼吸道感染两组患者作对比，针对 14 种神经和心理健康状况分析，**研究团队发现****33.6%****患者在感染后****6****个月，被诊断出患有脑部神经疾病，其中有近****20%****患者在确诊****3****个月内****，****被诊断患精神疾病，约有****1/9****无须住院的患者****，****被诊断出患有忧郁症****、****中风、颅内或大脑急性出血、**** ****痴呆、精神病等，与从流感中康复的人相比，新冠病毒患者出现神经系统疾病和精神病的风险高出**** 44%****。**
 
-福奇的邮件印证了爆料革命自病毒爆发以来一直在传播的病毒真相，但是为什么如此重磅的信息截至今日引起的只是媒体对病毒来源的大面积噤声，对福奇博士和邮件事件中提到的比尔∙盖茨、扎克伯格并没有任何官方的进一步行动。 这条在新中国联邦一周年庆之际发出的重磅报道，让世界和全球华人更清楚的认识到，越来越多中国人正在站出来，在中共和新中国联邦之间选择与新中国联邦站在一起，越来越多的力量正在涌向灭共的第一线。
+中共长期制造生物病毒在Sellin博士科学溯源中，证实美国FDA和国家传染病研究院NIH的安东尼·福奇和他NIH同事柯林斯与香港大学P3实验室顶级冠状病毒专家马里克裴伟士 Malik Peiris有一个重要的合同，**马里克团队能增强****E****蛋白中****SARS****病毒极大毒性，可直接伤害脑部和神经系统并具高传染能力特性**，也就是生化病毒的功能增强，中共透过马里克新冠状病毒的专业与解放军合作，以舟山蝙蝠病毒ZC45/ZXC21为骨架，通过人为的基因改造技术在刺突蛋白中引入弗林酶切位点，功能增强S蛋白、E蛋白毒性，100%被复制于SARS-COV-2病毒中，使病毒更具强变异性和传染性。
 
-参考链接：
+牛津大学精神病学系Maxime Taquet教授证实，新冠病毒确实会造成神经系统疾病和精神疾病，虽然研究没有发现新冠病毒患者较容易罹患与病毒有关的两种神经系统疾病，格林巴利症候群和帕金森氏症，但许多此类疾病属于慢性或复发性的，某些患者将来可能会出现此类疾病，也就是患中共病毒的影响可能会在多年后，对患者健康和社会安全带来巨大影响。阿弥陀佛\_/\\_祈祷万佛万神加持75亿人不受到中共病毒的威胁
 
-1. [Redstate](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238?cf_chl_captcha_tk=4ff828be82f9a37eac04d5ab06862704a3651eec-1622885161-0-ASI1JIbMpPXUoEkMK7l4VFHjySxHFs07sdkEytEqjRmFmvTJWuJmQ4cLn8bnPM6zPyuu8q19bVb9z6P2xOs4Q2O7o6qqX7JSWQ6bXjEwZJktXucl_09R88gGCf2ey0-aEn-vuOubujETqocHvJh9wxRWVwEzqosp4UNeCkTYnFdzEwzHKdy3fszbuL7FenONyCu63Vgw_FEW9utuBTdMV38p1ORkO4g3oD2rTmITmO8uSWFr9Mx6-_pPioCcXQxQxF6qQ4LG2a8Js5G2x8tE1byHXd1Et3ygU54rcX-B4ZtRyH57YJdHIWuqFyy5TMjZoeXhkjmBtWipzDy6fbnrD1v9Fw8jT97-ZUt2g7niqFU8gCYE5ZZjCkTihFNOzj-lCS2MidBYqnWlA-slURkTsA0-u_KOSJ8InfL5vcHONR_DkXpkkF6dGD9MSys7aH3s2AcqFxq3yPiSUYO6Wv2co4gp0M8SEgDFIu6AF0JXDZ0evY1_oQOcOF_eOAy3CtC6bWphfRA7chn-6tLjYZ87pEl-EzRms1makyGXnxTHjCjH-5uDwOsEJJPHScL1fSGPlDrMMgGj7Nna3zzhD64yktNONjL9n-IsmKSTr_loef3xDL3sSDKF7Pviu3SfcvHTHF50i50tEya2Ju5CDs2RZin9cybIxS_296aycfkOE75ksXs0rCx-55xEgkZe3wwejKyfh3AG39doByDeNxsiy_7Bs9ZVe16-F95BpnIKdb6cPtKF9TtUXhM8YGyvdu6CKEEncpXbPinNF2zFDqQFnlQJtXyy9MaRURpPNzyPvPR8)
-2. [pjmedia](https://pjmedia.com/columns/paula-bolyard/2021/06/04/report-high-ranking-chinese-defector-working-with-dia-has-direct-knowledge-of-chinas-bioweapons-program-and-its-very-bad-n1452251)
+本文仅代表个人立场
 
+資料來源:文贵先生、班农战斗室、路德社、闫丽梦博士、博士军团、爆料革命
 
+[Covid linked to risk of mental illness and brain disorder, study suggests](https://www.theguardian.com/world/2021/jan/25/covid-linked-to-risk-of-mental-illness-and-brain-disorder-study-suggests?fbclid=IwAR2hX41ZkOf0AqxUSxj12Qb6PKWY6aEt94kDNtvdFQu0mOriz3PWR_-reDs)
 
+[A Mouse Model of SARS-CoV-2 Infection and Pathogenesis](https://www.cell.com/cell-host-microbe/pdfExtended/S1931-3128%2820%2930302-4)
 
-+1
+[1 in 3 People Who Survive COVID-19 Are Left With ‘Brain Disease’ or Psychiatric Disorders, Says New Study](https://www.health.com/condition/infectious-diseases/coronavirus/covid-survivors-brain-disease-psychiatric-disorders)
+
+审核:Athena雅典娜 发布:Amitofu
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+0
