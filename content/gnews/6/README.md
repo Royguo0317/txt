@@ -1,33 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七国集团财长承诺全球最低税率为 15%
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1300931/)
+## 未被监测到的中共国渔船船队涉嫌入侵阿根廷水域
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1301022/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年6月05日
-翻译 /整理/ 简评： Shuizhuyu
+最近的一份报告记录了多达 6,000 艘外国渔船在阿根廷国家水域边界关闭公共跟踪设备超过 24 小时，敲响了警钟，即他们可能在该国专属经济区 (EEZ) 非法捕鱼。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05152219/IMG_0567.jpg)
+“中共国船队对这些事件中的 66% 负有责任，”总部位于华盛顿的致力于保护和恢复全球海洋的非营利组织 Oceana 在 6 月份的报告中说。该报告称，数百艘中共国渔船主要以短鳍鱿鱼为目标，这对阿根廷的经济和生态系统都至关重要。
 
+分析得出的结论是，从 2018 年 1 月到今年 4 月，未被发现的捕鱼活动总时间超过 60 万小时，许多船只在阿根廷专属经济区 1 英里范围内关闭了自动识别系统 (AIS)。
 
-七个主要工业化国家 (G 7) 已表示赞成对大公司征收 15% 的全球最低税。 德国财长 Olaf Scholz 将该协议描述为“税收革命”。
+Global Fishing Watch 的 AIS 是 Oceana、SkyTruth 和 Google 于 2016 年推出的在线技术平台，可监控和记录船舶名称、船旗国和位置的数据。
 
-七个主要工业化国家（G 7）已就全球税收改革的基本框架达成一致。各国希望共同采取行动打击谷歌和苹果等大型科技公司的避税行为。英国财政部长里希·苏纳克周六在伦敦表示，他和他的同事已经签署了相应的协议。
+据美国之音报道，中国是世界上最大的渔业国，拥有世界四分之一的渔船和超过世界总捕捞量的三分之一。中共国渔业部门在 2020 年对非法和滥用捕捞进行了处罚，但专家表示，目前尚不清楚这些措施的执行情况。
 
-“我很高兴地说，经过多年的讨论，七国集团国家的财政部长今天就改革全球税收制度以适应全球数字时代达成了历史性协议，最重要的是确保正确的公司在正确的地方缴纳正确的税是公平的，”苏纳克在推特上发布的视频消息中说。
+新闻来源：[zerohedge](https://www.zerohedge.com/markets/undetected-chinese-fishing-fleets-suspected-invading-argentinas-waters-report?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
-计划对大公司征收 15% 的最低税。这体现在七国集团财长会议的最终宣言中。大公司产生销售额的国家也应该比以前从公司缴纳的税款中受益更多。这对许多新兴市场来说应该会更好。
+编译：Boxinglady (文拳）
 
-7 月的 20 国集团会议可能至关重要: 工业化国家的协议必须存在于更大的范围内——例如与 G20 与中国、印度和巴西等最重要的新兴国家。 G-20 会议可能具有决定性意义。
+校对发稿：士多啤梨
 
-多年来，国际层面一直在努力制定公司的最低税收。其背景是大公司的避税策略，它们经常以算术方式将利润转移到低税率的国家。大型科技公司尤其受到关注。
-
-简评：G7 是7个主要工业化国家的一个组织， 他们定期举行峰会。 这次峰会制定了这个税收政策。 多年来， 欧洲的很多国家一直抱怨这些大的科技公司在收受方面打擦边球， 因为他们是国际公司， 可以通过计算的方式把税收放到最低的国家去 。这次采取了最低税率， 也就是希望这些大公司能够在公司经营所在国上税，或者到任何国家上税都要用最低税率15%。
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
-
-🔗[G-7-Finanzminister-verpflichten-sich-auf-globale-Mindeststeuer-von-15-Prozent](https://www.welt.de/politik/ausland/article231610667/G-7-Finanzminister-verpflichten-sich-auf-globale-Mindeststeuer-von-15-Prozent.html)
+本文仅代表个人观点，不代表 Gnews 平台
 
 0

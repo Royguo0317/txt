@@ -1,35 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】英六位前外相促约翰逊将香港危机纳入G7峰会议程
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1300865/)
+## 欧盟对白俄罗斯关闭领空
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1300986/)
 
-作者：休斯顿星光农场 写作部 FY（火星）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
-6月4日，横跨三十七年历史的英国六位前外相，联名致函英国首相约翰逊，促请其将香港危机和中共持续违反《中英联合声明》等议题纳入即将召开的G7峰会议程。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05144921/Screenshot-2021-06-05-134737.jpg)
-***图片来源：法广中文***
+信息来源：德国世界报网络版 
+发布时间：2021年6月05日
+翻译 /整理/ 简评： Shuizhuyu
 
-据法广网报道，联署者分别在1977年至2014年期间出任外相，包括欧文、聂伟敬、施仲宏、贝嘉晴、文礼彬及夏伟林。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05154611/BELARUS-POLITICS-SUMMIT.jpg)
 
-联署信指出，北京在过去数个月，以《港区国安法》为名，拘捕47名参与初选的民主派人士及前立法会议员；另又大肆改革香港的选举制度，修订入境条例，赋权当局可以禁止个别人士离港。经过这些操作，差不多所有香港著名的民主声音不是身处监狱或等候审讯，便是流亡海外，国际社会对香港的危机应作出更强而有力的回应。
+资料来源：法新社/德米特里·阿斯塔霍夫
+欧盟正在从对白俄罗斯政府持批评态度的博主 Roman Protassewitsch 的监禁中得出结论。白俄罗斯航空公司最初受到制裁——其他经济部门也将紧随其后。
 
-联署人认为，英国作为联合声明签署国，应采取主导地位促成此事，敦促约翰逊在七国集团峰会的会议议程中，让国际社会响应在香港出现的危机，以及就中共国持续违反《中英联合声明》的处理达成共识，以确保在联合国备案的联合声明和“一国两制”得以落实。
+自周六早上起，前白俄罗斯苏维埃共和国的航空公司不再被允许飞入欧盟领空，因此不再被允许在欧盟国家的机场起飞或降落。随着惩罚措施于午夜生效，欧盟正在回应这样一个事实，即大约两周前，白俄罗斯当局强迫一架瑞安航空公司的客机从雅典飞往维尔纽斯的途中在明斯克中途停留，并逮捕了一名政府批评者和同在机上的女朋友。从那时起，博主 Roman Protassewitsch 和他的搭档 Sofia Sapega 一直被拘留。
 
-11至13日，由美国、加拿大、日本、英国、法国、德国、意大利组成的七大工业国集团（G7）将在英国召开领袖峰会，美国总统拜登（Joe Biden）、日本首相菅义伟、德国总理默克尔（Angela Merkel）等各国领导人届时都将出席。
+欧盟周五做出的制裁决定称，这一事件凸显了白俄罗斯航空当局的不可靠性，并代表了对白俄罗斯公民社会和民主反对派的镇压又迈出了一步。
 
-据报道，G7峰会曾在去年6月中发表联合公报，促请中共国停止在港实施《港区国安法》，认为国安法严重损害“一国两制”方针和香港的言度自治。但是中共人大常委会其后依然通过《国安法》。
+关于白俄罗斯声称对瑞安航空公司飞机的炸弹威胁，其实是伪造的证据。
 
-信息来源：
+简评： 白俄罗斯的卢卡申科就是一个独裁者， 虽然名义上选举而成， 但选举中的各种演绎导致了他在选举后遇到的最大的反对声音。 国内的抗议活动也持续了几周， 但最后还是使用了武力镇压。 现在又拦截了客机，只是为了抓捕他的反对者。 这就跟中共的逆我者亡是一个做法，而且还不择手段。 卢卡申科也政权也需要推翻。
 
-[https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210605-%E6%8C%87%E9%A6%99%E6%B8%AF%E7%8E%B0%E5%8D%B1%E6%9C%BA-%E8%8B%B1%E5%89%8D%E5%A4%96%E7%9B%B8%E4%BF%83%E7%BA%A6%E7%BF%B0%E9%80%8A%E7%BA%B3%E5%85%A5%E4%B8%83%E5%9B%BD%E5%B3%B0%E4%BC%9A%E8%AE%AE%E7%A8%8B](https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210605-%E6%8C%87%E9%A6%99%E6%B8%AF%E7%8E%B0%E5%8D%B1%E6%9C%BA-%E8%8B%B1%E5%89%8D%E5%A4%96%E7%9B%B8%E4%BF%83%E7%BA%A6%E7%BF%B0%E9%80%8A%E7%BA%B3%E5%85%A5%E4%B8%83%E5%9B%BD%E5%B3%B0%E4%BC%9A%E8%AE%AE%E7%A8%8B)
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
 
-编辑：文顺 校对/发稿：Helen
-
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
-
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
-
+🔗[Sanktionen-in-Kraft-EU-schliesst-Luftraum-fuer-belarussische-Flugzeuge.](https://www.welt.de/politik/ausland/article231605909/Sanktionen-in-Kraft-EU-schliesst-Luftraum-fuer-belarussische-Flugzeuge.html)
 
 0

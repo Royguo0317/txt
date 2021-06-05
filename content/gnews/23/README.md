@@ -1,61 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【一线新闻】送战友，踏征程
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1300506/)
+## 莫迪，请为道貌岸然的中共背锅！
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1300823/)
 
-前方记者：纽约香草山记者站 Kathy (文艺）
+#### 翻译：Danton
+校对：人间四月
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05135723/dw.jpg)图片来源：DW
+美国《时代》周刊近日发表了一篇题为[《莫迪不愿准备足够的新冠疫苗导致疫情失控，并让全球遭殃》](https://time.com/6052370/modi-didnt-buy-enough-covid-19-vaccine)的文章。随后，前印度情报官维克拉姆·苏德发文反驳，并在印度政治杂志（Chanakya Form）发表了题为“莫迪，请为道貌岸然的中共背锅”的报道。苏德是一名职业情报官，曾担任印度对外情报机构(R&AW) 主管，并于 2003 年 3 月退休。他定期撰写有关情报、恐怖主义、国家安全、外交关系和战略问题的文章。
 
-后方编写：纽约香草山农场 写作4组 Delilah小胖
+**时代周刊为何避重就轻拿莫迪开涮？**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+报道指出鉴于目前美印各个层面关系良好，美国官方诋毁印度的可能性小．但美国利益集团与中共有太多深层次的金融和贸易纠葛，他们非常明白，一旦中共因疫情被严厉制裁，那任何针对中共的行动都可能影响他们的利益，为能保住中共这块强大的市场蛋糕，于是启动其占全球主导地位的多元化信息传播手法，偷梁换柱让印度顶包．此手法经典案例是2003 年 3 月伊拉克战争中萨达姆侯赛因庇护基地组织并拥有大规模杀伤性武器的不实舆论。
 
+**西方利益集团及中共**
 
+报道指出时代周刊作者没有揭露武汉病毒所和那些幕后的资助者，也没有将此次新冠大流行归咎于中共或习近平，而将责任归咎于莫迪未能购买疫苗，完全混淆是非，并把这位真正民选连任的领导者描绘成了“全球恶棍”。 报道称事实是美国及英国政府囤积大量疫苗，再加上辉瑞和莫德纳​等专利管制因素而拒绝向印度提供疫苗．
 
+报道中还引用了美国前国务卿迈克·蓬佩奥在2021 年 5 月 19 日接受美国记者巴里·维斯采访时的[重要声明](https://bariweiss.substack.com/p/did-covid-come-from-the-lab-mike)。蓬佩奥在声明中明确表明病毒来自武汉实验室，并断言中共利用信息战策略无所不用其极来歪曲事实掩盖真相。因为根据所有收集到的证据，这次疫情起源的唯一解释就是“武汉病毒研究所的实验室泄漏”。蓬佩奥还提到中共统战部渗透美各大科研机构，并蓝金黄市议会官员，并刻意在美国金融机构、农业机构内部运作窃取商业机密，并以蚕食这些知识产权为目的。
 
+**西方利益集团更需要一个可操控的民主**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05131150/Copy-of-16x9-feature-photos-MOS-logos-3.png)*图片来源：Kathy文艺战友纽约曼哈顿现场报道*
+西方利益集团试图妖魔化纳伦德拉·莫迪（Narendra Modi）并试图让他成为更“方便的反派”，主要动机是因为莫迪被视为西方企业在印度可持续发展的主要障碍。莫迪的自力更生和印度制造的计划，一直饱受质疑。按照标准的西方价值观，印度是一个市场和资源基地，然而对于利益集团来说，他们更希望的是一个可操控的民主，甚至是可操控的独裁政权，而一个强大独立并且自力更生的民主实体自然不好对付，最好是未雨绸缪杜绝后患．
 
-据香草山农场GNews纽约记者站的Kathy文艺战友，今天上午从美国纽约曼哈顿现场传回的报道，参加新中国联邦周年庆祝的战友代表们，目前正在返程中。战友们依依惜别，场面非常感人。再一次，香草山农场本地接待团队，再次担负起送战友们到达机场的任务。
-*战友们开始返程（视频来源：Kathy文艺战友现场报道）*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05123726/Copy-of-16x9-feature-photos-MOS-logos-2-1.png)
+推翻民选政府并不容易，军事政变更不可能，那些西亚国家的战争代价高昂且局势不可控，因此作者认为最好的方法是里应外合从一个政权内部着手将其动摇，自2014年从印度尼赫鲁和 Jamia大学运动到沙欣巴格，再到德里骚乱，这一切都表明各种既得利益集团精心策划并通过强大的经济资助和后勤保障制造各种罢工，试图拼命破坏并达到操控政权的目的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05120143/1-12.png)
+**印度政府应对疫情和经济衰退充满挑战**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05120203/31-1.png)
+印度强劲经的济势头因疫情受到了严重打击，如果这种情况持续下去，对中共肯定有利。众所周知，中共对印度排除华为参与印度5G 网络建设的行为而反感，试图通过洞朗和加尔万的对峙使印度屈服，但作者认为以这样的方式报复则太可怕残忍。与此同时，经济增长乏力的西方明显意识到日本、中国和印度这三个亚洲经济巨头经济赶超的威胁，所以必须制止。西方也认识到，自 90 年代以来他们与中共的深度勾兑虽然促进了双方自身利益的发展，但随之而来的中共病毒是他们始料未及的，因此不能再重蹈覆辙。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05120224/35.png)
+不可否认，印度现任政府在处理疫情危机时存在策略上的误判，卫生基础设施脆弱，还需要时间恢复。虽然全球政府声明支持印度，但制药大厂似乎不那么认为，正所谓欲壑难填，他们的榜样是擅长资本主义的亚当·斯密而不是崇尚治病救人的国医希波克拉底。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05120237/36.png)
+原文链接：[Xi is Fine, Blame it on Modi!](https://chanakyaforum.com/xi-is-fine-blame-it-on-modi/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05120301/34.png)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05122744/Copy-of-16x9-feature-photos-MOS-logos-1-1.png)
-*Kathy文艺战友纽约现场报道*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05122804/%E7%BA%BD%E7%BA%A6.jpeg)*图片来源：Kathy文艺战友*
-
-编辑/校对/上传：Delilah小胖
-
-参考来源：
-
-Kathy文艺一线报道
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
-
-
-
-
-
-+1
+0
