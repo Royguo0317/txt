@@ -1,8 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新中国联邦一周年】天道-魔道-正道-人间道
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1299200/)
+## 【新中国联邦一周年】彼得·纳瓦罗：我要表扬两个爱国者，来自中国的郭文贵和来自美国的史蒂夫·班农
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1299308/)
+
+06/03/2021 彼得·纳瓦罗在新中国联邦一周年庆典发表讲话。 他表扬了两个伟大的爱国者， 一个是来自中国的郭文贵先生，一个是来自美国的史蒂芬·班农先生。文贵先生为中国老百姓做了很多工作；班农先生在为美国人民以及支持文贵先生推翻中共政权上做得非常出色。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
