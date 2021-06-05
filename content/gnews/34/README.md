@@ -1,57 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】伊朗无视美国武器禁运，首次尝试穿越大西洋
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1300515/)
+## 2021年6月5日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1300568/)
 
-作者：香草山写作组 Naughty（文行）
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+6月5日：尊敬的战友们好！30分钟左右七哥直播乱播！ 【[https://pjmedia.com/columns/paula-bolyard/2021/06/04/report-high-ranking-chinese-defector-working-with-dia-has-direct-knowledge-of-chinas-bioweapons-program-and-its-very-bad-n1452251](https://pjmedia.com/columns/paula-bolyard/2021/06/04/report-high-ranking-chinese-defector-working-with-dia-has-direct-knowledge-of-chinas-bioweapons-program-and-its-very-bad-n1452251)】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05120642/8733cd216bde6bd3c315e648b1e65721.jpg)
+[【2021年6月5日】文贵先生盖特原文](https://gtv.org/getter/60bb897ac04fd544b469e3d9)
 
-
-
-据美国一位直接知情的国防官员称，两艘伊朗海军舰首次绕过好望角，似乎正要驶过大西洋，这位官员认为这两艘军舰可能最终驶往委内瑞拉。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05113610/image0-12.jpg)
-
-德黑兰此前曾威胁要向西半球派遣军舰，但该尝试已经中止。美国官员表示，目前不需要太过担心，因为船只仍然有很小的时间窗口可以选择掉头或前往港口，而不是继续旅行。但如果军舰越境成功将极大地展示伊朗的海军能力，并有可能为德黑兰提供美国近海的新立足点。
-
-过去两周，美国国家安全机构一直在密切监测这些船只的行踪。该人士说，船只的目的地和运载的货物仍然未知，但他认为他们很可能前往委内瑞拉。
-
-拜登官员本周表示，政府担心这些船只可能携带武器运往加拉加斯，并警告说，美国将采取行动阻止此类交付。Maxar Technologies 提供的 5 月初该船的卫星图像显示甲板上有七艘快速攻击船只。
-
-五角大楼发言人约翰·科比指出，委内瑞拉一年前曾从伊朗购买了武器，并警告说，新的武器交付“是一种挑衅行为，将对我们的合作伙伴构成威胁。”
-
-科比警告说，美国保留“与我们的合作伙伴一起采取适当措施阻止此类武器交易”的权力。
-
-目前还不清楚华盛顿采取了哪些外交努力来阻止船只的移动。国务院官员不愿透露，他们是否在正在进行的维也纳核谈判中向伊朗提出了这个问题。然而，该部门在一份声明中明确表示，它准备利用“适当的措施，包括制裁打击任何使伊朗能够持续向其合作伙伴和代理人提供武器的行为”。
-
-一位伊朗驻联合国代表团官员没有立即回复置评请求。
-
-美国国防官员表示，伊朗最大的军舰“哈格号”周三在阿曼湾靠近霍尔木兹海峡起火后沉没，官员认为伊朗决定推进这项任务，部分原因是为了挽回面子。与此同时，德黑兰南部国有通古扬石化公司的炼油厂又发生了另一起可疑的火灾。
-
-虽然火灾原因尚不清楚，但过去以色列一直涉嫌袭击伊朗的基础设施和军事目标。
-
-伊朗此前曾向加勒比海派遣油轮为委内瑞拉提供补给，这引发了美国政府的警告。2020年，美国不顾美国的制裁，没收了四批运往委内瑞拉的伊朗燃料。
-
-专家警告说，如果军舰继续沿着目前的轨道前进，美国将无法采取有效措施来阻止他们，因为这些船行驶在国际水域，目前还不清楚它们违反了任何法律。
-
-为追查病毒真相，找到为此次病毒危机承担责任的罪魁祸首，世界各国政府已经形成了一致针对中共国及其邪恶独裁伙伴的制裁同盟，中共国和这几个难兄难弟只能自己搭台自己唱戏，苟延残喘，垂死挣扎，然而这一切已经是徒劳。
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+**喜联盟Gnews编辑部**
 
 0
