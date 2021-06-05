@@ -1,26 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大象快讯】美国国会及行政当局中国委员会主席发表声明纪念六四事件32周年
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1298427/)
+## 【大象快讯】独家：中共高级叛逃者“直接了解”几个中国特种武器项目
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1298607/)
 
-2021年6月4日 （北京时间晚），美国国会及行政当局中国委员会（CECC）主席民主党参议员默克里（Jeff Merkley）和共同主席、民主党众议员麦戈文（James McGovern）星期四（6月3日）发表声明，纪念六四天安门事件32周年。
+詹妮弗·范拉尔于美国东部时间 2021 年 6 月 4 日发表独家文章：
 
-美国国会及行政当局中国委员会的声明全文如下：
+一位不愿透露姓名的情报界人士告诉 RedState，据说有史以来最高级别的叛逃者之一，他一直在与国防情报局 (DIA) 合作数月。这些消息人士称，这位逃离中共的高级官员直接了解中共的特殊武器计划，包括生物武器计划。提供给 RedState 的信息证实并澄清了记者 Adam Housley 周四晚上的报道。
 
-今天，我们向1989年春天聚集在北京和其他400多座城市街头呼吁民主、人权和结束腐败的所有人的勇气和牺牲致敬。对这些抗议活动的暴力镇压粉碎了对权利和改革的和平要求，并使美中关系继续复杂化直至今日。
+RedState 的消息来源说这部分是真的。他们说，联邦调查局局长克里斯托弗·雷被这些信息“埋伏”了，兰利也不知道。消息人士称，DIA 领导层将逃亡者者留在他们的秘密服务网络中，以防止兰利和国务院接触到此人，因为 DIA 领导层认为 FBI、CIA 和其他几个机构内部存在中共间谍或者消息泄露渠道。
 
-因为所有关于1989年抗议活动的讨论都继续受到审查，纪念活动也被禁止——甚至现在，在以前自治的香港也是如此——我们承诺每年纪念这一重要事件，直至每个中国人都能够自由且不受限制地纪念。我们与幸存的受害者家属站在一起，包括勇敢的天安门母亲，她们冒着巨大的个人风险，仍然在寻求真相和正义。
-
-流血事件发生32年后，中国政府继续残酷镇压中国人民行使基本自由的能力。国际社会必须团结一致，结束对良心犯的任意拘留和虐待，结束在新疆发生的种族灭绝，结束对西藏文化和数亿中国公民宗教自由的摧残以及通过国际条约，结束对香港人民自由的系统性破坏。
-
-天安门精神在中国依然存在，到处都聚集着热爱自由的人们。我们铭记这一悲惨的周年纪念日，并承诺为未来而努力，让天安门一代人的追求最终能够在中国和世界各地得以实现。
+联邦机构消息人士告诉 RedState，逃亡者已经在 DIA 工作了三个月，他向美国官员提供了广泛的、技术上详细的汇报。在DIA的评估中，逃亡者提供的信息是合法的。消息人士称，对逃亡者信息的信心，导致了对安东尼·福奇博士的突然信任危机，并补充说，美国陆军传染病医学研究所 (USAMRIID)向 DIA 提供详细信息的人员，已经证实了非常技术性的信息细节由逃亡者提供。
 
 参考链接：
 
-[https://www.voachinese.com/a/CECC-statement-on-32nd-anniversary-of-Tiananmen-protests-20210604/5916663.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/CECC-statement-on-32nd-anniversary-of-Tiananmen-protests-20210604/5916663.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+[https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238)
 
-图片来源：[https://www.voachinese.com/](https://www.voachinese.com/)
+图片来源：[https://redstate.com/](https://redstate.com/)
 
 整理撰稿：蓝精灵
 
@@ -28,4 +24,4 @@
 
 \*以上仅代表作者观点，不代表Gnews平台\*
 
-0
++1

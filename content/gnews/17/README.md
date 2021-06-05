@@ -1,35 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】福奇与比尔盖茨的邮件互动与线下合作
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1298475/)
+## 6月4日美国政要反共推特精选：纪念伟大的六四
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1298640/)
 
-KEITH GRIFFITH 2021 年 6 月 4 日在DAILYMAIL.COM发表文章揭示福奇和比尔盖茨之间的联系，新发布的电子邮件揭示了安东尼·福奇博士对与比尔·盖茨合作应对COVID-19大流行的热情，揭示了联邦政府与这位亿万富翁的密切合作。
+美国国务院： 今天，我们向1989年在天安门广场和平呼吁自由和民主却被暴力终止的勇敢的中国人民致敬。[#捍卫人权](https://twitter.com/hashtag/%E6%8D%8D%E5%8D%AB%E4%BA%BA%E6%9D%83?src=hashtag_click)[#StandUp4HumanRights](https://twitter.com/hashtag/StandUp4HumanRights?src=hashtag_click) 【附美国务院制作的纪念8964视频】Quote Tweet
 
-白宫最高医疗顾问福奇在与比尔和梅琳达盖茨基金会的一位高管的电子邮件交流中提到了 2020 年 4 月 1 日与盖茨的电话。福奇告诉盖茨基金会结核病和艾滋病毒项目主任埃米利奥·埃米尼 (Emilio Emini)：“正如我昨天晚上向比尔提到的那样，我热衷于对 COVID-19 采取协作和希望协同的方法迈进。”此次交流是反疫苗组织ICAN周五发布的 3,000 封电子邮件的一部分，该组织在媒体发布其他福奇电子邮件后几天通过公共记录请求获得了这些邮件。
 
-他们所展示的是盖茨与政府高级官员的不寻常的接触，包括美国国家过敏和感染疾病研究所（NIAID）所长福奇。通过慷慨的慈善支出，这位亿万富翁微软创始人已经确立了自己作为事实上的全球公共卫生权威的地位，尽管他既不是医生也不是科学家。盖茨基金会已承诺至少 17.5 亿美元用于全球抗击大流行的努力——这笔款项为政府最高层打开了大门。
 
-在福奇与盖茨通电话后，盖茨基金会执行官艾米尼给他发了电子邮件，询问“我们如何协调和交叉通报彼此的活动”。
+> Today, we honor the brave Chinese people whose peaceful calls for freedom and democracy came to a violent end in Tiananmen Square in 1989. [#StandUp4HumanRights](https://twitter.com/hashtag/StandUp4HumanRights?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/87wMYZIvAR](https://t.co/87wMYZIvAR)
+> — Department of State (@StateDept) [June 4, 2021](https://twitter.com/StateDept/status/1400693807100932096?ref_src=twsrc%5Etfw)
 
-Emini 写道：“各个主要资助者之间显然需要协调，否则我们需要关注的大流行状态将因不协调的活动而失去。”艾米尼还表达了对福奇的个人担忧，他写道：“我几乎每天都在电视上看到你，虽然你仍然精力充沛，但我真的很担心你。” 国家和世界绝对需要你的领导。 凌晨 2 点左右，福奇在一封电子邮件中热情地回应说，“鉴于我目前的情况，我会尽可能多地参与。”Fauci提议将 Emini 与他的两名高级助手联系起来，与生物医学高级研究与发展局 (BARDA) 建立联系，该局为疫苗和疗法的高级研究提供资金。
 
-盖茨基金会与 BARDA 的合作产生了至少一个联合资助项目。2020 年 6 月，Evidation Health 宣布 BARDA 和盖茨基金会正在资助一项“开发预警算法以检测 COVID-19 症状”的努力。目前还不清楚警告系统是否曾经启动过，在最初宣布后，Evidation 没有就该项目发表进一步的声明。周五发布的其他电子邮件清楚地表明，盖茨基金会仍然积极参与 NIH 的大流行应对工作
 
-4 月 21 日，NIH 主任 Francis Collins 博士写道：“我们的 ACTIV（加速 COVID-19 治疗干预和疫苗）工作组有盖茨代表。”ACTIV 工作组是一个公私合作伙伴关系，旨在制定协调的研究策略，以优先考虑和加速最有希望的 COVID 治疗方法和疫苗的开发。除了来自多个机构的政府官员外，工作组还包括来自学术界、慈善组织和众多生物制药公司的代表。
+参议员汤姆·科顿： 32年前的今天，世界看到了 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的真面目。 但透过镇压的黑暗和枪炮的硝烟，也有一个向往自由的民族的勇气和高贵。我们今天铭记那些勇敢的灵魂，并敬重他们的牺牲。
 
-福奇与盖茨的交流曝光之际，这位四面楚歌的白宫顾问面临着关于他对大流行起源的立场的严峻质疑。福奇长期以来一直坚持认为，该病毒很可能会从动物自然传播给人类，并排除了武汉病毒研究所发生事故的可能性。但之前发布的电子邮件显示，他很早就被警告说实验室泄漏可能是真正的来源，并且随着最近几周积累的证据改变了他的立场。
 
-参考链接：
 
-[https://www.dailymail.co.uk/news/article-9652981/Dr-Fauci-told-Bill-Gates-phone-call-enthusiastic-teaming-up.html?ito=social-twitter\_dailymailus](https://www.dailymail.co.uk/news/article-9652981/Dr-Fauci-told-Bill-Gates-phone-call-enthusiastic-teaming-up.html?ito=social-twitter_dailymailus)
+> 32 years ago today, the world saw the true face of the Chinese Communist Party. But through the darkness of repression and smoke of gunfire, there was also the courage and nobility of a people that dream of freedom. We remember those brave souls today and honor their sacrifice.
+> — Tom Cotton (@SenTomCotton) [June 4, 2021](https://twitter.com/SenTomCotton/status/1400865910404042752?ref_src=twsrc%5Etfw)
 
-图片来源：[https://www.dailymail.co.uk/](https://www.dailymail.co.uk/)
 
-整理撰稿：蓝精灵
 
-校对发布：Penny
+众议院外交委员会共和党领袖： 麦考尔[@RepMcCaul](https://twitter.com/RepMcCaul)：“32 年前， [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 在天安门屠杀了数千名倡导基本权利的勇敢、和平的公民。那天遭受苦难的人们活在我们的记忆中。我们继续为中华人民共和国和香港的那些仍然在等待基本人权的人民而战.”
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+
+
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw): "32 years ago the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) massacred thousands of brave, peaceful citizens advocating for basic rights in [#TiananmenSquare](https://twitter.com/hashtag/TiananmenSquare?src=hash&amp;ref_src=twsrc%5Etfw). Those who suffered that day live on in our memory. We continue the fight for those in the PRC & Hong Kong who still wait for basic human rights."
+> — House Foreign Affairs GOP (@HouseForeignGOP) [June 4, 2021](https://twitter.com/HouseForeignGOP/status/1400850118660833284?ref_src=twsrc%5Etfw)
+
+
+
+蓬佩奥（前国务卿）： 32年前，天安门广场发生了一场悲剧，凸显了热爱自由的中国人民与北京暴政之间的对比。 今天，我们纪念天安门的英雄们。
+
+
+
+> 32 years ago, a tragedy occurred in Tiananmen Square that highlighted the contrast between the freedom-loving Chinese people and the tyranny of the regime in Beijing. 
+> 
+> Today, we commemorate the heroes of Tiananmen. [pic.twitter.com/59C8PuO6Jb](https://t.co/59C8PuO6Jb)
+> — Mike Pompeo (@mikepompeo) [June 4, 2021](https://twitter.com/mikepompeo/status/1400853918142320646?ref_src=twsrc%5Etfw)
+
+
+
+
 
 0

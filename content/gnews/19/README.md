@@ -1,67 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国允许夫妇生三胎
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1298425/)
+## 【鹰眼墙国】易地搬迁资金利用存疑
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1298579/)
 
-新闻来源：《香港自由新闻》Hong Kong Free Press| 作者：法新社 AFP| 发布时间：2021年5月31日
-
-翻译/简评：文明明|校对：小小妹|审核：Beicy-数学老师|Page：小雨
-
-[!\[\]()!\[\](https://spark.adobe.com/page/sWvTKGgSfhOio/images/c2c4aa88-4184-4828-a9bc-392b276f3c20.jpg?asset_id=edca8335-5874-4509-a7d0-c6d3c6cda9cb&amp;img_etag=%2249ecd20a2465ba0211905bb0b6d1237f%22&amp;size=2560)](https://spark.adobe.com/page/sWvTKGgSfhOio/images/c2c4aa88-4184-4828-a9bc-392b276f3c20.jpg?asset_id=edca8335-5874-4509-a7d0-c6d3c6cda9cb&amp;img_etag=%2249ecd20a2465ba0211905bb0b6d1237f%22&amp;size=1024)
-
-**简评：**
-
-5月31日，中共中央政治局召开会议，听取“十四五”时期积极应对人口老龄化重大政策举措汇报，审议了《关于优化生育政策促进人口长期均衡发展的决定》。习近平还在会上说：“为了积极应对人口老龄化……一对夫妇可以有三个孩子”。自此，中共彻底放开了实行了近四十年的计划生育政策。
-
-中共用这么大的阵仗来谈生育政策，并非像他们说的那样“事关国家发展和民生福祉”，而是说明中共国的人口老龄化问题和出生率下降问题已经严重威胁到了中共的统治，中共已预计到人口危机将会影响到它的政治和经济的发展。
-
-专家预计，由于人口老龄化迅速增长，以目前的生育率来看，到2050年，三分之一的中国人将成为老年人，劳动力短缺不仅会影响经济发展，也无法承担起数以亿计的老年人的养老。而且，传统的重男轻女的思想使得中国的男女比例严重失调，在今后的10年里，适龄的结婚和生育的妇女将减少30%，在生活的重压下，许多有能力、受过良好教育的妇女宁愿选择单身或丁克家庭。这又给已经在急剧下降的生育率雪上加霜。中共将自食四十年丧尽天良的计划生育政策所带来的苦果。
-
-**原文翻译：**
-
-# **官媒：中共国允许夫妇生三胎**
-
-据中共官媒周一报道，由于这次人口普查显示出人口迅速老龄化，中共国已经开始放宽了计划生育政策，允许夫妇生育三个孩子，使这个世界上人口最多的国家四十年来对出生率的严厉管控得到缓解。
-
-近40年来，中共国坚决执行了备受争议的“独生子女政策”，这是全世界最严厉的计划生育法规之一。由于考虑到劳动力老龄化和经济停滞的普遍现象，该政策在2016年被放宽为“二胎政策”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/sWvTKGgSfhOio/images/9af0e4d4-41c5-4f45-846e-7aae8018cc48.jpg?asset_id=59d7b1f6-f4ff-4cd6-9994-74b7d6462919&amp;img_etag=%222aabe494e18cb84a5b3bb968b8fff249%22&amp;size=2560)](https://spark.adobe.com/page/sWvTKGgSfhOio/images/9af0e4d4-41c5-4f45-846e-7aae8018cc48.jpg?asset_id=59d7b1f6-f4ff-4cd6-9994-74b7d6462919&amp;img_etag=%222aabe494e18cb84a5b3bb968b8fff249%22&amp;size=1024)近40年来，中共国坚决执行了备受争议的“独生子女政策”，这是全世界最严厉的计划生育法规之一。由于考虑到劳动力老龄化和经济停滞的普遍现象，该政策在2016年被放宽为“二胎政策”。
+香草山写作组  鹰(文言)
 
 
-国家统计局上个月表示，尽管政府积极鼓励夫妇多生孩子，但中共国的年出生人数仍继续急剧下降，2020年达到了仅1200万人的历史最低水平。
 
-低出生率带来的人口危机惊动了以习近平为首的共产党。有专家预计到2050年，短缺的年轻劳动力不仅要支撑经济发展，还不得不供养数以亿计的老年人。
-
-新华社援引了习近平在周一主持的中共中央政治局会议上说的：“为了积极应对人口老龄化……一对夫妇可以有三个孩子”。
-
-据国家统计局透露，中共国的生育率为1.3，低于维持人口稳定所需的正常水平。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/sWvTKGgSfhOio/images/7385dde3-ca6d-444f-b6fe-61c86b7c13be.jpg?asset_id=3faf742e-8132-47ad-8968-ce8ae622f23b&amp;img_etag=%225b2770bd9a0b58dfdcbdbb88e53c9bc5%22&amp;size=2560)](https://spark.adobe.com/page/sWvTKGgSfhOio/images/7385dde3-ca6d-444f-b6fe-61c86b7c13be.jpg?asset_id=3faf742e-8132-47ad-8968-ce8ae622f23b&amp;img_etag=%225b2770bd9a0b58dfdcbdbb88e53c9bc5%22&amp;size=1024)习近平。 图片来源：世界经济论坛/Flickr网络相簿
-
-上个月公布的十年一次的2020年人口普查结果还显示，中共国的人口增长速度是自上世纪60年代以来最慢的，将近14.1亿。
-
-这与劳动力人口的急剧下降同时发生，进一步引发了人们对人口危机的担忧。
-
-由于几十年来的“独生子女”政策和传统的社会对男孩的偏爱，使得这一代人往往有选择性地堕胎和遗弃女婴，因此，中共国的男女性别比例也严重失衡。
-
-尽管在过去几年里，这一政策有所松动，但是，并没有像政策制定者所希望的那样促使婴儿潮的到来。
-
-近年来，结婚率的下降也是导致了出生率的下降的原因之一。生活成本的上升，以及越来越多有能力和受过教育的妇女推迟生育，或者不生。
-
-人口变化对中共国这个世界第二大经济体的经济和政治极具影响。
-
-预计到2050年，三分之一的中国人将成为老年人，将给国家的养老金和医保带来巨大压力。
-
-🔗[原文链接](https://hongkongfp.com/2021/05/31/china-allows-couples-to-have-three-children-state-media/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】Edited by：【Himalaya London Club UK】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sWvTKGgSfhOio/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/sWvTKGgSfhOio/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+环球网6月4日转载央视网消息，中共发改委称“十三五”期间完成960余万易地搬迁任务并实现脱贫目标，已有378万搬迁群众就业。
+
+根据中共发改委数据，2001年至2015年，中共累积发放中央补助资金363亿元以用于680余万地方群众的易地搬迁工作；“十二五”期间，共下达中央预算补助投资231亿元，全国各类投资累积800亿元用于394万群众的搬迁工作；“十三五”中央补助资金800亿元，全国各类资金6000亿元用于960多万建档立卡贫困群众的搬迁。也就是说，2001到2010年搬迁286万余人花费了中央补助资金约132亿元。2010-2015年虽然搬迁任务量增长约37.7%，但资金规模增幅达75%；而2016-2-20年搬迁960万（是“十二五”搬迁群众数量的约2.43倍），而投入中央资金规模却是十二五期间的3.46倍。资金的“利用率”呈显著降低的趋势。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04211114/Screen-Shot-2021-06-04-at-9.10.57-PM.png)
+参考中共统计局数据，2015年GDP为67.67万亿元；2020年GDP为101.60万亿元，较2015年涨幅约50%，2015年农村居民人均可支配收入11422元；2020年对应为17131元，涨幅约49.98%。农村人均收入和GDP增长幅度近乎持平，然而搬迁群众的人均“耗资”却从“十二五”的800亿/394万，约20304元/人增至62500元/人，涨幅达300%。也就是说，经济发展和人均收入“稳步”增长的前提下，个人“搬迁费用”却翻了3倍。对照2020年5月份李克强声称的“6亿人月薪不足1000元”的现状，可见易地搬迁的“脱贫”行动遍布中饱私囊和瞒报侵占现象。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04211128/Screen-Shot-2021-06-04-at-9.10.53-PM.png)
+再者，全国易地扶贫搬迁建档立卡贫困户人均纯收入从2016年的4221元提至2019年的9313元，虽有提高但依旧远低于2019年农村居民可支配收入16021元的平均水平。参考2020年农村居民人均消费支出13713元（2019年对应为13328元），9313元的纯收入依旧无法满足正常开支。上述960万搬迁群众中，378万人实现就业，即平均每2.53人中1人已就业。也就是说，迁入新居并至少1人就业的搬迁家庭依旧是“入不敷出”，而这种结果却被中共恬不知耻的称作“全面脱贫”。搬迁过程中的人均“耗费”存疑，搬迁家庭“收不抵支”的现状，不但打脸中共“脱贫”谎言，更揭露了中共官僚体制的以权谋私和搜刮民财现状。
+
+新闻来源：
+
+国家发改委：有劳动力的易地搬迁家庭实现至少1人就业 已有378万搬迁群众就业https://china.huanqiu.com/article/43OdK7B1iBs
+
+中国的易地扶贫搬迁政策https://www.ndrc.gov.cn/fzggw/jgsj/dqs/sjdt/201803/t20180330\_1050716.html
+
+“十三五”易地扶贫搬迁任务全面完成https://finance.sina.com.cn/tech/2020-12-04/doc-iiznezxs5086250.shtml
+
+近千万人易地扶贫搬迁任务全面完成https://finance.sina.com.cn/tech/2021-01-29/doc-ikftpnny2595629.shtml
+
+国家发改委：“十三五”将加大易地扶贫搬迁资金支持http://www.xinhuanet.com/politics/2015-11/12/c\_128419767.htm
+
+统计局：2020年农村居民人均消费支出13713元 实际下降0.1%https://finance.sina.com.cn/china/gncj/2021-01-18/doc-ikftpnnx8725841.shtml
+
+![This image has an empty alt attribute; its file name is 6_june.jpg]()![This image has an empty alt attribute; its file name is 6_june.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
 
 0
