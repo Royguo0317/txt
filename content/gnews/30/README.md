@@ -1,37 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 摇摆州2020大选审计动态
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1298645/)
+## 新中国联邦一周年感悟
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1298723/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：喜马拉雅新西兰奥克兰伊甸农场—醒觉觉醒
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04220126/image2.jpg)
+2021年6月4日，为新中国联邦庆祝一周年生日的心情激动得难以言表，玫瑰姐姐要求一篇文章，在下只能以拙劣的文字功底，作为千万分之一个普通战友的角度发表一下感言，也好为以后做份留念。
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04213804/A-1.jpg)whowhatwhy.org
-亚利桑那州手工重新计票完成了67%，即已经完成140 万张的清点【1】；佐治亚州的法庭审计有望进行，据班农先生说，尽管该州的共和党建制派尽最大努力阻止这一进程，但法庭审计必须进行。班农先生乐观地估计，在全面法庭审计完成后，三个共和党参议院的席位将回归【2】；宾夕法尼亚州参议院代表团现场考察了亚利桑那州的法庭审计工作后表示，如果我们在宾夕法尼亚州进行法庭审计，这就是样板【3】。
+6月4日，32年前的今天在北京是悲壮的一天，一群为了祖国的繁荣昌盛而乞求中国共产党改革的学生与市民聚集了，他们来自全国各地，他们来自各行各业，他们手无寸铁。他们最终看见了欺骗，残暴与绝望，被中国人民解放军残酷的屠杀了。
 
-川普总统6月4日发表声明，敦促宾夕法尼亚州参议院进行法庭审计【4】；威斯康星州的法庭审计困难重重，虽然3月下旬州议会授权调查的决议以58票对35票获得通过后【5】，一直没有实际上的进展，截止上周，审计变成了州议长“雇佣三名退休警察来检查选举的完整性？……但不会启动法庭审计【6】。
+32年后的今天，一群为了祖国能够走向法治，民主，自由的人们因为郭文贵先生发起的爆料革命相聚了，他们来自世界各地，他们来自社会各个阶层，他们秉持着为真不破，正道主义原则。他们看见了真诚，力量与希望，被全球正义的人们所支持。
 
-新罕布什尔州的重新审计在几轮折腾后最终得以通过，但由于三位审计员中，两位与民主党有瓜葛，人们并不看好，称“审计在开始之前就结束了——三位审计员中有两位与民主党国会大佬佩洛西和舒默有利益关系”。【7】
+回顾2020年，一月份路德社就爆出武汉病毒Covid 19（CCP病毒），彼时大众仍关心着中美贸易，WHO仍与中共狼狈为奸的发出误导大众的信息，导致病毒肆虐全球。当世界各国为了稳定各自的由于CCP病毒蔓延带来的恶果时，中共6月底发布实施了香港国安法，剥去了香港名存实亡的一国两制的最后一块遮羞布，西方各国均表现为雷声大雨点小地谴责和制裁，并无实质有效的行动。2020美国大选，中共从中作梗操纵了选情，如此大的舞弊似乎悄无声息地过去了。疫苗经济在中共的刻意引导下，中共送出大量疫苗到欠发达国家，结合着某些邪恶力量，疫苗经济在世界各国大行其道，追究病毒起源的声音即便在西方自由的社会下也被视为谣言，探究疫苗的安全有效性也被视为谣言，仿佛一切都按照了中共的计划有条不紊地进行着。
 
-密歇根州没有传出要进行法庭审计的消息。
+然而，这一切皆为表面现象。随着福奇的暴露，科学界愿意站出来支持闫丽梦博士关于CCP病毒观点的人越来越多。在中共的战狼外交下，愿意与中共达成协议的国家越来越少，从亚洲小北约美日印澳联盟的建立，北约对新疆人权问题的谴责以及军事上在中国南海的布局，甚至连“洋爹”俄罗斯近日也宣布不会与中共存在联盟关系，中共俨然成了孤家寡人，只能叫嚣着与伊朗，朝鲜等独裁国家为伍。郭先生打造的中国人诺亚方舟G系列虽然遭受中共的猛烈打压，却依然以前所未有的速度增长着，吸收着从墙内百姓流出的巨量资金。新中国联邦得到了世界文明社会的一致认可，世界能认识到病毒真相，能认清共产党的真面目，能有如此转向，离不开新中国联邦人每日日拱一卒的灭共行动的坚持。
 
-以上各州的选举人票为：亚利桑那州11票、佐治亚州16票、宾夕法尼亚州20票、威斯康星州10票、新罕布什尔州4票、密歇根州16票。川普总统目前为232票，需要38票的翻转。
+从三十年多前的一个懵懂无知的幼童，到现在相信着参与这一切不枉此生；从三年多前因为好奇而追随，到现在坚定不移的信仰；从一年前第一次上街发声的忐忑，到现在相聚庆贺的自信；作为一个新中国联邦人，我没有什么贡献，只能转转推，游行帮帮忙呐喊仅此而已，只是希望每天做的都是能够加一根灭共稻草，让国内的亲人朋友们尽早地醒悟，看清中国共产党的邪恶，把自己解救出来，成为我们的一员，尽早地消灭这个人类的共同恶魔—-中国共产党。
 
-参考链接：
+最后祝新中国联邦生日快乐
 
-【1】[https://www.thegatewaypundit.com/2021/06/huge-arizona-audit-begins-finish-hand-recount-67-1-4-million-completed/](https://www.thegatewaypundit.com/2021/06/huge-arizona-audit-begins-finish-hand-recount-67-1-4-million-completed/)
 
-【2】[https://www.thegatewaypundit.com/2021/06/steve-bannon-georgia-will-hold-forensic-audit-three-republican-senate-seats-coming-back-full-forensic-audit-completed-video/](https://www.thegatewaypundit.com/2021/06/steve-bannon-georgia-will-hold-forensic-audit-three-republican-senate-seats-coming-back-full-forensic-audit-completed-video/)
 
-【3】[https://www.thegatewaypundit.com/2021/06/audit-pa-model-pennsylvania-senator-doug-mastriano-speaks-arizona-audit-tour-video/](https://www.thegatewaypundit.com/2021/06/audit-pa-model-pennsylvania-senator-doug-mastriano-speaks-arizona-audit-tour-video/)
-
-【4】[https://www.donaldjtrump.com/news/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-06.04.21-02](https://www.donaldjtrump.com/news/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-06.04.21-02)
-
-【5】[https://gnews.org/zh-hans/1014742/](https://gnews.org/zh-hans/1014742/)
-
-【6】[https://www.thegatewaypundit.com/2021/05/skunk-wisconsin-speaker-robin-vos-hires-three-retired-cops-look-election-integrity-wont-launch-forensic-audit-despite-late-night-ballot-dump/](https://www.thegatewaypundit.com/2021/05/skunk-wisconsin-speaker-robin-vos-hires-three-retired-cops-look-election-integrity-wont-launch-forensic-audit-despite-late-night-ballot-dump/)
-
-【7】[https://www.thegatewaypundit.com/2021/05/breaking-exclusive-windham-new-hampshire-2020-election-audit-started-two-three-auditors-conflicts-pelosi-schumer/](https://www.thegatewaypundit.com/2021/05/breaking-exclusive-windham-new-hampshire-2020-election-audit-started-two-three-auditors-conflicts-pelosi-schumer/)
+审核校对：玫瑰天空
+上传排版：糊糊文婴
 
 0

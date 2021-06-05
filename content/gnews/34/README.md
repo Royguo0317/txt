@@ -1,55 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】易地搬迁资金利用存疑
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1298579/)
+## 《路德时评》重磅解读众多美政治家出席新中国联邦周年庆，及英主流媒体再次报道闫博士
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1298668/)
 
-香草山写作组  鹰(文言)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+直播视频：
 
 
 
-环球网6月4日转载央视网消息，中共发改委称“十三五”期间完成960余万易地搬迁任务并实现脱贫目标，已有378万搬迁群众就业。
+《路德时评》2021年6月4日早间节目主要内容：
 
-根据中共发改委数据，2001年至2015年，中共累积发放中央补助资金363亿元以用于680余万地方群众的易地搬迁工作；“十二五”期间，共下达中央预算补助投资231亿元，全国各类投资累积800亿元用于394万群众的搬迁工作；“十三五”中央补助资金800亿元，全国各类资金6000亿元用于960多万建档立卡贫困群众的搬迁。也就是说，2001到2010年搬迁286万余人花费了中央补助资金约132亿元。2010-2015年虽然搬迁任务量增长约37.7%，但资金规模增幅达75%；而2016-2-20年搬迁960万（是“十二五”搬迁群众数量的约2.43倍），而投入中央资金规模却是十二五期间的3.46倍。资金的“利用率”呈显著降低的趋势。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04211114/Screen-Shot-2021-06-04-at-9.10.57-PM.png)
-参考中共统计局数据，2015年GDP为67.67万亿元；2020年GDP为101.60万亿元，较2015年涨幅约50%，2015年农村居民人均可支配收入11422元；2020年对应为17131元，涨幅约49.98%。农村人均收入和GDP增长幅度近乎持平，然而搬迁群众的人均“耗资”却从“十二五”的800亿/394万，约20304元/人增至62500元/人，涨幅达300%。也就是说，经济发展和人均收入“稳步”增长的前提下，个人“搬迁费用”却翻了3倍。对照2020年5月份李克强声称的“6亿人月薪不足1000元”的现状，可见易地搬迁的“脱贫”行动遍布中饱私囊和瞒报侵占现象。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04211128/Screen-Shot-2021-06-04-at-9.10.53-PM.png)
-再者，全国易地扶贫搬迁建档立卡贫困户人均纯收入从2016年的4221元提至2019年的9313元，虽有提高但依旧远低于2019年农村居民可支配收入16021元的平均水平。参考2020年农村居民人均消费支出13713元（2019年对应为13328元），9313元的纯收入依旧无法满足正常开支。上述960万搬迁群众中，378万人实现就业，即平均每2.53人中1人已就业。也就是说，迁入新居并至少1人就业的搬迁家庭依旧是“入不敷出”，而这种结果却被中共恬不知耻的称作“全面脱贫”。搬迁过程中的人均“耗费”存疑，搬迁家庭“收不抵支”的现状，不但打脸中共“脱贫”谎言，更揭露了中共官僚体制的以权谋私和搜刮民财现状。
+一、众多美政治家出席新中国联邦周年庆
 
-新闻来源：
+6月4日是新中国联邦成立一周年的日子，新中国联邦隆重举行了一周年庆典，班农先生、朱利安尼先生、弗林将军等多位美国政要出席新中国联邦成立一周年庆典。同时，这一天也是纪念“八九·六四”北京学生运动的日子，1989年，无数中国年轻人聚集在天安门为中国实现民主与自由而呐喊，最终遭到中共武装镇压，死伤无数。
 
-国家发改委：有劳动力的易地搬迁家庭实现至少1人就业 已有378万搬迁群众就业https://china.huanqiu.com/article/43OdK7B1iBs
+路德社评论：
 
-中国的易地扶贫搬迁政策https://www.ndrc.gov.cn/fzggw/jgsj/dqs/sjdt/201803/t20180330\_1050716.html
+1、“六四精神”就是呼吁全民参与，每个人都要站出来的精神；其次就是要传承“日拱一族”的精神，不抛弃不放弃，简单的事情重复做，重复的事情用心做，这样就一定能成功，这也是中共最恐惧的。
 
-“十三五”易地扶贫搬迁任务全面完成https://finance.sina.com.cn/tech/2020-12-04/doc-iiznezxs5086250.shtml
+2、新中国联邦成立这一周年已经取得了巨大飞跃，得到了世界正义力量的认同。虽然川普总统没有顺利连任，但是蓬佩奥国务卿卸任前直接宣布中共在新疆犯下种族灭绝罪和反人类罪，以及川普总统助理纳瓦罗先生仍在孜孜不倦地推动中共病毒真相，再加上闫博士的三篇病毒报告，这些已经让人感受到灭共的推进速度如此之快。
 
-近千万人易地扶贫搬迁任务全面完成https://finance.sina.com.cn/tech/2021-01-29/doc-ikftpnny2595629.shtml
+3、多位美国政要出席了新中国联邦成立一周年庆典，朱利安尼先生曾被英女王授勋，还是2001年度《时代周刊》的封面人物，班农先生是前总统顾问，弗林将军曾是美国军队高级将领。Sellin上校、比尔·格茨、班农先生、弗林将军等多位政要就是看到新中国联邦人坚持正义，坚定灭共的决心，并且还经受住了各种质疑和反对，才认可新中国联邦。
 
-国家发改委：“十三五”将加大易地扶贫搬迁资金支持http://www.xinhuanet.com/politics/2015-11/12/c\_128419767.htm
+4、这些美国政要参加新中国联邦庆典支持新中国联邦，他们也需要我们为他们站台，因为真相来自于新中国联邦，现在，美国了解中共邪恶真相的第一手资料就来自爆料革命新中国联邦。他们已经意识到原本自由和正义的美国正在沉默，所有爆料革命战友都站在世界最前排。“六四庆典”之前，中共病毒实验室来源已经成为美国主流声音，福奇的八百封邮件验证他与中共勾结来隐瞒病毒真相，这一切都来自中共病毒真相，这些正义人士必须要为自由而战，他们很清楚只要揭露中共病毒真相，中共必亡。
 
-统计局：2020年农村居民人均消费支出13713元 实际下降0.1%https://finance.sina.com.cn/china/gncj/2021-01-18/doc-ikftpnnx8725841.shtml
+5、美国从上世纪79年至今，已经给中共国四十多年时间，他们彻底看清中共的邪恶本质，中共体制已无转变的可能，也对中共彻底失去了耐心。共和党核心力量仍在推动灭共，虽然川普总统没有连任，但他仍有八千多万支持者，共和党仍掌控美国三十个州，在参众两院占有半壁江山，况且共和党在军情界的影响力远大过民主党，历史上艾森豪威尔将军和里根总统等共和党人士在消灭共产主义体制上都做出巨大贡献。
 
-![This image has an empty alt attribute; its file name is 6_june.jpg]()![This image has an empty alt attribute; its file name is 6_june.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+6、新中国联邦强调每个个体都要发挥各自领域的光和热，这和中共体制完全不同，习神号称自己单肩能挑二百斤重物（畜生就是如此），阅读过无数本名著，他自以为什么都专业，这就是中共体系的毒瘤，只要是领导就自以为干什么都专业，最终的结果就是外行领导内行。爆料革命推动的“缺你不可”就是“你的领域你做主”，每个个体都要在各自擅长的领域发挥主观能动性，所谓的联邦就是每个个体的联合。
 
-编辑/校对/发稿：正义的小新
+7、在中共国，只要被套上英雄的光环就必须是完美的，不允许有任何瑕疵，反观美国，无论你是否是英雄，是否身居高位，在法律面前人人平等。因为大家都是普通人，只是每个人特长有所不同。中共病毒疫情之前，闫博士此前通过爆料革命看清了中共邪恶本性，她在香港亲眼看见了中共的恐怖统治，但是她当时认为自己只是一个病毒学家，在揭露中共邪恶上无所作为，现在看来，闫博士为人类做出了巨大贡献，最核心的就是勇气和坚持。
 
-**更多资讯，更多关注**
+8、中国人还有一个大毛病就是喜欢建功立业，这导致中国人从小就喜欢追逐名利，总想在家谱上留下重要一笔。西方社会所推崇的就和中国文化不同，圣经中的耶稣就出身在马槽，一生没有任何官职，甚至被犹太人打成异类，但耶稣影响了整个世界，这和中国所推崇的成功大相径庭。西方历史是通过老百姓个体记录下的历史，个体的伟大最后成就了现代文明，中国自古以来只记载所谓王侯将相的英雄事迹，非常强调帝王文化，而非平民文化。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+9、中共“完美地”融合了西方共产主义的邪恶与中华文民的糟粕，并剔除了所有应该传扬的优点，所以中共成为有史以来最邪恶的体制。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+二、英主流媒体《每日邮报》再次报道闫博士
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+6月4日，川普总统现任顾问Jason Miller发推说，第一位揭露病毒来自武汉实验室的中国病毒学家说福奇邮件验证了她的一直以来的观点——中共病毒就是超限生物武器，以及福奇与医学专家的科学误导。Miller还附上英国最具影响力的媒体Dailymail新闻网对闫博士揭露病毒真相的报道。
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+> Chinese virologist who was among first to tout Wuhan lab theory says Fauci's emails back-up what she's been saying all along – the coronavirus is 'an unrestricted bioweapon' – and blasts Fauci and medical experts for cover-up [https://t.co/cV4H92a4CL](https://t.co/cV4H92a4CL) via [@MailOnline](https://twitter.com/MailOnline?ref_src=twsrc%5Etfw)
+> — Jason Miller (@JasonMillerinDC) [June 4, 2021](https://twitter.com/JasonMillerinDC/status/1400642231258779649?ref_src=twsrc%5Etfw)
 
-0
+
+
+路德社评论：
+
+1、川普总统顾问Miller称闫博士是揭露中共病毒真相第一人，英国极具影响力的新闻网Dailymail也报道闫博士是最早揭露中共病毒真相的病毒学家，福奇的邮件验证闫博士的爆料完全正确。
+
+2、俄国官媒MK（类似于中共国新华网）也开始正面报道闫博士，说闫博士称中共病毒就是生物武器。这些媒体此时报道闫博士揭露中共病毒真相的新闻，似乎是在给新中国联邦献礼。
+
+
+
+> 俄罗斯官媒Московский Комсомолец，简称MK, 正面报道闫丽梦博士，说"中国病毒学家称冠状病毒是生物武器"
+> 
+> Московский Комсомолец [@mkomsomolets](https://twitter.com/mkomsomolets?ref_src=twsrc%5Etfw), Московская правда [@Mos\_pravda](https://twitter.com/Mos_pravda?ref_src=twsrc%5Etfw), Известия [@izvestia\_ru](https://twitter.com/izvestia_ru?ref_src=twsrc%5Etfw), Аргументы и Факты [@aifonline](https://twitter.com/aifonline?ref_src=twsrc%5Etfw), 都是标准的俄罗斯半官方官媒(官方是塔斯社 [@tass\_agency](https://twitter.com/tass_agency?ref_src=twsrc%5Etfw)) [https://t.co/NbAdZkjLuf](https://t.co/NbAdZkjLuf)
+> — Xi Jin Pig🐷🐷🐷🐷🐷 (@KoronaKitaya) [June 4, 2021](https://twitter.com/KoronaKitaya/status/1400730977220005892?ref_src=twsrc%5Etfw)
+
+
+
+3、Selllin上校也发推提名闫丽梦博士获得诺贝尔和平奖，她揭露中共病毒来源于实验室和病毒就是生物武器的勇气阻止中共未来再次给全球带来灾难。可见，Sellin博士作为美国军情界上校完全认可了闫博士揭露的中共病毒真相，这就是日拱一族的力量，爆料革命推动灭共最重要的就是唯真不破，用事实真相积累信任。
+
+
+
+> I nominate Dr. Li-Meng YAN [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) for the Nobel Peace Prize. Her courage in exposing the laboratory origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) and its creation as a bioweapon will prevent a future global disaster perpetrated by the Chinese Communist Party.[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/T7oYkfSeCf](https://t.co/T7oYkfSeCf)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 4, 2021](https://twitter.com/LawrenceSellin/status/1400656981296353290?ref_src=twsrc%5Etfw)
+
+
+
+4、当闫博士通过路德社“119节目”揭露中共病毒真相后，美国日拱一族不断推进向全世界传递病毒真相。Sellin上校本身具备生物学背景和反恐背景，上校军衔已经是美国生物战领域最高级别将领，要获得美国上校军衔非常艰难，这需要积累无数军功。美国军方所推行的军衔制非常严格，军衔制的好处就是即使在混乱的战场上，军衔较低的美国军人一定得服从军衔高的军人，反观中共国，只要有关系有钱就能当上军队将领，中共给文艺兵少将军衔纯粹是胡扯，这些文艺兵完全不具备战场指挥能力。
+
+5、美国军人体系有极强的实战能力，这些美国将领每年都需要参加体能测试和专业技能测试，即使是退役军官也是如此，所以退役军官仍然具备实战能力。中共军队就是党卫军，军队体制就是劣币驱逐良币，不看重实战能力，具备文艺技能居然能成为军队将领，甚至连中共军委副主席的实战能力都远不如美国上校，这种集中力量办大事的独裁体制培养出来的将领只会在前线唱《小背篓》，或者比喝茅台的能力，比叠豆腐块，比踢正步，比拍领导马屁的能力……大量军费都被中共将领贪污，几乎用不到一线实战，所以中共军队根本就不具备实战能力，军队纯粹就是为维稳而存在，吓唬吓唬国内老百姓，这就是中共党卫军的荒谬。
+
+[点击观看往期《路德时评》节目总结文章](点击观看往期《路德时评》节目总结文章)
+
+文章撰写：【重生】  编辑：【香柏树】
+
+本文仅代表作者个人观点
+
++4

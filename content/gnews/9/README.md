@@ -1,31 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 安东尼-福奇无视物理学家声称羟氯喹可帮助对抗冠状病毒的电子邮件
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1298954/)
+## 【大象快讯】记者发现达扎克在他的豪宅外面 但拒绝回答任何问题
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1299004/)
 
-翻译:康州盘古农场 – Mike Li
-校对:康州盘古农场 – 郭班之樱
-编辑:康州盘古农场 – 傻小子
+2021 年 6 月 4 日JOSH BOSWELL和MARTIN GOULD 在纽约罗克兰县给 DAILYMAIL.COM写文章报道发现达扎克行踪：
 
-据《BREITBART》作者：Jacob Bliss，2021年6月2日报道
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04232855/2021-6-4-001-4.jpg)
-尼尔森在电子邮件中说，他已指示他的家庭成员购买“Alvesco（环索奈德），仅供紧急使用”。他称他“在日本、中国和韩国一线的同事发现了几篇预印本论文，提及到对晚期COVID-19患者的有效治疗办法”。
+周五，人们发现彼得·达扎克 (Peter Daszak) 博士在他位于纽约北部价值数百万美元的家外，就在《每日邮报》了解到他“无视”国会要求回答有关其慈善机构为武汉病毒学研究所提供资金的问题时。Daszak 被指控使用“暴行和恐吓”来驳斥一种理论，即Covid-19来自他的慈善机构生态健康联盟的中国实验室，该实验室与美国政府合作并帮助提供了支持。
 
-这位物理学家继续说：“一些使用呼吸机、接近死亡的病人在使用环索奈德治疗后已经完全康复，他指出”环索奈德的颗粒比其他皮质类固醇小得多，因此它能更深入地进入肺部和肺泡。”
+4 月，众议院能源和商务委员会向他发送了 34 个关于他参与实验室的问题。一位与委员会关系密切的消息人士告诉DailyMail.com，尽管截止日期是 5 月 17 日，但 Daszak 未能做出回应。问题是关于他的慈善事业健康联盟向中国武汉病毒学研究所 (WIV) 提供的联邦资金，以及这家美国非营利组织与中国实验室所做的工作。
 
-尼尔森声称有可能使用了第二种药物，他也建议了他的家人去购买这种药物。他给福奇写了信，他写到，这种药物“是叫羟氯喹，似乎也是有效和安全的”。
+去年收入超过 410,000 美元的 Daszak 与他的免疫学家妻子 Janet Cottingham 住在曼哈顿西北 30 英里的纽约罗克兰县一个富裕小镇的一套五床五卫的房子里。他们在 2015 年以 665,000 美元的低价买下了这栋占地两英亩的房子。现在估计价值约 100 万美元。
 
-然而，他指出，“阿维菌素更好，因为它似乎可以防止病毒复制，所以感染被消灭了，不再具有传染性。阿维菌素似乎是解决新冠病毒直接而毫不费力的办法”。
+其他科学家签署给一家著名医学杂志的一封信的指控，该杂志将 Covid-19 的责任归咎于武汉病毒研究所，而且他与实验室的关系导致了这样的冲突。有趣的是，人们认为他永远不应该坐在两个调查 Covid-19 原因的小组中，他告诉 DailyMail.com 的记者：“你现在需要把你的车从我们的车道上移开，离开这个地区，永远不要回来。“再见，我没有意见，”他补充道。几分钟后，他穿着蓝色 Polo 衫、短裤和凉鞋，走到俯瞰拉马波山脉的房子的门廊，坐下来，明显愤怒地挥舞着手臂，在手机上和不知道谁进行了热烈的交谈。 不久之后，三辆警车出现在他家。
 
-收到这封电子邮件的两天后，媒体向其寻找一个值得信赖的声音，当福奇在川普政府定期举行的冠状病毒工作专案组的一次简报中被问及到羟氯喹是否是一种有效的冠状病毒治疗时，他说，“答案是否定的”。福奇指出，“该药物有希望治疗新冠病毒的迹象纯粹是‘传闻’”。
+一位接近委员会的消息人士告诉 DailyMail.com，这封信共提出了 34 个问题，截止日期为 2021 年 5 月 17 日，但仍未收到任何回复。完全沉默。他们似乎拒绝承认我们的任何事情，消息人士说。“至少当我们给政府机构写信时，我们会得到‘我们收到你的信，我们正在处理它’之类的东西。” “我们希望他们与我们合作并给我们答案。我们不会特意烧掉它们。我们只想要这些东西的答案。他们是与 WIV 联系在一起的团体，会有很多这样的答案，希望这会有所帮助。但他们根本拒绝参与其中。”
 
-BuzzFeed新闻通过信息自由法案（FOIA）获得了新公开的电子邮件。
+参考链接：
 
-BuzzFeed报道说，福奇拒绝了对邮件中包含的故事发表评论。
+[https://www.dailymail.co.uk/news/article-9653363/Dr-Peter-Daszak-spotted-outside-million-dollar-home-upstate-New-York.html?ito=social-twitter\_dailymailus](https://www.dailymail.co.uk/news/article-9653363/Dr-Peter-Daszak-spotted-outside-million-dollar-home-upstate-New-York.html?ito=social-twitter_dailymailus)
 
-福奇自1984年以来一直担任美国国家过敏和传染病研究所的主任。
+图片来源：[https://www.dailymail.co.uk/](https://www.dailymail.co.uk/)
 
-文章来源:[https://www.breitbart.com/politics/2021/06/02/anthony-fauci-ignored-email-from-physicist-claiming-hydroxychloroquine-could-help-battle-coronavirus/](https://www.breitbart.com/politics/2021/06/02/anthony-fauci-ignored-email-from-physicist-claiming-hydroxychloroquine-could-help-battle-coronavirus/)
+整理撰稿：蓝精灵
+
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

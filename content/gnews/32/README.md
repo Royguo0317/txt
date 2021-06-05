@@ -1,47 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月4日美国政要反共推特精选：纪念伟大的六四
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1298640/)
+## 如何向陌生人传播爆料？电邮、社媒以及巧用二维码
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1298693/)
 
-美国国务院： 今天，我们向1989年在天安门广场和平呼吁自由和民主却被暴力终止的勇敢的中国人民致敬。[#捍卫人权](https://twitter.com/hashtag/%E6%8D%8D%E5%8D%AB%E4%BA%BA%E6%9D%83?src=hashtag_click)[#StandUp4HumanRights](https://twitter.com/hashtag/StandUp4HumanRights?src=hashtag_click) 【附美国务院制作的纪念8964视频】Quote Tweet
+#### 编撰：德农文獾
+审核：Bill
 
+新中国联邦唯真不破，你们能做什么？唯一的事情就在西方传播真相！将新中国联邦、爆料革命、大家战友联合在一起，一秒钟都不能闲着，在梦里边都得想想我如何传播真相？——郭文贵20年8月29日
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04215803/6.5-1.png) 
 
-> Today, we honor the brave Chinese people whose peaceful calls for freedom and democracy came to a violent end in Tiananmen Square in 1989. [#StandUp4HumanRights](https://twitter.com/hashtag/StandUp4HumanRights?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/87wMYZIvAR](https://t.co/87wMYZIvAR)
-> — Department of State (@StateDept) [June 4, 2021](https://twitter.com/StateDept/status/1400693807100932096?ref_src=twsrc%5Etfw)
+我有一个非常规传播爆料的方法，就是在书本、报章杂志、网站、产品说明书、广告宣传册尽可能搜集所有可能搜集到的邮件地址，用个人电子邮件（或者另外注册电子邮件）给这些商家、企业、机构发送英语/德语文章或视频链接。电子邮件随处可见，有时候一份免费的报纸上就有几十上百个，杂志上则更多。接到邮件的人一般是在办公场所，有心人只需要看两眼这些文章或者链接，就会继续看下去，他还会转发给其他同事。注意，不能多次发同一个账号相同的内容，避免别人反感；另外如果他回复不需要这些内容，就不要再发给他。对于受众，我们目前只能筛选，不是每个人都能接受。
 
+过去一年多，我已经给所有认识的外国人都转发了病毒的情报。他们有的已经吃了氯喹，有的已经买了榭皮素。但是还不够，我们认识的人太少，必须发给更多不认识的人。他们不必认识我们，不必信任我们个人，只要他们能坚持看几分钟，他们就会继续看完，并且找到相关内容的关键词。我们还要在邮件末尾客气地请求他转发出去，尽可能让更多人知道这些爆料。
 
+战友们还可以通過推特、Instagram 等社交媒體关注所在国家语言的政界、商界、演艺界名流,大V,发帖@他们，或者在他们的推文下面发一些相关资料链接，尽可能让他们看到我们的留言。有的推特只要关注就可以私信，我们还可以定期给他们发私信。
 
-参议员汤姆·科顿： 32年前的今天，世界看到了 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的真面目。 但透过镇压的黑暗和枪炮的硝烟，也有一个向往自由的民族的勇气和高贵。我们今天铭记那些勇敢的灵魂，并敬重他们的牺牲。
+然后扩展开去，比如德国战友通过关注这些政界名流的推特，然后再关注他们关注的其他德语推特（关注者在1000以上或者更多），就可以发现哪些人的推特开放了私信功能，然后我们定期给他们推送德语爆料链接。只要他们不回复、不取关、不拉黑我们，就可以继续，他们对于病毒的知识，完全是婴儿级别的。他们需要更多信息，才能把他们被所谓“主流媒体”洗过的脑洗干净，他们只要有心，就不会讨厌我们的信息。如果有人因为我们传播爆料而批评我们，不要气馁，马克·吐温说过：“当真理还在穿鞋的时候，谎言已经走遍了世界！”真理绝不会头戴皇冠地来到这个世界上，它绝不会在敲锣打鼓声中、在鲜花与掌声中到来，它总是在偏僻的角落里，在哭声与叹息声中诞生。
 
+生命高于一切！我相信只要他们读过这些稀缺信息，他们就不会反感我们的传播方式。
 
+还有一点是针对Gnews版面设计的，可不可以在Gnews文章后面生成一个链接二维码。这样把文章二维码打印出来分享的时候会很方便，否则除非我们已经取得陌生人的联系方式，否则无法给他们发电子链接。有了文章二维码，我们出门传播爆料的时候，只需要写上标题，打印出来这些二维码递给别人，他们扫描二维码就能读到我们推荐的文章，而不需要拿到他们的联系方式，无需联系我们本人，双方无需接触就能传播文章。
 
-> 32 years ago today, the world saw the true face of the Chinese Communist Party. But through the darkness of repression and smoke of gunfire, there was also the courage and nobility of a people that dream of freedom. We remember those brave souls today and honor their sacrifice.
-> — Tom Cotton (@SenTomCotton) [June 4, 2021](https://twitter.com/SenTomCotton/status/1400865910404042752?ref_src=twsrc%5Etfw)
-
-
-
-众议院外交委员会共和党领袖： 麦考尔[@RepMcCaul](https://twitter.com/RepMcCaul)：“32 年前， [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 在天安门屠杀了数千名倡导基本权利的勇敢、和平的公民。那天遭受苦难的人们活在我们的记忆中。我们继续为中华人民共和国和香港的那些仍然在等待基本人权的人民而战.”
-
-
-
-> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw): "32 years ago the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) massacred thousands of brave, peaceful citizens advocating for basic rights in [#TiananmenSquare](https://twitter.com/hashtag/TiananmenSquare?src=hash&amp;ref_src=twsrc%5Etfw). Those who suffered that day live on in our memory. We continue the fight for those in the PRC & Hong Kong who still wait for basic human rights."
-> — House Foreign Affairs GOP (@HouseForeignGOP) [June 4, 2021](https://twitter.com/HouseForeignGOP/status/1400850118660833284?ref_src=twsrc%5Etfw)
-
-
-
-蓬佩奥（前国务卿）： 32年前，天安门广场发生了一场悲剧，凸显了热爱自由的中国人民与北京暴政之间的对比。 今天，我们纪念天安门的英雄们。
-
-
-
-> 32 years ago, a tragedy occurred in Tiananmen Square that highlighted the contrast between the freedom-loving Chinese people and the tyranny of the regime in Beijing. 
-> 
-> Today, we commemorate the heroes of Tiananmen. [pic.twitter.com/59C8PuO6Jb](https://t.co/59C8PuO6Jb)
-> — Mike Pompeo (@mikepompeo) [June 4, 2021](https://twitter.com/mikepompeo/status/1400853918142320646?ref_src=twsrc%5Etfw)
-
-
-
-
+推荐阅读：
+[如何高效传播爆料革命真相](https://gnews.org/zh-hans/2815061/)
+[大战来临，让世界听到我们的声音](https://gnews.org/zh-hans/4472681/)
 
 0

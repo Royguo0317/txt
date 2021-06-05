@@ -1,37 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 200多名共和党人敦促佩洛西支持中共病毒起源调查追责中共
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1298480/)
+## 6月4日美国政要反共推特精选：纪念伟大的六四
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1298640/)
 
-翻译：康州盘古农场 – 柯镇恶
+美国国务院： 今天，我们向1989年在天安门广场和平呼吁自由和民主却被暴力终止的勇敢的中国人民致敬。[#捍卫人权](https://twitter.com/hashtag/%E6%8D%8D%E5%8D%AB%E4%BA%BA%E6%9D%83?src=hashtag_click)[#StandUp4HumanRights](https://twitter.com/hashtag/StandUp4HumanRights?src=hashtag_click) 【附美国务院制作的纪念8964视频】Quote Tweet
 
-校对：康州盘古农场 – Freeearth
 
-编辑：康州盘古农场 – 格格巫
 
-发布：康州盘古农场 – 彩虹 Rainbow
+> Today, we honor the brave Chinese people whose peaceful calls for freedom and democracy came to a violent end in Tiananmen Square in 1989. [#StandUp4HumanRights](https://twitter.com/hashtag/StandUp4HumanRights?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/87wMYZIvAR](https://t.co/87wMYZIvAR)
+> — Department of State (@StateDept) [June 4, 2021](https://twitter.com/StateDept/status/1400693807100932096?ref_src=twsrc%5Etfw)
 
-**据《大纪元时报》作者：傅伊娃（EVA FU） 2021年5月29日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04203617/viru.png)
-超过 200 名众议院共和党人正在向民主党施加压力，要求他们深入了解中共病毒的起源，并让中（共）国政权对大流行病的掩盖行为负责。
 
-5 月 28 日，这200多名共和党众议员在给议长南希·佩洛西(Nancy Pelosi) 的信中说：“我们要求您指示适当的民主党委员会主席立即加入共和党的呼吁，要求中共 (CCP) 为其在造成全球中共病毒大流行的行为负责。” 这项行动由众议院少数党领袖凯文·麦卡锡（加利福尼亚州共和党）、少数党党鞭代表史蒂夫·斯卡利斯（拉斯维加斯共和党）和众议院共和党会议主席埃莉斯·史蒂芬尼克领导，并有 209 名众议院共和党人加入。
 
-议员们表示，佩洛西“错误地声称”“有关中共责任的问题”是一种“转移注意力”，这可能指的是佩洛西去年 5 月的言论。她将时任总统川普对中（共）国的指责描述为“有趣的转移注意力”。“越来越多的证据表明，大流行是从中（共）国实验室开始的，而中共掩盖了它。如果真是这样，中共就要为将近60万美国人和全世界数百万人的死亡负责。”他们继续说道，每个失去亲人的美国家庭都应该得到“关于这种可怕病毒的起源的答案,”并补充说：“众议院民主党人一直拒绝分配调查资源来获得这些答案，这是对他们的侮辱。”斯卡利斯议员（Scalise）在5月28日的推文中写道。“中（共）国不能煳弄过去。美国人应该得到答案。”大纪元时报已联系佩洛西办公室征求评论。
+参议员汤姆·科顿： 32年前的今天，世界看到了 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 的真面目。 但透过镇压的黑暗和枪炮的硝烟，也有一个向往自由的民族的勇气和高贵。我们今天铭记那些勇敢的灵魂，并敬重他们的牺牲。
 
-立法者们引用了越来越多的证据表明，该病毒可能是从武汉实验室泄露的。这一想法最初被许多媒体和科学家视为阴谋论而不予理会。在川普政府最后几天发布的国务院情况说明书披露，武汉病毒研究所 (WIV) （位于最初被认为是爆发源头的海鲜市场附近）的研究人员，在2019 年秋季出现了类似中共病毒的症状。 最近，一份未公开的情报报告也浮出水面，称3名武汉病毒研究所（ WIV ）的工作人员在 11 月病倒以至于需要治疗乔·拜登总统的首席医学顾问安东尼·福奇（Anthony Fauci）博士最近支持进行更深入的病毒调查，并表示实验室泄漏的可能性“肯定存在”。这推翻了他在 2020 年 5 月发表的评论。美国卫生与公共服务部长泽维尔·贝塞拉（Xavier Becerra）虽然没有直接提及中国或武汉，但呼吁世界卫生组织（WHO）发起一项“透明的、基于科学的”第二阶段中共病毒(COVID )的起源研究，“以全面评估病毒的来源和病毒爆发的早期情况。”
 
-“为了让中共承担责任，”立法者表示，他们需要“获得国会调查人员可用的全套工具，包括文件传票和强制关键证人作证的权力。”信中说：“迄今为止，整个众议院的民主党委员会主席都拒绝分配这些资源来质疑中共病毒的起源。”他们还指出，中共一贯拒绝分享原始数据和武汉病毒研究所（ WIV ）的实验室记录。他们说这符合中共的欺骗模式，包括将记者限制在中共病毒的虚假信息中和让举报人保持沉默。
-尽管世卫组织领导的武汉考察团裁定实验室事故理论“极不可能”，但专家和世界领导人都批评该调查结果缺乏独立性。小组的外国专家要求提供原始数据和样本，但他们的中（共）国同行却只提供了摘要。周二，一名中（共）国代表告诉世界卫生组织大会，溯源调查的“中共国部分”“已经完成”，并建议调查人员另寻他处。尽管中（共）国进行了否认，但要求查明大流行如何开始的压力仍在继续增加。
 
-拜登在周三罕见的声明中表示，他已下令对该病毒的起源进行情报调查，并希望在 90 天内得到报告。他说，美国情报部门“围绕两种可能的情况进行了整合”，但尚未就此问题得出明确结论。
-上周五，参议院通过了一项两党决议，要求世界卫生组织采取“极度紧迫的”行动，并“彻底查明”这一大流行病的起源。众议院共和党议员在他们的信中表示，国会应该将病毒调查工作掌握在自己手中。立法者们在信中写道，“很明显，世卫组织未能就中共病毒大流行的起源和中共的责任做出最终决定。这项任务落在了我们国会身上。”
+> 32 years ago today, the world saw the true face of the Chinese Communist Party. But through the darkness of repression and smoke of gunfire, there was also the courage and nobility of a people that dream of freedom. We remember those brave souls today and honor their sacrifice.
+> — Tom Cotton (@SenTomCotton) [June 4, 2021](https://twitter.com/SenTomCotton/status/1400865910404042752?ref_src=twsrc%5Etfw)
 
-原文链接：[https://www.theepochtimes.com/over-200-republicans-press-pelosi-to-back-covid-19-origin-probe-hold-the-ccp-accountable\_3836160.html](https://www.theepochtimes.com/over-200-republicans-press-pelosi-to-back-covid-19-origin-probe-hold-the-ccp-accountable_3836160.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+众议院外交委员会共和党领袖： 麦考尔[@RepMcCaul](https://twitter.com/RepMcCaul)：“32 年前， [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 在天安门屠杀了数千名倡导基本权利的勇敢、和平的公民。那天遭受苦难的人们活在我们的记忆中。我们继续为中华人民共和国和香港的那些仍然在等待基本人权的人民而战.”
+
+
+
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw): "32 years ago the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) massacred thousands of brave, peaceful citizens advocating for basic rights in [#TiananmenSquare](https://twitter.com/hashtag/TiananmenSquare?src=hash&amp;ref_src=twsrc%5Etfw). Those who suffered that day live on in our memory. We continue the fight for those in the PRC & Hong Kong who still wait for basic human rights."
+> — House Foreign Affairs GOP (@HouseForeignGOP) [June 4, 2021](https://twitter.com/HouseForeignGOP/status/1400850118660833284?ref_src=twsrc%5Etfw)
+
+
+
+蓬佩奥（前国务卿）： 32年前，天安门广场发生了一场悲剧，凸显了热爱自由的中国人民与北京暴政之间的对比。 今天，我们纪念天安门的英雄们。
+
+
+
+> 32 years ago, a tragedy occurred in Tiananmen Square that highlighted the contrast between the freedom-loving Chinese people and the tyranny of the regime in Beijing. 
+> 
+> Today, we commemorate the heroes of Tiananmen. [pic.twitter.com/59C8PuO6Jb](https://t.co/59C8PuO6Jb)
+> — Mike Pompeo (@mikepompeo) [June 4, 2021](https://twitter.com/mikepompeo/status/1400853918142320646?ref_src=twsrc%5Etfw)
+
+
+
+
 
 0

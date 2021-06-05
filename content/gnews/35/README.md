@@ -1,37 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象锐语】BBC意味深长的报道了比利时病毒学家的故事
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1298535/)
+## 摇摆州2020大选审计动态
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1298645/)
 
-BBC 新闻欧洲记者让·麦肯齐 (Jean Mackenzie)在2021-6-5日报道一个病毒学家的事：
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-2021 年 6 月 4 日，全副武装的士兵参加了对马斯梅赫伦国家公园 Hoge Kempen 边缘地区的密集扫荡，寻找 Jürgen Conings。近三个星期以来，比利时著名的病毒学家一直与他的妻子和 12 岁的儿子住在一个安全屋里，由安全人员看守。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04213804/A-1.jpg)whowhatwhy.org
+亚利桑那州手工重新计票完成了67%，即已经完成140 万张的清点【1】；佐治亚州的法庭审计有望进行，据班农先生说，尽管该州的共和党建制派尽最大努力阻止这一进程，但法庭审计必须进行。班农先生乐观地估计，在全面法庭审计完成后，三个共和党参议院的席位将回归【2】；宾夕法尼亚州参议院代表团现场考察了亚利桑那州的法庭审计工作后表示，如果我们在宾夕法尼亚州进行法庭审计，这就是样板【3】。
 
-尽管在整个大流行期间世界各地的科学家都受到了攻击，但对 Marc Van Ranst 教授的威胁比大多数人更严重。他一直是士兵尤尔根·康宁斯 (Jürgen Conings) 的目标，他对病毒学家和 Covid 封锁有偏激的看法。这位军事射击教官拿着火箭筒和机关枪在逃，比利时警方找不到他。“威胁是非常真实的，”范兰斯特教授在他的安全屋告诉我，因为他重温了他和家人于 5 月 18 日躲藏起来的那个晚上。“这位前士兵全副武装，在我家门口等我下班回家的路上等了三个小时。”那天晚上，警方说 Jürgen Conings 带着精选的重型武器离开了他的军营，直奔病毒学家的家。Marc Van Ranst 通常在男人等他的时候下班回来。但这次他早早回来了，和家人在一起。“不幸的是，他是一名训练有素的狙击手，拥有重型盔甲、军用级材料和武器。所以，你不想让这类人来追捕你，”他讽刺地告诉我，尽管他的生命受到威胁，而且他现在生活的环境极其严格，但这位成为比利时应对新冠病毒大流行的最公众人物的病毒学家却异常冷静。他甚至开了一个关于在家工作的笑话，尽管他承认这将它带到了极端。“我们并不害怕，我们只是小心翼翼。我 12 岁的儿子米洛对此非常勇敢。“这很超现实，但知道总比不知道好，因为至少我可以采取这些预防措施。让我生气的是我儿子已经在里面呆了将近三个星期。我真的很讨厌。”
+川普总统6月4日发表声明，敦促宾夕法尼亚州参议院进行法庭审计【4】；威斯康星州的法庭审计困难重重，虽然3月下旬州议会授权调查的决议以58票对35票获得通过后【5】，一直没有实际上的进展，截止上周，审计变成了州议长“雇佣三名退休警察来检查选举的完整性？……但不会启动法庭审计【6】。
 
-比利时警方现在卷入了全面的搜捕行动。数以百计的军官、直升机和军用卡车已经在数英亩的土地上进行了搜查，但他们似乎离找到他已经不远了。作为搜索的一部分，荷兰边境附近的一个大型国家公园一度被封锁。
+新罕布什尔州的重新审计在几轮折腾后最终得以通过，但由于三位审计员中，两位与民主党有瓜葛，人们并不看好，称“审计在开始之前就结束了——三位审计员中有两位与民主党国会大佬佩洛西和舒默有利益关系”。【7】
 
-BBC这篇新闻，没有介绍病毒学家的背景，我们在网上搜索了一些资料：
+密歇根州没有传出要进行法庭审计的消息。
 
-第一财经2020年8月28日文章题为：“新冠再感染是个案还是常态？专家称下结论仍需更多病例”，是这样写的：再感染的问题使人们担心潜在的针对新冠病毒的疫苗的功效。“新冠病毒看起来比流感病毒更稳定，但是仍在改变。”范·兰斯特博士称，“病毒会突变，这意味着潜在的疫苗不会持续5年甚至10年，就像流感一样，疫苗开发者必须定期对其进行重新设计。”
-
-腾讯新闻的报导：
-
-荷兰行动组织“病毒真相”（Virus Waarheid）头目恩格尔（Willem Engel）和比利时病毒学家范兰斯特（Marc Van Ranst）在推特Twitter对话的屏幕截图，将显示在荷兰2000多个地点的广告牌上。
-
-这是一个很有意思的事情，这位病毒学家质疑病毒真相的组织者，而受到右翼军人的威胁。难道，追溯病毒真相不是病毒学家应该做的事情吗？ 后续我们会继续跟踪， 看看这位顶级病毒专家在这次疫情中扮演的是什么角色，BBC在此时写这篇发生在一个星期之前的事情有何用意。另外，据报道，该名老兵已经被找到。
+以上各州的选举人票为：亚利桑那州11票、佐治亚州16票、宾夕法尼亚州20票、威斯康星州10票、新罕布什尔州4票、密歇根州16票。川普总统目前为232票，需要38票的翻转。
 
 参考链接：
 
-[https://www.bbc.com/news/world-europe-57358492?xtor=AL-72-%5Bpartner%5D-%5Bbbc.news.twitter%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D&at\_custom4=4319981E-C58F-11EB-B7F4-84C54744363C&at\_campaign=64&at\_custom1=%5Bpost+type%5D&at\_custom3=%40BBCWorld&at\_medium=custom7&at\_custom2=twitter](https://www.bbc.com/news/world-europe-57358492?xtor=AL-72-%5Bpartner%5D-%5Bbbc.news.twitter%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D&amp;at_custom4=4319981E-C58F-11EB-B7F4-84C54744363C&amp;at_campaign=64&amp;at_custom1=%5Bpost+type%5D&amp;at_custom3=%40BBCWorld&amp;at_medium=custom7&amp;at_custom2=twitter)
+【1】[https://www.thegatewaypundit.com/2021/06/huge-arizona-audit-begins-finish-hand-recount-67-1-4-million-completed/](https://www.thegatewaypundit.com/2021/06/huge-arizona-audit-begins-finish-hand-recount-67-1-4-million-completed/)
 
-图片来源：[https://www.bbc.com/](https://www.bbc.com/)
+【2】[https://www.thegatewaypundit.com/2021/06/steve-bannon-georgia-will-hold-forensic-audit-three-republican-senate-seats-coming-back-full-forensic-audit-completed-video/](https://www.thegatewaypundit.com/2021/06/steve-bannon-georgia-will-hold-forensic-audit-three-republican-senate-seats-coming-back-full-forensic-audit-completed-video/)
 
-整理撰稿：蓝精灵
+【3】[https://www.thegatewaypundit.com/2021/06/audit-pa-model-pennsylvania-senator-doug-mastriano-speaks-arizona-audit-tour-video/](https://www.thegatewaypundit.com/2021/06/audit-pa-model-pennsylvania-senator-doug-mastriano-speaks-arizona-audit-tour-video/)
 
-校对发布：Penny
+【4】[https://www.donaldjtrump.com/news/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-06.04.21-02](https://www.donaldjtrump.com/news/statement-by-donald-j-trump-45th-president-of-the-united-states-of-america-06.04.21-02)
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+【5】[https://gnews.org/zh-hans/1014742/](https://gnews.org/zh-hans/1014742/)
+
+【6】[https://www.thegatewaypundit.com/2021/05/skunk-wisconsin-speaker-robin-vos-hires-three-retired-cops-look-election-integrity-wont-launch-forensic-audit-despite-late-night-ballot-dump/](https://www.thegatewaypundit.com/2021/05/skunk-wisconsin-speaker-robin-vos-hires-three-retired-cops-look-election-integrity-wont-launch-forensic-audit-despite-late-night-ballot-dump/)
+
+【7】[https://www.thegatewaypundit.com/2021/05/breaking-exclusive-windham-new-hampshire-2020-election-audit-started-two-three-auditors-conflicts-pelosi-schumer/](https://www.thegatewaypundit.com/2021/05/breaking-exclusive-windham-new-hampshire-2020-election-audit-started-two-three-auditors-conflicts-pelosi-schumer/)
 
 0
