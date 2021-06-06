@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】6/5/2021晚：美国参议院三名跨党派参议员即将抵达台湾
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1302613/)
+## 【粤语配音】蓬佩奥：武汉病毒研究所是生物武器研究设施
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1302708/)
 
-**编辑：华盛顿DC农场 路德简报项目组**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06074546/20210605-2-scaled.jpg)
+05/29/2021 前美国国务卿蓬佩奥在福克斯讨论武汉病毒研究所是生物武器研究设施。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
 0

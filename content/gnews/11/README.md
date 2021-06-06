@@ -1,11 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】【新中国联邦一周年】彼得·纳瓦罗：安东尼·福奇满手血债，必须就他所犯下的罪行对其追责
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1302765/)
+## 2021年6月5日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1302995/)
 
-06/03/2021 彼得·纳瓦罗先生：我要在全世界面前谴责安东尼·福奇，他把美国纳税人的钱用来资助武汉病毒研究所并允许其使用功能增强实验来武器化病毒，制造病毒大流行。安东尼·福奇满手血债，他必须走人。必须就他所犯下的罪行对其进行追责。
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+6月5号，我R共产党了八辈子祖宗．我们的同胞竞被他们搞成这个样了……地摊经济！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06113202/61489f027b98b9f2938d18befcaf3a9b.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06113212/536fc618f945890617a52f205f18ab9f.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06113223/e4c9fbd68e5675c4023b92543d6414cd.jpg)
+[【2021年6月5日】文贵先生盖特原文](https://gtv.org/getter/60bbe7f3c04fd544b46a16de)
+
+**喜联盟Gnews编辑部**
 
 0

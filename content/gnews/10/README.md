@@ -1,11 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】【新中国联邦一周年】彼得·纳瓦罗：就像安东尼·福奇一样，习近平必须为他的罪行负责
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1302768/)
+## 2021年6月5日 文贵先生盖特 5
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1303016/)
 
-06/03/2021 彼得·纳瓦罗：共产中国的独裁者习近平，把病毒从武汉高效地播种、传播到全世界，并且向世界隐瞒真相超过60天。习近平必须为他的罪行负责。
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+6月5号：七哥代表14亿新中国联邦人感谢．愿拜自由女神！ (一)
+
+[【2021年6月5日】文贵先生盖特原文](https://gtv.org/getter/60bc0ae7c04fd544b46a275e)
+
+**喜联盟Gnews编辑部**
 
 0
