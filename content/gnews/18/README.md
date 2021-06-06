@@ -1,26 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【2021年6月4日特别节目】闫博士：我们知道会有多难 会遭受怎样的死亡威胁 但是我们将推翻CCP消灭马列主义思想
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1301201/)
+## 中共国批评欧盟和美国驻香港办事处的蜡烛
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1301261/)
 
-**编辑;华盛顿DC农场 路德简报项目组**
+消息来源：意大利安莎通讯社（ANSA）
+发布时间：2021年06月05日
+翻译整理：斩草要除根
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05175946/E3IbxtNXEAEpR3z.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05180007/E3IbxtPWUAEGej_.jpg)
+6 月 5 日 – 中共国批评欧盟和美国驻港领事馆昨天在纪念天安门广场镇压 32 周年之际展示蜡烛的行为，当局认为这一举措是“笨拙的政治戏剧”，旨在破坏城市的稳定。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05184424/%E5%85%AD%E5%9B%9B5.jpg)2021年6月4日，美国驻港澳总领事馆在所在建筑窗边点亮悼念蜡烛纪念天安门广场32周年。（照片来自美国驻港澳总领事馆脸书）
+虽然北京和香港都严格禁止提及 1989 年 6 月 4 日的事件，但从香港领导人林郑月娥的办公室可以清楚地看到这两个领事馆的蜡烛，两个外交办公室在社交媒体上发布的纪念照片也是如此。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05184616/%E5%85%AD%E5%9B%9B4.png)2021年6月4日，美国驻港澳总领事馆在所在建筑窗边点亮悼念蜡烛纪念天安门广场32周年。（照片来自美国驻港澳总领事馆脸书）
+中共国外交部发言人称，“任何利用香港对中共国大陆进行渗透或破坏行动的企图都越过了红线”，绝对不能容忍”，他呼吁“停止干预，并不要与香港和中共国的内政玩火”。
 
+简评：六四生生不息的火种将继续在爆料革命的队伍中继续被传递，为中国人自由、民主我们将继续战斗到底。
 
+（本文只代表译者观点，与Gnews无关）
 
+[新闻链接](https://www.ansa.it/sito/notizie/topnews/2021/06/05/tienanmen-cina-critica-candele-a-sedi-ue-e-usa-a-hong-kong_b224ff9c-9d35-4d88-a8a8-f4fd478444e2.html)
 
-> 2021 年6月4日 特别节目 
-> 
-> 1.新中国联邦成立一周年 灭共盛会群星璀璨
-> 
-> 2.路德演讲： 今天病毒真相得到世界认可 新中国联邦人扬眉吐气 
-> 
-> 3.闫博士：我们知道会有多难 会遭受怎样的死亡威胁 但是我们将推翻CCP消灭马列主义思想 [pic.twitter.com/p9S6mUL31L](https://t.co/p9S6mUL31L)
-> — 平民爆料 (@WM18320321) [June 5, 2021](https://twitter.com/WM18320321/status/1401212979027320836?ref_src=twsrc%5Etfw)
+校对/上传：老中医
 
-
-
-+1
+0
