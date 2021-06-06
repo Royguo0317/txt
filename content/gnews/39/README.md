@@ -1,31 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】6/4/2021文贵盖特：世界政治，经济，军事的全面处在动荡的和战争的边缘，我们务必要强大我们自己
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/1301415/)
+## 6月5日美国政要反共推特精选:我们需要知道这场大流行是如何开始的!
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1301421/)
 
-制作： 【彩虹桥】
+众议员迈克·华尔兹： 福奇和科学界为了自身利益，竭尽全力抹黑武汉实验室泄漏理论。 否定川普所说一切的自由媒体和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传机器也是如此。** 除非我们知道这场大流行是如何开始的，否则我们无法阻止下一次大流行！**
 
-兄弟姐妹们好啊，大家已经都起来了。太阳照常升起，共产党还在中共呢，还控制着14亿同胞呢，是吧？曼哈顿照样，是吧？所以说任何情况发生，太阳照常升起。但是大家想过没有？昨天这个伟大的日子，在中共国的6月4号的时候，中共国内整个像地狱一般，就是国内手机换个头像都换不了，昨天的WhatsApp在国内根本就用不了，Google Messenger根本用不了，传啥也传不出去。不是VPN没了，基本上网都快没了。它们的恐惧就是我们的武器。
 
-兄弟姐妹们，美国房地产，欧洲房地产，世界的大宗贸易交易，互联网上的虚拟金融的货币的起伏，这都预示着世界一场重大经济危机的到来。无论从中东，还是从亚洲，甚至到北约原来从不去的地方，全球都在布重兵，重武器。俄罗斯这几天香了。拉俄罗斯只有一个原因，要么打美，要么打共。为什么？
 
-另外一个昨天晚上，兄弟姐妹们，就在大家在庆祝的时候，大家想到过没有？我们的G-TV昨天冒了大险，很多用了我们自己的源代码直播的。还有昨天我们看到了自己研发的，同时翻译九种语言字幕，是由我们秘密小组来开始的。这些都极大的让G-TV的投资者受益和升值。边灭共边赚钱，而且我们有这个胆量有这个能力。不但如此，大家能看到现在世界上到处重兵布阵，恐惧共产党灭亡的财富和全世界金融危机导致的对财富不安全的恐惧，都将流向我们喜联储，边灭共边赚钱。
+> Fauci & the science community did everything to discredit the Wuhan Lab Leak Theory for their own self-interest.
+> 
+> So did the Liberal Media who negated everything Trump said & the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s propaganda machines.
+> 
+> We can’t prevent the next pandemic unless we know how this one started! [pic.twitter.com/zpf7eAwzLp](https://t.co/zpf7eAwzLp)
+> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401275382465191938?ref_src=twsrc%5Etfw)
 
-我们再对比一下中共国，我们昨天到今天赚钱、快乐、凝聚、训练我们爆料革命新中国联邦未来的支柱，找到七哥喜欢的好人，找到新中国联邦未来的栋梁，锻炼我们的技术、行动、所有的队伍……我们没有一样不做到的。但是战友们，我想跟大家说的是：所有我们的每分每秒都是升值，共产党有一样事情是升值的吗？内乱、搞三胎、三帮在斗，内部政治三国；北部所谓的“铁哥们”随时要背叛，美国、联合国八国联军大兵压境，经济是已经崩溃了，还能糊弄到啥时候？香港如人间炼狱，台湾打还是不打？打，自己先死；不打，政治个人死亡。
 
-昨天晚上将近5点钟我才去睡觉，然后睡到不到7点，大概6点50就醒来了。一直在处理不同地区，特别我们亚洲地区的各种的信息和事情。七哥还有今天三个很重要的听证，必须要做的。另外一个，战友们今天有一日游，本来是安排到大使馆的，但是安保部门强烈建议不要。我们都安排好了大使馆，给战友们怎么参观，文霄负责什么，都安排好了，昨天晚上临时通知。
 
-昨天晚上共产党所谓驻纽约领事馆派出的特务，在这旁边呆着，就像那天在船旁边，那几个纽约领事馆的拍照一样，你说你干着干什么呢？无非是你在楼下了，拍拍照，看到郭文贵了，然后看到谁进谁出，谁当安保了。然后回去就骗钱说，“我们接近了郭文贵。”你说一个强奸犯、骗子、“郭没钱”、“郭三秒”、“郭骗子”，你说你干嘛啊？还找布隆伯格，又找个中国“女记者”，所有写咱们爆料革命负面的，诋毁文贵的，不管在华尔街日报，还是…一定是个中国记者，还绝大多数是女的。共产党要点脸吗？你自己的锣不响，上人家去借个锣敲一敲去，还装模作样还告诉布隆伯格说：“郭文贵你要学会法律，再在美国赚钱。”去你大爷的吧！我郭文贵学赚钱的时候，你中南坑懂得啥叫钱吗？中南坑你哪个赚钱的跟郭文贵比？要到美国来打拼，你哪个能配得上跟郭文贵比？我的一个肛毛都比你脖子粗！你们找的小烂仔们，来评价我郭文贵，你不是找死来了吗？有啥资格啊？
+参议员玛莎·布莱克本： 当脸书审查员错了时会发生什么？ [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 赢了。 【附福克斯新闻：Jonathan Turley：脸书表示，现在允许提及 COVID-19 可能起源于武汉。多慷慨啊】
 
-我们昨天的会场的战友们大家看到了吗？哪个不是都能跟中南坑老杂毛们比划几下子的？而且我们绝对都是一招KO的本事。同等条件下，你们共产党这帮王八犊子，不靠绑架，不靠“假、骗、黑”，你什么都不是！看看我们这些战友兄弟姐妹们，他们才是真正的中国人！他们才配称得上真正的中国精英，而不是你们共产党，利用绑架国家机器有了这种绝对优势，把自己定为所谓的“中国精英”，这是世界上最大的骗局，我们就要很快就消灭你了。
 
-战友们你们能看到，美国世界的政治巨变，媒体的巨变，跟着冠状病毒真相的到来，然后世界经济的巨大的跌幅，甚至是危机，经济大灾难。一战的时候，1913~1919从经济高峰到经济危机；二战的时候的经济高峰、经济危机，它都是有规律的，不是开玩笑的。
 
-对我们新中国联邦来讲，兄弟姐妹们，可能世界上只有我们敢说。世界经济上，我们是最早上的；世界经济危机下，我们是第一个能站在高峰上，一直站着的。世界经济所有的麻烦，经济、军事的麻烦，最大的受益者，就是我们新中国联邦人。大家要做的事情是，昨天的成功已经留在了昨天。我们最重要的是今天太阳升起的时候，在世贸中心，几十个兄弟要花两三个小时时间，要把设备移出去，把场地交给人家，在那里留下美好的中国人的形象，新中国人的形象。我们所有各农场的战友们，所有人做的事情，没来的，你要想现场的就是你；来了的，千万记住不要骄傲，不要自豪。不管节目、能力、贡献多大、多精彩，要想今天做什么？今天下午做什么？明天我们做什么？我们永远往上看，我们就是最大的赢家。
+> What happens when the Facebook censors get it wrong? Communist China wins. [https://t.co/ul6a5cRqZu](https://t.co/ul6a5cRqZu)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 5, 2021](https://twitter.com/MarshaBlackburn/status/1401271190019313667?ref_src=twsrc%5Etfw)
 
-所有前线辛苦的兄弟姐妹们，每个节目都是精彩的，每个节目都是真的，每个节目都是没工资的，每个节目都是奉献的。无论从亚洲、欧洲、新西兰，到美国，每个人都是精彩的！昨天的节目一切一切都会留在我们美好的记忆中，它是我们走向未来的成功最重要的基石。每一次这样的事情都是在锻炼我们新中国联邦未来的栋梁，锻炼爆料革命的凝聚力，团结力。我们才能有资格真正的走向世界上政治、经济、文化和话语权的核心中的核心。
 
-不会超过40天会有更多大好的消息到来，7月17号前我们都走着看。谢谢我们看不见，听不见，甚至不知道叫什么名字，无数个默默无闻的战友们辛勤的工作，无私的奉献。没有你们，爆料革命不可能成功；没有你们，这一切都不可能发生，谢谢！
 
-+1
+众议员迈克·华尔兹： 我们应该知道 COVID 是如何开始的。我和卢卡斯众议员给白宫科学办公室 (OSTP) 写了一封信，以彻底了解为什么福奇和 OSTP 在奥巴马于 2014 年结束后重新启动功能增强研究资金，将纳税人的钱汇到武汉实验室。 【附华尔兹众议员在福克斯视频：共和党人要求福奇为正在发生的丑闻作证】
+
+
+
+> We deserve to know how COVID started.[@RepFrankLucas](https://twitter.com/RepFrankLucas?ref_src=twsrc%5Etfw) & I sent a letter to the White House Office of Science (OSTP) to get to the bottom of why Fauci & OSTP turned Gain-of-Function research funding back on after Obama ended it in 2014, sending taxpayer money to the Wuhan lab. [pic.twitter.com/393vmKVqgC](https://t.co/393vmKVqgC)
+> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401256664976736259?ref_src=twsrc%5Etfw)
+
+
+
+参议员朗·约翰逊: 自大流行开始以来，冠状病毒可能来自武汉病毒研究所的证据一直很明显。为什么福奇博士会嘲笑并驳回它？为什么主流媒体攻击任何指出它的人？ [@FDRLST](https://twitter.com/FDRLST) 【附thefederalist杂志文章：疫苗令不应成为下一个 COVID 政策灾难】
+
+
+
+> Evidence that the coronavirus might have come from the Wuhan Institute of Virology has been in plain sight since the start of the pandemic. Why did Dr. Fauci ridicule and dismiss it? Why did mainstream media attack anyone who pointed it out? [@FDRLST](https://twitter.com/FDRLST?ref_src=twsrc%5Etfw) [https://t.co/Hx9bHXiYZo](https://t.co/Hx9bHXiYZo)
+> — Senator Ron Johnson (@SenRonJohnson) [June 5, 2021](https://twitter.com/SenRonJohnson/status/1401252483574419457?ref_src=twsrc%5Etfw)
+
+
+
+众议员布莱恩·马斯特： 美国人应该从拜登政府获得透明度。 【附华盛顿观察者报报道：福奇博士知道什么，什么时候知道的？】
+
+
+
+> Americans deserve transparency from the Biden Administration.[https://t.co/PW4KGCYvOr](https://t.co/PW4KGCYvOr)
+> — Rep. Brian Mast (@RepBrianMast) [June 5, 2021](https://twitter.com/RepBrianMast/status/1401252482961920006?ref_src=twsrc%5Etfw)
+
+
+
+0

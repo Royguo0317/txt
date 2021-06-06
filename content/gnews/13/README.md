@@ -1,86 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 塔克：当埃里克·斯沃威尔不与中共间谍发生性关系时，与大众观点相反
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1301670/)
+## 【热点播报】每日邮报:中共军方在大流行前几个月用人源小鼠测试病毒
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1301746/)
 
-**字幕内容：**
+作者：纽约香草山媒体部 7bends
 
-Eric Swalwell is not having sex with Chinese spies
-埃里克·斯沃威尔没有与中共间谍发生性关系
 
-and contrary to popular opinion
-而且与大众观点相反
 
-there are moments when he’s not doing that
-有些时候他没有这样做
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-or coming in last place in presidential primaries
-或是在总统初选中排在最后
 
-Eric Swalwell is still a sitting member of Congress from California
-埃里克·斯沃威尔仍然是代表加州的国会议员
 
-amazing
-太不可思议了！
+6月4日，每日邮报援引《名利场》报导，中共军方在2019年夏天，即大流行前几个月设计了具有人性化肺的小鼠并在它们身上测试病毒。武汉病毒研究所冠状病毒研究项目首席研究员——“蝙蝠女”石正丽——似乎在过去三年中至少在人源化小鼠身上测试了两种新冠病毒。
 
-he also sees himself as a hero
-还有，他把自己视为一名英雄
+![]()![](https://i.dailymail.co.uk/1s/2021/06/04/04/43814991-9650709-image-a-18_1622778270594.jpg)图片来源：每日邮报
 
-who’s going to bring Justice for the January 6th Insurrection
-一名将为 1 月 6 日的暴动伸张正义的英雄
+美国国务院在一月发布的一份情况说明书中抨击了中国共产党系统性地阻止了对COVID-19大流行起源的透明和彻底的调查。武汉病毒研究所与中（共）国军方在出版物和秘密项目上进行合作，同时以民间机构的身份出现。《名利场》指出，病毒来自实验室的理论最早由中国社交媒体用户于2020年1月提出（笔者认为应该指的是路德社119节目）。
 
-he’s got a plan for that
-为了那，他有一个计划
+虽然福奇博士驳斥了在大流行开始时关于COVID-19可能是人工设计病毒的理论，并淡化了NIH向武汉病毒研究所提供资金的事实（这些资金可能为功能获得研究提供了帮助），但是《Buzzfeed News》获得的福奇博士在2020年1月至6月期间的3200封电子邮件中显示，病毒专家曾警告福奇COVID-19可能来自实验室，而他却公然淡化了这些邮件。《华盛顿邮报》发表的另一封福奇的电子邮件也透露了他在三月和四月大流行初期与中（共）国顶级传染病专家高福博士的亲密关系。
 
-he’s investigating his own colleagues
-他正在调查他自己的同事
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05234203/9-1.jpg)图源网络
 
-we learned yesterday that Eric Swalwell
-我们昨天得知埃里克·斯沃威尔
+所有这些证据都表明，由中共军方主导的COVID-19就是实验室产物，并被设计用于针对人类。福奇博士主导的NIH亦确实向武汉病毒研究所提供了研究资金，且福奇博士本人似乎从一开始就是知情者，他还帮助中共隐瞒真相、误导大众。
 
-has hired private investigators
-已经聘请了私人调查员
+参考阅读：
 
-to find Congressman Mo Brooks of Alabama
-去寻找阿拉巴马州众议员莫布鲁克斯
+[Chinese military ‘engineered mice with humanized lungs’ in 2019 to test viruses on them – just months before the pandemic erupted](https://www.dailymail.co.uk/news/article-9650709/Chinese-army-researchers-engineered-mice-humanized-lungs-2019-test-viruses-report-says.html)
 
-Swalwell claim Brooks is avoiding a lawsuit
-斯沃威尔声称布鲁克斯正在逃避诉讼
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-he filed to hold Brooks accountable for the insurrection
-他要求布鲁克斯对暴动负责
+编辑/校对/发稿：Irene木木
 
-but there’s an easier way
-但有一个比较容易的方法
+**更多资讯，更多关注**
 
-Swalwell could call his old girlfriend Fang Fang
-斯沃威尔可以打电话给他的旧女友— 方芳
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-she’s good at finding people in power
-她善于找到当权者
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-Eric Swalwell call Fang Fang
-埃里克·斯沃威尔，打电话给方芳
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-the Chinese spy you had sex with
-那个与你有过关性关系的中共间谍
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-She’ll get it done
-她会完成的
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-原视频链接: [https://twitter.com/dailycaller/status/1400616778221428743?s=24](https://twitter.com/dailycaller/status/1400616778221428743?s=24)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – 郭班之樱
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

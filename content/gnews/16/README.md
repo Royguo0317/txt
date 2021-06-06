@@ -1,57 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】福奇呼吁中（共）国公布武汉实验室研究人员的医疗记录
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1301703/)
+## 【世事解评】生物战剂中的化学添加剂
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1301720/)
 
-作者：纽约香草山健身部 文真
+作者：纽约香草山 billwilliam
+
+中共解放军很久以前就开展了生物武器项目。在2008年，解放军将领杨瑞馥曾撰写一本题为《防生物危害医学》的研究生教科书，该书从各方面介绍生物战的细节，包括制备生物战剂，攻击方式，检测，以及这种武器的破坏力。根据书中一个章节的介绍，化学添加剂可以显著增强病原体在气溶胶中的生存能力，加重破坏效果。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05232549/Picture1-11.png)
+以下是该书第34-35页对于化学添加剂的描述【1】：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05232546/Picture2-5.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05232609/Picture3-3.png)
+节选的文字详细描述了中共解放军计划用化学添加剂增强生物战剂的稳定性和传染性。潜在的添加剂包括糖类、有机酸、有机金属螯合物、蛋白质水解物、血清、还有多元醇类（比如甘油）。其中，糖类、蛋白质水解物、血清、还有多元醇类可以提高病原体中蛋白质的稳定性，对生物战剂起到保护作用。有机金属螯合物可以吸收环境中的金属离子，防止蛋白质被金属蛋白酶破坏。新陈代谢抑制剂还可以使细菌处于休眠状态，增加存活时间。中共军队还设想将病原体包裹在微胶囊中以增强存活率。此外，解放军还计划将比较脆弱的微生物中的毒性基因转移到比较耐久的微生物中，从而制造基因武器。
+
+在中共的另一本题为《非典非自然起源和人制人新种病毒基因武器》的生物战教科书中，徐德忠将军提到利用冻干技术将病原体制成干粉，在敌方领土喷洒。【2】同时使用化学添加剂和冻干技术可以大幅增强病毒或其他病原体的稳定性。举例来说，笔者找到一篇实验操作配方，关于如何将呼吸道融合病毒（RSV）制成干燥的粉末，在摄氏37度的温度下可以保持数小时的稳定。【3】RSV也是一种肺炎病毒。正如附图所示，化学添加剂增强的病毒干粉在暴露于摄氏37度的环境下24小时后仍能保持30%的感染活性。这篇实验配方中使用的化学添加剂与杨瑞馥将军书中的描述完全吻合，所用的添加剂包括：蔗糖（一种二糖）、谷氨酸（一种氨基酸或者有机酸）、还有牛血清白蛋白（一种血清提取的蛋白）。【3】通过增强耐热稳定性，化学添加剂可以实现病毒的武器化。虽然笔者没有情报解放军是否曾使用添加剂来增强其生物武器新冠病毒的热稳定性，杨瑞馥将军的生物战图书明显表现出他们在这个领域的兴趣和野心。添加剂使得在室温下投放病毒成为可能。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05232618/Picture4-4.png)
+*RSV**在摄氏**37**度下的热稳定性曲线。横轴代表时间（小时），纵轴代表病毒的感染活性，随时间衰减。下方两条线代表未经冻干处理的病毒，而上方两条线代表冻干处理后的病毒干粉。加入添加剂的干粉（虚线）比未加入添加剂的干粉（实线）更能保持感染活性。*
+
+*图源：*
+
+[https://jcm.asm.org/content/jcm/25/9/1769.full.pdf](https://jcm.asm.org/content/jcm/25/9/1769.full.pdf)
+
+杨瑞馥介绍的另一种提升稳定性的方法是微囊技术，就是将病原体细菌包裹在保护囊膜中。通常是在细菌表面涂上聚合物的涂层，这样制成的微型颗粒可以抵抗环境或化学物质的压力，比如胃酸、阳光辐射、高温、或氧化。微囊技术本身是一种无害的技术，用于生产缓释药物、气溶胶化的疫苗、或者长效的生物杀虫剂【4，5】。只是解放军意图将这种技术改为研发生物武器的目的。
+
+杨瑞馥的书明显表明解放军试图利用化学添加剂、化学微囊技术、或基因编辑来增强生物战剂的计划。在全球冠状病毒大爆发的时代，一定要推翻投放病毒的中国共产党，否则疫情永无宁日。
+
+（感谢德意志之鹰将这本生物战教材公布在推特上）
+
+参考文献
+
+1. 杨瑞馥主编。《防生物危害医学》军事医学科学出版社。（2008）
+
+ISBN: 978-7-80245-060-8
+
+2. 徐德忠主编。 《非典非自然和人制人新种病毒基因武器》军事医学科学出版社。（2015）
+
+ISBN: 978-7-5163-0587-4
+
+3. Tannock, G., and et al. “Freeze-Drying of Respiratory Syncytial Viruses for Transportation and Storage.” *Journal of Clinical Microbiology*. Vol. 25, No. 9 (1769-1771)
+
+[https://jcm.asm.org/content/jcm/25/9/1769.full.pdf](https://jcm.asm.org/content/jcm/25/9/1769.full.pdf)
+
+4. Rodríguez, A.P.G., and et al. “Bio-insecticide Bacillus thuringiensis spores encapsulated with amaranth derivatized starches: studies on the propagation ‘in vitro’.” *Bioprocess Biosyst Eng.* **38**, 329–339 (2015). https://doi.org/10.1007/s00449-014-1273-7
+
+5. Eski, A., and et al. “Microencapsulation of an indigenous isolate of Bacillus thuringiensis by spray drying.” *Journal of Microencapsulation*. 36:1, 1-9, (2019) DOI: 10.1080/02652048.2019.1572238
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05232619/Picture5-1.jpg)
+*第二行第四位是杨瑞馥。*
+
+*图源：*https://www.thegatewaypundit.com/2021/04/chinas-military-biowarfare-network-led-covid-19/
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
-
-
-据英国《金融时报》报道，美国国家过敏症和传染病研究所所长福奇呼吁中共国公布九个人的医疗记录——这九人的病情可能为确定新冠病毒是否最先由实验室泄漏提供重要线索。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05231843/8-2.jpg)图源网络
-
-报道称，在2019年11月，武汉病毒研究所的三名研究人员曾出现过严重病情，而另有六名矿工在2012年进入蝙蝠洞后患病。报道引用福奇的话表示，“我想看看报道中提到的在2019年得病的三个人的医疗记录。他们是否真的生病了，如果是，他们得的是什么病？” 此语一出，看似福奇开始转向支持新冠病毒的实验室泄漏理论，实际并非如此。报道称，福奇仍然认为该病毒首先是通过动物传染给人类的，他指出，“鉴于我们在沙斯、中东呼吸综合症、埃博拉、艾滋病毒、禽流感和2009年猪流感方面的经验，我一直认为，（新冠病毒）极有可能是病毒跨越了物种”，“即使实验室的研究人员确实感染了新冠病毒，他们也可能是从其他地方感染该病毒的”，“但我们需要继续调查，直到这种可能性得到证实”。
-
-中共国官方并未公开回应是否会公开这九名最早的新冠病人的病例，但中共坚决否认新冠病毒与实验室有关。几周前，一群著名的科学家联合签署了一封公开信，信中主张认真对实验室泄漏理论进行调查。这促使美国总统拜登在上周要求情报界在90天内就新冠病毒起源的调查得出结论。福奇此次要求中共公开病例的言论是把舆论关注引入不可能有结果的调查中，帮助中共用假消息来分散情报界对新冠病毒实验室起源的真正证据地收集和验证。
-
-无论在国会听证会还是面对媒体采访，福奇一直在否认新冠病毒与武汉病毒研究所的关系，其目的是掩盖他本人在背后与武汉病毒研究所的关系。在已经曝光的800余封福奇的工作邮件中，已有邮件揭露出他可能知道在武汉病毒实验室进行的新冠病毒功能增强实验，并有意在新冠疫情大爆发后对病毒的实验室起源进行掩盖。
-
-郭文贵先生在盖特视频中透露，福奇的工作邮件中有关新冠病毒实验室起源的证据还未向公众披露。当有实锤证据证明福奇与新冠病毒和武汉病毒研究所的关系时，他将因在国会听证中作假而面临重罪。
-
-参考阅读：
-
-[美国传染病专家福奇呼吁中国公布武汉实验室研究人员的医疗记录](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210604-%E7%BE%8E%E5%9B%BD%E4%BC%A0%E6%9F%93%E7%97%85%E4%B8%93%E5%AE%B6%E7%A6%8F%E5%A5%87%E5%91%BC%E5%90%81%E4%B8%AD%E5%9B%BD%E5%85%AC%E5%B8%83%E6%AD%A6%E6%B1%89%E5%AE%9E%E9%AA%8C%E5%AE%A4%E7%A0%94%E7%A9%B6%E4%BA%BA%E5%91%98%E7%9A%84%E5%8C%BB%E7%96%97%E8%AE%B0%E5%BD%95)
-
-[UPDATE 1-Fauci calls on China to release medical records of Wuhan lab workers – FT](https://www.yahoo.com/entertainment/1-fauci-calls-china-release-084208273.html)
-
-[英媒：福奇呼吁中国公布武汉实验室研究人员医疗记录](https://www.zaobao.com.sg/realtime/china/story20210604-1151844)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
+校对/发稿：直截了当
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

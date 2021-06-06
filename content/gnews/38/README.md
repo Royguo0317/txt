@@ -1,56 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月5日美国政要反共推特精选:我们需要知道这场大流行是如何开始的!
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1301421/)
+## 【独立观点】中共重提“三千孤儿入内蒙”，意图缓和与蒙古族关系，继续搞文化灭绝
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1301398/)
 
-众议员迈克·华尔兹： 福奇和科学界为了自身利益，竭尽全力抹黑武汉实验室泄漏理论。 否定川普所说一切的自由媒体和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传机器也是如此。** 除非我们知道这场大流行是如何开始的，否则我们无法阻止下一次大流行！**
-
-
-
-> Fauci & the science community did everything to discredit the Wuhan Lab Leak Theory for their own self-interest.
-> 
-> So did the Liberal Media who negated everything Trump said & the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s propaganda machines.
-> 
-> We can’t prevent the next pandemic unless we know how this one started! [pic.twitter.com/zpf7eAwzLp](https://t.co/zpf7eAwzLp)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401275382465191938?ref_src=twsrc%5Etfw)
+作者：纽约香草山健身部 Jack Li文阳
 
 
 
-参议员玛莎·布莱克本： 当脸书审查员错了时会发生什么？ [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 赢了。 【附福克斯新闻：Jonathan Turley：脸书表示，现在允许提及 COVID-19 可能起源于武汉。多慷慨啊】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
 
 
 
-> What happens when the Facebook censors get it wrong? Communist China wins. [https://t.co/ul6a5cRqZu](https://t.co/ul6a5cRqZu)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 5, 2021](https://twitter.com/MarshaBlackburn/status/1401271190019313667?ref_src=twsrc%5Etfw)
+6月2日，上海市派出代表团到乌兰察布市四子王旗，登门看望“人民楷模”国家荣誉称号获得者都贵玛老人。上海市委书记李强向都贵玛老人颁授“上海市荣誉市民”证章、证书。2021年3月5日下午，习近平参加中共国十三届全国人大四次会议内蒙古代表团审议时，提到了“三千孤儿入内蒙”这段的历史，麻痹蒙古族人民，平缓中共与蒙古族人紧张关系，背地里继续汉化蒙古族。
 
+中共媒体宣传当时年仅19岁的都贵玛主动承担了28名婴幼儿的养育任务，用半个世纪的真情付出诠释了大爱无疆，为民族团结进步事业作出重大贡献，当局还以此为题材拍摄了一部电影宣传。
 
+所谓的“三千孤儿入内蒙”是1959年到1961年间，在中共造成全国范围的大饥荒，导致中国饿死几千万人的背景下，当时上海、江苏、安徽等地的育婴堂米粮眼看就要见底，政府无法继续养活这几千个孩子。中共还算有良知没泯灭的人，把他们送到食物相对充足的内蒙古。让蒙古族人收养这些孤儿，担起这份国家推卸给他们的责任。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05211304/Untitled-design-2021-06-05T191149.296.png)《国家孩子》剧照 / 来源：网易
+这三千孤儿，父母都去哪儿了？中共和习近平不会也不敢回答，但答案却不言自明。这段时隔六十年的历史，中共还拿出来翻炒，习近平的葫芦里一定是毒药。
 
-众议员迈克·华尔兹： 我们应该知道 COVID 是如何开始的。我和卢卡斯众议员给白宫科学办公室 (OSTP) 写了一封信，以彻底了解为什么福奇和 OSTP 在奥巴马于 2014 年结束后重新启动功能增强研究资金，将纳税人的钱汇到武汉实验室。 【附华尔兹众议员在福克斯视频：共和党人要求福奇为正在发生的丑闻作证】
+2020年8月份，内蒙古教育厅发布了一份文件规定从秋天开学起，内蒙古民族语言授课的小学一年级开始使用汉语教材。在此后两年，小学一年级的政治课和历史课也逐步开始改用汉语授课。这下触怒了蒙古族的家长们，内蒙各地纷纷开始了抗议行动，有家长学生穿上蒙古族服装表达不满，有老师参与罢课行动，家长从学校接回孩子，有大学生志愿者用蒙古语开班免费教学，有几百名电视台员工参加抗议活动，甚至有一名学生跳楼以死明志，不治身亡。中共企图以消灭一个民族的语言和文字，来毁掉了这个民族文化精髓，进而消灭这个民族。
 
+内蒙古民众去年连日反抗中共强行实施汉化教学，引起中共恐慌和铁腕镇压。今年中共习近平和上海当局刻意重提“三千孤儿入内蒙”的历史，虚伪的称赞“内蒙古牧民奉献担当，生动诠释了各族同胞手足相亲、守望相助的精神”。中共不会无事献殷勤，对蒙古族的文化灭绝一刻都不会停缓，只是先给人灌迷魂汤，好再下手而已。中共通过对少数民族的汉化同化，摧毁其价值观，使人们丧失正确的判断力，用汉语向他们灌输中共党文化，便于洗脑，来达到它的长久统治邪恶目的。
 
+参考阅读：http://sh.people.com.cn/n2/2021/0602/c134768-34757880.html
 
-> We deserve to know how COVID started.[@RepFrankLucas](https://twitter.com/RepFrankLucas?ref_src=twsrc%5Etfw) & I sent a letter to the White House Office of Science (OSTP) to get to the bottom of why Fauci & OSTP turned Gain-of-Function research funding back on after Obama ended it in 2014, sending taxpayer money to the Wuhan lab. [pic.twitter.com/393vmKVqgC](https://t.co/393vmKVqgC)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401256664976736259?ref_src=twsrc%5Etfw)
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+**更多资讯，更多关注**
 
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-参议员朗·约翰逊: 自大流行开始以来，冠状病毒可能来自武汉病毒研究所的证据一直很明显。为什么福奇博士会嘲笑并驳回它？为什么主流媒体攻击任何指出它的人？ [@FDRLST](https://twitter.com/FDRLST) 【附thefederalist杂志文章：疫苗令不应成为下一个 COVID 政策灾难】
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-
-> Evidence that the coronavirus might have come from the Wuhan Institute of Virology has been in plain sight since the start of the pandemic. Why did Dr. Fauci ridicule and dismiss it? Why did mainstream media attack anyone who pointed it out? [@FDRLST](https://twitter.com/FDRLST?ref_src=twsrc%5Etfw) [https://t.co/Hx9bHXiYZo](https://t.co/Hx9bHXiYZo)
-> — Senator Ron Johnson (@SenRonJohnson) [June 5, 2021](https://twitter.com/SenRonJohnson/status/1401252483574419457?ref_src=twsrc%5Etfw)
-
-
-
-众议员布莱恩·马斯特： 美国人应该从拜登政府获得透明度。 【附华盛顿观察者报报道：福奇博士知道什么，什么时候知道的？】
-
-
-
-> Americans deserve transparency from the Biden Administration.[https://t.co/PW4KGCYvOr](https://t.co/PW4KGCYvOr)
-> — Rep. Brian Mast (@RepBrianMast) [June 5, 2021](https://twitter.com/RepBrianMast/status/1401252482961920006?ref_src=twsrc%5Etfw)
-
-
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
