@@ -1,33 +1,141 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【五月花评】以毒灭共，直击CCP死穴
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1303014/)
+## 迈克·庞佩奥：今天，我们纪念天安门的英雄
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1302974/)
 
-五月花写作组 | 作者：老枪6 | 编辑：文芷、文合 | 封面：水涨船高 | 发布：吐纳
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06113726/image0-13.jpg)
-美国总统拜登下令，90天内必须提交调查病毒起源的报告。消息一出，可是给了中共当头一棒。这可是真的是让中共坐立难安、瑟瑟发抖了。因为中共现在最怕的就是提到对疫情起源的追查。这比提到新疆问题、西藏问题、香港问题和台湾问题还要让中共感到头痛和惧怕。他们心里明白，这件事如果一旦被捅破，足可以要了中共的老命。所以，中共对任何国家和个人。如果谁提出要对中共追查的话，中共立马就会跳脚，进行谩骂和翻脸。为什么如此敏感？中共分明是心里有鬼，是在心虚，好像谁要是提到中共病毒的问题，中共都会急急忙忙的，慌里慌张的，通过外交、媒体用战狼的方式进行掩盖、狡辩和甩锅， 把自己装扮成为一个受害者。
+**字幕内容：**
 
-中共怕什么，偏偏就来什么。中共总以为只要千方百计隐瞒、掩盖或者甩锅自己制造病毒、祸害全世界的真相，就能逃脱追责。可中共却没想到，在正义面前，人们沒有被中共的狡辩所蒙骗，反而让更多的人看清了中共的狼子野心和邪恶本质，毅然地站出来揭露中共的罪行。
+**迈克·庞佩奥：**
 
-闫丽梦博士，是爆料革命勇敢的战士，她像巨人一样站在了揭露中共病毒的最前沿。她坚定地秉持着上天赋予的人性、道德的崇高理念，用科学的、不可辩驳的论据，向全世界充分而且及时的证明了，病毒就是中共军方试验室制造出来的，根本不是来源于所谓的自然界，新冠病毒就是一种超限生化武器。
+32 years ago, a tragedy occurred in Tiananman Square Massacre
+32年前，天安门广场发生了一场悲剧
 
-闫博士揭露病毒真相的报告，就像威力巨大的炮弹，精准的打在了中共的死穴上。她不顾个人安危，冒着生命危险，顶着自己的亲人被中共恐吓、迫害的巨大压力，勇敢地站出来揭露中共病毒的真相，并且通过路德社于2020年1月19日及时地公布了病毒会人传人大爆发的真实情况，向全世界发出了疫情将全球蔓延的警告。
+perpetrated by the Chinese Communist Party against its own people
+是由中国共产党镇压它自己的人民而犯下的罪行
 
-如今，中共病毒在全世界已经夺去了370多万无辜人的生命，让将近两亿人感染，重创了世界各国的经济，其程度无法估量，史无前列的惨烈。
+shot the world’s conscience
+大屠杀震惊了世界
 
-人们都想搞清楚，究竟是谁制造的病毒，究竟是谁导致病毒传遍了全世界。因此，人们要问，为什么疫情会在武汉首先爆发？武汉爆发疫情后，中共为什么会放走几百万人，而且飞向了世界各地。所以现在全世界人民都想知道中共究竟做了什么。针对这些问题，早在去年1.19路德社首报新冠病毒大爆发后，又对疫情就作了详细的分析和报道。随后，闫丽梦博士陆续发表了三篇有关新冠病毒是中共制造的报告，明明白白将真相告诉了世人。也正是因为，爆料革命不间断地与中共在网络上展开了针锋相对的斗争，以及闫博士的重磅科学报告，越来越多的人和有良知的科学家们觉醒了。
+And it highlighted the contrast between the freedom loving Chinese people and the tyranny in Beijing.
+它强调了热爱自由的中国人民
+与北京的暴政之间的对比
 
-前不久，英国圣乔治大学肿瘤医学家达格利基教授，和挪威病毒学家索伦森共同撰写了22页的研究报告，报告中说他们在研究疫苗的时候，发现新冠病毒被人为动了手脚，指出中共试图用“逆向工程”掩盖痕迹，并且留下了“独特的指纹”。中共制造病毒的真相正在被全面揭开。长期和中共勾兑的美国 NIH的安东尼.福奇国会改口病毒非来自于自然这是爆料革命揭露病毒真相的里程碑式胜利！今后还会有更多的人站出来揭露中共病毒的真相。
+For the next 30 years, the only place
+接下来的30年间，唯一的地方
 
-现在，全世界要求追查病毒真相的呼声是越来越高涨，因为中共的所作所为，已经引起了全天下人的共愤！无论中共如何去掩盖、抵赖、甩锅也逃脱不了全世界的追责。以毒灭共，才能打到中共的七寸，动摇中共的根基；彻底揭露和查清病毒的真相，才能给世界人民一个交代。如今，中共无疑就是杀害世界人民的罪魁凶手，成为了世界的公敌，必将得到全世界人民的审判！
+The only place that all of China’s Sovereign Domain.
+在所有中共王国唯一的地方
 
-* * *
+Where free people could commemorate the martyrs of Tiananmen was Hong Kong.
+自由人可以纪念天安门烈士的地方只有香港
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+Every year, on the June 4 anniversary.
+每年的 6 月 4 日纪念日
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+People of Hong Kong honors the lives lost in Tiananmen
+香港人民纪念在天安门失去的生命
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+you cherish the freedoms that are the birthright of every human being,
+你珍惜每个人与生俱来的自由
 
-+1
+and which were brutally denied to your countrymen,
+并且被你的同胞残忍地拒绝了
+
+you’re able to mark this anniversary,
+你可以纪念这个周年纪念日
+
+because of the high degree of autonomy that Hong Kong enjoyed
+由于香港享有的高度自治
+
+the city was a bastion of liberty and like to assault.
+这座城市是自由的堡垒和喜欢进攻
+
+Yet now. Now the same regime that committed the massacre in Tiananmen Square
+然而现在，在天安门广场犯下大屠杀的同一个政权
+
+has broken its promises to Hong Kong.
+已经违背了对香港的承诺
+
+The fundamental freedoms and autonomy,
+北京承诺保证给你们的
+
+Beijing was promised to guarantee to you
+基本自由和自治
+
+it took away from you.
+却从你们那里夺走了
+
+For the first time, commemorating the Tiananmen massacre is illegal here,
+首次，在这里纪念天安门大屠杀是违法的
+
+it’s punishable by new security law.
+它会受到新的安全法的惩罚
+
+The National Security Law.
+国家安全法
+
+This is a dark reminder that the regime in Beijing
+这是一个黑暗的提醒，北京的政权
+
+still refuses to respect the rights of its own people.
+仍然拒绝尊重本国人民的权利
+
+It’s also a reminder of why we’re all gathering here tonight.
+这也一个提醒为什么今晚我们都聚集在这里
+
+We do so virtually
+我们实际上是这样做的
+
+but we do so defiantly and proudly
+但我们以挑衅和自豪的方式这样做
+
+And we continue a glorious tradition of commemorating the heroes of Tiananmen.
+我们延续了纪念天安门英雄的光荣传统
+
+I’m especially honored to be here now.
+我作为美国第70任国务卿
+
+As America’s 70th Secretary of State
+特别荣幸能来到这里
+
+when Hong Kong freedom was being taken away.
+当香港自由被剥夺时
+
+I was aware of the courageous work of HongKongers
+我知道香港人的勇敢和努力
+
+you fight, the fight to preserve your dignity and your autonomy,
+你战斗，为维护你的尊严和自主权而战
+
+you fight for the freedoms of every man, woman and child, made in the image of God.
+你为每个按上帝的形象而造的男人、女人
+和孩子的自由而战
+
+The Communist Party may imprison heroes like freedoms,
+共产党可以囚禁喜欢自由的英雄
+
+loving Jimmy Lai, Martin Lee, and others.
+受爱戴的黎智英、李柱铭等人
+
+But you, you show that the flame of freedom in Hong Kong remains a beacon.
+但是你，香港人向世人展示了香港的自由之火仍然是明亮的灯塔
+
+May God bless, Hong Kong.
+愿上帝保佑香港
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: [https://twitter.com/mikepompeo/status/1400853918142320646?s=24](https://twitter.com/mikepompeo/status/1400853918142320646?s=24)
+英听校：康州盘古农场 – Layka
+翻译：康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场- 银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0
