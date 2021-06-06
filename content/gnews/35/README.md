@@ -1,15 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （中英）传染病专家史蒂芬-史密斯博士说，如果 “专家们不否定羟氯喹，10万条生命本可以得到拯救
-` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1302044/)
+## 快讯！美国3名联邦参议员6日访台
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1302163/)
 
-- 中文简介：传染病专家史蒂芬-史密斯博士说，如果 “专家 “们不否定羟氯喹，10万条生命本可以得到拯救。
-- 英文标题：New study reveals success of hydroxychloroquine as COVID treatment Excerpt: Infectious disease specialist Dr. Stephen Smith says 100k lives could have been saved had the ‘experts’ not dismissed it (hydroxychloroquine)
-- 英文简介：New study reveals success of hydroxychloroquine as COVID treatment Excerpt: Infectious disease specialist Dr. Stephen Smith says 100k lives could have been saved had the ‘experts’ not dismissed it (hydroxychloroquine)
-- 原视频链接：[https://video.foxnews.com/v/6257007407001/#sp=show-clips](https://video.foxnews.com/v/6257007407001/#sp=show-clips)
+【日本东京方舟农场】撰稿：青衣      校对：文小律
+
+据《德国之声》中文网6月5日报道，台湾外交部和美国在台协会6月5日发布消息称，三名美国参议员将于6月6日访问台湾，并将与台湾总统蔡英文会面，讨论台美关系和区域安全等相关问题。
+
+台湾外交部6月5日发布新闻稿称，美国联邦参议员达克沃丝、苏利文及昆斯一行10人将于6日访问台湾。在台期间，将与台湾政府高层就台美关系、区域安全等各项重要议题交换意见。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06040943/1FADE37E-E16A-4048-98C9-A0A58327317A.jpeg)
+
+另据《苹果新闻网》报道，该参访团将先到韩国拜访，然后再飞往台湾。3位参议员的此次访问为其在印太地区访问的其中一环。
+
+据悉，台湾总统蔡英文将于台湾时间周日上午8点30分，在台北市松山空军指挥部机场会见三位参议员。总统府发言人张敦涵指出，本次来访的参议员均为台湾在美国国会的长期坚定支持者。
+
+据台湾《中央社》报道，美国在台协会（AIT）也同步发布新闻稿证实此事。台湾外交部的声明称，此次访问团10名成员涵盖民主党和共和党的联邦参议员。其中达克沃丝（Ladda Tammy Duckworth）和苏利文（DanielScott Sullivan）均为联邦参议院军事委员会成员，曾多次在美国国会投票力挺友台议案，或连署友台联名函。昆斯（Christopher Andrew Coons）则是联邦参议院外交委员会成员，是《台湾保证法》（Taiwan Assurance Act）及《台北法》（TAIPEI Act）的共同提案人。
+
+台湾外交部表示，此次访问是美国联邦参议院军事委员会自去年疫情以来，首度规划的国际访团。此行将台湾纳入优先访问国家，展现美国国会跨党派对台美关系一致的坚定支持。外交部还对三名参议院议员对台湾各项议题的鼎力相助表示感谢，并称相信参议员们的此行将有助进一步深化台湾与美国国会的深厚情谊。
+
+中共国经常谴责外国官员访问台湾，称这些访问是对中共国内部事务的干涉。此次美国参议员访台，显示了美台关系的进一步加深，相信势必会引起中共的强烈不满，接下来且看中共外交部将如何表演“口炮”。
+
+注：本文仅代表作者观点
+
+参考链接：
+
+1. [https://twitter.com/dw\_chinese/status/1401189567055552516](https://twitter.com/dw_chinese/status/1401189567055552516)
+2. [https://twitter.com/RFA\_Chinese/status/1401217872467316742](https://twitter.com/RFA_Chinese/status/1401217872467316742)
+3. [https://twitter.com/aboluowang/status/1401201536965824512](https://twitter.com/aboluowang/status/1401201536965824512)
 
 
-
-
-0
++1

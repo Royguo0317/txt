@@ -1,59 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/03 弗林将军：美国正在觉醒，即将迎来一场大变革
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1301996/)
+## （中英）传染病专家史蒂芬-史密斯博士说，如果 “专家们不否定羟氯喹，10万条生命本可以得到拯救
+` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1302044/)
 
-视频字幕：free20200604 | 听写/翻译：葡萄树 | 校对：Roberts | 简评/文字整理/编辑：胖丁 | Page: Daoiii
+- 中文简介：传染病专家史蒂芬-史密斯博士说，如果 “专家 “们不否定羟氯喹，10万条生命本可以得到拯救。
+- 英文标题：New study reveals success of hydroxychloroquine as COVID treatment Excerpt: Infectious disease specialist Dr. Stephen Smith says 100k lives could have been saved had the ‘experts’ not dismissed it (hydroxychloroquine)
+- 英文简介：New study reveals success of hydroxychloroquine as COVID treatment Excerpt: Infectious disease specialist Dr. Stephen Smith says 100k lives could have been saved had the ‘experts’ not dismissed it (hydroxychloroquine)
+- 原视频链接：[https://video.foxnews.com/v/6257007407001/#sp=show-clips](https://video.foxnews.com/v/6257007407001/#sp=show-clips)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/e7vU6Ql35O78y/images/16bcbb62-a57f-4b5a-a993-60871e28ce40.png?asset_id=a9122c6d-0be1-4eba-a7fa-09a69ffd0264&amp;img_etag=%2265500601866427120eeffb4a5376d471%22&amp;size=1024)](https://spark.adobe.com/page/e7vU6Ql35O78y/images/16bcbb62-a57f-4b5a-a993-60871e28ce40.png?asset_id=a9122c6d-0be1-4eba-a7fa-09a69ffd0264&amp;img_etag=%2265500601866427120eeffb4a5376d471%22&amp;size=1024)
-
-**简评：**
-
-在接下来的几个月里，将有一次大行动。美国正在觉醒，面临一场大复兴、大变革。新中国联邦对美国至关重要。
-
-《超限战》这本书中描述了如何统治全球、成为唯一的超级大国的整个计划。美国如今正在发生这样的事情。
-
-美国人民厌倦了联邦政府的腐败，现在这些腐败已经曝光。川普赢得了大选，林德尔提出一个重大诉讼。
-
-我，弗林将军，会与新中国联邦结盟!
-
-[GTV视频链接：这个国家正在觉醒，一场伟大复兴，一场大变革](https://gtv.org/video/id=60bb7323c04fd544b469d958)
-
-
-
-**视频字幕：**
-
-**弗林将军：** 在过去的三到四个月里，我大概已经去过15个州。在接下来的几个月里，我们将有一次大行动。在接下来的几个月里，我们将有一次大行动。在接下来的几个月里，我们将有一次大行动。
-
-（你们）这个群体，在座的这个群体，至关重要。对我们这个国家的生命之血至关重要。
-
-我可以把所有关于战争的问题详细过一遍。 过去几十年，我一直研究我们的对手。现在我知道什么是100年计划。那个100年计划，已经摆在桌面上了。史蒂夫，让我看看那本书。有意思的是许多年前我在海军任职时，一个机会我遇到了写这本书的人。
-
-当时，我是一名陆军军官，但我是在海军执行任务。他们把撰写《超限战》的军官带到了美国参加我们在军队中的一次外交活动，就是那种军队与军队之间的关系和交往。
-
-这真的很有意思，因为当时写书的时候并不是说这就是未来的运作方式。它真正写的是关于如何统治全球的整个计划，基本上就是如何主宰，如何成为唯一的超级大国。
-
-我们今天讨论美国正在发生的事情，其实这种讨论很少在美国发生。因为这个国家的人们厌倦了联邦政府，我就是这样，我也厌倦了我们的政府。我厌倦了我们所经历的腐败，这些腐败已经被曝光。在这个国家，我们有数以亿计的人看到事情的本来面目。
-
-他们看到了真正的唐纳德•川普。他们知道川普总统赢得了这次选举。这一点是毋庸置疑的。那么现在我们该做什么呢？我会去我们正在打官司的每一个州。
-
-今天，迈克•林德尔提出一个重大的诉讼。我不知道迈克今天晚些时候是否会在这里，他会谈一谈此事。
-
-但是，当我们前行的时候，当我们作为美国公民开始思考“我们是谁”的时候，新中国联邦的一周年，意义重大，意义重大。这是用了很多战略思考，才走到这一步。
-
-那么现在谁是你们的伙伴？谁是你们的盟友？告诉你们，你们正看着你们的盟友。我将与你结盟。（欢呼36秒）
-
-[!\[\]()!\[\](https://spark.adobe.com/page/e7vU6Ql35O78y/images/d7ea1dc4-2ab9-442e-8416-8978ee09701a.jpg?asset_id=8e16aaa9-74e8-41bd-a0c1-993b1d297a05&amp;img_etag=%2212af11abe3b0375ba2c07bd9e96e25a9%22&amp;size=1024)](https://spark.adobe.com/page/e7vU6Ql35O78y/images/d7ea1dc4-2ab9-442e-8416-8978ee09701a.jpg?asset_id=8e16aaa9-74e8-41bd-a0c1-993b1d297a05&amp;img_etag=%2212af11abe3b0375ba2c07bd9e96e25a9%22&amp;size=1024)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/e7vU6Ql35O78y/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/e7vU6Ql35O78y/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 
