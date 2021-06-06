@@ -1,63 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥确认国务院和情报界对武汉实验室病毒调查强烈反对
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1303110/)
+## 【重磅】川普总统在大会上公开指出蝠奇在病毒起源上犯大错！要让中国共产党负全责！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1303143/)
 
-翻译:康州盘古农场 – Mike Li
+摘要：在2021年6月5日的北卡莱罗纳州的共和党大会上，淡出公众视线已久的川普总统，首次在这样盛大的场合发表演讲，在长达一个半小时的演讲中他所受的欢迎更甚从前。而最让人振奋的是，他清清楚楚地说出了**中国共产党**是病毒的来源，中国共产党应该对病毒负全责。他也明确地和蝠奇划清了界限，指出蝠奇在病毒起源上犯了其人生最大的错误。川普总统也重提他在疫情初期关闭边境阻断来自中国的感染和在他的任上终止NIH对武汉病毒所的资助等成绩。
 
-校对:康州盘古农场 – TrueSky
 
-编辑:康州盘古农场 – 傻小子
+【42:50-45:05】
+**讲话中英文对照版**
 
-发布：康州盘古农场 – 彩虹 Rainbow
+**President Trump:**
 
-**据《大纪元时报》作者：MARK TAPSCOTT，2021年6月3日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06121126/pa1.jpg)
-前国务卿迈克-蓬佩奥6月3日向《大纪元时报》证实，他为查清中共病毒（又称新型冠状病毒）如何从中共国传播到美国而做出的努力在美国政府内部遭到持续反对。
+The media, the Democrats, and the so-called experts are now finally admitting what I first said 13 months ago. The evidence demonstrates that the virus originated in a Chinese government lab. Couldn’t say it. You couldn’t say it. Dr. Fauci, who I actually got along with, he’s a nice guy, he’s a great promoter. Not a great doctor, but he’s a hell of a promoter. He likes television more than politician in this room and they like television. But he’s been wrong on almost every issue and he was wrong on Wuhan and the lab also. Very wrong. We ended the payments. They were started in 2014 and then I can tell you Mark Meadows came in and I talked to him and he saw what I saw. I said, “What the hell’s going on? When did that start?” It started in 2014 and we ended it, our administration ended it.
 
-当被问及6月3日《名利场》（Vanity Fair）报道中披露的国务院内部主要官员试图阻止公众了解美国资金支持中共国武汉病毒研究所（WIV）的功能增强益研究时，蓬佩奥描述了一场“有争议的斗争”。
+**川普总统：**
 
-这项研究的重点是重组自然发生的病毒以使其更具毒性并可传播给人类的技术，早在2012年就通过美国国家卫生研究院和一个名为生态健康联盟的非营利性基金会，用美国税收资助了部分研究。
+媒体、民主党人和所谓的专家现在终于承认了我13个月前第一次说的话。证据表明，该病毒源自中国政府的一个实验室——不能说，你不能说。蝠奇（Fauci）博士，实际上我和他相处得很好，他是个好人。他是个很好的“鼓吹者”，但不是一个好医生，但他是一个“绝佳”的鼓吹者。他比这里的任何一位政治家都更爱上电视，但他几乎在每个问题上都是错的。他在武汉和实验室上也是错的，非常的错误！是我们终止了[给武汉实验室的]资助，但他们[NIH]是在2014年开始的资助。我可以告诉你，[当时]马克-梅多斯到我那里，我就和他谈，因为他和我一样也意识到了这个问题。我说：“这到底是怎么回事？那[NIH的资助]是什么时候开始的？” [他说：]资助开始于2014年。然后我们把这个资助终止了，是我的那届政府终止了资助。
 
-《名利场》的分析“发现利益冲突，部分源于支持有争议的病毒学研究的大量政府拨款，这导致在每一步都阻碍了美国对COVID-19起源的调查。”
+But generally speaking, I went the opposite way of Dr. Fauci, what he was saying. For instance, Fauci said, “Do not close our borders to China or Europe,” but I did it anyway. Months later, he said I made the right decision and saved thousands and thousands of lives. He said it was the right decision, but he did not want to close that border. I said, “Wait a minute, there’s tremendous infection over there. We can’t let this happen.” We closed it and I think we saved hundreds of thousands of lives. You remember the number? It was 2.2 million people in our country who were expected to die. Fauci said powerfully at the beginning no masks. You remember that? No, masks don’t work. Masks don’t. Then he went into masks and then he became a radical masker. I recall him… If you have three, if you have four. Get a pair of goggles also ideally. Let’s wear them for another five or six years.
 
-文章说：“在国务院的一次会议上，试图要求中共国政府提供透明度的官员说，他们的同事明确告诉他们不要探讨武汉病毒研究所的功能增强实验，因为这将使美国政府对它的资助受到不受欢迎的关注。”
+但总的来说，我走的是与蝠奇博士相反的路。他都说过些什么，例如，蝠奇说过，“不要关闭我们与中国或欧洲的边界”，但我还是这样做了。几个月后，他说我做出了正确的决定，拯救了成千上万的生命，他说这是正确的决定，但他当时可不想关闭边境。我说：“等一下，那里[中国武汉]有巨大的疫情。我们不能让这种情况[在美国]发生。” 于是我们就关闭了边境，我想因此我们拯救了数十万人的生命。你们还记得那个数字吗——在我们国家，预计有220万人会死亡。蝠奇在一开始就鼓吹不要戴口罩，你们还记得吗？[蝠奇说]“不，口罩不起作用。口罩不起作用。”然后他自己却开始说口罩，成为一个激进的戴口罩主义者。我记得他说你得戴三层口罩，如果你有四个就戴四个，最好再戴一副护目镜，让我们再戴上五、六年。
 
-自2019年底该病毒首次出现以来，中共一直坚持认为病毒是通过武汉的一个海鲜农贸市场的蝙蝠传播到人类。然而，一些政府和公共卫生官员、私营部门的科学家和调查记者自2020年初以来一直说，有大量证据表明，病毒以某种方式从WIV泄露并爆发。
+But Fauci has, perhaps, never been more wrong than when he denied the virus and where it came from. The time has come for America and the world to demand reparations and accountability from the Communist Party of China.
 
-时任总统唐纳德-川普和蓬佩奥，以及参议员汤姆-科顿（R-Ark.）在2020年4月公开指出这种证据的存在，并呼吁中共官员允许独立调查员访问WIV及其实验记录。中共拒绝这样做。
+但是，**蝠奇也许从来没有犯过像他否认病毒和它的来源那样的错误。现在是美国和世界要求中国共产党进行赔偿和问责的时候了！**
 
-2020年11月选举后，蓬佩奥在国务院和川普政府内部推动公开发布尽可能多的证据。
+新闻撰写 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-他于1月15日发表了一份声明，其中包括一项重要的披露，即WIV的研究人员似乎在疾病蔓延到整个中国和包括美国在内的其他国家的几个月前就出现了病毒症状。
-
-该声明还指出了在WIV进行的功能增强实验，并询问美国的资金是否可能被挪用于WIV的中共国秘密军事项目。
-
-蓬佩奥6月3日对《大纪元时报》说，但即使是发表这份声明也很费劲。
-
-他说：“我在2020年底开始意识到，我们现在对支持在1月中旬发布的数据点的信心增加了。时间显然在流逝，我在国务院内部甚至在更广泛的范围内，都在努力争取。”
-
-一个主要的障碍是证据的重要部分被情报机构持有，这些机构反对公开发布这些证据。
-
-蓬佩奥说：“在国务院之外，还有一些地方拥有情报界的数据集，所以我们一直在努力争取让他们给我们尽可能多的空间来表达真相。
-
-“我们正在起草保护需要保护的机密内容的语言，但我们想确保我们在公共空间得到这些信息。
-
-这位前国务卿说，他当时认为这很重要，并在今天继续说，美国人民应该知道所有的事实，如果病毒真的从WIV中逃脱，中共国政府应该被追究责任。
-
-“这有两个原因。第一，这是一个透明度问题，第二，我们希望中国共产党也必须解释我们所知道的事情，所以我们围绕我们所做的事情有很高的确定性，”蓬佩奥说。 “这份声明是非常精心制作的，但它的内容是毫不含煳的。”
-
-一位直接了解这些事情的前国务院高级官员在谈到背景时告诉《大纪元时报》，蓬佩奥向参与国务院调查病毒来源的每个人明确表示，他们要追求事实，无论它们指向何处。
-
-当被告知内部有人反对这项工作时，这位前高级官员说，蓬佩奥用一句反映其军队生涯的咸涩格言作为回应。
-
-他说，去他们的，告诉他们是国务卿说要做的’。他还说了一些非常、非常重要的话。他说：‘我不在乎你们挖出什么结论。这可能是我们在政治上喜欢听到的东西，或者是我们不喜欢听到的东西，但我想知道真相’。这正是这个小组在整个调查过程中的态度。
-
-文章来源:[https://www.theepochtimes.com/pompeo-confirms-intense-opposition-to-wuhan-lab-probe-within-state-department-intelligence-bureaucracies\_3843740.html](https://www.theepochtimes.com/pompeo-confirms-intense-opposition-to-wuhan-lab-probe-within-state-department-intelligence-bureaucracies_3843740.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1

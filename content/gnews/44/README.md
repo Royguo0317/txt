@@ -1,100 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（三十七）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1302939/)
+## 【热点播报】川普：腐败的社交媒体公司必须付出代价！
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1303111/)
 
-作者：纽约香草山信息部 6zero4
+作者：香草山写作组  Naughty(文行)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
-
-
-
-6月5日塞林博士的7连推：
-
-第1推，转发PJ Media记者Paula Bolyard昨天刚刚发布的一篇文章“报告：一位对中共生物武器计划‘知情”的中共高级别潜逃人员正在与美军国防情报局合作，这实在太糟糕了！”了解中国生物战计划的叛逃者。正如我先前所指出的那样，这比疫情起源焦点WIV有更加广阔的视野，包括炮制支持病毒自然起源学说的病毒变种，如在虚假的RaTG13和RmYN02上投入的力量。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
 
-> Defector with knowledge of China's biowarfare program. As I noted before it is much broader than the Wuhan Institute of Virology & attempts to make variants supporting the naturally-occurring theory links back to the fake RaTG13 & RmYN02 attempts[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/M1hb32wgDj](https://t.co/M1hb32wgDj)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 5, 2021](https://twitter.com/LawrenceSellin/status/1401040334709198849?ref_src=twsrc%5Etfw)
+川普在脸书宣布对其账号至少再封停两年后，对脸书做出了回应——称这个时间安排是为了在2022年中期选举时削弱他在社交媒体的影响力。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06120251/image0-14.jpg)
 
+他说：“Faecbook的裁决是对创纪录的7500万人以及许多其他在2020年被操纵的总统选举中投票给我们的人的侮辱。”“他们不应该允许他们逃脱这种审查和沉默，最终，我们会赢。我们的国家再也不能忍受这种虐待了！”
 
-第2推，转发塞林博士自己昨天6月4日美东时间早上8点接受未经透露的新闻媒体采访之视频，阐述CCP正在竭尽所能地编造一系列稀奇古怪的支持性材料，诸如虚假蝙蝠冠状病毒RaTG13及其新近虚假变种等，以维护关系到其生死存亡的自然起源理论，进而为PLA护犊子。
+周五早些时候，Facebook就唐纳德·特朗普脸书账号继续被封停发表了声明。
 
+据《华尔街日报》报道，Facebook 表示，它将暂停唐纳德·特朗普的账户两年，正式对这位美国前总统处以长期处罚。此前其独立监督委员会表示，该公司无限期禁止令是错误的。
 
+Facebook表示，它将重新考虑从1月7日，即美国国会抗议事件的第二天，暂停他的账户两年。
 
-> Clip of Dr. Lawrence Sellin June 4, 2021 (8AM EDT USA) interview, describing the CCP's effort to protect the PLA from COVID-19 blame by the fake bat coronavirus RaTG13 and the new fake variants trying to support the dead naturally-occurring origin theory.[https://t.co/fMRpg7kPBv](https://t.co/fMRpg7kPBv)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 5, 2021](https://twitter.com/LawrenceSellin/status/1401109456532934659?ref_src=twsrc%5Etfw)
+“关于封停川普账号的原因，我们认为他的行为严重违反了我们的规则，根据这些规则他应受到新执行协议规定的最高处罚。”该公司周五在一篇博客文章中写道。
 
+脸书的时间安排使这位前总统在2022年中期选举的社交媒体影响力成为问题。这显然是一个出于政治动机的举动，与“安全”或任何其他可能合法的理由无关。
 
+本周早些时候，有广泛报道称唐纳德·特朗普再次活跃在Facebook和Instagram上。但脸书很快澄清了这些报道，“不，关于川普总统的账号在我们平台上的存在状况没有任何变化。Facebook的安迪·斯通在推特上回应称：“他仍然被无限期封停。”
 
-第3推，我们需要停止谈论COVID-19起源的问题，因为辩论已经结束，它就是实验室制造的。我们当务之急是曝光在PLA队伍中，是哪些人在制造并是如何制造出这个病毒的。贴上一张爆料革命的宣传图片，上书文字“CCP病毒，超限生物武器”。
+在脸书决定在3月下旬维持封停后，唐纳德·特朗普猛烈抨击了大科技公司巨头，指责这些巨头串通一气，阻止他在美国人民平台上与他们交谈。
 
+特朗普在他现已解散的数字平台上写道：“脸书、推特和谷歌所做的完全是我们的国家耻辱和尴尬。”
 
+他继续说：“美国总统已经被剥夺了言论自由，因为激进的左翼疯子们害怕真相，但真相无论如何都会出来，而且比以往任何时候都更加强大。我们国家的人民不会支持它们——这些腐败的社交媒体公司必须付出政治代价，绝不能再允许它们破坏和摧毁我们的选举进程。”
 
-> We need to stop talking as if there is a question about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) . The debate is over. It was made in a laboratory. Now we need to expose those in the People's Liberation Army who made it and how they made it.[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/Ia18XQqKAr](https://t.co/Ia18XQqKAr)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 5, 2021](https://twitter.com/LawrenceSellin/status/1401213801387679745?ref_src=twsrc%5Etfw)
+2020年总统大选拜登借川普被社交媒体噤声之利“侥幸”胜选，如今社交媒体俨然成为无冕之王，凭借自身作为与大众接触的便捷渠道的身份，拥有评判是非真假和判定善恶好坏的无上权力，甚至可以影响国家领导人的政治前途。
 
+但“仗剑者必死于剑下”，在中期选举即将到来之时，民主党在受惠之际还应该认真考虑一个问题：如何监管社交媒体手中巨大的权力。今天它们可以帮你战胜对手，明天它们也能变成对手手中的利剑刺向你的心窝……。无论结局如何，由社交媒体滥用权力导致的结果一定是对整个国家有害的，这对美国两党甚至全世界都是一个非常值得慎重考虑的问题。
 
-
-第4推，感谢COVID-19侦探“占戈鹰Tuan”转发塞林博士自己2天前接受Baltimore WCBM广播电台主持人Sean Casey专访的视频，乃讨论福奇的邮件门、由福奇资助并与中共军方合作的一股力量对COVID-19 实验室起源的掩盖，以及CCP-PLA对美国实验室的渗透。再次贴上这个采访视频。
-
-
-
-> Thank you to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@Tuan\_himalaya](https://twitter.com/Tuan_himalaya?ref_src=twsrc%5Etfw) for posting my interview about the [#FauciEmails](https://twitter.com/hashtag/FauciEmails?src=hash&amp;ref_src=twsrc%5Etfw), the cover-up of the laboratory origin of [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) Fauci-funded collaboration with the Chinese military and infiltration of U.S. labs by CCP and PLA.[https://t.co/Zvg72KZ0C2](https://t.co/Zvg72KZ0C2)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 5, 2021](https://twitter.com/LawrenceSellin/status/1401218305940205570?ref_src=twsrc%5Etfw)
-
-
-
-第5推，再次贴上刘善虑伙同其他3位重量级美国大学教授未雨绸缪，早在COVID-19疫情初期的2020年2月13日，就联合发表在Emi上的那篇文章“无任何可信证据支持SARS-CoV-2的实验室起源”之网页截图。向COVID-19侦探们请求支援，我们正在收集CCP科学家的名单，他们在中共国接受过训练，并在美国工作，而且与PLA合作。我们需要他们的名字，照片，在中共国的受训地点，一篇证明其与PLA合作的论文，以及任何与他们相关的不同寻常的信息。
-
-
-
-> Requesting help of all COVID-19 detectives. We are making a list of CCP scientists, trained in the PRC, but working in the U.S. and collaborating with PLA scientists. We need name, photo, where trained in PRC, an article showing work with PLA and something unusual about them. [pic.twitter.com/lpSJg1i3QG](https://t.co/lpSJg1i3QG)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 5, 2021](https://twitter.com/LawrenceSellin/status/1401254756283260930?ref_src=twsrc%5Etfw)
-
-
-
-第6推，附上塞林博士自己昨天6月4日接受安全自由电台(Secure Freedom Radio)专访的完整音频，讨论有关福奇及其对COVID-19起源的掩盖，CCP-PLA对美国病毒研究计划的渗透，以及他们用虚假的RaTG13病毒基因序列误导全球科学家等话题。
-
-
-
-> Full June 4, 2021 interview with Dr. Lawrence Sellin on Secure Freedom Radio about Dr. Anthony Fauci and the cover-up of the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw), infiltration of U.S. virus research programs and the fake RaTG13 sequence used to confuse global scientists.[https://t.co/BNrTSZzRpL](https://t.co/BNrTSZzRpL)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 5, 2021](https://twitter.com/LawrenceSellin/status/1401268023240138756?ref_src=twsrc%5Etfw)
-
-
-
-第7推，转发一份美国政府的文件链接，该文件标题为“关于引发潜在疫情之病原体的关注和监测，为此推出部门发展检讨机制的政策性指引”。该文件发布于2017年1月9日，亦即是在川普总统入主白宫前不到2周的时间由奥巴马政府发布的，以重启“功能获得”研究。
-
-
-
-> It was the Obama Administration that restarted "Gain of Function" research just two weeks before Donald Trump took office in January 2017.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#FauciEmails](https://twitter.com/hashtag/FauciEmails?src=hash&amp;ref_src=twsrc%5Etfw) [#FauciLiedPeopleDied](https://twitter.com/hashtag/FauciLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [#FauciLeaks](https://twitter.com/hashtag/FauciLeaks?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/9fEyQLHjeI](https://t.co/9fEyQLHjeI)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 6, 2021](https://twitter.com/LawrenceSellin/status/1401369514412023809?ref_src=twsrc%5Etfw)
-
-
-
-正如塞林博士所言，我们不需再讨论COVID-19起源的问题，因为它就是实验室制造的。当务之急是曝光在CCP-PLA科学家队伍中，是那些人在制造且是如何制造出这个病毒的。因此塞林博士向COVID-19侦探们请求支援，首先将这些在中共国接受过训练却在美国工作，并与PLA合作的CCP-PLA科学家名单收集齐全，收集他们的名字，照片，在中共国的受训地点，一篇证明其与PLA合作的论文，以及任何相关的特殊信息。
-
-塞林博士继续马不停蹄地参与不同的新闻媒体节目，反复阐述有关福奇“邮件门”及其主导的对COVID-19起源问题的掩盖，CCP-PLA对美国病毒研究计划的渗透等话题。鉴于COVID-19就是PLA生物战计划一部分的事实和证据逐渐成为世人皆知的局面，塞林博士已经将下一步工作的重点进行了调整，以防范和甄别CCP即将从不同宣传口倾巢而出的刚刚炮制好的一系列虚假理论学说，及其所谓的支持性虚假“事实”和“证据”，企图拿回误导全球科学家的话语权，以维护关系到其生死存亡的自然起源理论。PLA是CCP继续在国内执行独裁残暴统治的基石，是CCP继续在国际上玩“假大空”庞氏骗局的武装吓唬力量，可见CCP急切护犊子PLA的心情，正在力图扭转其长子PLA正处于世界舆论风暴口的极其尴尬而无助的局面！
-
-塞林博士披露了一份2017年1月9日，即川普总统入主白宫前10天，奥巴马政府就迫不及待地发布的文件，以重启病毒“功能获得”研究。这是一件真正称得上石破天惊，让美国人无法再淡定和围观的大事。可见奥巴马这个美国历史上最巨大、最邪恶的美奸、卖美贼，是如何为川普总统和美国人民乃至世界人民，亲自埋下了足以毁灭地球和人类之量级的核弹的。奥巴马政府的这个文件从美国政府的制度层面为病毒的“功能获得”研究保驾护航，鉴于美国境内是明确规定不能进行这类研究的，而当时全世界唯一还在大规模进行病毒“功能获得”研究的只有中共军方，因此醉翁之意不在酒，一拍即合，奥巴马安插下来的一众美奸福奇、柯林斯、打杂客等就一如既往、名正言顺、大张旗鼓地与CCP-PLA科学家精诚合作，在与王林发等那喝不完的“茅台白酒”觥筹交错中，在与石正丽等那唱不尽的“卡拉OK”曼妙舞步中，病毒“功能获得”取得颠覆性进展，为CCP的70岁大寿献上了一个超级大礼，将人类世界推入了惨不忍睹的人造病毒超限战！
-
-校对/发稿：雪梨
+校对/发稿：飞虹
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
+
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-0
++2

@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒真相第一哨“119”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1303105/)
+## 班农先生
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1303116/)
 
 制作：纽约香草山视频部
 
