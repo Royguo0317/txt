@@ -1,67 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】生物战剂中的化学添加剂
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1301720/)
+## 【新中国联邦一周年】全球庆典综合报道
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1301876/)
 
-作者：纽约香草山 billwilliam
+**作者：翼族**
 
-中共解放军很久以前就开展了生物武器项目。在2008年，解放军将领杨瑞馥曾撰写一本题为《防生物危害医学》的研究生教科书，该书从各方面介绍生物战的细节，包括制备生物战剂，攻击方式，检测，以及这种武器的破坏力。根据书中一个章节的介绍，化学添加剂可以显著增强病原体在气溶胶中的生存能力，加重破坏效果。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05232549/Picture1-11.png)
-以下是该书第34-35页对于化学添加剂的描述【1】：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05232546/Picture2-5.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05232609/Picture3-3.png)
-节选的文字详细描述了中共解放军计划用化学添加剂增强生物战剂的稳定性和传染性。潜在的添加剂包括糖类、有机酸、有机金属螯合物、蛋白质水解物、血清、还有多元醇类（比如甘油）。其中，糖类、蛋白质水解物、血清、还有多元醇类可以提高病原体中蛋白质的稳定性，对生物战剂起到保护作用。有机金属螯合物可以吸收环境中的金属离子，防止蛋白质被金属蛋白酶破坏。新陈代谢抑制剂还可以使细菌处于休眠状态，增加存活时间。中共军队还设想将病原体包裹在微胶囊中以增强存活率。此外，解放军还计划将比较脆弱的微生物中的毒性基因转移到比较耐久的微生物中，从而制造基因武器。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05234128/8-3.jpg)
 
-在中共的另一本题为《非典非自然起源和人制人新种病毒基因武器》的生物战教科书中，徐德忠将军提到利用冻干技术将病原体制成干粉，在敌方领土喷洒。【2】同时使用化学添加剂和冻干技术可以大幅增强病毒或其他病原体的稳定性。举例来说，笔者找到一篇实验操作配方，关于如何将呼吸道融合病毒（RSV）制成干燥的粉末，在摄氏37度的温度下可以保持数小时的稳定。【3】RSV也是一种肺炎病毒。正如附图所示，化学添加剂增强的病毒干粉在暴露于摄氏37度的环境下24小时后仍能保持30%的感染活性。这篇实验配方中使用的化学添加剂与杨瑞馥将军书中的描述完全吻合，所用的添加剂包括：蔗糖（一种二糖）、谷氨酸（一种氨基酸或者有机酸）、还有牛血清白蛋白（一种血清提取的蛋白）。【3】通过增强耐热稳定性，化学添加剂可以实现病毒的武器化。虽然笔者没有情报解放军是否曾使用添加剂来增强其生物武器新冠病毒的热稳定性，杨瑞馥将军的生物战图书明显表现出他们在这个领域的兴趣和野心。添加剂使得在室温下投放病毒成为可能。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05232618/Picture4-4.png)
-*RSV**在摄氏**37**度下的热稳定性曲线。横轴代表时间（小时），纵轴代表病毒的感染活性，随时间衰减。下方两条线代表未经冻干处理的病毒，而上方两条线代表冻干处理后的病毒干粉。加入添加剂的干粉（虚线）比未加入添加剂的干粉（实线）更能保持感染活性。*
+盘古时间2021年6月4日零点，在美国纽约的新世贸大厦102楼开始了新中国联邦成立一周年的盛大庆典活动。顿时全球的战友和关注新中国联邦的人们都将目光聚集在了这里。虽然中共用尽办法对这次庆典活动进行围追堵截，但是在强大的技术力量和团队支持下，GTV依然成功进行了长达十四个小时的直播，并与全球其它分会场进行了现场连线。既体现了爆料革命的强大实力，也极大扩展了新中国联邦在全世界的影响力。
 
-*图源：*
+本次庆典活动除了美国纽约主会场，还有另外三个分会场，它们分别是代表欧洲的英国分会场，代表大洋洲的新西兰分会场和代表亚洲的日本分会场。各个分会场举办的庆典活动既丰富多彩又各具特色，展现了新中国联邦人不一样的风采和团结一致消灭中国共产党的无畏勇气。
 
-[https://jcm.asm.org/content/jcm/25/9/1769.full.pdf](https://jcm.asm.org/content/jcm/25/9/1769.full.pdf)
+纽约主会场的嘉宾们首先亮相，他们个个容光焕发，盛装踏上了红地毯。现场星光闪耀，既有来自全球各农场的优秀战友，也有我们耳熟能详的闫丽梦博士和路德先生，当然也少不了我们中国“老百姓”最好的朋友史蒂文·班农先生，还有很多支持新中国联邦的美国大咖，包括代表了“沼泽地”的约翰.A.摩根先生，代表军界的迈克尔·弗林将军，美国市长鲁迪·朱利安尼，代表政界新生力量的“枕头哥”迈克·林德尔先生，著名的美国作家和记者比尔·格茨先生，拉希姆·卡萨姆，娜塔莉·温特斯等等，并且现场还连线了彼得·纳瓦罗先生和劳伦斯·塞林博士。
 
-杨瑞馥介绍的另一种提升稳定性的方法是微囊技术，就是将病原体细菌包裹在保护囊膜中。通常是在细菌表面涂上聚合物的涂层，这样制成的微型颗粒可以抵抗环境或化学物质的压力，比如胃酸、阳光辐射、高温、或氧化。微囊技术本身是一种无害的技术，用于生产缓释药物、气溶胶化的疫苗、或者长效的生物杀虫剂【4，5】。只是解放军意图将这种技术改为研发生物武器的目的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004446/fig1.jpg)比尔·格茨夫妇和史蒂文·班农
 
-杨瑞馥的书明显表明解放军试图利用化学添加剂、化学微囊技术、或基因编辑来增强生物战剂的计划。在全球冠状病毒大爆发的时代，一定要推翻投放病毒的中国共产党，否则疫情永无宁日。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004432/fig2.jpg)迈克尔·弗林将军
 
-（感谢德意志之鹰将这本生物战教材公布在推特上）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004419/fig3.jpg)迈克·林德尔、鲁迪·朱利安尼和史蒂文·班农
 
-参考文献
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004405/fig4.jpg)拉希姆·卡萨姆
 
-1. 杨瑞馥主编。《防生物危害医学》军事医学科学出版社。（2008）
+在大西洋的彼岸英国伦敦，随着英国喜庄园农场主大卫“尊敬的战友们”那一声亲切的称呼，拉开了欧洲分会场庆典活动的序幕。来自英喜农场的战友们站在伦敦市政大楼前，以伦敦地标级的建筑伦敦塔桥为背景，左边是英国最高建筑碎片大厦，右边是著名的圣保罗大教堂，向全球观众展示英国分会场的风貌。
 
-ISBN: 978-7-80245-060-8
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004351/fig5.jpg)
 
-2. 徐德忠主编。 《非典非自然和人制人新种病毒基因武器》军事医学科学出版社。（2015）
+英喜的帅哥靓女们对着镜头，握拳向全世界高呼：“我们的目标是什么？TAKE DOWN THE CCP”，展现每一位战友灭共的决心。
 
-ISBN: 978-7-5163-0587-4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004338/fig6.jpg)
 
-3. Tannock, G., and et al. “Freeze-Drying of Respiratory Syncytial Viruses for Transportation and Storage.” *Journal of Clinical Microbiology*. Vol. 25, No. 9 (1769-1771)
+双层观光巴士是伦敦一道美丽又经典的风景，而地标级建筑“伦敦眼”是为庆祝新千年而建，当一身海洋蓝的“新中国联邦”巴士慢慢驶向伦敦眼，这标示着新中国联邦将在新的千年里开创属于中国人真正的美好未来。
 
-[https://jcm.asm.org/content/jcm/25/9/1769.full.pdf](https://jcm.asm.org/content/jcm/25/9/1769.full.pdf)
+在遥远的南半球，新西兰分会场则举办了一场别开生面的庆祝活动，从空中到地面，再从地面回到空中。七位跳伞勇士组成的七芒星，七架战斗机组成的飞行编队，七芒星火箭将新中国联邦的旗帜送上了蓝天……当这些极限运动和高难度的空中表演让观众们看得眼花缭乱时，新西兰农场的农场主、喜马拉雅联盟委员会的主席老班长向全球的战友们敬上了一杯酒，现场的战友们唱起了生日歌。在新中国联邦成立一周年的这一天，新西兰分会场既刺激又温馨的庆典活动，永远定格在了历史的画面里，令人难以忘怀。
 
-4. Rodríguez, A.P.G., and et al. “Bio-insecticide Bacillus thuringiensis spores encapsulated with amaranth derivatized starches: studies on the propagation ‘in vitro’.” *Bioprocess Biosyst Eng.* **38**, 329–339 (2015). https://doi.org/10.1007/s00449-014-1273-7
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004324/fig7.jpg)
 
-5. Eski, A., and et al. “Microencapsulation of an indigenous isolate of Bacillus thuringiensis by spray drying.” *Journal of Microencapsulation*. 36:1, 1-9, (2019) DOI: 10.1080/02652048.2019.1572238
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05232619/Picture5-1.jpg)
-*第二行第四位是杨瑞馥。*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004311/fig8.jpg)
 
-*图源：*https://www.thegatewaypundit.com/2021/04/chinas-military-biowarfare-network-led-covid-19/
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004258/fig9.jpg)
 
+离开了南半球，庆典活动来到了距祖国最近的分会场——日本东京。日本分会场的表演具有浓郁的东方文化色彩。一开场马来西亚籍战友 AppleX的小提琴和钢琴表演应和了文贵先生《马背英雄》的新曲。当《愿荣光归香港》的乐曲响起时全场观众肃穆起立，以一种特殊的形式向香港的勇士们致敬，意味深远。现场极具日本元素的三味线与太鼓激情合奏与文贵先生的《酒灭中共》完美结合，相映成辉。日本分会场的舞台、灯光、服装、场控、音响和主持人都呈现出非常高水准的“日本式专业”，将本次全球的庆典活动推向了最高潮。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004245/fig10.jpg)
 
-校对/发稿：直截了当
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
-**更多资讯，更多关注**
+日本分会场还在现场先后播放了来自新加坡农场、韩国恩典农场、喜韩农场，以及台湾农场的祝福和感言，体现了亚洲各个农场的大团结，因为所有正义的人们都有同一个愿望——消灭中国共产党！
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004232/fig11.jpg)韩国恩典农场 哈恩女士
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004219/fig12.jpg)韩国喜韩农场 朴昌海先生
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004206/fig13.jpg)台湾宝岛农场 台湾大牛先生
 
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+在六四到来的前夕，全球新中国联邦的战友们组织了不同形式的线下活动来庆祝新中国联邦成立一周年。
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+5月30日和6月4日，悉尼澳喜农场在澳大利亚悉尼、珀斯、布里斯班等多个城市开展了游行活动，庆祝新中国联邦成立一周年。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004152/fig14.jpg)
+
+墨尔本雅典娜农场和新西兰农场的一些战友不但参加了澳喜组织的活动，还在活动结束之后来到悉尼的中心市区发放中共病毒真相的宣传册。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004139/fig15.jpg)
+
+由于疫情的影响，德国一直处于lockdown状态。5月31日刚解封的第二天，德国农场的战友们就举行了游行活动。他们来到德国首府杜塞尔多夫的市中心老城区，一路挥舞着新中国联邦的旗帜，发放宣传册，宣传爆料革命。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004124/fig16.jpg)
+
+在加拿大温哥华时间的6月4日，温哥华扬帆农场的战友们接过了本次全球庆典活动的最后一棒，70多名战友集结在中共驻温哥华领事馆外进行抗议示威活动。用“灭共行动”来庆祝新中国联邦成立一周年，给新中国联邦成立一周年的庆典活动划上了圆满的句号。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004111/fig17.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004057/fig18.jpg)
+
+32年来，每一个6月4日对于中国人来说都是一个特别的日子。正如草根小哥所说，在2020年6月4日新中国联邦成立之前它是一个悲伤的日子，但自从新中国联邦一年前成立的那一天起，它已经不再悲伤，因为我们已经有了反击的能力，在全球灭共的大势下，中共灭亡的日子已经屈指可数。
+
+祝新中国联邦一周岁生日快乐！
+
+（文章内容仅代表作者观点）
+
+* * *
+
+*责任编辑/校对：华盛顿DC农场 DC教练/光之子(沙加)
+发布：喜联盟编辑部 Isaiah4031*
 
 0

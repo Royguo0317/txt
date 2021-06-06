@@ -1,86 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 塔克：当埃里克·斯沃威尔不与中共间谍发生性关系时，与大众观点相反
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1301670/)
+## 《路德社》新闻快讯（视频版）: 20210604闫博士在新中国联邦一周年庆典的演讲集锦
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1301912/)
 
-**字幕内容：**
+《路德社》出品
 
-Eric Swalwell is not having sex with Chinese spies
-埃里克·斯沃威尔没有与中共间谍发生性关系
+以下视频是详细内容：
 
-and contrary to popular opinion
-而且与大众观点相反
+主要内容：
 
-there are moments when he’s not doing that
-有些时候他没有这样做
+1.我们知道会有多困难会遭受怎样的生死威胁
 
-or coming in last place in presidential primaries
-或是在总统初选中排在最后
+2.我们将用实际行动证明CCP宣传的中国人是错误的，我们将推翻CCP以及马列共产思想
 
-Eric Swalwell is still a sitting member of Congress from California
-埃里克·斯沃威尔仍然是代表加州的国会议员
+3.我们不是一个光说不练的民族，用实际行动向世界讲述疫情的真相
 
-amazing
-太不可思议了！
+4.病毒由中共军方科学家制造、并配合海外包括蝠奇、Collins、WHO的虚假信息宣传战
 
-he also sees himself as a hero
-还有，他把自己视为一名英雄
+5.CCP花了大把时间和金钱去找病原体，并制造了这个非传统生物武器
 
-who’s going to bring Justice for the January 6th Insurrection
-一名将为 1 月 6 日的暴动伸张正义的英雄
+6.CCP故意投放给无辜的武汉百姓
 
-he’s got a plan for that
-为了那，他有一个计划
+7.路德先生冒着极大的风险在去年119揭露，迫使CCP改变计划
 
-he’s investigating his own colleagues
-他正在调查他自己的同事
+8.墨博士披露羟氯喹有效
 
-we learned yesterday that Eric Swalwell
-我们昨天得知埃里克·斯沃威尔
+9.CCP高官确认有效却不告诉西方
 
-has hired private investigators
-已经聘请了私人调查员
+10.蝠奇也可以隐瞒羟氯喹有效
 
-to find Congressman Mo Brooks of Alabama
-去寻找阿拉巴马州众议员莫布鲁克斯
+11.哈尔滨勇敢的护士告诉蝠奇真相后，蝠奇没有公开、但护士消失了
 
-Swalwell claim Brooks is avoiding a lawsuit
-斯沃威尔声称布鲁克斯正在逃避诉讼
+12.顶级科学家、科学杂志跟CCP沆瀣一气
 
-he filed to hold Brooks accountable for the insurrection
-他要求布鲁克斯对暴动负责
+13.凡是报导的媒体、凡是要爆料的人，都受到了CCP的各种威胁、打压
 
-but there’s an easier way
-但有一个比较容易的方法
+14.但因为得到很多人的帮助，现在进展到了很好的状态
 
-Swalwell could call his old girlfriend Fang Fang
-斯沃威尔可以打电话给他的旧女友— 方芳
+15.要想知道凶手的动机就得去问凶手，而不是问目击者
 
-she’s good at finding people in power
-她善于找到当权者
+16.为了掩盖PLA是病毒的生父，CCP让石正丽做了个RaTG-13来伪装成生父
 
-Eric Swalwell call Fang Fang
-埃里克·斯沃威尔，打电话给方芳
+17.去年119就说了病毒骨架是PLA独家掌握的舟山蝙蝠病毒
 
-the Chinese spy you had sex with
-那个与你有过关性关系的中共间谍
+18.CCP还给病毒制造了一个虚假的族系谱
 
-She’ll get it done
-她会完成的
+19.没有中国共产党，就没有新病毒
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+20.病毒研究的产物不会只有一种
 
-原视频链接: [https://twitter.com/dailycaller/status/1400616778221428743?s=24](https://twitter.com/dailycaller/status/1400616778221428743?s=24)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – 郭班之樱
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+21.高福从2010年起在墙内各地找病毒
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+22.CCP还在研究冠状病毒以外的病毒
 
-0
+23.我们处于超限生物武器战争之中
+
+24.Take Down the CCP！
+
+25.闫博士：回战斗到最后一秒，要么是闫博士生命的最后一秒要么是CCP断气的那一秒
+
+26.班农先生：闫博士是全人类的英雄
+
+27.一年前腼腆的闫博士在呼吸一年的自由空气后变成舞台上这样
+
+28.呼吁给闫博士公民身分成为美国参议员
+
+
+
+翻译：路德社翻译组
+
+制作：路德社视频组
+
+审核校对：玫瑰新闻组
+
+上传排版：玫瑰新闻组
+
++1

@@ -1,69 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新中国联邦一周年庆典】触景生情——难忘的“9·11”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1301907/)
+## （中英）传染病专家史蒂芬-史密斯博士说，如果 “专家们不否定羟氯喹，10万条生命本可以得到拯救
+` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1302044/)
 
-前方记者：纽约香草山记者站 Kathy (文艺）
-
-文字编辑：
-
-纽约香草山记者站 熊井（文兰）
-
-纽约香草山记者站 爱莉安娜
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
-
-
-
-
-
-**导语：**
-
-曾经在原世贸中心大楼里工作过的纽约香草山农场的Kathy文艺战友，分享了她本次参加新中国联邦周年庆典，刚刚抵达新世贸中心时的感想。
-
-Kathy文艺战友，在本次庆典活动中，既参加本农场东道主接机/接待的任务，还同时承担着GNews记者站的现场报道工作。
-
-6-2-2021 纽约曼哈顿
-*Kathy文艺战友讲解“9·11”*![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06013728/IMAGE-2021-06-05-161436.jpg)*入住酒店的外景，可以看到纽约著名的三一大教堂（Trinity Church ）（图片来源：Kathy文艺）* 
-文艺报道：战友们好、朋友们好，我现在所处房间窗户对面就是“9·11”发生之后，当时布什总统带领他的团队，在世贸大厦原址附近祷告的这座教堂。就在华尔街附近，其名为“三一教堂”，是非常有名的教堂。
-
-我们入住的酒店，就在世贸大厦原址附近。回顾2001的“9·11”，当时我就在纽约，记得早晨大概不到9点吧，我正在看电视，突然电视出现了飞机撞击大楼的这一画面，当时都以为是假的或是动画片，还没有反应过来。过会儿新闻开始报导了，这个场面我一生都不会忘记。
-
-在世贸大厦里面我本人也上去过，在里面工作过。当时感觉“9·11”原世贸大厦楼，就像一个整体一样，当晚间风刮过时，整体大楼在晃动。似乎感觉是一个整体被一个钢架给吊起来，但中间是否有水泥，有没有钢筋，我完全不懂。但就感觉大厦不会倒，只是觉得是做为整体在摇晃。当看到大厦被飞机劫持撞击的时候它就一下子坍塌下来，有许多人解释大厦中间没有钢筋，但我不懂。只是感觉大厦的整体，霎那间垮掉，但是我解释不清楚。此刻，看到此场景有一种故地重游的感觉。原址我也去过，也拍了图片，在外面建立一个纪念园，有各种纪念的墙壁，像一个水池一样，有点像华盛顿DC的越战或韩战的纪念碑。
-
-这种风格，是我们中国人设计的，希望大家了解一下，林徽因的侄女也借鉴了这种风格，设计成黑色大理事墙壁，上面刻满了名字。
-
-在大鸟翅膀护卫下的纪念馆参观的人比较多，现在是供游客前来参观，这也是对“9·11”的怀念。这次活动选择在这里，就是为了纪念我们新中国联邦成立一周年的。我们住的酒店就在傍边，SEC 的抗议也在这。这是纽约，也是美国的金融中心，以及各大家族、各大裁团凝聚的地方。这里寸土寸金，移民局，纽约市政厅，还有著名大学、各种法院，傍边还有小意大利、中国城。在纽约的downtown，华尔街是繁华的像心脏一样跳动的中心，我们就在这里开会庆祝。
-
-为了保证所有参加会议人员的安全，一会儿检测人员将来到4楼，分10人一组准备有序测试，6月1日，6月3日和来之前每人也都做了测试，都处在隔离状态。
-
-今天由法治基金准备了非常丰盛的早餐送到各自房间，我们都拍照留作纪念。感谢法治基金在餐饮、住宿及各种费用方面的大力支持。精致的早餐的背后是一种精神，这种关心、友情和亲情一样的友谊。我们深深地感受到的！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06013101/Copy-of-16x9-feature-photos-MOS-logos-8-1.png)*战友们入住酒店外景及送到房间的早餐（贝果已经被吃完了）（图片来源：Kathy文艺战友）*
-我们接机的工作今天已告一段落。今天是处于自由活动状态，但我们是不允许出门的，处于自我隔离的状态，我们是每人一间房间，家属，夫妻共用，战友之间也不会串门，但私下会沟通交流，采访，交谈这是可以的，今天大概的活动就是这样一个安排。如有更精彩的消息在向大家报导，谢谢大家。
-
-新中国联邦成立一周年庆典拉开帷幕，主会场就在我们的喜马拉雅大使馆所在地—纽约曼哈顿，从各地前来参加庆典的战友们下榻的酒店也在这里。寸土寸金的纽约曼哈顿是美国甚至是全世界的金融中心；我们前些日子和平抗议的纽约SEC，以及华尔街等大财团、纽约市证厅、各法院等等机构也都汇集在此。新中国联邦成立一周年庆典活动选在这里举行，意义非凡，其必将成为伟大的新中国联邦重要的篇章。
-
-引用来源：
-
-Kathy文艺现场报道
-
-编辑/校对/发稿：Delilah小胖
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
-
+- 中文简介：传染病专家史蒂芬-史密斯博士说，如果 “专家 “们不否定羟氯喹，10万条生命本可以得到拯救。
+- 英文标题：New study reveals success of hydroxychloroquine as COVID treatment Excerpt: Infectious disease specialist Dr. Stephen Smith says 100k lives could have been saved had the ‘experts’ not dismissed it (hydroxychloroquine)
+- 英文简介：New study reveals success of hydroxychloroquine as COVID treatment Excerpt: Infectious disease specialist Dr. Stephen Smith says 100k lives could have been saved had the ‘experts’ not dismissed it (hydroxychloroquine)
+- 原视频链接：[https://video.foxnews.com/v/6257007407001/#sp=show-clips](https://video.foxnews.com/v/6257007407001/#sp=show-clips)
 
 
 

@@ -1,65 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）: 20210604纳瓦罗博士联机新中国联邦一周年庆典集锦
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1301630/)
+## 塔克：当埃里克·斯沃威尔不与中共间谍发生性关系时，与大众观点相反
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1301670/)
 
-《路德社》出品
+**字幕内容：**
 
-以下视频是详细内容：
+Eric Swalwell is not having sex with Chinese spies
+埃里克·斯沃威尔没有与中共间谍发生性关系
 
-主要内容：
+and contrary to popular opinion
+而且与大众观点相反
 
-1.纳瓦罗博士想表扬两个人，一位是郭叔、一位是班农先生
+there are moments when he’s not doing that
+有些时候他没有这样做
 
-2.郭文贵先生是真正的爱国者，让纳瓦罗博士看到川普总统的影子
+or coming in last place in presidential primaries
+或是在总统初选中排在最后
 
-3.班农先生也很像川普总统，关心美国的蓝领阶层
+Eric Swalwell is still a sitting member of Congress from California
+埃里克·斯沃威尔仍然是代表加州的国会议员
 
-4.还要批评两个人，一个是蝠奇一个是习近平
+amazing
+太不可思议了！
 
-5.是蝠奇将美国纳税人的钱投给武毒所
+he also sees himself as a hero
+还有，他把自己视为一名英雄
 
-6.被武器化的病毒首先被投放给了中国人民，然后被散播到了全世界
+who’s going to bring Justice for the January 6th Insurrection
+一名将为 1 月 6 日的暴动伸张正义的英雄
 
-7.蝠奇手上沾满了中国人、美国人、全世界人民的鲜血
+he’s got a plan for that
+为了那，他有一个计划
 
-8.疫情的万恶之源是习近平
+he’s investigating his own colleagues
+他正在调查他自己的同事
 
-9.是习近平有效散播了蝠奇所帮助完成的病毒
+we learned yesterday that Eric Swalwell
+我们昨天得知埃里克·斯沃威尔
 
-10.习近平不该再继续是中共国的领导人，它将共产中国变成一头最恶毒的野兽
+has hired private investigators
+已经聘请了私人调查员
 
-11.纳瓦罗博士对所有新中国联邦人表达敬意
+to find Congressman Mo Brooks of Alabama
+去寻找阿拉巴马州众议员莫布鲁克斯
 
-12.推翻中国共产党、让蝠奇接受审判
+Swalwell claim Brooks is avoiding a lawsuit
+斯沃威尔声称布鲁克斯正在逃避诉讼
 
-13.现场观众很喜欢纳瓦罗博士选的背景
+he filed to hold Brooks accountable for the insurrection
+他要求布鲁克斯对暴动负责
 
-14.纳瓦罗博士称闫博士是他的英雄
+but there’s an easier way
+但有一个比较容易的方法
 
-15.勇气是会传染的
+Swalwell could call his old girlfriend Fang Fang
+斯沃威尔可以打电话给他的旧女友— 方芳
 
-16.羟氯喹上只能批评CCP没有共享信息
+she’s good at finding people in power
+她善于找到当权者
 
-17.说闫博士Amazing！
+Eric Swalwell call Fang Fang
+埃里克·斯沃威尔，打电话给方芳
 
-18.引用毛泽东的话：星星之火可以燎原
+the Chinese spy you had sex with
+那个与你有过关性关系的中共间谍
 
-19.新中国联邦是星星之火，习创造病毒这一事实是另一个可以助长燎原之势的星星之火
+She’ll get it done
+她会完成的
 
-20. [#CCPLiedPeopleDied](https://twitter.com/hashtag/CCPLiedPeopleDied?src=hashtag_click)
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-21.主持人：中国人和CCP本来就不同
+原视频链接: [https://twitter.com/dailycaller/status/1400616778221428743?s=24](https://twitter.com/dailycaller/status/1400616778221428743?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – 郭班之樱
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-
-
-翻译：路德社翻译组
-
-制作：路德社视频组
-
-审核校对：玫瑰新闻组
-
-上传排版：玫瑰新闻组
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
