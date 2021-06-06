@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农先生
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1303116/)
+## 郝海东先生和叶钊颖女士
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1303141/)
 
 制作：纽约香草山视频部
 

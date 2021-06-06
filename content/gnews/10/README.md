@@ -1,82 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】装台
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1303195/)
+## 北约秘书长称要应对中俄威胁
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1303235/)
 
-## -灭共戏大动中求-
--装台景重静中生-
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-作者：纽约香草山健身部 澄道
+编辑上传 银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06135211/Snipaste_2021-06-06_20-51-43.jpg)[youtube.com](https://www.youtube.com/watch?v=sUWJdjbHJkk)
+06月06日，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）在接受《世界报》采访时说，北大西洋联盟将在一周后通过一个新的议程，即北约（NATO）2030议程，这将使该集团适应未来的威胁。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+该文件应包含对不断变化的世界力量平衡和联盟统一面临的新挑战的回应。特别是，据斯托尔滕贝格说，需要北约应对的新挑战包括“日益增长的俄罗斯侵略”、中共国军事力量的加强、新形式的国际恐怖主义、网络攻击，以及扩大核武器的地理范围。
 
+同时，北约打算维持与莫斯科的关系所依据的前两项原则。“联盟对俄罗斯采取了双管齐下的方法：威慑和对话。”秘书长说。他说，该组织必须不断与俄罗斯就核军备控制、军事和政治问题进行对话。斯托尔滕贝格强调：“如果我们不互相交谈，我们既不能解决争端，也不能增进相互了解。”
 
+与太平洋国家更紧密的合作将是该联盟新议程的一部分。斯托尔滕贝格说：“目标是在北约国家和太平洋地区主张共同价值观的国家之间建立一个更紧密的平台，例如自由和人权等共同价值观。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06131307/%E8%A3%9D%E8%87%BA.jpg)
+他说，由于中共国的崛起，“从根本上改变了全球力量平衡”，因此与该地区国家的伙伴关系对该集团是必要的。
 
-大卫王与摩西是
-犹太族裔英雄
-更是以色列国人的装台
+斯托尔滕贝格还对莫斯科和明斯克之间日益密切的关系表示关切。据秘书长说，北约正在密切关注白俄罗斯在最近瑞安航空飞行丑闻背景下的发展。并准备保护其盟友免受来自俄罗斯和白俄罗斯的潜在威胁。
 
-＂1776＂的自由之塔是
-爆料革命的装台
+5月下旬，斯托尔滕贝格表示联盟希望改善与莫斯科的对话，因为俄罗斯与其他集团成员接壤。同时，他形容目前与该国的关系是困难的。
 
-法治基金法制社会
-是新中国联邦
-周年庆的装台
+俄罗斯外交部长谢尔盖·拉夫罗夫回应称，该联盟正在酝酿对莫斯科有“恶意的计划”。他说，北约无视安全不可分割的原则（不可能以牺牲其他国家的安全为代价来加强自己的安全），不断向东扩张，离俄罗斯的边界越来越近。
 
-戴高乐与拿破仑是
-法兰西人豪杰
-更是法国人的装台
+参考链接：
 
-三点一线三座城市
-自由女神雕像是
-对神州大地的装台
-
-瞠平非暴力金钱灭共
-＂虚拟喜系列生态＂是
-对华夏仓生的装台
-
-纽约与盘古
-两地同播是
-对墙内墙外
-先躯醒觉战友的装台
-
-＂文贵天成＂
-自编码G TV直播
-岂止是＂上天英雄＂
-七哥就是
-我们天下人的装台
-
-名注：
-一些演出上演时
-总需要有人搭台子
-做布景
-装台干的就是
-替剧团布置和布景的活
-
-深注：
-每个人在社会中都是＂装台人＂
-人与人之间互相＂装台＂是共生关系
-
-@爱动爱议码06062
-@澄道来了
-
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 6_june-1.jpg]()![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.rbc.ru/politics/06/06/2021/60bc6bc89a79479cfd7f0308](https://www.rbc.ru/politics/06/06/2021/60bc6bc89a79479cfd7f0308)
 
 0
