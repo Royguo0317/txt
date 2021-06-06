@@ -1,28 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 阿里巴巴的浏览器正在贩售你的个人信息
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1300857/)
+## 【新闻速递】比特币是一场“闹剧”
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1300961/)
 
-#### 翻译：William
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05143151/%E6%B2%B9%E8%85%BB.jpg)图片来源：steemit
-据《福布斯》(Forbes)报导，阿里巴巴子公司 UCWeb 所开发的UC浏览器风靡全球，仅 Android版就有 5 亿次下载。虽然美国用户不多，但背靠庞大的亚洲用户群，UC浏览器的用户数量位居世界第四。在印度政府出于安全考虑禁用中共国APP之前，UC 浏览器是印度最受欢迎的浏览器之一。
+作者：休斯顿星光农场 写作部 FY（火星）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
+6月3日，法国资产管理公司Amundi的首席投资官帕斯卡·布朗克在一次新闻发布会上 （Pascal Blanque）表示，比特币等加密货币是一场“闹剧”，是金融市场形成泡沫的表现。
 
-但根据安全研究员加比·西里格（Gabi Cirlig）在周二给《福布斯》的一篇博客文章中写道，UC 浏览器给出的隐私承诺其实具有误导性。根据验证结果，不管是UC 浏览器的 Android 或iOS 版本，无论是否处于隐身模式，用户访问的每个网络地址都会被发送到 UC 浏览器所拥有的服务器，用户所在区域的IP地址也会被发送到阿里巴巴控制的服务器。这些服务器都在中共国注册了.cn域名扩展名，但主机在美国。这意味着用户在不同网站上的相关活动都会被中共公司监控，他们可以轻松地锁定用户，进而找出用户的真实身份。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05153947/Screenshot-2021-06-05-143830.jpg)
 
-西里格表示这种跟踪是故意进行的，完全不考虑用户隐私，西里格告诉福布斯。Google 的Chrome浏览器在隐身时不会转移用户的网络浏览信息。西里格说他查看了其他主要浏览器，只有UC 浏览器会去攫取用户的网络地址(URL)，并将它们打包带走。
+***图片来源：网络***
 
-苹果在App Store推出了一项功能来详细说明每个应用程序的隐私做法后，UC 浏览器没有再更新，所以不会主动向用户披露获取了多少网页浏览记录。不过，上周UC浏览器有一项未明确指出、也未公开的更新，宣称用户浏览网页资料和搜索纪录等信息已包含在该应用程序的机密信息中，当然该 APP也没有主动披露网页浏览监控的内容。
+据路透社报道，比特币目前的交易价格约为39,364美元，在中共国加大力度打击比特币挖矿和交易以防范投机和金融风险之后，比特币在上个月下跌了35%。
 
-根据 The Information 网站4 月份的一份报告，市值 6000 亿美元的阿里巴巴一直担心苹果的“跟踪透明化”（APP Tracking Transparency）功能可以让用户阻止应用程序的跟踪。广告是阿里巴巴的主要创收渠道，而阿里最大的资本就是天量的用户数据。UC浏览器是阿里最受欢迎的移动应用程序之一，现在已无法在 Apple App Store 下载，这表示着iPhone 已经在隐私问题上明确给阿里巴巴等公司表达了强硬态度。
+“比特币将因推动央行采用数字货币而被记住，” 布朗克说，“政府和监管机构最终将‘停止音乐’。”
 
-这不是第一次发现中共科技巨头在跟踪用户，西里格去年在审查小米浏览器安全性时就发现相同问题。小米浏览器是这家中共国手机大厂上出品手机上的默认应用程序。即使用户处于隐身模式，小米手机的应用程序仍会记录用户访问的每个网站，尽管小米手机否认，但它后来允许用户选择退出它认为是匿名的用户数据收集。另外，西里格还发现另一家在纽约证券交易所上市的中共国互联网公司猎豹移动（Cheetah Mobile）有一个带私人浏览器的安全应用程序，可以用来收集用户使用互联网和 Wi-Fi 接入点名称的信息。Cheetah 声称它需要这些数据来确保用户不会访问危险的网站，且该 APP 的运行并无不妥。
+信息来源：
 
-译评:
+[https://cn.reuters.com/article/bitcoin-amundi-0604-idCNKCS2DG062](https://cn.reuters.com/article/bitcoin-amundi-0604-idCNKCS2DG062)
 
-这篇文章是由国外网友实测发现后发布，UC浏览器的行为对于西方来说或许很令人吃惊，但对在亚洲国家或者台湾，大家都非常清楚中共和中共国企业的任何事情都是不可信赖的，从食物 、衣服，疫苗到网络通讯设备都完全不可信赖，尽管说明书上承诺着不会监控或者盗取用户信息，但是大部分使用者并不知道如何检查。中共看准大众只在乎产品CP值以及不会花心思检查是否会泄漏个人用户信息的风险，就利用各种管道盗取用户的网络浏览信息以及IP资讯, 并贩售这些用户个人信息给各个广告业主作为主要利益来源。这个时代，还在相信共产党以及相关企业的人，最后真的会走进火葬场。
+编辑：文顺 校对/发稿：Helen
 
-原文链接：[Exclusive: Alibaba’s Huge Browser Business Is Harvesting The ‘Private’ Web Activity Of Millions Of Android And iPhone Users](https://www.forbes.com/sites/thomasbrewster/2021/06/01/exclusive-alibabas-huge-browser-business-is-recording-millions-of-android-and-iphone-users-private-web-habits/)
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
 
-0
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
+
+
++1

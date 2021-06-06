@@ -1,33 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七国集团财长承诺全球最低税率为 15%
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1300931/)
+## 欧盟对白俄罗斯关闭领空
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1300986/)
 
 信息来源：德国世界报网络版 
 发布时间：2021年6月05日
 翻译 /整理/ 简评： Shuizhuyu
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05152219/IMG_0567.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05154611/BELARUS-POLITICS-SUMMIT.jpg)
 
+资料来源：法新社/德米特里·阿斯塔霍夫
+欧盟正在从对白俄罗斯政府持批评态度的博主 Roman Protassewitsch 的监禁中得出结论。白俄罗斯航空公司最初受到制裁——其他经济部门也将紧随其后。
 
-七个主要工业化国家 (G 7) 已表示赞成对大公司征收 15% 的全球最低税。 德国财长 Olaf Scholz 将该协议描述为“税收革命”。
+自周六早上起，前白俄罗斯苏维埃共和国的航空公司不再被允许飞入欧盟领空，因此不再被允许在欧盟国家的机场起飞或降落。随着惩罚措施于午夜生效，欧盟正在回应这样一个事实，即大约两周前，白俄罗斯当局强迫一架瑞安航空公司的客机从雅典飞往维尔纽斯的途中在明斯克中途停留，并逮捕了一名政府批评者和同在机上的女朋友。从那时起，博主 Roman Protassewitsch 和他的搭档 Sofia Sapega 一直被拘留。
 
-七个主要工业化国家（G 7）已就全球税收改革的基本框架达成一致。各国希望共同采取行动打击谷歌和苹果等大型科技公司的避税行为。英国财政部长里希·苏纳克周六在伦敦表示，他和他的同事已经签署了相应的协议。
+欧盟周五做出的制裁决定称，这一事件凸显了白俄罗斯航空当局的不可靠性，并代表了对白俄罗斯公民社会和民主反对派的镇压又迈出了一步。
 
-“我很高兴地说，经过多年的讨论，七国集团国家的财政部长今天就改革全球税收制度以适应全球数字时代达成了历史性协议，最重要的是确保正确的公司在正确的地方缴纳正确的税是公平的，”苏纳克在推特上发布的视频消息中说。
+关于白俄罗斯声称对瑞安航空公司飞机的炸弹威胁，其实是伪造的证据。
 
-计划对大公司征收 15% 的最低税。这体现在七国集团财长会议的最终宣言中。大公司产生销售额的国家也应该比以前从公司缴纳的税款中受益更多。这对许多新兴市场来说应该会更好。
-
-7 月的 20 国集团会议可能至关重要: 工业化国家的协议必须存在于更大的范围内——例如与 G20 与中国、印度和巴西等最重要的新兴国家。 G-20 会议可能具有决定性意义。
-
-多年来，国际层面一直在努力制定公司的最低税收。其背景是大公司的避税策略，它们经常以算术方式将利润转移到低税率的国家。大型科技公司尤其受到关注。
-
-简评：G7 是7个主要工业化国家的一个组织， 他们定期举行峰会。 这次峰会制定了这个税收政策。 多年来， 欧洲的很多国家一直抱怨这些大的科技公司在收受方面打擦边球， 因为他们是国际公司， 可以通过计算的方式把税收放到最低的国家去 。这次采取了最低税率， 也就是希望这些大公司能够在公司经营所在国上税，或者到任何国家上税都要用最低税率15%。
+简评： 白俄罗斯的卢卡申科就是一个独裁者， 虽然名义上选举而成， 但选举中的各种演绎导致了他在选举后遇到的最大的反对声音。 国内的抗议活动也持续了几周， 但最后还是使用了武力镇压。 现在又拦截了客机，只是为了抓捕他的反对者。 这就跟中共的逆我者亡是一个做法，而且还不择手段。 卢卡申科也政权也需要推翻。
 
 免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 发表： Shuizhuyu
 
-🔗[G-7-Finanzminister-verpflichten-sich-auf-globale-Mindeststeuer-von-15-Prozent](https://www.welt.de/politik/ausland/article231610667/G-7-Finanzminister-verpflichten-sich-auf-globale-Mindeststeuer-von-15-Prozent.html)
+🔗[Sanktionen-in-Kraft-EU-schliesst-Luftraum-fuer-belarussische-Flugzeuge.](https://www.welt.de/politik/ausland/article231605909/Sanktionen-in-Kraft-EU-schliesst-Luftraum-fuer-belarussische-Flugzeuge.html)
 
 0
