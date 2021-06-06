@@ -1,35 +1,137 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【病毒专题】病毒自然说是Peter Daszak精心策划的运动——一封信为中共解围
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1302852/)
+## 【香草诗词汇】锅言灶语（二季二）- 真视角之＂画＂外音–
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1303182/)
 
-作者：休斯顿星光农场  写作部  文顺
-![This image has an empty alt attribute; its file name is Screenshot-2021-06-04-130338.jpg]()![This image has an empty alt attribute; its file name is Screenshot-2021-06-04-130338.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
-**彼得·达斯扎克（Peter Daszak）博士是研究人畜共患病 “溢出效应”（病毒从动物跳到人类）的专家。在《柳叶刀》杂志去年二月刊发的谴责“实验室泄漏理论”的联署文章中，他不仅是的签名者之一，更是推动者。他还从事所谓的预防大流行和操纵冠状病毒的工作，并在2019年的播客中承认可以 “相当容易 “地操纵它们。此外，彼得·达斯扎克（Peter Daszak）还被任命为世界卫生组织武汉2021年代表团成员，但被披露的邮件显示，其与武汉实验室的中共国科学家有联系，而《柳叶刀》也与中共科学界有着密切关系。**
+作者：纽约香草山健身部 澄道
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06103610/20-3.jpg)图片来源：大纪元2021年2月3日，彼得‧达斯扎克（右）和世界卫生组织专家组其他成员，抵达武汉病毒研究所
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-每日邮报6月4日揭露彼得·达斯扎克（Peter Daszak），指其为武汉实验室工作并操纵中共病毒，同时还策划了一场运动，以推卸其责任并隐藏其踪迹。而其组织的联署信，让中共得以摆脱“病毒泄露理论“的困境。
 
-中共病毒爆发在一个城市，而这个城市恰好是一个研究所的所在地，该研究所又恰好是拥有世界上最大的此类病毒数据库之一，是最高级别的生物实验室，这无疑是太巧合了。
 
-不仅如此，这个世界级的病毒研究所由中共完全控制下的中共科学院运营，他们更急于阻止舆论对病毒来自 “实验室泄漏 “的猜测。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06130209/%E9%8D%8B%E8%A8%80%E7%81%B6%E8%AA%9E%E4%BA%BA%EF%BC%88%E4%BA%8C%E5%AD%A3%E4%BA%8C%EF%BC%89.jpg)
 
-但是2020年2月，达斯扎克起草了一封信，由其他26位知名科学家共同签名，并发表在权威医学杂志《柳叶刀》上，正是这一权威性声明有效地阻止了关于 “实验室泄漏 “理论的任何辩论，该声明早于世界卫生组织宣布全球大流行。
+链锁的小馆
+如何保持
+原味
 
-信中宣称：”我们站在一起，强烈谴责暗示COVID-19没有自然起源的“阴谋论”。信中强烈肯定“这种冠状病毒起源于野生动物”，并对“中共国的科学家和卫生专业人员”表示声援。
+新社区新社群
+如何建立新的回头
+客源
 
-彼得·达斯扎克博士是生态健康联盟的主席，该联盟是一个研究新出现的传染病的非营利性组织，曾得到美国政府机构的资助。
+厨们又开始了
+你来言
+我去语
 
-信息来源：
+锅子
+灶子
+同享其中
+＂厨房辩论＂
 
-[https://www.dailymail.co.uk/news/article-9653613/British-doctor-Peter-Daszak-worked-Wuhan-scientists-secret-plan-stop-lab-leak-theory.html](https://www.dailymail.co.uk/news/article-9653613/British-doctor-Peter-Daszak-worked-Wuhan-scientists-secret-plan-stop-lab-leak-theory.html)
+说到厨之辩
+当年东西方
+两位＂米其林＂级的大厨
+的对质
+至今耐人寻味
 
-编辑：文順 校对：Helen           发稿：爱丽丝
+＂北极熊国＂
+主厨＂赫鲁哓夫＂
+＂这些东西很豪华但我们只是关注实用对此不太感冒＂
 
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+＂自由女神国＂
+副厨46岁＂尼克松＂
+＂在我们的美国人人都有选择如何生活买或是不买的自由＂
 
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
+辩论搞了四埸
+每场都不在一个节拍上
+
+你说你有权选择
+精神自由
+他说你不够实用
+物质丛林
+你说可买可不买
+人性尊重
+他说共产主义
+基本上是送
+单方脑控
+
+赫主厨：
+难道你没有一台将食物放在口中强推下的机器吗！
+＂摩登时代＂
+尼副厨：
+至少科技竞赛比军备竞赛好一些！
+东西方＂冷战＂
+
+赫主厨：
+我的辩论都会翻译成英文全美播出（可能在传播邪恶！）
+尼副厨：
+我的回应也会将译成俄文在全苏播出（可能吗？）
+
+这个交易
+公平吗？！
+
+＂这是300年美国能力吗？
+独立也150年了
+就这水平
+我们没有到42年
+再过7年
+就是达到美国的水准….＂
+＂赫厨神＂
+已经收不住了！
+
+你说呢吗！
+这是在说厨房的事吗？
+还两位＂主副厨＂
+什么的！
+爱谁谁！
+
+锅子
+油温高
+灶子
+火力急
+
+辩论中两位
+以后代做赌注
+赫主厨：
+尼克松的子孙在共产主义生活！
+尼副厨：
+赫鲁晓夫的后代将活在自由之中！
+
+请问到现如今
+谁是赢家？
+
+一道文化餐
+菜品即人品
+灭共有滋
+
+一场历史战
+唯真即实真
+铲毒有味
+
+锅言无
+灶语失
+崭新后厨房
+还是又静静了
+……
+
+@爱动爱议码06061
+@澄道来了
+
+发稿：雪梨
+
+![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg]()![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0

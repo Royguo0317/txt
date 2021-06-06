@@ -1,40 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦成立一周年庆典回顾之郭文贵先生（二）
-` tongwandou` [轉載自GNews](https://gnews.org/zh-hans/1303240/)
+## 蝠奇还有更多和中共勾兑的邮件待曝光
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1303335/)
 
-共产党不惜一切代价，想尽各种邪恶招数，陷害文贵先生和跟随文贵先生的战友。换句话说，共产党妄图从地球上肉体消失文贵先生和战友。世界刑警组织当时的主席孟宏伟，利用被中共渗透和完全控制了的国际刑警组织，对文贵先生发出了全球通缉，想用这种方式治他于死地；而潜伏在海外的中共特务和杀手，随时随地对文贵先生搞暗杀。文贵先生当时所处的境遇和爆料革命所面临的困难形势，是常人无法想象的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06135526/20210604-5.png)
-然而，文贵先生和爆料革命战友们坚持了唯真不破的原则，真正实践了不怕牺牲的精神，坚决和共产党战斗到底。不放弃，不抛弃，不忘记。伴随着一个又一个爆料的成功，最后诞生了一系列爆料革命的媒体：路德访谈、路德访谈博士军团，是最为重要的代表。文贵先生和爆料革命战友用勇气、用鲜血，开辟出了一条路。“世上本没有路，走的人多了，也便成了路。（鲁迅）”
+**摘要：在2021年6月2日的盖特视频中，郭先生向中南坑和王岐山大秀肌肉，用实力告诉它们无论是收买美国大外宣布隆伯格（Bloomberg）、《华尔街日报》、《华盛顿邮报》，还是非法拍卖郭先生家族的方正证券资产，都无法阻挡郭先生和新中国联邦的灭共步伐。郭先生还爆出和中共勾兑的蝠奇的邮件远不止800封，有更多邮件能证明蝠奇和中共官员高福和WHO勾兑——这是献给新中国联邦一周年的大礼。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06151344/Miles_2021-06-02-getter.srt.txt)
+**蝠奇还有更多和中共勾兑的邮件待曝光**
 
-无数的战友、无数的无名英雄，无私的付出，时间、金钱、努力、奉献、泪水、痛苦、鲜血、甚至生命，铸就了爆料革命、新中国联邦在社交媒体上的辉煌成就。爆料革命和新中国联邦凝聚了无数个爆料革命勇士：安红女士、博博士、冠博士、墨博士、艾丽女士……一系列参与路德访谈的英雄战友们最终推出了闫丽梦博士。文贵先生每次想到过往发生的一切，都有些后怕，如果闫博士当时想要爆料中共病毒的时候，被诱骗到了替共产党卖命的假“民主斗士”手中，后果将不堪设想。
+**More Emails Between Fauci and CCP Officials to Be Released**
 
-从福奇博士最近所谓的被爆料出来的电子邮件看，当中共病毒在中国武汉爆发并杀死数百万中国人的时候，中国医疗系统内部很多有良知的勇士，曾经通过福奇给美国传递讯息，警告世界：中共病毒被中国共产党放出来了。然而，福奇跟中共是一伙的，通过福奇传递信息的中国人和他们的家人都已经被人间消失了。文贵先生说挑战共产党的人走到世界哪里都不安全。美国国会、美国中情局、美国联邦调查局、美国国土安全局都已经被中共渗透。但是，就是爆料革命几年来的努力，一点一滴的辛苦付出，创造了真正的奇迹。
+兄弟姐妹们，看到我们6月3号一周年伟大日子的到来，共产党准备了啥？布隆伯格——王岐山的哥们儿黑咱的一篇报道。哑口不提海航的事情，哑口不提冠状病毒我们战友的爆料，哑口不提我们对香港运动的支持。
 
-为了正义、为了消灭中国共产党，无数的战友聚集在了一起。无数战友被抓、被喝茶、被迫失去亲人、被迫失去数亿、几十亿、最高高达百亿的资产，这样默默的付出，才成就了今天在社交媒体中爆料革命、新中国联邦的星。能看到的星的背后是由无数的、巨大的、看不到的星支撑起来的。路德先生有一句名言：爆料革命没你不行。文贵先生多次提到这句话，赞赏不已。爆料革命不仅仅有路德、不仅仅有博士军团、不仅仅有大卫军团、不仅仅有面具先生、不仅仅有郝海东先生叶钊颖女士、不仅仅有长岛伟哥、不仅仅有老班长、不仅仅有……爆料革命、新中国联邦拥有亿万中国人的心。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05100609/20210604-1.png)
-文贵先生从来没忘记所有的战友。就像一年前班农先生宣读新中国联邦宣言英文版、郝海东先生宣读新中国联邦宣言中文版那样，灭共是正义的需要，是中国人民必须的选择，是人类确保安全的必须选择。文贵先生坚信上天给了我们这些人使命。来到这个世界，这些人不是来吃喝玩乐睡然后等待死亡的，不是来把自己的子子孙孙都变成共产党奴隶的。这些人的存在，是来说真相的，是来帮助拯救世界的。
+It’s not easy, brothers and sisters, to witness the arrival of the great day of our first anniversary of the New Federal State of China (NFSC) on June 3. What has the CCP prepared for us? Bloomberg, Wang Qishan’s buddy, published a report that defamed us. The report didn’t mention HNA at all, was silent about the coronavirus news that was broken by our fellow fighter, and not a single word about our support for the Hong Kong movement.
 
-因为中国共产党的存在，中国人，老无有所终，幼无有所养，战友近在咫尺却不能相见，家人远在万里却连说话的机会也没有，这种悲剧不能再继续下去了。中国老百姓被共产党迫害得亲离子散，家破人亡，人性被扭曲，财产被剥夺，好好的人被当牲口一样圈养、被当韭菜一样一茬一茬的收割。文贵先生讲，这样的时代一去不复返了：
+然后就说我们跟北大的事儿。布隆伯格刚放出来[报道]不到仨小时，你看看宣布大连法院，然后所谓的中纪委6月19号拍卖方正证券拥有的事实上价值100亿美元的证券。现在（已经弄走一次了）第2次，要把价值90亿人民币[的资产]以10亿美元拍卖，就是惩罚咱们一周年纪念。
 
-“我们不但对老人对孩子对我们的后代负责，我们还要对全人类负责。这就是，新中国联邦要达到一个与西方世界千年和平的关系。让中国人和共产党彻底分裂开来。共产党不等同于中国人，共产党不能代表中国人。一个法律独立、信仰自由、民主自由的社会，必然到来，无人可以阻挡。这就是天意，这就是一年前，人类从来没有发生过像新中国联邦、爆料革命一样给人类带来了无限的希望和无限的力量。我们用实力、动力，用坚定的信仰，对上天的信奉，对自由的崇拜，我们来到了这个世界，开启了浩浩荡荡的新中国联邦和爆料革命的历程。”
+Then the report talked about our affairs with Founder Group. Less than three hours after Bloomberg published the report, the Dalian court, the Central Commission for Discipline Inspection, announced the auction of the securities owned by Founder Securities that were actually worth $10 billion on June 19. It has already been taken away once, and for the second time, the assets valued at 9 billion RMB will be auctioned for $1 billion. This is precisely to punish our first anniversary [of the NFSC].
 
-文贵先生重申，爆料战友的目标只有一个：干倒共产党。
+很多人说哎呀一周年纪念花多少钱多少钱。七哥不是跟你们抱怨，看看七哥家人付出的，看看七哥付出的，仅此一项就100亿美元。当年瑞士，当年日本的几家公司还有美国的，当时就[只值]100亿美元，这帮孙子从来不说为什么郭文贵加入后你们证券那么值钱了？但是就这，它也要抢走。兄弟姐妹，你们看看，这就是咱们一周年七哥要买的单。
 
-“我们相信上天，万佛万神照顾着我们。我们只相信正义一定会战胜邪恶。无论共产党多么穷凶极恶，都是最后的挣扎。香港、新疆、西藏，台湾，我们的同胞，一个都不会放弃；法轮功和所有海外受残害的人，任何一个华人受到共产党残害的，都将联合在一起，找他们算账！共产党不灭，我们将没有未来，没有幸福。我们已经没有任何选择。”
+Many people say, oh, how much does it cost to celebrate the first anniversary? Brother Miles is not complaining to you. Look at the price my family has paid and look at what I have paid. This former holding alone is worth $10 billion. At that time, there were several companies in Switzerland, Japan, and the United States. They were worth $10 billion at the time. These bastards never said why these securities were so valuable after Miles Guo joined. But even this, the CCP has to take away. Brothers and sisters, take a look. This is the price that Brother Miles will pay for our first anniversary.
 
-Take down the CCP, take down the CCP, take down the CCP!
+王岐山说：“要改变大外宣政策，要彻底消灭一周年。”这就是[对付]一周年的招 — 连续3到7篇的负面报道。都是大媒体：布隆伯格，什么《华尔街日报》，什么《华盛顿邮报》— —这就是他们想要的。这就是王岐山开了几天会，他要出九大招，就是干走你钱，然后威胁。
 
-（本文是基于文贵先生在[2021年新中国联邦一周年庆典](https://gtv.org/video/id=60b8eac5cea8a738525f3ddb)上的开幕致辞延展而来）
+Wang Qishan said he wanted to change China’s foreign propaganda strategy and completely eliminate the first anniversary. These are the tricks they use to tackle the first anniversary: publishing 3 to 7 negative reports consecutively in all the big media: Bloomberg, the Wall Street Journal, or the Washington Post. This is what they want to do.  This is what Wang Qishan is like. After a few days of meetings, he is going to make nine major moves, which are designed to take away your money and threaten you.
 
-**乘着歌声的翅膀：**
+蝠奇的Email，大家想想当年DOJ的Email，Elliott Broidy的Email，还有Higginbotham的案子，还有王健的视频，王健的档案都在什么时候出来的？蝠奇的Email还多着呢！跟蝠奇有关系的共产党，什么高福，Email多着呢！
 
-- [马背英雄](https://www.youtube.com/watch?v=Uuk4POSJiYA)
-- [Take down the CCP](https://www.youtube.com/watch?v=LnV52tWFrWI)
-- [亲爱的妈妈， 我正在终结中共](https://www.youtube.com/watch?v=y6kkg0GvaMA)
-- [喜马拉雅-自由之巔](https://www.youtube.com/watch?v=E-W_6qbEUpw)
-- [我们的喜马拉雅](https://www.youtube.com/watch?v=eUtZHCnottU)
+Regarding Fauci’s emails, think about it everybody, the DOJ’s emails, Elliott Broidy’s emails, the Higginbotham case, and Wang Jian’s video. When did Wang Jian’s files come out? There are still very many emails from Fauci. There are too many emails between Fauci and the CCP gangsters such as Gao Fu (director of China CDC) to be released.
 
+“习一坑”，王岐山，钟南坑老杂毛们，看看我怎么给你们绣。你不是要拍卖方正证券吗？啥叫拍？你抢了不就完了呗！你看看我跟你….
 
-0
+“Nutty Xi” (Xi Jinping), Wang Qishan, those old bastards in Zhongnan Pit, see how I embroider you. Don’t you want to auction Founder Securities? Why call it an auction? Why don’t you just grab it directly?
+
+蝠奇的Email绝不止800件，还有更多。还有跟蝠奇勾兑的香港实验室、WHO — Wu Han Organization。还有世界上跟共产党勾兑掩盖[病毒真相]的，包括中国那些大佬。
+
+There are definitely more than 800 emails from Fauci. The Hong Kong laboratory also had secret deals with Fauci and the WHO – the Wu Han Organization. There are also people in the world, who colluded with the CCP, covering the truth of the virus, including certain Chinese bigwigs.
+
+兄弟姐妹们，我们背后有多少力量在支持我们呐！背后多少力量啊，多少力量。大家明白了吗？6月3日一周年献礼！ 蝠奇—武汉真相！大家看明白了？还会更多，还会更多。它不是九招吗？咱跟他出900招都不拉倒，咱们走着看。
+
+Brothers and sisters, do you know how many forces are supporting and behind us? How much power is behind us, do you understand? We will present a gift for the first anniversary on June 3: the truth about about Fauci and Wuhan! Do you understand? There will be more. Doesn’t the CCP have nine tricks? Let’s give them 900 strokes and not stop. Just wait and see.
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60b79cd3c04fd544b4676d0c](https://gtv.org/getter/60b79cd3c04fd544b4676d0c) (1:02-2:58, 8:17-9:41)
+鸣谢：[1] 感谢Antsee-GTV、GUO TING 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于[https://gnews.org/zh-hans/1291705/](https://gnews.org/zh-hans/1291705/)
+[2] 感谢YY、Liberte 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于[https://gnews.org/1298116/](https://gnews.org/1298116/)
+
+* * *
+
+**字幕：【JennyL（纽约香草山农场）】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++1

@@ -1,141 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 迈克·庞佩奥：今天，我们纪念天安门的英雄
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1302974/)
+## 【病毒专题】病毒自然说是Peter Daszak精心策划的运动——与“蝙蝠女”解不开的“情愫”
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1302915/)
 
-**字幕内容：**
+作者：休斯顿星光农场 写作部 文顺
+![This image has an empty alt attribute; its file name is Screenshot-2021-06-04-130338.jpg]()![This image has an empty alt attribute; its file name is Screenshot-2021-06-04-130338.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
+**彼得·达扎克（Peter Daszak）博士是研究人畜共患病 “溢出效应”（病毒从动物跳到人类）的专家。在《柳叶刀》杂志去年二月刊发的谴责“实验室泄漏理论”的联署文章中，他不仅是的签名者之一，更是推动者。他还从事所谓的预防大流行和操纵冠状病毒的工作，并在2019年的播客中承认可以 “相当容易 “地操纵它们。此外，彼得·达扎克（Peter Daszak）还被任命为世界卫生组织武汉2021年代表团成员，但被披露的邮件显示，其与武汉实验室的中国科学家有联系，而《柳叶刀》也与中共科学界有着密切关系。**
 
-**迈克·庞佩奥：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06111826/21-5.jpg)图片来源：凤凰新闻/庆祝2005年Science论文发表，王林发（左）石正丽（中），Peter Daszak（右）
 
-32 years ago, a tragedy occurred in Tiananman Square Massacre
-32年前，天安门广场发生了一场悲剧
+每日邮报6月4日揭露彼得·达扎克（Peter Daszak），指其为中共武汉实验室工作（WIV）并操纵中共病毒，同时还策划了一场运动，以推卸其责任并隐藏其踪迹。达扎克因生态健康联盟资助WIV（武毒所）与“蝙蝠女”建立联系，同样研究类似SARS的病毒。
 
-perpetrated by the Chinese Communist Party against its own people
-是由中国共产党镇压它自己的人民而犯下的罪行
+55岁的达扎克博士是兰开斯特人，与他的妻子和女儿住在纽约，被认为是人畜共患病 “溢出效应”（病毒从动物跳到人类）方面的权威。
 
-shot the world’s conscience
-大屠杀震惊了世界
+据报道，达扎克与WIV的关系至少可以追溯到15年前。达扎克作为“生态健康联盟” 组织的主席长期以来直接资助WIV的工作，并一直与WIV最知名的科学家石正丽有联系。石正丽因致力于在中共国的山洞中猎取类似SARS的病毒而被称为 “蝙蝠女”。
 
-And it highlighted the contrast between the freedom loving Chinese people and the tyranny in Beijing.
-它强调了热爱自由的中国人民
-与北京的暴政之间的对比
+在2019年12月9日的播客采访中，达扎克描述他在所谓的大流行预防和操纵冠状病毒方面的工作时说：“我们经过六七年的努力，发现了100多种与SARS有关的冠状病毒…… 在实验室中，其中一些可以直接进入人体细胞，一些可以在人类化的小鼠模型中引起SARS疾病，还有一些是无法用治疗性单克隆抗体治疗的。你无法对它们进行免疫接种。其中任何一种都可能成为大流行病。”
 
-For the next 30 years, the only place
-接下来的30年间，唯一的地方
+他补充说：“冠状病毒，你可以在实验室里非常容易地操纵它们。穗状蛋白驱动着冠状病毒发生的很多事情。你可以在实验室里得到这个序列……把它插入另一种病毒的骨架中。”
 
-The only place that all of China’s Sovereign Domain.
-在所有中共王国唯一的地方
+在这种高风险的实验室操作中，即”功能增益 “研究，病毒被故意设计成对人类更危险的结构。这项工作的目的是预测未来的大流行病，并帮助创造疫苗，以便政府和研究机构能够，用达扎克的话说，”更好地将资源分配给最高风险”。
 
-Where free people could commemorate the martyrs of Tiananmen was Hong Kong.
-自由人可以纪念天安门烈士的地方只有香港
+因此，彼得·达扎克成了该领域的权威专家。
 
-Every year, on the June 4 anniversary.
-每年的 6 月 4 日纪念日
+彼得·达扎克被任命为2021年1月访问武汉以调查病毒真相的世界卫生组（WHO）十人代表团的成员，由于他与WIV的密切关系而受到关注。
 
-People of Hong Kong honors the lives lost in Tiananmen
-香港人民纪念在天安门失去的生命
+信息来源：
 
-you cherish the freedoms that are the birthright of every human being,
-你珍惜每个人与生俱来的自由
+[https://www.dailymail.co.uk/news/article-9653613/British-doctor-Peter-Daszak-worked-Wuhan-scientists-secret-plan-stop-lab-leak-theory.html](https://www.dailymail.co.uk/news/article-9653613/British-doctor-Peter-Daszak-worked-Wuhan-scientists-secret-plan-stop-lab-leak-theory.html)
 
-and which were brutally denied to your countrymen,
-并且被你的同胞残忍地拒绝了
+编辑：文順 校对：Helen           发稿：爱丽丝
 
-you’re able to mark this anniversary,
-你可以纪念这个周年纪念日
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
 
-because of the high degree of autonomy that Hong Kong enjoyed
-由于香港享有的高度自治
-
-the city was a bastion of liberty and like to assault.
-这座城市是自由的堡垒和喜欢进攻
-
-Yet now. Now the same regime that committed the massacre in Tiananmen Square
-然而现在，在天安门广场犯下大屠杀的同一个政权
-
-has broken its promises to Hong Kong.
-已经违背了对香港的承诺
-
-The fundamental freedoms and autonomy,
-北京承诺保证给你们的
-
-Beijing was promised to guarantee to you
-基本自由和自治
-
-it took away from you.
-却从你们那里夺走了
-
-For the first time, commemorating the Tiananmen massacre is illegal here,
-首次，在这里纪念天安门大屠杀是违法的
-
-it’s punishable by new security law.
-它会受到新的安全法的惩罚
-
-The National Security Law.
-国家安全法
-
-This is a dark reminder that the regime in Beijing
-这是一个黑暗的提醒，北京的政权
-
-still refuses to respect the rights of its own people.
-仍然拒绝尊重本国人民的权利
-
-It’s also a reminder of why we’re all gathering here tonight.
-这也一个提醒为什么今晚我们都聚集在这里
-
-We do so virtually
-我们实际上是这样做的
-
-but we do so defiantly and proudly
-但我们以挑衅和自豪的方式这样做
-
-And we continue a glorious tradition of commemorating the heroes of Tiananmen.
-我们延续了纪念天安门英雄的光荣传统
-
-I’m especially honored to be here now.
-我作为美国第70任国务卿
-
-As America’s 70th Secretary of State
-特别荣幸能来到这里
-
-when Hong Kong freedom was being taken away.
-当香港自由被剥夺时
-
-I was aware of the courageous work of HongKongers
-我知道香港人的勇敢和努力
-
-you fight, the fight to preserve your dignity and your autonomy,
-你战斗，为维护你的尊严和自主权而战
-
-you fight for the freedoms of every man, woman and child, made in the image of God.
-你为每个按上帝的形象而造的男人、女人
-和孩子的自由而战
-
-The Communist Party may imprison heroes like freedoms,
-共产党可以囚禁喜欢自由的英雄
-
-loving Jimmy Lai, Martin Lee, and others.
-受爱戴的黎智英、李柱铭等人
-
-But you, you show that the flame of freedom in Hong Kong remains a beacon.
-但是你，香港人向世人展示了香港的自由之火仍然是明亮的灯塔
-
-May God bless, Hong Kong.
-愿上帝保佑香港
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://twitter.com/mikepompeo/status/1400853918142320646?s=24](https://twitter.com/mikepompeo/status/1400853918142320646?s=24)
-英听校：康州盘古农场 – Layka
-翻译：康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场- 银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
 0

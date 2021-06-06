@@ -1,82 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】装台
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1303195/)
+## 川普称普京“公开嘲讽”拜登
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1303247/)
 
-## -灭共戏大动中求-
--装台景重静中生-
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-作者：纽约香草山健身部 澄道
+编辑上传 银河
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06140412/Snipaste_2021-06-06_21-03-21.jpg)[thinkpol.ca](https://thinkpol.ca/2020/06/30/biden-trump-has-a-lot-to-answer-for-on-russian-bounties/)
+06月06日，俄罗斯总统普京公开嘲讽美国现任领导人乔·拜登。美国前总统川普在北卡罗来纳州共和党年度大会上发表讲话时说了这番话，该讲话由福克斯卡罗来纳州新闻电视频道播出。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+川普称，“拜登正被中共国谈判代表和俄罗斯总统普京公开嘲笑。他们嘲笑他，他们羞辱了我们的国家。”
 
+这位前总统澄清说，他与普京有“很好的关系”，但没有人像他那样对俄罗斯如此苛刻。
 
+根据川普的说法，本届政府正在“摧毁”美国。“当我们今天聚会时，我们的国家正在我们眼前被摧毁。犯罪率在上升，警察部门被拆散，资金不足。”他总结说。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06131307/%E8%A3%9D%E8%87%BA.jpg)
+此前，川普还指责拜登批准了俄罗斯的“北溪2号”项目。这位前总统指出，拜登拒绝建设美国的管道，“但批准建设俄罗斯的管道”，由于拜登的决定，美国将失去48000个工作岗位。
 
-大卫王与摩西是
-犹太族裔英雄
-更是以色列国人的装台
+拜登和普京定于6月16日在日内瓦会晤。莫斯科和华盛顿此前都呼吁不要对这些会谈抱有过高期望。白宫新闻秘书詹·普萨基报告说，由于美国和俄罗斯在一系列问题上的不同立场，两国总统之间将进行“复杂的对话”。
 
-＂1776＂的自由之塔是
-爆料革命的装台
+俄罗斯外交部长谢尔盖·拉夫罗夫指出，俄罗斯当局对即将举行的会议也不抱任何幻想。“我们不抱任何幻想，我们也不试图给人留下认为会有一些突破的印象、一些历史性的重大决定。”尽管“利益相关者不抱任何幻想，两个主要核大国在最高级别进行对话的事实很重要，必须以一切可能的方式予以支持。”部长说。
 
-法治基金法制社会
-是新中国联邦
-周年庆的装台
+参考链接：
 
-戴高乐与拿破仑是
-法兰西人豪杰
-更是法国人的装台
-
-三点一线三座城市
-自由女神雕像是
-对神州大地的装台
-
-瞠平非暴力金钱灭共
-＂虚拟喜系列生态＂是
-对华夏仓生的装台
-
-纽约与盘古
-两地同播是
-对墙内墙外
-先躯醒觉战友的装台
-
-＂文贵天成＂
-自编码G TV直播
-岂止是＂上天英雄＂
-七哥就是
-我们天下人的装台
-
-名注：
-一些演出上演时
-总需要有人搭台子
-做布景
-装台干的就是
-替剧团布置和布景的活
-
-深注：
-每个人在社会中都是＂装台人＂
-人与人之间互相＂装台＂是共生关系
-
-@爱动爱议码06062
-@澄道来了
-
-发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 6_june-1.jpg]()![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.rbc.ru/rbcfreenews/60bc3ded9a794793644fa3b9](https://www.rbc.ru/rbcfreenews/60bc3ded9a794793644fa3b9)
 
 0
