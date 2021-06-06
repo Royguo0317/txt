@@ -1,25 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 不忘历史，正义永存
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1302398/)
+## 从中国出逃的高级官员已和DIA 合作3个月揭露病毒真相
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1302445/)
 
-撰稿：Lily2020
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06053838/20210606_Task4.jpg)图片来自澳喜战友
-2021年6月4日，32 年前的今天，对很多中国人来说是噩梦般的日子，带着鲜血的回忆。无数鲜活的生命被害，他们的壮举被抹杀，他们的名字不再被提起，但是他们的精神并没有消失，六四精神继续传承在中国大地上。以郭文贵先生领导的新中国联邦人，在这一天，在世界各地，纷纷举行了纪念六四的活动。面对邪恶的共产党，有良知有正义感的华夏儿女不再沉默，因为我们深知，不在沉默中爆发，就在沉默中灭亡。我们要爆发，我们要战斗，TAKE DOWN CCP  是我们的目标。六四精神永存，正义永存!
+作者：香草山写作组     B. Star
 
-我很荣幸参加了澳喜农场举办的六四线下游行。大家深知这次游行的重要意义，为了确保活动的顺利进行，主要负责的几个战友连夜开会布置任务，一遍遍梳理流程，直到确保万无一失。游行那天，风很大，但是再寒冷的风也吹不灭战友心里灭共的火。战友们从各地赶到市中心的游行地点，井然有序的开始了活动，宣传病毒真相，传播爆料革命。战友们一次又一次喊出灭共的口号 TAKE DOWN CCP，与当地居民进行友好的交谈，用各种方式与行人互动。有的战友还带来了自制的蛋糕，有的买了点心和水，有的拿来了家里的摄影设备。风太大了，摄像小哥的手机连带三脚架都被吹倒在地上，万幸只是三脚架损坏了，手机安然无恙。大家各尽所能，各展所长，互相帮助，心往一块儿想，劲儿往一块儿使。没有抱怨，唯有实干。在大家的努力下，此次游行取得了超出预期的效果。
+郭文贵先生多次爆料中曾提到了一位神秘的爆料者，最近逐渐被媒体关注。他是有史以来从中国出逃至美国的最高级别官员，目前处在国防情报局DIA的Clandestine Service保护之下，与FBI，CIA，国务院等完全隔绝，因为DIA担心这些联邦机构中有中共间谍。该人士提供的信息真实性已被验证。他带出来的实锤的情报直接导致美国对福奇的不信任。
 
-这次线下游行活动让世界看到了我们新中国联邦人灭共的决心和力量。灭共的心在跳动，心里的火在燃烧，灭共的火焰已经形成燎原之势，烧向邪恶的共产党，生命不止，战斗不息，新中国联邦人会勇敢地站在灭共的第一线， 前赴后继，直到共产党倒下那一刻，TAKE DOWN CCP。
+以下是由Adam Houseley 于2021 年6月3日提供给 REDSTATE 的重磅新闻：
 
-（本文仅代表作者观点）
+“… 相信这位官员是最高级别出逃者之一, 已经和DIA 合作三个月了.这位官员对中共特殊武器项目有直接的了解, 包括生化武器项目”
 
-*审**稿、**编辑**：光耀**华**夏*
+“…美国情报局相信,中共想用来源于蝙蝠掩盖实验室制造的来源. 目前不清楚是否是意外事故,但是中共确实故意让其传播到全世界. 他们禁止了武汉的国内的航班确从来没有禁止过武汉的国际航班.”
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+推特链接
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+
+
+> Again…what I reported tonight. US intelligence has a Chinese defector with Wuhan info. AND China is trying to produce variants that suggest it came from bats to cover up that coronavirus originally came from a lab
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400679023668187137?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Being told the increased pressure on China in recent days is due to a defector with intimate knowledge. In fact, Wray didn’t know right away because they wanted to make sure they got all they needed before telling him.
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670397473775617?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Also…US intelligence believes China is trying to produce variants that suggest it came from bats to cover up that it originally came from a lab. The belief is still that it escaped accidentally, but was allowed to spread.
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670631562076161?ref_src=twsrc%5Etfw)
+
+
+
+RedState News 链接
+
+[https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238)
+
+图片
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06055958/0665.jpg)
+审阅/上传： 浪迹天涯
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 
 
 0

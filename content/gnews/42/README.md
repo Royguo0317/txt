@@ -1,62 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从中国出逃的高级官员已和DIA 合作3个月揭露病毒真相
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1302445/)
+## 来自南半球澳喜的风温暖了我的心
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1302451/)
 
-作者：香草山写作组     B. Star
+撰稿：何处是我家
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061459/20210606_Task5_Cover.jpg)图片来自澳喜农场
+今年的天气不能用极端来形容，低温阴冷一直持续到5月末。就是上一周我所生活的东北欧的国家有地方还有霜冻，在这长期的阴冷，雨雪，潮湿的天气里，自己的身体达到了从未有过的坏状况，再加上CCP病毒没有一点好转的迹象。心情落入谷底，常常抱怨甚至是怀疑，天气是否也有生命是在配合着，助长着CCP的病毒疯狂和肆虐。
 
-郭文贵先生多次爆料中曾提到了一位神秘的爆料者，最近逐渐被媒体关注。他是有史以来从中国出逃至美国的最高级别官员，目前处在国防情报局DIA的Clandestine Service保护之下，与FBI，CIA，国务院等完全隔绝，因为DIA担心这些联邦机构中有中共间谍。该人士提供的信息真实性已被验证。他带出来的实锤的情报直接导致美国对福奇的不信任。
+再加上现实世界的真实的无情残酷，地球上各路的妖魔鬼怪兴风作浪，而正义的力量还不见踪影。虽然爆料革命新中国联邦每天都在攻城拔寨所向披靡，可是放眼观望这个可怜的和面目全非的地球，以及茫然不知所从的芸芸众生，这一切致使我的牙疼的剧烈，头要炸了！
 
-以下是由Adam Houseley 于2021 年6月3日提供给 REDSTATE 的重磅新闻：
+5月30日天空突然有了明显的好转，已经长久霸占天空的阴云褪去了，天空呈现了蓝色和高悬。心情豁然地有了一些暖意，不明缘由。下班回到家后听到妻子滔滔不绝，有声有色，声情并茂地讲述澳喜线上线下活动的经过：澳喜在澳洲的悉尼，堪培拉，珀斯，阿莱德莱，布里斯班等五个城市同时进行灭共宣传活动，战友们尽情的发挥和淋漓酣畅展示自己的个人魅力。我熟悉澳喜是从妻子时常的叙事中获得的，当然安红我是从路德访谈中了解的。
 
-“… 相信这位官员是最高级别出逃者之一, 已经和DIA 合作三个月了.这位官员对中共特殊武器项目有直接的了解, 包括生化武器项目”
+终于有了理由解释天气为何变得如此的美好——是吹来了澳喜的风，是澳喜的热情，是澳喜的真实，是澳喜的勇敢，是澳喜的奔放，是澳喜的坚韧执著汇成温暖气流以核裂变的速度向周围扩散。一路涤荡污浊的天空和温暖已濒临绝望中人们的心灵，不偏不倚飘到我的身边，同时吹去我多日阴霾的心情。身体也感觉好了一些，我有了想吃饭想睡觉的冲动，更重要的是内心干掉CCP的愿望无比的急切与冲动。
 
-“…美国情报局相信,中共想用来源于蝙蝠掩盖实验室制造的来源. 目前不清楚是否是意外事故,但是中共确实故意让其传播到全世界. 他们禁止了武汉的国内的航班确从来没有禁止过武汉的国际航班.”
+澳洲是我非常喜欢向往的地方，心里的澳洲是长长的海岸线和一眼望不到边的沙滩，碧蓝的天空和湛蓝的海水，广袤无垠的草原，戈壁和沙漠。对澳洲的粗浅了解来自两部电影。一部是女神级的妮可·玛丽·基德曼（Nicole Mary Kidman）主演的《澳洲乱世情》，另一部是罗素·艾拉·克劳（Russell Ira Crowe）主演的《占水师》。有意思的是这两部电影里的历史背景，一部是以一战为背景，另一部是世界二战为背景，更有意思的是电影里出现了CCP，无比贪婪意图占有的“达尔文港”。用简单的对澳洲的了解，我坚信选择生活在澳洲的人是浪漫和感性的，也是狂野和奔放的。一方水土养活着和水土相濡以沫的人。这也是我选择和捍卫澳喜农场的缘由和决心吧！
 
-推特链接
+澳喜的暖风并没有停止，在持续的吹送。空气变得干爽和清新，我的心情也无比的爽朗。6月4日，新中国联邦成立一年之际，澳喜人又一次的出现在澳洲五大城市的重要地点。不但再次展示新中国联邦澳喜人崭新的面貌——勇敢坚强，朝气蓬勃，清新亮丽，更表现出澳喜人的团结，澳喜人的善良，澳喜人的信仰。澳喜人不但要灭共，也要告诉澳洲所有的人，关于CCP病毒的真相，中国共产党的邪恶和无耻，共产党的真实的丑恶面孔。还有共产党不等于中国人这个最基本的事实。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061553/20210606_Task5a.jpg)澳喜战友线下活动剪影
+澳喜在新中国联邦似一股清澈泉水长长远远的流淌，更是蝴蝶挥动的翅膀，和世界各地农场形成了超级飓风吹向CCP。定会把已经是摇摇欲坠的苟延残喘的中国共产党吹出宇宙，吹的无影无踪！
 
+澳喜还有精准和强劲的无影脚法，轻松地把CCP踢进历史的垃圾桶！
 
+来自南半球澳喜的风持续的涌动着，永远的温暖和清晰！
 
-> Again…what I reported tonight. US intelligence has a Chinese defector with Wuhan info. AND China is trying to produce variants that suggest it came from bats to cover up that coronavirus originally came from a lab
-> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400679023668187137?ref_src=twsrc%5Etfw)
+（本文仅代表作者个人观点）
 
+*审**稿、**编辑**：光耀**华**夏*
 
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-
-
-> Being told the increased pressure on China in recent days is due to a defector with intimate knowledge. In fact, Wray didn’t know right away because they wanted to make sure they got all they needed before telling him.
-> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670397473775617?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Also…US intelligence believes China is trying to produce variants that suggest it came from bats to cover up that it originally came from a lab. The belief is still that it escaped accidentally, but was allowed to spread.
-> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670631562076161?ref_src=twsrc%5Etfw)
-
-
-
-RedState News 链接
-
-[https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238)
-
-图片
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06055958/0665.jpg)
-审阅/上传： 浪迹天涯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 
 
 0
