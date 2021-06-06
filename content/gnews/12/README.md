@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 灭共是我们家快乐生活的源泉
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1301550/)
+## 谬上加谬！故意放水进加时赛！CUBA赛北大钻空子晋级四强
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1301622/)
 
-撰稿：Lily2020
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05220157/20210606_Task2.jpg)图片来自澳喜战友
-文贵先生引领的爆料革命，在世界各地吹响了Take Down CCP的号角，掀起了一股全世界反共的浪潮。尤其是在COVID-19疫情席卷全球，全世界人类的命运危在旦夕之际，闫丽梦博士横空出世，以她的无私大爱向世界宣传病毒真相，追查病毒来源，揭发中共的邪恶真面目。由于闫博士的行动，让世界各国及时觉醒过来，联合起来，一起追查病毒来源，形成了前所未有的反共联盟，越来越多的国家承认了新中国联邦的地位。在这期间郭先生领导的新中国联邦创造了许许多多的奇迹。
+云长
 
-我们家有幸见证了这一历史时刻，并且参加了这次爆料革命，我们夫妻俩感到无比幸运，无比自豪。爆料革命给我们平凡的生活增添了不平凡的光彩，每天除了上班，我们俩谈论的主题就是七哥今天又说啥了，路德有啥重磅消息了，G系列又有什么新的发展了。每天都交流跟随爆料革命的感受和战斗经验，爆料革命已经成为我们家生活的重心，为我们平淡的生活增添了不平凡的活力，增加了无数的话题，也在无形之中增强了家庭的凝聚力。我们的认知越来越靠近，吵架也越来越少了，共识越来越多了，爆料革命在不知不觉中改变了我俩。灭共的路上，俩人一路携手前行，是多么幸运的事情，认识爆料革命，加入爆料革命，我们有共同的目标，有共同的话题，共同的理想，我们的婚姻生活越来越和谐，爆料革命带给我们无比的活力与希望，我们一起期盼着TAKE DOWM CCP那一天早日到来。
+按照中共国CUBA赛制，如图所示，比赛双方采取主客场制。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222917/%E5%9B%BE%E4%B8%80.jpg)
+第一场比赛可以打平，不需加时。CUBA声称这是根据FIBA赛制。但FIBA最新规则清楚显示（见下图），任何比赛打平，都必须分出胜负！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222906/%E5%9B%BE%E4%BA%8C.jpg)
+即便按照 中共 规则，第一场比赛，矿大赢北大5分；第二场若打平则不需加时赛，矿大赢。（加时赛只有在两场比赛总分打平的情况下才使用）。而这一次，第二场比赛打平，莫名其妙出了个加时赛。北大最终加时赢矿大10分，晋级。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222849/%E5%9B%BE%E4%B8%89.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222839/%E5%9B%BE%E5%9B%9B.jpg)
+真如郝董所说，“头球算俩分” ，自己定规则随意改！
 
-（本文仅代表作者个人观点）
+更哭笑不得的是，因两场总得分仍然落后于矿大的北大“聪明合理”地利用规则，在比分领先的情况下，故意消极防守让矿大罚球打平，包括本队最后偏得离谱的罚球。而双方教练、裁判、球员、解说员在畸形规则下比赛最后一分钟的“斗智斗勇”、“掌心冒汗”，为我们真实还原了“被强奸的高潮”！
 
-*审**稿、**编辑**：光耀**华**夏*
+当手握大权、庙堂之上的造假者们堂而皇之、肆无忌惮、从头到脚、不分黑夜白昼地蹂躏、消费14亿人民的身体、精神和灵魂，它们还幻想着人民敢怒不敢言吗？看看留言版吧！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222828/4%E5%9B%BE1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222809/4%E5%9B%BE2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222817/4%E5%9B%BE3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222802/4%E5%9B%BE4.jpg)
+既然我个人无法反抗暴政，我选择躺平。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+* * *
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
-
+*编辑、发稿 文锦*
 
 0

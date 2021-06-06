@@ -1,27 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 谬上加谬！故意放水进加时赛！CUBA赛北大钻空子晋级四强
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1301622/)
+## 【热点播报】大多数美国人认为新冠病毒来自武汉实验室！
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1301671/)
 
-云长
+作者：纽约香草山信息部 6zero4
 
-按照中共国CUBA赛制，如图所示，比赛双方采取主客场制。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222917/%E5%9B%BE%E4%B8%80.jpg)
-第一场比赛可以打平，不需加时。CUBA声称这是根据FIBA赛制。但FIBA最新规则清楚显示（见下图），任何比赛打平，都必须分出胜负！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222906/%E5%9B%BE%E4%BA%8C.jpg)
-即便按照 中共 规则，第一场比赛，矿大赢北大5分；第二场若打平则不需加时赛，矿大赢。（加时赛只有在两场比赛总分打平的情况下才使用）。而这一次，第二场比赛打平，莫名其妙出了个加时赛。北大最终加时赢矿大10分，晋级。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222849/%E5%9B%BE%E4%B8%89.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222839/%E5%9B%BE%E5%9B%9B.jpg)
-真如郝董所说，“头球算俩分” ，自己定规则随意改！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-更哭笑不得的是，因两场总得分仍然落后于矿大的北大“聪明合理”地利用规则，在比分领先的情况下，故意消极防守让矿大罚球打平，包括本队最后偏得离谱的罚球。而双方教练、裁判、球员、解说员在畸形规则下比赛最后一分钟的“斗智斗勇”、“掌心冒汗”，为我们真实还原了“被强奸的高潮”！
 
-当手握大权、庙堂之上的造假者们堂而皇之、肆无忌惮、从头到脚、不分黑夜白昼地蹂躏、消费14亿人民的身体、精神和灵魂，它们还幻想着人民敢怒不敢言吗？看看留言版吧！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222828/4%E5%9B%BE1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222809/4%E5%9B%BE2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222817/4%E5%9B%BE3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222802/4%E5%9B%BE4.jpg)
-既然我个人无法反抗暴政，我选择躺平。
 
-* * *
+据[零对冲](https://www.zerohedge.com/covid-19/majority-americans-believe-covid-came-wuhan-lab-quarter-believe-it-was-released-purpose)6月4日报道，最新民意调查显示，目前大多数美国人认为COVID-19病毒来自武汉实验室，并且近四分之一的美国人认为是“故意投放”的。
 
-*编辑、发稿 文锦*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05230847/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%A4%A7%E5%A4%9A%E6%95%B0%E7%BE%8E%E5%9B%BD%E4%BA%BA%E8%AE%A4%E4%B8%BA%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E6%9D%A5%E8%87%AA%E6%AD%A6%E6%B1%89%E5%AE%9E%E9%AA%8C%E5%AE%A4-2.png)
 
-0
+基于“舆观(YouGov)”最近的民意调查，共有58%的美国人认为，病毒“肯定或可能”来自武汉实验室，这个数字比一年前增加了9%，包括：24%的人认为这是在实验室中制造并故意投放的，18%的人认为这是实验室制造但是偶然泄漏的，另有12%的人认为这是一个自然产生的病毒，因被放到实验室检测而被无意泄露。
+
+其中，77%的共和党人认为病毒来自实验室，比去年增加了5%；65%的无党派人士认为病毒来自实验室，比去年增加了17%；甚至43%的民主党人认为病毒来自实验室，比去年增加了10%。
+
+只有13%的人仍对“病毒是在蝙蝠身上自然变异而来”的说法买账，同意科学界对病毒起源这个最普遍的解释。
+
+众所周知，这次民意调查仍然处硅谷大规模审查的时代，主流媒体和大科技公司已经进行了广泛的组织协调工作，以审查和驳斥实验室起源说为一个疯狂的“阴谋论”。所以这个民意调查数据应该还是偏保守的，无论如何这已经昭示着美国民意的觉醒和高涨。美国社会是一个民意驱动的社会，美国政府更是一个民意驱动的政府，病毒真相的浮现并被美国社会广泛接受后，美国各界非剥了CCP的皮不可，可见“以美灭共”的时机已越来越成熟，CCP剩下的日子真的不多了！
+
+校对/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++2

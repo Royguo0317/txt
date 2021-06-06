@@ -1,56 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月5日美国政要反共推特精选:我们需要知道这场大流行是如何开始的!
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1301421/)
+## 灭共是我们家快乐生活的源泉
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1301550/)
 
-众议员迈克·华尔兹： 福奇和科学界为了自身利益，竭尽全力抹黑武汉实验室泄漏理论。 否定川普所说一切的自由媒体和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传机器也是如此。** 除非我们知道这场大流行是如何开始的，否则我们无法阻止下一次大流行！**
+撰稿：Lily2020
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05220157/20210606_Task2.jpg)图片来自澳喜战友
+文贵先生引领的爆料革命，在世界各地吹响了Take Down CCP的号角，掀起了一股全世界反共的浪潮。尤其是在COVID-19疫情席卷全球，全世界人类的命运危在旦夕之际，闫丽梦博士横空出世，以她的无私大爱向世界宣传病毒真相，追查病毒来源，揭发中共的邪恶真面目。由于闫博士的行动，让世界各国及时觉醒过来，联合起来，一起追查病毒来源，形成了前所未有的反共联盟，越来越多的国家承认了新中国联邦的地位。在这期间郭先生领导的新中国联邦创造了许许多多的奇迹。
 
+我们家有幸见证了这一历史时刻，并且参加了这次爆料革命，我们夫妻俩感到无比幸运，无比自豪。爆料革命给我们平凡的生活增添了不平凡的光彩，每天除了上班，我们俩谈论的主题就是七哥今天又说啥了，路德有啥重磅消息了，G系列又有什么新的发展了。每天都交流跟随爆料革命的感受和战斗经验，爆料革命已经成为我们家生活的重心，为我们平淡的生活增添了不平凡的活力，增加了无数的话题，也在无形之中增强了家庭的凝聚力。我们的认知越来越靠近，吵架也越来越少了，共识越来越多了，爆料革命在不知不觉中改变了我俩。灭共的路上，俩人一路携手前行，是多么幸运的事情，认识爆料革命，加入爆料革命，我们有共同的目标，有共同的话题，共同的理想，我们的婚姻生活越来越和谐，爆料革命带给我们无比的活力与希望，我们一起期盼着TAKE DOWM CCP那一天早日到来。
 
+（本文仅代表作者个人观点）
 
-> Fauci & the science community did everything to discredit the Wuhan Lab Leak Theory for their own self-interest.
-> 
-> So did the Liberal Media who negated everything Trump said & the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s propaganda machines.
-> 
-> We can’t prevent the next pandemic unless we know how this one started! [pic.twitter.com/zpf7eAwzLp](https://t.co/zpf7eAwzLp)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401275382465191938?ref_src=twsrc%5Etfw)
+*审**稿、**编辑**：光耀**华**夏*
 
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-
-参议员玛莎·布莱克本： 当脸书审查员错了时会发生什么？ [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 赢了。 【附福克斯新闻：Jonathan Turley：脸书表示，现在允许提及 COVID-19 可能起源于武汉。多慷慨啊】
-
-
-
-> What happens when the Facebook censors get it wrong? Communist China wins. [https://t.co/ul6a5cRqZu](https://t.co/ul6a5cRqZu)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 5, 2021](https://twitter.com/MarshaBlackburn/status/1401271190019313667?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·华尔兹： 我们应该知道 COVID 是如何开始的。我和卢卡斯众议员给白宫科学办公室 (OSTP) 写了一封信，以彻底了解为什么福奇和 OSTP 在奥巴马于 2014 年结束后重新启动功能增强研究资金，将纳税人的钱汇到武汉实验室。 【附华尔兹众议员在福克斯视频：共和党人要求福奇为正在发生的丑闻作证】
-
-
-
-> We deserve to know how COVID started.[@RepFrankLucas](https://twitter.com/RepFrankLucas?ref_src=twsrc%5Etfw) & I sent a letter to the White House Office of Science (OSTP) to get to the bottom of why Fauci & OSTP turned Gain-of-Function research funding back on after Obama ended it in 2014, sending taxpayer money to the Wuhan lab. [pic.twitter.com/393vmKVqgC](https://t.co/393vmKVqgC)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401256664976736259?ref_src=twsrc%5Etfw)
-
-
-
-参议员朗·约翰逊: 自大流行开始以来，冠状病毒可能来自武汉病毒研究所的证据一直很明显。为什么福奇博士会嘲笑并驳回它？为什么主流媒体攻击任何指出它的人？ [@FDRLST](https://twitter.com/FDRLST) 【附thefederalist杂志文章：疫苗令不应成为下一个 COVID 政策灾难】
-
-
-
-> Evidence that the coronavirus might have come from the Wuhan Institute of Virology has been in plain sight since the start of the pandemic. Why did Dr. Fauci ridicule and dismiss it? Why did mainstream media attack anyone who pointed it out? [@FDRLST](https://twitter.com/FDRLST?ref_src=twsrc%5Etfw) [https://t.co/Hx9bHXiYZo](https://t.co/Hx9bHXiYZo)
-> — Senator Ron Johnson (@SenRonJohnson) [June 5, 2021](https://twitter.com/SenRonJohnson/status/1401252483574419457?ref_src=twsrc%5Etfw)
-
-
-
-众议员布莱恩·马斯特： 美国人应该从拜登政府获得透明度。 【附华盛顿观察者报报道：福奇博士知道什么，什么时候知道的？】
-
-
-
-> Americans deserve transparency from the Biden Administration.[https://t.co/PW4KGCYvOr](https://t.co/PW4KGCYvOr)
-> — Rep. Brian Mast (@RepBrianMast) [June 5, 2021](https://twitter.com/RepBrianMast/status/1401252482961920006?ref_src=twsrc%5Etfw)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 
 
 0

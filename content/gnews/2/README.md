@@ -1,71 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】读《罗马书》有感（一）——患难生忍耐
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1301544/)
+## 欧洲几个国家被中共蓝金黄对“以毒灭共”是件大好事
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1301666/)
 
-作者：纽约香草山福音部 Jinglechenge
+**摘要：在2021年5月31日的盖特视频中，郭先生讲到共产党的蓝金黄使英国首相和欧洲的一些国家出来唱反调。共产党用几百亿的钱，各种承诺和投资项目去蓝金黄俄罗斯、德国、法国、和英国的一系列的人，当然还带着这些人的黑材料，但最终决定这件事的是美国。在经济面前西方很多人都会放弃原则，选择利己主义。但是郭先生说：“从一周前基本已经定局共产党就死在病毒上了！”**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05233136/Miles_20210531-getter1.srt.txt)
+**欧洲几个国家被中共蓝金黄对“以毒灭共”是件大好事
+CCP’s BGY Plot on European Countries Will Turn Out to Be a Great Thing for the CCP’s Death**
 
+另外，再看这几天，前天我给咱们几个战友，包括英国的咱们特殊的战友说：“一定记住，英国首相一定唱反调。”[现在]英首相唱反调了吧？为啥，战友们知道吗？英国首相不唱反调就说明共产党的蓝金黄力量还不够。而且欧洲会有一两个国家，两三个国家出来[唱反调的]。但是你会发现这些人唱反调最终是对整个全球的“以毒灭共”是大好事，大好事！
 
+In addition, the day before yesterday, I said to some of our fellow fighters, including our special fellow fighter in the United Kingdom: “You must remember that the British Prime Minister will definitely sing a different tune.” Now the British Prime Minister is playing devil’s advocate, right? Why? Do our fellow fighters know? Had the British Prime Minister not sung the opposite tune, that would show that the power of the CCP’s BGY plot was not enough. Likewise, one, two, or three countries in Europe will come out to strike up a discordant tune. But you will find that these people siding with the devil will ultimately be a great thing for the whole world to take down the CCP with the truth of the virus.
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
+而且共产党这些天派杨娘娘去俄罗斯，是吧？包括去德国、法国、英国这一系列的人，拎着几百亿的钱，带着各种的承若和投资项目，包括也带着某些人的“缺点”、证据和录像带、U盘。不行你看看，是吧？银行信息。很多人你们不知道，有些话我不方便说。等有时间我给在家再讲讲。[有些人]很便宜，[买通]没那么难。是大家想的太神乎了。何况这么大的动静呢？
 
+Moreover, recently the CCP has sent Sissy Yang (Yang Jiechi) to Russia and a bunch of people to Germany, France, and the United Kingdom. They brought tens of billions of Euros, various commitments, investment projects, as well as incriminating evidence against certain politicians with them – videotapes and USB flash drives. “If you disagree with us, take a look at these – your bank information. All right?” Many people don’t know, and it is not convenient for me to reveal some things now. I will tell you more when I have time. Some people are very cheap to buy. They are not that difficult to buy off.  It is not as miraculous as everybody thinks. Not to mention that the CCP is making such a big noise.
 
+但是，这个世界上决定这件事输或赢的，就像《欧中协议》被干掉一样，不是说英国、也不是法国和德国，最终还是美国在背后起的力量[决定的]。这个地方[美国]才说了算。
 
-患难如同吃饭，人生在世无人可免。当中有的患难来自于自然界的变化，有的患难来自于他人的过失，而有的患难则来自于自身的错误。这里我们先不谈为什么有患难，为什么有无辜者受苦，甚至好人受苦，我们只讨论当患难临到之时，人们该如何应对。
+But in this world, the one that decides who wins or loses in this matter, just as how the EU-China Agreement was killed, is not Britain, France, or Germany. Ultimately the United States is the power that decides everything behind the scenes. The United States has the final say.
 
-当患难来临之时，有人觉得生无可恋、完全放弃，如苦母杨改兰、卡友金德强；有人自暴自弃、自我安慰，如阿Q；有人产生苦毒怨恨、愤世嫉俗，如粪青；有人躲入民间宗教、逃入深山老林，关上眼、耳、心，消极逃避，选择另一种放弃；有人选择与世无争，因为争不过，只好苟且一生。这些人作出这类无奈的选择是源于中国几千年极权统治的结果：低层人没有发声的渠道，没有上升的通道。而这种残酷的压榨在CCP的极权统治下更是登了峰、造了极。汉语中有一句话——好死不如赖活着——没到迫不得已，谁愿意放弃生命呢？可想，这些人的怨气都能把CCP熏灭。
+那么另外一个，大家要看到，更重要的事情[是]经济！在经济面前，各国政客……西方是资本主义社会，也就是钱是爹，钱是主义。在经济面前，很多人都会放弃原则，都要选择利己主义。对自己的任期，对自己的政治的权力，为了这个什么都可以放弃。这就是西方资本主义带来的劣病。
 
-相反的，也有人心中生出一股力量，如蝉蜕壳、如碟出茧，或是从寒门走出贵子，亦或从白户走出公卿，如领导爆料革命的尊敬的郭文贵先生。人的选择往往是刹那间的，所以我们古人常常用这样的话来激励我们胜过患难：
+Furthermore, everybody should see that the more important thing is the economy. The West is a capitalist society, where money is God and money is doctrine. In the face of the economy, many people will give up their principles and choose egoism. Most people will give up everything to maintain their position and power. This is the weakness brought about by Western capitalism.
 
+那么经济上，由于共产党所有病毒，以及共产党的假、偷、骗、抢给各国带来的危害，谁要是想走另外一条路，那是找死呢。最重要的，经济等到世界出现滑坡的时候，你会发现共产党大势已去。能挽回吗？大家试试，它一定是[试试]的。[共产党]想现在把人民币坚挺，操纵汇率，甚至不惜代价把中国人的未来都卖给这些利益集团，来换取西方放过对它们这一次截杀的这个可能啊。它[这些]都没用的。
 
-> 天将降大任于斯人也，必先苦其心志，劳其筋骨，饿其体肤，空乏其身，行拂乱其所为，所以动心忍性，曾益其所不能。
-> 《孟子》
+Economically, as a result of the CCP virus and the harm brought to so many countries by the CCP’s fraud, stealing, cheating, and looting, anybody who wants to take another path has a death wish. Most importantly, when the economy is in decline globally, you will find that the tide will turn against the CCP. Can the situation be redeemed? You can try. It [the CCP] will definitely try. It tries to make the Renminbi to stay strong, by manipulating the exchange rate, and even selling the Chinese people’s future to interest groups at any cost, in exchange for the West turning a blind eye to the crimes of the CCP. These are useless efforts.
 
+毫不夸张地说，从一周前基本已经定局共产党就死在病毒上了！死在病毒上就是个时间和方式的问题。促使它死亡的根本就是经济，经济越坏它死得越快，经济如果缓慢滑坡它就死得慢点。但是共产党不会坐以待毙的，它会想尽一切办法，求生欲望很强啊，求生欲望很强。这是可以理解的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05220737/7-4.jpg)图源网络
+It is no exaggeration to say that it was a foregone conclusion a week ago that the CCP will die because of the virus. It is a matter of time and means. The essential cause of its death is the economy. The worse the economy, the faster it will die. If the economy declines slowly, it will die slowly. But the CCP will not await its doom. It will do everything possible, and its desire to survive is very strong, which is understandable.
 
-这句话与基督信仰其实有异曲同工之意。那么，基督信仰是如何教导我们处理患难的呢？
+从来没有一个帝国在临灭亡前，它认为自己是该灭亡的；从没有一个帝国的国民认为帝国是会灭亡的；也从没有一个帝国在灭亡前真的以为自己会全部消失的。没有，从来没有过！历史上几千年来告诉人类，这个时候到那个时候已经失去理智了。可是大势总是不可逆转的，自然现象[规律]谁也逆转不了。
 
+There has never been an empire that considered the possibility that it would be destroyed before it was. No citizens of an empire consider that the empire might perish. And no empire has really considered that it will crumble before it does. This has never happened. Never. Thousands of years of human history has proved that people usually lose their minds at that kind of moment. But the historical trend is always irreversible, and no one can reverse the laws of the nature.
 
-> 这至暂至轻的苦楚、要为我们成就极重无比永远的荣耀。
-> 哥林多后书 4：17
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60b4f217ba7ef9088d045bfc](https://gtv.org/getter/60b4f217ba7ef9088d045bfc) (2:00-6:06)
+鸣谢：[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1286198/](https://gnews.org/zh-hans/1286198/)
+[2] 感谢YY、Liberte 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于[https://gnews.org/1289892/](https://gnews.org/1289892/)
 
+* * *
 
-可见，《圣经》不但告诉我们在患难的尽头有一个荣耀的终点，而且这患难的过程是神容许的。神不是患难的作者，但患难是人类堕落的后果。这患难从人类堕落就开始，一直要到神再次建立新天新地为止。因此，人间一定会有患难，不在今天，就在明天。虽然没人喜欢患难、受苦，但《圣经》也要我们知道，神将计就计，利用这些患难来塑造我们、雕琢我们，以达成祂在我们生命中的计划和旨意。神让我们经过患难之后能生出忍耐的品格，好承受荣耀的生命。
+**整理校对 & 新闻撰写：【JennyL（纽约香草山农场）】
+字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com](https://himalaya-rgt.blogspot.com/)
 
-这样的例子有很多，最着名的就是约伯的忍耐（雅各书5：10-11）。他忍受了七个孩子在同一天死亡，忍受了所有的家产在同一天失去，忍受了妻子、亲人、仆人、街坊、邻居的厌弃，忍受了浑身长疮，疼痒难止。然而约伯在患难中仍然以神为义，所以在患难的尽头，神给了他双倍的祝福。
-
-忍耐就是坚持，就是郭先生所说的“念念不忘，必有回响”的坚强信念，是一个人最重要的品格，也是人生之路上最需要且只能通过患难才可培养出的品格。有了忍耐的品格，人才能够坚持下去做一件事情，然后才能结出果实（路加福音8：15）。
-
-但这些话说起来容易、做起来难！所以，慈爱的父神在患难中赐我们力量，作我们随时的帮助（诗篇46），这是孟子的勉励所无法提供的。孟子只告诉我们不要躲避困苦患难，但没有告诉我们人生为什么会有困苦患难，也没有告诉我们靠什么胜过并走出这些风波巨浪。
-
-诗篇（39：9）告诉我们，人生所有的遭遇都是出于神的允许，是祂量了又量、比了又比，与我们的身量刚刚好的。所以，我们就默然不语，迎接挑战，不会连天叫苦。保罗在歌林多前书（10：13）勉励我们，我们所遇见的无非是我们所能受的，而神是信实的，必不叫我们受试探过于所能受的。在我们受试探的时候，祂总要给我们开一条出路，叫我们能忍受得住。保罗并为我们祷告，求神按着祂丰盛的荣耀，借着祂的灵、叫我们心里的力量刚强起来、可以担得起所临到的。（以弗所书3：16）保罗还勉励我们，因所赐给我们的圣灵将神的爱厚厚地浇灌在我们心里，所以在患难中我们不但能忍耐，而且能欢欢喜喜地忍耐，不是咬牙切齿的忍耐。（罗马书5：5）
-
-我们知道，保罗有这样的品格。有一次，他和西拉被鞭打后被关在监狱里，两手两脚都被捆绑得死死的，睡在冰冷的地上。设身处地地想想，他们一定非常的难受，又饿、又累、又痛。可是他们没有报怨，而是喜乐地承受，并且传出赞美神的夜半歌声。因着他们如此的忍耐，神使地震动，甚至于他们的锁链都脱落了。当官的吓得问他们，我当做什么才能得救？由此引出了“当信主耶稣，你和你一家都必得救”（徒16：31）的美言。神还把更大的任务托付给了保罗，让他把福音传遍了欧亚大陆，并从各个案例中总结出了信仰的要义。后来，我们都从他那儿得了福音的好处。
-
-弟兄姐妹们，我们新中国联邦的建设最需要这样的品格，推翻CCP也需要这样的品格——可以把一件事情坚持做下去的品格！您愿意有这样美好的品格吗？感谢神，只要有一颗愿意的心，神必成就！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
-
-0
++1
