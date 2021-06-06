@@ -1,53 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）: 20210602Collins在FOX公开狡辩
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1301617/)
+## 谬上加谬！故意放水进加时赛！CUBA赛北大钻空子晋级四强
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1301622/)
 
-《路德社》出品
+云长
 
-以下视频是详细内容：
+按照中共国CUBA赛制，如图所示，比赛双方采取主客场制。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222917/%E5%9B%BE%E4%B8%80.jpg)
+第一场比赛可以打平，不需加时。CUBA声称这是根据FIBA赛制。但FIBA最新规则清楚显示（见下图），任何比赛打平，都必须分出胜负！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222906/%E5%9B%BE%E4%BA%8C.jpg)
+即便按照 中共 规则，第一场比赛，矿大赢北大5分；第二场若打平则不需加时赛，矿大赢。（加时赛只有在两场比赛总分打平的情况下才使用）。而这一次，第二场比赛打平，莫名其妙出了个加时赛。北大最终加时赢矿大10分，晋级。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222849/%E5%9B%BE%E4%B8%89.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222839/%E5%9B%BE%E5%9B%9B.jpg)
+真如郝董所说，“头球算俩分” ，自己定规则随意改！
 
-主要內容：
+更哭笑不得的是，因两场总得分仍然落后于矿大的北大“聪明合理”地利用规则，在比分领先的情况下，故意消极防守让矿大罚球打平，包括本队最后偏得离谱的罚球。而双方教练、裁判、球员、解说员在畸形规则下比赛最后一分钟的“斗智斗勇”、“掌心冒汗”，为我们真实还原了“被强奸的高潮”！
 
-1.Collins在去年4月写邮件给蝠奇，引用FOX新闻的连结说「阴谋论甚嚣尘上」
+当手握大权、庙堂之上的造假者们堂而皇之、肆无忌惮、从头到脚、不分黑夜白昼地蹂躏、消费14亿人民的身体、精神和灵魂，它们还幻想着人民敢怒不敢言吗？看看留言版吧！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222828/4%E5%9B%BE1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222809/4%E5%9B%BE2.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222817/4%E5%9B%BE3.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05222802/4%E5%9B%BE4.jpg)
+既然我个人无法反抗暴政，我选择躺平。
 
-2.上周Collins在参议院改口说实验室泄漏也是有可能的
+* * *
 
-3.Collins一开始还调侃FOX用邮件标题做节目
-
-4.Collins继续帮CCP洗地说病毒是生物武器这是更大的阴谋论
-
-5.Collins狡辩说去年才知道19年武毒所出现症状，但说可能是流感
-
-6.Collins否认将实验室泄漏归到阴谋论
-
-7.Martha质问NIH拨款给Baric和石正丽做出让疫苗无效果的病毒，给打杂客拨款做出更亲合人体细胞的病毒是怎么回事
-
-8.Collins学蝠奇，否认拨款给这类研究
-
-9.Collins要求着眼于克服病毒而不是溯源
-
-10.Martha：中共国找了8000种生物没发现病毒
-
-11.Collins猪逻辑：自然起源
-
-12.Collins解释其猪逻辑：因为其他冠状病毒自然起源所以这个也是
-
-13.Collins责怪大家跳到实验室泄漏的结论
-
-14.Martha：最早一步跳到自然起源的是Collins和蝠奇
-
-15.Martha装作不追问的样子，话锋一转让才如释重负的Collins又愁眉不展
-
-
-
-翻译：路德社翻译组
-
-制作：路德社视频组
-
-审核校对：玫瑰新闻组
-
-上传排版：玫瑰新闻组
+*编辑、发稿 文锦*
 
 0

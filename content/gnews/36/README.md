@@ -1,56 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月5日美国政要反共推特精选:我们需要知道这场大流行是如何开始的!
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1301421/)
+## 亲历共匪恶行之二：计划生育
+` 喜韩Gnews中文` [轉載自GNews](https://gnews.org/zh-hans/1301431/)
 
-众议员迈克·华尔兹： 福奇和科学界为了自身利益，竭尽全力抹黑武汉实验室泄漏理论。 否定川普所说一切的自由媒体和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传机器也是如此。** 除非我们知道这场大流行是如何开始的，否则我们无法阻止下一次大流行！**
+作者：新中国联邦666 配图：喜韩设计组 发布：喜韩Gnews中文组
 
+这几天看到大陆媒体关于中共政府准备放开三胎的报导，真有种恍如隔世的感觉，回头看这一场计划生育运动，感慨万千啊！我开始懂事的时候，一场他们自己称之为＂十年浩劫＂的文化大革命，随着老毛的一命呜呼终于消停了。刚刚庆幸自己躲过了一场劫难，哪里知道一场更大的规模、更加血腥的灾难已经迎面而来。自从中共窃取政权以后，灾难便如影随形般伴随着这片土地上的每个人，躲无可躲。接踵而至的灾难已经使人们穷于应对，再也没有时间、没有精力来思考，这些灾难到底因何而起，在这片土地上，能够活着已经是奇迹了。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05211846/22.png)
+没有经历过文革，你无法体会人性之恶，没有经历过计划生育，你绝对无法想象，在中共国从受精卵到变成一个婴儿的过程，竟是步步惊心，处处充满杀机。计划生育期间，中共国的婴儿一半始于共匪的屠刀之下，据共匪官方报道近40年的计划生育，中共国少生了四亿多人，相当于每年杀死1000多万婴儿，几乎每个中共国的汉族家庭都受到波及。
 
+共匪从管天管地管空气，突然间以缓解人口压力为名，又管起了老百姓的生殖器。生不生孩子，生几个孩子，都要由它说了算，这个扯蛋的政权，我想大概是因为他们的掌权者都是一些淫乱而来的杂种、坏种，所以从来想不出一个好主意，净是想一些害人的招数。在实施计划生育的过程中，各地政府更是无所不用其极，拘留罚款、牵牛扒房，这些都是最普通最常用的招数。另外一些常人想都想不到的阴招，层出不穷。各地计生办的人活脱脱一群地狱放出来的恶鬼，搞得神州大地顿时变为一座人间炼狱。
 
-> Fauci & the science community did everything to discredit the Wuhan Lab Leak Theory for their own self-interest.
-> 
-> So did the Liberal Media who negated everything Trump said & the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s propaganda machines.
-> 
-> We can’t prevent the next pandemic unless we know how this one started! [pic.twitter.com/zpf7eAwzLp](https://t.co/zpf7eAwzLp)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401275382465191938?ref_src=twsrc%5Etfw)
+共匪从管天管地管空气，突然间以缓解人口压力为名，又管起了老百姓的生殖器。生不生孩子，生几个孩子，都要由它说了算，这个扯蛋的政权，我想大概是因为他们的掌权者都是一些淫乱而来的杂种、坏种，所以从来想不出一个好主意，净是想一些害人的招数。在实施计划生育的过程中，各地政府更是无所不用其极，拘留罚款、牵牛扒房，这些都是最普通最常用的招数。另外一些常人想都想不到的阴招，层出不穷。各地计生办的人活脱脱一群地狱放出来的恶鬼，搞得神州大地顿时变为一座人间炼狱。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05211800/11-3.png)
+在匪区，如果没有他们发给你的准生证，是绝对不允许怀孕的，万一怀孕，你就成了一个负案在身的逃犯，有家不能待，整天东躲西藏，提心吊胆，害怕被人举报，也没人敢收留你，为了生个孩子，不得不亡命天涯。这还不是最惨的，要是万一被抓到，那个惨状尚存一丝良知的人真的难以接受，不管怀孕几个月，就算第二天就要分娩了，丝毫不影响他们对你的杀戮，胎儿小的直接刮下来，胎儿大的实在拿不出来，就用钳子先把胎儿搅碎了，在刮出来。一个活生生的生命转眼之间成了一堆血肉模糊的肉馅，至于孕妇遭受身体和心灵上的摧残，在这些魔鬼眼里根本什么都不算，有些细节，我不想再多写了实在太残忍。这里附上几张照片记录了这样的惨状，向人们无声的诉说着共匪的暴行。其实，还有更惨的。如果在手术中不幸引起大出血，于是母子二人，双双命归黄泉，而且出现这类事故作恶者不承担任何责任，你也无处伸冤，没处讨回公道，因为没人会替你说话，如果丈夫是个有血性的男人，顶多拼个鱼死网破，只是这代价实在太大了。
 
+还有令人发指的是有些医院做了流产手术多了，于是有人动了歪脑筋，把这些胎儿拿出来卖几十元或一百元一个。所以有些地方有人拎着个桶，走街串巷，叫卖＂卖胎盘＂，＂卖胎盘＂。有人买来后，炖着吃，有的吵着吃，有的人不敢这样吃，就在铁板上烤干了，再磨成粉吃。真正的人吃人，中共国，一个活生生的魔窟。
 
+孕妇逃走后，有些实在找不到，当地政府会逼着家人去找回来，家里人有体制内的，会因此被开除公职，还会被抄家、罚款。有些人把孩子生下来以后，以为这下没事了，顶多罚款。没想到一回到家孩子就被强行抱走，从此杳无音讯，生死不明。进遇稍微好一点的就是不抢走孩子，但由于是非法出生，需要缴纳巨额的社会抚养费。（我至今弄不明白，这个社会抚养费是怎么想出来的，真是荒唐至极）。
 
-参议员玛莎·布莱克本： 当脸书审查员错了时会发生什么？ [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 赢了。 【附福克斯新闻：Jonathan Turley：脸书表示，现在允许提及 COVID-19 可能起源于武汉。多慷慨啊】
+由于计划生育引起的一系列的社会问题，有一些才刚刚开始显现出来。比如说计划生育造成的三千多万失独家庭，本来应该安想天伦之乐的年纪，却承受着老来失子的巨大痛苦，又丧失了再生育的能力，接下来的余生是怎样的一种惨状，真是不敢想象。
 
-
-
-> What happens when the Facebook censors get it wrong? Communist China wins. [https://t.co/ul6a5cRqZu](https://t.co/ul6a5cRqZu)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 5, 2021](https://twitter.com/MarshaBlackburn/status/1401271190019313667?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·华尔兹： 我们应该知道 COVID 是如何开始的。我和卢卡斯众议员给白宫科学办公室 (OSTP) 写了一封信，以彻底了解为什么福奇和 OSTP 在奥巴马于 2014 年结束后重新启动功能增强研究资金，将纳税人的钱汇到武汉实验室。 【附华尔兹众议员在福克斯视频：共和党人要求福奇为正在发生的丑闻作证】
-
-
-
-> We deserve to know how COVID started.[@RepFrankLucas](https://twitter.com/RepFrankLucas?ref_src=twsrc%5Etfw) & I sent a letter to the White House Office of Science (OSTP) to get to the bottom of why Fauci & OSTP turned Gain-of-Function research funding back on after Obama ended it in 2014, sending taxpayer money to the Wuhan lab. [pic.twitter.com/393vmKVqgC](https://t.co/393vmKVqgC)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401256664976736259?ref_src=twsrc%5Etfw)
-
-
-
-参议员朗·约翰逊: 自大流行开始以来，冠状病毒可能来自武汉病毒研究所的证据一直很明显。为什么福奇博士会嘲笑并驳回它？为什么主流媒体攻击任何指出它的人？ [@FDRLST](https://twitter.com/FDRLST) 【附thefederalist杂志文章：疫苗令不应成为下一个 COVID 政策灾难】
-
-
-
-> Evidence that the coronavirus might have come from the Wuhan Institute of Virology has been in plain sight since the start of the pandemic. Why did Dr. Fauci ridicule and dismiss it? Why did mainstream media attack anyone who pointed it out? [@FDRLST](https://twitter.com/FDRLST?ref_src=twsrc%5Etfw) [https://t.co/Hx9bHXiYZo](https://t.co/Hx9bHXiYZo)
-> — Senator Ron Johnson (@SenRonJohnson) [June 5, 2021](https://twitter.com/SenRonJohnson/status/1401252483574419457?ref_src=twsrc%5Etfw)
-
-
-
-众议员布莱恩·马斯特： 美国人应该从拜登政府获得透明度。 【附华盛顿观察者报报道：福奇博士知道什么，什么时候知道的？】
-
-
-
-> Americans deserve transparency from the Biden Administration.[https://t.co/PW4KGCYvOr](https://t.co/PW4KGCYvOr)
-> — Rep. Brian Mast (@RepBrianMast) [June 5, 2021](https://twitter.com/RepBrianMast/status/1401252482961920006?ref_src=twsrc%5Etfw)
-
-
+这帮盘踞在中南坑的脑残的杂种，每次制定政策总是心血来潮，毫无科学依据，也无法理基础，更不考虑后果，从五六十年代的英雄妈妈，鼓励多生，到突然的计划生育，到如今又忽然转向，朝令夕改，令人无所适从。其实体制内有明白的人，两千年左右已经有人知道这样的政策持续下去，必然造成毁灭性的灾难，所以有人向高层进言，尽快结束计划生育，避免灾难发生。无奈历经四十年因计划生育形成的利益集团，已经盘根错节难以撼动。几经博弈，错过了政策调整的最佳时机，等到顶层发现即使开放二胎、三胎，可是人口断层已经形成，吸血鬼将面临无血可吸的困境。或许是感觉到国内韭菜已经不够割，慌乱之中将魔爪伸向国外，想要放毒霸占整个世界，奴役整个人类，没想到将自己送上了不归路。
 
 0
