@@ -1,100 +1,124 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（三十七）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1302939/)
+## “中共病毒”名副其实，无可否认
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1303036/)
 
-作者：纽约香草山信息部 6zero4
+#### 整理：德农文迅
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+![](https://lh4.googleusercontent.com/nQVnTi1qAMvcDRcXC3GjNnoHwg0obmnAw5_KVM0UIWU3U4xRnpC_fRxmUZUVmDmKIZZ55kzBHLamUgn-kx84t5fAkQmG4GUAperG9nsRHu-xZ7i4yuRCCCgiOhe7DNlOjA)
+
+病毒骨架来自解放军独控的舟山蝙蝠病毒
+
+![](https://lh6.googleusercontent.com/4FWY1_Tx5dF9eM7SVC0lSmtvRzpnLiGpcbPp03K9ZKIWwJcGG7VSLmKEHq-lFzK9QYQ6rHRF1kGZvTYIduaqg7b4wnWqXd8KkR8isLVtAuuhG8pQ1iyRGSqMam7Ys-lMeQ)
+
+![](https://lh3.googleusercontent.com/Y2zF3p6AQI4zQU9EM0o5TItdxBoALmt6TtTJ-yf8UMffc7wWY3bg2K_I6xtYntKiSCUQGcfzUTDEeYiPbYPIePyYmnENbVyAOLtA0ghnq1KIwFw1cZwJyDeAYTKuyniNeA)
+
+[闫博士和弗莱明博士讨论了导致 COVID-19的SARS-CoV-2病毒的起源](https://gnews.org/zh-hans/1171386/)
+
+![](https://lh5.googleusercontent.com/3pNQ2A4jnNVkrnxXzy7EzPJA2q3QQK7Xg7Pbco2rgUlZyQdjx-A87hm-VIMUTtUHg55SDf4csvlcbl_UBHnk2fjLqKXMLmlt1jx65tflI7m65Z-z6PsdbvSx8RY2yA6Aww)
+
+![](https://lh4.googleusercontent.com/MzsaMUED_WR3aXHHFU_JDTL-TDFVKWyJRzhJLhqGKHgVlcUaSKPgiUyPJrrGzjZYiYO9TgNEOxK3ucPkggXxtMhjoCIeoAblTlrKJMojsjvWvLMxQa6TVhqbAwA1pEf7RA)
+
+![](https://lh5.googleusercontent.com/ajIZXfIZa3uzryKzHS3gJjfHUPNv3PHSK24OHqM60M6nul1JIn_kv2Rpm5KWMNmP6kgNSPmjmzl1VtPEGSEeQW4xbTydDBRpzRJqGUFigFe_N6P6hmxf1OVEYvBH6cMqgQ)
+
+![](https://lh4.googleusercontent.com/fGAG6437SXaIj6GDTf5lex0XC24ar58c9Lmoqw3oxzA2IHd067RDjLaK2XK5yLfcF2i3RNiVuiMSrQAc4PlptURamTmmcUHxg2k5tKyBExD7kRLOI_fWBeM0pocTwkHmXw)
+
+![](https://lh4.googleusercontent.com/tFkN1FuCXxOWx9HYkkT7T0Xiui_qPgOzqHk88KQXHa5Rnm4sMw_NneeHGS3_mDS4MHD2fXEEQraF_g2Xo-tAwj-YBfx3rXJY4SFCGDfzwK_lydMqBKkkTUmnm3akvy_EVQ)
+
+![](https://lh4.googleusercontent.com/0qY71iG7ROS2daI1Vcu2n7sPkUd5e2OZeM-EYKhk-1zE0GmqLvpCHQlSXTtPQ9gRRC5-4TwuKgbGzGAYHtWzbLjP7-i7YRnpWCFMlRUA1O8IFxiNeet-0JxkVwrxe9Kfog)
+
+![](https://lh4.googleusercontent.com/EZ--oaKDCpgx2GBo7CRkKrZjPrA-TKZ8j72jT8IhQh6yx7rdQuxtu-pmVA2VohI0diW_Z5nb16OI4dxxty7pdGg1gYznJQAM68g9ApHSXXteHx7bpEMmsm9bCEgazr1ncA)
+
+劳伦斯·塞林（Dr.Laurence Sellin）博士
+
+蝙蝠冠状病毒骨架的实验室操作协调,由解放军在不同的中心完成
+
+Video1 : [https://gnews.org/zh-hans/1296076/](https://gnews.org/zh-hans/1296076/)
+
+Video2: [https://gnews.org/zh-hans/1295745/](https://gnews.org/zh-hans/1295745/)
+
+![](https://lh4.googleusercontent.com/JbUfDlijchaK7R7kQ2msz0jy1h05Z6dmuYSgTR3zbgq74Hxk9iUWrQP0Y8DExMbMECh0zHGsGinYZQS4GULzmz_hu6dJhy_ss95t58IXs4heH3e2U8j1QL26GIhPurbxAQ)
+
+![](https://lh5.googleusercontent.com/abWWTPq_5gqTqQd1OBbpNX__gsbSQz2tXHVdps6MQA2kGIzIpoobh_rmeodIL7drlnN2J1jEqQIy_pq5cOeJ-KIaC4UNcO3LLH-JlMXXCGdkH5S_3MiIes9-NF2AfbaOXw)
+
+[Chinese Insider Reveals The CCP’s Cover-up Of Mass Murder. My interview with Dr. Li-Meng YAN and Dr. Maria Ryan is available now on your audio podcast apps and here: youtu.be/UVLFLdSMAVk](https://twitter.com/rudygiuliani/status/1401203988905799690?s=21)
+
+![](https://lh6.googleusercontent.com/PxSZYuSYRVWrRoapl6R8WSZ9iG-kD3vVlpk5bIB5A-q-CUzomjBKARUR9e0gH6nT9EES66r2umXXKHkZrsPOFw6y8-3Qva4xewRR1aDvJAMzb3gmeymw1c-3UM1dDicfUQ)
+
+[闫丽梦博士接受朱利安尼先生采访详细讲解为什么新冠病毒的骨架是中共军方的舟山蝙蝠病毒为什么新冠病毒是中共的生物武器](https://youtu.be/kx3FIh9uKkE)
+
+![](https://lh6.googleusercontent.com/oXGx4EVLs9_2RKz06p8Yje8FlB5cNRXf9MFGzf4suH0XBRkb1Pfr1JuswYMt5N3INgXjuVP5K18b9KT2HU3UV37vvS_aFdpHHKIyJKw-hkrPVdQMMSZGDHi_wYSjvTlzrQ)
+
+![](https://lh3.googleusercontent.com/giaMmi0kqk3lBQSXMVPaPTnXLlri_S2LUTjmVbZ3MeEwf-P0it2ftPAgSWFDjahkeiIoaVKAXnFk-CIa7HVo0Zke-Jsrk1zanGudLIWIlnA2oNrcAiHoiI6v-NpUZO8LxA)
+
+[The Burmese Incident Has Scared the Whole World and the CCP’s “13579 Plan” in Asia](https://gnews.org/zh-hans/900875/)
+
+[My analysis of the Chinese Communist Party’s dual-use military-civilian R&D program for novel genetically-engineered coronaviruses & heterologous vaccines against multiple strains, roughly follows this development plan, but involves more than one virus & a premature release.](https://gnews.org/zh-hans/1112471/)
+
+![](https://lh6.googleusercontent.com/zKqKLzmegx7Y84LYLhwJfTpyvTLIl2HnCM84qHHOHxXxjSWn693FV0a30p62XH9MmE5OwKZnSih6ws2C-j8yj8TAS4VXlPtjJwwU-QMBkD7vOoHkClkawL0AIPcNrA03Pw)
+
+![](https://lh6.googleusercontent.com/cTsP7ILf0dJzCCO7PWAhWqh_o4doZA8GNRDhmVQeoshGZui2lpgfZyDCSDY0nobau49KS5-sTaTmlVKuJsV12V5vFZZUqNDyduO4Jh2FMD_EF0bGQ-wU3ELqI5AE6hllpg)
+
+![](https://lh4.googleusercontent.com/0Td--BVj5lXfoTR-7-N-2m_V6ZNwyocQHaL8eH8DnsKsgDLnY9SMcSteRW1_RJETk_7kCmSzmYZ-MWeuQLqmr65J4lhrDnZ1cFSJeAkwbJqq6pp8hgvYfTIuCLz38LZnmw)
+
+[Dr Limeng Yan on Newsmax: COVID-19 is Intentionally Released, People From NIH Admit Its Lab Origin](https://gnews.org/1282798)
+
+![](https://lh5.googleusercontent.com/Ff4ofpbQLtMnP0PNuuHYmqgO-jE5CL5U70YVQP6kET8u7gjG-A2XSdWfg-51gVd1-Po5iUjiwYd1i265jedwOKBL18B9cM9XUzuUA9QJdph-qX67gIwCJospb_xe8S7sFQ)
+
+![](https://lh3.googleusercontent.com/Me-JOHVXRBsa7tpGEuOBIS9tO7Vh3IjNMVvaQASFq1bsRJPR6sk6f868neeqG7cDOjBLDihL-cliH5SsTtTyFE8SsV3yHEyt8opyMUoLx3z1dUo0gQhlrGvcq2L8eG6Skw)
+
+![](https://lh4.googleusercontent.com/T8zETgZlwTE-HRuBQTjpsrj3rxDNfSaJdG7QEIgrBWlP92T2iCZmkz7IljCxKxtA27RyCtMKY1TK4O7g7YNphU5QxMPX6rDlUB7_VF8tahdLI_FN-M4zmltR1Dq9ukj31g)
+
+![](https://lh3.googleusercontent.com/GzS2JFOxGAOwN4qjiRud7LrSl8cNiI7DvhPdb1jSImqqtu-jN-sdKxZDjwYSNbpMGRdnbI84IwTTJkKRiGP66vgBfyuc2SIc6UCF_6bGuzEny734p9jXAjRdmCE5y07NEw)
+
+![](https://lh4.googleusercontent.com/1rP_Jb3HxRf1NfJNJAtmjkAUhX9eav-0kS-iL_sxcWaD7mzN3hOakzb0T4txLJ_SdB4SE-mRYRWVOYosFr7AwMkz-07uHfGX2bWg1bPnGpeFStF9kludB9slvdZy2dcqqA)
+
+![](https://lh4.googleusercontent.com/yVkqQ7njkiQymTYhTlf-24S3xgVWMrSej3NJsYv82l_jEWxDGsEwIXWjla5tVtzTpKBwGUGupPqBRM3Zj3PxjKi8HIl1ed7AdFVYAItkio00D9ktkrNoIZeBO0QWuepFlQ)
+
+![](https://lh5.googleusercontent.com/r_jLVQiH2btfDHVjWJ-bF_A_OAtlvUIWrxAux3SLbKEr22PaACFfHckvMenY8k8nwjN2OAfMwS4sSmIYU55r4FrKLgdTmIJfCxIk59LQczjN0oTj7eRO6TS8pW_6uggp7A)
+
+![](https://lh4.googleusercontent.com/hWhjkB0iQaVjWFQTQX97672BfHnfiSNM7PHNyMwQ6peQC_ODIt0Y7SdY0C4rzCE7FYHGzmEVt6YfRrV_kVzcNtjiMz4EzSphFWYXLDAlXmSFlotQgKLNpNoz-f6g8oXgGg)
+
+![](https://lh6.googleusercontent.com/E9bJGWtwGwOpjJq-2oXrQCHqD53AlR24PZWbp_cBOLQB0qruv-yVut5yQ8va17glq8af-EiDA05K1DHfJp9qADLy5PhgWQfjVO05y69KMXoqjjJStb6s3d7pcJrprwRo7Q)
+
+![](https://lh3.googleusercontent.com/24A_CDzoWfaoQCXWrygv_IYTXcX34UNpk7-x5s426ZmT-wXPpe_vk0whzHGCf_r8t7GXFqj6rt2Fbt7G3Kv0zM41ALi7uBBhxO1iZAS72gjiARkjRTD7Jr71aZv9Z-Z1_g)
+
+![](https://lh6.googleusercontent.com/wUJD6jeQ4eB-VTgREp4XP8LFFxCI8BLf2HzfXZjr3z3OPujGvDfcuVocaR8Na-SYUkqhJ0jfS3Yv9nAyxkBJMUb-Y40pNdvfHtErF_7ScJbNGbXGFXkhSx1GNvE4wpmUvg)
+
+![](https://lh5.googleusercontent.com/VPvFvS5YCNCTz4ndtlzw_xyJ9wqHf4HArFi-EbObtAKPBemhcMy6HnWrAljFL52nC07zxofP32-IPkXzvz8SVkUSTtiBldoJ7IG3sE14PuratZEg3ANREgyOVVYzD6TDhA)
+
+![](https://lh4.googleusercontent.com/v4LOtht2zeQtjIydKUSd7mCoaVAQvFYWssBlTLZhgdPnbf8_KQ7mHChTzAz2cvSvUfH1qXT_fGTAVXf5nTbTCKsomtkVk2zb7syCrcXhxdtZR2nOIdbrMsObd2CDBX6RWQ)
+
+![](https://lh3.googleusercontent.com/04yMSb2t7NzUqF_yyqDzzyGq1zhTqJYd-pLRsaX4S-vScZr02FxHVcBjzL9pnNCgNbNRGYKdPkznIT11Eh-XIwzts9-vQosp8ROUCgiBZrodjLf2YfdOZhegHGVDmAxtZQ)
+
+![](https://lh5.googleusercontent.com/peG9N5m7oaW9lyjTJZRgEG2Ou9a42KmSKLXgXW9q5dbBysAd9RBjxnsYufTQq5ihdwuTnomHIIWItG9fkL6Ty8_R1gft5uS9qDpSX_0FIzCwBGeGLjvEEUn27_skVqX51w)
+
+![](https://lh6.googleusercontent.com/K4LS5BFvTzxWuDrUkoFN-5mMgrS8zb_7n_GAoO5mxag9Flbq_Vx679Ak0VdRM_jrrxk2yT6qfNjf6fD8MnoBVq9PhPTHSVh2EKr9AdxqdT4UAk1jnm_1aq2tajOBEPHTDA)
+
+![](https://lh4.googleusercontent.com/aA5ftfZCPHGrbkqOj0WgowIenzz6mdhsr6WUX4NCZOHrV98exIfetcOZmZRCUopcgOWMuaSzSenDxzTqFkvtiplKcTckw2_nkf0nnH2EtAiVHzAeeSz3pDdR28jEcBqXug)
+
+![](https://lh5.googleusercontent.com/jIp-BK5Ui2Ps4ovhk9jIM1cqA5EREHyi2t6RAw9B41QZU0GQIT5efVbEDb2NdhwCRBfGpu6tjB9QSWCUQVWWer241IRzriezC3PBPG6RyZcNsAmIcjr3EwnB4_cb6LBjhQ)
+
+![](https://lh3.googleusercontent.com/BSn0D97ITecFVlUCCrVaAiRpAIejfDoX5N0R-0umVJazzRaILv-gL4LYMR6bCMnL7JYAOK4edh_qrZvA-XsjiafSDe8rSEiMQbozZ02kBaIPu8mciQRgCQC_LYuTifkLow)
+
+![](https://lh5.googleusercontent.com/dL8GM1LEB9OWobY6VIt1S1r_Cjcnewni0Ge0FNzVFVPiKSpi4m27-rfnGMkaN1wzIWatOpIM45PDMZiHRqw679_6DuMlEcxdTik6evzUesB14uknNE7JNExOd4hYeGjkwg)
+
+![](https://lh4.googleusercontent.com/9ZjJOmw1_WjkziK911jfxKlHnOcAl_weUnWaw3wBnz5pxWWu0Aa_QByFRkHhXjVrJ8Q9s6tpm7gHYDI3SjgreKCc-EeU6XbeRU7GpnCzsVDDog7X3XCkVaW3e3g11CDrwA)
+
+![](https://lh3.googleusercontent.com/UlCou5nS6iVZ0zUyyEa5GLV2vpymhE737GO3ahFismoAO9V_Ba_l8wUEznDIa0rB3JtVhUTgy4WziTBfsIaIqS0-hNOrkt0kHk1QOf_UO6lGVteS8xBTLl3519vTxCLYMQ)
+
+![](https://lh6.googleusercontent.com/6zAgwXIgbqIyO-yy7lUVpWCPXSPblhRzev6Z5l_O6VfYtKOL770V2dJP3RLpzYUkONbsq2KGfA2Gqm2kC0DQmvBpK3uG-I8dyIuc3ftf_gkY20yNF3d3N8AgTTlxg_Ps6A)
+
+**推荐阅读：**
+[谁是闫丽梦博士，冠状病毒真相的唯一爆料人？](https://gnews.org/zh-hans/1171262/)
+
+[70 Poster illustrieren die Unsicherheit der Corona-Impfstoffe](https://gnews.org/zh-hans/1098229/)
 
 
 
-6月5日塞林博士的7连推：
-
-第1推，转发PJ Media记者Paula Bolyard昨天刚刚发布的一篇文章“报告：一位对中共生物武器计划‘知情”的中共高级别潜逃人员正在与美军国防情报局合作，这实在太糟糕了！”了解中国生物战计划的叛逃者。正如我先前所指出的那样，这比疫情起源焦点WIV有更加广阔的视野，包括炮制支持病毒自然起源学说的病毒变种，如在虚假的RaTG13和RmYN02上投入的力量。
+> [70张海报告诉你疫苗不可靠（2/2） 70 Poster illustrieren die Unsicherheit der Corona-Impfstoffe](https://gnews.org/zh-hans/1109263/)
 
 
-
-> Defector with knowledge of China's biowarfare program. As I noted before it is much broader than the Wuhan Institute of Virology & attempts to make variants supporting the naturally-occurring theory links back to the fake RaTG13 & RmYN02 attempts[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[https://t.co/M1hb32wgDj](https://t.co/M1hb32wgDj)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 5, 2021](https://twitter.com/LawrenceSellin/status/1401040334709198849?ref_src=twsrc%5Etfw)
-
-
-
-第2推，转发塞林博士自己昨天6月4日美东时间早上8点接受未经透露的新闻媒体采访之视频，阐述CCP正在竭尽所能地编造一系列稀奇古怪的支持性材料，诸如虚假蝙蝠冠状病毒RaTG13及其新近虚假变种等，以维护关系到其生死存亡的自然起源理论，进而为PLA护犊子。
-
-
-
-> Clip of Dr. Lawrence Sellin June 4, 2021 (8AM EDT USA) interview, describing the CCP's effort to protect the PLA from COVID-19 blame by the fake bat coronavirus RaTG13 and the new fake variants trying to support the dead naturally-occurring origin theory.[https://t.co/fMRpg7kPBv](https://t.co/fMRpg7kPBv)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 5, 2021](https://twitter.com/LawrenceSellin/status/1401109456532934659?ref_src=twsrc%5Etfw)
-
-
-
-第3推，我们需要停止谈论COVID-19起源的问题，因为辩论已经结束，它就是实验室制造的。我们当务之急是曝光在PLA队伍中，是哪些人在制造并是如何制造出这个病毒的。贴上一张爆料革命的宣传图片，上书文字“CCP病毒，超限生物武器”。
-
-
-
-> We need to stop talking as if there is a question about the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) . The debate is over. It was made in a laboratory. Now we need to expose those in the People's Liberation Army who made it and how they made it.[#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/Ia18XQqKAr](https://t.co/Ia18XQqKAr)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 5, 2021](https://twitter.com/LawrenceSellin/status/1401213801387679745?ref_src=twsrc%5Etfw)
-
-
-
-第4推，感谢COVID-19侦探“占戈鹰Tuan”转发塞林博士自己2天前接受Baltimore WCBM广播电台主持人Sean Casey专访的视频，乃讨论福奇的邮件门、由福奇资助并与中共军方合作的一股力量对COVID-19 实验室起源的掩盖，以及CCP-PLA对美国实验室的渗透。再次贴上这个采访视频。
-
-
-
-> Thank you to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@Tuan\_himalaya](https://twitter.com/Tuan_himalaya?ref_src=twsrc%5Etfw) for posting my interview about the [#FauciEmails](https://twitter.com/hashtag/FauciEmails?src=hash&amp;ref_src=twsrc%5Etfw), the cover-up of the laboratory origin of [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) Fauci-funded collaboration with the Chinese military and infiltration of U.S. labs by CCP and PLA.[https://t.co/Zvg72KZ0C2](https://t.co/Zvg72KZ0C2)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 5, 2021](https://twitter.com/LawrenceSellin/status/1401218305940205570?ref_src=twsrc%5Etfw)
-
-
-
-第5推，再次贴上刘善虑伙同其他3位重量级美国大学教授未雨绸缪，早在COVID-19疫情初期的2020年2月13日，就联合发表在Emi上的那篇文章“无任何可信证据支持SARS-CoV-2的实验室起源”之网页截图。向COVID-19侦探们请求支援，我们正在收集CCP科学家的名单，他们在中共国接受过训练，并在美国工作，而且与PLA合作。我们需要他们的名字，照片，在中共国的受训地点，一篇证明其与PLA合作的论文，以及任何与他们相关的不同寻常的信息。
-
-
-
-> Requesting help of all COVID-19 detectives. We are making a list of CCP scientists, trained in the PRC, but working in the U.S. and collaborating with PLA scientists. We need name, photo, where trained in PRC, an article showing work with PLA and something unusual about them. [pic.twitter.com/lpSJg1i3QG](https://t.co/lpSJg1i3QG)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 5, 2021](https://twitter.com/LawrenceSellin/status/1401254756283260930?ref_src=twsrc%5Etfw)
-
-
-
-第6推，附上塞林博士自己昨天6月4日接受安全自由电台(Secure Freedom Radio)专访的完整音频，讨论有关福奇及其对COVID-19起源的掩盖，CCP-PLA对美国病毒研究计划的渗透，以及他们用虚假的RaTG13病毒基因序列误导全球科学家等话题。
-
-
-
-> Full June 4, 2021 interview with Dr. Lawrence Sellin on Secure Freedom Radio about Dr. Anthony Fauci and the cover-up of the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw), infiltration of U.S. virus research programs and the fake RaTG13 sequence used to confuse global scientists.[https://t.co/BNrTSZzRpL](https://t.co/BNrTSZzRpL)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 5, 2021](https://twitter.com/LawrenceSellin/status/1401268023240138756?ref_src=twsrc%5Etfw)
-
-
-
-第7推，转发一份美国政府的文件链接，该文件标题为“关于引发潜在疫情之病原体的关注和监测，为此推出部门发展检讨机制的政策性指引”。该文件发布于2017年1月9日，亦即是在川普总统入主白宫前不到2周的时间由奥巴马政府发布的，以重启“功能获得”研究。
-
-
-
-> It was the Obama Administration that restarted "Gain of Function" research just two weeks before Donald Trump took office in January 2017.[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#FauciEmails](https://twitter.com/hashtag/FauciEmails?src=hash&amp;ref_src=twsrc%5Etfw) [#FauciLiedPeopleDied](https://twitter.com/hashtag/FauciLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [#FauciLeaks](https://twitter.com/hashtag/FauciLeaks?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/9fEyQLHjeI](https://t.co/9fEyQLHjeI)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 6, 2021](https://twitter.com/LawrenceSellin/status/1401369514412023809?ref_src=twsrc%5Etfw)
-
-
-
-正如塞林博士所言，我们不需再讨论COVID-19起源的问题，因为它就是实验室制造的。当务之急是曝光在CCP-PLA科学家队伍中，是那些人在制造且是如何制造出这个病毒的。因此塞林博士向COVID-19侦探们请求支援，首先将这些在中共国接受过训练却在美国工作，并与PLA合作的CCP-PLA科学家名单收集齐全，收集他们的名字，照片，在中共国的受训地点，一篇证明其与PLA合作的论文，以及任何相关的特殊信息。
-
-塞林博士继续马不停蹄地参与不同的新闻媒体节目，反复阐述有关福奇“邮件门”及其主导的对COVID-19起源问题的掩盖，CCP-PLA对美国病毒研究计划的渗透等话题。鉴于COVID-19就是PLA生物战计划一部分的事实和证据逐渐成为世人皆知的局面，塞林博士已经将下一步工作的重点进行了调整，以防范和甄别CCP即将从不同宣传口倾巢而出的刚刚炮制好的一系列虚假理论学说，及其所谓的支持性虚假“事实”和“证据”，企图拿回误导全球科学家的话语权，以维护关系到其生死存亡的自然起源理论。PLA是CCP继续在国内执行独裁残暴统治的基石，是CCP继续在国际上玩“假大空”庞氏骗局的武装吓唬力量，可见CCP急切护犊子PLA的心情，正在力图扭转其长子PLA正处于世界舆论风暴口的极其尴尬而无助的局面！
-
-塞林博士披露了一份2017年1月9日，即川普总统入主白宫前10天，奥巴马政府就迫不及待地发布的文件，以重启病毒“功能获得”研究。这是一件真正称得上石破天惊，让美国人无法再淡定和围观的大事。可见奥巴马这个美国历史上最巨大、最邪恶的美奸、卖美贼，是如何为川普总统和美国人民乃至世界人民，亲自埋下了足以毁灭地球和人类之量级的核弹的。奥巴马政府的这个文件从美国政府的制度层面为病毒的“功能获得”研究保驾护航，鉴于美国境内是明确规定不能进行这类研究的，而当时全世界唯一还在大规模进行病毒“功能获得”研究的只有中共军方，因此醉翁之意不在酒，一拍即合，奥巴马安插下来的一众美奸福奇、柯林斯、打杂客等就一如既往、名正言顺、大张旗鼓地与CCP-PLA科学家精诚合作，在与王林发等那喝不完的“茅台白酒”觥筹交错中，在与石正丽等那唱不尽的“卡拉OK”曼妙舞步中，病毒“功能获得”取得颠覆性进展，为CCP的70岁大寿献上了一个超级大礼，将人类世界推入了惨不忍睹的人造病毒超限战！
-
-校对/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

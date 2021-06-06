@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒起源于实验室
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1303448/)
+## 匈牙利民众抗议在布达佩斯设立复旦分校
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1303456/)
 
-信息来源：德国世界报网络版 
-记者：比吉特·赫登，（Birgit Herden）
-         莱昂哈德·兰德斯（ Leonhard Landes）
-发布时间：2021年6月06日
-翻译 /整理/ 简评： Shuizhuyu
+俄罗斯莫斯科喀秋莎农场   银河
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25094615/458536-1.png)
+编辑上传   水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06170123/B-9.jpg)politiko.al
+彭博社6月6日报道，数千人抗议中共一所大学计划在布达佩斯开设分校，称该项目反映了匈牙利总理维克托·欧班对民主价值观的漠视。
 
+布达佩斯市长盖尔盖伊·卡拉松尼(Gergely Karácsony)领导了反对政府支持的18亿美元计划的抗议活动，该活动获得政府反对派的支持。周六的集会是当局放松对中共病毒疫情的限制以来居民首次有机会上街抗议。
 
-图片来源： 网络
+卡拉松尼在一次集会演讲中表示，复旦大学项目是欧班执政的青民盟的“道德自杀”。卡拉松尼是反对党选举联盟的领跑者。“我们正开始为99%的人口夺回权力。”
 
-Sars-CoV-2 是否来自武汉的实验室？ 安全专家和世卫组织顾问杰米梅茨尔认为这一理论是合理的。 在采访中，中国指责中国进行了危险的掩盖——但他反驳了一项指控。
+卡拉松尼市长6月2日宣布，他将重新命名位于复旦大学拟建校园附近的街道，以纪念中共国政府侵犯人权行为。其中一条街道将以西藏流亡精神领袖达赖喇嘛(Dalai Lama)的名字命名。另一条将被命名为“维吾尔烈士之路”(Uyghur Martyrs’ Road)，维吾尔族是中共种族灭绝和反人类罪行的受害者。第三条将被命名为“自由香港路”，以纪念中共对香港民主自由运动的血腥镇压。第四个街道将以一名入狱的中国天主教主教的名字命名，是中共对宗教的残酷打压控制的控诉。
 
-一年多来，杰米·梅茨尔 (Jamie Metzl) 发表了论文：病毒大流行起源于实验室事故。 这位美国世卫组织顾问在其网站上为这一具有政治争议的理论收集证据。 这位未来技术和地缘政治专家认为，中国阻止透明调查是对全球安全的攻击。
+欧班的内阁最近放弃了将该校园建设项目称为已成定局的说法，现在表示这只是一个计划。匈牙利内阁部长、欧班的高级助手盖尔盖伊·古里亚斯(Gergely Gulyas)曾表示，复旦大学是世界顶尖大学之一，开设复旦大学符合匈牙利的利益。
 
-简评： 德国世界报是一个相对很严肃的一个媒体，现在已经开始陆续有几篇有关病毒来源的报道， 虽然声音还不够强大， 但是已经开始了。 这篇报道是一个访谈， 世界报采访了世卫组织顾问，结论即使武汉实验室。 因为访问很长， 我这里只是把结论给出来。 这个对我们爆料革命很重要， 对以毒灭共很重要。 对全世界也是非常重要的信息， 也许这样下去真的能够避免中共再次防毒， 让全世界认识中共的邪恶。
+这片位于布达佩斯南部工业区的区域，在多年的房租上涨之后，最初被指定为学生的经济适用房。政府放弃了住房计划，并考虑接受来自中共国的贷款以建设复旦校园。该项目惹恼了当地居民和反对派官员，他们声称，该项目可能会让中共国对欧盟进行更密切的监控。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+欧盟已经与匈牙利就与中共国的关系发生争执。欧班曾多次否决批评中共的联合声明，其中包括一份对香港亲民主活动人士待遇表示担忧的声明。卡拉松尼表示，他将使用一切手段来应对匈牙利政府偏离西方民主价值观、与中共国等国家建立更紧密关系的趋势。
 
-🔗[Woher-kommt-Corona-Experte-wirft-China-gefaehrliche-Vertuschung-vor](https://www.welt.de/wissenschaft/plus231611009/Woher-kommt-Corona-Experte-wirft-China-gefaehrliche-Vertuschung-vor.html)
+参考链接：
+
+[https://www.bloomberg.com/news/articles/2021-06-05/thousands-protest-in-budapest-against-chinese-university-campus](https://www.bloomberg.com/news/articles/2021-06-05/thousands-protest-in-budapest-against-chinese-university-campus)
 
 0

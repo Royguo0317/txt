@@ -1,33 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 专家警告： 意大利人有理由害怕打疫苗
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1303467/)
+## 美国宇航局的火星直升机准备在周日进行第 7 次飞行
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1303478/)
 
-新闻来源： il paragone.it
-发布日期： 2021年5月7日 
-翻译整理/简评： 小白鸽
+#### 翻译： 文复
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06173309/v2_9dbc783b568b4ddf8923a3579ecb1edc_img_000.png)图片截自网络
+根据 NASA 的一份新闻稿，如果一切按计划进行，NASA 的火星直升机 Ingenuity 将不迟于今天升空。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06041841/vaccine-scaled.jpg)
+Ingenuity 是一架重量不超过 4 磅的小型机器人直升机，正在为今天的第七次飞行做准备。任务是将 Ingenuity 从目前位于 Jezero Crater 底部的位置向南飞行 350 英尺。
 
+美国宇航局写道：“这将标志着直升机将第二次降落在上一次飞行中未从空中进行调查的机场。” “相反，Ingenuity 团队依靠 NASA 火星勘测轨道飞行器上的 HiRISE 相机收集的图像，这表明这个新的行动基地相对平坦，表面障碍物很少。”
 
-在欧盟坚持只有强制接种疫苗才是摆脱中共病毒的唯一出路时，某些专家提出不同的看法。
+5 月 22 日，Ingenuity 执行了第六次任务，但并不顺利。这架太阳能直升机出现了中断内部系统的故障，没有提到导致故障的原因。而飞船安全着陆。
 
-这些专家对疫苗的有效性，以及疫苗未来产生的不期望的影响的担心持续增加。在科学界有如此众多的相互矛盾的看法，使一些专家感到疑惑，帕多瓦大学教授保罗•贝拉维泰(Paolo Bellavite)便是其中一位。在接受意大利La7 电视节目的采访时，贝拉维泰( Bellavite )在直播中解释道：“ 意大利人接种疫苗时感到害怕从某种意义上来说时有道理的。我们并不能肯定在好处和危险之间存在着真正的联系。人们在谈论这一话题的时候都使用很肤浅的方式。我们应该知道我们还处在一个真正的试验阶段。第二阶段和第三阶段的试验将在2022年结束， 第四阶段的试验被称为post-marketing 正在进行，可惜进行的不好。
+Ingenuity 已经出色地执行了五次飞行，并将令人难以置信的图像从火星传回地球。
 
-“ 给我们提供的疫苗不良反应的数据并不可靠——贝拉维泰 补充道——因为都是所谓的被动监测。也就是说只有在不良反应的案例被负责报告不良反应的人拿到才算是不良案例。
+美国宇航局还有“毅力漫游者”执行寻找生命的陆基任务。
 
-举个例子：每十万个注射疫苗的有四十例严重反应不良的，事实上，从主动监测来看的数据是4%， 也就是每十万个人中有四千个人有不良反应。这是人们应该知道的。
+在过去的几个月里，这颗红色星球已成为美国和中国的热点，中国在这个星球上登陆了自己的火星车。
 
-当贝拉维泰教授特别提醒老人和身患疾病的人要特别注意的时候，他的话引起了另一位节目支持人米尔塔•梅尔利诺(Myrta Merlino) 的强烈反应，她也是节目邀请的嘉宾。她马上试图阻止贝拉维泰的发言，她说“服避孕药的危险比疫苗更危险。”为什么你要这样警告大家？我们需要尽快地给所有人都打上疫苗。”
+两国对火星的突然兴趣是因为据称这个星球拥有丰富的稀有金属，将为未来的经济提供动力。
 
-如果你想对支持打疫苗的观点的人提出质疑的观点，这是意大利电视台所不允许的。
+[文章来源](https://www.zerohedge.com/geopolitical/nasas-mars-helicopter-prepares-7th-flight-sunday?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
-简评： 从这篇报道我们可以看到这一现象：如今要在意大利电视台对打中共病毒疫苗提出不同看法都是要被禁声的。西方社会鼓吹的自由、民主被中共的生物超限战打得一败涂地。媒体误导也是生物超限战的重要组成部分。如果你讲真话，他们会说这是阴谋论。人类所付出的代价是惨重的。老百姓在不明真相的情况下，都充当了小白鼠。
+(文章仅代表作者个人观点,与GNEWS平台无关)
 
-本文只代表作者观点， 与GNEWS 平台无关
-发表: Shuizhuyu
-
-🔗[lallarme-dellesperto-gli-italiani-che-hanno-paura-del-vaccino-hanno-ragione](https://www.ilparagone.it/attualita/lallarme-dellesperto-gli-italiani-che-hanno-paura-del-vaccino-hanno-ragione/)
+校对发布：紫橄榄
 
 0
