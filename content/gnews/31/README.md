@@ -1,41 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 任何与中共的经济勾结都将成为严查的重点，总统也不例外
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1301397/)
+## 6月5日美国政要反共推特精选:我们需要知道这场大流行是如何开始的!
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1301421/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05205833/29.jpg)
-据美国短新闻媒体Axios 报道，“随着美中关系紧张升级，布什美中关系基金会的领导人发出了建立更密切关系的声音——在某些情况下批评北京的同时，但在一些重大地缘政治问题上却对中国言听计从”。同时，Axios获得了一份书面协议，协议显示中美交流基金会向布什美中关系基金会拨款500万美元的细节，该基金会是在老布什总统生前的许可下于2017年成立的。
+众议员迈克·华尔兹： 福奇和科学界为了自身利益，竭尽全力抹黑武汉实验室泄漏理论。 否定川普所说一切的自由媒体和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传机器也是如此。** 除非我们知道这场大流行是如何开始的，否则我们无法阻止下一次大流行！**
 
-中美交流基金会是总部设在香港，由前香港行政长官董建华管理的一个独立的、非盈利和非政府的基金会。董建华于2005年3月10日以健康为理由向中共中央国务院请辞，于3月12日获接纳。同日，他便获得了政协全国委员会推荐并当选第10届全国政协副主席，连任三届至今。2019年9月17日，习近平签署主席令，授予他“一国两制”杰出贡献者”的国家荣誉称号。董建华的家族产业发家史，与中共有着千丝万缕的联系，因此，他的当选，也是中共精心安排的一场政治布局，现在由他管理的“中美交流基金会”被质疑是中共渗透海外的资金通道，也非空穴来风。
 
-而布什美中关系基金会总裁方大为(David Firestein)在领导德克萨斯大学的中国公共政策中心时，就在2017年提议让中美交流基金会为该中心提供资金。但是，被所在大学教师注意到该组织与共产党的关系后，这一计划被取消。
 
-因此，美国对于来自共产党的资金支持，并非全部照单全收，但不可否认的是，中共利用其在美国布下的强大的人脉网络，对各个领域都有渗透，只是程度不同。
+> Fauci & the science community did everything to discredit the Wuhan Lab Leak Theory for their own self-interest.
+> 
+> So did the Liberal Media who negated everything Trump said & the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s propaganda machines.
+> 
+> We can’t prevent the next pandemic unless we know how this one started! [pic.twitter.com/zpf7eAwzLp](https://t.co/zpf7eAwzLp)
+> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401275382465191938?ref_src=twsrc%5Etfw)
 
-这次牵涉到前总统许可的基金会是否与中共保持无法分割的关系，再次在中美关系交恶之时，成为大家聚焦的重点。
 
-该消息公布之后，布什美中关系基金会的发言人莱斯利·里根（ Leslie Reagan ）证实了该协议的真实性，但其一再强调中美交流基金会的资金对其政策工作没有影响。
 
-莱斯利·里根说：“布什美中关系基金会在美中关系的几乎所有重大问题上都采取了非常有力的独立姿态；在这个过程中，我们经常对中国的政策和行动提出尖锐的批评，当我们认为值得这么做的时候”。莱斯利·里根表示，布什美中关系基金会拒绝接受关于中美交流基金会是中国政治利益代言人的说法。
+参议员玛莎·布莱克本： 当脸书审查员错了时会发生什么？ [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 赢了。 【附福克斯新闻：Jonathan Turley：脸书表示，现在允许提及 COVID-19 可能起源于武汉。多慷慨啊】
 
-但究竟是不是呢，我们看到这份协议的签署日期是2019年9月19日，由双方签署的拨款协议要求中美交流基金会从2019年到2023年每年向布什美中关系基金会捐赠100万美元。涵盖2019年5月至12月的税务申报文件显示，其给布什美中关系基金会共带来了近120万美元的捐款，这意味着中美交流基金会的确在履行该协议的条款。
 
-根据协议，这些资金旨在支持布什美中关系基金会为促进 “一个实用的、建设性的、商业上强大的、互利的和政治上可持续的双边关系 “所做的努力。布什美中关系基金会同意让中美交流基金会了解其活动情况，”以确保双方的目标继续保持一致”。但在实际操作过程中，究竟布什美中关系基金会给中共提供了多少政治上的政策倾斜与帮助，以及透露多少美国的重要情报，我们都无从而知。
 
-而就布什美中关系基金会发言人莱斯利·里根提供的一份清单显示，其中方大为在曝光率较高的政治问题上的确有批评中国政府的言论，但该基金会的领导层在其他方面也呼应了中国政府的路线，从这方面看来，布什美中基金会的确是“吃人的嘴软，拿人的手短”。
+> What happens when the Facebook censors get it wrong? Communist China wins. [https://t.co/ul6a5cRqZu](https://t.co/ul6a5cRqZu)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 5, 2021](https://twitter.com/MarshaBlackburn/status/1401271190019313667?ref_src=twsrc%5Etfw)
 
-布什美中关系基金会创始人兼主席尼尔·布什（Neil Bush，老布什的第三个儿子、小布什的弟弟）在中共国有长期的商业联系。他经营的一家房地产投资公司的中国高管曾违法向支持他二哥杰布·布什（Jeb Bush）的2016年总统竞选的政治行动委员会捐送了130万美元。可见，这件事现在被主流媒体报道处，就一定会成为众矢之的，因为中共的邪恶和对美国的无声侵略的事实，已经逐渐被民众所接受，而在此舆论环境下，任何与中共各层级的勾连，都会被放在放大镜下重新审视，而老布什在8964后，对于中共暴行的放任和妥协，可以说是让中共成为当今这头猛兽的始作俑者。
 
-相信任何侵犯美国利益的行为，都会被终止，任何伤害美国人民的动机，都会被摧毁。
 
-（本文只代表作者观点，与Gnews平台无关。）
+众议员迈克·华尔兹： 我们应该知道 COVID 是如何开始的。我和卢卡斯众议员给白宫科学办公室 (OSTP) 写了一封信，以彻底了解为什么福奇和 OSTP 在奥巴马于 2014 年结束后重新启动功能增强研究资金，将纳税人的钱汇到武汉实验室。 【附华尔兹众议员在福克斯视频：共和党人要求福奇为正在发生的丑闻作证】
 
-**新闻来源：**
 
-[美媒：布什家族非营利组织与中国机构达成500万美元协议 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210605-axio-%E5%B8%83%E4%BB%80%E5%AE%B6%E6%97%8F%E9%9D%9E%E8%90%A5%E5%88%A9%E7%BB%84%E7%BB%87%E4%B8%8E%E4%B8%AD%E5%9B%BD%E5%BD%B1%E5%93%8D%E5%8A%9B%E9%9B%86%E5%9B%A2%E8%BE%BE%E6%88%90-500%E4%B8%87%E7%BE%8E%E5%85%83%E4%BA%A4%E6%98%93)
 
-***校对发布**：文顾*
+> We deserve to know how COVID started.[@RepFrankLucas](https://twitter.com/RepFrankLucas?ref_src=twsrc%5Etfw) & I sent a letter to the White House Office of Science (OSTP) to get to the bottom of why Fauci & OSTP turned Gain-of-Function research funding back on after Obama ended it in 2014, sending taxpayer money to the Wuhan lab. [pic.twitter.com/393vmKVqgC](https://t.co/393vmKVqgC)
+> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401256664976736259?ref_src=twsrc%5Etfw)
+
+
+
+参议员朗·约翰逊: 自大流行开始以来，冠状病毒可能来自武汉病毒研究所的证据一直很明显。为什么福奇博士会嘲笑并驳回它？为什么主流媒体攻击任何指出它的人？ [@FDRLST](https://twitter.com/FDRLST) 【附thefederalist杂志文章：疫苗令不应成为下一个 COVID 政策灾难】
+
+
+
+> Evidence that the coronavirus might have come from the Wuhan Institute of Virology has been in plain sight since the start of the pandemic. Why did Dr. Fauci ridicule and dismiss it? Why did mainstream media attack anyone who pointed it out? [@FDRLST](https://twitter.com/FDRLST?ref_src=twsrc%5Etfw) [https://t.co/Hx9bHXiYZo](https://t.co/Hx9bHXiYZo)
+> — Senator Ron Johnson (@SenRonJohnson) [June 5, 2021](https://twitter.com/SenRonJohnson/status/1401252483574419457?ref_src=twsrc%5Etfw)
+
+
+
+众议员布莱恩·马斯特： 美国人应该从拜登政府获得透明度。 【附华盛顿观察者报报道：福奇博士知道什么，什么时候知道的？】
+
+
+
+> Americans deserve transparency from the Biden Administration.[https://t.co/PW4KGCYvOr](https://t.co/PW4KGCYvOr)
+> — Rep. Brian Mast (@RepBrianMast) [June 5, 2021](https://twitter.com/RepBrianMast/status/1401252482961920006?ref_src=twsrc%5Etfw)
+
+
 
 0
