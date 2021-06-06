@@ -1,26 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每一朵花都有自己的春天
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1301338/)
+## 6月5日美国政要反共推特精选:我们需要知道这场大流行是如何开始的!
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1301421/)
 
-撰稿：Lily2020
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05201732/2021%E5%B9%B46%E6%9C%885%E6%97%A5%E9%85%8D%E5%9B%BE-1.png)图片来源澳喜战友
-有一种美好叫做,在世间不起眼的角落自顾自绽放的骄傲和美丽！
+众议员迈克·华尔兹： 福奇和科学界为了自身利益，竭尽全力抹黑武汉实验室泄漏理论。 否定川普所说一切的自由媒体和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传机器也是如此。** 除非我们知道这场大流行是如何开始的，否则我们无法阻止下一次大流行！**
 
-无论在何处,一年四季,都有植物绽放自己的美丽,不管有没有人欣赏,到了季节,该开花就开花,该结果就结果,遵循自己的节奏,为世界增添了独特的美丽,每一个人,来到这个世界上,都有自己独特的使命,不管身在何处,身处何位,都要努力活出自己的精彩,努力绽放自己的美丽！
 
-昨天晚上听了闫博士在节目最后五分钟的演讲,呼吁战友,每一个人都有自己的闪光点,不可妄自菲薄,不要认为自己平凡,不要以为永远无法突破阶层,够不到金字塔尖,就放弃了自我的发展,只要心向光明,坚持不懈,每天进步一点点,终有一天你会找到能发挥自己能力的位置,这番话发人深省,新联邦的强大,需要各行各业的人才的加入,新联邦的强大,需要每一个国民的参与,需要许许多多人的普通人在各自的岗位上发挥自己的能力,只有每一个人在自己的岗位上做好自己的工作,新联邦才能更加强大,宇宙飞船的每一刻螺丝钉都是必须的,即使是小如一颗螺丝钉,对于整个宇宙飞船,也不是可有可无的,也是必须可少的,只有每一个零部件都完美的配合,发挥自己作用,整个机器才能正常地工作.
 
-新中国联邦的建立,就是为每一个普通人建立一个自由的没有阶层的国度,在这里每一个人都是自由平等的,都可以充分发挥个人的能力,大家共同为了把新联邦建设的更美好一起努力,我们不完美,但是我们一直在努力,只要心存美好,向光明前进,终有一天,每一个人都能在新联邦这个大花园中绽放属于自己的美丽!
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05201746/2021%E5%B9%B46%E6%9C%885%E6%97%A5%E9%85%8D%E5%9B%BE4-scaled.jpg)图片来源澳喜战友
-(本文仅代表作者个人观点)
+> Fauci & the science community did everything to discredit the Wuhan Lab Leak Theory for their own self-interest.
+> 
+> So did the Liberal Media who negated everything Trump said & the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s propaganda machines.
+> 
+> We can’t prevent the next pandemic unless we know how this one started! [pic.twitter.com/zpf7eAwzLp](https://t.co/zpf7eAwzLp)
+> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401275382465191938?ref_src=twsrc%5Etfw)
 
-编辑：文远
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+参议员玛莎·布莱克本： 当脸书审查员错了时会发生什么？ [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 赢了。 【附福克斯新闻：Jonathan Turley：脸书表示，现在允许提及 COVID-19 可能起源于武汉。多慷慨啊】
+
+
+
+> What happens when the Facebook censors get it wrong? Communist China wins. [https://t.co/ul6a5cRqZu](https://t.co/ul6a5cRqZu)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 5, 2021](https://twitter.com/MarshaBlackburn/status/1401271190019313667?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·华尔兹： 我们应该知道 COVID 是如何开始的。我和卢卡斯众议员给白宫科学办公室 (OSTP) 写了一封信，以彻底了解为什么福奇和 OSTP 在奥巴马于 2014 年结束后重新启动功能增强研究资金，将纳税人的钱汇到武汉实验室。 【附华尔兹众议员在福克斯视频：共和党人要求福奇为正在发生的丑闻作证】
+
+
+
+> We deserve to know how COVID started.[@RepFrankLucas](https://twitter.com/RepFrankLucas?ref_src=twsrc%5Etfw) & I sent a letter to the White House Office of Science (OSTP) to get to the bottom of why Fauci & OSTP turned Gain-of-Function research funding back on after Obama ended it in 2014, sending taxpayer money to the Wuhan lab. [pic.twitter.com/393vmKVqgC](https://t.co/393vmKVqgC)
+> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401256664976736259?ref_src=twsrc%5Etfw)
+
+
+
+参议员朗·约翰逊: 自大流行开始以来，冠状病毒可能来自武汉病毒研究所的证据一直很明显。为什么福奇博士会嘲笑并驳回它？为什么主流媒体攻击任何指出它的人？ [@FDRLST](https://twitter.com/FDRLST) 【附thefederalist杂志文章：疫苗令不应成为下一个 COVID 政策灾难】
+
+
+
+> Evidence that the coronavirus might have come from the Wuhan Institute of Virology has been in plain sight since the start of the pandemic. Why did Dr. Fauci ridicule and dismiss it? Why did mainstream media attack anyone who pointed it out? [@FDRLST](https://twitter.com/FDRLST?ref_src=twsrc%5Etfw) [https://t.co/Hx9bHXiYZo](https://t.co/Hx9bHXiYZo)
+> — Senator Ron Johnson (@SenRonJohnson) [June 5, 2021](https://twitter.com/SenRonJohnson/status/1401252483574419457?ref_src=twsrc%5Etfw)
+
+
+
+众议员布莱恩·马斯特： 美国人应该从拜登政府获得透明度。 【附华盛顿观察者报报道：福奇博士知道什么，什么时候知道的？】
+
+
+
+> Americans deserve transparency from the Biden Administration.[https://t.co/PW4KGCYvOr](https://t.co/PW4KGCYvOr)
+> — Rep. Brian Mast (@RepBrianMast) [June 5, 2021](https://twitter.com/RepBrianMast/status/1401252482961920006?ref_src=twsrc%5Etfw)
+
+
+
 0

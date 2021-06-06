@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟委员会开始对脸书展开调查
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1301142/)
+## 1999年贝尔格莱德“误炸”中共国大使馆之谜重新揭开
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1301218/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年6月04日
-翻译 /整理/ 简评： Shuizhuyu
+消息来源：意大利晚报（corriere.it）
+发布时间：2021年06月04日
+翻译整理：斩草要除根
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05173707/brett-jordan-tWX_ho-328k-unsplash-scaled.jpg)
+1999 年 5 月，美国 B- 2发射的五枚“智能”炸弹将中共国驻贝尔格莱德大使馆夷为平地。当时的总统比尔·克林顿就错误而道歉，因为造成了三个中共国官员失去生命和20人受伤。虽然在经历了很多争议后，这段历史被渐渐遗忘了，但中共国人仍然继续怀疑那次美国的行动是有预谋的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05180712/48654634_303.jpg)CNN在中国驻南联盟大使馆1999年5月7日晚遭到轰炸后的现场报道画面
+日本日经在其中文网站上发表了一些文章，这些文章重新谈论了这起事件，文章说，这不会是意外，而是一场野蛮的、有针对性的反间谍行动。1998年的3月，一架美国F-117夜鹰被南斯拉夫的防空机击落。F-117 是当时世界上第一架隐形战斗机，这是由洛克希德公司开发，其中一些残骸现在还在贝尔格莱德的航空博物馆展出。当时这架隐形战斗机的残骸散落在了一些农村地区，中共国特工从农民那里购买了部分残骸，因为中共国想通过检查它们并试图发现隐身技术的秘密（使设备能够逃脱雷达探测）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05180912/48654962_401.jpg)遭到轰炸后的中国驻贝尔格莱德大使馆（摄于1999年5月8日）
+中共国人拥有的碎片在当时被收集在贝尔格莱德外交大楼内的地下仓库中（这在 2011 年得到克罗地亚消息来源的证实），当时的五角大楼决定通过对大使馆进行精确轰炸，使F-117 的残骸变得毫无用处，后来被伪装成错误。现在在中共国网络上发布的文章声称地下仓库当时并没有被摧毁，隐形飞机的部件仍在中共国技术人员手中。
 
+简评：20几年前中共国利用外交谴责、网络舆论、示威游行、赔偿等成功的在中共国人的植入了“美国是恐怖主义思想的国家”这一概念，并且时不时的拿出来当作攻击美国的道具。真相被刻意的抹掉，对美国仇恨的种子在一代一代的延续，无知的中国人就这样被中共反复操控和玩弄。
 
-欧盟委员会正在调查脸书是否正在以反竞争的方式利用其在其他市场的分类广告服务 脸书的Facebook Marketplace 的地位。不排除该集团“扭曲网络分类广告服务领域竞争”的可能性。
+（本文只代表译者观点，与Gnews无关）
 
-欧盟委员会因涉嫌在分类广告服务 Facebook Marketplace 中违反竞争法而对 Facebook 展开正式调查。欧盟竞争事务专员玛格丽特·维斯塔格 (Margrethe Vestager) 周五在布鲁塞尔宣布了这一消息。
+[新闻链接](https://www.corriere.it/america-cina/2021/06/04/segnali-fumo-hong-kong-nell-anniversario-tienanmen-119e19b4-c507-11eb-86af-ac042f3197d2.shtml)
 
-通过市场，社交网络的用户可以私下相互购买和出售商品。根据其自己的信息，欧盟委员会希望澄清 Facebook 是否正在以反竞争的方式利用其在市场的地位提供这项服务。如果竞争公司在 Facebook 上宣传他们的服务，Facebook 可能会获得具有经济价值的数据，然后将其用于对抗竞争对手。
+校对/上传：老中医
 
-简评： 近几年脸书以及遇到了多次麻烦， 扎克伯格也多次到美国国会进行听证。 现在欧盟对脸书也有怀疑了。 调查一下， 是好事。
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
-
-🔗[Facebook-EU-Kommission-startet-Untersuchung-Verdacht-auf-Wettbewerbsverstoss](https://www.welt.de/wirtschaft/article231584505/Facebook-EU-Kommission-startet-Untersuchung-Verdacht-auf-Wettbewerbsverstoss.html)
-
-+1
+0

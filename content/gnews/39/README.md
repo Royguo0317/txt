@@ -1,49 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】尽管城市已重新开放，但曼哈顿的办公楼空置率仍在继续飙升
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1301124/)
+## 拜登禁止59家中国公司
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1301153/)
 
-香草山写作组 四季
+```
+新闻来源：意大利晚报（corriere.it）
+发布时间：2021年06月04日
+翻译整理/简评：斩草要除根
+```
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05175325/nimg.ws_.126.net_-1.jpeg)图片来源：网易
+乔拜登扩大了禁止美国投资者进入中共国公司的名单。总统昨天签署了一项行政命令，其中包括与中共国军工有关的 59 家公司。华为被列入其中，这家 5G 公司，多年来一直处于美国和中共国之间紧张局势的中心。
 
+拜登追随了唐纳德特朗普的脚步。七个月后的现在，很明显，民主党政府不仅对中共国的态度上具有连续性，而且更加强硬。“对中共国的坚定”是将民主党人和共和党人团结在一起的少数几个要点之一，在一封由保守派参议员汤姆·科顿和马可·卢比奥以及进步人士加里·彼得斯和马克·凯利签署的信中证明了这一点。该法令将于8月2日生效。从那一刻起，美国的银行、基金或小投资者将不再能够购买或交易被列入黑名单公司的证券。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+这份由国务院、五角大楼和财政部制定的新名单包括了中国移动通信、中国联通和中国电信等这些中共国最大的电信公司。此外，还有航空业和航天业领域。除了华为，还有杭州海康威视数码科技公司，这是一家专门从事人脸识别的公司，它是被用来镇压香港抗议和迫害维吾尔少数民族的工具。
 
+#### 简评：
 
+**此次修订并扩容中国企业投资禁令，显示拜登政府持续特朗普时期的对华强硬方针。至少在科技领域，继续与中共国“硬碰硬”对抗。**
+（本文只代表译者观点，与Gnews无关）
 
-零对冲6月4日报道，自病毒大流行开始一年多以后，纽约市的经济正轰轰烈烈地重新开放。但是，办公楼市场仍处于困境。据高力公司（Colliers）的商业房地产经纪报告，即使租约增加，曼哈顿的办公空间供应仍在不断创下新的记录。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05122804/%E7%BA%BD%E7%BA%A6.jpeg)
-写字楼5月份的供应率连续第12个月上升到17%。自大流行病开始以来，空置率猛增70%，达到惊人的9200万平方英尺。高力公司表示，转租占总供应量的23%，是去年7月以来的最低值，转租的库存空间比大流行病开始以来多了75%
+**新闻原文链接：**
+🔗[Biden mette al bando 59 aziende cinesi](https://www.corriere.it/america-cina/2021/06/04/segnali-fumo-hong-kong-nell-anniversario-tienanmen-119e19b4-c507-11eb-86af-ac042f3197d2.shtml)
 
-虽然需求正在恢复，但是由于在家工作成为“新常态”，曼哈顿的写字楼的供应过剩可能是长期的趋势。因无法获得租金，建筑运营商最终可能会陷入财务困境。
+* * *
 
-根据卡斯尔系统（Kastle Systems）的数据，截至5月下旬，纽约地区只有约18%的办公人员返回工作岗位。虽然摩根大通、高盛和脸书等大公司准备在未来几个月让员工返回办公室，但根据卡斯尔系统针对全美国重返工作岗位的数据，人员重返办公室的速度非常缓慢。
-
-曼哈顿空置的摩天大楼不仅仅是办公楼。随着人们成群结队地逃离这个自由的城市，前往郊区，住宅库存也在激增。
-
-中共病毒肆虐全球，对经济的打击和对人类生活方式的改变是惊人的。昔日自由繁荣的城市正在被摧毁，实在令人唏嘘。进入6月，以毒灭共已是大势所趋。全人类都应该行动起来，揭露病毒真相，向中共追责，结束这一人类灾难。
-
-原文链接：
-
-[https://www.zerohedge.com/markets/manhattan-office-supply-continues-soar-even-city-reopens](https://www.zerohedge.com/markets/manhattan-office-supply-continues-soar-even-city-reopens)
-
-![This image has an empty alt attribute; its file name is 6_june.jpg]()![This image has an empty alt attribute; its file name is 6_june.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+***编辑整理/校对: **Ting Guo*
 
 0

@@ -1,56 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月5日美国政要反共推特精选:我们需要知道这场大流行是如何开始的!
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1301421/)
+## 塞林博士接受新中国联邦一周年采访摘要
+` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1301485/)
 
-众议员迈克·华尔兹： 福奇和科学界为了自身利益，竭尽全力抹黑武汉实验室泄漏理论。 否定川普所说一切的自由媒体和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传机器也是如此。** 除非我们知道这场大流行是如何开始的，否则我们无法阻止下一次大流行！**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05215201/79F3937D-129F-4B8F-9708-32694B6F5F54.png)
 
+**塞林博士在采访中的发言内容整理**
 
+造成这次百年不遇的病毒大流行的主因不是自然，而是中共。也正是这个原因，促使我从去年开始寻找病毒来源、研究中共的生物战争计划、以及那些在美国暗中帮助中共完成邪恶计划的人。
 
-> Fauci & the science community did everything to discredit the Wuhan Lab Leak Theory for their own self-interest.
-> 
-> So did the Liberal Media who negated everything Trump said & the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s propaganda machines.
-> 
-> We can’t prevent the next pandemic unless we know how this one started! [pic.twitter.com/zpf7eAwzLp](https://t.co/zpf7eAwzLp)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401275382465191938?ref_src=twsrc%5Etfw)
+这一年来，我得到很多伟大的中国人的帮助，他们帮我查阅了很多中文资料。这些年轻、智慧的中国人，代表了未来的中国 – 一个自由而又成功的中国。
 
+过去几个月里，我和这些年轻人一起学到了很多东西。毫无疑问的是，中共病毒来自于实验室，它是中共生物战计划的一部分。现有的证据已经非常充足而且明确。任何人只要研究一下病毒的结构，就能得出病毒来自实验室的结论。没人会因为要研究自然病毒，而去把一个病毒改造成像中共病毒这样的形式。而且这些改动也无法用自然进化来解释。
 
+中共病毒是以生物武器而目的制造，由中共国解放军监制。整个计划从头至尾都是一个军事计划。另外，生物战的一个根本原则就是给自己保留合理推诿的机会，也就是制毒的人会给自己留个推说病毒是自然起源的后路。而中共病毒就是基于这个原则制造的。
 
-参议员玛莎·布莱克本： 当脸书审查员错了时会发生什么？ [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 赢了。 【附福克斯新闻：Jonathan Turley：脸书表示，现在允许提及 COVID-19 可能起源于武汉。多慷慨啊】
+我已经不再使用“泄露”这个词来形容病毒释放过程，因为“泄露”这个词暗示着整个过程只是个过失，但是行为动机还是没有恶意的。但是中共可不是没有恶意，中共已经严重腐蚀了科学界和医学界。其实，中共病毒是如何释放已经不重要，因为病毒只是整个邪恶计划的一部分。
 
+经过我和很多人一起努力，我们已经摸清了中共生物武器计划的组织架构。该计划有三个层次。在最中心，是一个绝密的军事机构构成的内核机构。这个层次是由解放军军事科学院军事医学研究所负责监管，并且与中国医学科学院、中国疾控中心等一系列民事机构合作。
 
+在这个核心之外，是由多个大学、民用科研中心、以及医药公司构成的一个外围层。值得一提的是，在中共治下的中国，军用研究和民用研究没有明显的界限。这一点在2016年的十三五计划中一已经明确：军民融合研究是科研发展的必须。
 
-> What happens when the Facebook censors get it wrong? Communist China wins. [https://t.co/ul6a5cRqZu](https://t.co/ul6a5cRqZu)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 5, 2021](https://twitter.com/MarshaBlackburn/status/1401271190019313667?ref_src=twsrc%5Etfw)
+正是这个第二层，让中共在国际上，尤其是从美国，获得知识和技术。而这些技术被中共用来提高病毒研究和生物武器开发能力。
 
+我认为，美国的病毒研究项目，已经被中共和中共解放军的科学家们严重渗透。说到这，我必须承认，美国任由这些人继续渗透，而没有采取行动来保卫国家安全，这种做法也是不对的。因此美国对于中共的发展也是负有一定责任的。
 
+从上世纪90年代开始，就有很多科学家，采星火燎原的方式，转到美国。首先是一些中共和中共解放军的科学家们在某些美国研究中心逐渐立足，有些人甚至加入美国籍。然后这些人再邀请其他中共和中共解放军的科学家们来美国。这样他们从星星点点的开始，迅速壮大起来。这些中共和中共解放军的科学家们是有组织地为中共工作，获取知识产权，或者帮中共在美国人中散布虚假宣传。这对美国造成了广泛而深远的影响。
 
-众议员迈克·华尔兹： 我们应该知道 COVID 是如何开始的。我和卢卡斯众议员给白宫科学办公室 (OSTP) 写了一封信，以彻底了解为什么福奇和 OSTP 在奥巴马于 2014 年结束后重新启动功能增强研究资金，将纳税人的钱汇到武汉实验室。 【附华尔兹众议员在福克斯视频：共和党人要求福奇为正在发生的丑闻作证】
+未来，我会和我的中国同事们，会继续并肩战斗。我们要让中共为全球大流行负责，我们要把中共的生物武器计划曝光于世，让它最终走向覆灭。
 
+另一方面，美国人也应该认识到，我们有责任重新清理我们的科研项目，在项目中增加国家安全责任追究制度，并把这些想要危害人类的科学家们彻底清理掉。
 
+我呼吁大家和我们一起努力，共同实现这个目标。在二战期间，中美两国士兵一起并肩作战，击溃了一个专职的政权，并取得最终胜利。现在，我们受到另一个专制政权—中共的挑战，如果我们再次联合，我们将会再次赢得胜利。我们会一直并肩和中共战斗到底，直到我们最终一起站在那片自由中国的土地上。
 
-> We deserve to know how COVID started.[@RepFrankLucas](https://twitter.com/RepFrankLucas?ref_src=twsrc%5Etfw) & I sent a letter to the White House Office of Science (OSTP) to get to the bottom of why Fauci & OSTP turned Gain-of-Function research funding back on after Obama ended it in 2014, sending taxpayer money to the Wuhan lab. [pic.twitter.com/393vmKVqgC](https://t.co/393vmKVqgC)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401256664976736259?ref_src=twsrc%5Etfw)
+**演讲之后的问答部分**
 
+关于这些这些给他提供线索的中国人，塞林表示，这是一群反对中共暴政的年轻人，他们执着而又有执行力，这些年轻人一周做的事，比美国的情报机构一年做的都多。
 
+关于如何结束中共，塞林认为，首先要让中共对病毒负责，我们要把它的生物武器计划曝光于世。另外，美国需要切断中共和中共解放军获得高科技的渠道。只要我们能把中共在病毒上犯下的罪行坐实，中共基本上就结束了。
 
-参议员朗·约翰逊: 自大流行开始以来，冠状病毒可能来自武汉病毒研究所的证据一直很明显。为什么福奇博士会嘲笑并驳回它？为什么主流媒体攻击任何指出它的人？ [@FDRLST](https://twitter.com/FDRLST) 【附thefederalist杂志文章：疫苗令不应成为下一个 COVID 政策灾难】
+问到闫博士和中共病毒来源问题，塞林表示，闫丽梦不只是美国和中国，而是全世界的女英雄。塞林很同意闫博士对病毒来源的看法。
 
+整个病毒计划是一个庞大的计划，主要由中共解放军负责。整个项目被细分成很多小任务。解放军已经搜集病毒很多年，搜集到了几千种病毒。武汉病毒研究所做了很多具体的工作，比如病毒组装，基因编辑等工作。还有很多其他的机构参与工作，比如研究动物模型，以便让病毒预先适应在人体环境复制传播等。所以整个项目涉及到很多方面的工作，比如搜集病毒，修改病毒，最终得到中共病毒，这些工作被分散在很多个研究部门分别完成。而武汉病毒研究所是其中的重要一环。
 
+讲到是否受到人身威胁，塞林表示，他目前还没受到威胁，但是收到很多来自中共的批评和质疑。中共最近还给他做了视频，还把闫博士也加进来，这是他的荣耀。不过中共这些动作对他并没有影响，因为中共是被戳疼了，害怕了。所以我们应该在病毒追责问题上继续加码，不给中共喘息机会。
 
-> Evidence that the coronavirus might have come from the Wuhan Institute of Virology has been in plain sight since the start of the pandemic. Why did Dr. Fauci ridicule and dismiss it? Why did mainstream media attack anyone who pointed it out? [@FDRLST](https://twitter.com/FDRLST?ref_src=twsrc%5Etfw) [https://t.co/Hx9bHXiYZo](https://t.co/Hx9bHXiYZo)
-> — Senator Ron Johnson (@SenRonJohnson) [June 5, 2021](https://twitter.com/SenRonJohnson/status/1401252483574419457?ref_src=twsrc%5Etfw)
+在采访最后，塞林表示，他和新中国联邦人是同一个团队，也就是那个即将获胜的团队！
 
+* * *
 
-
-众议员布莱恩·马斯特： 美国人应该从拜登政府获得透明度。 【附华盛顿观察者报报道：福奇博士知道什么，什么时候知道的？】
-
-
-
-> Americans deserve transparency from the Biden Administration.[https://t.co/PW4KGCYvOr](https://t.co/PW4KGCYvOr)
-> — Rep. Brian Mast (@RepBrianMast) [June 5, 2021](https://twitter.com/RepBrianMast/status/1401252482961920006?ref_src=twsrc%5Etfw)
-
-
+*文字整理：文永
+发 布：shangshang*
 
 0
