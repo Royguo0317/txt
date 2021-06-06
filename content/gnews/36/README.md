@@ -1,51 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独立观点】灭共重大利好，G7财长会议达成历史性协议，为下周七国峰会扫清障碍
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1302367/)
+## 从中国出逃的高级官员已和DIA 合作3个月揭露病毒真相
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1302445/)
 
-作者：纽约香草山健身部Jack Li文阳
+作者：香草山写作组     B. Star
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
+郭文贵先生多次爆料中曾提到了一位神秘的爆料者，最近逐渐被媒体关注。他是有史以来从中国出逃至美国的最高级别官员，目前处在国防情报局DIA的Clandestine Service保护之下，与FBI，CIA，国务院等完全隔绝，因为DIA担心这些联邦机构中有中共间谍。该人士提供的信息真实性已被验证。他带出来的实锤的情报直接导致美国对福奇的不信任。
 
+以下是由Adam Houseley 于2021 年6月3日提供给 REDSTATE 的重磅新闻：
 
+“… 相信这位官员是最高级别出逃者之一, 已经和DIA 合作三个月了.这位官员对中共特殊武器项目有直接的了解, 包括生化武器项目”
 
-西方七大工业国集团财长6月5日在伦敦会议上，一致同意签订一份历史性的协议，受到广泛的欢迎。美国和西方联盟的关系又向前迈进一大步，为构建更紧密的同盟关系扫清了财政上的障碍。
+“…美国情报局相信,中共想用来源于蝙蝠掩盖实验室制造的来源. 目前不清楚是否是意外事故,但是中共确实故意让其传播到全世界. 他们禁止了武汉的国内的航班确从来没有禁止过武汉的国际航班.”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06050308/%E5%9B%BE%E7%89%873-3.png)
-
-英国财政部长里希·苏纳克周六在推特上发布的一段视频中宣布了该协议，称来自加拿大、法国、德国、意大利、日本、英国和美国的七国集团财长 “达成了一项历史性的协议，以改革全球税收体系，使其适应全球数字时代，最重要的是，确保它是公平的，以便正确的公司在正确的地方缴纳正确的税”。美国财政部长耶伦出席了会议，她寻求支持政府努力[改写国际税收规则](https://www.cnn.com/2021/06/04/business/global-minimum-tax-g7/index.html)并阻止美国公司将收益记入海外。
-
-亚马逊、Facebook 和谷歌等科技巨头对该协议也表示了欢迎。Facebook负责全球事务的副总裁尼克克莱格在一份声明中表示，欢迎七国集团取得的重要进展，并希望国际税收改革进程取得成功。谷歌发言人何塞·卡斯塔涅达 (José Castañeda) 在给 CNN 的一份声明中表示，谷歌表示强烈支持为更新国际税收规则所做的工作，并希望各国继续共同努力，确保尽快敲定一项平衡而持久的协议。亚马逊发言人还称该协议是“向前迈出的可喜的一步”。
-
-由美国、日本、德国、英国、法国、意大利和加拿大组成的七国集团，GDP总和约40万亿美元，接近全球经济总量的一半。下周，轮值主席国英国将主办G7成员国领导人峰会。本周的G7财政部长和此前的G7外交部长会议的目的都是为此作铺垫。今天达成的协议标志着拜登政府在下周康沃尔七国集团领导人峰会之前取得了重大胜利，取得了重大的政治资本，为G7建立共识扫清了障碍。
-
-该协议可能有助于加速由经济合作与发展组织 (OECD) 牵头的大约 140 个国家之间的平行税收谈判。经合组织秘书长马蒂亚斯·科曼对周六的声明表示欢迎，称其为“朝着改革国际税收体系所需的全球共识迈出的里程碑式一步”。他在声明中补充说，该决定为即将到来的平行税收谈判增添了“重要动力”。可以预见，这140个国家将有可能摆脱中共在经济和贸易以及地缘政治上的控制，把中共国化的伪全球化回归还原成真正的全球化，让全球各国都能得到好处。在对抗中共的问题上，这140个国家都有可能站在美国和西方盟友一边，这确实具有划时代的意义。
-
-拜登政府虽然沿用川普政府的对中共国政策，但川普单打独斗的方式显然让美国分散了不少的精力，忙于应付全世界，疲于奔命。拜登政府精于大国博弈，善于与盟友分配利益，让每一个盟友都得到想要的东西。这半年是西方国家举行会议最密集的半年，每一次聚会，都完成了一次利益的分配，到场者无不欢欣鼓舞。美国现政府只追求主要利益，把次要的利益都分给盟国，这样，盟友越集越多，就可以联合全世界可以团结的力量，一起对抗中共。现在，美国每走一步就多凝聚一份力量，中共离灭亡就又近一步。
-
-参考阅读：
-
-https://www.rfi.fr/cn/g7%E8%BE%BE%E6%88%90%E5%8E%86%E5%8F%B2%E6%80%A7%E5%8D%8F%E8%AE%AE-%E6%94%AF%E6%8C%81%E5%AF%B9%E8%B7%A8%E5%9B%BD%E4%BC%81%E4%B8%9A%E8%AF%BE%E5%BE%B5%E5%85%A8%E7%90%83%E6%9C%80%E4%BD%8E%E4%BC%81%E4%B8%9A%E7%A8%8E
-
-https://www.cnn.com/2021/06/05/business/g7-biden-global-tax-intl-gbr/index.html
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
+推特链接
 
 
 
+> Again…what I reported tonight. US intelligence has a Chinese defector with Wuhan info. AND China is trying to produce variants that suggest it came from bats to cover up that coronavirus originally came from a lab
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400679023668187137?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Being told the increased pressure on China in recent days is due to a defector with intimate knowledge. In fact, Wray didn’t know right away because they wanted to make sure they got all they needed before telling him.
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670397473775617?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Also…US intelligence believes China is trying to produce variants that suggest it came from bats to cover up that it originally came from a lab. The belief is still that it escaped accidentally, but was allowed to spread.
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670631562076161?ref_src=twsrc%5Etfw)
+
+
+
+RedState News 链接
+
+[https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238)
+
+图片
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06055958/0665.jpg)
+审阅/上传： 浪迹天涯
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
 
 0
