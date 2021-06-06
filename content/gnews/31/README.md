@@ -1,56 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月5日美国政要反共推特精选:我们需要知道这场大流行是如何开始的!
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1301421/)
+## 恐慌性出逃的白俄罗斯人民带来的启示
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1301460/)
 
-众议员迈克·华尔兹： 福奇和科学界为了自身利益，竭尽全力抹黑武汉实验室泄漏理论。 否定川普所说一切的自由媒体和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传机器也是如此。** 除非我们知道这场大流行是如何开始的，否则我们无法阻止下一次大流行！**
+撰稿：何处是我家
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05213022/20210606_Task1.jpg)图片来自网络
+“白俄罗斯卢卡申科政府的国家边境安全机构周一宣布（5月31日），进一步收紧本已严格的规则。根据新规定，陆地边境口岸都基本封锁。由此，即便拥有境外长期居留证的本国公民也将难以出境”。
 
+“今天(6月5日)立陶宛传来的消息，立陶宛和白俄罗斯边境出现大量涌入的非法移民。消息并没有说出具体的数字，但是里面提到边防局的负责人准备请求国防军人和欧盟的边防卫队来协助和处理即将到来的更大的困难。
 
+立陶宛边防卫队希望得到武装部队的两种支持——巡逻协助和必要时建立移民营地。“面对大量非法移民涌入，我们会考虑利用武装部队的后勤部门建立拘留和处理移民的中心”，国家边防卫队负责人解释说。
 
-> Fauci & the science community did everything to discredit the Wuhan Lab Leak Theory for their own self-interest.
-> 
-> So did the Liberal Media who negated everything Trump said & the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s propaganda machines.
-> 
-> We can’t prevent the next pandemic unless we know how this one started! [pic.twitter.com/zpf7eAwzLp](https://t.co/zpf7eAwzLp)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401275382465191938?ref_src=twsrc%5Etfw)
+这就是白俄罗斯关大门的结果——敏感的人们会恐慌性出逃。卢卡申科政府闭关锁国的决定是发射的信号弹，提醒那些犹豫的和已经准备好的人，这是最好和最后的一个出逃的窗口期。为什么说是最好的机会窗口？首先白俄罗斯的关闭边境政策刚刚出台，执行并不严密和不具体，总有很多的漏洞和瑕疵。其次这段时期白俄罗斯的边防执法人员和普通人没有大的间隙，是和睦相处的。当看到出走的人们会睁一只眼闭一只眼，网开一面。
 
+外部的环境也支持和有益于白俄罗斯的居民尽快尽早地冲出来。立陶宛政府的行动证明了这一点。接下来和白俄罗斯相邻的波兰和拉脱维亚也将会出现大量的追求自由和安全生活的白俄罗斯人民。
 
+假如不做出逃的人民继续生活在白俄罗斯会发生什么？简单的等待事情变好和卢卡申科政府会快速的倒台，这对自己和家人都是愚蠢和极其不负责任，后果代价很昂贵和惨痛的。历史上可以看到前纳粹时期的德国，前苏联时期的社会主义国家，我们可以看到更直接更清晰的是中共国。只要没有及时出逃，或者跑的慢的，大多付出极大的代价甚至是生命。
 
-参议员玛莎·布莱克本： 当脸书审查员错了时会发生什么？ [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 赢了。 【附福克斯新闻：Jonathan Turley：脸书表示，现在允许提及 COVID-19 可能起源于武汉。多慷慨啊】
+事情为何急速的发展到今天这个地步？这需要追溯的更久远。上世纪九十年初白俄罗斯并没有彻底的离开前苏联的发起国俄罗斯，而是留在了新成立的独联体国家（1991年12月8日成立共有12个国家，现在成功逃脱的只有乌克兰和格鲁吉亚，都付出了极大的代价）。
 
+加入独联体的三年后，卢卡申科就成功的当选白俄罗斯总统一直到今天。已经领导和控制27年的白俄罗斯的领袖卢卡申科是让世界很多元首羡慕和嫉妒的。他执政第三年就轻松的把总统任期由五年改为七年。我想是卢卡申科的成功经验鼓励和启发了叙利亚的阿萨德，俄罗斯的普京都纷纷效仿，中共国的习近平更是直接改成终身制。这几个玩弄国家的元首们真真羡煞死西方的元首们！
 
+卢卡申科的长期的无能和极权统治终于引发了一系列的反应。同时伴随着世界上最近二十年的经济合作发展，当然也深刻刺激和诱发白俄罗斯的精英阶层。况且白俄罗斯的文化和波兰，立陶宛及拉脱维亚是极其紧密联系的，有彼此相通的婚姻，有相近的饮食，甚至因历史留下的遗产，在语言上没有障碍。最重要的当然是日常的经济交流中让人们看到彼此的区别和不平等，再有最近乌克兰的成功出走独联体（就是不和俄罗斯在一起玩了，要加入西方阵营）。都在激励着白俄罗斯的人民，这才有了自去年初就有追求自由民主的精英们和不再苟且的普通人们走上街头，就像香港的勇士们，同样他们也付出被抓捕被杀的代价。但是到今天勇敢的人们依然在行动。
 
-> What happens when the Facebook censors get it wrong? Communist China wins. [https://t.co/ul6a5cRqZu](https://t.co/ul6a5cRqZu)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 5, 2021](https://twitter.com/MarshaBlackburn/status/1401271190019313667?ref_src=twsrc%5Etfw)
+刚刚过去的五月份发生了接二连三的事件，战友们就更能清楚的理出头绪。白俄罗斯的空中劫机并抓捕异见人士及其女友，接着欧盟对白俄罗斯关闭了空中领域，临近白俄罗斯的几个国家驱逐白俄罗斯外交人员，甚至直接关闭了白俄罗斯大使馆，白俄罗斯也同等对待。
 
+这就是为什么白俄罗斯在这周决定关闭自家的大门，关门要放狗咬人，或者抓人和杀人。中共国及白俄罗斯等这几个国家在相互效仿和交流奴役人民，残害杀害威胁他们政权的各阶层人们。魔鬼们也在相互的切磋妖术，以图妄想增加他们的狗命，痴心妄想罢了！
 
+中共国会不会落下锁国铁幕，关上出国的大门，这是大概率的事情。看看历史，战友们！当时国共内战的最后几年也是最好的出走的一段时期，那时中国和世界上接触多并且没有障碍，想走是很容易和简便的事情。而后来的人生结局给了今天的我们最大答案，留在CCP统治下的中国大地上生活的人民，无论是富可敌国的荣毅仁家族，还是沾满人民鲜血的王侯将相的开国元老，以及留过洋的文艺科技界盲目支持共产党的精英们，无不落得身败名裂家破人亡。刘少奇，彭德怀，林彪，潘汉年，江青，巴金，老舍，陈寅格，华罗庚等等数不胜数。而逃走的人呢？无不是一生幸福平安或者家庭美满，所有生活在台湾的前国民党的军政要员和文艺界科技界的精英都是最好的佐证。对于普通人最好的理解就是那些直入我们心灵深处和撞击我们灵魂的八十年代的港台的音乐和时尚的服饰。
 
-众议员迈克·华尔兹： 我们应该知道 COVID 是如何开始的。我和卢卡斯众议员给白宫科学办公室 (OSTP) 写了一封信，以彻底了解为什么福奇和 OSTP 在奥巴马于 2014 年结束后重新启动功能增强研究资金，将纳税人的钱汇到武汉实验室。 【附华尔兹众议员在福克斯视频：共和党人要求福奇为正在发生的丑闻作证】
+这足以说明文明国家和地区的普通人的生活是我们永远无法达到和拥有的。我也一直以为中国也到了最后的逃生关口，就算CCP很快的完蛋，这也需要长时间的休整和建设。但就人民赖以生存的土地资源和水资源能不能恢复到CCP窃权之前的1949年，借用墨博士评价川普竞选总统时最后关头说的一句话“对此我并不乐观”。
 
+但是依旧有欣喜的事情发生，就在昨天6月4日，新中国联邦成立一周年，我观看部分农场的活动和在世贸102层的现场各路精英的完美展现，还有重量级的国际各领域的参与者的演讲，再一次增加我对爆料革命和郭先生一言一行的折服。他的提前布局，提前几年以自媒体爆料形式唤醒也锻炼了更多的优秀的人才脱颖而出，来应对今天世界的乱象。而我们澳喜农场成功的在几天内的两次线下活动，无疑是做的很独到和执着的一个范例。
 
+郭先生的爆料革命开始于四年之前，这使得我们有了充足的准备，会有更多人和资金能成功的逃离中共国。这就是最大的成就！亲爱的朋友们和亲人们！一定要在关门之前逃离CCP，这是美好生活的第一要素！
 
-> We deserve to know how COVID started.[@RepFrankLucas](https://twitter.com/RepFrankLucas?ref_src=twsrc%5Etfw) & I sent a letter to the White House Office of Science (OSTP) to get to the bottom of why Fauci & OSTP turned Gain-of-Function research funding back on after Obama ended it in 2014, sending taxpayer money to the Wuhan lab. [pic.twitter.com/393vmKVqgC](https://t.co/393vmKVqgC)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401256664976736259?ref_src=twsrc%5Etfw)
+（本文仅代表作者个人观点）
 
+*审**稿、**编辑**：光耀**华**夏*
 
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-参议员朗·约翰逊: 自大流行开始以来，冠状病毒可能来自武汉病毒研究所的证据一直很明显。为什么福奇博士会嘲笑并驳回它？为什么主流媒体攻击任何指出它的人？ [@FDRLST](https://twitter.com/FDRLST) 【附thefederalist杂志文章：疫苗令不应成为下一个 COVID 政策灾难】
-
-
-
-> Evidence that the coronavirus might have come from the Wuhan Institute of Virology has been in plain sight since the start of the pandemic. Why did Dr. Fauci ridicule and dismiss it? Why did mainstream media attack anyone who pointed it out? [@FDRLST](https://twitter.com/FDRLST?ref_src=twsrc%5Etfw) [https://t.co/Hx9bHXiYZo](https://t.co/Hx9bHXiYZo)
-> — Senator Ron Johnson (@SenRonJohnson) [June 5, 2021](https://twitter.com/SenRonJohnson/status/1401252483574419457?ref_src=twsrc%5Etfw)
-
-
-
-众议员布莱恩·马斯特： 美国人应该从拜登政府获得透明度。 【附华盛顿观察者报报道：福奇博士知道什么，什么时候知道的？】
-
-
-
-> Americans deserve transparency from the Biden Administration.[https://t.co/PW4KGCYvOr](https://t.co/PW4KGCYvOr)
-> — Rep. Brian Mast (@RepBrianMast) [June 5, 2021](https://twitter.com/RepBrianMast/status/1401252482961920006?ref_src=twsrc%5Etfw)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 
 
 0

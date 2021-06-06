@@ -1,75 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒沙皇比尔·盖茨浮出水面
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1301660/)
+## 欧洲几个国家被中共蓝金黄对“以毒灭共”是件大好事
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1301666/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**摘要：在2021年5月31日的盖特视频中，郭先生讲到共产党的蓝金黄使英国首相和欧洲的一些国家出来唱反调。共产党用几百亿的钱，各种承诺和投资项目去蓝金黄俄罗斯、德国、法国、和英国的一系列的人，当然还带着这些人的黑材料，但最终决定这件事的是美国。在经济面前西方很多人都会放弃原则，选择利己主义。但是郭先生说：“从一周前基本已经定局共产党就死在病毒上了！”**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05233136/Miles_20210531-getter1.srt.txt)
+**欧洲几个国家被中共蓝金黄对“以毒灭共”是件大好事
+CCP’s BGY Plot on European Countries Will Turn Out to Be a Great Thing for the CCP’s Death**
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05225943/B-8.jpg)updatecoronavirus.com
-亲共富豪、企图为中共洗脱病毒罪责的比尔·盖茨，在2015年曾预测，“如果有什么东西在未来几十年内导致超过一千万人死亡，那么它很可能是一种高度传染性的病毒……”在2月他也断言中共病毒的起源是天然的，还警告说，未来会发生“生物恐怖主义”，“有人想制造一种病毒，因此这意味着，遇到这种病毒的机会不仅仅是像现在这种自然引起的流行病……”难怪老贼福奇与他交流的邮件多达几十封，这也许是力挺老贼福奇的背后力量之一。
+另外，再看这几天，前天我给咱们几个战友，包括英国的咱们特殊的战友说：“一定记住，英国首相一定唱反调。”[现在]英首相唱反调了吧？为啥，战友们知道吗？英国首相不唱反调就说明共产党的蓝金黄力量还不够。而且欧洲会有一两个国家，两三个国家出来[唱反调的]。但是你会发现这些人唱反调最终是对整个全球的“以毒灭共”是大好事，大好事！
 
-《华盛顿观察》发表文章，“拜登可能的中共国大使人选希望比尔·盖茨成为中共病毒沙皇”。
+In addition, the day before yesterday, I said to some of our fellow fighters, including our special fellow fighter in the United Kingdom: “You must remember that the British Prime Minister will definitely sing a different tune.” Now the British Prime Minister is playing devil’s advocate, right? Why? Do our fellow fighters know? Had the British Prime Minister not sung the opposite tune, that would show that the power of the CCP’s BGY plot was not enough. Likewise, one, two, or three countries in Europe will come out to strike up a discordant tune. But you will find that these people siding with the devil will ultimately be a great thing for the whole world to take down the CCP with the truth of the virus.
 
-全文如下：
+而且共产党这些天派杨娘娘去俄罗斯，是吧？包括去德国、法国、英国这一系列的人，拎着几百亿的钱，带着各种的承若和投资项目，包括也带着某些人的“缺点”、证据和录像带、U盘。不行你看看，是吧？银行信息。很多人你们不知道，有些话我不方便说。等有时间我给在家再讲讲。[有些人]很便宜，[买通]没那么难。是大家想的太神乎了。何况这么大的动静呢？
 
-据报道，拜登挑选的驻华大使曾多次呼吁让比尔·盖茨负责美国应对去年（发生的）中共病毒疫情的行动，尽管这位慈善家表示，中共国不应为自己在掩盖这场致命危机中所扮演的角色承担责任。
+Moreover, recently the CCP has sent Sissy Yang (Yang Jiechi) to Russia and a bunch of people to Germany, France, and the United Kingdom. They brought tens of billions of Euros, various commitments, investment projects, as well as incriminating evidence against certain politicians with them – videotapes and USB flash drives. “If you disagree with us, take a look at these – your bank information. All right?” Many people don’t know, and it is not convenient for me to reveal some things now. I will tell you more when I have time. Some people are very cheap to buy. They are not that difficult to buy off.  It is not as miraculous as everybody thinks. Not to mention that the CCP is making such a big noise.
 
-克林顿政府和乔治·W布什总统时期的大使尼古拉斯·伯恩斯（Nicholas Burns），在疫情的头几个月，他在推特上多次表示，川普总统应该让盖茨成为“中共病毒沙皇”。在盖茨反对追究中共对此次疫情承担责任，为中共对病毒的一些反应辩护，以及对世界卫生组织受到中共不当影响的观点提出异议之后，这位哈佛大学教授、拜登和前国务卿希拉里·克林顿的竞选顾问，继续提出这样的推荐建议。
+但是，这个世界上决定这件事输或赢的，就像《欧中协议》被干掉一样，不是说英国、也不是法国和德国，最终还是美国在背后起的力量[决定的]。这个地方[美国]才说了算。
 
-伯恩斯在2020年愚人节的推特上写道：“比尔·盖茨为中共病毒的国家协调员，他对我们现在必须做的事情的明确计划令人信服，公众会信任他，他可以帮助把我们的努力与世界的努力结合起来。”
+But in this world, the one that decides who wins or loses in this matter, just as how the EU-China Agreement was killed, is not Britain, France, or Germany. Ultimately the United States is the power that decides everything behind the scenes. The United States has the final say.
 
-他还说：“想想吧，@realDonaldTrump，总统们要求私人公民承担重大公共工作的历史由来已久，@比尔盖茨是成为中共病毒沙皇的合适人选。”
+那么另外一个，大家要看到，更重要的事情[是]经济！在经济面前，各国政客……西方是资本主义社会，也就是钱是爹，钱是主义。在经济面前，很多人都会放弃原则，都要选择利己主义。对自己的任期，对自己的政治的权力，为了这个什么都可以放弃。这就是西方资本主义带来的劣病。
 
-伯恩斯分享了盖茨在2020年3月31日撰写的《华盛顿邮报》的一篇评论文章，其中说：“毫无疑问，美国错过了战胜中共病毒的机会，但做出重要决策的窗口尚未关闭。”
+Furthermore, everybody should see that the more important thing is the economy. The West is a capitalist society, where money is God and money is doctrine. In the face of the economy, many people will give up their principles and choose egoism. Most people will give up everything to maintain their position and power. This is the weakness brought about by Western capitalism.
 
-盖茨写道：“首先，我们需要在全国范围内采取一致的关闭措施，尽管有公共卫生专家的敦促，一些州和郡还没有完全关闭，在一些州，海滩仍然开放，在其他地方，餐馆仍然提供堂食，这是灾难的决策。因为人们可以自由穿越州界，病毒也可以。国家领导人需要明确：任何地方的关闭都意味着对病毒的关闭。第二，联邦政府需要加强检测……最后，我们需要一种基于数据的方法来开发治疗方法和疫苗……如果我们一切都做好，我们可以在少于18个月的时间里得到一种。”
+那么经济上，由于共产党所有病毒，以及共产党的假、偷、骗、抢给各国带来的危害，谁要是想走另外一条路，那是找死呢。最重要的，经济等到世界出现滑坡的时候，你会发现共产党大势已去。能挽回吗？大家试试，它一定是[试试]的。[共产党]想现在把人民币坚挺，操纵汇率，甚至不惜代价把中国人的未来都卖给这些利益集团，来换取西方放过对它们这一次截杀的这个可能啊。它[这些]都没用的。
 
-比尔和梅琳达·盖茨基金会（The Bill and Melinda Gates Foundation）的网站说，该组织最近承诺提供2.5亿美元，用于协助研制中共病毒药物和疫苗，使其“为抗击这一疫情提供的捐款总额达到17.5亿美元，其中大部分用于生产和采购重要的医疗用品。”
+Economically, as a result of the CCP virus and the harm brought to so many countries by the CCP’s fraud, stealing, cheating, and looting, anybody who wants to take another path has a death wish. Most importantly, when the economy is in decline globally, you will find that the tide will turn against the CCP. Can the situation be redeemed? You can try. It [the CCP] will definitely try. It tries to make the Renminbi to stay strong, by manipulating the exchange rate, and even selling the Chinese people’s future to interest groups at any cost, in exchange for the West turning a blind eye to the crimes of the CCP. These are useless efforts.
 
-盖茨在2020年4月15日的推特上批评了川普总统停止资助世卫组织的举动：“在世界卫生危机期间停止为世界卫生组织提供资金，听起来很危险，他们的工作正在减缓中共病毒的传播，如果这项工作停止，没有其他组织可以取代他们，世界现在比以往任何时候都更需要世卫组织。”
+毫不夸张地说，从一周前基本已经定局共产党就死在病毒上了！死在病毒上就是个时间和方式的问题。促使它死亡的根本就是经济，经济越坏它死得越快，经济如果缓慢滑坡它就死得慢点。但是共产党不会坐以待毙的，它会想尽一切办法，求生欲望很强啊，求生欲望很强。这是可以理解的。
 
-本周早些时候，福奇最新发布的电子邮件显示，他和盖茨在沟通，盖茨基金会的高级顾问埃米利奥·埃米尼（Emilio Emini）发了一封主题为“比尔·盖茨的连接请求”的电子邮件，他说他被告知盖茨与福奇前一天谈过，“我已经担负起协调基金会为全球中共病毒疫苗努力贡献的作用……比尔告诉我，你将在“生物医学高级研究和发展局（the Biomedical Advanced Research and Development Authority, BARDA）”对正在进行的资金协调努力发挥核心作用。
+It is no exaggeration to say that it was a foregone conclusion a week ago that the CCP will die because of the virus. It is a matter of time and means. The essential cause of its death is the economy. The worse the economy, the faster it will die. If the economy declines slowly, it will die slowly. But the CCP will not await its doom. It will do everything possible, and its desire to survive is very strong, which is understandable.
 
-艾米尼在2020年4月2日的电子邮件中补充道：“我几乎每天都在电视上看到你，尽管你仍然精力充沛，但我真地很担心你，国家和世界绝对需要你的领导。”
+从来没有一个帝国在临灭亡前，它认为自己是该灭亡的；从没有一个帝国的国民认为帝国是会灭亡的；也从没有一个帝国在灭亡前真的以为自己会全部消失的。没有，从来没有过！历史上几千年来告诉人类，这个时候到那个时候已经失去理智了。可是大势总是不可逆转的，自然现象[规律]谁也逆转不了。
 
-第二天，美国国家过敏和传染病研究所所长福奇回答说：“正如我昨天晚上向比尔提到的那样，我非常希望国家过敏和传染病研究所/国家卫生研究院（NIAID/NIH）、生物医学高级研究与发展局（BARDA）和比尔和梅琳达盖茨基金会（BMGF，Bill & Melinda Gates Foundation）能够采取一种协作和希望协同的方法来治疗中共病毒。”
+There has never been an empire that considered the possibility that it would be destroyed before it was. No citizens of an empire consider that the empire might perish. And no empire has really considered that it will crumble before it does. This has never happened. Never. Thousands of years of human history has proved that people usually lose their minds at that kind of moment. But the historical trend is always irreversible, and no one can reverse the laws of the nature.
 
-许多人吹捧盖茨对中共病毒疫情有远见，部分原因是，在2015年的一次泰德会议（TED conference）演讲中，他预测，“如果有什么东西在未来几十年内导致超过一千万人死亡，那么它很可能是一种高度传染性的病毒，而不是一场战争……我们还没有做好应对下一次疫情的准备。”
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60b4f217ba7ef9088d045bfc](https://gtv.org/getter/60b4f217ba7ef9088d045bfc) (2:00-6:06)
+鸣谢：[1] 感谢盘古小蚂蚁、Antsee-GTV、TING GUO 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1286198/](https://gnews.org/zh-hans/1286198/)
+[2] 感谢YY、Liberte 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于[https://gnews.org/1289892/](https://gnews.org/1289892/)
 
-2月份出现在吹捧盖茨的油管频道Veritasium 上时，盖茨曾断言中共病毒起源于自然，但他警告说，未来会发生“生物恐怖主义”，“有人想制造一种病毒，因此这意味着，遇到这种病毒的机会不仅仅是像现在这种自然引起的流行病。”
+* * *
 
-情报部门上周证实，其18个间谍机构中，至少有一个倾向于对中共病毒来源的武汉实验室泄漏假说，而有两个倾向于自然来源，绝大多数仍未确定。
+**整理校对 & 新闻撰写：【JennyL（纽约香草山农场）】
+字幕：【Rock小哥】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com](https://himalaya-rgt.blogspot.com/)
 
-盖茨于2020年4月26日在美国有线电视新闻网（CNN）露面时，被问及他将如何回应中共掩盖中共病毒并误导世界的指控时他的话引起了争议。
-
-盖茨说：“你知道，中共在一开始就做了很多事情，就像任何一个病毒首次出现的国家一样，他们可以回顾过去，说自己错过了一些事情。你知道，有些国家的反应确实很快，并得到了他们到位的测试，他们避免了难以置信的经济痛苦。令人遗憾的是，即使是你本以为会做得这么好的美国，也做得特别差，但现在不是谈论这个的时候……所以这是一个分心，我认为有很多不正确和不公平的说法，但现在甚至还不是讨论的时候。”
-
-中共官媒《中国日报》（China Daily）的专栏作家、欧盟事务局局长陈卫华（Weihua Chen）在推特上发布了这段盖茨讲话的视频，并声称“比尔·盖茨抨击了川普对中共国的指责游戏是为了分散注意力”，中国共产党利用了盖茨的言论。
-
-众议院共和党中国特别工作组9月份的一份报告认为，“毫无疑问，中国共产党积极进行掩盖活动，目的是混淆数据，隐藏相关公共卫生信息，压制试图警告世界的医生和记者”，中共政府渎职，再加上世卫组织在危机中的遮掩，使得中共病毒的蔓延发展成致命的大流行疫情。
-
-伯恩斯于2020年5月22日再次呼吁盖茨接受他就中共病毒在政府中的领导角色，他在推特上写道，“比尔·盖茨应该成为中共病毒沙皇，我们需要一位懂科学、懂商业、不怕说真话的领导人。”
-
-这一次，伯恩斯分享了《纽约时报》（New York Times）一篇题为《比尔·盖茨是世界上最有趣的人》的评论文章，文章声称，“这几天到处都是盖茨，一个穿着淡紫色衬衫的罗杰斯先生为求知和被隔离的人服务，随着美国在全球抗击无国界疾病的战争中投降，盖茨填补了这一空白，美国被孤立，被同情，被蔑视，从某种程度上说，盖茨是世界上最受敬仰的人。”
-
-在伯恩斯提出建议的时候，盖茨和现已去世并被定罪的性犯罪者杰弗里·爱泼斯坦（Jeffrey Epstein）之间的友谊已经被广泛报道，《纽约时报》在2019年指出，“盖茨是在爱泼斯坦被判性犯罪后开始这段关系的。”“从2011年开始，盖茨多次与爱泼斯坦会面——其中至少三次在爱泼斯坦位于曼哈顿的豪华别墅会面，至少一次深夜不归。”
-
-盖茨的一位发言人当时说：“比尔·盖茨对曾经与爱泼斯坦会面感到遗憾，并认识到这样做是判断上的错误。”
-
-盖茨和妻子梅琳达·弗伦奇·盖茨（Melinda French Gates）5月初宣布离婚，《纽约时报》报道说，“当盖茨先生和爱泼斯坦先生的关系突然进入公众视野时，弗伦奇·盖茨女士很不高兴。”“她聘请了离婚律师，启动了一个进程，最终在本月宣布他们的婚姻即将结束。”
-
-盖茨最初反对今年取消疫苗专利保护，甚至与拜登的美国贸易代表戴琪（Katherine Tai）会面保护专利，然而，拜登政府支持放弃某些知识产权规则，盖茨因此回心转意。
-
-（原文完）
-
-断言中共病毒起源于自然，吹嘘中共的抗击疫情措施得力，力挺世卫组织，反对川普总统，提倡完全封城等等，种种迹象表明，比尔·盖茨是一个与共魔沆瀣一气的“美奸”。
-
-用病毒制造人类灾难，谁是主角？恶魔中共是主谋？还是从犯？还只是个打手？时至今日，美国的暗势力为何还在全力掩盖？除非有比如此罪恶的掩盖更大的罪行！
-
-原文链接：
-
-[https://www.washingtonexaminer.com/news/biden-china-pick-bill-gates-coronavirus-czar](https://www.washingtonexaminer.com/news/biden-china-pick-bill-gates-coronavirus-czar)
-
-+3
++1

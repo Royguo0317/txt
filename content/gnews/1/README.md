@@ -1,13 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中共国段子】自由
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1301748/)
+## 《路德社》新闻快讯（视频版）: 20210604蓬佩奥国务卿接受Hannity采访
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1301633/)
 
-作者：xingfffooo
+《路德社》出品
 
-发表：Summer
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06003320/%E4%B8%BA%E8%87%AA%E7%94%B1%E8%80%8C%E6%88%98.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05020155/A7F19AC0-C887-483A-9F35-69B43DA5D1FE.jpeg)
+以下视频是详细内容：
 
+主要内容：
+
+1.确认蝠奇还有其他人看过蓬佩奥国务卿看到的情报
+
+2.无法理解看到了相同情报，蝠奇却做出不同声明
+
+3. 中国共产党在激励下不会出来澄清，1989年就是在激励下屠杀了自己的百姓
+
+4.无法理解蝠奇吹捧CCP包庇CCP是几个意思
+
+5.无法理解它们当时为什么阻挠国务院调查
+
+
+
+翻译：路德社翻译组
+
+制作：路德社视频组
+
+审核校对：玫瑰新闻组
+
+上传排版：玫瑰新闻组
 
 0

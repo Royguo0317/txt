@@ -1,29 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆墙新闻】好一个对粮食丰收的“礼赞”
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1301345/)
+## 6月5日美国政要反共推特精选:我们需要知道这场大流行是如何开始的!
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1301421/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05202359/26-2.jpg)
-中共最恬不知耻的一点就是当你快被压垮的时候，他们却还在你面前大唱赞歌。
+众议员迈克·华尔兹： 福奇和科学界为了自身利益，竭尽全力抹黑武汉实验室泄漏理论。 否定川普所说一切的自由媒体和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传机器也是如此。** 除非我们知道这场大流行是如何开始的，否则我们无法阻止下一次大流行！**
 
-根据央视网消息，芒种时节小麦迎来集中收获。农业农村部今天（6月5日）发布，全国麦收近三成，总体进展顺利。最新农情调度显示，全国已收获小麦9000多万亩，高标准农田陆续开镰。
 
-读到这里，你肯定会想，什么是“高标准农田”。根据百度词条显示，所谓高标准农田（ well-facilitated farmland ）是指土地平整、集中连片、设施完善、农电配套、土壤肥沃、生态良好、抗灾能力强，与现代农业生产和经营方式相适应的旱涝保收、高产稳产，划定为永久基本农田的耕地。
 
-他们有没有讲清楚“高标准农田”的“高标准”究竟在哪里？丝毫没有，因为这些无法量化的指标都是他们臆想出来的，可以这么说，只要某个领导指着一片农地说，这就是“高标准农田”了，那就一定是了，所谓“旱涝保收、高产稳定”恐怕也只有上帝才能做到吧。
+> Fauci & the science community did everything to discredit the Wuhan Lab Leak Theory for their own self-interest.
+> 
+> So did the Liberal Media who negated everything Trump said & the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s propaganda machines.
+> 
+> We can’t prevent the next pandemic unless we know how this one started! [pic.twitter.com/zpf7eAwzLp](https://t.co/zpf7eAwzLp)
+> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401275382465191938?ref_src=twsrc%5Etfw)
 
-越是要强调“旱涝保收、高产稳定”，就越是暴露出他们“颗粒无收、收成看天”的窘境。当种植土地被大片大片地破坏，当农业经济让道给地产经济的时候，耕地的减少，种植的误区，就注定让“粮食危机”成为或早或晚爆发的定时炸弹。什么“藏粮于地”，什么“藏粮于技“，当农业农村部鼓吹通过农技推广补助项目主推了100多项实用技术之时，大家怎么不曾去想，连下锅的米都没有的前提下，那么多”技“又有何用。
 
-最后，根据“最新农情调度显示，主产区夏粮增产趋势明显“，好一个”趋势“，脆弱地一阵风，一场雨就能终结这个趋势，而终结这个趋势的风和雨，就是来自中共当局的贪婪和无知。
 
-（本文只代表作者观点，与Gnews平台无关。）
+参议员玛莎·布莱克本： 当脸书审查员错了时会发生什么？ [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 赢了。 【附福克斯新闻：Jonathan Turley：脸书表示，现在允许提及 COVID-19 可能起源于武汉。多慷慨啊】
 
-**新闻来源：**
 
-[全国夏收进度近三成2021年06月05日新闻联播 (xwlb.net.cn)](http://www.xwlb.net.cn/19970.html)
 
-***校对发布**：文顾*
+> What happens when the Facebook censors get it wrong? Communist China wins. [https://t.co/ul6a5cRqZu](https://t.co/ul6a5cRqZu)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 5, 2021](https://twitter.com/MarshaBlackburn/status/1401271190019313667?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·华尔兹： 我们应该知道 COVID 是如何开始的。我和卢卡斯众议员给白宫科学办公室 (OSTP) 写了一封信，以彻底了解为什么福奇和 OSTP 在奥巴马于 2014 年结束后重新启动功能增强研究资金，将纳税人的钱汇到武汉实验室。 【附华尔兹众议员在福克斯视频：共和党人要求福奇为正在发生的丑闻作证】
+
+
+
+> We deserve to know how COVID started.[@RepFrankLucas](https://twitter.com/RepFrankLucas?ref_src=twsrc%5Etfw) & I sent a letter to the White House Office of Science (OSTP) to get to the bottom of why Fauci & OSTP turned Gain-of-Function research funding back on after Obama ended it in 2014, sending taxpayer money to the Wuhan lab. [pic.twitter.com/393vmKVqgC](https://t.co/393vmKVqgC)
+> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401256664976736259?ref_src=twsrc%5Etfw)
+
+
+
+参议员朗·约翰逊: 自大流行开始以来，冠状病毒可能来自武汉病毒研究所的证据一直很明显。为什么福奇博士会嘲笑并驳回它？为什么主流媒体攻击任何指出它的人？ [@FDRLST](https://twitter.com/FDRLST) 【附thefederalist杂志文章：疫苗令不应成为下一个 COVID 政策灾难】
+
+
+
+> Evidence that the coronavirus might have come from the Wuhan Institute of Virology has been in plain sight since the start of the pandemic. Why did Dr. Fauci ridicule and dismiss it? Why did mainstream media attack anyone who pointed it out? [@FDRLST](https://twitter.com/FDRLST?ref_src=twsrc%5Etfw) [https://t.co/Hx9bHXiYZo](https://t.co/Hx9bHXiYZo)
+> — Senator Ron Johnson (@SenRonJohnson) [June 5, 2021](https://twitter.com/SenRonJohnson/status/1401252483574419457?ref_src=twsrc%5Etfw)
+
+
+
+众议员布莱恩·马斯特： 美国人应该从拜登政府获得透明度。 【附华盛顿观察者报报道：福奇博士知道什么，什么时候知道的？】
+
+
+
+> Americans deserve transparency from the Biden Administration.[https://t.co/PW4KGCYvOr](https://t.co/PW4KGCYvOr)
+> — Rep. Brian Mast (@RepBrianMast) [June 5, 2021](https://twitter.com/RepBrianMast/status/1401252482961920006?ref_src=twsrc%5Etfw)
+
+
 
 0
