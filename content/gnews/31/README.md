@@ -1,15 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年6月6日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1303061/)
+## 病毒真相第一哨“119”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1303105/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+制作：纽约香草山视频部
 
-6月6号：尊敬的战友们好！新中国联邦的宣言．和爆料革命的．行动力．正在对冲掉共产党在中共的一切谎言．爆料革命将横扫中共在世界上任何一个角落的黑暗的力量！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-[【2021年6月6日】文贵先生盖特原文](https://gtv.org/getter/60bce283c04fd544b46a8ecf)
 
-**喜联盟Gnews编辑部**
+
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
