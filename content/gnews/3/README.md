@@ -1,67 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】生物战剂中的化学添加剂
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1301720/)
+## 【热点播报】每日邮报:中共军方在大流行前几个月用人源小鼠测试病毒
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1301746/)
 
-作者：纽约香草山 billwilliam
-
-中共解放军很久以前就开展了生物武器项目。在2008年，解放军将领杨瑞馥曾撰写一本题为《防生物危害医学》的研究生教科书，该书从各方面介绍生物战的细节，包括制备生物战剂，攻击方式，检测，以及这种武器的破坏力。根据书中一个章节的介绍，化学添加剂可以显著增强病原体在气溶胶中的生存能力，加重破坏效果。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05232549/Picture1-11.png)
-以下是该书第34-35页对于化学添加剂的描述【1】：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05232546/Picture2-5.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05232609/Picture3-3.png)
-节选的文字详细描述了中共解放军计划用化学添加剂增强生物战剂的稳定性和传染性。潜在的添加剂包括糖类、有机酸、有机金属螯合物、蛋白质水解物、血清、还有多元醇类（比如甘油）。其中，糖类、蛋白质水解物、血清、还有多元醇类可以提高病原体中蛋白质的稳定性，对生物战剂起到保护作用。有机金属螯合物可以吸收环境中的金属离子，防止蛋白质被金属蛋白酶破坏。新陈代谢抑制剂还可以使细菌处于休眠状态，增加存活时间。中共军队还设想将病原体包裹在微胶囊中以增强存活率。此外，解放军还计划将比较脆弱的微生物中的毒性基因转移到比较耐久的微生物中，从而制造基因武器。
-
-在中共的另一本题为《非典非自然起源和人制人新种病毒基因武器》的生物战教科书中，徐德忠将军提到利用冻干技术将病原体制成干粉，在敌方领土喷洒。【2】同时使用化学添加剂和冻干技术可以大幅增强病毒或其他病原体的稳定性。举例来说，笔者找到一篇实验操作配方，关于如何将呼吸道融合病毒（RSV）制成干燥的粉末，在摄氏37度的温度下可以保持数小时的稳定。【3】RSV也是一种肺炎病毒。正如附图所示，化学添加剂增强的病毒干粉在暴露于摄氏37度的环境下24小时后仍能保持30%的感染活性。这篇实验配方中使用的化学添加剂与杨瑞馥将军书中的描述完全吻合，所用的添加剂包括：蔗糖（一种二糖）、谷氨酸（一种氨基酸或者有机酸）、还有牛血清白蛋白（一种血清提取的蛋白）。【3】通过增强耐热稳定性，化学添加剂可以实现病毒的武器化。虽然笔者没有情报解放军是否曾使用添加剂来增强其生物武器新冠病毒的热稳定性，杨瑞馥将军的生物战图书明显表现出他们在这个领域的兴趣和野心。添加剂使得在室温下投放病毒成为可能。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05232618/Picture4-4.png)
-*RSV**在摄氏**37**度下的热稳定性曲线。横轴代表时间（小时），纵轴代表病毒的感染活性，随时间衰减。下方两条线代表未经冻干处理的病毒，而上方两条线代表冻干处理后的病毒干粉。加入添加剂的干粉（虚线）比未加入添加剂的干粉（实线）更能保持感染活性。*
-
-*图源：*
-
-[https://jcm.asm.org/content/jcm/25/9/1769.full.pdf](https://jcm.asm.org/content/jcm/25/9/1769.full.pdf)
-
-杨瑞馥介绍的另一种提升稳定性的方法是微囊技术，就是将病原体细菌包裹在保护囊膜中。通常是在细菌表面涂上聚合物的涂层，这样制成的微型颗粒可以抵抗环境或化学物质的压力，比如胃酸、阳光辐射、高温、或氧化。微囊技术本身是一种无害的技术，用于生产缓释药物、气溶胶化的疫苗、或者长效的生物杀虫剂【4，5】。只是解放军意图将这种技术改为研发生物武器的目的。
-
-杨瑞馥的书明显表明解放军试图利用化学添加剂、化学微囊技术、或基因编辑来增强生物战剂的计划。在全球冠状病毒大爆发的时代，一定要推翻投放病毒的中国共产党，否则疫情永无宁日。
-
-（感谢德意志之鹰将这本生物战教材公布在推特上）
-
-参考文献
-
-1. 杨瑞馥主编。《防生物危害医学》军事医学科学出版社。（2008）
-
-ISBN: 978-7-80245-060-8
-
-2. 徐德忠主编。 《非典非自然和人制人新种病毒基因武器》军事医学科学出版社。（2015）
-
-ISBN: 978-7-5163-0587-4
-
-3. Tannock, G., and et al. “Freeze-Drying of Respiratory Syncytial Viruses for Transportation and Storage.” *Journal of Clinical Microbiology*. Vol. 25, No. 9 (1769-1771)
-
-[https://jcm.asm.org/content/jcm/25/9/1769.full.pdf](https://jcm.asm.org/content/jcm/25/9/1769.full.pdf)
-
-4. Rodríguez, A.P.G., and et al. “Bio-insecticide Bacillus thuringiensis spores encapsulated with amaranth derivatized starches: studies on the propagation ‘in vitro’.” *Bioprocess Biosyst Eng.* **38**, 329–339 (2015). https://doi.org/10.1007/s00449-014-1273-7
-
-5. Eski, A., and et al. “Microencapsulation of an indigenous isolate of Bacillus thuringiensis by spray drying.” *Journal of Microencapsulation*. 36:1, 1-9, (2019) DOI: 10.1080/02652048.2019.1572238
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05232619/Picture5-1.jpg)
-*第二行第四位是杨瑞馥。*
-
-*图源：*https://www.thegatewaypundit.com/2021/04/chinas-military-biowarfare-network-led-covid-19/
+作者：纽约香草山媒体部 7bends
 
 
 
-校对/发稿：直截了当
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
+
+6月4日，每日邮报援引《名利场》报导，中共军方在2019年夏天，即大流行前几个月设计了具有人性化肺的小鼠并在它们身上测试病毒。武汉病毒研究所冠状病毒研究项目首席研究员——“蝙蝠女”石正丽——似乎在过去三年中至少在人源化小鼠身上测试了两种新冠病毒。
+
+![]()![](https://i.dailymail.co.uk/1s/2021/06/04/04/43814991-9650709-image-a-18_1622778270594.jpg)图片来源：每日邮报
+
+美国国务院在一月发布的一份情况说明书中抨击了中国共产党系统性地阻止了对COVID-19大流行起源的透明和彻底的调查。武汉病毒研究所与中（共）国军方在出版物和秘密项目上进行合作，同时以民间机构的身份出现。《名利场》指出，病毒来自实验室的理论最早由中国社交媒体用户于2020年1月提出（笔者认为应该指的是路德社119节目）。
+
+虽然福奇博士驳斥了在大流行开始时关于COVID-19可能是人工设计病毒的理论，并淡化了NIH向武汉病毒研究所提供资金的事实（这些资金可能为功能获得研究提供了帮助），但是《Buzzfeed News》获得的福奇博士在2020年1月至6月期间的3200封电子邮件中显示，病毒专家曾警告福奇COVID-19可能来自实验室，而他却公然淡化了这些邮件。《华盛顿邮报》发表的另一封福奇的电子邮件也透露了他在三月和四月大流行初期与中（共）国顶级传染病专家高福博士的亲密关系。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05234203/9-1.jpg)图源网络
+
+所有这些证据都表明，由中共军方主导的COVID-19就是实验室产物，并被设计用于针对人类。福奇博士主导的NIH亦确实向武汉病毒研究所提供了研究资金，且福奇博士本人似乎从一开始就是知情者，他还帮助中共隐瞒真相、误导大众。
+
+参考阅读：
+
+[Chinese military ‘engineered mice with humanized lungs’ in 2019 to test viruses on them – just months before the pandemic erupted](https://www.dailymail.co.uk/news/article-9650709/Chinese-army-researchers-engineered-mice-humanized-lungs-2019-test-viruses-report-says.html)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

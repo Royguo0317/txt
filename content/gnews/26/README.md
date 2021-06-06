@@ -1,56 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月5日美国政要反共推特精选:我们需要知道这场大流行是如何开始的!
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1301421/)
+## 闫丽梦博士二号？神秘高官叛逃者提供中共病毒武器信息
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1301448/)
 
-众议员迈克·华尔兹： 福奇和科学界为了自身利益，竭尽全力抹黑武汉实验室泄漏理论。 否定川普所说一切的自由媒体和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传机器也是如此。** 除非我们知道这场大流行是如何开始的，否则我们无法阻止下一次大流行！**
+翻译/译评：小红帽
+校对/编辑：枳实
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05212259/image001-8.png)图片来源：纽约香草山农场
+#### **译评：**
 
+这位高层叛逃者，是有史以来从中共国出逃至美国的最高级别人员之一。他受国防情报局的秘密服务保护，对联邦调查局、中央情报局，国务院等完全保密。因为国防情报局担心这些联邦机构全都被中共渗透。而他提供的信息真实性已被证实，这直接导致了对福奇的不信任。以上种种，都是郭先生早就警告的中共对美国的渗透和“蓝金黄”，当然也包括在“黑暗即将到来”的预警中。郭先生也多次透露正在和相关部门合作，提供各种灭共信息。这些事对战友来说可能不算惊掉下巴，可是对大多数美国人来说，对大多数西方人来说却肯定是振聋发聩。郭先生3-4年来的爆料，一一被验证，这恐怕正是新中国联邦周年庆之际，“大佬”云集的最重要原因之一。有战友分析此人正是郭先生之前说的在“欧洲听证的爆料者战友”，正如我们当初一直以为闫博士是一位在武汉工作的男性科学家，也许这也是为了保护战友而布下的疑阵。
 
+#### 译文：
 
-> Fauci & the science community did everything to discredit the Wuhan Lab Leak Theory for their own self-interest.
-> 
-> So did the Liberal Media who negated everything Trump said & the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s propaganda machines.
-> 
-> We can’t prevent the next pandemic unless we know how this one started! [pic.twitter.com/zpf7eAwzLp](https://t.co/zpf7eAwzLp)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401275382465191938?ref_src=twsrc%5Etfw)
+在RedState的一篇独家报道中，仁-范-拉尔 （Jen Van Laar）报道说，根据情报界内部的消息来源称，一名来自中共国的高级叛逃者已经与美国国防情报局（DIA）合作几个月。根据范拉尔的秘密消息来源称，这位高级叛逃者声称对中共国的特殊武器项目有所了解，其中包括生物武器。
 
+周四，亚当-豪斯利首先通过推特报道称，”最近几天对中共国的压力增加，是因为一位对该计划有深入了解的叛逃者（的出现）”。据豪斯利称，联邦调查局局长克里斯托弗-雷(Christopher Wray) “没有马上得知此事，因为豪斯利他们想在告诉克里斯托弗-雷之前，确保得到所有需要的信息”。
 
+事实上，根据范拉尔的消息来源，克里斯托弗-雷和中央情报局一样都被这些信息“伏击 “了。报道称：”消息人士称，中央情报局领导层将叛逃者置于他们的秘密服务网络内，以防止中央情报局和国务院接触到此人。此人的存在是对其他机构保密的，因为中央情报局领导层认为联邦调查局、中央情报局和其他几个联邦机构内有中共国间谍或消息来源。”
 
-参议员玛莎·布莱克本： 当脸书审查员错了时会发生什么？ [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 赢了。 【附福克斯新闻：Jonathan Turley：脸书表示，现在允许提及 COVID-19 可能起源于武汉。多慷慨啊】
+为什么这个叛逃者如此重要，以至于必须对他进行保密？
 
+豪斯利说，这是因为叛逃者掌握了武汉CCP病毒起源的信息：“中共国正试图编造以表明CCP病毒来自蝙蝠的变种，继而掩盖CCP病毒最初来自实验室的事实。” 他后来澄清说：“美国情报部门有一名掌握武汉（实验室）情报的中共国叛逃者。而且,中共国正试图制造（病毒）变种来证明病毒来自蝙蝠的变种，以掩盖CCP病毒最初来自实验室的事实。”
 
+根据RedState的消息来源，”该叛逃者已经在国防情报局工作了三个月”，并向 “美国官员提供了大量的、技术上详细的情况汇报”。
 
-> What happens when the Facebook censors get it wrong? Communist China wins. [https://t.co/ul6a5cRqZu](https://t.co/ul6a5cRqZu)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 5, 2021](https://twitter.com/MarshaBlackburn/status/1401271190019313667?ref_src=twsrc%5Etfw)
+“根据国防情报局的评估，叛逃者提供的信息是真实可靠的，”范拉尔写道。”消息人士说，对叛逃者信息的信任程度是导致安东尼-福奇博士突然出现信任危机的原因。范拉尔补充说，美国陆军传染病医学研究所（USAMRIID）派驻国防情报局的人员证实了叛逃者提供的非常专业的技术细节。”
 
+所有的这些（情报）引发了许多问题。为什么 “突然”间，美国的传统媒体集体掉头，开始指责中共国，怀疑福奇？ 为什么像《华盛顿邮报》和BuzzFeed这样的左翼媒体 “突然 “决定是时候放弃福奇的电子邮件–就在社交媒体 “突然 “不再禁止有关实验室泄露故事的几天后？福奇的电子邮件揭露了我们这几个月来一直报道的内容：福奇与武汉实验室的一名中共国科学家合作；福奇要求比尔-盖茨和马克-扎克伯格帮助处理CCP病毒信息；并且同意资助在武汉（实验室）进行危险的功能增强研究。
 
+这给人一种长江三峡那样规模的大坝即将决堤的感觉。问题是，当政治人物在掩盖真相时几乎都是这样做的。他们知道什么，什么时候知道的？谁知道真正发生了什么？
 
-众议员迈克·华尔兹： 我们应该知道 COVID 是如何开始的。我和卢卡斯众议员给白宫科学办公室 (OSTP) 写了一封信，以彻底了解为什么福奇和 OSTP 在奥巴马于 2014 年结束后重新启动功能增强研究资金，将纳税人的钱汇到武汉实验室。 【附华尔兹众议员在福克斯视频：共和党人要求福奇为正在发生的丑闻作证】
+如果这一切被证明是真的–特别是中共国可能故意释放了世界历史上最致命的生物武器–你可能要开始考虑你将在哪里度过美中战争。如果像豪斯利所说的那样，联邦调查局、中央情报局和其他联邦机构都充斥着中共国间谍，这将构成美国历史上最大的国家安全失败，而且是最致命的。
 
+其后果将会很可怕。
 
-
-> We deserve to know how COVID started.[@RepFrankLucas](https://twitter.com/RepFrankLucas?ref_src=twsrc%5Etfw) & I sent a letter to the White House Office of Science (OSTP) to get to the bottom of why Fauci & OSTP turned Gain-of-Function research funding back on after Obama ended it in 2014, sending taxpayer money to the Wuhan lab. [pic.twitter.com/393vmKVqgC](https://t.co/393vmKVqgC)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401256664976736259?ref_src=twsrc%5Etfw)
-
-
-
-参议员朗·约翰逊: 自大流行开始以来，冠状病毒可能来自武汉病毒研究所的证据一直很明显。为什么福奇博士会嘲笑并驳回它？为什么主流媒体攻击任何指出它的人？ [@FDRLST](https://twitter.com/FDRLST) 【附thefederalist杂志文章：疫苗令不应成为下一个 COVID 政策灾难】
-
-
-
-> Evidence that the coronavirus might have come from the Wuhan Institute of Virology has been in plain sight since the start of the pandemic. Why did Dr. Fauci ridicule and dismiss it? Why did mainstream media attack anyone who pointed it out? [@FDRLST](https://twitter.com/FDRLST?ref_src=twsrc%5Etfw) [https://t.co/Hx9bHXiYZo](https://t.co/Hx9bHXiYZo)
-> — Senator Ron Johnson (@SenRonJohnson) [June 5, 2021](https://twitter.com/SenRonJohnson/status/1401252483574419457?ref_src=twsrc%5Etfw)
-
-
-
-众议员布莱恩·马斯特： 美国人应该从拜登政府获得透明度。 【附华盛顿观察者报报道：福奇博士知道什么，什么时候知道的？】
-
-
-
-> Americans deserve transparency from the Biden Administration.[https://t.co/PW4KGCYvOr](https://t.co/PW4KGCYvOr)
-> — Rep. Brian Mast (@RepBrianMast) [June 5, 2021](https://twitter.com/RepBrianMast/status/1401252482961920006?ref_src=twsrc%5Etfw)
-
-
+原文链接：[REPORT: High-Ranking Chinese Defector Working With DIA Has ‘Direct Knowledge’ of China’s Bioweapons Program—and It’s Very Bad – PJ Media](https://pjmedia.com/columns/paula-bolyard/2021/06/04/report-high-ranking-chinese-defector-working-with-dia-has-direct-knowledge-of-chinas-bioweapons-program-and-its-very-bad-n1452251)
 
 0

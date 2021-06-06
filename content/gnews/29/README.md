@@ -1,31 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “疫苗护照”的脚步声近了
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1301365/)
+## 6月5日美国政要反共推特精选:我们需要知道这场大流行是如何开始的!
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1301421/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05204019/28.jpg)
-根据法广新闻网报道，比利时宣布，7 月1日起启用新冠病毒疫苗接种证明，来自欧盟境外的旅客须在抵达前14天以前完成接种欧盟核准的疫苗，且入境后当天需接受筛检，阴性者无须隔离。
+众议员迈克·华尔兹： 福奇和科学界为了自身利益，竭尽全力抹黑武汉实验室泄漏理论。 否定川普所说一切的自由媒体和 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 的宣传机器也是如此。** 除非我们知道这场大流行是如何开始的，否则我们无法阻止下一次大流行！**
 
-比利时政府4日晚间宣布的关于“疫苗护照”的措施备受关注，欧盟为恢复境内观光旅游业，而推动疫苗接种证明，建议27成员国应避免对疫苗接种证明持有者施加额外旅行限制，除非是因必要且适当保障民众健康目的。
 
-欧盟目前核准的新冠病毒疫苗包括辉瑞（Pfizer-BNT）、莫德纳（Moderna）、阿斯利康（AstraZeneca）和强生（Johnson&Johnson ）。
 
-因此，“疫苗护照”真的即将实施，而这一政策所引发的大规模人口迁移，是否会让趋于缓和的欧洲疫情又卷土重来，不甚乐观。
+> Fauci & the science community did everything to discredit the Wuhan Lab Leak Theory for their own self-interest.
+> 
+> So did the Liberal Media who negated everything Trump said & the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s propaganda machines.
+> 
+> We can’t prevent the next pandemic unless we know how this one started! [pic.twitter.com/zpf7eAwzLp](https://t.co/zpf7eAwzLp)
+> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401275382465191938?ref_src=twsrc%5Etfw)
 
-难道各国政府当局不担忧未知的病毒危机吗？难道推行疫苗护照对民众带来的注射疫苗的刺激不会造成二次灾难吗？在病毒真相声音被逐渐放大的时候，各国政府多多少少都会有所耳闻，但为何要顶着一个无法掌控又随时爆破的气球，去冒风险打开国门，允许人口流动呢？归根到底的原因，是经济无法继续支撑。
 
-欧洲的旅游业占国民经济比重不低，甚至在疫情之前，逐年在递增。但疫情的打击，让所有产业几乎停摆，想要重启面临更多的限制和压力。但旅游业的复苏，却相对更加容易，而且会带动一系列上下游产业的快速重新恢复，只是，这些想法都冒着太大的风险。闫博士一再强调当前疫苗的软肋和无效，企图用疫苗来降低病毒传播风险的想法，是极度危险和不科学的。
 
-疫苗护照是一个可怕的想法，如果一国实施，会对欧盟的其他国家形成不小的压力，毕竟人民经过一年半的封锁，太需要一个回归到正常生活的理由和借口了，往往在这种情况下，是最容易放松警惕，给病毒传播带来可趁之机的时候。如果一旦开放，因为人员的流动造成二次病毒爆发，或者因为想要重归正常而大规模接种疫苗造成的隐藏灾难，这个责任，谁会去承担？最后承担不可逆的伤害的主体，永远是不明真相的百姓。
+参议员玛莎·布莱克本： 当脸书审查员错了时会发生什么？ [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 赢了。 【附福克斯新闻：Jonathan Turley：脸书表示，现在允许提及 COVID-19 可能起源于武汉。多慷慨啊】
 
-（本文只代表作者观点，与Gnews平台无关。）
 
-**新闻来源：**
 
-[比利时7月启用疫苗护照 欧盟境外旅客可免隔离 (rfi.fr)](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20210605-%E6%AF%94%E5%88%A9%E6%97%B67%E6%9C%88%E5%90%AF%E7%94%A8%E7%96%AB%E8%8B%97%E6%8A%A4%E7%85%A7-%E6%AC%A7%E7%9B%9F%E5%A2%83%E5%A4%96%E6%97%85%E5%AE%A2%E5%8F%AF%E5%85%8D%E9%9A%94%E7%A6%BB)
+> What happens when the Facebook censors get it wrong? Communist China wins. [https://t.co/ul6a5cRqZu](https://t.co/ul6a5cRqZu)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 5, 2021](https://twitter.com/MarshaBlackburn/status/1401271190019313667?ref_src=twsrc%5Etfw)
 
-***校对发布**：文顾*
+
+
+众议员迈克·华尔兹： 我们应该知道 COVID 是如何开始的。我和卢卡斯众议员给白宫科学办公室 (OSTP) 写了一封信，以彻底了解为什么福奇和 OSTP 在奥巴马于 2014 年结束后重新启动功能增强研究资金，将纳税人的钱汇到武汉实验室。 【附华尔兹众议员在福克斯视频：共和党人要求福奇为正在发生的丑闻作证】
+
+
+
+> We deserve to know how COVID started.[@RepFrankLucas](https://twitter.com/RepFrankLucas?ref_src=twsrc%5Etfw) & I sent a letter to the White House Office of Science (OSTP) to get to the bottom of why Fauci & OSTP turned Gain-of-Function research funding back on after Obama ended it in 2014, sending taxpayer money to the Wuhan lab. [pic.twitter.com/393vmKVqgC](https://t.co/393vmKVqgC)
+> — Rep. Mike Waltz (@michaelgwaltz) [June 5, 2021](https://twitter.com/michaelgwaltz/status/1401256664976736259?ref_src=twsrc%5Etfw)
+
+
+
+参议员朗·约翰逊: 自大流行开始以来，冠状病毒可能来自武汉病毒研究所的证据一直很明显。为什么福奇博士会嘲笑并驳回它？为什么主流媒体攻击任何指出它的人？ [@FDRLST](https://twitter.com/FDRLST) 【附thefederalist杂志文章：疫苗令不应成为下一个 COVID 政策灾难】
+
+
+
+> Evidence that the coronavirus might have come from the Wuhan Institute of Virology has been in plain sight since the start of the pandemic. Why did Dr. Fauci ridicule and dismiss it? Why did mainstream media attack anyone who pointed it out? [@FDRLST](https://twitter.com/FDRLST?ref_src=twsrc%5Etfw) [https://t.co/Hx9bHXiYZo](https://t.co/Hx9bHXiYZo)
+> — Senator Ron Johnson (@SenRonJohnson) [June 5, 2021](https://twitter.com/SenRonJohnson/status/1401252483574419457?ref_src=twsrc%5Etfw)
+
+
+
+众议员布莱恩·马斯特： 美国人应该从拜登政府获得透明度。 【附华盛顿观察者报报道：福奇博士知道什么，什么时候知道的？】
+
+
+
+> Americans deserve transparency from the Biden Administration.[https://t.co/PW4KGCYvOr](https://t.co/PW4KGCYvOr)
+> — Rep. Brian Mast (@RepBrianMast) [June 5, 2021](https://twitter.com/RepBrianMast/status/1401252482961920006?ref_src=twsrc%5Etfw)
+
+
 
 0
