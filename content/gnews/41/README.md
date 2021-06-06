@@ -1,15 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特纳议员：中国政府必须为新冠病毒负责
-` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1302007/)
+## 文贵先生的眼泪:铁打的柔情令人动容
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1302117/)
 
-- 中文简介：俄亥俄州众议员迈克-特纳（Mike Turner）认为，在涉及COVID-19的来源方面，’一切都指向武汉实验室’，并补充说’我们需要调查清楚’。
-- 英文标题：The Chinese government needs to be held accountable’ for COVID-19: Rep. Turner
-- 英文简介：Rep. Mike Turner, R-Ohio, argues ‘everything points to the Wuhan lab’ as it pertains to the origin of COVID-19, adding that ‘we need to get to the bottom of it.’
-- 原视频链接：[https://video.foxnews.com/v/6256671420001](https://video.foxnews.com/v/6256671420001)
+文贵先生哭了，隔着屏幕就能听到他抽噎的声音。
 
+就在2021年6月5日感恩自由女神的直播中，伴随着妈妈的歌，文贵先生落泪了。就在自由女神面前，伴随着这首特意纪念母亲的歌曲旋律，这个别人看来铁打一般的汉子，动情啜泣。
 
+如果没有记错的话，这是文贵先生在镜头前第二次落泪。上次落泪也是在谈到亲人因为他遭受牵连的时候，文贵先生潸然泪下。这次落泪为什么呢？因为他逝去的母亲？因为自由女神？因为同舟共济的战友？因为新中国联邦一周年庆典？或许都有。
 
+文贵先生您的眼泪，让广大战友更加珍惜亲情的美好。
+
+文贵先生您的眼泪，让广大战友更加理解你的大爱。
+
+文贵先生您的眼泪，让广大战友更加坚信正道主义的光明前景。
+
+这恰恰是文贵先生感性的一面，而平日的战神形象又是理性的一面，如他自己说，既有感性又有理性，才叫人性！是的，我们看到的文贵先生是个真真实实的人，而只有人性的光辉才会感召众生，感动天地！
+
+谨以此文，向您和您伟大的母亲，致敬！
+
+by 像风一样自由
 
 0

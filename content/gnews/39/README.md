@@ -1,15 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （中英）传染病专家史蒂芬-史密斯博士说，如果 “专家们不否定羟氯喹，10万条生命本可以得到拯救
-` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1302044/)
+## 害羞的正义天使已焕然一新：Dr. Dan
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1302096/)
 
-- 中文简介：传染病专家史蒂芬-史密斯博士说，如果 “专家 “们不否定羟氯喹，10万条生命本可以得到拯救。
-- 英文标题：New study reveals success of hydroxychloroquine as COVID treatment Excerpt: Infectious disease specialist Dr. Stephen Smith says 100k lives could have been saved had the ‘experts’ not dismissed it (hydroxychloroquine)
-- 英文简介：New study reveals success of hydroxychloroquine as COVID treatment Excerpt: Infectious disease specialist Dr. Stephen Smith says 100k lives could have been saved had the ‘experts’ not dismissed it (hydroxychloroquine)
-- 原视频链接：[https://video.foxnews.com/v/6257007407001/#sp=show-clips](https://video.foxnews.com/v/6257007407001/#sp=show-clips)
+作者：上进哥
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06035505/060601.jpg)
 
+在今年六四庆典活动中，最大的惊喜和亮点莫过于我们的天使闫博士终于在一年多后在纽约曼哈顿十八楼见到了七哥，战神和天使第一次相拥相聚！
 
+同样地，在纽约自由塔102层，新中国联邦一周年庆典上，天使闫博士在主持人热情的报幕和众战友的欢呼声中，惊喜的出现在屏幕面前！ 实在感人、振奋、暖心，让人泪奔！
+
+回想过去一年，目目在历，言犹为新，一个瘦弱的女子，被迫抛家离夫，只为了向世间传达真相，只为了挽救全人类！
+
+可人间如地狱，如果不是天使疾切的呼喊，我们新联邦人如何能知人间地狱之黑，如何能晓天使所临人间邪灵之恶，如何能感天使所受之痛？
+
+“留给人类的时间已经不多了！”天使倾尽自己所有的力量，提早揭露了中共的超限生化武器攻击，和新中国联邦的战友们一起告诉世界真相，打乱了中共的计划，硫酸羟氯喹的推广进一步减少病毒感染的数量，如果没有闫博士，世界不会有任何措施，世界人口的感染和死亡恐怕是现在的10倍以上，然而中共全世界投毒，造成众生亡殆，白骨片片，也有现存的人类政府、媒体等社会組织已为中共邪灵所掌控后的推波助澜，造成各种次生灾害不断，人类梦魇依旧未能结束，惨痛亦可悲！
+
+所幸世间尚存正义，七哥凝聚的万千战友在天使身后，自由女神像国度下的正义斗士也齐聚一堂，所以我们得以见自由塔102层之群英荟聚！
+
+“我会战斗至生命的最后一分钟，直至中共灭亡的最后一分钟！”
+
+害羞的人间天使从未孤单，我们无比爱她，跟随她，支持她，为她欢欣，为她呼喊，为她落泪！
+
+Dr. Yan ，是在地狱般的黑暗人间，新中国联邦国旗上又亮又大的一颗天使七芒星！
+
+[援引原文](https://gtv.org/channel#getter/60bb7fedc04fd544b469dee9)
+
+审核校对：Barry Jack
+上传排版：糖果儿
 
 0
