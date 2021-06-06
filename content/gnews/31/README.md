@@ -1,15 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】06/04/2021：新中国联帮成立一周年大庆
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1301638/)
+## 【中共国段子】自由
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1301748/)
 
-制作：Cantonese工作室
+作者：xingfffooo
+
+发表：Summer
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06003320/%E4%B8%BA%E8%87%AA%E7%94%B1%E8%80%8C%E6%88%98.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05020155/A7F19AC0-C887-483A-9F35-69B43DA5D1FE.jpeg)
 
 
-
-*资料整理：黄玫瑰 Elain Lei
-海报製作：儂民、Penny
-视频製作：Ken*
-![]()![](https://cdn.discordapp.com/attachments/574855309877575681/850928778258939915/image2.png)![]()![](https://cdn.discordapp.com/attachments/574855309877575681/850928777982509107/image1.png)![]()![](https://cdn.discordapp.com/attachments/574855309877575681/850928777583394826/image0.png)
 0

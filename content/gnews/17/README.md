@@ -1,86 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新中国联邦一周年】全球庆典综合报道
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1301876/)
+## 特纳议员：中国政府必须为新冠病毒负责
+` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1302007/)
 
-**作者：翼族**
+- 中文简介：俄亥俄州众议员迈克-特纳（Mike Turner）认为，在涉及COVID-19的来源方面，’一切都指向武汉实验室’，并补充说’我们需要调查清楚’。
+- 英文标题：The Chinese government needs to be held accountable’ for COVID-19: Rep. Turner
+- 英文简介：Rep. Mike Turner, R-Ohio, argues ‘everything points to the Wuhan lab’ as it pertains to the origin of COVID-19, adding that ‘we need to get to the bottom of it.’
+- 原视频链接：[https://video.foxnews.com/v/6256671420001](https://video.foxnews.com/v/6256671420001)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05234128/8-3.jpg)
 
-盘古时间2021年6月4日零点，在美国纽约的新世贸大厦102楼开始了新中国联邦成立一周年的盛大庆典活动。顿时全球的战友和关注新中国联邦的人们都将目光聚集在了这里。虽然中共用尽办法对这次庆典活动进行围追堵截，但是在强大的技术力量和团队支持下，GTV依然成功进行了长达十四个小时的直播，并与全球其它分会场进行了现场连线。既体现了爆料革命的强大实力，也极大扩展了新中国联邦在全世界的影响力。
 
-本次庆典活动除了美国纽约主会场，还有另外三个分会场，它们分别是代表欧洲的英国分会场，代表大洋洲的新西兰分会场和代表亚洲的日本分会场。各个分会场举办的庆典活动既丰富多彩又各具特色，展现了新中国联邦人不一样的风采和团结一致消灭中国共产党的无畏勇气。
-
-纽约主会场的嘉宾们首先亮相，他们个个容光焕发，盛装踏上了红地毯。现场星光闪耀，既有来自全球各农场的优秀战友，也有我们耳熟能详的闫丽梦博士和路德先生，当然也少不了我们中国“老百姓”最好的朋友史蒂文·班农先生，还有很多支持新中国联邦的美国大咖，包括代表了“沼泽地”的约翰.A.摩根先生，代表军界的迈克尔·弗林将军，美国市长鲁迪·朱利安尼，代表政界新生力量的“枕头哥”迈克·林德尔先生，著名的美国作家和记者比尔·格茨先生，拉希姆·卡萨姆，娜塔莉·温特斯等等，并且现场还连线了彼得·纳瓦罗先生和劳伦斯·塞林博士。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004446/fig1.jpg)比尔·格茨夫妇和史蒂文·班农
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004432/fig2.jpg)迈克尔·弗林将军
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004419/fig3.jpg)迈克·林德尔、鲁迪·朱利安尼和史蒂文·班农
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004405/fig4.jpg)拉希姆·卡萨姆
-
-在大西洋的彼岸英国伦敦，随着英国喜庄园农场主大卫“尊敬的战友们”那一声亲切的称呼，拉开了欧洲分会场庆典活动的序幕。来自英喜农场的战友们站在伦敦市政大楼前，以伦敦地标级的建筑伦敦塔桥为背景，左边是英国最高建筑碎片大厦，右边是著名的圣保罗大教堂，向全球观众展示英国分会场的风貌。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004351/fig5.jpg)
-
-英喜的帅哥靓女们对着镜头，握拳向全世界高呼：“我们的目标是什么？TAKE DOWN THE CCP”，展现每一位战友灭共的决心。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004338/fig6.jpg)
-
-双层观光巴士是伦敦一道美丽又经典的风景，而地标级建筑“伦敦眼”是为庆祝新千年而建，当一身海洋蓝的“新中国联邦”巴士慢慢驶向伦敦眼，这标示着新中国联邦将在新的千年里开创属于中国人真正的美好未来。
-
-在遥远的南半球，新西兰分会场则举办了一场别开生面的庆祝活动，从空中到地面，再从地面回到空中。七位跳伞勇士组成的七芒星，七架战斗机组成的飞行编队，七芒星火箭将新中国联邦的旗帜送上了蓝天……当这些极限运动和高难度的空中表演让观众们看得眼花缭乱时，新西兰农场的农场主、喜马拉雅联盟委员会的主席老班长向全球的战友们敬上了一杯酒，现场的战友们唱起了生日歌。在新中国联邦成立一周年的这一天，新西兰分会场既刺激又温馨的庆典活动，永远定格在了历史的画面里，令人难以忘怀。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004324/fig7.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004311/fig8.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004258/fig9.jpg)
-
-离开了南半球，庆典活动来到了距祖国最近的分会场——日本东京。日本分会场的表演具有浓郁的东方文化色彩。一开场马来西亚籍战友 AppleX的小提琴和钢琴表演应和了文贵先生《马背英雄》的新曲。当《愿荣光归香港》的乐曲响起时全场观众肃穆起立，以一种特殊的形式向香港的勇士们致敬，意味深远。现场极具日本元素的三味线与太鼓激情合奏与文贵先生的《酒灭中共》完美结合，相映成辉。日本分会场的舞台、灯光、服装、场控、音响和主持人都呈现出非常高水准的“日本式专业”，将本次全球的庆典活动推向了最高潮。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004245/fig10.jpg)
-
-日本分会场还在现场先后播放了来自新加坡农场、韩国恩典农场、喜韩农场，以及台湾农场的祝福和感言，体现了亚洲各个农场的大团结，因为所有正义的人们都有同一个愿望——消灭中国共产党！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004232/fig11.jpg)韩国恩典农场 哈恩女士
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004219/fig12.jpg)韩国喜韩农场 朴昌海先生
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004206/fig13.jpg)台湾宝岛农场 台湾大牛先生
-
-在六四到来的前夕，全球新中国联邦的战友们组织了不同形式的线下活动来庆祝新中国联邦成立一周年。
-
-5月30日和6月4日，悉尼澳喜农场在澳大利亚悉尼、珀斯、布里斯班等多个城市开展了游行活动，庆祝新中国联邦成立一周年。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004152/fig14.jpg)
-
-墨尔本雅典娜农场和新西兰农场的一些战友不但参加了澳喜组织的活动，还在活动结束之后来到悉尼的中心市区发放中共病毒真相的宣传册。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004139/fig15.jpg)
-
-由于疫情的影响，德国一直处于lockdown状态。5月31日刚解封的第二天，德国农场的战友们就举行了游行活动。他们来到德国首府杜塞尔多夫的市中心老城区，一路挥舞着新中国联邦的旗帜，发放宣传册，宣传爆料革命。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004124/fig16.jpg)
-
-在加拿大温哥华时间的6月4日，温哥华扬帆农场的战友们接过了本次全球庆典活动的最后一棒，70多名战友集结在中共驻温哥华领事馆外进行抗议示威活动。用“灭共行动”来庆祝新中国联邦成立一周年，给新中国联邦成立一周年的庆典活动划上了圆满的句号。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004111/fig17.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06004057/fig18.jpg)
-
-32年来，每一个6月4日对于中国人来说都是一个特别的日子。正如草根小哥所说，在2020年6月4日新中国联邦成立之前它是一个悲伤的日子，但自从新中国联邦一年前成立的那一天起，它已经不再悲伤，因为我们已经有了反击的能力，在全球灭共的大势下，中共灭亡的日子已经屈指可数。
-
-祝新中国联邦一周岁生日快乐！
-
-（文章内容仅代表作者观点）
-
-* * *
-
-*责任编辑/校对：华盛顿DC农场 DC教练/光之子(沙加)
-发布：喜联盟编辑部 Isaiah4031*
 
 0

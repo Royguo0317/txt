@@ -1,15 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （中英）传染病专家史蒂芬-史密斯博士说，如果 “专家们不否定羟氯喹，10万条生命本可以得到拯救
-` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1302044/)
+## 美参议员代表团访台 捐疫苗挺台湾
+` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1302185/)
 
-- 中文简介：传染病专家史蒂芬-史密斯博士说，如果 “专家 “们不否定羟氯喹，10万条生命本可以得到拯救。
-- 英文标题：New study reveals success of hydroxychloroquine as COVID treatment Excerpt: Infectious disease specialist Dr. Stephen Smith says 100k lives could have been saved had the ‘experts’ not dismissed it (hydroxychloroquine)
-- 英文简介：New study reveals success of hydroxychloroquine as COVID treatment Excerpt: Infectious disease specialist Dr. Stephen Smith says 100k lives could have been saved had the ‘experts’ not dismissed it (hydroxychloroquine)
-- 原视频链接：[https://video.foxnews.com/v/6257007407001/#sp=show-clips](https://video.foxnews.com/v/6257007407001/#sp=show-clips)
+#### 撰稿：yyshere
+校对：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06042811/%E5%8F%82%E8%AE%AE%E9%99%A2.jpg)图片来源：网络截图
+当地时间6月6号，台湾总统蔡英文在空军松山基地指挥部会晤了到访的美国联邦参议员访团，她感谢拜登政府将台湾列入第一批美国对外疫苗共享名单，也感谢3位参议员的居间协调努力，“疫苗对台湾是及时雨，各位的帮忙，我们会铭记在心。”
 
+这次到访台湾的三位美国国会参议院分别是，达克沃丝（Tammy Duckworth）、苏利文（Dan Sullivan）和昆斯（Chris Coons）。他们的10人代表团在6号上午搭乘专机抵台，与外交部长吴钊燮、美国在台协会AIT处长郦英杰在松山空军指挥部召开记者会。
 
+会晤中蔡英文特别感谢访团在结束对韩国的密集访问行程后专程来台，以实际行动传达美国国会跨党派的支持信息。蔡英文也提到，来自美国和日本的支持，让台湾有机会获得更多疫苗，成为台湾对抗疫情的一大助力，并期盼台美伙伴关系能持续提升，在后疫情时代，为世界做出更多的贡献。
 
+据蔡英文介绍，“达克沃丝长年在美国国会为台湾发声，尤其近期对台美经贸关系、台湾安全议题的关切，对台湾而言，是有力的支持；达克沃丝身为女性及退伍军人，更着力于退伍军人事务，以及女性和孕母的健康，而达克沃丝的人生奋斗故事，鼓舞了很多人，提供了一个典范。” 而“苏利文和台湾渊源很深，1996年台海飞弹危机时，苏利文是参与美军巡弋任务的陆战队成员；在2019年，也担任“湾保证法”参议院版的共同提案人。在她还没有当总统前，就和苏利文在华盛顿见过面，过去5年以来，苏利文也曾两度访台，提供许多真挚、务实的建议。“另一位到访参议院昆斯也与台湾关系交情很深，“昆斯前年第一次来台湾时，正是台湾关系法立法满40周年，当时他们也交换过许多宝贵的意见。去年，台美共同发起的全球合作暨训练架构GCTF能够成功获得美国国会拨款支持，昆斯也是重要推手。”
+
+国际关系专家认为，这次的美国参议员访台，可以被视作是通过与台湾高层互动并听取简报等方式，取得对台海局势的第一手观察。同时台湾学者也指出，这个访问团进行的是印太地区考察，将台湾纳入其中，显示出华盛顿对台湾的重视已经不亚于区域内的其他盟友。
+
+三名议员在会晤中还表示，美国将向台湾捐赠75万支Covid-19（CCP病毒）疫苗。
+
+有分析认为，这一捐赠行动和此前日本政府在6月4号向台湾捐赠124万支疫苗，均被认为是国际社会中重要大国力挺台湾，同时对中共国以病毒和疫苗为武器妄图让台湾跪求服输企图的掌掴。
+
+消息来源：台湾总统府新闻 网络公开信息
+
+（本文系作者个人观点）
 
 0

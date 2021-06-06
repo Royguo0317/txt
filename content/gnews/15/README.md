@@ -1,79 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）: 20210604闫博士在新中国联邦一周年庆典的演讲集锦
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1301912/)
+## （中英）传染病专家史蒂芬-史密斯博士说，如果 “专家们不否定羟氯喹，10万条生命本可以得到拯救
+` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1302044/)
 
-《路德社》出品
-
-以下视频是详细内容：
-
-主要内容：
-
-1.我们知道会有多困难会遭受怎样的生死威胁
-
-2.我们将用实际行动证明CCP宣传的中国人是错误的，我们将推翻CCP以及马列共产思想
-
-3.我们不是一个光说不练的民族，用实际行动向世界讲述疫情的真相
-
-4.病毒由中共军方科学家制造、并配合海外包括蝠奇、Collins、WHO的虚假信息宣传战
-
-5.CCP花了大把时间和金钱去找病原体，并制造了这个非传统生物武器
-
-6.CCP故意投放给无辜的武汉百姓
-
-7.路德先生冒着极大的风险在去年119揭露，迫使CCP改变计划
-
-8.墨博士披露羟氯喹有效
-
-9.CCP高官确认有效却不告诉西方
-
-10.蝠奇也可以隐瞒羟氯喹有效
-
-11.哈尔滨勇敢的护士告诉蝠奇真相后，蝠奇没有公开、但护士消失了
-
-12.顶级科学家、科学杂志跟CCP沆瀣一气
-
-13.凡是报导的媒体、凡是要爆料的人，都受到了CCP的各种威胁、打压
-
-14.但因为得到很多人的帮助，现在进展到了很好的状态
-
-15.要想知道凶手的动机就得去问凶手，而不是问目击者
-
-16.为了掩盖PLA是病毒的生父，CCP让石正丽做了个RaTG-13来伪装成生父
-
-17.去年119就说了病毒骨架是PLA独家掌握的舟山蝙蝠病毒
-
-18.CCP还给病毒制造了一个虚假的族系谱
-
-19.没有中国共产党，就没有新病毒
-
-20.病毒研究的产物不会只有一种
-
-21.高福从2010年起在墙内各地找病毒
-
-22.CCP还在研究冠状病毒以外的病毒
-
-23.我们处于超限生物武器战争之中
-
-24.Take Down the CCP！
-
-25.闫博士：回战斗到最后一秒，要么是闫博士生命的最后一秒要么是CCP断气的那一秒
-
-26.班农先生：闫博士是全人类的英雄
-
-27.一年前腼腆的闫博士在呼吸一年的自由空气后变成舞台上这样
-
-28.呼吁给闫博士公民身分成为美国参议员
+- 中文简介：传染病专家史蒂芬-史密斯博士说，如果 “专家 “们不否定羟氯喹，10万条生命本可以得到拯救。
+- 英文标题：New study reveals success of hydroxychloroquine as COVID treatment Excerpt: Infectious disease specialist Dr. Stephen Smith says 100k lives could have been saved had the ‘experts’ not dismissed it (hydroxychloroquine)
+- 英文简介：New study reveals success of hydroxychloroquine as COVID treatment Excerpt: Infectious disease specialist Dr. Stephen Smith says 100k lives could have been saved had the ‘experts’ not dismissed it (hydroxychloroquine)
+- 原视频链接：[https://video.foxnews.com/v/6257007407001/#sp=show-clips](https://video.foxnews.com/v/6257007407001/#sp=show-clips)
 
 
 
-翻译：路德社翻译组
 
-制作：路德社视频组
-
-审核校对：玫瑰新闻组
-
-上传排版：玫瑰新闻组
-
-+1
+0

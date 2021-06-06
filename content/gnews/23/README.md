@@ -1,53 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】每日邮报:中共军方在大流行前几个月用人源小鼠测试病毒
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1301746/)
+## 中共收集脸部识别及声纹数据却说不出收集原因
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1301963/)
 
-作者：纽约香草山媒体部 7bends
+台湾宝岛农场 文旦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06022355/%E6%93%B7%E5%8F%9666-1-3.jpg)
+TikTok周三（6月2日）更新了其在美国的隐私政策，称「可能从用户的内容中收集生物识别标识和生物识别信息」，包括「脸部特征和声纹」，引发各界关注。然而TikTok在回应媒体时，无法解释是为了发展什么产品需要收集用户的生物识别数据。
 
+现今社会在科技的进步上，新的科技产品也越来越多，功能也越来越多，视讯、直播等等的各种工具也相继出台，在这个便利的功能上，个人的隐私安全，也都是大家使用的重点。
 
+个人的隐私及信息安全的保障及信任，在于该公司的信誉、该国家的信誉及法规上的保障，该公司是否由他们主导，还是会被他们的政府介入，他们是否有无保障。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+中共的政党利益大于一切，党凌驾于法律之上，军队可以介入民间机构，要求获得所有讯息。在这种国家的民间机构，有安全与保障吗?有法律能保障你的隐私吗?
 
+先不讨论TikTok公司是否为中共基于政治目的所运作的民间公司，在搜集用户资料方面TikTok公司也无法回应为何要收集这些数据。除此之外，TikTok公司在面对中共索取用户资料时，TikTok公司有办法做到保护用户资料吗？
 
+中共在全球盗取收集各国人民、政要、商界等各种人的个资，又要做什么呢?
 
-6月4日，每日邮报援引《名利场》报导，中共军方在2019年夏天，即大流行前几个月设计了具有人性化肺的小鼠并在它们身上测试病毒。武汉病毒研究所冠状病毒研究项目首席研究员——“蝙蝠女”石正丽——似乎在过去三年中至少在人源化小鼠身上测试了两种新冠病毒。
+以及中共的黑客行为在全世界无所不知，使用这些资料来作恶，更是他最可恨、最不能原谅的。
 
-![]()![](https://i.dailymail.co.uk/1s/2021/06/04/04/43814991-9650709-image-a-18_1622778270594.jpg)图片来源：每日邮报
+中共病毒(新冠肺炎)的真相呼之欲出，出至于中共军方实验室的舟山蝙蝠，在制造过程中是否会用到这些资料加以辅助呢?
 
-美国国务院在一月发布的一份情况说明书中抨击了中国共产党系统性地阻止了对COVID-19大流行起源的透明和彻底的调查。武汉病毒研究所与中（共）国军方在出版物和秘密项目上进行合作，同时以民间机构的身份出现。《名利场》指出，病毒来自实验室的理论最早由中国社交媒体用户于2020年1月提出（笔者认为应该指的是路德社119节目）。
+传播真相，缺你不可，你的一小步，将是灭共的一大步。
 
-虽然福奇博士驳斥了在大流行开始时关于COVID-19可能是人工设计病毒的理论，并淡化了NIH向武汉病毒研究所提供资金的事实（这些资金可能为功能获得研究提供了帮助），但是《Buzzfeed News》获得的福奇博士在2020年1月至6月期间的3200封电子邮件中显示，病毒专家曾警告福奇COVID-19可能来自实验室，而他却公然淡化了这些邮件。《华盛顿邮报》发表的另一封福奇的电子邮件也透露了他在三月和四月大流行初期与中（共）国顶级传染病专家高福博士的亲密关系。
+资料来源:
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05234203/9-1.jpg)图源网络
+[TikTok更新美国隐私政策收集面部及声纹数据-大纪元](https://www.epochtimes.com/b5/21/6/4/n13000076.htm)
 
-所有这些证据都表明，由中共军方主导的COVID-19就是实验室产物，并被设计用于针对人类。福奇博士主导的NIH亦确实向武汉病毒研究所提供了研究资金，且福奇博士本人似乎从一开始就是知情者，他还帮助中共隐瞒真相、误导大众。
+台湾宝岛农场YOUTOBE:
 
-参考阅读：
+[2021.06.04迈克·林德尔：我们可以证明是CCP对美国发动了史无前例的网络攻击。](https://www.youtube.com/watch?v=fc18aCKC8kI&amp;t=14s)
 
-[Chinese military ‘engineered mice with humanized lungs’ in 2019 to test viruses on them – just months before the pandemic erupted](https://www.dailymail.co.uk/news/article-9650709/Chinese-army-researchers-engineered-mice-humanized-lungs-2019-test-viruses-report-says.html)
+希望大家帮忙订阅分享!!!感谢大家!!!
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-编辑/校对/发稿：Irene木木
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-**更多资讯，更多关注**
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+文章审核：zhong
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+文章发布：Little Liu
 
 0
