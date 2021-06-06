@@ -1,32 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻简评】全凭一张嘴，中共丛容应对气候变化
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1302313/)
+## 从中国出逃的高级官员已和DIA 合作3个月揭露病毒真相
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1302445/)
 
-作者：喜马拉雅东京樱花团 煙火1095
+作者：香草山写作组     B. Star
 
-6月5日，新华社发表了一篇名为《应对气候变化，中国在行动》的文章。该文是在世界环境日刊发的，文中提到，中国是世界三大经济体中，第一个做出碳达峰和碳中和承诺的国家。展示出了中共国对其所倡导的人类命运共同体的负责人的姿态。
+郭文贵先生多次爆料中曾提到了一位神秘的爆料者，最近逐渐被媒体关注。他是有史以来从中国出逃至美国的最高级别官员，目前处在国防情报局DIA的Clandestine Service保护之下，与FBI，CIA，国务院等完全隔绝，因为DIA担心这些联邦机构中有中共间谍。该人士提供的信息真实性已被验证。他带出来的实锤的情报直接导致美国对福奇的不信任。
 
-文章从两个角度出发，一个是全世界环境被破坏的局势，另一个是中共国内近年来对环境保护减少碳排放量做出的努力，最后拿出2060年中共国的碳中和目标作为结尾。不细看感觉不到其中隐藏的本质性问题。
+以下是由Adam Houseley 于2021 年6月3日提供给 REDSTATE 的重磅新闻：
 
-首先，中共国不单单是世界上最大的碳排放量国，还因没有承担最基本的环境保护责任，而导致区域内环境极度恶化，植被退化，水污染，沙尘暴等等现象成为了常态。先不说世界另两大经济体的环境如何，任何一个较文明的国家都不会频繁出现这样低等的问题。试想一个家门口连年沙尘暴问题都不能够科学解决的人，大声喊着叫大家去解决南极冰川融化问题，难道不是赤裸裸的转移视线吗？所以如果真的是要好好的讨论一下环境问题，那么不要只谈全世界的环境问题，低下头实实在在的看看中共国内的环境问题就很足够了。
+“… 相信这位官员是最高级别出逃者之一, 已经和DIA 合作三个月了.这位官员对中共特殊武器项目有直接的了解, 包括生化武器项目”
 
-![](https://lh5.googleusercontent.com/7Gof9ezpTSsn2F9cRstHi7VhFOylssdvUuQR6V4gqNyxQ9UThthaAJyh1eSUY3VLi93LwTlbnPyjLAa1QfLVt-8WbeSdTITJJOXIdOWL3Z1-WeWcvs0uGgSCiugR-MDXtSw5J7_P)各国化石燃料二氧化碳排放量变迁
+“…美国情报局相信,中共想用来源于蝙蝠掩盖实验室制造的来源. 目前不清楚是否是意外事故,但是中共确实故意让其传播到全世界. 他们禁止了武汉的国内的航班确从来没有禁止过武汉的国际航班.”
 
-
-其次，文章就提到了中共国最喜欢的丰功伟绩搞治理的环境了，建立起一片片的太阳板，一座座的风电机，便是所谓的应对气候变化的具体行动。但是稍微看一下「各国化石燃料二氧化碳排放量变迁」就会知道这些高大上的工程起到的效果有限，与世界另两大经济体和欧盟的国家在碳排放量这边相比，只能说工作还是有很大的差距的。这种情况下只谈，空谈自己对环境保护的努力，未免有些让人信心不足。借鉴他国的科学治理方法，合理改善自然环境才是务实之策。
-
-显然，中共写手避开正面问题不谈，专门从侧面误导转移视线，这就是中共写手们颠倒黑白，自我意淫的结果。最后，中共国又一次面对全世界人民拿出了“2060年碳中和目标达成，将使全球温度比预期降低0.2-0.3℃”这一庄严但承诺。不知道明年这份承诺会不会成为一张不具有法律效应的“历史文件”。
-
-参考
-[新华社 – 应对气候变化，中国在行动](https://xhpfmapi.zhongguowangshi.com/vh512/share/10038147?channel=weixin)
+推特链接
 
 
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*校对：喜马拉雅东京樱花团 / 捆绑CCP一千年*
-*责任编辑：喜马拉雅东京樱花团 / 捆绑CCP一千年*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04060740/IMG_2779.jpg)
-+1
+> Again…what I reported tonight. US intelligence has a Chinese defector with Wuhan info. AND China is trying to produce variants that suggest it came from bats to cover up that coronavirus originally came from a lab
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400679023668187137?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Being told the increased pressure on China in recent days is due to a defector with intimate knowledge. In fact, Wray didn’t know right away because they wanted to make sure they got all they needed before telling him.
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670397473775617?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Also…US intelligence believes China is trying to produce variants that suggest it came from bats to cover up that it originally came from a lab. The belief is still that it escaped accidentally, but was allowed to spread.
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670631562076161?ref_src=twsrc%5Etfw)
+
+
+
+RedState News 链接
+
+[https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238)
+
+图片
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06055958/0665.jpg)
+审阅/上传： 浪迹天涯
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+0

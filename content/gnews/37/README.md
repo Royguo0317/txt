@@ -1,33 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）: 20210604蓬佩奥国务卿接受Hannity采访
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1301633/)
+## 特纳议员：中国政府必须为新冠病毒负责
+` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1302007/)
 
-《路德社》出品
-
-以下视频是详细内容：
-
-主要内容：
-
-1.确认蝠奇还有其他人看过蓬佩奥国务卿看到的情报
-
-2.无法理解看到了相同情报，蝠奇却做出不同声明
-
-3. 中国共产党在激励下不会出来澄清，1989年就是在激励下屠杀了自己的百姓
-
-4.无法理解蝠奇吹捧CCP包庇CCP是几个意思
-
-5.无法理解它们当时为什么阻挠国务院调查
+- 中文简介：俄亥俄州众议员迈克-特纳（Mike Turner）认为，在涉及COVID-19的来源方面，’一切都指向武汉实验室’，并补充说’我们需要调查清楚’。
+- 英文标题：The Chinese government needs to be held accountable’ for COVID-19: Rep. Turner
+- 英文简介：Rep. Mike Turner, R-Ohio, argues ‘everything points to the Wuhan lab’ as it pertains to the origin of COVID-19, adding that ‘we need to get to the bottom of it.’
+- 原视频链接：[https://video.foxnews.com/v/6256671420001](https://video.foxnews.com/v/6256671420001)
 
 
 
-翻译：路德社翻译组
-
-制作：路德社视频组
-
-审核校对：玫瑰新闻组
-
-上传排版：玫瑰新闻组
 
 0
