@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 匈牙利民众抗议在布达佩斯设立复旦分校
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1303456/)
+## 美国宇航局的火星直升机准备在周日进行第 7 次飞行
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1303478/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+#### 翻译： 文复
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06173309/v2_9dbc783b568b4ddf8923a3579ecb1edc_img_000.png)图片截自网络
+根据 NASA 的一份新闻稿，如果一切按计划进行，NASA 的火星直升机 Ingenuity 将不迟于今天升空。
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06170123/B-9.jpg)politiko.al
-彭博社6月6日报道，数千人抗议中共一所大学计划在布达佩斯开设分校，称该项目反映了匈牙利总理维克托·欧班对民主价值观的漠视。
+Ingenuity 是一架重量不超过 4 磅的小型机器人直升机，正在为今天的第七次飞行做准备。任务是将 Ingenuity 从目前位于 Jezero Crater 底部的位置向南飞行 350 英尺。
 
-布达佩斯市长盖尔盖伊·卡拉松尼(Gergely Karácsony)领导了反对政府支持的18亿美元计划的抗议活动，该活动获得政府反对派的支持。周六的集会是当局放松对中共病毒疫情的限制以来居民首次有机会上街抗议。
+美国宇航局写道：“这将标志着直升机将第二次降落在上一次飞行中未从空中进行调查的机场。” “相反，Ingenuity 团队依靠 NASA 火星勘测轨道飞行器上的 HiRISE 相机收集的图像，这表明这个新的行动基地相对平坦，表面障碍物很少。”
 
-卡拉松尼在一次集会演讲中表示，复旦大学项目是欧班执政的青民盟的“道德自杀”。卡拉松尼是反对党选举联盟的领跑者。“我们正开始为99%的人口夺回权力。”
+5 月 22 日，Ingenuity 执行了第六次任务，但并不顺利。这架太阳能直升机出现了中断内部系统的故障，没有提到导致故障的原因。而飞船安全着陆。
 
-卡拉松尼市长6月2日宣布，他将重新命名位于复旦大学拟建校园附近的街道，以纪念中共国政府侵犯人权行为。其中一条街道将以西藏流亡精神领袖达赖喇嘛(Dalai Lama)的名字命名。另一条将被命名为“维吾尔烈士之路”(Uyghur Martyrs’ Road)，维吾尔族是中共种族灭绝和反人类罪行的受害者。第三条将被命名为“自由香港路”，以纪念中共对香港民主自由运动的血腥镇压。第四个街道将以一名入狱的中国天主教主教的名字命名，是中共对宗教的残酷打压控制的控诉。
+Ingenuity 已经出色地执行了五次飞行，并将令人难以置信的图像从火星传回地球。
 
-欧班的内阁最近放弃了将该校园建设项目称为已成定局的说法，现在表示这只是一个计划。匈牙利内阁部长、欧班的高级助手盖尔盖伊·古里亚斯(Gergely Gulyas)曾表示，复旦大学是世界顶尖大学之一，开设复旦大学符合匈牙利的利益。
+美国宇航局还有“毅力漫游者”执行寻找生命的陆基任务。
 
-这片位于布达佩斯南部工业区的区域，在多年的房租上涨之后，最初被指定为学生的经济适用房。政府放弃了住房计划，并考虑接受来自中共国的贷款以建设复旦校园。该项目惹恼了当地居民和反对派官员，他们声称，该项目可能会让中共国对欧盟进行更密切的监控。
+在过去的几个月里，这颗红色星球已成为美国和中国的热点，中国在这个星球上登陆了自己的火星车。
 
-欧盟已经与匈牙利就与中共国的关系发生争执。欧班曾多次否决批评中共的联合声明，其中包括一份对香港亲民主活动人士待遇表示担忧的声明。卡拉松尼表示，他将使用一切手段来应对匈牙利政府偏离西方民主价值观、与中共国等国家建立更紧密关系的趋势。
+两国对火星的突然兴趣是因为据称这个星球拥有丰富的稀有金属，将为未来的经济提供动力。
 
-参考链接：
+[文章来源](https://www.zerohedge.com/geopolitical/nasas-mars-helicopter-prepares-7th-flight-sunday?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
-[https://www.bloomberg.com/news/articles/2021-06-05/thousands-protest-in-budapest-against-chinese-university-campus](https://www.bloomberg.com/news/articles/2021-06-05/thousands-protest-in-budapest-against-chinese-university-campus)
+(文章仅代表作者个人观点,与GNEWS平台无关)
+
+校对发布：紫橄榄
 
 0

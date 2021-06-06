@@ -1,31 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国宇航局的火星直升机准备在周日进行第 7 次飞行
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1303478/)
+## 【大象快讯】认为Covid-19是人工改造却发表自然起源论的安德森删除了推特账号——这中间有什么故事？
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1303531/)
 
-#### 翻译： 文复
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06173309/v2_9dbc783b568b4ddf8923a3579ecb1edc_img_000.png)图片截自网络
-根据 NASA 的一份新闻稿，如果一切按计划进行，NASA 的火星直升机 Ingenuity 将不迟于今天升空。
+一位加利福尼亚病毒学家Andersen，被邮件曝光告诉安东尼·福奇 COVID-19 看起来“可能经过改造”并且“与进化论的预期不一致”，但是后来改变方向并在 8 周后发表了一篇“自然起源”的论文（在收到数百万美元的NIH grant)已删除 5,000 多条推文。现在2021年6月6日晚，他的推特账户已经注销。
 
-Ingenuity 是一架重量不超过 4 磅的小型机器人直升机，正在为今天的第七次飞行做准备。任务是将 Ingenuity 从目前位于 Jezero Crater 底部的位置向南飞行 350 英尺。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06185957/Picture1-12.png)
 
-美国宇航局写道：“这将标志着直升机将第二次降落在上一次飞行中未从空中进行调查的机场。” “相反，Ingenuity 团队依靠 NASA 火星勘测轨道飞行器上的 HiRISE 相机收集的图像，这表明这个新的行动基地相对平坦，表面障碍物很少。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190123/2-8.png)
 
-5 月 22 日，Ingenuity 执行了第六次任务，但并不顺利。这架太阳能直升机出现了中断内部系统的故障，没有提到导致故障的原因。而飞船安全着陆。
+在加利福尼亚州拉霍亚经营安徒生实验室的克里斯蒂安 G. 安德森在 2 月 1 日给福奇的电子邮件中写道：“病毒的异常特征构成了基因组的一小部分，不到 0.1%，因此必须仔细观察所有序列，看看某些特征（可能）看起来是经过改造的，”他补充说，他和他的团队发现“基因组与进化理论的预期不一致”。下面的图片是邮件原文：
 
-Ingenuity 已经出色地执行了五次飞行，并将令人难以置信的图像从火星传回地球。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190240/3-6.png)
 
-美国宇航局还有“毅力漫游者”执行寻找生命的陆基任务。
+当时，安德森正在回应福奇发给他的一篇探索病毒起源的文章。第二天，福奇给他的副手休·奥金克洛斯发了一封紧急电子邮件，主题是“重要的”，写着“休，我们必须在上午通话，保持手机开机。……阅读这篇论文以及阅读这篇文章，文章在我将转发的电子邮件里。您今天将有必须完成的任务。”所附文件的标题是“Baric, Shi, et al – Nature Medicine – SARS gain of function.pdf”。
 
-在过去的几个月里，这颗红色星球已成为美国和中国的热点，中国在这个星球上登陆了自己的火星车。
+因此，在福奇一位值得信赖的科学顾问建议 COVID-19 可能是人造的（而福奇及其同事公开驳斥这种可能性是阴谋论）之后，他立即拍摄了一篇关于获得功能研究的研究论文——福奇正在资助该论文。而现在安德森已经删除了他一半以上的推文。
 
-两国对火星的突然兴趣是因为据称这个星球拥有丰富的稀有金属，将为未来的经济提供动力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190412/4-4.png)
 
-[文章来源](https://www.zerohedge.com/geopolitical/nasas-mars-helicopter-prepares-7th-flight-sunday?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190556/5-3.png)
 
-(文章仅代表作者个人观点,与GNEWS平台无关)
+安德森声称他的旧推文是“自动删除”的，这意味着一个滚动的、自动化的过程。而不是在 2021 年 3 月 7 日之前突然消失的5,000 多条推文。被删除的推文发布之际，正值互联网侦探开始揭开安德森与福奇和 NIH 的关系的时候。
 
-校对发布：紫橄榄
+零对冲在推特上直接问候了亲爱的克里斯蒂安安徒生，“你为什么删除你的推特账号？”。
 
-0
+“是因为关于为什么新冠病毒看起来“与进化论的预期不一致”或为什么“某些功能看起来是经过设计的”的所有问题”。
+
+参考链接：
+
+[https://www.zerohedge.com/political/virologist-who-told-fauci-sars-cov-2-potentially-engineered-just-deleted-5000-tweets](https://www.zerohedge.com/political/virologist-who-told-fauci-sars-cov-2-potentially-engineered-just-deleted-5000-tweets)
+
+图片来源：[https://www.zerohedge.com/](https://www.zerohedge.com/)
+
+整理撰稿：蓝精灵
+
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
+
++1

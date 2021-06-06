@@ -1,29 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒起源于实验室
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1303448/)
+## 专家警告： 意大利人有理由害怕打疫苗
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1303467/)
 
-信息来源：德国世界报网络版 
-记者：比吉特·赫登，（Birgit Herden）
-         莱昂哈德·兰德斯（ Leonhard Landes）
-发布时间：2021年6月06日
-翻译 /整理/ 简评： Shuizhuyu
+新闻来源： il paragone.it
+发布日期： 2021年5月7日 
+翻译整理/简评： 小白鸽
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25094615/458536-1.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06041841/vaccine-scaled.jpg)
 
 
-图片来源： 网络
+在欧盟坚持只有强制接种疫苗才是摆脱中共病毒的唯一出路时，某些专家提出不同的看法。
 
-Sars-CoV-2 是否来自武汉的实验室？ 安全专家和世卫组织顾问杰米梅茨尔认为这一理论是合理的。 在采访中，中国指责中国进行了危险的掩盖——但他反驳了一项指控。
+这些专家对疫苗的有效性，以及疫苗未来产生的不期望的影响的担心持续增加。在科学界有如此众多的相互矛盾的看法，使一些专家感到疑惑，帕多瓦大学教授保罗•贝拉维泰(Paolo Bellavite)便是其中一位。在接受意大利La7 电视节目的采访时，贝拉维泰( Bellavite )在直播中解释道：“ 意大利人接种疫苗时感到害怕从某种意义上来说时有道理的。我们并不能肯定在好处和危险之间存在着真正的联系。人们在谈论这一话题的时候都使用很肤浅的方式。我们应该知道我们还处在一个真正的试验阶段。第二阶段和第三阶段的试验将在2022年结束， 第四阶段的试验被称为post-marketing 正在进行，可惜进行的不好。
 
-一年多来，杰米·梅茨尔 (Jamie Metzl) 发表了论文：病毒大流行起源于实验室事故。 这位美国世卫组织顾问在其网站上为这一具有政治争议的理论收集证据。 这位未来技术和地缘政治专家认为，中国阻止透明调查是对全球安全的攻击。
+“ 给我们提供的疫苗不良反应的数据并不可靠——贝拉维泰 补充道——因为都是所谓的被动监测。也就是说只有在不良反应的案例被负责报告不良反应的人拿到才算是不良案例。
 
-简评： 德国世界报是一个相对很严肃的一个媒体，现在已经开始陆续有几篇有关病毒来源的报道， 虽然声音还不够强大， 但是已经开始了。 这篇报道是一个访谈， 世界报采访了世卫组织顾问，结论即使武汉实验室。 因为访问很长， 我这里只是把结论给出来。 这个对我们爆料革命很重要， 对以毒灭共很重要。 对全世界也是非常重要的信息， 也许这样下去真的能够避免中共再次防毒， 让全世界认识中共的邪恶。
+举个例子：每十万个注射疫苗的有四十例严重反应不良的，事实上，从主动监测来看的数据是4%， 也就是每十万个人中有四千个人有不良反应。这是人们应该知道的。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+当贝拉维泰教授特别提醒老人和身患疾病的人要特别注意的时候，他的话引起了另一位节目支持人米尔塔•梅尔利诺(Myrta Merlino) 的强烈反应，她也是节目邀请的嘉宾。她马上试图阻止贝拉维泰的发言，她说“服避孕药的危险比疫苗更危险。”为什么你要这样警告大家？我们需要尽快地给所有人都打上疫苗。”
 
-🔗[Woher-kommt-Corona-Experte-wirft-China-gefaehrliche-Vertuschung-vor](https://www.welt.de/wissenschaft/plus231611009/Woher-kommt-Corona-Experte-wirft-China-gefaehrliche-Vertuschung-vor.html)
+如果你想对支持打疫苗的观点的人提出质疑的观点，这是意大利电视台所不允许的。
+
+简评： 从这篇报道我们可以看到这一现象：如今要在意大利电视台对打中共病毒疫苗提出不同看法都是要被禁声的。西方社会鼓吹的自由、民主被中共的生物超限战打得一败涂地。媒体误导也是生物超限战的重要组成部分。如果你讲真话，他们会说这是阴谋论。人类所付出的代价是惨重的。老百姓在不明真相的情况下，都充当了小白鼠。
+
+本文只代表作者观点， 与GNEWS 平台无关
+发表: Shuizhuyu
+
+🔗[lallarme-dellesperto-gli-italiani-che-hanno-paura-del-vaccino-hanno-ragione](https://www.ilparagone.it/attualita/lallarme-dellesperto-gli-italiani-che-hanno-paura-del-vaccino-hanno-ragione/)
 
 0

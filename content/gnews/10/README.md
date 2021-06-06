@@ -1,35 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七国集团计划宣布数字货币国际新规
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1303429/)
+## 病毒起源于实验室
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1303448/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+信息来源：德国世界报网络版 
+记者：比吉特·赫登，（Birgit Herden）
+         莱昂哈德·兰德斯（ Leonhard Landes）
+发布时间：2021年6月06日
+翻译 /整理/ 简评： Shuizhuyu
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06165010/G.jpg)ledgerinsights.com
-日经新闻6月5日报道，七国集团(Group of Seven)主要经济体的金融主管们将讨论央行发行的数字货币的规则，希望将中共国的数字人民币纳入国际监管框架。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25094615/458536-1.png)
 
-七国集团财长6月4日在伦敦召开了为期两天的会议，将解决国家发行的数字货币可能引发的问题，目标是最早在今年秋天宣布新规则。
 
-中共国积极推动发行数字人民币，引发了人们的担忧，担心此举可能会催生一个以参与“一带一路”基础设施倡议的国家为中心的新经济区。这样的框架可能会破坏当前以美元为基础的货币体系。
+图片来源： 网络
 
-作为大规模试点项目的一部分，中共国于去年10月发行了国家货币的数字版本。政府计划在明年年底正式让比特币进入流通。
+Sars-CoV-2 是否来自武汉的实验室？ 安全专家和世卫组织顾问杰米梅茨尔认为这一理论是合理的。 在采访中，中国指责中国进行了危险的掩盖——但他反驳了一项指控。
 
-如果这样一个数字人民币经济区成为一个强大的存在，西方的制裁，比如阻止以美元或其他关键货币进行的交易，将变得毫无作用。而这是对违反国际规则的国家的典型惩罚工具。
+一年多来，杰米·梅茨尔 (Jamie Metzl) 发表了论文：病毒大流行起源于实验室事故。 这位美国世卫组织顾问在其网站上为这一具有政治争议的理论收集证据。 这位未来技术和地缘政治专家认为，中国阻止透明调查是对全球安全的攻击。
 
-此外，中共国政府将获得数字元的交易数据。这不仅会侵犯数据隐私，还可能被用作压制言论和排挤政治对手的工具。
+简评： 德国世界报是一个相对很严肃的一个媒体，现在已经开始陆续有几篇有关病毒来源的报道， 虽然声音还不够强大， 但是已经开始了。 这篇报道是一个访谈， 世界报采访了世卫组织顾问，结论即使武汉实验室。 因为访问很长， 我这里只是把结论给出来。 这个对我们爆料革命很重要， 对以毒灭共很重要。 对全世界也是非常重要的信息， 也许这样下去真的能够避免中共再次防毒， 让全世界认识中共的邪恶。
 
-在去年10月的会议上，七国集团的财政部长和央行行长发表了一份联合声明，呼吁提高此类货币的透明度和法治。西方国家和日本的七家央行与国际清算银行(Bank for International Settlements)成立了一个联合研究小组，概述了央行数字货币的基本原则。会议提出“央行不应”通过发行数字货币来“损害货币或金融稳定”。七国集团将在伦敦会议期间进一步阐述这些原则。
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
 
-发达国家央行也在为自己的数字货币制定具体计划。日本央行(Bank of Japan)今年4月推出了一项使用数字货币进行交易的试点计划。欧洲央行(ECB)可能会在未来几个月决定是否推出自己的测试计划。上个月，美国联邦储备委员会(Federal Reserve，简称美联储)表示，将在今年夏天发布一份关于发行数字货币的研究报告。
-
-这是自2020年2月在沙特阿拉伯举行的20国集团(G20)财长会议以来，七国集团首次举行面对面的财长会议。
-
-数字货币已经成为新的经济主导模式，喜马拉雅币走在了时代的前沿。唯一与黄金挂钩的数字货币必然开创历史先河，喜马拉雅币未来可期。
-
-参考链接：
-
-[https://asia.nikkei.com/Spotlight/Cryptocurrencies/China-s-bid-for-digital-yuan-sphere-raises-red-flags-at-G-7](https://asia.nikkei.com/Spotlight/Cryptocurrencies/China-s-bid-for-digital-yuan-sphere-raises-red-flags-at-G-7)
+🔗[Woher-kommt-Corona-Experte-wirft-China-gefaehrliche-Vertuschung-vor](https://www.welt.de/wissenschaft/plus231611009/Woher-kommt-Corona-Experte-wirft-China-gefaehrliche-Vertuschung-vor.html)
 
 0

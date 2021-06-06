@@ -1,67 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《蓝枫法律》第十期：走进家族财富——追求卓越、不停进化
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1303288/)
+## 蝠奇还有更多和中共勾兑的邮件待曝光
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1303335/)
 
-文静
+**摘要：在2021年6月2日的盖特视频中，郭先生向中南坑和王岐山大秀肌肉，用实力告诉它们无论是收买美国大外宣布隆伯格（Bloomberg）、《华尔街日报》、《华盛顿邮报》，还是非法拍卖郭先生家族的方正证券资产，都无法阻挡郭先生和新中国联邦的灭共步伐。郭先生还爆出和中共勾兑的蝠奇的邮件远不止800封，有更多邮件能证明蝠奇和中共官员高福和WHO勾兑——这是献给新中国联邦一周年的大礼。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06151344/Miles_2021-06-02-getter.srt.txt)
+**蝠奇还有更多和中共勾兑的邮件待曝光**
 
-本周六（6月5日）《蓝枫法律》继续在G-TV直播，由专业嘉宾共渡彼岸先生主讲，由汀兰女士和马马虎虎女士主持。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06145127/%E8%93%9D%E6%9E%AB-10.jpg)图片来源： G-TV
-首先由汀兰女士开场白：今天的节目主要讲家族财富和财富传承。我们需要请专业人士帮助规划设计，确保财富能够最大化并且安全的传递给下一代，或者下下一代，这样使得后代不用在财务上担心，这是非常正常的情况，也是人性。
+**More Emails Between Fauci and CCP Officials to Be Released**
 
-我们如果跳出这一代的财富传承，站在更高的角度，就可以看到更广的家族财富的传承。因为现今社会的家族财富传承只靠某一个人的话，会碰到很多的挑战。俗话说，上阵父子兵，不仅在中国，在国外也是如此，都把财富传承看成不单单是一个人的事情，而是整个家族的事情。这就是所谓的人多力量大。
+兄弟姐妹们，看到我们6月3号一周年伟大日子的到来，共产党准备了啥？布隆伯格——王岐山的哥们儿黑咱的一篇报道。哑口不提海航的事情，哑口不提冠状病毒我们战友的爆料，哑口不提我们对香港运动的支持。
 
-谈到财富传承，无论在中国还是国外，都有富不过三代的情况。为什么呢？老一辈在创造财富的时候，有其特殊的经验、精神、毅力和才智。但是由于各种各样的原因，比如战争、政治运动、灾难等，若不设防的话，财富会缩减，父辈的优良传统如果没有很好地传给下一代，守住财富是非常困难的。打江山容易守江山难。
+It’s not easy, brothers and sisters, to witness the arrival of the great day of our first anniversary of the New Federal State of China (NFSC) on June 3. What has the CCP prepared for us? Bloomberg, Wang Qishan’s buddy, published a report that defamed us. The report didn’t mention HNA at all, was silent about the coronavirus news that was broken by our fellow fighter, and not a single word about our support for the Hong Kong movement.
 
-西方的大家族，比如摩根家族、洛克菲勒家族，他们在财富传承过程中，不是简简单单的财富给予，更是精神理念的传承，也就是说，物质和精神两方面的传承。我们也听七哥直播提到过摩根老先生；包括64一周年庆典现场的战友说，摩根老先生很低调，如果不是事先知道的话，都不知道这样看起来低调普通的人，是这么有名望、地位和财富的人。这个阶层的家族的人其实都是很谦卑、低调。
+然后就说我们跟北大的事儿。布隆伯格刚放出来[报道]不到仨小时，你看看宣布大连法院，然后所谓的中纪委6月19号拍卖方正证券拥有的事实上价值100亿美元的证券。现在（已经弄走一次了）第2次，要把价值90亿人民币[的资产]以10亿美元拍卖，就是惩罚咱们一周年纪念。
 
-比如法国的某个富豪家族，每年创造超过七百亿的财富，员工超过25万人，但是有多少人听过这个家族的名字呢？穆里耶兹家族。家族里每一代人的兄弟姐妹叔叔阿姨等等都是家族的一员。他们的财富牢牢地掌控在家族手里，包括直系和旁系。他们都是鼓励家族里的每一个人积极参与到家族事务管理中来，了解家族业务，鼓励年轻人学习更多知识，注重人力资源建设。希望家族成员守护和管理财富，让家族财富一代代延续。
+Then the report talked about our affairs with Founder Group. Less than three hours after Bloomberg published the report, the Dalian court, the Central Commission for Discipline Inspection, announced the auction of the securities owned by Founder Securities that were actually worth $10 billion on June 19. It has already been taken away once, and for the second time, the assets valued at 9 billion RMB will be auctioned for $1 billion. This is precisely to punish our first anniversary [of the NFSC].
 
-另外，这些富豪家族都对教育非常重视，看中培养家族的力量。他们也请专业人士，比如会计师、律师等，确保他们以更完整安全的方法来保护家族财富的传承。后面共渡彼岸战友会跟大家一起分享这方面他的经验。
+很多人说哎呀一周年纪念花多少钱多少钱。七哥不是跟你们抱怨，看看七哥家人付出的，看看七哥付出的，仅此一项就100亿美元。当年瑞士，当年日本的几家公司还有美国的，当时就[只值]100亿美元，这帮孙子从来不说为什么郭文贵加入后你们证券那么值钱了？但是就这，它也要抢走。兄弟姐妹，你们看看，这就是咱们一周年七哥要买的单。
 
-共渡彼岸先生论述到：之前跟大家讲了遗嘱相关的：为什么要把财富传给孩子；财富的传承比任何税务对财富的冲击都要大。典型的是，灰姑娘大妈妈在没有遗嘱的情况下，她的意愿并没有实现，她的女儿最后成为了灰姑娘。所有我们讲的这些，所得税、财富传承，都是围绕着“准备好接受G财富了吗？”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06145144/ghjgjvk.jpg)图片来源：G-TV
-那么对信托的了解和认识，都是带来的新的问题。财富传承是涉及到各个法律种类最多、影响最大的单一事情。财富传下去，如同把马传下去，下一代是骑着大马骏马往前走，还是没有马骑徒步往前走。同时也谈到了，孩子们管理财富的能力，如同一条船：如果小船载大货，货物过重就会把小船压沉，或者小船必须把货物卸下来；只有船足够大了，才能够满载并乘风破浪。这是我们前两期讲的，如何让我们的下一代不断学习，使自己的这条小船变大。
+Many people say, oh, how much does it cost to celebrate the first anniversary? Brother Miles is not complaining to you. Look at the price my family has paid and look at what I have paid. This former holding alone is worth $10 billion. At that time, there were several companies in Switzerland, Japan, and the United States. They were worth $10 billion at the time. These bastards never said why these securities were so valuable after Miles Guo joined. But even this, the CCP has to take away. Brothers and sisters, take a look. This is the price that Brother Miles will pay for our first anniversary.
 
-共渡先生进一步说道：“如果灰姑娘的妈妈有遗嘱，按照遗嘱的继承，基本上可以了却这样的心愿。但是还有一些具体的问题没有能够解决。我们可以看一下：图上右边的部分，灰姑娘的爸爸妈妈都在，他们的财富分配当时的情况是不清楚的，但是事实上是灰姑娘爸爸拥有了所有的财富，当时是否整个社会不允许女士拥有财富，我们不得而知。但在现今社会，如果妈妈去世了，财产全部由爸爸来继承，灰姑娘的故事可能就会不一样。爸爸如果再婚了，会把一部分的财产带到再婚的婚姻里，这部分财产也可能是她妈妈那里过来的，但并不是她妈妈的愿望让她爸爸把财产带到新的家庭里去。
+王岐山说：“要改变大外宣政策，要彻底消灭一周年。”这就是[对付]一周年的招 — 连续3到7篇的负面报道。都是大媒体：布隆伯格，什么《华尔街日报》，什么《华盛顿邮报》— —这就是他们想要的。这就是王岐山开了几天会，他要出九大招，就是干走你钱，然后威胁。
 
-但是灰姑娘的故事里是：她爸爸没过多久就去世了，所有财富进入了后妈那里，所以才有了灰姑娘的故事。我们把这个故事引申出来放在当今的社会中，我们如何来看待？其实无论灰姑娘的妈妈先走，还是爸爸先走，所面临的情况都是一样的：她妈妈先走，她的爸爸继承了所有财产后，可以再婚；反之亦然。那么在婚后的财产是否留给灰姑娘，或者她爸爸的部分留给灰姑娘，这个是不可确定的。有些事情可以改变，有些事情不可以改变：比如说他们的房子。假如说，灰姑娘的爸爸先走，灰姑娘的妈妈继承了这部分财产和这栋房子。如果灰姑娘的妈妈再婚，这栋房子就属于婚姻财产，会是灰姑娘妈妈和新丈夫的共同财产。这部分财产哪怕灰姑娘的亲生爸爸想把它留给灰姑娘，也是不可能的。如果灰姑娘的亲爸爸想要做这个事情，在一般的遗嘱里很难完成这部分。”
+Wang Qishan said he wanted to change China’s foreign propaganda strategy and completely eliminate the first anniversary. These are the tricks they use to tackle the first anniversary: publishing 3 to 7 negative reports consecutively in all the big media: Bloomberg, the Wall Street Journal, or the Washington Post. This is what they want to do.  This is what Wang Qishan is like. After a few days of meetings, he is going to make nine major moves, which are designed to take away your money and threaten you.
 
-还有一种情况，灰姑娘的爸爸和妈妈一起走了，灰姑娘没法继承这笔财产，因为她是未成年子女。未成年子女没法继承财产，在他/她成年之前，需要由受托人来管理这笔财产。这是我们在普通的遗嘱里会面临的问题。
+蝠奇的Email，大家想想当年DOJ的Email，Elliott Broidy的Email，还有Higginbotham的案子，还有王健的视频，王健的档案都在什么时候出来的？蝠奇的Email还多着呢！跟蝠奇有关系的共产党，什么高福，Email多着呢！
 
-共渡先生：刚才讲的信托再也不可以接受其他的资产，资产只能从这个委托人放进去，那么这个信托建立后，每年要付税。如果他自己付税，他就把税后的钱给受益人。如果是他不付税，他把所有当年的收益，利息，增值部分即收益部分全部分配出去。他本身收入为零税也为零。那么收益人来付税。这是税务上处理的区别。各有优缺点。
+Regarding Fauci’s emails, think about it everybody, the DOJ’s emails, Elliott Broidy’s emails, the Higginbotham case, and Wang Jian’s video. When did Wang Jian’s files come out? There are still very many emails from Fauci. There are too many emails between Fauci and the CCP gangsters such as Gao Fu (director of China CDC) to be released.
 
-如何分配钱，如果小孩的话，大部分会分配到小孩名下进行付税。如果有人拿社会福利的，信托把税付了再往下传，如孩子有残疾的福利，灰姑娘的家庭爸妈有爱心，他想在他们不在的时候想通过信托把财产传承下去，假如灰姑娘还未成年，父母就要找一个委托人和监护人。如果父母不选择，政府替她选择。
+“习一坑”，王岐山，钟南坑老杂毛们，看看我怎么给你们绣。你不是要拍卖方正证券吗？啥叫拍？你抢了不就完了呗！你看看我跟你….
 
-这个故事里，虽有仙女教母，但不是个真正的人，只能找一个真正的人作为监护人她父母必须找一个，财产转入信托里的话，父母找一个财产委托人。如何找这两个人，这是她父母一定要做的。信托里面财产保护、报税、财产管理，她父母过世后，资产由受托人进行打理。灰姑娘就由监护人照顾。在这里的把她看成现代家庭，遗嘱信托的一部分：家庭信托，主要对家庭成员的。看到他父母一旦过世，整个信托由受托人管理财产，给灰姑娘提供财务上生活上的需求。日常生活由监护人保护和培养照顾。这两个人——受托人和监护人取代了她的父母职责。一般家庭的信托基本上能满足父母传到孩子的心愿。
+“Nutty Xi” (Xi Jinping), Wang Qishan, those old bastards in Zhongnan Pit, see how I embroider you. Don’t you want to auction Founder Securities? Why call it an auction? Why don’t you just grab it directly?
 
-要是复杂的事情，或者做得更完美一点，可以选择其他信托，比如payal信托。如果她的爸爸先走了，财产由她妈妈来继承。她妈想把他爸那边传下的储蓄，现金，房子等等全部传给灰姑娘，包括房子也全部传给灰姑娘。她又想住在这里，她爸爸就可以建立一个payal信托，一旦她爸去世。payle信托就可以马上启动。她妈妈可以是唯一受益人，payal信托以后再具体讲。她妈妈可以住在房子里但没有拥有权，这里是事先解释她放弃这个房子权利，即房子全部属于她爸爸她才能这样做。假如合的财产就不能这样做。很多合的财产有好多好处，也有不利的。合的财产是不能放在信托里的，比如她父母有一个合的财产，比如合的房产、账户等。一旦任何一个人去世这合着的财产就不能进入信托。
+蝠奇的Email绝不止800件，还有更多。还有跟蝠奇勾兑的香港实验室、WHO — Wu Han Organization。还有世界上跟共产党勾兑掩盖[病毒真相]的，包括中国那些大佬。
 
-活着的一方就自动拥有这部分所有财富，当然去世的部分的税需要付的。这部分不需要通过遗嘱，不需要通过活着的一方就可以全部拿回去。也就是不能进入遗产信托。灰姑娘的父母都可以做类似的事情，可以保住财产往下传。另外一种可以申请，可以建立生前信托。可以避免遗产整个财务上遗嘱所带来的问题，信托和遗嘱里面有一个，生前有信托的话，这些财产都是隐私不会公开。如果进入遗产里面就是公共材料，谁都可以查到的。如何建立遗嘱和信托，受托人监护人，受益人之间如何安排，这是每个家庭具体情况具体看待，大部分的信托比较做的比较简单，一般都是一代或者两代的信托。
+There are definitely more than 800 emails from Fauci. The Hong Kong laboratory also had secret deals with Fauci and the WHO – the Wu Han Organization. There are also people in the world, who colluded with the CCP, covering the truth of the virus, including certain Chinese bigwigs.
 
-主持人马马虎虎：刚才说的是遗嘱信托，但是payal信托在结婚前就要考虑到哪些是共有财产，那些是不共有的财产才能做Payal信托呢？
+兄弟姐妹们，我们背后有多少力量在支持我们呐！背后多少力量啊，多少力量。大家明白了吗？6月3日一周年献礼！ 蝠奇—武汉真相！大家看明白了？还会更多，还会更多。它不是九招吗？咱跟他出900招都不拉倒，咱们走着看。
 
-共渡先生阐述到：我刚才想到了一点，就是从家族基金和海外信托、生前信托看到的一些问题，我在想我们能够接受是大家在上面实时的问题，给主播或者打出来，如果有战友提出來关于海外信托，但是海外信托这个讲法是非常抽象的，因为他牵涉到许多个人、公司方方面面的事。
+Brothers and sisters, do you know how many forces are supporting and behind us? How much power is behind us, do you understand? We will present a gift for the first anniversary on June 3: the truth about about Fauci and Wuhan! Do you understand? There will be more. Doesn’t the CCP have nine tricks? Let’s give them 900 strokes and not stop. Just wait and see.
 
-（一）海外信托和生前信托的部分的如果談的更加仔细我们所能够采取的一个方法，（二）我们在谈遗嘱的时候我们一定要记住，我们在写遗嘱我们写信托的時候，我们的信托、遗嘱他的受益人是誰？如果是我们的孩子，我们的财富传给他们，那么孩子还在吗？这是一个问题。今天谭咏诗（Theresa Tam）说了政府会为打疫苗出问题的人进行赔款，那她用大家的钱去做了这些事，再用政府税收的钱去进行赔偿，第一个她能赔偿得了吗？第二个她为什么能做这些事，到时我们的继承人还在吗？我们从感性上可以理解打了疫苗不好，但是从理性上我们能不能够理解疫苗的危害吗？
-
-在这几个星期这么多的医生全都出来，我们要去看闫博士的推，要看同闫博士还有那些超一流的医生所开的视频会，这些医生所做的具体研究，我们从理性上能够明白。为什么这疫苗这么毒，怎么会毒走我们的亲人的生命和孩子们的生命，所以这是大家都要注意，在任何遗产规划里，如果你规划的对象不在了，那规划还有什么用？那这个是我今天所能讲的。
-
-**简评**：
-
-本期节目由专业嘉宾对遗嘱、信托等财富传承的问题，进行了进一步的解读。
-
-财富管理和传承是关系到许多家庭切身利益的重要问题，但因为国内相关法律、法规的缺失和实际应用中的腐败，老百姓都没有真正意义上遗嘱继承的法律保护意识，更谈不上诸如信托等的法律保护机制了。
-
-这就造成了很多来自中共国的华人的后遗症，对遗嘱继承、信托等财富传承的法律意识淡薄、模糊不清，而今晚的节目，由专业人士的阐述和解读，让大家弥补了相关法律知识的缺乏，它对管理传承个人家庭财富，以及爆料革命G系列税务、法律的重要性，有着重要意义。同时也是为将来建立新中国联邦文明、公正司法体系而努力的一堂课。
-
-*节目链接:*
-
-[2021-06-05 《蓝枫法律》第十期 走进家族财富 – 追求卓越，不断进化](https://gtv.org/video/id=60bc0915cea8a73852633ad8)
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60b79cd3c04fd544b4676d0c](https://gtv.org/getter/60b79cd3c04fd544b4676d0c) (1:02-2:58, 8:17-9:41)
+鸣谢：[1] 感谢Antsee-GTV、GUO TING 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于[https://gnews.org/zh-hans/1291705/](https://gnews.org/zh-hans/1291705/)
+[2] 感谢YY、Liberte 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于[https://gnews.org/1298116/](https://gnews.org/1298116/)
 
 * * *
 
-*编辑、发稿 文锦*
+**字幕：【JennyL（纽约香草山农场）】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-0
++1
