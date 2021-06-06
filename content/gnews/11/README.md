@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】蓬佩奥福克斯采访谈中共病毒来源
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1302703/)
+## 【粤语配音】【新中国联邦一周年】新中国联邦人在做着和美国建国国父们同样的事情
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1302719/)
 
-05/29/2021 前美国国务卿蓬佩奥在福克斯接受采访，强调必须对中共病毒来源彻查。
+6/3/2021 《国家脉动》主编拉希姆在新中国联邦一周年庆典上发表讲话。他说新中国联邦人在做着和美国建国国父们同样的事情。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

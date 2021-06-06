@@ -1,62 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从中国出逃的高级官员已和DIA 合作3个月揭露病毒真相
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1302445/)
+## 跪着的人请站起来！
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1302491/)
 
-作者：香草山写作组     B. Star
+撰稿：sunyyang
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04045355/20210604_Task7.jpg)（图片来源网络）
+当灭绝人性的文化大革命杀害了千万生命，当八九六四的坦克碾压手无寸铁的学生，当无情的手术刀摘取真善忍的器官，当三鹿的奶粉毒害了无数的小天使，当劣质的疫苗谋杀了一代代的孩童，当一幕幕的惨剧在这中华大地上演，从未改变！你还在跪着吗？
 
-郭文贵先生多次爆料中曾提到了一位神秘的爆料者，最近逐渐被媒体关注。他是有史以来从中国出逃至美国的最高级别官员，目前处在国防情报局DIA的Clandestine Service保护之下，与FBI，CIA，国务院等完全隔绝，因为DIA担心这些联邦机构中有中共间谍。该人士提供的信息真实性已被验证。他带出来的实锤的情报直接导致美国对福奇的不信任。
+当无数仁人志士、科学泰斗，一腔热血地报效祖国的时候，得到的却是红卫兵非人般的摧残；当一个一个学生为了中国的民主、自由，聚集在天安门广场和平抗议的时候，迎来的却是无情的刺刀和子弹，血流成河；当一代代勤劳的中国老百姓每天辛勤劳作，却收入低微，一生都为生计、为子女教育、为看病就医、为养老而忧愁伤神，每一个人都在这恶性循环中挣扎，不得安生！从未改变！你还在跪着吗？
 
-以下是由Adam Houseley 于2021 年6月3日提供给 REDSTATE 的重磅新闻：
+当一个男人挺身而出，勇敢爆料的时候，即便遭到共产党倾一国之力地污蔑、打压甚至暗杀的时候，他依旧无所畏惧，誓要灭共！当一个女人孤身一人、远渡重洋，抛下家庭、放弃事业，在异国他乡，向世界揭露共产党投放冠状病毒的真相，只为拯救千万生命的时候，她从未动摇，要将真相公之于众！当一对夫妻，放弃亿万家业和荣誉，念出新中国联邦宣言，喊出灭共是正义的需要的时候，他们从未后悔！当一群人每天在直播平台上孜孜不倦地向观众讲述着世界的真相、共产党的邪恶的时候，他们只为唤醒普罗大众，拯救一个个迷茫无助的灵魂！他们，从未改变！你还在跪着吗？
 
-“… 相信这位官员是最高级别出逃者之一, 已经和DIA 合作三个月了.这位官员对中共特殊武器项目有直接的了解, 包括生化武器项目”
+当成千上万的中国人开始自称新中国联邦人，当成千上万的中国人开始在世界各地游行抗议，揭露共产党的邪恶和残暴，当成千上万的中国人开始呼唤民主和自由，当有这么一群人开始为中国大地上的平民百姓发声、奋斗的时候，当他们不计辛苦、不计得失，只是为了消灭中国共产党，建立自由、民主的新中国联邦的时候！你还在跪着吗？
 
-“…美国情报局相信,中共想用来源于蝙蝠掩盖实验室制造的来源. 目前不清楚是否是意外事故,但是中共确实故意让其传播到全世界. 他们禁止了武汉的国内的航班确从来没有禁止过武汉的国际航班.”
+跪着的人请勇敢地站起来吧！我们已经失去太多的生命，经历太多的悲剧，中华大地已经满目疮痍，无数的人饱受磨难不得善终！历史被篡改，文明遭遇断层，弥漫在这片故土的是虚伪、狡诈、残忍、暴力…痛苦的人在挣扎，善良的人在流泪！无数的罪与恶每天都在上演！跪着的人请站起来！找回您的勇气，让我们直面这万恶的源头—中国共产党！无数的战友与你同在！我们只为灭了这邪恶的党！跪着的人请站起来！
 
-推特链接
+（文章内容仅代表个人观点）
 
+*审稿、编辑：光耀华夏*
 
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-> Again…what I reported tonight. US intelligence has a Chinese defector with Wuhan info. AND China is trying to produce variants that suggest it came from bats to cover up that coronavirus originally came from a lab
-> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400679023668187137?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Being told the increased pressure on China in recent days is due to a defector with intimate knowledge. In fact, Wray didn’t know right away because they wanted to make sure they got all they needed before telling him.
-> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670397473775617?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Also…US intelligence believes China is trying to produce variants that suggest it came from bats to cover up that it originally came from a lab. The belief is still that it escaped accidentally, but was allowed to spread.
-> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670631562076161?ref_src=twsrc%5Etfw)
-
-
-
-RedState News 链接
-
-[https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238)
-
-图片
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06055958/0665.jpg)
-审阅/上传： 浪迹天涯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 
 
 0
