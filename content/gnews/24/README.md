@@ -1,107 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】锅言灶语（二季一）- 真视角之＂画＂外音–
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1301643/)
+## 塔克：当埃里克·斯沃威尔不与中共间谍发生性关系时，与大众观点相反
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1301670/)
 
-作者：纽约香草山健身部 澄道
+**字幕内容：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+Eric Swalwell is not having sex with Chinese spies
+埃里克·斯沃威尔没有与中共间谍发生性关系
 
+and contrary to popular opinion
+而且与大众观点相反
 
+there are moments when he’s not doing that
+有些时候他没有这样做
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05223826/%E9%8D%8B%E8%A8%80%E7%81%B6%E8%AA%9E%EF%BC%88%E4%BA%8C%E5%AD%A3-%E4%B8%80%EF%BC%89.jpg)
+or coming in last place in presidential primaries
+或是在总统初选中排在最后
 
-小馆首家
-缘未尽
-店还在
-歇业中…..
+Eric Swalwell is still a sitting member of Congress from California
+埃里克·斯沃威尔仍然是代表加州的国会议员
 
-小馆二家
-澳洲缘
-店又张
-开业中……
+amazing
+太不可思议了！
 
-锅子还是
-那个锅子吗
-灶子还是
-那个灶子吗
+he also sees himself as a hero
+还有，他把自己视为一名英雄
 
-文聊
-没什么不同
-道来
-是异曲同工
+who’s going to bring Justice for the January 6th Insurrection
+一名将为 1 月 6 日的暴动伸张正义的英雄
 
-一代天问（二）
-＂64＂是什么？
-周年纪
-七哥寄语
-您有何感想？
+he’s got a plan for that
+为了那，他有一个计划
 
-锅言
-灶语
-再吐再快
+he’s investigating his own colleagues
+他正在调查他自己的同事
 
-储备
-法治基金法制社会
-发现好人
-培养人才
-为新中国联邦长久量
-栋梁储备
-我们做到了
+we learned yesterday that Eric Swalwell
+我们昨天得知埃里克·斯沃威尔
 
-手段
-喜联盟香草山农场承办
-GTV直播
-团队合作
-为灭共铲毒榜样先
-核武手段
-做的已经没有更好
+has hired private investigators
+已经聘请了私人调查员
 
-理念
-＂共惨党＂不相信爆料革命
-控制感性
-运用理性
-为正道主义广传天下计
-真人性理念
-我们已经箭在弦上
+to find Congressman Mo Brooks of Alabama
+去寻找阿拉巴马州众议员莫布鲁克斯
 
-＂什么弦
-不弦上的…＂
-＂我看是带馅的要先上＂
-＂是蒙古馅饼吗？＂
+Swalwell claim Brooks is avoiding a lawsuit
+斯沃威尔声称布鲁克斯正在逃避诉讼
 
-＂马背英雄＂
-是说蒙古的！
+he filed to hold Brooks accountable for the insurrection
+他要求布鲁克斯对暴动负责
 
-听声音
-怎么大有
-＂翠花＂的味道…
+but there’s an easier way
+但有一个比较容易的方法
 
-翠花
-翠绿的
-什么味道？
+Swalwell could call his old girlfriend Fang Fang
+斯沃威尔可以打电话给他的旧女友— 方芳
 
-难不成
-她也来＂袋鼠国＂了吗….
+she’s good at finding people in power
+她善于找到当权者
 
-@爱动爱议码06053
-@澄道来了
+Eric Swalwell call Fang Fang
+埃里克·斯沃威尔，打电话给方芳
 
-发稿：雪梨
+the Chinese spy you had sex with
+那个与你有过关性关系的中共间谍
 
-![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg]()![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+She’ll get it done
+她会完成的
 
-**更多资讯，更多关注**
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+原视频链接: [https://twitter.com/dailycaller/status/1400616778221428743?s=24](https://twitter.com/dailycaller/status/1400616778221428743?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – 郭班之樱
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
