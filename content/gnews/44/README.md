@@ -1,28 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共升级“搅浑水”版本
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1302932/)
+## 2021年6月5日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1302995/)
 
-作者：日本东京方舟农场 雪国望乡
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-新华社6月5日消息，近日新华社主创团队在国外社交媒体平台，推出了一款宣传中共病毒疫苗的动画短视频《疫苗大战病毒》（Virus Fighter 2:Game On!)。视频制作设计是以中国式宝塔和长城为背景，旨在体现中共国“对全球抗疫的突出贡献”；其游戏情节将防护口罩、酒精、肥皂等作为对抗病毒的武器，但却将“疫苗作为‘终极武器’化身‘火箭’击中病毒”，意指唯有疫苗可以对抗病毒。
+6月5号，我R共产党了八辈子祖宗．我们的同胞竞被他们搞成这个样了……地摊经济！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06113202/61489f027b98b9f2938d18befcaf3a9b.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06113212/536fc618f945890617a52f205f18ab9f.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06113223/e4c9fbd68e5675c4023b92543d6414cd.jpg)
+[【2021年6月5日】文贵先生盖特原文](https://gtv.org/getter/60bbe7f3c04fd544b46a16de)
 
-据称，该视频在社交媒体上获得了一些好评。这是新华社主创推出的第二个有关中共病毒的视频，第一个是新华社于4月30日在推特发布的《病毒往事》（Once upon a virus）。《病毒往事》以美前总统川普在错误信息引导下应对疫情的公开言论为原型，设计了一场意在表现川普政府抗疫不力的对话场景。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06111703/Picture1-17.jpg)
-在这场由中共发动的超限生物战中，为了混淆视听，中共利用媒体平台不断用错误信息误导公众，从而在媒体界引发了继超限生物战后的媒体舆论战。在传统意义的媒体战中，中共撒谎露出的破绽早已在闫博士的三份报告和美情报界的爆料中败下阵来，但这并不意味着中共将束手就擒或缴械投降。新华社推出的这两个动画视频表明中共仍然在“搅浑水”，而这一次是在公众的潜意识层面进行“搅动”。
-
-《病毒往事》将美国人民受到的伤害归咎于前川普政府的抗疫不力，这不仅是对病毒真相的掩盖，同时也在利用动画视频对网民进行潜移默化的作用，将受到病毒伤害的人们要追责的民意引向美国政府。《疫苗大战病毒》更是将解决病毒危机的最终方案指向疫苗，这仍然是在掩盖病毒真相和削弱公众对病毒溯源和追责的意识。同时，当因注射疫苗引发了民众健康危机已有所暴露时，中共军方科学家陈薇又申请雾化吸入式中共病毒疫苗的紧急推广使用，《疫苗大战病毒》的推出在客观上为中共下一步的雾化疫苗战略起到了“种草”的作用。
-
-(文章仅代表作者观点，与GNEWS网站无关)
-
-新闻来源：
-[1]. [www.xinhuanet.com/world/2021-06/05/c\_1211187958.htm](http://www.xinhuanet.com/world/2021-06/05/c_1211187958.htm)
-[2]. [v-wb.youku.com/v\_show/id\_XNDY1OTkyNzY0NA==.html](https://v-wb.youku.com/v_show/id_XNDY1OTkyNzY0NA==.html)
-[3]. [www.xinhuanet.com/politics/2021-06/04/c\_1127531381.htm](http://www.xinhuanet.com/politics/2021-06/04/c_1127531381.htm)
-
-*责任编辑：韩国首尔喜韩农场 文迹～见证神迹*
-*校对：日本东京方舟农场 老蚂蚁666*
-*发布:Hong*
+**喜联盟Gnews编辑部**
 
 0
