@@ -1,35 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七国集团计划宣布数字货币国际新规
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1303429/)
+## 美国宇航局的火星直升机准备在周日进行第 7 次飞行
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1303478/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+#### 翻译： 文复
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06173309/v2_9dbc783b568b4ddf8923a3579ecb1edc_img_000.png)图片截自网络
+根据 NASA 的一份新闻稿，如果一切按计划进行，NASA 的火星直升机 Ingenuity 将不迟于今天升空。
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06165010/G.jpg)ledgerinsights.com
-日经新闻6月5日报道，七国集团(Group of Seven)主要经济体的金融主管们将讨论央行发行的数字货币的规则，希望将中共国的数字人民币纳入国际监管框架。
+Ingenuity 是一架重量不超过 4 磅的小型机器人直升机，正在为今天的第七次飞行做准备。任务是将 Ingenuity 从目前位于 Jezero Crater 底部的位置向南飞行 350 英尺。
 
-七国集团财长6月4日在伦敦召开了为期两天的会议，将解决国家发行的数字货币可能引发的问题，目标是最早在今年秋天宣布新规则。
+美国宇航局写道：“这将标志着直升机将第二次降落在上一次飞行中未从空中进行调查的机场。” “相反，Ingenuity 团队依靠 NASA 火星勘测轨道飞行器上的 HiRISE 相机收集的图像，这表明这个新的行动基地相对平坦，表面障碍物很少。”
 
-中共国积极推动发行数字人民币，引发了人们的担忧，担心此举可能会催生一个以参与“一带一路”基础设施倡议的国家为中心的新经济区。这样的框架可能会破坏当前以美元为基础的货币体系。
+5 月 22 日，Ingenuity 执行了第六次任务，但并不顺利。这架太阳能直升机出现了中断内部系统的故障，没有提到导致故障的原因。而飞船安全着陆。
 
-作为大规模试点项目的一部分，中共国于去年10月发行了国家货币的数字版本。政府计划在明年年底正式让比特币进入流通。
+Ingenuity 已经出色地执行了五次飞行，并将令人难以置信的图像从火星传回地球。
 
-如果这样一个数字人民币经济区成为一个强大的存在，西方的制裁，比如阻止以美元或其他关键货币进行的交易，将变得毫无作用。而这是对违反国际规则的国家的典型惩罚工具。
+美国宇航局还有“毅力漫游者”执行寻找生命的陆基任务。
 
-此外，中共国政府将获得数字元的交易数据。这不仅会侵犯数据隐私，还可能被用作压制言论和排挤政治对手的工具。
+在过去的几个月里，这颗红色星球已成为美国和中国的热点，中国在这个星球上登陆了自己的火星车。
 
-在去年10月的会议上，七国集团的财政部长和央行行长发表了一份联合声明，呼吁提高此类货币的透明度和法治。西方国家和日本的七家央行与国际清算银行(Bank for International Settlements)成立了一个联合研究小组，概述了央行数字货币的基本原则。会议提出“央行不应”通过发行数字货币来“损害货币或金融稳定”。七国集团将在伦敦会议期间进一步阐述这些原则。
+两国对火星的突然兴趣是因为据称这个星球拥有丰富的稀有金属，将为未来的经济提供动力。
 
-发达国家央行也在为自己的数字货币制定具体计划。日本央行(Bank of Japan)今年4月推出了一项使用数字货币进行交易的试点计划。欧洲央行(ECB)可能会在未来几个月决定是否推出自己的测试计划。上个月，美国联邦储备委员会(Federal Reserve，简称美联储)表示，将在今年夏天发布一份关于发行数字货币的研究报告。
+[文章来源](https://www.zerohedge.com/geopolitical/nasas-mars-helicopter-prepares-7th-flight-sunday?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
-这是自2020年2月在沙特阿拉伯举行的20国集团(G20)财长会议以来，七国集团首次举行面对面的财长会议。
+(文章仅代表作者个人观点,与GNEWS平台无关)
 
-数字货币已经成为新的经济主导模式，喜马拉雅币走在了时代的前沿。唯一与黄金挂钩的数字货币必然开创历史先河，喜马拉雅币未来可期。
-
-参考链接：
-
-[https://asia.nikkei.com/Spotlight/Cryptocurrencies/China-s-bid-for-digital-yuan-sphere-raises-red-flags-at-G-7](https://asia.nikkei.com/Spotlight/Cryptocurrencies/China-s-bid-for-digital-yuan-sphere-raises-red-flags-at-G-7)
+校对发布：紫橄榄
 
 0

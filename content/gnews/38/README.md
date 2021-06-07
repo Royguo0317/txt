@@ -1,113 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】站起来！马背上的民族
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1303198/)
+## 川普提出中共需支付10万亿美元的中共病毒赔偿金
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1303261/)
 
-作者：香草山写作组 蒙古鸿雁
+俄罗斯莫斯科喀秋莎农场   洛夫斯基灭CCP
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+编辑上传   银河
+![]()![](https://cdn.discordapp.com/attachments/820270844600909864/849633349664505936/PicsArt_06-02-08.58.39.jpg)俄罗斯莫斯科喀秋莎农场 
+06月06日，美国前总统唐纳德·川普在福克斯电视台播出的北卡罗来纳州共和党年度大会上的讲话中称，美国和其他国家需要就中共冠状病毒的出现向中共国追责10万亿美元的赔偿。
 
+“现在是美国和世界要求中国共产党为中共冠状病毒提供赔偿和问责的时候了。我们必须一致宣布要求中共国必须支付。”他呼吁世界各国“至少向中共国提出一个10万亿美元的追偿”。
 
+他还再次称冠状病毒为“中共国病毒”，并称仅美国经济就因其传播而遭受16万亿美元的损失。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06132052/%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E7%AB%99%E8%B5%B7%E6%9D%A5%EF%BC%81%E9%A9%AC%E8%83%8C%E4%B8%8A%E7%9A%84%E6%B0%91%E6%97%8F-1.jpg)
+此前，美国当局多次声称，COVID-19源自实验室。特别是，前总统唐纳德·川普指责中共国科学家创造了这种病毒。他声称有数据证明，可以让他自信地谈论它。
 
-漫漫黄沙
-掠过草原
+今年5月，《华尔街日报》援引一份美国机密情报报告写道，2019年11月，至少有三名来自武汉病毒学实验室的中共国科学家生病，不得不去看医生。他们表现出与COVID-19相似的疾病迹象。
 
-如诉如泣的马头琴声
-回荡在浓重的夜空
+5月28日，《每日邮报》发表了英国科学家安格斯·达格利什（Angus Dalglish）和挪威人布里格·索伦森（Briger Sørensen）的研究报告，他们公布了在武汉市的一个中共国实验室里人工制造COVID-19的“证据”。病毒学家分析了冠状病毒的样本，发现了“独特的痕迹”，表明该病毒只能通过人类的干预而产生。
 
-额吉的哀叹
-伴随着孩子的哭泣声
+更多的专家们对此表示关注。莫斯科国立大学教授、生物科学博士阿列克谢·阿格拉诺夫斯基(Alexei Agranovsky)说，人工起源和病毒的自然性质这两种理论都只有间接证据支持。他说，来自武汉的实验室期刊可能会带来一些启示，但中共国目前还不打算出版这些期刊。
 
-启明星不再出现
-悠长的蒙古长调
-何时变得如此哀怨
+参考链接：
 
-悲壮悲愤
-曾几何时
-血性的民族被压弯了腰
-
-启明星消失在夜空
-迷茫的双眼
-跪倒的膝
-低垂着头颅伏倒在地
-漫漫长夜中
-我们失去了方向
-
-是谁
-让我们失去了往日的雄风
-是谁
-压碎了我们的脊骨
-是谁
-让我们低下高昂的头颅
-又是谁
-夺走了我们的蒙古魂
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06132137/%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E7%AB%99%E8%B5%B7%E6%9D%A5%EF%BC%81%E9%A9%AC%E8%83%8C%E4%B8%8A%E7%9A%84%E6%B0%91%E6%97%8F-%E5%B0%81%E9%9D%A2.png)
-
-站起来
-站起来
-在一声声烈马的嘶鸣声中
-听到了久违的呼喊～
-
-为我们的草原
-为我们的孩子
-为我们的语言
-为我们流泪的额吉～
-站起来
-
-低垂的头渐渐抬起
-望向久违的天空
-望向盘旋在空中的雄鹰
-望向飞奔在草原上的俊马
-
-它们曾是我们的精神
-它们曾是我们语言的化身
-它们曾托起我们蒙古族的脊梁
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06132111/%E3%80%90%E9%A6%99%E8%8D%89%E8%AF%97%E8%AF%8D%E6%B1%87%E3%80%91%E7%AB%99%E8%B5%B7%E6%9D%A5%EF%BC%81%E9%A9%AC%E8%83%8C%E4%B8%8A%E7%9A%84%E6%B0%91%E6%97%8F-3.jpg)
-
-站起来
-站起来
-跟着那个盼望已久的声音
-
-挺起胸来
-跨上烈马
-追随那个声音
-找回我们曾经的骄傲
-
-端起马奶酒
-唱出呼麦
-那是我们在世界上
-独特的声音
-
-用我们的语言
-与那个声音一起呼号
-让自己热血贲张
-找回祖先留给我们的血性
-
-为我们的孩子
-为我们的额吉
-为我们的语言
-站起来
-找回我们的蒙古魂
-
-编辑/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 6_june-1.jpg]()![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://www.rbc.ru/rbcfreenews/60bc20919a79478d0b3ed116](https://www.rbc.ru/rbcfreenews/60bc20919a79478d0b3ed116)
 
 0
