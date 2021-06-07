@@ -1,39 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我们不能再被动地保护大中华区的民主
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1304583/)
+## 独家：中共高级叛逃者对几个中共特种武器项目有直接了解
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1304601/)
 
-翻译：烟波浩淼 |校对：雨山溪桥客 |审核：V
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07033418/36_adobespark.png)
-童英杰（音译Tong Ying-Kit）在香港以外可能不为人知，但他的案子将为中共控制的前殖民地人权和法治的黑暗未来开创了先例。5月20日，一名高等法院法官裁定，汤英杰无权在其未决的国家安全法（NSL）恐怖主义案中接受陪审团审判；相反，他的案子将由一个由三名法官组成的小组来处理。
+翻译: JS709 | 校对: Nick | 审核：V
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07034540/pt_adobespark.jpeg)
+不愿透露姓名的多个情报界消息来源告诉 RedState，据信是有史以来中华人民共和国叛逃至美国的最高级别的叛逃者之一，数月以来一直在与国防情报局 (DIA) 合作。这些消息人士称，这位叛逃者直接了解中共国的特种武器计划，包括生物武器计划。
 
-国家安全法是香港法律体系的一次动荡，也是香港十年来国内动荡的巅峰。它的四项新的刑事条款包罗万象，并已经被用来对和平抗议者和知名反对派政治家提出指控。该法案还大幅扩大了香港警方的调查权，并几乎在一夜之间就宣布抗议活动为非法。
+提供给 RedState 的信息证实并丰富了记者亚当·豪斯利（Adam Housley）周四晚上的报道。
 
-由中共起草和通过的国家安全法主要用于迫害主要的民主派领导人，如黎智英和黄之锋，他们的高调政治活动，特别是他们在伦敦、华盛顿和布鲁塞尔的宣传，长期以来激怒了中共。两人都受到了国家安全法的指控，目前正在等待审判。
+推文链接：
 
-但对于以“狮子山精神”为荣的香港人来说，这项法律产生了难以想象的后果。整整一代香港年轻人都被沉默了，他们中的许多人被关进监狱，或者被警察打死。更多的人别无选择，只能背井离乡，移居到中共控制范围之外。
 
-例如，去年8月，中共国海岸警卫队逮捕了12名在海上非法越境的香港人，因为据称这些人企图逃离香港前往台湾。在签证计划开放的两个月内，已有超过34000名香港人在英国寻求居留权，其中许多人已经前往澳大利亚和北美。
 
-被中共公然迫害得最多的可能就是郭文贵了，也被称为Miles Kwok，他是一位杰出的中共国持不同政见者，曾在香港居住，但因担心自己的安全而逃到美国。在经历了政权的残暴之后，他直言不讳地宣称中共腐败。和童一样，他敢于在中共统治的领土上为自己的自由而抗议，并继续是渗透到美国政坛最高层的中共说客试图驱逐出美国的对象。两人的经历都表明，西方对中共悄然摧毁法治的消极态度是危险的。
+> Being told the increased pressure on China in recent days is due to a defector with intimate knowledge. In fact, Wray didn’t know right away because they wanted to make sure they got all they needed before telling him.
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670397473775617?ref_src=twsrc%5Etfw)
 
-本月早些时候，参议院外交关系委员会（Senate Foreign Relations Committee）民主党主席、参议员鲍勃·梅内德斯（Bob Menendez）表示，最近通过的《战略竞争法》（Strategic Competition Act）将使美国能够在“在政治、外交、经济、创新、甚至文化等”各方面对抗中共国。共和党参议员米特·罗姆尼（Mitt Romney）也提出了类似的强硬措辞，称这项立法是对抗“中共国走向全球霸权”的必要但不充分的一步。
 
-两岸的论述也达到了新的高度。台湾一名退役军官称，中共国在该地区的海军演习是“自1996年中共国向台湾周边海域发射导弹以来，对台湾安全最严重的威胁”。台湾安全分析师迈克尔·科尔（J. Michael Cole）指责中共国“在玩一场非常危险的游戏”。
 
-但是，这种强硬的言辞只会让人觉得西方实际上做得很少。霸权主义的权力平衡对那些眼看着自己的自由未来前景每况愈下的年轻人来说意义不大。美国和英国频频说要在外敌入侵时维护民主价值，但都未能保护香港的法治。因此，中共仍然逍遥法外，胆子很大，因为美国没有挑战其在香港的行动，因此预计其对台湾日益增加的侵略的阻力会更少。
+推文翻译：
 
-理查德·哈斯和大卫·萨克斯（David Sacks）最近在《外交事务》杂志上指出，华盛顿对台湾的“战略模糊”必须结束。四十年来，美国含糊不清的政策确实起到了阻止中共国入侵和台湾宣布独立的作用，但含糊不清的政策遇到了习近平领导下的一个自信而强大的中共这个对手。例如，在他们的文章发表之后不久，《环球时报》发表了一篇社论，以香港为例，证明 “最近低估中共国决心的人都付出了代价。”
+被告知最近几天对中共国加大施压是由于一位深知内幕的叛逃者。事实上雷（Wray）并没有马上知道，因为他们想在告诉他之前确保他们得到了他们需要的一切。
 
-然而，正如政治学家汉娜·阿伦特（Hannah Arendt）所说，“暴力可以摧毁权力，但它完全不能创造权力”。
+2021年6月4日 下午12:27
 
-威权主义不仅仅是独裁，它是对权力体系和结构的精心设计，通过迫使公民互相监督来解决问题。中共最害怕的是自己的人民——因为人民已经认识到自己是中共权力的唯一来源。当人民反对他们时，正如许多人认为的那样，他们的权力将不复存在。他们对像郭文贵这样得到越来越多支持的持不同政见者的敌视就是这种恐惧的证明。
+RedState 的消息来源说这部分是真的。 他们说，联邦调查局局长克里斯托弗·雷（Christopher Wray）被这些信息“淹没”了，兰利（Langley）也不知道。消息来源称，DIA 领导层将叛逃者留在国防秘密服务部（DCS）DCS网络中，以防止兰利和国务院接触该人，因为 DIA 领导层认为 FBI、CIA 和其他几个联邦机构内部存在中共国间谍或内线消息来源。
 
-今年六四，香港人将不再能够在天安门广场周年纪念日表达他们的敬意，因为纪念活动和标志已经被禁止。人们将呆在家里，害怕坐牢，害怕大声说话。这座城市将保持沉默，但流亡者、持不同政见者和被关进监狱的抗议者从天安门广场吸取的教训，对那些仍愿意倾听的人来说，仍将如雷贯耳。
+推文链接：
 
-原文作者：杰伊（Jay）保护民主
-发布时间：2021年6月4日
-原文链接：[https://timebusinessnews.com/we-can-no-longer-afford-to-be-passive-in-protecting-democracy-in-greater-china/](https://timebusinessnews.com/we-can-no-longer-afford-to-be-passive-in-protecting-democracy-in-greater-china/)
+
+
+> Also…US intelligence believes China is trying to produce variants that suggest it came from bats to cover up that it originally came from a lab. The belief is still that it escaped accidentally, but was allowed to spread.
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670631562076161?ref_src=twsrc%5Etfw)
+
+
+
+推文翻译：
+
+另外……美国情报部门认为，中共国正在试图制造表明它（中共病毒）是来自蝙蝠的变种，以掩盖它最初来自实验室的事实。 人们仍然相信它是意外泄漏，但被允许传播。
+
+2021年6月4日 下午12:27
+
+推文链接：
+
+
+
+> Again…what I reported tonight. US intelligence has a Chinese defector with Wuhan info. AND China is trying to produce variants that suggest it came from bats to cover up that coronavirus originally came from a lab
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400679023668187137?ref_src=twsrc%5Etfw)
+
+
+
+推文翻译：
+
+再说一遍……我今晚报道的。 美国情报部门有一名掌握武汉情报的中共国叛逃者。 **而且**中共国正试图生产表明它来自蝙蝠的变种，以掩盖冠状病毒（中共病毒）最初来自实验室
+
+2021 年 6 月 4 日 下午 1:01
+
+更多信息将在 RedState 得到后发布。
+
+2021年6月4日太平洋夏令时 下午 12:30 更新
+
+消息来源告诉RedState，叛逃者已经与DIA合作了三个月，他向美国官员提供了广泛的、技术上非常详细的简报。消息人士称，对叛逃者提供的信息的相信程度是突然对安东尼·福奇（Anthony Fauci）博士产生信任危机的原因，并补充说，向DIA详细介绍（中共病毒情况，译者加注）的美国陆军传染病医学研究所 (USAMRIID) 人员证实了叛逃者提供的信息的所有技术细节。
+
+（注意：几位前CIA官员质疑这篇报道的真实性或将其称为彻头彻尾的编造。我们知道这些评论并支持我们的消息来源。）
+
+原文作者：詹妮弗·范拉尔（Jennifer Van Laar）
+发布时间：美国东部时间 2021 年 6 月 4 日下午 2:23
+更新时间：太平洋夏令时2021 年 6 月 4 日下午12:30
+
+原文链接：
+[https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238)
 
 0
