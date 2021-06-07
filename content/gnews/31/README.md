@@ -1,82 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】旅游之思
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1304346/)
+## 中共5月对美进口贸易额下滑，贸易顺差出现增长
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1304877/)
 
-**作者**：香草山美食部 新世界的一员
+#### 文章撰写:【默凡】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07061413/dsa4-15saf_615827769_rc18ea753f70_rtrmadp_3_usa-trade-china.jpg)
 
+CNBC新闻网6月7日报道：根据Wind Information 获得的最新数据显示，中共国5月份从美国进口了价值131.1亿美元的商品，低于4月份的139.4亿美元。
 
+虽然中共国从其他国家的进口贸易额创10年来最快增长，增长了51.1%，但5月份，中共从美国进口的增长速度较上年同期明显放缓。因此，中共国对美国的贸易顺差从4月份的 281.1 亿美元增至5月份的317.8亿美元。中共国对美国的出口从4月份的420.5亿美元增至5月份的448.9亿美元。然而，增长速度从4月份的31%放缓至21%。
 
+尽管中美出现贸易紧张，美国仍然是中共国最大的贸易伙伴。
 
+参考文章：[China buys fewer American goods in May; trade surplus grows](https://www.cnbc.com/2021/06/07/china-buys-fewer-american-goods-in-may-trade-surplus-grows.html)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07013203/image0-23.jpg)
+本文仅代表作者本人观点，不代表Gnews平台
 
-自古游山玩水闲客多
-如今旅游公路分等级
-打开导航线
-沿途美景无限
-经西藏入新疆，
-进四川，出青海
-出西宁，达拉萨
-高原、湖泊、雪山、沙漠
-极致风光秀丽
-首选315，次选318
+* * *
 
-普通上班族
-奈何无钱无闲无心情
-苦于生计百般忙
-嘴上过过瘾，
-视频观天下
-
-公务员
-上班喝茶看报纸
-出差就到山水间
-抽空玩乐养小三
-逍遥自在乐翻天
-一副官腔狰狞心
-一路报销不差钱
-
-不羡慕、无嫉妒
-恨起算源头
-恶魔在上头
-纳税人，被压制
-奴你人、奴你心
-共产共妻共匪在
-一切美梦难成真
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07004331/image0-32.jpg)
-横空出世郭文贵
-草根英雄结联盟
-正义之师平民福
-蓝旗飘扬国道通
-
-你我他，不怠慢
-紧追随，无异见
-誓要翻天覆地
-聚成不一样的风景线！！！
-
-编辑/上传：遍地开花 审校/发布：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041307/7_july.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
-
-
-
-
+*排版发布：日本东京方舟农场 文柯Miles*
 
 0
