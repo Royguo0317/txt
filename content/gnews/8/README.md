@@ -1,30 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象评奇文】马路都是你的
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1304429/)
+## 2021上半年中共外交全面失败
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1304511/)
 
-环球时报英文版在推特发了一个视频，显示广州今天全国统一高等院校招生考试时，扮演的重要的维护交通的角色：一个交警摩托车队出现在广州的街道，以确保高考交通顺畅。
+【日本东京方舟农场】 作者:DK小白 校对:文小律
 
-广州目前进入半封闭状态，所有的人都需要测核酸，而且很多地区都封闭了，大街上根本就没有什么人，交通警察很高兴，终于可以在马路上摆龙门阵了，马路都是你们的， 随便开好了。
+**外交部从战狼外交到碰瓷外交**
 
-在疫情如此严重的时候，一边告诉人们不要出门，呆在家里，一边威胁要去集体做核酸检测，要不后果自负，一边组织全国一千多万的学生集体考试。有时候真的搞不清楚，这个国家疯了吗？
+2021年至今，中共国外交部发言人依然如疯狗般到处狂咬。但是可以看到2021年至今为止没有一个西方大国领导人访问中共国。倒是来了几个外交部长“旅游”，别说联合声明这种大动作，北京都不去。明显可以看出这是中共外交部搞小动作玩碰瓷。
 
-参考链接：
+**面对欧盟“区区”27国外加美国、英国、日本、韩国、印度、澳大利亚对华外交政策强硬，习近平总书记总是在打电话**
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07030510/A58AAACA-C2E4-45BB-BAA3-DE5A8C5FBA17.jpeg)
 
+日美联合声明，韩美联合声明，日欧联合声明，中欧投资协定被冻结，英国议会认定中共在新疆的种族灭绝，澳大利亚，印度设甚至巴西公开叫板中共等等一系列外交事件。习近平只用一招轻松“化解”那就是到处打电话。现任中央政治局委员，中央外事工作委员会办公室主任的杨洁篪甚至亲自跑到莫斯科给普京“打电话”，真是丢尽了ccp的颜面。6月7日美国三名跨党派参议院访台更是又又又又又一次打脸中共。
 
-> A traffic police motorcycle squad was seen on streets in [#Guangzhou](https://twitter.com/hashtag/Guangzhou?src=hash&amp;ref_src=twsrc%5Etfw) to ensure smooth traffic during [#gaokao](https://twitter.com/hashtag/gaokao?src=hash&amp;ref_src=twsrc%5Etfw), national college entrance exams, on Monday. [pic.twitter.com/46JVLNvwv8](https://t.co/46JVLNvwv8)
-> — Global Times (@globaltimesnews) [June 7, 2021](https://twitter.com/globaltimesnews/status/1401754140963786761?ref_src=twsrc%5Etfw)
+我认为2021年上半年中共外交全面溃败的深层原因一定是此次中共冠状病毒的真相在西方内部被揭示，被验证。我相信中共冠状病毒真相展现在世人眼前之时就是中共彻底结束之时！
 
-
-
-图片来源：[https://twitter.com/](https://twitter.com/)
-
-整理撰稿：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
+注:本文仅代表作者观点
 
 0
