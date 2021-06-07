@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒起源于实验室
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1303448/)
+## 美国宇航局的火星直升机准备在周日进行第 7 次飞行
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1303478/)
 
-信息来源：德国世界报网络版 
-记者：比吉特·赫登，（Birgit Herden）
-         莱昂哈德·兰德斯（ Leonhard Landes）
-发布时间：2021年6月06日
-翻译 /整理/ 简评： Shuizhuyu
+#### 翻译： 文复
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06173309/v2_9dbc783b568b4ddf8923a3579ecb1edc_img_000.png)图片截自网络
+根据 NASA 的一份新闻稿，如果一切按计划进行，NASA 的火星直升机 Ingenuity 将不迟于今天升空。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25094615/458536-1.png)
+Ingenuity 是一架重量不超过 4 磅的小型机器人直升机，正在为今天的第七次飞行做准备。任务是将 Ingenuity 从目前位于 Jezero Crater 底部的位置向南飞行 350 英尺。
 
+美国宇航局写道：“这将标志着直升机将第二次降落在上一次飞行中未从空中进行调查的机场。” “相反，Ingenuity 团队依靠 NASA 火星勘测轨道飞行器上的 HiRISE 相机收集的图像，这表明这个新的行动基地相对平坦，表面障碍物很少。”
 
-图片来源： 网络
+5 月 22 日，Ingenuity 执行了第六次任务，但并不顺利。这架太阳能直升机出现了中断内部系统的故障，没有提到导致故障的原因。而飞船安全着陆。
 
-Sars-CoV-2 是否来自武汉的实验室？ 安全专家和世卫组织顾问杰米梅茨尔认为这一理论是合理的。 在采访中，中国指责中国进行了危险的掩盖——但他反驳了一项指控。
+Ingenuity 已经出色地执行了五次飞行，并将令人难以置信的图像从火星传回地球。
 
-一年多来，杰米·梅茨尔 (Jamie Metzl) 发表了论文：病毒大流行起源于实验室事故。 这位美国世卫组织顾问在其网站上为这一具有政治争议的理论收集证据。 这位未来技术和地缘政治专家认为，中国阻止透明调查是对全球安全的攻击。
+美国宇航局还有“毅力漫游者”执行寻找生命的陆基任务。
 
-简评： 德国世界报是一个相对很严肃的一个媒体，现在已经开始陆续有几篇有关病毒来源的报道， 虽然声音还不够强大， 但是已经开始了。 这篇报道是一个访谈， 世界报采访了世卫组织顾问，结论即使武汉实验室。 因为访问很长， 我这里只是把结论给出来。 这个对我们爆料革命很重要， 对以毒灭共很重要。 对全世界也是非常重要的信息， 也许这样下去真的能够避免中共再次防毒， 让全世界认识中共的邪恶。
+在过去的几个月里，这颗红色星球已成为美国和中国的热点，中国在这个星球上登陆了自己的火星车。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+两国对火星的突然兴趣是因为据称这个星球拥有丰富的稀有金属，将为未来的经济提供动力。
 
-🔗[Woher-kommt-Corona-Experte-wirft-China-gefaehrliche-Vertuschung-vor](https://www.welt.de/wissenschaft/plus231611009/Woher-kommt-Corona-Experte-wirft-China-gefaehrliche-Vertuschung-vor.html)
+[文章来源](https://www.zerohedge.com/geopolitical/nasas-mars-helicopter-prepares-7th-flight-sunday?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+(文章仅代表作者个人观点,与GNEWS平台无关)
+
+校对发布：紫橄榄
 
 0

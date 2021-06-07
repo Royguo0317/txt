@@ -1,117 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 生态健康联盟获1.23亿美元美政府资助
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1303269/)
+## 蝠奇还有更多和中共勾兑的邮件待曝光
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1303335/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**摘要：在2021年6月2日的盖特视频中，郭先生向中南坑和王岐山大秀肌肉，用实力告诉它们无论是收买美国大外宣布隆伯格（Bloomberg）、《华尔街日报》、《华盛顿邮报》，还是非法拍卖郭先生家族的方正证券资产，都无法阻挡郭先生和新中国联邦的灭共步伐。郭先生还爆出和中共勾兑的蝠奇的邮件远不止800封，有更多邮件能证明蝠奇和中共官员高福和WHO勾兑——这是献给新中国联邦一周年的大礼。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06151344/Miles_2021-06-02-getter.srt.txt)
+**蝠奇还有更多和中共勾兑的邮件待曝光**
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06144101/P-1.jpg)jonsnewplace.wordpress.com
-有消息披露，达扎克的生态健康联盟（Eco Health Alliance）从政府那里得到了超过1.23亿美元：
+**More Emails Between Fauci and CCP Officials to Be Released**
 
-美国国际开发署（US Agency for International Development）6500万美元，国防部（Department of Defense）3900万美元，国家卫生研究院（NIH）1300万美元。【1】
+兄弟姐妹们，看到我们6月3号一周年伟大日子的到来，共产党准备了啥？布隆伯格——王岐山的哥们儿黑咱的一篇报道。哑口不提海航的事情，哑口不提冠状病毒我们战友的爆料，哑口不提我们对香港运动的支持。
 
-消息披露者链接了《每日邮报》（Daily Mail）的文章，“联邦数据显示，五角大楼向彼得·达扎克的生态健康联盟捐赠了3900万美元，该机构资助了被指是疫情源头的武汉实验室的中共病毒研究”。
+It’s not easy, brothers and sisters, to witness the arrival of the great day of our first anniversary of the New Federal State of China (NFSC) on June 3. What has the CCP prepared for us? Bloomberg, Wang Qishan’s buddy, published a report that defamed us. The report didn’t mention HNA at all, was silent about the coronavirus news that was broken by our fellow fighter, and not a single word about our support for the Hong Kong movement.
 
-文章摘要指出：
+然后就说我们跟北大的事儿。布隆伯格刚放出来[报道]不到仨小时，你看看宣布大连法院，然后所谓的中纪委6月19号拍卖方正证券拥有的事实上价值100亿美元的证券。现在（已经弄走一次了）第2次，要把价值90亿人民币[的资产]以10亿美元拍卖，就是惩罚咱们一周年纪念。
 
-●《每日邮报》看到的联邦数据显示，五角大楼向生态健康联盟提供了3900万美元，该联盟在2013年至2020年间资助了中共国武汉的一个实验室
+Then the report talked about our affairs with Founder Group. Less than three hours after Bloomberg published the report, the Dalian court, the Central Commission for Discipline Inspection, announced the auction of the securities owned by Founder Securities that were actually worth $10 billion on June 19. It has already been taken away once, and for the second time, the assets valued at 9 billion RMB will be auctioned for $1 billion. This is precisely to punish our first anniversary [of the NFSC].
 
-●武汉病毒研究所被指是中共病毒的来源
+很多人说哎呀一周年纪念花多少钱多少钱。七哥不是跟你们抱怨，看看七哥家人付出的，看看七哥付出的，仅此一项就100亿美元。当年瑞士，当年日本的几家公司还有美国的，当时就[只值]100亿美元，这帮孙子从来不说为什么郭文贵加入后你们证券那么值钱了？但是就这，它也要抢走。兄弟姐妹，你们看看，这就是咱们一周年七哥要买的单。
 
-●国防部的大部分资金来自“国防威胁降低局”（DTRA，Defense Threat Reduction Agency），DTRA是一个军事分部，其任务是“对抗和阻止大规模杀伤性武器和即时网络威胁”
+Many people say, oh, how much does it cost to celebrate the first anniversary? Brother Miles is not complaining to you. Look at the price my family has paid and look at what I have paid. This former holding alone is worth $10 billion. At that time, there were several companies in Switzerland, Japan, and the United States. They were worth $10 billion at the time. These bastards never said why these securities were so valuable after Miles Guo joined. But even this, the CCP has to take away. Brothers and sisters, take a look. This is the price that Brother Miles will pay for our first anniversary.
 
-●独立研究人员收集的联邦拨款数据显示，该慈善机构从政府获得了总共1.23亿美元
+王岐山说：“要改变大外宣政策，要彻底消灭一周年。”这就是[对付]一周年的招 — 连续3到7篇的负面报道。都是大媒体：布隆伯格，什么《华尔街日报》，什么《华盛顿邮报》— —这就是他们想要的。这就是王岐山开了几天会，他要出九大招，就是干走你钱，然后威胁。
 
-●五角大楼的拨款包括2017年至2020年“国防威胁降低局”（DTRA）的6,491,025美元
+Wang Qishan said he wanted to change China’s foreign propaganda strategy and completely eliminate the first anniversary. These are the tricks they use to tackle the first anniversary: publishing 3 to 7 negative reports consecutively in all the big media: Bloomberg, the Wall Street Journal, or the Washington Post. This is what they want to do.  This is what Wang Qishan is like. After a few days of meetings, he is going to make nine major moves, which are designed to take away your money and threaten you.
 
-●生态健康联盟还从美国国际开发署（USAID）获得6470万美元
+蝠奇的Email，大家想想当年DOJ的Email，Elliott Broidy的Email，还有Higginbotham的案子，还有王健的视频，王健的档案都在什么时候出来的？蝠奇的Email还多着呢！跟蝠奇有关系的共产党，什么高福，Email多着呢！
 
-●它从包括国家卫生研究院和疾病控制中心在内的卫生和公众服务部门获得了1300万美元
+Regarding Fauci’s emails, think about it everybody, the DOJ’s emails, Elliott Broidy’s emails, the Higginbotham case, and Wang Jian’s video. When did Wang Jian’s files come out? There are still very many emails from Fauci. There are too many emails between Fauci and the CCP gangsters such as Gao Fu (director of China CDC) to be released.
 
-●目前还不知道到底有多少钱流向了武汉实验室
+“习一坑”，王岐山，钟南坑老杂毛们，看看我怎么给你们绣。你不是要拍卖方正证券吗？啥叫拍？你抢了不就完了呗！你看看我跟你….
 
-●生态健康联盟还资助了极具争议的“功能增强”实验，使危险病毒更具传染性，以研究它们对人体细胞的影响
+“Nutty Xi” (Xi Jinping), Wang Qishan, those old bastards in Zhongnan Pit, see how I embroider you. Don’t you want to auction Founder Securities? Why call it an auction? Why don’t you just grab it directly?
 
-全文如下：
+蝠奇的Email绝不止800件，还有更多。还有跟蝠奇勾兑的香港实验室、WHO — Wu Han Organization。还有世界上跟共产党勾兑掩盖[病毒真相]的，包括中国那些大佬。
 
-美国联邦数据显示，五角大楼向一家慈善机构捐赠了3900万美元，该机构资助了一家中共国实验室的冠状病毒研究，该实验室被指控是中共病毒的来源。
+There are definitely more than 800 emails from Fauci. The Hong Kong laboratory also had secret deals with Fauci and the WHO – the Wu Han Organization. There are also people in the world, who colluded with the CCP, covering the truth of the virus, including certain Chinese bigwigs.
 
-这一消息公布之际，该慈善机构的负责人、英国出生的科学家彼得·达扎克博士（Peter Daszak）被曝光参与了一场据称存在利益冲突的幕后活动，以攻击实验室泄漏理论。
+兄弟姐妹们，我们背后有多少力量在支持我们呐！背后多少力量啊，多少力量。大家明白了吗？6月3日一周年献礼！ 蝠奇—武汉真相！大家看明白了？还会更多，还会更多。它不是九招吗？咱跟他出900招都不拉倒，咱们走着看。
 
-该慈善机构“生态健康联盟”（Eco Health Alliance，EHA）受到严格审查，此前有消息称，该机构一直在利用联邦拨款资助中共国武汉病毒研究所的中共病毒研究。
+Brothers and sisters, do you know how many forces are supporting and behind us? How much power is behind us, do you understand? We will present a gift for the first anniversary on June 3: the truth about about Fauci and Wuhan! Do you understand? There will be more. Doesn’t the CCP have nine tricks? Let’s give them 900 strokes and not stop. Just wait and see.
 
-这家为研究新疾病而成立的美国非营利组织还部分资助了颇具争议的“功能增强”实验，使危险病毒更具传染性，以研究它们对人体细胞的影响。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60b79cd3c04fd544b4676d0c](https://gtv.org/getter/60b79cd3c04fd544b4676d0c) (1:02-2:58, 8:17-9:41)
+鸣谢：[1] 感谢Antsee-GTV、GUO TING 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于[https://gnews.org/zh-hans/1291705/](https://gnews.org/zh-hans/1291705/)
+[2] 感谢YY、Liberte 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于[https://gnews.org/1298116/](https://gnews.org/1298116/)
 
-美国前总统川普（Donald Trump）去年取消了向该慈善机构提供的370万美元的拨款，原因是有人声称中共病毒是在生态健康联盟资助的武汉实验室中制造或泄露的。
+* * *
 
-但独立研究人员收集的联邦拨款数据显示，从2017年到2020年，该慈善机构已经从政府获得了超过1.23亿美元的资金，而其最大的资助者之一是国防部，自2013年以来，该机构共获得了近3900万美元。
+**字幕：【JennyL（纽约香草山农场）】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-武汉病毒研究所的研究究竟花了多少钱还不得而知。
-
-五角大楼的拨款包括2017年至2020年国防威胁降低局（DTRA）提供的6,491,025美元，描述为：“了解西亚出现蝙蝠传播人畜共患病的风险。”这笔拨款被归类为“科学研究——打击大规模杀伤性武器”。
-
-国防部的大部分资金来自国防威胁降低局（DTRA），DTRA是一个军事分部，其任务是“打击和阻止大规模杀伤性武器和即时网络威胁”。
-
-生态健康联盟还从美国国际开发署（USAID）获得6470万美元，从包括国家卫生研究院和疾病控制中心在内的卫生和公众服务部门获得1300万美元，从国土安全部获得230万美元，从国家科学基金会获得260万美元。
-
-白宫首席医疗顾问安东尼·福奇（Anthony Fauci）在参议院听证会上被质询，美国国家卫生研究院（National Institutes of Health）在2019年通过向生态健康联盟提供的拨款向武汉实验室汇去了多少资金，此后，340万美元的政府资助数字被广泛报道。
-
-但包括五角大楼拨款在内的总拨款数字使NIH的数字相形见绌。
-
-研究人员詹姆斯·巴拉塔 (James Baratta)和玛丽安·埃弗雷特 (Mariamne Everett)收集了美国政府机构提交给生态健康联盟的拨款文件，这些文件于12月发表在《独立科学新闻》（Independent Science News）网站上。
-
-该网站发现，生态健康联盟关于其巨额军事资金的声明深深地隐藏在其网站的“隐私政策”部分，标题是“关于研究利益冲突的生态健康联盟政策”。
-
-生态健康联盟在披露中说，它是联邦机构（包括美国国家卫生研究所、美国国家科学基金会、美国鱼类和野生动物管理局、美国国际开发署和国防部）各种赠款的接受者。它没有透露国防部资金的规模。
-
-2014年，奥巴马政府宣布功能增强研究（如生态健康联盟资助的实验）为非法，因为科学家们担心这可能导致一种从实验室泄露的基因增强病毒引发全球大流行。
-
-但据报道，生态健康联盟继续合法资助这一做法，利用一个漏洞，允许在“保护公共健康或国家安全的迫切需要”的情况下进行研究。
-
-一位著名的生态健康联盟“政策顾问”是大卫·弗兰兹（David Franz），他曾是美国政府主要生物战和生物防御设施德特里克堡（Fort Detrick）的指挥官。弗兰兹是联合国特别委员会的一名官员，负责检查伊拉克的生物武器。
-
-该慈善机构负责人达扎克被指策划了一场幕后“欺凌”活动，以确保中共病毒的责任不落在他资助的武汉实验室身上。
-
-在研究中共病毒时，达扎克与实验室的“蝙蝠女”、55岁的石正丽密切合作。
-
-2020年2月，达扎克说服其他20多名科学家签署了他写给备受尊敬的医学杂志《柳叶刀》（The Lancet）的一封信，这封信被认为影响巨大，以至于大多数专家甚至拒绝考虑这种病毒可能是人为的，并从武汉研究所泄露。
-
-现任世界卫生组织人类基因组编辑咨询委员会委员、前克林顿政府高级职员梅茨尔（Jamie Metzl）对《每日邮报》说，《柳叶刀》的这封信“是科学宣传，是一种打压和恐吓”。
-
-《信息自由法》（Freedom of Information Act）披露的信息显示，达扎克试图让自己的慈善机构与这封信保持距离，让人觉得这封信来自“一个支持我们同事的社区”。
-
-这位慈善机构负责人在一封电子邮件中告诉他的签名伙伴，这封信不会以“生态健康”的标识发送，也不会被识别成来自任何一个组织或个人。
-
-去年2月19日发表在《华尔街日报》上的这封联名信赞扬了中共国在中共病毒疫情的挑战中继续拯救生命和保护全球健康，并补充说，我们站在一起强烈谴责那些暗示中共病毒并非自然来源的阴谋论。
-
-尽管达扎克与中共国实验室关系密切，但他还是被世界卫生组织（WHO）挑选为13人小组的一员，该小组的任务是找出这场始于武汉的疫情的原因，武汉是中共国中部一个约1100万人口的城市。
-
-梅茨尔对《每日邮报》说，这一任命是一场“大规模的、令人发指的利益冲突”，让一名在诋毁实验室泄密理论方面、有重大财务和声誉利害关系的人去调查这些理论。
-
-著名的科学家批评世卫组织的调查，该调查驳斥了实验室泄漏理论，认为这是缺乏活力和不完整的。
-
-在Buzzfeed上个月获得的福奇邮件的信息自由披露中，达扎克感谢白宫博士反驳了中共病毒是人造的理论。
-
-达扎克在2020年4月写道，我只想代表我们的工作人员和合作者个人向你们表示感谢，感谢你们公开站出来，表示科学证据支持中共病毒从蝙蝠到人类的自然来源溢出，而不是从武汉病毒研究所的实验室产生。
-
-福奇说，这些电子邮件是断章取义的。
-
-生态健康联盟最近向美国国税局提交的财务报表显示，约90%的资金来自政府。
-
-2019年的报告说，达扎克今年的薪酬总额为410801美元，其中包括311815美元的基本工资、42250美元的奖金、24500美元的递延薪酬和32236美元的非税福利。
-
-（原文完）
-
-看上去福奇几十万美元对武毒所的资助是小巫见大巫，国防部的一个局就拨款650万美元给武毒所，目的是“了解西亚出现蝙蝠传播人畜共患病的风险”，旨在“打击大规模杀伤性武器”，荒唐不？
-
-看来美国的系统真地出了问题，老贼福奇是作为业内握有极大话语权的专家，替他们掩盖真相的角色？还是病毒制造的参与者？昨天（6月5日）笔者发文，翻译了“中共病毒沙皇比尔盖茨”的疑似角色，联想到拜登政府对病毒溯源追责的阻止、拖延、掩盖，对老贼福奇的袒护等等，深感中共病毒背后的病毒对美国的系统造成了严重的侵蚀！
-
-参考链接：
-
-【1】[https://twitter.com/R\_H\_Ebright/status/1401026854920888329](https://twitter.com/R_H_Ebright/status/1401026854920888329)
-
-【2】[https://www.dailymail.co.uk/news/article-9652287/The-Pentagon-funneled-39million-charity-funded-Wuhan-lab.html](https://www.dailymail.co.uk/news/article-9652287/The-Pentagon-funneled-39million-charity-funded-Wuhan-lab.html)
-
-0
++1

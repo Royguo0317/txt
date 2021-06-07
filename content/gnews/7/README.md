@@ -1,33 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 专家警告： 意大利人有理由害怕打疫苗
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1303467/)
+## 【大象快讯】认为Covid-19是人工改造却发表自然起源论的安德森删除了推特账号——这中间有什么故事？
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1303531/)
 
-新闻来源： il paragone.it
-发布日期： 2021年5月7日 
-翻译整理/简评： 小白鸽
+一位加利福尼亚病毒学家Andersen，被邮件曝光告诉安东尼·福奇 COVID-19 看起来“可能经过改造”并且“与进化论的预期不一致”，但是后来改变方向并在 8 周后发表了一篇“自然起源”的论文（在收到数百万美元的NIH grant)已删除 5,000 多条推文。现在2021年6月6日晚，他的推特账户已经注销。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06041841/vaccine-scaled.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06185957/Picture1-12.png)
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190123/2-8.png)
 
-在欧盟坚持只有强制接种疫苗才是摆脱中共病毒的唯一出路时，某些专家提出不同的看法。
+在加利福尼亚州拉霍亚经营安徒生实验室的克里斯蒂安 G. 安德森在 2 月 1 日给福奇的电子邮件中写道：“病毒的异常特征构成了基因组的一小部分，不到 0.1%，因此必须仔细观察所有序列，看看某些特征（可能）看起来是经过改造的，”他补充说，他和他的团队发现“基因组与进化理论的预期不一致”。下面的图片是邮件原文：
 
-这些专家对疫苗的有效性，以及疫苗未来产生的不期望的影响的担心持续增加。在科学界有如此众多的相互矛盾的看法，使一些专家感到疑惑，帕多瓦大学教授保罗•贝拉维泰(Paolo Bellavite)便是其中一位。在接受意大利La7 电视节目的采访时，贝拉维泰( Bellavite )在直播中解释道：“ 意大利人接种疫苗时感到害怕从某种意义上来说时有道理的。我们并不能肯定在好处和危险之间存在着真正的联系。人们在谈论这一话题的时候都使用很肤浅的方式。我们应该知道我们还处在一个真正的试验阶段。第二阶段和第三阶段的试验将在2022年结束， 第四阶段的试验被称为post-marketing 正在进行，可惜进行的不好。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190240/3-6.png)
 
-“ 给我们提供的疫苗不良反应的数据并不可靠——贝拉维泰 补充道——因为都是所谓的被动监测。也就是说只有在不良反应的案例被负责报告不良反应的人拿到才算是不良案例。
+当时，安德森正在回应福奇发给他的一篇探索病毒起源的文章。第二天，福奇给他的副手休·奥金克洛斯发了一封紧急电子邮件，主题是“重要的”，写着“休，我们必须在上午通话，保持手机开机。……阅读这篇论文以及阅读这篇文章，文章在我将转发的电子邮件里。您今天将有必须完成的任务。”所附文件的标题是“Baric, Shi, et al – Nature Medicine – SARS gain of function.pdf”。
 
-举个例子：每十万个注射疫苗的有四十例严重反应不良的，事实上，从主动监测来看的数据是4%， 也就是每十万个人中有四千个人有不良反应。这是人们应该知道的。
+因此，在福奇一位值得信赖的科学顾问建议 COVID-19 可能是人造的（而福奇及其同事公开驳斥这种可能性是阴谋论）之后，他立即拍摄了一篇关于获得功能研究的研究论文——福奇正在资助该论文。而现在安德森已经删除了他一半以上的推文。
 
-当贝拉维泰教授特别提醒老人和身患疾病的人要特别注意的时候，他的话引起了另一位节目支持人米尔塔•梅尔利诺(Myrta Merlino) 的强烈反应，她也是节目邀请的嘉宾。她马上试图阻止贝拉维泰的发言，她说“服避孕药的危险比疫苗更危险。”为什么你要这样警告大家？我们需要尽快地给所有人都打上疫苗。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190412/4-4.png)
 
-如果你想对支持打疫苗的观点的人提出质疑的观点，这是意大利电视台所不允许的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190556/5-3.png)
 
-简评： 从这篇报道我们可以看到这一现象：如今要在意大利电视台对打中共病毒疫苗提出不同看法都是要被禁声的。西方社会鼓吹的自由、民主被中共的生物超限战打得一败涂地。媒体误导也是生物超限战的重要组成部分。如果你讲真话，他们会说这是阴谋论。人类所付出的代价是惨重的。老百姓在不明真相的情况下，都充当了小白鼠。
+安德森声称他的旧推文是“自动删除”的，这意味着一个滚动的、自动化的过程。而不是在 2021 年 3 月 7 日之前突然消失的5,000 多条推文。被删除的推文发布之际，正值互联网侦探开始揭开安德森与福奇和 NIH 的关系的时候。
 
-本文只代表作者观点， 与GNEWS 平台无关
-发表: Shuizhuyu
+零对冲在推特上直接问候了亲爱的克里斯蒂安安徒生，“你为什么删除你的推特账号？”。
 
-🔗[lallarme-dellesperto-gli-italiani-che-hanno-paura-del-vaccino-hanno-ragione](https://www.ilparagone.it/attualita/lallarme-dellesperto-gli-italiani-che-hanno-paura-del-vaccino-hanno-ragione/)
+“是因为关于为什么新冠病毒看起来“与进化论的预期不一致”或为什么“某些功能看起来是经过设计的”的所有问题”。
 
-0
+参考链接：
+
+[https://www.zerohedge.com/political/virologist-who-told-fauci-sars-cov-2-potentially-engineered-just-deleted-5000-tweets](https://www.zerohedge.com/political/virologist-who-told-fauci-sars-cov-2-potentially-engineered-just-deleted-5000-tweets)
+
+图片来源：[https://www.zerohedge.com/](https://www.zerohedge.com/)
+
+整理撰稿：蓝精灵
+
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
+
++1
