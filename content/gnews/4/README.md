@@ -1,39 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草山水墨堂】喜马拉雅，自由之巅
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1304219/)
+## 在意农的指导和帮助下，希腊战友向新中国联邦成立一周年献礼
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1304964/)
 
-**作者**：香草山美食部 文百合
+消息来源：意大利达芬奇农场
+发布时间：2021年06月07日
+撰写：Angelsky
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06232722/image0-31-scaled.jpg)
+2021年6月4日新中国联邦成立一周年之际，希腊战友们在意农的指导和帮助下，向新中国联邦成立一周年献礼。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07071533/WhatsApp-Image-2021-06-04-at-3.18.28-PM.jpeg)
+视频中的每个画面都在讲述着一个故事：当我们举着心爱的国旗走向希腊的政治中心宪法广场时，希腊警察的友好问询及明白真相后对我们的保护；另有我们不清楚是什么部门的人员看到习近平散播病毒的牌子，边仔细询问这是谁边跟电话那头汇报了大约足足三五分钟，即便他们明白了这是中共党魁习近平，依然没有干涉我们的活动，微笑离开时的那种友好让人印象深刻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07071630/WhatsApp-Image-2021-06-04-at-3.20.38-PM.jpeg)
+当我们来到卫城脚下雅典最著名的Monastiraki Square小广场展示病毒真相时，遭遇到了不明真相的当地希腊人的反对，但是另外的两个希腊人民主动上前与其辩论，告诉他中共的邪恶；还有我们结束议会对面的活动走向小广场的途中，沿途的人们包括警察友好接过真相资料的尊重，对我们竖起大拇指，如此种种，在激励并感动着我们参加活动的每一个人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07071723/WhatsApp-Image-2021-06-04-at-3.21.33-PM.jpeg)
+希腊，真的与两年前不同了，越来越多的知道中共的邪恶了！希腊，离中共越来越远了，这个民主的发源地，是有自己的底限的！在这次活动中，我们更切身感受到爆料革命唤醒世界的力量以及中共的丧钟越来越响了…战友们，加油，为了我们不被奴役的自由！感恩希腊！感谢意大利罗马达芬奇农场的倾情相助！
 
-喜马拉雅，自由之巅。
-此画灵感来自木兰的歌词：“在去喜马拉雅的路上，你前行我们跟随。”喜马拉雅山峰，宏伟壮观，气势磅礴。郭先生选它是有象征意义的。
-怎么才能画好，才能画出巍峨耸立的山峰，让它有灵魂，这是很重要的。土山石山雪山我都画了一遍，最后石山定稿。 石山的坚挺和雄伟就是我们新中国联邦人的精神。
+（本文只代表译者观点，与Gnews无关）
 
-编辑/上传：遍地开花 审核/发布：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
-
-
-
-
+校对/上传：老中医
 
 0

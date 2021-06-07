@@ -1,75 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家：中共高级叛逃者对几个中共特种武器项目有直接了解
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1304601/)
+## 【小象搬运】中国残暴共产主义政权试图重新塑造“可爱”的形象是个笑话
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1304665/)
 
-翻译: JS709 | 校对: Nick | 审核：V
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07034540/pt_adobespark.jpeg)
-不愿透露姓名的多个情报界消息来源告诉 RedState，据信是有史以来中华人民共和国叛逃至美国的最高级别的叛逃者之一，数月以来一直在与国防情报局 (DIA) 合作。这些消息人士称，这位叛逃者直接了解中共国的特种武器计划，包括生物武器计划。
+#### 整理撰稿：蓝精灵
 
-提供给 RedState 的信息证实并丰富了记者亚当·豪斯利（Adam Housley）周四晚上的报道。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07043158/ah5dfa33dfsg32_00saf1.jpg)
 
-推文链接：
+小象：这篇文章的作者非常深刻的认识到， 一个对于不但残忍镇压本国人民，还虚假的掩饰意图美化的政权，已经丧失了在国际社会上的信用，中共已经彻底信用破产。这是一个罪恶的体系，只有消除它，瓦解它。以下是本篇文章的摘要：
 
+伊恩·比雷尔2021-6-6在Inews上发表文章：作为中国残暴共产主义政权的领导人，习近平试图重新塑造“可爱”的形象是个笑话
 
+习近平主席宣布，他希望将中国重塑为一个“开放、自信”的“可信、可爱、受人尊敬”的国家。他的话来自世界上控制力最强的政权之一，尤其是当他们从一位自 2013 年开始对他自己的人民和敢于对他的观点提出异议的局外人，残酷进行镇压的人来说。然而，他的声明意义重大，因为它表明，他的侵略性民族主义风格，在“狼战士”外交官的推动下，如何让这个国家在世界各地越来越感到孤立。不幸的是，他的话与其他显示中共统治黑暗现实的事件不谋而合。
 
-> Being told the increased pressure on China in recent days is due to a defector with intimate knowledge. In fact, Wray didn’t know right away because they wanted to make sure they got all they needed before telling him.
-> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670397473775617?ref_src=twsrc%5Etfw)
+最先传来的消息是，领导层将允许家庭生育三个孩子；认识到随着出生率下降和人口迅速老龄化，它面临着危机。然而正如国际特赦组织所说，这项最新政策仍然严重侵犯了家庭、性和生殖权利。但这是典型的镇压老人，他们认为他们应该控制公民生活的方方面面。
 
+上周还提醒我们，为什么统治中国的共产党暴徒不仅远不可爱，而且不值得尊重：1989 年天安门广场屠杀抗议者的周年纪念日。这次镇压是党的领导人拒绝大幅放松公民空间的决定性时刻，他为国家设定了未来的方向。即使是现在，我们也不知道有多少人在这场可怕的事件中丧生，尽管根据可靠消息来源，一份来自英国大使的解密外交电报声称有 10,000 多人死亡。它谈到学生被砍倒，受伤的女孩被刺刀刺伤，装甲车在尸体被冲走之前反复驶过尸体。
 
+现在，共产党的领导们甚至对大屠杀的提及都施加了限制。这就是他们对政治自由的恐惧和那些死去的抗议者的要求，我们看到北京上周对香港又进行了一次调整，以结束香港一年一度的守夜纪念活动。考虑到因参加已成为中国控制的土地上唯一一座大型屠杀纪念馆而面临 5 年监禁的威胁，那些仍然拿着蜡烛或闪烁的电话聚集在一起的少数人的勇敢需要尊重。我在那里挥舞着英国国旗的抗议活动中遇到的亚历山德拉“奶奶”黄，在独自站立时举着标有日期的标语牌时因非法集会而被捕。
 
-推文翻译：
+那么习近平对公信力的要求呢？这被疫情破坏了。从一开始，中国的应对就是掩饰和谎言，确保病毒有额外的时间传播，造成灾难性后果。官员们让武汉当地的医务人员保持沉默，试图警告市民、隐藏关键数据、关闭科学讨论、将外国调查人员拒之门外、监禁记者并散布谎言。最后，西方媒体和科学机构被一些存在利益冲突的江湖骗子催眠，或者可怜地害怕激怒一个强大的参与者，他们停止了北京的宣传，并意识到这种新病毒可能来自实验室：一年多来我一直在争论的事情应该被认真对待。然而，北京仍然猛烈抨击美国的“责任转移”，而不是允许对这场全球灾难的起源进行适当的调查。不管对这些起源的最终判决如何，国家的严厉和破坏性反应，由习近平亲自指挥粉碎了对他的政权的最轻微的信任感。我甚至还没有提到新疆穆斯林少数民族遭受的暴行，这些暴行被他的两面派的助手大声否认。
 
-被告知最近几天对中共国加大施压是由于一位深知内幕的叛逃者。事实上雷（Wray）并没有马上知道，因为他们想在告诉他之前确保他们得到了他们需要的一切。
+对一个共产主义研究小组来说，要让这个令人讨厌的独裁政权形象地改头换面，成为一种可爱、开放和受人尊敬的东西，这将需要更多的温暖话语。共产党在中国的统治在许多方面都是可怕的。事实证明，其最新的强硬派领导人对国家的声誉造成了灾难性的影响，他的铁腕统治问题既暴露又因大流行而加剧
 
-2021年6月4日 下午12:27
+参考链接：[As the leader of China’s brutal communist regime, Xi Jinping’s efforts to rebrand as ‘lovable’ are a joke](https://inews.co.uk/opinion/as-the-leaderof-chinas-brutal-communist-regime-xi-jinpings-efforts-to-rebrand-as-loveable-are-a-joke-1037854)
 
-RedState 的消息来源说这部分是真的。 他们说，联邦调查局局长克里斯托弗·雷（Christopher Wray）被这些信息“淹没”了，兰利（Langley）也不知道。消息来源称，DIA 领导层将叛逃者留在国防秘密服务部（DCS）DCS网络中，以防止兰利和国务院接触该人，因为 DIA 领导层认为 FBI、CIA 和其他几个联邦机构内部存在中共国间谍或内线消息来源。
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-推文链接：
+* * *
 
-
-
-> Also…US intelligence believes China is trying to produce variants that suggest it came from bats to cover up that it originally came from a lab. The belief is still that it escaped accidentally, but was allowed to spread.
-> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670631562076161?ref_src=twsrc%5Etfw)
-
-
-
-推文翻译：
-
-另外……美国情报部门认为，中共国正在试图制造表明它（中共病毒）是来自蝙蝠的变种，以掩盖它最初来自实验室的事实。 人们仍然相信它是意外泄漏，但被允许传播。
-
-2021年6月4日 下午12:27
-
-推文链接：
-
-
-
-> Again…what I reported tonight. US intelligence has a Chinese defector with Wuhan info. AND China is trying to produce variants that suggest it came from bats to cover up that coronavirus originally came from a lab
-> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400679023668187137?ref_src=twsrc%5Etfw)
-
-
-
-推文翻译：
-
-再说一遍……我今晚报道的。 美国情报部门有一名掌握武汉情报的中共国叛逃者。 **而且**中共国正试图生产表明它来自蝙蝠的变种，以掩盖冠状病毒（中共病毒）最初来自实验室
-
-2021 年 6 月 4 日 下午 1:01
-
-更多信息将在 RedState 得到后发布。
-
-2021年6月4日太平洋夏令时 下午 12:30 更新
-
-消息来源告诉RedState，叛逃者已经与DIA合作了三个月，他向美国官员提供了广泛的、技术上非常详细的简报。消息人士称，对叛逃者提供的信息的相信程度是突然对安东尼·福奇（Anthony Fauci）博士产生信任危机的原因，并补充说，向DIA详细介绍（中共病毒情况，译者加注）的美国陆军传染病医学研究所 (USAMRIID) 人员证实了叛逃者提供的信息的所有技术细节。
-
-（注意：几位前CIA官员质疑这篇报道的真实性或将其称为彻头彻尾的编造。我们知道这些评论并支持我们的消息来源。）
-
-原文作者：詹妮弗·范拉尔（Jennifer Van Laar）
-发布时间：美国东部时间 2021 年 6 月 4 日下午 2:23
-更新时间：太平洋夏令时2021 年 6 月 4 日下午12:30
-
-原文链接：
-[https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238)
+*排版发布：日本东京方舟农场 文柯Miles*
 
 0

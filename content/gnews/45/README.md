@@ -1,106 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读美军运输机在D-Day纪念日飞抵台湾，及安德森注销特推账号
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1304484/)
+## 独家：中共高级叛逃者对几个中共特种武器项目有直接了解
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1304601/)
 
-直播视频：
+翻译: JS709 | 校对: Nick | 审核：V
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07034540/pt_adobespark.jpeg)
+不愿透露姓名的多个情报界消息来源告诉 RedState，据信是有史以来中华人民共和国叛逃至美国的最高级别的叛逃者之一，数月以来一直在与国防情报局 (DIA) 合作。这些消息人士称，这位叛逃者直接了解中共国的特种武器计划，包括生物武器计划。
 
+提供给 RedState 的信息证实并丰富了记者亚当·豪斯利（Adam Housley）周四晚上的报道。
 
-
-《路德时评》2021年6月6日晚间节目主要内容：
-
-一、美军运输机在D-Day纪念日飞抵台湾
-
-大纪元6月6日报道[\[1\]](https://www.epochtimes.com/gb/21/6/6/n13003324.htm)：6月6日是诺曼底登陆77周年纪念日，美国参议院军事委员会的达克沃丝、苏利文和参议院外交关系委员会的库恩斯乘坐美军C-17环球霸王III专机将数十万剂疫苗运抵台湾松山机场。台湾外交部长吴钊燮和美国在台协会台北办事处处长郦英杰在机场迎接三位参议员。截至目前，中共外交部还未就美国三位参议员访台立即表态，而中共喉舌《环球时报》则刊文称，美国三名参议员搭乘美军C-17运输机访台是“精心设计”的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07021306/id13002122-20210606PHO0003l.jpg)[图片地址](https://i.epochtimes.com/assets/uploads/2021/06/id13002122-20210606PHO0003l.jpg)
-路德社评论：
-
-1、6月6日是诺曼底登陆77周年纪念日，诺曼底登陆意味着当年盟军对抗法西斯德国进入全面大反攻时期，美军此时特派价值三亿多美金的C-17环球霸王III运输机飞抵台湾颇有向中共集权政府示威的意思。
-
-2、C-17环球霸王III是美军最新型的运输机，其技术最难之处在于要具备高度灵活性，同时它在战略战术两方面都是十分优秀的军用运输机，能完成快速将部队部署到主要军事基地或者直接运送到前方基地的战略运输，必要时也可胜任第一线野战战术运输和大量空投任务。C-17强大的机动性和灵活性帮助美军大幅提高全球空运调动部队的能力，是目前世界上唯一可以同时适应战略和战术任务的运输机[\[2\]](https://zh.wikipedia.org/wiki/%E6%B3%A2%E9%9F%B3C-17%E7%8E%AF%E7%90%83%E9%9C%B8%E7%8E%8BIII)。
+推文链接：
 
 
 
-> 耳邊響起了解放軍牛逼哄哄的話語：
-> 美軍膽敢登陸台灣之時，
-> 就是我軍收復台灣之日！[pic.twitter.com/WQQUYRuF12](https://t.co/WQQUYRuF12)
-> — 子彈飛 (@hjjohnson17) [June 6, 2021](https://twitter.com/hjjohnson17/status/1401539830203305994?ref_src=twsrc%5Etfw)
+> Being told the increased pressure on China in recent days is due to a defector with intimate knowledge. In fact, Wray didn’t know right away because they wanted to make sure they got all they needed before telling him.
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670397473775617?ref_src=twsrc%5Etfw)
 
 
 
-3、C-17环球霸王III属于美国空军主力战略运输机，不但耗油大而且乘坐起来非常不舒服，这三位参议员完全可以乘坐公务飞机抵达台湾，美国政府之所以D-Day纪念日的白天飞抵台湾就是对外宣示美军正式抵达台湾，展示美军保卫台湾安全的决心。
+推文翻译：
 
-4、中共曾在媒体上放出豪言，美军踏足台湾之日就是中共武统台湾之时，现在美军机已经抵达台湾，中共却没有采取任何行动，那接下来美军肯定还会继续加码，陆续向台湾运送美军和军事武器。
+被告知最近几天对中共国加大施压是由于一位深知内幕的叛逃者。事实上雷（Wray）并没有马上知道，因为他们想在告诉他之前确保他们得到了他们需要的一切。
 
-5、中共媒体撰文批评美军机抵达台湾的行为是精心设计的，并解释说习神正在谋大局所以没有对台湾动手，还说这三位参议员仅在台机场逗留三小时又飞回韩国，可见中共吹牛的水平越来越高，嘴炮才是中共最厉害的武器，这也让西方国家看清了中共军事实力如何。
+2021年6月4日 下午12:27
 
-6、这三位参议员虽然仅在台湾机场停留三小时，但这是拜登政府安排的专程访问，他们并非半路经停台湾。几个月前，布林肯结束韩日访问返回美国途经阿拉斯加，中共特派杨洁篪和王毅追到阿拉斯加与布林肯会面，可见美国对待中共和台湾的态度截然不同。
+RedState 的消息来源说这部分是真的。 他们说，联邦调查局局长克里斯托弗·雷（Christopher Wray）被这些信息“淹没”了，兰利（Langley）也不知道。消息来源称，DIA 领导层将叛逃者留在国防秘密服务部（DCS）DCS网络中，以防止兰利和国务院接触该人，因为 DIA 领导层认为 FBI、CIA 和其他几个联邦机构内部存在中共国间谍或内线消息来源。
 
-7、美军派C-17环球霸王III运输机飞抵台湾也是为测试松山机场的硬件设施（塔台、跑道、灯光、信号传导等）。松山机场坐落于台北市，有空军指挥所，如果中共对台湾采取行动，C-17运输机能迅速向台湾投送美军指挥系统、武器或军队，还将派遣大量战机飞抵台湾，所以美军必须提前进行进行测试和演练。美军接下来肯定会往台湾运送大量战略物资，进行下一步战略部署，然后再选择夜间飞抵台湾进行飞行测试。
-
-二、安德森注销特推账号寓意为何
-
-Zerohedge新闻网6月6日报道：曾告诉福奇中共病毒可能来自人工基因改造工程的科学家安德森注销了他的推特账户。
+推文链接：
 
 
 
-> Virologist Who Told Fauci SARS-CoV-2 'Potentially Engineered' Just Nuked His Twitter Account [https://t.co/RtYHiS8Vms](https://t.co/RtYHiS8Vms)
-> — zerohedge (@zerohedge) [June 6, 2021](https://twitter.com/zerohedge/status/1401643754063339521?ref_src=twsrc%5Etfw)
+> Also…US intelligence believes China is trying to produce variants that suggest it came from bats to cover up that it originally came from a lab. The belief is still that it escaped accidentally, but was allowed to spread.
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670631562076161?ref_src=twsrc%5Etfw)
 
 
 
-路德社评论：
+推文翻译：
 
-1、Zerohedge新闻网前几天还发文希望与安德森进行谈话，没想到安德森今天就注销了他的推特账户。安德森是第一个在《Nature》杂志上发文支持病毒来自自然的病毒学家，WHO发布的病毒调查报告就是引用安德森的这篇论文来支持病毒自然来源理论，科学界和媒体也引用这篇文章批评闫博士揭露的中共病毒真相是阴谋论。
+另外……美国情报部门认为，中共国正在试图制造表明它（中共病毒）是来自蝙蝠的变种，以掩盖它最初来自实验室的事实。 人们仍然相信它是意外泄漏，但被允许传播。
 
-2、从曝光的福奇800多封邮件显示，安德森是最早跟福奇说中共病毒基因具有人工修改过的痕迹的病毒学家，福奇与安德森通完电话后，安德森就撰写并发表了这篇支持中共病毒自然来源理论的论文，之后，他获得了大笔来自NIH的科研基金。
+2021年6月4日 下午12:27
 
-3、安德森注销推特颇有一种跑路的意思，他已经感受到福奇邮件曝光后将让他不得不面对巨大的舆论压力，所以处于风口浪尖的安德森只能注销推特，选择闭门谢客。
-
-4、闫博士与章家敦先生昨日接受Newsmax电视台采访，闫博士说：“安德森在去年1月30日曾给福奇发邮件称中共病毒基因有人工改造的痕迹，安德森现在想抹去所有信息，安德森从一开始就在撒谎。”除此之外，石正丽当时还配合伪造了RaTG13假病毒，并在二月初公开发表该病毒序列，以此来宣传中共病毒来自自然。
-
-5、安德森接下来肯定要面临司法审判，他还必须要向全美国人解释他为何要有意误导科学界说病毒来自自然，虽然他删除了所有推特，但是互联网是有记忆的，所以他接下来只有选择跟警方合作才是唯一生路。
-
-6、但是，安德森狡辩说他的推特内容是自然删除（言外之意就是并非其本人删除），可见他是多么诡诈。美国调查部门若要起诉安德森，还得让推特恢复安德森删除的推特信息，推特就需要征得安德森本人同意。如果安德森拒绝恢复，那调查部门先要跟安德森就恢复推特信息打官司。安德森败诉后，他还可以起诉推特在未经本人同意的情况下擅自恢复推特信息，之后安德森还可以就推特恢复的内容的真实性再发起诉讼，如此下去，美国司法审判需要好几年才能给安德森定罪，中共这几十年也是采用这种流氓方法钻美国的法律漏洞。
-
-7、对比一下安德森在过去几年和2020年获得的科研经费，仅仅2020一年，安德森突然获得NIH/NIAID4笔经费，总计超过一千多万美金，超过他以往科研生涯的总和，为什么？
+推文链接：
 
 
 
-> 对比下安德森在过去几年和2020年获得的经费，仅仅2020一年，安德森突然获得NIH/NIAID共4笔经费，总计超过一千多万美金的资助，超过他过去职业生涯的综合，为什么？
-> Kristian Andersen suddenly got 4 grants from NIH/NIAID in 2020, more than 10 million in total, why? [pic.twitter.com/tgol6cxm15](https://t.co/tgol6cxm15)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [June 7, 2021](https://twitter.com/jsdfposjpqyuee1/status/1401713231215824897?ref_src=twsrc%5Etfw)
+> Again…what I reported tonight. US intelligence has a Chinese defector with Wuhan info. AND China is trying to produce variants that suggest it came from bats to cover up that coronavirus originally came from a lab
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400679023668187137?ref_src=twsrc%5Etfw)
 
 
 
-8、自从中共病毒疫情爆发以来，安德森在推特上发表了大量误导公众相信病毒来自自然的信息，安德森之所以说他本人的推特是自然删除，背后肯定是他的律师指导他真么做。虽然媒体曝光了福奇的八百多封邮件，但福奇的邮件远不止这些，大量重要邮件都已经被福奇删除。
+推文翻译：
 
-9、蓬佩奥接受福克斯玛丽亚采访时说，所有的中共国生物实验室（包括武毒所）都被中共军方或安全部门控制，美国一定要查清中共是否故意释放病毒。
+再说一遍……我今晚报道的。 美国情报部门有一名掌握武汉情报的中共国叛逃者。 **而且**中共国正试图生产表明它来自蝙蝠的变种，以掩盖冠状病毒（中共病毒）最初来自实验室
 
+2021 年 6 月 4 日 下午 1:01
 
+更多信息将在 RedState 得到后发布。
 
-> ⚡️蓬佩奥接受福克斯玛丽亚采访，进一步讨论病毒是否是中共的生物武器！
-> 蓬佩奥说，所有的中国生物实验室，包括武毒所都被中共和中共军方控制。蓬佩奥还说要查清是否是中共故意释放
-> 
-> 蓬佩奥以前一直都说是泄漏，现在开始讨论故意释放了！ [pic.twitter.com/WYrZt4UCVh](https://t.co/WYrZt4UCVh)
-> — 洛子峰 (@Lhotse\_luozi) [June 7, 2021](https://twitter.com/Lhotse_luozi/status/1401698937635971074?ref_src=twsrc%5Etfw)
+2021年6月4日太平洋夏令时 下午 12:30 更新
 
+消息来源告诉RedState，叛逃者已经与DIA合作了三个月，他向美国官员提供了广泛的、技术上非常详细的简报。消息人士称，对叛逃者提供的信息的相信程度是突然对安东尼·福奇（Anthony Fauci）博士产生信任危机的原因，并补充说，向DIA详细介绍（中共病毒情况，译者加注）的美国陆军传染病医学研究所 (USAMRIID) 人员证实了叛逃者提供的信息的所有技术细节。
 
+（注意：几位前CIA官员质疑这篇报道的真实性或将其称为彻头彻尾的编造。我们知道这些评论并支持我们的消息来源。）
 
-10、**路德社爆料：蓬佩奥在位时成立了国务院病毒调查小组，该小组成员中就有中共安插的病毒专家，这就是中共长期渗透美国政府的结果。所以，蓬佩奥一直被误导认为病毒来自中共实验室泄漏，中共安插的病毒专家鼓吹石正丽发现的RaTG13病毒来自云南矿洞，武毒所利用该病毒研发疫苗，因操作不慎导致病毒泄漏，以此帮中共逃避被追责**。这就是中共“十面埋伏”中的另外一招，蓬佩奥现在已经意识到这就是中共的计谋，所以他开始公开说中共病毒可能是中共故意释放。
+原文作者：詹妮弗·范拉尔（Jennifer Van Laar）
+发布时间：美国东部时间 2021 年 6 月 4 日下午 2:23
+更新时间：太平洋夏令时2021 年 6 月 4 日下午12:30
 
-11、Sellin上校也曾被中共收买的科学家误导，他当时差点相信石正丽编造的RaTG13病毒是真病毒。蓬佩奥和Sellin上校现在彻底明白中共国实验室都已经被中共军方控制，中共病毒就是中共向全世界发起的超限生物武器攻击，这所有的行动都由中共军方主导，而中共军方又接受共产党的领导，中共党党魁就是习神。现在，有关中共向全世界发起超限病毒战的脉络已经非常清晰，这就是美国日拱一族行动的结果，爆料革命所有战友还要继续行动，继续宣传病毒真相。
+原文链接：
+[https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238)
 
-[点击观看往期《路德时评》节目总结文章](点击观看往期《路德时评》节目总结文章)
-
-参考文章：
-
-[1][https://www.epochtimes.com/gb/21/6/6/n13003324.htm](https://www.epochtimes.com/gb/21/6/6/n13003324.htm)
-[2][https://zh.wikipedia.org/wiki/%E6%B3%A2%E9%9F%B3C-17%E7%8E%AF%E7%90%83%E9%9C%B8%E7%8E%8BIII](https://zh.wikipedia.org/wiki/%E6%B3%A2%E9%9F%B3C-17%E7%8E%AF%E7%90%83%E9%9C%B8%E7%8E%8BIII)
-
-文章撰写：【重生】  编辑：【香柏树】
-
-本文仅代表作者个人观点
-
-+2
+0

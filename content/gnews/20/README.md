@@ -1,37 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆台新闻】中共将数字人民币魔爪伸向养老机构
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1304722/)
+## 因口罩丑闻德国卫生部长下台的呼声越来越高
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1304812/)
 
-#### 文章撰写:【默凡】
+信息来源：德国世界报网络版
+发布时间：2021年6月07日
+翻译 /整理/ 简评： Shuizhuyu
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07045129/sZjiTBCKcu-cqP54YGPOzUtcIdZbjknWW45I.jpg)
-
-根据中共国央行官方新闻媒体的一篇报道，四川成都的泰康社区-蜀园(泰康之家·蜀园)将配合国内银行开始试点数字人民币，该社区已经安装了新的数字人民币支付设备，社区居民能够在食堂使用数字人民币支付餐费，以及在其“活动中心”进行其他交易。
-
-这篇报道还说，数字人民币作为国家法定货币，具有高度安全性，不产生任何交易费用，易于使用，支持非在线交易。它可以有效解决老年人线下交易不方便等问题。
-
-为了加速推广数字人民币，泰康社区为居民提供了关于如何更好地使用数字人民币的讲座，该社区已有近100位老年居民下载了“数字人民币”应用程序，并准备用数字人民币进行购物。
-
-中共国央行于2020年4月正式启动了数字人民币试点，成都是中共国首批参与试点的城市之一，其他城市还有深圳、苏州和雄安新区。
-
-评论：
-
-中共深知国内经济正处在崩溃的边缘，为了加紧掠夺前内老百姓财富，中共正动用国家力量加紧推广数字人民币，邪恶的中共居然将魔爪伸向养老机构，由于老年人对现代通讯设备使用不熟悉，防范意识差，并且还有贪小便宜的心理，这些导致老年人很容易被骗，所以对老年来说，现金交易是最保险的方式。中共不但不保护老年人的财富，还将魔爪伸向他们，可见中共是多么邪恶。
-
-参考文章：
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07053653/greenvalley-pictures-3X5lziR4sps-unsplash-scaled.jpg)
 
 
+口罩是要分发给无家可归者或残疾人的。 但是口罩质量低劣。 社民党领袖萨斯基亚·埃斯肯很清楚：如果指控正确，延斯·斯潘不再适合作为卫生部长。欧盟对此事的评估截然不同。
 
-> [Digital Renminbi Makes Its Debut at Aged Care Facilities in Sichuan Province](https://www.chinabankingnews.com/2021/06/07/digital-renminbi-makes-its-debut-at-aged-care-facilities-in-sichuan-province/)
+在涉嫌“劣质”病毒防护口罩的事件中，社民党领导人萨斯基亚·埃斯肯正在加大对联邦卫生部长延斯·斯潘 (CDU) 的压力。埃斯肯周一对媒体说：“如果对延斯·斯潘和联邦卫生部的指控被证明属实，那么他在他的办公室里就不再站得住脚了。斯潘的行为是不人道的，任何想向残疾人、无家可归者和护理机构分发劣质口罩以掩盖他们的失败都是不被人尊重的。
 
+简评：最近一周以来， 对卫生部长有关质量低劣口罩的事件引起了人们广泛的愤怒。 而且这批口罩的价值近10亿欧元之多。 这篇报道是对卫生部长的直接指控， 如果这个事实成立， 他可能是官位不保。 但是我想说的是， 这批口罩是从哪里来的？卫生部长在最紧急的状况下， 是能给他提供口罩他就接收的， 也没有可能检查质量。 为卫生部长辩护的声音也是有的。 罪魁祸首还是病毒， 否则也没有口罩的问题， 也没有质量问题。 这个事件的根源还是在中共， 向中共追责吧！
 
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
 
-本文仅代表作者本人观点，不代表Gnews平台
+🔗[Verhalten-von-Jens-Spahn-ist-menschenverachtend-Esken-fordert-Ruecktritt](https://www.welt.de/politik/deutschland/article231634773/Verhalten-von-Jens-Spahn-ist-menschenverachtend-Esken-fordert-Ruecktritt.html)
 
-* * *
-
-*排版发布：日本东京方舟农场 文柯Miles*
-
-0
++1

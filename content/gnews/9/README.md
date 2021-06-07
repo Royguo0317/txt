@@ -1,25 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 因口罩丑闻德国卫生部长下台的呼声越来越高
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1304812/)
+## 三孩政策：中共国的重大政策转变
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1304905/)
 
-信息来源：德国世界报网络版
-发布时间：2021年6月07日
-翻译 /整理/ 简评： Shuizhuyu
+信息来源：路透社
+发布时间：2021年5月31日
+翻译 /整理/ 简评：EternalLight
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07053653/greenvalley-pictures-3X5lziR4sps-unsplash-scaled.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07070232/fe-ngo-bvx3G7RkOts-unsplash-scaled.jpg)
 
 
-口罩是要分发给无家可归者或残疾人的。 但是口罩质量低劣。 社民党领袖萨斯基亚·埃斯肯很清楚：如果指控正确，延斯·斯潘不再适合作为卫生部长。欧盟对此事的评估截然不同。
+近日大陆政府突然推出3胎政策引发海内外舆论强烈关注， 对此路透社做了题为&lt;&lt;三胎政策: 中国放开生育限制的重大政策转变&gt;&gt;专门报导。
 
-在涉嫌“劣质”病毒防护口罩的事件中，社民党领导人萨斯基亚·埃斯肯正在加大对联邦卫生部长延斯·斯潘 (CDU) 的压力。埃斯肯周一对媒体说：“如果对延斯·斯潘和联邦卫生部的指控被证明属实，那么他在他的办公室里就不再站得住脚了。斯潘的行为是不人道的，任何想向残疾人、无家可归者和护理机构分发劣质口罩以掩盖他们的失败都是不被人尊重的。
+报道指出， 为了减少社会老龄化对经济的影响，2016中国政府宣布放开二胎政策， 但是在城市高房价和高物价的背景下， 似乎完全无法挽救快速老龄化的进程，新生人口在随后的几年甚至出现急剧的下降， 于是的短短5年时间后的今天， 中国政府又放开了3胎政策。 尽管政府宣布会出台多项配套措施支持，比如降低教育开销， 减税以及保障职业女性合法权益等， 但是各界人士仍对此颇有看法。
 
-简评：最近一周以来， 对卫生部长有关质量低劣口罩的事件引起了人们广泛的愤怒。 而且这批口罩的价值近10亿欧元之多。 这篇报道是对卫生部长的直接指控， 如果这个事实成立， 他可能是官位不保。 但是我想说的是， 这批口罩是从哪里来的？卫生部长在最紧急的状况下， 是能给他提供口罩他就接收的， 也没有可能检查质量。 为卫生部长辩护的声音也是有的。 罪魁祸首还是病毒， 否则也没有口罩的问题， 也没有质量问题。 这个事件的根源还是在中共， 向中共追责吧！
+“真正阻碍生育的不是二胎或者三胎政策， 而是当今高昂的抚养成本。 比如住房，课外培训，饮食，旅行等等， 加起来会是一笔很高的开支”  Yifei Li， 来自NYU的社会学家说
+
+”在我看来， 仅仅是放宽生育限制是没有任何意义的”Zhang Xinyu， 一位来自郑州的30岁妈妈如是说。。。
+
+与此同时，新华社微博关于三胎意愿的投票结果显示: 总共31000人投票， 高达29000人表示”不会考虑”。  于是很快投票就被迫关闭了。
+
+回到主题， 关于中国的老龄化困境已经是近几年的热门话题。 我们来看一组数据:
+
+截至2020年，日本的生育率降至历史最低，只有1.34。   而中国的生育率比日本更低， 仅为1.3，人口素质更优良的京沪大城市的生育率更跌至0.7。 远低于维持人口平衡所需的2.1。  由此可见， 如果政策上无法做出有效调整， 中国将面临比日本更加严峻的老龄化挑战。
 
 免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 发表： Shuizhuyu
 
-🔗[Verhalten-von-Jens-Spahn-ist-menschenverachtend-Esken-fordert-Ruecktritt](https://www.welt.de/politik/deutschland/article231634773/Verhalten-von-Jens-Spahn-ist-menschenverachtend-Esken-fordert-Ruecktritt.html)
+🔗[china-says-each-couple-can-have-three-children-change-policy](https://www.reuters.com/world/china/china-says-each-couple-can-have-three-children-change-policy-2021-05-31/)
 
-+1
+0
