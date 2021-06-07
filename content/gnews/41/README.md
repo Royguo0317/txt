@@ -1,33 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “自冷战结束以来，北约与俄罗斯之间的最低点”
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1304862/)
+## 美参议员访台提供疫苗支持
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1304962/)
 
-信息来源：德国世界报网络版
-发布时间：2021年6月07日
-翻译 /整理/ 简评： Shuizhuyu
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – 格格巫
+编辑：康州盘古农场 – 格格巫
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07055803/NATO-Secretary-General-Jens-Stolten.jpg)
+据《路透社》作者：[Ben Blanchard](https://www.reuters.com/authors/ben-blanchard/)，2021年6月6日报道：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07065701/2021-6-7-004.jpg)
+美国参议员塔米-达克沃斯（Tammy Duckworth）周日表示，美国将向台湾捐赠75万剂COVID-19疫苗，作为该国全球共享疫苗计划的一部分，这为该岛国抗击大流行病提供了亟需的助力。台湾正在应对国内病例的激增，但与许多地方一样受到全球疫苗短缺的影响。在台湾2350万人口中，只有约3%的人接种了疫苗，大多数人只接种了两针中的第一针。
 
+在与参议员丹-沙利文和克里斯托弗-库恩斯进行了三个小时的访问后，达克沃斯在台北市中心的松山机场说，作为美国第一批捐赠的一部分，台湾将获得75万支疫苗。她在这批人在韩国抵达后的新闻发布会上说，”对美国来说，将台湾纳入第一批接受疫苗的行列至关重要，因为我们认识到你们的迫切需要，我们重视这种伙伴关系。”她没有详细说明台湾将获得哪些疫苗或何时获得。台湾卫生部长陈时中告诉记者，他希望尽快知道他们将得到哪家公司的疫苗。
 
-资料来源：法新社
+台湾一直抱怨中共国声称这个民主统治的岛屿是它自己的，并试图阻止该岛在国际上获得疫苗，而北京方面对此予以否认。站在达克沃斯的身边，台湾外长吴钊燮感谢美国的捐赠。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07065711/2021-6-7-005.jpg)
+他说：”虽然我们正在尽最大努力进口疫苗，但我们必须克服障碍，确保这些拯救生命的药品不受来自北京的阻碍。”中共国已经向台湾提供了中共国制造的疫苗，但台北政府一再对其安全性表示担忧，而且在任何情况下都不能在不改变台湾法律的情况下进口这些疫苗，因为台湾法律禁止进口疫苗。参议员们还在机场会见了蔡英文总统，她说这些疫苗，以及日本上周捐赠的疫苗，将对他们对抗病毒有很大帮助。
 
-北约秘书长延斯斯托尔滕贝格要求北约和俄罗斯迫切需要再次对话。对莫斯科的相应邀请已经一年多了。对话未促成的主要是因为一个有争议的话题。
+美国参议员和国会议员在正常情况下经常访问台湾，但在台湾的边界基本上不对游客开放的情况下，在台湾的感染率上升的时候来到台湾，是一种强烈的支持。不寻常的是，他们还乘坐美国空军的C-17环球霸王III型货机，而不是像一般美国高级访客那样乘坐私人飞机抵达。
 
-在布鲁塞尔北约峰会前一周，北约秘书长延斯·斯托尔滕贝格呼吁俄罗斯会晤。所谓的北约-俄罗斯理事会（NRR）已经有 19 个月没有开会了。 “一年多前，我们邀请俄罗斯政府参加新的会议，但没有得到肯定的答复，”斯托尔滕贝格世界报说。
+台湾的疫苗到货速度一直在加快。日本周五向台湾免费提供了124万剂阿斯利康公司（AZN.L）的冠状病毒疫苗，使该岛迄今收到的疫苗数量增加了一倍多。
 
-“现在球在俄罗斯这边。我想再次邀请俄罗斯尽快参加北约-俄罗斯理事会的会议。我们有很多要讨论的内容，这符合北约和俄罗斯的共同利益，”前挪威首相补充说。
-
-“北约和俄罗斯之间的关系现在已经到了冷战结束以来我们从未见过的低点。对话是解决紧张局势的最佳方式。”北约-俄罗斯理事会是解决这一问题的适当形式。 “双方坐在同一张桌子上，”斯托尔滕贝格说。
-
-简评：美国和俄罗斯的外长已经进行过对话， 6月中旬拜登访问欧洲也很有可能会会见普京。 但是俄罗斯和北约的对话不能成功， 我个人的观点是和白俄罗斯的事件有关。 之前是乌克拉危机等等。 终归俄罗斯与北约欧洲的地理位置比较敏感。 还有俄罗斯与白俄罗斯的友好是对欧盟的较大的威胁， 是欧洲的价值观不能容忍的。 俄罗斯和北约的对话， 是否成功， 北约已经扔出了橄榄枝， 就看俄罗斯的表现了。
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
-
-🔗[Stoltenberg-Beziehungen-zwischen-Nato-und-Russland-haben-Tiefpunkt-erreicht](https://www.welt.de/politik/ausland/article231626487/Stoltenberg-Beziehungen-zwischen-Nato-und-Russland-haben-Tiefpunkt-erreicht.html)
-
-
+原文连接：[https://www.reuters.com/world/asia-pacific/three-us-senators-arrive-taiwan-meet-president-2021-06-05/?taid=60bc1262693b6200016d68cd&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/asia-pacific/three-us-senators-arrive-taiwan-meet-president-2021-06-05/?taid=60bc1262693b6200016d68cd&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
 0

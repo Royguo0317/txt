@@ -1,25 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评简讯（视频版）:中共继续抹黑美情报部门窃听不合法(2021.6.5早间路德社简讯之路安墨谈)
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1305268/)
+## 献礼新中国联邦《迷失的光》
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1305412/)
 
-《路德社》出品
+作词 EDDY 欲逃脱的鸟
 
-以下视频是详细内容：
+作曲 小基快跑
 
-內容摘要：
+剪辑：EDDY WOODY
 
-一、新华社长联系普京及俄防长说新武器改变世界平衡
+检查/上传：河童男孩
 
-二、中共继续抹黑美情报部门窃听不合法
-
-
-
-制作：路德社简讯视频组
-
-审核校对：玫瑰新闻组
-
-上传排版：玫瑰新闻组
+**Himalaya Moscow Katyusha（RU）**
 
 0
