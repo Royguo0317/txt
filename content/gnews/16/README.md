@@ -1,43 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大象快讯】认为Covid-19是人工改造却发表自然起源论的安德森删除了推特账号——这中间有什么故事？
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1303531/)
+## 成就孩子也成全自己——关于《园丁与木匠》
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1303751/)
 
-一位加利福尼亚病毒学家Andersen，被邮件曝光告诉安东尼·福奇 COVID-19 看起来“可能经过改造”并且“与进化论的预期不一致”，但是后来改变方向并在 8 周后发表了一篇“自然起源”的论文（在收到数百万美元的NIH grant)已删除 5,000 多条推文。现在2021年6月6日晚，他的推特账户已经注销。
+作者：兴国|校对：仙女儿-文善|审核：Beicy-数学老师|Page：小雨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06185957/Picture1-12.png)
+[!\[\]()!\[\](https://spark.adobe.com/page/asH4La64C74A6/images/ed30ab85-6c51-43ae-9198-60e709cb9565.jpg?asset_id=bb26e3c5-9d49-48ce-85df-d34388bddaf5&amp;img_etag=%2257d41323bb9413f4818c57bcc5b12f88%22&amp;size=2560)](https://spark.adobe.com/page/asH4La64C74A6/images/ed30ab85-6c51-43ae-9198-60e709cb9565.jpg?asset_id=bb26e3c5-9d49-48ce-85df-d34388bddaf5&amp;img_etag=%2257d41323bb9413f4818c57bcc5b12f88%22&amp;size=1024)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190123/2-8.png)
+色彩纷呈的育儿专栏，林林总总的育儿指南，常常彼此矛盾，让家长无从选择又容易产生焦虑。
 
-在加利福尼亚州拉霍亚经营安徒生实验室的克里斯蒂安 G. 安德森在 2 月 1 日给福奇的电子邮件中写道：“病毒的异常特征构成了基因组的一小部分，不到 0.1%，因此必须仔细观察所有序列，看看某些特征（可能）看起来是经过改造的，”他补充说，他和他的团队发现“基因组与进化理论的预期不一致”。下面的图片是邮件原文：
+作为家长或准家长，多了解各种经历时间检验的经典书籍或在专业领域获得认可的科学权威观点，像营养一样，慢慢吸收，逐渐扩大自己的视野，培养自己的认知体系，潜意识里建立相应的体系原则（“道”），这样针对每个不同的孩子，会更容易找到不同的解决和应对方法（“术”）。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190240/3-6.png)
+今天开始我们一起学习一本有关如何做家长的书—《园丁与木匠》（The Gardener and the Carpenter: What the New Science of Child Development Tells Us About the Relationship Between Parents and Children），作者是加州大学伯克利分校的发展心理学家艾莉森•高普尼克（Alison Gopnik）。
 
-当时，安德森正在回应福奇发给他的一篇探索病毒起源的文章。第二天，福奇给他的副手休·奥金克洛斯发了一封紧急电子邮件，主题是“重要的”，写着“休，我们必须在上午通话，保持手机开机。……阅读这篇论文以及阅读这篇文章，文章在我将转发的电子邮件里。您今天将有必须完成的任务。”所附文件的标题是“Baric, Shi, et al – Nature Medicine – SARS gain of function.pdf”。
+[!\[\]()!\[\](https://spark.adobe.com/page/asH4La64C74A6/images/18d97c17-a973-485a-9f2c-27d3833867ff.jpg?asset_id=c2afec38-2eb1-44f6-a100-657467c6b369&amp;img_etag=%220ddc3805eeb57c71e82f8e6b14cd00be%22&amp;size=3834)](https://spark.adobe.com/page/asH4La64C74A6/images/18d97c17-a973-485a-9f2c-27d3833867ff.jpg?asset_id=c2afec38-2eb1-44f6-a100-657467c6b369&amp;img_etag=%220ddc3805eeb57c71e82f8e6b14cd00be%22&amp;size=1024)
 
-因此，在福奇一位值得信赖的科学顾问建议 COVID-19 可能是人造的（而福奇及其同事公开驳斥这种可能性是阴谋论）之后，他立即拍摄了一篇关于获得功能研究的研究论文——福奇正在资助该论文。而现在安德森已经删除了他一半以上的推文。
+事实上，即使不是家长，这本书也可能有助于我们每个人更深入地理解“人”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190412/4-4.png)
+除了一些特例，我们都知道家长对孩子的影响非常重要，高普尼克（Gopnik）从科学角度归纳为以下几点：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190556/5-3.png)
+**一．提供遗传基因。**智力的因素可以遗传。有研究表明，哪怕一个父亲生下孩子之后完全不再有接触，这个孩子的智商和父亲的收入水平之间都有一个正相关。
 
-安德森声称他的旧推文是“自动删除”的，这意味着一个滚动的、自动化的过程。而不是在 2021 年 3 月 7 日之前突然消失的5,000 多条推文。被删除的推文发布之际，正值互联网侦探开始揭开安德森与福奇和 NIH 的关系的时候。
+**二．提供家庭环境**。中国几乎所有家长都重视子女教育，而美国的情况则是明显的阶级分化：中产阶级家长非常重视孩子教育，他们孩子的学习成绩，包括将来的成就，都比贫困家庭的孩子好很多。
 
-零对冲在推特上直接问候了亲爱的克里斯蒂安安徒生，“你为什么删除你的推特账号？”。
+事实上，稳定温暖的家庭环境，问题能得到家长的及时回答，有条件去博物馆，有条件学习各种课程，有条件参加各种活动，潜移默化就知道怎么跟大人、陌生人、有权威的人打交道，这些肯定能让孩子受益终身。但这些事情只要是有一定条件、有一定责任心的家庭都能做到，并不需要育儿指南。
 
-“是因为关于为什么新冠病毒看起来“与进化论的预期不一致”或为什么“某些功能看起来是经过设计的”的所有问题”。
+**三. 科学研究表明，具体的操作方法根本不重要。**
 
-参考链接：
+作为父母，你是什么人，比你对孩子做什么重要得多。但作为父母，我们总不可能什么都不做，只是放纵孩子野蛮生长吧？那到底应该对孩子做什么，怎么做呢？这就是我们为什么要学习《园丁与木匠》这本书。
 
-[https://www.zerohedge.com/political/virologist-who-told-fauci-sars-cov-2-potentially-engineered-just-deleted-5000-tweets](https://www.zerohedge.com/political/virologist-who-told-fauci-sars-cov-2-potentially-engineered-just-deleted-5000-tweets)
+《园丁与木匠》出版于2016年，中国读者可能相对较少，而这本书又是关于儿童发展和亲子关系的一个里程碑级科学研究，非常值得我们学习和了解。这本书从“儿童心理发展科学家角度”来讲育儿而不是育儿指南，它告知我们最新科学结果，人生的哲学，以及童年对人生甚至整个人类的价值。
 
-图片来源：[https://www.zerohedge.com/](https://www.zerohedge.com/)
+我们要想获得具体解决育儿过程中，生活中各种问题的“术”，还需先理解“道”。想要知道怎么对待孩子，要先知道童年的作用。想要帮助孩子学习和成长，就要明白儿童学习的脑科学原理。
 
-整理撰稿：蓝精灵
+高普尼克（Gopnik）对儿童发展心理学，特别是儿童怎样学习、怎样探索的研究很深入，她曾出版过另一本书叫《宝宝也是哲学家》（有中文版），同时作为一位有三个优秀的已成年孩子的母亲，见证和经历了育儿过程中的许多问题。
 
-校对发布：Penny
+儿童成长方面的事情如果可以在当今选一位权威专家来问，非高普尼克莫属。高普尼克已年过六十，当年作为一位忙碌的科学家没有多少时间管孩子，可是她的三个儿子都非常出类拔萃。升级为奶奶的高普尼克，作为儿童发展心理科学家，她以科学家和奶奶的身份更加从容地观察孙子，近距离高频率地验证和反思，结合自己多年的科学研究，为我们呈上这本书。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+从下一期开始，我们一起来学习了解吧。相信我们每位成人也会从中发现自己的一些性格特征、能力特征或问题的原因，从而更好地接纳现在的自己，调整自己，发挥自己，收获更好的今天和明天。
 
-+1
+*资料来源：*
+
+1. 《The Gardener and the Carpenter》—Alison gopnik
+2. 《解读园丁与木匠》—万Sir
+
+
+***文章仅代表作者个人观点***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/asH4La64C74A6/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/asH4La64C74A6/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
+0

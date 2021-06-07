@@ -1,35 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七国集团计划宣布数字货币国际新规
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1303429/)
+## 【大象快讯】认为Covid-19是人工改造却发表自然起源论的安德森删除了推特账号——这中间有什么故事？
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1303531/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+一位加利福尼亚病毒学家Andersen，被邮件曝光告诉安东尼·福奇 COVID-19 看起来“可能经过改造”并且“与进化论的预期不一致”，但是后来改变方向并在 8 周后发表了一篇“自然起源”的论文（在收到数百万美元的NIH grant)已删除 5,000 多条推文。现在2021年6月6日晚，他的推特账户已经注销。
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06165010/G.jpg)ledgerinsights.com
-日经新闻6月5日报道，七国集团(Group of Seven)主要经济体的金融主管们将讨论央行发行的数字货币的规则，希望将中共国的数字人民币纳入国际监管框架。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06185957/Picture1-12.png)
 
-七国集团财长6月4日在伦敦召开了为期两天的会议，将解决国家发行的数字货币可能引发的问题，目标是最早在今年秋天宣布新规则。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190123/2-8.png)
 
-中共国积极推动发行数字人民币，引发了人们的担忧，担心此举可能会催生一个以参与“一带一路”基础设施倡议的国家为中心的新经济区。这样的框架可能会破坏当前以美元为基础的货币体系。
+在加利福尼亚州拉霍亚经营安徒生实验室的克里斯蒂安 G. 安德森在 2 月 1 日给福奇的电子邮件中写道：“病毒的异常特征构成了基因组的一小部分，不到 0.1%，因此必须仔细观察所有序列，看看某些特征（可能）看起来是经过改造的，”他补充说，他和他的团队发现“基因组与进化理论的预期不一致”。下面的图片是邮件原文：
 
-作为大规模试点项目的一部分，中共国于去年10月发行了国家货币的数字版本。政府计划在明年年底正式让比特币进入流通。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190240/3-6.png)
 
-如果这样一个数字人民币经济区成为一个强大的存在，西方的制裁，比如阻止以美元或其他关键货币进行的交易，将变得毫无作用。而这是对违反国际规则的国家的典型惩罚工具。
+当时，安德森正在回应福奇发给他的一篇探索病毒起源的文章。第二天，福奇给他的副手休·奥金克洛斯发了一封紧急电子邮件，主题是“重要的”，写着“休，我们必须在上午通话，保持手机开机。……阅读这篇论文以及阅读这篇文章，文章在我将转发的电子邮件里。您今天将有必须完成的任务。”所附文件的标题是“Baric, Shi, et al – Nature Medicine – SARS gain of function.pdf”。
 
-此外，中共国政府将获得数字元的交易数据。这不仅会侵犯数据隐私，还可能被用作压制言论和排挤政治对手的工具。
+因此，在福奇一位值得信赖的科学顾问建议 COVID-19 可能是人造的（而福奇及其同事公开驳斥这种可能性是阴谋论）之后，他立即拍摄了一篇关于获得功能研究的研究论文——福奇正在资助该论文。而现在安德森已经删除了他一半以上的推文。
 
-在去年10月的会议上，七国集团的财政部长和央行行长发表了一份联合声明，呼吁提高此类货币的透明度和法治。西方国家和日本的七家央行与国际清算银行(Bank for International Settlements)成立了一个联合研究小组，概述了央行数字货币的基本原则。会议提出“央行不应”通过发行数字货币来“损害货币或金融稳定”。七国集团将在伦敦会议期间进一步阐述这些原则。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190412/4-4.png)
 
-发达国家央行也在为自己的数字货币制定具体计划。日本央行(Bank of Japan)今年4月推出了一项使用数字货币进行交易的试点计划。欧洲央行(ECB)可能会在未来几个月决定是否推出自己的测试计划。上个月，美国联邦储备委员会(Federal Reserve，简称美联储)表示，将在今年夏天发布一份关于发行数字货币的研究报告。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190556/5-3.png)
 
-这是自2020年2月在沙特阿拉伯举行的20国集团(G20)财长会议以来，七国集团首次举行面对面的财长会议。
+安德森声称他的旧推文是“自动删除”的，这意味着一个滚动的、自动化的过程。而不是在 2021 年 3 月 7 日之前突然消失的5,000 多条推文。被删除的推文发布之际，正值互联网侦探开始揭开安德森与福奇和 NIH 的关系的时候。
 
-数字货币已经成为新的经济主导模式，喜马拉雅币走在了时代的前沿。唯一与黄金挂钩的数字货币必然开创历史先河，喜马拉雅币未来可期。
+零对冲在推特上直接问候了亲爱的克里斯蒂安安徒生，“你为什么删除你的推特账号？”。
+
+“是因为关于为什么新冠病毒看起来“与进化论的预期不一致”或为什么“某些功能看起来是经过设计的”的所有问题”。
 
 参考链接：
 
-[https://asia.nikkei.com/Spotlight/Cryptocurrencies/China-s-bid-for-digital-yuan-sphere-raises-red-flags-at-G-7](https://asia.nikkei.com/Spotlight/Cryptocurrencies/China-s-bid-for-digital-yuan-sphere-raises-red-flags-at-G-7)
+[https://www.zerohedge.com/political/virologist-who-told-fauci-sars-cov-2-potentially-engineered-just-deleted-5000-tweets](https://www.zerohedge.com/political/virologist-who-told-fauci-sars-cov-2-potentially-engineered-just-deleted-5000-tweets)
 
-0
+图片来源：[https://www.zerohedge.com/](https://www.zerohedge.com/)
+
+整理撰稿：蓝精灵
+
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
+
++1
