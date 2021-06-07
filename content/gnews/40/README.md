@@ -1,54 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【诗歌】午後的海灣
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1303414/)
+## 底层互害模式升级
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1303649/)
 
-![](https://lh5.googleusercontent.com/PiAf5ppPDA3ZlrxWBqs7iVAeIDl6EJ77OQx4ePL3IvgMp73duYKpzKEe1fyOAIJEJDjdyCMBQrs7uNttXoBUhfNaPDh4-kgiFiHcYUO2j4Bk2yJDIspJoT3Zlgh2TBuDc4xECkjI)
+#### 撰稿：煦/ 信息采集：杰森  煦
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06192744/16230219241.png)
+6月5日，安徽省安庆市一名男子当街持刀伤人。
 
-作者：盐门
+近日，多起恶性报复性伤人案件集中出现在中国，引发当地民众关注。在短短半个月时间内，整理出来的4起恶性伤人案件，就共计造成11人死亡，30人不同程度的受伤。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06194033/image-122.png)
+从表格中可以清楚地看到，行凶者都是年富力强的青壮年男性，他们在精力最旺盛的年纪，却大多数是无业，都选择了用无差别泄愤的形式，把自己的怒气撒到无辜的人身上，其中甚至包括还在上学的学生。
 
+尽管官方通报的行凶原因不一，但没有工作甚至投资失败对他们所造成的经济上的影响却不容忽视。高物价、高房价使得人的神经变得脆弱，让人暴躁易怒。
 
-```
-云端的红地毯聚光灯 
-  已渐远渐淡的留在昨天
-  黑白竪条的衬衫配一根领带 
-  我尽量简单地搭配让自己出彩.
-  為礼貌地迎接你们的到来
+根据2021年联合国发布的一年一度的《世界幸福指数报告》显示，中国在全球被调查的149个国家中排在第85名，尽管在宣传稿上宣称是比2019年度上升了10名，但相对比2017年度调查中第79名来说，下降了6名。
 
-  轻轻地握手长久的拥抱 
-  冰水之后谁点了滚烫的红茶 
-  是谁总是结束前偷偷买单？ 
-  华盛顿港的船儿挤满海面
-  起伏的心潮涨满海湾
+在中共统治下的中国，底层民众幸福感极低。真是逃得过中共放的ccp病毒，也可能逃不过这种底层互害，这种恶性循环像水波一样一层一层蔓延开来。雪崩的时候，没有一片雪花是无辜的。唯有早日清除掉善于转嫁矛盾、甚至挑拨互害的ccp统治家族，才可能从本质上解决问题。
 
-  熟悉的微笑悦耳的中音 
-  第二次握手坦诚的倾诉  
-  君子情款款地流出心扉 
-  落地窗前的笑声有血浓於水 
-  狂喜的驻军丢下了全部的装备
+（本文仅代表作者个人观点）
 
-  我不羞愧激动的时刻在你们对面 
-  镜片的背后有水晶的项链散落满地 
-  聆听中你也并不讶异眼前 
-  不自觉伸过来的手中有纸巾
-  传递心的交融胜过所有的语言
+#### 相关新闻：
 
-  过去的必将远去很快翻篇 
-  没有让地球变得不平的白酒 
-  没见到谁的桌上放过雪茄烟 
-  我们的故事踩下油门加速向前 
-  随著七哥一起走进明年明天      
+[安庆市迎江区“6.5”伤人案件处置情况通报](https://weibo.com/2874978364/KiUv6qGpJ)
 
+[披露现场多处细节！南京召开新闻发布会通报男子驾车撞人并持刀捅人案详情](http://www.xhby.net/nj/yw/202105/t20210530_7105798.shtml)
 
-(以上文字仅代表个人观点）
-```
+[最新进展：大连宝马撞人逃逸致五死，因投资失败报复社会](https://ishare.ifeng.com/c/s/v002YpuEhCZ-_4SVSUZ--2cckOxznQDBdijWN5PrJOuXo4mJw)
 
+[2021最幸福国家排名出炉](https://www.163.com/dy/article/G5NROGL70544ATDU.html)
 
-
-![This image has an empty alt attribute; its file name is 0849747B-14C1-4FAB-A6EB-F1E2BF0D75D2.jpeg]()![This image has an empty alt attribute; its file name is 0849747B-14C1-4FAB-A6EB-F1E2BF0D75D2.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04063623/0849747B-14C1-4FAB-A6EB-F1E2BF0D75D2.jpeg)
-
-
-
-
-+1
+0

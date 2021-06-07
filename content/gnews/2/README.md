@@ -1,27 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大象快讯】Oceana 组织报告说430多艘中国船只涉嫌在阿根廷水域非法捕鱼
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1304179/)
+## 【世事解评】尽管城市已经重新开放，但曼哈顿的办公楼空置率仍在继续飙升
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1304254/)
 
-大象：不遵守国际海域规则，在其他国家进行捕捞，这种事情已经发生很久了。但是要注意的是和在福建沿海，南海的中共国的渔船一样，很有可能是一些伪装成渔船的军用船只，中共部队和政府给与这些渔民以补贴，然后让他们去做一些其它的事情，比方刺探情报，挑衅邻国海域等等。如果被发现，他们就会是民用，如果不被发现，他们就继续进行一些军事活动。尤其是在病毒武器化的非常时期，渔船做施放病毒炸弹的事情就显得非常简单了。
+纽约香草山农场     四季
 
-Oceana 组织最近的一项分析发现，在过去三年中，数百艘船只（其中大多数是中国人）在阿根廷水域附近隐藏了他们的活动，并有可能在利润丰厚的地区从事非法捕鱼活动。据报道，在阿根廷附近捕鱼的外国船只中有一半以上关闭了跟踪系统，以隐藏其活动。Oceana 表示，对这些事件负责的船队中有 66% 属于中国。 Oceana 集团的报告称，2018 年 1 月至 2021 年 4 月期间，约有 800 艘船只（其中一半以上来自中国）通过自动识别系统 (AIS) 在阿根廷水域 20 海里范围内被记录了近 900,000 小时的可见捕鱼活动。在超过 6,200 次“间隙事件”中，当它们的 AIS 关闭至少 24 小时，其中一半以上的船只“变黑”。Oceana 的报告发现，阿根廷水域近 70% 的可见捕鱼活动是由 430 多艘悬挂中国大陆国旗的船只负责的。 Oceana 负责美国活动的副总裁 Beth Lowell 说：“在钓鱼时，你不应该隐藏在海洋中的位置。如果他们在做合法的事情，为什么要关闭它？他们应该保持他们的 AIS 开启，这样世界才能看到正在发生的事情”。他补充说：“在阿根廷国家水域边缘消失的船只可能是非法掠夺其水域”。
+零对冲6月4日的报道，自病毒大流行开始一年多以后，纽约市的经济正轰轰烈烈地重新开放。但是，办公楼市场仍然处于困境。据高力公司（Colliers）的商业房地产经纪报告，即使租约增加，曼哈顿的办公空间供应仍在不断创下新的记录。
 
-《南华早报》报道称，中国船只在阿根廷、厄瓜多尔等南美国家海域集结，庞大的中国船队和非法捕鱼事件招致批评和触犯法律。Oceana 还发现，在阿根廷附近捕鱼的中国船只中有 173 艘（约 40%）在 AIS 关闭后的一个月内进行了转运。此外，除中国船只外，西班牙、韩国和台湾船只约占可见活动的26%，而阿根廷船只进行的捕捞活动不到1%。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06233604/Picture1-18.jpg)
 
-参考链接：
+写字楼5月份的供应率连续第12个月上升到17%，自大流行病开始以来，空置率猛增70%，达到惊人的9200万平方英尺。高力公司表示，转租占总供应量的23%，是去年7月以来的最低值，转租的库存空间比大流行病开始以来多了75%
 
-[https://www.republicworld.com/world-news/china/over-430-chinese-boats-suspected-of-illegal-fishing-in-argentinian-waters-report.html](https://www.republicworld.com/world-news/china/over-430-chinese-boats-suspected-of-illegal-fishing-in-argentinian-waters-report.html)
+虽然需求正在恢复，但是由于在家工作的热潮成为“新常态”，曼哈顿的写字楼的供应过剩可能是一个长期的趋势。这对租金构成压力，最终迫使建筑运营商陷入财务困境。
 
-图片来源：[https://www.republicworld.com/](https://www.republicworld.com/)
+根据卡斯尔系统（Kastle Systems）的数据，截至5月下旬，大都会地区约只有18%的办公人员返回工作岗位。摩根大通、高盛和脸书是一些准备在未来几个月让员工返回办公室的公司。但根据卡斯尔系统针对全美国重返工作岗位的数据显示，人员重返办公室的速度非常缓慢。
 
-新闻采编：康州盘古农场新闻组
+曼哈顿空置的摩天大楼不仅仅是办公楼。随着人们成群结队地逃离这个自由的城市，前往郊区，住宅库存也在激增。
 
-整理撰稿：蓝精灵
+中共病毒肆虐全球以来对经济的打击和对人类生活方式的改变是惊人的。昔日自由繁荣的城市正在被摧毁，令人唏嘘。进入6月，以毒灭共已是大势所趋。全人类都应该行动起来，揭露病毒真相，向中共追责，结束这一人类灾难。
 
-校对发布：Penny
+发稿：奇门遁甲
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+原文链接：[https://www.zerohedge.com/markets/manhattan-office-supply-continues-soar-even-city-reopens](https://www.zerohedge.com/markets/manhattan-office-supply-continues-soar-even-city-reopens)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
 
 0

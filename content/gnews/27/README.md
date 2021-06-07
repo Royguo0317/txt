@@ -1,47 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政府和五角大楼向资助中共病毒研究的生态健康联盟拨款1.62亿美元
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1303820/)
+## 【鹰眼墙国】医疗开支负担加剧，陪诊服务再难“火爆”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1303887/)
 
-**作者：**Jim Hoft 2021-06-05
+香草山写作组 鹰(文言)
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06211026/35746.png)图片来源：Jim Hoft原文
-据英国《每日邮报》周五晚间报道，五角大楼向生态健康联盟投入了近3900万美元，该联盟由饱受争议的研究人员彼得·达扎克博士领导。
 
-正如《The Gateway Pundit》5月份报道的那样，德文·努内斯指控彼得·达扎克博士和生态健康联盟从联邦机构拿走了大约1亿美元。
 
-本周早些时候，我们发现达扎克博士在2020年的一封电子邮件中感谢托尼·福奇博士，当他们两人都知道中共冠状病毒是其研究经费资助的产物时，仍坚持说它是自然发生的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
 
-特朗普总统于2020年4月削减了对生态健康联盟的资助，该联盟与武汉病毒学研究所的功能增强测试有关。
 
-当时主流媒体的假新闻称这是特朗普的阴谋论，但是他们又错了。
 
-《每日邮报》报道：
+澎湃网6月5日转载健康时报消息，近日无门槛限制的“医院陪诊”再度进入公众视野。
 
-联邦数据显示，五角大楼向一家慈善机构提供了3900万美元，该慈善机构资助了中共国实验室有争议的冠状病毒研究，该实验室被指控为中共冠状病毒的来源。
+“医院陪诊”主要服务与异地就医和老年人群体，服务包括挂号、缴费、检查、取结果等，根据不同地区医疗发展水平收费标准介于100-600元/天。陪诊服务最早2006年在江苏扬州被推出。当时是由公司聘请医疗专家陪同病人就诊，借用陪护专家的专业知识引导病人砍掉不合理的“多余”检查项目，以达到降低病人就医费的目的。陪诊服务费为20元基本费+每项5元诊断费以及最终药费的10%，每名病人需支付的全程陪诊费用平均50-60元。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06205047/Screen-Shot-2021-06-06-at-8.42.46-PM.png)
+参考《我国卫生和计划生育事业发展统计公报》2006年的数据，综合医院门诊人均医疗费用128.7元。2006年的陪诊服务收费约为次均门诊费用的一半。澎湃网例子中的西安地区的医院陪诊，收费标准也升至200元半天和300元全天。对比2020年前11个月国内三级公立医院次均门诊费用为373.6元，二级公立医院对应为235.0元，以上的陪诊服务费用近乎等同于病人的门诊费用。
 
-这一消息传出之际，该慈善机构的负责人、英国出生的科学家彼得·达扎克博士（Peter Daszak）遭到曝光，其在一场据称是利益冲突和幕后运动中，诋毁实验室泄漏理论。
+2015年陪诊市场就已悄然兴起：e陪诊获得1000万元融资；贴心小护士2016年获得500万融资……但上述公司现均已销声匿迹。2006年陪诊服务是为了针对国内就医乱开药、抽提成等乱象，而在中共推行减药品价格等医疗改革后，上述“矛盾”已从高药价转变为高医疗服务费上。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06213355/Screen-Shot-2021-06-06-at-8.42.43-PM.png)
+在中共大兴医疗产业圈钱的当下，就医开支逐年上涨，巨额的医疗费已经成为每个就医者的“心病”，“病不起”已成为社会现状。就诊服务虽可以提供顺畅的就医环节，但翻倍的就医“开支”仍会让大量的病人“知难而退”。“医院陪诊”的最终结果只是人均次医疗费用的提升。在如今中共加大敛夺民财的力度，民众收支不平衡加剧的社会现状下，高收费的“医院陪诊”也再难获得广泛认同感。
 
-慈善组织生态健康联盟（EHA）在它被发现一直在利用联邦拨款资助中共国武汉病毒学研究所的中共冠状病毒的研究之后，受到了严密的审查。
+新闻来源：
 
-这家美国非盈利组织是为了研究新疾病而成立，也部分资助了备受争议的”功能增强”实验，在实验中，危险的病毒被人工变得更具传染性，以研究它们对人体细胞的影响。
+医院陪诊职业走红：无门槛限制，主要服务老人和异地就医者https://www.thepaper.cn/newsDetail\_forward\_13008468
 
-去年，前总统唐纳德·特朗普取消了对该慈善机构的370万美元捐款引发了一场政治风暴，原因是有人声称，中共冠状病毒是在EHA资助的武汉实验室创建的，或从该实验室泄露的。
+女孩医院当“陪诊”，一次轻松赚取300元，女孩：有需求就有市场https://new.qq.com/omn/20210531/20210531A067LA00.html
 
-但独立调查研究人员收集的联邦赠款数据显示，该慈善机构从政府（从2017年至2020年）已收到超过1.23亿美元，其最大的资助者之一是美国国防部，自2013年以来向该组织注入了近3900万美元。
+面对商机：陪诊服务成为专业监督还是违法经营http://health.enorth.com.cn/system/2006/09/15/001411728.shtml
 
-**评：**几十年来美国对中共的豢养和纵容壮大了这个魔鬼，造成中国老百姓一直在忍受中共残暴统治，血泪斑斑，美国难辞其咎。多年以来中共对美国政府，军方，医疗权威部门的渗透非常深入，这些部门中许多人为了个人的私利甘当中共的走狗，成为背叛美国国家利益的叛美贼。多年来彼得·达扎克博士充当了这些叛美贼与中共勾结的中间人，他成立所谓的慈善机构接收这些叛美贼们输送的来自美国纳税人的金钱，转手资助中共发展超限生化武器，中共释放中共病毒到全世界造成全球大流行，迄今为止导致全球1.73亿人被中共病毒感染，其中死亡人数超过370万[1]。善良无辜的中国老百姓成为中共病毒的最大受害者，据文贵先生爆料称，国内已经导致数百万人国人死亡，被感染的国人难以计数，然而由于中共的严控信息，真实的数字只多不少；美国成为第二大受害国，迄今为止感染人数超过3300万，其中死亡人数接近60万[1]，美国建国以来第一次受到来自外部的攻击而损失惨重。然而中共病毒继续在肆虐全球，中共随时可能会释放更加致命的病毒，美国从来没有面临如此大的危机，这些事实说明美国的制度和立国的根基已经受到严重破坏。美国仍然是全球唯一有能力对抗并最终击败邪恶中共统治全世界的阴谋的国家，然而美国需要立即采取行动，对内清除这些叛美贼，对外开始采取实际行动压迫进攻中共，最终造成中共从内部开始分崩离析，并与真正代表中国老百姓民意的正义力量合作接管中共政权，最终达到一个稳定的中国，这对于中国和全世界都将是一个福音。
+国家卫健委：公立医院诊疗人次下滑13%！http://news.pharmnet.com.cn/news/2021/03/05/551766.html
 
-##### **原文：**Jim Hoft, “Govt And Pentagon Funneled $162M To EcoHealth Alliance, The Group That Funded Coronavirus Research In Wuhan”.《Human Are Free》, June 05, 2021.** **[https://humansarefree.com/2021/06/govt-and-pentagon-funneled-162m-to-ecohealth-alliance-the-group-that-funded-coronavirus-research-in-wuhan.html](https://humansarefree.com/2021/06/govt-and-pentagon-funneled-162m-to-ecohealth-alliance-the-group-that-funded-coronavirus-research-in-wuhan.html)
+![This image has an empty alt attribute; its file name is 6_june.jpg]()![This image has an empty alt attribute; its file name is 6_june.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
 
-#####  [1] COVID-19 DASHBOARD by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU). June 06, 2021. [https://coronavirus.jhu.edu/map.html](https://coronavirus.jhu.edu/map.html)
+编辑/校对/发稿：正义的小新
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+**更多资讯，更多关注**
 
-编辑/发布：比卡丘
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-20210606
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01083510/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
 0

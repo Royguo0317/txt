@@ -1,43 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大象快讯】认为Covid-19是人工改造却发表自然起源论的安德森删除了推特账号——这中间有什么故事？
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1303531/)
+## 【诗歌】午後的海灣
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1303414/)
 
-一位加利福尼亚病毒学家Andersen，被邮件曝光告诉安东尼·福奇 COVID-19 看起来“可能经过改造”并且“与进化论的预期不一致”，但是后来改变方向并在 8 周后发表了一篇“自然起源”的论文（在收到数百万美元的NIH grant)已删除 5,000 多条推文。现在2021年6月6日晚，他的推特账户已经注销。
+![](https://lh5.googleusercontent.com/PiAf5ppPDA3ZlrxWBqs7iVAeIDl6EJ77OQx4ePL3IvgMp73duYKpzKEe1fyOAIJEJDjdyCMBQrs7uNttXoBUhfNaPDh4-kgiFiHcYUO2j4Bk2yJDIspJoT3Zlgh2TBuDc4xECkjI)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06185957/Picture1-12.png)
+作者：盐门
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190123/2-8.png)
 
-在加利福尼亚州拉霍亚经营安徒生实验室的克里斯蒂安 G. 安德森在 2 月 1 日给福奇的电子邮件中写道：“病毒的异常特征构成了基因组的一小部分，不到 0.1%，因此必须仔细观察所有序列，看看某些特征（可能）看起来是经过改造的，”他补充说，他和他的团队发现“基因组与进化理论的预期不一致”。下面的图片是邮件原文：
+```
+云端的红地毯聚光灯 
+  已渐远渐淡的留在昨天
+  黑白竪条的衬衫配一根领带 
+  我尽量简单地搭配让自己出彩.
+  為礼貌地迎接你们的到来
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190240/3-6.png)
+  轻轻地握手长久的拥抱 
+  冰水之后谁点了滚烫的红茶 
+  是谁总是结束前偷偷买单？ 
+  华盛顿港的船儿挤满海面
+  起伏的心潮涨满海湾
 
-当时，安德森正在回应福奇发给他的一篇探索病毒起源的文章。第二天，福奇给他的副手休·奥金克洛斯发了一封紧急电子邮件，主题是“重要的”，写着“休，我们必须在上午通话，保持手机开机。……阅读这篇论文以及阅读这篇文章，文章在我将转发的电子邮件里。您今天将有必须完成的任务。”所附文件的标题是“Baric, Shi, et al – Nature Medicine – SARS gain of function.pdf”。
+  熟悉的微笑悦耳的中音 
+  第二次握手坦诚的倾诉  
+  君子情款款地流出心扉 
+  落地窗前的笑声有血浓於水 
+  狂喜的驻军丢下了全部的装备
 
-因此，在福奇一位值得信赖的科学顾问建议 COVID-19 可能是人造的（而福奇及其同事公开驳斥这种可能性是阴谋论）之后，他立即拍摄了一篇关于获得功能研究的研究论文——福奇正在资助该论文。而现在安德森已经删除了他一半以上的推文。
+  我不羞愧激动的时刻在你们对面 
+  镜片的背后有水晶的项链散落满地 
+  聆听中你也并不讶异眼前 
+  不自觉伸过来的手中有纸巾
+  传递心的交融胜过所有的语言
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190412/4-4.png)
+  过去的必将远去很快翻篇 
+  没有让地球变得不平的白酒 
+  没见到谁的桌上放过雪茄烟 
+  我们的故事踩下油门加速向前 
+  随著七哥一起走进明年明天      
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06190556/5-3.png)
 
-安德森声称他的旧推文是“自动删除”的，这意味着一个滚动的、自动化的过程。而不是在 2021 年 3 月 7 日之前突然消失的5,000 多条推文。被删除的推文发布之际，正值互联网侦探开始揭开安德森与福奇和 NIH 的关系的时候。
+(以上文字仅代表个人观点）
+```
 
-零对冲在推特上直接问候了亲爱的克里斯蒂安安徒生，“你为什么删除你的推特账号？”。
 
-“是因为关于为什么新冠病毒看起来“与进化论的预期不一致”或为什么“某些功能看起来是经过设计的”的所有问题”。
 
-参考链接：
+![This image has an empty alt attribute; its file name is 0849747B-14C1-4FAB-A6EB-F1E2BF0D75D2.jpeg]()![This image has an empty alt attribute; its file name is 0849747B-14C1-4FAB-A6EB-F1E2BF0D75D2.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04063623/0849747B-14C1-4FAB-A6EB-F1E2BF0D75D2.jpeg)
 
-[https://www.zerohedge.com/political/virologist-who-told-fauci-sars-cov-2-potentially-engineered-just-deleted-5000-tweets](https://www.zerohedge.com/political/virologist-who-told-fauci-sars-cov-2-potentially-engineered-just-deleted-5000-tweets)
 
-图片来源：[https://www.zerohedge.com/](https://www.zerohedge.com/)
 
-整理撰稿：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
 
 +1
