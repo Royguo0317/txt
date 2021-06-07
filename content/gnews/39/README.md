@@ -1,28 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 底线究竟是哪条
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1304323/)
+## 【小象评奇文】马路都是你的
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1304429/)
 
-撰稿人：东南
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07010829/20210607-2.jpg)（图片来源网络）
-今天上午据多家媒体消息，一架美国空军C-17运输机于7时19分降落在台北松山机场，机上搭载美国三名联邦参议员昆斯、达克沃丝和苏利文抵达台湾并将进行访问。值得注意的是以往美国政治人物访台皆搭乘“行政专机”，但此次美国三位议员访问团却是自韩国乌山空军基地搭乘“美军用运输机”抵达到台北。
+环球时报英文版在推特发了一个视频，显示广州今天全国统一高等院校招生考试时，扮演的重要的维护交通的角色：一个交警摩托车队出现在广州的街道，以确保高考交通顺畅。
 
-刚听到路德先生解读这个消息，感觉是大吃一惊，原因相信大家都很清楚，由于此次抵达台湾的航空机为军用机，中共国此前也一直叫嚣的“美军入驻台湾之日，就是解放台湾之时”，但眼瞅着这一天的时间就快过去了,大家有没有听到外交部出来抗议了呢？墙国内一片风平浪静，像什么事都没发生一样，大家都很默契的集体噤声了。实在纳闷之前的专家们都跑哪里去了？战狼也都化妆成哈士奇，改走腼腆路线了吗？以前的几回军机绕台就不说了？这次的“登入”这绝对已经是红线中的红线了吧，你们怎么不出来说一说这事该怎么办呢？究竟美国这架飞机是怎么进来的？咱们“台湾省”的领空居然都会被人家入侵，这可是对你们“主权”的挑战，平时说的那歼20飞机编队在哪？去做保养了吗？！这一整天粉红们可是都打完了鸡血，在等着听反击的消息呢。但一天下来结果却差强人意。
+广州目前进入半封闭状态，所有的人都需要测核酸，而且很多地区都封闭了，大街上根本就没有什么人，交通警察很高兴，终于可以在马路上摆龙门阵了，马路都是你们的， 随便开好了。
 
-话说回来，其实这些对于我们爆料革命的战友也不难理解，中共国一向就是：对内放最狠的话对外做最怂的事，吹最大的牛挨最狠的揍。这种忽长忽短的红线现在看来更像是一种滑稽的哀嚎。到了今天想必他们内心早已知道，且不说美日印澳的军队早就在家门口等侯多时，就连“全球联军”也已经在赶来的路上，正义力量还真就盼着你动一下试试。显然这次的入台也象征着美国军方已经正式的把这“一个中国”的球踢了过来，现在就看你中共要怎么来接招了。
+在疫情如此严重的时候，一边告诉人们不要出门，呆在家里，一边威胁要去集体做核酸检测，要不后果自负，一边组织全国一千多万的学生集体考试。有时候真的搞不清楚，这个国家疯了吗？
 
-（文章纯属个人观点）
+参考链接：
 
-*审核：MG1 编辑：Runaway*
 
-文章参考：
-https://finance.sina.com.cn/tech/2021-06-06/doc-ikqciyzi7988696.shtml
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+> A traffic police motorcycle squad was seen on streets in [#Guangzhou](https://twitter.com/hashtag/Guangzhou?src=hash&amp;ref_src=twsrc%5Etfw) to ensure smooth traffic during [#gaokao](https://twitter.com/hashtag/gaokao?src=hash&amp;ref_src=twsrc%5Etfw), national college entrance exams, on Monday. [pic.twitter.com/46JVLNvwv8](https://t.co/46JVLNvwv8)
+> — Global Times (@globaltimesnews) [June 7, 2021](https://twitter.com/globaltimesnews/status/1401754140963786761?ref_src=twsrc%5Etfw)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 
+
+图片来源：[https://twitter.com/](https://twitter.com/)
+
+整理撰稿：蓝精灵
+
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

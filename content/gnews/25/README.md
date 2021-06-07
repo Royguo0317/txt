@@ -1,42 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫苗对病毒变种的防疫力如何？
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1304474/)
+## 独家：中共高级叛逃者对几个中共特种武器项目有直接了解
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1304601/)
 
-```
-新闻来源：意大利VirgilioNotizie
-发布时间：2021年06月05日
-翻译整理/ 简评： Tito
-```
+翻译: JS709 | 校对: Nick | 审核：V
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07034540/pt_adobespark.jpeg)
+不愿透露姓名的多个情报界消息来源告诉 RedState，据信是有史以来中华人民共和国叛逃至美国的最高级别的叛逃者之一，数月以来一直在与国防情报局 (DIA) 合作。这些消息人士称，这位叛逃者直接了解中共国的特种武器计划，包括生物武器计划。
+
+提供给 RedState 的信息证实并丰富了记者亚当·豪斯利（Adam Housley）周四晚上的报道。
+
+推文链接：
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07024501/2a59-kquziii7221599-e1623048364467.jpg)图片来源：视觉中国
 
-新冠疫苗对病毒变异体的防疫效果如何？《柳叶刀》杂志上的研究强调的包含了什么？巴塞蒂解释了这一点。
+> Being told the increased pressure on China in recent days is due to a defector with intimate knowledge. In fact, Wray didn’t know right away because they wanted to make sure they got all they needed before telling him.
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670397473775617?ref_src=twsrc%5Etfw)
 
-发表在《柳叶刀》杂志上关于辉瑞公司变异体疫苗所提供保护的研究说明，只接受了第一剂疫苗或两剂疫苗效果是不同的，这引起了人们对完成整个疫苗接种周期的关注，完成了整个疫苗接种周期对抗病毒*Covid-19*才会感到安全。
 
-#### 疫苗和变种，关于“柳叶刀”的研究
 
-根据该研究，事实上，接种单剂疫苗的人对 *Delta*变体（以前称为印度变体）的保护较少；如果他们接受了两种剂量，他们几乎可以得到完全的保护。
+推文翻译：
 
-这种情况在英国引起了普遍警报，那里的大多数人都接种了单剂疫苗，这导致重新开放后感染人数有了新的增加，主要是由 *Delta* 变种引起的。
+被告知最近几天对中共国加大施压是由于一位深知内幕的叛逃者。事实上雷（Wray）并没有马上知道，因为他们想在告诉他之前确保他们得到了他们需要的一切。
 
-#### 马泰奥·巴塞蒂的意见
+2021年6月4日 下午12:27
 
-在这个问题上，热那亚圣马蒂诺的传染病专家马泰奥·巴塞蒂（*Matteo Bassetti*）提供了一些保证，他向 *Adnkronos Salute* 解释说：“我们应该关注在意大利接种第二剂辉瑞疫苗后的情况， 42 天后，正如对‘柳叶刀’的研究所表明的那样，这种疫苗产生了如此多的抗体，以至于疫苗涵盖了所有变种。
+RedState 的消息来源说这部分是真的。 他们说，联邦调查局局长克里斯托弗·雷（Christopher Wray）被这些信息“淹没”了，兰利（Langley）也不知道。消息来源称，DIA 领导层将叛逃者留在国防秘密服务部（DCS）DCS网络中，以防止兰利和国务院接触该人，因为 DIA 领导层认为 FBI、CIA 和其他几个联邦机构内部存在中共国间谍或内线消息来源。
 
-“在英国，目前与印度变种的传播有关的病例有所增加，由于选择给每个人注射一剂疫苗，疫苗覆盖的效果可能受到了限制，在第一剂和加强剂之间可能发生了许多感染。但在我们国家，我们必须保持冷静，”巴塞蒂总结说。
+推文链接：
 
-疫苗现在问题重重，副作用越来越多，而且副作用越来越严重，对病毒变异体防疫无力，这些情况已经纷纷的突显出来。这位叫马泰奥·巴塞蒂（*Matteo Bassetti*）传染病专家出来给与了解释。但是，这位专家参与开发疫苗了么？参加疫苗临床实验了么？拿到过病毒原株做研究了么？亲自去武汉P4实验室获得一手数据了么？都没有，他只是在说明一件事，他是专家，听他的没错，而并没有经过客观精密的分析。是不是注射两剂疫苗，就可以预防变种，后续的情况会慢慢说明，普通民众或许还在琢磨是注射一剂还是两剂疫苗的问题，但是对于听过闫博士对新冠讲解的人来说，对这些注射疫苗的人的看法是：“你们都是小白鼠，生死由命。”
-（本文只代表译者观点，与Gnews平台无关。）
 
-**新闻原文链接：**
-🔗[Vaccino Pfizer, seconda dose e varianti: Bassetti fa chiarezza](https://notizie.virgilio.it/vaccino-pfizer-seconda-dose-varianti-bassetti-1484944)
 
-* * *
+> Also…US intelligence believes China is trying to produce variants that suggest it came from bats to cover up that it originally came from a lab. The belief is still that it escaped accidentally, but was allowed to spread.
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670631562076161?ref_src=twsrc%5Etfw)
 
-***编辑整理/校对: T**ing Guo*
+
+
+推文翻译：
+
+另外……美国情报部门认为，中共国正在试图制造表明它（中共病毒）是来自蝙蝠的变种，以掩盖它最初来自实验室的事实。 人们仍然相信它是意外泄漏，但被允许传播。
+
+2021年6月4日 下午12:27
+
+推文链接：
+
+
+
+> Again…what I reported tonight. US intelligence has a Chinese defector with Wuhan info. AND China is trying to produce variants that suggest it came from bats to cover up that coronavirus originally came from a lab
+> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400679023668187137?ref_src=twsrc%5Etfw)
+
+
+
+推文翻译：
+
+再说一遍……我今晚报道的。 美国情报部门有一名掌握武汉情报的中共国叛逃者。 **而且**中共国正试图生产表明它来自蝙蝠的变种，以掩盖冠状病毒（中共病毒）最初来自实验室
+
+2021 年 6 月 4 日 下午 1:01
+
+更多信息将在 RedState 得到后发布。
+
+2021年6月4日太平洋夏令时 下午 12:30 更新
+
+消息来源告诉RedState，叛逃者已经与DIA合作了三个月，他向美国官员提供了广泛的、技术上非常详细的简报。消息人士称，对叛逃者提供的信息的相信程度是突然对安东尼·福奇（Anthony Fauci）博士产生信任危机的原因，并补充说，向DIA详细介绍（中共病毒情况，译者加注）的美国陆军传染病医学研究所 (USAMRIID) 人员证实了叛逃者提供的信息的所有技术细节。
+
+（注意：几位前CIA官员质疑这篇报道的真实性或将其称为彻头彻尾的编造。我们知道这些评论并支持我们的消息来源。）
+
+原文作者：詹妮弗·范拉尔（Jennifer Van Laar）
+发布时间：美国东部时间 2021 年 6 月 4 日下午 2:23
+更新时间：太平洋夏令时2021 年 6 月 4 日下午12:30
+
+原文链接：
+[https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238)
 
 0
