@@ -1,45 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉实验室资助者达扎克( Daszak)发电子邮件给福奇，他驳回实验室泄漏
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1304210/)
+## 【热点播报】美贸易代表戴琪批与中贸易关系严重失衡，仍需沿用第一阶段协议
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1304226/)
 
-翻译： 康州盘古农场 – Freeearth
+作者：纽约香草山健身部 Jack Li文阳
 
-校对： 康州盘古农场 – Mike Li
 
-编辑：康州盘古农场 － 傻小子
 
-发布：康州盘古农场 – 彩虹 Rainbow
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-**据《redstate》作者：斯科特·亨塞尔(Scott Hounsell)，2021年6月1日发布**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06225833/swi-1.png)
-众所周知，安东尼.福奇（Anthony Fauci ）博士支持生态健康联盟在中共国开展的有关蝙蝠冠状病毒的功能增强性研究。 虽然福奇（ Fauci ）一直试图与生态健康联盟的项目保持距离，包括该组织主席皮特.达扎克（ Peter Daszak） 博士的研究项目，但新释放出来的电子邮件详细介绍了达扎克（Daszak）对福奇（ Fauci ）驳回实验室泄漏理论的赞扬。
 
-达扎克（Daszak） 似乎对围绕SARS新冠病毒2（SARS-CoV-2）的起源的所有问题上都有他的参与（稍后会详细介绍）。他在 2020 年 4 月 18 日发了一封电子邮件给福奇，感谢福奇博士驳斥实验室泄漏理论的评论。那时距美国最初中共病毒爆发只有仅仅六周时间 。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06225630/857-page-2.png)
-达扎克（Daszak） 和福奇（ Fauci ）的电子邮件，2020 年 4 月 18 日
-“昨晚在总统新闻发布会上，福克斯新闻记者公开针对 ROl 拨款的 PL，我仅代表我们的工作人员和合作者表示感谢，感谢你公开站出来声明科学证据支持新冠病毒（COVID-19） 的自然来源是蝙蝠传染到人类，而不是源于武汉病毒研究所的实验室的泄露。
 
-从我的角度来看，你的评论很勇敢，来自你被信赖的声音。你的评论将有助于消除围绕病毒起源的学说。 一旦这场大流行结束，我会当面感谢您，并让您知道您的评论对我们所有人是多么重要。”
-这封电子邮件令人不安的本质在于，达扎克（Daszak） 是世界卫生组织（ WHO ）研究 新冠肺炎（SARS-CoV-2） 起源的主要研究人员之一，并且他还资助了武汉病毒研究所（ WIV） 的无可争议的功能增强性研究。 在这种情况，在整个调查过程中都可以看到达扎克（Daszak ）的影响。他甚至传播错误信息以转移生态健康联盟与实验室释放理论相关的潜在责任。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06225622/857-page-1.png)
-达扎克（Daszak） 和 福奇（Fauci ）的电子邮件，2020 年 4 月 18 日
-“彼得：
-非常感谢您的温馨留言。
-此致，
-托尼”
+美国贸易代表戴琪在亚太经济合作论坛成员国贸易部长虚拟会议之前说，美中贸易关系仍严重失衡。她说：“美国尽一切努力使美中贸易关系恢复平衡。”
 
-福奇的回应显示，两人互称其名，过去曾有过业务往来。 两人显然很熟悉。
+戴琪6月5日在回答有关美国是否会继续2020 年 1 月与中共国签署达成的第一阶段贸易协议及对中共国商品的关税的问题时对记者说：“这种贸易关系的某些部分是不健康的，并且随着时间的推移在一些非常重要的方面损害了美国经济。”虽然中共国副总理刘鹤在过去两周与戴琪和财政部长耶伦进行了交谈，但双方关税与两国之间经济交往没有任何进展。
 
-随着这个故事的深入，很明显这里发生的事情比之前披露的要多。 对于福奇（Fauci ）和达扎克（Daszak） 就新冠肺炎2（ SARS-CoV-2 ）起源互发电子邮件来看，在最初爆发仅几个月后显示，对该实验室泄漏的可能性缺乏严肃可信的看法。 正如之前报道的那样，中共国的研究人员从 2003 年起用了 14 年的时间才确定了新冠肺炎（ SARS-CoV） 病毒的来源。而在短短几周内，中共国官员和世界卫生组织（达扎克Daszak 作为钱牵头人参与其中）对新冠肺炎2（ SARS-CoV-2 ）就做出了同样的定性。
-现在质疑新冠肺炎2（SARS-CoV-2）病毒的来源已经不再是异端邪说，而病毒溯源从一开始就越来越像是一种掩盖。
+按照中美贸易第一阶段协议的內容，美国贸易代表与中共国副总理每6个月要进行一次贸易框架小组会议。上一次美国贸易代表与中共国副总理的会谈还是在2020年8月。如果按照时间安排，中美应该在2021年2月进行对接。但直到现在，戴琪与刘鹤等人并未举行对接的会议。相比之下，根据美国贸易代表办公室发布的信息，戴琪与多国贸易官员举行了视频会晤，包括日本、越南、英国、加拿大、新西兰、欧盟、印度等，证明美国并不急于解决与中共国的贸易问题。
 
-原文作者: 斯科特·亨塞尔(Scott Hounsell)
-原文链接:** [https://redstate.com/scotthounsell/2021/06/01/breaking-wuhan-lab-funder-email-thanks-fauci-for-running-defense-on-lab-leak-theory-n389836](https://redstate.com/scotthounsell/2021/06/01/breaking-wuhan-lab-funder-email-thanks-fauci-for-running-defense-on-lab-leak-theory-n389836)**
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+拜登上台后保留了中美贸易第一阶段协议，并在制定下一步计划前，需要对美中贸易协议等进行审查完成情况。在美国仍需审查贸易协议的前提下，美中新一轮的磋商并没有相应的条件。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+白宫亚洲事务高级官员上个月表示，美国正在进入与中共国的激烈竞争时期，拜登政府继续实施川普时代的禁令，并把禁止在美国投资的中共国公司增加到59家。按照拜登政府的对中共国政策，中共幻想移除川普政府制定的关税政策，实属痴心妄想。
 
-0
+拜登虽然沿用川普的贸易政策，但不会模仿川普一直与中共谈判的模式。政治老油条的拜登，不受中共的摆布和玩弄，相信还会层层加码，只做不谈，中共只能干瞪眼，看着套在脖子上的绳索被越拉越紧。
+
+参考阅读：https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210606-%E7%BE%8E%E8%B4%B8%E6%98%93%E4%BB%A3%E8%A1%A8%E6%88%B4%E7%90%AA%E7%A7%B0%E7%BE%8E%E4%B8%AD%E8%B4%B8%E6%98%93%E5%85%B3%E7%B3%BB%E4%B8%A5%E9%87%8D%E5%A4%B1%E8%A1%A1
+
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1

@@ -1,41 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】中共疫苗和医学的布局 揭秘美国华人生物科学家协会
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1303873/)
+## 迈克尔·弗林中将称: 冠状病毒有可能是中共国的“武器化行动”
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1303898/)
 
-小象：网络病毒侦探挖出了美国华人生物科学家协会， 如何在中共大使馆和生物科技交流协会的支持下，布局美国医学网络，疫苗只是其中很小的一个项目。摘要整理如下：
+翻译：康州盘古 – 郭班之樱
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06213007/1-15.png)
+校对：康州盘古- Mike Li
 
-军事医学科学院生化武器首席专家陈薇与康希诺公司合作研发疫苗。康希诺生物股份公司执行董事、首席运营官兼副总经理巢守柏为美国华人生物医药科技协会前任会长。康希诺生物股份公司高级副总裁毛慧华为美国华人生物医药科技协会（CBA）的董事。
+编辑：康州盘古- 傻小子
 
-巢守柏在康希诺生物股份公司从2018年起每三年高达6653600元。
+发布：康州盘古农场 – 彩虹 Rainbow
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06213400/2-10.png)
 
-2016年2月，华人生物医药学术团体CBA参加了由科技部与中国驻美国大使馆举办的创新驱动，科技引领座谈会并在天津康希诺生物技术有限公司和上海辅仁药业设置了美国华人生物医药科技协会工作站。翁新愚博士，中国大使馆一秘, 中国药监局驻美联系人，与该协会联系紧密。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06213150/cccf.jpg)
+**迈克尔·弗林中将（退休）在会议上讲话（照片由法新社的克里斯·克莱彭尼斯/来自盖蒂图片社）**
+**据《OAN》 编辑部，2021年5月27日发布**
+**迈克尔·弗林将军说，他相信COVID-19（冠状病毒）是中国共产党针对美国的“武器化行动”。**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06213710/6-4.png)
+**在最近的一次采访中，唐纳德·川普总统的前国家安全顾问强调了众议院情报报告，称冠状病毒可能是武汉实验室泄漏的结果。 他补充说，美国政府必须向美国公众披露该政府对中共国病毒实验的了解。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06213159/noh.png)
+弗林说：“这个国家的人民需要答案。 我相信我们将要发现的是，这（冠状病毒）是中共国与其他国家武器化行动的一些合作”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06213620/3-7.png)
+众议院情报委员会于5月26日发出推文：随着这一过程的继续，我们必须“允许情报界以及其他科学和医学专家去客观地权衡和评估所有可用的事实，并避免任何过早的或出于政治动机的结论”。
+主席@共和党众议员亚当·希夫关于拜登对冠状病毒起源指令的推文：我有信心情报界将“寻求所有可能的线索”，并向总统提供基于证据的调查结果。
+弗林还强调，成千上万的美国人是怎样因冠状病毒而关闭停产、失去生意和生计，而现在他们要求拜登政府对此全面负责。此后，乔·拜登向美国情报界发声，并要求他们尽全力去调查这种流行病的起源。 他预计一份新报告将在90天内提交。
+原文链接：[https://www.oann.com/lt-gen-michael-flynn-covid-19-may-be-a-weaponized-operation-by-china/](https://www.oann.com/lt-gen-michael-flynn-covid-19-may-be-a-weaponized-operation-by-china/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06213953/4-5.png)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06214104/5-4.png)
-
-在他们的官方网站上， 我们看到了官员顾问这一栏，一个生物科技协会，把中共的模式完全复制到了西方文明社会，美国的学者也开始学而优则仕了。
-
-参考链接：
-
-[https://scbasociety.org/scba-leadership](https://scbasociety.org/scba-leadership)
-
-图片来源：[https://scbasociety.org/](https://scbasociety.org/)
-
-整理撰稿：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

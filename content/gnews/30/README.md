@@ -1,53 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】医疗开支负担加剧，陪诊服务再难“火爆”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1303887/)
+## “掀锅盖”系列：20210602中共疯狂打压64建国日活动，福奇邮件门还有更重磅信息将被曝光
+` 《爆料贵语--掀郭盖》NZ` [轉載自GNews](https://gnews.org/zh-hans/1303471/)
 
-香草山写作组 鹰(文言)
+**郭先生口述内容：**
+
+兄弟姐妹们看来我们这个6月3号一周年伟大的日子到来共产党准备了啥
+
+布隆伯格王岐山的哥们黑咱的一篇报道
+
+布隆伯格刚放出来不到3小时
+
+你看看宣布大连法院然后所谓的中纪委
+
+6月19号拍卖方正证券拥有的事实上价值100亿美元的证券
+
+就是惩罚咱们一周年这个纪念
+
+连续3到7天的负面报道都是大媒体
+
+布隆伯格什么华尔街日报什么DC华盛顿邮报这就是它们想要的
+
+这就是王岐山开了几天会所谓的他要出9大招
+
+看到战友们昨天在那个Lady May two上那种感受真是让我觉得太幸福了
+
+什么时候中国人像现在这个样子这么样的互亲互爱互尊互重过呐没有过
+
+哎呀说实话我心里边那个暖洋洋啊
+
+明天的节目绝对精彩一定不容错过真的是1分钟多余的时间都没有
+
+这是个伟大的日子该和共产党算账的时候了
+
+福奇的email还多着呐跟福奇有关系的共产党什么高福啊福奇的email绝不只800件还有更多
+
+还有跟福奇勾兑的香港实验室  WHO  武汉病毒研究所还有世界上跟共产党勾兑掩盖的包括中国那些大佬
+
+兄弟姐妹们我们背后有多少力量在支持我们呐
+
+6月3日一周年献礼它不是9招吗
+
+咱给它出900招都不拉倒咱走着看
+
+\*所有经过节选，编辑和剪辑的简报和视频形式仅供留存及传播，分享信息！
+
+\*所有信息以郭文贵先生源盖特视频和直播视频为准！
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+听写整理：作而无作
 
+翻译：正义的伙伴
 
+校对：SugarPup
 
-澎湃网6月5日转载健康时报消息，近日无门槛限制的“医院陪诊”再度进入公众视野。
+视频制作：农夫，xiong
 
-“医院陪诊”主要服务与异地就医和老年人群体，服务包括挂号、缴费、检查、取结果等，根据不同地区医疗发展水平收费标准介于100-600元/天。陪诊服务最早2006年在江苏扬州被推出。当时是由公司聘请医疗专家陪同病人就诊，借用陪护专家的专业知识引导病人砍掉不合理的“多余”检查项目，以达到降低病人就医费的目的。陪诊服务费为20元基本费+每项5元诊断费以及最终药费的10%，每名病人需支付的全程陪诊费用平均50-60元。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06205047/Screen-Shot-2021-06-06-at-8.42.46-PM.png)
-参考《我国卫生和计划生育事业发展统计公报》2006年的数据，综合医院门诊人均医疗费用128.7元。2006年的陪诊服务收费约为次均门诊费用的一半。澎湃网例子中的西安地区的医院陪诊，收费标准也升至200元半天和300元全天。对比2020年前11个月国内三级公立医院次均门诊费用为373.6元，二级公立医院对应为235.0元，以上的陪诊服务费用近乎等同于病人的门诊费用。
+审核：掀锅盖组
 
-2015年陪诊市场就已悄然兴起：e陪诊获得1000万元融资；贴心小护士2016年获得500万融资……但上述公司现均已销声匿迹。2006年陪诊服务是为了针对国内就医乱开药、抽提成等乱象，而在中共推行减药品价格等医疗改革后，上述“矛盾”已从高药价转变为高医疗服务费上。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06213355/Screen-Shot-2021-06-06-at-8.42.43-PM.png)
-在中共大兴医疗产业圈钱的当下，就医开支逐年上涨，巨额的医疗费已经成为每个就医者的“心病”，“病不起”已成为社会现状。就诊服务虽可以提供顺畅的就医环节，但翻倍的就医“开支”仍会让大量的病人“知难而退”。“医院陪诊”的最终结果只是人均次医疗费用的提升。在如今中共加大敛夺民财的力度，民众收支不平衡加剧的社会现状下，高收费的“医院陪诊”也再难获得广泛认同感。
-
-新闻来源：
-
-医院陪诊职业走红：无门槛限制，主要服务老人和异地就医者https://www.thepaper.cn/newsDetail\_forward\_13008468
-
-女孩医院当“陪诊”，一次轻松赚取300元，女孩：有需求就有市场https://new.qq.com/omn/20210531/20210531A067LA00.html
-
-面对商机：陪诊服务成为专业监督还是违法经营http://health.enorth.com.cn/system/2006/09/15/001411728.shtml
-
-国家卫健委：公立医院诊疗人次下滑13%！http://news.pharmnet.com.cn/news/2021/03/05/551766.html
-
-![This image has an empty alt attribute; its file name is 6_june.jpg]()![This image has an empty alt attribute; its file name is 6_june.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+上传：糊糊文婴
 
 0

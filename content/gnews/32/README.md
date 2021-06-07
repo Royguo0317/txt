@@ -1,30 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/06-001郭文贵先生盖特精要
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1303853/)
+## 【鹰眼墙国】“护眼”行动屡出新招，青少年超高近视率依旧难解
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1303880/)
 
-听写： 逍遥自在| PR: 樂禧禧| Page：小六月
-
-[!\[\]()!\[\](https://spark.adobe.com/page/XD7pzZvq6D5wl/images/cf43ce33-1b8e-4782-bc64-c05f4937bdf1.jpg?asset_id=56d616ca-f5d1-4137-b504-d588ffcadd4c&amp;img_etag=%229591ca766e5871796b9acb1d1d9c3786%22&amp;size=1024)](https://spark.adobe.com/page/XD7pzZvq6D5wl/images/cf43ce33-1b8e-4782-bc64-c05f4937bdf1.jpg?asset_id=56d616ca-f5d1-4137-b504-d588ffcadd4c&amp;img_etag=%229591ca766e5871796b9acb1d1d9c3786%22&amp;size=1024)
-
-6月6号：尊敬的战友们好！新中国联邦的宣言．和爆料革命的．行动力．正在对冲掉共产党在中共的一切谎言．爆料革命将横扫中共在世界上任何一个角落的黑暗的力量！
-
-• 新中国联邦的庆典在全世界引起了蝴蝶效应，在世界的各个领域，绝对是改变人类的历史，并且创造了新的人类：政治，法律还有民主运动，特别是非暴力的民主运动和政治抗争新的标准，而且最智慧的与现代化科技相结合。它是世界上未来的精英，追求民主，法治，公平，正直，公平社会最好的榜样。充分的把现代科技，现代经济，现代金融，国际关系和人与人的社会关系学彻底改变。意义之深远。
-
-• 新中国联邦人和爆料革命在世界上的地位和所带来的影响是多范围的。战友们一定要记住：唯真不破，团结在一起。中国人不等同于中共，中共不能代表中国人，中共不代表中国。这是爆料革命最重要的“资产”之一。让各国的政要彻底改变以前的认知。
-
-• 中国仅仅在过去的两个月由于经济问题中国人民被逼的有大量的“报复社会”事件，是共产党的走狗们欺压百姓，没有活路了，只有一个选择，约有七万起血腥暴力事件。当七万变成七十万的时候，就是社会集权的压迫，到七百万的时候共产党就完蛋了。国内银行的“还旧代新”庞氏骗局，45%-50%都成了烂账，“还旧代新”的周转过程约有50%基本延续不下去。在过去的两到三个月里国内约有八十万的私人企业倒闭。
-
-• 集体大家最重要的关系就是信任，所有人与人的关系就是建立在信任的基础之上。一点看一面，唯真不破与实际行动结果带来的力量。
-
-[链接](https://gtv.org/getter/60bce283c04fd544b46a8ecf)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+香草山写作组  鹰(文言)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/XD7pzZvq6D5wl/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/XD7pzZvq6D5wl/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+
+
+
+环球网6月6日转载中国新闻网消息，近年来虽然中共出台各种预防近视的文件和指南，但2020年青少年近视率却不降反增。
+
+2018年国内儿童青少年近视率为53.6%，其中高三年级学生高度近视（近视在600度以上）占比21.9%，2018年6月份，中共卫健委印发近视、弱视、斜视防治指南，8月份发布《综合防控儿童青少年近视实施方案》，全国范围内针对青少年近视问题进行专项整治；2019年青少年近视率下降至50.2%，但《中国儿童发展报告(2019)——儿童校外生活状况》显示，儿童工作日期间每天使用电子产品时长约43分钟，周六日平均时长更翻至96分钟，电子产品使用频率和时长依旧居高不下；2020年受新冠疫情影响，中小学生线上时间激增，截至9月份，中小学近视率增加11.7%，其中小学生近视率增加15.2%。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06212153/Screen-Shot-2021-06-06-at-8.42.34-PM.png)
+进入2021年后，虽然中共教育部先后发布如禁止手机入校园、不得使用手机布置作业、电子产品教学时长不得超过总时长30%等防近视“良计”，但上述措施中依旧停留在在校期间的管理，而青少年校外“滥用”电子产品的习惯并未得到有效改观。青少年用电子产品主要是玩游戏。在2018年中共教育部开展“预防中小学生沉迷网络教育”行动期间，腾讯等大型科技公司却仍在连番发布新款游戏。虽然象征性的推出防护措施，但依旧效果寥寥。而近年来游戏的规模却呈逐年上涨趋势，2020年游戏用户规模增至6.65亿人（同比增加3.7%），在游戏行业占比75.24%的移动游戏市场2020年收入达2096.76亿元（同比增长32.61%），依旧保持高速增长。
+
+《2019年全国未成年人互联网使用情况研究报告》显示，2019年国内未成年网民数量增至1.75亿人（未成年人互联网普及率达93.1%），其中未成年游戏用户规模约1亿人（占比57.1%）。受儿童手表、学习平板等设备的普及，游戏用户呈低龄化。2020年15-17岁有游戏习惯的未成年人近半在11岁前接触网络游戏，12-14岁阶段接触游戏的比例增至78%。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06212206/Screen-Shot-2021-06-06-at-8.42.30-PM.png)
+疫情期间，在线学习在青少年日常生活中的比例提升至69.7%，再加上近年来短视频、直播现象的泛滥，青少年使用电子产品的时长只增不减。大型科技公司对游戏产业的推崇和规模的扩张，以及电子竞技游戏的快速发展（2020年电竞游戏用户达4.88亿人，同比增长9.65%），再加上中共对短视频平台的有意放纵，电子产品对青少年的“诱惑”不减反增。即便青少年在校内被停止一切用网活动，但校外使用手机的监管缺失，游戏行为驱动不减都无法防治青少年近视。
+
+新闻来源：
+
+中国近视患者人数达6亿！你的视力达标吗？https://china.huanqiu.com/article/43QGjnZAHNE
+
+中国儿童青少年近视率53.6% 防控近视刻不容缓http://www.cnr.cn/sxpd/dqzs/20200429/t20200429\_525073365.shtml
+
+2020年中国游戏行业市场现状及发展前景分析 2020年市场规模将近2800亿元https://bg.qianzhan.com/report/detail/300/201222-97af9f6b.html
+
+多少道文件才能管住网游对少年儿童的戕害？http://www.xinhuanet.com/tech/2018-05/30/c\_1122912195.htm
+
+教育部要求不得用手机布置作业 专家建议师生家长共同制定手机使用管理规则https://new.qq.com/omn/20210219/20210219A00R0L00.html
+
+2021年中国游戏领域未成年人保护研究报告https://new.qq.com/omn/20210405/20210405A015ZM00.html
+
+青少年蓝皮书：未成年人在线学习日益受关注，疫情前后变化显著https://www.pishu.cn/zxzx/xwdt/555708.shtml
+
+![This image has an empty alt attribute; its file name is 6_june.jpg]()![This image has an empty alt attribute; its file name is 6_june.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
++1

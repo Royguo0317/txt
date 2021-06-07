@@ -1,41 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】尽管城市已经重新开放，但曼哈顿的办公楼空置率仍在继续飙升
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1304254/)
+## 武汉实验室资助者达扎克( Daszak)发电子邮件给福奇，他驳回实验室泄漏
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1304210/)
 
-纽约香草山农场     四季
+翻译： 康州盘古农场 – Freeearth
 
-零对冲6月4日的报道，自病毒大流行开始一年多以后，纽约市的经济正轰轰烈烈地重新开放。但是，办公楼市场仍然处于困境。据高力公司（Colliers）的商业房地产经纪报告，即使租约增加，曼哈顿的办公空间供应仍在不断创下新的记录。
+校对： 康州盘古农场 – Mike Li
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06233604/Picture1-18.jpg)
+编辑：康州盘古农场 － 傻小子
 
-写字楼5月份的供应率连续第12个月上升到17%，自大流行病开始以来，空置率猛增70%，达到惊人的9200万平方英尺。高力公司表示，转租占总供应量的23%，是去年7月以来的最低值，转租的库存空间比大流行病开始以来多了75%
+发布：康州盘古农场 – 彩虹 Rainbow
 
-虽然需求正在恢复，但是由于在家工作的热潮成为“新常态”，曼哈顿的写字楼的供应过剩可能是一个长期的趋势。这对租金构成压力，最终迫使建筑运营商陷入财务困境。
+**据《redstate》作者：斯科特·亨塞尔(Scott Hounsell)，2021年6月1日发布**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06225833/swi-1.png)
+众所周知，安东尼.福奇（Anthony Fauci ）博士支持生态健康联盟在中共国开展的有关蝙蝠冠状病毒的功能增强性研究。 虽然福奇（ Fauci ）一直试图与生态健康联盟的项目保持距离，包括该组织主席皮特.达扎克（ Peter Daszak） 博士的研究项目，但新释放出来的电子邮件详细介绍了达扎克（Daszak）对福奇（ Fauci ）驳回实验室泄漏理论的赞扬。
 
-根据卡斯尔系统（Kastle Systems）的数据，截至5月下旬，大都会地区约只有18%的办公人员返回工作岗位。摩根大通、高盛和脸书是一些准备在未来几个月让员工返回办公室的公司。但根据卡斯尔系统针对全美国重返工作岗位的数据显示，人员重返办公室的速度非常缓慢。
+达扎克（Daszak） 似乎对围绕SARS新冠病毒2（SARS-CoV-2）的起源的所有问题上都有他的参与（稍后会详细介绍）。他在 2020 年 4 月 18 日发了一封电子邮件给福奇，感谢福奇博士驳斥实验室泄漏理论的评论。那时距美国最初中共病毒爆发只有仅仅六周时间 。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06225630/857-page-2.png)
+达扎克（Daszak） 和福奇（ Fauci ）的电子邮件，2020 年 4 月 18 日
+“昨晚在总统新闻发布会上，福克斯新闻记者公开针对 ROl 拨款的 PL，我仅代表我们的工作人员和合作者表示感谢，感谢你公开站出来声明科学证据支持新冠病毒（COVID-19） 的自然来源是蝙蝠传染到人类，而不是源于武汉病毒研究所的实验室的泄露。
 
-曼哈顿空置的摩天大楼不仅仅是办公楼。随着人们成群结队地逃离这个自由的城市，前往郊区，住宅库存也在激增。
+从我的角度来看，你的评论很勇敢，来自你被信赖的声音。你的评论将有助于消除围绕病毒起源的学说。 一旦这场大流行结束，我会当面感谢您，并让您知道您的评论对我们所有人是多么重要。”
+这封电子邮件令人不安的本质在于，达扎克（Daszak） 是世界卫生组织（ WHO ）研究 新冠肺炎（SARS-CoV-2） 起源的主要研究人员之一，并且他还资助了武汉病毒研究所（ WIV） 的无可争议的功能增强性研究。 在这种情况，在整个调查过程中都可以看到达扎克（Daszak ）的影响。他甚至传播错误信息以转移生态健康联盟与实验室释放理论相关的潜在责任。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06225622/857-page-1.png)
+达扎克（Daszak） 和 福奇（Fauci ）的电子邮件，2020 年 4 月 18 日
+“彼得：
+非常感谢您的温馨留言。
+此致，
+托尼”
 
-中共病毒肆虐全球以来对经济的打击和对人类生活方式的改变是惊人的。昔日自由繁荣的城市正在被摧毁，令人唏嘘。进入6月，以毒灭共已是大势所趋。全人类都应该行动起来，揭露病毒真相，向中共追责，结束这一人类灾难。
+福奇的回应显示，两人互称其名，过去曾有过业务往来。 两人显然很熟悉。
 
-发稿：奇门遁甲
+随着这个故事的深入，很明显这里发生的事情比之前披露的要多。 对于福奇（Fauci ）和达扎克（Daszak） 就新冠肺炎2（ SARS-CoV-2 ）起源互发电子邮件来看，在最初爆发仅几个月后显示，对该实验室泄漏的可能性缺乏严肃可信的看法。 正如之前报道的那样，中共国的研究人员从 2003 年起用了 14 年的时间才确定了新冠肺炎（ SARS-CoV） 病毒的来源。而在短短几周内，中共国官员和世界卫生组织（达扎克Daszak 作为钱牵头人参与其中）对新冠肺炎2（ SARS-CoV-2 ）就做出了同样的定性。
+现在质疑新冠肺炎2（SARS-CoV-2）病毒的来源已经不再是异端邪说，而病毒溯源从一开始就越来越像是一种掩盖。
 
-原文链接：[https://www.zerohedge.com/markets/manhattan-office-supply-continues-soar-even-city-reopens](https://www.zerohedge.com/markets/manhattan-office-supply-continues-soar-even-city-reopens)
+原文作者: 斯科特·亨塞尔(Scott Hounsell)
+原文链接:** [https://redstate.com/scotthounsell/2021/06/01/breaking-wuhan-lab-funder-email-thanks-fauci-for-running-defense-on-lab-leak-theory-n389836](https://redstate.com/scotthounsell/2021/06/01/breaking-wuhan-lab-funder-email-thanks-fauci-for-running-defense-on-lab-leak-theory-n389836)**
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
