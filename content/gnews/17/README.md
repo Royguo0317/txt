@@ -1,33 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “自冷战结束以来，北约与俄罗斯之间的最低点”
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1304862/)
+## 中国病毒学家称福奇的电子邮件证实了她对武汉实验室泄漏的说法
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1304947/)
 
-信息来源：德国世界报网络版
-发布时间：2021年6月07日
-翻译 /整理/ 简评： Shuizhuyu
+翻译：康州盘古农场 – 郭班之樱
+校对：康州盘古农场 – 心照
+审核：康州盘古农场 – 格格巫
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07055803/NATO-Secretary-General-Jens-Stolten.jpg)
+作者：李布朗 2021 年 6 月 4 日 上午 10:51
 
+一位最早提出 COVID-19 从武汉实验室泄露的中国病毒学家（闫丽梦博士）表示，[安东尼·福奇博士的电子邮件](https://nypost.com/2021/06/02/fauci-was-warned-that-covid-may-have-been-engineered-emails/)证实了她一直是对的。闫丽梦博士是最早研究新冠状病毒的科学家之一，此前曾透露她在指责北京掩盖真相后[被迫躲藏](https://nypost.com/2020/07/10/chinese-virologist-flees-after-accusing-beijing-of-covid-19-cover-up/)起来。现在，随着国际领导人最终对她的武汉实验室泄漏理论关注，这位科学家[告诉新闻中心](https://twitter.com/newsmax/status/1400271015750422530)，福奇的电子邮件包含的“很多有用的信息”表明她知道的总是比他透露的要多。
 
-资料来源：法新社
+闫博士本周接受访谈时说，“它们（电子邮件）从一开始就证实了我的工作，甚至从去年一月开始，这些人都知道发生了什么，但是他们选择为了中国共产党和他们的利益而掩盖事实”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07065623/2021-6-7-001-2.jpg)
+闫丽梦博士此前曾指责了北京掩盖冠状病毒/来自油管
 
-北约秘书长延斯斯托尔滕贝格要求北约和俄罗斯迫切需要再次对话。对莫斯科的相应邀请已经一年多了。对话未促成的主要是因为一个有争议的话题。
+她坚称，福奇以及现在臭名昭著的武汉病毒研究所，在大流行最初出现的城市中心进行功能增强性工作，“他（福奇）知道这些所有的事情”。她说，一封电子邮件显示，“福奇博士甚至在去年 2 月 1 日就马上意识到了COVID-19 病毒会涉及到功能增强获得性的实验。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07065639/2021-6-7-002-2.jpg)
+根据严博士的说法，福奇博士对冠状病毒的了解比他透露的要多
 
-在布鲁塞尔北约峰会前一周，北约秘书长延斯·斯托尔滕贝格呼吁俄罗斯会晤。所谓的北约-俄罗斯理事会（NRR）已经有 19 个月没有开会了。 “一年多前，我们邀请俄罗斯政府参加新的会议，但没有得到肯定的答复，”斯托尔滕贝格世界报说。
+盖蒂图片社
 
-“现在球在俄罗斯这边。我想再次邀请俄罗斯尽快参加北约-俄罗斯理事会的会议。我们有很多要讨论的内容，这符合北约和俄罗斯的共同利益，”前挪威首相补充说。
+科学家们坚称，他（福奇）“肯定”担心实验室正在进行实验，这会增强病毒的传播、感染力，但是他“担心而不告诉公众”。
 
-“北约和俄罗斯之间的关系现在已经到了冷战结束以来我们从未见过的低点。对话是解决紧张局势的最佳方式。”北约-俄罗斯理事会是解决这一问题的适当形式。 “双方坐在同一张桌子上，”斯托尔滕贝格说。
+据报道，闫博士已经发表了三份关于冠状病毒起源的报告，去年两份，2021 年一份。
 
-简评：美国和俄罗斯的外长已经进行过对话， 6月中旬拜登访问欧洲也很有可能会会见普京。 但是俄罗斯和北约的对话不能成功， 我个人的观点是和白俄罗斯的事件有关。 之前是乌克拉危机等等。 终归俄罗斯与北约欧洲的地理位置比较敏感。 还有俄罗斯与白俄罗斯的友好是对欧盟的较大的威胁， 是欧洲的价值观不能容忍的。 俄罗斯和北约的对话， 是否成功， 北约已经扔出了橄榄枝， 就看俄罗斯的表现了。
+在 3 月 31 日发表的最新消息中，她坚称 COVID 是“中共政府生物武器计划的产物，其（研制）网络不仅包括中共科学家，还包括某些海外的科学家和组织。”
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07065650/2021-6-7-003.jpg)
 
-🔗[Stoltenberg-Beziehungen-zwischen-Nato-und-Russland-haben-Tiefpunkt-erreicht](https://www.welt.de/politik/ausland/article231626487/Stoltenberg-Beziehungen-zwischen-Nato-und-Russland-haben-Tiefpunkt-erreicht.html)
+最近几周，病毒从武汉病毒研究所泄漏的理论得到了证实
 
+法新社通过盖蒂图片社
 
+原文链接：[https://nypost.com/2021/06/04/chinese-virologist-says-fauci-emails-verify-her-lab-leak-claims/](https://nypost.com/2021/06/04/chinese-virologist-says-fauci-emails-verify-her-lab-leak-claims/)
 
 0

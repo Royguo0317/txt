@@ -1,75 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家：中共高级叛逃者对几个中共特种武器项目有直接了解
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1304601/)
+## 恶性事件频出是中共到了癌症晚期
+` 文名` [轉載自GNews](https://gnews.org/zh-hans/1304634/)
 
-翻译: JS709 | 校对: Nick | 审核：V
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07034540/pt_adobespark.jpeg)
-不愿透露姓名的多个情报界消息来源告诉 RedState，据信是有史以来中华人民共和国叛逃至美国的最高级别的叛逃者之一，数月以来一直在与国防情报局 (DIA) 合作。这些消息人士称，这位叛逃者直接了解中共国的特种武器计划，包括生物武器计划。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07035516/8733cd216bde6bd3c315e648b1e65721-1.jpg)
 
-提供给 RedState 的信息证实并丰富了记者亚当·豪斯利（Adam Housley）周四晚上的报道。
+**作者：英国伦敦喜庄园 文名**
 
-推文链接：
+近日郭先生盖特说到，两个月内全国有超过7万起恶性事件。
+
+仅仅从网络渠道暴露出来的少数案件，开车撞人的、拿刀捅人的，丧心病狂的画面令人触目惊心，人人自危！
+
+我们在为受害者哀悼的同时，也要问一下，这种愈演愈烈的恐怖风气，是怎么形成的？能不能扭转？怎么扭转？
+
+我最近在学习生酮饮食的科学，发现人体健康是有规律可循的。其中一位台湾医师讲解癌细胞生成的原理：由于辐射、化学、压力、不良生活习惯等等因素在人体内造成了一个恶劣的生存环境，例如缺氧，进一步导致一些细胞无法吸收葡萄糖作为养分，快饿死了。于是为了自保，这些细胞开启了隐藏生存模式，突变成凶猛癌细胞，在缺氧环境下也可以生存下去。
+看似癌细胞是坏蛋，破坏我们的身体。但其实也只是由于人没有管理好自己的身体，逼一个善良细胞突变成邪恶癌细胞而已。找出病因，科学方法治疗，善待自己的身体，癌细胞甚至会自行消失。而错误粗暴的治疗方法，治标不治本，只会消耗病人的身体，让癌细胞恶化、扩散，加速死亡。
+
+如果把中共国看成一个人，每个百姓都是人体内的细胞的话，这一切何其相似！
+大陆有多少人敢说自己不是房奴、车奴、卡奴？
+工作上要996、007，父母要养老，孩子要教育。
+人人是负债状态：“2019年《中国消费年轻人负债状况报告》显示，信贷产品的渗透率在年轻人中已经接近九成，其中近一半的人实质负债。”
+大陆老百姓们的生活已经脆弱得经不起任何风吹草动。家中任何人生一场大病，一生的积蓄可能就没了。再碰上炒股、炒币被割韭菜，还有什么活路？
+这种已经紧绷到极点的恶劣生存环境，再加上疫情、国际社会对中共的制裁，楼震、桥震、粮震、行震、币震。。。人们还有活路吗？
+这不是超级致癌环境吗？试想，在这种透不过气的无氧环境中，正常人怎么可能不癌变？
+我们也请多同情一下这些施害者，他们本身也是受害者。病的不是人，病的是这个社会，这个党，这个体制。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07035611/%E6%90%9C%E7%8B%97%E6%88%AA%E5%9B%BE21%E5%B9%B406%E6%9C%8807%E6%97%A50518_1.png)图片来源自网络：6月5日16时27分，一男子在安庆市人民路商业步行街上持刀伤人
+
+面对这些愈演愈烈的恶性事件，中共只会掩盖、转移矛盾。头疼医头，脚痛医脚。如同只给止痛药，而不管病因如何。殊不知这只能苟延残喘一时。癌变的细胞越来越多，怎么办？
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07035544/photo_2021-06-01_05-15-10.jpg)图片来源于网络
+
+围堵并没有意义。当一个人心生恶念想去杀人，有千种万种方式。车可以变成凶器，锤子、水果刀、菜刀都可以是凶器。禁是禁不住的，中共有能力禁车、禁铁器、禁石头吗？
+
+要改变这一切，必须改掉以前抽烟、喝酒、不健康饮食等恶劣生活习惯，用正确的治疗方法、配以健康、科学的饮食，慢慢改善体内环境，使细胞重新回到正常生存状态。停止癌变，休养生息。
+针对中共国，就得把整个敲骨吸髓的恶党赶走，病根尽除，一切问题迎刃而解。
+
+对于普通百姓来说，在这种环境中生存，躺平最安全。现在这种形势下，崩溃的人会越来越多。而且这种事件有传染性、教唆性。一个人作案，其他人会模仿，如同癌细胞扩散。这些癌变细胞最先伤害的都是身边的细胞。所以我们躺平在家，即躲疫情，又躲暴力伤害，还能挣躺平币（话说七哥赶紧发行躺平币吧！这能拯救多少人，给多少人活下去的念想！）。躺在床上第二天一睁眼中共没啦！天亮啦！
+
+你躺我躺大家躺，躺倒中共换新颜。
+
+**【文章仅代表作者观点】**
+
+**参考资料：**
+[Dr. Eric Berg DC：Cancer Lives on Sugar AND…Something Else](https://www.youtube.com/watch?v=rewf0MMhGg8)
+[王群光医师：救命飲食 斷醣生酮飲食](https://www.youtube.com/watch?v=iQHSqqKKHIw&amp;t=610s)
+[大纪元：大陆个人负债增速居世界前列 银行卡债超美](https://www.epochtimes.com/gb/21/4/21/n12894931.htm)
+
+**末学的其他作品，请移步：**
+[**—【文名作品集】—**](https://gnews.org/zh-hans/tag/%E6%96%87%E5%90%8D/)
+ [➥美国大选中Q预言现象的反思](https://gnews.org/zh-hans/804872/)
+ [➥中共妖塔以假乱真的控心术](https://gnews.org/zh-hans/881662/)
+ [➥打死不如打伤-浅论现代超限生化战](https://gnews.org/zh-hans/947979/)
+ [➥新中国联邦人将受到全世界最大的尊敬](https://gnews.org/zh-hans/1203395/)
+ [➥马拉松都能冻死人，冬奥会还是别办了吧](https://gnews.org/zh-hans/1269660/)
+ [➥一个孩子都养不起，你还要我生三个？](https://gnews.org/zh-hans/1288189/)
 
 
-
-> Being told the increased pressure on China in recent days is due to a defector with intimate knowledge. In fact, Wray didn’t know right away because they wanted to make sure they got all they needed before telling him.
-> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670397473775617?ref_src=twsrc%5Etfw)
-
-
-
-推文翻译：
-
-被告知最近几天对中共国加大施压是由于一位深知内幕的叛逃者。事实上雷（Wray）并没有马上知道，因为他们想在告诉他之前确保他们得到了他们需要的一切。
-
-2021年6月4日 下午12:27
-
-RedState 的消息来源说这部分是真的。 他们说，联邦调查局局长克里斯托弗·雷（Christopher Wray）被这些信息“淹没”了，兰利（Langley）也不知道。消息来源称，DIA 领导层将叛逃者留在国防秘密服务部（DCS）DCS网络中，以防止兰利和国务院接触该人，因为 DIA 领导层认为 FBI、CIA 和其他几个联邦机构内部存在中共国间谍或内线消息来源。
-
-推文链接：
-
-
-
-> Also…US intelligence believes China is trying to produce variants that suggest it came from bats to cover up that it originally came from a lab. The belief is still that it escaped accidentally, but was allowed to spread.
-> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670631562076161?ref_src=twsrc%5Etfw)
-
-
-
-推文翻译：
-
-另外……美国情报部门认为，中共国正在试图制造表明它（中共病毒）是来自蝙蝠的变种，以掩盖它最初来自实验室的事实。 人们仍然相信它是意外泄漏，但被允许传播。
-
-2021年6月4日 下午12:27
-
-推文链接：
-
-
-
-> Again…what I reported tonight. US intelligence has a Chinese defector with Wuhan info. AND China is trying to produce variants that suggest it came from bats to cover up that coronavirus originally came from a lab
-> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400679023668187137?ref_src=twsrc%5Etfw)
-
-
-
-推文翻译：
-
-再说一遍……我今晚报道的。 美国情报部门有一名掌握武汉情报的中共国叛逃者。 **而且**中共国正试图生产表明它来自蝙蝠的变种，以掩盖冠状病毒（中共病毒）最初来自实验室
-
-2021 年 6 月 4 日 下午 1:01
-
-更多信息将在 RedState 得到后发布。
-
-2021年6月4日太平洋夏令时 下午 12:30 更新
-
-消息来源告诉RedState，叛逃者已经与DIA合作了三个月，他向美国官员提供了广泛的、技术上非常详细的简报。消息人士称，对叛逃者提供的信息的相信程度是突然对安东尼·福奇（Anthony Fauci）博士产生信任危机的原因，并补充说，向DIA详细介绍（中共病毒情况，译者加注）的美国陆军传染病医学研究所 (USAMRIID) 人员证实了叛逃者提供的信息的所有技术细节。
-
-（注意：几位前CIA官员质疑这篇报道的真实性或将其称为彻头彻尾的编造。我们知道这些评论并支持我们的消息来源。）
-
-原文作者：詹妮弗·范拉尔（Jennifer Van Laar）
-发布时间：美国东部时间 2021 年 6 月 4 日下午 2:23
-更新时间：太平洋夏令时2021 年 6 月 4 日下午12:30
-
-原文链接：
-[https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238)
 
 0

@@ -1,33 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 三孩政策：中共国的重大政策转变
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1304905/)
+## 【路德简报】6/6/2021早：中共外宣九层妖塔浮出水面，《Redstate》——— 中共高级别叛逃者是假新闻
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1305020/)
 
-信息来源：路透社
-发布时间：2021年5月31日
-翻译 /整理/ 简评：EternalLight
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07070232/fe-ngo-bvx3G7RkOts-unsplash-scaled.jpg)
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07072117/2021-06-06_AM_CN-scaled.jpg)
 
 
-近日大陆政府突然推出3胎政策引发海内外舆论强烈关注， 对此路透社做了题为&lt;&lt;三胎政策: 中国放开生育限制的重大政策转变&gt;&gt;专门报导。
+> 2021 年6月6日 路德时评 早 
+> 
+> 1. 中共外宣九层妖塔浮出水面：《Redstate》——— 中共高级别叛逃者是假新闻
+> 
+> 2.路德社呼吁战友： 不要轻易转发未经核实的消息 避免中招 
+> 
+> 3.何平谎称： “疫情原因”？普京近两年未到北京与习神见面 [pic.twitter.com/qm86BVau7u](https://t.co/qm86BVau7u)
+> — 平民爆料 (@WM18320321) [June 7, 2021](https://twitter.com/WM18320321/status/1401834894087573506?ref_src=twsrc%5Etfw)
 
-报道指出， 为了减少社会老龄化对经济的影响，2016中国政府宣布放开二胎政策， 但是在城市高房价和高物价的背景下， 似乎完全无法挽救快速老龄化的进程，新生人口在随后的几年甚至出现急剧的下降， 于是的短短5年时间后的今天， 中国政府又放开了3胎政策。 尽管政府宣布会出台多项配套措施支持，比如降低教育开销， 减税以及保障职业女性合法权益等， 但是各界人士仍对此颇有看法。
 
-“真正阻碍生育的不是二胎或者三胎政策， 而是当今高昂的抚养成本。 比如住房，课外培训，饮食，旅行等等， 加起来会是一笔很高的开支”  Yifei Li， 来自NYU的社会学家说
-
-”在我看来， 仅仅是放宽生育限制是没有任何意义的”Zhang Xinyu， 一位来自郑州的30岁妈妈如是说。。。
-
-与此同时，新华社微博关于三胎意愿的投票结果显示: 总共31000人投票， 高达29000人表示”不会考虑”。  于是很快投票就被迫关闭了。
-
-回到主题， 关于中国的老龄化困境已经是近几年的热门话题。 我们来看一组数据:
-
-截至2020年，日本的生育率降至历史最低，只有1.34。   而中国的生育率比日本更低， 仅为1.3，人口素质更优良的京沪大城市的生育率更跌至0.7。 远低于维持人口平衡所需的2.1。  由此可见， 如果政策上无法做出有效调整， 中国将面临比日本更加严峻的老龄化挑战。
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
-
-🔗[china-says-each-couple-can-have-three-children-change-policy](https://www.reuters.com/world/china/china-says-each-couple-can-have-three-children-change-policy-2021-05-31/)
 
 0
