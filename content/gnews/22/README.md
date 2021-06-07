@@ -1,35 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥首次说中共病毒可能是中共故意释放
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1304516/)
+## 【每日快讯】06/06/2021：战友们要有判断力不要等灭共蛋糕砸到自己头上
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1304668/)
 
-#### 文章撰写:【默凡】
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07035848/ggfdsnipaste_2021-06-07_15-57-57.png)
-
-6月6日，美国前国务卿蓬佩奥接受福克斯玛丽亚采访时表示：
-
-1、中共国所有实验室跟国企一样，都有中共军方或安全机构经营或控制，武汉病毒研究所也是如此；
-
-2、他执政时期想尽一切所能减少全球损失，其中最关键的就是彻查病毒起源和防止再次发生此类事件。我们需要知道中共病毒疫情是由于严重疏忽导致的泄漏，还是故意释放。
-
-3、中共想打垮并取代美国，并在全世界推行专制独裁统治，美国绝不能让中共得逞。
+**制作：Cantonense工作室**
 
 
 
-> ⚡️蓬佩奥接受福克斯玛丽亚采访，进一步讨论病毒是否是中共的生物武器！
-> 蓬佩奥说，所有的中国生物实验室，包括武毒所都被中共和中共军方控制。蓬佩奥还说要查清是否是中共故意释放
-> 
-> 蓬佩奥以前一直都说是泄漏，现在开始讨论故意释放了！ [pic.twitter.com/WYrZt4UCVh](https://t.co/WYrZt4UCVh)
-> — 洛子峰 (@Lhotse\_luozi) [June 7, 2021](https://twitter.com/Lhotse_luozi/status/1401698937635971074?ref_src=twsrc%5Etfw)
 
 
+**播报:【二丫】资料整理:【一帘幽梦】【文林】【二丫】海报制作:【侬民】视频制作:【KEN】发布：【向阳6768】**
 
-本文仅代表作者本人观点，不代表Gnews平台
+摘要：
 
-* * *
-
-*排版发布：日本东京方舟农场 文柯Miles*
-
+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07034843/210607-__2.jpg)
+2
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07034924/210607-__3.jpg)
+3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07035006/210607-__4.jpg)
+4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07042528/210607-__5-1.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07042610/image0%E9%9D%A2-2.jpg)
 0

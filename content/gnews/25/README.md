@@ -1,75 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家：中共高级叛逃者对几个中共特种武器项目有直接了解
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1304601/)
+## 新中国联邦人在澳大利亚首都堪培拉发出最强灭共声音
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1304676/)
 
-翻译: JS709 | 校对: Nick | 审核：V
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07034540/pt_adobespark.jpeg)
-不愿透露姓名的多个情报界消息来源告诉 RedState，据信是有史以来中华人民共和国叛逃至美国的最高级别的叛逃者之一，数月以来一直在与国防情报局 (DIA) 合作。这些消息人士称，这位叛逃者直接了解中共国的特种武器计划，包括生物武器计划。
+撰稿：三只松鼠
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07041647/20210607-3.png)图片来自澳喜战友
+继5.30在澳大利亚首都堪培拉成功进行了线下宣传活动后，6月4日，在新中国联邦成立一周年之际，新中国联邦澳喜农场堪培拉小组再次出动，来到堪培拉市中心进行线下宣传，活动再次取得了圆满成功。
 
-提供给 RedState 的信息证实并丰富了记者亚当·豪斯利（Adam Housley）周四晚上的报道。
+5.30的成功让战友们更有信心，目的更加明确了，我们就是要在澳大利亚首都改写中国人过去给人怯懦的印象，刻下新中国联邦人崭新的历史，发出我们新中国联邦人的最强的声音—中国人不等于中国共产党、新中国联邦人永不为奴！
 
-推文链接：
+我们堪培拉小组人不多，但很精悍，年龄最大的是战友文浪的父亲65岁，最小的是战友喜爱迪11岁。大家分工明确、相互配合，定点分发传单。在市中心小广场的四角及中心位置，分别由文浪、文柏、小秘密、一宜、文起、喜安娜及喜爱迪姐妹定点分发小册子并进行宣传。文浪的父母在周围四处走动分发小册子，荣荣居中调度，实时补缺。喜妈主要负责与后台联线直播，宁南不停用相机抓拍亮点，三只松鼠用手机即时发送战友与路人交谈的动态。
 
+伴随着“take down the CCP”的歌声，从早上九点半至下午五点，大家斗志昂扬，精神饱满，分发小册子数量超过上次5倍，并且与西人的沟通也更加卓有成效。虽然堪培拉的人口少，每平方公里仅有140人左右，但是毕竟是澳大利亚首都，是政治中心。我们宣传的市中心离一百多个领事馆区仅有几公里距离，所以，从这里经过的人可能是外交官，也可能是情报人员，还可能是驻外机构人员，我们的宣传作用不容小觑。我们明显感到，目前西人对病毒真相的认识有了很大的提高，对我们中国人的认识也有了与以往不同的，予以正面评价的改观。这一切，都是我们每一个新中国联邦人锲而不舍努力的结果。
 
+颤抖吧CCP！我们新中国联邦人已经不再害怕、不再犹豫，我们在澳大利亚正在书写着我们的历史，新中国联邦正在腾飞！
 
-> Being told the increased pressure on China in recent days is due to a defector with intimate knowledge. In fact, Wray didn’t know right away because they wanted to make sure they got all they needed before telling him.
-> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670397473775617?ref_src=twsrc%5Etfw)
+（本文仅代表作者观点）
 
+*审核：MG1 编辑：Runaway*
 
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-推文翻译：
-
-被告知最近几天对中共国加大施压是由于一位深知内幕的叛逃者。事实上雷（Wray）并没有马上知道，因为他们想在告诉他之前确保他们得到了他们需要的一切。
-
-2021年6月4日 下午12:27
-
-RedState 的消息来源说这部分是真的。 他们说，联邦调查局局长克里斯托弗·雷（Christopher Wray）被这些信息“淹没”了，兰利（Langley）也不知道。消息来源称，DIA 领导层将叛逃者留在国防秘密服务部（DCS）DCS网络中，以防止兰利和国务院接触该人，因为 DIA 领导层认为 FBI、CIA 和其他几个联邦机构内部存在中共国间谍或内线消息来源。
-
-推文链接：
-
-
-
-> Also…US intelligence believes China is trying to produce variants that suggest it came from bats to cover up that it originally came from a lab. The belief is still that it escaped accidentally, but was allowed to spread.
-> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400670631562076161?ref_src=twsrc%5Etfw)
-
-
-
-推文翻译：
-
-另外……美国情报部门认为，中共国正在试图制造表明它（中共病毒）是来自蝙蝠的变种，以掩盖它最初来自实验室的事实。 人们仍然相信它是意外泄漏，但被允许传播。
-
-2021年6月4日 下午12:27
-
-推文链接：
-
-
-
-> Again…what I reported tonight. US intelligence has a Chinese defector with Wuhan info. AND China is trying to produce variants that suggest it came from bats to cover up that coronavirus originally came from a lab
-> — Adam Housley (@adamhousley) [June 4, 2021](https://twitter.com/adamhousley/status/1400679023668187137?ref_src=twsrc%5Etfw)
-
-
-
-推文翻译：
-
-再说一遍……我今晚报道的。 美国情报部门有一名掌握武汉情报的中共国叛逃者。 **而且**中共国正试图生产表明它来自蝙蝠的变种，以掩盖冠状病毒（中共病毒）最初来自实验室
-
-2021 年 6 月 4 日 下午 1:01
-
-更多信息将在 RedState 得到后发布。
-
-2021年6月4日太平洋夏令时 下午 12:30 更新
-
-消息来源告诉RedState，叛逃者已经与DIA合作了三个月，他向美国官员提供了广泛的、技术上非常详细的简报。消息人士称，对叛逃者提供的信息的相信程度是突然对安东尼·福奇（Anthony Fauci）博士产生信任危机的原因，并补充说，向DIA详细介绍（中共病毒情况，译者加注）的美国陆军传染病医学研究所 (USAMRIID) 人员证实了叛逃者提供的信息的所有技术细节。
-
-（注意：几位前CIA官员质疑这篇报道的真实性或将其称为彻头彻尾的编造。我们知道这些评论并支持我们的消息来源。）
-
-原文作者：詹妮弗·范拉尔（Jennifer Van Laar）
-发布时间：美国东部时间 2021 年 6 月 4 日下午 2:23
-更新时间：太平洋夏令时2021 年 6 月 4 日下午12:30
-
-原文链接：
-[https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238](https://redstate.com/jenvanlaar/2021/06/04/exclusive-high-ranking-chinese-defector-has-direct-knowledge-of-several-chinese-special-weapons-programs-n391238)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0
