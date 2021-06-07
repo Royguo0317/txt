@@ -1,54 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【诗歌】午後的海灣
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1303414/)
+## 成就孩子也成全自己——关于《园丁与木匠》
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1303751/)
 
-![](https://lh5.googleusercontent.com/PiAf5ppPDA3ZlrxWBqs7iVAeIDl6EJ77OQx4ePL3IvgMp73duYKpzKEe1fyOAIJEJDjdyCMBQrs7uNttXoBUhfNaPDh4-kgiFiHcYUO2j4Bk2yJDIspJoT3Zlgh2TBuDc4xECkjI)
+作者：兴国|校对：仙女儿-文善|审核：Beicy-数学老师|Page：小雨
 
-作者：盐门
+[!\[\]()!\[\](https://spark.adobe.com/page/asH4La64C74A6/images/ed30ab85-6c51-43ae-9198-60e709cb9565.jpg?asset_id=bb26e3c5-9d49-48ce-85df-d34388bddaf5&amp;img_etag=%2257d41323bb9413f4818c57bcc5b12f88%22&amp;size=2560)](https://spark.adobe.com/page/asH4La64C74A6/images/ed30ab85-6c51-43ae-9198-60e709cb9565.jpg?asset_id=bb26e3c5-9d49-48ce-85df-d34388bddaf5&amp;img_etag=%2257d41323bb9413f4818c57bcc5b12f88%22&amp;size=1024)
 
+色彩纷呈的育儿专栏，林林总总的育儿指南，常常彼此矛盾，让家长无从选择又容易产生焦虑。
 
-```
-云端的红地毯聚光灯 
-  已渐远渐淡的留在昨天
-  黑白竪条的衬衫配一根领带 
-  我尽量简单地搭配让自己出彩.
-  為礼貌地迎接你们的到来
+作为家长或准家长，多了解各种经历时间检验的经典书籍或在专业领域获得认可的科学权威观点，像营养一样，慢慢吸收，逐渐扩大自己的视野，培养自己的认知体系，潜意识里建立相应的体系原则（“道”），这样针对每个不同的孩子，会更容易找到不同的解决和应对方法（“术”）。
 
-  轻轻地握手长久的拥抱 
-  冰水之后谁点了滚烫的红茶 
-  是谁总是结束前偷偷买单？ 
-  华盛顿港的船儿挤满海面
-  起伏的心潮涨满海湾
+今天开始我们一起学习一本有关如何做家长的书—《园丁与木匠》（The Gardener and the Carpenter: What the New Science of Child Development Tells Us About the Relationship Between Parents and Children），作者是加州大学伯克利分校的发展心理学家艾莉森•高普尼克（Alison Gopnik）。
 
-  熟悉的微笑悦耳的中音 
-  第二次握手坦诚的倾诉  
-  君子情款款地流出心扉 
-  落地窗前的笑声有血浓於水 
-  狂喜的驻军丢下了全部的装备
+[!\[\]()!\[\](https://spark.adobe.com/page/asH4La64C74A6/images/18d97c17-a973-485a-9f2c-27d3833867ff.jpg?asset_id=c2afec38-2eb1-44f6-a100-657467c6b369&amp;img_etag=%220ddc3805eeb57c71e82f8e6b14cd00be%22&amp;size=3834)](https://spark.adobe.com/page/asH4La64C74A6/images/18d97c17-a973-485a-9f2c-27d3833867ff.jpg?asset_id=c2afec38-2eb1-44f6-a100-657467c6b369&amp;img_etag=%220ddc3805eeb57c71e82f8e6b14cd00be%22&amp;size=1024)
 
-  我不羞愧激动的时刻在你们对面 
-  镜片的背后有水晶的项链散落满地 
-  聆听中你也并不讶异眼前 
-  不自觉伸过来的手中有纸巾
-  传递心的交融胜过所有的语言
+事实上，即使不是家长，这本书也可能有助于我们每个人更深入地理解“人”。
 
-  过去的必将远去很快翻篇 
-  没有让地球变得不平的白酒 
-  没见到谁的桌上放过雪茄烟 
-  我们的故事踩下油门加速向前 
-  随著七哥一起走进明年明天      
+除了一些特例，我们都知道家长对孩子的影响非常重要，高普尼克（Gopnik）从科学角度归纳为以下几点：
 
+**一．提供遗传基因。**智力的因素可以遗传。有研究表明，哪怕一个父亲生下孩子之后完全不再有接触，这个孩子的智商和父亲的收入水平之间都有一个正相关。
 
-(以上文字仅代表个人观点）
-```
+**二．提供家庭环境**。中国几乎所有家长都重视子女教育，而美国的情况则是明显的阶级分化：中产阶级家长非常重视孩子教育，他们孩子的学习成绩，包括将来的成就，都比贫困家庭的孩子好很多。
 
+事实上，稳定温暖的家庭环境，问题能得到家长的及时回答，有条件去博物馆，有条件学习各种课程，有条件参加各种活动，潜移默化就知道怎么跟大人、陌生人、有权威的人打交道，这些肯定能让孩子受益终身。但这些事情只要是有一定条件、有一定责任心的家庭都能做到，并不需要育儿指南。
 
+**三. 科学研究表明，具体的操作方法根本不重要。**
 
-![This image has an empty alt attribute; its file name is 0849747B-14C1-4FAB-A6EB-F1E2BF0D75D2.jpeg]()![This image has an empty alt attribute; its file name is 0849747B-14C1-4FAB-A6EB-F1E2BF0D75D2.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04063623/0849747B-14C1-4FAB-A6EB-F1E2BF0D75D2.jpeg)
+作为父母，你是什么人，比你对孩子做什么重要得多。但作为父母，我们总不可能什么都不做，只是放纵孩子野蛮生长吧？那到底应该对孩子做什么，怎么做呢？这就是我们为什么要学习《园丁与木匠》这本书。
+
+《园丁与木匠》出版于2016年，中国读者可能相对较少，而这本书又是关于儿童发展和亲子关系的一个里程碑级科学研究，非常值得我们学习和了解。这本书从“儿童心理发展科学家角度”来讲育儿而不是育儿指南，它告知我们最新科学结果，人生的哲学，以及童年对人生甚至整个人类的价值。
+
+我们要想获得具体解决育儿过程中，生活中各种问题的“术”，还需先理解“道”。想要知道怎么对待孩子，要先知道童年的作用。想要帮助孩子学习和成长，就要明白儿童学习的脑科学原理。
+
+高普尼克（Gopnik）对儿童发展心理学，特别是儿童怎样学习、怎样探索的研究很深入，她曾出版过另一本书叫《宝宝也是哲学家》（有中文版），同时作为一位有三个优秀的已成年孩子的母亲，见证和经历了育儿过程中的许多问题。
+
+儿童成长方面的事情如果可以在当今选一位权威专家来问，非高普尼克莫属。高普尼克已年过六十，当年作为一位忙碌的科学家没有多少时间管孩子，可是她的三个儿子都非常出类拔萃。升级为奶奶的高普尼克，作为儿童发展心理科学家，她以科学家和奶奶的身份更加从容地观察孙子，近距离高频率地验证和反思，结合自己多年的科学研究，为我们呈上这本书。
+
+从下一期开始，我们一起来学习了解吧。相信我们每位成人也会从中发现自己的一些性格特征、能力特征或问题的原因，从而更好地接纳现在的自己，调整自己，发挥自己，收获更好的今天和明天。
+
+*资料来源：*
+
+1. 《The Gardener and the Carpenter》—Alison gopnik
+2. 《解读园丁与木匠》—万Sir
 
 
+***文章仅代表作者个人观点***
 
+编辑：【英国伦敦喜庄园编辑部】
 
-+1
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/asH4La64C74A6/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/asH4La64C74A6/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
+0

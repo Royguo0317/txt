@@ -1,33 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 专家警告： 意大利人有理由害怕打疫苗
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1303467/)
+## 【诗歌】午後的海灣
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1303414/)
 
-新闻来源： il paragone.it
-发布日期： 2021年5月7日 
-翻译整理/简评： 小白鸽
+![](https://lh5.googleusercontent.com/PiAf5ppPDA3ZlrxWBqs7iVAeIDl6EJ77OQx4ePL3IvgMp73duYKpzKEe1fyOAIJEJDjdyCMBQrs7uNttXoBUhfNaPDh4-kgiFiHcYUO2j4Bk2yJDIspJoT3Zlgh2TBuDc4xECkjI)
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/06041841/vaccine-scaled.jpg)
+作者：盐门
 
 
-在欧盟坚持只有强制接种疫苗才是摆脱中共病毒的唯一出路时，某些专家提出不同的看法。
+```
+云端的红地毯聚光灯 
+  已渐远渐淡的留在昨天
+  黑白竪条的衬衫配一根领带 
+  我尽量简单地搭配让自己出彩.
+  為礼貌地迎接你们的到来
 
-这些专家对疫苗的有效性，以及疫苗未来产生的不期望的影响的担心持续增加。在科学界有如此众多的相互矛盾的看法，使一些专家感到疑惑，帕多瓦大学教授保罗•贝拉维泰(Paolo Bellavite)便是其中一位。在接受意大利La7 电视节目的采访时，贝拉维泰( Bellavite )在直播中解释道：“ 意大利人接种疫苗时感到害怕从某种意义上来说时有道理的。我们并不能肯定在好处和危险之间存在着真正的联系。人们在谈论这一话题的时候都使用很肤浅的方式。我们应该知道我们还处在一个真正的试验阶段。第二阶段和第三阶段的试验将在2022年结束， 第四阶段的试验被称为post-marketing 正在进行，可惜进行的不好。
+  轻轻地握手长久的拥抱 
+  冰水之后谁点了滚烫的红茶 
+  是谁总是结束前偷偷买单？ 
+  华盛顿港的船儿挤满海面
+  起伏的心潮涨满海湾
 
-“ 给我们提供的疫苗不良反应的数据并不可靠——贝拉维泰 补充道——因为都是所谓的被动监测。也就是说只有在不良反应的案例被负责报告不良反应的人拿到才算是不良案例。
+  熟悉的微笑悦耳的中音 
+  第二次握手坦诚的倾诉  
+  君子情款款地流出心扉 
+  落地窗前的笑声有血浓於水 
+  狂喜的驻军丢下了全部的装备
 
-举个例子：每十万个注射疫苗的有四十例严重反应不良的，事实上，从主动监测来看的数据是4%， 也就是每十万个人中有四千个人有不良反应。这是人们应该知道的。
+  我不羞愧激动的时刻在你们对面 
+  镜片的背后有水晶的项链散落满地 
+  聆听中你也并不讶异眼前 
+  不自觉伸过来的手中有纸巾
+  传递心的交融胜过所有的语言
 
-当贝拉维泰教授特别提醒老人和身患疾病的人要特别注意的时候，他的话引起了另一位节目支持人米尔塔•梅尔利诺(Myrta Merlino) 的强烈反应，她也是节目邀请的嘉宾。她马上试图阻止贝拉维泰的发言，她说“服避孕药的危险比疫苗更危险。”为什么你要这样警告大家？我们需要尽快地给所有人都打上疫苗。”
+  过去的必将远去很快翻篇 
+  没有让地球变得不平的白酒 
+  没见到谁的桌上放过雪茄烟 
+  我们的故事踩下油门加速向前 
+  随著七哥一起走进明年明天      
 
-如果你想对支持打疫苗的观点的人提出质疑的观点，这是意大利电视台所不允许的。
 
-简评： 从这篇报道我们可以看到这一现象：如今要在意大利电视台对打中共病毒疫苗提出不同看法都是要被禁声的。西方社会鼓吹的自由、民主被中共的生物超限战打得一败涂地。媒体误导也是生物超限战的重要组成部分。如果你讲真话，他们会说这是阴谋论。人类所付出的代价是惨重的。老百姓在不明真相的情况下，都充当了小白鼠。
+(以上文字仅代表个人观点）
+```
 
-本文只代表作者观点， 与GNEWS 平台无关
-发表: Shuizhuyu
 
-🔗[lallarme-dellesperto-gli-italiani-che-hanno-paura-del-vaccino-hanno-ragione](https://www.ilparagone.it/attualita/lallarme-dellesperto-gli-italiani-che-hanno-paura-del-vaccino-hanno-ragione/)
 
-0
+![This image has an empty alt attribute; its file name is 0849747B-14C1-4FAB-A6EB-F1E2BF0D75D2.jpeg]()![This image has an empty alt attribute; its file name is 0849747B-14C1-4FAB-A6EB-F1E2BF0D75D2.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04063623/0849747B-14C1-4FAB-A6EB-F1E2BF0D75D2.jpeg)
+
+
+
+
++1
