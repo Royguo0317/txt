@@ -1,30 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/06-001郭文贵先生盖特精要
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1303853/)
+## 一个人作恶源于个人，多数人着魔来自系统
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1304008/)
 
-听写： 逍遥自在| PR: 樂禧禧| Page：小六月
+字幕听译：樂禧禧| 字幕PR： CharlesS | 字幕： 雨中漫步 | 评论： Filon |评论翻译: 珠穆朗玛峰 | 翻译PR: Marialu | Page: Daoiii
 
-[!\[\]()!\[\](https://spark.adobe.com/page/XD7pzZvq6D5wl/images/cf43ce33-1b8e-4782-bc64-c05f4937bdf1.jpg?asset_id=56d616ca-f5d1-4137-b504-d588ffcadd4c&amp;img_etag=%229591ca766e5871796b9acb1d1d9c3786%22&amp;size=1024)](https://spark.adobe.com/page/XD7pzZvq6D5wl/images/cf43ce33-1b8e-4782-bc64-c05f4937bdf1.jpg?asset_id=56d616ca-f5d1-4137-b504-d588ffcadd4c&amp;img_etag=%229591ca766e5871796b9acb1d1d9c3786%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/0SLQqr1epNMsm/images/561f6033-5b23-4efa-9006-09684886dac8.jpg?asset_id=96862c4d-159f-4bfb-93e6-580420976b72&amp;img_etag=%2273a78f67ee5b62628d8e6e767ef07d37%22&amp;size=1024)](https://spark.adobe.com/page/0SLQqr1epNMsm/images/561f6033-5b23-4efa-9006-09684886dac8.jpg?asset_id=96862c4d-159f-4bfb-93e6-580420976b72&amp;img_etag=%2273a78f67ee5b62628d8e6e767ef07d37%22&amp;size=1024)
 
-6月6号：尊敬的战友们好！新中国联邦的宣言．和爆料革命的．行动力．正在对冲掉共产党在中共的一切谎言．爆料革命将横扫中共在世界上任何一个角落的黑暗的力量！
+视频链接：
 
-• 新中国联邦的庆典在全世界引起了蝴蝶效应，在世界的各个领域，绝对是改变人类的历史，并且创造了新的人类：政治，法律还有民主运动，特别是非暴力的民主运动和政治抗争新的标准，而且最智慧的与现代化科技相结合。它是世界上未来的精英，追求民主，法治，公平，正直，公平社会最好的榜样。充分的把现代科技，现代经济，现代金融，国际关系和人与人的社会关系学彻底改变。意义之深远。
-
-• 新中国联邦人和爆料革命在世界上的地位和所带来的影响是多范围的。战友们一定要记住：唯真不破，团结在一起。中国人不等同于中共，中共不能代表中国人，中共不代表中国。这是爆料革命最重要的“资产”之一。让各国的政要彻底改变以前的认知。
-
-• 中国仅仅在过去的两个月由于经济问题中国人民被逼的有大量的“报复社会”事件，是共产党的走狗们欺压百姓，没有活路了，只有一个选择，约有七万起血腥暴力事件。当七万变成七十万的时候，就是社会集权的压迫，到七百万的时候共产党就完蛋了。国内银行的“还旧代新”庞氏骗局，45%-50%都成了烂账，“还旧代新”的周转过程约有50%基本延续不下去。在过去的两到三个月里国内约有八十万的私人企业倒闭。
-
-• 集体大家最重要的关系就是信任，所有人与人的关系就是建立在信任的基础之上。一点看一面，唯真不破与实际行动结果带来的力量。
-
-[链接](https://gtv.org/getter/60bce283c04fd544b46a8ecf)
+近日，云南昆明，3岁女童自称因不好好读书吃饭，被幼儿园老师强迫吃排泄物。 家长表示，孩子平时很诚实，没有理由撒谎。目前教育主管部门回应称已联合警方进行调查。 我们已经记不清楚，类似对幼儿的伤害事件是第几次出现在我们的眼前， 多到我们都快对愤怒麻木。老吾老以及人之老，幼吾幼以及人之幼。 每个人都有老人和小孩。尊老爱幼，人心向善是人的本性， 本应该无需过多赘言。但是当一个社会往往大量出现对弱者的伤害， 那肯定是这个社会风气出现了大的问题。中共国如今只会追逐对金钱和权利的崇拜， 没有了正义与否的衡量，导致众人戾气丛生，人心渐渐失衡。 人们内心没有了信仰，就失去了根，就逐渐模糊了善恶之分。 这种混沌之感所有人都不会快乐和享受。
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/XD7pzZvq6D5wl/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/XD7pzZvq6D5wl/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
 0

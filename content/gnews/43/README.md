@@ -1,43 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚利桑那州选举审计接近尾声
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1303302/)
+## 病毒起源于实验室
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1303448/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+信息来源：德国世界报网络版 
+记者：比吉特·赫登，（Birgit Herden）
+         莱昂哈德·兰德斯（ Leonhard Landes）
+发布时间：2021年6月06日
+翻译 /整理/ 简评： Shuizhuyu
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06145954/N-2.jpg)newsweek.com
-《门道专家》今早（6月6日）发表文章，报道了亚利桑那州重新计票的最新进展，题目是：“亚利桑那州审计：第三班彻夜计票——手工清点开始放缓——最新数字”。
-
-文章说，周六（6月5日）晚上，亚利桑那州的审计工作继续收尾，他们很快就不需要晚上8点到凌晨1点的倒班了，现在只剩下7个未动过的箱子托盘。
-
-在拆除了12张计票工作台之后，工作现场开始增加更多的法庭审验工作台，因为它们已经接近完工。
-
-上周五，《门道专家》的权威人士报告说，审计已经达到67%的选票清点。当时，工作现场有10个未动过的托盘，现在还剩下7个。
-
-参议院参议员利亚森·肯·贝内特（Liason Ken Bennett）对《门道专家》的权威人士说：“大多数托盘上有40个箱子，有些托盘上有32个，而且各不相同，通常一个箱子里有1200到1300张选票，所以一个托盘上通常有40000到50000张选票。” 这是在他周三（6月2日）的采访中说的，当时还有14个托盘。
-
-这是个大新闻！
-
-现在看来，他们每天“狂扫”近2个托盘，以这样的速度，我们可以期待本周完成手工清点的过程！
-
-随着法庭制表的增加，我们应该很快就能看到整个审计工作完成。
-
-需要更多的州跟随州参议员道格·马斯特里亚诺（Doug Mastriano）、州参议员克里斯·杜什（Cris Dush）和州众议员罗伯·考夫曼（Rob Kauffman）来观摩，见证这个过程！
-
-（原文完）
-
-在亚利桑那州“国家审计”样板的感召下，民众的压力下，相信其他摇摆州的法庭审计会陆续展开。宾夕法尼亚州议会在考察完亚利桑那州后继续敦促，川普总统也发表声明，估计宾州的法庭审计指日可待。虽然佐治亚州法官几次推翻了法庭审计的诉求，但要求真相的人们不会作罢，且严格监视着作弊者的一举一动，上周传出存放选票的场地发出了报警的消息，川普总统在第一时间警告，必须保证选票的安全。
-
-期待大选欺诈舞弊的真相早日被揭穿！
-
-原文链接：
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/25094615/458536-1.png)
 
 
+图片来源： 网络
 
-> [ARIZONA AUDIT: Third Shift Counts Ballots ALL NIGHT As The Hand Count Begins To Wind Down — Latest Numbers](https://www.thegatewaypundit.com/2021/06/arizona-audit-third-shift-counts-ballots-night-hand-count-begins-wind-latest-numbers/)
+Sars-CoV-2 是否来自武汉的实验室？ 安全专家和世卫组织顾问杰米梅茨尔认为这一理论是合理的。 在采访中，中国指责中国进行了危险的掩盖——但他反驳了一项指控。
 
+一年多来，杰米·梅茨尔 (Jamie Metzl) 发表了论文：病毒大流行起源于实验室事故。 这位美国世卫组织顾问在其网站上为这一具有政治争议的理论收集证据。 这位未来技术和地缘政治专家认为，中国阻止透明调查是对全球安全的攻击。
 
+简评： 德国世界报是一个相对很严肃的一个媒体，现在已经开始陆续有几篇有关病毒来源的报道， 虽然声音还不够强大， 但是已经开始了。 这篇报道是一个访谈， 世界报采访了世卫组织顾问，结论即使武汉实验室。 因为访问很长， 我这里只是把结论给出来。 这个对我们爆料革命很重要， 对以毒灭共很重要。 对全世界也是非常重要的信息， 也许这样下去真的能够避免中共再次防毒， 让全世界认识中共的邪恶。
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
+
+🔗[Woher-kommt-Corona-Experte-wirft-China-gefaehrliche-Vertuschung-vor](https://www.welt.de/wissenschaft/plus231611009/Woher-kommt-Corona-Experte-wirft-China-gefaehrliche-Vertuschung-vor.html)
 
 0
