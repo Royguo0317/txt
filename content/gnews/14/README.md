@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴西的中共病毒疫情
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1304495/)
+## 【澳大利亚】中共病毒病例呈上升趋势
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1304563/)
 
 ```
 新闻来源：意大利共和报（repubblica.it）
@@ -10,18 +10,17 @@
 翻译整理/ 简评：斩草要除根
 ```
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07031353/brasile-638x425-1.jpg)图片来源：fanpage
-
-巴西仍然是受 中共病毒大流行影响最严重的国家之一：据卫生部报告，到昨天总死亡人数超过 47万人，感染者人数达到 16,841,408。在一周内，巴西记录了 11,797 人死亡，这意味着每天平均有 1,685 人死亡，使该国成为第二个因 中共病毒而死亡人数最多的国家，这仅次于美国。冠状病毒死亡率为每 10 万居民 224 人死亡，而发病率为 8,014 人。尽管现在平均病例和死亡人数显示出一定的稳定性，但医学和科学界都警告说，未来几周第三波大流行即将到来。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07034727/CHP_Export_251813341_MELBOURNE-AUSTRALIA-NewsWire-Photos-JUNE-07-2021-Bourke-Street-Mall-in-ce-e1623052084211.jpg)图为澳大利亚墨尔本 2021 年 6 月 7 日：在封锁的第二周，墨尔本市中心的伯克街购物中心很安静。
+图片来源：NCA NewsWire / Andrew Henshaw
+澳大利亚人口第二多的维多利亚州报告称，中共病毒的病例略有增加，虽然仅为 5 例，但这足以引起警报。也是因为当地卫生当局首次在墨尔本发现了一种新的具有高度传染性的 *Delta* 中共病毒变种。*Delta* 变体已被世界卫生组织 (*WHO*) 归类为四种最令人担忧的中共病毒变体之一，它最容易传播。
 
 #### 简评：
 
-**本次疫情中，巴西成为中共国疫苗的海外实验基地，中共国为巴西提供了最多的疫苗供给。有巴西官员炮轰中共国疫苗效率低下，加之更具传播性的病毒变体和缺乏协调的防疫措施助长了巴西疫情的爆发。**
-（本文只代表译者观点，与Gnews无关）
+**该变异毒株被归类为“令人担忧的变种病毒”，也极有可能在世界各地再次引起新一波疫情的大爆发。即使各国都在进行疫苗接种运动，但是面对新的变异体，我相信都是束手无策的。**
+ （本文只代表译者观点，与Gnews无关）
 
 **新闻原文链接：**
-[🔗Il caso Brasile](https://www.repubblica.it/esteri/2021/06/05/news/coronavirus_nel_mondo-304283844/?ref=RHTP-VS-I270681069-P18-S9-T1)
+🔗 [Australia: casi in aumento](https://www.repubblica.it/esteri/2021/06/05/news/coronavirus_nel_mondo-304283844/?ref=RHTP-VS-I270681069-P18-S9-T1)
 
 * * *
 
