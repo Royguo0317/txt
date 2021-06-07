@@ -1,35 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七国集团计划宣布数字货币国际新规
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1303429/)
+## 【独立观点】接种疫苗会让新冠病毒降为地方病吗？
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1303402/)
 
-俄罗斯莫斯科喀秋莎农场  银河
+作者：纽约香草农场健身部 幸福鸟
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06165010/G.jpg)ledgerinsights.com
-日经新闻6月5日报道，七国集团(Group of Seven)主要经济体的金融主管们将讨论央行发行的数字货币的规则，希望将中共国的数字人民币纳入国际监管框架。
 
-七国集团财长6月4日在伦敦召开了为期两天的会议，将解决国家发行的数字货币可能引发的问题，目标是最早在今年秋天宣布新规则。
 
-中共国积极推动发行数字人民币，引发了人们的担忧，担心此举可能会催生一个以参与“一带一路”基础设施倡议的国家为中心的新经济区。这样的框架可能会破坏当前以美元为基础的货币体系。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
 
-作为大规模试点项目的一部分，中共国于去年10月发行了国家货币的数字版本。政府计划在明年年底正式让比特币进入流通。
 
-如果这样一个数字人民币经济区成为一个强大的存在，西方的制裁，比如阻止以美元或其他关键货币进行的交易，将变得毫无作用。而这是对违反国际规则的国家的典型惩罚工具。
 
-此外，中共国政府将获得数字元的交易数据。这不仅会侵犯数据隐私，还可能被用作压制言论和排挤政治对手的工具。
+根据美国疾病控制和预防中心的数据，截至 6 月 3 日，美国死于新冠病毒的患者平均每天为363 名，比去年1 月份大流行高峰时的平均每天 3,000 多例死亡数大幅度降低。很多美国人天真地相信随着疫苗接种人数的增多，每天死亡人数还会继续下降。
 
-在去年10月的会议上，七国集团的财政部长和央行行长发表了一份联合声明，呼吁提高此类货币的透明度和法治。西方国家和日本的七家央行与国际清算银行(Bank for International Settlements)成立了一个联合研究小组，概述了央行数字货币的基本原则。会议提出“央行不应”通过发行数字货币来“损害货币或金融稳定”。七国集团将在伦敦会议期间进一步阐述这些原则。
+有专家甚至指出，“通过近乎普遍的疫苗接种，新冠病毒在美国几乎可以完全得到控制“。他们认为天花就是这样在 1980 年被消灭的。
 
-发达国家央行也在为自己的数字货币制定具体计划。日本央行(Bank of Japan)今年4月推出了一项使用数字货币进行交易的试点计划。欧洲央行(ECB)可能会在未来几个月决定是否推出自己的测试计划。上个月，美国联邦储备委员会(Federal Reserve，简称美联储)表示，将在今年夏天发布一份关于发行数字货币的研究报告。
+流行病学家认为，“大流行是一种新疾病的全球传播。流行病是特定地理区域内疾病的意外增加。当一种疾病总是存在但仅限于特定群体或地区时，它就会成为地方病”。
 
-这是自2020年2月在沙特阿拉伯举行的20国集团(G20)财长会议以来，七国集团首次举行面对面的财长会议。
+这些天真的美国人乐观地认为，在 7 月 4 日之前，乔拜登总统希望 70% 的美国人至少会部分接种疫苗，因而感染率会大大降低，那时美国就足以宣布疫情降至地方性流行病水平。届时就会出现两个美国：一个接种了疫苗的万事大吉美国，另一个则是没有接种疫苗的新冠病毒成为地方流行病的美国。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06165223/Untitled-design-2021-06-06T145151.407.png)
+他们根本没有意识到中共病毒其实就是中共为了灭白和称霸世界而一手制造并释放的生物武器。只要邪恶的中共不灭，各种变异病毒随时可能以十倍，甚至百倍的疯狂卷土重来，从而使整个人类的生死存亡面临巨大挑战。
 
-数字货币已经成为新的经济主导模式，喜马拉雅币走在了时代的前沿。唯一与黄金挂钩的数字货币必然开创历史先河，喜马拉雅币未来可期。
+在他们看来，疫苗简直就是灵丹妙药，就是救命稻草，而不想探求疫苗的可信性以及对人体的潜在危害。这是舍本逐末，盲目乐观！这种以为只要接种了疫苗，新冠病毒就可能会降为地方病的想法实在令人啼笑皆非！
 
-参考链接：
+参考：
 
-[https://asia.nikkei.com/Spotlight/Cryptocurrencies/China-s-bid-for-digital-yuan-sphere-raises-red-flags-at-G-7](https://asia.nikkei.com/Spotlight/Cryptocurrencies/China-s-bid-for-digital-yuan-sphere-raises-red-flags-at-G-7)
+*USA Today  When will COVID-19 end in US? When deaths are at point people ‘accept’*
+
+https://news.yahoo.com/does-covid-19-end-us-100246372.html
+
+校对/发稿：火内
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,54 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【诗歌】午後的海灣
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1303414/)
+## 民主党要求国会支持调查 Covid-19 实验室泄漏理论
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1303665/)
 
-![](https://lh5.googleusercontent.com/PiAf5ppPDA3ZlrxWBqs7iVAeIDl6EJ77OQx4ePL3IvgMp73duYKpzKEe1fyOAIJEJDjdyCMBQrs7uNttXoBUhfNaPDh4-kgiFiHcYUO2j4Bk2yJDIspJoT3Zlgh2TBuDc4xECkjI)
+翻译：康州盘古农场–格格巫
 
-作者：盐门
+校对：康州盘古农场–Mike Li
 
+编辑：康州盘古农场–傻小子
 
-```
-云端的红地毯聚光灯 
-  已渐远渐淡的留在昨天
-  黑白竪条的衬衫配一根领带 
-  我尽量简单地搭配让自己出彩.
-  為礼貌地迎接你们的到来
+发布：康州盘古农场 – 彩虹 Rainbow
 
-  轻轻地握手长久的拥抱 
-  冰水之后谁点了滚烫的红茶 
-  是谁总是结束前偷偷买单？ 
-  华盛顿港的船儿挤满海面
-  起伏的心潮涨满海湾
+**据《politico》作者：ANDREW DESIDERIO和ERIN BANCO，2021 年5 月26 日发布**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06192737/yviu.jpg)
+国会越来越支持调查 Covid-19 大流行的起源，随着对中共国的鹰派重新关注病毒从武汉实验室泄漏的理论，这可能会使民主党立法者反对拜登政府。目前尚不清楚国会调查将采取何种形式，特别是对于Covid-19的起源问题，是否会成为对全球危机和美国应对措施而进行更广泛审查的一部分。但是正在进行的关于国会山的讨论，代表了两党的一项非凡的协议，即国会应该调查一种病毒的起源，该病毒已经杀死了全球350万人，其中包括近60万美国人。民主党此前曾将实验室泄漏理论视为共和党提出的话题。但是在《华尔街日报》报道说武汉病毒研究所的三名科学家在病毒于中共国传播之前就出现与 Covid-19 一致的症状，并于2019 年 11 月住院，两党的立法者正在重新评估这种情况。
 
-  熟悉的微笑悦耳的中音 
-  第二次握手坦诚的倾诉  
-  君子情款款地流出心扉 
-  落地窗前的笑声有血浓於水 
-  狂喜的驻军丢下了全部的装备
+参议院卫生委员会成员、参议员蒂姆凯恩 (D-Va.) 说：“当我们分析出了什么问题以及我们将来可以做什么时，我们也必须对这些问题有答案。” “而且我认为你会看到国会也解决其中的一些问题。我们必须追根究底。”以参议院情报和卫生委员会为中心的会谈，可能会加大对白宫的压力，来解决中共国战略造成的更广泛的挫败感。国会的鹰派人士以及前川普政府官员表示，政府在推出明确的与中共国打交道的政策方面进展缓慢。民主党人第一次公开接受他们的论点，认为拜登政府需要向北京施加外交压力才能从武汉实验室释放数据。拜登政府高级官员一再表示，对病毒起源的任何调查都应由世界卫生组织等独立的国际组织牵头。卫生与公共服务部长泽维尔·贝塞拉 (Xavier Becerra) 是最新一位在周二世卫组织部长级会议之前发表讲话的人。但世卫组织对一项调查的首次介入，导致 3 月份的一份报告称实验室泄漏理论“极不可能”受到了阻碍，因为中共国不会分享关键的实验室记录和数据。
 
-  我不羞愧激动的时刻在你们对面 
-  镜片的背后有水晶的项链散落满地 
-  聆听中你也并不讶异眼前 
-  不自觉伸过来的手中有纸巾
-  传递心的交融胜过所有的语言
+周三，乔·拜登总统表示，他已要求美国情报机构“加倍努力收集和分析可能使我们更接近于对 Covid-19 起源做出明确结论的信息”，并在 90 天内报告。他补充说，美国情报机构本月早些时候的一份初步报告“结合了两种可能的情况”，即实验室事故或人类与受感染动物的接触。“我已经询问了可能需要进一步调查的领域，包括针对中共国的具体问题。我还要求包括我们的国家实验室和我们政府其他机构工作，来加强情报界的工作，”拜登说。“而且我已经要求情报界让国会充分了解其工作。”总统还表示，美国将继续与其他国家合作，“敦促中共国参与全面、透明、以证据为基础的国际调查”。
 
-  过去的必将远去很快翻篇 
-  没有让地球变得不平的白酒 
-  没见到谁的桌上放过雪茄烟 
-  我们的故事踩下油门加速向前 
-  随著七哥一起走进明年明天      
+那些推动拜登政府签署美国调查的人指出，华尔街日报的文章，以及最近 18 位着名科学家的一封信，那封信要求进行更彻底的调查，这些作为证据表明，世卫组织的调查没有充分考虑到实验室泄漏理论。但国会能做的事情是有限度的，尤其是在涉及外国政治时。参议院不太可能从中共国直接获得任何新的情报或证据，但他们可以向行政部门寻求文件和情报报告。
 
+**原文链接：**
+[https://www.politico.com/news/2021/05/26/democrats-covid-lab-leak-theory-490951?utm\_source=RSS\_Feed&utm\_medium=RSS&utm\_campaign=RSS\_Syndication](https://www.politico.com/news/2021/05/26/democrats-covid-lab-leak-theory-490951?utm_source=RSS_Feed&amp;utm_medium=RSS&amp;utm_campaign=RSS_Syndication)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-(以上文字仅代表个人观点）
-```
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-
-
-![This image has an empty alt attribute; its file name is 0849747B-14C1-4FAB-A6EB-F1E2BF0D75D2.jpeg]()![This image has an empty alt attribute; its file name is 0849747B-14C1-4FAB-A6EB-F1E2BF0D75D2.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04063623/0849747B-14C1-4FAB-A6EB-F1E2BF0D75D2.jpeg)
-
-
-
-
-+1
+0

@@ -1,103 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国开展反腐败斗争反击蓝金黄
-` Jimsolomon` [轉載自GNews](https://gnews.org/zh-hans/1303303/)
+## 蝠奇还有更多和中共勾兑的邮件待曝光
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1303335/)
 
-打击美国和国际金融系统中所有形式的非法金融活动，追究腐败个人、跨国犯罪组织和他们的协助者的责任，与国际伙伴合作对付外国领导人、外国国企或关联企业、跨国犯罪组织及其他们的美国勾兑者的系统性腐化行动。
+**摘要：在2021年6月2日的盖特视频中，郭先生向中南坑和王岐山大秀肌肉，用实力告诉它们无论是收买美国大外宣布隆伯格（Bloomberg）、《华尔街日报》、《华盛顿邮报》，还是非法拍卖郭先生家族的方正证券资产，都无法阻挡郭先生和新中国联邦的灭共步伐。郭先生还爆出和中共勾兑的蝠奇的邮件远不止800封，有更多邮件能证明蝠奇和中共官员高福和WHO勾兑——这是献给新中国联邦一周年的大礼。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06151344/Miles_2021-06-02-getter.srt.txt)
+**蝠奇还有更多和中共勾兑的邮件待曝光**
 
-作者：CPA Jim 所属农场：[喜马拉雅-华盛顿DC农场](https://gnews.org/zh-hans/author/himalayadcgnews/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/27131206/g20.jpg)（图片来源：gnews）
-2021年6月3日，美国总统拜登签署备忘录，[将反腐败斗争（Fight Against Corruption）确立为美国的核心国家安全利益。](https://www.whitehouse.gov/briefing-room/presidential-actions/2021/06/03/memorandum-on-establishing-the-fight-against-corruption-as-a-core-united-states-national-security-interest/)
+**More Emails Between Fauci and CCP Officials to Be Released**
 
-该备忘录未提中国，也未提中共，但是爆料革命战友都知道中共蓝金黄的一个很重要方面就是腐败。同时美国、英国、欧盟每天面临的难民或非法移民问题，根源还是腐败。腐败影响到了众多国际机构、跨国公司、华尔街，包括国际刑警组织、联合国人权组织，导致寻求政治避难的中国难民信息被出卖给中共。
+兄弟姐妹们，看到我们6月3号一周年伟大日子的到来，共产党准备了啥？布隆伯格——王岐山的哥们儿黑咱的一篇报道。哑口不提海航的事情，哑口不提冠状病毒我们战友的爆料，哑口不提我们对香港运动的支持。
 
-**设定美国的反腐败斗争政策。**
+It’s not easy, brothers and sisters, to witness the arrival of the great day of our first anniversary of the New Federal State of China (NFSC) on June 3. What has the CCP prepared for us? Bloomberg, Wang Qishan’s buddy, published a report that defamed us. The report didn’t mention HNA at all, was silent about the coronavirus news that was broken by our fellow fighter, and not a single word about our support for the Hong Kong movement.
 
-备忘录的第一条，腐败侵蚀公众信任； 阻碍有效的治理； 扭曲市场和服务的公平获得； 削弱发展努力； 助长国家脆弱性、极端主义和移民； 并为专制领导人提供了一种破坏全球民主的手段。 当领导人偷窃本国公民或寡头无视法治时，经济增长放缓，不平等加剧，对政府的信任度下降。
+然后就说我们跟北大的事儿。布隆伯格刚放出来[报道]不到仨小时，你看看宣布大连法院，然后所谓的中纪委6月19号拍卖方正证券拥有的事实上价值100亿美元的证券。现在（已经弄走一次了）第2次，要把价值90亿人民币[的资产]以10亿美元拍卖，就是惩罚咱们一周年纪念。
 
-第一条继续写道，仅从财务方面考虑，腐败的成本惊人，偷走了全球GDP的2%-5%，虽然腐败成本分布不均衡，滥权谋私、挪用公共资产、贿赂和其他形式的腐败影响每个国家和社区。腐败所得资金跨越国境，对经济和政治制度的影响远甚于腐败发生时的影响。包括在美国和其他法治民主国家，匿名的壳公司，不透明的金融系统和专业服务提供商使非法财富的流动和洗钱成为可能。
+Then the report talked about our affairs with Founder Group. Less than three hours after Bloomberg published the report, the Dalian court, the Central Commission for Discipline Inspection, announced the auction of the securities owned by Founder Securities that were actually worth $10 billion on June 19. It has already been taken away once, and for the second time, the assets valued at 9 billion RMB will be auctioned for $1 billion. This is precisely to punish our first anniversary [of the NFSC].
 
-第一条继续写道，腐败危害美国国家安全，经济平等，全球扶贫和开发努力和民主制度本身。但是通过有效预防和打击腐败并展示透明和负责任的治理，就能为美国和其他民主国家捍卫核心优势。
+很多人说哎呀一周年纪念花多少钱多少钱。七哥不是跟你们抱怨，看看七哥家人付出的，看看七哥付出的，仅此一项就100亿美元。当年瑞士，当年日本的几家公司还有美国的，当时就[只值]100亿美元，这帮孙子从来不说为什么郭文贵加入后你们证券那么值钱了？但是就这，它也要抢走。兄弟姐妹，你们看看，这就是咱们一周年七哥要买的单。
 
-第一条的最后写道，签发本国家安全研究备忘录，就是为了将反腐作为核心的美国国家安全利益。拜登政府将领导促进良好治理的努力，给美国和全球金融系统带来透明，预防和打击国内外腐败，使得腐败分子日益难以遁形。
+Many people say, oh, how much does it cost to celebrate the first anniversary? Brother Miles is not complaining to you. Look at the price my family has paid and look at what I have paid. This former holding alone is worth $10 billion. At that time, there were several companies in Switzerland, Japan, and the United States. They were worth $10 billion at the time. These bastards never said why these securities were so valuable after Miles Guo joined. But even this, the CCP has to take away. Brothers and sisters, take a look. This is the price that Brother Miles will pay for our first anniversary.
 
-这里提到了腐败阻碍有效的治理，笔者认为包括中共阻碍美国公众公司会计监督委员会（PCAOB）检查在中国内地和香港（本文按跨国公司的财务报告惯例，将中国内地和香港合并简称为大中华区）的审计工作底稿，从而帮助美国公司的大中华区伪造财务业绩。
+王岐山说：“要改变大外宣政策，要彻底消灭一周年。”这就是[对付]一周年的招 — 连续3到7篇的负面报道。都是大媒体：布隆伯格，什么《华尔街日报》，什么《华盛顿邮报》— —这就是他们想要的。这就是王岐山开了几天会，他要出九大招，就是干走你钱，然后威胁。
 
-根据经济合作与发展组织（OECD）的公司治理准则或英国财务报告委员会（FRC）发布的《英国公司治理准则》，公司治理包括财务报告、薪酬管理等方面。
+Wang Qishan said he wanted to change China’s foreign propaganda strategy and completely eliminate the first anniversary. These are the tricks they use to tackle the first anniversary: publishing 3 to 7 negative reports consecutively in all the big media: Bloomberg, the Wall Street Journal, or the Washington Post. This is what they want to do.  This is what Wang Qishan is like. After a few days of meetings, he is going to make nine major moves, which are designed to take away your money and threaten you.
 
-美国公司伪造大中华区的财务业绩，加上高估的人民币汇率，从而伪造美国公司合并财务报表的财务业绩，管理层就可以更容易达到股票奖励所要求的业绩目标。中共国实施的是有管理的浮动汇率制度，经济学上又叫肮脏汇率制度，而中共政权是有组织犯罪组织，加上和跨国公司管理层、华尔街勾结，使得有管理的浮动汇率制度更加肮脏，严重侵害有效治理。
+蝠奇的Email，大家想想当年DOJ的Email，Elliott Broidy的Email，还有Higginbotham的案子，还有王健的视频，王健的档案都在什么时候出来的？蝠奇的Email还多着呢！跟蝠奇有关系的共产党，什么高福，Email多着呢！
 
-第一条提到的专制领导人（authoritarian leaders），中共肯定就是其中一员。
+Regarding Fauci’s emails, think about it everybody, the DOJ’s emails, Elliott Broidy’s emails, the Higginbotham case, and Wang Jian’s video. When did Wang Jian’s files come out? There are still very many emails from Fauci. There are too many emails between Fauci and the CCP gangsters such as Gao Fu (director of China CDC) to be released.
 
-至于扭曲市场，除了上面伪造财务业绩的有大中华区的跨国公司和中概股扭曲国际金融市场以外，还应该包括华为、大疆、中国铁建、中国中铁、中国路桥等中共企业在参与美国和其他国家的政府、企业的采购时，扭曲招标，或者通过和中共国的贷款银行比如亚洲基础设施投资银行串通指定由他们施工、供货，扭曲国际货物与劳务市场。
+“习一坑”，王岐山，钟南坑老杂毛们，看看我怎么给你们绣。你不是要拍卖方正证券吗？啥叫拍？你抢了不就完了呗！你看看我跟你….
 
-**反腐战略**
+“Nutty Xi” (Xi Jinping), Wang Qishan, those old bastards in Zhongnan Pit, see how I embroider you. Don’t you want to auction Founder Securities? Why call it an auction? Why don’t you just grab it directly?
 
-备忘录的第二条：指示总统助理兼国家安全顾问与总统经济政策助理和总统国内政策助理协调，根据国家安全备忘录/NSM-2（更新国家安全委员会制度）进行机构间审查程序并制定总统战略，该战略在实施后将显着增强美国政府下列方面的能力：
+蝠奇的Email绝不止800件，还有更多。还有跟蝠奇勾兑的香港实验室、WHO — Wu Han Organization。还有世界上跟共产党勾兑掩盖[病毒真相]的，包括中国那些大佬。
 
-（a）现代化、增加、协调、配备资源和改善关键执行部门和机构的能力，包括本次审核中列出的部门和下面列示的部门，以促进良好治理，预防和打击腐败，包括在需要时向国会提交法律草案;
+There are definitely more than 800 emails from Fauci. The Hong Kong laboratory also had secret deals with Fauci and the WHO – the Wu Han Organization. There are also people in the world, who colluded with the CCP, covering the truth of the virus, including certain Chinese bigwigs.
 
-(b)  打击美国和国际金融系统中所有形式的非法金融活动，包括强有力地执行联邦法律以要求美国公司向美国财政部报告他们的受益所有权人; 降低离岸金融隐私保护程度；改善信息分享；必要时识别进行新的改革的需求;
+兄弟姐妹们，我们背后有多少力量在支持我们呐！背后多少力量啊，多少力量。大家明白了吗？6月3日一周年献礼！ 蝠奇—武汉真相！大家看明白了？还会更多，还会更多。它不是九招吗？咱跟他出900招都不拉倒，咱们走着看。
 
-(c) 追究腐败个人、跨国犯罪组织和他们的协助者的责任，包括在适当时，通过增加信息分享、情报收集与分析，刑事或民事执行行动，咨询顾问，制裁或其他机构，在可能并且适当时，为腐败受害公民的利益返还追回的资产，识别 、冻结和追回被盗资产;
+Brothers and sisters, do you know how many forces are supporting and behind us? How much power is behind us, do you understand? We will present a gift for the first anniversary on June 3: the truth about about Fauci and Wuhan! Do you understand? There will be more. Doesn’t the CCP have nine tricks? Let’s give them 900 strokes and not stop. Just wait and see.
 
-(d)  加强国内和国际机构以及多边机构的能力，重点是建立全球反腐败规范、资产追回、促进金融透明度、鼓励开放政府、加强金融机构的框架以防止开发融资项目中的腐败，以及打击洗钱、非法金融和贿赂，包括在可能的情况下解决贿赂的需求方问题；
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60b79cd3c04fd544b4676d0c](https://gtv.org/getter/60b79cd3c04fd544b4676d0c) (1:02-2:58, 8:17-9:41)
+鸣谢：[1] 感谢Antsee-GTV、GUO TING 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供中文文本于[https://gnews.org/zh-hans/1291705/](https://gnews.org/zh-hans/1291705/)
+[2] 感谢YY、Liberte 和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/)  提供英文翻译于[https://gnews.org/1298116/](https://gnews.org/1298116/)
 
-(e) 支持和强化民间社会、媒体和其他监督与责任方开展研究和分析腐败趋势，调查和揭露腐败，让领导人负责的能力，为政府问责和改革工作提供信息和支持，并努力为这些行动者在国内和国际上提供安全和开放的运营环境;
+* * *
 
-(f)  与国际伙伴合作对付外国领导人、外国国企或关联企业、跨国犯罪组织和其他外国势力及其他们的国内勾兑者的系统性腐化行动，包括关掉这些势力所利用的美国国内外的民主程序中的漏洞;
+**字幕：【JennyL（纽约香草山农场）】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-(g)  加强努力，快速和有弹性地增加美国及其伙伴的调查、财务、技术、政治资源和对展现了减少腐败的意愿的外国的其他帮助;
-
-(h)  协助和加强国内（包括州和地方）当局和机构以及合作伙伴和其他外国各级政府的能力，以实施透明度、监督和问责措施，打击腐败并为其公民提供接触得到的有关政府计划、政策和支出的可用信息;
-
-(i)  促进与私营部门和民间社会的合伙关系，以倡议反腐措施和采取行动预防腐败; 并
-
-(j)  确立最佳实践和执法机制，以便让外国援助和安全合作活动已经建立了内嵌的腐败预防措施。
-
-第二条(b)提到降低离岸金融隐私保护程度和阿里巴巴、平安集团等机构设立在开曼群岛、维尔京群岛的公司相关，有助于解开[阿里巴巴年报中伙伴资本计划持有人购买阿里巴巴的股票价格才14.5-26美元的谜团。](https://gnews.org/zh-hans/560987/)
-
-第二条(c)和(d)涉及的是灭共后追回盗国贼所隐藏的资产问题。“加强金融机构的框架以防止开发融资项目中的腐败”，具体到一带一路项目，笔者认为相当于加强金融机构对贷款资金去向和工程采购程序的审核强度，比如工程结算是否真实，材质是否符合要求，是否伪造工程量和工程质量。
-
-第二条提到的民间社会、媒体，笔者认为应该包括爆料革命、GTV、Gnews、国家脉动、班农疫情作战室等
-
-第二条提到的外国领导人、外国国企或关联企业、跨国犯罪组织，笔者认为包括中共政治局委员、中共中央军委、中共国国企及其关联企业、中国共产党领导下的共产国际。
-
-**机构间复核**** **
-
-备忘录第三条：根据本备忘录，机构间复核应考虑专家研究的建议，并应包括来自以下机构和办公室的代表：
-
-(a) 副总统办公室；
-
-(b) 国务院；
-
-(c) 财政部；
-
-(d) 国防部；
-
-(e) 司法部；
-
-(f) 商务部；
-
-(g) 能源部；
-
-(h) 国土安全部；
-
-(i) 管理和预算办公室；
-
-(j) 美国驻联合国代表团；
-
-(k) 国家情报总监办公室；
-
-(l) 中央情报局；
-
-(m) 参谋长联席会议主席办公室；
-
-(n) 美国国际开发署； 和
-
-(o) 国家安全局。
-
-行政部门和机构应响应总统助理和国家安全顾问提出的与机构间复核有关的信息、分析和协助的所有请求。 机构间复核应在本备忘录发布之日起 200 天内完成，总统助理和国家安全顾问应向总统提交报告和建议，以供进一步指导和采取行动。
-
-0
++1
