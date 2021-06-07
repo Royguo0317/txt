@@ -1,32 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大象快讯】布林肯支持比利！拟对武汉实验室进行法医调查
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1304444/)
+## 巴西的中共病毒疫情
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1304495/)
 
-国务卿安东尼布林肯说拜登政府决心“深入了解”#COVID-19的出身，并誓言要追究中国的责任，但没有评论美国参与武汉实验室。
-
-拟对武汉实验室进行法医调查文件：
-
-2021年3月，编号：DOI：10.5281/zenodo.4640383项目：DRATIC
-
-这是一系列报告的第一部分，这些报告基于我们之前未发表的对 SARS-COV-2 起源的调查。我们要感谢所有为本调查做出贡献的独立研究人员，尤其是 DRASTIC 集体的成员，他们中的许多人出于安全和隐私的原因希望保持匿名。两个附录无法上传到Research Gate，但可以通过 Zenodo 下载，以下是视频链接，大家有兴趣可以去看。
-
-参考链接：
+```
+新闻来源：意大利共和报（repubblica.it）
+发布时间：2021年06月05日
+翻译整理/ 简评：斩草要除根
+```
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07031353/brasile-638x425-1.jpg)图片来源：fanpage
 
-> NEW – Secretary of State Antony Blinken says the Biden admin is determined to "get to the bottom" of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s origins, and vows to hold China accountable, but did not comment on the US involvement in the Wuhan lab.[pic.twitter.com/B9BNKNCQh7](https://t.co/B9BNKNCQh7)
-> — Disclose.tv 🚨 (@disclosetv) [June 6, 2021](https://twitter.com/disclosetv/status/1401682500846501888?ref_src=twsrc%5Etfw)
+巴西仍然是受 中共病毒大流行影响最严重的国家之一：据卫生部报告，到昨天总死亡人数超过 47万人，感染者人数达到 16,841,408。在一周内，巴西记录了 11,797 人死亡，这意味着每天平均有 1,685 人死亡，使该国成为第二个因 中共病毒而死亡人数最多的国家，这仅次于美国。冠状病毒死亡率为每 10 万居民 224 人死亡，而发病率为 8,014 人。尽管现在平均病例和死亡人数显示出一定的稳定性，但医学和科学界都警告说，未来几周第三波大流行即将到来。
 
+#### 简评：
 
+**本次疫情中，巴西成为中共国疫苗的海外实验基地，中共国为巴西提供了最多的疫苗供给。有巴西官员炮轰中共国疫苗效率低下，加之更具传播性的病毒变体和缺乏协调的防疫措施助长了巴西疫情的爆发。**
+（本文只代表译者观点，与Gnews无关）
 
-图片来源：[https://gnews.org/](https://gnews.org/)
+**新闻原文链接：**
+[🔗Il caso Brasile](https://www.repubblica.it/esteri/2021/06/05/news/coronavirus_nel_mondo-304283844/?ref=RHTP-VS-I270681069-P18-S9-T1)
 
-整理撰稿：蓝精灵
+* * *
 
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
+***编辑整理/校对: **Ting Guo*
 
 0
