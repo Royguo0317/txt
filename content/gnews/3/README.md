@@ -1,41 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普提出所有国家取消欠中国的债务作为赔偿的首付款
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1304336/)
+## 【小象评奇文】马路都是你的
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1304429/)
 
-撰稿：特战一兵
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07012331/704.jpg)图片来自网络
-在最近的（6月5日）北卡罗来纳州共和党州代表大会上，前总统川普呼吁中共必须为其在冠状病毒大流行中的角色支付“赔偿”。
+环球时报英文版在推特发了一个视频，显示广州今天全国统一高等院校招生考试时，扮演的重要的维护交通的角色：一个交警摩托车队出现在广州的街道，以确保高考交通顺畅。
 
-川普说，世界“现在是时候”让中共为其在大流行中的角色负责了。 “美国和世界要求中国共产党赔偿和追究责任的时候到了。” “中共必须付出，他们必须付出。”
+广州目前进入半封闭状态，所有的人都需要测核酸，而且很多地区都封闭了，大街上根本就没有什么人，交通警察很高兴，终于可以在马路上摆龙门阵了，马路都是你们的， 随便开好了。
 
-川普宣称世界各国要“共同努力，向中国提交至少10万亿美元的账单，以弥补损失。”，“作为第一步，所有的国家应该集体取消欠中国的任何债务，作为赔偿的首付款。”
+在疫情如此严重的时候，一边告诉人们不要出门，呆在家里，一边威胁要去集体做核酸检测，要不后果自负，一边组织全国一千多万的学生集体考试。有时候真的搞不清楚，这个国家疯了吗？
 
-在川普发表此言论之时，关于 COVID-19 起源于中国武汉实验室的看法正重新受到关注。
+参考链接：
 
-《华尔街日报》上个月报道称，武汉病毒研究所的科学家们因出现类似 COVID-19 的症状而病重，他们住院时间是在 2019 年 11 月。
 
-美国顶级传染病专家安东尼·福奇 (Anthony Fauci) 在周五发表的一次采访中也改变其先前否认病毒来源于实验室的态度，表示他想查看那些生病的武汉病毒所科学家的记录。
 
-一兵评论：我们不要小看川普的发言，这代表了美国甚至整个西方国家很大一部分人群特别是政治家们的想法，而这在此之前这么具体和明确的言论是从来没有放到台面上公开来说的。这似乎表明对病毒的追责问题已经到了定性和追责的阶段。
+> A traffic police motorcycle squad was seen on streets in [#Guangzhou](https://twitter.com/hashtag/Guangzhou?src=hash&amp;ref_src=twsrc%5Etfw) to ensure smooth traffic during [#gaokao](https://twitter.com/hashtag/gaokao?src=hash&amp;ref_src=twsrc%5Etfw), national college entrance exams, on Monday. [pic.twitter.com/46JVLNvwv8](https://t.co/46JVLNvwv8)
+> — Global Times (@globaltimesnews) [June 7, 2021](https://twitter.com/globaltimesnews/status/1401754140963786761?ref_src=twsrc%5Etfw)
 
-特别是川普提到“所有的国家集体取消欠中国的任何债务作为赔偿的首付款”作为10万亿索赔的第一步，这是非常现实和有杀伤力的举措。
 
-在大量人员死亡的情况下，所谓“取消欠中国的债务”，很大可能也包括“没收”这个手段在内，一旦如此，中共在美国和欧洲巨额的财产将直接处于危险之中。国营单位或中共党产自不必说，就是那些中共高官在西方国家的资产包括动产和不动产，都将是目标。这将使中共大大小小的窃国者痛彻心扉。
 
-一旦西方国家和其它国家这样做，中共可以说毫无还手之力。动武不敢，政治、外交层面也捉襟见肘，无人为它发声。
+图片来源：[https://twitter.com/](https://twitter.com/)
 
-因此，可以设想，中共的大量在海外有资产的高官们正惶惶不可终日，整个中共也正在做最坏的打算。但不管如何，中国的老百姓被中共绑架，将成为斗争的悲惨牺牲品。中国的老百姓只有奋起反抗，推翻中共，才有一线转机的可能。
+整理撰稿：蓝精灵
 
-(本文只代表作者本人观点)
+校对发布：Penny
 
-*审核：文筝  编辑：**MG1*
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-消息来源：The Hills
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0

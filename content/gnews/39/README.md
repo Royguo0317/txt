@@ -1,59 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】“护眼”行动屡出新招，青少年超高近视率依旧难解
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1303880/)
+## NBA助纣为虐
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1303918/)
 
-香草山写作组  鹰(文言)
+新闻来源：《布莱特巴特》Breitbart| 作者：Warner Todd Huston| 发布时间： 2021年6月1日
+
+翻译/简评：新街口|校对：小小妹|审核：Beicy-数学老师|Page：小雨
+
+[!\[\]()!\[\](https://spark.adobe.com/page/OPkQ2o3bLeRIq/images/d80d3c2e-11cf-4675-8a7b-c60bbc01adc2.jpg?asset_id=dff3ff6d-1e96-4b8c-a62a-e03025695f6e&amp;img_etag=%224ce38bbfba27f1cd61f89c5742490620%22&amp;size=1024)](https://spark.adobe.com/page/OPkQ2o3bLeRIq/images/d80d3c2e-11cf-4675-8a7b-c60bbc01adc2.jpg?asset_id=dff3ff6d-1e96-4b8c-a62a-e03025695f6e&amp;img_etag=%224ce38bbfba27f1cd61f89c5742490620%22&amp;size=1024)
+
+**简评：**
+
+中共在新疆进行种族大屠杀和种族灭亡的邪恶行径，导致了良好棉花发展协会（BCI）发起了超过200多世界知名品牌参与的国际社会对新疆棉花的集体抵制。中共一方面在国内以爱国的口号煽动民众参与对西方品牌如H&M 等商品进行抵制，并采用黑社会手段强迫为西方品牌代言的中国艺人单方面取消协议（如香港艺人陈奕迅单方面取消为阿迪达斯的代言），另一方面暗中以巨大的金钱为诱饵，诱使NBA的球员为中共控制的运动服饰品牌如李宁、安踏、匹克等代言，帮助这些企业提升市场份额。
+
+中共的这个卑鄙行为，一方面可以对在中国有巨大投资的西方的品牌进行打压，从而使中共控制品牌的市场份额增大，另外一方面由于这些品牌可以使用新疆棉花，同时也减小了国际社会对新疆棉花进行制裁的经济损失。
+
+NAB是美国和世界上影响力最大的一项体育赛事之一，中共以市场为诱饵，通过巨额的代言费吸引某些球员为中共控制的运动品牌来代言，也确实是处心积虑，并且收到了成效。NBA总裁亚当·肖华，至今还在公开发表NAB与中共国的合作有助于中美两国关系的言论。
+
+但中共的这种混淆中共与中国人、绑架14亿中国人的黑帮绑匪本色和流氓伎俩，已经被美国的政界所看清。这次美国国会中国委员会，就一些NBA球员为中共代言一事，专门给NAB球员工会写信，既给他们解释了为使用新疆棉花的中共品牌代言的危险性，敦促与中共品牌签约的球员尽快取消代言合同，同时也对他们的行为进行了警告。如信中所写， “与球员合作的公司公开接受来自新疆的棉花，可能使这些球员成为使用强迫劳动的同谋。”
+
+**原文翻译：**
+
+## **国会委员会敦促NBA球员放弃与中共国奴隶劳工有关的代言**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/OPkQ2o3bLeRIq/images/92a65844-c3ef-458a-9281-6873f693b9f6.jpg?asset_id=e08da034-4b4a-4049-9f05-0f063fb42085&amp;img_etag=%22ea39a7dc02e35b135eb3cb5b09bd34c6%22&amp;size=2560)](https://spark.adobe.com/page/OPkQ2o3bLeRIq/images/92a65844-c3ef-458a-9281-6873f693b9f6.jpg?asset_id=e08da034-4b4a-4049-9f05-0f063fb42085&amp;img_etag=%22ea39a7dc02e35b135eb3cb5b09bd34c6%22&amp;size=1024)
+
+**美国国会中国委员会周二发出一封信，敦促美国国家篮球协会（NBA）球员停止为那些使用了中共国劳教所生产的材料的运动服装公司代言。**
+
+在给美国国家篮球协会 的这封信中，两党国会-行政中国委员会主席指出，十几名职业篮球运动员已与中共国的安踏、李宁和匹克等公司签署了鞋、球衣和其它种类的赞助运动服饰的协议。在这些产品中，许多是使用来自中国新疆自治区的棉花制造的，该地区因建有大规模集中营而臭名昭著，囚犯在这些集中营中被强迫制造产品和种植棉花。
+
+据路透社报道，参议员杰夫默克利（民主党，俄勒冈州）和众议员吉姆麦戈文（民主党，马萨诸塞州）在信中说：“球员们还在继续与安踏体育签署新的协议。”
+
+国会议员补充说：“我们认为，与从新疆采购棉花的公司的商业关系会给美国国家篮球协会球员和美国国家篮球协会本身带来声誉风险。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/OPkQ2o3bLeRIq/images/bceb28a0-e84e-4bd5-a219-5bf8314cd5e2.jpg?asset_id=efd05113-77b8-48dd-b409-ac438b3ed05b&amp;img_etag=%2247a533f5d0a1137e0249a85e5f6d8d48%22&amp;size=2560)](https://spark.adobe.com/page/OPkQ2o3bLeRIq/images/bceb28a0-e84e-4bd5-a219-5bf8314cd5e2.jpg?asset_id=efd05113-77b8-48dd-b409-ac438b3ed05b&amp;img_etag=%2247a533f5d0a1137e0249a85e5f6d8d48%22&amp;size=1024)
+
+委员会成员指出，美国政府正式指控中共国政府在新疆犯下种族灭绝罪和危害人类罪，因为新疆的劳教所实际上监禁了数百万中国人。联邦政府还采取行动禁止从该地区进口棉花。
+
+这封信还大声疾呼“美国国家篮球协会和美国国家篮球协会球员甚至不应该暗中支持这种可怕的侵犯人权行为。”
+
+委员会成员补充说，与球员合作的公司公开接受来自新疆的棉花。“可能使这些球员成为使用强迫劳动的同谋。”
+
+国会委员会还补充说：“我们敦促美国国家篮球运动员协会(NBPA)与其会员合作，提高他们对新疆正在发生的种族灭绝；以及强迫劳动在美国国家篮球运动员协会会员所代言的产品在生产中的作用的认识。”
+
+“我们希望这些努力的结果是，参与者能够通过与安踏、李宁和匹克的合同，推动这些公司停止使用新疆棉花。如果没有这个结果，我们鼓励球员终止与这些公司的代言协议”。这位国会议员说。
+
+美国国家篮球协会一直顽固地拒绝评论劳改营生产了如此多的装备，这些装备都受到了联盟的认可。事实上，美国国家篮球协会总裁亚当·西尔弗最近声称，美国国家篮球协会与中共国达成的 10 多亿美元交易是世界外交的“净增值”。
+
+“我的政治学专业认为参与比孤立要好，”西尔弗在五月轻信地说道。“考虑到对中国制度的合法批评，所谓的抵制中国，不会推进那些寻求带来全球变化的人的议程。仅与中国人在NBA篮球中的合作，对于在两个超级大国之间建立关系是一个净增值。”
+
+[🔗原文链接](https://www.breitbart.com/sports/2021/06/01/congressional-committee-urges-nba-players-drop-endorsements-tied-chinese-slave-labor/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+[!\[\]()!\[\](https://spark.adobe.com/page/OPkQ2o3bLeRIq/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/OPkQ2o3bLeRIq/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-
-
-环球网6月6日转载中国新闻网消息，近年来虽然中共出台各种预防近视的文件和指南，但2020年青少年近视率却不降反增。
-
-2018年国内儿童青少年近视率为53.6%，其中高三年级学生高度近视（近视在600度以上）占比21.9%，2018年6月份，中共卫健委印发近视、弱视、斜视防治指南，8月份发布《综合防控儿童青少年近视实施方案》，全国范围内针对青少年近视问题进行专项整治；2019年青少年近视率下降至50.2%，但《中国儿童发展报告(2019)——儿童校外生活状况》显示，儿童工作日期间每天使用电子产品时长约43分钟，周六日平均时长更翻至96分钟，电子产品使用频率和时长依旧居高不下；2020年受新冠疫情影响，中小学生线上时间激增，截至9月份，中小学近视率增加11.7%，其中小学生近视率增加15.2%。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06212153/Screen-Shot-2021-06-06-at-8.42.34-PM.png)
-进入2021年后，虽然中共教育部先后发布如禁止手机入校园、不得使用手机布置作业、电子产品教学时长不得超过总时长30%等防近视“良计”，但上述措施中依旧停留在在校期间的管理，而青少年校外“滥用”电子产品的习惯并未得到有效改观。青少年用电子产品主要是玩游戏。在2018年中共教育部开展“预防中小学生沉迷网络教育”行动期间，腾讯等大型科技公司却仍在连番发布新款游戏。虽然象征性的推出防护措施，但依旧效果寥寥。而近年来游戏的规模却呈逐年上涨趋势，2020年游戏用户规模增至6.65亿人（同比增加3.7%），在游戏行业占比75.24%的移动游戏市场2020年收入达2096.76亿元（同比增长32.61%），依旧保持高速增长。
-
-《2019年全国未成年人互联网使用情况研究报告》显示，2019年国内未成年网民数量增至1.75亿人（未成年人互联网普及率达93.1%），其中未成年游戏用户规模约1亿人（占比57.1%）。受儿童手表、学习平板等设备的普及，游戏用户呈低龄化。2020年15-17岁有游戏习惯的未成年人近半在11岁前接触网络游戏，12-14岁阶段接触游戏的比例增至78%。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06212206/Screen-Shot-2021-06-06-at-8.42.30-PM.png)
-疫情期间，在线学习在青少年日常生活中的比例提升至69.7%，再加上近年来短视频、直播现象的泛滥，青少年使用电子产品的时长只增不减。大型科技公司对游戏产业的推崇和规模的扩张，以及电子竞技游戏的快速发展（2020年电竞游戏用户达4.88亿人，同比增长9.65%），再加上中共对短视频平台的有意放纵，电子产品对青少年的“诱惑”不减反增。即便青少年在校内被停止一切用网活动，但校外使用手机的监管缺失，游戏行为驱动不减都无法防治青少年近视。
-
-新闻来源：
-
-中国近视患者人数达6亿！你的视力达标吗？https://china.huanqiu.com/article/43QGjnZAHNE
-
-中国儿童青少年近视率53.6% 防控近视刻不容缓http://www.cnr.cn/sxpd/dqzs/20200429/t20200429\_525073365.shtml
-
-2020年中国游戏行业市场现状及发展前景分析 2020年市场规模将近2800亿元https://bg.qianzhan.com/report/detail/300/201222-97af9f6b.html
-
-多少道文件才能管住网游对少年儿童的戕害？http://www.xinhuanet.com/tech/2018-05/30/c\_1122912195.htm
-
-教育部要求不得用手机布置作业 专家建议师生家长共同制定手机使用管理规则https://new.qq.com/omn/20210219/20210219A00R0L00.html
-
-2021年中国游戏领域未成年人保护研究报告https://new.qq.com/omn/20210405/20210405A015ZM00.html
-
-青少年蓝皮书：未成年人在线学习日益受关注，疫情前后变化显著https://www.pishu.cn/zxzx/xwdt/555708.shtml
-
-![This image has an empty alt attribute; its file name is 6_june.jpg]()![This image has an empty alt attribute; its file name is 6_june.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![This image has an empty alt attribute; its file name is logo-4.jpg]()![This image has an empty alt attribute; its file name is logo-4.jpg](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-+1
+0

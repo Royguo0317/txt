@@ -1,47 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政府和五角大楼向资助中共病毒研究的生态健康联盟拨款1.62亿美元
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1303820/)
+## 【小象搬运】中共疫苗和医学的布局 揭秘美国华人生物科学家协会
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1303873/)
 
-**作者：**Jim Hoft 2021-06-05
+小象：网络病毒侦探挖出了美国华人生物科学家协会， 如何在中共大使馆和生物科技交流协会的支持下，布局美国医学网络，疫苗只是其中很小的一个项目。摘要整理如下：
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06211026/35746.png)图片来源：Jim Hoft原文
-据英国《每日邮报》周五晚间报道，五角大楼向生态健康联盟投入了近3900万美元，该联盟由饱受争议的研究人员彼得·达扎克博士领导。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06213007/1-15.png)
 
-正如《The Gateway Pundit》5月份报道的那样，德文·努内斯指控彼得·达扎克博士和生态健康联盟从联邦机构拿走了大约1亿美元。
+军事医学科学院生化武器首席专家陈薇与康希诺公司合作研发疫苗。康希诺生物股份公司执行董事、首席运营官兼副总经理巢守柏为美国华人生物医药科技协会前任会长。康希诺生物股份公司高级副总裁毛慧华为美国华人生物医药科技协会（CBA）的董事。
 
-本周早些时候，我们发现达扎克博士在2020年的一封电子邮件中感谢托尼·福奇博士，当他们两人都知道中共冠状病毒是其研究经费资助的产物时，仍坚持说它是自然发生的。
+巢守柏在康希诺生物股份公司从2018年起每三年高达6653600元。
 
-特朗普总统于2020年4月削减了对生态健康联盟的资助，该联盟与武汉病毒学研究所的功能增强测试有关。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06213400/2-10.png)
 
-当时主流媒体的假新闻称这是特朗普的阴谋论，但是他们又错了。
+2016年2月，华人生物医药学术团体CBA参加了由科技部与中国驻美国大使馆举办的创新驱动，科技引领座谈会并在天津康希诺生物技术有限公司和上海辅仁药业设置了美国华人生物医药科技协会工作站。翁新愚博士，中国大使馆一秘, 中国药监局驻美联系人，与该协会联系紧密。
 
-《每日邮报》报道：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06213710/6-4.png)
 
-联邦数据显示，五角大楼向一家慈善机构提供了3900万美元，该慈善机构资助了中共国实验室有争议的冠状病毒研究，该实验室被指控为中共冠状病毒的来源。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06213620/3-7.png)
 
-这一消息传出之际，该慈善机构的负责人、英国出生的科学家彼得·达扎克博士（Peter Daszak）遭到曝光，其在一场据称是利益冲突和幕后运动中，诋毁实验室泄漏理论。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06213953/4-5.png)
 
-慈善组织生态健康联盟（EHA）在它被发现一直在利用联邦拨款资助中共国武汉病毒学研究所的中共冠状病毒的研究之后，受到了严密的审查。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06214104/5-4.png)
 
-这家美国非盈利组织是为了研究新疾病而成立，也部分资助了备受争议的”功能增强”实验，在实验中，危险的病毒被人工变得更具传染性，以研究它们对人体细胞的影响。
+在他们的官方网站上， 我们看到了官员顾问这一栏，一个生物科技协会，把中共的模式完全复制到了西方文明社会，美国的学者也开始学而优则仕了。
 
-去年，前总统唐纳德·特朗普取消了对该慈善机构的370万美元捐款引发了一场政治风暴，原因是有人声称，中共冠状病毒是在EHA资助的武汉实验室创建的，或从该实验室泄露的。
+参考链接：
 
-但独立调查研究人员收集的联邦赠款数据显示，该慈善机构从政府（从2017年至2020年）已收到超过1.23亿美元，其最大的资助者之一是美国国防部，自2013年以来向该组织注入了近3900万美元。
+[https://scbasociety.org/scba-leadership](https://scbasociety.org/scba-leadership)
 
-**评：**几十年来美国对中共的豢养和纵容壮大了这个魔鬼，造成中国老百姓一直在忍受中共残暴统治，血泪斑斑，美国难辞其咎。多年以来中共对美国政府，军方，医疗权威部门的渗透非常深入，这些部门中许多人为了个人的私利甘当中共的走狗，成为背叛美国国家利益的叛美贼。多年来彼得·达扎克博士充当了这些叛美贼与中共勾结的中间人，他成立所谓的慈善机构接收这些叛美贼们输送的来自美国纳税人的金钱，转手资助中共发展超限生化武器，中共释放中共病毒到全世界造成全球大流行，迄今为止导致全球1.73亿人被中共病毒感染，其中死亡人数超过370万[1]。善良无辜的中国老百姓成为中共病毒的最大受害者，据文贵先生爆料称，国内已经导致数百万人国人死亡，被感染的国人难以计数，然而由于中共的严控信息，真实的数字只多不少；美国成为第二大受害国，迄今为止感染人数超过3300万，其中死亡人数接近60万[1]，美国建国以来第一次受到来自外部的攻击而损失惨重。然而中共病毒继续在肆虐全球，中共随时可能会释放更加致命的病毒，美国从来没有面临如此大的危机，这些事实说明美国的制度和立国的根基已经受到严重破坏。美国仍然是全球唯一有能力对抗并最终击败邪恶中共统治全世界的阴谋的国家，然而美国需要立即采取行动，对内清除这些叛美贼，对外开始采取实际行动压迫进攻中共，最终造成中共从内部开始分崩离析，并与真正代表中国老百姓民意的正义力量合作接管中共政权，最终达到一个稳定的中国，这对于中国和全世界都将是一个福音。
+图片来源：[https://scbasociety.org/](https://scbasociety.org/)
 
-##### **原文：**Jim Hoft, “Govt And Pentagon Funneled $162M To EcoHealth Alliance, The Group That Funded Coronavirus Research In Wuhan”.《Human Are Free》, June 05, 2021.** **[https://humansarefree.com/2021/06/govt-and-pentagon-funneled-162m-to-ecohealth-alliance-the-group-that-funded-coronavirus-research-in-wuhan.html](https://humansarefree.com/2021/06/govt-and-pentagon-funneled-162m-to-ecohealth-alliance-the-group-that-funded-coronavirus-research-in-wuhan.html)
+整理撰稿：蓝精灵
 
-#####  [1] COVID-19 DASHBOARD by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU). June 06, 2021. [https://coronavirus.jhu.edu/map.html](https://coronavirus.jhu.edu/map.html)
+校对发布：Penny
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-编辑/发布：比卡丘
-
-20210606
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01083510/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 0
