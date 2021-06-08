@@ -1,66 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新中国联邦一周年】庆典开始前战友们早起及入场花絮
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1306559/)
+## 【热点播报】医学权威对急于普及疫苗接种的担忧
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1306761/)
 
-现场记者：纽约香草山记者站 Kathy文艺
+作者： 纽约香草山媒体部7bends
 
-撰稿：纽约香草山健身部 童谣
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
 
+社交媒体Rumble 6月5日登出了心脏病专家Peter McCullough医生在6月4日接受澳大利亚媒体亚太今日（ASIA PACIFIC TODAY）的访问。Peter McCullough医生对政府急于普及新冠疫苗接种表达了担忧。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08011152/%E5%9B%BE%E7%89%879-1.png)图片来源：Rumble
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07234234/Copy-of-16x9-feature-photos-MOS-logos-12-1.png)*主题图片（制作：Deliah小胖；原图片来源：Kathy文艺现场）*
+Peter McCullough医生是得克萨斯A&M 医学院Baylor达拉斯校区的医学教授。他是国际公认的当代医学问题医学证据评估权威，并发表有广泛的著作。McCullough医生曾在世界各地就广泛的健康主题发表演讲，并将他的经验带回到日常工作中，为他的病人服务。
 
-郭文贵先生评价新中国联邦一周年庆典活动时，说“这次活动，圆满、成功地结束了”【1】。他对这次完全由新中国联邦各地农场主办，以及战友义工们具体负责执行的周年庆典评价很高。那么，现在，当参加庆典的战友们全部安全返程，是时候可以坐下来，回顾一下庆典期间的一些花絮了。
+人们对澳大利亚维多利亚洲政府支持的论文《抗体依赖增强和SARS-CoV-2疫苗和疗法》提出担忧。McCullough医生就是其中之一。他对政府急于为所有人接种新冠疫苗深感不安。被建议接种疫苗的其中包括那些具有免疫力，且风险不大的人。McCullough医生公开表示，根据所有当前的安全数据，他不能推荐新冠疫苗。
 
-让我们从香草山农场的Kathy文艺战友，当初在庆典活动现场，为我们记录下的现场报道，来了解一下2021年6月3日，在庆典开始前，参加活动的战友们的一些情形吧。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08011253/%E5%9B%BE%E7%89%8710.png)图片来源：战鹰团
 
-2021年6月3日，据文艺战友上午10:49和10:50传来的视频报道。
+这也印证了病毒学家闫丽梦博士对现有冠状病毒疫苗的担忧。闫博士在早些时候接受弗莱明博士的采访时谈到，针对现有的大流行，并没有有效的疫苗。闫博士说她不是反对疫苗，而是担忧现有疫苗的副作用，如过敏或者抗体依赖增强。除此之外SARS-CoV-2还具有快速变异的特征，怎么可能几个月内攻克所有这些难题呢？最重要的是，SARS-CoV-2是超限战生物武器。
 
-*战友们入驻酒店的大厅，介绍入场时间。视频来源：Kathy文艺现场*
-今天新中国联邦成立一周年的庆典活动，将于中午12时07分开始举行。嘉宾入场的时间是在11点钟。前期工作人员还在紧张地布置会场。
-*战友们入驻酒店环境。战友们都早早起来，准备好参加当日的盛大庆典。视频来源：Kathy文艺现场*
-战友们入住的是世贸大厦旁边的喜来登酒店。早晨起来做病毒检测之后，开始分组下楼等待进入会场。
-入驻酒店部分外景，以及*哪些设备可以被带入典礼现场。视频来源：Kathy文艺现场*
-参加典礼时随身物品的携带限制比较严格。由于今天的天气是阴雨天，战友们只能携带一把统一购买的雨伞和一部手机。房卡、信用卡全都拿在手中。由于充电宝、充电器不允许带入，所以文艺战友的手机充电还需要借助前期入场战友的充电器。女士们都换好服装，穿上了高跟鞋。战友们待会儿打着伞，大概走三五分钟就能到会场。
-*“为了美“。视频来源：Kathy文艺现场*
-联盟记者站分了几个报道时间段，香草山GNews记者站负责十一点到三点的密集报道。而香草山既然是东道主，文艺战友则会尽力争取全程分享所见所闻。
+参考阅读：https://rumble.com/vi2esn-dr-peter-mccullough-on-the-rush-to-vaccinate-the-entire-population..html
 
-在酒店大堂等待期间，面对文艺战友的采访，**文信战友**表达了自己在庆典之前的心情“战友互相见面非常亲切，感谢好多接机的战友。六四新中国联邦成立一周年，大家都非常激动，非常兴奋。每个男战友都是仪表堂堂，女战友也非常漂亮，看了非常的舒服，感到振奋”。昨天文信战友非常忙碌，还帮文艺战友找到了要采访的能灯山神战友，战友之间就是这样相互帮助。
-
-小王子战友也正在安排第一组、第二组的战友们进入会场。Lady May出游时，小王子就一直站在码头上，现在他还要一个组一个组地带战友们进入会场，非常辛苦忙碌。
-*战友们走路去庆典现场，经过“9·11“*纪念池（1）经过纪念池（2）
-这次庆典活动虽然结束了，但留给参加现场活动的战友来宾们的感动和激励还没有结束。通过GTV现场实况转播和GNews平台获取现场活动信息的战友们，会从我们的文字、图片和视频报道中，感受到现场的气氛，体会到亲临现场感。作为参与本次周年庆典报道的写作小组的成员，我们总结现场的一些花絮，以一些视频报道和文字的形式呈现出来，也是为了我们再组织类似活动时，可以有多种角度的积累和借鉴。
-
-引用来源：
-
-[https://gtv.org/video/id=60bb9461cea8a7385262d431](https://gtv.org/video/id=60bb9461cea8a7385262d431)
-
-编辑/校对/上传：Delilah小胖
+![]()
+校对/发稿：飞虹
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
 [**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
-
-
-
-
+![]()
 
 0

@@ -1,82 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】新时代D – Day
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1306719/)
+## 【有声读物】读《罗马书》有感（一）——患难生忍耐
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1306771/)
 
-## –诺曼第登陆日美军来了–
-–三议员空军C-17现台湾意义非凡–
+配音：香草山福音部 joy喜乐的心
 
-作者：纽约香草山健身部 澄道
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08005909/%E6%96%B0%E6%99%82%E4%BB%A3-D-Day.png)图片来源：网路
 
-77年前的诺曼第
-为了解放被
-法西斯压榨的欧洲
-美利坚三军来了
 
-成千上万
-年轻美国人
-永远地安息海滩上
-其实他们还在的
-未有片刻离开
-并还一直护佑着＂诺曼第＂
-大陆上的
-自由与和平
 
-C-17运输机
-承载着历史使命
-直抵台北松山机场
-美利坚空军来了
 
-三位不同党派
-资身政要
-登陆日现身台湾
-是想让世人知道
-邪恶与独裁是战胜不了
-民主与法治
+患难如同吃饭，人生在世无人可免。当中有的患难来自于自然界的变化，有的患难来自于他人的过失，而有的患难则来自于自身的错误。这里我们先不谈为什么有患难，为什么有无辜者受苦，甚至好人受苦，我们只讨论当患难临到之时，人们该如何应对。
 
-劫难几代之努力
-不止是只为出走
-更多的是
-不屈服于独裁下邪恶压榨
 
-驴象两党之觉醒
-何止是为民主台湾
-更多的是
-展示自由独立价值回归
 
-从来没有一个国家
-为解放他人付出过这么多
-而不求回报
-除了伟大的美国
+**文字版原文：[【信仰之声】读《罗马书》有感（一）——患难生忍耐](https://gnews.org/zh-hans/1301544/)**
 
-Make America
-Great Again
-重回美国伟大
-＂独立宣言＂
+作者：纽约香草山福音部 Jinglechenge
 
-Of the people
-By the people
-For the people
-再现美国神圣
-＂民有民治民享＂
 
-一定是从
-＂新时代＂的
-D – Day登陆日开始！
 
-@爱动爱议码06071
-@澄道来了
+音频处理/发稿：雪梨
 
-校对/发稿：雪梨
-
-![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg]()![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
 **更多资讯，更多关注**
 
@@ -88,6 +38,6 @@ D – Day登陆日开始！
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
