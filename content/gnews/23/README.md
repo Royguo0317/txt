@@ -1,43 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】 德国官员斥责匈牙利阻挠欧盟批评中（共）国
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1307146/)
+## 德国有关68岁退休的争论
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1307254/)
 
-**作者：纽约香草山健身部 童谣**
+信息来源：德国商业报网络版
+记者：托马斯·西格蒙德（Thomas Sigmund）
+发布时间：2021年6月08日
+翻译 /整理/ 简评： Shuizhuyu
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
-
-
-
-匈牙利再次一票否决涉华决议，阻挡欧盟就香港问题对中共国发表声明。德国外交部国务秘书伯杰对此表示谴责，并认为欧盟是时候进行改革，在外交政策上实施多数投票制了。当前欧盟在安全政策方面的联合倡议实行一票否决制，在过去三周内，匈牙利政府第二次成为欧盟国家中唯一的反对者。此前，它拒绝与其他26个成员国一起呼吁在巴以冲突实现停火。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08041314/%E5%9B%BE%E7%89%8711-1.png)图片来源：Paresh Nath，politicalcartoons.com
-
-这就是中共利用欧盟制度漏洞，使匈牙利这种被中共深度蓝金黄，依旧执迷不悟的傀儡国家，在执行中共意志方面起到了作用。而匈牙利是唯一批准接种中共疫苗的欧盟国，并且也是全球染疫死亡率最高的国家之一。
-
-匈牙利经常和欧盟作对，特别是在民主问题上。因此伯杰在推特中表示，如果如此轻而易举地就能阻止联合倡议，欧盟的共同外交和安全政策将无法运作。如此看来，英国脱欧的重要意义之一，就是能够摆脱被中共如此轻易控制的、欧盟脆弱体制的裹挟。而匈牙利这种为中共冲锋陷阵的“敢死队”做法，反而激发了欧盟的自我觉醒意识，能促进民主制度进一步完善。
-
-参考引用：
-
-[匈牙利拒绝谴责中国-德国外交官呼吁欧盟改革](https://www.dw.com/zh/%E5%8C%88%E7%89%99%E5%88%A9%E6%8B%92%E7%BB%9D%E8%B0%B4%E8%B4%A3%E4%B8%AD%E5%9B%BD-%E5%BE%B7%E5%9B%BD%E5%A4%96%E4%BA%A4%E5%AE%98%E5%91%BC%E5%90%81%E6%AC%A7%E7%9B%9F%E6%94%B9%E9%9D%A9/a-57780440)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08061852/max-harlynking-DGP-759-Ukk-unsplash-scaled.jpg)
 
 
+养老金竞选活动现已开始。舒尔茨Olaf Scholz是社民党的总理竞选人，他终于找到了一个基本的社会民主话题。在科学顾问委员会向联邦经济部提议将退休年龄提高到 68 岁后，社民党总理候选人开始了养老金竞选活动。 “这个所谓的专家委员会的建议是计算错误和反社会的。联邦财政部长周二在社民党经济论坛的一次活动上说，这些都是有理由削减养老金的恐怖情景，没有任何理由。
 
-**更多资讯，更多关注**
+他保证：“我支持这样一个事实，即我们没有就更高的退休年龄进行辩论。由于高就业，这些恐怖场景迄今为止从未发生过。我期待与真正的专家进行辩论。”
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在联邦大选前三个月左右，联邦政府的顾问呼吁进行改革，将退休年龄与预期寿命动态联系起来。工作时间和退休时间之间的关系应该保持不变。竞选活动现已开始。
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+简评： 德国的老龄化是在全世界都非常明显的国家之一。 退休年龄已经推迟到了67岁， 很多人都调侃， 人们离开工作岗位就可以直接去墓地了。 现在这样的讨论又重新开始。 就是两个基本表现， 一个是老龄化没有缓解， 第二就是经济状况让人担忧。没有足够的人缴纳养老保险， 供给现在领取养老金的人们。 最重要的一个原因可能还是， 现在的人们的生存年龄在不断增加， 导致领取养老金的时间过长。 凸显了社会的矛盾。
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+🔗r[ente-mit-68-scholz-spricht-altmaiers-beratern-expertenwissen](https://www.handelsblatt.com/politik/deutschland/rentenpolitik-rente-mit-68-scholz-spricht-altmaiers-beratern-expertenwissen-ab/27265140.html)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0

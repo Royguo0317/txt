@@ -1,29 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 可以让埃尔多安跪下的黑马
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1307129/)
+## [聚焦港澳]香港黄色经济圈融入G生态圈
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1307292/)
 
-信息来源：德国商业报网络版
-记者：奥赞·德米尔坎 （Ozan Demircan）
-发布时间：2021年6月07日
-翻译 /整理/ 简评： Shuizhuyu
+撰稿：云彩
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08064630/%E5%9B%BE%E7%89%87PPT%E5%8F%98PNG-4.jpg)图片来自网络
+以前，香港做为世界金融中心面向大陆，依靠大陆。随着共产党在香港破坏“一国两制”，越来越多的香港人意识到不能单依靠中国大陆的经济体，而要港人自救，必须将香港人的产业链连结海外市场。笔者认为香港黄色经济圈融入G生态圈则是凤凰浴火重生。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08051211/Sedat_Peker_campaigning_for_AKP.jpg)
+笔者了解到一个名叫“Project R”的香港平台。它开放而包容，目标是构建属于全球香港人的社区及经济共同体，连接各行业，本地和海外的香港人，甚至世界各地支持香港人的民众，形成一个透过网络连结的新群体。Project R 有一款名叫暗恋版“SOUL”JTHK 的T恤衣，灵感来自港日标注性山峰，狮子山背靠富士山连成一线。产品由日本设计ˎ台湾制造ˎ香港统筹策划而成。
 
+而在自媒体方面，很多香港有良知的学者在社交媒体上发声。比如香港学者萧若元先生，他的粤语节目已达到过亿的点击量。越来越多的海外香港人正在搭建平台，凝聚香港人的力量，去争取得到西方民主国家的帮助。
 
-图片来源：维基百科
+共产党嗅到了这个苗头。记得文贵先生在直播中提到，共产党要禁止香港人发声，哪个人要冒头，就打压哪个人。但是GTV和GNEWS 一定会给香港人提供平台。
 
-据称佩克是一名黑手党成员，他的 YouTube在土耳其引发了一场政治地震， 视频对总统埃尔多安来说是危险的。
+笔者认为香港黄色经济圈融入G生态圈是必然。因为G生态圈有信息资讯和情报交易体系，比如GTV 和GNEWS; 有商品运营体系，比如GFASHION 和GMALL; 有银行体系，比如GBANK; 有自己的货币，比如GCOIN 和GDOLLAR , G币是目前世界上唯一的虚实一体的金本位货币。最重要的是G 生态圈是建立在有信仰和普世价值观上的诚信保障和评估体系，汇聚了世界精英和天量的用户量。
 
-到目前为止，佩克 已经发布了 9 个视频，其中他攻击了土耳其执政党 AKP 的主要政客。它们在 YouTube 上的点击次数总计达到 1 亿次。这是关于悬而未决的谋杀、腐败和裙带关系。疯狂的事情：佩克本人就是一个失控的黑手党。现在，他已成为该国反对派的希望灯塔。
+香港人很早就跟国际接轨，商业嗅觉敏锐，工作勤奋，公民守法意识强。香港黄色经济圈融入G生态圈将会如鱼得水。没有共产党，香港必将再次璀璨。
 
-简评：土耳其总统埃尔多安是一个表面的民选，但是有很多报道所谓的选举也是被某种势力操纵。 而埃尔多安在5年前遇到了政变，但是这次没有成功的政变让埃尔多安对反对派进行了大面积的残酷镇压和抓捕。 现在这个的罪犯， 在油管上发布了视频， 包括很多对埃尔多安具有极大威胁的信息， 点击量超过一亿次， 土耳其的人口只有8千4百万， 这个传播的力度是巨大的。 土耳其的变革可能也在进行中。 也就是说独裁者是人类的敌人。 需要强调的是， 这个佩克先生据说是个罪犯， 我们对他以前的罪恶是不能容忍的。 维基百科上面也强调了国际刑警组织正在调查他发视频的真伪。 有关佩克先生的背景请阅读维基百科的链接。
+（本文中观点只代表个人观点）
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+参考资料：
 
-🔗[sedat-peker-das-ist-der-mafioso-der-erdogan-in-die-knie-zwingen-koennte](https://www.handelsblatt.com/politik/international/sedat-peker-das-ist-der-mafioso-der-erdogan-in-die-knie-zwingen-koennte/27262564.html)
-🔗[de.wikipedia.org/wiki/Sedat\_Peker](https://de.wikipedia.org/wiki/Sedat_Peker)
+[PROJECT R 产品](https://hkermall.com/en/product/project-r-jthk-series-hoodie-japan-taiwan-hk-project-eng/)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
 0
