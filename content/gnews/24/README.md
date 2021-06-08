@@ -1,14 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新画的一条底线
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1306372/)
+## 【路德简报】6/7/2021早：美国务卿布林肯称彻底调查病毒来源，美国会让中共国负责
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1306458/)
 
-![]()![](https://media.discordapp.net/attachments/807425982436868097/851419144955494410/Cover.gif?width=1030&amp;height=580)![]()![](https://media.discordapp.net/attachments/807425982436868097/851419159102619659/3.gif?width=1030&amp;height=580)
-作者：XINGFOO
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07221502/202167-scaled.jpg)
 
-（文章仅代表作者个人观点）
 
-校对发布：滴水穿石
-![This image has an empty alt attribute; its file name is B7F5E2B8-49CF-423E-974C-F219C725F3E1.jpeg]()![This image has an empty alt attribute; its file name is B7F5E2B8-49CF-423E-974C-F219C725F3E1.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05010634/B7F5E2B8-49CF-423E-974C-F219C725F3E1.jpeg)
-0
+> 2021 年6月7日 路德时评 早
+> 
+> 1.美国务卿布林肯：彻底调查病毒来源 美国会让中共国负责 
+> 
+> 2.迈克尔.弗林将军的弟弟—— 查尔斯.弗尔斯 执掌美国陆军太平洋地区指挥大权 
+> 
+> 3. 习“亲自指挥”新冠病毒释放 却谎称习政权不辜负中国？ [pic.twitter.com/ybfMg4DBVP](https://t.co/ybfMg4DBVP)
+> — 平民爆料 (@WM18320321) [June 8, 2021](https://twitter.com/WM18320321/status/1402078872275927046?ref_src=twsrc%5Etfw)
+
+
+
++1

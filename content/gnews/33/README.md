@@ -1,33 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 制裁访台美国参议员 华为昏招频出
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1306172/)
+## 挂钩英镑的中央银行数字货币（CBDC）
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1306304/)
 
-撰稿：每天拆掉秦国城墙的一块砖
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07192056/801-2.png)图片来自推特
-盘古时间2021年6月7日，华为鸿蒙负责人王成录当日公开宣布：“民族企业维护国家统一义不容辞。将会对访问台湾的3名美国参议员实施制裁，将会终生限制这3人使用鸿蒙操作系统。”而关于具体的制裁措施，王成录则表示会在稍候公布。这则令人啼笑皆非的消息爆出后没过多久，就被中共官媒屏蔽封锁。至于这位鸿蒙负责人想要如何具体制裁美国访台的参议员，就不得而知了。
+西班牙巴塞罗那喜悦农场 wenwu
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07210125/Screen-Shot-2021-06-07-at-8.10.24-PM.png)虚拟货币作为系统性稳定币（公币）被国际认可![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07210151/Screen-Shot-2021-06-07-at-8.33.03-PM.png)系统性稳定币（公币）与信用卡相比，没有额外付款负担![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07210139/Screen-Shot-2021-06-07-at-8.13.52-PM.png)系统性稳定币（公币）包括发行商、可接受付款商家、收款人和付款人，这些成员受到监控和保护![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07210145/Screen-Shot-2021-06-07-at-8.23.27-PM.png)系统性稳定币（公币）的回报率高过银行储蓄![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07210305/Screen-Shot-2021-06-07-at-8.11.24-PM-1.png)系统性稳定币（公币）通过成立参与和技术论坛，一步步升级![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07210359/Screen-Shot-2021-06-07-at-8.45.56-PM.png)系统性稳定币（公币）要接受银行监管![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07210409/Screen-Shot-2021-06-07-at-8.35.41-PM-1.png)系统性稳定币（公币）的出现，让实体银行发生挤兑，钱流入数字货币![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07210418/Screen-Shot-2021-06-07-at-8.52.25-PM.png)系统性稳定币（公币）的银行制度![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07210425/Screen-Shot-2021-06-07-at-8.51.30-PM.png)系统性稳定币（公币）的广泛使用受到监管
+## 方框H：英国关于稳定币和支付创新的关键立法举措
 
-自从6月5日台湾外交部发布消息承认，美国参议员达克沃丝、苏利文以及昆斯等一行十人将在6日访问台湾后，中共媒体罕见对此事件没有多少报道，连一贯强硬的战狼外交官们都没有对此发表“强烈谴责”、“强烈抗议”。而这位华为鸿蒙系统的负责人在此时大声宣布要对访台的美国参议员实行制裁，不免给人一种拍马屁拍到了马蹄上的搞笑感觉。首先，在美国对华为持续强势制裁的形势下，华为2021年第一季度在全球的总体销量已比去年下降16.5%，约有235亿美元。而美国的参议员们，很大概率不会用有泄露个人隐私及危害美国国家安全的手机。鸿蒙负责人所谓的制裁，几乎不可能对这些参议员造成什么实质性的影响。相反，王成录先生如今这样大声嚷嚷一番，无疑会让中共原本想要冷处理的坏消息，有变得人尽皆知的可能。万一有好奇心旺盛的人看到这样一则没头没脑的制裁宣言，而去按图索骥寻找王成录跳脚的原因，那么中共在国际外交上四面楚歌的现状，就暴露在人们眼前了。
+**HMT关于加密资产和稳定币的咨询和证据呼吁。
+**2021年1月，HMT发布了[“英国对加密资产和稳定币的监管方法：咨询和证据征集”在新窗口中打开](https://www.gov.uk/government/consultations/uk-regulatory-approach-to-cryptoassets-and-stablecoins-consultation-and-call-for-evidence)。磋商于2021年3月21日结束。
 
-通过这件事，我们不难看出，鸿蒙操作系统的负责人，并不具备基本的常识和逻辑。不仅对自身以及世界的认知是错乱的，就连讨好当局、拍马屁的功夫都十分地生疏，此番一顿操作看似猛如虎，实际上只达到了弄巧成拙、匆忙被删除的结果。另一方面，鸿蒙系统上市已过5天，对于网络上不时爆出的那些令人哭笑不得的bug，负责人不去关注如何鞭策团队为用户带来更好的使用体验，而是专注于制造爱国热点、炒作包装、刺激粉红对华为的无脑热爱，足以见得中共的科技公司处于多么无知可笑的层次。这实在是偌大中华儿女的悲哀！
+HMT的磋商为英国加密资产制度设定了目标。这些包括：保护金融稳定；确保消费者保护；以及促进竞争和创新。磋商概述了HMT提出的总体框架方法，将加密资产纳入受监管的活动范围——“监管范围”。它专注于用作支付手段的（系统和非系统）稳定币，让英国的支付监管机构（银行、FCA和PSR）稍后就规则和详细的公司要求进行磋商。有人建议，除了FCA和PSR监督外，世行还将监管“系统稳定的代币安排”的发行人或系统运营商。所有单一货币和其他资产挂钩的稳定币都将根据相应的付款和投资监管接受FCA的授权和监管。
 
-（本文仅代表作者个人观点。）
+本讨论文件中的建议以HMT的框架为基础，但也概述了磋商中未涵盖的进一步问题。这些包括银行模式和类似银行的要求可能应用于稳定币，以及在过渡阶段可能需要限制。
 
-文章相关链接：
+在完成HMT的立法程序、对本讨论文件的回应以及对本文概述的选项的进一步可行性和成本效益分析之前，世行将在适当时候就其稳定币监管模式的建议进行磋商。
 
-[Tweet 画家老李](https://twitter.com/wlktz6ugtplddaq/status/1401806480702124032?s=21)
+**HMT的支付景观审查（PLR）
+**HMT将在适当时候发布对其[证据呼吁的](https://www.gov.uk/government/consultations/payments-landscape-review-call-for-evidence)回应，并在[新窗口中打开](https://www.gov.uk/government/consultations/payments-landscape-review-call-for-evidence)作为PLR的一部分。证据呼吁于2020年7月发布。它介绍了政府对英国支付网络的目标，根据这些目标评估了现有系统，并就实现其目标需要解决的差距、机遇和风险提出了问题。
 
-[华为第一季度收入降幅扩大，继续受美国制裁影响](http://cn.dailyeconomic.com/business/2021/04/28/40382.html)
+世行目前正在评估对支付监管范围进行改革的必要性。主要重点领域是确保监管适合解决系统支付链中关键公司的金融稳定风险，包括那些基于稳定币的公司。世行将努力确保对稳定币的任何监管要求与对更广泛的支付公司的要求一致。这是基于“相同风险——相同的监管结果”的原则。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+**国际监管对策
+**如方框C所述，一些国际努力正在进行中，以确保对稳定币的监管做出协调一致的全球响应。本讨论文件的重点是单一货币计价的系统稳定币，主要就应如何发展英国监管制度征求意见。实际上，稳定币可能会在全球范围内运作。因此，需要考虑围绕法规的一致性和设计的跨境互操作性的问题。
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+**[【新闻链接】](https://www.bankofengland.co.uk/paper/2021/new-forms-of-digital-money)**
 
-
-> [华为第一季度收入降幅扩大，继续受美国制裁影响](http://cn.dailyeconomic.com/business/2021/04/28/40382.html)
-
-
-
-+2
++1

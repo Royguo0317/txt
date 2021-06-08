@@ -1,46 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共以人民健康为由将体育打造成新的割韭菜工程
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1306181/)
+## 6月7日美国政要推特精选：COVID-19在实验室中进行了优化
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1306303/)
 
-作者：经济小组/洛杉矶天使农场-烟波浩淼
-编审：经济小组/加拿大多伦多枫叶农场-向往真理
-
-据《中国新闻网》2021年5月31日报道，北京将把冬奥遗产巩固发展作为一项重要任务，到2022年努力达到1000万人参与冰雪的目标，促进冰雪运动消费。文章强调，“高水平体育赛事对挖掘和释放消费潜力，打造经济增长新动能具有重要意义”，“以顶级体育赛事带动体育消费”。文章还说：“北京将坚持办好“8.8北京体育消费节”和北京冰雪消费节，整合线上线下体育资源，促进体育消费升级。“体育消费”在这篇文章中出现了11次之多。
-
-该篇根据北京市体育局副局长孟强华的新闻发布会内容写成的文章，通篇都在鼓励挖掘、释放体育消费潜力。暴露了中共惧怕全世界抵制北京冬奥会的浪潮，担心投入巨大的冬奥产业血本无归，所以转而要利用已经建成的冬奥产业来割中共国人民的韭菜。不言而喻，中共非常惧怕最后一支收割韭菜的产业链被国际社会因人权问题废除。
-
-为什么中共心虚，急着要割人民的韭菜填补冬奥会可能的亏空呢？众所周知，中共在新疆建有大约1200个集中营，300万哈萨克和维吾尔少数民族被关押在集中营里，并对他们实施惨无人道的强奸、性虐待、酷刑、强制绝育等种族灭绝罪行。[3] 因此，中共的2022年北京冬奥会受到来自世界各国政府和人权组织的强烈抵制，这是国际社会正道主义的彰显。 [4] 美国佛罗里达州共和党众议员迈克尔·沃尔兹（Mike Waltz）提出一项决议，敦促美国抵制2022年北京冬奥会。[5] 美国众议院议长南希·佩罗西呼吁世界领导人对2022年北京冬奥会进行外交抵制；英国首相约翰逊也呼吁由于新疆存在种族灭绝抵制2022年北京冬奥会；加拿大总理特鲁多称北京冬奥会是在人权问题上向中共国施压的机会；前欧洲议会副主席同样呼吁抵制2022年北京冬奥会。
-
-所以，北京冬奥会不是能不能举行的问题，被废除的命运已经毋庸置疑。就算举行，有多少运动员敢于在各国政府抵制的前提下参与？在这种情况下，收割本国韭菜（人民）无疑成为中共继续敛财的手段。
-
-人们不会忘记十几天前的5月22日发生在中共国甘肃省的夺命马拉松比赛。一个仅有172人参加的马拉松，因为组委会的严重玩忽职守的犯罪行为，致使21人遇难、8人受伤，伤亡共计17%。21位遇难者的尸骨未寒，完善的体育安保体系仍然严重缺失，现在却立刻大力鼓吹1000万人以上的冰雪体育项目目标，大有冰雪大跃进之势。冰雪项目本身就是有很大危险的运动，大干快上1000万人的规模，中共能保证绝对安全吗？从北京市体育局副局长的讲话不难看出，这样的运动本质上就是为了给中共贡献体育消费收入，这种本末倒置的体育体系将会有多少人成为此运动的消费牺牲品？
-
-如何办好体育，特别是青少年体育，中共从未有过真正的系统和科学思维。若为了群众利益考虑，为什么不花力气去进行开发、经营好社区的体育运动设施场所？中共国的孩子们每天背着沉重的书包上学，放学后家长继续带着他们赶往各种补习班，晚上还有写不完的作业。就算居民小区装置了少得可怜的体育设施，也形同虚设。孩子们在中共的学校里没有体育活动的时间，而且中共竟然心安理得地霸占孩子们的运动空间，建成了越来越多的让人窒息的水泥深林。我们还有多少像纽约这这样的大都市仍然留给孩子们可以在社区踢足球、打篮球等运动的免费、自由和安全的空间？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07191749/s1.png)纽约社区球场（图片来自网络）
+众议员布莱恩·马斯特： 越来越多的证据表明,[#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是来自中共国的“人造怪物,在实验室中进行了优化,以最大限度地提高传染性,然后再释放到外界造成灾难性后果”. 美国人应该得到真相 【文章来自Foxnews:史蒂文·奎伊博士和理查德·穆勒指出了支持人造病毒说法的两个关键证据,这两个证据越来越有说服力】
 
 
-看看西方国家的孩子们，以美国为例，孩子们每天下午早早下课，大部分家长带着孩子们都是赶往诸如足球、篮球、游泳、体操等等的各个运动场所，而绝不是什么补习班。以美国运动与健身行业协会（SFIA）进行的2019年度家庭调查结果为例，[6] 从6 到12岁小孩参加运动队的数据（如下图）来看，定期参加至少一项（多于一项只计算一项）体育活动的人数超过2400万。其中骑车、篮球、棒球、室外足球位居参加人数的前四位。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07191739/s2.png)
-据2019年美国人口统计，[7] 6-11岁的儿童有2440万，12-17岁有2500 万。6-12岁组取这两个年龄段的平均值为2470万。由此估算，美国儿童定期参加至少一种课外体育运动的比例超过95%。人们应该知道的常识是，体育不仅为儿童的身心健康有益处，也让孩子们学会如何成为团队成员，学习团队合作精神。从小培养团队合作精神对于了解公平竞争、遵守规则、提高自尊、学会接受挫折都非常重要。体育运动也帮助孩子们建立信心和社交能力，以及对自己、对比赛伙伴和其他竞争对手的尊重，使孩子们不仅能发展更好的体育技能而且成为更好的人。同时，对提高思维的活跃和创造力的培养以及建立自律和个人目标的设定都非常有益。当然，体育运动的益处不仅对儿童，对成人也是如此。体育运动带来的好处会促使整个国家民族素质的提高，体育强国也离不开强大的基层体育运动的普及。
 
-相比之下，中共国的体育环境远远没有这些功能，正如《中国新闻网》文章中提到的那样，现在只能利用疏解腾退空间和城市“金角银边”。中共政府已经把中国孩子，以及市民的休闲运动空间霸占贻尽。剩下的所谓金角银边，恐怕连停车位都不够，哪里还有孩子们自由安全地玩耍、踢球、运动的空间？中共搞的什么1000万冰雪项目，孩子们能去得了几次，又有多少家庭能花得起你们的消费？中国的孩子需要的是近在身边的社区运动场所，需要更多的运动时间，放飞童年、放飞自我，而不是沉重的书包和被洗脑的教育！一个没有运动和思考空间成长的孩子，除了能产生小粉红，还能诞生几个像郝海东、叶钊颖这样有独立思想的优秀运动员？
+> There is mounting evidence that COVID-19 is “a man-made monster, optimized in a lab for maximum infectivity before hitting the outside to catastrophic effect” from China.
+> 
+> Americans deserve the truth.[https://t.co/kkGGIBHdDF](https://t.co/kkGGIBHdDF)
+> — Rep. Brian Mast (@RepBrianMast) [June 8, 2021](https://twitter.com/RepBrianMast/status/1402060305396469788?ref_src=twsrc%5Etfw)
 
-众所周知，奥林匹克精神强调磨炼人的意志，培养人的个性，提升人的体能，促进和建立一个维护人的尊严，和平的更加美好的世界。所有这些都意味着世界各国必须对人权的捍卫。而早在2008年北京奥运会前几个月，美国国会听证会上人权组织代表对美国参众两院议员表示，中共国并没有履行当初申请2008奥运会时保证要改善人权的承诺。中共国在获得2008年奥运会主办权的7年中没有作为，国际奥委会也没有坚持敦促中共国改善人权纪录。因此，当时的人权组织代表呼吁美国国会及小布什政府在北京奥运会举办前夕继续加强向中共国政府及国际奥委会施压，要求中共国政府改善人权状况。
 
-然而距2008年北京奥运会已经过去了13年，中共国的人权记录非但没有改善，反而更加变本加厉地发展成为了种族灭绝罪行。现在，世界正义力量不仅仅应该坚决抵制2022北京冬奥会，全世界都应该行动起来推翻邪恶残暴的中共政权！中国人民不要再充当中共的牺牲品！中国儿童需要有幸福美好的童年！中国人民需要自由民主的空气，需要有高尚的体育精神，需要有真正属于人民的体育设施，而不是极权收刮人民的体育消费敛财工具！
 
-【本文只代表作者个人观点】
+参议员霍利新闻办公室： 霍利在推特上写道:“公众有权知道美国政府内部是否有人试图阻止对冠状病毒来源的全面调查。” “国会还必须查明福奇的国家过敏和传染病研究院在多大程度上参与了资助武汉的研究”。 （转推布莱特巴特网：参议员霍利要求福奇辞职）
 
-参考资料：
 
-[1] [积极举办顶级体育赛事 北京力争明年1000万人上冰上雪\_中新社\_北京分社 (chinanews.com)](http://www.bj.chinanews.com/news/2021/0531/82145.html)
-[2] [轮奸、酷刑和可怕的红X：中共国现代版集中营幸存者 – GNEWS](https://gnews.org/zh-hans/1284883/)
-[3] [“他们的目的是摧毁每一个人”– 维吾尔集中营的被拘禁者指控蓄意轮奸等暴行 – GNEWS](https://gnews.org/zh-hans/881360/)
-[4] [人权活动人士敦促拜登加入抵制2022年北京冬奥会的行列 – GNEWS](https://gnews.org/zh-hans/885711/)
-[5][https://www.gingrich360.com/2021/05/12/newts-world-episode-247-boycotting-beijing-olympics/](https://www.gingrich360.com/2021/05/12/newts-world-episode-247-boycotting-beijing-olympics/)
-[6] [https://www.aspenprojectplay.org/youth-sports-facts/participation-rates](https://www.aspenprojectplay.org/youth-sports-facts/participation-rates)
-[7][https://www.statista.com/statistics/457786/number-of-children-in-the-us-by-age/](https://www.statista.com/statistics/457786/number-of-children-in-the-us-by-age/)
+
+> "The public deserves to know if persons within the US govt tried to stop a full investigation into COVID origins," Hawley tweeted.
+> 
+> "And Congress must also find out to what extent Fauci’s NIAID was involved in financing research" in Wuhan. [https://t.co/NAfj8Cy13a](https://t.co/NAfj8Cy13a)
+> — Senator Hawley Press Office (@SenHawleyPress) [June 7, 2021](https://twitter.com/SenHawleyPress/status/1401946633693188101?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰得·克鲁兹： 福克斯新闻：参议员克鲁兹称脸书是在“代表政府”审查新冠病毒的内容。 附福克斯新闻报道链接
+
+
+
+> .[@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw): Sen. Cruz argues Facebook was censoring COVID-19 content ‘on behalf of the government’ [https://t.co/r7ZuI5KZV0](https://t.co/r7ZuI5KZV0)
+> — Senator Ted Cruz (@SenTedCruz) [June 7, 2021](https://twitter.com/SenTedCruz/status/1401978440455176193?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加拉格尔： 大卫·阿舍(David Asher)和哈德逊的一个团队发表了一篇重要的新论文，内容涉及现实行动要件和我们可以采取的下一步行动，以追究中国共产党的责任，帮助彻底查清新冠肺炎的根源。 （转推哈德逊研究所网站阿舍的文章）
+
+
+
+> Important new paper from David Asher and a team at Hudson on realistic action items and next steps we can take to hold the Chinese Communist Party accountable and help get to the bottom of COVID origins. [https://t.co/SG5UjvsoXc](https://t.co/SG5UjvsoXc)
+> — Rep. Mike Gallagher (@RepGallagher) [June 7, 2021](https://twitter.com/RepGallagher/status/1401968854667038722?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 如果中国不对世界负责任，世界就不应该保护中国领导人的资产。我们应该执行针对中国国有企业的索赔要求，减少对其实体的优惠待遇。不需要得到更多的答案，是时候采取行动了 （转推华盛顿邮报文章称：拜登领导的联盟，应该对中国的新冠肺炎违法行为进行惩罚）
+
+
+
+> If the CCP won't act responsibly toward the world, the world shouldn't protect CCP leaders’ assets. We should enforce claims against its state-owned enterprises & curtail preferential treatment of its entities. No need to get more answers, it's time to act [https://t.co/lle5sRVNvk](https://t.co/lle5sRVNvk)
+> — Mike Pompeo (@mikepompeo) [June 7, 2021](https://twitter.com/mikepompeo/status/1401962981362110474?ref_src=twsrc%5Etfw)
+
+
 
 +2
