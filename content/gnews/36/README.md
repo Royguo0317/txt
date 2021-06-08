@@ -1,82 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】新时代D – Day
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1306719/)
+## 【有声读物】 美参议员乘军机访台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1306789/)
 
-## –诺曼第登陆日美军来了–
-–三议员空军C-17现台湾意义非凡–
+配音：香草山录音组 蒙古鸿雁
 
-作者：纽约香草山健身部 澄道
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08005909/%E6%96%B0%E6%99%82%E4%BB%A3-D-Day.png)图片来源：网路
 
-77年前的诺曼第
-为了解放被
-法西斯压榨的欧洲
-美利坚三军来了
 
-成千上万
-年轻美国人
-永远地安息海滩上
-其实他们还在的
-未有片刻离开
-并还一直护佑着＂诺曼第＂
-大陆上的
-自由与和平
 
-C-17运输机
-承载着历史使命
-直抵台北松山机场
-美利坚空军来了
 
-三位不同党派
-资身政要
-登陆日现身台湾
-是想让世人知道
-邪恶与独裁是战胜不了
-民主与法治
+德国之声中文网：6月6日（周日）美国参议员达克沃丝（Ladda Tammy Duckworth）、苏利文（Daniel Scott Sullivan）和昆斯（Christopher Andrew Coons）乘坐C-17运输机抵达松山机场。
 
-劫难几代之努力
-不止是只为出走
-更多的是
-不屈服于独裁下邪恶压榨
+三位参议员是从韩国赶来，他们目前正在韩国进行访问。在此次访问中，他们还与台湾总统蔡英文会面。民主党参议员达克沃丝演讲中表示“美国将捐赠给台湾75万剂疫苗。”这位参议员还说，“我们来到这里是为了告诉你们，美国不会让你们独自面对。我们会与你们站在一起，确保台湾人民得到其所需，来战胜疫情……因为我们认识到你们的迫切需要，重视我们之间的伙伴关系。”
 
-驴象两党之觉醒
-何止是为民主台湾
-更多的是
-展示自由独立价值回归
 
-从来没有一个国家
-为解放他人付出过这么多
-而不求回报
-除了伟大的美国
 
-Make America
-Great Again
-重回美国伟大
-＂独立宣言＂
+**文字版原文：[【独立观点】 美参议员乘军机访台](https://gnews.org/zh-hans/1303959/)**
 
-Of the people
-By the people
-For the people
-再现美国神圣
-＂民有民治民享＂
+作者：纽约香草山健身部 Ivy001
 
-一定是从
-＂新时代＂的
-D – Day登陆日开始！
 
-@爱动爱议码06071
-@澄道来了
 
-校对/发稿：雪梨
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
-![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg]()![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
 **更多资讯，更多关注**
 
@@ -88,6 +41,6 @@ D – Day登陆日开始！
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
