@@ -1,46 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】 美参议员乘军机访台
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1306789/)
+## 【独家】盛京银行风险突出，爆雷在即
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1306838/)
 
-配音：香草山录音组 蒙古鸿雁
+作者：休斯顿星光农场写作部 深蓝
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04140417/Screenshot-2021-06-04-130338.jpg)
+近日，业内人士曝光的工商银行总行内部《风险提示》显示，盛京银行金融风险持续升级，暴雷在即。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+文件称，盛京银行股份有限公司（以下简称盛京银行）存在以下问题：一是资产质量持续下滑，2020年末不良率不良率由年初1.75%攀升至3.26%；二是拨备覆盖率已低于监管要求（大于等于120%），2020年末由年初130.07%降至114.05%；三是盈利能力显著下降，2020年度净利润下降（77.9%）幅度较大，平均资产回报率0.12%，较年初下降42个百分点；四是非标投资规模较大，2020年末余额达到1438亿元；五是第一大股东恒大集团（持股36.4%）负面信息较多（注），已对盛京银行的经营产生一定的不利影响。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08020330/%E7%9B%9B%E4%BA%AC%E9%93%B6%E8%A1%8C%E5%9B%BE%E7%89%87.jpeg)图片来源：网络
+此外，该行在2021年5月13日因违规发放并购贷款变相用于拍地保证金、违规向“四证”不全的房地产项目发放贷款、向关系人发放信用贷款等多项违规行为，被监管处罚552万元，反应该行内控不严。
 
+经查，截止2021年5月31日，盛京银行在工商银行的统一投融资风险限额90亿元（预留额度60亿元），信用风险余额6.6亿元。
 
+本社5月22日发布的独家报道《盛京银行欲行金蝉脱壳之计》中，消息人士指，盛京银行的操作说明墙内金融体系崩溃在即，本次曝光的《风险提示》则实锤了该行极弱的风险管控能力。
 
+“这份文件无疑将盛京银行置于绝境，这或是其被高层放弃的表现，”消息人士说：“导致爆雷的能量着正在不断凝聚，可以预见，该行生时不多。”
 
+注：2020年9月24日，网络流传一份恒大集团写给广东省政府的《恒大集团有限公司关于恳请支持重大资产重组项目的情况报告》，显示其偿债压力巨大，资金链紧张，同日标普将恒大集团评级从B+稳定调整为B+负面。
 
+编辑：文順       校对：Helen       发稿：文柳
 
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
 
-德国之声中文网：6月6日（周日）美国参议员达克沃丝（Ladda Tammy Duckworth）、苏利文（Daniel Scott Sullivan）和昆斯（Christopher Andrew Coons）乘坐C-17运输机抵达松山机场。
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01225742/Screenshot-2021-06-01-215655.jpg)
 
-三位参议员是从韩国赶来，他们目前正在韩国进行访问。在此次访问中，他们还与台湾总统蔡英文会面。民主党参议员达克沃丝演讲中表示“美国将捐赠给台湾75万剂疫苗。”这位参议员还说，“我们来到这里是为了告诉你们，美国不会让你们独自面对。我们会与你们站在一起，确保台湾人民得到其所需，来战胜疫情……因为我们认识到你们的迫切需要，重视我们之间的伙伴关系。”
-
-
-
-**文字版原文：[【独立观点】 美参议员乘军机访台](https://gnews.org/zh-hans/1303959/)**
-
-作者：纽约香草山健身部 Ivy001
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,60 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 过去几个小时比特币跌了5000$
-` 喜韩Gnews中文` [轉載自GNews](https://gnews.org/zh-hans/1306861/)
+## 【中共国段子】当阎王碰到病毒
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1307021/)
 
-作者：文小明 发布组：喜韩Gnews中文组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08020834/unknown-18.png)
-战友们，对不起，请让我先大吼一声，啊~~~~~~~~~~
+作者：xingfffooo
 
-太爽了，你怎么可以跌这么多呢？原谅我不厚道的笑了！
-
-今天北京时间6月8日，比特币的价格突然疯狂的砸落，从36800，一直砸到32718.
-
-那么，是不是只有比特币跌了呢？请看下图！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08021939/image0-17-scaled.jpg)
-什么情况，全部都在跌………………哈哈O(∩\_∩)O哈哈~
-
-什么原因呢，本人也是百思不得其解，后突然发现路德的一篇推文。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08020846/%E5%BE%AE%E4%BF%A1%E6%88%AA%E5%9B%BE_20210608140421.png)
-原推文地址如下：
+发表：Summer
 
 
-
-> FBI 查获Colonial支付给黑客的63.7个价值230万美元比特币给要回来了！直接解锁了黑客的比特币钱包！美国太牛了，区块链加密贸易都可以解密，只有量子电脑才可以做到！现有的超级计算机都做不到！
-> 现有的以比特币为首的区块链加密货币全部大跌，没有任何价值了！
-> 在量子电脑面前，加密没用了！
-> — 路德社lude media (@lude\_media) [June 8, 2021](https://twitter.com/lude_media/status/1402108364973350914?ref_src=twsrc%5Etfw)
-
-
-
-原来是这样啊，假的就是假的，谎言就是谎言，一切都是那么的刚刚好，抑制不住内心的兴奋，发点小感慨。
-
-现存的比特币，为这个世界上的黑暗增加了多少不为人知的丑陋事。
-
-例如：杀人放火用比特币支付
-
-例如：非法洗钱用比特币
-
-例如：拐卖人口（尤其是儿童、年轻女孩、人体器官）
-
-例如：偷窃国家财富、人民的财富。。。
-
-…………
-
-你能想到这个比特币为罪恶的黑暗带来了多少的便捷吗？
-
-而且它本身也是一个骗局，它本身没有任何的锚钉，完全的不值钱。唯一的卖点就是加密货币，不可解密、不可解密、不可解密……
-
-但是现在呢，被解密了……
-
-重要的事情说三遍哈！
-
-比特币被解密了……比特币被解密了……比特币被解密了……
-
-那你还值钱吗？那肯定不能值钱了，你本来也不值钱的吗？本来用来忽悠世间百姓的东西，结果把自己忽悠进去了!
-
-黑暗的经济命脉被打断，黑暗的云层是不是即将散开呢？你猜呢！
-
-+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06003622/%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%AE%B5%E5%AD%90.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08035812/%E5%BD%93%E9%98%8E%E7%8E%8B%E7%A2%B0%E5%88%B0%E7%97%85%E6%AF%92.gif)
+（以上作品仅代表个人观点）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08030659/7C26FF7A-41DE-4EC0-9C50-FA2D7F4471E0.jpeg)
+0

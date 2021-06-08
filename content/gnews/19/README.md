@@ -1,60 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美官员访台台湾立场确定后晶圆产业保护备受瞩目
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1306819/)
+## 美国与世界必将彻查病毒真相并追根究柢
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1307016/)
 
 台湾宝岛农场
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08013655/%E6%93%B7%E5%8F%9668-1-2.jpg)
-**台湾立场确定**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08032435/%E6%93%B7%E5%8F%9668-1-3.jpg)
+**拜登政府下令情报界90天内病毒溯源**
 
-2021/01/13，美国驻联合国大使原定访台计划，在驻联合国大使出发后临时取消并返航，对外表示是为了确保「政权交接平稳」（美国政权交接）。
+本次大流行的病毒病毒是否从中国武汉病毒研究所外泄，近来在美国引发热议。美国国务卿布林肯（Antony Blinken）在最新访问中表示，拜登政府决心「彻查」病毒源头，并追究中共政府的责任。
 
-[美国取消其驻联合国大使访台等外交出访计划，以确保「政权交接平稳」](https://www.bbc.com/zhongwen/trad/chinese-news-55642658)
+**美议员督促政府采取实质性措施确保进入中共实验室调查**
 
-路德社解读此事，是认为台湾政府立场尚不坚定，因此惧怕美官员落地台湾刺激中共，导致台海战争发生，因此拒绝美国驻联合国大使访台。
+共和党众议员李‧泽尔丁（Lee Zeldin）在听证会上问布林肯，许多国会议员对中共是否会允许进入武汉病毒研究所持怀疑态度。
 
-2021/06/06，美台1979年断交后首次美军再次进入台湾，美国联邦参议员达克沃丝（Tammy Duckworth, D-IL）、苏利文（Dan Sullivan, R-AK）及昆斯（Chris Coons, D-DE）率团访问台湾。
+为避免被中共拒绝进入实验室调查，进一步提出质询：「美国会采取什么实质性措施来迫使中共允许（独立调查）进入实验室？」
 
-从此可知，台湾坚决加入美阵营的立场已经确定。
+- 补充：「独立调查」，是因为国际组织被中共收买、渗透的共识已经建立，为确保调查结果可信而采独立调查。以世界卫生组织为例，可以确定中共勾结世界卫生组织，在病毒扩散初期释放虚假消息，使世界采取错误的防疫决定，丧失黄金的防疫反应时间。此外，各国政要多有中共渗透情形发生，以美国「福奇」为例，福奇动用美国税金资助武汉病毒实验所、放任进行病毒功能增强实验，因此被认为是「中共病毒之父（新冠病毒）」。
 
-又台湾立场会从犹疑转向坚定，是否另有隐情？ （联军、美国正式作战部队、后援方案已经拟定完成？）
 
-**IBM二奈米技术突破台积电接续公布一奈米技术突破**
+**美国务卿布林肯针对「实质性措施」回覆**
 
-2021/01/13，台湾政府灭共立场仍摇摆。 （美国驻联合国大使取消原定访台计划）
+布林肯表示，疫情延烧至今，中共并未提供国际藉由透明、公开的方式进入相关机构进行调查。美国将会以联合的方式，要求中共履行义务，供独立调查任务可以顺利进行。
 
-2021/03/06，[英特尔CEO专访](https://www.bbc.com/zhongwen/trad/business-56522108?xtor=AL-73-%5Bpartner%5D-%5Btw.yahoo.com%5D-%5Blink%5D-%5Bchinese%5D-%5Bbizdev%5D-%5Bisapi%5D)：太多芯片在亚洲制造让人「不甚满意」。
+**病毒自然源起的谎言**
 
-2021/04/01，[美国半导体产业协会指出](https://www.semiconductors.org/study-identifies-benefits-and-vulnerabilities-of-global-semiconductor-supply-chain-recommends-government-actions-to-strengthen-it/)先进晶片亚洲包办，92%在台湾、8%三星，若台湾无法生产晶片将会导致全球电子产业的停止，重创全球经济发展。
+病毒以武汉为起点快速延烧全世界，在世界范围内爆发大流行。然而，病毒来源为何直至现在才被开始重视，在疫情初期，国际组织与中共相互配合，宣传病毒是自然起源，而从香港出逃的阎丽梦博士则表示病毒是源自武汉病毒所，并且阎丽梦博士著手开始科学研究，陆续发布四份研究报告，证明病毒非自然演变而是人工进行病毒功能增强实验作为生物武器用途。
 
-2021/05/07，IBM首发2奈米制程技术突破。
+（阎丽梦博士针对病毒是经过武汉病毒实验所功能增强的四篇研究报告
 
-2021/05/16，台积电受邀参加美国于0520举办的半导体峰会。
 
-2021/05/17，外界得知台积电一奈米制程技术突破。
 
-半导体作为战略资源及未来科技发展不可或缺的存在，台湾让美军落地确定与美同盟的立场，可以确保美日不着手重组全球半导体产业链，至少可以确定台湾的矽晶圆产业是促使各国加大力道协防台湾的关键。
+> Update of “origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)” links:
+> 1st Yan Report [https://t.co/bvbzeL3ETA](https://t.co/bvbzeL3ETA)
+> 
+> 2nd Yan Report[https://t.co/Kw8xuixz54](https://t.co/Kw8xuixz54)
+> 
+> 3rd Yan Report [https://t.co/BSIPG1jgyR](https://t.co/BSIPG1jgyR)
+> 
+> Response to Fake News [@CNN](https://twitter.com/CNN?ref_src=twsrc%5Etfw) [https://t.co/PwU2i8olXn](https://t.co/PwU2i8olXn)
+> 
+> Additional, [https://t.co/9gVV4Kj7C4](https://t.co/9gVV4Kj7C4)[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/rcannJTzPs](https://t.co/rcannJTzPs)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 2, 2021](https://twitter.com/DrLiMengYAN1/status/1378015779287891968?ref_src=twsrc%5Etfw)
 
-**AIT(美国在台协会)警告**
 
-20211/06/08，AIT：台湾不应把台积电当作唯一安全靠山。 （[更详细新闻](https://www.cna.com.tw/news/aipl/202105220097.aspx)点击阅读）
 
-**台海风险仍持续威胁台湾晶圆产业**
+病毒的来源，不论自然学说、实验室来源说都没有任何样本及直接证据，但是经过阎丽梦博士的研究报告可以取得大量的间接证据表明病毒来自于实验室。
 
-2021/06/08，[中央通讯社转述纽约时报报导](https://www.cna.com.tw/news/firstnews/202106080014.aspx)，美国情报圈研判中共总书记习近平对武统台湾有所顾虑，原因之一是怕动武恐摧毁全球晶圆代工龙头台积电产线，有损中共自身发展尖端技术的大计。
+世界无法对此进一步调查，因为中共不给调查，中共在掩盖什么、中共在逃避什么，中共病毒不是世界公敌吗?为什么不合力调查来源呢?难道心里有鬼?
 
-本消息如属实，代表中共可以通过各种途径购买取得台湾所生产的高端晶片，也意味着台湾政府对于半导体的输出并未做到最严格管控。
+**病毒核心基因序列将成为揭露真相的关键**
 
-2021/04/09，[经济日报报导](https://money.udn.com/money/story/5612/5375643)：大陆军武晶片下单台积。中共武器使用台湾晶片一事是否并未根本的解决？
+根据阎丽梦博士接受路德社自媒体的专访内容，病毒的核心zc45和zxc21基因序列是来自武汉特有种的舟山蝙蝠，这一点是无法被改变的事实。而病毒核心将成为中共永远无法摆脱的证据。
 
-同时，美国加大对于中共的金融、科技制裁，而透过美军落地台湾可以确定台湾坚决加入美阵营，但台湾晶片若持续有意无意的输出至中共，将可能使美日更加速的重组全球半导体产业供应链。
+资料来源:
 
-台湾在全球半导体供应当中，属于代工制造领域，为可取代性。台积电积极研发技术，确保「自身难以取代」。经[美国半导体协会](https://www.semiconductors.org/study-identifies-benefits-and-vulnerabilities-of-global-semiconductor-supply-chain-recommends-government-actions-to-strengthen-it/)估算，若台湾无法生产晶片了，**全球至少需要３年，并且耗费３兆５千亿美元**才可重建、取代台湾在晶片产业中的供应。
+[拜登将彻查病毒源头布林肯：追究中方责任-大纪元](https://www.epochtimes.com/b5/21/6/7/n13005030.htm)
 
-美国都在算要多少钱才可以取代台湾，将资本主义特色展现的淋漓尽致。希望台湾晶圆产业在未来还可以继续保持着制程技术的龙头地位。
+[国会议员追问中共病毒起源布林肯谨慎作答-大纪元](https://www.epochtimes.com/b5/21/6/7/n13005920.htm)
 
-文╱zhong
+著╱文旦
+
+编著╱zhong
 
 发布╱Little Liu
 
