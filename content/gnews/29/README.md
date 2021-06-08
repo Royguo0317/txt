@@ -1,32 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 制裁访台美国参议员 华为昏招频出
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1306172/)
+## 6月7日美国政要推特精选：COVID-19在实验室中进行了优化
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1306303/)
 
-撰稿：每天拆掉秦国城墙的一块砖
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07192056/801-2.png)图片来自推特
-盘古时间2021年6月7日，华为鸿蒙负责人王成录当日公开宣布：“民族企业维护国家统一义不容辞。将会对访问台湾的3名美国参议员实施制裁，将会终生限制这3人使用鸿蒙操作系统。”而关于具体的制裁措施，王成录则表示会在稍候公布。这则令人啼笑皆非的消息爆出后没过多久，就被中共官媒屏蔽封锁。至于这位鸿蒙负责人想要如何具体制裁美国访台的参议员，就不得而知了。
-
-自从6月5日台湾外交部发布消息承认，美国参议员达克沃丝、苏利文以及昆斯等一行十人将在6日访问台湾后，中共媒体罕见对此事件没有多少报道，连一贯强硬的战狼外交官们都没有对此发表“强烈谴责”、“强烈抗议”。而这位华为鸿蒙系统的负责人在此时大声宣布要对访台的美国参议员实行制裁，不免给人一种拍马屁拍到了马蹄上的搞笑感觉。首先，在美国对华为持续强势制裁的形势下，华为2021年第一季度在全球的总体销量已比去年下降16.5%，约有235亿美元。而美国的参议员们，很大概率不会用有泄露个人隐私及危害美国国家安全的手机。鸿蒙负责人所谓的制裁，几乎不可能对这些参议员造成什么实质性的影响。相反，王成录先生如今这样大声嚷嚷一番，无疑会让中共原本想要冷处理的坏消息，有变得人尽皆知的可能。万一有好奇心旺盛的人看到这样一则没头没脑的制裁宣言，而去按图索骥寻找王成录跳脚的原因，那么中共在国际外交上四面楚歌的现状，就暴露在人们眼前了。
-
-通过这件事，我们不难看出，鸿蒙操作系统的负责人，并不具备基本的常识和逻辑。不仅对自身以及世界的认知是错乱的，就连讨好当局、拍马屁的功夫都十分地生疏，此番一顿操作看似猛如虎，实际上只达到了弄巧成拙、匆忙被删除的结果。另一方面，鸿蒙系统上市已过5天，对于网络上不时爆出的那些令人哭笑不得的bug，负责人不去关注如何鞭策团队为用户带来更好的使用体验，而是专注于制造爱国热点、炒作包装、刺激粉红对华为的无脑热爱，足以见得中共的科技公司处于多么无知可笑的层次。这实在是偌大中华儿女的悲哀！
-
-（本文仅代表作者个人观点。）
-
-文章相关链接：
-
-[Tweet 画家老李](https://twitter.com/wlktz6ugtplddaq/status/1401806480702124032?s=21)
-
-[华为第一季度收入降幅扩大，继续受美国制裁影响](http://cn.dailyeconomic.com/business/2021/04/28/40382.html)
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+众议员布莱恩·马斯特： 越来越多的证据表明,[#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是来自中共国的“人造怪物,在实验室中进行了优化,以最大限度地提高传染性,然后再释放到外界造成灾难性后果”. 美国人应该得到真相 【文章来自Foxnews:史蒂文·奎伊博士和理查德·穆勒指出了支持人造病毒说法的两个关键证据,这两个证据越来越有说服力】
 
 
-> [华为第一季度收入降幅扩大，继续受美国制裁影响](http://cn.dailyeconomic.com/business/2021/04/28/40382.html)
+
+> There is mounting evidence that COVID-19 is “a man-made monster, optimized in a lab for maximum infectivity before hitting the outside to catastrophic effect” from China.
+> 
+> Americans deserve the truth.[https://t.co/kkGGIBHdDF](https://t.co/kkGGIBHdDF)
+> — Rep. Brian Mast (@RepBrianMast) [June 8, 2021](https://twitter.com/RepBrianMast/status/1402060305396469788?ref_src=twsrc%5Etfw)
+
+
+
+参议员霍利新闻办公室： 霍利在推特上写道:“公众有权知道美国政府内部是否有人试图阻止对冠状病毒来源的全面调查。” “国会还必须查明福奇的国家过敏和传染病研究院在多大程度上参与了资助武汉的研究”。 （转推布莱特巴特网：参议员霍利要求福奇辞职）
+
+
+
+> "The public deserves to know if persons within the US govt tried to stop a full investigation into COVID origins," Hawley tweeted.
+> 
+> "And Congress must also find out to what extent Fauci’s NIAID was involved in financing research" in Wuhan. [https://t.co/NAfj8Cy13a](https://t.co/NAfj8Cy13a)
+> — Senator Hawley Press Office (@SenHawleyPress) [June 7, 2021](https://twitter.com/SenHawleyPress/status/1401946633693188101?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰得·克鲁兹： 福克斯新闻：参议员克鲁兹称脸书是在“代表政府”审查新冠病毒的内容。 附福克斯新闻报道链接
+
+
+
+> .[@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw): Sen. Cruz argues Facebook was censoring COVID-19 content ‘on behalf of the government’ [https://t.co/r7ZuI5KZV0](https://t.co/r7ZuI5KZV0)
+> — Senator Ted Cruz (@SenTedCruz) [June 7, 2021](https://twitter.com/SenTedCruz/status/1401978440455176193?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加拉格尔： 大卫·阿舍(David Asher)和哈德逊的一个团队发表了一篇重要的新论文，内容涉及现实行动要件和我们可以采取的下一步行动，以追究中国共产党的责任，帮助彻底查清新冠肺炎的根源。 （转推哈德逊研究所网站阿舍的文章）
+
+
+
+> Important new paper from David Asher and a team at Hudson on realistic action items and next steps we can take to hold the Chinese Communist Party accountable and help get to the bottom of COVID origins. [https://t.co/SG5UjvsoXc](https://t.co/SG5UjvsoXc)
+> — Rep. Mike Gallagher (@RepGallagher) [June 7, 2021](https://twitter.com/RepGallagher/status/1401968854667038722?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 如果中国不对世界负责任，世界就不应该保护中国领导人的资产。我们应该执行针对中国国有企业的索赔要求，减少对其实体的优惠待遇。不需要得到更多的答案，是时候采取行动了 （转推华盛顿邮报文章称：拜登领导的联盟，应该对中国的新冠肺炎违法行为进行惩罚）
+
+
+
+> If the CCP won't act responsibly toward the world, the world shouldn't protect CCP leaders’ assets. We should enforce claims against its state-owned enterprises & curtail preferential treatment of its entities. No need to get more answers, it's time to act [https://t.co/lle5sRVNvk](https://t.co/lle5sRVNvk)
+> — Mike Pompeo (@mikepompeo) [June 7, 2021](https://twitter.com/mikepompeo/status/1401962981362110474?ref_src=twsrc%5Etfw)
 
 
 

@@ -1,51 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G7北约欧美峰会及美俄会面将连续上演
-` Jimsolomon` [轉載自GNews](https://gnews.org/zh-hans/1306068/)
+## 1989年六月四日中共国对抗议活动镇压导致天安门广场屠杀
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1306090/)
 
-G7峰会、北约峰会、美国欧盟峰会，是延续了美日澳印四国峰会、美日峰会、美韩峰会之后的灭共峰会。美国欧盟峰会后，美国总统拜登、俄罗斯总统普京再进行会面，到那时候基本上所有主要大国已经协调完毕。
+翻译：康州盘古农场 – TrueSky
 
-作者：CPA Jim 所属农场：[喜马拉雅-华盛顿DC农场](https://gnews.org/zh-hans/author/himalayadcgnews/)
+校对：康州盘古农场 – Mike Li
 
-2021年6月7日，美国国务卿布林肯发推表示，将跟随拜登总统一起参加G7、北约和美国欧盟峰会，并在日内瓦会见俄罗斯联邦总统普京。推文如下：
+编辑：康州盘古农场 – 心照
 
+发布：康州盘古农场 – 彩虹 Rainbow
 
+据《历史网》，2021年6月4日报道：
 
-> Looking forward to joining [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) this week on his travel to Europe for the G7, NATO, and U.S.-EU Summits, as well as the President’s meeting with Russian President Putin in Geneva.
-> — Secretary Antony Blinken (@SecBlinken) [June 7, 2021](https://twitter.com/SecBlinken/status/1402009909298933763?ref_src=twsrc%5Etfw)
+中共国军队冲进北京中心的天安门广场，杀害并逮捕了数千名支持民主的抗议者。中共国政府对抗议者的野蛮攻击震惊了西方，并带来了美国的谴责和制裁。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07183226/daiwma.jpg)图片来自网络
+1989年5月，近100万中国人，主要是年轻学生，拥入北京市中心，抗议并向政府表达更大的民主诉求，并要求被认为过度镇压的中共国共产党领导人辞职。在将近三周的时间里，抗议者们每天都在守夜，并进行游行和呐喊。西方记者为美国和欧洲的电视和报纸观众拍摄了许多珍贵的画面。
 
+然而，1989年6月4日，中共国军队和安全警察冲入天安门广场，向手无寸铁的抗议人群随意开枪。随后发骚乱，成千上万的年轻学生试图逃离猖獗的中共国军队。其他抗议者进行反击，向进攻的军队投掷石块，推翻和焚烧军车。在现场的记者和西方外交官估计，至少有300名，也许是数千名抗议者被屠杀，多达1万人被逮捕。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07183017/dai-0-1.jpg)图片来自网络
+中共国政府的无人性攻击震惊了其盟友和冷战期的对手。苏联领导人戈尔巴乔夫宣布，他对中共国的事件感到悲哀。他说，他希望政府能够采用他自己的国内改革方案，开始使中共国的政治制度民主化。
 
+在美国，社论家和国会议员谴责了天安门广场大屠杀，并敦促乔治·布什总统惩罚中共国政府。三个多星期后，美国国会投票决定对中华人民共和国实施经济制裁，以回应其对人权的野蛮侵犯。
 
-该安排存在内在的逻辑关系。
+原文连接：[https://www.history.com/this-day-in-history/tiananmen-square-massacre-takes-place](https://www.history.com/this-day-in-history/tiananmen-square-massacre-takes-place)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-首先G7峰会将涉及批准G7财政部长和央行行长会议公报的有关事项，其中对全球大公司征税、打击大公司利用避税港逃避税的问题，有助于为北约在印太地区的行动提供财政经费，因为北约成员国的财政因为疫情冲击已经很吃紧，北约成员国很难再对已经被疫情严重冲击的普通家庭加税。
-
-美国前国务卿蓬佩奥提出的北约行动的财政来源解决方案是不再保护中共领导人的资产，强制执行中共党企资产。属于解决北约军事行动资金来源并同时打击中共资金来源的方案。
-
-
-
-> If the CCP won't act responsibly toward the world, the world shouldn't protect CCP leaders’ assets. We should enforce claims against its state-owned enterprises & curtail preferential treatment of its entities. No need to get more answers, it's time to act [https://t.co/lle5sRVNvk](https://t.co/lle5sRVNvk)
-> — Mike Pompeo (@mikepompeo) [June 7, 2021](https://twitter.com/mikepompeo/status/1401962981362110474?ref_src=twsrc%5Etfw)
-
-
-
-另一方面最近[中共宣传爱尔兰外长来贵阳参观第七届“数博会”](https://youtu.be/XaGoNmuG-N0)，与中共外长王毅进行会谈，另据墙内媒体第一财经报道[爱尔兰是苹果等大科技公司主要避税地之一，G7达成历史性税务协议，以及欧盟打击避税天堂的行动](https://www.yicai.com/news/101070853.html)，这会挫败中共试图通过爱尔兰对跨国公司进行蓝金黄的行动。
-
-爱尔兰与北爱尔兰之间的边界执法是英国脱欧协议谈判中英国与欧盟分歧严重的一点，不排除中共国曾经通过爱尔兰故意分化英国和欧盟，使得英国无暇顾及中英关于香港的联合声明的违约问题，无暇监督执行国际海洋法。也不能排除中共国曾经通过爱尔兰分化英国（爱尔兰和英国北爱尔兰挨着的）和美国，分化欧盟和美国。
-
-G7财政与央行公报还提到解决中共病毒疫情、对付贫穷国家债务危机、打击洗钱、犯罪、环境破坏等问题。中共病毒正是需要举行这些峰会灭共的一个重要原因，洗钱、债务问题、犯罪和环境破坏是中共制造并投放中共病毒、试图控制主导世界的手段。
-
-比如G7公报中提到的气候变化问题，一带一路、大基建、大跃进、南海军事化等原因加剧全球气候变暖，会加剧喜马拉雅和北冰洋冰川融化，抬高海平面，威胁英国、美国、荷兰、印度、东南亚等多个城市和地区的安全，同时方便[中共通过北冰洋航道主导世界](https://www.voachinese.com/a/china-arctic-russia-china-20210518/5895490.html)。
-
-可见G7峰会之于北约峰会，属于兵草未动，粮草先行。G7峰会为美国欧盟峰会提供铺垫。北约峰会、欧盟峰会统一西方国家立场，然后再为美俄会谈提供良好背景。
-
-美国与其盟友先举行峰会才能确保美国承诺给俄罗斯的，能够被美国的其他盟国接受，使得俄罗斯放心大胆交出自己掌握的证据情报，包括用于网络攻击美国的俄罗斯服务器租给了哪位中共军方用户，俄罗斯掌握的服务器租赁付款人、合同编号、租赁起止日期等信息。
-
-另一方面美国需要和其盟国沟通如何使他们相信俄罗斯的承诺、相信其给的东西是真的。
-
-G7峰会、北约峰会、美国欧盟峰会，是延续了美日澳印四国峰会、美日峰会、美韩峰会之后的灭共峰会。美国欧盟峰会后，美国总统拜登、俄罗斯总统普京再进行会面，到那时候基本上所有主要大国已经协调完毕。
-
-(本文仅代表作者个人观点)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

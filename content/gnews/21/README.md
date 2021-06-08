@@ -1,32 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 针对中共国复旦大学匈牙利校区抗议活动将在布达佩斯举行
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1306347/)
+## 【点睛要闻】 广州中共病毒疫情严峻 印度变异株肆虐
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1306292/)
 
-翻译：康州盘古农场 – 郭班之樱
+撰稿：Ermat【㊙️翻Gnews原创组】
 
-校对：康州盘古农场 – Mike Li
+责编：Shifter
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07204955/id12996578-GettyImages-1233196582-600x400-1.jpg)图片来源：大纪元
+据大纪元6月6日报道，中共病毒印度变异株正在广州肆虐 ，官方6月5日统计的确诊人数已达94例。部分地区已提升疫情风险等级。
 
-编辑：康州盘古农场 – 傻小子
+对此，广州市第八人民医院感染病中心首席专家蔡卫平，在媒体采访中说，这次在广州发现的印度变异株有两大特点，一是在患者鼻咽拭检测到的中共病毒核酸载量特别高，平均值是去年患者的将近两倍；二是受感染患者的潜伏期短，这次平均为3.2天，而去年是5.9天。
 
-发布：康州盘古农场 – 彩虹 Rainbow
+为了应对疫情，现已有来自珠海、中山、东莞、深圳、惠州、清远、韶关7个城市的5,600医护人员奔往广州南沙区、增城区、从化区、花都区进行核酸检测工作。另外，广东省南沙区所有公共交通工具已停运，通往南沙区的主要道也暂时关闭。
 
-**据EURACTIV.com with Telex作者：Vlagyiszlav Makszimov报道 2021年6月2日发布** 
-**虽然有限制，针对中国大学的抗议活动仍将在布达佩斯举行**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07210818/20210607.jpg)
-中共国的投资也让最初计划在同一地点的学生城的命运受到了质疑，其中包括 8,000 多个留宿的名额[EPA-EFE/ZOLTAN BALOGH]
-已经有4,000 多人登记了他们要参加周六在议会外举行的针对中共国复旦大学匈牙利校区的抗议活动。
-组织者表示，虽然当前（病毒）大流行限制不能超过 500 人参加露天活动，但抗议活动仍将举行。大型活动只能由持有“保护证书”的人参加，这些人是第一次接种疫苗或从病毒中康复的人，以及有未成年人陪同的人。
-此抗议活动是在布达佩斯当局重新命名布达佩斯的费伦茨瓦罗斯区计划校园周围街道的几天后举行的，该地区进行了工程计划，并于本周重新命名街道以抗议该大学。
-中共国的投资也让最初计划在同一地点的学生城的命运受到了质疑，其中包括 8,000 多个留宿名额。
-政府将这条街重新命名为“笑话”和“挑衅”。
-(弗拉基米尔·马克西莫夫| EURACTIV.com with Telex)
+中共使用生化病毒把整个世界搅得翻江倒海。之后，又采取了种种严苛的措施，试图阻断病毒在国内的传播，过上“风景这边独好”的日子。可惜“好梦难圆”，一波又一波的疫情告诉了它什么是“作茧自缚”。
 
-原文链接：[https://www.euractiv.com/section/politics/short\_news/chinese-university-protest-to-take-place-in-budapest-despite-restrictions/](https://www.euractiv.com/section/politics/short_news/chinese-university-protest-to-take-place-in-budapest-despite-restrictions/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+参考链接：
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[广州疫情升级 大量医护人员前往支援](https://www.epochtimes.com/gb/21/6/6/n13003255.htm)
+
+（本文仅代表作者个人观点）
 
 +1
