@@ -1,10 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】倡导职普比“大体相当”，凸显经济下行和人口老龄化压力
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1306515/)
+## 【经济超限战】华融重组与中共的系统性金融危机
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1306523/)
 
-香草山写作组  鹰(文言)
+作者 ：经济小组 / 纽约香草山金融部 ilovezhanshen
+
+编审：经济小组 / 加拿大多伦多枫叶农场向往真理
 
 
 
@@ -12,33 +14,45 @@
 
 
 
-环球网6月7日转载中国青年报文章，当前国内职业教育与高中阶段教育的招生比例，依旧距离1：1的“大致相当”的目标有所差距。
+中国华融资产管理股份有限公司（简称中国华融）最近半年来一直在经历一系列的信用危机，外界一直在猜测中共政府是否会介入救市。华融总资产约1.7万亿元（约2590亿美元），处于中共金融系统的核心地位，可以说到了“大而不能倒”的程度。华融债券大量被外国投资者持有。一旦华融违约，将对金融市场造成巨大冲击。而如果中共政府进入救市，也只能暂时掩盖问题，拖延有效的金融改革，以延缓更严重的系统性金融危机的到来。
 
-2002年中共国务院出台《关于大力推进职业教育改革与发展的决定》，开启了扩大国内高等职业教育的序幕；2005年，中共提出到2010年高等教育招生规模应达到800万人，占高等教育招生规模一半以上目标；2014年、2017、2019年教育改革方案中均将高中阶段教育“职普比”大体相当作为现行标准；2019年《国家职业教育改革实施方案》提出保持职普比1：1是教育的红线。可以说近20年来，中共一致致力于提高职业教育的招生规模和就业人数，以继续为国内的产业提供廉价劳动力。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07223034/Screen-Shot-2021-06-07-at-10.27.01-PM.png)
-然而，近年来，职业教育人数却呈逐年下滑趋势：中职学生数量从2010年的2205万人减至1593万人，职普比也从2011年的47.1%降至17年的40.1%。为了增加中等职业教育招生规模以提升“职普比”，各地政府可谓各尽其招，陕西宝鸡“一刀切”禁止招收初三复读生，榆林、西安取缔中考补习，江西萍乡、山西运城、辽宁葫芦岛等地采取初三复读生扣分。然而，相较于政府的“一厢情愿”，民间对高中阶段教育的重视程度却未有丝毫减弱。2019年高中招生839.49万（同比增长5.9%），在校生人数2414.31万，中等职业教育招生600.37万，在校生1576.47万（占高中在校生人数的65.30%）；2020年国内高中阶段招生876.44万，在校生人数2494.45万人，中等职业学校在校生1628.14万人（约占高中在校生人数的65.27%）。在中共教育部的“三令五申”以及各地政府的行政干预下，中等职业教育的规模不但没有明显增幅，反而略有下滑。
+据路透社6月4日消息，中共国正在考虑要求中国华融资产管理股份有限公司出售非核心资产，同时暗中担保其大约200亿的美元债务。出售的资产包括一家银行，一家信托，一家投资银行和一家消费者金融公司[1]。这预示着华融的危机已经到来，中共即将开始救市。
 
-中共对职业教育的力推可以归因于廉价劳动力市场的逐年下滑。各行业中从事底层劳动的人员数量骤减（2017年中共人力资源部印发的《制造业人才发展规划指南》中，提及电力装备、农机装备、新材料等10大重点领域人才缺口到2025年将达2985.7万人，缺口率飙至48%），严重影响了中共制造的发展模式。人口老龄化的加剧又增加了巨大的财政开支压力，而延迟退休政策的推行虽可暂缓养老金等发放周期，但在缺乏新增劳动力的供应下，资金周转难题只会更加无解。这就是为什么中共要“倡导职普比大致相当”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07223021/Screen-Shot-2021-06-07-at-10.27.06-PM.png)
-相比于高中教育，中等职业教育的“回报”周期短，高中阶段毕业生部分“连番累读”，升本、硕，更甚到博士阶段才能参与社会工作。2021年考研报考人数377万（同比增长10.6%），占2020年高校毕业生人数874万的43.1%。而职业教育仅需3年左右就可进入社会生产生活。就工业大国的现状而言，职业教育无疑更具备应用前景。然而，职业教育等同“劣汰”，学生家长热衷高考升学的热度不减，再加上职业教育院校办学质量残次不齐，因而哪怕中共推出各种职业教育“红利”，制造业“缺人”的困境依旧难解。
+据彭博社5月31日消息，中共国财政部正在考虑重组中国华融资产管理股份有限公司，将其持有的中国华融股份以及其他三家不良资产管理公司的股份转移到一家新的控股公司，就像中共政府通过中央汇金公司控制国有银行一样。
 
-新闻来源：
+一些中共国官员认为，成立一家新的控股公司可以将政府作为监管者和股东的角色分离，并简化监督流程，并在华融以及其同类公司中注入更加专业化的管理文化。
 
-一半上中职？普职比到底是多少https://china.huanqiu.com/article/43R6AkGkqEh
+中共当局也在考虑引入更多的外部投资者，以减少财政部的控股份额。中共监管当局还在等待中共高层级领导对华融债务危机的决策 [2] 。
 
-放开普职比，普通高中做好“牺牲”的准备了吗？https://www.163.com/dy/article/G1MC524U0536FNZE.html
+自今年年初开始，华融就进入全面危机。1月，华融前董事长赖小民被判处死刑。3月，华融推迟了发布其年报，随后其债券价格大幅跳水，最高跌幅超过40%，甚至导致其交易一度停牌。4月下旬，世界三大评级机构之一的惠誉国际（Fitch Ratings）将华融的主要信用评级下调三级，从A 降为BBB。随后，穆迪也将华融的信用评级从A3降为Baa1 [3]。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07222916/Screen-Shot-2021-06-07-at-10.27.42-PM.png)
+华融通过债卷市场举债超过400亿美元，其中欠外国投资者超过230亿美元。根据彭博汇编数据，其中约有171亿美元将于2022年末到期。虽然华融最近兑现了其一系列的债券支付，但市场对其长期债券的看法依然很悲观。最近，华融的危机也导致其他三家中共国资产管理公司（中国信达资产管理公司、中国长城资产管理公司、中国东方资产管理公司）的美元债券接连价格跳水[4]。这三家公司总债务约为2.9万亿元（约4540亿美元）。如果中共处理不当，华融的金融风险或许会波及整个国内和国际的金融市场。
 
-教育部将严抓“普职比”，可能一半学生上不了高中，家长炸锅了！https://3g.163.com/dy/article/FPJUSDVO0536FJRJ.html
+华融成立于1990年代，是中共为了处理国有银行的坏账所设立的四大资产管理公司之一，其最大股东为中共国财政部。这些资产管理公司。后来将其业务扩张到其他金融领域（尤其是房地产和投资银行业），并在债券市场上融资上百亿美元，华融是其中扩张最为凶猛的。
 
-中考严抓“普职比”惹争议，一半学生读职高，是工厂招不到人？https://new.qq.com/omn/20210429/20210429A07V3M00.html
+自赖小民时代以来，华融贪婪的扩张将其卷入巨大的债务黑洞。2018年赖小民被开除党籍，并被调查。根据郭文贵先生爆料，赖小民是王岐山的马仔，曾经帮助中南海洗钱上千亿人民币。其被执行死刑，是中共倒台之前祭奠其最后盛宴的必然。赖小民和马云只是一个开始，之后还会有更多金融机构、，国有企业以及中国私营企业的老板被抓或被杀[5]。
 
-王屹：”职普比”的起与伏https://www.sohu.com/a/336703250\_100253427
+对华融的处理体现了中共当局对金融改革的态度，以及中共金融系统的整体性危机。类似的腐败和债务危机在很多主要金融机构中都存在，比如最近相继出事的国开行、，民生银行等等[6]。中共虽然可以用国家的名义，暂时替出问题的金融机构担保，但事实上国家并不生产任何财富，一切的财富最终都来自于人民。中共的金融系统几十年来都在玩拆东墙补西墙、借新还旧的庞氏骗局，并一直被几大家族所垄断，持续的剥削勤劳的中国人民，从来就没有进行任何实质性的金融改革。随着一系列国际经济制裁的推出，以及国内经济增长点的消退，这一套玩法终究有暴雷的那一天。中共国金融的系统性危机终将到来，并最终导致财富的创造者——人民，集体奋起反抗。这一天或许很快就会到来。
 
-禁止初三复读，一刀切为哪般？https://www.sohu.com/a/337780801\_220095
+参考资料：
 
-2020年全国教育事业统计主要结果http://www.moe.gov.cn/jyb\_xwfb/gzdt\_gzdt/s5987/202103/t20210301\_516062.html
+[1] Reuters 6/4 EXCLUSIVE China pushes Huarong to sell non-core units, mulls implicit support – sources
 
-职校强制学生实习，监督漏洞应及时补上http://guoqing.china.com.cn/2021-05/07/content\_77469994.htm
+[https://www.reuters.com/world/china/exclusive-china-pushes-huarong-sell-non-core-units-mulls-implicit-support-2021-06-04/](https://www.reuters.com/world/china/exclusive-china-pushes-huarong-sell-non-core-units-mulls-implicit-support-2021-06-04/)
+
+[2] Bloomberg 5/31 China Considers New Holding Company for Huarong, Bad-Debt Managers
+
+[https://www.bloomberg.com/news/articles/2021-06-01/china-mulls-new-holding-company-for-huarong-bad-debt-managers?sref=Yg3sQEZ2](https://www.bloomberg.com/news/articles/2021-06-01/china-mulls-new-holding-company-for-huarong-bad-debt-managers?sref=Yg3sQEZ2)
+
+[3] Bloomberg 4/29 China Huarong Leaves Rating Firms Guessing on State Support [https://www.bloomberg.com/news/articles/2021-04-29/china-huarong-s-rating-cut-a-notch-to-baa1-by-moody-s](https://www.bloomberg.com/news/articles/2021-04-29/china-huarong-s-rating-cut-a-notch-to-baa1-by-moody-s)
+
+[4] Bloomberg 6/2 Huarong Contagion Risk Resurfaces at Peers That Owe $454 Billion
+
+[https://www.bloomberg.com/news/articles/2021-06-02/huarong-contagion-risk-resurfaces-at-peers-that-owe-454-billion](https://www.bloomberg.com/news/articles/2021-06-02/huarong-contagion-risk-resurfaces-at-peers-that-owe-454-billion)
+
+[5]郭先生0106:赖小民作为不安全的知情者必须死,他只是开头[https://gnews.org/zh-hans/735260/](https://gnews.org/zh-hans/735260/)
+
+[6]【经济超限战】国开行的崩溃与中共经济模式终结[https://gnews.org/zh-hans/1265423/](https://gnews.org/zh-hans/1265423/)
 
 ![This image has an empty alt attribute; its file name is 6_june-2.jpg]()![This image has an empty alt attribute; its file name is 6_june-2.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
 

@@ -1,32 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 针对中共国复旦大学匈牙利校区抗议活动将在布达佩斯举行
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1306347/)
+## CCP病毒蔓延广州物资疯长 民众发帖求助
+` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/1304883/)
 
-翻译：康州盘古农场 – 郭班之樱
+![]()![](https://gnews.org/wp-content/uploads/2021/04/gnews抬头图片.png)
+韩国恩典农场：尚生    编辑：追着曙光跑
 
-校对：康州盘古农场 – Mike Li
+摘要：广东省卫健委发布，截止到今天9点，广东新增10例本土病例，另有本土无症状感染者转确诊病例9例，广州报告4例、深圳报告3例、佛山和湛江各报告1例。因为受到CCP病毒影响，广州多条街道实施封闭隔离。
 
-编辑：康州盘古农场 – 傻小子
+根据居住广州市荔湾区生活的微博网友爆料，因为政府对疫情的封闭隔离措施，民众不能出门购买生活必须物资，从网上购买物资也受到阻碍，政府承诺的免费物资也根本看不到，民众只能在家挨饿。
 
-发布：康州盘古农场 – 彩虹 Rainbow
+网友图片显示一份快餐40元一份，全是素菜。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07063923/6%E6%9C%888%E6%97%A540%E5%85%83%E7%9A%84%E5%BF%AB%E9%A4%90.jpeg)图片来源：网络
+广州荔湾发布的疫情5.31“爱心餐” 除了菜名花俏，全是面食。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07064106/6%E6%9C%888%E6%97%A5%E5%85%A8%E9%83%A8%E6%98%AF%E7%B4%A0%E7%9A%84%E5%BF%AB%E9%A4%90%E7%9B%92jpeg.jpeg)图片来源：网络
+网友爆料，在隔离期间有的网友买一斤蔬菜花费十几元，买半只鸡花费200多元。有的则买不到菜、甚至连米也买不到，只能买街道村委的天价物资套餐。网友网上下单的平价菜不让送也不让拿，而那些价格昂贵跟街道村委有关系的物资却能被派送进来。并且所有的超市被街道村委勒令封锁，物资全部不能进入，放在各处的食品即使烂掉也不发放给民众。
 
-**据EURACTIV.com with Telex作者：Vlagyiszlav Makszimov报道 2021年6月2日发布** 
-**虽然有限制，针对中国大学的抗议活动仍将在布达佩斯举行**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07210818/20210607.jpg)
-中共国的投资也让最初计划在同一地点的学生城的命运受到了质疑，其中包括 8,000 多个留宿的名额[EPA-EFE/ZOLTAN BALOGH]
-已经有4,000 多人登记了他们要参加周六在议会外举行的针对中共国复旦大学匈牙利校区的抗议活动。
-组织者表示，虽然当前（病毒）大流行限制不能超过 500 人参加露天活动，但抗议活动仍将举行。大型活动只能由持有“保护证书”的人参加，这些人是第一次接种疫苗或从病毒中康复的人，以及有未成年人陪同的人。
-此抗议活动是在布达佩斯当局重新命名布达佩斯的费伦茨瓦罗斯区计划校园周围街道的几天后举行的，该地区进行了工程计划，并于本周重新命名街道以抗议该大学。
-中共国的投资也让最初计划在同一地点的学生城的命运受到了质疑，其中包括 8,000 多个留宿名额。
-政府将这条街重新命名为“笑话”和“挑衅”。
-(弗拉基米尔·马克西莫夫| EURACTIV.com with Telex)
+一如既往，爆料的网友在发布这些消息以后，被混在网友群里的共产党舆论监督员指责是“境外势力”并说爆料是在给境外势力递刀子！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07064223/6%E6%9C%888%E6%97%A5%E6%95%A3%E5%B8%83%E4%BF%A1%E6%81%AF.jpeg)图片来源：网络
+最后看看共产党的社会媒体在干什么：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07064320/6%E6%9C%888%E6%97%A5%E5%8D%97%E6%96%B9%E6%97%A5%E6%8A%A5.jpeg)图片来源：网络![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07064410/6%E6%9C%888%E6%97%A5%E4%BA%BA%E6%B0%91%E6%97%A5%E6%8A%A5.jpeg)图片来源：网络
+（本文仅代表作者观点）
 
-原文链接：[https://www.euractiv.com/section/politics/short\_news/chinese-university-protest-to-take-place-in-budapest-despite-restrictions/](https://www.euractiv.com/section/politics/short_news/chinese-university-protest-to-take-place-in-budapest-despite-restrictions/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-+1
+0

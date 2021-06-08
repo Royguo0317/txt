@@ -1,25 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP治下的高考之殇
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1306248/)
+## 6月7日美国政要推特精选：COVID-19在实验室中进行了优化
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1306303/)
 
-#### 文：H / 责编：胡天
+众议员布莱恩·马斯特： 越来越多的证据表明,[#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 是来自中共国的“人造怪物,在实验室中进行了优化,以最大限度地提高传染性,然后再释放到外界造成灾难性后果”. 美国人应该得到真相 【文章来自Foxnews:史蒂文·奎伊博士和理查德·穆勒指出了支持人造病毒说法的两个关键证据,这两个证据越来越有说服力】
 
-#### 资料搜集：黄小花
-![高考将至今年各地高考政策都有啥变化？ Important changes to gaokao exam  policy_详细解读_中科凡语_飞译平台_资讯详情]()![高考将至今年各地高考政策都有啥变化？ Important changes to gaokao exam  policy_详细解读_中科凡语_飞译平台_资讯详情](https://img2.chinadaily.com.cn/images/201906/06/5cf8a5d3a3101765669dd3bd.jpeg)[图片来源](https://img2.chinadaily.com.cn/images/201906/06/5cf8a5d3a3101765669dd3bd.jpeg)
-全球父母都在用教育疯狂砸钱悄悄实现阶层跨越，对于今年中国而言经济、政治、世界格局又循环到历史上愚昧无知的清末。2021年的中国扩招报考人数呈历史高峰，就业越发艰难，失业、聚众、社会血腥事件、全球病毒危机、国际正义和邪恶对决时不时刺激大众的神经。
 
-每年的高考又到了，这是中国的中低阶层认为向上涌动为数不多相比还算比较公平的机会之一。残酷的现实，出身底层逆袭有多难！当下阶层画像中最底层已经放弃了教育，过度焦虑绝望的中产，免试的高层或是直飞欧美名校，顶层的DNA一半已经具有欧美血统从小贵族培养布局权力的游戏。
 
-中共的教育只能附庸经济政治的格局，只能培养最低端的劳动力。这也就是只有大量的基础设施，劳动密集产业能够消化他们，恶性循环的结果。内卷化竞争为数不多体面、有地位的好工作。衡水中学的视频段子用阶级斗争的方式在刺激学生家长，非常无耻成功的宣传运作。可以肯定一点的是能上的起这所学校的绝不是底层家庭的孩子。这所学校代表着整个教育系统缩影，把最可塑性最强的少年时代训练成心理变态！拼命学，用知识改变命运、成为人上人、奴役其他人、是几千年来唯一没变的人生观，几十年高考造就出几千个状元，惊奇的是没有一个成为行业的领袖！那些已经成功的人士以变成精致的利己主义 助纣为虐不会为社会做出多余的奉献！几千年统治者最成功的管理手段，一个状元的诱饵把所有威胁全部收纳诏安。愚民五术中奴化教育最具危害性！每朝每代玩的如火纯青，
+> There is mounting evidence that COVID-19 is “a man-made monster, optimized in a lab for maximum infectivity before hitting the outside to catastrophic effect” from China.
+> 
+> Americans deserve the truth.[https://t.co/kkGGIBHdDF](https://t.co/kkGGIBHdDF)
+> — Rep. Brian Mast (@RepBrianMast) [June 8, 2021](https://twitter.com/RepBrianMast/status/1402060305396469788?ref_src=twsrc%5Etfw)
 
-压制教育、无效教育这个国家最初的教育动机就把所有孩子想象成即将变坏的一个人，从幼儿园就灌输一些不切实际的理论和思想。不停地灌输爱国、爱党教育，就是没有人性关怀的教育。这些政治教育对几岁甚至十几岁的孩子来说，简直是天书，就连很多政治老师都搞不懂。这些教育的功能仅仅是为了应付试卷上的标准答案，除此别无用处。真正的人性教育、逻辑教育是空白的。人性是人格的基础，缺乏人性认识的人，肯定缺乏人格。他拿什么爱自己？爱家人？爱社会？更谈不上再爱其他。所以，当下中国治下的糜乱也就不足为奇了。爱，是一种成长感受，不是靠说教获取的，这是基本原理。这种认识西方700多年前就已经认同，而有着五千年文明的中国却仿佛停留在原始社会。贯穿中国教育思想的还有仇恨。学校给学生灌输仇恨这在大多数国家是犯罪行为。
 
-中共教育失败的另一个证明还体现在安全教育方面。很多学校实行无缝对接管理，从学生进校门到出校门，每一分每一秒都有老师看着，下一个老师不到，上一个老师不能离开，就像看管羊圈一样。放学时，离学校不足50米的地方是密密麻麻的家长及形形色色的车辆，孩子到家后又是圈养在房间里做作业、吃饭、睡觉，这个循环过程一般持续15年之久，刚来中国时，小学二三年级以下的孩子有家长接送，现在就连中学生也要接送。孩子终究要离开学校离开家庭，终究要独立生活，到那时怎么办？
 
-高压锅式教育是把人最珍贵的年华付之毫无意义、毫无发展价值的学习内容上，而不舍得花费一点点时间去讨论和思考。死记硬背成了学习的唯一方法，高压成了教育的唯一手段，保护成了成长的唯一措施。这种负成长的教育模式其实是对人性的一种摧残，是对人类的极大犯罪！教育的目的是引发思维能力。青少年时期被固化往往决定一生的思维逻辑和认知状态！这代人还会紧跟上代人的步伐，可是他们又如何用计划教育的思维，学习全球经济政治，去面对AI精确探索未知的世界，如何区分正义和邪恶！！！
+参议员霍利新闻办公室： 霍利在推特上写道:“公众有权知道美国政府内部是否有人试图阻止对冠状病毒来源的全面调查。” “国会还必须查明福奇的国家过敏和传染病研究院在多大程度上参与了资助武汉的研究”。 （转推布莱特巴特网：参议员霍利要求福奇辞职）
 
-（本文仅代表作者本人观点）
 
-+3
+
+> "The public deserves to know if persons within the US govt tried to stop a full investigation into COVID origins," Hawley tweeted.
+> 
+> "And Congress must also find out to what extent Fauci’s NIAID was involved in financing research" in Wuhan. [https://t.co/NAfj8Cy13a](https://t.co/NAfj8Cy13a)
+> — Senator Hawley Press Office (@SenHawleyPress) [June 7, 2021](https://twitter.com/SenHawleyPress/status/1401946633693188101?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰得·克鲁兹： 福克斯新闻：参议员克鲁兹称脸书是在“代表政府”审查新冠病毒的内容。 附福克斯新闻报道链接
+
+
+
+> .[@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw): Sen. Cruz argues Facebook was censoring COVID-19 content ‘on behalf of the government’ [https://t.co/r7ZuI5KZV0](https://t.co/r7ZuI5KZV0)
+> — Senator Ted Cruz (@SenTedCruz) [June 7, 2021](https://twitter.com/SenTedCruz/status/1401978440455176193?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·加拉格尔： 大卫·阿舍(David Asher)和哈德逊的一个团队发表了一篇重要的新论文，内容涉及现实行动要件和我们可以采取的下一步行动，以追究中国共产党的责任，帮助彻底查清新冠肺炎的根源。 （转推哈德逊研究所网站阿舍的文章）
+
+
+
+> Important new paper from David Asher and a team at Hudson on realistic action items and next steps we can take to hold the Chinese Communist Party accountable and help get to the bottom of COVID origins. [https://t.co/SG5UjvsoXc](https://t.co/SG5UjvsoXc)
+> — Rep. Mike Gallagher (@RepGallagher) [June 7, 2021](https://twitter.com/RepGallagher/status/1401968854667038722?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： 如果中国不对世界负责任，世界就不应该保护中国领导人的资产。我们应该执行针对中国国有企业的索赔要求，减少对其实体的优惠待遇。不需要得到更多的答案，是时候采取行动了 （转推华盛顿邮报文章称：拜登领导的联盟，应该对中国的新冠肺炎违法行为进行惩罚）
+
+
+
+> If the CCP won't act responsibly toward the world, the world shouldn't protect CCP leaders’ assets. We should enforce claims against its state-owned enterprises & curtail preferential treatment of its entities. No need to get more answers, it's time to act [https://t.co/lle5sRVNvk](https://t.co/lle5sRVNvk)
+> — Mike Pompeo (@mikepompeo) [June 7, 2021](https://twitter.com/mikepompeo/status/1401962981362110474?ref_src=twsrc%5Etfw)
+
+
+
++2
