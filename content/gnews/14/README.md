@@ -1,27 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国举行各种仪式纪念盟军成功登陆诺曼底77周年
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1305240/)
+## 新画的一条底线
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1306372/)
 
-#### 文章撰写:【默凡】
+![]()![](https://media.discordapp.net/attachments/807425982436868097/851419144955494410/Cover.gif?width=1030&amp;height=580)![]()![](https://media.discordapp.net/attachments/807425982436868097/851419159102619659/3.gif?width=1030&amp;height=580)
+作者：XINGFOO
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07095604/aSnreipaste_20fsda21-06-07_21-55-13.png)
+（文章仅代表作者个人观点）
 
-2021年6月6日是盟军在二战时期登陆法国诺曼底第77周年纪念日，今年的纪念活动同去年一样受到疫情防范的旅行限制，只有部分盟军二战老兵和美英等国的官员参加了诺曼底地区举行的几个纪念活动。
-
-1944年6月6日，美英等盟国军队开启“作战行动发起日”（D-Day）行动，派出15万多部队搭乘7千多艘舰船在法国诺曼底海岸的奥马哈（Omaha）等海滩登陆，对纳粹德国占领的法国发起总攻，诺曼底登陆成功也彻底扭转了二战局势。
-
-法国国防部长帕尔利（Florence Parly）在纪念仪式上说：“1944年6月6日，诺曼底海岸烟雾笼罩的上空出现了自由的闪电”，“法国不会忘记。法国永远感激”。
-
-美国、加拿大和英国等盟国的官员参加了在俯瞰奥马哈海滩的美军公墓举行的纪念活动，这里埋葬着9380名在诺曼底登陆和随后作战行动中捐躯的美国军人，失踪军人墙壁上刻着1557名美国军人的名字。
-
-参考文章：[法国海滨仪式，纪念盟军诺曼底登陆77周年](https://www.voachinese.com/a/normandy-commemorates-d-day-20210606/5918581.html)
-
-本文仅代表作者本人观点，不代表Gnews平台
-
-* * *
-
-排版发布：日本东京方舟农场 文柯Miles
-
+校对发布：滴水穿石
+![This image has an empty alt attribute; its file name is B7F5E2B8-49CF-423E-974C-F219C725F3E1.jpeg]()![This image has an empty alt attribute; its file name is B7F5E2B8-49CF-423E-974C-F219C725F3E1.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05010634/B7F5E2B8-49CF-423E-974C-F219C725F3E1.jpeg)
 0

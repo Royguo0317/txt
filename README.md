@@ -12,138 +12,135 @@
 
 ---
 
-### [中共国再现持刀伤人——从引进人才到杀人犯](/content/gnews/1/README.md)
- ` 秘密翻译组G-Translators`
+### [鸿蒙刚启用，银行先来表忠心了](/content/gnews/1/README.md)
+ ` 闪电侠`
 
-### [6月7日文贵先生直播同步精要文字版](/content/gnews/2/README.md)
- ` 喜联盟七哥直播组`
+### [【经济超限战】华融重组与中共的系统性金融危机](/content/gnews/2/README.md)
+ ` 纽约香草山MOS03`
 
-### [视频献礼新中国联邦《迷失的光》](/content/gnews/3/README.md)
+### [【鹰眼墙国】盲人高考单独命题，难掩盲人就业、教育“稀少”现状](/content/gnews/3/README.md)
+ ` 纽约香草山MOS03`
+
+### [【鹰眼墙国】倡导职普比“大体相当”，凸显经济下行和人口老龄化压力](/content/gnews/4/README.md)
+ ` 纽约香草山MOS03`
+
+### [【新中国联邦一周年】比尔·格茨先生：研究中共生物武器计划的以色列专家早在2020年初就指出，武毒所正在进行有关生物武器的研究](/content/gnews/5/README.md)
+ ` 秘密翻译组-北美组`
+
+### [【鹰眼墙国】土地出让金划转税收，倒逼地方政府磨刀霍霍向“猪羊”](/content/gnews/6/README.md)
+ ` 纽约香草山MOS03`
+
+### [【路德简报】6/7/2021早：美国务卿布林肯称彻底调查病毒来源，美国会让中共国负责](/content/gnews/7/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [“国家审计”将于6月14日全部清点完毕](/content/gnews/8/README.md)
  ` HimalayaRussia`
 
-### [2021年6月6日 文贵先生盖特 3](/content/gnews/4/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+### [【世事解评】“种族灭绝罪”下的世界与中共（4月续篇三）——中共喊话媒体](/content/gnews/9/README.md)
+ ` 纽约香草山MOS01`
 
-### [【病毒专题】 《名利场》：病毒爆发前夕，中共军方用&#8221;肺部人类化的老鼠&#8221;测试病毒](/content/gnews/5/README.md)
- ` HoustonLitstar`
-
-### [2021年6月6日 文贵先生盖特 2](/content/gnews/6/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
-
-### [大陆恶性事故井喷式爆发，民怨压力或已接近临界点](/content/gnews/7/README.md)
- ` G-NEWS TAIWAN`
-
-### [【G时评】美军机抵台，中共如何危机公关？](/content/gnews/8/README.md)
- ` GISELLE`
-
-### [【三票专栏】Hcoin有望成为各国的储备货币](/content/gnews/9/README.md)
- ` 三票先生`
-
-### [加拿大多伦多枫叶农场新中国联邦周年庆典之新中国人篇(五)](/content/gnews/10/README.md)
- ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [中共59家公司被拉黑名单再也不能收割“洋韭菜”](/content/gnews/11/README.md)
- ` 澳喜农场`
-
-### [数字解读强国（3）科兴第三针抗体升10倍](/content/gnews/12/README.md)
- ` 澳喜农场`
-
-### [视频路德时评简讯（视频版）:中共继续抹黑美情报部门窃听不合法(2021.6.5早间路德社简讯之路安墨谈)](/content/gnews/13/README.md)
- ` 路德社`
-
-### [法国举行各种仪式纪念盟军成功登陆诺曼底77周年](/content/gnews/14/README.md)
- ` 索尼克`
-
-### [恐怖的大数据——中共国草民身上的吸血虫](/content/gnews/15/README.md)
- ` 澳喜农场`
-
-### [视频路德时评简讯（视频版）:邮件曝光墙内护士曾向福奇爆料墙内疫情(2021.6.3早间路德社简讯之路安墨谈)](/content/gnews/16/README.md)
- ` 路德社`
-
-### [【热点播报】超级重磅：塞林博士抛出奥巴马政府下台前紧急签署文件重启病毒“功能获得”研究！](/content/gnews/17/README.md)
- ` 纽约香草山MOS02`
-
-### [【拆台新闻】临死之际，中共仍吹嘘其病毒疫苗安全有效](/content/gnews/18/README.md)
- ` 索尼克`
-
-### [中共高考作文命题使洗脑更加彻底](/content/gnews/19/README.md)
- ` 澳喜农场`
-
-### [【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（三十八）](/content/gnews/20/README.md)
- ` 纽约香草山MOS02`
-
-### [家庭反洗脑序列：第十一篇 梦魇](/content/gnews/21/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [“掀锅盖”系列：20210604成功留在昨天，我们继续战斗！7哥寄语64庆典](/content/gnews/22/README.md)
- ` 《爆料贵语--掀郭盖》NZ`
-
-### [深度解读七国集团的激进协议——对抗中共，全球变天 （二）](/content/gnews/23/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【拍案惊奇】神逻辑——无症状就是成功抗疫？](/content/gnews/24/README.md)
+### [【灭共杂谈】历史上那些著名独裁者的伟大称谓](/content/gnews/10/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【DC大中华时事】民政署：派发蜡烛或违法和影响和谐 2021.06.07](/content/gnews/25/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [【点睛要闻】 广州中共病毒疫情严峻 印度变异株肆虐](/content/gnews/11/README.md)
+ ` 秘密翻译组-原创组`
 
-### [跨越千山万水来赴千年盛会](/content/gnews/26/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
+### [“国家审计”将迎来更多州观摩](/content/gnews/12/README.md)
+ ` HimalayaRussia`
 
-### [【每日快报】告诉福奇SARS-CoV-2&#8243;可能是设计&#8221;的病毒学家删除了Twitter账户 2021.06.07](/content/gnews/27/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [CCP病毒蔓延广州物资疯长 民众发帖求助](/content/gnews/13/README.md)
+ ` 恩典农场`
 
-### [【聚焦】揭开李飞飞的神秘面纱，她是“红三代”吗？](/content/gnews/28/README.md)
- ` 墨尔本雅典娜农场`
+### [新画的一条底线](/content/gnews/14/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
 
-### [由于抗议，匈牙利似乎对筹建中共国大学的计划退缩了](/content/gnews/29/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [针对中共国复旦大学匈牙利校区抗议活动将在布达佩斯举行](/content/gnews/15/README.md)
+ ` 康州盘古农场 Himalaya CT Pangu`
 
-### [全球主义者正在策划另一场人类灾难](/content/gnews/30/README.md)
+### [挂钩英镑的中央银行数字货币（CBDC）](/content/gnews/16/README.md)
+ ` wenwu`
+
+### [视频中国科学家在欧洲听证会上展示实锤证据&nbsp; 曝光中共用病毒征服世界的惊人计划！](/content/gnews/17/README.md)
+ ` Himalaya Rose Garden Team`
+
+### [《路德时评》重磅解读弗林将军弟弟任亚太陆军司令，及布林肯说中共必须接受调查](/content/gnews/18/README.md)
+ ` 香柏树`
+
+### [害人償命](/content/gnews/19/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [6月7日美国政要推特精选：COVID-19在实验室中进行了优化](/content/gnews/20/README.md)
+ ` 美国政要等...直译推`
+
+### [CCP治下的高考之殇](/content/gnews/21/README.md)
  ` 秘密翻译组G-Translators`
 
-### [Facebook是如何封锁反对疫苗的声音的](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [《文贵说》| 图片连载（八十七）](/content/gnews/22/README.md)
+ ` 文贵说｜Words From Miles`
 
-### [【币圈】-数字货币动态-2021.6.7](/content/gnews/32/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [西班牙执行“疫苗护照”，这无异于再次走在悬崖的钢丝上](/content/gnews/23/README.md)
+ ` 闪电侠`
 
-### [比我们想象的还要糟糕！ 福奇和美国顶级医生被抓！ 他们合谋取消羟氯喹作为 COVID 治疗的药物——结果数百万人死亡](/content/gnews/33/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [制裁访台美国参议员 华为昏招频出](/content/gnews/24/README.md)
+ ` 澳喜农场`
 
-### [【灭共有我】广州免费核酸检测，骗钱还是抢钱？](/content/gnews/34/README.md)
- ` 墨尔本雅典娜农场`
+### [【拆台新闻】中共说他们造福世界，他们具备优秀的品质，疯了吧？](/content/gnews/25/README.md)
+ ` 闪电侠`
 
-### [【路德简报】6/6/2021晚：蓬佩奥称要查清中共是否故意释放新冠病毒！](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [英喜时评第三十一期（2021.06.06）](/content/gnews/26/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
 
-### [深度解读七国集团的激进协议——对抗中共，全球变天 （一）](/content/gnews/36/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [中共以人民健康为由将体育打造成新的割韭菜工程](/content/gnews/27/README.md)
+ ` 美国洛杉矶天使农场 - LA Himalaya Angels`
 
-### [【路德简报】6/7/2021早：中共外宣九层妖塔浮出水面，《Redstate》——— 中共高级别叛逃者是假新闻](/content/gnews/37/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [中共滥用功能增强试验，给公共健康带来威胁](/content/gnews/28/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
 
-### [在意农的指导和帮助下，希腊战友向新中国联邦成立一周年献礼](/content/gnews/38/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
+### [班农先生在新中国联邦一周年庆典上的演讲](/content/gnews/29/README.md)
+ ` tongwandou`
 
-### [川普重提武汉实验室泄漏理论，誓言中共国必须付出代价](/content/gnews/39/README.md)
+### [【拆台新闻】中共将反外国制裁进行立法，静待这部旷世奇作](/content/gnews/30/README.md)
+ ` 闪电侠`
+
+### [【周年庆典热播】“枕头”爆大料： 拿出实锤证据 跟中共死磕到底](/content/gnews/31/README.md)
+ ` HoustonLitstar`
+
+### [【世事解评】“种族灭绝罪”下的世界与中共（4月续篇二）——各国政府态度](/content/gnews/32/README.md)
+ ` 纽约香草山MOS01`
+
+### [1989年六月四日中共国对抗议活动镇压导致天安门广场屠杀](/content/gnews/33/README.md)
  ` 康州盘古农场 Himalaya CT Pangu`
 
-### [【拆台新闻】中共驻英使馆“批”维吾尔特别法庭不合法不可信](/content/gnews/40/README.md)
+### [害人偿命](/content/gnews/34/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [【世事解评】中共大外宣从国际传播上升为战略传播，能为中共续命吗？](/content/gnews/35/README.md)
+ ` 纽约香草山MOS01`
+
+### [从缅怀到新生——谨以此篇致敬新中国联邦周年典礼日本分会场](/content/gnews/36/README.md)
+ ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
+
+### [G7北约欧美峰会及美俄会面将连续上演](/content/gnews/37/README.md)
+ ` Jimsolomon`
+
+### [英格兰历史之都铎王朝 (四） 婚姻的苦恼](/content/gnews/38/README.md)
+ ` HimalayaRussia`
+
+### [福奇邮件门：福奇收到的举报中共病毒数据造假邮件全文](/content/gnews/39/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [世卫顾问杰米-梅茨尔：中共仍在 &#8220;大规模隐瞒 &#8220;中共病毒真相](/content/gnews/40/README.md)
  ` 索尼克`
 
-### [美参议员访台提供疫苗支持](/content/gnews/41/README.md)
- ` 康州盘古农场 Himalaya CT Pangu`
+### [加拿大多伦多枫叶农场新中国联邦周年庆典之新中国人篇（三）](/content/gnews/41/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [1989年六月四日中共国对抗议活动的镇压导致了天安门广场的屠杀](/content/gnews/42/README.md)
- ` 康州盘古农场 Himalaya CT Pangu`
+### [炒掉福奇！抗议者涌向福奇和吉尔-拜登访问的疫苗接种点](/content/gnews/42/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [三孩政策：中共国的重大政策转变](/content/gnews/43/README.md)
- ` Shuizhuyu`
+### [【灭共头条】专家通过基因组测序进一步证实中共病毒是在武汉实验室制造](/content/gnews/43/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [许多像武汉与美国合作方的研究中心，都是中共国的生物武器孵化器](/content/gnews/44/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中国病毒学家称福奇的电子邮件证实了她对武汉实验室泄漏的说法](/content/gnews/45/README.md)
- ` 康州盘古农场 Himalaya CT Pangu`
+### [【墙内热搜】所谓疫苗，究竟是防疫救人还是下毒害人？](/content/gnews/44/README.md)
+ ` 纽约香草山MOS02`
 

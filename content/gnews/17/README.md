@@ -1,165 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】超级重磅：塞林博士抛出奥巴马政府下台前紧急签署文件重启病毒“功能获得”研究！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1305199/)
+## 中国科学家在欧洲听证会上展示实锤证据&nbsp; 曝光中共用病毒征服世界的惊人计划！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1306377/)
 
-作者：纽约香草山信息部 6zero4
+**摘要：在2021年5月30日的直播中，郭先生爆出一位中共军方的科学家刚刚在欧洲的听证会上，展示了视频和文件等实锤证据，证明中共正在用病毒征服世界：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+- **港大P3实验室是美国和欧洲向中共输出资金的重要管道；**
+- **中共是有计划、分步骤地放毒：在广州第一次试投，没成功；在武汉放毒，目标是军运会，没成功；最后在武汉华南海鲜市场放病毒，成功；**
+- **投毒目的：停止香港的街头运动；干掉川普总统大选；毁掉世界经济；让世界经济转向中共，让中共的疫苗经济成为全世界经济的核心；然后铲除美元；让中共成为“世界之国”；**
+- **中共有上千种的配好的冠状病毒，还有一种可怕的在昆虫身上变异的微型病原体；**
+- **中共副部级没有一人打疫苗，也不相信美国高官打了疫苗；**
+- **中共接下来的目标是：印度、澳大利亚、日本、台湾、新西兰、巴西！**
+- **美国如果再次爆发，死亡人数绝不是五十万、一百万，可能1/3的人都有生命的危险。**
 
 
+**郭先生说在这位科学家的听证会之后，世界舆论迅速转向——Fauci 不再坚持病毒自然说；美国总统马上启动调查；全世界所有的媒体转向；Facebook马上取消虚假新闻标签；推特不再嚣张；Google不敢再屏蔽；法国、英国的正义科学家被允许发声；几大杂志允许发表文章了；闫丽梦博士成为热门采访对象。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07212011/Miles_2021-05-30-live-p1.srt.txt)
+**中国科学家在欧洲听证会上展示实锤证据****  ****曝光中共用病毒统治世界的惊人计划！**
 
-6月5日，[塞林博士](https://twitter.com/LawrenceSellin/status/1401369514412023809)抛出信息核弹：奥巴马政府在下台前10天，紧急签署重启病毒 “功能获得” 研究的文件，为川普总统挖下了一个无底的深坑，为全世界和全人类埋下了一个毁灭一切的超级核弹！以下是该文件的中文翻译：
+**A PLA Scientist Presents Shocking Evidence of the CCP’s Evil Plan of Using the Virus to Conquer the World**
 
-2017年1月9日
+大家记住我今天说的话，记住这重点：香港实验室就是闫博士科学家那个实验室是美国和欧洲向中共提供资金的最重要的渠道！最重要的渠道，所以说闫丽梦科学家她多重要，她多重要！
 
-## **相关部门针对潜在疫情病原体的打理和监督****(P3CO)**** ****而制定审查机制的推荐性政策指导**
+Remember what I am going to say today, everybody. This is the key point – the Hong Kong laboratory, where our scientist Dr. Yan came from, is the most important channel through which the United States and Europe funnel fundings to the Chinese Communist Party. That tells how important our Dr. Li-Meng Yan is. She is important!
 
-#### **第一章：介绍**
+所以说欧州的整个这个组织听证会这几次说：闫丽梦的报告发生了什么事情？在这个报告出现以后哪些科学家和杂志被中共在背后操作，写出来假的反击闫丽梦科学家的所有的文章？把这些讲完以后说：闫丽梦报告到底有什么实际意义？
 
-1．1．对于有疫情潜力的加强型病原体的创建、转让、使用的实施与支持，或计划实施与支持的联邦部门和机构，应该开发审查机制，通常与国家生物安全科学顾问委员会 (NSABB) 在其2016年5月的报告中所建议的，对功能获得研究的评估和监督所推荐的方法保持一致 (NSABB建议) 。
+So at the several hearings held by the European parliament, people asked what’s in Li-Meng Yan’s reports and asked after the publication of her reports, which scientists and journals had been manipulated by the CCP and written fake articles to counterattack her. After all those were discussed, it went on asking what the real impact of Li-Meng Yan’s reports would be.
 
-1．2．本文件旨在建议联邦机构采取适当而一致的审查和报告流程，以对那些即将创建、转让、使用具有疫情潜力之增强型病原体并由联邦资助的研究加强监督。
+最后又提出来，说现在请一个来自中国的科学家让他讲讲到底到底发生了什么事情，这位科学家、这位将军向他们展示了他手里的视频和文件，和中共有计划在香港放毒，还是在武汉放毒，还是当时第一次是在广州试过，没成功，后来就是主要目标就是一个军运会，军运会又没成功，最后就是在海鲜市场放了。
 
-1．3．在该建议的政策指导中未指明的领域，尽管它们被敦促考虑NSABB的建议，并在制定其审查机制时与其他机构协商，机构允许使用自由裁量权。
+In the end, they said, “Now please welcome a scientist from China and let him tell us what really happened”. This scientist, who is a [PLA] general, showed them the video and documents that he possessed, which revealed how the CCP followed its plan to release the virus in Hong Kong, as well as in Wuhan, and in Guangzhou, how their first attempt failed. Then the next big target was the Military World Games, which failed again. Finally they made it in the wet market [in Wuhan].
 
-1．4．采用符合以下规定的审查机制的机构，将满足解除该机构暂停某些功能获得性研究的要求，这符合2014年10月17日的声明，即 “美国政府涉及流感、MERS和SARS病毒在特定功能获得研究上的审议过程与研究资金暂停”。
+为的就是很简单，停止香港的街头运动，然后干掉川普总统大选，毁掉世界经济，让世界经济转向中共，把从中国的疫苗经济，从星星之火的疫苗经济，成为全世界的中共经济为核心，然后铲除美元，让中共成为世界之国。
 
-#### **第二章：范围与定义**
+The purpose of it was simply to stop the street movement in Hong Kong, and then ruin Trump’s presidential election and destroy the world economy, so that the world economy would follow the CCP’s direction, and China’s vaccine economy would grow from something small to gradually dominate the world economy, and eventually replace the US dollars, allowing the CCP to control the world.
 
-2．1．根据该建议的政策指导，机构审查机制应管理具疫情潜力的增强型病原体的创建、转让和使用，以下定义的方法旨在将NSABB建议中提到的活动作为 “令人关注的功能获得研究” 。
+这位科学家向他们展示了中共有上千种的配好的各种冠状病毒，冠状病毒之外还有一个叫什么菌，叫做微菌叫做微型什么菌病毒，就是在草里边儿长出来小虫，从这个虫子身上又变异成的一种毒，非常之可怕。
 
-2．2．潜在的疫情病原体 (PPP)满足以下两个条件:
+The scientist showed them a total of thousands of different kinds of coronaviruses and also some bacterium, a type of microbial, which is called microbial virus. It’s like some kind of insect growing out of the grass and a certain toxin can be mutated from the insect. Very scary.
 
-2．2．1．它可能具有高传染性，并可能在人群中广泛且不可控地传播，且
+最后人家科学家一开始就说，我不相信美国任何高官打了疫苗真的打了疫苗，中共的副部级没有一人打疫苗，然后告诉他们，你们欧洲人打了疫苗就上当了。结果这些议会的人，我相信是一半儿人打了疫苗，把他们都吓死了。
 
-2．2．2．它可能具有高毒性，并可能在人类中引起显著的发病率和/或死亡率。
+Finally the scientist started talking about the vaccine. He said, “I don’t believe any of the top officials in the United States were really vaccinated. None of the deputy ministers of the Chinese Communist Party was vaccinated.” And then he told them, “You Europeans would have fallen for it if you were vaccinated.” It turned out that half of these parliamentary people, I believe, half of them, had been vaccinated already, so this really scared them all to death.
 
-2．3．增强型PPP源于病原体的传染性和/或毒性的增强。在自然界中流行或从自然界中采集的野生型病原体，无论其大流行的潜力如何，都不是增强型PPP。
+然后说视频文件震撼了世界。这是他作证之后，为什么福奇立马改嘴，不再坚持是自然来的啦，从实验室的了。美国总统马上开始调查；全世界所有的媒体立马转向；Facebook马上将所谓的这个虚假新闻谣言马上取消；推特也不敢那么疯狂了；Google也不敢屏蔽那么多了；法国、英国的所有的这些科学家立马现在允许讲话了；几大杂志也允许发表文章了。科学家成了一时间所有人的采访的对象。
 
-2．4．我们鼓励各机构参考NSABB建议中附录C的案例，以了解哪些行为将被视为或不被视为与加强型PPP有关。
+Then it was said that these video clips shook the world. This is why after he testified, Fauci immediately changed his tone, and was no longer insisting its natural origin but from the lab. And this is why the U.S. President immediately opened the investigation, all the world’s media immediately changed their tones, Facebook immediately removed these so-called fake news labels and stopped calling them conspiracy theories, Twitter stopped behaving so crazily, and Google also stopped censoring information. All these scientists in France and the United Kingdom were immediately allowed to speak; several major journals were also allowed to publish articles; and our scientist (Dr. Li-Meng Yan) suddenly became so popular that everyone wanted to interview her.
 
-2．5．就本建议的政策指南而言，如果在以下几类研究中对PPP的传播性和/或毒性进行了修改，由此产生的病原体将不被认为是增强型PPP:
+这个背后还有一个更重要的故事，我想给战友们分享的。就是这位科学家，就是他家人已经全部被救出来，现在在日本。我告诉大家，还有一个更重要的事实，他告诉了所有的人，让大家无法想象的事情：印度、澳大利亚、日本、台湾，新西兰，是他们的下一个核心目标，包括巴西！而且他严重警告美国如果再次爆发，绝对不是死五十万、一百万，美国可能1/3的人都有生命的危险。这不是开玩笑的，这不是开玩笑的。
 
-2．5．1．监测活动，包括取样和测序；且
+There is an even more important story behind this one, which I want to share with my fellow fighters now. It is that this scientist [who testified in Europe], his family have all been rescued and now in Japan. Let me tell you, what’s more important is that he told all the people a fact they could not even imagine: India, Australia, Japan, Taiwan, and New Zealand are all the CCP’s next major targets, including Brazil! And he seriously warned the United States that if another pandemic broke out, it will definitely not be half a million or a million – possibly 1/3 of the population of the United States would be at life-threatening risk. This is not a joke. This is not a joke.
 
-2．5．2．与开发和生产疫苗有关的活动，如产生高增长菌株。
+这就为什么昨天蓬佩奥国务卿说如果再次爆发，可能要死三千万人。他保守了。据我们和各科学家的分析，如果再次爆发世界上可能死几亿人，最低几亿人甚至更多。这和2019年12月份到2020年的1月16号、1月17号、18号、19号到1月25号的班农先生的Pandemic战斗室节目和我们当时和科学家所论证的结果都是一模一样的。
 
-2．6．之前被某个机构认定是一种增强型PPP的病原体就应该不再被考虑，但如果科学和技术政策办公室 (OSTP)和机构在咨询卫生与公众服务部、国防部、国土安全部、农业部、司法部，并经由联邦调查局 (FBI)处理，基于已开发的关于该病原体创建、转移或使用的风险或益处的额外资料，以共同确定本推荐的政策指导中概述的审查机制已不再适当。该机构应将这一决定的结果传达给其他机构和公众。
+That’s why yesterday Secretary Pompeo said that if there was another outbreak, 30 million people could die, for which he was conservative. According to our analysis and various scientists’ analysis, it is estimated that at least hundreds of millions or even more people will die if it breaks out again. This is exactly the same as what Mr. Bannon’s War Room Pandemic talked about from December 2019 to 2020, on January 16th, 17th, 18th, 19th to January 25th and the same as what our scientist (Dr. Yan) said at that time.
 
-#### **第三章：政策原则**
+我们不希望它发生，但是现在它确确实实。
 
-根据该建议的政策指导，机构审查机制应确定，其涉及创建、转移或使用增强型PPP的项目应满足以下原则，这些原则基于NSABB建议中的类似原则:
+We didn’t want it to happen, but it indeed happened.
 
-3．1．这类项目的提案或计划已由独立的专家审查程序(内部或外部)加以评估，并确定是科学上可靠的；
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=60b38ee8f6ff4b33fb95c2fa](https://gtv.org/video/id=60b38ee8f6ff4b33fb95c2fa) (57:22-1:02:02)
+鸣谢：感谢[喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/) 提供中文文本于[https://gnews.org/zh-hans/1285961/](https://gnews.org/zh-hans/1285961/)
 
-3．2．必须合理地判断计划由该项目产生的病原体是未来可能发生的人类疫情的可信来源；
+* * *
 
-3．3．对与项目有关的整体潜在风险和利益进行评估，确定对社会的潜在风险与潜在利益相比是合理的；
+**翻译：【一花一世界】
+字幕：【XO小粉红】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】**
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-3．4．没有可行的、同样有效的替代办法来处理同样的问题的情况下，要确保一种办法所造成的风险比拟议的办法要小；
-
-3．5．研究人员和实施项目的机构有能力并承诺安全可靠地实施项目，并有能力快速响应，减轻潜在风险，并对实验室事故、规程和程序失误，以及潜在的安全漏洞采取纠正措施；
-
-3．6．在遵守相关法律、法规、政策以及任何资助条款和条件的前提下，对项目成果进行负责任的沟通，以实现其潜在的利益；
-
-3．7．该项目将通过筹资机制得到支持，这种机制允许对风险进行适当管理，并在整个项目过程中对研究的所有方面进行联邦和机构监督；且
-
-3．8．该项目在道德上是合理的。对人无恶意、慈善、正义、尊重，科学自由和负责任的管理都是伦理价值，在决定是否资助某PPP的研究时，多学科审查过程应该考虑这些价值。
-
-#### **第四章：项目审查、批准与执行**
-
-4．1．根据该建议的政策指导，机构审查机制应提供拟议工作(内部和外部)的审查程序，其拟议工作涵盖建立、转让或使用加强型PPP，包括以下规定:
-
-4．1．1．验证所有在第2.3节中定义的，拟创建、转让或使用增强型PPP的内部和外部项目；
-
-4．1．2．只考虑资助符合第3条所载政策原则的加强型PPP项目；
-
-4．1．3．评估有关项目的风险及效益，包括研究方法可能产生何种风险，及/或公开获取知识、资讯、产品或技术是否会产生风险；
-
-4．1．4．与机构和研究人员合作，可借鉴第5章所列措施，在风险评估的基础上制定与风险相称的风险缓解计划；且
-
-4．1．5．如果创建、转让或使用增强型PPP的项目，则应通过在项目供资条款和条件中包括降低风险措施的手段为其提供资金。
-
-4．2．鼓励各机构将其加强后的PPP审查机制的监督交给那些办公室，其不向提议为创建、转让或使用该加强型PPP提供资金的机构部门负责人报告，从而减少潜在的内部利益冲突。
-
-4．3．为了促进各机构之间的一致性，并提高接触不同专业知识之专家的机会，敦促各机构制定相应的P3CO审查机制和程序，在适当情况下使其他机构的专家能够看到这些机制和程序。
-
-4．4．为机构审查机制提供的资源必须通过机构的预算开发流程提供，而不会根据该推荐性政策指导提供额外的资金。
-
-#### **第五章：减少风险与项目监督**
-
-根据该推荐性政策指导，机构审查机制应指示已核准项目的风险缓解计划去使用、转让或创建加强型PPP，从但不必限于以下清单所列项目，其中许多改编自2012年3月29日《美国政府监督引人关注的生命科学双用研究之政策》第IV(1)(e)节:
-
-5．1．修改项目的设计或实施；
-
-5．2．采用特定的或强化的生物安全或生物安全措施；
-
-5．3．评估现有的医疗对策效应证据，或针对项目产生的制剂或毒素进行实验以确定医疗对策效应，包括在现有出版物中的有效的医疗对策；
-
-5．4．参考那些机构的教育工具，诸如文件中描述的那些
-
-*工具，用以识别、评估、管理以及负责任地交流那些令人关注的双用研究：一个用来监督令人关注的生命科学双用研究之美国政府政策办公室发布的指导手册* (2014年9月)；
-
-5．5．定期检讨涉及创建、转让或使用加强型PPP的项目的结果；
-
-5．6．确定沟通的地点和方式（详细地址、时间，以及适当的信息分发内容），负责任地沟通项目研究的结果；且
-
-5．7．如果这些措施不能充分减轻项目所构成的风险，机构应确定是否适合:
-
-5．7．1．要求对项目产生的出版物或通讯进行自愿编校。¹
-
-5．7．2．为项目评级。评级机构将在其评级机构范围内依据适当的评级指南做出评级决定，或与其他评级机构协商以做出评级决定。
-
-5．7．3．不提供或终止资助。
-
-#### **第六章：报告**
-
-6．1．机构为涉及创建、转让或使用加强型PPP项目融资的决定，应连同有关的风险效益分析和风险管理战略，向OSTP主任报告。
-
-6．2．反过来，OSTP应在适用的专利、隐私或分类限制的情况下，在各机构之间分享这些信息，以提高认知度和透明度。
-
-6．3．在最大可能的情况下，机构的加强型PPP审查机制应使公众对涉及创建、转让或使用加强型PPP的资助项目具有透明度。
-
-#### **第七章：美国政府的责任**
-
-7．1．**评估**。如果该推荐性政策指导被机构采纳，OSTP和国家安全委员会(NSC)工作人员应在该建议采纳后的一年内，协调出一个流程，根据该推荐性政策指导采用的审查机制，评估对研究项目和机构的影响；审查机制对创建、转让或使用加强型PPP的工作所产生的影响；以及如何提供透明度、公众参与度以及关于加强型PPP研究的持续对话。
-
-7．2．**评审与修订**。OSTP在与NSC工作人员协调过程中，在考虑上述任何评估结果后，应考虑修改该推荐性政策指导。
-
-7．3．**国际接触**。根据NSABB的建议7，美国政府应与其他国家就有关创建、转让和使用增强型PPP的政策进行接触，鼓励制定协调一致的政策指导。²
-
-#### **第八章：未来承诺**
-
-8．1．**与令人关注的生命科学两用研究政策的整合**。在美国政府下次考虑修订2012年3月的《美国政府监管令人关注的生命科学两用研究政策》，和2014年9月的《美国政府制度性监管令人关注的生命科学两用研究政策》时，在对令人关注的两用研究 (DURC)政策的修订中，应考虑该推荐性P3CO政策指导。该行动方针将实施NSABB推荐中的建议4，也就是： “一般而言，应尽可能将[针对增强型PPP的工作] 的监督机制纳入现有的政策框架” 。它还与建议5一致，尽管不足以全面实施，该建议指出： “美国政府应考虑如何确保所有在美国境内或由美国公司开展的[针对增强型PPP的工作] 都受到监督，无论资金来源如何” 。³
-
-8．2．**将****P3CO****扩展到联邦资金之外**。收到如上在7.1节中所述的推荐性政策指导的首个评估后，OSTP和NSC工作人员应该启动一个流程，以考虑是否政策措施拟全面实施NSABB建议中的建议5，它呼吁美国政府引入监督，不仅作为资助发放的条款和条件，而且通过其他机制，使所有相关研究活动能够得到监督，而不管资金来源如何。
-
-#### **第九章：保留条款**
-
-9．1．本推荐性政策指南对机构不具有约束力，也不取代或废除适用的条例、行政命令、总统指令、法规或采用它们的机构的国际协议或义务下的任何现有要求或限制。
-
-1 限制技术公布的行动可能会在出口管制法律法规下产生影响 (例如，15 CFR parts 730-774和22 CFR parts 120-130) 。
-2 NSABB建议中的建议7指出: “美国政府应与国际社会就令人关注的GOF研究的监督和负责任的行为进行对话,” 这里的 “令人关注的GOF研究” 对应于该推荐性政策指导” 中的 “创建、转让和使用增强型PPP” 。
-3在NSABB的建议中，用括号括起来的短语代替的文本是 “令人关注的功能获得研究” 。
-
-[**英文原件**](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07093451/P3CO-FinalGuidanceStatement.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07093451/P3CO-FinalGuidanceStatement.pdf)
-
-校对/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++4
