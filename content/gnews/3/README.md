@@ -1,28 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国有关68岁退休的争论
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1307254/)
+## 输油管道被黑客事件 &#8211; FBI 收回了大量赎金
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1307302/)
 
-信息来源：德国商业报网络版
-记者：托马斯·西格蒙德（Thomas Sigmund）
+信息来源：德国世界报网络版
 发布时间：2021年6月08日
 翻译 /整理/ 简评： Shuizhuyu
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08061852/max-harlynking-DGP-759-Ukk-unsplash-scaled.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08065416/markus-spiske-Skf7HxARcoc-unsplash-scaled.jpg)
 
 
-养老金竞选活动现已开始。舒尔茨Olaf Scholz是社民党的总理竞选人，他终于找到了一个基本的社会民主话题。在科学顾问委员会向联邦经济部提议将退休年龄提高到 68 岁后，社民党总理候选人开始了养老金竞选活动。 “这个所谓的专家委员会的建议是计算错误和反社会的。联邦财政部长周二在社民党经济论坛的一次活动上说，这些都是有理由削减养老金的恐怖情景，没有任何理由。
+与当局和 IT 专家的警告相反，美国最大的汽油管道的运营商在遭到黑客攻击后支付了数百万美元的赎金。现在美国当局已经成功地追踪并找回了大多数人。
 
-他保证：“我支持这样一个事实，即我们没有就更高的退休年龄进行辩论。由于高就业，这些恐怖场景迄今为止从未发生过。我期待与真正的专家进行辩论。”
+在美国最大的汽油管道遭到黑客攻击后，调查人员以数字货币比特币收回了大部分赎金。美国司法部周一宣布，获得了 63.7 个比特币，目前价值约 230 万美元。 FBI 副局长保罗·阿巴特说，FBI 能够识别出黑客据称用来向相关公司收取款项的数字钱包。
 
-在联邦大选前三个月左右，联邦政府的顾问呼吁进行改革，将退休年龄与预期寿命动态联系起来。工作时间和退休时间之间的关系应该保持不变。竞选活动现已开始。
+司法国务秘书丽莎·摩纳哥 (Lisa Monaco) 表示，当局已“扭转局面”，并对受勒索软件和数字勒索攻击助长的“整个生态系统”采取行动。
 
-简评： 德国的老龄化是在全世界都非常明显的国家之一。 退休年龄已经推迟到了67岁， 很多人都调侃， 人们离开工作岗位就可以直接去墓地了。 现在这样的讨论又重新开始。 就是两个基本表现， 一个是老龄化没有缓解， 第二就是经济状况让人担忧。没有足够的人缴纳养老保险， 供给现在领取养老金的人们。 最重要的一个原因可能还是， 现在的人们的生存年龄在不断增加， 导致领取养老金的时间过长。 凸显了社会的矛盾。
+Colonial Pipeline 公司在 5 月初宣布，它已成为黑客攻击的受害者。结果，美国东海岸消耗的所有燃料中约有 45% 通过该管道暂时完全关闭。该国部分地区出现汽油短缺。首都华盛顿受到的打击尤其严重，有时 88% 的加油站燃料耗尽。 “这是对我们最重要的国家基础设施之一的攻击，”摩纳哥解释说。
+
+简评： 几周之前， 美国的输油管道遭到黑客袭击， 导致很多人都不能为自己的汽车加油。 这篇文章就是这个事件的后续报道， 肇事者已经大部分被抓捕， 大部分的赎金也被收回。 这个事件告诉我们， 不要做坏事， 不要做伤害别人的事情，出来混早晚都要还的。
 
 免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 发表： Shuizhuyu
 
-🔗r[ente-mit-68-scholz-spricht-altmaiers-beratern-expertenwissen](https://www.handelsblatt.com/politik/deutschland/rentenpolitik-rente-mit-68-scholz-spricht-altmaiers-beratern-expertenwissen-ab/27265140.html)
+🔗[Gehackter-Pipeline-Betreiber-FBI-holt-Grossteil-des-Loesegeldes-zurueck](https://www.welt.de/politik/ausland/article231656289/Gehackter-Pipeline-Betreiber-FBI-holt-Grossteil-des-Loesegeldes-zurueck.html)
 
 0

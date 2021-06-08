@@ -1,15 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中共国段子】当阎王碰到病毒
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1307021/)
+## 【粤语配音】COVID-19是中共制造的超限生物武器，是故意释放的
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1307151/)
 
-作者：xingfffooo
+05/29/2021 CNN印度采访闫丽梦博士时，闫博士说现在世界已经明白COVID-19来自实验室，但是人们也必须认识到这是中共制造的超限生物武器，并蓄意把病毒传到全世界，以达到他们的目的。这是中共长期谋划的。
 
-发表：Summer
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06003622/%E4%B8%AD%E5%85%B1%E5%9B%BD%E6%AE%B5%E5%AD%90.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08035812/%E5%BD%93%E9%98%8E%E7%8E%8B%E7%A2%B0%E5%88%B0%E7%97%85%E6%AF%92.gif)
-（以上作品仅代表个人观点）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08030659/7C26FF7A-41DE-4EC0-9C50-FA2D7F4471E0.jpeg)
 0
