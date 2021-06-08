@@ -1,25 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 和中共继续勾兑，是要一条道走到黑吗？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1307492/)
+## 【五月花诗】云端庆典，自由之颠
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1308073/)
 
-#### 翻译报道：William
+五月花写作组 | 作者：咫尺天涯 | 编辑：文合 | 封面、发布：吐纳
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08141656/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE56.png)
+**一、信仰**
 
-#### 责编：胡天
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08081726/1.jpg-1.png)[图面来源](http://2019%20https//www.followcn.com/singapore-china-sign-defence-agreement-to-scale-up-army-navy-exercises-establish-regular-dialogue/)
-根据新加坡海峡时报(Straits Times)贾斯汀·王(Justin Ong) 的报导，新加坡国防部长黄永宏(Ng Eng Hen )和中共国国防部长魏凤和于周二（6月8日）举行了视频会议，双方重申两国之间长期、友好的双边防务关系。
+纵横江湖英雄气，感动天地震霹雳。
 
-黄部长在脸书上说，他与魏部长进行了广泛而全面的讨论，就中共国内局势以及地区和国际事务提供了最新消息。两位部长都重申他们致力于根据 2019 年签署的强化协议加强防务合作。该协议适合于周二举行的视频会议、双边陆海军旗舰演习的制度化和规模化以及定期学术交流等频繁对话。
+正道意念发一心，此生灭共承天意。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08135129/2-%E4%BF%A1%E4%BB%B0.png)
+**二、自由**
 
-新加坡国防部在声明中说，尽管 Covid-19 局势持续，两国仍继续定期互动。其中包括许多双边和多边演习、高层访问、专业交流、港口停靠以及参加课程和研讨会。黄部长和中共国务委员兼国防部长魏部长还谈到了地区安全发展以及他们的军队如何支持抗击全球大流行。他们讨论了加强东盟与中共防务合作的实际方法和东盟国防部长扩大会议框架（ADMM-Plus）( Asean Defence Ministers Meeting)。(东盟国防部长扩大会议涉及 10 个东盟成员国和 8 个对话伙伴：澳大利亚、中共、印度、日本、新西兰、俄罗斯、韩国和美国。)
+厚德载物敢真言，三载爆料不畏难。
 
-黄部长表示尽管中共冠状病毒大流行，但两国都希望持续保持军事关系，并补充说，双方都支持新加坡武装部队和解放军今年继续进行的计划中的演习。黄部长在与印度尼西亚国防部长普拉博沃·苏比安托(Prabowo Subianto )和马来西亚国防部长伊斯梅尔·萨布里·雅科布(Ismail Sabri Yaakob)进行类似电话一周后，黄部长与魏部长进行了视频会议。
+重磅时评早晚播，自由发声博士团。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08135316/3-%E8%87%AA%E7%94%B1.png)
+**三、勇敢**
 
-原文出处: Singapore, China defence ministers reaffirm longstanding ties, cooperation
+全球疫情世人惊，人间天使生死行。
 
-#### 译评:
+揭露邪共报真相，一指乾坤人类醒。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08135421/4-%E5%8B%87%E6%95%A2.png)
+**四、善良**
 
-中共眼见美国已在亚太成功团结日本、澳洲、印度，并在欧洲顺利串联英国，不得不在这个时候刊出中共和新加坡在亚太将继续结盟、联合军演的外宣新闻，并在文中提及印尼以及马来西亚等亚洲国家，这都是企图在大外宣上表示中共在亚洲还有控制权。但是，实际的状况是美国已将亚洲的代理权转给日本，并且美国已串连各国形成正义联盟来歼灭共产党，共产党的倒台已是倒计时，却还在大外宣上宣扬中共国的亚洲实力。共产党已到了穷途末路时刻，仍是不改假大空本质。
+三颗善心承天命，笑看沧海向死生。
 
-0
+天时地利人携手，喜马拉雅瞰群峰。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08135511/5-%E5%96%84%E8%89%AF.png)
+**五、真实**
+
+郝叶双侠真英雄，善恶黑白看分明。
+
+名誉华夏敢担当，正义必须利苍生。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08135552/6-%E7%9C%9F%E5%AE%9E.png)
+**六、凝聚**
+
+空中唱响爱自由，信仰之星聚战友。
+
+你我皆是七芒星，汇成星链耀宇宙。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08135631/7-%E5%87%9D%E8%81%9A.png)
+**七、温暖**
+
+高举香槟敬战友，情真意暖涌心头。
+
+相聚喜悦泪光闪，胜利总在风雨后。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08135717/8%E6%B8%A9%E6%9A%96.png)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08135908/1-20.png)
+（图片均来自GTV视频截图）
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+
++1
