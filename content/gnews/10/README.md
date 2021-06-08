@@ -1,25 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士先生来美国的目的? 威胁博士安全?
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1307388/)
+## 【有声读物】中共大外宣从国际传播上升为战略传播，能为中共续命吗？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1307443/)
 
-台湾宝岛农场 Amitofu
+配音：香草山录音组 信念7
 
-根据赛林博士8日推特:「闫丽梦博士的丈夫Ranawaka APM Perera于 2021 年 3 月 23 日使用 H1B 签证悄悄进入美国，为期2年。 他为什么在美国？ 谁安排的？ 他是在充当中共特工吗？ 他在美国会不会对闫博士构成威胁？ 美国当局在哪里？ 让我们找出他在哪里。」
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08073027/E3Sh7ryXMAIHAHt2.jpg)赛林博士推文遭推特封锁前下载照片
-全球第一证人闫丽梦博士的三分科学报告，揭发Covid 19病毒是中共解放军生物超限战的铁证，在拜登政府90天期限和全球向中共追讨真相的同时，闫博士的丈夫3月23日到达美国，5日文贵直播中透漏已经掌握闫博士先生Ranawaka APM Perera的动向，笔者认为FDA和国家传染病研究院NIH的安东尼·福奇和他NIH同事柯林斯与香港大学P3实验室顶级冠状病毒专家马里克裴伟士 Malik Peiris有一个重要的合同，**马里克团队能增强E蛋白中SARS病毒极大毒性，可直接伤害脑部和神经系统并具高传染能力特性，而闫博士先生Ranawaka APM Perera是马里克裴伟士 Malik Peiris的重要参与人，握有庞大的病毒证据，中共会同意让闫博士先生PERERA来美国，是否带着特殊任务来美国，还是会用夫妻情感来影响闫博士，目前尚不清楚，笔者相信闫博士的智慧与冷静，但闫博士安全仍是新中国联邦战友们所担心的事，祈祷万佛万神加持闫博士一切平安。**
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-自从2020年1月19日爆料革命文贵先生、路德社和英雄闫丽梦博士发表至今无人能辩驳的三份科学报告，揭发Covid 19病毒是来自于中共解放军研究的生物武器，指出SARS-CoV-2中共病毒是经过解放军拥有的舟山蝙蝠病毒ZC45/ZXC21为骨架，通过人为的基因改造技术在刺突蛋白中引入弗林酶切位点，功能增强S蛋白、E蛋白毒性，使病毒更具强变异性和传染性，随着福奇800多封电子邮件中，详细记录福奇、NIH柯林斯、安德森等科学家、WHO 谭德塞和Jeremy Farrar、Bernhard等人，不仅知道中共病毒基因序列中人为插入，也知道石正丽与NIAID功能增强型的研究，福奇、彼得·达扎克、Baric甚至参与病毒制造，更清楚知道COVID-19病毒是中共制造，目前新冠病毒的人工功能增强真相被西方科学家多次验证，证实新冠病毒是中共发动的生化超限战。中共已经无法推翻闫丽梦博士三份科学报告对西方科学病毒验证的地位，也无法改变全世界要求中共病毒真相。共产党你完了! X3本文仅代表个人立场
 
-祈祷万佛万神加持文贵先生、闫丽梦博士与新中国联邦每位战友
 
-資料來源:文贵先生、班农战斗室、路德社、闫丽梦博士、博士军团、爆料革命
 
-赛林博士推文稍后遭推特封锁[https://twitter.com/LawrenceSellin/status/1401925887189262342?s=20](https://twitter.com/LawrenceSellin/status/1401925887189262342?s=20)
 
-审核:Athena雅典娜 发布:Amitofu
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+6月5日《环球时报》发表了一篇题为《推动国际传播上升为战略传播》的文章。文章开头就自疫情爆发以来，世界各国逐渐看清中共大外宣歪曲事实，隐瞒疫情，愚弄世界，战狼外交的丑恶嘴脸，对中共的大外宣和驻外宣传机构采取一系列严厉打击，使中共的大外宣节节败退的窘境，发出：“我国外宣媒体和涉外文化机构遭到部分西方国家空前打压““有理说不出”“说出传不开”“传开叫不响”的悲鸣。
+
+
+
+**文字版原文：[【世事解评】中共大外宣从国际传播上升为战略传播，能为中共续命吗？](https://gnews.org/zh-hans/1306074/)**
+
+作者：纽约香草山写作组  火内
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
