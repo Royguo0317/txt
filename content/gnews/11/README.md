@@ -1,31 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## TikTok将收集西方用户的生物识别特征,包括面纹和声纹
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1306668/)
+## 【热点播报】医学权威对急于普及疫苗接种的担忧
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1306761/)
 
-翻译：JS709 ｜校对：Nick｜审核：V
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08003850/tk_adobespark.jpeg)
-TikTok（抖音美国版）现公开表示，由于其隐私政策的更新，其应用程序将开始收集用户的“面纹和声纹”。
+作者： 纽约香草山媒体部7bends
 
-这家与中国共产党有关联的公司于2020年在华盛顿特区成功抵制了川普总统试图封禁该数据挖掘应用程序的努力，受到了巨大鼓舞。
-
-这些新形式的数据可以从音频和图像中收集，包括风景、面部、出现在图像中任何物体，以及个人用户的文字文本。
-
-然而，新政策不止于此。TikTok还宣布将收集生物识别数据：
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
-> “**我们可能会收集由美国法律定义的生物识别标志和生物识别信息，例如来自您的用户内容的面纹和声纹。在法律要求的情况下，我们将在进行任何此类数据收集之前，征求所需的您同意”**
 
+社交媒体Rumble 6月5日登出了心脏病专家Peter McCullough医生在6月4日接受澳大利亚媒体亚太今日（ASIA PACIFIC TODAY）的访问。Peter McCullough医生对政府急于普及新冠疫苗接种表达了担忧。
 
-这份声明的关键在于，TikTok没有具体说明所谓“美国法律”是指州法律还是联邦法律，而美国仅有少数几个州才有生物识别隐私法。这意味着，如果TikTok只需在“法律要求”的情况下才获得用户同意，那么美国大多数州的用户就可以在未经事先询问的情况下被TikTok收集到他们的生物识别数据。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08011152/%E5%9B%BE%E7%89%879-1.png)图片来源：Rumble
 
-TikTok没有提供有关其新政策的更多细节，只是表示其更新隐私政策的目的是为了提高“透明度”。
+Peter McCullough医生是得克萨斯A&M 医学院Baylor达拉斯校区的医学教授。他是国际公认的当代医学问题医学证据评估权威，并发表有广泛的著作。McCullough医生曾在世界各地就广泛的健康主题发表演讲，并将他的经验带回到日常工作中，为他的病人服务。
 
-TikTok尚未进一步解释为什么要收集所有这些个人信息和生物识别数据以及这样做的意义，也没有解释如何获得用户的同意来这样做。
+人们对澳大利亚维多利亚洲政府支持的论文《抗体依赖增强和SARS-CoV-2疫苗和疗法》提出担忧。McCullough医生就是其中之一。他对政府急于为所有人接种新冠疫苗深感不安。被建议接种疫苗的其中包括那些具有免疫力，且风险不大的人。McCullough医生公开表示，根据所有当前的安全数据，他不能推荐新冠疫苗。
 
-原文作者：凯瑟琳·萨尔加多（CATHERINE SALGADO）
-发布时间：2021年6月6日
-原文链接：[https://thenationalpulse.com/breaking/chinas-tiktok-app-will-collect-biometric-data-including-faceprints-and-voiceprints-of-western-users/](https://thenationalpulse.com/breaking/chinas-tiktok-app-will-collect-biometric-data-including-faceprints-and-voiceprints-of-western-users/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08011253/%E5%9B%BE%E7%89%8710.png)图片来源：战鹰团
+
+这也印证了病毒学家闫丽梦博士对现有冠状病毒疫苗的担忧。闫博士在早些时候接受弗莱明博士的采访时谈到，针对现有的大流行，并没有有效的疫苗。闫博士说她不是反对疫苗，而是担忧现有疫苗的副作用，如过敏或者抗体依赖增强。除此之外SARS-CoV-2还具有快速变异的特征，怎么可能几个月内攻克所有这些难题呢？最重要的是，SARS-CoV-2是超限战生物武器。
+
+参考阅读：https://rumble.com/vi2esn-dr-peter-mccullough-on-the-rush-to-vaccinate-the-entire-population..html
+
+![]()
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()
 
 0
