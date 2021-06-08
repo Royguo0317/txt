@@ -1,22 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年6月7日灭共要闻
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1307218/)
+## 【路德简报】6/7/2021晚：福克斯等主流媒体全面讨论中共故意向世界投放病毒
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1307299/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08051945/%E7%81%AD%E4%B8%80%E7%BB%84%E5%B0%81%E9%9D%A267.jpg)
-**[播放视频](https://gtv.org/video/id=60bf1e538ce6da73c4160b47)**
+**编辑：华盛顿DC农场 路德简报项目组**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08061753/20210607-2-1-scaled.jpg)
 
-主要内容：
 
-拜登政府必须让中共付出巨大代价才会使其停止危害害美国人民；
+> 2021 年6月7日 路德时评 晚 
+> 
+> 1. 福克斯等主流媒体：全面讨论中共故意向世界投放病毒 
+> 
+> 2.班农： 左媒诬陷川普的阴谋不会得逞 福奇等伪科学家误导病毒信息 才是致命祸根 
+> 
+> 3.布林肯： 即将恢复与台湾的贸易谈判 [pic.twitter.com/8U9LinbShc](https://t.co/8U9LinbShc)
+> — 平民爆料 (@WM18320321) [June 8, 2021](https://twitter.com/WM18320321/status/1402205127000395778?ref_src=twsrc%5Etfw)
 
-广州南沙区全封闭管控，全员核酸检测；
 
-民众在家“躺平”防疫，深圳商户老板欲哭无泪；
-
-兰新铁路列车撞死9名维修施工人员, 工人成了“侵入者”？
-
-**By**：【秘翻组**–**上天造灭疫组】
 
 0

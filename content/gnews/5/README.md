@@ -1,52 +1,118 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 又一次被战友感动落泪
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1307512/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（三十九）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1307593/)
 
-作者：英国喜庄园 AN | 校对：仙女儿-文善 | 审核：SilverSpurs7 | Page: Daoiii
+作者：纽约香草山信息部 6zero4
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Mpc2o6zFpeIng/images/165bd111-ef82-4e75-9acd-69c93fe39217.png?asset_id=8e31dcf0-1030-442f-aec3-986f3e0f4c33&amp;img_etag=%22f6fe649392fb1cf576fd0dee01553a44%22&amp;size=1024)](https://spark.adobe.com/page/Mpc2o6zFpeIng/images/165bd111-ef82-4e75-9acd-69c93fe39217.png?asset_id=8e31dcf0-1030-442f-aec3-986f3e0f4c33&amp;img_etag=%22f6fe649392fb1cf576fd0dee01553a44%22&amp;size=1024)
-
-今天在GNews值班巡逻时，从后台看到了一篇澳喜农场刚刚发布的文章：[《一位参加爆料革命的普通战友对自己、对妻子的喃喃自语》](https://gnews.org/zh-hans/1305500/)，作者迈尔斯朱小文。又一次，我被战友的挺郭经历和感受触动了泪点，眼泪止不住地往下流，为战友为新中国联邦人所做的足以惊天地泣鬼神的壮举，感动到流泪哭泣！有这样坚定的战友，何愁共匪不灭！虽然我们每个人的灭共力量都很有限，但当把每个人有限的力量聚集到一起，就会大到无限大，大到足以推倒柏林墙，大到足以令苏联解体！
-
-下面是迈尔斯朱小文的文章里一些让我、我相信也会让战友共鸣的段落，摘录出来，让我们在跟随郭先生的灭共路上彼此激励、彼此温暖，手挽手共同走向我们的喜马拉雅！
-
-“那天，娘来咱家，对我进行新一轮的听证，我跟你们讲病毒的来源，讲香港的真相，讲粮食危机，讲共产党的谎言。最后陪审团让我发毒誓，不再看这方面的新闻，专心听新闻联播。那天我虽然当着你和娘的面发了毒誓，但你知道我心里怎么想的吗？我想，如果我死了，我希望下辈子可以投胎生活在美国那样的法治民主的国家里，因为这片土地上我已经格格不入了。共产党让这里几乎所有的人都变成了脑残，没有了思考，没有了逻辑分析能力，我身边最亲最爱的人都以毒誓要求我如此，我又能如何？”
-
-我相信好多战友们遭遇过如此的经历，因为追随爆料革命而不被最亲最近的人理解和支持，成为了亲人朋友眼里的另类，成为了孤家寡人，与家人、亲戚朋友从此分道扬镳。你走你的金光道，我走我的独木桥，从此成陌路。这是非常非常痛苦的事情。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Mpc2o6zFpeIng/images/052313eb-f038-424f-bc9c-f0eda8f3aa5c.jpg?asset_id=371d0a6d-0cfd-4c82-a301-030cd6446d87&amp;img_etag=%2204cb7c69079e1fe4b0dfbfd6f28065aa%22&amp;size=2560)](https://spark.adobe.com/page/Mpc2o6zFpeIng/images/052313eb-f038-424f-bc9c-f0eda8f3aa5c.jpg?asset_id=371d0a6d-0cfd-4c82-a301-030cd6446d87&amp;img_etag=%2204cb7c69079e1fe4b0dfbfd6f28065aa%22&amp;size=1024)
-
-“老婆，你有时候高兴了，会听我聊聊；有时候不高兴了，会跟我说‘你现在在中国，就想着在中国怎么把生活过好，怎样能多挣些钱，把日子过得好”。用句现在的话说，其实我的心早已在中国躺平了。从爹去世、从国企把我的公司拿走、从法院不把我被骗的钱还给我开始，那时我就已经看透了这社会，那时我整天闷在家里，其实就已经开始躺平了。我对这个社会没有期待了，我也不希望自己有孩子来到这样的社会，加上我现在知道香港、病毒的真相，我躺得更直挺了。还好有文贵先生，战神一般的人物，盖世英雄一般地站出来，才让我对未来有了希望，我这只小蚂蚁，才有了期盼的色彩。每天看着爆料革命的进度，喜怒哀乐着，周遭的生活，一点也影响不了我的情绪。除了爆料革命，除了共产党的消失，除了新中国联邦，除了喜马拉雅护照，其他的都提不起我的兴趣，我已经灵魂出窍了，精神上已经和那些“蚂蚁们”在一起了，在她们举着七芒星旗的队伍里，肩并肩有我这样一只小蚂蚁的灵魂肩并肩和他们站在一起，那里的生活，才会让我喜让我乐。“
-
-是的，何以解忧？唯有郭先生和爆料革命了。因为七芒星在指引着我们，喜马拉雅在等待着我们。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Mpc2o6zFpeIng/images/ff10d1ec-546b-43c1-852f-a8c3dd8cfaf6.jpg?asset_id=5bc90ac1-8e6a-4bfc-892e-dd01c4bc8393&amp;img_etag=%22c67335ebdc3376e07fd86cf3a9468d3a%22&amp;size=2560)](https://spark.adobe.com/page/Mpc2o6zFpeIng/images/ff10d1ec-546b-43c1-852f-a8c3dd8cfaf6.jpg?asset_id=5bc90ac1-8e6a-4bfc-892e-dd01c4bc8393&amp;img_etag=%22c67335ebdc3376e07fd86cf3a9468d3a%22&amp;size=1024)
-
-“我也跟你举过这样的例子，不知道你能理解么，好比你嫁给了一个村书记的儿子，就算过得还不错，有大房子有大汽车，但你这个老公整天在外面烧杀抢掠欺男霸女胡作非为，你愿意和这样的村书记的儿子在一起生活吗？另一个男人，有着绝世武功，但十分约束自己的功夫，从不欺负弱小，反而善良地帮助其他善良的人，教别人如何练功，和大家一起维护这个村里的秩序。这两个男人，你愿选择哪一个？”
-
-“再等几年吧，就像我跟你说的2025年之前，因为文贵先生给自己设定的期限就是2025年，我信他，我们等着共匪没了，希望那时我们可以有合法的途径生活在文明社会里，希望那时我们也可有个孩子，可以让她睁眼看世界从第一眼开始，看到的就是善良、文明、公平。希望那个时候，我还有能力和体力，为新中国联邦做点事情，如果能给我们的大使馆扫扫地擦擦玻璃，也是幸福的工作。”
-
-“希望那个时候，我还有能力和体力，为新中国联邦做点事情，如果能给我们的大使馆扫扫地擦擦玻璃，也是幸福的工作。“多么朴实的语言，多么谦卑的愿望，可这其中又蕴含了多少战友对战友、对新中国联邦的期待与热爱！
-
-“老婆，那天我生病发烧了，病好之后我给你说，如果有一天我死了，我希望你可以把我葬在美国，如果乘机不允许，哪怕有一把骨灰能埋在美国也行。你说我脑子有病。我说这话的时候是很认真的，而且我希望可以葬在德州，因为我下辈子真的不想再投胎在这片土地上”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Mpc2o6zFpeIng/images/21eb0d04-3f16-4736-a24a-ee26bf70cfd6.jpg?asset_id=0491cd25-41d2-4b71-916e-a5828a9dd558&amp;img_etag=%22bcc7105c11b472d949bfa378ec032630%22&amp;size=1024)](https://spark.adobe.com/page/Mpc2o6zFpeIng/images/21eb0d04-3f16-4736-a24a-ee26bf70cfd6.jpg?asset_id=0491cd25-41d2-4b71-916e-a5828a9dd558&amp;img_etag=%22bcc7105c11b472d949bfa378ec032630%22&amp;size=1024)
-
-“如果有一天我死了，我希望你可以把我葬在美国，如果乘机不允许，哪怕有一把骨灰能埋在美国也行。”Me too! 追随郭先生爆料革命的战友们，哪一个不是对美国心之向往！
-
-战友，我们这些坚定不移追随郭先生爆料革命的战友，其实我们早已在冥冥之中成为了兄弟姐妹，我们这些已经逃离中共魔掌的战友们，会在我们的喜马拉雅山上等待每一位战友的到来，不见不散！
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Mpc2o6zFpeIng/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Mpc2o6zFpeIng/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+6月7日塞林博士的8连推：
+
+第1推，贴上姜世勃与徐志凯等CCP科学家在2002年10月22日联合发表的一片论文“针对汉坦病毒单克隆抗体的体内外保护活性:在免疫治疗和被动免疫方面的潜在应用”之网页截图，以及他们俩及杜兰英的照片。感谢COVID-19侦探Janedoe把姜世勃与徐志凯连接起来了，姜世勃事实上是在美国工作了近20年的PLA特工，他将其他与PLA关联的科学家带到了美国，有些仍然还在美国，譬如福奇资助的杜兰英。（徐志凯真容浮出水面）
 
 
+
+> Thanks to [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@homelessChinese](https://twitter.com/homelessChinese?ref_src=twsrc%5Etfw) for connecting Shibo Jiang with Zhikai Xu. Shibo Jiang was a de facto PLA operative in the US for nearly 20 years, who brought other PLA-linked scientists to the US. Some are still there, like [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) – funded Lanying Du.[#FauciEmails](https://twitter.com/hashtag/FauciEmails?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/krla7IWujK](https://t.co/krla7IWujK)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 7, 2021](https://twitter.com/LawrenceSellin/status/1401751190644396037?ref_src=twsrc%5Etfw)
+
+
+
+**徐志凯**：教授，博导，现任西安空军医学院（原第四军医大学）微生物学教研室主任，全军分子病毒学与分子免疫学重点实验室主任。1955年出生，1968年加入PLA，1978年本科毕业于第二军医大学，1982和1988年从第四军医大学分别获得硕士和博士学位，2000年10月 – 2001年5月以高级访问学者身份在美国纽约血液中心进行研究工作。
+
+第2推，转发“BenjaminT /Boycott 2022 Genocide Olympics”战友的推文，中共军事科学家姜世勃获得超过1700万美元的美国联邦政府科研经费拨款，且于2021年2月入选美国微生物科学院院士，是中共间谍招聘项目“千人计划”的一员，并贴出了姜世勃在复旦大学官网的个人介绍之网页截图。姜世勃在美国待了近20年，可以说与将数十亿美元的知识和技能从美国转移到中共国的病毒研究和生物战计划有关，他及其同伙从福奇那里获得数百万美元的资助。
+
+
+
+> Shibo Jiang spent nearly 20 years in the U.S. & could arguably be linked to the transfer to China of $billions in U.S. knowledge & skills to China's virus research & biowarfare programs. He and those working with him received $millions in funding from Anthony [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [#FauciEmails](https://twitter.com/hashtag/FauciEmails?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/zxEGJfyZl6](https://t.co/zxEGJfyZl6)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 7, 2021](https://twitter.com/LawrenceSellin/status/1401756451429834753?ref_src=twsrc%5Etfw)
+
+
+
+第3推， 转发“火来2号”战友的中文推：舟山蝙蝠病毒ZC45/ZXC21的发现者王长军和掌握福林酶切位点嵌入技术的姜世勃有直接的合作关系，并贴上王长军及其南京军区疾病预防控制中心同事唐家琪，与姜世勃等CCP科学家联合发表的2篇文章，一篇是2017年3月14日发表在BMC Microbiol上的“对无毒菌株进行保护性免疫诱导与剧毒猪链球菌2型对比的全基因组分析”，另一篇是2017年3月2日发表在Cell Microbiol上的“致病性链球菌采用新型逃逸机制，以抑制哺乳动物肽聚糖识别蛋白介导的抑菌作用”，并配上他们3人的照片。这是COVID-19侦探“火来2号”的一个至关重要的发现，体现了姜世勃在COVID-19实验室起源上的关键作用，也将其与广州南方医科大学的刘叔文等有插入福林酶切位点技能的人连接起来了。（唐家琪真容浮出水面）
+
+**唐家琪**：博导，博士后导师，现任南京军区疾病预防控制中心微生物流行病学研究所所长兼研究员，享受国务院特政府津贴。1945年出生，1970年本科毕业于第四军医大学，1983年研究生毕业于第四军医大学微生物免疫学。
+
+
+
+> A critically important find by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) showing Shibo Jiang's key role related to the lab origin of [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw). Also connect Shuwen Liu & those at Southern Medical University, Guangzhou, who had the technical skills to insert the furin cleavage site. [https://t.co/Uc2mT1OXTr](https://t.co/Uc2mT1OXTr)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 7, 2021](https://twitter.com/LawrenceSellin/status/1401760004756185089?ref_src=twsrc%5Etfw)
+
+
+
+第4推，转发Anna战友的推文，发现一件有趣的事，身份为WIV研究员的王汉中，为解放军302医院和AMMS麾下的微生物流行病研究所效力，并因其杰出贡献获得PLA颁发的奖章，很明显，WIV就是PLA的走狗，并贴上WIV官网在2015年11月30日报道的“WIV王汉中研究员获PLA医疗成果一等奖”之网页截图，以及王汉中作报告的照片。COVID-19侦探Anna提供了毋庸置疑的证据，证明了PLA人员在WIV工作，表明WIV就是CCP生物战计划的一部分。（王汉中真容浮出水面）
+
+**王汉中**：博士后导师，现任WIV人畜共患病毒病学科组长。1980年毕业于武汉大学病毒系，2004年在WIV获得病毒学博士，分别与1993和1999年在瑞典国家兽医研究所和荷兰农业大学病毒系从事合作研究，承担过中共“973”等国家重点研究计划。
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) provides indisputable evidence that People's Liberation Army personnel were working inside the Wuhan Institute of Virology, indicating it was one part of the CCP's biowarfare program.[#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#FauciLeaks](https://twitter.com/hashtag/FauciLeaks?src=hash&amp;ref_src=twsrc%5Etfw) [#FauciEmails](https://twitter.com/hashtag/FauciEmails?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/37DHp1VS3f](https://t.co/37DHp1VS3f)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 7, 2021](https://twitter.com/LawrenceSellin/status/1401764482712489984?ref_src=twsrc%5Etfw)
+
+
+
+第5推，转发“火来2号”战友的另一中文推：执行COVID-19非人灵长类动物（猴子）实验的单超和中共军方的姜世勃直接合作，并发现除了ACE2受体以外，AXL受体也能作为COVID-19的受体，贴上了他们俩伙同其他CCP科学家在2021年1月8日联合发表的论文“AXL是SARS-CoV-2的候选受体，可促进肺部和支气管上皮细胞的感染”。COVID-19侦探“火来2号”正在火力全开，提供关于#Covid\_19的实验室来源和参与其创作的人的宝贵信息。
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) is on fire with valuable information about the laboratory origin of [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw) and those involved in its creation.[#CoronavirusPandemic](https://twitter.com/hashtag/CoronavirusPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [#CoronaVirusUpdates](https://twitter.com/hashtag/CoronaVirusUpdates?src=hash&amp;ref_src=twsrc%5Etfw) [#FauciLeaks](https://twitter.com/hashtag/FauciLeaks?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#FauciEmails](https://twitter.com/hashtag/FauciEmails?src=hash&amp;ref_src=twsrc%5Etfw) [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/393u9dcdg1](https://t.co/393u9dcdg1)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 7, 2021](https://twitter.com/LawrenceSellin/status/1401766832864956419?ref_src=twsrc%5Etfw)
+
+
+
+第6推，转发自己在2021年5月18日的第5推，就是关于Joe Hoft当天发表在Gateway Pundit上的一篇文章“报告：中共国的军事武器COVID-19完全是在中共军方的安排和控制下制造的”，重申：由与PLA南方医科大学关联的CCP科学家人工插入的福林酶切位点就是COVID-19实验室起源的确凿证据。重复此推的目的是为了将姜世勃和刘叔文，与南方医科大学熟悉福林酶切位点插入的人员连接起来，并附上姜世勃伙同刘叔文等南方医科大学的CCP-PLA科学家，于2013年11月11日联合发表在PMC的一片论文“用于抗体筛选的显示与分泌抗体之同步表达”。
+
+
+
+> I am re-Tweeting my May 19, 2021 post about the connection between Shibo Jiang, Shuwen Liu and those at Southern Medical University with the technical skills to insert a furin cleavage site. ([https://t.co/vap6kXju7M](https://t.co/vap6kXju7M)) [https://t.co/ekeVaPblBI](https://t.co/ekeVaPblBI)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 7, 2021](https://twitter.com/LawrenceSellin/status/1401774609691820037?ref_src=twsrc%5Etfw)
+
+
+
+第7推，闫博士的丈夫使用为期两年的H1B签证于2021年3月23日悄悄潜入美国，他为什么来美国？谁安排的？他此行是不是在充当中共特工？他在美国的出现会不会对闫博士构成危险？美国当局在干嘛？让我们把他找出来！并附上闫博士丈夫Ranawaka Arachchige Prasad Perera入境美国的信息及其照片。（推特已删除）
+
+第8推，COVID-19侦探“Zions, a Deplorable老百姓”的挖料工作及其出色，并提供了一个信息整合模版，以展示与PLA有密切合作，或对COVID-19实验室起源有贡献的美国科学家，并附上“Zions, a Deplorable老百姓”战友关于这类美国科学家中的3位代表李放、杜兰英、史佩勇的信息整合模版。
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@ZionaEmanuel](https://twitter.com/ZionaEmanuel?ref_src=twsrc%5Etfw) has done excellent work and provided a model for exposing U.S. based scientists working closely with the Chinese People's Liberation Army or may have contributed to the laboratory origin of [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw). Let's expose them all in the same way. [pic.twitter.com/NWTeFfHFxm](https://t.co/NWTeFfHFxm)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 8, 2021](https://twitter.com/LawrenceSellin/status/1402106149676195841?ref_src=twsrc%5Etfw)
+
+
+
+塞林博士将与CCP-PLA生物武器计划相关的美国科学家之定义稍微做了一点调整，从“在中共国接受过训练且仍在或曾经在美国工作，并与PLA合作”，调整为“与PLA有密切合作，或对COVID-19实验室起源有贡献”，并将COVID-19侦探“Zions, a Deplorable老百姓”提供的信息整合模版公之于众，号召大家以此标准模版来汇集每一位这种美国科学家。这类“泛美国科学家”除了截至昨天找到的：谢旭平、苏立山、李乔、姜涛、何彪（已意外死亡）、太万博、杜兰英、姜世勃、周育森（已意外死亡）、史佩勇以外，还有今天发现的：李放、徐志凯、刘叔文、单超！
+
+正如塞林博士强调的那样，CCP的超限生物武器COVID-19病毒和其它武器一样，都是完全是在PLA的安排和控制下实现的，其实现的技术路径也越来越清晰：
+
+1. 南京军区CDC的王长军团队与长春AMMS军事兽医研究所的何彪团队合作，发现并成功分离出COVID-19的骨架，即舟山蝙蝠病毒ZC45/ZXC21；
+2. 掌握福林酶切位点嵌入技术的姜世勃，与广州南方医科大学的刘叔文等人直接合作，在ZC45/ZXC21基因序列上插入福林酶切位点变成COVID-19，实现毒性、可传染人、人传人、高传染性、无症状传染等一系列“功能获得”，这是COVID-19实验室起源的铁证；
+3. WIV的单超团队接到南京军区CDC王长军团队的已成形的COVID-19病毒样品，借助WIV附近的武汉大学P3动物实验室对其进行非人灵长类动物（恒河猴）的实验的，以模拟和掌握COVID-19病毒在人类身上的效应。值得一提的是，单超与与复旦大学的姜世勃直接合作，发现了ACE2与AXL受体都能作为COVID-19的受体，为COVID-19成为攻击人类的生物武器找到了入侵通道；
+4. 以AMMS军事兽医研究所为中心的长春及其周边业已形成的那个巨大的生物战综合体，究竟在这场超限生物钟中充当什么角色呢？由于这里基于日本关东军731和100部队有雄厚的生化武器研究基础，尤其是在人畜共患疾病方面的研究独树一帜，很可能这就是PLA的生物武器病毒骨架，即自燃源病毒分离、基因序列分析和编辑、功能获得研究等基础研究的基地，甚至可能是大规模生产成熟的生物武器级别病毒的兵工厂。
+
+
+可见，在CCP-PLA实现COVID-19这个生物武器病毒的技术平台上，这几个人立下了汗马功劳：王长军、何彪（已意外死亡）、单超、周育森（已意外死亡）、姜世勃。而在渗透美国并将美国的病毒研究网络与CCP-PLA的生物战计划网络有机链接起来的关键人物就是：周育森（已意外死亡）、姜世勃、史佩勇。可见复旦大学的CCP-PLA科学家姜世勃在COVID-19实验室起源上的作用是何等关键，可谓“居功至伟、功高盖世”，他不但是插入福林酶切位点的主刀死亡医生，更是中美两国病毒科学界勾兑和交易网络的桥梁。姜世勃的确是一块足够辣的老姜，事实上成为了PLA的特工，其秉承在美国工作了近20年的经历，精心打造、运作、维护了一个以福奇和柯林斯为首的巨大的美国人脉和科技资源网络，不但将许多PLA筛选好的科学家带到了美国，并将美国的知识、技术、资金带回中共国。中共“千人计划”成员姜世勃，总共获得超过1700万美元的美国联邦政府科研经费拨款，其中包括从福奇手里获得的数百万美元资金，并于3个月前的2021年2月入选美国微生物科学院院士，可见其手眼通天、神通广大，是CCP-PLA超限生物战场上沾满人民鲜血和生命的“元帅级别的功臣”！
+
+WIV名义上挂靠在中科院，实际上就是PLA-AMMS的一个直属科研部门，WIV的研究员王汉中，因其杰出贡献获得PLA颁发的医疗成果一等奖，这证明了就是PLA人员在WIV工作。CCP-PLA以军民融合暗度陈仓，以疫苗医药开发隔山打牛，以吸收科研经费借鸡生蛋，以蓝金黄手段绑架美国科学界、教育界、政界、商界统统登上中共这条破贼船以借刀杀人，这是一出中共妄图替代美国成为世界秩序打造者与维护者的大戏，情节跌宕起伏、引人入胜、惊险刺激、精彩绝伦！
+
+精彩片段接踵而来，塞林博士爆出闫博士的丈夫已于两个月前的2021年3月23日悄悄潜入美国，他为什么来美国？是谁安排的？他此行是什么角色？他在美国的出现会不会对闫博士构成危险？美国当局在干嘛？这些情况必须尽快搞清楚。文贵先生在新中国联邦1周年庆典上就当面跟闫博士说，确定她丈夫正在通过法治基金YouTube频道观看咱们这个直播，可见文贵先生早已掌握他的动静和动向。已经在情报界树立了一座前无古人后无来者之丰碑的文贵先生，怎么可能不知道中共阵营冲着新中国联邦、爆料革命中这些核心战友而来的来龙去脉、蛛丝马迹？一切阴谋诡计尽在文贵先生的眼皮底下，CCP的任何雕虫小技在文贵先生面前都是裸奔，从CCP虎口逃生的天使闫博士在文贵先生的安顿下不会有危险，但切不可大意！但另一方面，闫博士的丈夫也有在美国做污点证人的绝佳机会，有了与闫博士一起携手灭共共同拯救人类的良机，期待中！
+
+校对/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

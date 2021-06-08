@@ -1,26 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北约秘书长北约峰会前访美会晤拜登与奥斯汀
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1307376/)
+## 【有声读物】中共大外宣从国际传播上升为战略传播，能为中共续命吗？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1307443/)
 
-#### 撰稿：yyshere
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08072807/nato.jpg)图片来源：环球网
-正在美国访问的北约秘书长斯托尔滕贝格，6月7号在与美国总统拜登和防长奥斯汀分别举行会晤后表示，期待即将举行的北约峰会“有力地展现大西洋两岸的团结”。北约峰会将于本月14号在比利时首都布鲁塞尔举行。
+配音：香草山录音组 信念7
 
-据悉，应对北约面临的安全挑战、防务军费分担以及阿富汗问题，是斯托尔滕贝格此次访美的主要议题。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-斯托尔滕贝格期指出，“一个强大的北约对欧洲有利，对美国也有利，我期待所有的北约成员国领导人与会时都释放这一讯息。”
 
-根据白宫随后发表的声明，拜登在会晤时向斯托尔滕贝格表达了“美方与盟国密切合作的坚定承诺，同时双方回顾了过去7年来，北约成员国在增加防务开支等相关方面的进展，并强调北约内部公平分担责任和确保北约有足够资源应对威胁的重要性。“
 
-而五角大楼方面的消息显示，会晤双方均表示，“这次北约峰会将展示团结、力量，和应对未来安全与防务挑战的决心。双方同意北约必须继续致力于适当和公平地为防务提供资金。“
 
-此外，美国防长奥斯汀针对阿富汗问题表示，驻阿美军目前的撤军进展非常顺利，在此过程中，美方仍致力于为同样在撤离的北约盟友军队提供支持。斯托尔滕贝格则表示，尽管结束了在阿富汗的军事存在，但北约成员国将继续保持协调并向阿富汗提供支持。
 
-消息来源：路透社
 
-（本文系作者个人观点）
+
+6月5日《环球时报》发表了一篇题为《推动国际传播上升为战略传播》的文章。文章开头就自疫情爆发以来，世界各国逐渐看清中共大外宣歪曲事实，隐瞒疫情，愚弄世界，战狼外交的丑恶嘴脸，对中共的大外宣和驻外宣传机构采取一系列严厉打击，使中共的大外宣节节败退的窘境，发出：“我国外宣媒体和涉外文化机构遭到部分西方国家空前打压““有理说不出”“说出传不开”“传开叫不响”的悲鸣。
+
+
+
+**文字版原文：[【世事解评】中共大外宣从国际传播上升为战略传播，能为中共续命吗？](https://gnews.org/zh-hans/1306074/)**
+
+作者：纽约香草山写作组  火内
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
