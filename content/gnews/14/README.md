@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】读《罗马书》有感（一）——患难生忍耐
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1306771/)
+## 【有声读物】 美参议员乘军机访台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1306789/)
 
-配音：香草山福音部 joy喜乐的心
+配音：香草山录音组 蒙古鸿雁
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,17 +14,20 @@
 
 
 
-患难如同吃饭，人生在世无人可免。当中有的患难来自于自然界的变化，有的患难来自于他人的过失，而有的患难则来自于自身的错误。这里我们先不谈为什么有患难，为什么有无辜者受苦，甚至好人受苦，我们只讨论当患难临到之时，人们该如何应对。
+德国之声中文网：6月6日（周日）美国参议员达克沃丝（Ladda Tammy Duckworth）、苏利文（Daniel Scott Sullivan）和昆斯（Christopher Andrew Coons）乘坐C-17运输机抵达松山机场。
+
+三位参议员是从韩国赶来，他们目前正在韩国进行访问。在此次访问中，他们还与台湾总统蔡英文会面。民主党参议员达克沃丝演讲中表示“美国将捐赠给台湾75万剂疫苗。”这位参议员还说，“我们来到这里是为了告诉你们，美国不会让你们独自面对。我们会与你们站在一起，确保台湾人民得到其所需，来战胜疫情……因为我们认识到你们的迫切需要，重视我们之间的伙伴关系。”
 
 
 
-**文字版原文：[【信仰之声】读《罗马书》有感（一）——患难生忍耐](https://gnews.org/zh-hans/1301544/)**
+**文字版原文：[【独立观点】 美参议员乘军机访台](https://gnews.org/zh-hans/1303959/)**
 
-作者：纽约香草山福音部 Jinglechenge
+作者：纽约香草山健身部 Ivy001
 
 
 
-音频处理/发稿：雪梨
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
