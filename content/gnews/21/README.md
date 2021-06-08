@@ -1,31 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## TikTok将收集西方用户的生物识别特征,包括面纹和声纹
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1306668/)
+## 【有声读物】 美参议员乘军机访台
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1306789/)
 
-翻译：JS709 ｜校对：Nick｜审核：V
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08003850/tk_adobespark.jpeg)
-TikTok（抖音美国版）现公开表示，由于其隐私政策的更新，其应用程序将开始收集用户的“面纹和声纹”。
+配音：香草山录音组 蒙古鸿雁
 
-这家与中国共产党有关联的公司于2020年在华盛顿特区成功抵制了川普总统试图封禁该数据挖掘应用程序的努力，受到了巨大鼓舞。
-
-这些新形式的数据可以从音频和图像中收集，包括风景、面部、出现在图像中任何物体，以及个人用户的文字文本。
-
-然而，新政策不止于此。TikTok还宣布将收集生物识别数据：
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-> “**我们可能会收集由美国法律定义的生物识别标志和生物识别信息，例如来自您的用户内容的面纹和声纹。在法律要求的情况下，我们将在进行任何此类数据收集之前，征求所需的您同意”**
 
 
-这份声明的关键在于，TikTok没有具体说明所谓“美国法律”是指州法律还是联邦法律，而美国仅有少数几个州才有生物识别隐私法。这意味着，如果TikTok只需在“法律要求”的情况下才获得用户同意，那么美国大多数州的用户就可以在未经事先询问的情况下被TikTok收集到他们的生物识别数据。
 
-TikTok没有提供有关其新政策的更多细节，只是表示其更新隐私政策的目的是为了提高“透明度”。
 
-TikTok尚未进一步解释为什么要收集所有这些个人信息和生物识别数据以及这样做的意义，也没有解释如何获得用户的同意来这样做。
 
-原文作者：凯瑟琳·萨尔加多（CATHERINE SALGADO）
-发布时间：2021年6月6日
-原文链接：[https://thenationalpulse.com/breaking/chinas-tiktok-app-will-collect-biometric-data-including-faceprints-and-voiceprints-of-western-users/](https://thenationalpulse.com/breaking/chinas-tiktok-app-will-collect-biometric-data-including-faceprints-and-voiceprints-of-western-users/)
+德国之声中文网：6月6日（周日）美国参议员达克沃丝（Ladda Tammy Duckworth）、苏利文（Daniel Scott Sullivan）和昆斯（Christopher Andrew Coons）乘坐C-17运输机抵达松山机场。
+
+三位参议员是从韩国赶来，他们目前正在韩国进行访问。在此次访问中，他们还与台湾总统蔡英文会面。民主党参议员达克沃丝演讲中表示“美国将捐赠给台湾75万剂疫苗。”这位参议员还说，“我们来到这里是为了告诉你们，美国不会让你们独自面对。我们会与你们站在一起，确保台湾人民得到其所需，来战胜疫情……因为我们认识到你们的迫切需要，重视我们之间的伙伴关系。”
+
+
+
+**文字版原文：[【独立观点】 美参议员乘军机访台](https://gnews.org/zh-hans/1303959/)**
+
+作者：纽约香草山健身部 Ivy001
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
