@@ -1,29 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 害人償命
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1306305/)
+## 针对中共国复旦大学匈牙利校区抗议活动将在布达佩斯举行
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1306347/)
 
-#### 作者：雨後彩虹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07185533/Screenshot-2021-06-07-3.55.06-PM.png)
+翻译：康州盘古农场 – 郭班之樱
 
-```
-有一天，在陰曹地府裏，閻王見殿外鬼魂們排著長長的隊伍，十分罕見，就問判官：“怎麽這麽多鬼魂排隊？”
+校对：康州盘古农场 – Mike Li
 
-    判官答道：“這些都是感染中共制造的病毒死的，數量太多，我們也沒有辦法，多增加一些判官如何？”
+编辑：康州盘古农场 – 傻小子
 
-   閻王大怒：“增加再多的判官，也沒有中南坑裏的老雜毛們毒死人的速度快！”
+发布：康州盘古农场 – 彩虹 Rainbow
 
-    “黑白無常！”
+**据EURACTIV.com with Telex作者：Vlagyiszlav Makszimov报道 2021年6月2日发布** 
+**虽然有限制，针对中国大学的抗议活动仍将在布达佩斯举行**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/07210818/20210607.jpg)
+中共国的投资也让最初计划在同一地点的学生城的命运受到了质疑，其中包括 8,000 多个留宿的名额[EPA-EFE/ZOLTAN BALOGH]
+已经有4,000 多人登记了他们要参加周六在议会外举行的针对中共国复旦大学匈牙利校区的抗议活动。
+组织者表示，虽然当前（病毒）大流行限制不能超过 500 人参加露天活动，但抗议活动仍将举行。大型活动只能由持有“保护证书”的人参加，这些人是第一次接种疫苗或从病毒中康复的人，以及有未成年人陪同的人。
+此抗议活动是在布达佩斯当局重新命名布达佩斯的费伦茨瓦罗斯区计划校园周围街道的几天后举行的，该地区进行了工程计划，并于本周重新命名街道以抗议该大学。
+中共国的投资也让最初计划在同一地点的学生城的命运受到了质疑，其中包括 8,000 多个留宿名额。
+政府将这条街重新命名为“笑话”和“挑衅”。
+(弗拉基米尔·马克西莫夫| EURACTIV.com with Telex)
 
-    黑白無常：“在！”
+原文链接：[https://www.euractiv.com/section/politics/short\_news/chinese-university-protest-to-take-place-in-budapest-despite-restrictions/](https://www.euractiv.com/section/politics/short_news/chinese-university-protest-to-take-place-in-budapest-despite-restrictions/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-    閻王：“去中南坑，把那些老東西們抓來！”
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-  （文章僅代表作者個人觀點）
-
-   校對發布：滴水穿石
-```
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05010634/B7F5E2B8-49CF-423E-974C-F219C725F3E1.jpeg)
-+4
++1
