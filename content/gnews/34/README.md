@@ -1,28 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 掌握弗林酶切位点插入技术的姜世勃与舟山蝙蝠病毒发现者有合作关系
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1309708/)
+## 【灭共头条】爆炸性视频：打杂客吹嘘“中国同事”在开发“杀手”
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1309746/)
 
-#### 文章撰写:【默凡】
+#### 撰稿：Freedoom（㊙密翻Gnews原创组）
+责编：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09071334/doom.jpg)图片来源：VOA
+打杂客（Peter Daszak）是生态健康联盟主席，曾与武汉病毒研究所合作进行安东尼·福奇医生（Dr. Anthony Fauci）的美国国家过敏和传染病研究所（NIAID）资助的研究。越来越多的证据表明福奇的NIAID与武汉病毒研究所有着深厚的财务和人事关系。而打杂客的生态健康联盟恰恰是向中共实验室输送资金的主要代理机构之一。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09064914/csdagry3543stal-structure-sars-cov-2-mpro.jpg)
+近日，《国家脉搏》（National Pulse）发掘出一段拍摄于2016年的视频，打杂客在一个讨论“新出现的传染病和下一个大流行病 ”的论坛上，吹嘘他的“中国同事 ”正在改造类似SARS的冠状病毒。这似乎与福奇一再否认资助武汉病毒研究所进行病毒功能增强研究的说法不一致。
 
-美国时间6月7日，Sellin上校发推：中共病毒调查侦探们有一重大发现，发现姜世勃在中共病毒实验室起源中扮演了非常重要的角色，还与广州南方医科大学的刘叔文及其他掌握插入弗林蛋白酶裂解位点的科学家有联系。
+也许那个时候，打杂客并没有意识到中共会邪恶到将这些研究用于超限生物武器，所以，他说出了真相。谈到他的组织如何对致命的病毒进行排序时，打杂客详细描述了他的“中国同事”在病毒中“插入突刺蛋白 ”以观察它们是否能 “与人类细胞结合”的过程。“如同我们对SARS的操作手法一样，得到一个类似已知的讨厌的病原体的病毒序列。我们在蝙蝠身上发现大量冠状病毒，其中一些看起来与SARS非常相似。所以我们对突刺蛋白进行了排序，让它附着在细胞上。然后，我们……嗯（打杂客似乎不想背这个锅），我没有做这项工作，是我的中国同事做的。他们创造了假的颗粒，插入了病毒的突刺蛋白，观察它们是否能与人体细胞结合。随着研究的进行，结果越来越接近能使人真正致病的病毒。最终发现了少量看起来确实像杀手的病毒。”
 
-从Sellin上校转推的内容来看，掌握插入弗林蛋白酶裂解位点的科学家姜世勃与舟山蝙蝠病毒ZC45/ZXC21的发现者王长军有直接合作关系。
+在 NIAID提供的 370万美元的资助下，武汉病毒实验室的石正丽与打杂客共同完成了十多篇研究论文，石的简历中也提到了这些由福奇支持的拨款。武汉实验室曾将美国国立卫生研究院（NIH）列为其 “合作伙伴”之一，但在2021年3月秘密删除了这条信息。
 
+这下，中共的战狗们，脑子又该短路了！
 
+参考链接：[WATCH: Explosive, Unearthed Video Shows Peter Daszak Describing ‘Chinese Colleagues’ Developing ‘Killer’ Coronaviruses.](https://thenationalpulse.com/exclusive/daszak-reveals-chinese-colleagues-manipulating-coronaviruses/)
 
-> A critically important find by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) showing Shibo Jiang's key role related to the lab origin of [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw). Also connect Shuwen Liu & those at Southern Medical University, Guangzhou, who had the technical skills to insert the furin cleavage site. [https://t.co/Uc2mT1OXTr](https://t.co/Uc2mT1OXTr)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 7, 2021](https://twitter.com/LawrenceSellin/status/1401760004756185089?ref_src=twsrc%5Etfw)
-
-
-
-本文仅代表作者本人观点，不代表Gnews平台
-
-* * *
-
-排版发布：日本东京方舟农场 文柯Miles
+（本文仅代表作者个人观点）
 
 0

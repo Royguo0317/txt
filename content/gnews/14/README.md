@@ -1,59 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【DC大中华时事】美军机访台 中共信用破产遭网友轰“纸老虎” 2021.06.09
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1309959/)
+## 过去的两个月中共国“报复社会”事件暴增！80万私营企业倒闭！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1310065/)
 
-编辑：星空無垠 / 作图：虎子哥
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09060520/609.jpg)
-#   墙国妄语每日驳
+**摘要：在2021年6月6日的盖特中，郭先生说仅仅过去两个月，中共国发生7万起恶性“报复社会”事件，人民已经无路可走；中共银行的庞氏骗局已经玩不下去；80万私营企业倒闭！**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09093624/Miles_2021-06-06-getter.srt.txt)
+**过去的两个月中共国****“****报复社会****”****事件暴增！****80****万私营企业倒闭！**
 
-### **06.09. 环球时报 中国全国人大坚决反对！**
+**The Surge of Violent Crimes and Bankruptcies of Private Companies in China**
 
-全国人大外事委员会就美国国会参议院通过“2021年美国创新和竞争法案”发表声明
+同时现在，中共国的现在经济到什么程度大家都知道啊。
 
-6月9日，针对美国国会参议院通过“2021年美国创新和竞争法案”，全国人大外事委员会发表声明指出，该法案充斥冷战思维和意识形态偏见，诋毁抹黑中国发展道路和内外政策，打着“创新和竞争”旗号，干涉中国内政，妄图遏制中国发展。中国全国人大对此表示强烈不满和坚决反对。
+Do you know how seriously Communist China’s economy has deteriorated?
 
-声明指出，该法案妄图以渲染所谓“中国威胁”维持美国全球霸权地位，以人权宗教为借口干涉中国内政，以科技、经济脱钩等剥夺中国正当享有的发展权利。法案表明，唯我独尊的偏执妄想扭曲了创新和竞争的本意。在当前世界进入动荡变革期的大背景下，处处把中国当作“假想敌”的做法，有违世界大势，不得人心、注定失败。
+仅仅，仅仅过去2个月，在全国各地所谓的他们定义的恶性的所谓报复社会[事件]。事实上是逼得人[已经是]不是“上梁山”了，梁山都没了，是逼得人不能当人了，不能干人事了。
 
-声明强调，台湾问题事关中国的国家主权和领土完整，涉及中国的核心利益。法案相关涉台条款严重违反一个中国原则和中美三个联合公报规定。我们坚决反对任何形式的美台官方往来。新疆、西藏、香港等事务纯属中国内政，不容任何外国干涉。
+In the past two months, 70,000 cases of what the CCP defines as “vicious retaliation against society” have taken place across the country. Actually, these cases are occurring because these people have been driven beyond the point of survival. (The Chinese ancient novel “Outlaws of the Marsh” told the story of what occurred on “Mount Liang”.) Now that “Mount Liang” is gone, people who cannot survive are forced to commit violence.
 
-声明强调，中国坚持走和平发展道路，中国人民追求美好生活的权利神圣不可侵犯，任何势力都不要指望中国吞下损害中国主权、安全、发展利益的苦果。中国始终致力于构建不冲突不对抗、相互尊重、合作共赢的中美关系。我们强烈敦促美国国会客观理性看待中国发展和中美关系，立即停止推进审议该法案，停止干涉中国内政，以免破坏中美关系大局和双方在重要领域的合作。
+我们反对暴力。但人但凡有点儿选择也不会走上它们说的报复社会的路。是那些共产党的走狗们欺压百姓没有活路了，只有一个选择了。达多少起呢？7万起！7万起血腥暴力社会事件。
 
-***简评：世界欢迎各国在尊重人权，尊重知识产权，遵守承诺的前提下，对促进人类美好生活、促进人类和平发展，是全面赞成的。但对于违反国际法，违反承诺，违反人权，对内压榨人民，对外偷盗知识产权，这种行为人人都要反对。对待香港民众和平抗争的暴行，让人们看清了中共背信弃义。对墙内人民的高压与监控，形成独裁统治下人民欢歌笑语的假象。中共的独裁统治下中国人民追求美好生活的权利都没有，中共代表不了中国，也代表不了中国人民。得道多助，失道寡助，在世界反共形势下，清醒的人民也会越来越多，终有一天会站起来推翻这个政权。***
+We are against violence, but we must understand that nobody would do such a thing if they had a choice. They do not want to take revenge on society. CCP, the organized crime organization, and its gangsters oppress people and make more and more Lao Bai Xing (ordinary people) unable to survive. These people have no other choice, and 70,000 bloody and violent incidents occurred as a result.
 
+说这是1982年到83年期间，整个当时所谓的“严打”，邓小平以“严打”为名，所谓蒙古有强奸女学生的案子[为由展开]严打，杀了几万人。连弄颗白菜都要给弄死，那我是很清楚的。现在说加在一起，把当年1982～1983年所有案件累积在一起还不只2个月的[总]和呢。
 
+Between 1982 and 1983, Deng Xiaoping gave orders to implement a severe crackdown on criminal activities, citing the rape of young girls in Mongolia. And it led to the executions of tens of thousands of people. Some even got executed for minor misdemeanors such as stealing a cabbage. I know very well what happened then. The total number of cases between 1982 and 1983 is not as many as that in the last two months.
 
-### **06.09. 澎湃新闻 日本外务省资助中国“大V”为其做宣传？外交部冷静回应**
+共产党很恐惧，如果7万变成70万的时候，这个社会就就不是什么报复社会了，就是社会受到了极权压迫[的表现]，到700万的时候共产党完蛋了。就这么简单。
 
-6月9日，外交部发言人汪文斌主持例行记者会。有记者提问，据日本媒体报道，日本外务省下属的国际交流基金2008年针对中国在社会舆论及媒体界有较强影响力的个人推出了一个赴日参观考察项目，对此有网友称中方人员参与是在为日本做宣传。中方对此有何评论？
+The CCP must be scared. If 70,000 cases grow to 700,000, it will not be an act of revenge against society. It will be a reaction to totalitarian oppression. If it expands to 7 million cases, the CCP will be finished. It is that simple.
 
-汪文斌表示，我注意到有关的报道。国与国之间以各种形式开展人员互访交流的做法，在国际关系实践当中普遍存在。
+然后银行、金融，就国内各方面咱们战友报信息，国内的银行过去是「玩」“还旧贷新”这个骗局，共产党自己的庞氏骗局，银行实际上45%到50%都成烂账了。这个“还旧贷新”的周转在过去的2到3个月里边，将近50%左右基本上都延续不下去了。就这么可怕！国内大概80万的私人企业全部倒闭，倒闭80万，80万！
 
-汪文斌表示，中日互为重要的近邻，两国人员往来十分密切。中日邦交正常化以来的近半个世纪里，双方由政府支持推动的人员交流不胜枚举，为两国关系发展做出了积极贡献。双方今年还确立了“5年安排两国3万名青少年双向互访”的交流计划，两国政府支持的青少年学生双向研学旅行活动也在规划筹备之中，将在疫情结束后陆续付诸实施。我们希望通过中日间持续健康稳定的人员交流，实现增进理解，建立信任，深化友谊的目标。
+Our fellow fighters also told me about banks, finance, and various aspects of mainland China. The banks in mainland China get used to playing tricks, and cover defaulted loans with new loans. This is the CCP’s own Ponzi game. In fact, 45% to 50% of the bank loans are already in default and cannot be repaid. The banks cannot continue playing the loan-pyramid scheme in almost 50% of the loan cases in the last 2 to 3 months. How bad it is. Around 800,000 private companies claimed bankruptcy in mainland China. It was 800,000 private companies!
 
-***简评：在中共全面控制人们言论自由、建立高高防火墙的情况下，日本资助国人去看看真实的世界，借网友之口说为日宣传？我认为中共是害怕日本选了有正义之人，在外看到中共的邪恶真面目，引起的星星之火，烧到全国的每一片土地，烧到中共死无葬身之地。中共安排的人员交流，都是经过严格筛选的家庭政审合格的人员，不会有真正的意义的交流活动。***
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60bce283c04fd544b46a8ecf](https://gtv.org/getter/60bce283c04fd544b46a8ecf) (4:04-6:08)
+鸣谢：[1] 感谢Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1303061/](https://gnews.org/zh-hans/1303061/)
+[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于[https://gnews.org/1306798/](https://gnews.org/1306798/)
 
-### **06.09. 环球时报 美国农民：“形势确实发生逆转”**
+* * *
 
-美国农业部预测，在大豆、玉米、坚果、牛肉、小麦和禽肉等主要农产品带动下，今年美国将向中国运送创纪录的372亿美元农产品，占美国预计农产品出口总额的23%。中国需求增加，加上巴西干旱导致玉米和大豆供应受限，已拉动全球食品价格飙升，从而使美国农民处于更有利地位。“形势确实发生逆转”，伊利诺伊州玉米种植者马克·威尔逊说，“目前看起来相当好”。
+字幕：【XO小粉红】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-在中国对美国农产品征收惩罚性关税以进行反击后，美国农民获得前所未有的政府补贴。数据显示，在截至今年8月的销售年度，中国已从美国进口或预订2320万吨玉米。相比之下，5年前的这个数字还不到20万吨。今春玉米和大豆的价格都已接近历史最高点。“对我们的生存来说，政府救济不过是创可贴（杯水车薪），我们一直希望能看到（眼下）这种需求和价格”，艾奥瓦州农民戴夫·沃尔顿说，“因此我们心中充满感激之情”。
-
-美国农场地带目前对中国的强劲销售，正值华盛顿与北京紧张关系升级之际。目前这种销售势头能否持续下去，已成为所有人都想知道答案的重大问题。伊利诺伊州大学农业经济学家斯科特·欧文说：“我不认为有任何原因会导致中国的购买势头发生显著变化。”
-
-美国农业部前首席经济学家约瑟夫·格劳贝尔认为，中国（养猪业）一定程度上已从非洲猪瘟中恢复，是推动饲料粮食需求增长的背后力量，“我认为这并非一种暂时现象，中国将继续是非常强劲的进口国。”经济学家维罗妮卡·奈表示，倘若对华出口“江河日下”，那美国农民或将再次需要帮助。
-
-***简评：中共国的对美农产品进口剧增，一方面是企图迷惑美国民众，中共国是他们最大市场；另一方面，是囤积即将到来的粮食的短缺，应对即将到来的价格飞涨。美国个别农民的评论并不代表全部农民，对民意需要有清醒的头脑，不被中共忽悠才是。曾经有人说过：西方公司撤资，对员工进行巨额补偿，中共反对；国际油企加油站便宜销售汽油，被中共反对而停止；特斯拉要降价销售，中共反对；让人民的实惠的，中共统统反对。就是拿着14亿人民当成韭菜，任其收割。韭菜们，躺平，跟随新中国联邦，还有躺平币可赚！***
-
-#   港台资讯
-
-
-![]()![](https://cdn.discordapp.com/attachments/817883141107613766/852018927470641155/01.jpg)![]()![](https://cdn.discordapp.com/attachments/817883141107613766/852018968461836299/02.jpg)![]()![](https://cdn.discordapp.com/attachments/817883141107613766/852019052137414746/03.jpg)
-
-
-*编辑：星空無垠
-审核：星空無垠
-发布：文顾*
-
-0
++1

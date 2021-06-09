@@ -1,51 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6/9/2021 财经快讯：美国参议院通过针对中共国威胁法案, 84亿个密码遭黑客泄露
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1309776/)
+## 微软的搜索引擎在6.4纪念日审查“坦克人”图片
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1309909/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09071317/%E5%9B%BE%E7%89%871-19.png)[图片来源](https://www.forbes.com/)
-**1.****美国参议院通过针对中共国威胁法案**
+新闻来源：《布莱特巴特新闻》| 作者：ALANA MASTRANGELO | 发布时间：2021年6月4日
+翻译/简评：新街口 | 校对：小小妹 | 审核：clau | Page：Daoiii
+[!\[\]()!\[\](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/f5755b59-2530-41fe-9046-497ef24ce5a1.jpg?asset_id=4298a13a-3bd7-4ec2-94fc-3481f59d213d&amp;img_etag=%22e54f6bed60bd636a5182c142dbfaf44f%22&amp;size=1024)](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/f5755b59-2530-41fe-9046-497ef24ce5a1.jpg?asset_id=4298a13a-3bd7-4ec2-94fc-3481f59d213d&amp;img_etag=%22e54f6bed60bd636a5182c142dbfaf44f%22&amp;size=1024)香港抗议者在六四展示著名的“坦克人”海报，Dale de la Rey，法新社
+**简评：**
 
-[参议院多数党领袖舒默（D-New York）成功将“无尽前沿法案”纳入“美国创新与竞争法案”（USICA），该法案6月8日经两党投票在参议院通过。参议员舒默多年来一直在评论中共国议题，并最终决定重新制定立法，达成两党合作，增加美国的就业机会。参议员托德·杨（R-Indiana）是该立法的共同发起人。参议员克拉波表示，该方案将有助于美国在关键的贸易领域，以经济方式打击中共国参与的邪恶活动，并予以反击。中共国仍然对新疆地区强迫劳动的指控持蔑视态度，这项新的 USICA 立法直接关注强迫劳动方面的问题。](https://www.forbes.com/sites/rickhelfenbein/2021/06/08/game-onusa-vs-chinaendless-frontier-act-moves-on-tech--trade/?sh=c91652b2c5c7)
+**在全世界正在遭受中共病毒肆虐的时候，又迎来了2021年的6月4日。32年前的同一天，世界各个国家的电视和广播都在播放中共坦克在北京的街道上横冲直撞，解放军用自动化武器射杀手无寸铁的示威者。中共对和平示威的学生和北京市民的屠杀，第一次被现代化的媒体被记录和展现出来。在这些视频中，一位视死如归的示威者独自一人拦截坦克被世界所认知，“坦克人”也成为了全世界公认的、代表中共六四天安门大屠杀的标志性形象。**
 
-[USICA 的前身是“无尽前沿法案”，该法案将使美国在 5G 发展和半导体的发展方面具有优势。第一份立法草案计划在五年内由国家科学基金会的技术和创新局提供1000亿美元，修订后的法案最终接近2500亿美元，至少520亿美元用于开发半导体芯片。](https://www.forbes.com/sites/rickhelfenbein/2021/06/08/game-onusa-vs-chinaendless-frontier-act-moves-on-tech--trade/?sh=c91652b2c5c7)
+**这次布莱特巴特新闻报道出来的必应(Bing)搜索引擎竟然在六月四日把“坦克人”这个关键词进行审查，使用户无法查询到相应的图片。尽管微软公司解释说是技术问题，但根据微软的技术实力，用技术问题来解释这个伦理道德和政治问题未免过于牵强。唯一合理的解释就是中共捣鬼作祟、微软被蓝金黄进行配合的结果。**
 
-**2.****84亿个密码遭黑客泄露**
+**尽管西方国家的政府和企业已经越来越充分地认识到了中共病毒和中共给世界带来的危害，并且已经开始与中共进行全面脱钩，进一步加快以毒灭共的进程。但通过微软在天安门大屠杀的纪念日审查坦克人这一事件，我们可以看到中共和被中共蓝金黄的力量依然强大和有恃无恐。就如郭先生在6.4周年庆典结束语中告诫大家的一样，最黑暗的时刻还未到来，黑暗仍长，切勿骄傲，保持信仰，砥砺前行。我们爆料革命的各位战友不可以有任何松懈，必须坚持、再坚持，直到中共倒台灭亡的那一天。**
 
-[一名黑客本周把 84 亿个密码数据信息发布到网上，这可能是有史以来最大的在线密码泄露。令人惊讶的是，这并没有成为主流媒体的头条新闻。Cyber​​News团队称，一个 100GB 的文本文件包含惊人的 84 亿个密码条目，在一个流行的黑客论坛上泄露，该数据集可能包含了以前的数据泄露和泄漏窃取的密码。](https://www.thegatewaypundit.com/2021/06/hackers-expose-8-4-billion-passwords-post-online-possibly-largest-dump-passwords-ever/)
+[!\[\]()!\[\](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/ba77da18-aad2-46cf-9a8e-2333485a3a06.png?asset_id=3d709a65-1bcc-4983-8533-72aa4b35672d&amp;img_etag=%228bfeeffa5fa286ddddb224fe24dcc09e%22&amp;size=1024)](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/ba77da18-aad2-46cf-9a8e-2333485a3a06.png?asset_id=3d709a65-1bcc-4983-8533-72aa4b35672d&amp;img_etag=%228bfeeffa5fa286ddddb224fe24dcc09e%22&amp;size=1024)
 
-[如果您正在阅读本文，说明您可能需要更改密码，因为新的密码泄露在规模上超过此前报道的 COMB，之前的数据集本质上是一个巨大的数据库，包含超过 32 亿个电子邮件和密码配对，基于现有数据在 Netflix 和 LinkedIn 等公司之前的违规和泄密事件中被盗的。这个新泄露的密码数据集比此前翻了一番多，70亿人口都极有可能成为密码数据被泄露的受害人。](https://www.thegatewaypundit.com/2021/06/hackers-expose-8-4-billion-passwords-post-online-possibly-largest-dump-passwords-ever/)
+**原文翻译：**
 
-**3.****美国国税局扩大加密货币执法预算**
+## 微软必应(Bing)在6.4纪念日审查“坦克人”图片
 
-[美国国税局（IRS）最新的国会预算和年度绩效报告披露，美国税务监管机构正在扩大执法预算，特别关注加密货币和网络犯罪。国税局将聘请一系列专业承包商来加强内部工作。美国国税局2022 财年预算金额为 132 亿美元，比 2021 财年增加 12 亿美元。在执法方面，美国国税局要求 54.6 亿美元——同比增加 4.58 亿美元，需要额外的 3200 万美元来促进其加密货币和网络业务。在实践中，增加的资金将用于向可以协助税务监管机构执行基于加密货币逃税的公司授予更多合同。根据报告，该项目已经在进行中。](https://www.theblockcrypto.com/post/107590/irs-seeks-millions-in-fresh-funding-to-expand-crypto-tax-enforcement-and-hire-outside-experts)
+[!\[\]()!\[\](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/38022fc4-4ce4-4d83-b8f3-6f226ba248f3.png?asset_id=1870840f-7fe0-4742-8489-9052c948dd09&amp;img_etag=%2227a9e6b6462e3ddddf53e548defbdee0%22&amp;size=2560)](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/38022fc4-4ce4-4d83-b8f3-6f226ba248f3.png?asset_id=1870840f-7fe0-4742-8489-9052c948dd09&amp;img_etag=%2227a9e6b6462e3ddddf53e548defbdee0%22&amp;size=1024)作者：ALANA MASTRANGELO 2021年6月4日
 
-**4.****中共国创2****008****年雷曼倒闭以来最高PPI**
+**微软旗下的搜索引擎必应不能显示搜索“坦克人”的任何图像结果，这是天安门广场大屠杀最具标志性的图像，即使在美国境内搜索该词汇也是同样的结果。微软声称这种现象是由于“意外的人为错误”造成的，该公司正在“努力解决这个问题”。**
 
-[中共国6月9日公布的通胀数据“令人震惊”，虽然 CPI 同比增长 1.3%，略低于预期和1.6% 的市场共识；但是PPI数据，即工厂通胀价格窗口，却由于大宗商品价格飙升，涨幅高达 9.0%，高于 8.5% 的市场预期，是自 2008 年 9 月雷曼兄弟倒闭以来的最高水平。冈拉克Doubleline 在电话会议中强调需要注意 CPI 和 PPI 增长率之间的差距进一步上升，目前已达到 1993 年以来的最高水平。](https://www.zerohedge.com/economics/traders-alert-china-inflation-shock)
+[!\[\]()!\[\](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/fd8d6cf6-35bc-4706-a155-0ef8cb3a0cad.png?asset_id=7b2d1d1d-2d46-4c3b-bf44-581e68a6bc10&amp;img_etag=%2241c1019925abc771c2ca0876c59449eb%22&amp;size=1024)](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/fd8d6cf6-35bc-4706-a155-0ef8cb3a0cad.png?asset_id=7b2d1d1d-2d46-4c3b-bf44-581e68a6bc10&amp;img_etag=%2241c1019925abc771c2ca0876c59449eb%22&amp;size=1024)
 
-[CPI 方面，由于核心权重成分仅上涨 0.90%，导致整体数字低于预期，而食品通胀追踪指标温和上涨 1.65%，与一年前被猪肉价格带动飙升的两位数食品通胀相差甚远。鉴于目前CPI 仍然处于休眠状态，工厂生产只能吸收上涨的成本而不是转嫁成本，这意味着工业利润暴跌只是时间问题。](https://www.zerohedge.com/economics/traders-alert-china-inflation-shock)
+广场大屠杀最具标志性的图像，即使在美国境内搜索该词汇也是同样的结果。微软声称这种现象是由于“意外的人为错误”造成的，该公司正在“努力解决这个问题”。
 
-**5.****美国服务器故障，瘫痪全球数百个网站**
+“没有坦克人的搜索结果。”必应网站在搜索该词后显示的一条消息。
 
-[据每日邮报6月8日报道，由于内容分布式网络（CDN）服务供应商Fastly进行服务配置时出现问题，导致服务中断，包括CNN，纽约时报，亚马逊和Reddit等世界知名网站在美东时间周二早上瘫痪三小时。全世界上百个网站因中断受到影响，除媒体网站外，购物网站和政府网站等均受到影响，比如白宫政府网站和英国政府网站，一些新闻网站无法发布新闻。网络专家称不排除被攻击的可能，还有称这次事件更像是硬件问题而非软件问题。](https://www.dailymail.co.uk/sciencetech/article-9663885/Hundreds-websites-worldwide-DOWN.html)
+“检查你的拼写或尝试不同的关键字。”该网站进一步建议。
 
-**6.****数百人因使用FBI 开发的应用程序被诱捕**
+“坦克人”指的是1989年中共政权对天安门广场抗议活动进行暴力镇压期间，一名不知名的孤独抗议者提着一个塑料购物袋站在一排中共国坦克前的标志性形象。
 
-[近日数百名嫌疑人被捕并缉获了大量毒品，这是有史以来规模最大、最复杂的全球执法行动之一，该行动依赖于 FBI开发的加密消息应用程序 ，用于诱捕犯罪网络成员。跨越16个国家的一系列大规模猎杀行动中，欧洲执法机构连同FBI和美国缉毒局（DEA）共逮捕了800多人，缴获了超过32吨毒品，主要是大麻和可卡因，以及 6 吨合成药物和超过 4800 万美元的货币和加密货币。欧洲刑警组织表示，这项名为特洛伊木马盾牌计划行动预计将在未来几周内导致“无数的分拆行动”，可能导致更多的缉获和逮捕。该行动依赖于 FBI 开发的加密消息应用程序，与澳大利亚联邦警察密切合作，称为 ANOM，其目标是针对全球有组织犯罪、贩毒和洗钱活动。](https://www.zerohedge.com/geopolitical/hundreds-arrested-global-organized-crime-sting-using-fbi-developed-messaging-app)
+拍摄于1989年6月5日的“坦克人”的照片，后来成为反抗暴政的象征。现在对这张照片的审查明显是针对天安门广场大屠杀 32 周年的纪念日所设定的。
 
-**7.****EIA上调今年 WTI 和布伦特原油价格预测**
+这张著名的图片也在雅虎和DuckDuckGo上也受到审查，而两者都使用的必应搜索引擎。同时，该图像在美国的谷歌上并未受到审查。该审查首先在Vice传媒网站的主页上被报告出来。
 
-[根据周二发布的月度报告，美国能源局EIA上调了今年美国和全球基准石油价格的预测。EIA 预测今年WTI平均价格为每桶 61.85 美元，比 5 月份的预测高 5%。预计今年布伦特原油均价为 65.19 美元，比之前的预测上涨 4.7%。然而，EIA 将 WTI  2022 年石油预测下调了 0.4%，至 56.74 美元；布伦特原油价格下调至 60.49 美元。EIA 表示，今年美国石油产量预计平均为 1108 万桶/日，比 5 月份的预测增加 0.5%。预计今年 夏天4 月到 9 月，汽油消费量平均为 910 万桶/天，比去年夏天多 130 万桶/天，但比 2019 年夏天减少 40 万桶/天。 EIA 还预计美国今年夏天汽油零售价平均为每加仑 2.92 美元，高于去年夏天的 2.07 美元。](https://www.marketwatch.com/story/eia-lifts-wti-brent-oil-price-forecasts-for-this-year-2021-06-08)
+虽然在中共国早已经审查了涉及坦克人和天安门广场大屠杀的内容。但图像在美国被审查则是一个新的续篇。
 
-[在周二的交易中, 纽约商品交易所7 月 WTI 原油上涨 44 美分或 0.6%，至每桶 69.67 美元；欧洲期货交易所八月布伦特原油上涨 31 美分或 0.4%，至每桶 71.80 美元。](https://www.marketwatch.com/story/eia-lifts-wti-brent-oil-price-forecasts-for-this-year-2021-06-08)
+谷歌风险分析小组的谢恩·亨特利（Shane Huntley）首先在推特上发布了必应搜索结果的截图，其中坦克人的图像无法现实，并请微软总裁布拉德·史密斯（Brad Smith）做出解释。
 
-**8.****亚马逊拟被纳入G****7****高税收计划名单**
+[!\[\]()!\[\](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/9a2b12b1-6239-4605-8433-a41c912e781a.png?asset_id=89349a07-bfbe-4d3c-a548-5c79f2b31f11&amp;img_etag=%220572408d9bb42565b6e062a98bacb20b%22&amp;size=1024)](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/9a2b12b1-6239-4605-8433-a41c912e781a.png?asset_id=89349a07-bfbe-4d3c-a548-5c79f2b31f11&amp;img_etag=%220572408d9bb42565b6e062a98bacb20b%22&amp;size=1024)
 
-[路透报道，G7 财长一致认为，当跨国公司在本国赚取的利润超过 10% 时，各国政府应有权对其至少 20% 的利润征税。一些欧洲国家担心亚马逊可能会超出拟议的新规则范围，作为一家公司的整体营业利润率低于 10%，但官员们表示，由于其亚马逊网络服务 (AWS) 业务的利润率超过 30%，因此可以将亚马逊整体包括在内。知情人士透露，G7 国家已经找到了一种方法，将全球最大的公司之一亚马逊列入 100 家将在其开展业务的国家或者地区面临更高税收名单，目标是其利润更高的云计算部门。亚马逊没有立即回应置评。](https://www.reuters.com/business/g7-countries-devise-way-catch-amazon-tax-net-sources-2021-06-08/)
+“在英国也一样。”安全研究员凯文·博蒙特（Kevin Beaumont） 发表推文说，他还分享了一张搜索“坦克人”图像失败的截图。
 
-By 【秘密翻译组-金融组】
-作者：Apple
+社交媒体用户也表示，他们无法在法国、瑞士等国家的必应上找到坦克人的图片。
+
+微软发言人在一封电子邮件中告诉Vice传媒，审查是“由意外的人为错误造成，我们正在积极努力解决这个问题。”
+
+🔗[原文链接](https://www.breitbart.com/tech/2021/06/04/microsoft-bing-censors-tank-man-images-on-tiananmen-anniversary/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+
+
 
 0

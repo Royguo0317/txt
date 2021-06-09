@@ -1,67 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 微软的搜索引擎在6.4纪念日审查“坦克人”图片
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1309909/)
+## 【澳洲热点】澳大利亚发出历史最强音
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1309980/)
 
-新闻来源：《布莱特巴特新闻》| 作者：ALANA MASTRANGELO | 发布时间：2021年6月4日
-翻译/简评：新街口 | 校对：小小妹 | 审核：clau | Page：Daoiii
-[!\[\]()!\[\](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/f5755b59-2530-41fe-9046-497ef24ce5a1.jpg?asset_id=4298a13a-3bd7-4ec2-94fc-3481f59d213d&amp;img_etag=%22e54f6bed60bd636a5182c142dbfaf44f%22&amp;size=1024)](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/f5755b59-2530-41fe-9046-497ef24ce5a1.jpg?asset_id=4298a13a-3bd7-4ec2-94fc-3481f59d213d&amp;img_etag=%22e54f6bed60bd636a5182c142dbfaf44f%22&amp;size=1024)香港抗议者在六四展示著名的“坦克人”海报，Dale de la Rey，法新社
-**简评：**
+#### 作者：守望黎明
 
-**在全世界正在遭受中共病毒肆虐的时候，又迎来了2021年的6月4日。32年前的同一天，世界各个国家的电视和广播都在播放中共坦克在北京的街道上横冲直撞，解放军用自动化武器射杀手无寸铁的示威者。中共对和平示威的学生和北京市民的屠杀，第一次被现代化的媒体被记录和展现出来。在这些视频中，一位视死如归的示威者独自一人拦截坦克被世界所认知，“坦克人”也成为了全世界公认的、代表中共六四天安门大屠杀的标志性形象。**
+#### 编辑：翼族
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09092752/Picture1121.jpg)
+图片来源：The Australian
 
-**这次布莱特巴特新闻报道出来的必应(Bing)搜索引擎竟然在六月四日把“坦克人”这个关键词进行审查，使用户无法查询到相应的图片。尽管微软公司解释说是技术问题，但根据微软的技术实力，用技术问题来解释这个伦理道德和政治问题未免过于牵强。唯一合理的解释就是中共捣鬼作祟、微软被蓝金黄进行配合的结果。**
+在即将举行的G7峰会的外交政策讲话中，澳大利亚总理斯科特·莫里森发出罕见的强硬警告：西方与中共国发生直接冲突的风险正在急速增加，今日世界所面临的不确定性自上世纪三十年代以来从未有过。不仅澳大利亚面对着巨大危险，整个亚太地区乃至全世界都遭受着同样的威胁。
 
-**尽管西方国家的政府和企业已经越来越充分地认识到了中共病毒和中共给世界带来的危害，并且已经开始与中共进行全面脱钩，进一步加快以毒灭共的进程。但通过微软在天安门大屠杀的纪念日审查坦克人这一事件，我们可以看到中共和被中共蓝金黄的力量依然强大和有恃无恐。就如郭先生在6.4周年庆典结束语中告诫大家的一样，最黑暗的时刻还未到来，黑暗仍长，切勿骄傲，保持信仰，砥砺前行。我们爆料革命的各位战友不可以有任何松懈，必须坚持、再坚持，直到中共倒台灭亡的那一天。**
+莫里森此番讲话令人非常震撼，因为这是第一次有现任国家领导人把现今世界遇到的挑战，与上个世纪因德国纳粹和日本军国主义所引发的第二次世界大战相提并论。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/ba77da18-aad2-46cf-9a8e-2333485a3a06.png?asset_id=3d709a65-1bcc-4983-8533-72aa4b35672d&amp;img_etag=%228bfeeffa5fa286ddddb224fe24dcc09e%22&amp;size=1024)](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/ba77da18-aad2-46cf-9a8e-2333485a3a06.png?asset_id=3d709a65-1bcc-4983-8533-72aa4b35672d&amp;img_etag=%228bfeeffa5fa286ddddb224fe24dcc09e%22&amp;size=1024)
+这位澳洲总理指出，不应排除西方世界与中共的根本性对立上升到武装冲突的可能。危局面前，自由世界的国家别无选择，只能像冷战时期对付苏联和东欧社会主义阵营那样，紧密联合共同迎敌。莫里森还强调，澳大利亚坚定地支持美国关于新冠病毒溯源和重启武汉调查的主张。他说，只有明确无误地查清病毒来源，才能保证下次同样的疫情不会发生，才能让全世界人民的福祉得到保障。
 
-**原文翻译：**
+澳大利亚是一个很神奇的国家。它资源丰富国民富足，人民平和友好，加之又孤悬在大洋洲远离纷扰，本可偏安一隅过自己的太平日子。可这个国家偏偏正义感超强，对自己内心价值观的坚守坚定无比。抛开在两次世界大战中的巨大牺牲不说，在战后西方与共产主义势力的对抗中，澳大利亚总是无战不与，从不落于人后。自中共国经济跃起之后，从澳洲大量进口矿产品、农产品及海产品，成了澳洲最大的贸易伙伴。照理说澳大利亚经济对中共国的依赖度如此之高，总该低眉垂目对中共礼让三分吧。可是事实并非如此，澳洲对中共在人权等方面的批评一直是调门最高的，常常惹得中共恼火不已。
 
-## 微软必应(Bing)在6.4纪念日审查“坦克人”图片
+中共病毒引发的全球疫情爆发之后，澳大利亚疫情并不特别严重，没必要撕破脸皮得罪中共。但本性难改的澳大利亚人又一次不顾经济利益最早挺身而出，坚决要求彻查病毒源头，一下子触到了中共的痛处，也遭到了疯狂的报复。中共不仅对澳洲的大麦、红酒和海产品等加征高额关税，还玩起了流氓手段，在秦皇岛港故意不给澳洲运煤船清关，让大批运煤货船困在锚地进退不得。面对中共淫威，澳大利亚真正表现出了自己的血性，不退反进并强势反击，联邦政府决绝地废除了维多利亚州与中共国签订的“一带一路”合作协议，并正在计划收回被中共国长期租赁的具有重要战略地位的达尔文港。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/38022fc4-4ce4-4d83-b8f3-6f226ba248f3.png?asset_id=1870840f-7fe0-4742-8489-9052c948dd09&amp;img_etag=%2227a9e6b6462e3ddddf53e548defbdee0%22&amp;size=2560)](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/38022fc4-4ce4-4d83-b8f3-6f226ba248f3.png?asset_id=1870840f-7fe0-4742-8489-9052c948dd09&amp;img_etag=%2227a9e6b6462e3ddddf53e548defbdee0%22&amp;size=1024)作者：ALANA MASTRANGELO 2021年6月4日
+中共称霸全球的野心由来已久，习总加速师上台以来更是雄心爆棚，一门心思要圆其成为天下共主的“中国梦”，使得中共国对海外的渗透变本加厉。在蓝金黄手段的强烈攻势下，不知有多少的名人政客、商界大佬、金融巨子、科技精英和媒体巨擘被中共拿下，成了它的同路人和帮凶。但是，总有那么一些人心有坚守。在他们心目里，自己坚信的价值观和正义高过所有的利益诱惑，面对邪恶再难再险都要战斗到底。班农、蓬佩奥、纳瓦罗、朱利安尼是这样的人，文贵先生、闫博士及千万爆料革命的战友更是这样的人。很高兴看到澳大利亚这个国家也有这样的秉性。
 
-**微软旗下的搜索引擎必应不能显示搜索“坦克人”的任何图像结果，这是天安门广场大屠杀最具标志性的图像，即使在美国境内搜索该词汇也是同样的结果。微软声称这种现象是由于“意外的人为错误”造成的，该公司正在“努力解决这个问题”。**
+（文章仅代表作者个人观点）
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/fd8d6cf6-35bc-4706-a155-0ef8cb3a0cad.png?asset_id=7b2d1d1d-2d46-4c3b-bf44-581e68a6bc10&amp;img_etag=%2241c1019925abc771c2ca0876c59449eb%22&amp;size=1024)](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/fd8d6cf6-35bc-4706-a155-0ef8cb3a0cad.png?asset_id=7b2d1d1d-2d46-4c3b-bf44-581e68a6bc10&amp;img_etag=%2241c1019925abc771c2ca0876c59449eb%22&amp;size=1024)
+**参考资料：**
 
-广场大屠杀最具标志性的图像，即使在美国境内搜索该词汇也是同样的结果。微软声称这种现象是由于“意外的人为错误”造成的，该公司正在“努力解决这个问题”。
-
-“没有坦克人的搜索结果。”必应网站在搜索该词后显示的一条消息。
-
-“检查你的拼写或尝试不同的关键字。”该网站进一步建议。
-
-“坦克人”指的是1989年中共政权对天安门广场抗议活动进行暴力镇压期间，一名不知名的孤独抗议者提着一个塑料购物袋站在一排中共国坦克前的标志性形象。
-
-拍摄于1989年6月5日的“坦克人”的照片，后来成为反抗暴政的象征。现在对这张照片的审查明显是针对天安门广场大屠杀 32 周年的纪念日所设定的。
-
-这张著名的图片也在雅虎和DuckDuckGo上也受到审查，而两者都使用的必应搜索引擎。同时，该图像在美国的谷歌上并未受到审查。该审查首先在Vice传媒网站的主页上被报告出来。
-
-虽然在中共国早已经审查了涉及坦克人和天安门广场大屠杀的内容。但图像在美国被审查则是一个新的续篇。
-
-谷歌风险分析小组的谢恩·亨特利（Shane Huntley）首先在推特上发布了必应搜索结果的截图，其中坦克人的图像无法现实，并请微软总裁布拉德·史密斯（Brad Smith）做出解释。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/9a2b12b1-6239-4605-8433-a41c912e781a.png?asset_id=89349a07-bfbe-4d3c-a548-5c79f2b31f11&amp;img_etag=%220572408d9bb42565b6e062a98bacb20b%22&amp;size=1024)](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/9a2b12b1-6239-4605-8433-a41c912e781a.png?asset_id=89349a07-bfbe-4d3c-a548-5c79f2b31f11&amp;img_etag=%220572408d9bb42565b6e062a98bacb20b%22&amp;size=1024)
-
-“在英国也一样。”安全研究员凯文·博蒙特（Kevin Beaumont） 发表推文说，他还分享了一张搜索“坦克人”图像失败的截图。
-
-社交媒体用户也表示，他们无法在法国、瑞士等国家的必应上找到坦克人的图片。
-
-微软发言人在一封电子邮件中告诉Vice传媒，审查是“由意外的人为错误造成，我们正在积极努力解决这个问题。”
-
-🔗[原文链接](https://www.breitbart.com/tech/2021/06/04/microsoft-bing-censors-tank-man-images-on-tiananmen-anniversary/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+1. **维基百科**
+2. [Scott Morrison to warn ‘risk of conflict’ with China is growing in major foreign policy speech](https://www.news.com.au/national/politics/scott-morrison-to-warn-risk-of-conflict-with-china-is-growing-in-major-foreign-policy-speech/news-story/a1eea53a3db568848e3206b363335e47)
+3. [So much at stake:  PM’s chilling warning on ‘conflict’ with China](https://au.news.yahoo.com/pms-confronting-warning-on-conflict-with-china-221917431.html)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/BXqNsP5XsvfeD/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
-
-
-
-0
++2

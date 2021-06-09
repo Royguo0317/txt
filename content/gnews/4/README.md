@@ -1,121 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【五月花讯】新中国联邦周年庆典上盟友演讲核心要点
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1310064/)
+## 暗战——透视英国《每日邮报》对周育森的翻炒
+` tongwandou` [轉載自GNews](https://gnews.org/zh-hans/1310000/)
 
-五月花写作组 | 作者：jamie(文胤) | 编辑：文合 | 封面：灭共小宇宙 | 发布：吐纳
+英国《每日邮报（Daily Mail）》2021年6月6日重新翻炒已蹊跷死亡了的中共军方科学家周育森的消息1。周育森是中共军方研发和制造中共病毒的关键人物，曾经跟中共武汉病毒研究所石正丽团队有过密切合作。报道称，周育森在2020年2月24日申请了一份中共病毒疫苗的专利2，随后，在少于三个月的时间内，也就是在2020年5月，神秘死亡。关于周育森的死亡，中共国的媒体中，只有新浪新闻的药学前沿专栏，在10个月之前，也就是在2020年7月，报道过一次3。
 
-**1、史蒂夫·班农先生**
+从《每日邮报》的历史渊源来看，这家成立于1896年的英国保守贵族开办的媒体，在大英帝国殖民侵略和全球殖民扩张统治时期，以及，第二次世界大战德意志第三帝国希特勒纳粹独裁崛起之时，都是支持暴政集团的。那么，这一次，这个媒体站出来，对于已经死去了的中共军方科学家周育森重新炒作，是为了什么？报道中特别提到周育森生前曾经跟美国的某些机构有密切的工作关系，提到了美国明尼苏达大学（University of Minnesota），还提到了美国纽约血液中心（New York Blood Center）。
 
-• 新中国联邦为世界树立了榜样，因为她代表了民主、言论自由、宗教自由等，最根本的是代表一件事情：全面彻底地消灭中国共产党。
+美国《纽约邮报（New York Post）》在2021年6月4日也发表了一篇对周育森的报道。据报道，跟周育森生前曾经有密切关联的美国相关机构是美国匹兹堡大学医学院（The University of Pittsburgh School of Medicine），周育森曾经在那里做过博士后。当然，报道也提到了美国纽约血液中心。从《纽约邮报》这篇报道的舆论导向来看，最终是引向对于与中国共产党和联合国世界卫生组织WHO密切勾结的安东尼·福奇（Anthony Fauci）的问责。而《每日邮报》对于舆论的引导，看来是想导向对于美国川普总统的围剿。《每日邮报》的报道中看似轻描淡写的写了一句话4，看起来很像是想污蔑川普总统，说他早些时间拥抱“实验室泄漏说”。
 
-• 世界的“精英”很紧张，因为中国人民已经受够了被剥夺自由，无法按照自己的意志生活。新中国联邦将为中国人民带来自由。
+班农先生在《战斗室》节目中是指出，黑暗势力的下一步动作是要把中共病毒“实验室泄漏说”的脏水往川普总统身上泼。美国现任总统拜登在2021年5月26日下发了行政令5，要求美国所有的间谍机构包括情报部门90天之内必须出一份调查报告，弄清COVID-19是否是从中共实验室释放出来的。如果说，这份调查报告下结论说中共病毒是从武汉病毒研究所实验室被中共释放出来的，那么，美国会否有人马上跳出来，猛烈攻击川普总统，并污蔑他支持“实验室泄漏说”？
 
-• 中共是非法政府，是跨国犯罪组织。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095042/PHOTO-2021-06-09-11-40-18.jpg)
-**2、比尔‧格茨先生**
+而对于中国，一方面，所有参与过中共军方研制中共病毒武器的科学家会不会都像周育森那样，都像匹兹堡大学医学院（The University of Pittsburgh School of Medicine）刘冰6那样，被灭口、所有相关证据被毁灭？另一方面，黑暗势力的军火供应商在巨额利益驱使下，会不会推动和支持对中国老百姓猛烈、残忍的军事打击？如果这份调查报告说中共病毒是从武汉病毒研究所因为事故泄漏出来的，那么，中共会不会将有可能完全从对全人类犯下的弥天大罪中逃脱出来、苟延残喘？必须跳出盒子以外。
 
-• 犹太人有句谚语：明年相约耶路撒冷；新中国联邦人也有一句：明年相约北京！
+中共党魁习近平2021年5月31日做出了指示7，要加强和改进国际传播工作，要下大气力加强国际传播能力建设，要掌握国际话语权。习近平的话音还带着余热呢，《每日邮报》已经出马开始想要吊打川普总统了。问题是中共到底是那个只会吹牛的、长着眼睛长着嘴巴的小兽角呢？还是那头野兽8？要知道野兽的命运只有一个，在烈火中化为灰烬。
 
-• 中共痴迷于病毒研究，发掘超过两千种新病毒。
+**参考的消息来源：**
 
-• 中共对美国的威胁是严重和广泛的，而我们有传播真相的力量。
+1. *Daily Mail*（英国每日邮报）：[Chinese military scientist filed a patent for a COVID-19 vaccine BEFORE the virus was declared a global pandemic and worked closely with “bat woman” at Wuhan institute](https://www.dailymail.co.uk/news/article-9658235/Chinese-scientist-filed-patent-COVID-vaccine-virus-declared-global-pandemic.html)（中共国军方科学家曾申请了一份关于COVID-19疫苗的专利，这项专利是在中共病毒被公开宣布为全球大流行之前的事情，并且这名科学家跟在武汉病毒研究所的“蝙蝠女”石正丽曾紧密工作在一起）
+2. *Science*（科学）：[Adaptation of SARS-CoV-2 in BALB/c mice for testing vaccine efficacy](https://science.sciencemag.org/content/369/6511/1603)（SARS-CoV-2 病毒疫苗效果在被试的实验用小白鼠身上的适应性）
+3. 中共国新浪新闻药学前沿：[极度缅怀！生命最后一刻仍奋战在科研一线！周育森等人开发出新冠小鼠模型](https://xw.qq.com/cmsid/20200731A0JLA600)
+4. “Perhaps driven by animosity for Donald Trump, who embraced the lab leak theory early on, the mainstream U.S. media and academics heaped scorn on the possibility, calling it an unhinged conspiracy theory.”
+5. *New York Post*（美国纽约邮报）：[Biden orders spy agencies to review whether COVID-19 came from Wuhan lab](https://nypost.com/2021/05/26/biden-orders-90-day-review-of-covid-origins-lab-leak-theory/)（拜登下令间谍机构调查COVID-19是否来自武汉实验室）
+6. *University of Pittsburgh: University Times*（美国匹兹堡大学大学时光）：[Pitt mourns med school research professor Bing Liu, who was found shot to death](https://www.utimes.pitt.edu/news/pitt-mourns-med-school)（匹兹堡悼念医学院研究教授刘冰，他被发现中枪身亡）
+7. 中共国人民网：[提升国际话语权，中国需要这样做](http://www.people.com.cn/n1/2021/0607/c437595-32124020.html)
+8. New American Standard Bible: Daniel 7:11（《新美国标准圣经》丹尼尔书7章11句）: Then I kept looking because of the sound of the boastful words which the horn was speaking; I kept looking until the beast was slain, and its body was destroyed and given to the burning fire.（而后，我继续观看，因为小兽角口中说出的吹嘘诳语在耳边嗡嗡作响；我继续观看，直到那兽被杀掉，身躯被毁灭，并被扔进炙热的烈火之中。）
 
-• 美国国防情报三星将军曾认为中共不是威胁，理由是中共是这么告诉他的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095114/PHOTO-2021-06-09-11-40-20-3.jpg)
-**3、劳伦斯·塞林博士 **
 
-• 我们一同揭露中共生物战计划，查明在美国为中共邪恶计划出力的人。
-
-• 年轻的中国人提供了很大帮助，他们代表着自由和成功的未来中国。
-
-• CCP病毒是故意释放的，计划分为三个层级。
-
-• 二战时，中美士兵并肩作战，取得了胜利。如今，我们是并肩战斗的队友，将共同站在自由之中国。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095228/PHOTO-2021-06-09-11-40-20.jpg)
-**4、迈克尔·弗林将军**
-
-• 美国正处历史的重大变革，只要我一息尚存，就绝不允许美国变成共产主义国家。
-
-• 美国宪法中承诺的原则和价值是人民赖以生存的基础。
-
-• 我愿成为新中国联邦的盟友。
-
-• 若不承担风险，人将庸碌地度过一生。
-
-• 你们需要挺身而出，建立纽带，凝聚大家，成就美丽的新中国联邦。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095309/PHOTO-2021-06-09-11-40-20-1.jpg)
-**5、娜塔莉‧温特斯女士**
-
-• 中共已控制了美国的文化生产，主流媒体，完全拥有美国。
-
-• 美国记者参加中共统战部组织的活动，回美国前被要求报道有利于中共的内容。
-
-• 美国媒体报道的不是真相和事实，而是中共制造的导向舆论。
-
-• 中共希望看到美国垮掉，而我们要把中共踢出美国社会。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095336/PHOTO-2021-06-09-11-40-20-2.jpg)
-**6、迈克‧林德尔先生**
-
-• 中共不仅对美国，更对世界所有爱好和平的人民发动了战争。
-
-• 至少7个国家的目光聚集到美国，这是中共史无前例的全方位出击。
-
-• 我们逮到了中共，掌握了投票机作弊的证据，这将改变历史的进程。
-
-• 证据提交到高院，绝对将会是9比0的投票结果。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095410/PHOTO-2021-06-09-11-40-21.jpg)
-**7、拉希姆·卡萨姆先生**
-
-• 在座的你们是英雄，你们将解放中共国，你们还将从中共的魔抓中解放世界。
-
-• 川普总统向中共提出10万亿美元的赔偿，中共不仅已道德破产，更应该经济破产。
-
-• CCP才是歧视亚裔的罪魁祸首，它反对渴望自由的人民。
-
-• 真想阻止亚裔歧视，盯着共产党这个恶魔吧！
-
-• 中共深耕于媒体、政坛、学术机构，我们永远不会停止揭露他们。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095438/PHOTO-2021-06-09-11-40-21-2.jpg)
-**8、鲁迪·朱利安尼先生**
-
-• 我并不愿来到这个特殊的地方，因为会带来太多的回忆。
-
-• 如果不能正确地识别你的敌人是谁，你就不能打败他们。
-
-• 我们必须抛弃编造出的幻想，认为可以和中共合作，我们需要大声说出“中国共产党”。
-
-• 武汉的蝙蝠都在实验室，而中共则编织了强大的涉及美国人的网络，用于掩盖真相。
-
-• 我们必须站出来，告诉中共，去地狱吧，那里才是你的归宿！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095516/PHOTO-2021-06-09-11-40-21-3.jpg)
-**9、皮特·纳瓦罗先生**
-
-• 赞扬两人：郭先生——感谢他为中国人做的一切；班农先生——帮助川普总统竞选，与郭先生一道灭共。
-
-• 谴责两人：XI经病——隐瞒疫情，故意传播至世界；福奇——手上沾满了中国人和世界人民的血。
-
-• 郭先生是火花，启动了新中国联邦燎原之火；XI经病制造大流行病，启动了中共灭亡的火花。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095540/PHOTO-2021-06-09-11-40-21-1.jpg)
-**10、杰克·波索别克先生**
-
-• 美国人民理应得知2020病毒的真相；中国人民理应得知8964天安门的真相。
-
-• 中共向世界撒谎，世界人民需要答案。
-
-• 中国人民，美国人民，世界人民不是用来出售的。
-
-• 自由万岁！自由万岁！自由万岁！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095601/PHOTO-2021-06-09-11-40-22.jpg)
-（图片来源：现场战友拍摄、GTV视频截图）
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
-
-+1
+0

@@ -1,52 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 过去的两个月中共国“报复社会”事件暴增！80万私营企业倒闭！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1310065/)
+## 【字幕】6/9/2021文贵盖特：美军航空母舰靠港台湾，太平洋部队在台湾部署反导导弹
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/1310171/)
 
-**摘要：在2021年6月6日的盖特中，郭先生说仅仅过去两个月，中共国发生7万起恶性“报复社会”事件，人民已经无路可走；中共银行的庞氏骗局已经玩不下去；80万私营企业倒闭！**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09093624/Miles_2021-06-06-getter.srt.txt)
-**过去的两个月中共国****“****报复社会****”****事件暴增！****80****万私营企业倒闭！**
+制作： 【彩虹桥】
 
-**The Surge of Violent Crimes and Bankruptcies of Private Companies in China**
+尊敬的战友们好！6月9号，6月9号…我赶快还要发一个盖特，因为太多战友不发盖特觉得不舒服，七哥还是发一下吧，马上我时间不多.
 
-同时现在，中共国的现在经济到什么程度大家都知道啊。
+兄弟姐妹们，关于南京、复旦大学出事儿，很多战友给我发信息，包括现在的福奇，还有各院校，欧洲，兄弟姐妹们，你们记得头一段时间，关于欧中协议结束以后告诉大家，大家没明白。欧中协议对老共的打击有多大，大家去想想，欧中协议，几乎是共产党抗衡美国最后的一个希望，欧中协议的结束，对他们影响太大了，我毫不夸张的说，没有我们欧洲协议绝对结束不了，以后的故事多了。很多人可能说我们吹牛..那我就吹牛..我吹公牛，啥牛都吹，中不中？
 
-Do you know how seriously Communist China’s economy has deteriorated?
+战友们记住欧中协议是关键，关于这些院校的问题，大家知道和欧中协议什么关系吗？过去的这30年共产党培养的人才，最多的美国和欧洲，欧中协议的结束就是欧中的对抗。欧中的对抗是中国共产党对欧洲的威胁、制裁、打击，对官员的收买、蓝金黄，包括要输送共产主义，欧洲人已经觉醒了，就像我展示给德国政府看的，我说只要你签欧中协议，你记住，他一定要求你做本地互换，也就是拿人民币互换，人民币就是冥币，而且特别的要求一些技术上，特别是德国人看好的所谓的华为5G上，一定不会答应你的要求，而且他要把数据中心和技术留在中国，怎么样？最后他们发现了这个秘密，对吧？
 
-仅仅，仅仅过去2个月，在全国各地所谓的他们定义的恶性的所谓报复社会[事件]。事实上是逼得人[已经是]不是“上梁山”了，梁山都没了，是逼得人不能当人了，不能干人事了。
+那么现在关于学校的事情，战友们知道吗？这么强大的美国3.5亿人口，它有多少学校知道吗？官方4600个学校，事实上美国多少个知道吗？7000多大学，中共国14亿人口也好，11亿人口也好，要领导全世界的人的中华人民共和国四个骄傲，要领导全球的，有多少学校知道吗？战友们？官方称2100个，事实上多少个大学？能和标准的1000个都不到。这1000个有多少个学校是共产党领导的吗？大概是970个是100%共产党领导的。
 
-In the past two months, 70,000 cases of what the CCP defines as “vicious retaliation against society” have taken place across the country. Actually, these cases are occurring because these people have been driven beyond the point of survival. (The Chinese ancient novel “Outlaws of the Marsh” told the story of what occurred on “Mount Liang”.) Now that “Mount Liang” is gone, people who cannot survive are forced to commit violence.
+一个国家的政府就干三件事儿就行了，建立好法制政治制度，独立的法治制度，让老百姓能通过法律，基本公平的保护人身安全和财产安全，基本公平，政治上当然是民主政治，一人一票，要轮换，不轮换一定是坐庄，一直坐庄你肯定赢吗？对不对呀？你肯定腐败吗？第二条，建好一个国家的媒体和教育体制，你教育什么就出什么人嘛，就出什么社会嘛，媒体就是告诉大家一个什么是真相吗？教育和媒体是公平的，媒体既可以监督法制、监督政治，同时也可以输送很好地教育国际的各种真实信息，教育同时可以给媒体输送信息，媒体监督政治和法制，对吧？第三样，把国家安全、社会安全维护好，就这么点鸟事儿，那共产党是什么？把国防当成他们家的保安，社会安全，他想打谁就打谁，你不能动他，教育的问题，百分之百垄断，只能说假话不能说真话。媒体全是他家的，他偷鸡摸狗搞双休，啥也不能说，法律他家说了算，他说对就对，他说错就错，政治上他一直做到老，这个国家会有未来吗？
 
-我们反对暴力。但人但凡有点儿选择也不会走上它们说的报复社会的路。是那些共产党的走狗们欺压百姓没有活路了，只有一个选择了。达多少起呢？7万起！7万起血腥暴力社会事件。
+复旦大学的事件，是一个剽窃人家老师的一个论文，还要打压人家，剽窃者当了校长，这和中国的国情何其相似啊。一个剽窃了偷盗了中国人民国家权利的政府，在告诉中国人民要听它的，一切都是党的，一切都听党的，爹亲娘亲不如党亲，老婆、闺女、儿子都要送给党来培养，那是你的荣幸，那叫入党，那叫升官，这不一样的道理吗？而且共产党还要奴隶整个偷盗了中国人民权利的人民，还把他当奴隶，就这样的国家政权在过去这些年，天天到全世界去，要给全世界治理开药方，要给全世界人民开药方，要给全世界人民指导方向，什么流氓逻辑呀？然后到欧洲去指导方向，弄得蒙古人，是吧？不让说蒙古话，连内蒙古都不放过，蒙古话都不让他说，害怕到这种程度，你能有什么样的教育？你能有什么样的社会公平？你能有什么样的法治？所以欧中协议它必须结束。
 
-We are against violence, but we must understand that nobody would do such a thing if they had a choice. They do not want to take revenge on society. CCP, the organized crime organization, and its gangsters oppress people and make more and more Lao Bai Xing (ordinary people) unable to survive. These people have no other choice, and 70,000 bloody and violent incidents occurred as a result.
+美中必须脱钩，就那个绿帽子王，王岐山的女情人，是不是？前老公号称绿头将军，不是说要打台湾吗？你打呀？你咋不打了？美军军机大大方方的落到了台北机场，你咋不打呀？而且美军马上航空母舰就要靠台湾，而且美军太平洋部队要在台湾部署反导导弹，反导导弹，记住我说的话，美军要在台湾部署反导导弹，包括在台海中间长期部署巡洋舰，把台湾包含进去亚洲，在日本、韩国要部署的GMD，NMD的反导系统，你咋的？绿帽子王？
 
-说这是1982年到83年期间，整个当时所谓的“严打”，邓小平以“严打”为名，所谓蒙古有强奸女学生的案子[为由展开]严打，杀了几万人。连弄颗白菜都要给弄死，那我是很清楚的。现在说加在一起，把当年1982～1983年所有案件累积在一起还不只2个月的[总]和呢。
+所以咱们中国的小粉红，还有小绿红，咱都不管，同胞们睁开双眼吧，纽约中央公园是在雨水维护下，成长的世界真实的公园，东京公园，伦敦公园，奥林匹克村是什么？奥林匹克村是用垃圾堆，用化肥，完全不健康成长的，你即使看到了奥林匹克公园，那都是假的，这样长出的树是不健康的，对人是无益的，就像中国的政权一样，他给人民带来了假政权、暴力政权、抢夺的的政权、偷盗的政权，他永远不会给人民带来未来，乖乖..飞龙在天啊，龙都来了，是不是？，共产党的龙是苍蝇，我们的龙才是中国人民的意志。
 
-Between 1982 and 1983, Deng Xiaoping gave orders to implement a severe crackdown on criminal activities, citing the rape of young girls in Mongolia. And it led to the executions of tens of thousands of people. Some even got executed for minor misdemeanors such as stealing a cabbage. I know very well what happened then. The total number of cases between 1982 and 1983 is not as many as that in the last two months.
+所以说兄弟姐妹们，大家想想，七哥告诉你们这些真相，当初你们听说的时候一闪而过，就像我说川普总统会让中国罚10万亿美元，我说太不够意思了，太少了，一星期以后出来了，你们还大惊小怪的，我再告诉大家，七哥说的话，都是轻易的不会随便说的，有大智慧的人，都是举重若轻，小聪明的人，掰开了揉碎的所谓的都是趴在肛门上找屎吃，在肛门里找世界，那些起欺民贼那些伪类们，蒙瞪眼瞎胡说，是吧？共产党过去的杀富济贫,到了今天的老百姓没有选择的只有躺平、杀盗、杀偷、杀独裁、杀骗的一个暴力的轮回的社会，这一刻到来了，我们不鼓励暴力，但是我们没有能力停止暴力。
 
-共产党很恐惧，如果7万变成70万的时候，这个社会就就不是什么报复社会了，就是社会受到了极权压迫[的表现]，到700万的时候共产党完蛋了。就这么简单。
+中共国一定是水生火海，一定是像我们当时庆丰看守所的我那位兄弟一样，人民会像干柴一样，被我们的民族、法制、新中国联邦的希望所点燃，共产党的这些独裁，这些作恶者，一定会被这熊熊的烈火燃烧而死，天安门的英雄们的血不会白流，中国人民不会再当猪狗，大事还在后面呢，走着看！再过几周你们就明白了。
 
-The CCP must be scared. If 70,000 cases grow to 700,000, it will not be an act of revenge against society. It will be a reaction to totalitarian oppression. If it expands to 7 million cases, the CCP will be finished. It is that simple.
-
-然后银行、金融，就国内各方面咱们战友报信息，国内的银行过去是「玩」“还旧贷新”这个骗局，共产党自己的庞氏骗局，银行实际上45%到50%都成烂账了。这个“还旧贷新”的周转在过去的2到3个月里边，将近50%左右基本上都延续不下去了。就这么可怕！国内大概80万的私人企业全部倒闭，倒闭80万，80万！
-
-Our fellow fighters also told me about banks, finance, and various aspects of mainland China. The banks in mainland China get used to playing tricks, and cover defaulted loans with new loans. This is the CCP’s own Ponzi game. In fact, 45% to 50% of the bank loans are already in default and cannot be repaid. The banks cannot continue playing the loan-pyramid scheme in almost 50% of the loan cases in the last 2 to 3 months. How bad it is. Around 800,000 private companies claimed bankruptcy in mainland China. It was 800,000 private companies!
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60bce283c04fd544b46a8ecf](https://gtv.org/getter/60bce283c04fd544b46a8ecf) (4:04-6:08)
-鸣谢：[1] 感谢Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1303061/](https://gnews.org/zh-hans/1303061/)
-[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于[https://gnews.org/1306798/](https://gnews.org/1306798/)
-
-* * *
-
-字幕：【XO小粉红】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
+0
