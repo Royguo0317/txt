@@ -1,52 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 过去的两个月中共国“报复社会”事件暴增！80万私营企业倒闭！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1310065/)
+## 《路德社》主題專欄：美國國家衛生研究所（NIH）資助的中共軍事科學家在申請新型冠狀病毒疫苗專利後離奇死亡
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1310179/)
 
-**摘要：在2021年6月6日的盖特中，郭先生说仅仅过去两个月，中共国发生7万起恶性“报复社会”事件，人民已经无路可走；中共银行的庞氏骗局已经玩不下去；80万私营企业倒闭！**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09093624/Miles_2021-06-06-getter.srt.txt)
-**过去的两个月中共国****“****报复社会****”****事件暴增！****80****万私营企业倒闭！**
+《路德社》主題專欄組出品
 
-**The Surge of Violent Crimes and Bankruptcies of Private Companies in China**
+隨著我們進一步瞭解中共的 “蝙蝠實驗室 “到底發生了什麼，我們現在把注意力轉向了一個叫周育森的人，他是一名專門研究冠狀病毒的中共軍事科學家，並且與武漢病毒研究所的 “蝙蝠女 “石正麗合作。根據《週末澳大利亞人》記者SharriMarkson獲得的檔揭露：在這項合作中，至少有一個對冠狀病毒進行基因操作的專案得到了美國國立衛生研究院（NIH）的三項資金資助，資助通過美國大學完成，而福奇（Anthony Fauci）正是NIH的院長。這項此前未披露的資助與授予生態健康聯盟的數百萬贈款是分開的，後者也與WIV（武漢病毒研究所）進行了合作。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095745/image001-18.png)
+披露的資訊顯示，美國的資金正在資助中共解放軍科學家對冠狀病毒的風險研究–包括偽裝的軍事科學家周育森和武漢病毒研究所的 “蝙蝠女 “石正麗。
 
-同时现在，中共国的现在经济到什么程度大家都知道啊。
+現在我們得知，在2020年2月申請COVID-19疫苗專利的三個月後。54歲的周育森已經去世.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095816/image003-9.png)
+報導稱，儘管周育森是中共解放軍北京微生物和流行病學研究所感染和免疫實驗室的獲獎科學家，但他在2020年5月的死亡基本上沒有受到關注。”沒有任何對他去世哀悼的報導。他的死亡只是在7月的中共媒體報導中和12月的一篇科學論文的結尾處被順便提及。兩者都在他的名字後面的括弧裡注明了 “已故 “一詞。
 
-Do you know how seriously Communist China’s economy has deteriorated?
+周的死亡很可疑（或者他可能只是死於COVID 19）。在美國政府資助他與武漢病毒研究所的消息被揭露後可能提供了一條線索，即為什麼美國的官員Dr. Fauci（福奇博士）和他的走狗Peter Daszak（彼得·達紮克）在《柳葉刀》上寫了一封 “自然起源或你是個瘋子 “的文章之後，得到了 “科學界 “的支持—-這明顯是兜售中共的 “自然起源 “理論，而任何關於病毒可能是在獲得NIH資金的實驗室中產生或洩露的說法都被嚴格禁止了。
 
-仅仅，仅仅过去2个月，在全国各地所谓的他们定义的恶性的所谓报复社会[事件]。事实上是逼得人[已经是]不是“上梁山”了，梁山都没了，是逼得人不能当人了，不能干人事了。
+本周根據Buzzfeed的資訊自由請求發佈的電子郵件顯示，在該大流行病的早期，福奇博士(Fauci)擔心美國的資金已經用於中共的病毒功能增強性研究。在其他電子郵件中，科學家們寫信給博士福奇（Fauci），表達了初步觀點，即SARS-CoV-2的基因組似乎 “與進化理論的預期不一致”，而且它的一些特徵 “可能看起來是經過設計的”。簡而言之，”利益衝突 “不能作為在下次福奇（Fauci）遮掩搪塞的藉口。國家安全人士說，周育森和石正麗之間的聯繫支持了美國情報部門關於武漢病毒研究所從事 “秘密軍事活動 “的說法。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095849/image005-9.png)
+如果我們考慮時間線及其可能的影響，周在2020年2月24日提交COVID-19疫苗的專利申請三個月後死亡。雖然這可能意味著他在2019年12月該病毒眾人皆知之前就在研究COVID-19疫苗，但請記住，就在中共官員于2020年1月11日發佈COVID-19疫苗的基因序列後僅兩天，Moderna公司就能設計出他們的疫苗序列–兩個月後申請了他們的第一個相關專利。
 
-In the past two months, 70,000 cases of what the CCP defines as “vicious retaliation against society” have taken place across the country. Actually, these cases are occurring because these people have been driven beyond the point of survival. (The Chinese ancient novel “Outlaws of the Marsh” told the story of what occurred on “Mount Liang”.) Now that “Mount Liang” is gone, people who cannot survive are forced to commit violence.
+還要注意的是，至少從2006年開始，為了應對最初的SARS疫情，周一直在研究冠狀病毒疫苗並撰寫了一項研究，其中發現 “含有受體結合功能域的SARS-CoV S蛋白疫苗可能產生出足夠的中和抗體和長期保護性免疫力，以應對已建立的小鼠模型的SARS-CoV挑戰。”
 
-我们反对暴力。但人但凡有点儿选择也不会走上它们说的报复社会的路。是那些共产党的走狗们欺压百姓没有活路了，只有一个选择了。达多少起呢？7万起！7万起血腥暴力社会事件。
+因此，假設一個專家從知道病毒的基因組序列到申請專利大約需要兩個月的時間，這意味著中共在1月11日公開發佈基因組序列之前保留了一個月發佈，也意味著周可能有比這更多的研究時間來佔領“先機”。
 
-We are against violence, but we must understand that nobody would do such a thing if they had a choice. They do not want to take revenge on society. CCP, the organized crime organization, and its gangsters oppress people and make more and more Lao Bai Xing (ordinary people) unable to survive. These people have no other choice, and 70,000 bloody and violent incidents occurred as a result.
+“弗林德斯大學的Nikolai Petrovsky說：”這是我們以前從未見過的成就，引發了這項工作是否更早開始的問題。
 
-说这是1982年到83年期间，整个当时所谓的“严打”，邓小平以“严打”为名，所谓蒙古有强奸女学生的案子[为由展开]严打，杀了几万人。连弄颗白菜都要给弄死，那我是很清楚的。现在说加在一起，把当年1982～1983年所有案件累积在一起还不只2个月的[总]和呢。
+雖然我們可能永遠不會知道周在這發生中的一切的全部作用，但他和 “蝙蝠女 “石正麗在大流行之前就開始研究COVID疫苗。 根據《週末澳大利亞人報》：就在病毒大流行之前，周育森和其他三位來自解放軍北京微生物和流行病學研究所的科學家–Yuehong Chen, Lei He and Shishui Sun–與兩位元武漢病毒研究所的科學家—Dr Shi and Jing Chen以及現在在美國明尼蘇達大學和紐約血液中心Lindsley Kimball研究所的八位中共科學家合作。他們的論文題為《抗體依賴性增強冠狀病毒進入的分子機制》，於2019年11月27日提交給《病毒學雜誌》，並於2020年2月14日發表。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095924/image007-9.png)
+他們論文的一些積極的成果：”綜合來看，我們的結果顯示，特定的受體結合功能區的中和單源抗體與冠狀病毒突觸上的相同區域結合，像病毒受體一樣引發突觸的結構變化，並通過與病毒受體依賴的病毒進入相同的途徑介導抗體增強性依賴。”
 
-Between 1982 and 1983, Deng Xiaoping gave orders to implement a severe crackdown on criminal activities, citing the rape of young girls in Mongolia. And it led to the executions of tens of thousands of people. Some even got executed for minor misdemeanors such as stealing a cabbage. I know very well what happened then. The total number of cases between 1982 and 1983 is not as many as that in the last two months.
+他們發現這種 “抗體增強病毒進入的新型分子機制 “可以 “指導未來的疫苗接種和抗病毒計畫”。
 
-共产党很恐惧，如果7万变成70万的时候，这个社会就就不是什么报复社会了，就是社会受到了极权压迫[的表现]，到700万的时候共产党完蛋了。就这么简单。
+這項研究是在 “體外 “進行的，意思是在培養皿或試管中，使用人的腎臟和肺部細胞。他們的最後一段指出，未來論文的下一步將是用人源化小鼠或靈長類動物進行 “體內 “實驗。18個月後，即今年4月，發表在《自然評論免疫學》上的一篇論文將發現，”中和單克隆抗體 “可以幫助治療Covid-19。
 
-The CCP must be scared. If 70,000 cases grow to 700,000, it will not be an act of revenge against society. It will be a reaction to totalitarian oppression. If it expands to 7 million cases, the CCP will be finished. It is that simple.
+同時，周的專利申請指出。”本發明涉及生物醫學領域，並涉及一種Covid-19疫苗、製備方法和應用。本發明提供的融合蛋白可用于開發Covid-19蛋白疫苗和預防或治療Covid-19的藥物。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095956/image009-9.png)
+那麼我們現在知道了什麼？
 
-然后银行、金融，就国内各方面咱们战友报信息，国内的银行过去是「玩」“还旧贷新”这个骗局，共产党自己的庞氏骗局，银行实际上45%到50%都成烂账了。这个“还旧贷新”的周转在过去的2到3个月里边，将近50%左右基本上都延续不下去了。就这么可怕！国内大概80万的私人企业全部倒闭，倒闭80万，80万！
+中共的軍隊實際上參與了武漢實驗室。這不僅僅是一個民事行動。順便說一下，這一點在過去一年中被某些人士反復否認。
 
-Our fellow fighters also told me about banks, finance, and various aspects of mainland China. The banks in mainland China get used to playing tricks, and cover defaulted loans with new loans. This is the CCP’s own Ponzi game. In fact, 45% to 50% of the bank loans are already in default and cannot be repaid. The banks cannot continue playing the loan-pyramid scheme in almost 50% of the loan cases in the last 2 to 3 months. How bad it is. Around 800,000 private companies claimed bankruptcy in mainland China. It was 800,000 private companies!
+該實驗室的科學家不僅知道病毒的基因測序，而且在病毒大流行公開之前就已經有了所謂疫苗的專利。申請專利和弄清它們是需要時間的，而且是相當多的時間，不是幾周或幾個月。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60bce283c04fd544b46a8ecf](https://gtv.org/getter/60bce283c04fd544b46a8ecf) (4:04-6:08)
-鸣谢：[1] 感谢Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1303061/](https://gnews.org/zh-hans/1303061/)
-[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于[https://gnews.org/1306798/](https://gnews.org/1306798/)
+證明專利材料也需要時間，要為某些東西申請專利，你必須能夠證明它的正確性，你不能僅僅有了想法就去申請專利。你必須證明疫苗專利的免疫原性，而免疫原性不是瞬間就有的，需要幾周甚至幾個月的時間通過對動物和人類的原始科學研究來證明，這意味著周在2月24日之前就能夠申請專利，時間可能是在幾個月甚至更久之前。也意味著他們甚至在病毒發生前就在研究這個問題，因為要研究疫苗，必須有研究疫苗的必要。這反過來說明他們很清楚在病毒爆發之前野外就有一種厲害病毒，或者他們故意將其釋放或打算釋放到野外。因為沒有人能夠為你自己設想的病毒創造疫苗，那是毫無價值的。
 
-* * *
+這說明要麼病毒在2020年2月之前已經 “出來 “很久了（不是一兩個月），要麼中共打算在2019年秋天釋放它。無論哪種情況，現在都有大量證據表明，這不是一個在12月下旬的某一天 “神奇地出現 “的病毒，也不是來自蝙蝠，穿山甲。
 
-字幕：【XO小粉红】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-+1
+
+[原文鏈結](https://www.zerohedge.com/political/fauci-funded-wuhan-military-scientist-filed-covid-vaccine-patent-days-after-pandemic)
+
+本文作者：林林虎
+
+審核校對：魯邦五世
+
+上傳排版：糊糊文嬰
+
+0

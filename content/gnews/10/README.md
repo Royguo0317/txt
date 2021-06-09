@@ -1,57 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 喀秋莎新闻参考 &#8211; 2021年6月8日(星期二)
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1310442/)
+## 【圣城传声筒】蓬佩奥先生关于 香港六四纪念的演讲——原文及翻译
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1310296/)
 
-俄罗斯莫斯科喀秋莎农场 土星
+整理/翻译：纽约香草山香港部 MAYA
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01121633/ka.png)
-**一、新中国联邦新闻**
 
-1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=PzZxC1WuivQ)、[晚间](https://www.youtube.com/watch?v=-ok59M9DXhw)）:
 
-Ⅰ. 6月8日，美国参议院以68票支持对32票反对通过了一项旨在提高美国与中共国技术竞争能力的全面立法，旨在与中共在科技领域展开对抗。2021《美国创新与竞争法》（USICA）原名《无尽疆域法》，旨在帮助美国与中共在关键领域竞争，该法案覆盖美中竞争的多个领域以及应对全球芯片短缺问题。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
-Ⅱ. WHO顾问梅茨接受福克斯电视台采访时说，他们面临的问题不是WHO，甚至不是福奇，而是中共。中共至今掩盖了大量的事实，包括销毁样本，隐藏纪录，对全世界范围内的中共科学家下达禁令，监禁问问题的中共国记者。
 
-Ⅲ. 塞林（Sellin）上校发推说，闫丽梦博士的丈夫今年3月偷偷进入美国。
+字幕制作：纽约香草山香港部 彩虹桥
+演讲原文：
 
-2. 国防威胁减少局（DTRA）是五角大楼负责打击包括生物武器在内的大规模杀伤性武器扩散的子机构，它向生态健康联盟提供了3750万美元，该公司向武汉病毒研究所（WIV）提供了资金，该中共国病毒学实验室被怀疑泄漏了中共病毒。
+32 years ago, a tragedy occurred in Tiananmen Square, a massacre perpetrated by the Chinese Communist Party against its own people shot the world’s consciences. And it highlighted the contrast between the freedom-loving Chinese people and the tyranny of Beijing.
 
-3. 在6月8日播出的福克斯新闻频道的“美国新闻室”节目中，参议员汤姆·科顿认为，美国现在应该开始为中共病毒大流行惩罚中共国，并建议取消中共国的永久最惠国待遇，剥夺中共从国际金融机构获得的融资优惠条件，并取消中共党员及其子女的签证，使他们不能在美国学校教育孩子。
+For the next 30 years, the only place, the only place of all of China’s sovereign domain, where free people can commemorate the martyrs of Tiananmen, was Hong Kong. Every year, on the June 4th anniversary, the people of Hong Kong out of their lives lost in Tiananmen, You’ve cherished the freedoms that are the birthright of every human being, and which were brutally denied to your countrymen. You were able to mark this anniversary because of the high degree of autonomy that Hong Kong enjoyed. The city was the best city of liberty and a light to us all.
 
-4. 众议院领袖凯文·麦卡锡透露，他正在考虑各种提案，如果有亲人死于中共病毒，将允许美国人起诉中共的非正常死亡，或者如果他们的企业因疫情而遭受损失，允许他们起诉中共。
+Yet now, now the same regime that committed the massacre in Tiananmen Square has broken its promises to Hong Kong: the fundamental freedoms and autonomy that Beijing was promised to guarantee to you, it took away from you. For the first time, commemorating the Tiananmen massacre is illegal here. It’s punishable by a new security law — the national security law. This is a dark reminder that the regime in Beijing still refuses to respect the rights of its own people. And it’s also a reminder of why we are all gathering here tonight. We do so virtually, but we do so defiantly and proudly, and we continue a glorious tradition of commemorating the heroes of Tiananmen.
 
-5. 世界维吾尔代表大会在伦敦组织的一个名为“维吾尔法庭”的小组6月7日得出结论：中共政府对中共国西部新疆地区的维吾尔人实施了“强制绝育”、“强制避孕”和“酷刑”。
+I’m especially honored to be here now. As America’s 70th Secretary of State, when Hong Kong’s freedom was being taken away, I was aware of the courageous work of Hongkongers. You fight, you fight to preserve your dignity and your autonomy. You fight for the freedoms owed every man, woman, and child made in the image of God. The Communist Party may imprison heroes like freedom-loving Jimmy Lai, Martin Lee, and others. But you, you show that the flame of freedom in Hong Kong remains a beacon.
 
-6. 众议院军事委员会、外交委员会和情报委员会的最高共和党人正在敦促拜登总统制定一项“全面的机构间战略”，以阻止中共国的核建设，同时警告说，在这个问题上缺乏行动可能导致中共国在2030年达到与美国“一定程度的核平等”。
+May God bless Hong Kong.
 
-7. 参议员汤姆·科顿6月8日表示，去年媒体对中共病毒实验室泄漏理论的广泛否定，部分原因是自由派网络与中共政府的经济联系。
+演讲译文：
 
-8. 日本和澳大利亚6月9日在双边会谈中首次肯定了台湾海峡两岸和平与稳定的重要性，同时同意在面临中共在区域水域日益强硬的情况下深化安全合作。
+32年前，天安门广场发生了一场悲剧：中国共产党对中国人民进行了泯灭人性的大屠杀，它突显出热爱自由的中国人和北京（中共）暴政之间的鲜明对比。
 
-9. 据缅甸国家广播公司MRTV报道，中共外交部长王毅6月8日在重庆的一次会议上告诉缅甸外长Wunna Maung Lwin，北京将继续在这个东南亚国家实施双边项目。
+在接下来的30年里，香港是唯一一个——唯一一个位于中（共）国主权领土上——人们可以自由地纪念天安门烈士的地方。每年在六四周年之际，香港人民都会悼念天安门事件中的死难者。你们珍惜自由，但你们的同胞们却被残忍地剥夺了这与生俱来的权利。你们之所以能够纪念这个日子，是因为香港享有高度的自治。这座城市乃是我们所有人的自由和光明之源。
 
-10. 国务卿安东尼·布林肯6月8日告诉参议院外交关系委员会，拜登政府的外交政策议程的目标是在全球经济中超越竞争对手中共国，并重振世界范围的“联盟和伙伴关系”。
+然而现在，在天安门广场犯下大屠杀的那个政权已经违背了它对香港的承诺。北京（中共）曾向你们承诺，会保证香港基本的自由与自治，现在这些却被它夺走了。在这里，哀悼天安门大屠杀第一次被视为非法行为，并且会在新的国安法下受到惩罚。这提醒了我们，北京（中共）政权仍然拒绝尊重自己人民的权利；也提醒了我们，为什么今晚要相聚在这里。我们通过视频，自豪而大胆地继续着我们纪念天安门英雄们的这一光荣传统。
 
-11. 美国总统拜登接近于发布一项新的行政命令，已应对中共国拥有的微信和TikTok等应用程序的个人数据收集。
+我非常荣幸能够来到这里。作为美国第70任国务卿，当香港的自由被剥夺时，我了解香港人的奋勇抗争。你们在抗争！你们是为维护自己的尊严和自治权而战；你们为每一个男人，女人和孩子应得的自由而战，这些自由都是上天所赋予的。共产党监禁了像黎智英、李柱铭等热爱自由的英雄们，但你们向我们展示了，香港仍是一座自由的灯塔。
 
-12. 日本和澳大利亚6月9日对有关中共国西部的新疆地区的维吾尔族和其他穆斯林少数民族的人权受到侵犯的报道表示“严重关切”。
+愿上帝保佑香港！
 
-13. 印度奥林匹克协会（IOA）6月8日决定放弃中共国体育用品品牌李宁作为奥运会官方装备赞助商，宣布印度运动员在东京奥运会期间将穿着无品牌的服装。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115247/M6.jpg)
 
-14. 欧盟和美国将在下周宣布一项围绕技术和贸易的广泛伙伴关系，以试图反击中共国并促进民主价值观。
+视频字幕制作：纽约香草山香港部 彩虹桥
 
-**二、世界新闻**
+校对/发稿：Irene木木
 
-1. 乔·拜登6月9日早些时候离开华盛顿，开始其总统任期内的首次外国之行，在与俄罗斯的弗拉基米尔·普京进行紧张的面对面会谈之前，与七国集团、欧洲和北约伙伴展开一系列紧张的峰会。
+**更多资讯，更多关注**
 
-2. 代表反社会主义卫生工作者的非政府组织委内瑞拉联合医生组织6月7日指责社会主义政权捏造其中共病毒的统计数据，截至记者发稿时，这些数据仍然令人怀疑地低于其邻国的数据。
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-3. Apple 最近在其全球开发者大会 (WWDC) 上宣布推出其新的 iCloud+ 服务。一项名为“私人中继”的功能允许用户像虚拟专用网络一样屏蔽他们的浏览活动和身份，但由于中共国有关 VPN 的法律，该功能不会在中共国提供。
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-4. 美国海军与波音公司合作，首次使用无人驾驶飞机成功进行了空中加油。该军种6月7日表示，这一史无前例的MQ-25项目成果于6月4日在伊利诺伊州马斯科塔的中美洲机场获得成功。
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+
+
 
 0

@@ -1,53 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报—金融篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1310327/)
+## ［疫情下的西班牙］从西班牙国家足球队疫情爆发看西班牙疫情真实情况
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1310527/)
 
-- 作者：此生灭共
+- 翻译：gokuabuela
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+***更多真相，请关注***[***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
 **西班牙2021年6月9日电/西喜社——**
 
-您若想了解全文报导内容，请点击标题链接
+继西班牙国家足球队著名球星布斯克斯被检测新冠病毒阳性后，另一位著名球星略伦特也被证实阳性，而且队内还存在着第三位可能的阳性患者，结果将在稍后确认。[www.elconfidencial.com](https://www.elconfidencial.com/deportes/2021-06-09/diego-llorente-positivo-covid-contagio-coronavirus_3122551/)
 
-**1.[中国外汇逆回购中神秘的850亿美元激增](https://www.zerohedge.com/markets/mysterious-85-billion-surge-chinas-fx-reverse-repo)**
+在下周一西班牙和瑞典的比赛中，至少有4名球员不能上场。在西班牙方面，除了略伦特之外，仍被禁闭在巴塞罗那的塞尔吉奥-布斯克茨也将缺席。瑞典方面则缺少另外两名球员，他们是在尤文图斯踢球的库鲁塞夫斯基和博洛尼亚中场 — 斯万伯格。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09114737/unknown-1-3.png)
+在前段时间的摩洛哥移民大批涌进西班牙城市休达的难民潮中，近2000名未成年人滞留在休达。根据西班牙法律，不能遣返未成年人，因此他们将被西班牙家庭收养，在对他们的检测中，超过8%，即超过150人，被证实感染有中共病毒。这个比例，可以看出，在摩洛哥，大多数感染者并没有被计入官方统计数据。作为邻国，又有多少人和西班牙人有关来往呢？西班牙的统计数据又完全覆盖了所有人口吗？
 
-零对冲6月7日电，中国银行在金融市场秘密地增加美元贷款，让投资者怀疑中国银行人为干预人民币汇率。多年来，中资银行很少使用外币逆回购，4月份银行的外汇逆回购从一年前的不到20亿美元飙升至870亿美元。过去一年有大量美元通过贸易和证券流入中国，大量资金流入已被中资银行吸收，为此商业银行承担了更多的货币风险。
+我们来看看西班牙的统计数据：[www.abc.es](https://www.abc.es/sociedad/abci-coronavirus-espana-sanidad-notifica-3504-contagios-y-73-fallecidos-202106090520_directo.html#vca=mod-lo-mas-p1&amp;vmc=leido&amp;vso=sociedad&amp;vli=noticia.foto.sociedad&amp;vtm_loMas=si)
 
-**2.[警惕中国通胀冲击](https://www.zerohedge.com/economics/traders-alert-china-inflation-shock)**
+截至到今天：新增感染人数 3504 例
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115012/unknown-3-3.png)
+新增死亡人数 73例
 
-零对冲6月8日电，中国即将公布备受关注的通胀数据。世界各国央行注入的大部分资金正在流入中国境内，这使得北京在不放弃市场改革的情况下控制价格的努力复杂化。恒生国企指数已连续五天下跌。离岸人民币本月已下跌 0.5%。
+14天内10万居民感染率： 113.45
 
-**3.[商品价格飙升加剧通胀担忧](https://www.wsj.com/articles/commodity-price-surges-add-to-inflation-fears-11623079860)**
+从数据上看，是在逐步好转，但是真实数据肯定不止这些的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115246/unknown-4-3.png)
+夏天即将到来，西班牙为了恢复经济，不仅允许持有“疫苗护照”的欧盟居民进入，甚至准备承认接种过中、俄疫苗的游客进入，我们知道，在南美、非洲一些国家，尽管大部分人口接种了中共疫苗，但发病率仍然很高，他们也可能将被允许进入西班牙。
 
-华尔街日报6月7日电，大宗商品价格的上涨给全球经济复苏蒙上了一层阴影，打击了脆弱的企业和家庭，并加剧了对通胀可能变得更加持久的担忧。木材、铁矿石和铜的涨幅创纪录，玉米、大豆和小麦已跃升至[八年](https://www.wsj.com/articles/surging-grain-prices-fuel-surprise-farm-recovery-11611322634?mod=article_inline)来的[最高水平](https://www.wsj.com/articles/surging-grain-prices-fuel-surprise-farm-recovery-11611322634?mod=article_inline)，油价到了两年的高点。在此背景下，中国的生产价格指数可能攀升至 2008 年 8 月以来的最高水平。
+没有灭共之前，疫情不会彻底好转，不管媒体上怎么说，我们一定要保持警惕。
 
-**4.[在美国没收了大部分Colonial Pipeline赎金后，比特币下跌了7%](https://www.cnbc.com/2021/06/08/bitcoin-btc-price-slides-as-us-seizes-most-of-colonial-ransom.html)**
+素材：gokuabuela；审核：Aries的星； 校对：信心满满；发稿：Nuevo唐人
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115727/unknown-5-1.png)
+[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
 
-CNBC 6月8日电，比特币在周二再次下跌，可能与美国设法收回支付给针对Colonial Pipeline的黑客的大部分赎金后对加密货币的安全性的担忧有关。法庭文件称，联邦调查局能够访问其中一个黑客的比特币钱包的“私钥”或密码。根据Coin Metrics的数据，BTC在美国东部时间凌晨5点下跌超过7%，至 32,952 美元。较小的数字代币也暴跌，以太币下跌 7% 至 2,524 美元，XRP 下跌约 6%。
-
-**5.[美国国税局希望国会帮助收集加密货币税收信息](https://www.foxbusiness.com/markets/irs-wants-crypto-tax-fast-tracked)**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09120032/unknown-6-1.png)
-
-福克斯6月8日电，美国国税局局长查尔斯雷蒂格周二告诉立法者，税务机构需要更广泛的权力来收集有关数字货币交易的信息，以确保人们报告并支付他们的欠款。
-
-审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-
+**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
 
 
 

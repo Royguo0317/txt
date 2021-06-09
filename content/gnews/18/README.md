@@ -1,38 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 流动性泛滥 喜币上市恰逢其时
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1310382/)
+## 西喜时事新闻简报—金融篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1310327/)
 
-#### 作者：好日子
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09121034/%E8%B5%B7%E9%A3%9E.jpg)图片来源：Himalaya Exchange
-
-据第一财经报道：美国货币基金超4万亿资金“无处可去”，本月稍晚的逆回购需求量还会不断创新高。6月是季末大月，如果美联储不对逆回购利率等关键利率加以调整，一般担保回购利率将持续承受下行压力。
-
-美国货币基金近几个月从个人和企业处获得了大量资金，并大举涌入作为安全资产的美国国债市场。但如此大规模的资金涌入叠加短期国债供应减少，使得部分短期国债收益率跌破0，反而令货币基金市场面临更大的盈利压力。
-
-无处可去的货币市场基金资金还不得不运用美联储的隔夜逆回购工具（RRP），这让RRP的使用量在本周创下历史新高，并给美联储管理短期利率带来了压力。
-
-#### **简评：**
-
-3月10日，美国国会通过1.9万亿美元经济刺激计划。疫情发生后，为了恢复经济，美国政府和美联储大量购买债券，相继出台了财政支出刺激计划，导致市场中的钱变多了，另一方面可投资的项目变少，这样一多一少导致市场流动性过剩，这给追求稳健的投资者制造了难题。再加上现在如此高的通货膨胀率使得民众手中的钱贬值加快，许多人不得不将手里的钱放到美联储那里去避险。
-
-不仅美国，全世界现在流动性泛滥。万亿资金无处可去无疑对七月份上市的喜币而言是利好消息。喜币具有安全性、公平性、平等性、隐私性等特点，与黄金挂钩，随时可以兑换成各种货币，随时开户随时转走，充分满足了资金避险需求，喜币上市恰逢其时。
-
-文贵先生说过，“美元这次的贬值和全世界的乱印钞票和兑水和共产党病毒带下来全人类的财富、政权和不稳定的威胁。它必然最后导致全世界的财富无选择的去避险寻求安全化——喜联储、喜币、喜美元是全世界唯一一个能提供方便使用、绝对安全、无界化。”
-
-我们期待着喜币上市那一天的到来！
-（本文只代表作者观点，与Gnews平台无关。）
-
-**参考媒体链接：**
-
-1. 🔗[美国货币基金超4万亿资金“无处可去”，美联储将被迫采取行动？](https://ishare.ifeng.com/c/s/v0065UnDfG-_kTs2Kq8eOu8n0hjq6b9MLI-_Ip3mErouqnJzI9NZVJDWp47tgUFhLVM--ZRfbjcrKAzeMBDH26-_K6aXkw____?)
-2. 🔗[2021-05-05 文贵直播：回答战友们目前关心的问题](https://gtv.org/video/id=60929c03db13300ca5491b6d)
+- 作者：此生灭共
 
 
-* * *
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-***编辑整理/校对: **Ting Guo*
+**西班牙2021年6月9日电/西喜社——**
 
-0
+您若想了解全文报导内容，请点击标题链接
+
+**1.[中国外汇逆回购中神秘的850亿美元激增](https://www.zerohedge.com/markets/mysterious-85-billion-surge-chinas-fx-reverse-repo)**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09114737/unknown-1-3.png)
+
+零对冲6月7日电，中国银行在金融市场秘密地增加美元贷款，让投资者怀疑中国银行人为干预人民币汇率。多年来，中资银行很少使用外币逆回购，4月份银行的外汇逆回购从一年前的不到20亿美元飙升至870亿美元。过去一年有大量美元通过贸易和证券流入中国，大量资金流入已被中资银行吸收，为此商业银行承担了更多的货币风险。
+
+**2.[警惕中国通胀冲击](https://www.zerohedge.com/economics/traders-alert-china-inflation-shock)**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115012/unknown-3-3.png)
+
+零对冲6月8日电，中国即将公布备受关注的通胀数据。世界各国央行注入的大部分资金正在流入中国境内，这使得北京在不放弃市场改革的情况下控制价格的努力复杂化。恒生国企指数已连续五天下跌。离岸人民币本月已下跌 0.5%。
+
+**3.[商品价格飙升加剧通胀担忧](https://www.wsj.com/articles/commodity-price-surges-add-to-inflation-fears-11623079860)**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115246/unknown-4-3.png)
+
+华尔街日报6月7日电，大宗商品价格的上涨给全球经济复苏蒙上了一层阴影，打击了脆弱的企业和家庭，并加剧了对通胀可能变得更加持久的担忧。木材、铁矿石和铜的涨幅创纪录，玉米、大豆和小麦已跃升至[八年](https://www.wsj.com/articles/surging-grain-prices-fuel-surprise-farm-recovery-11611322634?mod=article_inline)来的[最高水平](https://www.wsj.com/articles/surging-grain-prices-fuel-surprise-farm-recovery-11611322634?mod=article_inline)，油价到了两年的高点。在此背景下，中国的生产价格指数可能攀升至 2008 年 8 月以来的最高水平。
+
+**4.[在美国没收了大部分Colonial Pipeline赎金后，比特币下跌了7%](https://www.cnbc.com/2021/06/08/bitcoin-btc-price-slides-as-us-seizes-most-of-colonial-ransom.html)**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115727/unknown-5-1.png)
+
+CNBC 6月8日电，比特币在周二再次下跌，可能与美国设法收回支付给针对Colonial Pipeline的黑客的大部分赎金后对加密货币的安全性的担忧有关。法庭文件称，联邦调查局能够访问其中一个黑客的比特币钱包的“私钥”或密码。根据Coin Metrics的数据，BTC在美国东部时间凌晨5点下跌超过7%，至 32,952 美元。较小的数字代币也暴跌，以太币下跌 7% 至 2,524 美元，XRP 下跌约 6%。
+
+**5.[美国国税局希望国会帮助收集加密货币税收信息](https://www.foxbusiness.com/markets/irs-wants-crypto-tax-fast-tracked)**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09120032/unknown-6-1.png)
+
+福克斯6月8日电，美国国税局局长查尔斯雷蒂格周二告诉立法者，税务机构需要更广泛的权力来收集有关数字货币交易的信息，以确保人们报告并支付他们的欠款。
+
+审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
+
+
+
+
+
+
++1

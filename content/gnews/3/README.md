@@ -1,63 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】蓬佩奥先生关于 香港六四纪念的演讲——原文及翻译
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1310296/)
+## 英国病理学家警告说，疫苗的刺突蛋白将导致男性丧失生殖能力
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1310669/)
 
-整理/翻译：纽约香草山香港部 MAYA
+蒙特利尔皇家山战友团Spirit
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09142451/doctor.jpg)
+图片来源：North America News
 
+据《欧盟联合时报》(The European Times)5月28 日报道，西方医学评估公司的霍德金森（Roger Hodkinson）博士警告说，中共病毒（Covid-19）疫苗产生的合成刺突蛋白不仅能够伤害女性的生殖系统，而且还能伤害男性的。
 
+在最近的一次采访中，霍德金森博士解释说，现在有足够的文献证据表明，疫苗的刺突蛋白在胎盘和睾丸中都能表先出来。对于孕妇来说，这可能意味着终止妊娠。对于男性来说，这可能意味着失去了生育能力。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+霍德金森博士是一名病理学家，多年来一直在研究病毒学、传染病和循证医学。他在剑桥大学和伦敦的大学学院医院医学院接受教育，然后于1970年移居加拿大，在不列颠哥伦比亚大学接受培训。
 
+去年秋天，霍金森博士在埃德蒙顿市议会的一次会议上出现，谴责一项延长中国病毒口罩的提议计划，从而获得了全世界的欢迎。在他的演讲中，他称这种流行病是 “对毫无戒心的公众实施的最大骗局”。从那时起，霍金森博士就全力谴责中国病毒疫苗，敦促立即停止其继续推广。他警告说，接受注射的人将会后悔，因为他们中的许多人将失去生殖能力。
 
-字幕制作：纽约香草山香港部 彩虹桥
-演讲原文：
+“我是一个严肃的以证据为基础的职业病理学家，在国家和省一级的病理学中做过所有事情，我非常、非常认真地对待以证据为基础的科学，”他在会议上说。”我不是一个阴谋论者，我也不是一个反疫苗主义者。但是，当我在文献中看到某些可能有严重的潜在长期后遗症的事情时，我认为我有责任站出来吹哨子，呼吁停止疫苗推广。
 
-32 years ago, a tragedy occurred in Tiananmen Square, a massacre perpetrated by the Chinese Communist Party against its own people shot the world’s consciences. And it highlighted the contrast between the freedom-loving Chinese people and the tyranny of Beijing.
+霍德金森博士所指的数据与ACE2受体在胎盘和睾丸中的表现有关。科学界发现，在这两者中循环的过量刺突蛋白由疫苗引起会抑制生殖功能，有可能导致不育和不孕。”而这种循环将刺突蛋白带到各处，包括正在怀孕的妇女的胎盘，这对特定的怀孕来说是一次性的打击，可能对以后再怀孕没有影响。但有可能对睾丸造成打击，这就不是一次性的打击了，可能是永久性的打击“。
 
-For the next 30 years, the only place, the only place of all of China’s sovereign domain, where free people can commemorate the martyrs of Tiananmen, was Hong Kong. Every year, on the June 4th anniversary, the people of Hong Kong out of their lives lost in Tiananmen, You’ve cherished the freedoms that are the birthright of every human being, and which were brutally denied to your countrymen. You were able to mark this anniversary because of the high degree of autonomy that Hong Kong enjoyed. The city was the best city of liberty and a light to us all.
+下面是FDA官网常见问题对于辉瑞疫苗是否导致不孕的官方回答：
 
-Yet now, now the same regime that committed the massacre in Tiananmen Square has broken its promises to Hong Kong: the fundamental freedoms and autonomy that Beijing was promised to guarantee to you, it took away from you. For the first time, commemorating the Tiananmen massacre is illegal here. It’s punishable by a new security law — the national security law. This is a dark reminder that the regime in Beijing still refuses to respect the rights of its own people. And it’s also a reminder of why we are all gathering here tonight. We do so virtually, but we do so defiantly and proudly, and we continue a glorious tradition of commemorating the heroes of Tiananmen.
+问：辉瑞-生物技术公司的COVID-19疫苗会导致女性不孕吗？
 
-I’m especially honored to be here now. As America’s 70th Secretary of State, when Hong Kong’s freedom was being taken away, I was aware of the courageous work of Hongkongers. You fight, you fight to preserve your dignity and your autonomy. You fight for the freedoms owed every man, woman, and child made in the image of God. The Communist Party may imprison heroes like freedom-loving Jimmy Lai, Martin Lee, and others. But you, you show that the flame of freedom in Hong Kong remains a beacon.
+答：没有科学证据表明该疫苗会导致妇女不孕。此外，不知道不孕不育是由于自然的COVID-19疾病造成的，这进一步证明了对病毒的免疫反应，无论是由感染还是疫苗引起的，都不是不孕不育的原因。社交媒体上的报道错误地断言该疫苗可能导致妇女不孕，FDA担心这种错误信息可能导致妇女避免接种疫苗来预防COVID-19，这是一种潜在的严重和威胁生命的疾病。SARS-CoV-2是导致COVID-19的病毒。COVID-19的症状各不相同，而且无法预测；许多人没有症状或只有轻微的疾病，而有些人则有严重的呼吸系统疾病，包括肺炎和急性呼吸窘迫综合症（ARDS），导致多器官衰竭和死亡。辉瑞-生物技术公司的COVID-19疫苗是一种mRNA疫苗。它含有一小段SARS-CoV-2病毒的遗传物质，指示体内的细胞制造该病毒独特的刺突蛋白。一个人接种疫苗后，他们的身体会产生不会导致疾病的刺突蛋白副本，并触发免疫系统学会防御性反应，产生对SARS-CoV-2的免疫反应。与社交媒体上的错误报道相反，这种蛋白质与参与形成胎盘的任何蛋白质都不相同。
 
-May God bless Hong Kong.
+FDA官网声称没有科学证据表明该疫苗导致不孕，还居然说COVID-19是自然的疾病。心智健全的人可以明辨是非，有正确的判断力来决定是否应该接种疫苗。如果两三年后大量事实证明接种疫苗的人不能生育时为时已晚。
 
-演讲译文：
+霍德金森博士还认为给儿童注射中共病毒疫苗是一种“反人类的罪行 “。儿童感染或传播中国病毒的风险非常低，而且这些疫苗对他们的伤害很可能比对成年人的伤害更大。合法的疫苗试验需要四年时间，不是六个月。大药厂正在如火如荼地做大规模人体试验，居然连儿童都不放过！希望更多病毒学家和良心媒体站出来发声，阻止这场疫苗劫难。到发稿为止，全世界已经接种了22.2亿剂疫苗。
 
-32年前，天安门广场发生了一场悲剧：中国共产党对中国人民进行了泯灭人性的大屠杀，它突显出热爱自由的中国人和北京（中共）暴政之间的鲜明对比。
+编辑，发稿 Spirit
 
-在接下来的30年里，香港是唯一一个——唯一一个位于中（共）国主权领土上——人们可以自由地纪念天安门烈士的地方。每年在六四周年之际，香港人民都会悼念天安门事件中的死难者。你们珍惜自由，但你们的同胞们却被残忍地剥夺了这与生俱来的权利。你们之所以能够纪念这个日子，是因为香港享有高度的自治。这座城市乃是我们所有人的自由和光明之源。
-
-然而现在，在天安门广场犯下大屠杀的那个政权已经违背了它对香港的承诺。北京（中共）曾向你们承诺，会保证香港基本的自由与自治，现在这些却被它夺走了。在这里，哀悼天安门大屠杀第一次被视为非法行为，并且会在新的国安法下受到惩罚。这提醒了我们，北京（中共）政权仍然拒绝尊重自己人民的权利；也提醒了我们，为什么今晚要相聚在这里。我们通过视频，自豪而大胆地继续着我们纪念天安门英雄们的这一光荣传统。
-
-我非常荣幸能够来到这里。作为美国第70任国务卿，当香港的自由被剥夺时，我了解香港人的奋勇抗争。你们在抗争！你们是为维护自己的尊严和自治权而战；你们为每一个男人，女人和孩子应得的自由而战，这些自由都是上天所赋予的。共产党监禁了像黎智英、李柱铭等热爱自由的英雄们，但你们向我们展示了，香港仍是一座自由的灯塔。
-
-愿上帝保佑香港！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115247/M6.jpg)
-
-视频字幕制作：纽约香草山香港部 彩虹桥
-
-校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文链接：
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+> [UK Pathologist Warns Spike Proteins will Cause All Men to Lose their Reproductive Capacity](https://www.eutimes.net/2021/05/uk-pathologist-warns-spike-proteins-will-cause-all-men-to-lose-their-reproductive-capacity/)
 
 
+
+[https://www.fda.gov/emergency-preparedness-and-response/mcm-legal-regulatory-and-policy-framework/pfizer-biontech-covid-19-vaccine-frequently-asked-questions](https://www.fda.gov/emergency-preparedness-and-response/mcm-legal-regulatory-and-policy-framework/pfizer-biontech-covid-19-vaccine-frequently-asked-questions)
+
+* * *
 
 0

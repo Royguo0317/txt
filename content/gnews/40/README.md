@@ -1,37 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳总理呼吁G7改革WHO规则共同抵抗中共的经济胁迫
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1310100/)
+## 暗战——透视英国《每日邮报》对周育森的翻炒
+` tongwandou` [轉載自GNews](https://gnews.org/zh-hans/1310000/)
 
-【日本东京方舟农场】撰稿：青衣     素材采编：武汉老温      校对：miumiu law
+英国《每日邮报（Daily Mail）》2021年6月6日重新翻炒已蹊跷死亡了的中共军方科学家周育森的消息1。周育森是中共军方研发和制造中共病毒的关键人物，曾经跟中共武汉病毒研究所石正丽团队有过密切合作。报道称，周育森在2020年2月24日申请了一份中共病毒疫苗的专利2，随后，在少于三个月的时间内，也就是在2020年5月，神秘死亡。关于周育森的死亡，中共国的媒体中，只有新浪新闻的药学前沿专栏，在10个月之前，也就是在2020年7月，报道过一次3。
 
-据《大纪元》新闻网6月9日报道，澳大利亚总理莫里森呼吁七国集团（G7）支持世界贸易组织改革，以便有一套具备约束力的争端解决机制，应对“经济胁迫”日益泛滥的问题。他表示，这是削弱中共国对澳洲经济胁迫，抵制中共在印太地区实施影响力行动的最佳方式。
+从《每日邮报》的历史渊源来看，这家成立于1896年的英国保守贵族开办的媒体，在大英帝国殖民侵略和全球殖民扩张统治时期，以及，第二次世界大战德意志第三帝国希特勒纳粹独裁崛起之时，都是支持暴政集团的。那么，这一次，这个媒体站出来，对于已经死去了的中共军方科学家周育森重新炒作，是为了什么？报道中特别提到周育森生前曾经跟美国的某些机构有密切的工作关系，提到了美国明尼苏达大学（University of Minnesota），还提到了美国纽约血液中心（New York Blood Center）。
 
-周三（6月9日），莫里森（Scott Morrison）在澳洲智库“伯斯美亚中心”（Perth USAsia Centre）发表演说，提到全球基于规则的秩序正“承受压力”。莫里森强调，“正视经济胁迫最实际的方式，就是恢复全球贸易机构具约束力的纷争调解制度。”他说：“胁迫行为若无后果，就没有自制的动力。”
+美国《纽约邮报（New York Post）》在2021年6月4日也发表了一篇对周育森的报道。据报道，跟周育森生前曾经有密切关联的美国相关机构是美国匹兹堡大学医学院（The University of Pittsburgh School of Medicine），周育森曾经在那里做过博士后。当然，报道也提到了美国纽约血液中心。从《纽约邮报》这篇报道的舆论导向来看，最终是引向对于与中国共产党和联合国世界卫生组织WHO密切勾结的安东尼·福奇（Anthony Fauci）的问责。而《每日邮报》对于舆论的引导，看来是想导向对于美国川普总统的围剿。《每日邮报》的报道中看似轻描淡写的写了一句话4，看起来很像是想污蔑川普总统，说他早些时间拥抱“实验室泄漏说”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095626/6B80BA39-8853-4271-8BF1-20E400509B93.jpeg)
+班农先生在《战斗室》节目中是指出，黑暗势力的下一步动作是要把中共病毒“实验室泄漏说”的脏水往川普总统身上泼。美国现任总统拜登在2021年5月26日下发了行政令5，要求美国所有的间谍机构包括情报部门90天之内必须出一份调查报告，弄清COVID-19是否是从中共实验室释放出来的。如果说，这份调查报告下结论说中共病毒是从武汉病毒研究所实验室被中共释放出来的，那么，美国会否有人马上跳出来，猛烈攻击川普总统，并污蔑他支持“实验室泄漏说”？
 
-另据《路透社》报道称，澳洲自2018年禁止华为参与新建该国的5G宽带网络起，其与中共的关系就变得磕磕绊绊。尤其是在今年堪培拉方面呼吁对中共病毒起源进行独立调查之后，两国关系更是进一步降温。
+而对于中国，一方面，所有参与过中共军方研制中共病毒武器的科学家会不会都像周育森那样，都像匹兹堡大学医学院（The University of Pittsburgh School of Medicine）刘冰6那样，被灭口、所有相关证据被毁灭？另一方面，黑暗势力的军火供应商在巨额利益驱使下，会不会推动和支持对中国老百姓猛烈、残忍的军事打击？如果这份调查报告说中共病毒是从武汉病毒研究所因为事故泄漏出来的，那么，中共会不会将有可能完全从对全人类犯下的弥天大罪中逃脱出来、苟延残喘？必须跳出盒子以外。
 
-中共的回应是向葡萄酒和大麦在内的澳洲商品加征关税，并限制进口澳洲牛肉、煤炭和葡萄。中共对总额超过80%的澳洲商品加征关税，实际上已经使规模数以十亿美元计的两国贸易停滞不前。分析人士认为，中共的这些举措是一场“经济胁迫”行动。
+中共党魁习近平2021年5月31日做出了指示7，要加强和改进国际传播工作，要下大气力加强国际传播能力建设，要掌握国际话语权。习近平的话音还带着余热呢，《每日邮报》已经出马开始想要吊打川普总统了。问题是中共到底是那个只会吹牛的、长着眼睛长着嘴巴的小兽角呢？还是那头野兽8？要知道野兽的命运只有一个，在烈火中化为灰烬。
 
-对此，澳洲表示不会屈服于中共的压力，并向世贸组织提起申诉。但上诉可能需要数年时间。莫里森因此呼吁G7国家支持在11月部长级会议前改革世贸组织。
+**参考的消息来源：**
 
-莫里森表示，许多世界领导人已经表达了支持澳洲的立场，但志同道合的国家现在必须加强合作。他说：“这对澳洲，对我们的地区，乃至对全世界都事关重大。”
-
-《大纪元》的报道称，莫里森表示，澳洲支持拜登总统对中共病毒起源进行的情报审查。他还警告说，由于与中共冲突的风险越来越大，民主国家必须比冷战以来的任何时期都要更加紧密地合作。他说：“印太地区是新的战略竞争中心，误判和冲突的风险正在增加”。
-
-G7峰会将于6月11日至13日在英国召开。澳洲虽非成员国，但在英国首相约翰逊的邀请下，莫里森也将参与会议。外媒指出，此举表明澳大利亚在与中共的争端中得到了支持。而在此之前，莫里森还于5月30日出访了新西兰。新西兰政府表示，支持澳洲向世贸组织就中共开征关税一事提出申诉。
-
-据伦敦《金融时报》报道，澳洲战略政策研究所（ASPI）分析师肖布里奇（Michael Shoebridge）指出：“G7领导人知道，如果他们不集体应对中共的挑战，就会被中共单独胁迫，那么就将无法遏制中共在贸易、领土、安全、技术和人权等关键价值观领域上日益增长的侵略行为。”
-
-注：本文仅代表作者观点
-
-参考链接：
-
-1. [https://cn.reuters.com/article/au-morrison-wto-reform-0609-idCNKCS2DL0Z2](https://cn.reuters.com/article/au-morrison-wto-reform-0609-idCNKCS2DL0Z2)
-2. [https://www.epochtimes.com/gb/21/6/9/n13009819.htm](https://www.epochtimes.com/gb/21/6/9/n13009819.htm)
+1. *Daily Mail*（英国每日邮报）：[Chinese military scientist filed a patent for a COVID-19 vaccine BEFORE the virus was declared a global pandemic and worked closely with “bat woman” at Wuhan institute](https://www.dailymail.co.uk/news/article-9658235/Chinese-scientist-filed-patent-COVID-vaccine-virus-declared-global-pandemic.html)（中共国军方科学家曾申请了一份关于COVID-19疫苗的专利，这项专利是在中共病毒被公开宣布为全球大流行之前的事情，并且这名科学家跟在武汉病毒研究所的“蝙蝠女”石正丽曾紧密工作在一起）
+2. *Science*（科学）：[Adaptation of SARS-CoV-2 in BALB/c mice for testing vaccine efficacy](https://science.sciencemag.org/content/369/6511/1603)（SARS-CoV-2 病毒疫苗效果在被试的实验用小白鼠身上的适应性）
+3. 中共国新浪新闻药学前沿：[极度缅怀！生命最后一刻仍奋战在科研一线！周育森等人开发出新冠小鼠模型](https://xw.qq.com/cmsid/20200731A0JLA600)
+4. “Perhaps driven by animosity for Donald Trump, who embraced the lab leak theory early on, the mainstream U.S. media and academics heaped scorn on the possibility, calling it an unhinged conspiracy theory.”
+5. *New York Post*（美国纽约邮报）：[Biden orders spy agencies to review whether COVID-19 came from Wuhan lab](https://nypost.com/2021/05/26/biden-orders-90-day-review-of-covid-origins-lab-leak-theory/)（拜登下令间谍机构调查COVID-19是否来自武汉实验室）
+6. *University of Pittsburgh: University Times*（美国匹兹堡大学大学时光）：[Pitt mourns med school research professor Bing Liu, who was found shot to death](https://www.utimes.pitt.edu/news/pitt-mourns-med-school)（匹兹堡悼念医学院研究教授刘冰，他被发现中枪身亡）
+7. 中共国人民网：[提升国际话语权，中国需要这样做](http://www.people.com.cn/n1/2021/0607/c437595-32124020.html)
+8. New American Standard Bible: Daniel 7:11（《新美国标准圣经》丹尼尔书7章11句）: Then I kept looking because of the sound of the boastful words which the horn was speaking; I kept looking until the beast was slain, and its body was destroyed and given to the burning fire.（而后，我继续观看，因为小兽角口中说出的吹嘘诳语在耳边嗡嗡作响；我继续观看，直到那兽被杀掉，身躯被毁灭，并被扔进炙热的烈火之中。）
 
 
 0
