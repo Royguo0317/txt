@@ -1,28 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 掌握弗林酶切位点插入技术的姜世勃与舟山蝙蝠病毒发现者有合作关系
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1309708/)
+## 中共国政策朝令夕改 南师本科变专科
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1309803/)
 
-#### 文章撰写:【默凡】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09073542/1-36.jpg)
+几天前,中共国江苏省南京市师范大学中北学院,学校拟定把该校及其他四所大学的独立学院改变成职业专科,引起了学生及家长的强烈抗议,学校调来百名警察进入校园,另外还有特警进入,抗议学生和警察发生暴力对抗。警察对抗议学生眼睛喷辣椒水,殴打,驱赶和抓女生头发的视频已经在网络上流传开来。学生举起巨幅标语: “还我本科，拒绝职校。” 该校封锁消息，相关微博也发不出去。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09064914/csdagry3543stal-structure-sars-cov-2-mpro.jpg)
+众所周知，学生上本科，除了一类二类大学外，分数稍低的还有三本。这样的所谓三本学校收取高额的学费,一年2万左右(几年前的价格)，而职业专科学校一年才几千元，所以招生的时候是本科，按本科收费，等快毕业的时候发个专科毕业证，这是一种骗局, 对于学生来说，不同的毕业证书，踏入社会求职时也是有天大差别的。本科属高等教育范畴，而职业学校就是一种技术学校。上本科的也许有的家庭拿出学费很轻松，但对于较贫困的家庭，需要积攒多年才供出一个孩子，几年本科下来花10多万元且发个专业毕业证，放在谁头上都时不愿意的。
 
-美国时间6月7日，Sellin上校发推：中共病毒调查侦探们有一重大发现，发现姜世勃在中共病毒实验室起源中扮演了非常重要的角色，还与广州南方医科大学的刘叔文及其他掌握插入弗林蛋白酶裂解位点的科学家有联系。
+再说你要本科转职校，也应该等下一篇新招生的时候开始实施。 而专挑临毕业的时候改革，造成毕业证书和当初招生宣传的不一致,这不是赤裸裸的骗局吗? 之前有很多类似的骗局得逞，这一次学生及家长坚决不答应才爆发学生抗议事件。
 
-从Sellin上校转推的内容来看，掌握插入弗林蛋白酶裂解位点的科学家姜世勃与舟山蝙蝠病毒ZC45/ZXC21的发现者王长军有直接合作关系。
+中共的政策朝令夕改,说话办事骗局太多。难怪爆料革命文贵先生说中共假骗偷，以前我们老百姓没感觉有那么夸张。现在逐渐深深体会到了，看到了真的骗局就在眼前。现在民意逐渐觉醒，如果没有防火墙,墙内早就造反了。假如他们知道了文贵先生爆料革命，大量的国人财富流到少数人手里，相信不用海外，墙内人都早就砸到中南坑去了。但愿早点推到防火墙，百姓才能尽快觉醒，老杂毛们你们离灭亡的时间越来越近了！
 
-
-
-> A critically important find by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) showing Shibo Jiang's key role related to the lab origin of [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw). Also connect Shuwen Liu & those at Southern Medical University, Guangzhou, who had the technical skills to insert the furin cleavage site. [https://t.co/Uc2mT1OXTr](https://t.co/Uc2mT1OXTr)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 7, 2021](https://twitter.com/LawrenceSellin/status/1401760004756185089?ref_src=twsrc%5Etfw)
-
-
-
-本文仅代表作者本人观点，不代表Gnews平台
-
-* * *
-
-排版发布：日本东京方舟农场 文柯Miles
+by 金色苹果
 
 0

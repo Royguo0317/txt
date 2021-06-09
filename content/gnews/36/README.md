@@ -1,29 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯称，德国正与美国合作解决波罗的海管道争端
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1309543/)
+## 意大利比萨省的一起接种疫苗后的严重事件
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1309684/)
 
-信息来源：德国世界报网络版
-发布时间：2021年6月09日
-翻译 /整理/ 简评： Shuizhuyu
+消息来源：意大利共和报（corriere.it）
+发布时间：2021年06月08日
+翻译整理：斩草要除根
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09055714/antonin-duallia-n2l-UouMG2k-unsplash-scaled.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07160950/Vaccination-against-coronavirus-disease-in-Stip.jpg)
 
 
-根据美国国务卿安东尼·布林肯的说法，德国现在已经在有关波罗的海北溪 2 号管道运营的持续争端中“站到了谈判桌前”。目的是防止相互关系被“恶化”。
+一名 41 岁的女人现在在比萨大学附属医院的重症监护室接受住院治疗，因为她的病情非常严重。这名妇女于 5 月 26 日在卢卡市的第一个开放日接种了阿斯利康疫苗，上周五，也就是接种后第 9 天她中风了。她的病例可能是非常罕见的疫苗不良反应之一，是 15 万次接种中的第一例，她接种的是阿斯利康疫苗。
 
-根据美国国务卿安东尼·布林肯的说法，德国正在与华盛顿政府合作，以减少与有争议的北溪 2 管道相关的可能负面后果。
+这位来自卢卡市的 41 岁女人在接种疫苗前非常的健康，他的父母为此提出了投诉。阿斯利康解释说：中风前没有症状，血栓发生在脑主动脉而不是深静脉窦。但在意大利，在接受疫苗接种后发生了 34 例血栓形成，即每 100,000 名接种者中发生 0.45 例。
 
-“德国人现在已经来到谈判桌前，我们正在积极与他们合作，”布林肯周二在华盛顿参议院外交事务委员会的一次听证会上说。据此，柏林可以保证乌克兰未来不会损失任何天然气过境费。
+意大利著名免疫学家 Chiara Azzari 教授向欧洲药品管理局发起呼吁：我们必须“将年轻女性排除在接种病毒载体疫苗之外，不仅是第一剂，而且也是第二剂”。Azzari 解释说：这些血栓形成非常罕见，但在某些人群中，这些事件更为高频率，即年轻女性”。
 
-多年来，通过波罗的海的北溪 2 天然气管道的建设一直在柏林和华盛顿之间造成紧张局势。因此，美国担心欧洲将更加依赖俄罗斯天然气，并对俄罗斯天然气的传统过境国，尤其是乌克兰造成经济损失。
-
-简评： 我们不评论这条输油管道的对与错。 但是这篇文章的报道里面， 强调了美国和德国正在坐在谈判桌上， 合作解决这个事情的争端， 这才是解决问题的最佳方案。 个人观点， 石油天然气这样的能源对于德国来说， 是软肋。 德国自己不拥有这些资源， 可能不光是德国， 欧洲本土很多国家都缺乏能源资源， 大部分的能源都是从俄罗斯来的， 而另一个观点是， 依附于俄罗斯是不安全的。 不管那种观点貌似都有自己的理由， 但是通过合作和评估， 相信会有合适的解决方案。
+简评：又一起疫苗事故。一边是普通民众都相信疫苗接种能带来保护，一边是我们爆料革命提醒大家不要接种疫苗。只希望我们的呼吁能快一点起到作用，避免更多无辜事件发生。
 
 免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 发表： Shuizhuyu
 
-🔗[Laut-Blinken-USA-und-Deutschland-kooperieren-jetzt-bei-Nord-Stream-2](https://www.welt.de/politik/ausland/article231682833/Laut-Blinken-USA-und-Deutschland-kooperieren-jetzt-bei-Nord-Stream-2.html)
+🔗[pisa-41enne-grave-il-vaccino](https://corrierefiorentino.corriere.it/firenze/notizie/cronaca/21_giugno_07/pisa-41enne-grave-il-vaccino-6760c9e4-c7c0-11eb-80c1-8b074ce4f717.shtml)
 
-0
++1
