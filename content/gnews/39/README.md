@@ -1,34 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳洲热点】澳大利亚发出历史最强音
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1309980/)
+## 过去的两个月中共国“报复社会”事件暴增！80万私营企业倒闭！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1310065/)
 
-#### 作者：守望黎明
+**摘要：在2021年6月6日的盖特中，郭先生说仅仅过去两个月，中共国发生7万起恶性“报复社会”事件，人民已经无路可走；中共银行的庞氏骗局已经玩不下去；80万私营企业倒闭！**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09093624/Miles_2021-06-06-getter.srt.txt)
+**过去的两个月中共国****“****报复社会****”****事件暴增！****80****万私营企业倒闭！**
 
-#### 编辑：翼族
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09092752/Picture1121.jpg)
-图片来源：The Australian
+**The Surge of Violent Crimes and Bankruptcies of Private Companies in China**
 
-在即将举行的G7峰会的外交政策讲话中，澳大利亚总理斯科特·莫里森发出罕见的强硬警告：西方与中共国发生直接冲突的风险正在急速增加，今日世界所面临的不确定性自上世纪三十年代以来从未有过。不仅澳大利亚面对着巨大危险，整个亚太地区乃至全世界都遭受着同样的威胁。
+同时现在，中共国的现在经济到什么程度大家都知道啊。
 
-莫里森此番讲话令人非常震撼，因为这是第一次有现任国家领导人把现今世界遇到的挑战，与上个世纪因德国纳粹和日本军国主义所引发的第二次世界大战相提并论。
+Do you know how seriously Communist China’s economy has deteriorated?
 
-这位澳洲总理指出，不应排除西方世界与中共的根本性对立上升到武装冲突的可能。危局面前，自由世界的国家别无选择，只能像冷战时期对付苏联和东欧社会主义阵营那样，紧密联合共同迎敌。莫里森还强调，澳大利亚坚定地支持美国关于新冠病毒溯源和重启武汉调查的主张。他说，只有明确无误地查清病毒来源，才能保证下次同样的疫情不会发生，才能让全世界人民的福祉得到保障。
+仅仅，仅仅过去2个月，在全国各地所谓的他们定义的恶性的所谓报复社会[事件]。事实上是逼得人[已经是]不是“上梁山”了，梁山都没了，是逼得人不能当人了，不能干人事了。
 
-澳大利亚是一个很神奇的国家。它资源丰富国民富足，人民平和友好，加之又孤悬在大洋洲远离纷扰，本可偏安一隅过自己的太平日子。可这个国家偏偏正义感超强，对自己内心价值观的坚守坚定无比。抛开在两次世界大战中的巨大牺牲不说，在战后西方与共产主义势力的对抗中，澳大利亚总是无战不与，从不落于人后。自中共国经济跃起之后，从澳洲大量进口矿产品、农产品及海产品，成了澳洲最大的贸易伙伴。照理说澳大利亚经济对中共国的依赖度如此之高，总该低眉垂目对中共礼让三分吧。可是事实并非如此，澳洲对中共在人权等方面的批评一直是调门最高的，常常惹得中共恼火不已。
+In the past two months, 70,000 cases of what the CCP defines as “vicious retaliation against society” have taken place across the country. Actually, these cases are occurring because these people have been driven beyond the point of survival. (The Chinese ancient novel “Outlaws of the Marsh” told the story of what occurred on “Mount Liang”.) Now that “Mount Liang” is gone, people who cannot survive are forced to commit violence.
 
-中共病毒引发的全球疫情爆发之后，澳大利亚疫情并不特别严重，没必要撕破脸皮得罪中共。但本性难改的澳大利亚人又一次不顾经济利益最早挺身而出，坚决要求彻查病毒源头，一下子触到了中共的痛处，也遭到了疯狂的报复。中共不仅对澳洲的大麦、红酒和海产品等加征高额关税，还玩起了流氓手段，在秦皇岛港故意不给澳洲运煤船清关，让大批运煤货船困在锚地进退不得。面对中共淫威，澳大利亚真正表现出了自己的血性，不退反进并强势反击，联邦政府决绝地废除了维多利亚州与中共国签订的“一带一路”合作协议，并正在计划收回被中共国长期租赁的具有重要战略地位的达尔文港。
+我们反对暴力。但人但凡有点儿选择也不会走上它们说的报复社会的路。是那些共产党的走狗们欺压百姓没有活路了，只有一个选择了。达多少起呢？7万起！7万起血腥暴力社会事件。
 
-中共称霸全球的野心由来已久，习总加速师上台以来更是雄心爆棚，一门心思要圆其成为天下共主的“中国梦”，使得中共国对海外的渗透变本加厉。在蓝金黄手段的强烈攻势下，不知有多少的名人政客、商界大佬、金融巨子、科技精英和媒体巨擘被中共拿下，成了它的同路人和帮凶。但是，总有那么一些人心有坚守。在他们心目里，自己坚信的价值观和正义高过所有的利益诱惑，面对邪恶再难再险都要战斗到底。班农、蓬佩奥、纳瓦罗、朱利安尼是这样的人，文贵先生、闫博士及千万爆料革命的战友更是这样的人。很高兴看到澳大利亚这个国家也有这样的秉性。
+We are against violence, but we must understand that nobody would do such a thing if they had a choice. They do not want to take revenge on society. CCP, the organized crime organization, and its gangsters oppress people and make more and more Lao Bai Xing (ordinary people) unable to survive. These people have no other choice, and 70,000 bloody and violent incidents occurred as a result.
 
-（文章仅代表作者个人观点）
+说这是1982年到83年期间，整个当时所谓的“严打”，邓小平以“严打”为名，所谓蒙古有强奸女学生的案子[为由展开]严打，杀了几万人。连弄颗白菜都要给弄死，那我是很清楚的。现在说加在一起，把当年1982～1983年所有案件累积在一起还不只2个月的[总]和呢。
 
-**参考资料：**
+Between 1982 and 1983, Deng Xiaoping gave orders to implement a severe crackdown on criminal activities, citing the rape of young girls in Mongolia. And it led to the executions of tens of thousands of people. Some even got executed for minor misdemeanors such as stealing a cabbage. I know very well what happened then. The total number of cases between 1982 and 1983 is not as many as that in the last two months.
 
-1. **维基百科**
-2. [Scott Morrison to warn ‘risk of conflict’ with China is growing in major foreign policy speech](https://www.news.com.au/national/politics/scott-morrison-to-warn-risk-of-conflict-with-china-is-growing-in-major-foreign-policy-speech/news-story/a1eea53a3db568848e3206b363335e47)
-3. [So much at stake:  PM’s chilling warning on ‘conflict’ with China](https://au.news.yahoo.com/pms-confronting-warning-on-conflict-with-china-221917431.html)
+共产党很恐惧，如果7万变成70万的时候，这个社会就就不是什么报复社会了，就是社会受到了极权压迫[的表现]，到700万的时候共产党完蛋了。就这么简单。
 
+The CCP must be scared. If 70,000 cases grow to 700,000, it will not be an act of revenge against society. It will be a reaction to totalitarian oppression. If it expands to 7 million cases, the CCP will be finished. It is that simple.
 
-+2
+然后银行、金融，就国内各方面咱们战友报信息，国内的银行过去是「玩」“还旧贷新”这个骗局，共产党自己的庞氏骗局，银行实际上45%到50%都成烂账了。这个“还旧贷新”的周转在过去的2到3个月里边，将近50%左右基本上都延续不下去了。就这么可怕！国内大概80万的私人企业全部倒闭，倒闭80万，80万！
+
+Our fellow fighters also told me about banks, finance, and various aspects of mainland China. The banks in mainland China get used to playing tricks, and cover defaulted loans with new loans. This is the CCP’s own Ponzi game. In fact, 45% to 50% of the bank loans are already in default and cannot be repaid. The banks cannot continue playing the loan-pyramid scheme in almost 50% of the loan cases in the last 2 to 3 months. How bad it is. Around 800,000 private companies claimed bankruptcy in mainland China. It was 800,000 private companies!
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60bce283c04fd544b46a8ecf](https://gtv.org/getter/60bce283c04fd544b46a8ecf) (4:04-6:08)
+鸣谢：[1] 感谢Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1303061/](https://gnews.org/zh-hans/1303061/)
+[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于[https://gnews.org/1306798/](https://gnews.org/1306798/)
+
+* * *
+
+字幕：【XO小粉红】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++1

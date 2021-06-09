@@ -1,59 +1,108 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》主題專欄：美國國家衛生研究所（NIH）資助的中共軍事科學家在申請新型冠狀病毒疫苗專利後離奇死亡
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1310179/)
+## 福奇的马仔做贼心虚， 已清空自己的推特账户
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1310220/)
 
-《路德社》主題專欄組出品
+新闻来源：《零对冲》| 作者：TYLER DURDEN | 发布时间：2021年6月7日
 
-隨著我們進一步瞭解中共的 “蝙蝠實驗室 “到底發生了什麼，我們現在把注意力轉向了一個叫周育森的人，他是一名專門研究冠狀病毒的中共軍事科學家，並且與武漢病毒研究所的 “蝙蝠女 “石正麗合作。根據《週末澳大利亞人》記者SharriMarkson獲得的檔揭露：在這項合作中，至少有一個對冠狀病毒進行基因操作的專案得到了美國國立衛生研究院（NIH）的三項資金資助，資助通過美國大學完成，而福奇（Anthony Fauci）正是NIH的院長。這項此前未披露的資助與授予生態健康聯盟的數百萬贈款是分開的，後者也與WIV（武漢病毒研究所）進行了合作。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095745/image001-18.png)
-披露的資訊顯示，美國的資金正在資助中共解放軍科學家對冠狀病毒的風險研究–包括偽裝的軍事科學家周育森和武漢病毒研究所的 “蝙蝠女 “石正麗。
+翻译/简评：clau | 校对/审核：小小妹 | Page：我是球大哥
 
-現在我們得知，在2020年2月申請COVID-19疫苗專利的三個月後。54歲的周育森已經去世.
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095816/image003-9.png)
-報導稱，儘管周育森是中共解放軍北京微生物和流行病學研究所感染和免疫實驗室的獲獎科學家，但他在2020年5月的死亡基本上沒有受到關注。”沒有任何對他去世哀悼的報導。他的死亡只是在7月的中共媒體報導中和12月的一篇科學論文的結尾處被順便提及。兩者都在他的名字後面的括弧裡注明了 “已故 “一詞。
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/b3616e11-ee0c-42be-b606-c71500e6cc02.jpg?asset_id=29d1f44b-fa83-4912-ab96-e4c85136f9f5&amp;img_etag=%22409891c60a0e81ad88282510e924f52c%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/b3616e11-ee0c-42be-b606-c71500e6cc02.jpg?asset_id=29d1f44b-fa83-4912-ab96-e4c85136f9f5&amp;img_etag=%22409891c60a0e81ad88282510e924f52c%22&amp;size=1024)
 
-周的死亡很可疑（或者他可能只是死於COVID 19）。在美國政府資助他與武漢病毒研究所的消息被揭露後可能提供了一條線索，即為什麼美國的官員Dr. Fauci（福奇博士）和他的走狗Peter Daszak（彼得·達紮克）在《柳葉刀》上寫了一封 “自然起源或你是個瘋子 “的文章之後，得到了 “科學界 “的支持—-這明顯是兜售中共的 “自然起源 “理論，而任何關於病毒可能是在獲得NIH資金的實驗室中產生或洩露的說法都被嚴格禁止了。
+克里斯蒂安·G·安德森（Kristian G. Anderson）最近删除了自己推特账户2021年3月之前的5000条推文，他拥有的安德森实验室位于加利福尼亚州拉霍亚。最近福奇被曝出的3000封邮件里，包含安德森在2020年2月发给福奇的邮件，当时安德森提醒了福奇新冠病毒有被人工改造的痕迹。然而，很快安德森就被福奇用钱堵住了嘴，甚至推翻了自己最初的判断，转向成为了新冠病毒自然起源理论的支持者。
 
-本周根據Buzzfeed的資訊自由請求發佈的電子郵件顯示，在該大流行病的早期，福奇博士(Fauci)擔心美國的資金已經用於中共的病毒功能增強性研究。在其他電子郵件中，科學家們寫信給博士福奇（Fauci），表達了初步觀點，即SARS-CoV-2的基因組似乎 “與進化理論的預期不一致”，而且它的一些特徵 “可能看起來是經過設計的”。簡而言之，”利益衝突 “不能作為在下次福奇（Fauci）遮掩搪塞的藉口。國家安全人士說，周育森和石正麗之間的聯繫支持了美國情報部門關於武漢病毒研究所從事 “秘密軍事活動 “的說法。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095849/image005-9.png)
-如果我們考慮時間線及其可能的影響，周在2020年2月24日提交COVID-19疫苗的專利申請三個月後死亡。雖然這可能意味著他在2019年12月該病毒眾人皆知之前就在研究COVID-19疫苗，但請記住，就在中共官員于2020年1月11日發佈COVID-19疫苗的基因序列後僅兩天，Moderna公司就能設計出他們的疫苗序列–兩個月後申請了他們的第一個相關專利。
+“伟大的”福奇博士的“邮件门”还在持续不断的发酵，非常多的证据都被媒体挖出并报道。这些证据，轻则是渎职，重则是叛国。然而福奇这只老狐狸却还能睁着眼睛说瞎话，面不改色心不跳，大言不惭的说“诋毁我就是诋毁科学”。福奇这40年的官，确实不是白当的。但是，他的马仔们的心理素质可就没有福奇这么好了。此地无银三百两，做贼心虚，都可以用来形容安德森删除自己推文的行为。难道删除了，就没事了吗？更何况网络是有记忆的，他们的心理防线会有被击垮的那一天，请大家持续关注福奇的“邮件门”事件。
 
-還要注意的是，至少從2006年開始，為了應對最初的SARS疫情，周一直在研究冠狀病毒疫苗並撰寫了一項研究，其中發現 “含有受體結合功能域的SARS-CoV S蛋白疫苗可能產生出足夠的中和抗體和長期保護性免疫力，以應對已建立的小鼠模型的SARS-CoV挑戰。”
+**原文翻译：**
 
-因此，假設一個專家從知道病毒的基因組序列到申請專利大約需要兩個月的時間，這意味著中共在1月11日公開發佈基因組序列之前保留了一個月發佈，也意味著周可能有比這更多的研究時間來佔領“先機”。
+## 告诉福奇SARS-CoV-2“有可能被改造”的病毒学家刚刚清空了他的推特账户
 
-“弗林德斯大學的Nikolai Petrovsky說：”這是我們以前從未見過的成就，引發了這項工作是否更早開始的問題。
+更新（1650ET）：
 
-雖然我們可能永遠不會知道周在這發生中的一切的全部作用，但他和 “蝙蝠女 “石正麗在大流行之前就開始研究COVID疫苗。 根據《週末澳大利亞人報》：就在病毒大流行之前，周育森和其他三位來自解放軍北京微生物和流行病學研究所的科學家–Yuehong Chen, Lei He and Shishui Sun–與兩位元武漢病毒研究所的科學家—Dr Shi and Jing Chen以及現在在美國明尼蘇達大學和紐約血液中心Lindsley Kimball研究所的八位中共科學家合作。他們的論文題為《抗體依賴性增強冠狀病毒進入的分子機制》，於2019年11月27日提交給《病毒學雜誌》，並於2020年2月14日發表。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095924/image007-9.png)
-他們論文的一些積極的成果：”綜合來看，我們的結果顯示，特定的受體結合功能區的中和單源抗體與冠狀病毒突觸上的相同區域結合，像病毒受體一樣引發突觸的結構變化，並通過與病毒受體依賴的病毒進入相同的途徑介導抗體增強性依賴。”
+全部都删除了：
 
-他們發現這種 “抗體增強病毒進入的新型分子機制 “可以 “指導未來的疫苗接種和抗病毒計畫”。
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/fec4d429-9976-4764-91f9-ebc4c410494f.png?asset_id=dcbb583d-36d6-4478-85fd-9612afc131aa&amp;img_etag=%220ceb5ef8d6c895194832c8794942fec4%22&amp;size=2630)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/fec4d429-9976-4764-91f9-ebc4c410494f.png?asset_id=dcbb583d-36d6-4478-85fd-9612afc131aa&amp;img_etag=%220ceb5ef8d6c895194832c8794942fec4%22&amp;size=1024)
 
-這項研究是在 “體外 “進行的，意思是在培養皿或試管中，使用人的腎臟和肺部細胞。他們的最後一段指出，未來論文的下一步將是用人源化小鼠或靈長類動物進行 “體內 “實驗。18個月後，即今年4月，發表在《自然評論免疫學》上的一篇論文將發現，”中和單克隆抗體 “可以幫助治療Covid-19。
+至少他不必继续阻挡来自问询者的讨厌的问题…
 
-同時，周的專利申請指出。”本發明涉及生物醫學領域，並涉及一種Covid-19疫苗、製備方法和應用。本發明提供的融合蛋白可用于開發Covid-19蛋白疫苗和預防或治療Covid-19的藥物。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095956/image009-9.png)
-那麼我們現在知道了什麼？
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/2a71ea39-f8bb-4ec1-bbec-e4664cba31c5.png?asset_id=9a65ac88-4020-47a8-a23e-31e35f824ebc&amp;img_etag=%221bd397b32e844ab4228e610543355081%22&amp;size=6055)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/2a71ea39-f8bb-4ec1-bbec-e4664cba31c5.png?asset_id=9a65ac88-4020-47a8-a23e-31e35f824ebc&amp;img_etag=%221bd397b32e844ab4228e610543355081%22&amp;size=1024)
 
-中共的軍隊實際上參與了武漢實驗室。這不僅僅是一個民事行動。順便說一下，這一點在過去一年中被某些人士反復否認。
+一位加利福尼亚的病毒学家告诉安东尼·福奇，新冠病毒看起来“可能是经过设计的”，“与进化理论的预期不一致”——只是后来反其道而行之，8周后发表了一篇“自然起源 ”的论文（在获得数百万美元的美国国立卫生研究院拨款之前），他删除了5000多条推特。
 
-該實驗室的科學家不僅知道病毒的基因測序，而且在病毒大流行公開之前就已經有了所謂疫苗的專利。申請專利和弄清它們是需要時間的，而且是相當多的時間，不是幾周或幾個月。
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/7e06ce0c-3a5a-4ce3-bbe3-529f7f124633.jpg?asset_id=eb95111f-362e-4df8-9351-c57227f6c47f&amp;img_etag=%22148d07b62ccf77dd0c4eea1243d17a41%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/7e06ce0c-3a5a-4ce3-bbe3-529f7f124633.jpg?asset_id=eb95111f-362e-4df8-9351-c57227f6c47f&amp;img_etag=%22148d07b62ccf77dd0c4eea1243d17a41%22&amp;size=1024)
 
-證明專利材料也需要時間，要為某些東西申請專利，你必須能夠證明它的正確性，你不能僅僅有了想法就去申請專利。你必須證明疫苗專利的免疫原性，而免疫原性不是瞬間就有的，需要幾周甚至幾個月的時間通過對動物和人類的原始科學研究來證明，這意味著周在2月24日之前就能夠申請專利，時間可能是在幾個月甚至更久之前。也意味著他們甚至在病毒發生前就在研究這個問題，因為要研究疫苗，必須有研究疫苗的必要。這反過來說明他們很清楚在病毒爆發之前野外就有一種厲害病毒，或者他們故意將其釋放或打算釋放到野外。因為沒有人能夠為你自己設想的病毒創造疫苗，那是毫無價值的。
+位于加利福尼亚州拉霍亚的安德森实验室的负责人克里斯蒂安·G·安德森（Kristian G. Anderson）在2020年2月1日给福奇的一封电子邮件中写道：“该病毒的不寻常特征在于基因组中只占非常小的一部分，不到0.1%，所以人们必须真正仔细观察所有的序列，才能发现一些特征（可能）看起来是经过改造的。”他补充说，他和他的团队发现“该基因组与进化理论的期望值不一致。”
 
-這說明要麼病毒在2020年2月之前已經 “出來 “很久了（不是一兩個月），要麼中共打算在2019年秋天釋放它。無論哪種情況，現在都有大量證據表明，這不是一個在12月下旬的某一天 “神奇地出現 “的病毒，也不是來自蝙蝠，穿山甲。
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/a984402f-0865-4ec5-bd88-ce97d42aef1f.png?asset_id=5dd801bd-d317-417c-bbb3-88037bcb645c&amp;img_etag=%220955b4b287e8fd7cc3ce886c366c37b7%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/a984402f-0865-4ec5-bd88-ce97d42aef1f.png?asset_id=5dd801bd-d317-417c-bbb3-88037bcb645c&amp;img_etag=%220955b4b287e8fd7cc3ce886c366c37b7%22&amp;size=1024)
+
+安德森当时在回应福奇发给他的一篇探讨病毒起源的文章。第二天，福奇给他的副手休·奥金克罗斯（Hugh Auchincloss）发了一封紧急电子邮件，主题是“重要”，他写道：“休，今天上午我们必须谈谈，请保持手机畅通。… 阅读这份文件以及我将转发的电子邮件。你今天将有必须完成的任务。”
+
+所附文件的标题是“**巴里克, 石正丽, 等人——《自然医学》——非典病毒的功能增强.pdf**”。
+
+因此，就在福奇信任的科学顾问之一提出新冠病毒可能是人为的（而福奇和他的同事们公开将这种可能性视为阴谋论）之后，他将有关功能增强性研究的论文——福奇在武汉病毒学研究所资助的研究——发给了他的副手。
+
+**而现在安德森已经删除了他一半以上的推文。**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d84c3532-ddea-4e67-8d5b-d2bcf974ae19.png?asset_id=b27a00fa-cdbb-4bd8-914f-792572f3ddf1&amp;img_etag=%2277a7f7bf07e1d80589f4b26d80692f5b%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d84c3532-ddea-4e67-8d5b-d2bcf974ae19.png?asset_id=b27a00fa-cdbb-4bd8-914f-792572f3ddf1&amp;img_etag=%2277a7f7bf07e1d80589f4b26d80692f5b%22&amp;size=1024)
+
+安德森声称，他的旧推文是“自动删除”的——这种操作应该是一个按照顺序的、自动化的过程——这5000多条推文不是在2021年3月7日之前突然消失的。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/e74d01b4-0679-4efa-923f-67c0f5d2b1d8.png?asset_id=c29e5c4b-8359-4ac9-8b67-dc2800cc36bc&amp;img_etag=%227adc627f0b4175ed57f079c54bb82a89%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/e74d01b4-0679-4efa-923f-67c0f5d2b1d8.png?asset_id=c29e5c4b-8359-4ac9-8b67-dc2800cc36bc&amp;img_etag=%227adc627f0b4175ed57f079c54bb82a89%22&amp;size=1024)
+
+删除的推文的行为是在网络侦探开始揭开安德森与福奇和美国国立卫生研究院的关系时出现的。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/6a304e78-8fe1-4abe-b3b0-29335d214c2f.png?asset_id=5b274f6f-0214-47a2-801e-cbc4e3e07336&amp;img_etag=%22c882d3957cda5787d5bdad4182626f95%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/6a304e78-8fe1-4abe-b3b0-29335d214c2f.png?asset_id=5b274f6f-0214-47a2-801e-cbc4e3e07336&amp;img_etag=%22c882d3957cda5787d5bdad4182626f95%22&amp;size=1024)
+
+*推文翻译*：Radical Centrist：实验室泄漏从来都不是阴谋论。然而，否认实验室泄漏，才是真正的阴谋。
+
+在你们挖出安德森这些推文，以支持科顿的评论的第二天，他写给福奇：“该基因组与进化理论的期望不一致。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/78ad3ae9-1e11-4eae-be59-822d75ad251d.png?asset_id=5c3d9405-1e05-4691-820b-16dee35964b4&amp;img_etag=%22c71ab8a6b9bd230d6e5a2614abcdaead%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/78ad3ae9-1e11-4eae-be59-822d75ad251d.png?asset_id=5c3d9405-1e05-4691-820b-16dee35964b4&amp;img_etag=%22c71ab8a6b9bd230d6e5a2614abcdaead%22&amp;size=1024)
+
+*推文翻译*：Radical Centrist：两个月后，他推翻了之前的判断并发表了他的《近端起源》论文，帮助掩护了美国国立卫生研究院/国家过敏和传染病研究所因为支持功能增强性研究存而存在的风险。
+
+五个月后，他与达萨克一起获得了188万美元的新发传染性疾病研究中心（CREID）的 经费。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/4bbed76e-e965-4cd6-b547-6da96eb9b1c2.png?asset_id=ebb18eb4-1e4e-4c60-bb19-33b414820fcb&amp;img_etag=%2210f07895bfc7e91f5935c7cb071436a8%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/4bbed76e-e965-4cd6-b547-6da96eb9b1c2.png?asset_id=ebb18eb4-1e4e-4c60-bb19-33b414820fcb&amp;img_etag=%2210f07895bfc7e91f5935c7cb071436a8%22&amp;size=1024)
+
+*推文翻译*：RIchard H. Ebright写到：事实上来自新发传染性疾病研究中心的奖励是这个的五倍。（你谈到的只是五年中的第一年的资金数字）
+
+Radical Centrist：非常奇怪，安德森看到我上面的推文后，删除了他的反实验室泄漏理论的回复。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/35f31580-a324-48bf-92b7-d878c025d1a6.png?asset_id=a38e32e3-a23a-49ea-a73e-1cdb9d6d5ef7&amp;img_etag=%22840659702d91edc99262e62c4bf2c99d%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/35f31580-a324-48bf-92b7-d878c025d1a6.png?asset_id=a38e32e3-a23a-49ea-a73e-1cdb9d6d5ef7&amp;img_etag=%22840659702d91edc99262e62c4bf2c99d%22&amp;size=1024)
+
+*推文翻译*：Yuri Deigin：是的，你5000条推文就“噗”的一声消失了，因为他们被自动删除了？难道“自动”删除不应该是一个按照顺序的过程吗？还是你更改了设置，让你的5000条推文在今天被自动删除了？
+
+或许你应该自动删除你的《近端起源》论文？
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d9bee45d-8c68-4b05-a6a9-77e9f43e7225.png?asset_id=45537c35-c608-4b0b-8b54-14d1c351eb86&amp;img_etag=%2256b3f78b5d51b9d5dff0b1b6c49584ca%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d9bee45d-8c68-4b05-a6a9-77e9f43e7225.png?asset_id=45537c35-c608-4b0b-8b54-14d1c351eb86&amp;img_etag=%2256b3f78b5d51b9d5dff0b1b6c49584ca%22&amp;size=1024)
+
+*推文翻译*：Yuri Deigin：安德森的律师建议他这么做的？考虑到福奇邮件牵涉“潜在的调查”。
+
+同时，福奇否认在武汉的研究项目获得资助，但是…
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/c1f86a01-35a8-4d38-a50e-a651b323b9b5.png?asset_id=3f25f2ec-8310-41e9-8d45-0c5991e3f1e9&amp;img_etag=%22362dd84a5f56aa71fda0bc22d588fecf%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/c1f86a01-35a8-4d38-a50e-a651b323b9b5.png?asset_id=3f25f2ec-8310-41e9-8d45-0c5991e3f1e9&amp;img_etag=%22362dd84a5f56aa71fda0bc22d588fecf%22&amp;size=1024)
+
+*推文翻译*：NIAID邮件更新：在2019年，福奇领导的国家过敏和传染病研究所给了健康生态联盟和彼得·达萨克364万美元。其中的75万美元给了武汉病毒研究所。
+
+游戏结束。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d446c00f-3bce-4bdd-b2c3-f7b9cafb70bb.png?asset_id=2851647d-8c79-42b0-a8da-d02b5f9a2442&amp;img_etag=%22e71c24a7b9972768e6ccec0943bfe5cd%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d446c00f-3bce-4bdd-b2c3-f7b9cafb70bb.png?asset_id=2851647d-8c79-42b0-a8da-d02b5f9a2442&amp;img_etag=%22e71c24a7b9972768e6ccec0943bfe5cd%22&amp;size=1024)
+
+*推文翻译*：从国家过敏和传染病研究所到武汉病毒研究所的子合同经费。自2014年到2019年。
+
+[原文链接](https://www.zerohedge.com/political/virologist-who-told-fauci-sars-cov-2-potentially-engineered-just-deleted-5000-tweets?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-[原文鏈結](https://www.zerohedge.com/political/fauci-funded-wuhan-military-scientist-filed-covid-vaccine-patent-days-after-pandemic)
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-本文作者：林林虎
 
-審核校對：魯邦五世
-
-上傳排版：糊糊文嬰
 
 0

@@ -1,39 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】德州通过禁止“疫苗护照”法案
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1310400/)
+## 威斯康星大学麦迪逊分校加入洛克菲勒基金会的流行病预防研究所
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1310431/)
 
-作者： 纽约香草山媒体部 7bends
+#### 编译：文复
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09123610/Screenshot-2021-06-09-9.35.50-AM.png)
+洛克菲勒基金会是一家专注于健康、科学和社会问题的慈善机构，今天宣布将努力创建一个国际流行病预防机构。通过在全球范围内建立一个由 20 多个公共、私人和非营利合作伙伴组成的网络，该基金会的支持旨在帮助迅速阻止发生在任何地方的潜在流行病威胁。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+该研究所将促进和资助合作的最大目标之一是加强全球基因组测序工作，包括在南非和亚洲部分地区。在美国，洛克菲勒将支持其称为基因组监测的区域加速器，其中包括威斯康星大学麦迪逊分校、佛罗里达大学等。威斯康星大学麦迪逊分校还将与明尼阿波利斯、密歇根、威斯康星、马什菲尔德和密尔沃基的伙伴合作。
+
+自去年以来，艾滋病疫苗研究所的研究人员对导致 COVID-19 的病毒进行了高水平的基因组测序，结合了戴恩县DANE多达 5% 的 SARS-CoV-2 感染的遗传特征。在全国范围内，科学家对所有阳性病例进行了低于2%的采样。基因组测序可以提供有关病原体及其传播方式的丰富信息。
+
+“洛克菲勒正试图将公共卫生和学术领域的不同群体联系在一起，”华盛顿大学医学院和公共卫生学院病理学和实验室医学教授谢尔比奥康纳说。“我们开始探索如何扩展到该地区的其他地区，并继续进一步发展我们已经在这里开展的工作。”
+
+AVRL 科学家和华盛顿大学兽医学院教授 Thomas Friedrich 解释说，这种支持将推进可用于为公共卫生提供信息和开发新工具的研究，并生成可用于推动研究的公共卫生数据。
+
+他补充说，目标是“打破这些孤岛，让我们获得更好的公共卫生成果，以及更明智的转化研究。”
+
+在 戴恩县DANE，他们的努力已经说明一切皆有可能。由于研究小组的监测工作速度很快，因此它们已被用于帮助为社区的实时公共卫生决策提供信息。
+
+例如，当研究人员帮助确定当地企业爆发的 COVID-19 涉及关注的病毒变体时，他们与公共卫生麦迪逊和戴恩县密切合作，以提供指导和有用的信息。
+
+病理学和实验室医学教授大卫奥康纳解释说，在洛克菲勒的支持下，AVRL 研究人员还将特别关注学龄儿童的基因组监测，以提供有关 COVID-19 传播的更详细的数据.
+
+他解释说，研究人员正在分析环境空气采样数据，以确定是否可以在公共环境中检测到 SARS-CoV-2 病毒的存在。 “你可以想象这在机场或公交车站……或学校和自助餐厅等地方会很有用。”
+
+研究人员表示，这些类型的投资也可以带来更大的机会，包括加强中西部其他机构之间的合作伙伴关系。
+
+“我们希望这个项目能让我们在未来产生更大的影响，”谢尔比奥康纳说。
+
+**文章及图片来源：**
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09121942/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%BE%B7%E5%B7%9E%E9%80%9A%E8%BF%87%E7%A6%81%E6%AD%A2%E7%96%AB%E8%8B%97%E6%8A%A4%E7%85%A7%E6%B3%95%E6%A1%88.jpg)
+> [UW–Madison joins Rockefeller Foundation’s pandemic prevention institute](https://news.wisc.edu/uw-madison-joins-rockefeller-foundations-pandemic-prevention-institute/)
 
-据[福克斯](https://www.foxnews.com/politics/coronavirus-vaccine-passport-texas-governor-bans.amp?__twitter_impression=true)6月8日报导，德克萨斯州州长Greg Abbott签署法案，禁止企业在得克萨斯州要求“疫苗护照”。该法案是在立法会议的最后几天通过。法案从签署之日起立即生效。
 
-德州州长Greg Abbott周一签署的这条法案规定，任何德州的企业要求提供冠状病毒疫苗接种证明才能开展业务是违法的。除了禁止私营企业要求提供疫苗接种证明外，任何要求提供疫苗接种证明的企业均不得参与德州政府的合同。该法案仍然允许企业实施符合州和联邦法律的冠状病毒筛查和感染措施。
 
-此前，Greg Abbott州长曾经签署了一项行政命令，禁止德州和其地方政府机构以及政府部门要求提供对冠状病毒疫苗接种证明才能使用服务。
-
-希望越来越多的州和国家认识到推广接种尚处试验阶段的冠状病毒疫苗和强制实行“疫苗护照”的危害性。只有尽快进行病毒溯源和病毒追责，才能早日结束大流行。
-
-编辑/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+校对发布：紫橄榄
 
 0

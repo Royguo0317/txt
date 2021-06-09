@@ -1,39 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】福奇博士有前科
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1310174/)
+## 羟氯喹可提高中共病毒感染者存活率近200%！
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1310238/)
 
-作者： 纽约香草山媒体部 7bends
+阿黎
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+据美国新闻网（OANN） 6月8日报道，另一项研究证实羟氯喹在治疗中共病毒方面是有效的。由圣-巴拿巴（Saint Barnabas）医疗中心进行的研究发现，羟氯喹和抗生素阿奇霉素（Zithromax）的组合能有效抑制中共病毒。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09102705/%E6%B3%BD%E8%BF%9E%E7%A7%91%E5%8C%BB%E7%94%9F-HCQ%E6%9D%80%E6%AF%92%E6%BC%AB%E7%94%BB.jpg)
+研究表明，如果在使用呼吸机的严重中共病毒疾病患者中给予高剂量的治疗，可以增加患者近200%的生存机会。科学家们还报告说，较高剂量的羟氯喹使87%的被观察患者更快康复。
 
+在此之前，包括安东尼-福奇博士在内的公共卫生专家否认羟氯喹对治疗中共病毒的有效性。生物武器专家史蒂文-哈特菲尔德博士（Steven Hatfill）将这次大流行导致的数十万美国人死亡的责任指向了这些专家。
 
+“这是假的，”他断言。”他们不希望疫苗有竞争。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09101853/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E7%A6%8F%E5%A5%87%E5%8D%9A%E5%A3%AB%E6%9C%89%E5%89%8D%E7%A7%91.png)
+该研究还发现，羟氯喹对临终病人特别有效，如果没有这种药物，这些病人就会死亡。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09102715/HCQ.jpg)
+**评：**
 
-[国家脉动（The National Pulse）](https://thenationalpulse.com/breaking/18-years-ago-cspan-caller-told-fauci-to-resign/)调查记者Natalie Winters爆料，安东尼·福奇博士并非只有CCP病毒大流行以来表现恶劣，在18年前SARS爆发期间，福奇博士行事风格已遭民众质疑。
+这个新的研究结果进一步证实羟氯喹对治疗中共病毒的有效性。如果坚信疫苗的人们继续拒绝接受这样的事实，那么像福奇那样的无良专家们仍然有市场，继续撒谎欺骗大众。
 
-2003年，一位来自北卡罗来纳州的医生要求福奇辞职，因为福奇博士长期身处要职，却不向美国人传达公共卫生信息。美国控制传染病的能力没有提高，反而恶化了。这位医生在2003年4月14日的call-in电话节目中问福奇：“你不认为是时候下台并让其他人传达更有效的信息了吗？”“实际上，不”，福奇笑着回答。
+人类需要醒悟，需要自救，自欺欺人只能等待灭亡。醒悟需要勇气，要生存必须拿出勇气！
 
-看了这段描述，立即让人联想起福奇博士多次出席川普总统疫情发布会谈论疫情时轻佻而又漫不经心地的表情。现在看来，身为顶级传染病专家的专业人生和美国年薪最高的公务员，福奇博士当时对疫情的轻描淡写就是在误导非专业的总统和公众。
+[原文链接](https://www.oann.com/study-hydroxychloroquine-can-boost-中共病毒-survival-chances-by-nearly-200/)
 
-原来福奇博士在将近20年前，SARS爆发的时候，就被民众认为没有尽到向公众传达关键卫生信息的责任。在全球公众健康遭受CCP病毒重创的今天，长期担任国家过敏和传染病研究所所长的福奇博士与中共一唱一和，配合娴熟，美国民众更有理由怀疑，他是不是自2003年SARS爆发起就是中共的老搭档呢？
+* * *
 
-编辑/发稿：雪梨
+*编辑、发稿 文锦*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+2
++1
