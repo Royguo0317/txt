@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 塞林博士：在科学界存在故意误导和掩盖Covid-19的真正起源
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1309364/)
+## 媒体对冠状病毒实验室泄漏态度的变化
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1309428/)
 
-6/2/2021在班农战斗室，塞林博士说：皮特.打杂客领导的科学界蓄意误导和掩盖Covid-19的真实起源。福奇的电子邮件表明，他知道真相。泄露的电子邮件对福奇博士来说确实是一个巨大的打击。
+5/27/2021 几个月来，媒体指责川普政府兜售一种“阴谋论”，称新型冠状病毒来自武汉的一个病毒学实验室。现在，病毒来自实验室的想法是一个“严肃的科学问题。”
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 

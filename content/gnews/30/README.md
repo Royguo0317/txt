@@ -1,66 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草山水墨堂】剑出鞘
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1309021/)
+## 柬埔寨妄想全体免疫，依然从中共购买灭活疫苗
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1309388/)
 
-**作者**：香草山美食部 文百合
+#### 文章撰写:【默凡】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09042608/ghn4352ipgdfaste_722021-06-09_16-25-32.png)
 
+6月8日，《高棉时报》（Khmer Times）报道称：柬埔寨再收到100万剂中共国疫苗，包括50万剂国药疫苗及50万剂科兴疫苗。迄今，拥有约1700万人口的柬埔寨共收到约700万剂中共病毒疫苗，几乎都是中共国疫苗，这批疫苗8日运抵柬埔寨金边国际机场（Phnom Penh International Airport）。
 
+柬埔寨总理洪森（Hun Sen）7日晚在脸书（Facebook）表示，如果没有变化，柬埔寨6月12、19日还会再收到各100万剂的中共病毒疫苗。
 
+截至8日，柬埔寨共计收到超过700万剂的中共病毒疫苗，包括220万剂中共国捐赠的中共国国药集团（Sinopharm）疫苗、450万剂自购的中共国科兴（Sinovac）疫苗、中共病毒疫苗全球取得机制（COVAX）提供的32万4000剂阿斯利康（AstraZeneca）疫苗。
 
+评论：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09001022/image0-37-scaled.jpg)
+中共病毒疫情爆发以来，各地已经报道无数例二次感染或接种疫苗仍被确诊的患者，况且中共病毒存在高变异性，这足以说明中共病毒不存在群体免疫的可能性，柬埔寨竟然还想考群体免疫来应对中共病毒，甚至还想靠中共灭活疫苗来应对达到群体免疫，这简直就是灾难。
 
-剑出鞘——
+参考文章：[柬埔寨拚全体免疫 再收百万剂中国疫苗](https://www.rfi.fr//cn/%E4%BA%9A%E6%B4%B2/20210608-%E6%9F%AC%E5%9F%94%E5%AF%A8%E6%8B%9A%E5%85%A8%E4%BD%93%E5%85%8D%E7%96%AB-%E5%86%8D%E6%94%B6%E7%99%BE%E4%B8%87%E5%89%82%E4%B8%AD%E5%9B%BD%E7%96%AB%E8%8B%97)
 
-书法如诗如画
-话中有话
-它说—“灭共是正义的需要”
-行书速楷
-自由奔放
-如行云流水
-气韵轩昂
-有强烈的艺术魅力
+本文仅代表作者本人观点，不代表Gnews平台
 
-水墨丹青灭中共
-每一笔都是力量
-是射向敌人的子弹
-剑出鞘
-枪上膛
-香草山水墨堂
-就是我们的战场
-笔墨纸砚
-文房四宝
-就是我们的剑
-我们的枪
-我们的炮
-对准敌人猛开炮
-胜利就在前方
-十四亿中国人民的自由解放
+* * *
 
-编辑/上传：遍地开花 审核/发布：飞虹
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
-
-
-
-
-
-
+*排版发布：日本东京方舟农场 文柯Miles*
 
 0

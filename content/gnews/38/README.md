@@ -1,22 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美俄高层会面之际 普京借机修复俄国际形象
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1309245/)
+## 【香草山水墨堂】剑出鞘
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1309021/)
 
-翻译：黃金精神
-校对：人间四月
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09024542/%E9%BB%84%E9%87%91.jpg)图片来源：VOA
-据Euronews & AP报道，俄罗斯总统普京上周五指责欧洲及美国在批评对俄罗斯和白俄罗斯反政府抗议活动的反应过于虚伪，并警告美国切勿踏上苏联的老路。
+**作者**：香草山美食部 文百合
 
-在圣彼得堡的一个经济论坛上发表讲话时，普京在即将与美国总统乔·拜登会晤前，特别讨论了美俄关系，称“现在处于极低的水平”。普京批评美国对俄罗斯的制裁以及对俄罗斯干预美国大选的指控，并表示美国和欧洲在批评近几个月俄罗斯和白俄罗斯警方镇压抗议者时采取双重标准。普京指出：“我们对美国没有任何意见，但美国对我们有意见。美国想遏制我们的发展以及公开谈论此事。通过经济制裁，美国试图依靠在俄国境内盟友的力量影响俄国国内政治。”美国一直指责俄罗斯干预美国大选，美国官员声称干预源自俄罗斯的网络攻击，因此俄罗斯与美国之间的关系已降至冷战后的低点。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
 
-普京重申俄罗斯拒绝接受干涉美国总统大选的指控，并指出即使在美国及其盟国强烈批评白俄罗斯镇压反政府抗议活动的情况下，俄罗斯仍对数百名参与袭击的人提出沉重指控。普京还批评美国过于自信，说美国的问题是认为自己强大到可以承受差错及错误。但问题的数量在增加。总有一天，这些问题再也无法处理。
 
-普京还趁机高度评价俄罗斯对中共病毒大流行的应对，称赞俄罗斯设计的疫苗高效，并对一些国家出于“政治动机”禁止购买这些疫苗的做法表示遗憾。
 
-总结：虽然表面上看起来美国与俄罗斯互掐，美国指控俄罗斯干涉总统大选，进行网络攻击，俄罗斯警告美国不要过于自信。但本作者认为实为烟雾弹，为美国进一步在印太地区孤立中共以及双方在某些方面达成共识合作而打的掩护。俄罗斯与美国虽然在意识形态上有很大的不同，但两者在某些方面仍然可以开展合作。以普京的政治智慧绝不会跟即将成为“过街老鼠”的中共一道危害全人类。
 
-原文链接：[‘Over confident’ U.S. risks going down same path as Soviet Union, warns Putin](https://www.euronews.com/2021/06/05/over-confident-u-s-risks-going-down-same-path-as-soviet-union-warns-putin)
 
-+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09001022/image0-37-scaled.jpg)
+
+剑出鞘——
+
+书法如诗如画
+话中有话
+它说—“灭共是正义的需要”
+行书速楷
+自由奔放
+如行云流水
+气韵轩昂
+有强烈的艺术魅力
+
+水墨丹青灭中共
+每一笔都是力量
+是射向敌人的子弹
+剑出鞘
+枪上膛
+香草山水墨堂
+就是我们的战场
+笔墨纸砚
+文房四宝
+就是我们的剑
+我们的枪
+我们的炮
+对准敌人猛开炮
+胜利就在前方
+十四亿中国人民的自由解放
+
+编辑/上传：遍地开花 审核/发布：飞虹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
+
+
+
+
+
+
+
+0
