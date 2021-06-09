@@ -1,51 +1,108 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒起源研究的博弈：民间组织、科学界和政府机构（三）
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1310170/)
+## 福奇的马仔做贼心虚， 已清空自己的推特账户
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1310220/)
 
-**翻译整理： lulu18、雅典辣豆、坐看云起时、小先生等**
+新闻来源：《零对冲》| 作者：TYLER DURDEN | 发布时间：2021年6月7日
 
-**序言：**
+翻译/简评：clau | 校对/审核：小小妹 | Page：我是球大哥
 
-2021年6月3日，美国著名时尚杂志《名利场》（Vanity Fair ）发表一篇详尽的关于病毒起源的[重磅报道](https://www.vanityfair.com/news/2021/06/the-lab-leak-theory-inside-the-fight-to-uncover-covid-19s-origins)《The lab-leak theory: inside the fight for uncover COVID-19’s origins》（实验室泄漏理论：关于中共病毒起源研究的斗争）。作为重要的左派媒体，虽然阅读量不及《纽约时报》，但是它的调查报告被左派精英广泛阅读。这篇历经数月准备而发表的调查报告也反映出左派主流媒体在报道病毒来源问题上逐渐发生了改变。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09013845/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE1291.png)
-通过文章中提供的资料和细节，我们可以从另一角度看到包括民间、科学界、情报界、世界卫生组织和美国政府组织内部的各方在病毒起源问题上的角逐，也验证了很多爆料革命战友从2020年初以来提供的许多重要信息。现梳理一些关键信息并结合其他公开文章与大家分享：
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/b3616e11-ee0c-42be-b606-c71500e6cc02.jpg?asset_id=29d1f44b-fa83-4912-ab96-e4c85136f9f5&amp;img_etag=%22409891c60a0e81ad88282510e924f52c%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/b3616e11-ee0c-42be-b606-c71500e6cc02.jpg?asset_id=29d1f44b-fa83-4912-ab96-e4c85136f9f5&amp;img_etag=%22409891c60a0e81ad88282510e924f52c%22&amp;size=1024)
 
-**[1.  民间自发的关于病毒实验室起源的追踪](https://gnews.org/zh-hans/1309208/)**
+克里斯蒂安·G·安德森（Kristian G. Anderson）最近删除了自己推特账户2021年3月之前的5000条推文，他拥有的安德森实验室位于加利福尼亚州拉霍亚。最近福奇被曝出的3000封邮件里，包含安德森在2020年2月发给福奇的邮件，当时安德森提醒了福奇新冠病毒有被人工改造的痕迹。然而，很快安德森就被福奇用钱堵住了嘴，甚至推翻了自己最初的判断，转向成为了新冠病毒自然起源理论的支持者。
 
-**[2. 科学界关于功能增加性(Gain of Function) 研究和病毒来源的争议](https://gnews.org/zh-hans/1310138/)**
+“伟大的”福奇博士的“邮件门”还在持续不断的发酵，非常多的证据都被媒体挖出并报道。这些证据，轻则是渎职，重则是叛国。然而福奇这只老狐狸却还能睁着眼睛说瞎话，面不改色心不跳，大言不惭的说“诋毁我就是诋毁科学”。福奇这40年的官，确实不是白当的。但是，他的马仔们的心理素质可就没有福奇这么好了。此地无银三百两，做贼心虚，都可以用来形容安德森删除自己推文的行为。难道删除了，就没事了吗？更何况网络是有记忆的，他们的心理防线会有被击垮的那一天，请大家持续关注福奇的“邮件门”事件。
 
-**3. 美国国务院和情报部门**
+**原文翻译：**
 
-同时在幕后，国家安全和公共卫生专家以及行政各部门的官员就什么可以调查和公开的问题展开了激烈的斗争。美国政府内部有两个主要团队致力于揭开 中共病毒 的起源：一个在国务院由前国家安全顾问马修·波廷格( Matthew Pottinger)批准，另一个在国家安全委员会（National security council，简称NSC） 的指导下。疫情刚开始时，国务院没有人太关注武汉的病毒实验室，但他们非常关切中国明显的掩盖疫情严重性的行为。中共政府关闭了华南市场，下令销毁实验室样本，声称有权在发表前审查有关 中共病毒的任何科学研究，并驱逐了《华尔街日报》的记者团队。出乎 NSC 官员意料的是，中共国国家主席习近平于2020 年 2 月 14 日宣布了一项计划，加快制定新的生物安全法以加强全国实验室的安全程序。
+## 告诉福奇SARS-CoV-2“有可能被改造”的病毒学家刚刚清空了他的推特账户
 
-大卫·阿舍（David Asher）现任哈德逊研究所 (Hudson Institute) 高级研究员，去年负责国务院日常的中共病毒起源调查。他说，很快就发现，联邦政府内部有一个巨大的与功能增强（GOF）研究相关的官僚机构。正是因为NIH和其他美国政府部门对GOF研究的赞助而造成的利益冲突阻碍了美国对病毒来源的调查。用东亚局前副助理国务卿大卫·费思（David Feith）的话来说，“为什么美国政府的某些人不像我们中的很多人那样好奇，这个故事非常重要。”
+更新（1650ET）：
 
-国务院首席中国战略家，精通普通话的余茂春开始镜像武汉病毒所网站，并编写了有关其研究的问题档案。 2020年4月，他将档案交给了国务卿蓬佩奥，后者开始公开要求进入武毒所进行检查。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09102302/intelligence-report-4-nations-pose-serious-cyberthreat-to-us-showcase_image-7-a-16394.jpg)
-然而，2020年4月30日，美国国家情报总监办公室（Office of the Director of National Intelligence）发表了一份模棱两可的[声明](https://www.dni.gov/index.php/newsroom/press-releases/item/2112-intelligence-community-statement-on-origins-of-covid-19)，明显目标是压制关于病毒实验室泄漏理论的日益增长。声明说，情报界同意已经形成的科学界的广泛共识，即 中共病毒 病毒不是人造的或转基因的，但将继续评估“疫情是通过接触受感染的动物开始的，还是实验室的事故引起的”。然而就在几个小时后的新闻发布会上，川普反驳了他自己的情报官员，并声称他看到了表明该病毒来自武汉病毒研究所的机密信息。当被问及证据是什么时，他说：“我不能告诉你。我不能告诉你这些。”
+全部都删除了：
 
-作为一名资深的亚洲专家和前记者，波廷格故意让国务院的调查团队规模缩小，因为政府内部有太多人“完全不考虑实验室泄漏的可能性，他们倾向于认为这是不可能的”。此外，许多领先的专家已经获得或批准了用于GOF的资金，他们有利益冲突的地位“在搅浑水和污染公正调查的机会方面发挥了深远的作用。” 根据波廷格的说法，政府内部有一种“抗体反应”，其中任何关于可能的实验室起源的讨论都与破坏性的本土主义姿态有关。 这种反感延伸到了国际科学界，他们的“令人发狂的沉默”也让余茂春感到沮丧。他回忆说，“谁敢说出来，就会被排斥。”
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/fec4d429-9976-4764-91f9-ebc4c410494f.png?asset_id=dcbb583d-36d6-4478-85fd-9612afc131aa&amp;img_etag=%220ceb5ef8d6c895194832c8794942fec4%22&amp;size=2630)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/fec4d429-9976-4764-91f9-ebc4c410494f.png?asset_id=dcbb583d-36d6-4478-85fd-9612afc131aa&amp;img_etag=%220ceb5ef8d6c895194832c8794942fec4%22&amp;size=1024)
 
-2020 年夏天，国务院的 中共病毒 起源调查已经冷却。军备控制、核查和合规局（Bureau of Arms Control, Verification, and Compliance）的官员恢复了正常工作，继续监视世界是否存在生物威胁，而不是在寻找武汉病毒真相。到了11月，国务院团队从一个外国情报那里得知一个提示：关键信息很可能保存在美国情报界自己的档案中还未经分析。一位前国务院官员说，这条线索的出现了提供了绝对令人震惊的机密信息。三名政府官员同时证实，武毒所的三名GOF相关的研究人员都于 2019 年 11 月生病，曾因为有与中共病毒相似的症状去过医院。一位前高级官员回忆说，国务院内部的反应是“天啊！我们应该告诉老板！”于是调查又重新恢复了生机。
+至少他不必继续阻挡来自问询者的讨厌的问题…
 
-一位与大卫·阿舍合作的情报分析师通过机密渠道筛选出一份由劳伦斯利弗莫尔国家实验室(Lawrence Livermore National Lab，隶属能源部、进行国家安全研究) 的研究人员于2020年 5 月撰写的关于实验室泄露合理性的[报告](https://wjla.com/news/nation-world/exclusive-classified-study-found-covid-19-could-have-originated-in-chinese-lab)，当时这份报告似乎已被隐藏在分类收藏系统中。
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/2a71ea39-f8bb-4ec1-bbec-e4664cba31c5.png?asset_id=9a65ac88-4020-47a8-a23e-31e35f824ebc&amp;img_etag=%221bd397b32e844ab4228e610543355081%22&amp;size=6055)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/2a71ea39-f8bb-4ec1-bbec-e4664cba31c5.png?asset_id=9a65ac88-4020-47a8-a23e-31e35f824ebc&amp;img_etag=%221bd397b32e844ab4228e610543355081%22&amp;size=1024)
 
-2020 年 12 月 9 日，来自四个不同局的大约十几名国务院雇员聚集在一间会议室，讨论即将由世界卫生组织组织的武汉实况调查团。国务院军备控制、核查和合规局（Bureau of Arms Control, Verification, and Compliance）内的一个小组已经对该病毒研究所研究了好几个月。美国国务院军备控制、核查和合规局（ State Department’s Bureau of Arms Control, Verification, and Compliance）代理助理国务卿托马斯·迪南诺（ Thomas DiNanno）写的一份内部备忘录显示，与会官员在讨论他们可以与公众分享的内容时，美国国务院国际安全与不扩散局（Bureau of International Security and Nonproliferation）生物政策办公室主任克里斯托弗·帕克（Christopher Park）警告不要曝光美国政府NIH等部门资助GOF研究的事情。与会者对美国政府中的某些官员可以提出如此赤裸裸地反对透明调查报告的观点，感到极度震惊和不安。帕克曾在2017年参与解除对GOF研究的禁令，其他人也警告不要打开潘多拉的盒子。国务院的小组12月还将情况报告给负责军备控制和国际安全事务的代理副部长(acting undersecretary for Arms Control and International Security)的克里斯·福特（Chris Ford），但福特似乎对他们的调查充满敌意。
+一位加利福尼亚的病毒学家告诉安东尼·福奇，新冠病毒看起来“可能是经过设计的”，“与进化理论的预期不一致”——只是后来反其道而行之，8周后发表了一篇“自然起源 ”的论文（在获得数百万美元的美国国立卫生研究院拨款之前），他删除了5000多条推特。
 
-怀着深深的不信任，国务院团队召集了一个称为“红队”专家小组，秘密地测试实验室泄漏假说。该小组于2021年 1 月 7 日（即国会大厦叛乱的第二天）晚上举行，有 29 人参加了一个持续了三个小时的国务院视频通话。科学专家包括 巴里克、Alina Chan 和斯坦福微生物学家 大卫·雷尔曼（David Relman）。大卫·阿舍还邀请创立了一家生物制药公司的乳腺癌专家 史蒂文·奎伊（Steven Quay ）博士展示了一项统计分析，权衡了实验室来源与天然来源的可能性。在奎伊的分析中，巴里克指出，它的计算未能解释自然界中存在但仍然未知的数百万个蝙蝠序列。尽管他们质疑奎伊的发现，但科学家们看到了其他怀疑实验室起源的理由。雷尔曼说，武毒所的部分任务是对自然世界进行采样并提供“人类病毒”的早期预警。2012 年 6 名矿工的感染事件在当时足以成为头条新闻，然而这些病例从未向世卫组织报告。巴里克补充说，如果 SARS-CoV-2 来自“强大的动物宿主”，人们可能会期望看到“多次引入事件”，而不是一次爆发， 但他警告说，这并不能证明实验室泄露。 这促使阿舍问：这难道不是一种生物工程吗？ 福特认为的小组的证据薄弱，并对之前的秘密调查感到困扰，于是熬夜在一份四页的备忘录中总结了他的担忧，并于第二天早上通过电子邮件发送给了多位国务院官员。
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/7e06ce0c-3a5a-4ce3-bbe3-529f7f124633.jpg?asset_id=eb95111f-362e-4df8-9351-c57227f6c47f&amp;img_etag=%22148d07b62ccf77dd0c4eea1243d17a41%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/7e06ce0c-3a5a-4ce3-bbe3-529f7f124633.jpg?asset_id=eb95111f-362e-4df8-9351-c57227f6c47f&amp;img_etag=%22148d07b62ccf77dd0c4eea1243d17a41%22&amp;size=1024)
 
-2021年1 月 15 日（乔·拜登宣誓就职前五天），国务院发布了一份关于武汉病毒研究所活动的[情况说明书](https://2017-2021.state.gov/fact-sheet-activity-at-the-wuhan-institute-of-virology/index.html)，披露了那里的几名研究人员在 2019 年秋季感染了中共病毒症状的关键信息；那里的研究人员至少从 2017 年起就与中国军方代表合作从事机密研究，包括实验室动物实验。
+位于加利福尼亚州拉霍亚的安德森实验室的负责人克里斯蒂安·G·安德森（Kristian G. Anderson）在2020年2月1日给福奇的一封电子邮件中写道：“该病毒的不寻常特征在于基因组中只占非常小的一部分，不到0.1%，所以人们必须真正仔细观察所有的序列，才能发现一些特征（可能）看起来是经过改造的。”他补充说，他和他的团队发现“该基因组与进化理论的期望值不一致。”
 
-2021年4 月 15 日，国家情报总监(Director of National Intelligence) Avril Haines 告诉众议院情报委员会(House Intelligence Committee)，他们正在权衡两种“合理的理论”，包括实验室事故及自然出现。
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/a984402f-0865-4ec5-bd88-ce97d42aef1f.png?asset_id=5dd801bd-d317-417c-bbb3-88037bcb645c&amp;img_etag=%220955b4b287e8fd7cc3ce886c366c37b7%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/a984402f-0865-4ec5-bd88-ce97d42aef1f.png?asset_id=5dd801bd-d317-417c-bbb3-88037bcb645c&amp;img_etag=%220955b4b287e8fd7cc3ce886c366c37b7%22&amp;size=1024)
 
-**后记**：
+安德森当时在回应福奇发给他的一篇探讨病毒起源的文章。第二天，福奇给他的副手休·奥金克罗斯（Hugh Auchincloss）发了一封紧急电子邮件，主题是“重要”，他写道：“休，今天上午我们必须谈谈，请保持手机畅通。… 阅读这份文件以及我将转发的电子邮件。你今天将有必须完成的任务。”
 
-这里很多信息之前都被其他媒体渠道曝光过，对于爆料革命的读者都不陌生。但这篇《名利场》的文章却只字不提爆料革命和右派媒体战斗室（war room pandemic）, 《国家脉动》（national pulse）、福克斯新闻（ foxnews）, newsmax, OAN, 《纽约邮报》（new york post） 等在这个问题上的长期追踪和贡献，还对闫博士的专业性进行没有根据的攻击。然而没有爆料革命的战友们长期坚持，发掘关键信息，传播真相，也许事实还会离我们很远。
+所附文件的标题是“**巴里克, 石正丽, 等人——《自然医学》——非典病毒的功能增强.pdf**”。
 
-* * *
+因此，就在福奇信任的科学顾问之一提出新冠病毒可能是人为的（而福奇和他的同事们公开将这种可能性视为阴谋论）之后，他将有关功能增强性研究的论文——福奇在武汉病毒学研究所资助的研究——发给了他的副手。
 
-*编辑、发稿 文锦*
+**而现在安德森已经删除了他一半以上的推文。**
 
-+1
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d84c3532-ddea-4e67-8d5b-d2bcf974ae19.png?asset_id=b27a00fa-cdbb-4bd8-914f-792572f3ddf1&amp;img_etag=%2277a7f7bf07e1d80589f4b26d80692f5b%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d84c3532-ddea-4e67-8d5b-d2bcf974ae19.png?asset_id=b27a00fa-cdbb-4bd8-914f-792572f3ddf1&amp;img_etag=%2277a7f7bf07e1d80589f4b26d80692f5b%22&amp;size=1024)
+
+安德森声称，他的旧推文是“自动删除”的——这种操作应该是一个按照顺序的、自动化的过程——这5000多条推文不是在2021年3月7日之前突然消失的。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/e74d01b4-0679-4efa-923f-67c0f5d2b1d8.png?asset_id=c29e5c4b-8359-4ac9-8b67-dc2800cc36bc&amp;img_etag=%227adc627f0b4175ed57f079c54bb82a89%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/e74d01b4-0679-4efa-923f-67c0f5d2b1d8.png?asset_id=c29e5c4b-8359-4ac9-8b67-dc2800cc36bc&amp;img_etag=%227adc627f0b4175ed57f079c54bb82a89%22&amp;size=1024)
+
+删除的推文的行为是在网络侦探开始揭开安德森与福奇和美国国立卫生研究院的关系时出现的。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/6a304e78-8fe1-4abe-b3b0-29335d214c2f.png?asset_id=5b274f6f-0214-47a2-801e-cbc4e3e07336&amp;img_etag=%22c882d3957cda5787d5bdad4182626f95%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/6a304e78-8fe1-4abe-b3b0-29335d214c2f.png?asset_id=5b274f6f-0214-47a2-801e-cbc4e3e07336&amp;img_etag=%22c882d3957cda5787d5bdad4182626f95%22&amp;size=1024)
+
+*推文翻译*：Radical Centrist：实验室泄漏从来都不是阴谋论。然而，否认实验室泄漏，才是真正的阴谋。
+
+在你们挖出安德森这些推文，以支持科顿的评论的第二天，他写给福奇：“该基因组与进化理论的期望不一致。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/78ad3ae9-1e11-4eae-be59-822d75ad251d.png?asset_id=5c3d9405-1e05-4691-820b-16dee35964b4&amp;img_etag=%22c71ab8a6b9bd230d6e5a2614abcdaead%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/78ad3ae9-1e11-4eae-be59-822d75ad251d.png?asset_id=5c3d9405-1e05-4691-820b-16dee35964b4&amp;img_etag=%22c71ab8a6b9bd230d6e5a2614abcdaead%22&amp;size=1024)
+
+*推文翻译*：Radical Centrist：两个月后，他推翻了之前的判断并发表了他的《近端起源》论文，帮助掩护了美国国立卫生研究院/国家过敏和传染病研究所因为支持功能增强性研究存而存在的风险。
+
+五个月后，他与达萨克一起获得了188万美元的新发传染性疾病研究中心（CREID）的 经费。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/4bbed76e-e965-4cd6-b547-6da96eb9b1c2.png?asset_id=ebb18eb4-1e4e-4c60-bb19-33b414820fcb&amp;img_etag=%2210f07895bfc7e91f5935c7cb071436a8%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/4bbed76e-e965-4cd6-b547-6da96eb9b1c2.png?asset_id=ebb18eb4-1e4e-4c60-bb19-33b414820fcb&amp;img_etag=%2210f07895bfc7e91f5935c7cb071436a8%22&amp;size=1024)
+
+*推文翻译*：RIchard H. Ebright写到：事实上来自新发传染性疾病研究中心的奖励是这个的五倍。（你谈到的只是五年中的第一年的资金数字）
+
+Radical Centrist：非常奇怪，安德森看到我上面的推文后，删除了他的反实验室泄漏理论的回复。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/35f31580-a324-48bf-92b7-d878c025d1a6.png?asset_id=a38e32e3-a23a-49ea-a73e-1cdb9d6d5ef7&amp;img_etag=%22840659702d91edc99262e62c4bf2c99d%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/35f31580-a324-48bf-92b7-d878c025d1a6.png?asset_id=a38e32e3-a23a-49ea-a73e-1cdb9d6d5ef7&amp;img_etag=%22840659702d91edc99262e62c4bf2c99d%22&amp;size=1024)
+
+*推文翻译*：Yuri Deigin：是的，你5000条推文就“噗”的一声消失了，因为他们被自动删除了？难道“自动”删除不应该是一个按照顺序的过程吗？还是你更改了设置，让你的5000条推文在今天被自动删除了？
+
+或许你应该自动删除你的《近端起源》论文？
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d9bee45d-8c68-4b05-a6a9-77e9f43e7225.png?asset_id=45537c35-c608-4b0b-8b54-14d1c351eb86&amp;img_etag=%2256b3f78b5d51b9d5dff0b1b6c49584ca%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d9bee45d-8c68-4b05-a6a9-77e9f43e7225.png?asset_id=45537c35-c608-4b0b-8b54-14d1c351eb86&amp;img_etag=%2256b3f78b5d51b9d5dff0b1b6c49584ca%22&amp;size=1024)
+
+*推文翻译*：Yuri Deigin：安德森的律师建议他这么做的？考虑到福奇邮件牵涉“潜在的调查”。
+
+同时，福奇否认在武汉的研究项目获得资助，但是…
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/c1f86a01-35a8-4d38-a50e-a651b323b9b5.png?asset_id=3f25f2ec-8310-41e9-8d45-0c5991e3f1e9&amp;img_etag=%22362dd84a5f56aa71fda0bc22d588fecf%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/c1f86a01-35a8-4d38-a50e-a651b323b9b5.png?asset_id=3f25f2ec-8310-41e9-8d45-0c5991e3f1e9&amp;img_etag=%22362dd84a5f56aa71fda0bc22d588fecf%22&amp;size=1024)
+
+*推文翻译*：NIAID邮件更新：在2019年，福奇领导的国家过敏和传染病研究所给了健康生态联盟和彼得·达萨克364万美元。其中的75万美元给了武汉病毒研究所。
+
+游戏结束。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d446c00f-3bce-4bdd-b2c3-f7b9cafb70bb.png?asset_id=2851647d-8c79-42b0-a8da-d02b5f9a2442&amp;img_etag=%22e71c24a7b9972768e6ccec0943bfe5cd%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d446c00f-3bce-4bdd-b2c3-f7b9cafb70bb.png?asset_id=2851647d-8c79-42b0-a8da-d02b5f9a2442&amp;img_etag=%22e71c24a7b9972768e6ccec0943bfe5cd%22&amp;size=1024)
+
+*推文翻译*：从国家过敏和传染病研究所到武汉病毒研究所的子合同经费。自2014年到2019年。
+
+[原文链接](https://www.zerohedge.com/political/virologist-who-told-fauci-sars-cov-2-potentially-engineered-just-deleted-5000-tweets?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+
+
+0

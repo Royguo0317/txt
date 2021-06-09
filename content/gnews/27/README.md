@@ -1,108 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇的马仔做贼心虚， 已清空自己的推特账户
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1310220/)
+## 科学，政治和COVID：真理会胜利吗？ （2/3）
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1310196/)
 
-新闻来源：《零对冲》| 作者：TYLER DURDEN | 发布时间：2021年6月7日
+#### 【作者】Scott W. Atlas 【编译】Mi John
 
-翻译/简评：clau | 校对/审核：小小妹 | Page：我是球大哥
+**演讲者：**斯科特 W. 阿特拉斯（**Scott W. Atlas** ）**胡佛研究所**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/b3616e11-ee0c-42be-b606-c71500e6cc02.jpg?asset_id=29d1f44b-fa83-4912-ab96-e4c85136f9f5&amp;img_etag=%22409891c60a0e81ad88282510e924f52c%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/b3616e11-ee0c-42be-b606-c71500e6cc02.jpg?asset_id=29d1f44b-fa83-4912-ab96-e4c85136f9f5&amp;img_etag=%22409891c60a0e81ad88282510e924f52c%22&amp;size=1024)
+**\*阿特拉斯的演讲之英文原稿经希尔斯代尔学院出版刊物 Imprimis全文刊登，获授权转载於此。**[点击进入](https://imprimis.hillsdale.edu/science-politics-covid-will-truth-prevail/)
+![新冠病毒大流行毫无疑问是一场悲剧。它暴露了美国错综复杂的问题，这些问题已然威胁了我们美国人习以为常的自由与秩序的基本原则。]()![新冠病毒大流行毫无疑问是一场悲剧。它暴露了美国错综复杂的问题，这些问题已然威胁了我们美国人习以为常的自由与秩序的基本原则。](https://gnews.org/wp-content/uploads/2021/03/03-28-2021Scott-Atlas-Hoover-Institute.png)
+###### 斯科特·W·阿特拉斯（Scott W. Atlas）是斯坦福大学胡佛研究所（Hoover Institution）的罗伯特·韦森（Robert Wesson）高级研究员。他此前曾在斯坦福大学医学中心担任过14年的教授和神经放射科主任。他获得了理学学士学位毕业于伊利诺伊大学香槟分校，并获得了芝加哥大学医学院的医学博士学位。他是诺贝尔医学和生理学奖提名委员会的特设成员，曾在2008年，2012年和2016年担任许多总统候选人的高级卫生保健顾问。从2020年7月至2020年12月，他担任了特朗普总统和白宫冠状病毒特别工作组成员。他现在是第五版的《大脑和脊柱磁共振成像》的编辑，并着有多本著作的著作，包括《恢复优质医疗保健：以较低成本进行全面改革的六点计划》。          
 
-克里斯蒂安·G·安德森（Kristian G. Anderson）最近删除了自己推特账户2021年3月之前的5000条推文，他拥有的安德森实验室位于加利福尼亚州拉霍亚。最近福奇被曝出的3000封邮件里，包含安德森在2020年2月发给福奇的邮件，当时安德森提醒了福奇新冠病毒有被人工改造的痕迹。然而，很快安德森就被福奇用钱堵住了嘴，甚至推翻了自己最初的判断，转向成为了新冠病毒自然起源理论的支持者。
+**以下内容改编自2021年2月18日在亚利桑那州凤凰城举行的希尔斯代尔学院国家领导力研讨会上的演讲：**
 
-“伟大的”福奇博士的“邮件门”还在持续不断的发酵，非常多的证据都被媒体挖出并报道。这些证据，轻则是渎职，重则是叛国。然而福奇这只老狐狸却还能睁着眼睛说瞎话，面不改色心不跳，大言不惭的说“诋毁我就是诋毁科学”。福奇这40年的官，确实不是白当的。但是，他的马仔们的心理素质可就没有福奇这么好了。此地无银三百两，做贼心虚，都可以用来形容安德森删除自己推文的行为。难道删除了，就没事了吗？更何况网络是有记忆的，他们的心理防线会有被击垮的那一天，请大家持续关注福奇的“邮件门”事件。
+乐观的是，随着疫苗的推出，我们应该看到长隧道尽头的光明，现在每天的疫苗接种量为100万到150万。另一方面，在许多州，采用对刘易斯·卡洛尔（Lewis Carroll）的疯帽匠（Mad Hatter）有吸引力的逻辑，最初对更健康和年轻人的疫苗接种频率要高得多，而不是对那些受到病毒感染风险最大的人接种。有人认为，儿童应该是最早接种疫苗的人之一，尽管儿童感染该病毒的风险极低，并且被证明不是成年人的主要传播者。同样，我们听到卡夫卡式的想法提倡，在学校是风险最低的环境之一和绝大多数教师的风险都不高的情况下，亲自上课之前必须给教师接种疫苗。
 
-**原文翻译：**
+更糟糕的是，我们在电视上听到所谓的专家警告，当人们接种疫苗后，仍然需要远离社交，戴口罩和其他限制！所有迹象表明，当权者无意让美国人再次正常生活（对美国人而言，这意味着自由生活）。
 
-## 告诉福奇SARS-CoV-2“有可能被改造”的病毒学家刚刚清空了他的推特账户
+不幸的是，就像伽利略时代一样，我们问题的根源在于“专家”和既得的学术利益。 在许多大学（应该是美国的批判性思考中心）中，那些观点与目前掌权的“专家”相反的人发现自己受到了威胁。 许多人变得害怕大声疾呼。
 
-更新（1650ET）：
+但是，对学术自由的压制不是美国的校园问题。
 
-全部都删除了：
+以我工作的斯坦福大学为例，一些教授在意见书中诉诸有毒言论
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/fec4d429-9976-4764-91f9-ebc4c410494f.png?asset_id=dcbb583d-36d6-4478-85fd-9612afc131aa&amp;img_etag=%220ceb5ef8d6c895194832c8794942fec4%22&amp;size=2630)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/fec4d429-9976-4764-91f9-ebc4c410494f.png?asset_id=dcbb583d-36d6-4478-85fd-9612afc131aa&amp;img_etag=%220ceb5ef8d6c895194832c8794942fec4%22&amp;size=1024)
+并组织了谴责，针对那些批评过去一年卫生政策失败并敢于在总统任职的情况下服务于我们国家的人，说他们鄙视我们。这些人显然是最终的犯罪。在美国社会中，基于稻草人论据和上下文外扭曲而进行的带有恶意意图的诽谤性攻击是不可接受的，更不用说在我们的大学中了。有人曾试图通过伪造和虚假陈述来吓我并使我声名狼藉。这违反了《斯坦福大学的行为准则》，损害了斯坦福大学的名称，并滥用了父母和社会对教育工作者的信任。
 
-至少他不必继续阻挡来自问询者的讨厌的问题…
+可以理解的是，大多数斯坦福大学的教授都不是卫生政策领域的专家，并且不了解有关COVID大流行的数据。但这并不能为某些我提出的建议“科学的错误和误解”提供借口。那是一个谎言，无论由政治驱动的控告人重复撒谎的频率如何，而且无论这些谎言在有偏见的媒体中得到多大的回应，谎言都是永远不会真实的。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/2a71ea39-f8bb-4ec1-bbec-e4664cba31c5.png?asset_id=9a65ac88-4020-47a8-a23e-31e35f824ebc&amp;img_etag=%221bd397b32e844ab4228e610543355081%22&amp;size=6055)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/2a71ea39-f8bb-4ec1-bbec-e4664cba31c5.png?asset_id=9a65ac88-4020-47a8-a23e-31e35f824ebc&amp;img_etag=%221bd397b32e844ab4228e610543355081%22&amp;size=1024)
+**我们大家都必须向上帝祈祷，纳粹宣传家约瑟夫·戈培尔（Joseph Goebbels）所享有的臭名昭著的主张-“一次说谎的谎言****任****然是谎言，但谎言****说****成千上万****次就****成为事实”-在美利坚合众国永远不会****发****生。**
 
-一位加利福尼亚的病毒学家告诉安东尼·福奇，新冠病毒看起来“可能是经过设计的”，“与进化理论的预期不一致”——只是后来反其道而行之，8周后发表了一篇“自然起源 ”的论文（在获得数百万美元的美国国立卫生研究院拨款之前），他删除了5000多条推特。
+我向特朗普总统推荐的所有政策旨在减少病毒向最脆弱人群传播，并减少应对COVID的政策对那些受影响最大的人（小型企业，工人阶级，和穷人）的冲击。我是第一个为那些最有风险的人（尤其是老年人）增加保护的人。与此同时，差不多一年前，我认识到，我们还必须考虑对身心和健康的巨大危害，以及为遏制这种感染而实施的严厉政策所导致的死亡。这是公共卫生政策的目标-最大限度地减少所有危害，而不仅仅是不惜一切代价制止病毒。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/7e06ce0c-3a5a-4ce3-bbe3-529f7f124633.jpg?asset_id=eb95111f-362e-4df8-9351-c57227f6c47f&amp;img_etag=%22148d07b62ccf77dd0c4eea1243d17a41%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/7e06ce0c-3a5a-4ce3-bbe3-529f7f124633.jpg?asset_id=eb95111f-362e-4df8-9351-c57227f6c47f&amp;img_etag=%22148d07b62ccf77dd0c4eea1243d17a41%22&amp;size=1024)
+斯坦福大学三位教授在最近发表的《美国医学协会杂志》（JAMA）意见中声称“几乎所有公共卫生专家都担心，仅在美国，[斯科特·阿特拉斯（Scott Atlas）]的建议可能导致成千上万（或更多）不必要的死亡。”显然是虚假和荒谬的。正如乔尔·辛伯格（Joel Zinberg）博士在《国家评论》中指出的那样，《大巴灵顿宣言》（这是由斯坦福大学，哈佛大学和牛津大学的医学科学家和流行病学家共同撰写的一项提案），比阿特拉斯所说的“更接近JAMA文章中所谴责的”。然而，已经有50,000多名医学和公共卫生从业人员签署了《大巴灵顿宣言》。
 
-位于加利福尼亚州拉霍亚的安德森实验室的负责人克里斯蒂安·G·安德森（Kristian G. Anderson）在2020年2月1日给福奇的一封电子邮件中写道：“该病毒的不寻常特征在于基因组中只占非常小的一部分，不到0.1%，所以人们必须真正仔细观察所有的序列，才能发现一些特征（可能）看起来是经过改造的。”他补充说，他和他的团队发现“该基因组与进化理论的期望值不一致。”
+**当批评家对专家所持观点的范围如此无知时，就暴露了他们的偏见，****导致****他们在这些问题上的权威****不再存在****。这些批评家****所****写****的 “****专业主义要求对[专家]知道和不知道的事情持诚实态度****” ****已经超出滑稽****。**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/a984402f-0865-4ec5-bd88-ce97d42aef1f.png?asset_id=5dd801bd-d317-417c-bbb3-88037bcb645c&amp;img_etag=%220955b4b287e8fd7cc3ce886c366c37b7%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/a984402f-0865-4ec5-bd88-ce97d42aef1f.png?asset_id=5dd801bd-d317-417c-bbb3-88037bcb645c&amp;img_etag=%220955b4b287e8fd7cc3ce886c366c37b7%22&amp;size=1024)
+我已经解释了一个事实，即年轻人感染这种疾病的风险很小，并且我已经解释了群体免疫的生物学事实，就像哈佛的流行病学家凯瑟琳·伊（Katherine Yih）所做的那样。这与提出有人故意暴露和感染是完全不同的，尽管有人指控我这样做，但我从未建议过这样做。
 
-安德森当时在回应福奇发给他的一篇探讨病毒起源的文章。第二天，福奇给他的副手休·奥金克罗斯（Hugh Auchincloss）发了一封紧急电子邮件，主题是“重要”，他写道：“休，今天上午我们必须谈谈，请保持手机畅通。… 阅读这份文件以及我将转发的电子邮件。你今天将有必须完成的任务。”
+我还被指责宣称“放弃许多旨在增加社交距离的公共卫生命令而不会造成不良影响”。相反，我一再呼吁采取缓解措施，包括额外的消毒措施，社交距离，面具，团体限制，测试以及其他增加的保护措施，以限制冠状病毒的扩散和损害。我在许多有记录的演讲，访谈和书面作品中，明确呼吁加强保护处于危险之中的人。
 
-所附文件的标题是“**巴里克, 石正丽, 等人——《自然医学》——非典病毒的功能增强.pdf**”。
+指责我的人无视我明确强调和公开否认有关不支持“不加限制地实现感染的传播以实现群体免疫“；而且我的这种否认在媒体上被广泛引用。也许这是因为我的观点并不是批评的真正对象。也许是因为他们的真正动机是打压”接受特朗普政府为美国服务的呼吁的任何人“。
 
-因此，就在福奇信任的科学顾问之一提出新冠病毒可能是人为的（而福奇和他的同事们公开将这种可能性视为阴谋论）之后，他将有关功能增强性研究的论文——福奇在武汉病毒学研究所资助的研究——发给了他的副手。
+几个月以来，我呼吁重开学校授课而受到侮辱。我的观点与哈佛大学教授马丁·库尔多夫（Martin Kulldorf）和凯瑟琳·伊（Katherine Yih）以及斯坦福大学教授杰伊·巴塔查亚（Jay Bhattacharya）的认知一致。（虽然遭到质疑）但是我的政策建议得到了出版物的反复肯定。甚至在《大西洋》（Atlantic）之类的出版物中也承认了开放学校有令人信服的案例。该出版物指出：“自大流行开始以来，来自世界各地的研究表明，未满18岁的人，尤其是年幼的孩子，不易受到感染。感染并出现严重症状的可能性较小，住院或死亡的可能性也较小。”文章的副标题更加清晰：“我们几个月来就已经知道，幼儿不易受到严重感染，也不太可能传播冠状病毒。”
 
-**而现在安德森已经删除了他一半以上的推文。**
+当JAMA的反对我的人写到我“对口罩的必要性提出异议”时，他们歪曲了我的话。我对口罩使用的建议一直是一致的：“当您无法与社会保持距离时，戴上口罩。”当时，这与世界卫生组织（WHO）发布的建议相符。去年12月，世界卫生组织修改了其建议：“在病毒正在传播的区域，当您处于拥挤的环境中时，在距离他人在一米（约三英尺）内的地方，以及在通风不良或未知的房间中，应戴上口罩”。换句话说，不是每个人在任何时候都需要戴口罩。这也符合美国国立卫生研究院文件“ SARS-CoV-2感染的预防”的建议：“当不可能一直保持一定的距离时，面罩可能会进一步减少SARS-CoV-2感染者通过飞沫传播给别人。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d84c3532-ddea-4e67-8d5b-d2bcf974ae19.png?asset_id=b27a00fa-cdbb-4bd8-914f-792572f3ddf1&amp;img_etag=%2277a7f7bf07e1d80589f4b26d80692f5b%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d84c3532-ddea-4e67-8d5b-d2bcf974ae19.png?asset_id=b27a00fa-cdbb-4bd8-914f-792572f3ddf1&amp;img_etag=%2277a7f7bf07e1d80589f4b26d80692f5b%22&amp;size=1024)
+已经有38个州实施了全民强制口罩佩戴。其中大多数州至少从夏季开始，几乎所有其他州都在其主要城市进行了实施。但全民广泛使用口罩任然不能证明能够在实用方面有效，有些证据甚至被打压。丹麦还进行了一项随机对照研究，结果表明，广泛使用口罩只会产生很小的影响。
 
-安德森声称，他的旧推文是“自动删除”的——这种操作应该是一个按照顺序的、自动化的过程——这5000多条推文不是在2021年3月7日之前突然消失的。
+**这就是现实：**坚持使用通用口罩已被证明对控制COVID病毒的传播是绝对有效的，并且根据“科学”普遍推荐使用口罩的人们，故意忽略了相反的证据。是他们在传播虚假和误导性信息。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/e74d01b4-0679-4efa-923f-67c0f5d2b1d8.png?asset_id=c29e5c4b-8359-4ac9-8b67-dc2800cc36bc&amp;img_etag=%227adc627f0b4175ed57f079c54bb82a89%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/e74d01b4-0679-4efa-923f-67c0f5d2b1d8.png?asset_id=c29e5c4b-8359-4ac9-8b67-dc2800cc36bc&amp;img_etag=%227adc627f0b4175ed57f079c54bb82a89%22&amp;size=1024)
+对于 “质疑广泛的使用口罩的人是不道德的，甚至是危险的”的那些指责，必须解释为什么许多高级传染病科学家和公共卫生组织也质疑全民戴口罩的效力。例如，牛津大学循证医学中心的汤姆·杰斐逊和卡尔·海内根写道：“尽管进行了二十年的大流行准备，戴口罩的价值仍存在很大不确定性。”牛津流行病学家Sunetra Gupta说，除非老年人或高危人群，否则就不需要戴口罩。斯坦福大学的杰伊·巴塔查里亚（Jay Bhattacharya）说，“科学数据不支持口罩规定。 。 。没有科学证据表明口罩强制性措施可以减缓疾病的传播。”
 
-删除的推文的行为是在网络侦探开始揭开安德森与福奇和美国国立卫生研究院的关系时出现的。
+在整个大流行病中，WHO的“关于在COVID-19中使用口罩的建议”包括以下声明：“目前，尚无直接证据（来自对COVID-19和社区健康人的研究）关于在社区中对健康人进行全面戴口罩以预防包括COVID-19在内的呼吸道病毒感染的效果。”疾病预防控制中心在2020年5月对流感大流行的回顾中表明，“没有发现证据表明佩戴手术型口罩在被感染者（源控制）或一般人群佩戴时能有效减少实验室确认的流感传播或减少他们的易感性。”直到2020年10月21日世界卫生组织（WHO）在Twitter审查了我的一条推文突出引用该言论之后不久，世界卫生组织才发布了这样一个事实，即“社区中健康人广泛使用口罩，尚未得到高质量质量或直接的科学证据，能够在预防上有潜在的利或弊”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/6a304e78-8fe1-4abe-b3b0-29335d214c2f.png?asset_id=5b274f6f-0214-47a2-801e-cbc4e3e07336&amp;img_etag=%22c882d3957cda5787d5bdad4182626f95%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/6a304e78-8fe1-4abe-b3b0-29335d214c2f.png?asset_id=5b274f6f-0214-47a2-801e-cbc4e3e07336&amp;img_etag=%22c882d3957cda5787d5bdad4182626f95%22&amp;size=1024)
+**我对口罩的建议一直以来都是基于科学数据，并与世界上许多顶级科学家和公共卫生组织的建议相匹配。**
 
-*推文翻译*：Radical Centrist：实验室泄漏从来都不是阴谋论。然而，否认实验室泄漏，才是真正的阴谋。
+**下文待续，系列文章 （2/3）**
 
-在你们挖出安德森这些推文，以支持科顿的评论的第二天，他写给福奇：“该基因组与进化理论的期望不一致。”
+【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/78ad3ae9-1e11-4eae-be59-822d75ad251d.png?asset_id=5c3d9405-1e05-4691-820b-16dee35964b4&amp;img_etag=%22c71ab8a6b9bd230d6e5a2614abcdaead%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/78ad3ae9-1e11-4eae-be59-822d75ad251d.png?asset_id=5c3d9405-1e05-4691-820b-16dee35964b4&amp;img_etag=%22c71ab8a6b9bd230d6e5a2614abcdaead%22&amp;size=1024)
+【**责任编辑**】：bingo 旧金山文宣组
 
-*推文翻译*：Radical Centrist：两个月后，他推翻了之前的判断并发表了他的《近端起源》论文，帮助掩护了美国国立卫生研究院/国家过敏和传染病研究所因为支持功能增强性研究存而存在的风险。
+**校对发布：** 滴水穿石
 
-五个月后，他与达萨克一起获得了188万美元的新发传染性疾病研究中心（CREID）的 经费。
+## **欢迎战友加入旧金山金喜农场**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/4bbed76e-e965-4cd6-b547-6da96eb9b1c2.png?asset_id=ebb18eb4-1e4e-4c60-bb19-33b414820fcb&amp;img_etag=%2210f07895bfc7e91f5935c7cb071436a8%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/4bbed76e-e965-4cd6-b547-6da96eb9b1c2.png?asset_id=ebb18eb4-1e4e-4c60-bb19-33b414820fcb&amp;img_etag=%2210f07895bfc7e91f5935c7cb071436a8%22&amp;size=1024)
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-*推文翻译*：RIchard H. Ebright写到：事实上来自新发传染性疾病研究中心的奖励是这个的五倍。（你谈到的只是五年中的第一年的资金数字）
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
 
-Radical Centrist：非常奇怪，安德森看到我上面的推文后，删除了他的反实验室泄漏理论的回复。
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/35f31580-a324-48bf-92b7-d878c025d1a6.png?asset_id=a38e32e3-a23a-49ea-a73e-1cdb9d6d5ef7&amp;img_etag=%22840659702d91edc99262e62c4bf2c99d%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/35f31580-a324-48bf-92b7-d878c025d1a6.png?asset_id=a38e32e3-a23a-49ea-a73e-1cdb9d6d5ef7&amp;img_etag=%22840659702d91edc99262e62c4bf2c99d%22&amp;size=1024)
-
-*推文翻译*：Yuri Deigin：是的，你5000条推文就“噗”的一声消失了，因为他们被自动删除了？难道“自动”删除不应该是一个按照顺序的过程吗？还是你更改了设置，让你的5000条推文在今天被自动删除了？
-
-或许你应该自动删除你的《近端起源》论文？
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d9bee45d-8c68-4b05-a6a9-77e9f43e7225.png?asset_id=45537c35-c608-4b0b-8b54-14d1c351eb86&amp;img_etag=%2256b3f78b5d51b9d5dff0b1b6c49584ca%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d9bee45d-8c68-4b05-a6a9-77e9f43e7225.png?asset_id=45537c35-c608-4b0b-8b54-14d1c351eb86&amp;img_etag=%2256b3f78b5d51b9d5dff0b1b6c49584ca%22&amp;size=1024)
-
-*推文翻译*：Yuri Deigin：安德森的律师建议他这么做的？考虑到福奇邮件牵涉“潜在的调查”。
-
-同时，福奇否认在武汉的研究项目获得资助，但是…
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/c1f86a01-35a8-4d38-a50e-a651b323b9b5.png?asset_id=3f25f2ec-8310-41e9-8d45-0c5991e3f1e9&amp;img_etag=%22362dd84a5f56aa71fda0bc22d588fecf%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/c1f86a01-35a8-4d38-a50e-a651b323b9b5.png?asset_id=3f25f2ec-8310-41e9-8d45-0c5991e3f1e9&amp;img_etag=%22362dd84a5f56aa71fda0bc22d588fecf%22&amp;size=1024)
-
-*推文翻译*：NIAID邮件更新：在2019年，福奇领导的国家过敏和传染病研究所给了健康生态联盟和彼得·达萨克364万美元。其中的75万美元给了武汉病毒研究所。
-
-游戏结束。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d446c00f-3bce-4bdd-b2c3-f7b9cafb70bb.png?asset_id=2851647d-8c79-42b0-a8da-d02b5f9a2442&amp;img_etag=%22e71c24a7b9972768e6ccec0943bfe5cd%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d446c00f-3bce-4bdd-b2c3-f7b9cafb70bb.png?asset_id=2851647d-8c79-42b0-a8da-d02b5f9a2442&amp;img_etag=%22e71c24a7b9972768e6ccec0943bfe5cd%22&amp;size=1024)
-
-*推文翻译*：从国家过敏和传染病研究所到武汉病毒研究所的子合同经费。自2014年到2019年。
-
-[原文链接](https://www.zerohedge.com/political/virologist-who-told-fauci-sars-cov-2-potentially-engineered-just-deleted-5000-tweets?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
 
 
-0
++1

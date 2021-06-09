@@ -1,42 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国对已完成北溪2号管道工程的德国作出让步
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1310487/)
+## 【圣城传声筒】蓬佩奥先生关于 香港六四纪念的演讲——原文及翻译
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1310296/)
 
-- 翻译：gokuabuela
+整理/翻译：纽约香草山香港部 MAYA
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年6月9日电/西喜社——**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09130704/NordStream2-kWWH-620x349%40abc.jpg)图片来源：abc.es
-德国在华盛顿的外交努力已经初见成效。美国国务卿安东尼-布林肯公开承认，德国正在合作以减轻北溪2号管道的影响，并确认决定免除对参与该项目的德国公司的制裁。美国对这个项目的反对，在唐纳德-特朗普担任总统期间是不可动摇的，而在拜登任上则有些灵活。布林肯因这一软化而在国会受到很多批评，他的理由是巨大的管道系统的建设已经进展得太远，无法阻止它，并通过这一声明，在乔-拜登和弗拉基米尔-普京将于下周在日内瓦举行的首次会议之前，做出了重要的意愿姿态。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
-俄罗斯希望在今年年底前完成这条有争议的管道，该管道将跨越波罗的海的海床向德国输送俄罗斯天然气。”工作仍在继续。它并没有停止。俄罗斯副总理亚历山大-诺瓦克说：”运营商和参与项目的公司继续实施该项目，”我们希望工作也许将在年底前完成，尽管一切都取决于建设者及技术、工艺和气象条件。到目前为止，95%的路线已经建成，即2460公里中的2339公里，因此，在完工之前还有121公里需要铺设。
 
-作为对他们默许的回报，美国已经开始提出它认为具有地缘战略意义的建议。作为受项目影响最大的国家乌克兰，因为北溪2号，将使原过境乌克兰至欧洲的俄罗斯天然气变得不那么重要，并丧失经济上的利益。布林肯告诉德国外交界，必须确保乌克兰 “在未来许多年内 “能继续收取过境费。他还开始与德国外交团队讨论对俄罗斯在天然气问题上如果威胁欧洲，将如何反应。”我们期望我们的盟友和伙伴公开承诺采取行动，以便在俄罗斯做错事时，我们能统一行动，”这是布林肯的话。
+字幕制作：纽约香草山香港部 彩虹桥
+演讲原文：
 
-而且，即使他暂时放弃了制裁，美国国务卿也暗示美国可能在其他问题上采取行动。即使管道实际完工，也需要保险和各种许可才能运行。他警告说，”我们正在仔细研究这一切，”以安抚民主党人和共和党人，他们都反对该项目。
+32 years ago, a tragedy occurred in Tiananmen Square, a massacre perpetrated by the Chinese Communist Party against its own people shot the world’s consciences. And it highlighted the contrast between the freedom-loving Chinese people and the tyranny of Beijing.
 
-**简评：**
+For the next 30 years, the only place, the only place of all of China’s sovereign domain, where free people can commemorate the martyrs of Tiananmen, was Hong Kong. Every year, on the June 4th anniversary, the people of Hong Kong out of their lives lost in Tiananmen, You’ve cherished the freedoms that are the birthright of every human being, and which were brutally denied to your countrymen. You were able to mark this anniversary because of the high degree of autonomy that Hong Kong enjoyed. The city was the best city of liberty and a light to us all.
 
-**作为欧洲，其实是欧洲的领导者—德国，与美国之间最大的隔阂 — “北溪2号工程”，以美国的让步进入了下一阶段。**
+Yet now, now the same regime that committed the massacre in Tiananmen Square has broken its promises to Hong Kong: the fundamental freedoms and autonomy that Beijing was promised to guarantee to you, it took away from you. For the first time, commemorating the Tiananmen massacre is illegal here. It’s punishable by a new security law — the national security law. This is a dark reminder that the regime in Beijing still refuses to respect the rights of its own people. And it’s also a reminder of why we are all gathering here tonight. We do so virtually, but we do so defiantly and proudly, and we continue a glorious tradition of commemorating the heroes of Tiananmen.
 
-**管道是死的，控制管道的人是活的，管道背后折射了是合作还是对抗？最糟的结果是德国与俄罗斯合作，与美国对抗。但在目前全球合作对抗中共的大局势下，德国与美国联合的趋势很明显，那么即使管道完工，德国也可以充分考虑地缘政治的影响，比如对乌克兰的照顾。**
+I’m especially honored to be here now. As America’s 70th Secretary of State, when Hong Kong’s freedom was being taken away, I was aware of the courageous work of Hongkongers. You fight, you fight to preserve your dignity and your autonomy. You fight for the freedoms owed every man, woman, and child made in the image of God. The Communist Party may imprison heroes like freedom-loving Jimmy Lai, Martin Lee, and others. But you, you show that the flame of freedom in Hong Kong remains a beacon.
 
-**如果说管道是俄罗斯对欧洲实施经济和政治影响的工具，反过来，也可以是欧洲对俄罗斯实施影响的工具，俄罗斯合作，管道即畅通，俄罗斯得利。俄罗斯对抗，管道关闭，俄罗斯损失最大。**
+May God bless Hong Kong.
 
-**最大的赢家是德国，它获得了一个在俄罗斯、美国之间，或者说在美国、欧洲、俄罗斯为代表的“敌对地缘政治势力”（管道背后有中共的参与）之间一个重要的自主权，管道的水龙头最终决定权在德国，这使德国的外交话语权大为提高。**
+演讲译文：
 
-**美国的控制权会降低，它必须交出更多的决定权给德国。但情况也没有那么糟，只要能确保德国是盟友即可，况且美国还有其他手段可以考虑。**
+32年前，天安门广场发生了一场悲剧：中国共产党对中国人民进行了泯灭人性的大屠杀，它突显出热爱自由的中国人和北京（中共）暴政之间的鲜明对比。
 
-**巨大的利益也可以促使俄罗斯离开中共，投向欧洲。从这个角度说，管道的建设可能是利于灭共的。最终，决定一切的还是人！**
+在接下来的30年里，香港是唯一一个——唯一一个位于中（共）国主权领土上——人们可以自由地纪念天安门烈士的地方。每年在六四周年之际，香港人民都会悼念天安门事件中的死难者。你们珍惜自由，但你们的同胞们却被残忍地剥夺了这与生俱来的权利。你们之所以能够纪念这个日子，是因为香港享有高度的自治。这座城市乃是我们所有人的自由和光明之源。
 
-素材：gokuabuela；审核：Aries的星；校对：阿伯塔；发稿：信心的选择
+然而现在，在天安门广场犯下大屠杀的那个政权已经违背了它对香港的承诺。北京（中共）曾向你们承诺，会保证香港基本的自由与自治，现在这些却被它夺走了。在这里，哀悼天安门大屠杀第一次被视为非法行为，并且会在新的国安法下受到惩罚。这提醒了我们，北京（中共）政权仍然拒绝尊重自己人民的权利；也提醒了我们，为什么今晚要相聚在这里。我们通过视频，自豪而大胆地继续着我们纪念天安门英雄们的这一光荣传统。
 
-**新闻来源：**[ABC新闻](https://www.abc.es/internacional/abci-eeuu-cede-finalizacion-gasoducto-nord-stream-2-hasta-alemania-202106090929_noticia.html)
+我非常荣幸能够来到这里。作为美国第70任国务卿，当香港的自由被剥夺时，我了解香港人的奋勇抗争。你们在抗争！你们是为维护自己的尊严和自治权而战；你们为每一个男人，女人和孩子应得的自由而战，这些自由都是上天所赋予的。共产党监禁了像黎智英、李柱铭等热爱自由的英雄们，但你们向我们展示了，香港仍是一座自由的灯塔。
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+愿上帝保佑香港！
 
-+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115247/M6.jpg)
+
+视频字幕制作：纽约香草山香港部 彩虹桥
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+
+
+
+0

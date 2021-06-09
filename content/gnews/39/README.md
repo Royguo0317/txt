@@ -1,52 +1,121 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 过去的两个月中共国“报复社会”事件暴增！80万私营企业倒闭！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1310065/)
+## 【五月花讯】新中国联邦周年庆典上盟友演讲核心要点
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1310064/)
 
-**摘要：在2021年6月6日的盖特中，郭先生说仅仅过去两个月，中共国发生7万起恶性“报复社会”事件，人民已经无路可走；中共银行的庞氏骗局已经玩不下去；80万私营企业倒闭！**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09093624/Miles_2021-06-06-getter.srt.txt)
-**过去的两个月中共国****“****报复社会****”****事件暴增！****80****万私营企业倒闭！**
+五月花写作组 | 作者：jamie(文胤) | 编辑：文合 | 封面：灭共小宇宙 | 发布：吐纳
 
-**The Surge of Violent Crimes and Bankruptcies of Private Companies in China**
+**1、史蒂夫·班农先生**
 
-同时现在，中共国的现在经济到什么程度大家都知道啊。
+• 新中国联邦为世界树立了榜样，因为她代表了民主、言论自由、宗教自由等，最根本的是代表一件事情：全面彻底地消灭中国共产党。
 
-Do you know how seriously Communist China’s economy has deteriorated?
+• 世界的“精英”很紧张，因为中国人民已经受够了被剥夺自由，无法按照自己的意志生活。新中国联邦将为中国人民带来自由。
 
-仅仅，仅仅过去2个月，在全国各地所谓的他们定义的恶性的所谓报复社会[事件]。事实上是逼得人[已经是]不是“上梁山”了，梁山都没了，是逼得人不能当人了，不能干人事了。
+• 中共是非法政府，是跨国犯罪组织。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095042/PHOTO-2021-06-09-11-40-18.jpg)
+**2、比尔‧格茨先生**
 
-In the past two months, 70,000 cases of what the CCP defines as “vicious retaliation against society” have taken place across the country. Actually, these cases are occurring because these people have been driven beyond the point of survival. (The Chinese ancient novel “Outlaws of the Marsh” told the story of what occurred on “Mount Liang”.) Now that “Mount Liang” is gone, people who cannot survive are forced to commit violence.
+• 犹太人有句谚语：明年相约耶路撒冷；新中国联邦人也有一句：明年相约北京！
 
-我们反对暴力。但人但凡有点儿选择也不会走上它们说的报复社会的路。是那些共产党的走狗们欺压百姓没有活路了，只有一个选择了。达多少起呢？7万起！7万起血腥暴力社会事件。
+• 中共痴迷于病毒研究，发掘超过两千种新病毒。
 
-We are against violence, but we must understand that nobody would do such a thing if they had a choice. They do not want to take revenge on society. CCP, the organized crime organization, and its gangsters oppress people and make more and more Lao Bai Xing (ordinary people) unable to survive. These people have no other choice, and 70,000 bloody and violent incidents occurred as a result.
+• 中共对美国的威胁是严重和广泛的，而我们有传播真相的力量。
 
-说这是1982年到83年期间，整个当时所谓的“严打”，邓小平以“严打”为名，所谓蒙古有强奸女学生的案子[为由展开]严打，杀了几万人。连弄颗白菜都要给弄死，那我是很清楚的。现在说加在一起，把当年1982～1983年所有案件累积在一起还不只2个月的[总]和呢。
+• 美国国防情报三星将军曾认为中共不是威胁，理由是中共是这么告诉他的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095114/PHOTO-2021-06-09-11-40-20-3.jpg)
+**3、劳伦斯·塞林博士 **
 
-Between 1982 and 1983, Deng Xiaoping gave orders to implement a severe crackdown on criminal activities, citing the rape of young girls in Mongolia. And it led to the executions of tens of thousands of people. Some even got executed for minor misdemeanors such as stealing a cabbage. I know very well what happened then. The total number of cases between 1982 and 1983 is not as many as that in the last two months.
+• 我们一同揭露中共生物战计划，查明在美国为中共邪恶计划出力的人。
 
-共产党很恐惧，如果7万变成70万的时候，这个社会就就不是什么报复社会了，就是社会受到了极权压迫[的表现]，到700万的时候共产党完蛋了。就这么简单。
+• 年轻的中国人提供了很大帮助，他们代表着自由和成功的未来中国。
 
-The CCP must be scared. If 70,000 cases grow to 700,000, it will not be an act of revenge against society. It will be a reaction to totalitarian oppression. If it expands to 7 million cases, the CCP will be finished. It is that simple.
+• CCP病毒是故意释放的，计划分为三个层级。
 
-然后银行、金融，就国内各方面咱们战友报信息，国内的银行过去是「玩」“还旧贷新”这个骗局，共产党自己的庞氏骗局，银行实际上45%到50%都成烂账了。这个“还旧贷新”的周转在过去的2到3个月里边，将近50%左右基本上都延续不下去了。就这么可怕！国内大概80万的私人企业全部倒闭，倒闭80万，80万！
+• 二战时，中美士兵并肩作战，取得了胜利。如今，我们是并肩战斗的队友，将共同站在自由之中国。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095228/PHOTO-2021-06-09-11-40-20.jpg)
+**4、迈克尔·弗林将军**
 
-Our fellow fighters also told me about banks, finance, and various aspects of mainland China. The banks in mainland China get used to playing tricks, and cover defaulted loans with new loans. This is the CCP’s own Ponzi game. In fact, 45% to 50% of the bank loans are already in default and cannot be repaid. The banks cannot continue playing the loan-pyramid scheme in almost 50% of the loan cases in the last 2 to 3 months. How bad it is. Around 800,000 private companies claimed bankruptcy in mainland China. It was 800,000 private companies!
+• 美国正处历史的重大变革，只要我一息尚存，就绝不允许美国变成共产主义国家。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60bce283c04fd544b46a8ecf](https://gtv.org/getter/60bce283c04fd544b46a8ecf) (4:04-6:08)
-鸣谢：[1] 感谢Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1303061/](https://gnews.org/zh-hans/1303061/)
-[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于[https://gnews.org/1306798/](https://gnews.org/1306798/)
+• 美国宪法中承诺的原则和价值是人民赖以生存的基础。
+
+• 我愿成为新中国联邦的盟友。
+
+• 若不承担风险，人将庸碌地度过一生。
+
+• 你们需要挺身而出，建立纽带，凝聚大家，成就美丽的新中国联邦。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095309/PHOTO-2021-06-09-11-40-20-1.jpg)
+**5、娜塔莉‧温特斯女士**
+
+• 中共已控制了美国的文化生产，主流媒体，完全拥有美国。
+
+• 美国记者参加中共统战部组织的活动，回美国前被要求报道有利于中共的内容。
+
+• 美国媒体报道的不是真相和事实，而是中共制造的导向舆论。
+
+• 中共希望看到美国垮掉，而我们要把中共踢出美国社会。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095336/PHOTO-2021-06-09-11-40-20-2.jpg)
+**6、迈克‧林德尔先生**
+
+• 中共不仅对美国，更对世界所有爱好和平的人民发动了战争。
+
+• 至少7个国家的目光聚集到美国，这是中共史无前例的全方位出击。
+
+• 我们逮到了中共，掌握了投票机作弊的证据，这将改变历史的进程。
+
+• 证据提交到高院，绝对将会是9比0的投票结果。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095410/PHOTO-2021-06-09-11-40-21.jpg)
+**7、拉希姆·卡萨姆先生**
+
+• 在座的你们是英雄，你们将解放中共国，你们还将从中共的魔抓中解放世界。
+
+• 川普总统向中共提出10万亿美元的赔偿，中共不仅已道德破产，更应该经济破产。
+
+• CCP才是歧视亚裔的罪魁祸首，它反对渴望自由的人民。
+
+• 真想阻止亚裔歧视，盯着共产党这个恶魔吧！
+
+• 中共深耕于媒体、政坛、学术机构，我们永远不会停止揭露他们。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095438/PHOTO-2021-06-09-11-40-21-2.jpg)
+**8、鲁迪·朱利安尼先生**
+
+• 我并不愿来到这个特殊的地方，因为会带来太多的回忆。
+
+• 如果不能正确地识别你的敌人是谁，你就不能打败他们。
+
+• 我们必须抛弃编造出的幻想，认为可以和中共合作，我们需要大声说出“中国共产党”。
+
+• 武汉的蝙蝠都在实验室，而中共则编织了强大的涉及美国人的网络，用于掩盖真相。
+
+• 我们必须站出来，告诉中共，去地狱吧，那里才是你的归宿！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095516/PHOTO-2021-06-09-11-40-21-3.jpg)
+**9、皮特·纳瓦罗先生**
+
+• 赞扬两人：郭先生——感谢他为中国人做的一切；班农先生——帮助川普总统竞选，与郭先生一道灭共。
+
+• 谴责两人：XI经病——隐瞒疫情，故意传播至世界；福奇——手上沾满了中国人和世界人民的血。
+
+• 郭先生是火花，启动了新中国联邦燎原之火；XI经病制造大流行病，启动了中共灭亡的火花。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095540/PHOTO-2021-06-09-11-40-21-1.jpg)
+**10、杰克·波索别克先生**
+
+• 美国人民理应得知2020病毒的真相；中国人民理应得知8964天安门的真相。
+
+• 中共向世界撒谎，世界人民需要答案。
+
+• 中国人民，美国人民，世界人民不是用来出售的。
+
+• 自由万岁！自由万岁！自由万岁！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095601/PHOTO-2021-06-09-11-40-22.jpg)
+（图片来源：现场战友拍摄、GTV视频截图）
 
 * * *
 
-字幕：【XO小粉红】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 +1
