@@ -1,55 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】站起来！马背上的民族
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1310522/)
+## 华为被剔除出JPMorgan债券指数
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1310651/)
 
-配音：香草山录音组 蒙古鸿雁
+信息来源：；路透社
+发布时间：2021年6月09日
+翻译 /整理/ 简评：Eternallight
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09142637/huawei.jpg)
 
 
+图片来源： 维基百科
 
-漫漫黄沙
-掠过草原
+据路透社报道, 随着美国对中国科技公司实施制裁后, JPMorgan决定在下个月底在其部分最具影响力的投资指数中剔除华为美元债券.
 
-如诉如泣的马头琴声
-回荡在浓重的夜空
+JPMorgan表示 ” 华为以美元计价的债券将被排除在摩根大通固定收益指数（包括 CEMBI 和 JACI 系列）之外，因为这些证券的发行实体（Proven Glory Capital Ltd. 和 Proven Honor Capital Ltd.）在制裁禁令中被明确列出”
 
-额吉的哀叹
-伴随着孩子的哭泣声
+JPMorgan作为全球最大的债券承销商之一, 其债券指数对债券投资具有直接指导意义. 本次除了华为, 中芯国际的债券也被排除在指数外. 此举势必会导致华为甚至中企在海外的融资渠道进一步受阻.
 
-启明星不再出现
-悠长的蒙古长调
-何时变得如此哀怨
+华为2020年财报显示, 其在海外的市场增长出现较大幅度下降, 其中美洲营收下降24.5%. 亚太下降8.7%,欧洲与中东非下降12.2%. 其它地区下降 6.4%. 在手机业务下滑,5G海外推广受阻的困境下, 美国制裁持续收紧. 华为将面临巨大的经营挑战.  由于外界诟病其和中国共产党与军队错综复杂交织的关系以及其情报背景, 西方世界对其的信任势必也会持续下降.  我们期待一个更加透明的,光明正大的中国企业以正面的,积极的姿态参与到国际分工合作,技术革新, 而不是致力于情报收集,网络控制,信息审核等.
 
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
 
-
-**文字版原文：[【香草诗词汇】站起来！马背上的民族](https://gnews.org/zh-hans/1303198/)**
-
-作者：纽约香草山写作组 蒙古鸿雁
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+🔗[chinas-huawei-be-excluded-influential-jpmorgan-bond-indices](https://www.reuters.com/business/finance/chinas-huawei-be-excluded-influential-jpmorgan-bond-indices-2021-06-09/)
 
 0

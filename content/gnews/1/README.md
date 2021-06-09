@@ -1,70 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 小红书微博账号疑因在六·四发表敏感言论被封
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1310838/)
+## 中共国男子染上首例H10N3禽流感病例
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1310985/)
 
-新闻来源：香港自由新闻（Hong Kong Free Press）| 作者：法新社（AFP）| 发布时间：2021年6月7日
+新闻来源：《国家脉动》| 作者：CATHERINE SALGADO | 发布时间：2021年6月5日
 
-翻译/简评：Claire| 校对：小小妹|审核：clau | Page：小六月
+翻译/简评：原乡人 | 校对：小小妹 | 审核：clau | Page：我是球大哥
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uMS40cSwE2nrD/images/4738a59f-1920-4e28-8d7e-33d7bb95bcd5.jpg?asset_id=0e321f5c-c293-4e2c-bd28-aaa824634c7f&amp;img_etag=%22a597609ad577e4d8dc72722fa3b7aa09%22&amp;size=1024)](https://spark.adobe.com/page/uMS40cSwE2nrD/images/4738a59f-1920-4e28-8d7e-33d7bb95bcd5.jpg?asset_id=0e321f5c-c293-4e2c-bd28-aaa824634c7f&amp;img_etag=%22a597609ad577e4d8dc72722fa3b7aa09%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/HCe8913or9pJB/images/8df832f0-329e-4834-adc9-3fd81b8389ce.png?asset_id=db12d386-c28d-4447-8d02-c947a5d9ee70&amp;img_etag=%22b498cb17398fee452cdc699d8230e6ff%22&amp;size=1024)](https://spark.adobe.com/page/HCe8913or9pJB/images/8df832f0-329e-4834-adc9-3fd81b8389ce.png?asset_id=db12d386-c28d-4447-8d02-c947a5d9ee70&amp;img_etag=%22b498cb17398fee452cdc699d8230e6ff%22&amp;size=1024)
 
-**简评：**
+中共国国家卫健委6月1日通报: “江苏省发现一例人感染H10N3禽流感病例……专家评估认为，病毒全基因分析显示，H10N3病毒为禽源性，未具备有效的感染人的能力。全球既往未见H10N3人间病例报道，禽间H10N3病毒对禽呈低致病性。此次疫情为一次偶发的禽到人的跨种属传播，发生大规模传播流行风险极低。”
 
-6月4日，小红书在微博上发帖称：“大声告诉我，今天的日期是……！”后，被中共封号。在帖子发布四天后，该微博页面仍然无法使用，中国网络监管机构称其在“因违反法律法规而被举报”后被调查。
+《国家脉动》报道此新闻时首先提到的，是中共国政府在2020年初的新冠病毒大流行期间一再撒谎和隐藏的数据。是的，世界是有记忆的，2020年发生武汉肺炎时，社交媒体上疯传的所谓“武汉人吃蝙蝠”的图片，李文亮医生被禁声被离世的图片，官方发出的“疫情可防可控”等等，中共的一切谎言和劣迹历历在目。一年半过去了，不仅疫情依然在全球肆虐，开发的疫苗跟不上病毒变异，更有甚者。中共发起超限生物战的迹象和证据一一浮出水面，拜登政府5月26日下令情报界90天内找到病毒起源。
 
-中共在六四如临大敌。32年前的6月4日，大批中国学生在北京天安门广场和平表达政治改革诉求，最后遭到军事镇压，伤亡惨重。然而，32年了，中共没有公布事情真相、没有被追究责任，更没有向伤亡的学生们道歉。相反的，每年6月4日，维权人士被消失，所有关于六四的言论都遭到封锁。然而即使有中共的高压统治，真相还是会浮出水面的。网络上传播着大量的六四当天真实的照片和视频；世界各国的维权人士纷纷指责中共的邪恶统治；爆料革命更是把真相传播到世界各地。请战友们不要放弃信念。我相信在未来的某一天，中共会因它的狂妄被制裁，中共会被自己的谎言湮灭。中共欠所有人一个道歉。人心不死，烛光不灭。
+备受愚弄的人们有理由对中共发布的任何有关新毒株、新疫情的声明打上一个大大的问号，而且还要怀疑为什么在这个时间点发出如此的通报，是否又在全球谋划一场混淆视听的“虚假信息战”，掩盖其发起又一场细菌病毒战的企图？
 
-爆料革命会还大家一个真相，为真不破！
+掉进了“塔西佗陷阱”的中共早就上了全球的“失信黑名单”，疫情发生一年来中共在世界舞台上的一系列流氓恶棍表演，提醒各国对中共任何言行必须质疑，时刻保持高度警惕，以防其再一次把世界推向悬崖。
 
 **原文翻译：**
 
-## **购物网站社交媒体因在天安门事件纪念日发帖被中共封号**
+## **中共国男子成为首个感染H10N3禽流感的人类病例**
 
-在帖子发布四天后,这款由腾讯和阿里巴巴支持的应用程序的微博页面在周一仍然无法使用，取而代之的是一个通知，称其在“因违反法律法规而被举报”后被撤下。
+[!\[\]()!\[\](https://spark.adobe.com/page/HCe8913or9pJB/images/6966e00a-534a-45c2-be47-5e401e04829f.jpg?asset_id=23681907-284b-449a-baf8-745c5b1b08ff&amp;img_etag=%224fa16253a7b348db995e3a95c6582ac7%22&amp;size=1024)](https://spark.adobe.com/page/HCe8913or9pJB/images/6966e00a-534a-45c2-be47-5e401e04829f.jpg?asset_id=23681907-284b-449a-baf8-745c5b1b08ff&amp;img_etag=%224fa16253a7b348db995e3a95c6582ac7%22&amp;size=1024)
 
-一款中共国的购物应用程序软件在1989年天安门广场镇压周年纪念日发布帖子后在社交媒体上被屏蔽，因为北京方在这个敏感日期启动审查。
+**中共国的一名男子成为可能是有史以来第一例人类感染H10N3型禽流感病毒的病例，但是中国共产党声称该病毒大规模传播给人类的风险很低。**
 
-6月4日，根据网上流传的截图显示，小红书，一个类似缤趣（Pinterest）的用户分享旅游和购物技巧的平台的微博页面发布了一条帖子，称“大声告诉我，今天的日期是……！”
+中共国政府在2020年初的新冠病毒，即“武汉病毒”大流行期间一再撒谎并隐藏数据。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uMS40cSwE2nrD/images/8a9de93b-4318-4158-9b98-ac5f52cc5fd0.png?asset_id=8813e2b3-49d1-46cd-9cd8-c8f640bd8c00&amp;img_etag=%22ab28b038f62dc26247c43b01878311fa%22&amp;size=1024)](https://spark.adobe.com/page/uMS40cSwE2nrD/images/8a9de93b-4318-4158-9b98-ac5f52cc5fd0.png?asset_id=8813e2b3-49d1-46cd-9cd8-c8f640bd8c00&amp;img_etag=%22ab28b038f62dc26247c43b01878311fa%22&amp;size=1024)小红书。图片：小红书网站，手机截图
+现今，一名来自江苏省的41岁男子因感染H10N3毒株被送入医院。此后，中共国国家卫生健康委员会报告说，他的情况稳定。
 
-这个日期是镇压32年的纪念日。但不确定该帖子是否暗指天安门事件，因为该公司经常在周五迎来周末的时候发表类似声明。
+据中共国国家卫生健康委员会称，全世界还没有其他人类感染H10N3型禽流感的病例报告。
 
-在帖子发布四天后, 这款由腾讯和阿里巴巴支持的应用程序的微博页面在周一仍然无法使用，取而代之的是一个通知，称其在“因违反法律法规而被举报”后被撤下。
+此委员会的声明称：“这种感染是一种偶发的跨物种传播，大规模传播的风险性很低。”据美联社新闻报道，在新冠病毒大流行之后，人们比以往任何时候都更加关注新出现的疾病，所以才有此声明：
 
-中共领导层对天安门广场镇压事件高度敏感。
+“但与冠状病毒不同的是，自从20世纪90年代末一种名为H5N1的菌株在香港拥挤的活禽市场出现后，就有了观察人类禽流感病例的全球流感监测系统。”
 
-他们竭尽全力将这场运动从集体记忆中抹去，从历史教科书中删除，并审查有关镇压的在线讨论信息。
+另一种禽流感菌株H7N9，在中共国于2013年至2017年期间感染了1500多人，此前这些人与受感染的鸡有密切接触。
 
-1989年6月4日，士兵们进军北京并向居民和学生抗议者开火，镇压了长达数周的呼吁政治变革和遏制官员腐败的示威浪潮。
+据美联社报道，由于这段历史，当局对发现人类有时感染禽流感毒株的案例“并不感到惊讶”，并且毒株有可能发生的任何人传人的迹象都在密切监测中。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uMS40cSwE2nrD/images/efdbc69f-031d-4595-8d45-849aa2e05a36.png?asset_id=99ea9842-382d-411b-9c84-aee5a1f40242&amp;img_etag=%22358b2a32690a2e040de9a00a6f8a8aba%22&amp;size=1024)](https://spark.adobe.com/page/uMS40cSwE2nrD/images/efdbc69f-031d-4595-8d45-849aa2e05a36.png?asset_id=99ea9842-382d-411b-9c84-aee5a1f40242&amp;img_etag=%22358b2a32690a2e040de9a00a6f8a8aba%22&amp;size=1024)镇压之后。照片：HRIC 档案，由盖尔·巴特勒（Gail Butler）和利比·施马茨（Libby Schmalz）提供。
-
-数百人，某些估计有超过1,000 人在镇压中丧生。
-
-今年（2021年），香港当局在香港一年一度的守夜活动被禁止后，逮捕了几名试图为这一日子举行纪念活动的人。
-
-中共国大陆禁止公众纪念6月4日，社交媒体搜索镇压日期也经常被屏蔽。
-
-微信支付和聊天应用程序的用户无法在周年纪念日前后发送蜡烛表情符号，少数讨论镇压问题的人采用了隐晦的双关语和模糊的提法。
-
-小红书没有立即回应法新社的置评请求。
-
-该应用程序拥有庞大的千禧一代的追随者，并得到竞争对手腾讯和阿里巴巴的支持，具有购物功能，允许品牌和网红直接向追随者销售产品。
-
-据另一位投资者天图资本称，这家总部位于上海的公司在2018年获得了包括阿里巴巴和腾讯在内的3亿美元的投资后，其市值超过了30亿美元。
-
-[原文链接](https://hongkongfp.com/2021/06/07/tell-me-loudly-todays-date-is-china-blocks-shopping-apps-social-media-after-post-on-tiananmen-massacre-anniversary/)
+[原文链接](https://thenationalpulse.com/breaking/chinese-man-contracts-first-reported-human-case-of-h10n3-bird-flu/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uMS40cSwE2nrD/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/uMS40cSwE2nrD/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/HCe8913or9pJB/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/HCe8913or9pJB/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
