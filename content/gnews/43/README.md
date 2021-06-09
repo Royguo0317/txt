@@ -1,27 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利比萨省的一起接种疫苗后的严重事件
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1309684/)
+## 【灭共头条】爆炸性视频：打杂客吹嘘“中国同事”在开发“杀手”
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1309746/)
 
-消息来源：意大利共和报（corriere.it）
-发布时间：2021年06月08日
-翻译整理：斩草要除根
+#### 撰稿：Freedoom（㊙密翻Gnews原创组）
+责编：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09071334/doom.jpg)图片来源：VOA
+打杂客（Peter Daszak）是生态健康联盟主席，曾与武汉病毒研究所合作进行安东尼·福奇医生（Dr. Anthony Fauci）的美国国家过敏和传染病研究所（NIAID）资助的研究。越来越多的证据表明福奇的NIAID与武汉病毒研究所有着深厚的财务和人事关系。而打杂客的生态健康联盟恰恰是向中共实验室输送资金的主要代理机构之一。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/07160950/Vaccination-against-coronavirus-disease-in-Stip.jpg)
+近日，《国家脉搏》（National Pulse）发掘出一段拍摄于2016年的视频，打杂客在一个讨论“新出现的传染病和下一个大流行病 ”的论坛上，吹嘘他的“中国同事 ”正在改造类似SARS的冠状病毒。这似乎与福奇一再否认资助武汉病毒研究所进行病毒功能增强研究的说法不一致。
 
+也许那个时候，打杂客并没有意识到中共会邪恶到将这些研究用于超限生物武器，所以，他说出了真相。谈到他的组织如何对致命的病毒进行排序时，打杂客详细描述了他的“中国同事”在病毒中“插入突刺蛋白 ”以观察它们是否能 “与人类细胞结合”的过程。“如同我们对SARS的操作手法一样，得到一个类似已知的讨厌的病原体的病毒序列。我们在蝙蝠身上发现大量冠状病毒，其中一些看起来与SARS非常相似。所以我们对突刺蛋白进行了排序，让它附着在细胞上。然后，我们……嗯（打杂客似乎不想背这个锅），我没有做这项工作，是我的中国同事做的。他们创造了假的颗粒，插入了病毒的突刺蛋白，观察它们是否能与人体细胞结合。随着研究的进行，结果越来越接近能使人真正致病的病毒。最终发现了少量看起来确实像杀手的病毒。”
 
-一名 41 岁的女人现在在比萨大学附属医院的重症监护室接受住院治疗，因为她的病情非常严重。这名妇女于 5 月 26 日在卢卡市的第一个开放日接种了阿斯利康疫苗，上周五，也就是接种后第 9 天她中风了。她的病例可能是非常罕见的疫苗不良反应之一，是 15 万次接种中的第一例，她接种的是阿斯利康疫苗。
+在 NIAID提供的 370万美元的资助下，武汉病毒实验室的石正丽与打杂客共同完成了十多篇研究论文，石的简历中也提到了这些由福奇支持的拨款。武汉实验室曾将美国国立卫生研究院（NIH）列为其 “合作伙伴”之一，但在2021年3月秘密删除了这条信息。
 
-这位来自卢卡市的 41 岁女人在接种疫苗前非常的健康，他的父母为此提出了投诉。阿斯利康解释说：中风前没有症状，血栓发生在脑主动脉而不是深静脉窦。但在意大利，在接受疫苗接种后发生了 34 例血栓形成，即每 100,000 名接种者中发生 0.45 例。
+这下，中共的战狗们，脑子又该短路了！
 
-意大利著名免疫学家 Chiara Azzari 教授向欧洲药品管理局发起呼吁：我们必须“将年轻女性排除在接种病毒载体疫苗之外，不仅是第一剂，而且也是第二剂”。Azzari 解释说：这些血栓形成非常罕见，但在某些人群中，这些事件更为高频率，即年轻女性”。
+参考链接：[WATCH: Explosive, Unearthed Video Shows Peter Daszak Describing ‘Chinese Colleagues’ Developing ‘Killer’ Coronaviruses.](https://thenationalpulse.com/exclusive/daszak-reveals-chinese-colleagues-manipulating-coronaviruses/)
 
-简评：又一起疫苗事故。一边是普通民众都相信疫苗接种能带来保护，一边是我们爆料革命提醒大家不要接种疫苗。只希望我们的呼吁能快一点起到作用，避免更多无辜事件发生。
+（本文仅代表作者个人观点）
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
-
-🔗[pisa-41enne-grave-il-vaccino](https://corrierefiorentino.corriere.it/firenze/notizie/cronaca/21_giugno_07/pisa-41enne-grave-il-vaccino-6760c9e4-c7c0-11eb-80c1-8b074ce4f717.shtml)
-
-+1
+0

@@ -1,52 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 过去的两个月中共国“报复社会”事件暴增！80万私营企业倒闭！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1310065/)
+## 【热点播报】福奇博士有前科
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1310174/)
 
-**摘要：在2021年6月6日的盖特中，郭先生说仅仅过去两个月，中共国发生7万起恶性“报复社会”事件，人民已经无路可走；中共银行的庞氏骗局已经玩不下去；80万私营企业倒闭！**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09093624/Miles_2021-06-06-getter.srt.txt)
-**过去的两个月中共国****“****报复社会****”****事件暴增！****80****万私营企业倒闭！**
+作者： 纽约香草山媒体部 7bends
 
-**The Surge of Violent Crimes and Bankruptcies of Private Companies in China**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-同时现在，中共国的现在经济到什么程度大家都知道啊。
 
-Do you know how seriously Communist China’s economy has deteriorated?
 
-仅仅，仅仅过去2个月，在全国各地所谓的他们定义的恶性的所谓报复社会[事件]。事实上是逼得人[已经是]不是“上梁山”了，梁山都没了，是逼得人不能当人了，不能干人事了。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09101853/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E7%A6%8F%E5%A5%87%E5%8D%9A%E5%A3%AB%E6%9C%89%E5%89%8D%E7%A7%91.png)
 
-In the past two months, 70,000 cases of what the CCP defines as “vicious retaliation against society” have taken place across the country. Actually, these cases are occurring because these people have been driven beyond the point of survival. (The Chinese ancient novel “Outlaws of the Marsh” told the story of what occurred on “Mount Liang”.) Now that “Mount Liang” is gone, people who cannot survive are forced to commit violence.
+[国家脉动（The National Pulse）](https://thenationalpulse.com/breaking/18-years-ago-cspan-caller-told-fauci-to-resign/)调查记者Natalie Winters爆料，安东尼·福奇博士并非只有CCP病毒大流行以来表现恶劣，在18年前SARS爆发期间，福奇博士行事风格已遭民众质疑。
 
-我们反对暴力。但人但凡有点儿选择也不会走上它们说的报复社会的路。是那些共产党的走狗们欺压百姓没有活路了，只有一个选择了。达多少起呢？7万起！7万起血腥暴力社会事件。
+2003年，一位来自北卡罗来纳州的医生要求福奇辞职，因为福奇博士长期身处要职，却不向美国人传达公共卫生信息。美国控制传染病的能力没有提高，反而恶化了。这位医生在2003年4月14日的call-in电话节目中问福奇：“你不认为是时候下台并让其他人传达更有效的信息了吗？”“实际上，不”，福奇笑着回答。
 
-We are against violence, but we must understand that nobody would do such a thing if they had a choice. They do not want to take revenge on society. CCP, the organized crime organization, and its gangsters oppress people and make more and more Lao Bai Xing (ordinary people) unable to survive. These people have no other choice, and 70,000 bloody and violent incidents occurred as a result.
+看了这段描述，立即让人联想起福奇博士多次出席川普总统疫情发布会谈论疫情时轻佻而又漫不经心地的表情。现在看来，身为顶级传染病专家的专业人生和美国年薪最高的公务员，福奇博士当时对疫情的轻描淡写就是在误导非专业的总统和公众。
 
-说这是1982年到83年期间，整个当时所谓的“严打”，邓小平以“严打”为名，所谓蒙古有强奸女学生的案子[为由展开]严打，杀了几万人。连弄颗白菜都要给弄死，那我是很清楚的。现在说加在一起，把当年1982～1983年所有案件累积在一起还不只2个月的[总]和呢。
+原来福奇博士在将近20年前，SARS爆发的时候，就被民众认为没有尽到向公众传达关键卫生信息的责任。在全球公众健康遭受CCP病毒重创的今天，长期担任国家过敏和传染病研究所所长的福奇博士与中共一唱一和，配合娴熟，美国民众更有理由怀疑，他是不是自2003年SARS爆发起就是中共的老搭档呢？
 
-Between 1982 and 1983, Deng Xiaoping gave orders to implement a severe crackdown on criminal activities, citing the rape of young girls in Mongolia. And it led to the executions of tens of thousands of people. Some even got executed for minor misdemeanors such as stealing a cabbage. I know very well what happened then. The total number of cases between 1982 and 1983 is not as many as that in the last two months.
+编辑/发稿：雪梨
 
-共产党很恐惧，如果7万变成70万的时候，这个社会就就不是什么报复社会了，就是社会受到了极权压迫[的表现]，到700万的时候共产党完蛋了。就这么简单。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-The CCP must be scared. If 70,000 cases grow to 700,000, it will not be an act of revenge against society. It will be a reaction to totalitarian oppression. If it expands to 7 million cases, the CCP will be finished. It is that simple.
+**更多资讯，更多关注**
 
-然后银行、金融，就国内各方面咱们战友报信息，国内的银行过去是「玩」“还旧贷新”这个骗局，共产党自己的庞氏骗局，银行实际上45%到50%都成烂账了。这个“还旧贷新”的周转在过去的2到3个月里边，将近50%左右基本上都延续不下去了。就这么可怕！国内大概80万的私人企业全部倒闭，倒闭80万，80万！
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-Our fellow fighters also told me about banks, finance, and various aspects of mainland China. The banks in mainland China get used to playing tricks, and cover defaulted loans with new loans. This is the CCP’s own Ponzi game. In fact, 45% to 50% of the bank loans are already in default and cannot be repaid. The banks cannot continue playing the loan-pyramid scheme in almost 50% of the loan cases in the last 2 to 3 months. How bad it is. Around 800,000 private companies claimed bankruptcy in mainland China. It was 800,000 private companies!
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60bce283c04fd544b46a8ecf](https://gtv.org/getter/60bce283c04fd544b46a8ecf) (4:04-6:08)
-鸣谢：[1] 感谢Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1303061/](https://gnews.org/zh-hans/1303061/)
-[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于[https://gnews.org/1306798/](https://gnews.org/1306798/)
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-* * *
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-字幕：【XO小粉红】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-+1
++2

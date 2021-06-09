@@ -1,35 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国式的“集中国家力量办大事”
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1309938/)
+## 过去的两个月中共国“报复社会”事件暴增！80万私营企业倒闭！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1310065/)
 
-撰稿：云彩
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09085005/%E5%9B%BE%E7%89%87PPT%E5%8F%98PNG-5.jpg)
-图片来自网络
+**摘要：在2021年6月6日的盖特中，郭先生说仅仅过去两个月，中共国发生7万起恶性“报复社会”事件，人民已经无路可走；中共银行的庞氏骗局已经玩不下去；80万私营企业倒闭！**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09093624/Miles_2021-06-06-getter.srt.txt)
+**过去的两个月中共国****“****报复社会****”****事件暴增！****80****万私营企业倒闭！**
 
-2021年4月21日美国参议院委员会以高票数表决通过，将“2021年战略竞争法案”递交参议院审议。从这法案中，可以看到美国是怎样集中国家力量办大事。
+**The Surge of Violent Crimes and Bankruptcies of Private Companies in China**
 
-首先，是确立中共是战略竞争对手，而不是战略伙伴关系。2022-2026年，印太地区军事拨款6亿5000万美元，额外4亿5000万用在《印太海上安全方案》。扩大外国投资委员会核准范围，调查中资企业在美的金融交易是否有国家安全风险？
+同时现在，中共国的现在经济到什么程度大家都知道啊。
 
-同时，加强台湾战略伙伴关系。现代战争物质包括石油和芯片。作为半导体代工产业的巨头台积电让台湾具有重要的战略地位。以前华府实行模糊战略，即不明确武力保护台湾。但在本次的法案中，对华政策两党一致，国家利益大于党派利益。随之的是战略清晰政策，明确表明美国将对共产党对台使用的任何武力作出回应。
+Do you know how seriously Communist China’s economy has deteriorated?
 
-然后，在科技合作方面，实行新科技供应链去中国化。西方民主国家之间形成在芯片和区块链等高科技形成一个封闭圈，亚洲受惠的国家有日本ˎ韩国ˎ台湾和印度。共产党利用国际大牌公司如H&M针对新疆棉花的声明，用政治手段引导大陆民众抵制这些品牌。该举措更加坚定国际大公司将生产供应链撤离中共国。
+仅仅，仅仅过去2个月，在全国各地所谓的他们定义的恶性的所谓报复社会[事件]。事实上是逼得人[已经是]不是“上梁山”了，梁山都没了，是逼得人不能当人了，不能干人事了。
 
-最后，美国会在基础教育和基础建设方面投入大量资金。基础教育方面，如提高社区大学的质量，整体提升美国人的素质。科技方面，如当年的登月计划一样，私人公司负责技术创新，政府部门有法可依地执行其职能。二者有序地进行合作。
+In the past two months, 70,000 cases of what the CCP defines as “vicious retaliation against society” have taken place across the country. Actually, these cases are occurring because these people have been driven beyond the point of survival. (The Chinese ancient novel “Outlaws of the Marsh” told the story of what occurred on “Mount Liang”.) Now that “Mount Liang” is gone, people who cannot survive are forced to commit violence.
 
-总而言之，美国式的举国体制是透明度高，自我协调，不需要伟大领袖。
+我们反对暴力。但人但凡有点儿选择也不会走上它们说的报复社会的路。是那些共产党的走狗们欺压百姓没有活路了，只有一个选择了。达多少起呢？7万起！7万起血腥暴力社会事件。
 
-（本文中观点只代表个人观点）
+We are against violence, but we must understand that nobody would do such a thing if they had a choice. They do not want to take revenge on society. CCP, the organized crime organization, and its gangsters oppress people and make more and more Lao Bai Xing (ordinary people) unable to survive. These people have no other choice, and 70,000 bloody and violent incidents occurred as a result.
 
-参考资料：
+说这是1982年到83年期间，整个当时所谓的“严打”，邓小平以“严打”为名，所谓蒙古有强奸女学生的案子[为由展开]严打，杀了几万人。连弄颗白菜都要给弄死，那我是很清楚的。现在说加在一起，把当年1982～1983年所有案件累积在一起还不只2个月的[总]和呢。
 
-[中美关系：美参院委员会通过《2021年战略竞争法案》，美国将从哪几个方面“抗衡中国”](https://www.bbc.com/zhongwen/simp/world-56847588)
+Between 1982 and 1983, Deng Xiaoping gave orders to implement a severe crackdown on criminal activities, citing the rape of young girls in Mongolia. And it led to the executions of tens of thousands of people. Some even got executed for minor misdemeanors such as stealing a cabbage. I know very well what happened then. The total number of cases between 1982 and 1983 is not as many as that in the last two months.
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+共产党很恐惧，如果7万变成70万的时候，这个社会就就不是什么报复社会了，就是社会受到了极权压迫[的表现]，到700万的时候共产党完蛋了。就这么简单。
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+The CCP must be scared. If 70,000 cases grow to 700,000, it will not be an act of revenge against society. It will be a reaction to totalitarian oppression. If it expands to 7 million cases, the CCP will be finished. It is that simple.
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+然后银行、金融，就国内各方面咱们战友报信息，国内的银行过去是「玩」“还旧贷新”这个骗局，共产党自己的庞氏骗局，银行实际上45%到50%都成烂账了。这个“还旧贷新”的周转在过去的2到3个月里边，将近50%左右基本上都延续不下去了。就这么可怕！国内大概80万的私人企业全部倒闭，倒闭80万，80万！
 
-0
+Our fellow fighters also told me about banks, finance, and various aspects of mainland China. The banks in mainland China get used to playing tricks, and cover defaulted loans with new loans. This is the CCP’s own Ponzi game. In fact, 45% to 50% of the bank loans are already in default and cannot be repaid. The banks cannot continue playing the loan-pyramid scheme in almost 50% of the loan cases in the last 2 to 3 months. How bad it is. Around 800,000 private companies claimed bankruptcy in mainland China. It was 800,000 private companies!
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60bce283c04fd544b46a8ecf](https://gtv.org/getter/60bce283c04fd544b46a8ecf) (4:04-6:08)
+鸣谢：[1] 感谢Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1303061/](https://gnews.org/zh-hans/1303061/)
+[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于[https://gnews.org/1306798/](https://gnews.org/1306798/)
+
+* * *
+
+字幕：【XO小粉红】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++1
