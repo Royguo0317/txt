@@ -1,43 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】英国进行加打第三剂疫苗的临床试验
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1307985/)
+## 【香草山水墨堂】剑出鞘
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1309021/)
 
-作者： 纽约香草山医疗部 云豹
+**作者**：香草山美食部 文百合
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
-
-
-
-从上周开始，英国开始进行加打第三剂疫苗的临床试验。参加试验者将接受与原来所打疫苗不同的其他疫苗，目的是要测试混用不同的疫苗是否可增强免疫的保护作用。此次的第三剂疫苗试验，将采用包括阿斯利康、辉瑞、诺华和杨森在内的疫苗，其中一些疫苗将以一半剂量来进行注射。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08122248/118821070_3a26405e-b65a-4b50-9489-fc9bc3e7aa1d.jpg)图片来源：Reuters
-
-英国目前人口有6,821万，从今年一月开始打疫苗以来已经有将近4千万人打过至少一剂疫苗，有将近2千8百万人已经打完两剂疫苗。英国的疫情在过半数民众最少打过一剂疫苗后，一度似乎缓解了不少。在三月的时候，每日的确诊人数可达到10000多人，每日的死亡人数可达400多人。而从4月21日到5月26日间，平均每日的确诊人数约在2000到2500人之间，死亡人数在1人至27人之间。6月2日当天更出现死亡人数掛零的好消息，可惜只是昙花一现。因为从5月27 日起，每日的平均确诊人数又升高到3000至6000人，死亡人数在个位数到10多人之间。这是当英国多数人都认为疫情已经因为注射疫苗得到适度控制的时候，英国的确诊病人数又开始再次增加。这使英国政府原本预计在6月21日解封的计划可能会有所变动。
-
-英国病毒专家担心陆续出现的变种病毒会让疫苗的保护力不足，因为已知印度变种病毒增加了40%的传染能力，原来的疫苗是否能达到预期的防护效果已经开始令人担忧。另外病毒专家也开始预期会有越来越多的变种病毒陆续出现，这对现有疫苗的防护力将是更大的考验。专家也开始预期未来每年都可能要像现在打流感疫苗一样，每年都要重新打中共病毒的疫苗，以对付新的中共变种病毒。所以英国才会进行第三剂疫苗混打注射的试验，希望找出增加疫苗防护力的方法。
-
-从闫丽梦博士去年就告诉世人的事实，病毒是中共製造的生化武器，以及从文贵先生所得到的其他情报得知，病毒是中共故意施放出来的，而且中共手中都还有将近千种病毒随时可以施放出来对各国民眾进行攻击。那么世人期待借由疫苗施打的方式可以达到控制疫情的期望，注定是会落空的。因为这不是自然来源的病毒，这是生化武器，纵使疫苗真得能达到预期的保护效力，中共只要再施放另外几种病毒出来，疫苗就马上失效了，这还没考虑到疫苗是在未完成全套临床试验下就以紧急授权方式仓促使用的不确定性及风险性。
-
-所以各国政府及专家不要再继续拖延追究病毒真相的时程，应该尽速让民众知道此事实，才能在强大民意支持下，加速推动向中共究责及要求中共交出解药的行动。这样针对病毒来源真相来追究及处理的解决方案，才是解决中共病毒所造成疫情的最迅速及有效的方式。
-
-(本文为作者个人观点，不代表G NEWS的立场)
-
-参考资料
-
-[新冠疫苗：英国為什麼展开第三剂接种临牀试验 – BBC News 中文](https://www.bbc.com/zhongwen/trad/science-57376338)
-
-https://www.taiwannews.com.tw/ch/news/4218089
-
-https://weather.com/zh-TW/coronavirus/l/London+England+United+Kingdom?canonicalCityId=a4cb96aeab4c5bbc8f739c9195747c0abd46dbe68a101384f78303da71c0f417
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
 
 
 
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09001022/image0-37-scaled.jpg)
+
+剑出鞘——
+
+书法如诗如画
+话中有话
+它说—“灭共是正义的需要”
+行书速楷
+自由奔放
+如行云流水
+气韵轩昂
+有强烈的艺术魅力
+
+水墨丹青灭中共
+每一笔都是力量
+是射向敌人的子弹
+剑出鞘
+枪上膛
+香草山水墨堂
+就是我们的战场
+笔墨纸砚
+文房四宝
+就是我们的剑
+我们的枪
+我们的炮
+对准敌人猛开炮
+胜利就在前方
+十四亿中国人民的自由解放
+
+编辑/上传：遍地开花 审核/发布：飞虹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
 **更多资讯，更多关注**
 
 [**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
@@ -48,6 +53,14 @@ https://weather.com/zh-TW/coronavirus/l/London+England+United+Kingdom?canonicalC
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
+
+
+
+
+
+
+
+0

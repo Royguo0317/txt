@@ -1,12 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## mRNA疫苗增强了疾病
-` 法农喜马拉雅多语组` [轉載自GNews](https://gnews.org/zh-hans/1307827/)
+## CCP病毒起源研究的博弈：民间组织、科学界和政府机构（一）
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1309208/)
 
-免疫学和免疫系统研究方面的知名专家多洛雷斯∙卡希尔教授说，mRNA疫苗增强了疾病。
+翻译整理：lulu18、雅典辣豆、坐看云起时、小先生等战友
 
-From 
-[https://rumble.com/vhfbov-professor-dolores-cahill-says-that-mrna-vaccines-enhances-the-illness-and-t.html](https://rumble.com/vhfbov-professor-dolores-cahill-says-that-mrna-vaccines-enhances-the-illness-and-t.html)
+**序言：**
 
-+1
+2021年6月3日，美国著名时尚杂志《名利场》（Vanity Fair ）发表一篇详尽的关于病毒起源的[重磅报道](https://www.vanityfair.com/news/2021/06/the-lab-leak-theory-inside-the-fight-to-uncover-covid-19s-origins)《The lab-leak theory: inside the fight for uncover COVID-19’s origins》（实验室泄漏理论：关于中共病毒起源研究的斗争）。作为重要的左派媒体，虽然阅读量不及《纽约时报》，但是它的调查报告被左派精英广泛阅读。这篇历经数月准备而发表的调查报告也反映出左派主流媒体在报道病毒来源问题上逐渐发生了改变。
+
+通过文章中提供的资料和细节，我们可以从另一角度看到包括民间、科学界、情报界、世界卫生组织和美国政府组织内部的各方在病毒起源问题上的角逐，也验证了很多爆料革命战友从2020年初以来提供的许多重要信息。现梳理一些关键信息并结合其他公开文章与大家分享：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09013845/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE1291.png)
+**1.  ****民间自发的关于病毒实验室起源的追踪：**
+
+2020年春，吉尔斯·德马纽夫（[Gilles Demaneuf](https://twitter.com/gdemaneuf) ，新西兰银行的数据科学家) [发现](https://gillesdemaneuf.medium.com/the-good-the-bad-and-the-ugly-a-review-of-sars-lab-escapes-898d203d175d)2004 年以来，中共国发生了四起与 SARS 相关的实验室违规事件，其中两起发生在北京的病毒预防控制所 （中国疾病预防控制中心的下属单位）。那里的一间实验室因为研究人员太多而空间过于拥挤，于是把一种未被完全灭活的 SARS 病毒转移到走廊的冰箱。后来一名研究生在电子显微镜室下观察病毒后引发了一场疫情。与德马纽夫一起调查的是一位巴黎实验室的项目主任鲁道夫·德·迈斯特（[Rodolphe de Maistre](https://twitter.com/rdemaistre?lang=en)）。 迈斯特之前在中国工作学习过，他告诫说武汉病毒研究所（简称武毒所）实际上有多个研究冠状病毒的实验室，大部分生物安全标准只有BSL-2（类似美国牙医诊所）和BSL-3，只有一间达到BSL-4。他们两人以及其他一些科学爱好者和顶尖科学家为了揭开病毒来源组成了一个名为DRASTIC的小组，搜集了一个中国病毒研究实验室的综合清单， 还在深入检查武毒所的施工订单、污水排放量和手机流量。推动巴黎小组（Paris Group）的联合创始人维吉妮·柯蒂尔（ [Virginie Courtier](https://twitter.com/Biol4Ever) ）想法很简单，“有一些未解决的问题只有少数人知道答案。” 前国务院承包商的高级调查员大卫·阿舍（David Asher）认为DRASTIC小组的工作比美国政府都做得好。
+
+然而在2020 年夏天DRASTIC小组的工作开始受到了中共政府的监视， 于是德马纽夫将工作转移到加密平台 Signal 和 ProtonMail，并结识了新盟友。其中最著名的是 杰米·梅茨尔（[Jamie Metzl](https://twitter.com/JamieMetzl) ，世界卫生组织人类基因组编辑咨询委员会的成员，并在克林顿政府担任国家安全委员会多边事务主任），他4 月 16 日推出的[博客文章](https://jamiemetzl.com/origins-of-sars-cov-2/)成为了政府研究人员和记者调查病毒实验室泄漏假设的首选网站。他参与了由巴黎小组30 多位持怀疑态度的科学专家组成的的每月网上讨论会，其中还包括了伦敦国王学院的生物安全专家菲利帕·伦佐斯（ [Filippa Lentzos](https://twitter.com/FilippaLentzos)） 。
+
+2020年5月1日，她在Bulletin of the Atomic Scientists（《原子科学家公报》）上[发表](https://thebulletin.org/2020/05/natural-spillover-or-research-lab-leak-why-a-credible-investigation-in-needed-to-determine-the-origin-of-the-coronavirus-pandemic/)了关于病原体如何从武毒所逃脱的描述。她指出，武毒所BSL-4 实验室主任袁志明曾于2019 年 9 月[发表](https://www.sciencedirect.com/science/article/pii/S2588933819300391)过一篇概述了中国实验室的安全缺陷的期刊文章。文章称，“因为维护成本通常被忽视，一些 BSL-3 实验室的运营成本极低，甚至有时候根本没有。”同时麻省理工学院和哈佛大学布罗德研究所(Broad Institute of MIT and Harvard)的年轻分子生物学家和博士后研究员 [Alina Chan](https://twitter.com/ayjchan) [发现](https://www.biorxiv.org/content/10.1101/2020.05.01.073262v1.full)， SARS-CoV-2 病毒的早期序列几乎没有显示出突变的证据，似乎已经预先适应了在人类中传播。如果病毒是从动物传染给人类，就像  2002 年 SARS 爆发时那样，在病毒上应该能看到相应的突变。
+
+同时一位匿名的 DRASTIC 研究员[@TheSeeker268](https://twitter.com/TheSeeker268) （来自东印度年轻的前科学教师）利用关键字搜索中国知网，在2020年5月发现了昆明医科大学的硕士生李旭于 2013 年的[硕士论文](https://zenodo.org/record/4476508#.YL6FQIRKhhE)中描述了关于云南省南部墨江县六名矿工在清除蝙蝠粪便后有了咳嗽、发烧和呼吸困难的症状，并被送往昆明医科大学第一附属医院，之后三人死亡。在钟南山建议进行抗体测试后，被认为对 SARS 抗体呈阳性，而导致患者生病的蝙蝠是中国红褐色的马蹄蝠（Horseshoe bats)，这与后来大流行爆发后武毒所石正丽研究员的说法不同。此后，来自中国和其他地区的研究人员团队开始前往废弃的矿井，从蝙蝠、麝鼩和老鼠身上收集病毒样本。
+
+2013 年 10 月，武毒所的病毒研究员石正丽等人在《自然》杂志上[发表](https://www.nature.com/articles/nature12711)了一个关键发现：某些蝙蝠病毒可能不需要中间宿主而直接感染人类。她的团队首次分离出类似 SARS 的活蝙蝠冠状病毒，并发现它可以通过ACE2 受体的蛋白质进入人体细胞。在接下来的2014 年到2016 年的研究中，石正丽团队继续研究从矿井中收集的蝙蝠病毒样本以期找出是哪一种感染了矿工。蝙蝠长满了多种冠状病毒，但她们只发现一种基因组与 SARS 非常相似。他们将其命名为 RaBtCoV/4991。
+
+中共病毒爆发后，石正丽团队于2020 年 1月20 日递交给《自然》一篇[论文](https://www.nature.com/articles/s41586-020-2012-7)，指出 SARS-CoV-2 病毒的遗传密码与2002年爆发的 SARS-CoV 的几乎 80% 相同。但她也报告说，它与武毒所拥有的名为 RaTG13 的冠状病毒序列具有 96.2% 的相同性。之后她提供的关于 RaTG13 来自何处以及何时完全测序的描述不断变化且有时相互矛盾。DRASTIC 研究人员在内的几个团队很快意识到 RaTG13 似乎与 RaBtCoV/4991完全一致。
+
+2020年7月，随着问题的增多，石正丽[告诉](https://www.sciencemag.org/sites/default/files/Shi%20Zhengli%20Q%26A.pdf)《科学》杂志，她的实验室是为了清楚起见而重新命名了样本。2020年8月石正丽和她的合作者（包括彼得·达扎克Peter Daszak）[发表](https://www.nature.com/articles/s41467-020-17687-3)了他们在 2010 年至 2015 年间采样的 630 种新型冠状病毒。可是通过梳理[补充数据](https://static-content.springer.com/esm/art%3A10.1038%2Fs41467-020-17687-3/MediaObjects/41467_2020_17687_MOESM1_ESM.pdf)，DRASTIC 研究人员惊讶地发现，另外 8 种来自墨江矿的病毒与 RaTG13 密切相关，却未在文章中提及。布罗德研究所的Alina Chan认为，对这些关键的信息不加评论是令人难以置信。
+
+而中国社交媒体用户早在 2020 年 1 月就开始分享他们对病毒起源的怀疑。网络上传言“零号病人”是武汉病毒研究所的微生物学女研究生黄燕玲，并称她在研究所进行实验时被泄漏的病毒感染死亡。网民发现，黄燕玲在研究所网站上空有名字，却不像其他学生一样有照片和中英文个人信息。武汉病毒研究所2月16日在网站上发布声明表示黄燕玲已经于2015年硕士毕业，后一直在其他省份工作生活，未曾回过武汉，也未曾被2019新型冠状病毒感染，身体健康。可是之后网友们还是找到了她2018年在武毒所与其他学生的合影。
+
+2020年2月，由华南理工大学肖伯涛教授等中国科学家合着的[研究论文](https://img-prod.tgcom24.mediaset.it/images/2020/02/16/114720192-5eb8307f-017c-4075-a697-348628da0204.pdf)预印本提出，一种新型的蝙蝠冠状病毒是如何在大多数蝙蝠冬眠的严冬中到达中国中部一个拥有 1100 万人口的大城市，并把一个没有蝙蝠出售的市场变成了中国的病毒暴发中心？ 该论文通过对海鲜市场周围的区域进行了筛查，确定了两个进行蝙蝠冠状病毒研究的实验室，第一个是距离华南市场仅 280 米的武汉疾病预防控制中心，以收集数百个蝙蝠样本而闻名。第二个就是武汉病毒研究所，并得出结论，致命的冠状病毒可能起源于武汉的一个实验室。 这篇论文很快就在互联网上消失前被美国政府的官员注意到。
+
+（未完待续）
+
+* * *
+
+*编辑、发稿 文锦*
+
++2
