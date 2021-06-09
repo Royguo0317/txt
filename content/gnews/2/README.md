@@ -1,38 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共即将出台《反外国制裁法》这次搬起石头要砸谁的脚
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1310294/)
+## 西喜时事新闻简报—金融篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1310327/)
 
-#### 作者：约翰婶婶
+- 作者：此生灭共
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09114522/ea551a3cf1c988ed182918e41197da1a-e1623253604343.jpg)图片来源：AFP
 
-当听到中共要制定世界上第一部反制裁法时，我的饭差点喷出来，中共真是无知者无畏。
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-#### 美国为什么能够制裁别人？
+**西班牙2021年6月9日电/西喜社——**
 
-美国作为世界上唯一的超级大国，拥有全球金融支付系统和军事、科技等领域的强大实力。美国制裁不叫霸权，就如同拥有一项芯片专利，我当然有权确定谁能用谁不能用；我有权不给不合三观的人签证来到我家。这是一个主权国家的基本权利，正是这种权利在推动世界的发展.
+您若想了解全文报导内容，请点击标题链接
 
-#### 再看看伊朗、俄罗斯被制裁后的现状。
+**1.[中国外汇逆回购中神秘的850亿美元激增](https://www.zerohedge.com/markets/mysterious-85-billion-surge-chinas-fx-reverse-repo)**
 
-伊朗在制裁后，里亚尔兑美元的汇率从40000:1最高蹿到140000:1，一般民众每天只有馕、西红柿、土豆三样东西，政府通过大量补贴确保馕的价格不上涨，勉强维持百姓基本生存权。再看俄罗斯，2011年以来，美国共制裁俄罗斯90多次，2020年俄罗斯GDP仅为1.479万亿美元（2020年广东省的GDP就有1.1万亿美元），低于韩国的1.63万亿美元，如果不是中共长年给他俄爹送钱，俄罗斯比伊朗强不到那里去。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09114737/unknown-1-3.png)
 
-常理讲，美国可以制裁别人，别人当然也可以制裁美国。但这是一般意义上的理解，实践中行不通。20世纪50−80年代，美国和日本的贸易冲突，从纺织品、钢铁、汽车、半导体一直打到巨型计算机，日本从始到终没敢多说一个不字，老大说什么就是什么。
+零对冲6月7日电，中国银行在金融市场秘密地增加美元贷款，让投资者怀疑中国银行人为干预人民币汇率。多年来，中资银行很少使用外币逆回购，4月份银行的外汇逆回购从一年前的不到20亿美元飙升至870亿美元。过去一年有大量美元通过贸易和证券流入中国，大量资金流入已被中资银行吸收，为此商业银行承担了更多的货币风险。
 
-美国3月16日宣布对24名中共官员实施金融制裁，其中包括14位中国全国人大常委会副委员长。这次制裁精准有效，打到他们核心利益，这些贪官的情妇和私生子没有签证，海外赃款冻结，能不向老领导诉苦，但没有想到中共憋了半天的反制措施竟是制定一部法律来恐吓美国。
+**2.[警惕中国通胀冲击](https://www.zerohedge.com/economics/traders-alert-china-inflation-shock)**
 
-法律在中共眼里就是一张手纸，想用就用，用完就扔掉。中共的法律在没有公布前，有关内容是严格保密的，不像美国议会天天现场直播，就怕老百姓没看到。因此，我对怎么制裁美国不得而知，我猜想难道要禁止美国官员来中共国双修、不给他们移植器官、提高芯片关税、限制比亚迪汽车出口美国、不给美国留学生提供伴读……。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115012/unknown-3-3.png)
 
-反制裁法很令我期待，而且有些着急，我想看到那块石头砸到了谁的脚上。
-（本文只代表作者观点，与Gnews平台无关。）
+零对冲6月8日电，中国即将公布备受关注的通胀数据。世界各国央行注入的大部分资金正在流入中国境内，这使得北京在不放弃市场改革的情况下控制价格的努力复杂化。恒生国企指数已连续五天下跌。离岸人民币本月已下跌 0.5%。
 
-**参考媒体链接：**
-🔗[反外国制裁法草案二次审议稿提请全国人大常委会审议](https://baijiahao.baidu.com/s?id=1701952492309461905&amp;wfr=spider&amp;for=pc&amp;searchword=反制裁法&amp;ivk_sa=1023197a)
+**3.[商品价格飙升加剧通胀担忧](https://www.wsj.com/articles/commodity-price-surges-add-to-inflation-fears-11623079860)**
 
-* * *
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115246/unknown-4-3.png)
 
-***编辑整理/校对: **Ting Guo*
+华尔街日报6月7日电，大宗商品价格的上涨给全球经济复苏蒙上了一层阴影，打击了脆弱的企业和家庭，并加剧了对通胀可能变得更加持久的担忧。木材、铁矿石和铜的涨幅创纪录，玉米、大豆和小麦已跃升至[八年](https://www.wsj.com/articles/surging-grain-prices-fuel-surprise-farm-recovery-11611322634?mod=article_inline)来的[最高水平](https://www.wsj.com/articles/surging-grain-prices-fuel-surprise-farm-recovery-11611322634?mod=article_inline)，油价到了两年的高点。在此背景下，中国的生产价格指数可能攀升至 2008 年 8 月以来的最高水平。
+
+**4.[在美国没收了大部分Colonial Pipeline赎金后，比特币下跌了7%](https://www.cnbc.com/2021/06/08/bitcoin-btc-price-slides-as-us-seizes-most-of-colonial-ransom.html)**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115727/unknown-5-1.png)
+
+CNBC 6月8日电，比特币在周二再次下跌，可能与美国设法收回支付给针对Colonial Pipeline的黑客的大部分赎金后对加密货币的安全性的担忧有关。法庭文件称，联邦调查局能够访问其中一个黑客的比特币钱包的“私钥”或密码。根据Coin Metrics的数据，BTC在美国东部时间凌晨5点下跌超过7%，至 32,952 美元。较小的数字代币也暴跌，以太币下跌 7% 至 2,524 美元，XRP 下跌约 6%。
+
+**5.[美国国税局希望国会帮助收集加密货币税收信息](https://www.foxbusiness.com/markets/irs-wants-crypto-tax-fast-tracked)**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09120032/unknown-6-1.png)
+
+福克斯6月8日电，美国国税局局长查尔斯雷蒂格周二告诉立法者，税务机构需要更广泛的权力来收集有关数字货币交易的信息，以确保人们报告并支付他们的欠款。
+
+审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
+
+
+
 
 
 

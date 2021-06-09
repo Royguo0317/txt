@@ -1,31 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 羟氯喹可提高中共病毒感染者存活率近200%！
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1310238/)
+## 2021/06/09 文贵先生盖特精要-001
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1310295/)
 
-阿黎
+听写： Jennifer | 校对：樂禧禧 | Page：我是球大哥
 
-据美国新闻网（OANN） 6月8日报道，另一项研究证实羟氯喹在治疗中共病毒方面是有效的。由圣-巴拿巴（Saint Barnabas）医疗中心进行的研究发现，羟氯喹和抗生素阿奇霉素（Zithromax）的组合能有效抑制中共病毒。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09102705/%E6%B3%BD%E8%BF%9E%E7%A7%91%E5%8C%BB%E7%94%9F-HCQ%E6%9D%80%E6%AF%92%E6%BC%AB%E7%94%BB.jpg)
-研究表明，如果在使用呼吸机的严重中共病毒疾病患者中给予高剂量的治疗，可以增加患者近200%的生存机会。科学家们还报告说，较高剂量的羟氯喹使87%的被观察患者更快康复。
+[!\[\]()!\[\](https://spark.adobe.com/page/O33mYn37rEkJJ/images/3ba16cad-7259-4c63-a1cc-33daac35881e.png?asset_id=c114ec55-45a7-43c8-b753-86fbdb221af4&amp;img_etag=%224cc9dd095f7b66d65c7eb9db447d78ce%22&amp;size=1024)](https://spark.adobe.com/page/O33mYn37rEkJJ/images/3ba16cad-7259-4c63-a1cc-33daac35881e.png?asset_id=c114ec55-45a7-43c8-b753-86fbdb221af4&amp;img_etag=%224cc9dd095f7b66d65c7eb9db447d78ce%22&amp;size=1024)
 
-在此之前，包括安东尼-福奇博士在内的公共卫生专家否认羟氯喹对治疗中共病毒的有效性。生物武器专家史蒂文-哈特菲尔德博士（Steven Hatfill）将这次大流行导致的数十万美国人死亡的责任指向了这些专家。
+**6月9号：尊敬的战友们好！复旦．南京等地区爆发的一系列的抗议事件．和在中共国的国内发生一系列的残暴杀人……都是共产党奴隶抢夺和非法统治中国人民必然发生的一个轮回的结果，欧中协议失败和中国教育的变态以及即将爆发的台湾一系列的战争准备。都会加速共产党的彻底被消灭！**
 
-“这是假的，”他断言。”他们不希望疫苗有竞争。”
+[G-TV链接](https://gtv.org/getter/60c0aa59e15f7e227eeed9fb)
 
-该研究还发现，羟氯喹对临终病人特别有效，如果没有这种药物，这些病人就会死亡。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09102715/HCQ.jpg)
-**评：**
+[!\[\]()!\[\](https://spark.adobe.com/page/O33mYn37rEkJJ/images/9bd9489d-842a-4216-bb9c-fff4606033c0.png?asset_id=543614bd-49ce-4faa-8ab4-6d7d7a846e19&amp;img_etag=%22dd660780e5fcb9aa5bb1400bf5d1ff49%22&amp;size=2560)](https://spark.adobe.com/page/O33mYn37rEkJJ/images/9bd9489d-842a-4216-bb9c-fff4606033c0.png?asset_id=543614bd-49ce-4faa-8ab4-6d7d7a846e19&amp;img_etag=%22dd660780e5fcb9aa5bb1400bf5d1ff49%22&amp;size=1024)
 
-这个新的研究结果进一步证实羟氯喹对治疗中共病毒的有效性。如果坚信疫苗的人们继续拒绝接受这样的事实，那么像福奇那样的无良专家们仍然有市场，继续撒谎欺骗大众。
+• 欧洲协议对共的打击有多大，欧洲协议几乎是共产党抗衡美国最后的希望！院校和欧洲协议有啥关系吗？过去的三十年，共产党培养的人才就是美国和欧洲，欧洲协议的结束就是欧洲的对抗，欧洲对抗就是共对欧洲的威胁、打击，对官员的收买，蓝金黄。包括输送共产主义、只要签欧洲协议，共产党一定要求本地互换，欧洲协议欧洲人已经觉醒了！
 
-人类需要醒悟，需要自救，自欺欺人只能等待灭亡。醒悟需要勇气，要生存必须拿出勇气！
+• 美国官方有4600个学校，实际是7000多大学，中国官方称2100个大学，实际上1000个不到，大概970个共产党领导。
 
-[原文链接](https://www.oann.com/study-hydroxychloroquine-can-boost-中共病毒-survival-chances-by-nearly-200/)
+• 一个国家政府干好三件事就行了，第一：建立好独立的法治政治制度，一人一票。
 
-* * *
+• 第二：建立好媒体、教育体制，媒体监督政治和法治。第三：维护好国家安全、社会的安全。
 
-*编辑、发稿 文锦*
+• 复旦大学事件是剽窃者当了校长，打压人家，这符合中国国情！共产党要奴役全中国人，给全世界人民开药方？给全世界人民、欧洲指导方向？…蒙古人都不放过！不让说蒙古话。
 
-+1
+• 欧洲协议必须停！美中必须脱钩！美军军机落地台湾机场，你不是打台湾吗？怎么不打啊？
+
+• 美军航空母舰马上会靠岸台湾，美军在台湾会部署反导导弹，包括台海中间长期部署巡洋舰。
+
+• 共产党带来的是假政权、暴力的政权、抢夺政权、偷盗的政权！永远不会给中国人带来未来！川普总统说要中国赔偿10亿美元，太少了。
+
+• 中共国一定是水深火海！一定是人民会像干柴一样被新中国联邦希望熊熊燃烧，共产党一定会熊熊烈火燃烧而死！天安门英雄的血不会白流，中国人民不会再当猪狗！
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/O33mYn37rEkJJ/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/O33mYn37rEkJJ/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+
+
+0
