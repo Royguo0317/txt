@@ -1,26 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华为的受阻与中国科技企业的困境
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1310683/)
+## 阿斯利康和强生疫苗不可推荐给服用避孕药的人
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1310910/)
 
-信息来源：Counterpoint
-发布时间：2021年6月06日 
-翻译 /整理/ 简评： Eternallight
+消息来源：今日意大利（today.it）
+发布时间：2021年06月08日
+翻译整理：斩草要除根
 
-2021年对于华为和许多中国科技企业而言是艰难的一年. 前者因为美国制裁导致原材料断供等危机. 数据显示, 在2020年年底, 华为手机的市场份额就已经跌至全球第五,占比8%. 随后仅仅不到半年时间, 市场份额急速跌至仅4%(有统计说是3.3%),下滑到第七,以下为统计数据(出自Counterpoint)
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09155740/image-145.png)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09162322/mat-napo-pIJ34ZrZEEw-unsplash-scaled.jpg)
 
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09155423/Counterpoint-Research-Global-Smartphone-Shipments-Market-Share-2018-Q1-2021-Q1.png)
+在因为注射抗新冠病毒疫苗后发生的最新一例脑静脉血栓后，意大利热那亚的圣马蒂诺医院传染病诊所主任马泰奥·巴塞蒂 (Matteo Bassetti) 认为阿斯利康 (AstraZeneca) 和强生 (Johnson & Johnson) 疫苗不可推荐给那些服用过避孕药的人。
 
+巴塞蒂解释说—：“我们已经看到，在服用这些药物的年轻人中，记录了更高频率的罕见不良事件，如血栓形成：每百万抗新冠疫苗中有 6-7 例。在利古里亚，由于这位 18 岁的女孩患有血栓形成的情况下，许多人取消了阿斯利康疫苗的预订。
 
-智能手机市场份额下降, 海外5G扩张受阻,芯片供应被掐脖子. 中国科技行业最高的”灯塔”似乎渐渐暗淡无光. 这是当下中国经济变迁的一个索引. 当然灾难还远远不止于此. 因为其它科技企业,在没有官方背景和资金,资源等支持的前提下,可能面临比华为更加艰难的处境. 据消息人士透露, 由于华为被制裁,导致部分原材料供应被迫由大陆芯片厂家承担. 在工艺不完善, 原材料供应受阻,缺乏技术积累等情况下导致良率降低,严重挤占产能, 进而导致了严重的芯片供应紧张.  而随着美国将大陆最先进的晶圆代工厂中芯国际(SMIC)列入出口管制和投资黑名单. 势必加剧这一紧张局势. 科技行业将面临前所未有的困难局面.
+塞蒂评论道：“很明显，我们必须知道可能会有副作用，他们必须知道如果他们服用药物，必须告诉接种疫苗的医生，例如女孩必须说他们是否服用避孕药”。
+
+在热那亚的圣马蒂诺医院接受阿斯利康疫苗接种后患有脑静脉血栓的 18 岁女孩现在仍处于“严重状态”。尽管进行了两次清除脑血栓和降低出血引起的颅压的手术，但是术后效果不佳。但目前还不确定影响她的脑静脉血栓形成的原因是血清疫苗。
+
+另一名来自卢卡市的 42岁妇女中风后现在在比萨大学附属医院接受重症监护：她也在 5 月 26 日自愿接种了阿斯利康疫苗。两名女性均未满60岁。目前，意大利药品管理局 (Aifa) 和卫生部建议仅对 60 岁以上的人使用 血清疫苗。
+
+简评：已经被很多国家停止使用的阿斯利康疫苗却在意大利继续被允许使用，以无辜牺牲的生命作为代价，但愿能给这个政府和社会敲响警钟。
 
 免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 发表： Shuizhuyu
 
-🔗[www.counterpointresearch.com/global-smartphone-share/](https://www.counterpointresearch.com/global-smartphone-share/)
+🔗[attualita/vaccino-astrazeneca-pillola](https://www.today.it/attualita/vaccino-astrazeneca-pillola.html)
 
 0

@@ -1,25 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在中共国，白领超越蓝领
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1310936/)
+## 拜登:G7将向中共国展示与欧洲的统一战线
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1311033/)
 
-消息来源：意大利晚报（corriere.it）
-发布时间：2021年06月08日
+消息来源：意大利安莎通讯社（ANSA）
+发布时间：2021年06月09日
 翻译整理：斩草要除根
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09163320/avel-chuklanov-DUmFLtMeAbQ-unsplash-scaled.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09171349/jon-sailer-8JYxCF00X3Y-unsplash-scaled.jpg)
 
 
-中共宣称自己是“工人阶级的先锋队”，在它的宪法第一条规定：“中华人民共和国是工人阶级领导、以工农联盟为基础的人民民主专政的社会主义国家”。但是在人口普查后表明，中产阶级（在毛泽东时代是被鄙视的资产阶级）现在的数量超过了工人阶级。
+6 月 9 日 – G7 将向中共国展示统一战线。这是美国总统乔拜登所说的，他保证他将向弗拉基米尔普京和中共国明确表示：美国和欧洲是团结的。
 
-还有，这是一个即使受过更多教育却被性别歧视的政党：女性同志仍然处于从属地位，只有 2500 万，占总数的 27%。中央政治局每25名委员中，只有一个女人，如果你还记得那句毛的老话：“妇女顶半边天”。
-
-简评：以假治国的中共，从来都是说一套做一套。从毛开始，中共的在提法和做法上都是严重的逻辑混乱、言行不一。官方在意识形态上的这种分裂也反映了中共政治的混沌，在习近平上台以后尤显突出。
+简评：七大工业国集团的这一民主国家俱乐部希望向世界证明，美欧已经团结一致，会共同捍卫民主价值观，赢得与中共国的竞争。分析认为，无论是结束世界各地的中共病毒大流行，还是应对不断加剧的气候危机，更是为了对抗中共国日益加剧的侵略性，都需要民主国家更加密切地协作。同时也表明了美国领导力的回归。
 
 免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 发表： Shuizhuyu
 
-🔗[biden-draghi-il-primo-vertice-bilaterale-](https://www.corriere.it/america-cina/2021/06/08/biden-draghi-il-primo-vertice-bilaterale-g7-f10c3ce8-c827-11eb-a854-b5489e4fa044.shtml)
+🔗[biden-g7-mostrera-a-cina-fronte-compatto-usa-e-ue-uniti\_](https://www.ansa.it/sito/notizie/topnews/2021/06/09/biden-g7-mostrera-a-cina-fronte-compatto-usa-e-ue-uniti_0d29f91f-ce65-4c90-a690-e6989091f456.html)
 
 0

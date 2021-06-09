@@ -1,63 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】蓬佩奥先生关于 香港六四纪念的演讲——原文及翻译
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1310296/)
+## 【路德时评摘要】2021.6.8 早间：美国居然追回了支付给黑客的比特币
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1310580/)
 
-整理/翻译：纽约香草山香港部 MAYA
+视频剪辑 : 洛杉矶天使农场–小腾腾说
+中听校：洛杉矶天使农场–烟波浩淼
+英翻译：洛杉矶天使农场–Arthur
+英校对：洛杉矶天使农场–烟波浩淼
+字幕+视频制作：洛杉矶天使农场– 压箱底儿の希望
 
+**路德：**
 
+很多用比特币走私的，洗钱的，已经知道要结束了。我告诉大家啊，这是结束了,为什么？因为这个新闻其实就告诉你，美国FBI可以,第一是破解。第二是司法上已经认可这个破解了。这才是最关键的,就是你这个破解是美国司法上已经认可了,因为你司法上不认可的话,你这个破解是非法的，知道吧，美国已经有相关的法律对这个破解已经是立法了，这才是最最重要的。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+意味着什么？所有往回追溯，利用比特币暗网去做恶的所有的分分钟全部露馅了。很多人觉得你看我用比特币收钱，洗钱太牛了，我告诉你，这一下全结束了。很多人说比特币会不会归零，不可能归零。为什么？因为你只要不用这个去做恶，在法律上比特币是不会有问题的，是不是。毕竟美国不可能随意去破解这个东西，不会随意的，是不是。
 
-
-字幕制作：纽约香草山香港部 彩虹桥
-演讲原文：
-
-32 years ago, a tragedy occurred in Tiananmen Square, a massacre perpetrated by the Chinese Communist Party against its own people shot the world’s consciences. And it highlighted the contrast between the freedom-loving Chinese people and the tyranny of Beijing.
-
-For the next 30 years, the only place, the only place of all of China’s sovereign domain, where free people can commemorate the martyrs of Tiananmen, was Hong Kong. Every year, on the June 4th anniversary, the people of Hong Kong out of their lives lost in Tiananmen, You’ve cherished the freedoms that are the birthright of every human being, and which were brutally denied to your countrymen. You were able to mark this anniversary because of the high degree of autonomy that Hong Kong enjoyed. The city was the best city of liberty and a light to us all.
-
-Yet now, now the same regime that committed the massacre in Tiananmen Square has broken its promises to Hong Kong: the fundamental freedoms and autonomy that Beijing was promised to guarantee to you, it took away from you. For the first time, commemorating the Tiananmen massacre is illegal here. It’s punishable by a new security law — the national security law. This is a dark reminder that the regime in Beijing still refuses to respect the rights of its own people. And it’s also a reminder of why we are all gathering here tonight. We do so virtually, but we do so defiantly and proudly, and we continue a glorious tradition of commemorating the heroes of Tiananmen.
-
-I’m especially honored to be here now. As America’s 70th Secretary of State, when Hong Kong’s freedom was being taken away, I was aware of the courageous work of Hongkongers. You fight, you fight to preserve your dignity and your autonomy. You fight for the freedoms owed every man, woman, and child made in the image of God. The Communist Party may imprison heroes like freedom-loving Jimmy Lai, Martin Lee, and others. But you, you show that the flame of freedom in Hong Kong remains a beacon.
-
-May God bless Hong Kong.
-
-演讲译文：
-
-32年前，天安门广场发生了一场悲剧：中国共产党对中国人民进行了泯灭人性的大屠杀，它突显出热爱自由的中国人和北京（中共）暴政之间的鲜明对比。
-
-在接下来的30年里，香港是唯一一个——唯一一个位于中（共）国主权领土上——人们可以自由地纪念天安门烈士的地方。每年在六四周年之际，香港人民都会悼念天安门事件中的死难者。你们珍惜自由，但你们的同胞们却被残忍地剥夺了这与生俱来的权利。你们之所以能够纪念这个日子，是因为香港享有高度的自治。这座城市乃是我们所有人的自由和光明之源。
-
-然而现在，在天安门广场犯下大屠杀的那个政权已经违背了它对香港的承诺。北京（中共）曾向你们承诺，会保证香港基本的自由与自治，现在这些却被它夺走了。在这里，哀悼天安门大屠杀第一次被视为非法行为，并且会在新的国安法下受到惩罚。这提醒了我们，北京（中共）政权仍然拒绝尊重自己人民的权利；也提醒了我们，为什么今晚要相聚在这里。我们通过视频，自豪而大胆地继续着我们纪念天安门英雄们的这一光荣传统。
-
-我非常荣幸能够来到这里。作为美国第70任国务卿，当香港的自由被剥夺时，我了解香港人的奋勇抗争。你们在抗争！你们是为维护自己的尊严和自治权而战；你们为每一个男人，女人和孩子应得的自由而战，这些自由都是上天所赋予的。共产党监禁了像黎智英、李柱铭等热爱自由的英雄们，但你们向我们展示了，香港仍是一座自由的灯塔。
-
-愿上帝保佑香港！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115247/M6.jpg)
-
-视频字幕制作：纽约香草山香港部 彩虹桥
-
-校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
-
-
+这就是数字区块链的立法，立的什么法？立的就是这个，你有这个能力，就像现在美国有原子弹，你能不能随意地去扔原子弹？你不能，但是有原子弹我就不活了，反正美国有原子弹地球就要灭亡了，不是这个概念。就是美国有这个水平，随意解你的秘，但是美国不会轻易用。有立法，明白吗？就是不会轻易去破解你的，所有比特币是有价值的。但是它会跌，因为很多在暗网用比特币来洗钱的，他会抛掉，他不会拥有了，这个我个人观点啊，仅供参考。
 
 0

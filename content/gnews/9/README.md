@@ -1,54 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国男子染上首例H10N3禽流感病例
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1310985/)
+## 挖掘的爆炸性视频显示：彼得·达扎克描述中共国同事正在开发“杀手”冠状病毒
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1311024/)
 
-新闻来源：《国家脉动》| 作者：CATHERINE SALGADO | 发布时间：2021年6月5日
+翻译：烟波浩淼 |校对：黎明的光芒 |审核：黎明的光芒
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09172558/picture-1-6.png) 图片来自视频截图
+生态健康联盟主席彼得·达扎克（Peter Daszak）与武汉病毒学研究所合作进行了一项由安东尼·福奇（Anthony Fauci）博士的国家过敏与传染病研究所（NIAID）资助的研究。似乎在《国家脉搏》挖掘的一段视频中夸耀他的 “中共国同事” 对类似SARS的 “杀手” 冠状病毒的操纵。
 
-翻译/简评：原乡人 | 校对：小小妹 | 审核：clau | Page：我是球大哥
+达扎克是在2016年一个讨论“[新出现的传染病和下一次大流行](https://www.c-span.org/video/?404875-1/pandemics)”的论坛上承认这一点的，这似乎与福奇一再[否认](https://www.washingtonpost.com/politics/2021/05/18/fact-checking-senator-paul-dr-fauci-flap-over-wuhan-lab-funding/)资助了武汉病毒学研究所功能增强研究的说法相矛盾。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/HCe8913or9pJB/images/8df832f0-329e-4834-adc9-3fd81b8389ce.png?asset_id=db12d386-c28d-4447-8d02-c947a5d9ee70&amp;img_etag=%22b498cb17398fee452cdc699d8230e6ff%22&amp;size=1024)](https://spark.adobe.com/page/HCe8913or9pJB/images/8df832f0-329e-4834-adc9-3fd81b8389ce.png?asset_id=db12d386-c28d-4447-8d02-c947a5d9ee70&amp;img_etag=%22b498cb17398fee452cdc699d8230e6ff%22&amp;size=1024)
+达扎克在描述他的组织是如何对致命病毒进行测序的同时，还描述了他的“中共国同事”在病毒中“插入”刺突蛋白，以观察它们是否能“与人类细胞相结合”的过程：
 
-中共国国家卫健委6月1日通报: “江苏省发现一例人感染H10N3禽流感病例……专家评估认为，病毒全基因分析显示，H10N3病毒为禽源性，未具备有效的感染人的能力。全球既往未见H10N3人间病例报道，禽间H10N3病毒对禽呈低致病性。此次疫情为一次偶发的禽到人的跨种属传播，发生大规模传播流行风险极低。”
+*然后当你得到一个病毒序列，它看起来像是一个已知的有害病原体的亲戚，就像我们对SARS所做的那样。我们在蝙蝠身上发现了一大堆其他的冠状病毒，其中一些看起来很像SARS。所以我们对刺突蛋白（附着在细胞上的蛋白质）进行了测序，然后我们…嗯，我没有做这项工作，但我在中共国的同事做了这项工作。你制造出模仿的微粒，你插入这些病毒的突刺蛋白，看它们是否与人类细胞结合。每一步你都离这种病毒越来越近，它可能真的会在人类中致病。*
 
-《国家脉动》报道此新闻时首先提到的，是中共国政府在2020年初的新冠病毒大流行期间一再撒谎和隐藏的数据。是的，世界是有记忆的，2020年发生武汉肺炎时，社交媒体上疯传的所谓“武汉人吃蝙蝠”的图片，李文亮医生被禁声被离世的图片，官方发出的“疫情可防可控”等等，中共的一切谎言和劣迹历历在目。一年半过去了，不仅疫情依然在全球肆虐，开发的疫苗跟不上病毒变异，更有甚者。中共发起超限生物战的迹象和证据一一浮出水面，拜登政府5月26日下令情报界90天内找到病毒起源。
+他补充说：“你最终会得到一小部分真正看起来像杀手的病毒”。
 
-备受愚弄的人们有理由对中共发布的任何有关新毒株、新疫情的声明打上一个大大的问号，而且还要怀疑为什么在这个时间点发出如此的通报，是否又在全球谋划一场混淆视听的“虚假信息战”，掩盖其发起又一场细菌病毒战的企图？
+在发表上述评论之前，[越来越多](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)的证据表明，福奇的过敏与传染病研究所与武汉病毒学研究所有着深厚的财务和人事关系，达扎克的生态健康联盟是向中共实验室提供资金的主要代理人之一。
 
-掉进了“塔西佗陷阱”的中共早就上了全球的“失信黑名单”，疫情发生一年来中共在世界舞台上的一系列流氓恶棍表演，提醒各国对中共任何言行必须质疑，时刻保持高度警惕，以防其再一次把世界推向悬崖。
+在370万美元的国家过敏与传染病研究所资金的资助下进行的十多篇研究论文中，武汉实验室新兴传染病中心主任石正丽与达扎克是共同作者。石也在她的简历中[包括](https://thenationalpulse.com/breaking/wuhan-researcher-lists-fauci-niaid-grant-on-resume/)了这些由福奇支持的资助。
 
-**原文翻译：**
+武汉实验室还将美国国家卫生研究院列为“合作伙伴”之一，并在2021年3月秘密[删除](https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/)了这一说法。
 
-## **中共国男子成为首个感染H10N3禽流感的人类病例**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/HCe8913or9pJB/images/6966e00a-534a-45c2-be47-5e401e04829f.jpg?asset_id=23681907-284b-449a-baf8-745c5b1b08ff&amp;img_etag=%224fa16253a7b348db995e3a95c6582ac7%22&amp;size=1024)](https://spark.adobe.com/page/HCe8913or9pJB/images/6966e00a-534a-45c2-be47-5e401e04829f.jpg?asset_id=23681907-284b-449a-baf8-745c5b1b08ff&amp;img_etag=%224fa16253a7b348db995e3a95c6582ac7%22&amp;size=1024)
-
-**中共国的一名男子成为可能是有史以来第一例人类感染H10N3型禽流感病毒的病例，但是中国共产党声称该病毒大规模传播给人类的风险很低。**
-
-中共国政府在2020年初的新冠病毒，即“武汉病毒”大流行期间一再撒谎并隐藏数据。
-
-现今，一名来自江苏省的41岁男子因感染H10N3毒株被送入医院。此后，中共国国家卫生健康委员会报告说，他的情况稳定。
-
-据中共国国家卫生健康委员会称，全世界还没有其他人类感染H10N3型禽流感的病例报告。
-
-此委员会的声明称：“这种感染是一种偶发的跨物种传播，大规模传播的风险性很低。”据美联社新闻报道，在新冠病毒大流行之后，人们比以往任何时候都更加关注新出现的疾病，所以才有此声明：
-
-“但与冠状病毒不同的是，自从20世纪90年代末一种名为H5N1的菌株在香港拥挤的活禽市场出现后，就有了观察人类禽流感病例的全球流感监测系统。”
-
-另一种禽流感菌株H7N9，在中共国于2013年至2017年期间感染了1500多人，此前这些人与受感染的鸡有密切接触。
-
-据美联社报道，由于这段历史，当局对发现人类有时感染禽流感毒株的案例“并不感到惊讶”，并且毒株有可能发生的任何人传人的迹象都在密切监测中。
-
-[原文链接](https://thenationalpulse.com/breaking/chinese-man-contracts-first-reported-human-case-of-h10n3-bird-flu/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+原文作者：娜塔莉·温特斯（Natalie Winters）
+发布时间：2021 年 6 月 8 日
+原文链接：[https://thenationalpulse.com/exclusive/daszak-reveals-chinese-colleagues-manipulating-coronaviruses/](https://thenationalpulse.com/exclusive/daszak-reveals-chinese-colleagues-manipulating-coronaviruses/)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/HCe8913or9pJB/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/HCe8913or9pJB/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

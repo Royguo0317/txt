@@ -1,31 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 阿斯利康和强生疫苗不可推荐给服用避孕药的人
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1310910/)
+## 在中共国，白领超越蓝领
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1310936/)
 
-消息来源：今日意大利（today.it）
+消息来源：意大利晚报（corriere.it）
 发布时间：2021年06月08日
 翻译整理：斩草要除根
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09162322/mat-napo-pIJ34ZrZEEw-unsplash-scaled.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09163320/avel-chuklanov-DUmFLtMeAbQ-unsplash-scaled.jpg)
 
 
-在因为注射抗新冠病毒疫苗后发生的最新一例脑静脉血栓后，意大利热那亚的圣马蒂诺医院传染病诊所主任马泰奥·巴塞蒂 (Matteo Bassetti) 认为阿斯利康 (AstraZeneca) 和强生 (Johnson & Johnson) 疫苗不可推荐给那些服用过避孕药的人。
+中共宣称自己是“工人阶级的先锋队”，在它的宪法第一条规定：“中华人民共和国是工人阶级领导、以工农联盟为基础的人民民主专政的社会主义国家”。但是在人口普查后表明，中产阶级（在毛泽东时代是被鄙视的资产阶级）现在的数量超过了工人阶级。
 
-巴塞蒂解释说—：“我们已经看到，在服用这些药物的年轻人中，记录了更高频率的罕见不良事件，如血栓形成：每百万抗新冠疫苗中有 6-7 例。在利古里亚，由于这位 18 岁的女孩患有血栓形成的情况下，许多人取消了阿斯利康疫苗的预订。
+还有，这是一个即使受过更多教育却被性别歧视的政党：女性同志仍然处于从属地位，只有 2500 万，占总数的 27%。中央政治局每25名委员中，只有一个女人，如果你还记得那句毛的老话：“妇女顶半边天”。
 
-塞蒂评论道：“很明显，我们必须知道可能会有副作用，他们必须知道如果他们服用药物，必须告诉接种疫苗的医生，例如女孩必须说他们是否服用避孕药”。
-
-在热那亚的圣马蒂诺医院接受阿斯利康疫苗接种后患有脑静脉血栓的 18 岁女孩现在仍处于“严重状态”。尽管进行了两次清除脑血栓和降低出血引起的颅压的手术，但是术后效果不佳。但目前还不确定影响她的脑静脉血栓形成的原因是血清疫苗。
-
-另一名来自卢卡市的 42岁妇女中风后现在在比萨大学附属医院接受重症监护：她也在 5 月 26 日自愿接种了阿斯利康疫苗。两名女性均未满60岁。目前，意大利药品管理局 (Aifa) 和卫生部建议仅对 60 岁以上的人使用 血清疫苗。
-
-简评：已经被很多国家停止使用的阿斯利康疫苗却在意大利继续被允许使用，以无辜牺牲的生命作为代价，但愿能给这个政府和社会敲响警钟。
+简评：以假治国的中共，从来都是说一套做一套。从毛开始，中共的在提法和做法上都是严重的逻辑混乱、言行不一。官方在意识形态上的这种分裂也反映了中共政治的混沌，在习近平上台以后尤显突出。
 
 免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 发表： Shuizhuyu
 
-🔗[attualita/vaccino-astrazeneca-pillola](https://www.today.it/attualita/vaccino-astrazeneca-pillola.html)
+🔗[biden-draghi-il-primo-vertice-bilaterale-](https://www.corriere.it/america-cina/2021/06/08/biden-draghi-il-primo-vertice-bilaterale-g7-f10c3ce8-c827-11eb-a854-b5489e4fa044.shtml)
 
 0

@@ -1,80 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】萨尔瓦多成全球首个将比特币列为法定货币的国家
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1311061/)
+## 苹果手机新的“私人中继”功能将无法在中国使用
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1311107/)
 
-**作者：纽约香草山农场经济小组 乱谈秦**
+翻译：康州盘古农场 – 柯镇恶
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+校对：康州盘古农场 – Mike Li
 
+编辑：康州盘古农场 – 明子
 
+发布：康州盘古农场-恩典
+![此图像的alt属性为空；文件名为20210609__unknown-3.png]()![此图像的alt属性为空；文件名为20210609__unknown-3.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09174855/20210609__unknown-3.png)
+**据《路透社》作者：Stephen Nellis，Paresh Dave  2021年6月8日报道：**
 
+苹果公司(Apple)周一表示，出于监管原因，中国用户将无法使用新的“私人中继”功能，该功能旨在防止互联网服务提供商和广告商跟踪用户的网络浏览行为。
 
+该功能是苹果公司周一在其年度软件开发者大会上宣布的多项隐私保护措施之一，这是该公司多年来努力减少广告商和其他第三方对其用户的跟踪的最新举措。
 
-2021年6月9日，萨尔瓦多（El Salvador）国会通过《比特币法》，成为全世界第一个将比特币列为法定货币的国家。
+苹果在中国取消该功能的决定，是该公司在一个占其营收近 15% 的国家就隐私方面做出的一系列妥协中的最新一次。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09175826/147-1.jpg)2021年6月8日，萨尔瓦多Chiltiupan的El Zonte海滩一家小餐馆外出现了比特币横幅。来源：REUTERS/Jose Cabezas/File Photo
+2018 年，苹果移走了用于锁定中国用户 iCloud 数据的数字密钥，从而允许当局通过国内法院来获取用户信息。
 
-萨尔瓦多是位于中美洲北部的沿海国家，也是中美洲人口最密集的国家。它毗邻太平洋，国土面积20720平方公里，下设14个省，2019年总人口670.5万。萨尔瓦多国内经济以农业为主，主要盛产咖啡豆和棉花，工业基础薄弱，是世界上“中低等收入国家” 之一，2019年GDP为267.5亿美元。
+在中国执政的共产党维持着一个庞大的监控系统，以密切关注公民如何使用该国已经受到严格控制的互联网。在习近平主席的领导下，中共国的异议空间缩小了，审查制度扩大了。
 
-萨尔瓦多严重依赖海外汇回的钱。世界银行数据显示，2019年汇往该国的海外资金有近60亿美元，约占其GDP的20%，是世界上比例最高的之一。目前萨尔瓦多主要使用现金交易，大约70%的国民无法获得传统的金融服务。
+**苹果手机的**“**私人中继**”**功能的原理是，首先将网络流量发送到苹果公司维护的服务器，在那里它被剥离了一段称为 IP 地址的信息。然后，从那里，苹果公司将流量发送到由第三方运营商维护的第二台服务器，该服务器为用户分配一个临时 IP 地址并将流量继续发送到其目标网站。**
 
-该国总统纳伊布·布克莱（Nayib Bukele）向国会提交文件，提议让比特币成为该国法定货币。提案称：“该法律的目的是将比特币作为不受限制的法定货币进行监管，让比特币具有自由权力，在任何交易中都不受限制，并且具有公共或私人、自然人或法人所拥有的任何所有权。”
+苹果公司表示，在中继系统的第二跳中使用外部服务商是有意的，这是为了防止苹果公司知道用户的身份和用户正在访问的网站。
 
-6月9日布克莱通过Twitter宣布，《比特币法》已经获得该国国会绝对多数票通过，在84名参加投票的议员中，有62位投了赞成票。“比特币的历史性时刻！”他写道。
+苹果公司表示，“私人中继”服务也不会在白俄罗斯、哥伦比亚、埃及、哈萨克斯坦、沙特阿拉伯、南非、土库曼斯坦、乌干达和菲律宾提供。
 
+苹果尚未透露将在系统中使用哪些外部合作伙伴，但表示计划在未来公开它们。该功能可能要到今年晚些时候才会向公众开放。
 
+IP 地址可用来以多种方式跟踪用户，包括作为“指纹”的关键要素，这是一种广告商将不同的数据串在一起以推断用户身份的做法。苹果公司和谷歌公司都禁止这种做法。
 
-> The [#BitcoinLaw](https://twitter.com/hashtag/BitcoinLaw?src=hash&amp;ref_src=twsrc%5Etfw) has been approved by a supermajority in the Salvadoran Congress.
-> 
-> 62 out of 84 votes!
-> 
-> History! [#Btc](https://twitter.com/hashtag/Btc?src=hash&amp;ref_src=twsrc%5Etfw)🇸🇻
-> — Nayib Bukele 🇸🇻 (@nayibbukele) [June 9, 2021](https://twitter.com/nayibbukele/status/1402507224916836352?ref_src=twsrc%5Etfw)
+数字营销公司 Adswerve 的创新主管查尔斯·法里纳 (Charles Farina) 告诉路透社，结合苹果之前的措施，“私人中继”功能“将有效地使 IP 地址无法用作指纹识别机制”。
 
+他说，它还可以防止广告商使用 IP 地址来确定一个人的位置。
 
+【评论】：看完这个新闻，小柯眉头一皱，发现事情并不简单。
 
-萨尔瓦多现行法定货币是美元。该法案公示90天后，比特币将正式成为该国法定货币，比特币与美元的汇率将由市场自由决定。法案的通过，意味着萨尔瓦多的商品价格将可以用比特币标示，税款将可以用比特币支付，交易比特币获益也将在资本利得税征收范围内。
+我们知道，所谓的“翻墙”，其原理就是：设置一个中间代理节点，然后用户端先将流量发送到代理节点，再由代理节点将流量转发到目标网站。
 
-该法案称，加密货币是提升金融普惠性的一种手段，该国还将推动必要的培训和机制，以便人们能够进行比特币交易。
+这样看来，苹果手机最新的“私人中继”服务，不就是一个官方的翻墙服务吗？
 
-布克莱上周就曾经宣布，与数字钱包公司Strike展开合作，使用比特币技术建设该国的现代化金融基础设施。此外，萨尔瓦多将运营一个信托基金，该基金将持有价值约1.5亿美元的比特币，以抵消比特币市场的波动，确保商家不必承担风险。
+由于目前没有足够的信息，无法作出明确的判断。但是如果这个“私人中继”功能确实如新闻中所描述，那这确实就是一个翻墙服务。虽然说该功能在中共国不可用，但是有心人总有办法获取到非中共国版本的苹果手机。
 
-布克勒表示，萨尔瓦多将授予发布3枚比特币(约11万美元)的移民永久居住权。他还表示，萨尔瓦多政府将为公民推出一个比特币钱包，但公民可以自主选择使用与否。
+目前要实现手机翻墙，对大多数人来说还是有一定技术难度的。但是如果使用带有这个“私人中继”功能的苹果手机，那么手机一开机，啥都不用干，直接就自带翻墙功能，这是啥概念啊！
 
-比特币成为萨尔瓦多法定货币，加密货币的支持者欢呼此举使这种新兴资产合法化，同时由于比特币为洗钱和其他非法用途提供了便利，此举对比特币监管、税收或在其他国家的影响仍有待观察。
+苹果公司对中共的妥协是众所周知的，所以，虽然我们不指望苹果公司来推倒防火墙，但是我有一种感觉，一种直觉，这是一个征兆，感觉距离防火墙的倒塌真的不远了。
 
-据Coindesk网站数据，截至当前，比特币交易价格约为36500美元，较萨尔瓦多通过《比特币法》消息公布时已上涨约9%。
+因为，苹果公司官方所说的设计这个功能是为了保护用户隐私，我认为这只是一种表面的说法。也许，只是也许哈，也许是有别的服务商要提供类似服务，苹果公司感受到了竞争压力，所以出了这个功能。只是一种猜想，希望能猜对吧。
 
-(文章仅代表作者本人观点)
+原文链接：[https://www.reuters.com/world/china/apples-new-private-relay-feature-will-not-be-available-china-2021-06-07/](https://www.reuters.com/world/china/apples-new-private-relay-feature-will-not-be-available-china-2021-06-07/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-参考阅读：
-
-[In a world first, El Salvador makes bitcoin legal tender](https://www.reuters.com/article/el-salvador-bitcoin/update-4-in-a-world-first-el-salvador-makes-bitcoin-legal-tender-idUSL2N2NR0CY)
-
-[萨尔瓦多通过《比特币法》：成为首个将比特币作为法定货币的国家](http://finance.eastmoney.com/a/202106091955414655.html)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
-
-编辑/校对/发稿：小鹿
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
-
-
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

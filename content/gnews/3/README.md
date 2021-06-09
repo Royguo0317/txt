@@ -1,47 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福克斯称中共的“大规模掩盖”仍在进行
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1311054/)
+## 中共病毒疫苗的利润铸就了9个新的制药业亿万富翁
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1311119/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+阿黎
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09174844/C-3.jpg)俄罗斯莫斯科喀秋莎农场 原创
-《福克斯新闻》发表文章，“世卫组织咨询委员会成员：中共对中共病毒‘大规模掩盖’仍在发生”，副标题指出，杰米·梅茨尔（Jamie Metzl）说，中共设置的障碍越多，看起来就越可疑。
+加拿大独立国会议员兰迪-西里尔今天发推，揭示中共病毒疫苗的利润铸就了9个新的制药业亿万富翁。他在推文中说，是什么推动了（中共病毒）大流行的发生？利润和收益是强大的激励因素，一个由虚无主义者组成的社会很容易成为制造恐惧的受益者的猎物。
 
-全文如下：
 
-世界卫生组织的一位顾问委员会成员星期一（6月7日）告诉《福克斯新闻》，随着武汉实验室泄漏理论获得可信度，中共国对中共病毒的“大规模掩盖”至今仍在发生。
 
-杰米·梅茨尔在接受《美国新闻室》（America’s Newsroom）采访时说：“中共一直在进行大规模的掩盖活动，包括销毁样本、隐藏记录、对中共国科学家下达普遍禁言令，以及监禁问最基本问题的中共国公民记者。”
+> Covid vaccine profits mint 9 new pharma billionaires – CNN. What drives a pandemic? Profits and ill-gotten gains are powerful incentives and a society of nihilists are easy prey for the fear mongering beneficiaries. [#onpoli](https://twitter.com/hashtag/onpoli?src=hash&amp;ref_src=twsrc%5Etfw) [#cdnpoli](https://twitter.com/hashtag/cdnpoli?src=hash&amp;ref_src=twsrc%5Etfw) [#wearelivingalie](https://twitter.com/hashtag/wearelivingalie?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/SeYltXTbtg](https://t.co/SeYltXTbtg)
+> — Randy Hillier (@randyhillier) [June 9, 2021](https://twitter.com/randyhillier/status/1402622713290690564?ref_src=twsrc%5Etfw)
 
-据报道，中共正计划在未来5年内建设数十个P3实验室和一个P4实验室，调查人员正在重新审视中共病毒可能从武汉的一个实验室泄漏出去的可能性。
 
-梅茨尔说：“中共设置的障碍越多，它看起来就越可疑。我们不能让中共否决我们调查一个世纪以来世界是否出现了最严重的疫情，然后尽一切努力确保每个人的安全。”
 
-梅茨尔强调，必须尽一切可能对疫情进行“全面调查”，包括美国与盟国合作，如果中共不合作，就应该有一个“与之对应”的程序。
+据伦敦CNN Business5月21日报道，生产中共病毒疫苗的公司股价近日飙升，造就了至少9位新的亿万富翁。
 
-梅茨尔解释说：“飞机失事后，我们尽一切可能了解发生了什么，这是有原因的。如果我们不吸取这些教训，空中还有其他飞机，据我们所知，下一次疫情就在眼前，如果我们不理解和解决我们最大的问题，我们将面临不可预测的风险，我们必须弄清这一点，这意味着要问那些棘手的问题，并跟踪数据的走向。”
+在新的亿万富翁名单中名列前茅的是莫得纳（Moderna）的首席执行官史蒂夫-班赛尔（Stéphane Bancel）和BioNTech（BNTX）的首席执行官乌格-撒因（Ugur Sahin），中国康希诺生物制品公司的高管和莫得纳公司的早期投资者也成为了纸面上的亿万富翁。
 
-梅茨尔称世卫组织总干事谭德塞为“英雄”，因为他处理了这项调查，这引起了主播比尔·海默（Bill Hemmer）的反击。
+自2020年2月以来，莫得纳的股价上涨了700%以上，而BioNTech飙升了600%。康希诺公司的股价在同一时期内上涨了约440%。
 
-梅茨尔说：“在疫情的最初几天，有充分的理由批评世卫组织。但在我们现在所处的这一阶段的晚些时候，谭德塞基本上冒着整个职业生涯的风险来捍卫世卫组织的完整性，基本上拒绝接受这份联合小组报告的合法性，并说我们需要对所有起源假设进行全面调查，包括实验室事件。”
+关于中共病毒疫苗对接种者造成的伤害和死亡已有无数报道，主要的伤害包括在体内形成血栓，造成心脏疾病、脑栓塞、肺栓塞，严重者可造成死亡；削弱人体免疫力，包括破坏癌症免疫蛋白，大大增加患癌症几率；孕妇流产、面瘫、失明、耳聋、瘫痪、癫痫、神经系统出血、皮疹和晕厥等，澳大利亚有报道一接种者患上艾滋病。
 
-“但谭德塞一开始不是这么说的。” 海默断言，“他花了一段时间才做到了这一点。”
+目前，第一位疫苗接种者已死亡。我们是否可以预期半年或一年后更多的接种者遭遇不幸？会否出现癌症大爆发？诺贝尔获奖者鲁克-蒙塔格涅尔（Luc Montagnier)推测的两年内接种疫苗的人将无法生还是危言耸听吗？
 
-“你说得很对。” 梅茨尔回答说，但我们也需要认识到，“世卫组织无权拥有自己的监测能力，实际上，他们想派应急人员前往武汉，但在疫情初期被中共封锁了三个多星期。”
+* * *
 
-《华尔街日报》（Wall Street Journal）一篇轰动一时的报道显示，武汉一家病毒实验室的三名研究人员在疫情前的2019年晚些时候出现了中共病毒的症状，这一实验室泄漏理论在过去几周在美国和国外赢得了可信度，但是它仍然没有被证实，关于病毒是如何首先感染人类的相互竞争的假说也是如此。
+*编辑、发稿 文锦*
 
-（全文完）
-
-梅茨尔对中共的邪恶太了解了，“销毁样本、隐藏记录、下禁言令，监禁质疑者”。文明世界与这类恶魔太缺乏打交道的经验，导致了在新中国联邦、天使闫博士揭露中共病毒真相后一年多的时间，世界还没有得到完全清醒的认知，实在令人痛苦！
-
-但是，日拱一卒、坚持不懈是灭共不可缺少的恒力。恶魔不灭，行动不止！
-
-原文链接：
-
-[https://www.foxnews.com/media/chinas-massive-cover-up-on-covid-still-happening-who-advisory-board-member](https://www.foxnews.com/media/chinas-massive-cover-up-on-covid-still-happening-who-advisory-board-member)
-
-0
++1
