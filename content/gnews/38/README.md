@@ -1,63 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】21世纪最大杀手：福奇阴谋集团！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1310483/)
+## 【圣城传声筒】蓬佩奥先生关于 香港六四纪念的演讲——原文及翻译
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1310296/)
 
-作者：纽约香草山信息部 6zero4
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+整理/翻译：纽约香草山香港部 MAYA
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09130501/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%9121%E4%B8%96%E7%BA%AA%E6%9C%80%E5%A4%A7%E6%9D%80%E6%89%8B%EF%BC%9A%E7%A6%8F%E5%A5%87%E9%98%B4%E8%B0%8B%E9%9B%86%E5%9B%A2%EF%BC%81-%E5%B0%81%E9%9D%A2.jpg)图片来源： the gateway pundit
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
-据[TGP](https://www.thegatewaypundit.com/2021/06/greatest-mass-killer-21st-century-data-shows-fauci-conspired-lied-new-study-shows-hcq-plus-azt-improved-survival-covid-patients-nearly-200/)在6月8日的报道，证据显示21世纪最大规模的杀戮源于福奇的密谋和撒谎，最新研究显示羟氯喹加上阿奇霉素使COVID患者的生存率提高了近200%。
 
-TGP在过去一年中广泛报道了羟氯喹在治疗COVID-19病毒中的作用，包括福奇及其医疗“精英们”合谋禁止使用这种非常成功的药物，以及早些时候，福奇和美国顶级医学专家如何使用伪造的研究，和典型的虚假信息来剥夺HCQ治疗冠状病毒的资格，导致病毒夺走了全球370万人的生命，其中包括50万美国人。
+字幕制作：纽约香草山香港部 彩虹桥
+演讲原文：
 
-2020年3月25日，在那场关于使用羟氯喹的白宫新闻发布会上，福奇批评了当时的川普总统。最近已经曝光的数千封邮件表明，作为时任川普总统的首席医疗顾问，福奇对于川普政府提出的一些治疗方案，总是表现得不屑一顾、无动于衷。但最终证明川普总统是对的。
+32 years ago, a tragedy occurred in Tiananmen Square, a massacre perpetrated by the Chinese Communist Party against its own people shot the world’s consciences. And it highlighted the contrast between the freedom-loving Chinese people and the tyranny of Beijing.
 
-心脏病专家和医学教授彼得·麦卡洛(Peter McCullough)今年早些时候在德州作证说， 85%的患者接受了多种药物治疗方案后，可以康复并完全免疫。如果COVID-19阳性患者在住院前得到及时治疗，疫情到现在可能已经结束了。如果他和其他医生使用的治疗方案没有受到福奇与CDC连同WHO的联合打压，成千上万人可能已经获救，而且还将拯救更多的人。
+For the next 30 years, the only place, the only place of all of China’s sovereign domain, where free people can commemorate the martyrs of Tiananmen, was Hong Kong. Every year, on the June 4th anniversary, the people of Hong Kong out of their lives lost in Tiananmen, You’ve cherished the freedoms that are the birthright of every human being, and which were brutally denied to your countrymen. You were able to mark this anniversary because of the high degree of autonomy that Hong Kong enjoyed. The city was the best city of liberty and a light to us all.
 
-网站c19hcq.com跟踪了所有有关羟氯喹及其对冠状病毒影响的国际研究，现有一项名为“羟氯喹对症COVID-19：汇集了245项研究的实时综合分析” 的新研究，其结果令人震惊！即在病人康复和稳定的治疗方面，太晚使用高剂量HCQ都是无效的，其治疗效果随着早期使用和剂量的改进而提高，早期治疗始终显示出积极的效果。
+Yet now, now the same regime that committed the massacre in Tiananmen Square has broken its promises to Hong Kong: the fundamental freedoms and autonomy that Beijing was promised to guarantee to you, it took away from you. For the first time, commemorating the Tiananmen massacre is illegal here. It’s punishable by a new security law — the national security law. This is a dark reminder that the regime in Beijing still refuses to respect the rights of its own people. And it’s also a reminder of why we are all gathering here tonight. We do so virtually, but we do so defiantly and proudly, and we continue a glorious tradition of commemorating the heroes of Tiananmen.
 
-2020年2月29日，在一封电子邮件中，两名俄克拉荷马州医生广泛讨论他们对羟氯喹的研究，福奇的回应显得很吃惊，并讽称这些“好事”尚未得到最终验证。福奇的被动回应也应证了他后来在全国舞台上传达的信息。
+I’m especially honored to be here now. As America’s 70th Secretary of State, when Hong Kong’s freedom was being taken away, I was aware of the courageous work of Hongkongers. You fight, you fight to preserve your dignity and your autonomy. You fight for the freedoms owed every man, woman, and child made in the image of God. The Communist Party may imprison heroes like freedom-loving Jimmy Lai, Martin Lee, and others. But you, you show that the flame of freedom in Hong Kong remains a beacon.
 
-在2020年2月24日的一份关于中共国对羟氯喹的临床研究报告之问询邮件中，马里兰药理学家菲利普·加蒂(Philip Gatti)问道：“是否有任何迹象/数据可证实中（共）国关于氯喹/羟氯喹可以减少COVID-19感染和肺部疾病的说法?”福奇轻蔑地回应道：“社会上有很多类似的说法，这份简报没有数据，所以我没有办法评估他们的说法”。
+May God bless Hong Kong.
 
-2020年5月，福奇告诉CNN：“羟氯喹作为预防冠状病毒的药物实际上是‘危险的’和无效的”。迅速地，福奇的这一声明在主流媒体上成为头条新闻。媒体嘲笑川普总统和任何认为羟氯喹安全有效的人，使用羟氯喹治疗COVID-19患者的医生被暂停其社交媒体账号，科技巨头开始审查任何提及羟氯喹的内容。
+演讲译文：
 
-另一项发表在medRxiv上的新研究表明，使用与体重匹配的HCQ加上AZM剂量似乎与超过100%的生存率增加有关，尤其是高剂量的羟氯喹+阿奇霉素治疗方案可使通气型COVID-19患者的生存率提高近200%。
+32年前，天安门广场发生了一场悲剧：中国共产党对中国人民进行了泯灭人性的大屠杀，它突显出热爱自由的中国人和北京（中共）暴政之间的鲜明对比。
 
-医学博士梅丽尔·纳斯(Meryl Nass)最近在《捍卫者》上打破寂静，声称有更多信息表明，不仅是NIAID主任福奇，美国所有的顶层医学界官员都参与了反对羟氯喹的阴谋，包括福奇名义上的老板、NIH主任柯林斯，维康信托基金主任法勒等。
+在接下来的30年里，香港是唯一一个——唯一一个位于中（共）国主权领土上——人们可以自由地纪念天安门烈士的地方。每年在六四周年之际，香港人民都会悼念天安门事件中的死难者。你们珍惜自由，但你们的同胞们却被残忍地剥夺了这与生俱来的权利。你们之所以能够纪念这个日子，是因为香港享有高度的自治。这座城市乃是我们所有人的自由和光明之源。
 
-法勒曾在越南工作，那里有很多疟疾，他也曾在那里参与过SARS-1研究。他还是WHO研发蓝图科学咨询小组的主席，他因此担任了WHO综合试验的负责人，在该试验中，1000名不知情的受试者被过量服用羟氯喹。为了进一步打消人们使用羟氯喹治疗COVID-19的念头，他还担任英国康复试验的核心人物，1600名受试者在该试验中也过量服用了羟氯喹。
+然而现在，在天安门广场犯下大屠杀的那个政权已经违背了它对香港的承诺。北京（中共）曾向你们承诺，会保证香港基本的自由与自治，现在这些却被它夺走了。在这里，哀悼天安门大屠杀第一次被视为非法行为，并且会在新的国安法下受到惩罚。这提醒了我们，北京（中共）政权仍然拒绝尊重自己人民的权利；也提醒了我们，为什么今晚要相聚在这里。我们通过视频，自豪而大胆地继续着我们纪念天安门英雄们的这一光荣传统。
 
-然而，对患者过量服用羟氯喹的WHO的综合实验与英国康复实验都持续到2020年6月，直到他们的极端剂 量被揭露后才不得不停止，总共导致大约500名受试者死亡。但是，在此之前的2020年4月中旬发表在《美国医学会杂志》上的一篇文章中，巴西就告诉全世界他们是如何错误地给患者过量使用氯喹，死亡率是39%，平均年龄50岁。因此，即使没有任何医学经验，医学专业知识和医学常识，作为美国医学界顶级技术官员，法勒、福奇和柯林斯都应该从巴西这个案例中吸取这个惨痛的经验教训。
+我非常荣幸能够来到这里。作为美国第70任国务卿，当香港的自由被剥夺时，我了解香港人的奋勇抗争。你们在抗争！你们是为维护自己的尊严和自治权而战；你们为每一个男人，女人和孩子应得的自由而战，这些自由都是上天所赋予的。共产党监禁了像黎智英、李柱铭等热爱自由的英雄们，但你们向我们展示了，香港仍是一座自由的灯塔。
 
-从这以后，法勒、福奇和柯林斯拒绝提供研究资金。这些资金本可以用于对使用羟氯喹、伊维菌素和其他可能扭转疫情局面的改用药物进行富有成效的试验。福奇掌握了NIAID制定COVID – 19治疗指南这一至高无上的权利，强烈建议不要使用羟氯喹和伊维菌素。福奇的NIAID还取消了首次使用羟氯喹治疗早期疾病的大规模试验。
+愿上帝保佑香港！
 
-鉴于羟氯喹已经在数百万患者身上安全地使用了65年，因此他们精心设计了这样的伪试验及其假信息：羟氯喹在其他用途上是安全的，但在用于COVID-19时是危险的。这是一个福奇团伙精心编制的彻头彻尾的谎言，成千上万的人因此丧生，因此，他们应该为疫情期间的死亡病例、疫情的延长和不当治疗负直接责任！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115247/M6.jpg)
 
-自疫情爆发以来已经一年多了，我们的世界发生了翻天覆地的变化。本以为经过这么长时间，医疗界早已在COVID-19阳性患者或住院医师的临床处置上达成共识，专注于预防和治疗方案，尤其是对于老年人、肥胖者，以及有病史的人来说，这种疾病就是死刑判决。但悲哀至极的是，神奇有效的HCQ与COVID-19起源真相一样，被他们完全掩盖，这一切意味着什么?
+视频字幕制作：纽约香草山香港部 彩虹桥
 
-因为福奇是美国乃至世界流行病学及其预防与治疗方案的绝对权威，他的话被人们本能地当作福音对待，人们一如既往地相信，只要福奇金口一开，事情都会有转机的，这也让福奇变成一个自大狂。这一次，疫情事实完全颠覆了人们对福奇的信任，这一切都源于福奇的一个谎言，从COVID-19疫情刚刚开始，使用羟氯喹的治疗方案倍受忽视、淡化和限制，难道这不是意味着是他杀了数百万人吗？非常不幸，我们现在依然面临的是难以想象的大规模屠杀，而这样的屠杀仍然没有被有效制止！
-
-校对/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+
+
 
 0
