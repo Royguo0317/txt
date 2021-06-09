@@ -1,43 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 威斯康星大学麦迪逊分校加入洛克菲勒基金会的流行病预防研究所
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1310431/)
+## 【有声读物】站起来！马背上的民族
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1310522/)
 
-#### 编译：文复
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09123610/Screenshot-2021-06-09-9.35.50-AM.png)
-洛克菲勒基金会是一家专注于健康、科学和社会问题的慈善机构，今天宣布将努力创建一个国际流行病预防机构。通过在全球范围内建立一个由 20 多个公共、私人和非营利合作伙伴组成的网络，该基金会的支持旨在帮助迅速阻止发生在任何地方的潜在流行病威胁。
+配音：香草山录音组 蒙古鸿雁
 
-该研究所将促进和资助合作的最大目标之一是加强全球基因组测序工作，包括在南非和亚洲部分地区。在美国，洛克菲勒将支持其称为基因组监测的区域加速器，其中包括威斯康星大学麦迪逊分校、佛罗里达大学等。威斯康星大学麦迪逊分校还将与明尼阿波利斯、密歇根、威斯康星、马什菲尔德和密尔沃基的伙伴合作。
-
-自去年以来，艾滋病疫苗研究所的研究人员对导致 COVID-19 的病毒进行了高水平的基因组测序，结合了戴恩县DANE多达 5% 的 SARS-CoV-2 感染的遗传特征。在全国范围内，科学家对所有阳性病例进行了低于2%的采样。基因组测序可以提供有关病原体及其传播方式的丰富信息。
-
-“洛克菲勒正试图将公共卫生和学术领域的不同群体联系在一起，”华盛顿大学医学院和公共卫生学院病理学和实验室医学教授谢尔比奥康纳说。“我们开始探索如何扩展到该地区的其他地区，并继续进一步发展我们已经在这里开展的工作。”
-
-AVRL 科学家和华盛顿大学兽医学院教授 Thomas Friedrich 解释说，这种支持将推进可用于为公共卫生提供信息和开发新工具的研究，并生成可用于推动研究的公共卫生数据。
-
-他补充说，目标是“打破这些孤岛，让我们获得更好的公共卫生成果，以及更明智的转化研究。”
-
-在 戴恩县DANE，他们的努力已经说明一切皆有可能。由于研究小组的监测工作速度很快，因此它们已被用于帮助为社区的实时公共卫生决策提供信息。
-
-例如，当研究人员帮助确定当地企业爆发的 COVID-19 涉及关注的病毒变体时，他们与公共卫生麦迪逊和戴恩县密切合作，以提供指导和有用的信息。
-
-病理学和实验室医学教授大卫奥康纳解释说，在洛克菲勒的支持下，AVRL 研究人员还将特别关注学龄儿童的基因组监测，以提供有关 COVID-19 传播的更详细的数据.
-
-他解释说，研究人员正在分析环境空气采样数据，以确定是否可以在公共环境中检测到 SARS-CoV-2 病毒的存在。 “你可以想象这在机场或公交车站……或学校和自助餐厅等地方会很有用。”
-
-研究人员表示，这些类型的投资也可以带来更大的机会，包括加强中西部其他机构之间的合作伙伴关系。
-
-“我们希望这个项目能让我们在未来产生更大的影响，”谢尔比奥康纳说。
-
-**文章及图片来源：**
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-> [UW–Madison joins Rockefeller Foundation’s pandemic prevention institute](https://news.wisc.edu/uw-madison-joins-rockefeller-foundations-pandemic-prevention-institute/)
 
 
 
-校对发布：紫橄榄
+
+漫漫黄沙
+掠过草原
+
+如诉如泣的马头琴声
+回荡在浓重的夜空
+
+额吉的哀叹
+伴随着孩子的哭泣声
+
+启明星不再出现
+悠长的蒙古长调
+何时变得如此哀怨
+
+
+
+**文字版原文：[【香草诗词汇】站起来！马背上的民族](https://gnews.org/zh-hans/1303198/)**
+
+作者：纽约香草山写作组 蒙古鸿雁
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

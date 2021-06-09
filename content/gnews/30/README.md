@@ -1,23 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共夺走自由香港的那一刻起，世界也失去了自由
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1310288/)
+## 【热点播报】德州通过禁止“疫苗护照”法案
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1310400/)
 
-台湾宝岛农场 Amitofu
+作者： 纽约香草山媒体部 7bends
 
-2019年6月9日香港发起反送中条例恶法大游行，6月9日和6月16日有超过200万人站出来的大游行，中共仍然表明对港统治绝不妥协，打压民主恐吓港人，中共从广东派大量便衣民兵、黑警与香港黑道三合会14K、水房和安乐、和胜和混入示威群众制造事端，丢石块、火烧、破坏店家引起暴动，藉此逮捕示威主导者与参与群众，对当时为了争取香港自由的学生毒打、围殴、性侵、虐待，造成无数学生被强奸、被跳楼、被死亡，对这些死伤学生和家庭所造成的伤害至今无法平复，即使再多的自由也挽回不了宝贵的生命。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09111912/HKBlackPolice-400x225.png)
-2周年的69、616刺痛着你我的心，香港基本法第18条附件三，不经立法会审议，让中共想抓谁就抓谁，香港的行政、司法、立法权完全被中共强势夺取，宣告着香港法治已死，不仅撕毁《中英联合声明》香港50年不变的承诺，更在2019年9月开始计划对世界释放病毒，中共从夺走自由香港的那一刻起，世界也失去了自由，新冠状病毒疫情肆虐，病毒持续变种，哪里有疫苗哪里病毒就变种，每个人都被病毒受限了原有的自由，甚至连出席亲人丧礼的权力，也因为疫情而无法参加，甚至亲人还没来得及送到医院而死亡。当众人都默许中共长期的蓝金黄而不勇于面对，就会造成中共对世界侵略的威胁，今天病毒会随时找上我们，让我们的亲人受到疫情无情的感染，只有提起每个人的正念和正义，集结各阶层的力量，化成各种灭共行动，才能有可能挽救无数苍生的机会。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-本文仅代表个人立场
 
-祈祷万佛万神加持文贵先生、闫丽梦博士与新中国联邦每位战友
 
-資料來源:文贵先生、班农战斗室、路德社、闫丽梦博士、博士军团、爆料革命
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09121942/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%BE%B7%E5%B7%9E%E9%80%9A%E8%BF%87%E7%A6%81%E6%AD%A2%E7%96%AB%E8%8B%97%E6%8A%A4%E7%85%A7%E6%B3%95%E6%A1%88.jpg)
 
-审核:Athena雅典娜 发布:Amitofu
+据[福克斯](https://www.foxnews.com/politics/coronavirus-vaccine-passport-texas-governor-bans.amp?__twitter_impression=true)6月8日报导，德克萨斯州州长Greg Abbott签署法案，禁止企业在得克萨斯州要求“疫苗护照”。该法案是在立法会议的最后几天通过。法案从签署之日起立即生效。
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+德州州长Greg Abbott周一签署的这条法案规定，任何德州的企业要求提供冠状病毒疫苗接种证明才能开展业务是违法的。除了禁止私营企业要求提供疫苗接种证明外，任何要求提供疫苗接种证明的企业均不得参与德州政府的合同。该法案仍然允许企业实施符合州和联邦法律的冠状病毒筛查和感染措施。
+
+此前，Greg Abbott州长曾经签署了一项行政命令，禁止德州和其地方政府机构以及政府部门要求提供对冠状病毒疫苗接种证明才能使用服务。
+
+希望越来越多的州和国家认识到推广接种尚处试验阶段的冠状病毒疫苗和强制实行“疫苗护照”的危害性。只有尽快进行病毒溯源和病毒追责，才能早日结束大流行。
+
+编辑/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

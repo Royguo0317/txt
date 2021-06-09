@@ -1,39 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】德州通过禁止“疫苗护照”法案
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1310400/)
+## 西喜时事新闻简报—金融篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1310327/)
 
-作者： 纽约香草山媒体部 7bends
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+- 作者：此生灭共
 
 
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09121942/%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%BE%B7%E5%B7%9E%E9%80%9A%E8%BF%87%E7%A6%81%E6%AD%A2%E7%96%AB%E8%8B%97%E6%8A%A4%E7%85%A7%E6%B3%95%E6%A1%88.jpg)
+**西班牙2021年6月9日电/西喜社——**
 
-据[福克斯](https://www.foxnews.com/politics/coronavirus-vaccine-passport-texas-governor-bans.amp?__twitter_impression=true)6月8日报导，德克萨斯州州长Greg Abbott签署法案，禁止企业在得克萨斯州要求“疫苗护照”。该法案是在立法会议的最后几天通过。法案从签署之日起立即生效。
+您若想了解全文报导内容，请点击标题链接
 
-德州州长Greg Abbott周一签署的这条法案规定，任何德州的企业要求提供冠状病毒疫苗接种证明才能开展业务是违法的。除了禁止私营企业要求提供疫苗接种证明外，任何要求提供疫苗接种证明的企业均不得参与德州政府的合同。该法案仍然允许企业实施符合州和联邦法律的冠状病毒筛查和感染措施。
+**1.[中国外汇逆回购中神秘的850亿美元激增](https://www.zerohedge.com/markets/mysterious-85-billion-surge-chinas-fx-reverse-repo)**
 
-此前，Greg Abbott州长曾经签署了一项行政命令，禁止德州和其地方政府机构以及政府部门要求提供对冠状病毒疫苗接种证明才能使用服务。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09114737/unknown-1-3.png)
 
-希望越来越多的州和国家认识到推广接种尚处试验阶段的冠状病毒疫苗和强制实行“疫苗护照”的危害性。只有尽快进行病毒溯源和病毒追责，才能早日结束大流行。
+零对冲6月7日电，中国银行在金融市场秘密地增加美元贷款，让投资者怀疑中国银行人为干预人民币汇率。多年来，中资银行很少使用外币逆回购，4月份银行的外汇逆回购从一年前的不到20亿美元飙升至870亿美元。过去一年有大量美元通过贸易和证券流入中国，大量资金流入已被中资银行吸收，为此商业银行承担了更多的货币风险。
 
-编辑/发稿：雪梨
+**2.[警惕中国通胀冲击](https://www.zerohedge.com/economics/traders-alert-china-inflation-shock)**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115012/unknown-3-3.png)
 
-**更多资讯，更多关注**
+零对冲6月8日电，中国即将公布备受关注的通胀数据。世界各国央行注入的大部分资金正在流入中国境内，这使得北京在不放弃市场改革的情况下控制价格的努力复杂化。恒生国企指数已连续五天下跌。离岸人民币本月已下跌 0.5%。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**3.[商品价格飙升加剧通胀担忧](https://www.wsj.com/articles/commodity-price-surges-add-to-inflation-fears-11623079860)**
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115246/unknown-4-3.png)
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+华尔街日报6月7日电，大宗商品价格的上涨给全球经济复苏蒙上了一层阴影，打击了脆弱的企业和家庭，并加剧了对通胀可能变得更加持久的担忧。木材、铁矿石和铜的涨幅创纪录，玉米、大豆和小麦已跃升至[八年](https://www.wsj.com/articles/surging-grain-prices-fuel-surprise-farm-recovery-11611322634?mod=article_inline)来的[最高水平](https://www.wsj.com/articles/surging-grain-prices-fuel-surprise-farm-recovery-11611322634?mod=article_inline)，油价到了两年的高点。在此背景下，中国的生产价格指数可能攀升至 2008 年 8 月以来的最高水平。
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+**4.[在美国没收了大部分Colonial Pipeline赎金后，比特币下跌了7%](https://www.cnbc.com/2021/06/08/bitcoin-btc-price-slides-as-us-seizes-most-of-colonial-ransom.html)**
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115727/unknown-5-1.png)
 
-0
+CNBC 6月8日电，比特币在周二再次下跌，可能与美国设法收回支付给针对Colonial Pipeline的黑客的大部分赎金后对加密货币的安全性的担忧有关。法庭文件称，联邦调查局能够访问其中一个黑客的比特币钱包的“私钥”或密码。根据Coin Metrics的数据，BTC在美国东部时间凌晨5点下跌超过7%，至 32,952 美元。较小的数字代币也暴跌，以太币下跌 7% 至 2,524 美元，XRP 下跌约 6%。
+
+**5.[美国国税局希望国会帮助收集加密货币税收信息](https://www.foxbusiness.com/markets/irs-wants-crypto-tax-fast-tracked)**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09120032/unknown-6-1.png)
+
+福克斯6月8日电，美国国税局局长查尔斯雷蒂格周二告诉立法者，税务机构需要更广泛的权力来收集有关数字货币交易的信息，以确保人们报告并支付他们的欠款。
+
+审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
+
+
+
+
+
+
++1

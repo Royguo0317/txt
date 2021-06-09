@@ -1,29 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华为被剔除出JPMorgan债券指数
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1310651/)
+## 日澳肯定台湾海峡两岸和平的重要性
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1310738/)
 
-信息来源：；路透社
-发布时间：2021年6月09日
-翻译 /整理/ 简评：Eternallight
+俄罗斯莫斯科喀秋莎农场   银河
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09142637/huawei.jpg)
+编辑上传   水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09150406/d-1.jpg)sdsc.bellschool.anu.edu.au
+共同通讯社 (Kyodo News)6月9日报道，日本和澳大利亚在双边会谈中首次强调了台湾海峡两岸和平与稳定的重要性，并同意针对中共国在印度洋-太平洋地区日益强硬的背景下深化安全合作。
 
+两国国防部长和外交部长确认，日本自卫队将在非战斗情况下保护澳大利亚的军事资产，此举是为了加强两国的“准联盟”，以应对中共国军力的增强以及中共国在东中国海和南中国海的强硬领土主张。
 
-图片来源： 维基百科
+日本防卫大臣岸信夫(Nobuo Kishi)在2 + 2虚拟会议后对记者说，这一发展“将促进自卫队和澳大利亚军队之间的互操作性，并加强威慑”。
 
-据路透社报道, 随着美国对中国科技公司实施制裁后, JPMorgan决定在下个月底在其部分最具影响力的投资指数中剔除华为美元债券.
+在会晤后发表的联合声明中，两国政府首次表示，他们“强调台湾海峡两岸和平稳定的重要性，并鼓励和平解决两岸问题。”此前，日本在最近与美国和欧盟的峰会上也提到了台湾。
 
-JPMorgan表示 ” 华为以美元计价的债券将被排除在摩根大通固定收益指数（包括 CEMBI 和 JACI 系列）之外，因为这些证券的发行实体（Proven Glory Capital Ltd. 和 Proven Honor Capital Ltd.）在制裁禁令中被明确列出”
+该声明立即引起了中共国的愤怒，中共外交部敦促东京和堪培拉“尊重主权，不干涉别国内政”。
 
-JPMorgan作为全球最大的债券承销商之一, 其债券指数对债券投资具有直接指导意义. 本次除了华为, 中芯国际的债券也被排除在指数外. 此举势必会导致华为甚至中企在海外的融资渠道进一步受阻.
+岸信夫说，日本和澳大利亚必须“进一步深化安全合作”，以便“积极为印度洋-太平洋地区的和平与稳定作出贡献”。
 
-华为2020年财报显示, 其在海外的市场增长出现较大幅度下降, 其中美洲营收下降24.5%. 亚太下降8.7%,欧洲与中东非下降12.2%. 其它地区下降 6.4%. 在手机业务下滑,5G海外推广受阻的困境下, 美国制裁持续收紧. 华为将面临巨大的经营挑战.  由于外界诟病其和中国共产党与军队错综复杂交织的关系以及其情报背景, 西方世界对其的信任势必也会持续下降.  我们期待一个更加透明的,光明正大的中国企业以正面的,积极的姿态参与到国际分工合作,技术革新, 而不是致力于情报收集,网络控制,信息审核等.
+至于日本自卫队对军事资产的保护，澳大利亚是继美国之后，根据2016年生效的日本安保法，日本允许保护其资产的第二个国家。该法律规定，自卫队人员可以保护其他国家的军事资产，条件是外国军队从事有助于日本防卫的活动。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+岸信介说，将应澳大利亚的要求提供保护。
 
-🔗[chinas-huawei-be-excluded-influential-jpmorgan-bond-indices](https://www.reuters.com/business/finance/chinas-huawei-be-excluded-influential-jpmorgan-bond-indices-2021-06-09/)
+在会谈中，日澳双方部长还同意，他们将致力于早日达成一项旨在促进两国军队联合演习的双边协议。部长们对缅甸的局势表示“严重关切”，敦促军政府立即停止对其人民的暴力行为，并采取措施压制言论自由。
+
+会议在人权问题上特别提到了中共国，两国表达了他们对中共国政府对待新疆自治区维吾尔族和其他穆斯林少数民族的做法，以及中共政府最近在香港削弱民主、损害权利和自由的行动“深感关切”。
+
+参考链接：
+
+[https://english.kyodonews.net/news/2021/06/12f53be96fb7-japan-australia-begin-security-talks-with-taiwan-possibly-on-agenda.html](https://english.kyodonews.net/news/2021/06/12f53be96fb7-japan-australia-begin-security-talks-with-taiwan-possibly-on-agenda.html)
 
 0
