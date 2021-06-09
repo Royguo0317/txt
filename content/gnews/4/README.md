@@ -1,35 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日澳肯定台湾海峡两岸和平的重要性
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1310738/)
+## 印度奥委会弃用中共赞助品牌上东京奥运会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1310862/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09150406/d-1.jpg)sdsc.bellschool.anu.edu.au
-共同通讯社 (Kyodo News)6月9日报道，日本和澳大利亚在双边会谈中首次强调了台湾海峡两岸和平与稳定的重要性，并同意针对中共国在印度洋-太平洋地区日益强硬的背景下深化安全合作。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09155526/I-1.jpg)allplacesmap.com
+印度媒体6月9日报道，印度奥林匹克协会(IOA)决定放弃中共国运动服装品牌李宁作为其奥运会官方服装赞助商，并宣布印度运动员在东京奥运会期间将穿非品牌服装。
 
-两国国防部长和外交部长确认，日本自卫队将在非战斗情况下保护澳大利亚的军事资产，此举是为了加强两国的“准联盟”，以应对中共国军力的增强以及中共国在东中国海和南中国海的强硬领土主张。
+上周，印度奥委会公布了李宁为东京奥运会设计的奥运装备，引发了批评。据了解，印度体育部随后建议印度奥委会弃用中共赞助商。东京奥运会将于7月23日至8月8日举行。
 
-日本防卫大臣岸信夫(Nobuo Kishi)在2 + 2虚拟会议后对记者说，这一发展“将促进自卫队和澳大利亚军队之间的互操作性，并加强威慑”。
+印度奥委会主席纳林德·巴特拉和秘书长拉吉夫·梅赫塔在一份声明中表示：“我们了解球迷们的情绪，印度奥委会决定退出与服装赞助商的现有合同。”“我们的运动员、教练和支持人员将穿无品牌服装。”
 
-在会晤后发表的联合声明中，两国政府首次表示，他们“强调台湾海峡两岸和平稳定的重要性，并鼓励和平解决两岸问题。”此前，日本在最近与美国和欧盟的峰会上也提到了台湾。
+自从印度军队和中共军队去年在实控线的紧张局势加剧以来，印度国内一直有人呼吁抵制中共国产品。巴特拉和梅赫塔说：“我们感谢青年事务和体育部做出这一指导决定。”“我们希望我们的运动员能够在训练和比赛中不需要回答有关服装品牌的问题。”据消息人士透露，印度奥委会正在与几家公司进行谈判，试图确保运动员在奥运会上不会没有品牌。
 
-该声明立即引起了中共国的愤怒，中共外交部敦促东京和堪培拉“尊重主权，不干涉别国内政”。
-
-岸信夫说，日本和澳大利亚必须“进一步深化安全合作”，以便“积极为印度洋-太平洋地区的和平与稳定作出贡献”。
-
-至于日本自卫队对军事资产的保护，澳大利亚是继美国之后，根据2016年生效的日本安保法，日本允许保护其资产的第二个国家。该法律规定，自卫队人员可以保护其他国家的军事资产，条件是外国军队从事有助于日本防卫的活动。
-
-岸信介说，将应澳大利亚的要求提供保护。
-
-在会谈中，日澳双方部长还同意，他们将致力于早日达成一项旨在促进两国军队联合演习的双边协议。部长们对缅甸的局势表示“严重关切”，敦促军政府立即停止对其人民的暴力行为，并采取措施压制言论自由。
-
-会议在人权问题上特别提到了中共国，两国表达了他们对中共国政府对待新疆自治区维吾尔族和其他穆斯林少数民族的做法，以及中共政府最近在香港削弱民主、损害权利和自由的行动“深感关切”。
+印度奥委会官员感谢印度精英运动员及教练组和支持人员的“奉献精神”，期待他们在奥运会上取得好成绩。同时声明 “我们在IOA、国家体育联合会、政府和其他利益相关方的生态系统中有着极佳的协同作用。”
 
 参考链接：
 
-[https://english.kyodonews.net/news/2021/06/12f53be96fb7-japan-australia-begin-security-talks-with-taiwan-possibly-on-agenda.html](https://english.kyodonews.net/news/2021/06/12f53be96fb7-japan-australia-begin-security-talks-with-taiwan-possibly-on-agenda.html)
+[https://www.espn.com/olympics/story/\_/id/31593538/ioa-drops-chinese-brand-li-ning-indian-athletes-wear-unbranded-apparel-tokyo-games?platform=amp](https://www.espn.com/olympics/story/_/id/31593538/ioa-drops-chinese-brand-li-ning-indian-athletes-wear-unbranded-apparel-tokyo-games?platform=amp)
 
 0
