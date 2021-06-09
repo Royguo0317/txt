@@ -1,48 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【币圈】-数字货币动态- 2021.06.09
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1309687/)
+## 掌握弗林酶切位点插入技术的姜世勃与舟山蝙蝠病毒发现者有合作关系
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1309708/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09060529/609-1.jpg)
-## **每日一问**
+#### 文章撰写:【默凡】
 
-*币圈从来不缺观点，如何鉴别币圈常识和分析背后的逻辑？*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09064914/csdagry3543stal-structure-sars-cov-2-mpro.jpg)
 
-## **喜马拉雅Coin要闻**
+美国时间6月7日，Sellin上校发推：中共病毒调查侦探们有一重大发现，发现姜世勃在中共病毒实验室起源中扮演了非常重要的角色，还与广州南方医科大学的刘叔文及其他掌握插入弗林蛋白酶裂解位点的科学家有联系。
 
-- HEX新银行账号入账费用为25美元。
-
-
-## **新闻动态**
-
-1. Cointelegraph报道，加密货币市场本周的损失增加到3000亿美元。自比特币在4月创下近期峰值以来，势头推动了全球市值的下降，随后在5月初出现了Altcoin峰值。在此后1.1万亿美元的损失之后，前一季度的增长在整个加密货币领域的广度上被完全抹去。
-2. 根据周二发布的新闻稿，世界经济论坛（WEF）发布了一个涉及DeFi的政策工具包。该工具包旨在为监管机构和政府政策制定者提供有关DeFi监管的有用指导。参与制定政策框架的金融监管机构包括来自美国各机构的代表，以及参与制定欧洲计划的加密资产市场法规的人员。
-3. 科技出版物（The Information）报道，加密货币借贷平台BlockF目前近50亿美元，正筹集数亿美元资金新投资，为以加密货币为重点的公司的增长提供进一步的资金支持。据报道，总部位于纽约的对冲基金Third Point Management和总部位于伦敦的风险投资公司Hedosophia正在主导新一轮的融资。
-4. Cointelegraph报道，瑞波公司的开发人员整合智能合约功能，推出”联合侧链”的形式让主XRPL精简和高效，同时通过为原生智能合约和其他功能提供互操作性，扩大更广泛的XRP生态系统的功能。为了促进这种互操作性，瑞波的创造者提出了一个”联合器”软件，一端连接到XRPL网络，另一端连接到一个或多个侧链。
-5. 由于基于区块链的代币化，黄金批发商开始寻找新的方式将其业务扩展到零售。国际金银交易公司Aga Bullion和英国金融科技公司Aurus Technologies近日签署了一项合作协议，在土耳其市场提供由黄金支持的代币。该合作关系使投资者能够以ERC-20代币的形式购买黄金。
-6. Coinseed的创始人兼首席执行官Delgerdalai Davaasambuu通过其平台网站上发表的一份声明宣布了由于NYAG（纽约总检察长）的诉讼，Coinseed已经关闭了其业务。纽约州总检察长对Coinseed的法律行动是基于涉嫌违反纽约州反欺诈法。该办公室还据此反欺诈法起诉了加密货币交易所Bitfinex和稳定币发行商Tether。
-7. Polkadot和Kusama的创造者GavinWood周二发博客文章公布了备受瞩目的Kusama parachain拍卖会将于6月15日中午12:00开放。根据暂定计划，首场拍卖将于6月17日结束，竞价期将持续到6月22日。如果Kusama理事会批准该计划，那么有史以来第一次parachain名额拍卖赢家可能会在6月22日上午11点之前出现。
-8. Blocktempo报道，在 2010 年将自家柴犬Kabosu放上blog，随后在社群平台一炮而红的幼儿园老师佐藤敦子小姐8日发消息要将这系列可爱的Doge迷因NFT化。不到 24 小时内，竞标价码已飙升到了155UNI，比照 UNI 截稿前约 23.6 美元的价格，约等同 3,658 美元。
-9. 西班牙跨国海鲜巨头Nueva Pescanova集团6月8日宣布已与IBM食品信托公司合作，在区块链上追踪其捕捞的大虾。
-10. 链新闻报道，根据报导，矿机芯片制造商Canaan将在位于中亚的哈萨克斯坦设立了首个海外售后服务中心。由于低价电力所带来的竞争力，哈萨克斯坦的加密货币挖矿业务正在蓬勃发展。根据剑桥比特币算力地图显示，哈萨克斯坦是目前全球比特币算力占比第四大国，占全球比特币算力的6%。
-11. Cointelegraph报道，Theta协议网络即将于6月30日推出主网3.0，由于投资者期待即将到来的主网3.0发布，该项目的THETA代币反弹了50%，Theta Fuel（TFUEL）上涨了71%。
-12. 市场交易显示，ETH/BTC汇率在5月23日触底0.0553BTC之后，已经上涨高达40.19%。强劲的反弹走势反映了从现货ETH到现货BTC市场的资金流激增。独立市场研究公司Delphi Digital的分析师强调以太币在比特币报价市场的”强大实力”，但仔细观察ETH/BTC的图表，会发现看涨的交易者可能会进入一个牛市陷阱的证据。
-13. 美国IRS局长Charles Rettig)在周二参议院关于国税局2022财年预算的听证会上称，国税局需要国会授权来处理加密货币。
-14. 美国司法部副检察总长周二表示，正试图通过追踪骇客DarkSide勒索攻击动向，讨回Colonial Pipeline支付75BTC。目前，美国司法部已经追回63.7BTC。
-15. 安大略省证监会星期一发表声明，指控Mek Global Limited和Phoenix Fin Pte. Ltd.涉嫌违反当地证券法，要对Kucoin公司采取行动。
-16. RTHK消息，金管局8日表示，会深入研究为香港发行批发及零售层面的央行数码货币，稍后会开始研究发行本地零售港元数码货币（e-HKD），以探讨优点及相关风险等。另外，金管局表示，会继续与中国人民银行合作，就数码人民币(e-CNY)在香港进行技术测试，为中港居民提供便捷的跨境支付服务，目前未有推出时间表。
-17. 墨西哥联邦政府参议员Eduardo Murat Hinojosa表示，他将向立法者提交一份提案，他将在下议院提出一个加密货币的法律框架，并于8日改变了他的推特个人照片，以参议员对着麦克风说话的标志性 “激光眼 “为特色，表示对加密货币的支持。
-18. 对于比特币价格接近3万美元，Whalemap的分析师表示，19000美元很大可能是其底部，这虽然是比特币跳水到2017年以来的20000美元高点以下，但是跌破之将是”非常困难的”。
-19. 本周早些时候，美国银行的一项调查发现，美国的对冲基金经理喜欢比特币（BTC）而不是科技产品，但高盛对亚洲不同对冲基金的25位首席投资官进行了调查。结果显示，比特币是35%的参与者最不喜欢的投资类别。
-20. POLITICO消息，曾经的比特币批评家、现任拜登白宫幕僚Tim Wu在最近一次个人财务披露信息显示他持有Filecoin（FIL）。据报道，他拥有价值100万至500万美元的比特币，以及价值100,001至250,000美元的FIL。
-21. 前美国总统川普接受电视台在线采访，对于比特币，他依然坚持其两年前的观点：看起来就像诈骗。
+从Sellin上校转推的内容来看，掌握插入弗林蛋白酶裂解位点的科学家姜世勃与舟山蝙蝠病毒ZC45/ZXC21的发现者王长军有直接合作关系。
 
 
 
+> A critically important find by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) showing Shibo Jiang's key role related to the lab origin of [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw). Also connect Shuwen Liu & those at Southern Medical University, Guangzhou, who had the technical skills to insert the furin cleavage site. [https://t.co/Uc2mT1OXTr](https://t.co/Uc2mT1OXTr)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 7, 2021](https://twitter.com/LawrenceSellin/status/1401760004756185089?ref_src=twsrc%5Etfw)
 
-*编辑：aQ
-发布：文顾*
 
-+1
+
+本文仅代表作者本人观点，不代表Gnews平台
+
+* * *
+
+排版发布：日本东京方舟农场 文柯Miles
+
+0

@@ -1,27 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在巴西为什么有这么多儿童死于中共病毒？
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1309707/)
+## 布林肯称与台湾的贸易谈判可能很快开始
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1309760/)
 
-消息来源：意大利共和报（corriere.it）
-发布时间：2021年06月08日
-翻译整理：斩草要除根
+拟稿：金生水
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09070121/brinken.png)图片来自网络
+据《台湾英文新闻网》近日报道，美国国务卿布林肯周一（6月7日）表示，与台湾的贸易谈判应尽快开始。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09064645/cdc-TDoPeUSOD1c-unsplash-scaled.jpg)
+周一，在众议院外交事务委员会就国务院年度预算分配举行的听证会上，布林肯被要求就与台湾潜在双边贸易协定的发展发表评论。 布林肯回应如下：
 
+“我很高兴向您介绍凯瑟琳·戴女士，她是我们美国贸易代表，你知道我们正在与台湾就某种贸易框架协议进行对话，或者很快就会进行对话，这些对话应该开始了。”
 
-科学界担心，由于南方冬季的到来以及当地各种呼吸道疾病的发病率增加，巴西未来几周情况会进一步恶化。其中最让医生担心的是：中共病毒正在以世界其他地方从未见过的水平在巴西儿童中引起严重疾病。非政府组织 Vital Strategies 的法蒂玛·马里尼奥 (Fatima Marinho) 博士的研究发现，已有 2,200 多名 10 岁以下儿童死于中共病毒。尽管这一数字占巴西因中共病毒总死亡人数的不到 0.5%，但 5 岁以下儿童中有 900 多人死亡。
+当被要求对他的声明发表评论时，路透社援引美国贸易代表办公室的话说，美国“认为继续加强与台湾的双边贸易关系很重要”。
 
-为什么巴西有这么多儿童因中共病毒住院和死亡？- 在纽约时报发表的一篇社论中咨询了儿科医生 Peter J. Hotez 和流行病学家 Albert I. Ko ，他们的一个可能解释是在巴西出现的变种：在该国流行的中共病毒的主要毒株是在亚马逊产生的 P.1的 变种—现在已由世界卫生组织更名为“伽玛”，这个“伽玛”比以前的病毒毒株更具传播性，两位医生确认，更易传播的突变体也可能导致儿童感染率、住院率和死亡率更高。
+台湾代表处告诉新闻机构，“我们正在努力与美国贸易代表办公室进行讨论，这有望促进我们双边贸易关系的进展。”
 
-简评：有专家表示，真正的因中共病毒死亡的儿童人数更高。同时在科学家的研究过程中同时发现巴西儿童中的 罕见的综合症病例增加，还有最新发现的严重健康状况都与中共病毒感染有关。
+看来，这可能是重振蛰伏已久的贸易暨投资架构协定（TIFA）谈判，上一次举行谈判还是在2016年奥巴马执政时期。台湾外交部长在 3 月表示，TIFA 的讨论可能会在今年恢复，但具体日期尚未确定。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+在今年4月，台湾总统蔡英文在会见拜登派出的两党代表团时，呼吁重启TIFA谈判，以加强两国之间的经济联系和商业伙伴关系。
 
-🔗[covid-19-perche-cosi-tanti-bambini-muoiono-il-virus-brasile](https://www.corriere.it/esteri/21_giugno_08/covid-19-perche-cosi-tanti-bambini-muoiono-il-virus-brasile-66ffb280-c842-11eb-a854-b5489e4fa044.shtml)
+今日文贵先生盖特也表示美台合作将更加紧密，美国会在台湾布下重兵长期保护并且最后会向世界宣布台湾是事实上的主权独立国家。台湾同胞有救了，在中共灭亡前的临死反扑中不必成为战火中的牺牲品，天佑台湾！
 
+文章内容仅代表个人观点
 
+*编辑：Runaway*
 
-0
+参考链接：
+
+[https://www.taiwannews.com.tw/en/news/4218394](https://www.taiwannews.com.tw/en/news/4218394)
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
++1
