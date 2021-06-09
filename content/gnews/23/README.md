@@ -1,52 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 过去的两个月中共国“报复社会”事件暴增！80万私营企业倒闭！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1310065/)
+## 澳总理呼吁G7改革WHO规则共同抵抗中共的经济胁迫
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1310100/)
 
-**摘要：在2021年6月6日的盖特中，郭先生说仅仅过去两个月，中共国发生7万起恶性“报复社会”事件，人民已经无路可走；中共银行的庞氏骗局已经玩不下去；80万私营企业倒闭！**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09093624/Miles_2021-06-06-getter.srt.txt)
-**过去的两个月中共国****“****报复社会****”****事件暴增！****80****万私营企业倒闭！**
+【日本东京方舟农场】撰稿：青衣     素材采编：武汉老温      校对：miumiu law
 
-**The Surge of Violent Crimes and Bankruptcies of Private Companies in China**
+据《大纪元》新闻网6月9日报道，澳大利亚总理莫里森呼吁七国集团（G7）支持世界贸易组织改革，以便有一套具备约束力的争端解决机制，应对“经济胁迫”日益泛滥的问题。他表示，这是削弱中共国对澳洲经济胁迫，抵制中共在印太地区实施影响力行动的最佳方式。
 
-同时现在，中共国的现在经济到什么程度大家都知道啊。
+周三（6月9日），莫里森（Scott Morrison）在澳洲智库“伯斯美亚中心”（Perth USAsia Centre）发表演说，提到全球基于规则的秩序正“承受压力”。莫里森强调，“正视经济胁迫最实际的方式，就是恢复全球贸易机构具约束力的纷争调解制度。”他说：“胁迫行为若无后果，就没有自制的动力。”
 
-Do you know how seriously Communist China’s economy has deteriorated?
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09095626/6B80BA39-8853-4271-8BF1-20E400509B93.jpeg)
 
-仅仅，仅仅过去2个月，在全国各地所谓的他们定义的恶性的所谓报复社会[事件]。事实上是逼得人[已经是]不是“上梁山”了，梁山都没了，是逼得人不能当人了，不能干人事了。
+另据《路透社》报道称，澳洲自2018年禁止华为参与新建该国的5G宽带网络起，其与中共的关系就变得磕磕绊绊。尤其是在今年堪培拉方面呼吁对中共病毒起源进行独立调查之后，两国关系更是进一步降温。
 
-In the past two months, 70,000 cases of what the CCP defines as “vicious retaliation against society” have taken place across the country. Actually, these cases are occurring because these people have been driven beyond the point of survival. (The Chinese ancient novel “Outlaws of the Marsh” told the story of what occurred on “Mount Liang”.) Now that “Mount Liang” is gone, people who cannot survive are forced to commit violence.
+中共的回应是向葡萄酒和大麦在内的澳洲商品加征关税，并限制进口澳洲牛肉、煤炭和葡萄。中共对总额超过80%的澳洲商品加征关税，实际上已经使规模数以十亿美元计的两国贸易停滞不前。分析人士认为，中共的这些举措是一场“经济胁迫”行动。
 
-我们反对暴力。但人但凡有点儿选择也不会走上它们说的报复社会的路。是那些共产党的走狗们欺压百姓没有活路了，只有一个选择了。达多少起呢？7万起！7万起血腥暴力社会事件。
+对此，澳洲表示不会屈服于中共的压力，并向世贸组织提起申诉。但上诉可能需要数年时间。莫里森因此呼吁G7国家支持在11月部长级会议前改革世贸组织。
 
-We are against violence, but we must understand that nobody would do such a thing if they had a choice. They do not want to take revenge on society. CCP, the organized crime organization, and its gangsters oppress people and make more and more Lao Bai Xing (ordinary people) unable to survive. These people have no other choice, and 70,000 bloody and violent incidents occurred as a result.
+莫里森表示，许多世界领导人已经表达了支持澳洲的立场，但志同道合的国家现在必须加强合作。他说：“这对澳洲，对我们的地区，乃至对全世界都事关重大。”
 
-说这是1982年到83年期间，整个当时所谓的“严打”，邓小平以“严打”为名，所谓蒙古有强奸女学生的案子[为由展开]严打，杀了几万人。连弄颗白菜都要给弄死，那我是很清楚的。现在说加在一起，把当年1982～1983年所有案件累积在一起还不只2个月的[总]和呢。
+《大纪元》的报道称，莫里森表示，澳洲支持拜登总统对中共病毒起源进行的情报审查。他还警告说，由于与中共冲突的风险越来越大，民主国家必须比冷战以来的任何时期都要更加紧密地合作。他说：“印太地区是新的战略竞争中心，误判和冲突的风险正在增加”。
 
-Between 1982 and 1983, Deng Xiaoping gave orders to implement a severe crackdown on criminal activities, citing the rape of young girls in Mongolia. And it led to the executions of tens of thousands of people. Some even got executed for minor misdemeanors such as stealing a cabbage. I know very well what happened then. The total number of cases between 1982 and 1983 is not as many as that in the last two months.
+G7峰会将于6月11日至13日在英国召开。澳洲虽非成员国，但在英国首相约翰逊的邀请下，莫里森也将参与会议。外媒指出，此举表明澳大利亚在与中共的争端中得到了支持。而在此之前，莫里森还于5月30日出访了新西兰。新西兰政府表示，支持澳洲向世贸组织就中共开征关税一事提出申诉。
 
-共产党很恐惧，如果7万变成70万的时候，这个社会就就不是什么报复社会了，就是社会受到了极权压迫[的表现]，到700万的时候共产党完蛋了。就这么简单。
+据伦敦《金融时报》报道，澳洲战略政策研究所（ASPI）分析师肖布里奇（Michael Shoebridge）指出：“G7领导人知道，如果他们不集体应对中共的挑战，就会被中共单独胁迫，那么就将无法遏制中共在贸易、领土、安全、技术和人权等关键价值观领域上日益增长的侵略行为。”
 
-The CCP must be scared. If 70,000 cases grow to 700,000, it will not be an act of revenge against society. It will be a reaction to totalitarian oppression. If it expands to 7 million cases, the CCP will be finished. It is that simple.
+注：本文仅代表作者观点
 
-然后银行、金融，就国内各方面咱们战友报信息，国内的银行过去是「玩」“还旧贷新”这个骗局，共产党自己的庞氏骗局，银行实际上45%到50%都成烂账了。这个“还旧贷新”的周转在过去的2到3个月里边，将近50%左右基本上都延续不下去了。就这么可怕！国内大概80万的私人企业全部倒闭，倒闭80万，80万！
+参考链接：
 
-Our fellow fighters also told me about banks, finance, and various aspects of mainland China. The banks in mainland China get used to playing tricks, and cover defaulted loans with new loans. This is the CCP’s own Ponzi game. In fact, 45% to 50% of the bank loans are already in default and cannot be repaid. The banks cannot continue playing the loan-pyramid scheme in almost 50% of the loan cases in the last 2 to 3 months. How bad it is. Around 800,000 private companies claimed bankruptcy in mainland China. It was 800,000 private companies!
+1. [https://cn.reuters.com/article/au-morrison-wto-reform-0609-idCNKCS2DL0Z2](https://cn.reuters.com/article/au-morrison-wto-reform-0609-idCNKCS2DL0Z2)
+2. [https://www.epochtimes.com/gb/21/6/9/n13009819.htm](https://www.epochtimes.com/gb/21/6/9/n13009819.htm)
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60bce283c04fd544b46a8ecf](https://gtv.org/getter/60bce283c04fd544b46a8ecf) (4:04-6:08)
-鸣谢：[1] 感谢Antsee-GTV、TING GUO和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于 [https://gnews.org/zh-hans/1303061/](https://gnews.org/zh-hans/1303061/)
-[2] 感谢Antsee-GTV、Liberte和[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于[https://gnews.org/1306798/](https://gnews.org/1306798/)
 
-* * *
-
-字幕：【XO小粉红】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
+0

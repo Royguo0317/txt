@@ -1,108 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇的马仔做贼心虚， 已清空自己的推特账户
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1310220/)
+## 日澳2+2会谈声明首度阐明台海和平稳定重要性
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1310241/)
 
-新闻来源：《零对冲》| 作者：TYLER DURDEN | 发布时间：2021年6月7日
+【日本东京方舟农场】撰稿：青衣      校对：miumiu law
 
-翻译/简评：clau | 校对/审核：小小妹 | Page：我是球大哥
+据《法国国际广播电台》6月9日报道，日本和澳大利亚的外交部长和国防部长6月9日以视频会议方式举行了“2+2”磋商会谈。双方在会后发布的联合声明中首度阐明了台湾海峡和平稳定的重要性，并就敦促和平解决两岸问题达成了一致。此外，日澳双方还同意将在海洋安全保障方面加强合作。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/b3616e11-ee0c-42be-b606-c71500e6cc02.jpg?asset_id=29d1f44b-fa83-4912-ab96-e4c85136f9f5&amp;img_etag=%22409891c60a0e81ad88282510e924f52c%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/b3616e11-ee0c-42be-b606-c71500e6cc02.jpg?asset_id=29d1f44b-fa83-4912-ab96-e4c85136f9f5&amp;img_etag=%22409891c60a0e81ad88282510e924f52c%22&amp;size=1024)
+此次是第9次日澳“2+2”磋商会谈，日本外相茂木敏充和防卫相岸信夫、澳大利亚外长佩恩（Marise Payne）和国防部长达顿（Peter Dutton）携团队出席。
 
-克里斯蒂安·G·安德森（Kristian G. Anderson）最近删除了自己推特账户2021年3月之前的5000条推文，他拥有的安德森实验室位于加利福尼亚州拉霍亚。最近福奇被曝出的3000封邮件里，包含安德森在2020年2月发给福奇的邮件，当时安德森提醒了福奇新冠病毒有被人工改造的痕迹。然而，很快安德森就被福奇用钱堵住了嘴，甚至推翻了自己最初的判断，转向成为了新冠病毒自然起源理论的支持者。
+据《共同社》报道称，茂木敏充在会谈伊始就针对中（共）国的动向指出，“凭借实力单方面改变现状的尝试，使国际秩序受到了巨大挑战。” 茂木敏充表示：“我们确认台海和平稳定的重要性，同意推动和平解决两岸问题。 ” 此外，他还指出，考虑到中（共）国在东海及南海活动日益频繁，并且关注到中（共）国《海警法》允许海警局使用武器，日澳同意将在海洋安全保障方面加强合作。
 
-“伟大的”福奇博士的“邮件门”还在持续不断的发酵，非常多的证据都被媒体挖出并报道。这些证据，轻则是渎职，重则是叛国。然而福奇这只老狐狸却还能睁着眼睛说瞎话，面不改色心不跳，大言不惭的说“诋毁我就是诋毁科学”。福奇这40年的官，确实不是白当的。但是，他的马仔们的心理素质可就没有福奇这么好了。此地无银三百两，做贼心虚，都可以用来形容安德森删除自己推文的行为。难道删除了，就没事了吗？更何况网络是有记忆的，他们的心理防线会有被击垮的那一天，请大家持续关注福奇的“邮件门”事件。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09110431/8AA181B3-99D5-431E-8BF7-CA467AF70AD5.jpeg)
 
-**原文翻译：**
+会后，茂木敏充还通过推特写道：“我们与我们的‘特殊战略伙伴 ’澳大利亚深入讨论了中（共）国、朝鲜和缅甸等地区问题，合作实现‘自由和开放’的印太地区，以及加强安全和国防合作，包括在经济安全、太空和网络领域。”
 
-## 告诉福奇SARS-CoV-2“有可能被改造”的病毒学家刚刚清空了他的推特账户
+岸信夫则在会谈中提出，“为了地区的和平稳定，比以往更需要志同道合的国家团结起来”。他特别强调了日澳合作的意义。岸信夫称，“两国都欢迎根据《自卫队法》第95-2条建立自卫队人员保护澳大利亚武器的制度。两国将继续加强互操作性，并通过努力提升自卫队和澳大利亚部队之间的演习，包括空中加油，将两国关系提升到一个新水平。”
 
-更新（1650ET）：
+佩恩则在推特上写道：“我们与日本的特殊战略伙伴关系的重要性从未如此之大”。
 
-全部都删除了：
+双方在联合声明中表示，“我们重申，我们的特殊战略伙伴关系将继续得到加强。日本和澳大利亚因我们共同的价值观而团结起来，包括对民主、人权、自由贸易和基于规则的国际秩序的坚定承诺。我们在印太及其他地区的安全、稳定和繁荣方面的共同战略利益，以及深厚的经济互补性，使我们的关系更加紧密”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/fec4d429-9976-4764-91f9-ebc4c410494f.png?asset_id=dcbb583d-36d6-4478-85fd-9612afc131aa&amp;img_etag=%220ceb5ef8d6c895194832c8794942fec4%22&amp;size=2630)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/fec4d429-9976-4764-91f9-ebc4c410494f.png?asset_id=dcbb583d-36d6-4478-85fd-9612afc131aa&amp;img_etag=%220ceb5ef8d6c895194832c8794942fec4%22&amp;size=1024)
+《共同社》的报道称，考虑到中共在东海及南海活动频繁，日澳将在海洋安全保障方面强化彼此合作关系。双方对中（共）国允许海警局使用武器的《海警法》共同表示了严重关切，同时商定将在维持重要物资的供应链等经济安保领域开展合作。
 
-至少他不必继续阻挡来自问询者的讨厌的问题…
+报道称，“武器等防护”是自卫队应他国军队请求而保护舰艇和飞机的活动，而2016年施行的安全保障相关法使其成为可能。 该活动原本设想的仅是美军，不过去年10月的日澳防长会谈，同意就新增澳军作为对象启动协调。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/2a71ea39-f8bb-4ec1-bbec-e4664cba31c5.png?asset_id=9a65ac88-4020-47a8-a23e-31e35f824ebc&amp;img_etag=%221bd397b32e844ab4228e610543355081%22&amp;size=6055)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/2a71ea39-f8bb-4ec1-bbec-e4664cba31c5.png?asset_id=9a65ac88-4020-47a8-a23e-31e35f824ebc&amp;img_etag=%221bd397b32e844ab4228e610543355081%22&amp;size=1024)
+此外，日澳双方还就联合训练等情况下令两国部队顺畅往来的《互惠准入协定》（RAA）展开了磋商。据报道，日本首相菅义伟和澳洲总理莫里森（Scott Morrison）在去年11月会谈时曾达成广泛协议，愿意签订这项类似日美驻军地位协议（Japan-U.S. Status of Forces Agreement）的条约。
 
-一位加利福尼亚的病毒学家告诉安东尼·福奇，新冠病毒看起来“可能是经过设计的”，“与进化理论的预期不一致”——只是后来反其道而行之，8周后发表了一篇“自然起源 ”的论文（在获得数百万美元的美国国立卫生研究院拨款之前），他删除了5000多条推特。
+另据多家媒体综合报道，日澳2+2会谈的联合声明中，还对中共政府削弱香港民主，在新疆侵犯维吾尔人和其他穆斯林人权等问题表达了严重关切。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/7e06ce0c-3a5a-4ce3-bbe3-529f7f124633.jpg?asset_id=eb95111f-362e-4df8-9351-c57227f6c47f&amp;img_etag=%22148d07b62ccf77dd0c4eea1243d17a41%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/7e06ce0c-3a5a-4ce3-bbe3-529f7f124633.jpg?asset_id=eb95111f-362e-4df8-9351-c57227f6c47f&amp;img_etag=%22148d07b62ccf77dd0c4eea1243d17a41%22&amp;size=1024)
+日澳2+2、美日2+2、美韩2+2、四方会议、日韩领导人访美…… 近期国际上这一系列的行动展示出，全球以美国为领导，日、韩、澳、印、五眼联盟、欧盟等国家和组织一起联手，已经形成了一个对中共的包围圈。如果中共胆敢在两岸问题上越雷池半步，那么接下来就是什么时候，以什么方式消灭中共了。
 
-位于加利福尼亚州拉霍亚的安德森实验室的负责人克里斯蒂安·G·安德森（Kristian G. Anderson）在2020年2月1日给福奇的一封电子邮件中写道：“该病毒的不寻常特征在于基因组中只占非常小的一部分，不到0.1%，所以人们必须真正仔细观察所有的序列，才能发现一些特征（可能）看起来是经过改造的。”他补充说，他和他的团队发现“该基因组与进化理论的期望值不一致。”
+如今中共国那些所谓的战狼们，对于国际社会的各种打脸及抗击行动，居然全体噤声了，除了中共外交部打打口炮做做样子，中共领导层已是骑虎难下：主动出击，还是被动挨打？不管选择哪条路，对于中共来说，都是死路一条。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/a984402f-0865-4ec5-bd88-ce97d42aef1f.png?asset_id=5dd801bd-d317-417c-bbb3-88037bcb645c&amp;img_etag=%220955b4b287e8fd7cc3ce886c366c37b7%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/a984402f-0865-4ec5-bd88-ce97d42aef1f.png?asset_id=5dd801bd-d317-417c-bbb3-88037bcb645c&amp;img_etag=%220955b4b287e8fd7cc3ce886c366c37b7%22&amp;size=1024)
+注：本文仅代表作者观点
 
-安德森当时在回应福奇发给他的一篇探讨病毒起源的文章。第二天，福奇给他的副手休·奥金克罗斯（Hugh Auchincloss）发了一封紧急电子邮件，主题是“重要”，他写道：“休，今天上午我们必须谈谈，请保持手机畅通。… 阅读这份文件以及我将转发的电子邮件。你今天将有必须完成的任务。”
+参考链接：
 
-所附文件的标题是“**巴里克, 石正丽, 等人——《自然医学》——非典病毒的功能增强.pdf**”。
-
-因此，就在福奇信任的科学顾问之一提出新冠病毒可能是人为的（而福奇和他的同事们公开将这种可能性视为阴谋论）之后，他将有关功能增强性研究的论文——福奇在武汉病毒学研究所资助的研究——发给了他的副手。
-
-**而现在安德森已经删除了他一半以上的推文。**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d84c3532-ddea-4e67-8d5b-d2bcf974ae19.png?asset_id=b27a00fa-cdbb-4bd8-914f-792572f3ddf1&amp;img_etag=%2277a7f7bf07e1d80589f4b26d80692f5b%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d84c3532-ddea-4e67-8d5b-d2bcf974ae19.png?asset_id=b27a00fa-cdbb-4bd8-914f-792572f3ddf1&amp;img_etag=%2277a7f7bf07e1d80589f4b26d80692f5b%22&amp;size=1024)
-
-安德森声称，他的旧推文是“自动删除”的——这种操作应该是一个按照顺序的、自动化的过程——这5000多条推文不是在2021年3月7日之前突然消失的。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/e74d01b4-0679-4efa-923f-67c0f5d2b1d8.png?asset_id=c29e5c4b-8359-4ac9-8b67-dc2800cc36bc&amp;img_etag=%227adc627f0b4175ed57f079c54bb82a89%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/e74d01b4-0679-4efa-923f-67c0f5d2b1d8.png?asset_id=c29e5c4b-8359-4ac9-8b67-dc2800cc36bc&amp;img_etag=%227adc627f0b4175ed57f079c54bb82a89%22&amp;size=1024)
-
-删除的推文的行为是在网络侦探开始揭开安德森与福奇和美国国立卫生研究院的关系时出现的。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/6a304e78-8fe1-4abe-b3b0-29335d214c2f.png?asset_id=5b274f6f-0214-47a2-801e-cbc4e3e07336&amp;img_etag=%22c882d3957cda5787d5bdad4182626f95%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/6a304e78-8fe1-4abe-b3b0-29335d214c2f.png?asset_id=5b274f6f-0214-47a2-801e-cbc4e3e07336&amp;img_etag=%22c882d3957cda5787d5bdad4182626f95%22&amp;size=1024)
-
-*推文翻译*：Radical Centrist：实验室泄漏从来都不是阴谋论。然而，否认实验室泄漏，才是真正的阴谋。
-
-在你们挖出安德森这些推文，以支持科顿的评论的第二天，他写给福奇：“该基因组与进化理论的期望不一致。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/78ad3ae9-1e11-4eae-be59-822d75ad251d.png?asset_id=5c3d9405-1e05-4691-820b-16dee35964b4&amp;img_etag=%22c71ab8a6b9bd230d6e5a2614abcdaead%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/78ad3ae9-1e11-4eae-be59-822d75ad251d.png?asset_id=5c3d9405-1e05-4691-820b-16dee35964b4&amp;img_etag=%22c71ab8a6b9bd230d6e5a2614abcdaead%22&amp;size=1024)
-
-*推文翻译*：Radical Centrist：两个月后，他推翻了之前的判断并发表了他的《近端起源》论文，帮助掩护了美国国立卫生研究院/国家过敏和传染病研究所因为支持功能增强性研究存而存在的风险。
-
-五个月后，他与达萨克一起获得了188万美元的新发传染性疾病研究中心（CREID）的 经费。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/4bbed76e-e965-4cd6-b547-6da96eb9b1c2.png?asset_id=ebb18eb4-1e4e-4c60-bb19-33b414820fcb&amp;img_etag=%2210f07895bfc7e91f5935c7cb071436a8%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/4bbed76e-e965-4cd6-b547-6da96eb9b1c2.png?asset_id=ebb18eb4-1e4e-4c60-bb19-33b414820fcb&amp;img_etag=%2210f07895bfc7e91f5935c7cb071436a8%22&amp;size=1024)
-
-*推文翻译*：RIchard H. Ebright写到：事实上来自新发传染性疾病研究中心的奖励是这个的五倍。（你谈到的只是五年中的第一年的资金数字）
-
-Radical Centrist：非常奇怪，安德森看到我上面的推文后，删除了他的反实验室泄漏理论的回复。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/35f31580-a324-48bf-92b7-d878c025d1a6.png?asset_id=a38e32e3-a23a-49ea-a73e-1cdb9d6d5ef7&amp;img_etag=%22840659702d91edc99262e62c4bf2c99d%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/35f31580-a324-48bf-92b7-d878c025d1a6.png?asset_id=a38e32e3-a23a-49ea-a73e-1cdb9d6d5ef7&amp;img_etag=%22840659702d91edc99262e62c4bf2c99d%22&amp;size=1024)
-
-*推文翻译*：Yuri Deigin：是的，你5000条推文就“噗”的一声消失了，因为他们被自动删除了？难道“自动”删除不应该是一个按照顺序的过程吗？还是你更改了设置，让你的5000条推文在今天被自动删除了？
-
-或许你应该自动删除你的《近端起源》论文？
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d9bee45d-8c68-4b05-a6a9-77e9f43e7225.png?asset_id=45537c35-c608-4b0b-8b54-14d1c351eb86&amp;img_etag=%2256b3f78b5d51b9d5dff0b1b6c49584ca%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d9bee45d-8c68-4b05-a6a9-77e9f43e7225.png?asset_id=45537c35-c608-4b0b-8b54-14d1c351eb86&amp;img_etag=%2256b3f78b5d51b9d5dff0b1b6c49584ca%22&amp;size=1024)
-
-*推文翻译*：Yuri Deigin：安德森的律师建议他这么做的？考虑到福奇邮件牵涉“潜在的调查”。
-
-同时，福奇否认在武汉的研究项目获得资助，但是…
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/c1f86a01-35a8-4d38-a50e-a651b323b9b5.png?asset_id=3f25f2ec-8310-41e9-8d45-0c5991e3f1e9&amp;img_etag=%22362dd84a5f56aa71fda0bc22d588fecf%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/c1f86a01-35a8-4d38-a50e-a651b323b9b5.png?asset_id=3f25f2ec-8310-41e9-8d45-0c5991e3f1e9&amp;img_etag=%22362dd84a5f56aa71fda0bc22d588fecf%22&amp;size=1024)
-
-*推文翻译*：NIAID邮件更新：在2019年，福奇领导的国家过敏和传染病研究所给了健康生态联盟和彼得·达萨克364万美元。其中的75万美元给了武汉病毒研究所。
-
-游戏结束。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d446c00f-3bce-4bdd-b2c3-f7b9cafb70bb.png?asset_id=2851647d-8c79-42b0-a8da-d02b5f9a2442&amp;img_etag=%22e71c24a7b9972768e6ccec0943bfe5cd%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/d446c00f-3bce-4bdd-b2c3-f7b9cafb70bb.png?asset_id=2851647d-8c79-42b0-a8da-d02b5f9a2442&amp;img_etag=%22e71c24a7b9972768e6ccec0943bfe5cd%22&amp;size=1024)
-
-*推文翻译*：从国家过敏和传染病研究所到武汉病毒研究所的子合同经费。自2014年到2019年。
-
-[原文链接](https://www.zerohedge.com/political/virologist-who-told-fauci-sars-cov-2-potentially-engineered-just-deleted-5000-tweets?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7cuwRUY801Oq5/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/7cuwRUY801Oq5/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
+1. [https://twitter.com/dajiyuan/status/1402558687978393609](https://twitter.com/dajiyuan/status/1402558687978393609)
+2. [https://twitter.com/RFI\_Cn/status/1402596860729061378](https://twitter.com/RFI_Cn/status/1402596860729061378)
 
 
 0
