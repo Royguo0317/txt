@@ -1,28 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 掌握弗林酶切位点插入技术的姜世勃与舟山蝙蝠病毒发现者有合作关系
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1309708/)
+## 布林肯称与台湾的贸易谈判可能很快开始
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1309760/)
 
-#### 文章撰写:【默凡】
+拟稿：金生水
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09070121/brinken.png)图片来自网络
+据《台湾英文新闻网》近日报道，美国国务卿布林肯周一（6月7日）表示，与台湾的贸易谈判应尽快开始。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09064914/csdagry3543stal-structure-sars-cov-2-mpro.jpg)
+周一，在众议院外交事务委员会就国务院年度预算分配举行的听证会上，布林肯被要求就与台湾潜在双边贸易协定的发展发表评论。 布林肯回应如下：
 
-美国时间6月7日，Sellin上校发推：中共病毒调查侦探们有一重大发现，发现姜世勃在中共病毒实验室起源中扮演了非常重要的角色，还与广州南方医科大学的刘叔文及其他掌握插入弗林蛋白酶裂解位点的科学家有联系。
+“我很高兴向您介绍凯瑟琳·戴女士，她是我们美国贸易代表，你知道我们正在与台湾就某种贸易框架协议进行对话，或者很快就会进行对话，这些对话应该开始了。”
 
-从Sellin上校转推的内容来看，掌握插入弗林蛋白酶裂解位点的科学家姜世勃与舟山蝙蝠病毒ZC45/ZXC21的发现者王长军有直接合作关系。
+当被要求对他的声明发表评论时，路透社援引美国贸易代表办公室的话说，美国“认为继续加强与台湾的双边贸易关系很重要”。
 
+台湾代表处告诉新闻机构，“我们正在努力与美国贸易代表办公室进行讨论，这有望促进我们双边贸易关系的进展。”
 
+看来，这可能是重振蛰伏已久的贸易暨投资架构协定（TIFA）谈判，上一次举行谈判还是在2016年奥巴马执政时期。台湾外交部长在 3 月表示，TIFA 的讨论可能会在今年恢复，但具体日期尚未确定。
 
-> A critically important find by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@jsdfposjpqyuee1](https://twitter.com/jsdfposjpqyuee1?ref_src=twsrc%5Etfw) showing Shibo Jiang's key role related to the lab origin of [#Covid\_19](https://twitter.com/hashtag/Covid_19?src=hash&amp;ref_src=twsrc%5Etfw). Also connect Shuwen Liu & those at Southern Medical University, Guangzhou, who had the technical skills to insert the furin cleavage site. [https://t.co/Uc2mT1OXTr](https://t.co/Uc2mT1OXTr)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 7, 2021](https://twitter.com/LawrenceSellin/status/1401760004756185089?ref_src=twsrc%5Etfw)
+在今年4月，台湾总统蔡英文在会见拜登派出的两党代表团时，呼吁重启TIFA谈判，以加强两国之间的经济联系和商业伙伴关系。
 
+今日文贵先生盖特也表示美台合作将更加紧密，美国会在台湾布下重兵长期保护并且最后会向世界宣布台湾是事实上的主权独立国家。台湾同胞有救了，在中共灭亡前的临死反扑中不必成为战火中的牺牲品，天佑台湾！
 
+文章内容仅代表个人观点
 
-本文仅代表作者本人观点，不代表Gnews平台
+*编辑：Runaway*
 
-* * *
+参考链接：
 
-排版发布：日本东京方舟农场 文柯Miles
+[https://www.taiwannews.com.tw/en/news/4218394](https://www.taiwannews.com.tw/en/news/4218394)
 
-0
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
++1
