@@ -1,68 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《2021年美国创新与竞争法案》涉及中共国部分（2）
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1311458/)
+## 中共国的足球梦
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1311486/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+原创：维京商人
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09225154/20191003042830_80195.jpg)
+君不见中共国的国家男子足球队在阿联酋迪拜开始了2022年世界杯亚洲区40强预选赛最后几轮的较量。中共国男足的这几个对手各个可谓兵强马壮、实力不俗，从印度洋岛国、人口已过50万的马尔代夫，到饱受战火洗礼的叙利亚，每一个对手中共国男足都没有百分百的把握战而胜之，当然，他们刚刚大胜了大名鼎鼎的太平洋岛国足球强国关岛队和东南亚第一篮球强国菲律宾。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09225202/v2-e7bdeb8e3d0bb0fd75a718cc87586ab2_720w.jpg)
+稍微有点经历的球迷都会对近年来中共国足球水平的衰落唏嘘不已，不但没有接近世界先进水平，反而从亚洲一流退化到了亚洲二流，甚至大步迈向三流。难怪有人戏言，中共国足球和足球是两个项目。郝海东先生曾经多次在路德访谈节目中从专业体育参与者和管理者的角度解读了他眼中的中共国足球，那么，笔者也试着从一个草根球迷的角度看看中共国足球和足球到底有什么区别。
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09223911/t-5.jpg)icryptodesk.com
-C部分——2021年战略竞争法
+首先，足球运动的基础是业余足球。在中共国，老百姓是热爱足球的，大城小市，街头巷尾，早些年总是能够看到摆块砖头就踢的小伙伴们，更不需要什么真草或者人工草场来助兴，黄土地柏油路都没问题。那么为什么这么多喜爱足球的人就不能促成业余足球水平的推广和提高呢？这个事情还真要从中共国足球和足球运动的区别谈起。
 
-《战略竞争法》是两党共同努力的结果，目的是使美国能够有效地应对中共国对我们国家社会和经济安全的挑战，该法案在2021年4月21日几乎一致地（21票对1票）获得了参议院外交关系委员会（SFRC）的通过，该法案提供了一个统一的战略对策。
+无论在西方发达国家还是发展中国家，每个国家都无一例外在社区或学校提供力所能及的场地设施给民众使用，而且所有国家的人民都以进行运动为骄傲，无论种族、肤色、年龄。反观中共国，举国上下最最火爆的就两个支柱产业，一是房地产，它催生了大量空住房甚至鬼城，又消灭了很多可以供老百姓运动锻炼的土地资源，贪婪的开发商和存在利益输送的政府官员才不会把这些群众体育设施最为必需品，弄个滑梯和双杠就已经是对韭菜们最大的福利了；另一个产业则是网红直播，这个行业不仅没有任何科技创新去推动生产力发展和社会进步，反而如同大烟枪一样给年轻人们插上了虚幻的翅膀，都希望做网红，哪有人愿意去运动场上挥汗如雨。
 
-通过以下措施增加美国对印度洋-太平洋地区的战略关注点，优先处理联盟、伙伴关系和美国全球领导地位：
-推进以加强美国联盟和伙伴关系、支持解决问题的区域合作为核心的印太战略。
-扩大与印太盟国和伙伴在技术、防务和基础设施方面的合作，增加对盟国和伙伴的安全援助，面对日益增长的中共军事能力加强合作。
-提升美国在国际组织和其他多边机构中的领导地位，包括对抗中共国和中国共产党在这些组织中的恶意影响。
+客观条件的制约已经限制了业余足球的开展，而各种社会压力更是让所有足球爱好者们无暇抽身。学生要面对中共国的学业压力，各种升学考试和竞赛辅导班侵蚀了身心健康成长的空间和时间。年长一点的成年人又要面临繁重的工作、家庭负担以及社会应酬，这还只是普通家庭只有一个或者两个孩子的前提下。试想，如果一个家庭真的有三个孩子，哪位家长能够在平时抽身参与足球运动？简直是异想天开！
 
-通过以下方式对抗中共的恶意政治影响和掠夺性经济行为，并激发美国的外交和经济统领能力：
-通过要求美国外国投资委员会，审查某些大学接受的外国赠品和合同，打击中共国和中共的影响力活动。
-针对中共国在西半球掠夺性的主权贷款，授权美国主管向美洲开发银行（Inter-American Development Bank）投票赞成第10次全面增资，解决中共国的知识产权盗窃和补贴问题，优先向致力于打击外国腐败行为的国家提供技术援助。
-通过将开发金融公司的最高负债额提高到1000亿美元，并投资于安全供应链、基础设施建设、数字连接和网络安全伙伴，增强美国的经济统领能力。
+在业余足球方面已经大大落后的中共国，在专业足球方面又如何呢？从注册球员人数上看，中共国的注册人数约为5万人，而邻国韩国是50万人，日本更是高达近百万人。注册人数的不足就导致选材率低，造成这一问题的本质是中共国没有形成一套完善的球员培养体系，这就导致足球人才不敢进入专业足球领域。具体来说，无论是早些年的专业体校还是当今的各种足校、俱乐部梯队，在运动员培养和常规教育之间，并没有畅通的渠道，这就导致选择了专业运动员培养之路的年轻人很难得到良好的素质教育，当专业路径受阻后，他们也基本没可能再回到常规教育，最好的选择也就是作为运动员特招。
 
-通过以下方式维护美国的价值观：
-授权广泛的人权和公民社会措施，包括对强制劳动、强制堕胎和绝育，以及新疆的其他虐待行为的制裁，以及（表明）与香港人民、西藏人民和中国公民社会站在一起的措施。
-包括增加国会和美国公众在国际协议和安排方面透明度的重要条款。
-（未完待续）
+与选材率低相对应的是成材率低，原因有二。从自身素质而言，绝大部分专业运动员在中学阶段甚至小学后期就已经脱离了常规素质教育，这就无形中导致这些专业运动员的动脑能力差，没有思考，难以理解更加深入、复杂的理论。从培训体系而言，放眼中共国，数十年来也没有建立一套可持续的青少年足球训练大纲，足球风格更是随领导喜好而朝令夕改。今年可以走拉丁风格，明年就开始学习德国战车。作为小球员成长的领路人，基层专业足球教练能够得到高水平培训的机会少之又少，更何况，中共国普遍存在的吃拿卡要、拉帮结派现象，导致能够做好言传身教的专业教练就更稀少了。很多小球员从一开始学习到的就是不规范的动作要领和错误的战术讲解，训练体系的缺失更是使得优秀专业球员的成长主要依赖于自身散养和运气而非整体人才培养体系的成功。
 
-文字整理：
+经过了选材率和成材率这两道关口，加上数以十年计的摸爬滚打，当一些职业球员好不容易进入到了各级国家队的时候，等待他们的往往不是考虑如何把球踢好，而是怎么拉关系、讲政治。中共国足球管理机构的负责人，既有打乒乓球的，也有做水上运动的，但偏偏没有一位是有过一线足球运动从业和管理经验的，更不要说有任何在足球发达国家经历的。对于这些非专业的投机者，他们往往考虑的都是如何摘桃子而不是挖井栽树。没有人愿意花经历和时间去打造体系、夯实基础、厚积薄发，如何更快见效、博得升官发财的机会才是正道。
 
-Division C – Strategic Competition Act of 2021
+正是因为如此，中共国职业联赛当年的YOYO体测、头球算两分、免除升降等政策也就不难理解了。直至今日，职业联赛给国家队让路、U23强制政策等也让人忍俊不噤，这些政策在足球发达国家简直是闻所未闻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09230255/2-5-12.png)
+在笔者看来，中共国足球没有发展的根本原因是它一直是政治的附属品，没有真真正正遵从足球运动本身的规律。现今世界，职业体育已经是一套成熟的运营体系，无论是管理、培训、训练、比赛，还是商业运作、公共关系、品牌推广，无不是专业人做专业事。在中共国一切都要讲政治的前提下，职业联赛和青少年培养体制的漏洞犹如一面镜子，照着现实社会中的所有假恶丑。
 
-The Strategic Competition Act is a bipartisan effort to enable the United States to effectively confront the challenges posed by the People’s Republic of China (PRC) to our national and economic security. The bill was passed out of SFRC in a nearly unanimous vote (21-1) on April 21, 2021. The bill provides a unified, strategic response that:
+足球是踢出来的，需要靠实力说话。不知道中共国的世界杯之梦还要等多久？是不是只有在习总书记的强国梦中才能实现？
 
-Increases U.S. strategic focus on the Indo-Pacific and prioritizes alliances, partnerships, and U.S.
+* * *
 
-global leadership by:
+*编辑、发稿 文锦*
 
-Advancing an Indo-Pacific strategy centered on strengthening U.S. alliances and partnerships and supporting regional cooperation that solves problems.
-
-Expanding cooperation with Indo-Pacific allies and partners on technology, defense, and infrastructure, increasing security assistance to allies and partners, and fostering enhanced
-
-cooperation in the face of China’s growing military capabilities.
-
-Promoting U.S. leadership within international organizations and other multilateral fora, including to
-
-counter malign PRC and Chinese Communist Party (CCP) influence in those organizations.
-
-Confronts China’s malign political influence and predatory economic practices, and energizes U.S. diplomatic and economic statecraft by:
-
-Countering PRC and CCP influence campaigns by requiring the Committee on Foreign Investment in the United States to review certain foreign gifts and contracts to universities.
-
-Countering China’s predatory sovereign lending in the Western Hemisphere by authorizing the U.S. Governor to the Inter-American Development Bank to vote in favor of a 10th general capital increase. Addressing China’s intellectual property theft and subsidies, and prioritizing technical assistance to countries working to counter foreign corrupt practices.
-
-Bolstering U.S. economic statecraft by increasing the Development Finance Corporation’s maximum liability to $100 billion and investing in supply chain security, infrastructure development, and digital connectivity and cybersecurity partnerships.
-
-Upholds U.S. values by:
-
-Authorizing a broad range of human rights and civil society measures including sanctions for forced labor, forced abortion and sterilization, and other abuses in Xinjiang, and measures to stand with the people of Hong Kong, Tibet, and China’s civil society.
-
-Including critical provisions to increase transparency for Congress and the American public related to international agreements and arrangements.
-
-原文链接：
-
-[https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf](https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf)
-
-0
++1

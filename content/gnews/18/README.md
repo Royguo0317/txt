@@ -1,59 +1,183 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】苏宁电器被强制执行30亿，“公私合营”进入明抢阶段？
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1311345/)
+## 为天安门和香港点燃一盏蜡烛
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1311337/)
 
-香草山写作组  鹰(文言)
+**字幕内容：**
 
+Lighting a candle for Tiananmen and HK
+为天安门和香港点燃一盏蜡烛
 
+For more than 30 years Hongkongers have been using candlelight to teach the Chinese Communist Part that Killing your people is useless and cannot solve any problem
+30多年来，香港人一直在用烛光
+教育中国共产党
+杀戮你的人民是没有用的，不能解决任何问题
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
+It will only spur even more people to resist
+这只会刺激更多的人进行抵抗
 
+Every year on 4 June, thousands in HongKong attend a vigil… to mourn those killed in the 1989 Tiananmen crackdown in Beijing.
+每年6月4日，数以千计的香港人参加守夜活动……
+以悼念在1989年北京天安门镇压中被杀害的人
 
+HongKong is one of the very few places in China… where public commemora-tion has been allowed
+香港是中共国极少数
+允许公开纪念的地方之一
 
-澎湃网6月9日报道，根据天眼查信息，苏宁电器新增一条执行人信息，执行法院为北京市第二中级人民法院，执行标的超32.82亿元。
+The flame of democracy in China is very visibly being carried tonight by over 50,000 HongKong residents who staged a candlelit vigil to mark the first anniversary of the Peking massacre
+今晚，超过5万名香港居民举行了
+纪念北京大屠杀一周年的烛光晚会
+非常明显地传递了中国的民主之火
 
-2019年，苏宁电器领跑国内全渠道家电市场，市场份额占比22.8%。京东(14.4%)、天猫(8.8%)位居其后，线上零售市场苏宁占比30.6%低于京东的37.3%；线下零售方面苏宁占比17.9%。可以说2020年的苏宁电器稳居国内家电行业龙头。然而，2020年CCP病毒大流行，不但造成线下实体店遭受重创，苏宁电器的线上渠道也被京东抢占。2020年苏宁易购全年净亏损42.75亿元，同比下滑超140%。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09204223/Screen-Shot-2021-06-09-at-8.41.06-PM.png)
-为减轻运营成本，苏宁易购不但对天天快递、百货、商超等业务进行减值处理，更利用向民生银行质押3.765亿股股权的方式进行融资。虽然2021年一季度苏宁易购以22.1%的市场份额居于首位，并实现盈利4.56亿元，但其现金流依旧吃紧。6月4日苏宁易购完成5.2亿股无限售流通股份的过户登记。
+Now this decades-long tradition is under threat
+现在，这个长达数十年的传统正受到威胁
 
-自2020年以来，随着国内经济萎靡程度加剧，不但紫光、华晨等大型国企纷纷违约，包商银行也步入破产重组。而2021年西方各国的全面经济脱钩、贸易脱钩更使得严重依赖外贸经济的中共产业不堪重负，“公私合营”改造全面开战。无论是针对各大民企私企的顶格罚款，还是对商业银行的行政处罚，中共正在通过搜刮民财方式维系维稳开支。如果说中共对阿里巴巴、腾讯、百度等“白手套”企业进行的反垄断处罚是隐蔽收割的话，那么对苏宁易购的超30亿元的新增执行则完全可以看作明抢，后者资金规模更为庞大，手段也更为恶毒。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09204209/Screen-Shot-2021-06-09-at-8.41.09-PM.png)
-从BAT大型私企的被处罚到苏宁易购的“被执行”，中共的以公侵私的力度空前高涨。中国抢夺利益手段的低劣更能反映出其对社会和民间财富的觊觎，而民企却是解决就业和经济发展的重要支柱。中共对民营私营企业的迫害以及对个人财富的“抗疫式”掠夺都暴露出其以假治国、以黑治国的本质。而中共反人类罪行和恶意制毒、全球投毒的行径更注定了中共早晚被灭。
+This year marks the second time authorities have banned the vigil
+今年是当局第二次禁止守夜活动
 
-新闻来源：
+They cite Covid concerns, but activists fear it’s more than that
+他们表示是担心新冠病毒的原因
+但活动人士担心的原因不止这些
 
-苏宁电器被强制执行30亿？知情人士：立案阶段，已提出异议https://www.thepaper.cn/newsDetail\_forward\_13062170
+China has been cracking down on HongKong dissent and introduced restrictions including a national security law
+中共一直在镇压香港的异议人士
+并出台了包括国家安全法在内的限制措施
 
-苏宁电器被强制执行超30亿！http://henan.china.com.cn/finance/2021-06/09/content\_41587834.htm
+I am Chow Hang Tung, vice-chairperson of the vigil’s organizer HongKong Al-liance
+我是守夜活动组织者支联会的副主席邹幸彤
 
-2020年中国家电市场发展现状分析 苏宁全渠道领先https://www.qianzhan.com/analyst/detail/220/200424-369d536e.html
+There will be the first 4 June since the national security law was passed
+这将是实施国家安全法以来的第一个6月4日
 
-家电市场份额居首位 苏宁易购二季度业绩持续向好https://new.qq.com/omn/20210525/20210525A049XU00.html
+Many ask if the vigil will disappear
+许多人问，守夜活动是否会消失
 
-顶格处罚！阿里、腾讯、百度齐收反垄断罚单！12家互联网巨头遭一网打尽，这几家也是难兄难弟https://www.sohu.com/a/455460792\_177992
+But I think we have been persisting for more than 30 years
+但我认为，我们已经坚持了30多年了
 
-苏宁易购股东苏宁电器向民生银行质押3.8亿股用于融资https://finance.sina.com.cn/money/bank/bank\_hydt/2021-01-05/doc-iiznctkf0253154.shtm
+It is more or less in HongKong People’s DNA now
+守夜或多或少已经在香港人的基因里了
 
-去年亏42亿！苏宁连续七年扣非亏损，深国资入主成转折？https://www.sohu.com/a/463186973\_161795
+I believe we will still see more candlelight on that night
+我相信在那个夜晚，我们仍然会看到更多的烛光
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+Ms Chow is one of the few leaders left in the alliance
+邹女士是支联会中仅存的几位领导人之一
 
-编辑/校对/发稿：正义的小新
+Many of her fellow activists have been arrested or are in jail
+她的许多活动家同伴已经被逮捕或被关进监狱
 
-**更多资讯，更多关注**
+Actually I never thought I’d end up becoming the face of the organization, be-cause I’m not used to this position, nor am I really suited for it
+事实上，我从未想过我最终会成为组织的代言人
+因为我不习惯这个职位，也不太适合这个职位
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+But many in our organization have been arrested
+但我们组织中的许多人已经被逮捕
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+There’s nobody left to speak out any more
+再也没有人敢站出来说话了
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+There’s a gap that has to be filled. So I have to be the one filling it
+有一个缺口必须被填补
+所以我必须是那个填补它的人
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+I feel a bit lonely because many of my fellow activists are now behind bars
+我感到有点孤独，因为我的许多活动家伙伴现在都在监狱里
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+When you want to do any campaign, there’s nobody you can discuss it with, no-body who can work with you
+当你想做任何运动时，没有人可以和你讨论
+没有人可以和你一起工作
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+But spiritually, I don’t feel I am alone
+但在精神上，我并不觉得自己是孤独的
+
+Hongkongers are still on our side and want to fight for democracy
+香港人仍然站在我们这边
+想要为民主而战
+
+We are all fighting together
+我们都在共同奋斗
+
+There’s still a lot of people supporting us
+仍然有很多人支持我们
+
+End one-party rule! Support democracy in China!
+终结一党统治! 支持民主中国!
+
+The Alliance has been campaigning to “end one-party rule” in China
+支联会一直在为”结束一党统治”的中国而努力
+
+Their opponents say this breaches the national security law which forbids “sub-version”
+他们的反对者说这违反了禁止”颠复”的国家安全法
+
+But the Alliance remains defiant
+但支联会仍然不甘示弱
+
+They’re urging Hongkongers to light candles on 4 June
+他们呼吁香港人在6月4日点亮蜡烛
+
+I will light up a candle in the street
+我将在街上点燃一支蜡烛
+
+Are you going to arrest me for that?
+要为此逮捕我吗？
+
+HongKong allows political expression
+香港允许表达政治观点
+
+Are we letting them use their “red lines” to change our basic principle?
+我们是否允许他们用他们的“红线”来改变我们的基本原则？
+
+Or should we defend it?
+还是应该捍卫它？
+
+With the national security law, it’s become even more meaningful to commemo-rate 4 June
+随着国家安全法的出台，纪念六四变得更加有意义了
+
+Do we dare to come out?
+我们敢站出来吗？
+
+Do we dare to protect the candlelight to Victoria park?
+我们敢保护维多利亚公园的烛光吗？
+
+It reflects Hongkongers’ determination to resist
+它反映了香港人抵抗的决心
+
+As long as we don’t give up, there is still hope that Hongkongers can protect our freedom
+只要我们不放弃，香港人仍有希望保护我们的自由
+
+I am prepared to be arrested.
+我已经准备好被逮捕了
+
+This is how Hong Kong is now
+这就是香港现在的样子
+
+If you fight for democracy under an authoritarian regime, being arrested is un-avoidable
+如果你在一个专制政权下为民主而战，被逮捕是不可避免的
+
+Let it come
+让它来吧
+
+I am willing to pay the price for fighting for democracy
+我愿意为争取民主而付出代价
+
+On the morning of 4 June, 2021, Chow Hang Tung was arrested by Hong Kong police
+2021年6月4日上午，邹幸彤被香港警方逮捕
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: [https://twitter.com/bbcworld/status/1400671426663923712?s=21](https://twitter.com/bbcworld/status/1400671426663923712?s=21)
+
+英听校：康州盘古农场 – Mike Li
+翻译： 康州盘古农场 – Mike Li
+翻译终校：康州盘古农场 -格格巫
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场- 银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

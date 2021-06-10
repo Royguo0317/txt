@@ -1,54 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月9日美国政要反共推特精选：要求国会对新冠大流行的起因进行全面调查
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1311206/)
+## 浅谈墙内媒体的现状
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1311280/)
 
-参议员霍利新闻办公室： 在数千页电子邮件的泄露，进一步损害了福奇的信誉和声誉之后，霍利呼吁他辞职，并要求国会对新冠大流行的起因进行全面调查。
+撰稿人：Microkevin
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09201822/E1C38B35-B5CC-492E-8850-A208107336CD-edited.jpeg)
+图片来自网络
 
+今天打开某易网站国际新闻。扫了一眼标题。虽然没有一条条的看其内容，本人也没有兴趣去看。但是光看所有文章标题就已经让我哭笑不得，泱泱大国的门户网站上国际新闻主页所有消息除了几条和NBA有关的，剩下的文章标题全都是怼东，西方民主国家，第一条怼的是欧盟，第二条怼的是拜登，第三条怼的是美日印澳小北约，第三条怼的是川普总统，…….第六条怼的是加拿大的特鲁多，后面还有怼日本的，怼印度的。整个国际新闻板块就一个字“怼”。我就很纳闷怎么ccp统治中国70年了，上上下下，内政外交，从里到外全是你ccp把持。70年了，怎么跟哪个文明国家都处不好关系呢？我想说一句，在某易小编发文章舔俄罗斯的时候，知不知道前几天俄罗斯总统普京一个身边“管事的”刚说过，中俄不是联盟关系而是贸易伙伴关系。是个人都能听出来就是人家跟你拿钱办事的关系，不存在攻守同盟。我真服了这帮墙内媒体，还在舔俄罗斯呢。
 
+看某易国际新闻板块将近30多条国际消息，除了说俄罗斯好之外，就没有一条说其他国家好的，怎么在你ccp眼里东，西方民主国家就没好人么，有没有哪一个国家跟这世界上几乎所有文明民主国家关系都不好，还整天总说自己体制优越，先进，自信，如何如何文明，如何如何负责任。你ccp自己治下6亿人收入不足1000元，居然有脸整天说别国人生活在水深火热中。你ccp既得利益集团那么多家属和裙带关系，小三，小四，私生子啥的都跑到海外水深火热的地方过生活去了。墙内老百姓汇个几百美刀你左一个不行右一个不行，还有脸哔哔其他国所谓“歧视”问题。没有比你ccp更会歧视的了吧！另外，我很纳闷，怎么跟你ccp关系好的要么是些独裁国家，要么者国际知名恐怖组织，要不就是某些总统爱吃人肉的非洲国家，这就是你们自诩的负责任的文明大国么？
 
-> After the release of thousands of pages of emails that have further damaged the credibility and reputation of Fauci, Hawley is calling on him to resign and for a full congressional investigation into the origins of the COVID pandemic. [https://t.co/NQi2NuTBYd](https://t.co/NQi2NuTBYd)
-> — Senator Hawley Press Office (@SenHawleyPress) [June 9, 2021](https://twitter.com/SenHawleyPress/status/1402678526336245767?ref_src=twsrc%5Etfw)
+现在墙内媒体的现状就是，一眼望去几乎所有文章都来源于通稿或者是替通稿吹风，站台。除了几个ccp“御用文人”可以写一些所谓“个人评论性解读”，剩下的所有媒体的投稿人和作者几乎都没有敢写自己的见解的，对吧！
 
+由此可见，现今墙内媒体已经不是传播真相和监督公权力的平台了。现在的墙内媒体要么对外像疯狗已经四处出击，狂吠不止。要么对内宣传洗脑，操控人民行为和思想。要么就是ccp高层的各种宫廷斗争和收割民营企业的工具和帮凶。这样的媒体在我看来已经没有任何未来了，这样的媒体已经失去作为媒体对于整个社会的意义——传播真相和监督公权力，这样的媒体只是权力者的爪牙。而我认为，这种被操控的，工具化的，武器化的媒体最终会被世人看透和厌弃。
 
+未来只有像GTV和GNEWS这样的正义媒体才是每个人所需要的真正的媒体。
 
-众议院外交委员会共和党： 领袖麦考尔在福克斯就 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) Covid 掩盖事件说：“我认为所有路都指向武汉实验室那里。我确实认为是有一种说法是意外释放，但除非 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 开放，否则我们可能永远不会知道真相。” 看这里
+本文纯属个人观点
 
+*编辑：cindy*
 
+参考文献
 
-> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) with [@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw) on the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s Covid cover-up: “I think all roads lead to the Wuhan lab here. I do think there’s an argument that there was an accidental release, but we may never know the truth unless the Chinese Communist Party opens up.”
->  
-> Watch here⬇️ [pic.twitter.com/ndPiiTRFOy](https://t.co/ndPiiTRFOy)
-> — House Foreign Affairs GOP (@HouseForeignGOP) [June 9, 2021](https://twitter.com/HouseForeignGOP/status/1402694388917194754?ref_src=twsrc%5Etfw)
-
-
-
-众议员爱丽丝·斯泰凡尼可： 美国人民应该得到答案。国会必须对新冠的起源展开调查。 （附众议院共和党推特：行政管理和预算局代理局长，拒绝说拜登总统的预算不会资助武汉病毒学研究所。 你们缴纳的税款不该用于资助可能产出新冠的中国实验室。）
-
-
-
-> The American people deserve answers. Congress MUST launch an investigation into the origin of COVID-19. [https://t.co/bpZiaOwmBZ](https://t.co/bpZiaOwmBZ)
-> — Rep. Elise Stefanik (@RepStefanik) [June 9, 2021](https://twitter.com/RepStefanik/status/1402703178806841344?ref_src=twsrc%5Etfw)
-
-
-
-众议员布里安·斯太尔： 美国不应该直接或间接地资助中国共产党控制的实验室——如武汉病毒学研究所——的功能获得性研究
-
-
-
-> The United States should not be funding—directly or indirectly—gain-of-function research in CCP controlled labs, such as the Wuhan Institute of Virology.
-> — Bryan Steil (@RepBryanSteil) [June 9, 2021](https://twitter.com/RepBryanSteil/status/1402619594641129474?ref_src=twsrc%5Etfw)
-
-
-
-众议员布里安·马斯特： 无论是掩盖新冠肺炎疫情，还是侵犯人权，都必须全方位追究中共国的责任。 （转CNN报道：维吾尔人正被穆斯林国家驱逐出境，这引发了人们对中国影响力不断扩大的担忧）
-
-
-
-> From their COVID cover up to human rights abuse, China must be held accountable on all fronts.[https://t.co/Xj3VZPncVH](https://t.co/Xj3VZPncVH)
-> — Rep. Brian Mast (@RepBrianMast) [June 9, 2021](https://twitter.com/RepBrianMast/status/1402671838258401291?ref_src=twsrc%5Etfw)
-
-
-
+网易国际新闻中心 『OL』https://news.163.com/world/
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0
