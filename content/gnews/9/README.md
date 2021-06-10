@@ -1,32 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒疫苗的利润铸就了9个新的制药业亿万富翁
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1311119/)
+## 苹果手机新的“私人中继”功能将无法在中国使用
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1311107/)
 
-阿黎
+翻译：康州盘古农场 – 柯镇恶
 
-加拿大独立国会议员兰迪-西里尔今天发推，揭示中共病毒疫苗的利润铸就了9个新的制药业亿万富翁。他在推文中说，是什么推动了（中共病毒）大流行的发生？利润和收益是强大的激励因素，一个由虚无主义者组成的社会很容易成为制造恐惧的受益者的猎物。
+校对：康州盘古农场 – Mike Li
 
+编辑：康州盘古农场 – 明子
 
+发布：康州盘古农场-恩典
+![此图像的alt属性为空；文件名为20210609__unknown-3.png]()![此图像的alt属性为空；文件名为20210609__unknown-3.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09174855/20210609__unknown-3.png)
+**据《路透社》作者：Stephen Nellis，Paresh Dave  2021年6月8日报道：**
 
-> Covid vaccine profits mint 9 new pharma billionaires – CNN. What drives a pandemic? Profits and ill-gotten gains are powerful incentives and a society of nihilists are easy prey for the fear mongering beneficiaries. [#onpoli](https://twitter.com/hashtag/onpoli?src=hash&amp;ref_src=twsrc%5Etfw) [#cdnpoli](https://twitter.com/hashtag/cdnpoli?src=hash&amp;ref_src=twsrc%5Etfw) [#wearelivingalie](https://twitter.com/hashtag/wearelivingalie?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/SeYltXTbtg](https://t.co/SeYltXTbtg)
-> — Randy Hillier (@randyhillier) [June 9, 2021](https://twitter.com/randyhillier/status/1402622713290690564?ref_src=twsrc%5Etfw)
+苹果公司(Apple)周一表示，出于监管原因，中国用户将无法使用新的“私人中继”功能，该功能旨在防止互联网服务提供商和广告商跟踪用户的网络浏览行为。
 
+该功能是苹果公司周一在其年度软件开发者大会上宣布的多项隐私保护措施之一，这是该公司多年来努力减少广告商和其他第三方对其用户的跟踪的最新举措。
 
+苹果在中国取消该功能的决定，是该公司在一个占其营收近 15% 的国家就隐私方面做出的一系列妥协中的最新一次。
 
-据伦敦CNN Business5月21日报道，生产中共病毒疫苗的公司股价近日飙升，造就了至少9位新的亿万富翁。
+2018 年，苹果移走了用于锁定中国用户 iCloud 数据的数字密钥，从而允许当局通过国内法院来获取用户信息。
 
-在新的亿万富翁名单中名列前茅的是莫得纳（Moderna）的首席执行官史蒂夫-班赛尔（Stéphane Bancel）和BioNTech（BNTX）的首席执行官乌格-撒因（Ugur Sahin），中国康希诺生物制品公司的高管和莫得纳公司的早期投资者也成为了纸面上的亿万富翁。
+在中国执政的共产党维持着一个庞大的监控系统，以密切关注公民如何使用该国已经受到严格控制的互联网。在习近平主席的领导下，中共国的异议空间缩小了，审查制度扩大了。
 
-自2020年2月以来，莫得纳的股价上涨了700%以上，而BioNTech飙升了600%。康希诺公司的股价在同一时期内上涨了约440%。
+**苹果手机的**“**私人中继**”**功能的原理是，首先将网络流量发送到苹果公司维护的服务器，在那里它被剥离了一段称为 IP 地址的信息。然后，从那里，苹果公司将流量发送到由第三方运营商维护的第二台服务器，该服务器为用户分配一个临时 IP 地址并将流量继续发送到其目标网站。**
 
-关于中共病毒疫苗对接种者造成的伤害和死亡已有无数报道，主要的伤害包括在体内形成血栓，造成心脏疾病、脑栓塞、肺栓塞，严重者可造成死亡；削弱人体免疫力，包括破坏癌症免疫蛋白，大大增加患癌症几率；孕妇流产、面瘫、失明、耳聋、瘫痪、癫痫、神经系统出血、皮疹和晕厥等，澳大利亚有报道一接种者患上艾滋病。
+苹果公司表示，在中继系统的第二跳中使用外部服务商是有意的，这是为了防止苹果公司知道用户的身份和用户正在访问的网站。
 
-目前，第一位疫苗接种者已死亡。我们是否可以预期半年或一年后更多的接种者遭遇不幸？会否出现癌症大爆发？诺贝尔获奖者鲁克-蒙塔格涅尔（Luc Montagnier)推测的两年内接种疫苗的人将无法生还是危言耸听吗？
+苹果公司表示，“私人中继”服务也不会在白俄罗斯、哥伦比亚、埃及、哈萨克斯坦、沙特阿拉伯、南非、土库曼斯坦、乌干达和菲律宾提供。
 
-* * *
+苹果尚未透露将在系统中使用哪些外部合作伙伴，但表示计划在未来公开它们。该功能可能要到今年晚些时候才会向公众开放。
 
-*编辑、发稿 文锦*
+IP 地址可用来以多种方式跟踪用户，包括作为“指纹”的关键要素，这是一种广告商将不同的数据串在一起以推断用户身份的做法。苹果公司和谷歌公司都禁止这种做法。
 
-+1
+数字营销公司 Adswerve 的创新主管查尔斯·法里纳 (Charles Farina) 告诉路透社，结合苹果之前的措施，“私人中继”功能“将有效地使 IP 地址无法用作指纹识别机制”。
+
+他说，它还可以防止广告商使用 IP 地址来确定一个人的位置。
+
+【评论】：看完这个新闻，小柯眉头一皱，发现事情并不简单。
+
+我们知道，所谓的“翻墙”，其原理就是：设置一个中间代理节点，然后用户端先将流量发送到代理节点，再由代理节点将流量转发到目标网站。
+
+这样看来，苹果手机最新的“私人中继”服务，不就是一个官方的翻墙服务吗？
+
+由于目前没有足够的信息，无法作出明确的判断。但是如果这个“私人中继”功能确实如新闻中所描述，那这确实就是一个翻墙服务。虽然说该功能在中共国不可用，但是有心人总有办法获取到非中共国版本的苹果手机。
+
+目前要实现手机翻墙，对大多数人来说还是有一定技术难度的。但是如果使用带有这个“私人中继”功能的苹果手机，那么手机一开机，啥都不用干，直接就自带翻墙功能，这是啥概念啊！
+
+苹果公司对中共的妥协是众所周知的，所以，虽然我们不指望苹果公司来推倒防火墙，但是我有一种感觉，一种直觉，这是一个征兆，感觉距离防火墙的倒塌真的不远了。
+
+因为，苹果公司官方所说的设计这个功能是为了保护用户隐私，我认为这只是一种表面的说法。也许，只是也许哈，也许是有别的服务商要提供类似服务，苹果公司感受到了竞争压力，所以出了这个功能。只是一种猜想，希望能猜对吧。
+
+原文链接：[https://www.reuters.com/world/china/apples-new-private-relay-feature-will-not-be-available-china-2021-06-07/](https://www.reuters.com/world/china/apples-new-private-relay-feature-will-not-be-available-china-2021-06-07/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

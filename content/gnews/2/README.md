@@ -1,29 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登首次外访，G7峰会和美俄会晤，引人关注
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1311167/)
+## 6月9日美国政要反共推特精选：要求国会对新冠大流行的起因进行全面调查
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1311206/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09191600/28-1.jpg)
-美国总统拜登周三晚间抵达英国，将出席为期三天的七国集团领导人峰会。这是拜登的首次外访，其中还包括将在瑞士会晤俄罗斯总统普京。因此这次拜登的外访行程格外引人注目，而无论是G7峰会还是中俄会晤，都必然绕不开“中共国”的话题。
+参议员霍利新闻办公室： 在数千页电子邮件的泄露，进一步损害了福奇的信誉和声誉之后，霍利呼吁他辞职，并要求国会对新冠大流行的起因进行全面调查。
 
-拜登在飞机上发推文称，“**我深知民主国家可以团结起来迎接这个新时代的挑战，本周在欧洲，我们将证明这一点”**。这句话意味深远，拜登与川普最大的不同是，不刷存在感，在关键问题上，用行动来证明自己的立场。自从美国严重认识到来自中共的威胁之后，拜登总统的策略就是联合所有利益一致的盟友，形成强大的联盟，共同抵御中共的侵略，而这一点无论是从美国对日韩解封，还是与欧洲的频繁互动都应证了中共威胁是目前文明国家面临的最大挑战。
 
-报道说，拜登政府计划向全球捐赠5亿剂辉瑞药厂的新冠疫苗，可能会在七国集团会议上，正式宣布有关计划。面对中共国高调地用“疫苗外交”重塑其国际形象，美国自然也不会任由其表演，疫苗短缺对许多国家都产生了非常大的民众恐慌，因此，此时如果表态捐赠大量的疫苗，对美国在世界上的地位肯定是非常积极和正面的。
 
-报道称，拜登此次欧洲行程，是将先前往英国参加七国集团（G7）峰会，14日及15日赴比利时布鲁塞尔与北约和欧盟举行峰会，16日在瑞士日内瓦会见俄罗斯总统普京，每个行程都是之前各国互动的延续，而其中各国针对中共的立场表态，恐怕是牵动中南坑夜不能寐的重要原因。
+> After the release of thousands of pages of emails that have further damaged the credibility and reputation of Fauci, Hawley is calling on him to resign and for a full congressional investigation into the origins of the COVID pandemic. [https://t.co/NQi2NuTBYd](https://t.co/NQi2NuTBYd)
+> — Senator Hawley Press Office (@SenHawleyPress) [June 9, 2021](https://twitter.com/SenHawleyPress/status/1402678526336245767?ref_src=twsrc%5Etfw)
 
-在中国议题之上，欧盟已经承认了中共对世界民主构成的威胁，支持美国的民主联盟，而且中欧投资协定的中止，则是用实际行动证明欧洲与中共之间的对立。
 
-另外，拜登下周三在日内瓦与俄罗斯总统普京会面也格外引人关注，**俄罗斯与中共一样，被美国视为威胁，但美俄两国并没有切断沟通的渠道，甚至两国元首会晤则释放了积极的信号**，美国已经对日本韩国抛出了十分有震撼力的橄榄枝，换取坚定的支持，是否会同样给俄罗斯解封，来换取普京的站队呢？我们将密切关注。
 
-（本文只代表作者观点，与Gnews平台无关。）
+众议院外交委员会共和党： 领袖麦考尔在福克斯就 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) Covid 掩盖事件说：“我认为所有路都指向武汉实验室那里。我确实认为是有一种说法是意外释放，但除非 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 开放，否则我们可能永远不会知道真相。” 看这里
 
-**新闻来源**：
 
-[拜登抵英准备出席七国集团峰会 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210609-%E6%8B%9C%E7%99%BB%E6%8A%B5%E8%8B%B1%E5%87%86%E5%A4%87%E5%87%BA%E5%B8%AD%E4%B8%83%E5%9B%BD%E9%9B%86%E5%9B%A2%E5%B3%B0%E4%BC%9A)
 
-***校对发布**：文顾*
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) with [@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw) on the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s Covid cover-up: “I think all roads lead to the Wuhan lab here. I do think there’s an argument that there was an accidental release, but we may never know the truth unless the Chinese Communist Party opens up.”
+>  
+> Watch here⬇️ [pic.twitter.com/ndPiiTRFOy](https://t.co/ndPiiTRFOy)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [June 9, 2021](https://twitter.com/HouseForeignGOP/status/1402694388917194754?ref_src=twsrc%5Etfw)
+
+
+
+众议员爱丽丝·斯泰凡尼可： 美国人民应该得到答案。国会必须对新冠的起源展开调查。 （附众议院共和党推特：行政管理和预算局代理局长，拒绝说拜登总统的预算不会资助武汉病毒学研究所。 你们缴纳的税款不该用于资助可能产出新冠的中国实验室。）
+
+
+
+> The American people deserve answers. Congress MUST launch an investigation into the origin of COVID-19. [https://t.co/bpZiaOwmBZ](https://t.co/bpZiaOwmBZ)
+> — Rep. Elise Stefanik (@RepStefanik) [June 9, 2021](https://twitter.com/RepStefanik/status/1402703178806841344?ref_src=twsrc%5Etfw)
+
+
+
+众议员布里安·斯太尔： 美国不应该直接或间接地资助中国共产党控制的实验室——如武汉病毒学研究所——的功能获得性研究
+
+
+
+> The United States should not be funding—directly or indirectly—gain-of-function research in CCP controlled labs, such as the Wuhan Institute of Virology.
+> — Bryan Steil (@RepBryanSteil) [June 9, 2021](https://twitter.com/RepBryanSteil/status/1402619594641129474?ref_src=twsrc%5Etfw)
+
+
+
+众议员布里安·马斯特： 无论是掩盖新冠肺炎疫情，还是侵犯人权，都必须全方位追究中共国的责任。 （转CNN报道：维吾尔人正被穆斯林国家驱逐出境，这引发了人们对中国影响力不断扩大的担忧）
+
+
+
+> From their COVID cover up to human rights abuse, China must be held accountable on all fronts.[https://t.co/Xj3VZPncVH](https://t.co/Xj3VZPncVH)
+> — Rep. Brian Mast (@RepBrianMast) [June 9, 2021](https://twitter.com/RepBrianMast/status/1402671838258401291?ref_src=twsrc%5Etfw)
+
+
 
 0

@@ -1,32 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国疫苗作用引怀疑，为遮掩出炉新谎言
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1310952/)
+## 拜登誓向俄罗斯和中国表明，他的首次出国访问显示美欧联盟关系高度“紧密”
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1310926/)
 
-作者：大头猫 | 校对：文明明 | 审核：SilvrSpurs7 | Page：青山
+#### 编译：文复
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09164130/Screenshot-2021-06-09-1.40.21-PM.png) 图片截自网络
+拜登总统在华盛顿邮报的一篇专栏文章中预演了他周三开始的为期八天的旅行，“成型于上世纪的民主联盟和机构能否证明它们有能力抵御现代威胁和对手？我相信答案是肯定的。本周在欧洲，我们有机会证明这一点。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0EteUE7zfyiIl/images/0f44c065-1e23-45e4-bb12-42fbcafc4067.jpg?asset_id=fade6ac6-9eb6-4f9e-817d-65af449229e3&amp;img_etag=%22be3879e54491963564f2b8fc2ef5ccdc%22&amp;size=2560)](https://spark.adobe.com/page/0EteUE7zfyiIl/images/0f44c065-1e23-45e4-bb12-42fbcafc4067.jpg?asset_id=fade6ac6-9eb6-4f9e-817d-65af449229e3&amp;img_etag=%22be3879e54491963564f2b8fc2ef5ccdc%22&amp;size=1024)
+白宫新闻秘书 Jen Psaki 星期二有些戏剧性地描述了他如何为总统任期内的第一次出国旅行做准备：“他已经准备了 50 年。他一直在世界舞台上，认识许多这些领导人几十年了，包括普京总统，包括他将在北约和七国集团见到的一些领导人。现在，这是他亲自见到他们的重要机会，没有什么比面对面的外交盟约更重要了。”
 
-中共国利用集权体制和封锁信息、压制言论、洗脑的手段，大肆鼓吹国产疫苗作用，要求应接尽接，甚至有的地区挨户敲门检查接种情况，媒体上经常出现人群蜂拥排长队接种的场面。
+或者不那么雄心勃勃的政府可能希望简单地扭转卡马拉哈里斯在危地马拉之行中的一系列失误所造成的公关打击。似乎她是唯一一个称其为“成功”的人——值得注意的是，即使是 CNN 也称其为“艰难的”，并描述行政官员对她的一些言论“感到困惑”。周三早上，拜登登上空军一号时表示，在即将举行的与盟友以及普京的峰会上，他将向俄罗斯和中国表明美欧联盟是“紧密的”。进一步重申其口号“美国回来了”，而之前，在特朗普执政四年后，政府将其与盟友的关系描述为受损。
 
-但是，近来出现了已经接种疫苗的人确诊感染的情况，特别是最近广东疫情的爆发，出现了多例疫苗接种者再次感染的情况，引起民众质疑。已经接种了疫苗还能感染，那么接种的意义何在呢？眼看着疫苗的谎言要露馅了，为了及早扑灭更多人醒悟的星星之火，政府部门的新谎言很快出现在了各媒体版面。国家疾控中心的专家说，疫苗分为三个等级，一是防感染，二是防发病，三是防传播，现在打的疫苗是第二级，就是只防发病。
+拜登将于周三会见俄罗斯总统弗拉基米尔.普京，这是他们自拜登成为总统以来的首次面对面会晤。白宫国家安全顾问杰克沙利文周一表示，尚不清楚两位领导人是否会在会谈后举行联合
 
-这个解释一出来，更引发议论了。第一，几亿人已经注射了疫苗，这种疫苗作用分类的重要消息怎么才告诉大家?这算不算欺诈？第二，打过疫苗的人都以为自己安全了，按正常生活方式到处走，但是，其实仍然能传播病毒给别人，同时自己也仍然能被别人传染，全社会将面临多么巨大的风险？第三，打了这种疫苗的人，会不会就算发病也有可能躲过检测试剂而不被发现呢？
+新闻发布会。
 
-如果以后出现新情况，再次破了你们这个谎言，你们又有什么新辩解出来呢？一个谎言要用一百个新谎言去圆，你们是在锻炼辩手吗？
+文章来源：[点击进入](https://www.zerohedge.com/political/biden-vows-show-russia-china-us-europe-alliance-tight-high-stakes-1st-trip-abroad?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
-通过这些事情，我们要牢记郭先生和闫博士的嘱咐：保护好自己，科学吃羟氯喹，不打疫苗，坚持到胜利的那一天！相信共产党，只有跑步进入火葬场！
-
-🔗原文链接：[打完新冠疫苗也有可能感染？中国疾控中心研究员邵一鸣：疫苗保护作用分三级，各级防护不同](http://www.nbd.com.cn/articles/2021-06-08/1783985.html)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/0EteUE7zfyiIl/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/0EteUE7zfyiIl/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+校对发布：紫橄榄
 
 0
