@@ -1,42 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报-病毒篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1312133/)
+## 【中国观察】中共国科技公司极端手段监控员工——还是选择躺平吧
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1312344/)
 
-- 作者：此生灭共
+翻译：文扬
 
+校对/编辑：文泓
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10063225/image2-1-1.png)图片来源：CSO Australia
+**译论：**
 
-***更多真相，请关注******[Gtv、Gnews！](https://gtv.org/)***
+在中共国做一名打工者，身份简直卑微到了极点，“互联网生态文化”9-9-6已经压得人透不过气来，现在中共国科技公司又采取高科技监控手段，监控员工工作时的一切隐私，个中细节让人不寒而栗。当然这与中共推崇的警察社会是一脉相承的，深究一下，是中共治下的整个社会都出了大问题。
 
-**西班牙2021年6月10日电/西喜社——**
+当前，中共国国际生存空间日趋压缩，与西方社会彻底脱钩只是一个时间问题；国内银行窟窿难补，通货膨胀高企、经济低迷持续。中共还在拼命压榨企业，企业一味盘剥员工，整个社会进入“内卷”循环，科技公司全面监控员工只是社会矛盾爆发前的一个插曲。郭先生指出，中共灭亡前夕的疯狂会带走很多无辜者。为了不至成为中共灭亡时的牺牲品，国内同胞们请尽量选择躺平吧。
 
-1.地中海邮轮乘客的 COVID-19 检测呈阳性
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10053955/10A.jpg)
-华盛顿邮报6月9日电，MSC Cruises表示，本周在地中海游轮上进行例行检查时，两名乘客的[冠状病毒](https://www.washingtonpost.com/coronavirus/?itid=lk_inline_manual_2)检测呈阳性。邮轮公司表示，乘客及其随行人员都在西西里岛锡拉库萨离开了船，并于周二“通过受保护的地中海邮轮公司运输”带回家。Biondolillo说，MSC船上的乘客不需要接种疫苗，但他们必须被多次检测。[www.washingtonpost.com](https://www.washingtonpost.com/travel/2021/06/09/msc-cruise-covid-passenger-italy/)
+**译文：**
 
-2.医生担心印度COVID-19变种病毒令人不安的新症状
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10054017/10-B.jpg)
-纽约邮报6月9日电，印度的医生担心，[新型COVID-19变体](https://nypost.com/2021/06/07/as-indias-covid-surge-wanes-families-deal-with-the-devastation/)造成了一些新症状，包括血栓引起的坏疽、听力障碍和严重的胃部不适。曾在七山医院治疗过八名患者的孟买心脏病专家Ganesh Manudhane博士说，他的一些患者已经形成了微血栓，在严重时，这些凝块会导致受影响的组织死亡并出现坏疽。[nypost.com](https://nypost.com/2021/06/09/doctors-fear-alarming-new-symptoms-linked-to-indian-covid-variant/)
+——中共国科技公司正在采用极端的监控手段，以确保员工保持生产力。
 
-3.拜登政府表示，接种 COVID-19 疫苗不是在联邦大楼亲自工作的先决条件
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10054051/10C.jpg)
-福克斯6月9日电，拜登政府不要求工作在联邦大楼的雇员接种冠状病毒疫苗，虽然联邦劳动力工作组“强烈”建议员工接种疫苗，但它目前建议疫苗接种状态[不应成为面对面就业的先决条件](https://www.saferfederalworkforce.gov/faq/vaccinations/)。政府还指出，不应要求员工披露其疫苗接种情况。[www.foxnews.com](https://www.foxnews.com/politics/biden-administration-covid-19-vaccination-not-a-precondition-employment)
+——许多中共国员工实行12小时的“朝九晚九，一周工作六天的9-9-6 ”轮班制，而且在“第三只眼”的注视下工作。
 
-4. 178 名医护人员因拒绝接受 COVID-19 疫苗接种而被休斯顿卫理公会医院系统停职
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10054112/10-D.jpg)
-今日美国6月9日电，休斯顿医院系统的178名工人因拒绝接种新冠疫苗而被停职并面临被解雇，这引发了人们的抗议。休斯顿卫理公会首席执行官 Marc Boom说，178名被停职的工人中有27人已经接种了一剂疫苗，他希望他们能接种第二剂。所有人都将被停职两周，如果未能完全接种疫苗，他们将被解雇。[eu.usatoday.com](https://eu.usatoday.com/story/news/health/2021/06/09/houston-methodist-hospital-workers-refuse-covid-vaccine-get-suspended/7616446002/)
+——来自“第三只眼”的（工作）效率报告细分了员工在每个网站上花费的时间，以及其他数据。
 
-5.英国记录了 7,540 例 COVID-19 病例，6 例死亡
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10054214/10E-scaled.jpg)
-路透社6月9日电，英国在周三报告了7,540例冠状病毒病例，和6 例新的死亡病例. [www.reutersagency.com](https://www.reutersagency.com/en/media-center/welcome-to-the-new-reuters-com/)
+在上个工作岗位，32岁的北京人蒋毅（音译）从登录办公室网络的那一刻起，就知道自己被监视了。因为他的前雇主，一家位于中共国首都的中型科技公司，使用监控软件“第三只眼”，将所有员工置于公司的监视之下。
 
-审核：蚂蚁兄弟； 校对：信心满满； 发稿：Nuevo唐人
+“我当时每天工作12到16个小时写代码。有一天，我的老板来找我，挥舞着一张纸，问我为什么要看两个视频而不完成本职工作，这件事简直让我崩溃，”蒋毅说。
 
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+类似于美国使用的一些员工监控软件，如 CloudDesk，该系统监控网络使用情况和空闲时间。但“第三只眼”更进了一步，**除了监控聊天记录，实时****监控每位员工正在查看的内容外，该软件还会在员工查看媒体网站上的视频或****看招聘信息时****向雇主发出****提示**。
 
+蒋毅说，**每周监控软件都会为雇主生成“（工作）效率报告”。这些报告提供了每个员工所查看内容的精确细分，按网站和应用程序分类。**
 
+“这个系统让员工感到害怕。他们知道他们在 12 小时的轮班制中一直在被监视。即使没有生活在恐惧中，9-9-6 的生活已经够悲惨了。” 蒋毅指的是中共国的“互联网公司生态”文化，上班族每周工作 6 天，从上午 9 点到晚上 9 点，每天工作 12 小时。
 
+他说，他的一些同事甚至觉得系统迫使他们工作“007”天——从零点到零点，一周工作7天的俚语。
 
+在该公司的网站上，该系统声称“全能、可控、稳定”，“适应一切颠覆监视手段”。它列出了大约一千个客户，从政府实体到科技公司。
 
-+1
+类似这样奥威尔式监控系统在中共国并不新鲜。2018年，移动监控应用“中端通”被开发出来，用于实时跟踪员工的位置。迄今为止，约有347家公司在使用该应用程序，它可以监测员工在厕所里花了多长时间，以及他们在办公时间内的确切位置。
+
+据日经新闻的报道，提供在线监控系统的深信服科技股份有限公司还开发了一种方法，让企业在员工使用公司Wi-Fi时跟踪他们的移动浏览历史和应用使用记录。
+
+阿里巴巴、字节跳动、小米和新浪公司是深信服的主要客户，这家公司阻止了中国版Twitter新浪微博的移动应用程序，担心该社交软件影响员工生产力。
+
+这种监控可能很快就会超越对员工行为的监控，而延伸到他们的内心感受。去年11月，香港出版物《中国周刊》的一篇文章写道，佳能中国正在推出一种安全摄像机，只有在员工在每天的脸部扫描中露出笑容时才允许他们进入工作场所。
+
+佳能中共国区副总裁江原泰诚（Ehara Taisei）对《中国周刊》说：“我们希望通过笑脸可以缓解因疫情造成的沉闷气氛。”
+
+中国电子科技大学副教授贾凯（音译）质疑人类社会在多大程度上可以由程序管理，他对《日经新闻》说，计算机系统只能捕捉“人类行为的简化版本”。
+
+“例如，如果一个员工今天感冒了，程序是否能够检测到这一点，并为该人完成工作提供更多时间？答案是否定的，”贾凯告诉日经新闻。
+
+原文链接：
+
+[Chinese tech companies are using ‘Third Eye’ surveillance software to make sure their tech workers are pulling punishing ‘9-9-6’ shifts](https://www.insider.com/chinas-tech-staff-work-punishing-hours-under-extreme-surveillance-2021-6)
+[https://www.insider.com/chinas-tech-staff-work-punishing-hours-under-extreme-surveillance-2021-6](https://www.insider.com/chinas-tech-staff-work-punishing-hours-under-extreme-surveillance-2021-6)
+
+0
