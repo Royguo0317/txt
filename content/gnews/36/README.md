@@ -1,54 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月9日美国政要反共推特精选：要求国会对新冠大流行的起因进行全面调查
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1311206/)
+## 【拆臺新闻】“延安精神” 淫乱史，百姓的精神鸦片
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1311177/)
 
-参议员霍利新闻办公室： 在数千页电子邮件的泄露，进一步损害了福奇的信誉和声誉之后，霍利呼吁他辞职，并要求国会对新冠大流行的起因进行全面调查。
+#### 作者:紫橄榄
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09200755/img_5c2734fcc639b-640x1053-1.png) 图片源自网络
+**【媒体观点】**
 
+央视信息：中共中央宣传部今天（6月9日）举行新闻发布会，陕西省有关负责同志围绕“弘扬延安精神，奋力谱写陕西新时代追赶超越新篇章”主题，介绍陕西的经济社会发展情况。
 
+中共陕西省委书记、省人大常委会主任刘国中介绍，陕西是中华民族和华夏文明的重要发祥地之一，有着光荣的革命历史。陕西全省经济总量由新中国成立之初不足13亿元增长到去年的2.62万亿元，各项事业呈现出新气象新作为。
 
-> After the release of thousands of pages of emails that have further damaged the credibility and reputation of Fauci, Hawley is calling on him to resign and for a full congressional investigation into the origins of the COVID pandemic. [https://t.co/NQi2NuTBYd](https://t.co/NQi2NuTBYd)
-> — Senator Hawley Press Office (@SenHawleyPress) [June 9, 2021](https://twitter.com/SenHawleyPress/status/1402678526336245767?ref_src=twsrc%5Etfw)
+陕西坚持在发展中保障和改善民生，全省288万农村贫困人口脱贫，56个贫困县全部摘帽。开启“十四五”新征程，陕西将继续弘扬延安精神，奋力谱写陕西新时代追赶超越新篇章。
 
+**【笔者评论】**
 
+上述讯息为2021年6月9日中共国央视新闻联播的报道，笔者认为，中共从建立起最擅长骗术与洗脑中国人民，用各种党精神与党文化偷换概念以忽悠华夏百姓，中共的“延安精神”实为一个官廷与宫廷争夺史，以“延安精神”忽悠百姓，强注精神鸦片，而要百姓分得半条被子而感恩＂党妈＂，从下面三点看法概括如下：
 
-众议院外交委员会共和党： 领袖麦考尔在福克斯就 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) Covid 掩盖事件说：“我认为所有路都指向武汉实验室那里。我确实认为是有一种说法是意外释放，但除非 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 开放，否则我们可能永远不会知道真相。” 看这里
+**一，“延安精神”官廷争夺史**
 
+“延安精神”从“延安整风运动”开始，说是一次马克思主义思想教育运动，清除了教条主义的影响，实质是毛泽东引入派系的的马克思主义–苏维埃政府赤匪军 从井冈山被国民政府正规军火力追打，从湘江战役全面溃败后，欲通过河本走 河西走廊投向苏联逃窜， 即所谓欺骗中国人民的“万里长征”到延安红色根据地当地苏维埃政府。
 
+到达延安后，毛泽东派系为了取替当地延边陕甘宁地区的军政袖刘志丹
 
-> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) with [@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw) on the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s Covid cover-up: “I think all roads lead to the Wuhan lab here. I do think there’s an argument that there was an accidental release, but we may never know the truth unless the Chinese Communist Party opens up.”
->  
-> Watch here⬇️ [pic.twitter.com/ndPiiTRFOy](https://t.co/ndPiiTRFOy)
-> — House Foreign Affairs GOP (@HouseForeignGOP) [June 9, 2021](https://twitter.com/HouseForeignGOP/status/1402694388917194754?ref_src=twsrc%5Etfw)
+受训于广州黄埔军校四期的刘志丹在陕甘宁苏区影响力是无人可取替的。
 
+为了用一个政治正确的整治党风运动先发制对方于死地，毛泽东派系发动“整风肃反”运动，把风暴引向当地苏区政府的领袖刘志丹。刘及手下的几千忠诚处死，或者故意派到前线阵地与国民政府军激战，把他们扔在炮火中“牺牲”，刘志丹就是其中之一。
 
+1936年4月14日，刘志丹率部下攻打山西中阳县与国民军交战，刘志丹在前线被“阵亡”。
 
-众议员爱丽丝·斯泰凡尼可： 美国人民应该得到答案。国会必须对新冠的起源展开调查。 （附众议院共和党推特：行政管理和预算局代理局长，拒绝说拜登总统的预算不会资助武汉病毒学研究所。 你们缴纳的税款不该用于资助可能产出新冠的中国实验室。）
+毛泽东 假惺惺在瓦窑堡举行追悼大会哀悼刘志丹，题词：“群众领袖，民族英雄”,心中暗暗窃喜夺到中共的党魁宝座当舵手。
 
+**二，“延安精神”宫廷夺爱史**
 
+“革命圣地”延安， 人间地狱的淫乱共妻生活，《一个革命的幸存者》曾志女士的书中描述延安延安整风运动的细节：“白天走上街头巷尾或深入农村，晚上回来却是又
 
-> The American people deserve answers. Congress MUST launch an investigation into the origin of COVID-19. [https://t.co/bpZiaOwmBZ](https://t.co/bpZiaOwmBZ)
-> — Rep. Elise Stefanik (@RepStefanik) [June 9, 2021](https://twitter.com/RepStefanik/status/1402703178806841344?ref_src=twsrc%5Etfw)
+唱又闹，疯疯癫癫的。夜间男女也不分，几个人挤在一张床上。”
 
+延安整风运动，中共高官开始了第一轮的换妻潮，《台湾人的长征记录——江西苏区･红军西窜回忆》一书的作者蔡孝干撰写回忆 ，当年中共高层在苏区淫乱的共妻生活。
 
+朱鸿召著书《延安日常生活中的历史（1937-1947）》指出，中共在延安时期，权力跟性二者有著密不可分的关系。邓力群趁著李锐在延安整风时挨整之际，趁虚而入，占有了李锐年轻的妻子范元甄。这些都是当时延安流行的一种风气。
 
-众议员布里安·斯太尔： 美国不应该直接或间接地资助中国共产党控制的实验室——如武汉病毒学研究所——的功能获得性研究
+郑超麟的回忆录《革命与恋爱》，中宣部长彭述之先是与蔡和森的妻子向警予胡搞，又与罗亦农的妻子睡到了一起；向警予死后，蔡和森又夺去了李立三的妻子李一纯， ……
 
+中共的乱沦文化始于从欧洲引进马克思共产国际的邪恶思想，百年全部侵吞华夏的传统文化：夫妻忠诚如一，家庭亲情至上的美德。
 
+**三，农村贫困的原因**
 
-> The United States should not be funding—directly or indirectly—gain-of-function research in CCP controlled labs, such as the Wuhan Institute of Virology.
-> — Bryan Steil (@RepBryanSteil) [June 9, 2021](https://twitter.com/RepBryanSteil/status/1402619594641129474?ref_src=twsrc%5Etfw)
+中共用集权专制和二元制度把农村农民的碎片化，农村人口没有任何资格分享国家红利，用驭民一五术让百姓穷困中而不知觉如温井中的青蛙无知无觉，为一日三餐而忙碌奔波，没有自由思想，更不会去思考自己几代人穷困的主因是什么？
 
+而在中共非法统治的一个手腕是隐秘不被贫穷的农村百姓所察觉。每年春节前到门口用送半条被子给百姓，好让百姓感恩戴德称中共为党妈，这就是中共的邪恶–持久战术。
 
+**总之，**中共气数百年必尽，中共的喉舌和媒体之所以加大力度的宣传其“延安精神”，“党文化’，”长征大逃亡精神”。他们知道已经到达灭亡之日，全球各国围堵中共于兵临城下，中共必为他们所制造的超限生物大战，让全世界各国与人民付出代价，就是中共的灭亡之时。
 
-众议员布里安·马斯特： 无论是掩盖新冠肺炎疫情，还是侵犯人权，都必须全方位追究中共国的责任。 （转CNN报道：维吾尔人正被穆斯林国家驱逐出境，这引发了人们对中国影响力不断扩大的担忧）
+2021年6月9日
 
+免责声明： 本文只代表作者观点， 与 Gnews平台无关。
 
-
-> From their COVID cover up to human rights abuse, China must be held accountable on all fronts.[https://t.co/Xj3VZPncVH](https://t.co/Xj3VZPncVH)
-> — Rep. Brian Mast (@RepBrianMast) [June 9, 2021](https://twitter.com/RepBrianMast/status/1402671838258401291?ref_src=twsrc%5Etfw)
-
-
+信息来源：[央网](https://news.cctv.com/2021/06/09/ARTIOqqmRlyb0cJdF4BGuqnT210609.shtml) [BBC](https://www.bbc.com/zhongwen/simp/indepth/2013/12/131217_mao_yuyingshi_iv)
 
 0

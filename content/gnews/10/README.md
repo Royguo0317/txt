@@ -1,35 +1,314 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国的足球梦
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1311486/)
+## 他辜负国家，自己赚了钱，福奇博士是一个比以往任何时候都更大官僚
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1311439/)
 
-原创：维京商人
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09225154/20191003042830_80195.jpg)
-君不见中共国的国家男子足球队在阿联酋迪拜开始了2022年世界杯亚洲区40强预选赛最后几轮的较量。中共国男足的这几个对手各个可谓兵强马壮、实力不俗，从印度洋岛国、人口已过50万的马尔代夫，到饱受战火洗礼的叙利亚，每一个对手中共国男足都没有百分百的把握战而胜之，当然，他们刚刚大胜了大名鼎鼎的太平洋岛国足球强国关岛队和东南亚第一篮球强国菲律宾。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09225202/v2-e7bdeb8e3d0bb0fd75a718cc87586ab2_720w.jpg)
-稍微有点经历的球迷都会对近年来中共国足球水平的衰落唏嘘不已，不但没有接近世界先进水平，反而从亚洲一流退化到了亚洲二流，甚至大步迈向三流。难怪有人戏言，中共国足球和足球是两个项目。郝海东先生曾经多次在路德访谈节目中从专业体育参与者和管理者的角度解读了他眼中的中共国足球，那么，笔者也试着从一个草根球迷的角度看看中共国足球和足球到底有什么区别。
+**字幕內容：**
 
-首先，足球运动的基础是业余足球。在中共国，老百姓是热爱足球的，大城小市，街头巷尾，早些年总是能够看到摆块砖头就踢的小伙伴们，更不需要什么真草或者人工草场来助兴，黄土地柏油路都没问题。那么为什么这么多喜爱足球的人就不能促成业余足球水平的推广和提高呢？这个事情还真要从中共国足球和足球运动的区别谈起。
+**Greg Kelly (Newsmax host)
+格雷格·凯利 （Newsmax 主持人）**
 
-无论在西方发达国家还是发展中国家，每个国家都无一例外在社区或学校提供力所能及的场地设施给民众使用，而且所有国家的人民都以进行运动为骄傲，无论种族、肤色、年龄。反观中共国，举国上下最最火爆的就两个支柱产业，一是房地产，它催生了大量空住房甚至鬼城，又消灭了很多可以供老百姓运动锻炼的土地资源，贪婪的开发商和存在利益输送的政府官员才不会把这些群众体育设施最为必需品，弄个滑梯和双杠就已经是对韭菜们最大的福利了；另一个产业则是网红直播，这个行业不仅没有任何科技创新去推动生产力发展和社会进步，反而如同大烟枪一样给年轻人们插上了虚幻的翅膀，都希望做网红，哪有人愿意去运动场上挥汗如雨。
+The birthplace of the coronavirus
+冠状病毒的发源地
 
-客观条件的制约已经限制了业余足球的开展，而各种社会压力更是让所有足球爱好者们无暇抽身。学生要面对中共国的学业压力，各种升学考试和竞赛辅导班侵蚀了身心健康成长的空间和时间。年长一点的成年人又要面临繁重的工作、家庭负担以及社会应酬，这还只是普通家庭只有一个或者两个孩子的前提下。试想，如果一个家庭真的有三个孩子，哪位家长能够在平时抽身参与足球运动？简直是异想天开！
+probably this facility the laboratory in Wuhan China
+可能是这个在中共国武汉的实验室
 
-在业余足球方面已经大大落后的中共国，在专业足球方面又如何呢？从注册球员人数上看，中共国的注册人数约为5万人，而邻国韩国是50万人，日本更是高达近百万人。注册人数的不足就导致选材率低，造成这一问题的本质是中共国没有形成一套完善的球员培养体系，这就导致足球人才不敢进入专业足球领域。具体来说，无论是早些年的专业体校还是当今的各种足校、俱乐部梯队，在运动员培养和常规教育之间，并没有畅通的渠道，这就导致选择了专业运动员培养之路的年轻人很难得到良好的素质教育，当专业路径受阻后，他们也基本没可能再回到常规教育，最好的选择也就是作为运动员特招。
+a laboratory with all kinds of military overtones
+一个有着各种军事色彩的实验室
 
-与选材率低相对应的是成材率低，原因有二。从自身素质而言，绝大部分专业运动员在中学阶段甚至小学后期就已经脱离了常规素质教育，这就无形中导致这些专业运动员的动脑能力差，没有思考，难以理解更加深入、复杂的理论。从培训体系而言，放眼中共国，数十年来也没有建立一套可持续的青少年足球训练大纲，足球风格更是随领导喜好而朝令夕改。今年可以走拉丁风格，明年就开始学习德国战车。作为小球员成长的领路人，基层专业足球教练能够得到高水平培训的机会少之又少，更何况，中共国普遍存在的吃拿卡要、拉帮结派现象，导致能够做好言传身教的专业教练就更稀少了。很多小球员从一开始学习到的就是不规范的动作要领和错误的战术讲解，训练体系的缺失更是使得优秀专业球员的成长主要依赖于自身散养和运气而非整体人才培养体系的成功。
+if I said that a year ago
+如果我在一年前这样说
 
-经过了选材率和成材率这两道关口，加上数以十年计的摸爬滚打，当一些职业球员好不容易进入到了各级国家队的时候，等待他们的往往不是考虑如何把球踢好，而是怎么拉关系、讲政治。中共国足球管理机构的负责人，既有打乒乓球的，也有做水上运动的，但偏偏没有一位是有过一线足球运动从业和管理经验的，更不要说有任何在足球发达国家经历的。对于这些非专业的投机者，他们往往考虑的都是如何摘桃子而不是挖井栽树。没有人愿意花经历和时间去打造体系、夯实基础、厚积薄发，如何更快见效、博得升官发财的机会才是正道。
+I’d be branded a conspiracy theories
+我会被贴上阴谋论的烙印
 
-正是因为如此，中共国职业联赛当年的YOYO体测、头球算两分、免除升降等政策也就不难理解了。直至今日，职业联赛给国家队让路、U23强制政策等也让人忍俊不噤，这些政策在足球发达国家简直是闻所未闻。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09230255/2-5-12.png)
-在笔者看来，中共国足球没有发展的根本原因是它一直是政治的附属品，没有真真正正遵从足球运动本身的规律。现今世界，职业体育已经是一套成熟的运营体系，无论是管理、培训、训练、比赛，还是商业运作、公共关系、品牌推广，无不是专业人做专业事。在中共国一切都要讲政治的前提下，职业联赛和青少年培养体制的漏洞犹如一面镜子，照着现实社会中的所有假恶丑。
+I might be kicked off of social media
+我可能会被踢出社交媒体
 
-足球是踢出来的，需要靠实力说话。不知道中共国的世界杯之梦还要等多久？是不是只有在习总书记的强国梦中才能实现？
+but now even the experts are knowledging substantial indications
+但现在即使是专家也知道大量迹象表明
 
-* * *
+that it came from this place
+它来自这个地方
 
-*编辑、发稿 文锦*
+not even Dr. Fauci can dismiss that at this point
+即使是福奇博士也不能否认这一点
 
-+1
+we had a beautiful statement from the former president of the United States today Donald Trump
+我们今天收到了美国前总统唐纳德-川普的精彩声明
+
+and it makes a lot of sense
+而且这很有道理
+
+“The correspondence between Dr. Fauci and China speaks too loudly
+福奇博士和中共国之间的互相“打掩护”太明显了
+
+for anyone to ignore.
+任何人都无法忽视
+
+China should pay Ten Trillion dollars to America, and the world,
+中共国应该向美国和全世界支付十万亿美元，
+
+for the death and destruction they caused”
+因为他们造成的死亡和破坏”
+
+Greg Kelly
+格雷格·凯利
+
+Wow! how about that, how about that for leadership
+哇！ 那个怎么样，那个领导力怎么样？
+
+how about there for a clear-cut leadership
+那个明确的领导力怎样？
+
+all right, now the opposite of clear cut leadership
+好吧，现在是明确领导力的反面
+
+Dr. Fauci it’s got all kinds of problems now
+福奇博士现在有各种各样的问题
+
+lot of people suspect that he may not be around for too much longer.
+许多人都怀疑他可能不会逗留太久
+
+Dr Fauci has been let’s face it
+福奇博士已经，让我们面对现实吧
+
+incorrect inconsistent a bureaucrat playing both sides
+不正确， 不一致， 一个官僚玩两面派
+
+and I think he let down President Trump
+而且我认为他辜负了川普总统
+
+he let down the country
+他辜负了国家
+
+probably let him down in his own way
+可能以他自己的方式让他自己也失望
+
+Joe Biden all kinds of correspondence were going through right now
+乔拜登现在正在处理各种反应
+
+that indicates number one how wrong he is been
+这表明第一，福齐是那么的错误
+
+number two that he knew a lot more
+第二福齐知道的
+
+about the situation with that laboratory than he’s let on publicly
+关于那个实验室的情况比他公开的要更多
+
+he allowed that theory to be minimize his conspiracy theory
+他让那个理论最小化了他的阴谋论
+
+he knows better and he knew better
+他现在清楚的知道和他原来也清楚的知道
+
+and what is the mainstream are they going to do
+而且主流媒体将要做什么呢
+
+are they going to call him out on this stuff
+他们会在这件事上指责他吗？
+
+remember they’ve been in love with him for a long time
+记住，他们已经宠爱他很久了
+
+all those beautiful profiles
+所有那些漂亮的个人资料
+
+I saw one reporter who went jogging with Dr Fauci
+我看到一位记者和福奇博士一起慢跑
+
+somehow he came out of hero in all this with them
+不知何故，他和他们一起从这里以英雄姿态出来
+
+maybe because he signaled
+也许是因为他发出了信号
+
+he didn’t like Donald Trump
+他不喜欢唐纳德川普
+
+so what are they going to do right now
+那么他们现在要做什么?
+
+because this guy, haha, is not looking good at all
+因为这家伙，哈哈，看起来不太好
+
+what are they going to do
+他们会做什么呢?
+
+so far looks like you’re going to ignore
+迄今为止看起来你会忽略
+
+let’s go to David Muir
+让我们去看看大卫缪尔
+
+that thoughtful man they say on ABC News
+他们在美国广播公司新闻上说的那个深思熟虑的人
+
+David Muir (ABC evening news host)
+大卫 缪尔（美国广播公司晚间新闻主持人）
+
+Dr Fauci Making news late today
+福奇博士今天晚些时候发布新闻
+
+talking about the states were at the vaccination numbers are considerably lower than the national average
+谈论疫苗接种数量远低于全国平均水平的那些州
+
+his concern as we now toward for the 4th
+他的担心是我们快到国庆节了
+
+Stephanie Ramos(ABC reporter)
+斯蒂芬妮·拉莫斯（美国广播公司记者）
+
+Exactly, David. Dr. Fauci says
+是的，大卫。 福奇博士说
+
+he doesn’t want to see are those mini little outbreaks in those areas
+他不想看到这些地区出现小规模的疫情
+
+Greg Kelly
+格雷格·凯利
+
+This is on the Evening News nobody cares about
+这是没人关心的晚间新闻
+
+what he’s talking about with the mini outbreaks
+他在谈论关于小爆发
+
+He’s been saying that stuff for year-and-a-half
+他一直在说这些东西有一年半了
+
+we care about the emails, the emails right now
+我们在乎的是邮件，当下热点是邮件
+
+And the stuff that he was saying and the stuff that he was reading
+以及他所说的和他正在阅读的东西
+
+why did they ask about that and
+他们为什么问这个？而且
+
+when they do ask they do it
+当他们确实提出关于邮件的问题时，
+
+in the most polite overly cautious way
+他们会以最礼貌、过于谨慎的方式进行
+
+here is NBC News
+这是美国全国广播公司新闻
+
+Kate Snow (NBC evening news)
+凯特·斯诺（NBC晚间新闻）
+
+Dr. Fauci, some of your emails were obtained by several news organizations
+福奇博士，你的一些电子邮件已被多家新闻机构获得
+
+under the Freedom of Information Act
+根据信息自由法
+
+you exchanged emails with a Chinese director there Center for Disease Control
+你与中共国疾病控制中心的一位主任的交换电子邮件
+
+President Trump’s former Chief of Staff today suggested
+川普总统的前幕僚长今天表示说
+
+that you and others didn’t do enough to investigate the origins of the virus
+你和其他人在调查病毒起源方面做得还不够
+
+did you?
+你做了吗？
+
+Grey Kelly
+格雷格·凯利
+
+did you? did you?
+你做了吗？你做了吗？
+
+you see it has some teeth
+你看让他咬钩了
+
+and then they let him off the hook
+然后他们让他摆脱困境
+
+did you？did you do that?
+你做了吗？你做那个了吗？
+
+did you do your job?
+你做工作了吗？
+
+and you can’t answer any other way
+你不能以任何其他方式回答
+
+better question is what did you know
+更好的问题是你知道什么
+
+and when did you know it
+和你是什么时候知道的
+
+what this seems to indicate that you know that
+这似乎表明你知道那个
+
+that Wuhan lab may have been involved in all this
+那个武汉实验室参与了这一切
+
+how did he respond like any classic bureaucrat would
+他回答的口吻就像任何典型的官僚一样
+
+Dr. Fauci
+福奇博士
+
+so when you talk about investigating the origins
+所以当你谈到关于调查病毒的起源
+
+I don’t believe that that’s the role of the National Institutes of Health
+我认为那不是美国国立卫生研究院的角色
+
+Grey Kelly
+格雷格·凯利
+
+Ha, right? not my job
+哈，对吧？不是我的工作
+
+just like any good bureaucrat
+就像任何优秀的官僚那样
+
+the most bureaucrats don’t wind up on the cover of InStyle magazine
+大多数官僚不会登上 InStyle 杂志的封面
+
+that’s what did it for me
+那个对我来说是什么呢
+
+this little moment might wait a second
+这一刻，也许，等一下
+
+the whole country is suffering
+整个国家都在受煎熬
+
+and he’s having a grand time in sunglasses by his pool
+而他在他的游泳池边戴着太阳镜享受生活
+
+made no sense
+这是不公平的
+
+so when I heard about his book deal
+所以当我听说他的新书时
+
+I wasn’t totally shocked
+我并不完全震惊
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 : [https://twitter.com/newsmax/status/1400610871471116292?s=24](https://twitter.com/newsmax/status/1400610871471116292?s=24)
+英听校：康州盘古农场 – Layka
+翻译：康州盘古农场 – Layka
+翻译终校：康州盘古农场 – 格格巫
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

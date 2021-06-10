@@ -1,30 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 南京师范的查课和查寝能不能挽救这个伪政权
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1311459/)
+## 《2021年美国创新与竞争法案》涉及中共国部分（2）
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1311458/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09223836/E3ad-TWVoAIPU0B_%E5%89%AF%E6%9C%AC_%E5%89%AF%E6%9C%AC.jpg)
-据[墙国蛙蛤蛤@GFWfrog](https://twitter.com/GFWfrog)于[下午12:25 · 2021年6月9日](https://twitter.com/GFWfrog/status/1402482051148763142)·[Twitter for Android](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——·
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-匿名投稿：南京师范大学中北学院通过查课、查寝等方式确定抗议学生的名单，让各班班长劝回参与抗议的学生，明确表示事件平息后，要对参与抗议的学生进行处分或开除处理。某班长更是『语重心长』地对同班同学说：『看看香港废青最后的下场，这次风波就要步香港后尘』！
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09223911/t-5.jpg)icryptodesk.com
+C部分——2021年战略竞争法
 
+《战略竞争法》是两党共同努力的结果，目的是使美国能够有效地应对中共国对我们国家社会和经济安全的挑战，该法案在2021年4月21日几乎一致地（21票对1票）获得了参议院外交关系委员会（SFRC）的通过，该法案提供了一个统一的战略对策。
 
+通过以下措施增加美国对印度洋-太平洋地区的战略关注点，优先处理联盟、伙伴关系和美国全球领导地位：
+推进以加强美国联盟和伙伴关系、支持解决问题的区域合作为核心的印太战略。
+扩大与印太盟国和伙伴在技术、防务和基础设施方面的合作，增加对盟国和伙伴的安全援助，面对日益增长的中共军事能力加强合作。
+提升美国在国际组织和其他多边机构中的领导地位，包括对抗中共国和中国共产党在这些组织中的恶意影响。
 
-> 匿名投稿：南京师范大学中北学院通过查课、查寝等方式确定抗议学生的名单，让各班班长劝回参与抗议的学生，明确表示事件平息后，要对参与抗议的学生进行处分或开除处理。某班长更是『语重心长』地对同班同学说：『看看香港废青最后的下场，这次风波就要步香港后尘』！ [pic.twitter.com/sl31w3UszC](https://t.co/sl31w3UszC)
-> — 墙国蛙蛤蛤🐸 (@GFWfrog) [June 9, 2021](https://twitter.com/GFWfrog/status/1402482051148763142?ref_src=twsrc%5Etfw)
+通过以下方式对抗中共的恶意政治影响和掠夺性经济行为，并激发美国的外交和经济统领能力：
+通过要求美国外国投资委员会，审查某些大学接受的外国赠品和合同，打击中共国和中共的影响力活动。
+针对中共国在西半球掠夺性的主权贷款，授权美国主管向美洲开发银行（Inter-American Development Bank）投票赞成第10次全面增资，解决中共国的知识产权盗窃和补贴问题，优先向致力于打击外国腐败行为的国家提供技术援助。
+通过将开发金融公司的最高负债额提高到1000亿美元，并投资于安全供应链、基础设施建设、数字连接和网络安全伙伴，增强美国的经济统领能力。
 
+通过以下方式维护美国的价值观：
+授权广泛的人权和公民社会措施，包括对强制劳动、强制堕胎和绝育，以及新疆的其他虐待行为的制裁，以及（表明）与香港人民、西藏人民和中国公民社会站在一起的措施。
+包括增加国会和美国公众在国际协议和安排方面透明度的重要条款。
+（未完待续）
 
+文字整理：
 
-推文附图为——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09223854/E3ad-TWVoAIPU0B_%E5%89%AF%E6%9C%AC.jpg)
-最擅长组织学生运动和工运的中国共产党已经彻底沦陷，当年大肆宣扬的学生运动和工人运动都是在爱国的大旗之下进行，在爱国大旗号蛊惑之下参与共产党组织的学生运动和工人运动的学生们和工人们在无形之中帮助了中国共产党，于是乎有了中国共产党对中国人民七十年的奴役。
+Division C – Strategic Competition Act of 2021
 
-在中国共产党七十年奴役之下忍无可忍、退无可退的十四亿中国人民其实早已习惯了逆来顺受，早已习惯了没有自由、没有选票、没有宗教信息自由、没有结社自由和新闻自由的日子，是啊，只有活着比什么都重要，可是在今天想要安全地活着已经不仅仅需要口罩和羟氯喹了，在今天想要安全地活着还要忍受说好的本科变成专科或者变成技校文凭的被强奸，如果你觉得忍不下这口气， 对不起，你已经成了境外势力了，对不起，你已经成了闹事分子了。
+The Strategic Competition Act is a bipartisan effort to enable the United States to effectively confront the challenges posed by the People’s Republic of China (PRC) to our national and economic security. The bill was passed out of SFRC in a nearly unanimous vote (21-1) on April 21, 2021. The bill provides a unified, strategic response that:
 
-都是学生运动为什么昨是而今非呢？都是学生运动为什么昨日是爱国而今日是闹事儿呢？原因无它，盖因当年未窃据庙堂，所以需要爱国名义下的学生运动来夺取政权，盖因当下已经窃据庙堂，不仅窃据庙堂而且一窃七十载，不仅一窃七十载而且还要世袭罔替、永不退位，只是在它们一手制造和释放的中共病毒的袭扰之下，在喘气已经变得危险的情况下，全人类和这个国家的十四亿人民还能容忍这个反人类集团多长时间呢？
+Increases U.S. strategic focus on the Indo-Pacific and prioritizes alliances, partnerships, and U.S.
 
-（文章内容仅代表作者个人观点）
+global leadership by:
+
+Advancing an Indo-Pacific strategy centered on strengthening U.S. alliances and partnerships and supporting regional cooperation that solves problems.
+
+Expanding cooperation with Indo-Pacific allies and partners on technology, defense, and infrastructure, increasing security assistance to allies and partners, and fostering enhanced
+
+cooperation in the face of China’s growing military capabilities.
+
+Promoting U.S. leadership within international organizations and other multilateral fora, including to
+
+counter malign PRC and Chinese Communist Party (CCP) influence in those organizations.
+
+Confronts China’s malign political influence and predatory economic practices, and energizes U.S. diplomatic and economic statecraft by:
+
+Countering PRC and CCP influence campaigns by requiring the Committee on Foreign Investment in the United States to review certain foreign gifts and contracts to universities.
+
+Countering China’s predatory sovereign lending in the Western Hemisphere by authorizing the U.S. Governor to the Inter-American Development Bank to vote in favor of a 10th general capital increase. Addressing China’s intellectual property theft and subsidies, and prioritizing technical assistance to countries working to counter foreign corrupt practices.
+
+Bolstering U.S. economic statecraft by increasing the Development Finance Corporation’s maximum liability to $100 billion and investing in supply chain security, infrastructure development, and digital connectivity and cybersecurity partnerships.
+
+Upholds U.S. values by:
+
+Authorizing a broad range of human rights and civil society measures including sanctions for forced labor, forced abortion and sterilization, and other abuses in Xinjiang, and measures to stand with the people of Hong Kong, Tibet, and China’s civil society.
+
+Including critical provisions to increase transparency for Congress and the American public related to international agreements and arrangements.
+
+原文链接：
+
+[https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf](https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf)
 
 0

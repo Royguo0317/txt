@@ -1,39 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳大利亚将要推行新冠疫苗接种证书吗？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1311378/)
+## 科学，政治和新冠病毒：真理是否可以出人头地？（3/3）
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1311403/)
 
-撰稿： 喜国公民
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09210525/EADB3780-61ED-45CC-9E2A-ED72198D92A0-edited.jpeg)
-图片来自网络
+#### 【作者】Scott W. Atlas 【编译】Mi John
 
-据[水星报报道](https://www.themercury.com.au/news/victoria/australians-to-get-covid19-vaccination-certificate/news-story/50b5ae432c05780ae09276fcc168021d?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_AM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=6)，接种过Covid-19疫苗的澳州人将收到一份证书。该证书将通过医疗保险应用程序提供。澳州服务局的官僚们在上周五的参议院听证会上确认，该证书将在几天内推出。
+**演讲者：**斯科特 W. 阿特拉斯（**Scott W. Atlas** ）**胡佛研究所**
 
-这一举措的目的是以帮助激励更多澳州人接种疫苗，为政府和企业对未接种的人实施严厉的规定铺平道路。尽管国家内阁尚未同意，企业可能会寻求使用该证书来拒绝向那些没有接种疫苗的人提供服务。然而，这个新冠疫苗接种证书真的能在澳洲推行吗？
+**\*阿特拉斯的演讲之英文原稿经希尔斯代尔学院出版刊物 Imprimis全文刊登，获授权转载於此。**[点击进入](https://imprimis.hillsdale.edu/science-politics-covid-will-truth-prevail/)
+![新冠病毒大流行毫无疑问是一场悲剧。它暴露了美国错综复杂的问题，这些问题已然威胁了我们美国人习以为常的自由与秩序的基本原则。]()![新冠病毒大流行毫无疑问是一场悲剧。它暴露了美国错综复杂的问题，这些问题已然威胁了我们美国人习以为常的自由与秩序的基本原则。](https://gnews.org/wp-content/uploads/2021/03/03-28-2021Scott-Atlas-Hoover-Institute.png)**Scott W. Atlas** 是斯坦福大学胡佛研究所罗伯特·韦森高级研究员。他曾担任斯坦福大学医疗中心教授并任职神经放射学主任达14年。他从伊利诺伊大学香槟分校获得理学学士，从芝加哥大学医学院获得医学博士学位。他是诺贝尔医学和生理学奖提名委员会的特别成员，曾在2008年，2012年和2016年担任多位总统候选人的高级医疗保健顾问。
 
-一些州的领导人批评了这一计划。新南威尔士州州长Gladys Berejiklian宣称，澳大利亚的自由流动不应取决于疫苗。一些联邦自由党议员对政府推动澳大利亚人需要疫苗证书才能自由旅行表示担忧。
+2020年7月至2020年12月间，他担任特朗普总统特别顾问，是白宫冠状病毒特别工作组成员。他现在是第五版的《大脑和脊柱磁共振成像》的编辑，著有多本著作，包括《恢复优质医疗保健：以较低成本进行全面改革的六点计划》。
+#### **以下文字改编自2021年2月18日在凤凰城的希尔斯代尔学院国家领导力研讨会的演讲。**
 
-总理斯科特-莫里森希望接种疫苗的澳州人能够绕过各州的旅行限制。表示，如何使用该证书由各州和地区决定。
+**演讲者：**斯科特·W·阿特拉斯（Scott W. Atlas ）
 
-如果新冠疫苗接种证书是由各州和地区来决定，那么，那些不愿接种疫苗的澳洲人可以选择去那些没有实行新冠疫苗接种证书的州和地区去居住。这要好过中共国的强制性打疫苗，使人没有任何选择。
+（续上2/3）即此，我们有理由认为，那些继续强推社交禁令，而不承认自己失败和失败所带来的伤害的那些人正在释放出危险的错误信息。尽管如此，我不会正式谴责或惩罚他们。我不会试图让他们消失，我不会屏蔽他们的意见，我不会通过撒谎去歪曲他们的话并对他们进行中伤。这样做的话，只会让可耻的禁言行为重蹈覆辙，这样做对于教育大众和获得我们迫切需要的科学真谛至关重要。
 
-但是，这会照成不必要的人口流动。给居民带来工作，学习和生活上的不便。
+新冠病毒大流行无疑是一场悲剧，但它也暴露了美国社会错综复杂的问题，这些问题正威胁着我们美国人自以为是的自由与秩序原则。
 
-该报道还提供了一个新冠疫苗接种证书的样本。除了接种人的姓名，生日等信息外，还包括证书从什么时候开始生效。由于目前市场上的新冠疫苗都是针对数月前发现的新冠毒株来生产的。如果遇到新冠病毒的变异毒株，还会被感染。
+如果这种可耻的行为得以为继，大学座右铭类似哈佛的“真理”，斯坦福大学的“自由之风”和耶鲁的“光与真理”等将需要进行重大修改。
 
-持有新冠疫苗接种证书的澳洲人会认为自己比没有接种新冠疫苗的人能够更安全地不受任何限制地旅游，从而会放松对周边环境的警惕，反而会更容易被变异的新冠病毒感染，并且会更快，更大范围地传染给其他人群。
+科技寡头强势取缔对具有矛盾证据的探讨。如果不允许公开辩论和承认错误，我们将可能永远无法有效对付任何未来的危机。确实，公开辩论不但应该被允许，更应予以鼓励。
 
-解决目前大流行的关键是要彻底查清新冠病毒的来源。如果发现病毒是由实验室制造出来的生化武器，政府就要告诉澳洲人，我们正处在一场生化战争当中。只有铲除了释放病毒的根源，才会阻断新病毒的出现。
+作为一名从事制定健康政策15年的学者和在常春藤大学执教30年的教授，我感到震惊和沮丧，这些大学中有如此众多的教职人员目前对自己信条相左的观点危险地容忍着，更有甚者，歪曲事实，造谣去贬低甚至惩罚那些心甘情愿在他们所讨厌的总统内阁中为国家服务的人。他们所攻击的正是他们本身的所为。按抨击我的斯坦福大学教授的话来讲就是：“违反了[斯坦福大学]教师的核心价值观和背离《斯坦福大学行为守则》，该守则指出，我们所有人“都有责任秉承高尚的道德标准”。除了违反同事间的道德行为标准外，他们的所为连简单做人的品行都够不着。
 
-获得2008年诺贝尔医学奖的法国科学家Luc Montagnier教授在接受采访时提到，”大规模接种疫苗是一个非常严重的医学错误，因为变异病毒来自疫苗本身。新冠疫苗接种证书绝不是一个解决问题的好办法。逼迫越来越多的澳洲人打疫苗，只能把澳大利亚推向万劫不复的深渊！
+如果学术届的领袖们都不能放弃这种缺德行为，那么越来越多的学者在纷争的时期将不会心甘情愿为自己的国家效劳。作为教育者，家长，同胞，这将是给我们孩子留下的最糟糕 的遗产。
 
-(文章内容仅代表作者观点)
+让我还害怕的是寻求真理的科学观念（利用经验科学方法进行的探索）已遭到严重破坏。 即使是世界领先的科学期刊，《柳叶刀》，《新英格兰医学，科学和自然杂志》也受到了政治的污染。 更令人担忧的是公众和科学界中的许多人对争执已经感到厌倦，而疲倦将导致谬论战胜真理。
 
-*编辑：cindy*
+随着社交媒体充当着所被允许讨论的仲裁者，继续审查剔除那些被质疑挑战“可接受言论“的人，美国正濒临着丧失其珍惜的自由的边缘。 尚不清楚我们的民主共和国是否会幸存，除非更多人挺身而出捍卫思想和言论自由，否则它将不复尚存。
 
-参考消息：
+[3/3完]
 
-[https://www.themercury.com.au/news/victoria/australians-to-get-covid19-vaccination-certificate/news-story/50b5ae432c05780ae09276fcc168021d?utm\_source=Mercury&utm\_medium=email&utm\_campaign=Editorial&utm\_content=MERC\_LATESTNEWS\_AM-CUR\_01&net\_sub\_id=287163446&type=curated&position=1&overallPos=6](https://www.themercury.com.au/news/victoria/australians-to-get-covid19-vaccination-certificate/news-story/50b5ae432c05780ae09276fcc168021d?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_AM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=6)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+[**科学，政治和COVID：真理会胜利吗？** （2/3）](https://gnews.org/zh-hans/1310196/)
+
+**[科学，政治和新冠病毒：真理能赢吗？（1/3）](https://gnews.org/zh-hans/1036169/)**
+
+**校对发布：** 滴水穿石
+
+### 欢迎战友加入旧金山金喜农场
+
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+![This image has an empty alt attribute; its file name is 66573ACB-5779-4156-8018-754A8CE66D37.jpeg]()![This image has an empty alt attribute; its file name is 66573ACB-5779-4156-8018-754A8CE66D37.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27033533/66573ACB-5779-4156-8018-754A8CE66D37.jpeg)
 0

@@ -1,45 +1,183 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】跟着钱走：检查一下大型制药公司、福奇博士和羟氯喹的联系
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1311367/)
+## 为天安门和香港点燃一盏蜡烛
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1311337/)
 
-**整理撰稿：蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09210745/29-2.jpg)
-作者Kelly Sadler2021年6月9日 在华盛顿时报发表分析文章：为了更好地了解去年使用羟氯喹 (HCQ) 治疗 COVID-19 患者是如何成为科学泥潭的，最好还是跟着钱走。
+**字幕内容：**
 
-HCQ 很便宜（在 COVID-19 治疗过程中花费不到 10 美元），开处方 80 多年的医生熟知，并且可以口服。然而，美国国家过敏和传染病健康研究所的 Anthony Fauci 博士和其他人更喜欢瑞德西韦，这是一种由吉利德科学公司制造的专有静脉注射药物，每次治疗的成本约为 3,500 美元，副作用未知。为了不让大型制药公司生气，并可能威胁邀请参加鸡尾酒会，董事会席位和威胁拨款，福奇博士和他的团队竭尽全力宣传瑞德西韦并淡化 HCQ，这可能导致全球数百万人丧生。
+Lighting a candle for Tiananmen and HK
+为天安门和香港点燃一盏蜡烛
 
-尽管世界各地的许多医生都在 HCQ 方面取得了成功，但 2020 年 2 月，NIH 开始招募患者进行 remdesivir COVID-19 试验，福奇博士负责监督其进展。他对所有新闻稿拥有最终决定权，并且大概与吉利德公司密切合作。4 月 16 日，试验发生了一些有趣的事情——它的终点在临床试验.gov 网站上悄然改变和更新。该研究没有评估瑞德西韦预防 COVID-19 死亡的能力，而是重新设计以评估患者从瑞德西韦中恢复的速度。
+For more than 30 years Hongkongers have been using candlelight to teach the Chinese Communist Part that Killing your people is useless and cannot solve any problem
+30多年来，香港人一直在用烛光
+教育中国共产党
+杀戮你的人民是没有用的，不能解决任何问题
 
-这是一个有趣的变化，因为**世界卫生组织泄露的一项关于瑞德西韦的研究表明，在 COVID-19 患者身上使用该药物没有统计学上显著的临床益处，而且它有严重的副作用。**然而它确实在减少恢复时间方面显示出一些希望。当这项研究的消息被公之于众时，4 月 23 日，吉利德股价下跌。
+It will only spur even more people to resist
+这只会刺激更多的人进行抵抗
 
-贝勒医学院的 Dennis Bier 博士和哥本哈根大学的 Arne Astrup 在 BMJ Medical Trade Journal 上写道，NIH 将其研究终点移动到试验中期的决定通常不受欢迎，因为试验设计并未起草关注次要终点，可能会产生不可靠的数据，并且可能“将偏见引入试验并创造操纵机会”。
+Every year on 4 June, thousands in HongKong attend a vigil… to mourn those killed in the 1989 Tiananmen crackdown in Beijing.
+每年6月4日，数以千计的香港人参加守夜活动……
+以悼念在1989年北京天安门镇压中被杀害的人
 
-在 4 月 29 日，NIH 热情地公布了其结果。福奇博士在椭圆形办公室与前总统川普一起露面时说，有理由感到乐观，该研究实现了其主要目标，即缩短康复时间，而接受瑞德西韦治疗的患者的康复时间缩短了四天。他没有提到研究的终点在试验中途发生了变化。尽管如此，媒体之旅还是开始了，福奇博士带头，称赞瑞德西韦，同时抨击 HCQ 缺乏类似的临床试验。吉利德股价飙升。
+HongKong is one of the very few places in China… where public commemora-tion has been allowed
+香港是中共国极少数
+允许公开纪念的地方之一
 
-5 月 1 日，NIH 的 COVID-19 治疗指南小组成员批准了瑞德西韦的紧急使用，并表示 HCQ 只能在医院或研究中使用。调查记者 Sharyl Attkisson 发现该小组的 11 名成员与吉利德有经济联系。其中两人在吉利德的顾问委员会任职，其他人则是有偿顾问或获得研究支持和酬金。然而，所有成员都与由众多仿制药制造商生产的 HCQ 没有任何关系，而且“价格如此便宜，分析师表示，即使销售激增也不会成为这些公司的财务驱动因素，”阿特基森女士报告说。
+The flame of democracy in China is very visibly being carried tonight by over 50,000 HongKong residents who staged a candlelit vigil to mark the first anniversary of the Peking massacre
+今晚，超过5万名香港居民举行了
+纪念北京大屠杀一周年的烛光晚会
+非常明显地传递了中国的民主之火
 
-Attkisson 女士还发现，**一项声称 HCQ 导致死亡人数增加的小型退伍军人管理局试验的作者之一在 2018 年从吉利德获得了 247,000 美元的赠款**。
+Now this decades-long tradition is under threat
+现在，这个长达数十年的传统正受到威胁
 
-5 月 22 日，柳叶刀发表的一篇欺诈论文在 HCQ 的棺材上钉上了钉子，声称表明 HCQ 无效且危险。这项现已被揭穿和撤回的研究的主要作者是哈佛大学教授 Mandeep Mehra 博士，他在一个月前参加了由吉利德联合主办的讨论 COVID-19 的会议。许多人猜测吉利德是否代笔撰写了这项研究，因为率先开展这项工作的公司 Surgisphere 只有少数最近雇用的员工，据报道其中包括一名科幻作家和一名成人内衣模特。
+This year marks the second time authorities have banned the vigil
+今年是当局第二次禁止守夜活动
 
-然而，损害已经造成。6 月 11 日，NIH 更新了其 COVID-19 指南，建议除临床试验外不要使用 HCQ。几天后，即 6 月 15 日，美国食品和药物管理局撤销了 HCQ 的紧急使用，瑞德西韦是美国唯一官方认可的治疗 COVID-19 的药物。
+They cite Covid concerns, but activists fear it’s more than that
+他们表示是担心新冠病毒的原因
+但活动人士担心的原因不止这些
 
-吉利德在 2020 年第一季度用于游说联邦政府的 245 万美元花得很好。与此同时，**本月发布的一项新的、尚未经过同行评审的 HCQ 研究发现，它与阿奇霉素一起服用，可将COVID-19 患者存活率提高近 200%。**
+China has been cracking down on HongKong dissent and introduced restrictions including a national security law
+中共一直在镇压香港的异议人士
+并出台了包括国家安全法在内的限制措施
 
-要是药里有钱就好了，想象一下本可以挽救的生命。
+I am Chow Hang Tung, vice-chairperson of the vigil’s organizer HongKong Al-liance
+我是守夜活动组织者支联会的副主席邹幸彤
 
-**小象：补充资料：（维基百科）**
+There will be the first 4 June since the national security law was passed
+这将是实施国家安全法以来的第一个6月4日
 
-瑞德西韦是由吉利德科学进行研发的项目，此药物尚未在美国以及任何国家获得批准上市，亦尚未注册专利[10]。2019冠状病毒病于中国爆发期间，吉利德免费向中国提供瑞德西韦[11]，中国科学院武汉国家生物安全实验室与合作单位在2020年1月21日抢先申报中国发明专利《瑞德西韦抗2019新型冠状病毒的用途》，引发争议与讨论[12]；对此，吉利德则回应“公司的核心关注在于病人，不希望卷入专利纠纷”[11][13]。世界卫生组织（WHO）指称瑞德西韦（remdesivir）临床实验无效[14]。
+Many ask if the vigil will disappear
+许多人问，守夜活动是否会消失
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+But I think we have been persisting for more than 30 years
+但我认为，我们已经坚持了30多年了
 
-**参考链接：**
+It is more or less in HongKong People’s DNA now
+守夜或多或少已经在香港人的基因里了
 
-[https://www.washingtontimes.com/news/2021/jun/9/follow-the-money-big-pharma-dr-fauci-and-the-death/?utm\_campaign=shareaholic&utm\_medium=twitter&utm\_source=socialnetwork](https://www.washingtontimes.com/news/2021/jun/9/follow-the-money-big-pharma-dr-fauci-and-the-death/?utm_campaign=shareaholic&amp;utm_medium=twitter&amp;utm_source=socialnetwork)
+I believe we will still see more candlelight on that night
+我相信在那个夜晚，我们仍然会看到更多的烛光
 
-***校对发布**：文顾*
+Ms Chow is one of the few leaders left in the alliance
+邹女士是支联会中仅存的几位领导人之一
 
-+1
+Many of her fellow activists have been arrested or are in jail
+她的许多活动家同伴已经被逮捕或被关进监狱
+
+Actually I never thought I’d end up becoming the face of the organization, be-cause I’m not used to this position, nor am I really suited for it
+事实上，我从未想过我最终会成为组织的代言人
+因为我不习惯这个职位，也不太适合这个职位
+
+But many in our organization have been arrested
+但我们组织中的许多人已经被逮捕
+
+There’s nobody left to speak out any more
+再也没有人敢站出来说话了
+
+There’s a gap that has to be filled. So I have to be the one filling it
+有一个缺口必须被填补
+所以我必须是那个填补它的人
+
+I feel a bit lonely because many of my fellow activists are now behind bars
+我感到有点孤独，因为我的许多活动家伙伴现在都在监狱里
+
+When you want to do any campaign, there’s nobody you can discuss it with, no-body who can work with you
+当你想做任何运动时，没有人可以和你讨论
+没有人可以和你一起工作
+
+But spiritually, I don’t feel I am alone
+但在精神上，我并不觉得自己是孤独的
+
+Hongkongers are still on our side and want to fight for democracy
+香港人仍然站在我们这边
+想要为民主而战
+
+We are all fighting together
+我们都在共同奋斗
+
+There’s still a lot of people supporting us
+仍然有很多人支持我们
+
+End one-party rule! Support democracy in China!
+终结一党统治! 支持民主中国!
+
+The Alliance has been campaigning to “end one-party rule” in China
+支联会一直在为”结束一党统治”的中国而努力
+
+Their opponents say this breaches the national security law which forbids “sub-version”
+他们的反对者说这违反了禁止”颠复”的国家安全法
+
+But the Alliance remains defiant
+但支联会仍然不甘示弱
+
+They’re urging Hongkongers to light candles on 4 June
+他们呼吁香港人在6月4日点亮蜡烛
+
+I will light up a candle in the street
+我将在街上点燃一支蜡烛
+
+Are you going to arrest me for that?
+要为此逮捕我吗？
+
+HongKong allows political expression
+香港允许表达政治观点
+
+Are we letting them use their “red lines” to change our basic principle?
+我们是否允许他们用他们的“红线”来改变我们的基本原则？
+
+Or should we defend it?
+还是应该捍卫它？
+
+With the national security law, it’s become even more meaningful to commemo-rate 4 June
+随着国家安全法的出台，纪念六四变得更加有意义了
+
+Do we dare to come out?
+我们敢站出来吗？
+
+Do we dare to protect the candlelight to Victoria park?
+我们敢保护维多利亚公园的烛光吗？
+
+It reflects Hongkongers’ determination to resist
+它反映了香港人抵抗的决心
+
+As long as we don’t give up, there is still hope that Hongkongers can protect our freedom
+只要我们不放弃，香港人仍有希望保护我们的自由
+
+I am prepared to be arrested.
+我已经准备好被逮捕了
+
+This is how Hong Kong is now
+这就是香港现在的样子
+
+If you fight for democracy under an authoritarian regime, being arrested is un-avoidable
+如果你在一个专制政权下为民主而战，被逮捕是不可避免的
+
+Let it come
+让它来吧
+
+I am willing to pay the price for fighting for democracy
+我愿意为争取民主而付出代价
+
+On the morning of 4 June, 2021, Chow Hang Tung was arrested by Hong Kong police
+2021年6月4日上午，邹幸彤被香港警方逮捕
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: [https://twitter.com/bbcworld/status/1400671426663923712?s=21](https://twitter.com/bbcworld/status/1400671426663923712?s=21)
+
+英听校：康州盘古农场 – Mike Li
+翻译： 康州盘古农场 – Mike Li
+翻译终校：康州盘古农场 -格格巫
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场- 银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

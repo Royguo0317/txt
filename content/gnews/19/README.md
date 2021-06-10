@@ -1,23 +1,100 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 史上最全的对华战略竞争法案
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1311440/)
+## 《2021年美国创新与竞争法案》涉及中共国部分（1）
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1311442/)
 
-撰稿人**：**东南
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09220545/A55D8657-7BF3-40DF-A4D8-3C445A0BB8D6.jpeg)**（图片来源网络）**
-美国参议院6月8日以68票赞成、32票反对的表决结果，迅速通过了《美国创新与竞争法案》，旨为提高美国的技术优势以应对中国竞争，凸显美国国会对中共采取的立场日趋强硬。并据路透社报道，这项法案获跨党派支持，授权拨款约1900亿美元用于加强美国的技术与研究；另外，也批准了一笔约500亿美元的拨款，用于增加美国对半导体和电信设备的生产与研究。法案还将等在众议院通过后送交白宫由总统拜登签署成为法律。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**《**2021美国创新与竞争法案》作为本月参议院对于商业、科学和交通委员会表决通过的《无尽前沿法案》的替代修正案，将包括《2021战略竞争法案》在内的若干制华法案统统“收编”，被视为一揽子“制华法案集合体”。 法案计划紧急拨款520亿美元，用于落实美国2021财年国防授权法案中的芯片法案以及有关芯片生产、军事以及其他关键行业的相关项目，另拨款15亿美元，用于落实美国2021财年国防授权法案中的美国电信法案，以加强在5G竞争中的“美国创新”。并授权未来5年投入约1200亿美元，用于支持国家科学基金会、商务部、能源部、航天局的相关活动，涉及科技创新与研发、STEM教育、精准农业、量子信息、生物经济、制造业及其技术中心建设、供应链、电信、太空等。这是美国历史上罕见的针对某一特定国家的一揽子法案，法案一旦通过，这将使中共国企业涉美法律风险陡增，导致技术领域的国际合作受阻，甚至可能产生扼杀创新的连锁反应。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09221803/S-2.jpg)newsable.asianetnews.com
+2021年美国创新与竞争法案
 
-此前中共发言人赵立坚曾回应该法案说，有关法案罔顾事实大肆渲染中国威胁论，鼓噪对华搞全面战略竞争。挑动中美脱钩对抗等等叫嚣等等，但接着又话锋大转360度，说中方的目标从来不是超越或取代美国，不是为了搞你输我赢的竞争，是为了不断超越成为更好的中共国。听完之后真的是鸡皮疙瘩掉一地。其实从粉红战狼从他们的角度来看，很是期待着中共国能出台一些对等的反击，幻想主子们应该大力的支持美国这个竞争法案才是，因为他们心中的“中国的崛起”不就是应该需要像美国这样强大的磨刀石吗，但现在这把大红刀怎么找不着了呢？
+目录
+A部分——芯片和开放结构模式（ORAN）5G紧急拨款
+B部分——无止境前沿法
+C部分——2021年战略竞争法
+D分部——国土安全和政府事务委员会条例
+E分部——迎接2021年中共挑战法
+F部分——其他事项
+第一篇——教育和医学研究的竞争力和安全性
+第二篇——司法条例委员会
+第三篇——其他
 
-（文章纯属个人观点）
+A部分——芯片和开放结构模式（ORAN）5G紧急拨款
+……
 
-*编辑：cindy*
+《利用战略联合（USA，Utilizing Strategic Allied）电信法》摘要
 
-文章参考：
+在中共国政府的大力补贴下，华为有望成为5G领先的运营及设备提供商，对美国经济和国家安全产生了深远影响。像华为这样的与中国共产党关系密切的中共国有科技公司，给我们的国家安全和全球信息网络的完整性带来了不可接受的风险。
 
-[http://www.ipforefront.com/m\_article\_show.asp?id=918&BigClass=%E8%B5%84%E8%AE%AF](http://www.ipforefront.com/m_article_show.asp?id=918&amp;BigClass=%E8%B5%84%E8%AE%AF)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+几年来，国会一直在评估如何支撑全球电信设备供应链，以及限制华为在全球的参与范围。这些努力说明了当前的竞争条件如何有利于华为，此外，由于担心缺乏可行的、负担得起的替代品，美国说服外国合作伙伴禁止华为进入其网络的努力陷入停滞。如果不对基于西方的替代产品的开发进行重大投资，华为将成为全球最便宜、最快、最普遍的5G提供商。
+
+追加拨款：
+
+《利用战略联合（USA）电信法》于2021财年颁布，它在5G竞争中促进了美国的创新，并投资于中共国设备供应商华为（Huawei）和中兴通讯（ZTE）基于西方的替代产品。
+
+《利用战略联合电信法》发挥了美国的优势，利用美国的软件优势，加快开发开放结构模式（称为OpenRAN），允许替代供应商进入特定网络组件的市场，而不必与华为进行端到端的竞争。开放结构模式不仅得到了美国运营商的支持，它还得到了各种规模的美国设备供应商以及一系列非传统供应商和技术公司的支持，为了进一步支持《利用战略联盟电信法》的实施，参议员华纳（Warner）和卢比奥（Rubio）正在提出一项修正案，将提供15亿美元的紧急补充拨款，以实施《利用战略联合电信法》，其中包括：
+
+为公共无线（设备）供应链创新基金提供15亿美元，以推动向开放式架构、基于软件的无线技术的发展，为美国移动宽带市场的创新性“飞跃”技术提供资金，该基金将由国家电信和信息管理局（NTIA，National Telecommunications and Information Administration）管理，由国家标准与技术研究院（NIST，National Institute of Standards and Technology）、国土安全部（DHS，Department of Homeland Security）以及情报预研预测活动（局）（IARPA，Intelligence Advanced Research Projects Activity）等机构提供投入。
+
+美国国际技术安全与创新基金的5亿美元芯片也将通过该基金对国际信息和通信技术安全和半导体供应链活动的支持，支持《利用战略联合电信法》授权的活动，包括支持开发和采用安全可靠的电信技术、半导体和其他新兴技术。
+（未完待续）
+
+文字整理：
+
+The United States Innovation and Competition Act of 2021
+
+Division-by-division summary
+
+Table of Contents
+
+Division A –CHIPS and ORAN 5G Emergency Appropriations ……………..2
+
+Division B – Endless Frontier Act ……………………………………………………………4
+
+Division C – Strategic Competition Act of 2021. ………………………………….8
+
+Division D – Homeland Security and Governmental Affairs Committee Provisions…………………………………………………………………………………………………..9
+
+Division E – Meeting the China Challenge Act of 2021…………………………..10
+
+Division F – Other Matters .. ……………………………………………………………………11
+
+Title I – Competitiveness and Security for Education and Medical Research……………………………………………………………………………………………………12
+
+Title II – Committee on the Judiciary Provisions……………………………………13
+
+Title III – Miscellaneous…………………………………………………………………………..14
+
+……
+
+The Utilizing Strategic Allied (USA) Telecommunications Act Summary
+
+Heavily subsidized by the Chinese government, Huawei is poised to become the leading commercial provider of 5G, with far-reaching effects for U.S. economic and national security.
+
+With close ties to the Communist Party of China, Chinese state-directed technology companies
+
+like Huawei present unacceptable risks to our national security and to the integrity of global
+
+information networks.
+
+For several years, Congress has been evaluating how to shore up the global telecommunications
+
+supply chain and limit the scope of Huawei’s involvement globally. These efforts have illustrated how current terms of competition favor Huawei. Further, U.S. efforts to convince foreign partners to ban Huawei from their networks have stalled amid concerns about a lack of viable, affordable alternatives. Without significant investment in the development of Western-based alternatives, Huawei stands poised to become the cheapest, fastest, most ubiquitous global provider of 5G.
+
+Supplemental Appropriations:
+
+The Utilizing Strategic Allied (USA) Telecommunications Act was enacted in the FY2021 NDAA. It fosters U.S. innovation in the race for 5G and invests in Western-based alternatives to Chinese equipment providers Huawei and ZTE.
+
+The USA Telecom Act plays to American strengths by capitalizing on U.S. software advantages, accelerating development of an open-architecture model (known as OpenRAN) that would allow for alternative vendors to enter the market for specific network components, rather than having to compete with Huawei end-to-end. OpenRAN not only has the support of US carriers, it has the support of US vendors of all sizes, along with a range of non-traditional vendors and technology firms. In order to further support the implementation, Senators Warner and Rubio are proposing an amendment which would provide $1.5 billion in emergency supplemental appropriations to implement the USA Telecom Act, including:
+
+$1.5 billion for the Public Wireless Supply Chain Innovation Fund to spur movement towards open-architecture, software-based wireless technologies, funding innovative, ‘leap-ahead’ technologies in the U.S. mobile broadband market. The fund would be managed by the National Telecommunications and Information Administration (NTIA), with input from the NIST, DHS, and IARPA, among others.
+
+The $500 million CHIPS for America International Technology Security and Innovation Fund will also support activities authorized in the USA Telecommunications Act, through the Fund’s support of international information and communications technology security and semiconductor supply chain activities, including supporting the development and adoption of secure and trusted telecommunications technologies, semiconductors, and other emerging technologies.
+
+原文链接：
+
+[https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf](https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf)
+
 0
