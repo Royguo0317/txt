@@ -1,31 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 挖掘的爆炸性视频显示：彼得·达扎克描述中共国同事正在开发“杀手”冠状病毒
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1311024/)
+## 国际可持续报告准则应如何应对中共造假
+` Jimsolomon` [轉載自GNews](https://gnews.org/zh-hans/1311044/)
 
-翻译：烟波浩淼 |校对：黎明的光芒 |审核：黎明的光芒
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09172558/picture-1-6.png) 图片来自视频截图
-生态健康联盟主席彼得·达扎克（Peter Daszak）与武汉病毒学研究所合作进行了一项由安东尼·福奇（Anthony Fauci）博士的国家过敏与传染病研究所（NIAID）资助的研究。似乎在《国家脉搏》挖掘的一段视频中夸耀他的 “中共国同事” 对类似SARS的 “杀手” 冠状病毒的操纵。
+可持续报告准则应要求在报告的首页披露没有法治、没有言论自由的环境，包括网络防火墙，审计工作底稿不能被证券发行国会计监督机构检查等情况对环境保护、社会责任和公司治理（ESG）及相关信息可靠性的影响。
 
-达扎克是在2016年一个讨论“[新出现的传染病和下一次大流行](https://www.c-span.org/video/?404875-1/pandemics)”的论坛上承认这一点的，这似乎与福奇一再[否认](https://www.washingtonpost.com/politics/2021/05/18/fact-checking-senator-paul-dr-fauci-flap-over-wuhan-lab-funding/)资助了武汉病毒学研究所功能增强研究的说法相矛盾。
-
-达扎克在描述他的组织是如何对致命病毒进行测序的同时，还描述了他的“中共国同事”在病毒中“插入”刺突蛋白，以观察它们是否能“与人类细胞相结合”的过程：
-
-*然后当你得到一个病毒序列，它看起来像是一个已知的有害病原体的亲戚，就像我们对SARS所做的那样。我们在蝙蝠身上发现了一大堆其他的冠状病毒，其中一些看起来很像SARS。所以我们对刺突蛋白（附着在细胞上的蛋白质）进行了测序，然后我们…嗯，我没有做这项工作，但我在中共国的同事做了这项工作。你制造出模仿的微粒，你插入这些病毒的突刺蛋白，看它们是否与人类细胞结合。每一步你都离这种病毒越来越近，它可能真的会在人类中致病。*
-
-他补充说：“你最终会得到一小部分真正看起来像杀手的病毒”。
-
-在发表上述评论之前，[越来越多](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)的证据表明，福奇的过敏与传染病研究所与武汉病毒学研究所有着深厚的财务和人事关系，达扎克的生态健康联盟是向中共实验室提供资金的主要代理人之一。
-
-在370万美元的国家过敏与传染病研究所资金的资助下进行的十多篇研究论文中，武汉实验室新兴传染病中心主任石正丽与达扎克是共同作者。石也在她的简历中[包括](https://thenationalpulse.com/breaking/wuhan-researcher-lists-fauci-niaid-grant-on-resume/)了这些由福奇支持的资助。
-
-武汉实验室还将美国国家卫生研究院列为“合作伙伴”之一，并在2021年3月秘密[删除](https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/)了这一说法。
-
-原文作者：娜塔莉·温特斯（Natalie Winters）
-发布时间：2021 年 6 月 8 日
-原文链接：[https://thenationalpulse.com/exclusive/daszak-reveals-chinese-colleagues-manipulating-coronaviruses/](https://thenationalpulse.com/exclusive/daszak-reveals-chinese-colleagues-manipulating-coronaviruses/)
+作者：CPA Jim 所属农场：[喜马拉雅-华盛顿DC农场](https://gnews.org/zh-hans/author/himalayadcgnews/)
 
 
+
+
+
+2021年6月5日G7成员国财政部长与央行行长发布了公报，笔者在Gnews上做了相关报道[《G7国家采取行动处理中共历史性挑战》](https://gnews.org/zh-hans/1302699/)。公报第4点提到欢迎国际财务报告准则基金会（International Financial Reporting Standards Foundation）（以下简称基金会）开发全球可持续发展报告标准。
+
+2021年6月7日国际财务报告准则准则基金会理事会（以下简称理事会）宣告设立知名人士团体（Eminent Persons Group）就设立可持续报告准则委员会的提议和管辖权相关议题为基金会出谋划策。理事会也鼓励社会公众参与评价基金会[章程修改建议稿](https://www.ifrs.org/content/ifrs/home/news-and-events/news/2021/04/ifrs-trustees-publish-institutional-arrangements-for-proposed-new-sustainability-standards-board.html)，可以发邮件反馈。
+
+知名人士团体组成如下：前欧洲中央银行行长特里谢（Jean-Claude Trichet）担任会长，美国联邦存款保险公司（FDIC）​前主席希拉·拜尔（Sheila Bair），印度信息技术公司Infosys董事长和联合创始人南丹尼莱卡尼（Nandan Nilekani），国际清算银行前行长、墨西哥银行前行长吉列尔莫·奥尔蒂斯（Guillermo Ortiz）和国际货币基金组织（IMF）前副总裁朱民。
+
+清华大学五道口金融学院披露朱民现任清华五道口国家金融研究院院长，2003至2009年，任中国银行副行长；2009年10月，任中国人民银行党委委员、副行长。2010年2月24日，兼任国际货币基金组织（IMF）总裁特别顾问。2011年7月13日，国际货币基金组织总裁拉加德正式提名朱民为IMF副总裁。7月26日，他正式出任该组织(IMF)副总裁职位，2016年7月底，卸任国际货币基金组织副总裁一职。
+
+不难看出中共试图通过前IMF副总裁朱民来影响可持续报告准则的制定过程，来为中共谋取非法利益。
+
+正如[《G7国家采取行动处理中共历史性挑战》](https://gnews.org/zh-hans/1302699/)文章所述的，网络防火墙和拒绝美国公众公司会计监督委员会检查审计工作底稿会导致所披露的信息是误导性的，无论是可持续报告还是合并财务报表，继续扭曲国际金融市场。中共企业包括中概股、在中国大陆和香港有业务分部的跨国公司的报告的可信度都会受到不利影响，比如大众汽车、JP摩根、花旗银行等。其中[大众汽车已经出现了尾气排放造假事件](https://www.reuters.com/article/vw-diesel-lawsuits-0910-mon-idCNKCS1LR009)。
+
+可持续报告信息披露虚假对金融市场的误导会非常严重。根据汇丰银行支持，气候债券倡议组织和中共的中债研发中心联合发布的一个[研究报告](https://www.climatebonds.net/files/reports/2019_cbi_china_report_cn.pdf)居然把中共军工企业中国广核能源国际控股有限公司发行的债券列为绿色债券，根据[路德社节目报道](https://gnews.org/zh-hans/1118412/)，香港『众新闻』报道，根据中共国生态环境部2017年的一份政府批文，距离香港只有50公里的拥有六台机组的大亚湾核电站，每年放射性物质液态氚排放量平均为上限的20%，即大约49.5兆贝克，比日本福岛核电站制定的排放标准高出十倍，大亚湾核电站隶属于中广核，中广核发的债券怎么会是绿色债券呢？
+
+因此，可持续报告准则需要有效应对中共构成的信息披露造假挑战。
+
+首先，可持续报告准则应要求在报告的首页披露没有法治、没有言论自由的环境，包括有网络防火墙，对环境保护、社会责任和公司治理（ESG）及相关信息可靠性的影响。
+
+其次，可持续报告准则应要求在可持续报告的审计报告首页披露该国或地方当局阻碍外国监督机构检查审计工作底稿对环境保护、社会责任和公司治理相关信息可靠性的影响。
+
+只要对这两点的基本信息说谎，比如有网络防火墙，偏说没有，或者该国政府阻碍检查审计工作底稿，偏说没有阻碍，明眼人一眼就能看出来整个报告（包括财务报告）没有阅读价值，报告直接扔掉，或留存起来，先买入该公司证券比如1股，再作为起诉发行人欺诈发行证券的证据。
+
+各国的证券交易所实际也可以有所行动，对没有法治、没有言论自由地区来的发行人或者来自于该地区的利润或收入占合并数超过10%的证券简称前面加上\*ST，审计工作底稿不能被检查的证券简称前面加上ST，同时延长该类证券从买入成交到交割日的时间，比如实行T+200交易。
+
+(本文仅代表作者个人观点)
 
 0

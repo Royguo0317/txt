@@ -1,25 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度奥委会弃用中共赞助品牌上东京奥运会
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1310862/)
+## 华为的受阻与中国科技企业的困境
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1310683/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+信息来源：Counterpoint
+发布时间：2021年6月06日 
+翻译 /整理/ 简评： Eternallight
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09155526/I-1.jpg)allplacesmap.com
-印度媒体6月9日报道，印度奥林匹克协会(IOA)决定放弃中共国运动服装品牌李宁作为其奥运会官方服装赞助商，并宣布印度运动员在东京奥运会期间将穿非品牌服装。
+2021年对于华为和许多中国科技企业而言是艰难的一年. 前者因为美国制裁导致原材料断供等危机. 数据显示, 在2020年年底, 华为手机的市场份额就已经跌至全球第五,占比8%. 随后仅仅不到半年时间, 市场份额急速跌至仅4%(有统计说是3.3%),下滑到第七,以下为统计数据(出自Counterpoint)
 
-上周，印度奥委会公布了李宁为东京奥运会设计的奥运装备，引发了批评。据了解，印度体育部随后建议印度奥委会弃用中共赞助商。东京奥运会将于7月23日至8月8日举行。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09155740/image-145.png)
 
-印度奥委会主席纳林德·巴特拉和秘书长拉吉夫·梅赫塔在一份声明中表示：“我们了解球迷们的情绪，印度奥委会决定退出与服装赞助商的现有合同。”“我们的运动员、教练和支持人员将穿无品牌服装。”
 
-自从印度军队和中共军队去年在实控线的紧张局势加剧以来，印度国内一直有人呼吁抵制中共国产品。巴特拉和梅赫塔说：“我们感谢青年事务和体育部做出这一指导决定。”“我们希望我们的运动员能够在训练和比赛中不需要回答有关服装品牌的问题。”据消息人士透露，印度奥委会正在与几家公司进行谈判，试图确保运动员在奥运会上不会没有品牌。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09155423/Counterpoint-Research-Global-Smartphone-Shipments-Market-Share-2018-Q1-2021-Q1.png)
 
-印度奥委会官员感谢印度精英运动员及教练组和支持人员的“奉献精神”，期待他们在奥运会上取得好成绩。同时声明 “我们在IOA、国家体育联合会、政府和其他利益相关方的生态系统中有着极佳的协同作用。”
 
-参考链接：
+智能手机市场份额下降, 海外5G扩张受阻,芯片供应被掐脖子. 中国科技行业最高的”灯塔”似乎渐渐暗淡无光. 这是当下中国经济变迁的一个索引. 当然灾难还远远不止于此. 因为其它科技企业,在没有官方背景和资金,资源等支持的前提下,可能面临比华为更加艰难的处境. 据消息人士透露, 由于华为被制裁,导致部分原材料供应被迫由大陆芯片厂家承担. 在工艺不完善, 原材料供应受阻,缺乏技术积累等情况下导致良率降低,严重挤占产能, 进而导致了严重的芯片供应紧张.  而随着美国将大陆最先进的晶圆代工厂中芯国际(SMIC)列入出口管制和投资黑名单. 势必加剧这一紧张局势. 科技行业将面临前所未有的困难局面.
 
-[https://www.espn.com/olympics/story/\_/id/31593538/ioa-drops-chinese-brand-li-ning-indian-athletes-wear-unbranded-apparel-tokyo-games?platform=amp](https://www.espn.com/olympics/story/_/id/31593538/ioa-drops-chinese-brand-li-ning-indian-athletes-wear-unbranded-apparel-tokyo-games?platform=amp)
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
+
+🔗[www.counterpointresearch.com/global-smartphone-share/](https://www.counterpointresearch.com/global-smartphone-share/)
 
 0

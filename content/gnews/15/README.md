@@ -1,33 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大流行前获得疫苗专利的中共国军事科学家
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1311039/)
+## 挖掘的爆炸性视频显示：彼得·达扎克描述中共国同事正在开发“杀手”冠状病毒
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1311024/)
 
-消息来源：今日意大利（today.it）
-发布时间：2021年06月07日
-翻译整理：斩草要除根
+翻译：烟波浩淼 |校对：黎明的光芒 |审核：黎明的光芒
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09172558/picture-1-6.png) 图片来自视频截图
+生态健康联盟主席彼得·达扎克（Peter Daszak）与武汉病毒学研究所合作进行了一项由安东尼·福奇（Anthony Fauci）博士的国家过敏与传染病研究所（NIAID）资助的研究。似乎在《国家脉搏》挖掘的一段视频中夸耀他的 “中共国同事” 对类似SARS的 “杀手” 冠状病毒的操纵。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26163209/4801271a-45a8-4ad6-9121-d932090e3e77_w948_r1.77_fpx65.32_fpy49.99.jpg)
+达扎克是在2016年一个讨论“[新出现的传染病和下一次大流行](https://www.c-span.org/video/?404875-1/pandemics)”的论坛上承认这一点的，这似乎与福奇一再[否认](https://www.washingtonpost.com/politics/2021/05/18/fact-checking-senator-paul-dr-fauci-flap-over-wuhan-lab-funding/)资助了武汉病毒学研究所功能增强研究的说法相矛盾。
+
+达扎克在描述他的组织是如何对致命病毒进行测序的同时，还描述了他的“中共国同事”在病毒中“插入”刺突蛋白，以观察它们是否能“与人类细胞相结合”的过程：
+
+*然后当你得到一个病毒序列，它看起来像是一个已知的有害病原体的亲戚，就像我们对SARS所做的那样。我们在蝙蝠身上发现了一大堆其他的冠状病毒，其中一些看起来很像SARS。所以我们对刺突蛋白（附着在细胞上的蛋白质）进行了测序，然后我们…嗯，我没有做这项工作，但我在中共国的同事做了这项工作。你制造出模仿的微粒，你插入这些病毒的突刺蛋白，看它们是否与人类细胞结合。每一步你都离这种病毒越来越近，它可能真的会在人类中致病。*
+
+他补充说：“你最终会得到一小部分真正看起来像杀手的病毒”。
+
+在发表上述评论之前，[越来越多](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)的证据表明，福奇的过敏与传染病研究所与武汉病毒学研究所有着深厚的财务和人事关系，达扎克的生态健康联盟是向中共实验室提供资金的主要代理人之一。
+
+在370万美元的国家过敏与传染病研究所资金的资助下进行的十多篇研究论文中，武汉实验室新兴传染病中心主任石正丽与达扎克是共同作者。石也在她的简历中[包括](https://thenationalpulse.com/breaking/wuhan-researcher-lists-fauci-niaid-grant-on-resume/)了这些由福奇支持的资助。
+
+武汉实验室还将美国国家卫生研究院列为“合作伙伴”之一，并在2021年3月秘密[删除](https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/)了这一说法。
+
+原文作者：娜塔莉·温特斯（Natalie Winters）
+发布时间：2021 年 6 月 8 日
+原文链接：[https://thenationalpulse.com/exclusive/daszak-reveals-chinese-colleagues-manipulating-coronaviruses/](https://thenationalpulse.com/exclusive/daszak-reveals-chinese-colleagues-manipulating-coronaviruses/)
 
 
-图片来源：路透社
-
-早在全球大流行宣布之前，中共国军事科学家周育森（ Yusen Zhou） 就提交了中共病毒疫苗的专利申请。这是澳大利亚报纸《澳大利亚人报》中所写的内容，报道称，这位为中共国军队工作的科学家于 2020 年 2 月 24 日就提交了相关的文件，这距离中共国当局证实中共病毒是人传人这一消息还有五周时间。
-
-据称，周还与武汉病毒研究所（WIV）的科学家有着“密切”的合作关系，其中包括实验室副主任石正丽，她以蝙蝠研究而闻名。正是根据这份报道的内容加剧了人们的怀疑：即该病毒来自武汉实验室，而中共国当局早在向国际社会发出警报之前就已知道该病毒可以在人类之间中传播。
-
-在提交新冠病毒疫苗专利申请不到三个月后，周似乎也神秘的死亡了。尽管他是中共国最权威的科学家之一，但他的失踪并没有出现在中共国的媒体上。周还曾与美国的一些机构有过合作，如明尼苏达大学和纽约血液中心。
-
-最近几周，大流行是武汉实验室事故结果的这一说法在最初被认为是不太可能之后现在变得越来越一致。来自世界各地的几位科学家要求澄清病毒的真正起源，而美国总统乔拜登已下令情报机构进行彻底调查，以确定新冠病毒是否是人为制造的。
-
-在澳大利亚报纸提供的其他文件中，还有证据表明美国人早已经知道武汉当时发生的事情，安东尼·福奇的同一个机构会资助了中共国军队对冠状病毒进行基因操纵的研究。
-
-简评：2021年的“以毒灭共”之年，各国媒体相继把注意力开始聚焦在病毒真相上了。一步一步虽然很艰难，但是却在积极的慢慢推进。终有定罪中共的那天会来。
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
-
-🔗[rassegna/yusen-zhou](https://www.today.it/rassegna/yusen-zhou.html)
 
 0
