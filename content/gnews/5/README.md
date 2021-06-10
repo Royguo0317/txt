@@ -1,45 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】跟着钱走：检查一下大型制药公司、福奇博士和羟氯喹的联系
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1311367/)
+## 澳大利亚将要推行新冠疫苗接种证书吗？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1311378/)
 
-**整理撰稿：蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09210745/29-2.jpg)
-作者Kelly Sadler2021年6月9日 在华盛顿时报发表分析文章：为了更好地了解去年使用羟氯喹 (HCQ) 治疗 COVID-19 患者是如何成为科学泥潭的，最好还是跟着钱走。
+撰稿： 喜国公民
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09210525/EADB3780-61ED-45CC-9E2A-ED72198D92A0-edited.jpeg)
+图片来自网络
 
-HCQ 很便宜（在 COVID-19 治疗过程中花费不到 10 美元），开处方 80 多年的医生熟知，并且可以口服。然而，美国国家过敏和传染病健康研究所的 Anthony Fauci 博士和其他人更喜欢瑞德西韦，这是一种由吉利德科学公司制造的专有静脉注射药物，每次治疗的成本约为 3,500 美元，副作用未知。为了不让大型制药公司生气，并可能威胁邀请参加鸡尾酒会，董事会席位和威胁拨款，福奇博士和他的团队竭尽全力宣传瑞德西韦并淡化 HCQ，这可能导致全球数百万人丧生。
+据[水星报报道](https://www.themercury.com.au/news/victoria/australians-to-get-covid19-vaccination-certificate/news-story/50b5ae432c05780ae09276fcc168021d?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_AM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=6)，接种过Covid-19疫苗的澳州人将收到一份证书。该证书将通过医疗保险应用程序提供。澳州服务局的官僚们在上周五的参议院听证会上确认，该证书将在几天内推出。
 
-尽管世界各地的许多医生都在 HCQ 方面取得了成功，但 2020 年 2 月，NIH 开始招募患者进行 remdesivir COVID-19 试验，福奇博士负责监督其进展。他对所有新闻稿拥有最终决定权，并且大概与吉利德公司密切合作。4 月 16 日，试验发生了一些有趣的事情——它的终点在临床试验.gov 网站上悄然改变和更新。该研究没有评估瑞德西韦预防 COVID-19 死亡的能力，而是重新设计以评估患者从瑞德西韦中恢复的速度。
+这一举措的目的是以帮助激励更多澳州人接种疫苗，为政府和企业对未接种的人实施严厉的规定铺平道路。尽管国家内阁尚未同意，企业可能会寻求使用该证书来拒绝向那些没有接种疫苗的人提供服务。然而，这个新冠疫苗接种证书真的能在澳洲推行吗？
 
-这是一个有趣的变化，因为**世界卫生组织泄露的一项关于瑞德西韦的研究表明，在 COVID-19 患者身上使用该药物没有统计学上显著的临床益处，而且它有严重的副作用。**然而它确实在减少恢复时间方面显示出一些希望。当这项研究的消息被公之于众时，4 月 23 日，吉利德股价下跌。
+一些州的领导人批评了这一计划。新南威尔士州州长Gladys Berejiklian宣称，澳大利亚的自由流动不应取决于疫苗。一些联邦自由党议员对政府推动澳大利亚人需要疫苗证书才能自由旅行表示担忧。
 
-贝勒医学院的 Dennis Bier 博士和哥本哈根大学的 Arne Astrup 在 BMJ Medical Trade Journal 上写道，NIH 将其研究终点移动到试验中期的决定通常不受欢迎，因为试验设计并未起草关注次要终点，可能会产生不可靠的数据，并且可能“将偏见引入试验并创造操纵机会”。
+总理斯科特-莫里森希望接种疫苗的澳州人能够绕过各州的旅行限制。表示，如何使用该证书由各州和地区决定。
 
-在 4 月 29 日，NIH 热情地公布了其结果。福奇博士在椭圆形办公室与前总统川普一起露面时说，有理由感到乐观，该研究实现了其主要目标，即缩短康复时间，而接受瑞德西韦治疗的患者的康复时间缩短了四天。他没有提到研究的终点在试验中途发生了变化。尽管如此，媒体之旅还是开始了，福奇博士带头，称赞瑞德西韦，同时抨击 HCQ 缺乏类似的临床试验。吉利德股价飙升。
+如果新冠疫苗接种证书是由各州和地区来决定，那么，那些不愿接种疫苗的澳洲人可以选择去那些没有实行新冠疫苗接种证书的州和地区去居住。这要好过中共国的强制性打疫苗，使人没有任何选择。
 
-5 月 1 日，NIH 的 COVID-19 治疗指南小组成员批准了瑞德西韦的紧急使用，并表示 HCQ 只能在医院或研究中使用。调查记者 Sharyl Attkisson 发现该小组的 11 名成员与吉利德有经济联系。其中两人在吉利德的顾问委员会任职，其他人则是有偿顾问或获得研究支持和酬金。然而，所有成员都与由众多仿制药制造商生产的 HCQ 没有任何关系，而且“价格如此便宜，分析师表示，即使销售激增也不会成为这些公司的财务驱动因素，”阿特基森女士报告说。
+但是，这会照成不必要的人口流动。给居民带来工作，学习和生活上的不便。
 
-Attkisson 女士还发现，**一项声称 HCQ 导致死亡人数增加的小型退伍军人管理局试验的作者之一在 2018 年从吉利德获得了 247,000 美元的赠款**。
+该报道还提供了一个新冠疫苗接种证书的样本。除了接种人的姓名，生日等信息外，还包括证书从什么时候开始生效。由于目前市场上的新冠疫苗都是针对数月前发现的新冠毒株来生产的。如果遇到新冠病毒的变异毒株，还会被感染。
 
-5 月 22 日，柳叶刀发表的一篇欺诈论文在 HCQ 的棺材上钉上了钉子，声称表明 HCQ 无效且危险。这项现已被揭穿和撤回的研究的主要作者是哈佛大学教授 Mandeep Mehra 博士，他在一个月前参加了由吉利德联合主办的讨论 COVID-19 的会议。许多人猜测吉利德是否代笔撰写了这项研究，因为率先开展这项工作的公司 Surgisphere 只有少数最近雇用的员工，据报道其中包括一名科幻作家和一名成人内衣模特。
+持有新冠疫苗接种证书的澳洲人会认为自己比没有接种新冠疫苗的人能够更安全地不受任何限制地旅游，从而会放松对周边环境的警惕，反而会更容易被变异的新冠病毒感染，并且会更快，更大范围地传染给其他人群。
 
-然而，损害已经造成。6 月 11 日，NIH 更新了其 COVID-19 指南，建议除临床试验外不要使用 HCQ。几天后，即 6 月 15 日，美国食品和药物管理局撤销了 HCQ 的紧急使用，瑞德西韦是美国唯一官方认可的治疗 COVID-19 的药物。
+解决目前大流行的关键是要彻底查清新冠病毒的来源。如果发现病毒是由实验室制造出来的生化武器，政府就要告诉澳洲人，我们正处在一场生化战争当中。只有铲除了释放病毒的根源，才会阻断新病毒的出现。
 
-吉利德在 2020 年第一季度用于游说联邦政府的 245 万美元花得很好。与此同时，**本月发布的一项新的、尚未经过同行评审的 HCQ 研究发现，它与阿奇霉素一起服用，可将COVID-19 患者存活率提高近 200%。**
+获得2008年诺贝尔医学奖的法国科学家Luc Montagnier教授在接受采访时提到，”大规模接种疫苗是一个非常严重的医学错误，因为变异病毒来自疫苗本身。新冠疫苗接种证书绝不是一个解决问题的好办法。逼迫越来越多的澳洲人打疫苗，只能把澳大利亚推向万劫不复的深渊！
 
-要是药里有钱就好了，想象一下本可以挽救的生命。
+(文章内容仅代表作者观点)
 
-**小象：补充资料：（维基百科）**
+*编辑：cindy*
 
-瑞德西韦是由吉利德科学进行研发的项目，此药物尚未在美国以及任何国家获得批准上市，亦尚未注册专利[10]。2019冠状病毒病于中国爆发期间，吉利德免费向中国提供瑞德西韦[11]，中国科学院武汉国家生物安全实验室与合作单位在2020年1月21日抢先申报中国发明专利《瑞德西韦抗2019新型冠状病毒的用途》，引发争议与讨论[12]；对此，吉利德则回应“公司的核心关注在于病人，不希望卷入专利纠纷”[11][13]。世界卫生组织（WHO）指称瑞德西韦（remdesivir）临床实验无效[14]。
+参考消息：
 
-\*以上仅代表作者观点，不代表Gnews平台\*
-
-**参考链接：**
-
-[https://www.washingtontimes.com/news/2021/jun/9/follow-the-money-big-pharma-dr-fauci-and-the-death/?utm\_campaign=shareaholic&utm\_medium=twitter&utm\_source=socialnetwork](https://www.washingtontimes.com/news/2021/jun/9/follow-the-money-big-pharma-dr-fauci-and-the-death/?utm_campaign=shareaholic&amp;utm_medium=twitter&amp;utm_source=socialnetwork)
-
-***校对发布**：文顾*
-
-+1
+[https://www.themercury.com.au/news/victoria/australians-to-get-covid19-vaccination-certificate/news-story/50b5ae432c05780ae09276fcc168021d?utm\_source=Mercury&utm\_medium=email&utm\_campaign=Editorial&utm\_content=MERC\_LATESTNEWS\_AM-CUR\_01&net\_sub\_id=287163446&type=curated&position=1&overallPos=6](https://www.themercury.com.au/news/victoria/australians-to-get-covid19-vaccination-certificate/news-story/50b5ae432c05780ae09276fcc168021d?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_AM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=6)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+0

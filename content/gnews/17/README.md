@@ -1,26 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共黑警镇压手无寸铁的“国家栋梁”
-` yanyan123` [轉載自GNews](https://gnews.org/zh-hans/1311150/)
+## 6月9日美国政要反共推特精选：要求国会对新冠大流行的起因进行全面调查
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1311206/)
 
-作者+校对：文好好
-编辑：嫣嫣123
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09191245/DD794C28-6183-439F-B8B4-5365988DC77A.jpeg)
-网络科技日益发达的今天，手握一部手机、电脑等电子工具，可以瞬时间查阅世界各国的信息，世界也因此完全进入了无国界、无时区的地球村时代。同时，太空时代、信息时代的到来也标志着人类文明的发展已近进入了一个崭新的台阶，具有划时代的意义。这一切的美好，在中共国内似乎是一个美丽的传说——遥不可及，极慢的网络速度、漫天遍野的假大空新闻、大外宣媒体等蒙蔽了我们的双眼，掩蔽了我们的双耳；更可悲的是，中共国内举国上下，只能坐井观天，看不到外面真实的世界，望不到外面的世外桃源，因为使用翻墙软件VPN是犯法行为。
+参议员霍利新闻办公室： 在数千页电子邮件的泄露，进一步损害了福奇的信誉和声誉之后，霍利呼吁他辞职，并要求国会对新冠大流行的起因进行全面调查。
 
-近日，中共国内，持刀杀人、掠杀幼儿、青年跳楼、镇压学生、天降大雪、冰雹等天灾人祸接连不断、频频发生。据网络社交媒体，南京师范大学中北学院莘莘学子遭到中共黑警的无耻镇压。对此，笔者感到气愤不已，反省自己能为即将毕业的学子做点什么，特写此文，以表诚意。
 
-当看到这些无辜的学子，尝试着用法律武器维护者自己的尊严的时候；当看到这些无辜的学子，用铿锵有力的呐喊，捍卫自己的权益的时候；当看到这些无辜的学子，用鲜血、甚至生命来奋起反抗的时候；当看到这些无辜的学子，枪林弹雨、辣椒泪雾中不屈不挠、互相救助的时候；当看到这些无辜的学子，被软禁于他们曾经梦寐以求的大学校园、家长亦不能进入的时候；当看到这些无辜的学子…… 泪水轻轻的划下了眼眸，心中只有愧疚。香港反送中大游行中被伤害、被消失、被强奸的孩子们的在天之灵尚未安息之时，中共的魔爪又一次伸入到中共国内无辜的学生手中。我们需要铭记在心：他们是父母眼中骄傲的孩子，是国家手无寸铁的栋梁，他们正在为了维护他们最基本的权益同中共恶警、暴警、黑警抗争。
 
-视频中显示，众多莘莘学子团结有序的游行呐喊、维护自己的合法权益，但中共却派遣数不清的警察封锁、镇压、暴力打压。此外，透过视频还可以看到数名黑警手持警棍殴打一个学生，更是有女生被打至脸青、头破血流。不仅如此，数名学生被抓捕至警察、特警的黑车。对此，学校一直压制消息，中共各种所谓的“真实、真相、责任”媒体也变得鸦雀无声。从小学教育开始接受学党、爱党、忠于党，支持中国警察等各种继承红色基因的教育，但现如今，伟大的中共国、伟大的警察、神圣的高等教育等都在不停地摧残着平白无故的莘莘学子。这些无辜的孩子，手无寸铁，却只能用呐喊来表达他们心中的愤怒以及对国家的失望。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09191309/40B82F7F-0597-4612-9246-051B99B3A4B7.jpeg)
-中共政府面对无辜的孩子，利用黑警对其打压，视家长、孩子的生命如草芥。对此，中共政府、媒体封锁消息，使人们无法得知真相，这是十分可悲的事情。一个连自己国家未来的栋梁、未来的主人都不尊敬、都不保护的政府，我们有什么理由不推翻它、消灭它。只有消灭中共，才是对无辜怨灵的最大安慰；只有消灭中共，才能对得起中共国内空中飘荡的孤魂野鬼；只有消灭中共，才是对我们子孙后代最大的交代。
+> After the release of thousands of pages of emails that have further damaged the credibility and reputation of Fauci, Hawley is calling on him to resign and for a full congressional investigation into the origins of the COVID pandemic. [https://t.co/NQi2NuTBYd](https://t.co/NQi2NuTBYd)
+> — Senator Hawley Press Office (@SenHawleyPress) [June 9, 2021](https://twitter.com/SenHawleyPress/status/1402678526336245767?ref_src=twsrc%5Etfw)
 
-14亿同胞们，当你们看见此文的时候，一定要去努力寻找真相，集结于世界各地的喜马拉雅农场，归宿于新中国联邦。新中国联邦才是我们唯一的归宿、温暖的家，一定要紧紧跟随郭文贵先生发起的暴力革命，了解真相、传播真相。在这里，我们有自由发声的平台——GTV、Gnews、Getome；在这里，可以得到自由、民主、法治的甘露；在这里有亿万战友等待着你的归来。
 
-同时，一定要明白，我们深爱中华五千年传承下来的优秀传统文化；我们深爱勤劳智慧、勇敢无畏的中华民族；我们也深爱我们伟大的国家。但是，我们反对集权、独裁的中共政府，而且要团结起来推翻邪恶的中国共产党，归宿于伟大的新中国联邦。正如新中国联邦宣言所说：消灭中共是正义的需求，新中国联邦人永不为奴。
 
-（免责声明：本文仅代表作者本人观点）
+众议院外交委员会共和党： 领袖麦考尔在福克斯就 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) Covid 掩盖事件说：“我认为所有路都指向武汉实验室那里。我确实认为是有一种说法是意外释放，但除非 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 开放，否则我们可能永远不会知道真相。” 看这里
+
+
+
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) with [@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw) on the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s Covid cover-up: “I think all roads lead to the Wuhan lab here. I do think there’s an argument that there was an accidental release, but we may never know the truth unless the Chinese Communist Party opens up.”
+>  
+> Watch here⬇️ [pic.twitter.com/ndPiiTRFOy](https://t.co/ndPiiTRFOy)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [June 9, 2021](https://twitter.com/HouseForeignGOP/status/1402694388917194754?ref_src=twsrc%5Etfw)
+
+
+
+众议员爱丽丝·斯泰凡尼可： 美国人民应该得到答案。国会必须对新冠的起源展开调查。 （附众议院共和党推特：行政管理和预算局代理局长，拒绝说拜登总统的预算不会资助武汉病毒学研究所。 你们缴纳的税款不该用于资助可能产出新冠的中国实验室。）
+
+
+
+> The American people deserve answers. Congress MUST launch an investigation into the origin of COVID-19. [https://t.co/bpZiaOwmBZ](https://t.co/bpZiaOwmBZ)
+> — Rep. Elise Stefanik (@RepStefanik) [June 9, 2021](https://twitter.com/RepStefanik/status/1402703178806841344?ref_src=twsrc%5Etfw)
+
+
+
+众议员布里安·斯太尔： 美国不应该直接或间接地资助中国共产党控制的实验室——如武汉病毒学研究所——的功能获得性研究
+
+
+
+> The United States should not be funding—directly or indirectly—gain-of-function research in CCP controlled labs, such as the Wuhan Institute of Virology.
+> — Bryan Steil (@RepBryanSteil) [June 9, 2021](https://twitter.com/RepBryanSteil/status/1402619594641129474?ref_src=twsrc%5Etfw)
+
+
+
+众议员布里安·马斯特： 无论是掩盖新冠肺炎疫情，还是侵犯人权，都必须全方位追究中共国的责任。 （转CNN报道：维吾尔人正被穆斯林国家驱逐出境，这引发了人们对中国影响力不断扩大的担忧）
+
+
+
+> From their COVID cover up to human rights abuse, China must be held accountable on all fronts.[https://t.co/Xj3VZPncVH](https://t.co/Xj3VZPncVH)
+> — Rep. Brian Mast (@RepBrianMast) [June 9, 2021](https://twitter.com/RepBrianMast/status/1402671838258401291?ref_src=twsrc%5Etfw)
+
+
 
 0

@@ -1,41 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国际可持续报告准则应如何应对中共造假
-` Jimsolomon` [轉載自GNews](https://gnews.org/zh-hans/1311044/)
+## 【热点播报】萨尔瓦多成全球首个将比特币列为法定货币的国家
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1311061/)
 
-可持续报告准则应要求在报告的首页披露没有法治、没有言论自由的环境，包括网络防火墙，审计工作底稿不能被证券发行国会计监督机构检查等情况对环境保护、社会责任和公司治理（ESG）及相关信息可靠性的影响。
+**作者：纽约香草山农场经济小组 乱谈秦**
 
-作者：CPA Jim 所属农场：[喜马拉雅-华盛顿DC农场](https://gnews.org/zh-hans/author/himalayadcgnews/)
-
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
 
 
 
-2021年6月5日G7成员国财政部长与央行行长发布了公报，笔者在Gnews上做了相关报道[《G7国家采取行动处理中共历史性挑战》](https://gnews.org/zh-hans/1302699/)。公报第4点提到欢迎国际财务报告准则基金会（International Financial Reporting Standards Foundation）（以下简称基金会）开发全球可持续发展报告标准。
 
-2021年6月7日国际财务报告准则准则基金会理事会（以下简称理事会）宣告设立知名人士团体（Eminent Persons Group）就设立可持续报告准则委员会的提议和管辖权相关议题为基金会出谋划策。理事会也鼓励社会公众参与评价基金会[章程修改建议稿](https://www.ifrs.org/content/ifrs/home/news-and-events/news/2021/04/ifrs-trustees-publish-institutional-arrangements-for-proposed-new-sustainability-standards-board.html)，可以发邮件反馈。
 
-知名人士团体组成如下：前欧洲中央银行行长特里谢（Jean-Claude Trichet）担任会长，美国联邦存款保险公司（FDIC）​前主席希拉·拜尔（Sheila Bair），印度信息技术公司Infosys董事长和联合创始人南丹尼莱卡尼（Nandan Nilekani），国际清算银行前行长、墨西哥银行前行长吉列尔莫·奥尔蒂斯（Guillermo Ortiz）和国际货币基金组织（IMF）前副总裁朱民。
+2021年6月9日，萨尔瓦多（El Salvador）国会通过《比特币法》，成为全世界第一个将比特币列为法定货币的国家。
 
-清华大学五道口金融学院披露朱民现任清华五道口国家金融研究院院长，2003至2009年，任中国银行副行长；2009年10月，任中国人民银行党委委员、副行长。2010年2月24日，兼任国际货币基金组织（IMF）总裁特别顾问。2011年7月13日，国际货币基金组织总裁拉加德正式提名朱民为IMF副总裁。7月26日，他正式出任该组织(IMF)副总裁职位，2016年7月底，卸任国际货币基金组织副总裁一职。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09175826/147-1.jpg)2021年6月8日，萨尔瓦多Chiltiupan的El Zonte海滩一家小餐馆外出现了比特币横幅。来源：REUTERS/Jose Cabezas/File Photo
 
-不难看出中共试图通过前IMF副总裁朱民来影响可持续报告准则的制定过程，来为中共谋取非法利益。
+萨尔瓦多是位于中美洲北部的沿海国家，也是中美洲人口最密集的国家。它毗邻太平洋，国土面积20720平方公里，下设14个省，2019年总人口670.5万。萨尔瓦多国内经济以农业为主，主要盛产咖啡豆和棉花，工业基础薄弱，是世界上“中低等收入国家” 之一，2019年GDP为267.5亿美元。
 
-正如[《G7国家采取行动处理中共历史性挑战》](https://gnews.org/zh-hans/1302699/)文章所述的，网络防火墙和拒绝美国公众公司会计监督委员会检查审计工作底稿会导致所披露的信息是误导性的，无论是可持续报告还是合并财务报表，继续扭曲国际金融市场。中共企业包括中概股、在中国大陆和香港有业务分部的跨国公司的报告的可信度都会受到不利影响，比如大众汽车、JP摩根、花旗银行等。其中[大众汽车已经出现了尾气排放造假事件](https://www.reuters.com/article/vw-diesel-lawsuits-0910-mon-idCNKCS1LR009)。
+萨尔瓦多严重依赖海外汇回的钱。世界银行数据显示，2019年汇往该国的海外资金有近60亿美元，约占其GDP的20%，是世界上比例最高的之一。目前萨尔瓦多主要使用现金交易，大约70%的国民无法获得传统的金融服务。
 
-可持续报告信息披露虚假对金融市场的误导会非常严重。根据汇丰银行支持，气候债券倡议组织和中共的中债研发中心联合发布的一个[研究报告](https://www.climatebonds.net/files/reports/2019_cbi_china_report_cn.pdf)居然把中共军工企业中国广核能源国际控股有限公司发行的债券列为绿色债券，根据[路德社节目报道](https://gnews.org/zh-hans/1118412/)，香港『众新闻』报道，根据中共国生态环境部2017年的一份政府批文，距离香港只有50公里的拥有六台机组的大亚湾核电站，每年放射性物质液态氚排放量平均为上限的20%，即大约49.5兆贝克，比日本福岛核电站制定的排放标准高出十倍，大亚湾核电站隶属于中广核，中广核发的债券怎么会是绿色债券呢？
+该国总统纳伊布·布克莱（Nayib Bukele）向国会提交文件，提议让比特币成为该国法定货币。提案称：“该法律的目的是将比特币作为不受限制的法定货币进行监管，让比特币具有自由权力，在任何交易中都不受限制，并且具有公共或私人、自然人或法人所拥有的任何所有权。”
 
-因此，可持续报告准则需要有效应对中共构成的信息披露造假挑战。
+6月9日布克莱通过Twitter宣布，《比特币法》已经获得该国国会绝对多数票通过，在84名参加投票的议员中，有62位投了赞成票。“比特币的历史性时刻！”他写道。
 
-首先，可持续报告准则应要求在报告的首页披露没有法治、没有言论自由的环境，包括有网络防火墙，对环境保护、社会责任和公司治理（ESG）及相关信息可靠性的影响。
 
-其次，可持续报告准则应要求在可持续报告的审计报告首页披露该国或地方当局阻碍外国监督机构检查审计工作底稿对环境保护、社会责任和公司治理相关信息可靠性的影响。
 
-只要对这两点的基本信息说谎，比如有网络防火墙，偏说没有，或者该国政府阻碍检查审计工作底稿，偏说没有阻碍，明眼人一眼就能看出来整个报告（包括财务报告）没有阅读价值，报告直接扔掉，或留存起来，先买入该公司证券比如1股，再作为起诉发行人欺诈发行证券的证据。
+> The [#BitcoinLaw](https://twitter.com/hashtag/BitcoinLaw?src=hash&amp;ref_src=twsrc%5Etfw) has been approved by a supermajority in the Salvadoran Congress.
+> 
+> 62 out of 84 votes!
+> 
+> History! [#Btc](https://twitter.com/hashtag/Btc?src=hash&amp;ref_src=twsrc%5Etfw)🇸🇻
+> — Nayib Bukele 🇸🇻 (@nayibbukele) [June 9, 2021](https://twitter.com/nayibbukele/status/1402507224916836352?ref_src=twsrc%5Etfw)
 
-各国的证券交易所实际也可以有所行动，对没有法治、没有言论自由地区来的发行人或者来自于该地区的利润或收入占合并数超过10%的证券简称前面加上\*ST，审计工作底稿不能被检查的证券简称前面加上ST，同时延长该类证券从买入成交到交割日的时间，比如实行T+200交易。
 
-(本文仅代表作者个人观点)
+
+萨尔瓦多现行法定货币是美元。该法案公示90天后，比特币将正式成为该国法定货币，比特币与美元的汇率将由市场自由决定。法案的通过，意味着萨尔瓦多的商品价格将可以用比特币标示，税款将可以用比特币支付，交易比特币获益也将在资本利得税征收范围内。
+
+该法案称，加密货币是提升金融普惠性的一种手段，该国还将推动必要的培训和机制，以便人们能够进行比特币交易。
+
+布克莱上周就曾经宣布，与数字钱包公司Strike展开合作，使用比特币技术建设该国的现代化金融基础设施。此外，萨尔瓦多将运营一个信托基金，该基金将持有价值约1.5亿美元的比特币，以抵消比特币市场的波动，确保商家不必承担风险。
+
+布克勒表示，萨尔瓦多将授予发布3枚比特币(约11万美元)的移民永久居住权。他还表示，萨尔瓦多政府将为公民推出一个比特币钱包，但公民可以自主选择使用与否。
+
+比特币成为萨尔瓦多法定货币，加密货币的支持者欢呼此举使这种新兴资产合法化，同时由于比特币为洗钱和其他非法用途提供了便利，此举对比特币监管、税收或在其他国家的影响仍有待观察。
+
+据Coindesk网站数据，截至当前，比特币交易价格约为36500美元，较萨尔瓦多通过《比特币法》消息公布时已上涨约9%。
+
+(文章仅代表作者本人观点)
+
+参考阅读：
+
+[In a world first, El Salvador makes bitcoin legal tender](https://www.reuters.com/article/el-salvador-bitcoin/update-4-in-a-world-first-el-salvador-makes-bitcoin-legal-tender-idUSL2N2NR0CY)
+
+[萨尔瓦多通过《比特币法》：成为首个将比特币作为法定货币的国家](http://finance.eastmoney.com/a/202106091955414655.html)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+
+编辑/校对/发稿：小鹿
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+
+
+
+
 
 0
