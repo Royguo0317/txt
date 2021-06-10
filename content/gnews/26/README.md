@@ -1,35 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国防长下令军事重点关注中共国
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1312173/)
+## 气候和疫苗 &#8211; 鲍里斯约翰逊G7 峰会的两大议题
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1312241/)
 
 信息来源：德国世界报网络版
 发布时间：2021年6月10日
 翻译 /整理/ 简评： Shuizhuyu
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10045940/michael-afonso-BQgAYwERXhs-unsplash-scaled.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10053301/jutta-weber-vidal-kC8GByjp-bA-unsplash-scaled.jpg)
 
 
-美国将中共国视为其最大的战略竞争对手。因此，国防部长劳埃德·奥斯汀现在想要一个以中华人民共和国为重点的新战略。它要求发展新概念、新能力和未来武装力量。
+七国集团峰会于周五开始。周五午餐时间，全世界都在关注康沃尔郡的一家豪华海滩酒店。随后，英国首相鲍里斯·约翰逊欢迎世界上最富有国家的领导人参加七国集团峰会。全球联合抗击大流行病在卡比斯湾的议程上占据重要位置。但不仅如此。对于鲍里斯·约翰逊来说，七国集团峰会只是在英国领土上举行的两轮决定性回合之一：联合国气候大会将于 11 月在格拉斯哥举行。
 
-美国国防部长劳埃德奥斯汀已正式下令其机构更多地关注中国。奥斯汀周三（当地时间）表示，他的倡议是美国政府对中共国更大方针的一部分。华盛顿将中华人民共和国列为其最大的战略对手。
+这就是约翰逊想要在康沃尔建立一个组合的原因：疫苗接种和气候。富裕的工业化国家应该做出有约束力的承诺，为贫穷国家的弱势群体提供免疫接种——这样他们就会承诺执行有针对性的气候计划。
 
-国防部内部命令的细节仍然保密。奥斯汀表示，该政策将“重振我们的盟友和合作伙伴网络，加强威慑并加速发展新的作战概念、新能力、未来武装力量以及现代化的文职和军事劳动力。”
-
-该倡议是在 2 月份由美国新总统乔·拜登 (Joe Biden) 领导的专家委员会进行评估之后提出的，该委员会旨在调查五角大楼的对华战略。
-
-焦点从中东转向太平洋，在过去的二十年里，美国国防部主要专注于打击中东的圣战势力。与中国最先进的武装力量打交道是一个完全不同的挑战。
-
-美国军方目前热衷于扩大其在太平洋的存在。中共国在该地区也变得越来越咄咄逼人，包括针对台湾，北京认为台湾是一个中共国的省份。
-
-尽管美国已开始从阿富汗撤出剩余的 2,500 名士兵，但它仍继续在中东保持重要的军事存在。
-
-简评：五角大楼的决定的细节虽然还是保密的， 但是目标直指中共国，这是一个好消息。 美国对待中共国是有章法有计划有依据的。 近期就要进行的北约峰会， 要讨论的议题也不难想像。而这篇报道能够在德国媒体出现， 也是非常明确的信号。 原文中还是使用了中国这个字眼， 在翻译中已经改成了中共国。这个概念在欧洲还要时间更正。
+简评： 周五也就是明天， G7峰会将在英国举行。 世界上最富裕的7个工业国聚集英国， 会议的主题是少不了病毒大流行和疫苗接种运动。 但是我相信， 病毒的起源肯定也躲不过这个峰会的话题。 美国总统拜登上任后的第一个旅行就定在了欧洲。 和欧洲的联合也势不可挡。  联合起来要对付的就是独裁统治。
 
 免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 发表： Shuizhuyu
 
-🔗[USA-Verteidigungsminister-ordnet-militaerischen-Fokus-auf-China-an](https://www.welt.de/politik/ausland/article231710665/USA-Verteidigungsminister-ordnet-militaerischen-Fokus-auf-China-an.html)
+🔗[G-7-Gipfel-Impfstoff-fuer-Klimaversprechen-Johnsons-Deal-mit-Afrika](https://www.welt.de/politik/ausland/plus231690505/G-7-Gipfel-Impfstoff-fuer-Klimaversprechen-Johnsons-Deal-mit-Afrika.html)
 
 0

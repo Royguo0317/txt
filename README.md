@@ -12,138 +12,138 @@
 
 ---
 
-### [【DC大中华时事】两年前6月9日103 万港人走上街头要求港府撤回《逃犯条例》](/content/gnews/1/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [两次参加澳喜游行有感](/content/gnews/2/README.md)
+### [接种疫苗的老百姓到底吃不吃亏](/content/gnews/1/README.md)
  ` 澳喜农场`
 
-### [“我们正处于世界历史的转折点”—美国总统拜登登陆英国](/content/gnews/3/README.md)
+### [美国：参议院批准针对中共国的创新计划](/content/gnews/2/README.md)
  ` Shuizhuyu`
 
-### [中共强推其劣质疫苗接种，疫苗危机不可忽视](/content/gnews/4/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
+### [【文字版】路德时评2021.6.7晚间（路博艾冠谈）：亚马逊创始人千亿富豪贝索斯宣布下月进行太空之旅意味着什么？蓬佩奥在福克斯再谈成立特别委员会事宜以及中共故意释放意味着什么？](/content/gnews/3/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [脸书助纣为虐，在香港强推中共新冠疫苗接种](/content/gnews/5/README.md)
- ` 倫敦英喜莊園 Himalaya UK`
+### [【路德简报】6/9/2021晚：美国国防部中共国工作组报告，应对中共国要加速“说到做到”！](/content/gnews/4/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [中共国获得斯里兰卡港口对印度形成侵略性包围](/content/gnews/6/README.md)
+### [【路德简报】6/9/2021早：美印太事务协调官坎贝尔称，习神活在《顺天时报》的世界里， 美国抗击中共有新战略](/content/gnews/5/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [6/10/2021 财经快讯：拜登拟审查所有中共关联的软件应用，部分美国主流媒体已成为中共“付费大外宣”](/content/gnews/6/README.md)
+ ` 秘密翻译组金融团队`
+
+### [澳大利亚莫里森政府继续走在对抗中共的前线](/content/gnews/7/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [以色列的突然空袭战法对台湾的警示](/content/gnews/8/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【DC大中华时事】两年前6月9日103 万港人走上街头要求港府撤回《逃犯条例》](/content/gnews/9/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [两次参加澳喜游行有感](/content/gnews/10/README.md)
  ` 澳喜农场`
 
-### [视频路德时评简讯（视频版）:蓬佩奥再次公开谈及中共故意释放病毒(2021.6.7晚间路德社简讯之路博艾冠谈)](/content/gnews/7/README.md)
+### [“我们正处于世界历史的转折点”—美国总统拜登登陆英国](/content/gnews/11/README.md)
+ ` Shuizhuyu`
+
+### [中共强推其劣质疫苗接种，疫苗危机不可忽视](/content/gnews/12/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [脸书助纣为虐，在香港强推中共新冠疫苗接种](/content/gnews/13/README.md)
+ ` 倫敦英喜莊園 Himalaya UK`
+
+### [中共国获得斯里兰卡港口对印度形成侵略性包围](/content/gnews/14/README.md)
+ ` 澳喜农场`
+
+### [视频路德时评简讯（视频版）:蓬佩奥再次公开谈及中共故意释放病毒(2021.6.7晚间路德社简讯之路博艾冠谈)](/content/gnews/15/README.md)
  ` 路德社`
 
-### [简说历史：世纪骗局之：1966~1976（走进黑暗的深渊“文化大革命”） （6）](/content/gnews/8/README.md)
+### [简说历史：世纪骗局之：1966~1976（走进黑暗的深渊“文化大革命”） （6）](/content/gnews/16/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共三孩政策不能解决经济问题但能改变社会生活](/content/gnews/9/README.md)
+### [中共三孩政策不能解决经济问题但能改变社会生活](/content/gnews/17/README.md)
  ` 澳喜农场`
 
-### [【中国观察】中共国科技公司极端手段监控员工——还是选择躺平吧](/content/gnews/10/README.md)
+### [【中国观察】中共国科技公司极端手段监控员工——还是选择躺平吧](/content/gnews/18/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频从马克龙被扇耳光到独裁者们的万岁万万岁](/content/gnews/11/README.md)
+### [视频从马克龙被扇耳光到独裁者们的万岁万万岁](/content/gnews/19/README.md)
  ` 澳喜农场`
 
-### [川普前助手希望北京因大流行病受到惩罚（拜登敦促停止对中共生物武器研究的资助）](/content/gnews/12/README.md)
+### [川普前助手希望北京因大流行病受到惩罚（拜登敦促停止对中共生物武器研究的资助）](/content/gnews/20/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【热点播报】研究表明，羟氯喹和锌治疗使新冠病毒患者存活率提高了近三倍](/content/gnews/13/README.md)
+### [【热点播报】研究表明，羟氯喹和锌治疗使新冠病毒患者存活率提高了近三倍](/content/gnews/21/README.md)
  ` 纽约香草山MOS02`
 
-### [匈牙利民众游行抗议中共复旦大学项目](/content/gnews/14/README.md)
+### [匈牙利民众游行抗议中共复旦大学项目](/content/gnews/22/README.md)
  ` 倫敦英喜莊園 Himalaya UK`
 
-### [西喜时事新闻简报-病毒篇](/content/gnews/15/README.md)
+### [西喜时事新闻简报-病毒篇](/content/gnews/23/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [羟氯喹和锌的预防方案开始被重视还打疫苗？](/content/gnews/16/README.md)
+### [羟氯喹和锌的预防方案开始被重视还打疫苗？](/content/gnews/24/README.md)
  ` G-NEWS TAIWAN`
 
-### [视频2021/06/08 妮基福克斯采访：停止纠缠病毒来源，调查武汉追责中共](/content/gnews/17/README.md)
+### [视频2021/06/08 妮基福克斯采访：停止纠缠病毒来源，调查武汉追责中共](/content/gnews/25/README.md)
  ` 倫敦英喜莊園 Himalaya UK`
 
-### [气候和疫苗 &#8211; 鲍里斯约翰逊G7 峰会的两大议题](/content/gnews/18/README.md)
+### [气候和疫苗 &#8211; 鲍里斯约翰逊G7 峰会的两大议题](/content/gnews/26/README.md)
  ` Shuizhuyu`
 
-### [【灭共头条】武毒所 “专家”否认实验室泄漏及员工感染中共病毒](/content/gnews/19/README.md)
+### [【灭共头条】武毒所 “专家”否认实验室泄漏及员工感染中共病毒](/content/gnews/27/README.md)
  ` 秘密翻译组G-Translators`
 
-### [2021/06/10 英喜时事速递](/content/gnews/20/README.md)
+### [2021/06/10 英喜时事速递](/content/gnews/28/README.md)
  ` 倫敦英喜莊園 Himalaya UK`
 
-### [【币圈】-数字货币动态- 2021.06.10](/content/gnews/21/README.md)
+### [【币圈】-数字货币动态- 2021.06.10](/content/gnews/29/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【每日快报】美参议院通过抗衡中共国的一揽子法案 2021.06.10](/content/gnews/22/README.md)
+### [【每日快报】美参议院通过抗衡中共国的一揽子法案 2021.06.10](/content/gnews/30/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【医疗前言世界】疫苗—— 事关生命与自由](/content/gnews/23/README.md)
+### [【医疗前言世界】疫苗—— 事关生命与自由](/content/gnews/31/README.md)
  ` 纽约香草山MOS03`
 
-### [半岛电视台连续多日遭受网络攻击](/content/gnews/24/README.md)
+### [半岛电视台连续多日遭受网络攻击](/content/gnews/32/README.md)
  ` 曹操`
 
-### [2021年6月9日秘翻快报【头条新闻】](/content/gnews/25/README.md)
+### [2021年6月9日秘翻快报【头条新闻】](/content/gnews/33/README.md)
  ` 秘密翻译组G-Translators`
 
-### [美国防长下令军事重点关注中共国](/content/gnews/26/README.md)
+### [美国防长下令军事重点关注中共国](/content/gnews/34/README.md)
  ` Shuizhuyu`
 
-### [【墙内新闻浅析】乡村振兴促进法来了，农村群众将获得哪些法治“大礼包”？](/content/gnews/27/README.md)
+### [【墙内新闻浅析】乡村振兴促进法来了，农村群众将获得哪些法治“大礼包”？](/content/gnews/35/README.md)
  ` Ru Wei`
 
-### [笑着笑着就哭了](/content/gnews/28/README.md)
+### [笑着笑着就哭了](/content/gnews/36/README.md)
  ` 喜韩Gnews中文`
 
-### [美推进超高音速武器研发防范潜在中俄同类攻击](/content/gnews/29/README.md)
+### [美推进超高音速武器研发防范潜在中俄同类攻击](/content/gnews/37/README.md)
  ` 曹操`
 
-### [美国两党联合灭共，切断中共偷盗拐骗根基](/content/gnews/30/README.md)
+### [美国两党联合灭共，切断中共偷盗拐骗根基](/content/gnews/38/README.md)
  ` G-NEWS TAIWAN`
 
-### [记住2019年6月9日那些站出来的勇敢无私的香港老百姓](/content/gnews/31/README.md)
+### [记住2019年6月9日那些站出来的勇敢无私的香港老百姓](/content/gnews/39/README.md)
  ` tongwandou`
 
-### [【独立观点】 北约秘书长抨击中共不认同欧美价值观](/content/gnews/32/README.md)
+### [【独立观点】 北约秘书长抨击中共不认同欧美价值观](/content/gnews/40/README.md)
  ` 纽约香草山MOS03`
 
-### [【墙内经济】银保机构“生前遗嘱”落地， 强调“自救为本”](/content/gnews/33/README.md)
+### [【墙内经济】银保机构“生前遗嘱”落地， 强调“自救为本”](/content/gnews/41/README.md)
  ` HoustonLitstar`
 
-### [普京称乌克兰加入北约不是空谈 但后果严重](/content/gnews/34/README.md)
+### [普京称乌克兰加入北约不是空谈 但后果严重](/content/gnews/42/README.md)
  ` 曹操`
 
-### [视频【粤语配音】彼得·纳瓦罗：福奇对世界、对总统隐瞒了疫情](/content/gnews/35/README.md)
+### [视频【粤语配音】彼得·纳瓦罗：福奇对世界、对总统隐瞒了疫情](/content/gnews/43/README.md)
  ` 秘密翻译组-精翻组 G-Translators/Elite Team`
 
-### [法国前外交官布勒：全球应遏制中共侵害学术自由](/content/gnews/36/README.md)
+### [法国前外交官布勒：全球应遏制中共侵害学术自由](/content/gnews/44/README.md)
  ` 日本东京方舟农场`
 
-### [匈牙利对华政策或将逆转](/content/gnews/37/README.md)
+### [匈牙利对华政策或将逆转](/content/gnews/45/README.md)
  ` 墨尔本雅典娜农场`
-
-### [视频【粤语配音】塞林博士：很明显病毒来自实验室，实际上它来自中共解放军的生物战项目](/content/gnews/38/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [美国防部长奥斯汀下令加强应对中共挑战](/content/gnews/39/README.md)
- ` HoustonLitstar`
-
-### [视频李毅提议用核战争杀光所有台湾人来占领台湾](/content/gnews/40/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [【病毒专题】福奇与石正丽、达扎克等人早于17年便有合作](/content/gnews/41/README.md)
- ` HoustonLitstar`
-
-### [【病毒专题】Daszak吹嘘其中共国“同事”正在开发“杀手”级冠状病毒](/content/gnews/42/README.md)
- ` HoustonLitstar`
-
-### [摩根大通将从其固收指数中移除华为美元债券](/content/gnews/43/README.md)
- ` HoustonLitstar`
-
-### [《国家脉搏》曝光彼得·达扎克吹嘘“杀手级”冠状病毒工程的视频片段](/content/gnews/44/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [党首辩论中日本首相首次称台湾为“国家”](/content/gnews/45/README.md)
- ` 日本东京方舟农场`
 

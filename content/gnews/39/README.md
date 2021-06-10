@@ -1,39 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国防部长奥斯汀下令加强应对中共挑战
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1311842/)
+## 记住2019年6月9日那些站出来的勇敢无私的香港老百姓
+` tongwandou` [轉載自GNews](https://gnews.org/zh-hans/1312134/)
 
-作者：休斯顿星光农场写作部 火星
+“I know your deeds. Behold, I have put before you an open door which no one can shut, because you have a little power, and have kept My word, and have not denied My name. Behold, I will cause *those* of the synagogue of Satan, who say that they are Jews and are not, but lie—I will make them come and bow down at your feet, and *make them* know that I have loved you.” “我知道你们的所为。看着吧，我在你们的眼前打开了一扇门，无人可以关闭，因为你们的力量是微弱的然而谨记着我的话，从未否定过我的名。看着吧，我会让那些撒旦庙堂里谎称自己是犹太人但实际上不是的骗子，我会让他们过来在你们的脚下躬身，并且让他们知道我一直爱着你们。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10034815/20190609Hongkong.jpg)[图片来自大纪元：唐浩：香港百万人大游行 起何关键作用？](https://www.epochtimes.com/gb/19/6/10/n11313484.htm)
+“Because you have kept the word of My perseverance, I also will keep you from the hour of testing, that *hour* which is about to come upon the whole world, to test those who dwell on the earth. I am coming quickly; hold fast what you have, so that no one will take your crown.” “因为你们坚持不懈的践行着我的话，我将不会让你们陷入试炼的那段时间，那段将要降临到整个世界头上、试炼人间的时间里。我很快就来，抓牢你们所拥有的，这样的话，无人可以把你们的王冠取走。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10035826/hongkong-2.png)
+“He who overcomes, I will make him a pillar in the temple of My God, and he will not go out from it anymore; and I will write on him the name of My God, and the name of the city of My God, the new Jerusalem, which comes down out of heaven from My God, and My new name.” “无论是谁，克服了这一切的人，我会把他变成我的上帝的庙堂中的中流砥柱，他永远不会再远离；我会在他的身上写上我的上帝的名，还有我的上帝之城的名，从我的上帝，从天堂而来的耶路撒冷的新名，还有我的新名。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
+**全文英文出处：**
 
-6月9日，美国国防部长奥斯汀指示五角大楼，将中共及其军事建设议题列为美国国防政策的首要重点，以加强应对中共构成的挑战。
+New American Standard Bible: REVELATION 3:8-12（《新美国标准圣经》：启示录第3章第8句至第12句）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10025019/%E7%BE%8E%E5%9B%BD%E9%98%B2%E9%83%A8%E9%95%BF.jpeg)图片来自：RFI媒体
-
-据报道，美国总统乔·拜登(Joe Biden)今年2月下令五角大楼成立一个特别工作组，奥斯汀的这项指令是这个特别工作组提出的建议的结果。
-
-一位要求不透露姓名的高级国防官员在对媒体做吹风介绍时说：“来自部长的这项指令最终是关于整理好本部内务，并确保它能够应对已阐明的有关中共的优先事项。”
-
-美国多名官员表示，奥斯汀发布一项内部指令，要求采取几项对抗中共的措施，但关于这些措施与以往有何不同仅有一些具体细节。
-
-五角大楼发表声明指出，这些措施旨在加强内部流程及程序，以加强国防部为全体政府做出贡献，以应对来自中共的挑战，这些措施中有部分将维持机密。
-
-这份声明指出，这些措施将改善美国国防部的能力，以”加强我们盟友及伙伴的网络，增强威慑能力，加速发展新的部内运作概念”。
-
-上个月，拜登政府的国防预算要求把大批用于老旧系统的开支转用于军队现代化，以遏阻中共。
-
-信息来源：RFI媒体
-
-[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210609-%E7%BE%8E%E5%9B%BD%E9%98%B2%E9%83%A8%E9%95%BF%E5%A5%A5%E6%96%AF%E6%B1%80%E4%B8%8B%E4%BB%A4%E5%8A%A0%E5%BC%BA%E5%BA%94%E5%AF%B9%E4%B8%AD%E5%9B%BD%E6%8C%91%E6%88%98](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210609-%E7%BE%8E%E5%9B%BD%E9%98%B2%E9%83%A8%E9%95%BF%E5%A5%A5%E6%96%AF%E6%B1%80%E4%B8%8B%E4%BB%A4%E5%8A%A0%E5%BC%BA%E5%BA%94%E5%AF%B9%E4%B8%AD%E5%9B%BD%E6%8C%91%E6%88%98)
-
-编辑：文順      校对：Helen      发稿：文柳
-
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
-
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
-
-+1
+0
