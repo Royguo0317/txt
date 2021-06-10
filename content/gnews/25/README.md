@@ -1,43 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国前外交官布勒：全球应遏制中共侵害学术自由
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1312096/)
+## 记住2019年6月9日那些站出来的勇敢无私的香港老百姓
+` tongwandou` [轉載自GNews](https://gnews.org/zh-hans/1312134/)
 
-【日本东京方舟农场】撰稿：青衣   素材采编：武汉老温    校对：miumiu law
+“I know your deeds. Behold, I have put before you an open door which no one can shut, because you have a little power, and have kept My word, and have not denied My name. Behold, I will cause *those* of the synagogue of Satan, who say that they are Jews and are not, but lie—I will make them come and bow down at your feet, and *make them* know that I have loved you.” “我知道你们的所为。看着吧，我在你们的眼前打开了一扇门，无人可以关闭，因为你们的力量是微弱的然而谨记着我的话，从未否定过我的名。看着吧，我会让那些撒旦庙堂里谎称自己是犹太人但实际上不是的骗子，我会让他们过来在你们的脚下躬身，并且让他们知道我一直爱着你们。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10034815/20190609Hongkong.jpg)[图片来自大纪元：唐浩：香港百万人大游行 起何关键作用？](https://www.epochtimes.com/gb/19/6/10/n11313484.htm)
+“Because you have kept the word of My perseverance, I also will keep you from the hour of testing, that *hour* which is about to come upon the whole world, to test those who dwell on the earth. I am coming quickly; hold fast what you have, so that no one will take your crown.” “因为你们坚持不懈的践行着我的话，我将不会让你们陷入试炼的那段时间，那段将要降临到整个世界头上、试炼人间的时间里。我很快就来，抓牢你们所拥有的，这样的话，无人可以把你们的王冠取走。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10035826/hongkong-2.png)
+“He who overcomes, I will make him a pillar in the temple of My God, and he will not go out from it anymore; and I will write on him the name of My God, and the name of the city of My God, the new Jerusalem, which comes down out of heaven from My God, and My new name.” “无论是谁，克服了这一切的人，我会把他变成我的上帝的庙堂中的中流砥柱，他永远不会再远离；我会在他的身上写上我的上帝的名，还有我的上帝之城的名，从我的上帝，从天堂而来的耶路撒冷的新名，还有我的新名。”
 
-据《中央社》6月9日报道，《世界报》昨天刊登了法国前外交官布勒题为《北京对学术自由的攻击需要防御措施》的文章。布勒指出，中（共）国不断侵害全球学术自由，试图改写历史叙事。世界应该着手遏制，积极应对。
+**全文英文出处：**
 
-前驻中共国的“法国文化中心”主席暨高等政治学院国际关系所教学负责人布勒（Pierre Buhler），在《世界报》（Le Monde）上发表文章指出，北京（中共）施压中国研究学者及影响专业文章发表的案例越来越多。
-
-布勒在文章开头指出，德国主要中国智库“柏林墨卡托中国研究中心”（MERICS）与两名研究员遭到中共制裁；一名法国学者被中共国驻法使馆的推特（Twitter）帐号侮辱；中共国驻法大使被（法国）外交部召见，“这些象征行径显示了中共国令人担忧的政策，为民主国家的高等教育与研究带来严重威胁。而这些都来源于中国共产党总书记习近平。”
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10043113/8974EB34-FB8D-413D-89C4-3529320C4BD6.jpeg)
-
-布勒举例称，2019年底，上海复旦大学学生抗议学校章程内“学术独立，思想自由”的校训遭到删除，增加了“习近平新时代中国特色社会主义思想”，并强调要“全面贯彻党的教育方针”。其他与中共国有伙伴关系的学校，或中共国大学海外分校也都面临同样的状况。
-
-布勒表示，中共国另一个更令人担忧的攻击学术自由的策略，在于他们会“推动中共中央宣传部撰写的叙事”，其中一个手段就是透过包装为文化中心的孔子学院。他表示，全球超过500间孔子学院，“完全不是为了要介绍中国语言及文化，而是要渗透操作，企图涉入接待大学的教育或研究计划中”。
-
-世界多国目前已逐渐意识到中共国在海外设立的孔子学院所带来的危害。里昂大学的孔子学院已于2013年关闭；布鲁塞尔自由大学的孔子学院则是在2019年关闭；而美国的行动更早一步，目前已关闭了84间孔子学院。
-
-布勒指出，还有一种施压工具是透过70多万名训练有素、散布全球各校的中共国学生。他们大多由政府资助，参与受中共驻外单位监视的组织。布勒说，这些学生的工作就是要捍卫中共形象，或通报任何与敏感议题有关的活动，例如西藏、维吾尔、台湾等议题。其中有些人并非出于自愿，但中共政府会以家人施压。
-
-布勒在文章中写道：中共政府的手段无奇不有。法国南特历史博物馆2020年也因拒绝中共审查而停止“成吉思汗展”，因为中共假借重写目录之名，企图删除所有与蒙古帝国有关的元素。
-
-剑桥大学出版社2017年也曾在中共的施压下，审查了《中共季刊》（China Quarterly）中315篇学术文章。后来因舆论反应强烈，才又重新上架。剑桥大学另一个广受争议的事件，是发表了一份几乎全额由中共华为技术公司资助的“全球电信改革研究报告”，其中对华为大肆加以称赞。
-
-此外，视讯会议服务公司Zoom也因承认在中共政府的要求下，删除他们认为不当的会议，而遭到广泛指责。
-
-布勒表示，尽管中共不是唯一威胁学术自由的威权政体，但它却以竞争模式，投入这场“叙事之战”，并且由于各国与中共在经济、学术、科技上的互相依存，使民主国家处在一个不平等和脆弱的地位。
-
-布勒指出：“绝对不能等着中共国遵守联合国教育、科学及文化组织（UNESCO）对学术自由的建议。我们应该要采取防御措施，以保障教学与研究自由的完整性。美国目前已着手进行。至于欧洲联盟（EU），会员国匈牙利才刚准备耗资15亿欧元在布达佩斯设立复旦大学分校。因此，还需要设定策略，以遏制这个‘系统性竞争对手’的攻势。”
-
-布勒最后表示：“法国在欧盟的主席任期将开启绝佳机会，就如总统马克龙2019年3月在布鲁塞尔所宣布的，‘欧洲天真的时代已经结束’。”
-
-布勒的文章一针见血地指出了中共对学术自由的侵害。然而他却将希望寄托在无比亲共的马克龙身上，不知马克龙是否会带给他失望。不过，全球警惕中共、对抗中国、反击中共的浪潮已广泛掀起，即便之前再亲共的国家领导人，在这股势不可挡的浪潮下，也应该重新审视与中共的关系，并就中共带来的威胁做出正确的判定和决断了。
-
-注：本文仅代表作者观点
-
-参考链接：[https://www.cna.com.tw/news/aopl/202106100018.aspx](https://www.cna.com.tw/news/aopl/202106100018.aspx)
+New American Standard Bible: REVELATION 3:8-12（《新美国标准圣经》：启示录第3章第8句至第12句）
 
 0

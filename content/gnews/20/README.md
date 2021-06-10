@@ -1,17 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 记住2019年6月9日那些站出来的勇敢无私的香港老百姓
-` tongwandou` [轉載自GNews](https://gnews.org/zh-hans/1312134/)
+## 美国防长下令军事重点关注中共国
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1312173/)
 
-“I know your deeds. Behold, I have put before you an open door which no one can shut, because you have a little power, and have kept My word, and have not denied My name. Behold, I will cause *those* of the synagogue of Satan, who say that they are Jews and are not, but lie—I will make them come and bow down at your feet, and *make them* know that I have loved you.” “我知道你们的所为。看着吧，我在你们的眼前打开了一扇门，无人可以关闭，因为你们的力量是微弱的然而谨记着我的话，从未否定过我的名。看着吧，我会让那些撒旦庙堂里谎称自己是犹太人但实际上不是的骗子，我会让他们过来在你们的脚下躬身，并且让他们知道我一直爱着你们。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10034815/20190609Hongkong.jpg)[图片来自大纪元：唐浩：香港百万人大游行 起何关键作用？](https://www.epochtimes.com/gb/19/6/10/n11313484.htm)
-“Because you have kept the word of My perseverance, I also will keep you from the hour of testing, that *hour* which is about to come upon the whole world, to test those who dwell on the earth. I am coming quickly; hold fast what you have, so that no one will take your crown.” “因为你们坚持不懈的践行着我的话，我将不会让你们陷入试炼的那段时间，那段将要降临到整个世界头上、试炼人间的时间里。我很快就来，抓牢你们所拥有的，这样的话，无人可以把你们的王冠取走。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10035826/hongkong-2.png)
-“He who overcomes, I will make him a pillar in the temple of My God, and he will not go out from it anymore; and I will write on him the name of My God, and the name of the city of My God, the new Jerusalem, which comes down out of heaven from My God, and My new name.” “无论是谁，克服了这一切的人，我会把他变成我的上帝的庙堂中的中流砥柱，他永远不会再远离；我会在他的身上写上我的上帝的名，还有我的上帝之城的名，从我的上帝，从天堂而来的耶路撒冷的新名，还有我的新名。”
+信息来源：德国世界报网络版
+发布时间：2021年6月10日
+翻译 /整理/ 简评： Shuizhuyu
 
-**全文英文出处：**
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10045940/michael-afonso-BQgAYwERXhs-unsplash-scaled.jpg)
 
-New American Standard Bible: REVELATION 3:8-12（《新美国标准圣经》：启示录第3章第8句至第12句）
+
+美国将中共国视为其最大的战略竞争对手。因此，国防部长劳埃德·奥斯汀现在想要一个以中华人民共和国为重点的新战略。它要求发展新概念、新能力和未来武装力量。
+
+美国国防部长劳埃德奥斯汀已正式下令其机构更多地关注中国。奥斯汀周三（当地时间）表示，他的倡议是美国政府对中共国更大方针的一部分。华盛顿将中华人民共和国列为其最大的战略对手。
+
+国防部内部命令的细节仍然保密。奥斯汀表示，该政策将“重振我们的盟友和合作伙伴网络，加强威慑并加速发展新的作战概念、新能力、未来武装力量以及现代化的文职和军事劳动力。”
+
+该倡议是在 2 月份由美国新总统乔·拜登 (Joe Biden) 领导的专家委员会进行评估之后提出的，该委员会旨在调查五角大楼的对华战略。
+
+焦点从中东转向太平洋，在过去的二十年里，美国国防部主要专注于打击中东的圣战势力。与中国最先进的武装力量打交道是一个完全不同的挑战。
+
+美国军方目前热衷于扩大其在太平洋的存在。中共国在该地区也变得越来越咄咄逼人，包括针对台湾，北京认为台湾是一个中共国的省份。
+
+尽管美国已开始从阿富汗撤出剩余的 2,500 名士兵，但它仍继续在中东保持重要的军事存在。
+
+简评：五角大楼的决定的细节虽然还是保密的， 但是目标直指中共国，这是一个好消息。 美国对待中共国是有章法有计划有依据的。 近期就要进行的北约峰会， 要讨论的议题也不难想像。而这篇报道能够在德国媒体出现， 也是非常明确的信号。 原文中还是使用了中国这个字眼， 在翻译中已经改成了中共国。这个概念在欧洲还要时间更正。
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
+
+🔗[USA-Verteidigungsminister-ordnet-militaerischen-Fokus-auf-China-an](https://www.welt.de/politik/ausland/article231710665/USA-Verteidigungsminister-ordnet-militaerischen-Fokus-auf-China-an.html)
 
 0
