@@ -1,99 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彼得·达萨克(Peter Daszak )描述“中国的同事”正在开发“杀手’’级冠状病毒
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1311582/)
+## 【世事解评】孔子学院气数已尽！
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1311882/)
 
-**字幕內容：**
+作者：纽约香草山健身部   幸福鸟
 
-**Peter Daszak（EcoHealth Alliance President)
-彼得·达萨克(生态健康联盟主席）**
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
-This is example, first of all
-这是个例子，首先
 
-We’re only looking at viral families that include those that have gotten to people from ani-mals
-我们只关注包括那些从动物身上感染
-到人的病毒家族
 
-so we have narrowed it down straight away
-所以我们直接缩小了范围
+众所周知，中共国于2004年开始在全球范围内建立孔子学院。表面上，孔子学院旨在于互惠互利的基础上传播中国文化，增强世界对中国的了解以及普及中文教育。但实际上，它们是中共在海外进行宣传以及收集各种情报的根据地。目前全球大约160个国家和地区拥有约500所孔子学院。近年来，欧美多国越来越清楚地意识到孔子学院的真正后台就是中共这一事实，因而纷纷致力于关闭设立在本国大学的孔子学院。据报道，美国校园里的孔子学院数量从2017年的100多个减少到截止今年5月的47个，下降率超过50%。关闭孔子学院的势头方兴未艾。近日，日本也步欧美后尘，正准备着手查处孔子学院。
 
-Then when you got a sequence of the virus
-然后当你得到病毒序列时
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10030206/%E5%9B%BE%E7%89%8726-1.png)日本文部科学大臣萩生田光一 图片来源：网络
 
-and it looks like a relative of a known nasty pathogen,
-它看起来像是一种已知令人讨厌的病原体的亲戚
+在日本，包括早稻田大学和立命馆大学在内的14所私立大学在校园内设有孔子学院。自民党日本参议院议员有村治子在2021年5月的一次参议院会议上指出，孔子学院“被其他国家认为是一种安全威胁”。于是她随后提议，日本政府的相关部委和机构应合作监督孔子学院。
 
-just like we did with SARS
-就像我们对非典所做的那样
+日本政府担心各主办孔子学院的大学是中共的宣传工具，并同时成为通过个人交流泄露技术给中共的渠道。据《日经亚洲》6月6日的报道，日本文部科学省要求各孔子学院必须提供诸如资金、参与学生的人数以及其是否干预大学研究等信息。更详尽的清单将于2021年底前正式确定。日本文部科学大臣萩生田光一关于孔子学院这样指出，“在拥有共同价值观的国家，如美国和欧洲各国，寻求更多信息或废除这些机构的努力与日俱增。” 他还指出，“我敦促信息披露以提高组织管理和研究项目的透明度”。
 
-We found other coronaviruses in bats,
-我们在蝙蝠中发现了其他冠状病毒
+中共一直信奉金钱万能，以为金钱和权势所向披靡，是启开操控世界大门的万能钥匙。中共以利益为诱饵企图把其孔子学院的情报网密布于发达国家的各所高等学府。然而，随着中共邪恶本性的逐渐败露，越来越多的西方国家对中共的丑恶嘴脸和无孔不入的渗透深恶痛绝。孔子学院的建立不仅频遭拒绝，而且还面临大量被关闭的可能。孔子学院就像其幕后黑手中共一样气数已尽！
 
-a whole host of them,
-很大量的
+参考：
 
-some of them looked very similar to SARS.
-其中一些看起来与SARS非常相似
+https://www.rfi.fr/cn/亚洲/20210607-日本据报将审查孔子学院-年底前校方需提供资金等信息
 
-So we sequenced the spike protein:
-所以我们对刺突蛋白进行了测序：
+校对/发稿：飞虹
 
-the protein that attaches to cells.
-附着在细胞上的蛋白质
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
 
-Then we… Well I didn’t do this work,
-然后我们… 好吧，我没有做这个工作
 
-but my colleagues in China did the work.
-但我在中共国的同事做了这项工作
 
-You create pseudo particles,
-先创造了假的病毒颗粒
+**更多资讯，更多关注**
 
-you insert the spike proteins from those viruses,
-再插入那些病毒的刺突蛋白
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-see if they bind to human cells.
-看看它们是否与人体细胞结合
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-At each step of this you move closer and closer to this virus
-每走一步，你就离这种能真正成为
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-could really become pathogenic in people.
-人类致病性的病毒越来越近
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-So you narrow down the field
-所以你缩小了领域
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-you reduce the cost and you end up with a small number of viruses
-你降低了成本而且最终得到了少量病毒
-
-That really do look like killers
-看起来真的很像杀手
-
-and you look at the people and you say
-然后你看看人群
-
-And the people that live in that region where the animal lives
-这些生活在暴露病毒的动物所在地区的人们
-
-that exposed the virus do we see antibodies specific
-身上是否产生了特定的抗体？
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://www.foxnews.com/media/pompeo-covid-origins-wuhan-lab-theory](https://www.foxnews.com/media/pompeo-covid-origins-wuhan-lab-theory)
-英听校：康州盘古农场 – Layka
-翻译：康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1

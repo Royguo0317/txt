@@ -1,49 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）: 20210609闫博士接受IndiaToday采访
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1311919/)
+## 摩根大通将从其固收指数中移除华为美元债券
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1311745/)
 
-《路德社》出品
+作者：休斯顿星光农场写作部 火星
 
-以下视频是详细内容：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
 
-主要内容：
+6月8日，美国投行摩根大通表示，自下月底开始将把中共华为的美元债券从其一些最具影响力的投资指数中移出。最近美国对中国科技公司的制裁进一步升级。
 
-1.打杂客和其他科学家公开谈论过武毒所的功能增强实验
+据路透社报道，摩根大通在向指数用户发布的通报指出，“华为美元计价的债券将被排除在摩根大通CEMBI及JACI等系列固定收益指数之外，因修正令中特别指名Proven Glory Capital Ltd.及Proven Honour Capital Ltd.等机构发行的有价证券。”
 
-2.中共享各种病毒进行这种实验是公开的秘密
+其补充称，除名行动将在7月30日生效。华为债券在广受追踪的CEMBI多元分散(CEMBI Broad Diversified)指数中权重为9个基点，在侧重亚洲的JACI指数的占比则为36个基点，在环保、社会及治理(ESG)版本的JACI指数的占比则为38个基点。
 
-3.打杂客拨款给中共国后得到了利益
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10020709/%E6%91%A9%E6%A0%B9%E9%93%B6%E8%A1%8C%E5%9B%BE%E7%89%87-1.jpeg)
 
-4.蝠奇在内的很多科学家意识到病毒来自实验室，但是为了中共国而包庇事实
+图片来自：网络
 
-5.中共国不会让人们去武汉做真正的调查、了解真正零号病人的情况
+摩根大通估算，CEMBI及JACI系列指数分别有超过1,400亿美元及800亿美元的资产以上述指数为追踪目标。
 
-6.一旦展开真的调查，人们就会意识到武毒所只不过是参与中共国超限生物武器长期项目的众多实验室之一
+摩根大通表示，华为和中芯国际的新债券和现有债券将继续排除在指数之外。
 
-7.已经把科学和情报证据写在三篇报告中
+新闻来源：路透社
 
-8.病毒骨架就掌握在PLA手中
+[https://cn.reuters.com/article/jpmorgan-chase-huawei-bond-index-0609-idCNKCS2DL0YW](https://cn.reuters.com/article/jpmorgan-chase-huawei-bond-index-0609-idCNKCS2DL0YW)
 
-9.闫博士在19年12月掌握的情报、信息中，没有指向「事故泄漏」而很多都指向「故意投放」
+编辑：文順      校对：Helen      发稿：文柳
 
-10.这就是一个超限生物武器，来摧毁各国的文明
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
 
-11.WHO的砖家们特别是这个病毒的砖家组被中共国操控
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
 
-12.希望美国政府刨根问底
-
-13.美国调查员需要了解中共政府和PLA才能在90天内看到真正的结果
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
 
 
-
-翻译：路德社翻译组
-
-制作：路德社视频组
-
-审核校对：玫瑰新闻组
-
-上传排版：玫瑰新闻组
 
 0

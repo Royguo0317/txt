@@ -1,46 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】闪测系统“昙花一现”，中共核酸检测仍靠“人海战术”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1311703/)
+## 高考—我人生中的噩梦
+` 喜韩Gnews中文` [轉載自GNews](https://gnews.org/zh-hans/1311922/)
 
-配音：香草山录音组 蒙古鸿雁
+作者：웬샤밍 审核发布：喜韩Gnews中文组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10031105/%E5%BE%AE%E4%BF%A1%E5%9B%BE%E7%89%87_20210610101151.jpg)
+你们猜，她们这是干嘛呢？
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+万众瞩目的高考过去了，全国各地出现了很多类似这样的画面，很多人看不明白这样的图片到底是什么意思，下面我自己做了个图，方便大家理解。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10031119/%E5%BE%AE%E4%BF%A1%E5%9B%BE%E7%89%87_20210610101213.jpg)
+嗯，情况就是这么个情况，事实就是这么个事实，义务教育的高压之下，中国式大妈豁出去了，在考场之外做法。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10031050/A75E63BBE21D784E49E1AD39E1DBD6C6.jpg)
+我们的小孩从小被这样教育、洗脑。心中只有党，没有父母。爹亲妈亲不如党亲。
 
+长大后，强制义务教育，高压之下，还得大妈们豁出去了在考场之外做个道家的法事！为考场中的孩子们加持灵力和智慧！
 
+一边大肆鼓吹孩子要上大学，一边鼓吹清华北大毕业回家乡养猪，年赚一个亿。还有个清华男生回家做裁缝补裤裆，年赚几千万！
 
+这都是何其大的讽刺和笑话。把孩子当成猪一样的培育，培育成只知道工作干活，当房奴、车奴、和孩奴。现在还得开放三胎，这是彻底要把80/90后的给榨取的灰飞烟灭。
 
-
-
-
-环球网6月9日转载中国民航报消息，近期广州CCP病毒疫情爆发，导致各区县“全员核酸检测”现象频发。在超1800万核酸检测需求下，广州却依旧沿用效率低下的咽拭子检测方式。
-
-广州疫情持续发酵，核酸检测人数和范围日益增加。根据《广州市新型冠状病毒肺炎疫情防控指挥部关于进一步强化疫情防控工作的通告（第17号）》要求，白云机场6月8日为出港旅客提供24小时核酸检测服务，并承诺采样后4-8小时出结果。
-
-
-
-**文字版原文：【[鹰眼墙国】闪测系统“昙花一现”，中共核酸检测仍靠“人海战术”](https://gnews.org/zh-hans/1311332/、)**
-
-作者：纽约香草山写作组  鹰(文言)
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+CCP的邪恶，已经远不是正常人类能理解的了。觉醒的人看着这些画面会觉得心痛、悲哀。身在局中的人，何时能醒来发现自己在做着无比荒唐的事！
 
 0
