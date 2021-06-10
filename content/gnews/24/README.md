@@ -1,61 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 羟氯喹和锌的预防方案开始被重视还打疫苗？
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1312305/)
+## 中共三孩政策不能解决经济问题但能改变社会生活
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1312340/)
 
-台湾宝岛农场
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10053443/%E6%93%B7%E5%8F%96610-9.jpg)
-[Clare Lopez:研究](https://www.washingtonexaminer.com/news/study-hydroxychloroquine-increase-survival-rate-200-percent)表明，在感染病毒的初期，使用羟氯喹和锌尽早治疗，可以提高存活率将近三倍。
+撰稿：喜妈
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10062851/IMAGE-2021-06-10-202612.jpg)网络截图
+英媒最近报道，中共是在人口问题上以其“最有名的人口政策”而闻名的。5月份的中共国人口普查显示：该国处于“快速老龄化”，人口增长“最缓慢的水平”，生育率降至“每名妇女1.3个孩子的水平”。报道指出，此结论和动向是西方人士普遍较早就认识到的必然，中共媒体则表示自己所面对的“明显的人口困境”会形成“对该国经济和地缘政治未来的生存威胁”。报道称，世界舆论一致认为中共国“正在经历一场‘人口危机’”；有可能的解决方案就是用“胡萝卜加大棒”的方法“全力以赴推行促进生育政策”，其中涉及很多西方社会认为的”缺乏对人的尊严尊重的强制性观念”。
 
-**2020年美国会中专家公开表示羟氯喹被恶意打压**
+报道指出，中共在5月底宣布调整原有的“二孩政策”，“允许所有中共国夫妇生育三个孩子”。可是报道作者指出，中共国的的“三孩政策”实行并“不会对中共国人口年龄或劳动力规模产生重大影响”。报道根据调查数据说明，中共国实际只有“少数人真正希望要第三个孩子”。中共国的父母（和准父母）“非常关心抚养孩子的成本（尤其是课外教育）、获得体面且负担得起的托儿服务、对女性职业的影响等等”。报道称，“如果没有其他支持，例如高质量、负担得起的托儿服务，很难看出该政策将如何直接刺激整体生育率的明显变化”。
 
-在去年年底时在美国的议会上，博士理查德·乌索说:羟氯喹(HCQ)的出现会打击制药行业，所以才没有被推广」 。
+报道指出，非常错误的是，有些人认为生育鼓励政策可以实现“生育更多孩子将在短期内解决中共国的人口挑战”。可是人们忘记了，当下所能有的新生儿“要到 2040 年以后才可能进入劳动力大军”。报道还指出，根据中国社科院的数据，“预计仅城镇养老基金将在 2030 年代初破产”，因此，可以想见，“婴儿似乎并不是最有帮助的解决方案”。“提高退休年龄很容易”也是一个可以想到的方法，可是，“不受欢迎”、“影响有限”、“甚至可能产生意想不到的后果”。中共国需要“更全面的变革来应对低生育率、人口快速老龄化和人口增长缓慢（甚至下降）的新人口现实”。中共国将需要“继续适应从长达数十年的人口红利或‘人口红利’时代的巨大转变”。
 
-在WHO否定羟氯喹预防效用的报告中，药的剂量及病人的轻重症情形产生了极大的疑点，需要继续去探讨。
+报道指，当然，“三孩政策”依然对中共国是“重要的”。曾经那些“多产的工薪阶层夫妇”被征收大量的“社会抚养费”；而这些费用又被“被用来支撑地方政府预算”，还引起对征收政策的“过度执行”。中共国的三孩政策也许“将不可避免地减少父母遭受任意或反复无常处罚的风险”，这算是“好处”。
 
-从香港出逃到美国、了解本次病毒关键讯息的阎丽梦博士表示，药物使用都有一定的剂量，而不是多吃就会多好，当你多吃了就会有副作用，这是一个正常的道理，但在这份报告中有很大的问题要探讨。此外，羟氯喹是现阶段作为预防用药最佳选择，并非所谓的「神药」。目的在于最小代价的保护生命、身体健康，争取更多时间来了解病毒真相、发现真正的解决方案。 （现阶段、成本最低的、副作用最小的过度方案；疫苗并非最佳防疫方案，带来的危害可能超过病毒本身）
+报道指，必须看到，由一个“世界上人口最多的国家”所制定的“人口政策”，其中的“任何变化都必然是一件大事”。但是，报道同时指出，“人口是由人组成的”，由于此政策“将不可避免地让成千上万的家庭可以按照自己的意愿生育三个孩子”，即使“这些数字可能不会在电子表格上产生重大影响”，但“不应低估政策变化对此类家庭的影响”。
 
-**关于羟氯喹作为初期治疗方案**
+综合以上信息，笔者认为，本文有个非常独特的观点，就是中共所制定的“三孩政策”，是否是中共自己宣传和给墙国人民洗脑的：是中共国下一步可资依赖，可以保证一切经济、民生和未来发展的救命稻草？因为很多人都会陷于一个简单计算，从一个到三个的简单加减乘除，以为就得到了一个几乎是确定的预期。可是这样没有逻辑的推演就是一个天上画饼的游戏，骗骗孩子还可以，认真推敲一下就会贻笑大方，是完全的梦幻泡影。也就是说，如果马上推行“三孩政策”，马上全民鼓励，那么也要等到2040年才可以去充实补充劳动力的“三孩政策”下的婴儿们，其实是解救不了中共国，也救不了中共的当政。
 
-由medRxiv发表观察性研究发现，如果以更高的剂量分发给患有严重疾病的通气患者，抗疟药羟氯喹和锌可以将确诊者存活机率提高近200%。班农Bannon’s War Room直播节目中，也曾采访相关专家，该专家表示早期利用羟氯喹作为治疗方案，存活机率远高于收容于正式医疗院所当中，在感染初期把握时间以羟氯喹为治疗方案，可以降低医疗院所的量能负担，也可以提高确诊者的存活机率。
+西方人对一个问题的论辩，常常站在一个有逻辑的基础上。用2040年的结果来对付2030年就会洞穿的养老金窟窿，这个根本也是牛头不对马嘴的想象。中共国的管理者们是一拍头脑就制定一个想当然的举国政策，他们才不管对墙国同胞多少的家庭和人民带来不可承受的压力与冲击。道理很简单，承受冲击和压力的人不是他们，是墙国的韭菜们，是他们的奴隶们。可是如果奴隶们想要从中得到以为的自由和生育做主的权力，以为自己从此在生殖器的决定权上翻了身，就错了。
 
-**病毒之父佛奇（福奇）打压羟氯喹**
+中共国的现有体制下，对墙国的奴隶，自有他们独到的管理方法。所有的所谓政策，其实就是他们疯狂游戏的规则，想怎么玩，都是它说了算。从生殖器的严格管制到生殖器的放开鼓励，很多人以为是自由和解放，其实，这两个方面都是钳制和压迫。很多人只看表面，以为放开就是自由，由于这个放开是中共控制下的放开，仍是控制。这一点，是很多人没有看明白的。因此，当墙内因为避孕套销售管制、民间房事次数要报告或被报告的时候，这个放开还是另外一种形式的控制和强迫管理啊。
 
-Marjorie Taylor Greene：有多少人因为相信了佛奇(福奇)博士说羟氯喹无用而死。
+有中共在，就没有百姓的安宁，没有真正的独立和真正的自由。有中共在，就只有伤害、压制、强迫。我们可以相信，只要百姓懂得中共的邪恶和一切所谓政策其实是中共掩盖自己黑暗，有利于自己的当政而非为国为民的本质的时候，人民就会觉悟。中共的人口政策向来是一个对人权的巨大伤害，我们需要更多地传播真相，揭示其险恶的用心。灭掉中共体制，才能真正拯救我们的同胞，不再被当作猪狗。
 
-佛奇在疫情初期便在没有提出科学性证据的情形之下，打压羟氯喹的预防效力，并大力推广疫苗。佛奇推动的紧急授权法，让疫苗厂商可以省略许多关键性的必要步骤，让不安全、效力不可信且有巨大副作用的疫苗可以在1年内研发、生产并开始贩卖接种。疫苗研发往往需要耗费数十年时间进行研发、测试，而紧急授权法让疫苗厂商可以省略许多人体测试，在新冠疫苗的实测阶段，并未针对孕妇或幼儿进行相关测试，因此许多孕妇接种后便流产。台湾也有几例接种后流产案例，依照部分研究机构的对外演说，接种新冠疫苗可能导致神经、认知、心血管等后遗症，对青年人的伤害巨大。
+本文纯属个人观点
 
-新研究表明：适当剂量的羟氯喹+阿奇霉素治疗可将生存率提高近200%。
+参考资料：
 
-**解放军有关羟氯喹及治疗病毒用药专利申请文件**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09150839/1-42.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09151343/2-16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10044649/%E6%93%B7%E5%8F%96610-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10054125/image0-1-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09152702/COVID19_AQ.png)
-路德社LUDE Media与阎丽梦博士，早在2020年1月19号对外大力推广羟氯喹加锌，是目前最有效、成本最低、副作用最小的预防方案，在没有对羟氯喹有过敏现象或使用禁忌的人，配合定期定量使用羟氯喹加锌可以达到预防效力，为世界研制真正有效的解决方案争取时间，不可信的疫苗不是最佳的解决方案，并会产生严重的副作用。
+[https://www.theguardian.com/commentisfree/2021/jun/02/chinas-three-child-policy-economy-ageing-population](https://www.theguardian.com/commentisfree/2021/jun/02/chinas-three-child-policy-economy-ageing-population)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 
-但这一切都被中共勾结媒体、国际组织还有部分人士，所恶意打压。
-
-资料来源:
-
-[Study shows hydroxychloroquine and zinc treatments increased coronavirus survival rate by almost three times](https://www.washingtonexaminer.com/news/study-hydroxychloroquine-increase-survival-rate-200-percent)
-
-[IT’S WORSE THAN WE THOUGHT! Fauci and Top US Doctors Caught! They CONSPIRED to Disqualify Hydroxychloroquine as COVID Treatment — MILLIONS DEAD AS A RESULT](https://www.thegatewaypundit.com/2021/06/worse-thought-fauci-top-us-doctors-caught-conspired-disquality-hydroxychloroquine-covid-treatment-millions-dead-result/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)[ClareMLopeztwitter](https://twitter.com/ClareMLopez/status/1402771866910089217)
-
-[mtgreeneetwitter](https://twitter.com/mtgreenee/status/1402685164002721796?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1402685164002721796%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.washingtonexaminer.com%2Fnews%2Fstudy-hydroxychloroquine-increase-survival-rate-200-percent)
-
-着╱文旦
-
-编著╱zhong
-
-发布╱little liu
-
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-
-文章审核：zhong
-
-文章发布：Little Liu
 
 0
