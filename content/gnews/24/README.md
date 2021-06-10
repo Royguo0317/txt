@@ -1,32 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国疫苗作用引怀疑，为遮掩出炉新谎言
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1310952/)
+## 挖掘的爆炸性视频显示：彼得·达扎克描述中共国同事正在开发“杀手”冠状病毒
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1311024/)
 
-作者：大头猫 | 校对：文明明 | 审核：SilvrSpurs7 | Page：青山
+翻译：烟波浩淼 |校对：黎明的光芒 |审核：黎明的光芒
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09172558/picture-1-6.png) 图片来自视频截图
+生态健康联盟主席彼得·达扎克（Peter Daszak）与武汉病毒学研究所合作进行了一项由安东尼·福奇（Anthony Fauci）博士的国家过敏与传染病研究所（NIAID）资助的研究。似乎在《国家脉搏》挖掘的一段视频中夸耀他的 “中共国同事” 对类似SARS的 “杀手” 冠状病毒的操纵。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0EteUE7zfyiIl/images/0f44c065-1e23-45e4-bb12-42fbcafc4067.jpg?asset_id=fade6ac6-9eb6-4f9e-817d-65af449229e3&amp;img_etag=%22be3879e54491963564f2b8fc2ef5ccdc%22&amp;size=2560)](https://spark.adobe.com/page/0EteUE7zfyiIl/images/0f44c065-1e23-45e4-bb12-42fbcafc4067.jpg?asset_id=fade6ac6-9eb6-4f9e-817d-65af449229e3&amp;img_etag=%22be3879e54491963564f2b8fc2ef5ccdc%22&amp;size=1024)
+达扎克是在2016年一个讨论“[新出现的传染病和下一次大流行](https://www.c-span.org/video/?404875-1/pandemics)”的论坛上承认这一点的，这似乎与福奇一再[否认](https://www.washingtonpost.com/politics/2021/05/18/fact-checking-senator-paul-dr-fauci-flap-over-wuhan-lab-funding/)资助了武汉病毒学研究所功能增强研究的说法相矛盾。
 
-中共国利用集权体制和封锁信息、压制言论、洗脑的手段，大肆鼓吹国产疫苗作用，要求应接尽接，甚至有的地区挨户敲门检查接种情况，媒体上经常出现人群蜂拥排长队接种的场面。
+达扎克在描述他的组织是如何对致命病毒进行测序的同时，还描述了他的“中共国同事”在病毒中“插入”刺突蛋白，以观察它们是否能“与人类细胞相结合”的过程：
 
-但是，近来出现了已经接种疫苗的人确诊感染的情况，特别是最近广东疫情的爆发，出现了多例疫苗接种者再次感染的情况，引起民众质疑。已经接种了疫苗还能感染，那么接种的意义何在呢？眼看着疫苗的谎言要露馅了，为了及早扑灭更多人醒悟的星星之火，政府部门的新谎言很快出现在了各媒体版面。国家疾控中心的专家说，疫苗分为三个等级，一是防感染，二是防发病，三是防传播，现在打的疫苗是第二级，就是只防发病。
+*然后当你得到一个病毒序列，它看起来像是一个已知的有害病原体的亲戚，就像我们对SARS所做的那样。我们在蝙蝠身上发现了一大堆其他的冠状病毒，其中一些看起来很像SARS。所以我们对刺突蛋白（附着在细胞上的蛋白质）进行了测序，然后我们…嗯，我没有做这项工作，但我在中共国的同事做了这项工作。你制造出模仿的微粒，你插入这些病毒的突刺蛋白，看它们是否与人类细胞结合。每一步你都离这种病毒越来越近，它可能真的会在人类中致病。*
 
-这个解释一出来，更引发议论了。第一，几亿人已经注射了疫苗，这种疫苗作用分类的重要消息怎么才告诉大家?这算不算欺诈？第二，打过疫苗的人都以为自己安全了，按正常生活方式到处走，但是，其实仍然能传播病毒给别人，同时自己也仍然能被别人传染，全社会将面临多么巨大的风险？第三，打了这种疫苗的人，会不会就算发病也有可能躲过检测试剂而不被发现呢？
+他补充说：“你最终会得到一小部分真正看起来像杀手的病毒”。
 
-如果以后出现新情况，再次破了你们这个谎言，你们又有什么新辩解出来呢？一个谎言要用一百个新谎言去圆，你们是在锻炼辩手吗？
+在发表上述评论之前，[越来越多](https://thenationalpulse.com/analysis/exc-navarros-9-indisputable-facts-linking-fauci-to-covid-19-origin/)的证据表明，福奇的过敏与传染病研究所与武汉病毒学研究所有着深厚的财务和人事关系，达扎克的生态健康联盟是向中共实验室提供资金的主要代理人之一。
 
-通过这些事情，我们要牢记郭先生和闫博士的嘱咐：保护好自己，科学吃羟氯喹，不打疫苗，坚持到胜利的那一天！相信共产党，只有跑步进入火葬场！
+在370万美元的国家过敏与传染病研究所资金的资助下进行的十多篇研究论文中，武汉实验室新兴传染病中心主任石正丽与达扎克是共同作者。石也在她的简历中[包括](https://thenationalpulse.com/breaking/wuhan-researcher-lists-fauci-niaid-grant-on-resume/)了这些由福奇支持的资助。
 
-🔗原文链接：[打完新冠疫苗也有可能感染？中国疾控中心研究员邵一鸣：疫苗保护作用分三级，各级防护不同](http://www.nbd.com.cn/articles/2021-06-08/1783985.html)
+武汉实验室还将美国国家卫生研究院列为“合作伙伴”之一，并在2021年3月秘密[删除](https://thenationalpulse.com/exclusive/wuhan-lab-erases-nih-ties-gof-research/)了这一说法。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+原文作者：娜塔莉·温特斯（Natalie Winters）
+发布时间：2021 年 6 月 8 日
+原文链接：[https://thenationalpulse.com/exclusive/daszak-reveals-chinese-colleagues-manipulating-coronaviruses/](https://thenationalpulse.com/exclusive/daszak-reveals-chinese-colleagues-manipulating-coronaviruses/)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/0EteUE7zfyiIl/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/0EteUE7zfyiIl/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -1,35 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日澳肯定台湾海峡两岸和平的重要性
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1310738/)
+## 华为的受阻与中国科技企业的困境
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1310683/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+信息来源：Counterpoint
+发布时间：2021年6月06日 
+翻译 /整理/ 简评： Eternallight
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09150406/d-1.jpg)sdsc.bellschool.anu.edu.au
-共同通讯社 (Kyodo News)6月9日报道，日本和澳大利亚在双边会谈中首次强调了台湾海峡两岸和平与稳定的重要性，并同意针对中共国在印度洋-太平洋地区日益强硬的背景下深化安全合作。
+2021年对于华为和许多中国科技企业而言是艰难的一年. 前者因为美国制裁导致原材料断供等危机. 数据显示, 在2020年年底, 华为手机的市场份额就已经跌至全球第五,占比8%. 随后仅仅不到半年时间, 市场份额急速跌至仅4%(有统计说是3.3%),下滑到第七,以下为统计数据(出自Counterpoint)
 
-两国国防部长和外交部长确认，日本自卫队将在非战斗情况下保护澳大利亚的军事资产，此举是为了加强两国的“准联盟”，以应对中共国军力的增强以及中共国在东中国海和南中国海的强硬领土主张。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09155740/image-145.png)
 
-日本防卫大臣岸信夫(Nobuo Kishi)在2 + 2虚拟会议后对记者说，这一发展“将促进自卫队和澳大利亚军队之间的互操作性，并加强威慑”。
 
-在会晤后发表的联合声明中，两国政府首次表示，他们“强调台湾海峡两岸和平稳定的重要性，并鼓励和平解决两岸问题。”此前，日本在最近与美国和欧盟的峰会上也提到了台湾。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09155423/Counterpoint-Research-Global-Smartphone-Shipments-Market-Share-2018-Q1-2021-Q1.png)
 
-该声明立即引起了中共国的愤怒，中共外交部敦促东京和堪培拉“尊重主权，不干涉别国内政”。
 
-岸信夫说，日本和澳大利亚必须“进一步深化安全合作”，以便“积极为印度洋-太平洋地区的和平与稳定作出贡献”。
+智能手机市场份额下降, 海外5G扩张受阻,芯片供应被掐脖子. 中国科技行业最高的”灯塔”似乎渐渐暗淡无光. 这是当下中国经济变迁的一个索引. 当然灾难还远远不止于此. 因为其它科技企业,在没有官方背景和资金,资源等支持的前提下,可能面临比华为更加艰难的处境. 据消息人士透露, 由于华为被制裁,导致部分原材料供应被迫由大陆芯片厂家承担. 在工艺不完善, 原材料供应受阻,缺乏技术积累等情况下导致良率降低,严重挤占产能, 进而导致了严重的芯片供应紧张.  而随着美国将大陆最先进的晶圆代工厂中芯国际(SMIC)列入出口管制和投资黑名单. 势必加剧这一紧张局势. 科技行业将面临前所未有的困难局面.
 
-至于日本自卫队对军事资产的保护，澳大利亚是继美国之后，根据2016年生效的日本安保法，日本允许保护其资产的第二个国家。该法律规定，自卫队人员可以保护其他国家的军事资产，条件是外国军队从事有助于日本防卫的活动。
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
 
-岸信介说，将应澳大利亚的要求提供保护。
-
-在会谈中，日澳双方部长还同意，他们将致力于早日达成一项旨在促进两国军队联合演习的双边协议。部长们对缅甸的局势表示“严重关切”，敦促军政府立即停止对其人民的暴力行为，并采取措施压制言论自由。
-
-会议在人权问题上特别提到了中共国，两国表达了他们对中共国政府对待新疆自治区维吾尔族和其他穆斯林少数民族的做法，以及中共政府最近在香港削弱民主、损害权利和自由的行动“深感关切”。
-
-参考链接：
-
-[https://english.kyodonews.net/news/2021/06/12f53be96fb7-japan-australia-begin-security-talks-with-taiwan-possibly-on-agenda.html](https://english.kyodonews.net/news/2021/06/12f53be96fb7-japan-australia-begin-security-talks-with-taiwan-possibly-on-agenda.html)
+🔗[www.counterpointresearch.com/global-smartphone-share/](https://www.counterpointresearch.com/global-smartphone-share/)
 
 0

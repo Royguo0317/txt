@@ -1,33 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大流行前获得疫苗专利的中共国军事科学家
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1311039/)
+## 中共病毒疫苗的利润铸就了9个新的制药业亿万富翁
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1311119/)
 
-消息来源：今日意大利（today.it）
-发布时间：2021年06月07日
-翻译整理：斩草要除根
+阿黎
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/26163209/4801271a-45a8-4ad6-9121-d932090e3e77_w948_r1.77_fpx65.32_fpy49.99.jpg)
+加拿大独立国会议员兰迪-西里尔今天发推，揭示中共病毒疫苗的利润铸就了9个新的制药业亿万富翁。他在推文中说，是什么推动了（中共病毒）大流行的发生？利润和收益是强大的激励因素，一个由虚无主义者组成的社会很容易成为制造恐惧的受益者的猎物。
 
 
-图片来源：路透社
 
-早在全球大流行宣布之前，中共国军事科学家周育森（ Yusen Zhou） 就提交了中共病毒疫苗的专利申请。这是澳大利亚报纸《澳大利亚人报》中所写的内容，报道称，这位为中共国军队工作的科学家于 2020 年 2 月 24 日就提交了相关的文件，这距离中共国当局证实中共病毒是人传人这一消息还有五周时间。
+> Covid vaccine profits mint 9 new pharma billionaires – CNN. What drives a pandemic? Profits and ill-gotten gains are powerful incentives and a society of nihilists are easy prey for the fear mongering beneficiaries. [#onpoli](https://twitter.com/hashtag/onpoli?src=hash&amp;ref_src=twsrc%5Etfw) [#cdnpoli](https://twitter.com/hashtag/cdnpoli?src=hash&amp;ref_src=twsrc%5Etfw) [#wearelivingalie](https://twitter.com/hashtag/wearelivingalie?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/SeYltXTbtg](https://t.co/SeYltXTbtg)
+> — Randy Hillier (@randyhillier) [June 9, 2021](https://twitter.com/randyhillier/status/1402622713290690564?ref_src=twsrc%5Etfw)
 
-据称，周还与武汉病毒研究所（WIV）的科学家有着“密切”的合作关系，其中包括实验室副主任石正丽，她以蝙蝠研究而闻名。正是根据这份报道的内容加剧了人们的怀疑：即该病毒来自武汉实验室，而中共国当局早在向国际社会发出警报之前就已知道该病毒可以在人类之间中传播。
 
-在提交新冠病毒疫苗专利申请不到三个月后，周似乎也神秘的死亡了。尽管他是中共国最权威的科学家之一，但他的失踪并没有出现在中共国的媒体上。周还曾与美国的一些机构有过合作，如明尼苏达大学和纽约血液中心。
 
-最近几周，大流行是武汉实验室事故结果的这一说法在最初被认为是不太可能之后现在变得越来越一致。来自世界各地的几位科学家要求澄清病毒的真正起源，而美国总统乔拜登已下令情报机构进行彻底调查，以确定新冠病毒是否是人为制造的。
+据伦敦CNN Business5月21日报道，生产中共病毒疫苗的公司股价近日飙升，造就了至少9位新的亿万富翁。
 
-在澳大利亚报纸提供的其他文件中，还有证据表明美国人早已经知道武汉当时发生的事情，安东尼·福奇的同一个机构会资助了中共国军队对冠状病毒进行基因操纵的研究。
+在新的亿万富翁名单中名列前茅的是莫得纳（Moderna）的首席执行官史蒂夫-班赛尔（Stéphane Bancel）和BioNTech（BNTX）的首席执行官乌格-撒因（Ugur Sahin），中国康希诺生物制品公司的高管和莫得纳公司的早期投资者也成为了纸面上的亿万富翁。
 
-简评：2021年的“以毒灭共”之年，各国媒体相继把注意力开始聚焦在病毒真相上了。一步一步虽然很艰难，但是却在积极的慢慢推进。终有定罪中共的那天会来。
+自2020年2月以来，莫得纳的股价上涨了700%以上，而BioNTech飙升了600%。康希诺公司的股价在同一时期内上涨了约440%。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+关于中共病毒疫苗对接种者造成的伤害和死亡已有无数报道，主要的伤害包括在体内形成血栓，造成心脏疾病、脑栓塞、肺栓塞，严重者可造成死亡；削弱人体免疫力，包括破坏癌症免疫蛋白，大大增加患癌症几率；孕妇流产、面瘫、失明、耳聋、瘫痪、癫痫、神经系统出血、皮疹和晕厥等，澳大利亚有报道一接种者患上艾滋病。
 
-🔗[rassegna/yusen-zhou](https://www.today.it/rassegna/yusen-zhou.html)
+目前，第一位疫苗接种者已死亡。我们是否可以预期半年或一年后更多的接种者遭遇不幸？会否出现癌症大爆发？诺贝尔获奖者鲁克-蒙塔格涅尔（Luc Montagnier)推测的两年内接种疫苗的人将无法生还是危言耸听吗？
 
-0
+* * *
+
+*编辑、发稿 文锦*
+
++1
