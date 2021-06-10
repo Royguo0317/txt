@@ -1,41 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国际可持续报告准则应如何应对中共造假
-` Jimsolomon` [轉載自GNews](https://gnews.org/zh-hans/1311044/)
+## 中共病毒疫苗的利润铸就了9个新的制药业亿万富翁
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1311119/)
 
-可持续报告准则应要求在报告的首页披露没有法治、没有言论自由的环境，包括网络防火墙，审计工作底稿不能被证券发行国会计监督机构检查等情况对环境保护、社会责任和公司治理（ESG）及相关信息可靠性的影响。
+阿黎
 
-作者：CPA Jim 所属农场：[喜马拉雅-华盛顿DC农场](https://gnews.org/zh-hans/author/himalayadcgnews/)
-
-
+加拿大独立国会议员兰迪-西里尔今天发推，揭示中共病毒疫苗的利润铸就了9个新的制药业亿万富翁。他在推文中说，是什么推动了（中共病毒）大流行的发生？利润和收益是强大的激励因素，一个由虚无主义者组成的社会很容易成为制造恐惧的受益者的猎物。
 
 
 
-2021年6月5日G7成员国财政部长与央行行长发布了公报，笔者在Gnews上做了相关报道[《G7国家采取行动处理中共历史性挑战》](https://gnews.org/zh-hans/1302699/)。公报第4点提到欢迎国际财务报告准则基金会（International Financial Reporting Standards Foundation）（以下简称基金会）开发全球可持续发展报告标准。
+> Covid vaccine profits mint 9 new pharma billionaires – CNN. What drives a pandemic? Profits and ill-gotten gains are powerful incentives and a society of nihilists are easy prey for the fear mongering beneficiaries. [#onpoli](https://twitter.com/hashtag/onpoli?src=hash&amp;ref_src=twsrc%5Etfw) [#cdnpoli](https://twitter.com/hashtag/cdnpoli?src=hash&amp;ref_src=twsrc%5Etfw) [#wearelivingalie](https://twitter.com/hashtag/wearelivingalie?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/SeYltXTbtg](https://t.co/SeYltXTbtg)
+> — Randy Hillier (@randyhillier) [June 9, 2021](https://twitter.com/randyhillier/status/1402622713290690564?ref_src=twsrc%5Etfw)
 
-2021年6月7日国际财务报告准则准则基金会理事会（以下简称理事会）宣告设立知名人士团体（Eminent Persons Group）就设立可持续报告准则委员会的提议和管辖权相关议题为基金会出谋划策。理事会也鼓励社会公众参与评价基金会[章程修改建议稿](https://www.ifrs.org/content/ifrs/home/news-and-events/news/2021/04/ifrs-trustees-publish-institutional-arrangements-for-proposed-new-sustainability-standards-board.html)，可以发邮件反馈。
 
-知名人士团体组成如下：前欧洲中央银行行长特里谢（Jean-Claude Trichet）担任会长，美国联邦存款保险公司（FDIC）​前主席希拉·拜尔（Sheila Bair），印度信息技术公司Infosys董事长和联合创始人南丹尼莱卡尼（Nandan Nilekani），国际清算银行前行长、墨西哥银行前行长吉列尔莫·奥尔蒂斯（Guillermo Ortiz）和国际货币基金组织（IMF）前副总裁朱民。
 
-清华大学五道口金融学院披露朱民现任清华五道口国家金融研究院院长，2003至2009年，任中国银行副行长；2009年10月，任中国人民银行党委委员、副行长。2010年2月24日，兼任国际货币基金组织（IMF）总裁特别顾问。2011年7月13日，国际货币基金组织总裁拉加德正式提名朱民为IMF副总裁。7月26日，他正式出任该组织(IMF)副总裁职位，2016年7月底，卸任国际货币基金组织副总裁一职。
+据伦敦CNN Business5月21日报道，生产中共病毒疫苗的公司股价近日飙升，造就了至少9位新的亿万富翁。
 
-不难看出中共试图通过前IMF副总裁朱民来影响可持续报告准则的制定过程，来为中共谋取非法利益。
+在新的亿万富翁名单中名列前茅的是莫得纳（Moderna）的首席执行官史蒂夫-班赛尔（Stéphane Bancel）和BioNTech（BNTX）的首席执行官乌格-撒因（Ugur Sahin），中国康希诺生物制品公司的高管和莫得纳公司的早期投资者也成为了纸面上的亿万富翁。
 
-正如[《G7国家采取行动处理中共历史性挑战》](https://gnews.org/zh-hans/1302699/)文章所述的，网络防火墙和拒绝美国公众公司会计监督委员会检查审计工作底稿会导致所披露的信息是误导性的，无论是可持续报告还是合并财务报表，继续扭曲国际金融市场。中共企业包括中概股、在中国大陆和香港有业务分部的跨国公司的报告的可信度都会受到不利影响，比如大众汽车、JP摩根、花旗银行等。其中[大众汽车已经出现了尾气排放造假事件](https://www.reuters.com/article/vw-diesel-lawsuits-0910-mon-idCNKCS1LR009)。
+自2020年2月以来，莫得纳的股价上涨了700%以上，而BioNTech飙升了600%。康希诺公司的股价在同一时期内上涨了约440%。
 
-可持续报告信息披露虚假对金融市场的误导会非常严重。根据汇丰银行支持，气候债券倡议组织和中共的中债研发中心联合发布的一个[研究报告](https://www.climatebonds.net/files/reports/2019_cbi_china_report_cn.pdf)居然把中共军工企业中国广核能源国际控股有限公司发行的债券列为绿色债券，根据[路德社节目报道](https://gnews.org/zh-hans/1118412/)，香港『众新闻』报道，根据中共国生态环境部2017年的一份政府批文，距离香港只有50公里的拥有六台机组的大亚湾核电站，每年放射性物质液态氚排放量平均为上限的20%，即大约49.5兆贝克，比日本福岛核电站制定的排放标准高出十倍，大亚湾核电站隶属于中广核，中广核发的债券怎么会是绿色债券呢？
+关于中共病毒疫苗对接种者造成的伤害和死亡已有无数报道，主要的伤害包括在体内形成血栓，造成心脏疾病、脑栓塞、肺栓塞，严重者可造成死亡；削弱人体免疫力，包括破坏癌症免疫蛋白，大大增加患癌症几率；孕妇流产、面瘫、失明、耳聋、瘫痪、癫痫、神经系统出血、皮疹和晕厥等，澳大利亚有报道一接种者患上艾滋病。
 
-因此，可持续报告准则需要有效应对中共构成的信息披露造假挑战。
+目前，第一位疫苗接种者已死亡。我们是否可以预期半年或一年后更多的接种者遭遇不幸？会否出现癌症大爆发？诺贝尔获奖者鲁克-蒙塔格涅尔（Luc Montagnier)推测的两年内接种疫苗的人将无法生还是危言耸听吗？
 
-首先，可持续报告准则应要求在报告的首页披露没有法治、没有言论自由的环境，包括有网络防火墙，对环境保护、社会责任和公司治理（ESG）及相关信息可靠性的影响。
+* * *
 
-其次，可持续报告准则应要求在可持续报告的审计报告首页披露该国或地方当局阻碍外国监督机构检查审计工作底稿对环境保护、社会责任和公司治理相关信息可靠性的影响。
+*编辑、发稿 文锦*
 
-只要对这两点的基本信息说谎，比如有网络防火墙，偏说没有，或者该国政府阻碍检查审计工作底稿，偏说没有阻碍，明眼人一眼就能看出来整个报告（包括财务报告）没有阅读价值，报告直接扔掉，或留存起来，先买入该公司证券比如1股，再作为起诉发行人欺诈发行证券的证据。
-
-各国的证券交易所实际也可以有所行动，对没有法治、没有言论自由地区来的发行人或者来自于该地区的利润或收入占合并数超过10%的证券简称前面加上\*ST，审计工作底稿不能被检查的证券简称前面加上ST，同时延长该类证券从买入成交到交割日的时间，比如实行T+200交易。
-
-(本文仅代表作者个人观点)
-
-0
++1

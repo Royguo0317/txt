@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度奥委会弃用中共赞助品牌上东京奥运会
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1310862/)
+## 阿斯利康和强生疫苗不可推荐给服用避孕药的人
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1310910/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+消息来源：今日意大利（today.it）
+发布时间：2021年06月08日
+翻译整理：斩草要除根
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09155526/I-1.jpg)allplacesmap.com
-印度媒体6月9日报道，印度奥林匹克协会(IOA)决定放弃中共国运动服装品牌李宁作为其奥运会官方服装赞助商，并宣布印度运动员在东京奥运会期间将穿非品牌服装。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09162322/mat-napo-pIJ34ZrZEEw-unsplash-scaled.jpg)
 
-上周，印度奥委会公布了李宁为东京奥运会设计的奥运装备，引发了批评。据了解，印度体育部随后建议印度奥委会弃用中共赞助商。东京奥运会将于7月23日至8月8日举行。
 
-印度奥委会主席纳林德·巴特拉和秘书长拉吉夫·梅赫塔在一份声明中表示：“我们了解球迷们的情绪，印度奥委会决定退出与服装赞助商的现有合同。”“我们的运动员、教练和支持人员将穿无品牌服装。”
+在因为注射抗新冠病毒疫苗后发生的最新一例脑静脉血栓后，意大利热那亚的圣马蒂诺医院传染病诊所主任马泰奥·巴塞蒂 (Matteo Bassetti) 认为阿斯利康 (AstraZeneca) 和强生 (Johnson & Johnson) 疫苗不可推荐给那些服用过避孕药的人。
 
-自从印度军队和中共军队去年在实控线的紧张局势加剧以来，印度国内一直有人呼吁抵制中共国产品。巴特拉和梅赫塔说：“我们感谢青年事务和体育部做出这一指导决定。”“我们希望我们的运动员能够在训练和比赛中不需要回答有关服装品牌的问题。”据消息人士透露，印度奥委会正在与几家公司进行谈判，试图确保运动员在奥运会上不会没有品牌。
+巴塞蒂解释说—：“我们已经看到，在服用这些药物的年轻人中，记录了更高频率的罕见不良事件，如血栓形成：每百万抗新冠疫苗中有 6-7 例。在利古里亚，由于这位 18 岁的女孩患有血栓形成的情况下，许多人取消了阿斯利康疫苗的预订。
 
-印度奥委会官员感谢印度精英运动员及教练组和支持人员的“奉献精神”，期待他们在奥运会上取得好成绩。同时声明 “我们在IOA、国家体育联合会、政府和其他利益相关方的生态系统中有着极佳的协同作用。”
+塞蒂评论道：“很明显，我们必须知道可能会有副作用，他们必须知道如果他们服用药物，必须告诉接种疫苗的医生，例如女孩必须说他们是否服用避孕药”。
 
-参考链接：
+在热那亚的圣马蒂诺医院接受阿斯利康疫苗接种后患有脑静脉血栓的 18 岁女孩现在仍处于“严重状态”。尽管进行了两次清除脑血栓和降低出血引起的颅压的手术，但是术后效果不佳。但目前还不确定影响她的脑静脉血栓形成的原因是血清疫苗。
 
-[https://www.espn.com/olympics/story/\_/id/31593538/ioa-drops-chinese-brand-li-ning-indian-athletes-wear-unbranded-apparel-tokyo-games?platform=amp](https://www.espn.com/olympics/story/_/id/31593538/ioa-drops-chinese-brand-li-ning-indian-athletes-wear-unbranded-apparel-tokyo-games?platform=amp)
+另一名来自卢卡市的 42岁妇女中风后现在在比萨大学附属医院接受重症监护：她也在 5 月 26 日自愿接种了阿斯利康疫苗。两名女性均未满60岁。目前，意大利药品管理局 (Aifa) 和卫生部建议仅对 60 岁以上的人使用 血清疫苗。
+
+简评：已经被很多国家停止使用的阿斯利康疫苗却在意大利继续被允许使用，以无辜牺牲的生命作为代价，但愿能给这个政府和社会敲响警钟。
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
+
+🔗[attualita/vaccino-astrazeneca-pillola](https://www.today.it/attualita/vaccino-astrazeneca-pillola.html)
 
 0

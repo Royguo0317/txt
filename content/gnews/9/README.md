@@ -1,54 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月9日美国政要反共推特精选：要求国会对新冠大流行的起因进行全面调查
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1311206/)
+## 【小一视角】欧盟取消免税政策，中共的又一个出气孔被堵
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1311283/)
 
-参议员霍利新闻办公室： 在数千页电子邮件的泄露，进一步损害了福奇的信誉和声誉之后，霍利呼吁他辞职，并要求国会对新冠大流行的起因进行全面调查。
+加拿大多伦多枫叶农场 我是1，小一
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09203814/1620473127515.png)
+最近欧洲方面动作频频，中共寄予厚望的中欧协议被冻结，在英国召开的G7峰会密集政策出台。最重磅的就是G7国家支持向跨国公司征收最低15%的企业税，这将彻底改变全球的商业版图，而且这些世界跨国巨头企业回归本国以后对中共的产业链绝对是一记重拳。有兴趣的战友，具体可以参见小一的另一篇文章《[15%全球最低税率将开启世界商业版图大调整](https://gnews.org/zh-hans/1311080/)》。
 
+今天聊一个跨境电商的话题：“7月1日，欧盟取消跨境商品增值税免税政策”。这个政策之所以这么重要，是因为他牵涉到中共的一个整体战略“一带一路”。这是很早以前的政策，但一直被拖延执行。英国由于先脱欧了，所以在2021年1月1日英国已经开始率先执行了。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09203928/hghjgjh.jpg)
+**“欧盟取消跨境商品增值税免税”的具体政策：**
 
+**1．取消22欧元增值税免征：以前22 欧元以下的货件可以免征增值税。这个税率是20%，现在没有这个优惠了。**
 
-> After the release of thousands of pages of emails that have further damaged the credibility and reputation of Fauci, Hawley is calling on him to resign and for a full congressional investigation into the origins of the COVID pandemic. [https://t.co/NQi2NuTBYd](https://t.co/NQi2NuTBYd)
-> — Senator Hawley Press Office (@SenHawleyPress) [June 9, 2021](https://twitter.com/SenHawleyPress/status/1402678526336245767?ref_src=twsrc%5Etfw)
+**2．在IOSS平台申报缴纳：150欧元以下商品在IOSS平台向欧盟统一申报缴纳。**
 
+**3．平台代收代缴：亚马逊等平台向卖家代收代缴**。
 
+对于中共国的卖家来说，最直接的影响就是成本增加20%。以江浙沪珠三角为代表的小商品很多单价都在22欧元以下，以前赚钱就是因为利用欧洲的免税政策，现在这个口子封死了。
 
-众议院外交委员会共和党： 领袖麦考尔在福克斯就 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) Covid 掩盖事件说：“我认为所有路都指向武汉实验室那里。我确实认为是有一种说法是意外释放，但除非 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 开放，否则我们可能永远不会知道真相。” 看这里
+150欧元以内的产品几乎占了90%以上了，统统纳入欧盟正规的税务体系中。以前这个漏洞有多大呢？欧盟数据显示是50亿欧元左右。结合G7同意跨国公司最低税率15%这件事情，我们可以明显感受到这不是孤立事件，欧美开始联合修篱笆、筑高墙，防共、灭共。
 
+中共国卖家想涨价？几乎不可能。这个价位的低端电商货就是靠便宜，这背后是无数中共国的小企业。中共国大力主推“一带一路”，增加中欧铁路班列运力，向欧洲大量输出便宜货，想让在中美贸易中瘫痪的中小外贸企业继续为它赚钱。但是欧盟一旦免税政策取消，20%的直接利润马上烟消云散，到时候美国关门，欧洲加税，中共国的外贸卖给谁？
 
+6月8日至11日，在中共国的宁波正在举行第二届中国—中东欧国家博览会。前几天，周小川喊话东盟各国快点签署RCEP协议。非常清晰看出中共的方向：丢失欧美市场以后，主攻中东欧和东南亚市场，加大开发传统的非洲市场，争取时间，继续放毒，对抗世界。
 
-> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) with [@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw) on the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s Covid cover-up: “I think all roads lead to the Wuhan lab here. I do think there’s an argument that there was an accidental release, but we may never know the truth unless the Chinese Communist Party opens up.”
->  
-> Watch here⬇️ [pic.twitter.com/ndPiiTRFOy](https://t.co/ndPiiTRFOy)
-> — House Foreign Affairs GOP (@HouseForeignGOP) [June 9, 2021](https://twitter.com/HouseForeignGOP/status/1402694388917194754?ref_src=twsrc%5Etfw)
+欧洲的行动都是拳拳到肉、直奔靶心。现在就看7月1日欧盟能不能准时启动了。因为德国和荷兰一直在反对，希望再延续到2022年1月1日，具体我们拭目以待，看中共如何表演！
 
+（本文仅代表作者个人观点）
 
+* * *
 
-众议员爱丽丝·斯泰凡尼可： 美国人民应该得到答案。国会必须对新冠的起源展开调查。 （附众议院共和党推特：行政管理和预算局代理局长，拒绝说拜登总统的预算不会资助武汉病毒学研究所。 你们缴纳的税款不该用于资助可能产出新冠的中国实验室。）
+*编辑、发稿 文锦*
 
-
-
-> The American people deserve answers. Congress MUST launch an investigation into the origin of COVID-19. [https://t.co/bpZiaOwmBZ](https://t.co/bpZiaOwmBZ)
-> — Rep. Elise Stefanik (@RepStefanik) [June 9, 2021](https://twitter.com/RepStefanik/status/1402703178806841344?ref_src=twsrc%5Etfw)
-
-
-
-众议员布里安·斯太尔： 美国不应该直接或间接地资助中国共产党控制的实验室——如武汉病毒学研究所——的功能获得性研究
-
-
-
-> The United States should not be funding—directly or indirectly—gain-of-function research in CCP controlled labs, such as the Wuhan Institute of Virology.
-> — Bryan Steil (@RepBryanSteil) [June 9, 2021](https://twitter.com/RepBryanSteil/status/1402619594641129474?ref_src=twsrc%5Etfw)
-
-
-
-众议员布里安·马斯特： 无论是掩盖新冠肺炎疫情，还是侵犯人权，都必须全方位追究中共国的责任。 （转CNN报道：维吾尔人正被穆斯林国家驱逐出境，这引发了人们对中国影响力不断扩大的担忧）
-
-
-
-> From their COVID cover up to human rights abuse, China must be held accountable on all fronts.[https://t.co/Xj3VZPncVH](https://t.co/Xj3VZPncVH)
-> — Rep. Brian Mast (@RepBrianMast) [June 9, 2021](https://twitter.com/RepBrianMast/status/1402671838258401291?ref_src=twsrc%5Etfw)
-
-
-
-0
++1

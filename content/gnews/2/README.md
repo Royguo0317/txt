@@ -1,61 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】闪测系统“昙花一现”，中共核酸检测仍靠“人海战术”
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1311332/)
+## 澳大利亚将要推行新冠疫苗接种证书吗？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1311378/)
 
-香草山写作组  鹰(文言)
+撰稿： 喜国公民
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09210525/EADB3780-61ED-45CC-9E2A-ED72198D92A0-edited.jpeg)
+图片来自网络
 
+据[水星报报道](https://www.themercury.com.au/news/victoria/australians-to-get-covid19-vaccination-certificate/news-story/50b5ae432c05780ae09276fcc168021d?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_AM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=6)，接种过Covid-19疫苗的澳州人将收到一份证书。该证书将通过医疗保险应用程序提供。澳州服务局的官僚们在上周五的参议院听证会上确认，该证书将在几天内推出。
 
+这一举措的目的是以帮助激励更多澳州人接种疫苗，为政府和企业对未接种的人实施严厉的规定铺平道路。尽管国家内阁尚未同意，企业可能会寻求使用该证书来拒绝向那些没有接种疫苗的人提供服务。然而，这个新冠疫苗接种证书真的能在澳洲推行吗？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
+一些州的领导人批评了这一计划。新南威尔士州州长Gladys Berejiklian宣称，澳大利亚的自由流动不应取决于疫苗。一些联邦自由党议员对政府推动澳大利亚人需要疫苗证书才能自由旅行表示担忧。
 
+总理斯科特-莫里森希望接种疫苗的澳州人能够绕过各州的旅行限制。表示，如何使用该证书由各州和地区决定。
 
+如果新冠疫苗接种证书是由各州和地区来决定，那么，那些不愿接种疫苗的澳洲人可以选择去那些没有实行新冠疫苗接种证书的州和地区去居住。这要好过中共国的强制性打疫苗，使人没有任何选择。
 
-环球网6月9日转载中国民航报消息，近期广州CCP病毒疫情爆发，导致各区县“全员核酸检测”现象频发。在超1800万核酸检测需求下，广州却依旧沿用效率低下的咽拭子检测方式。
+但是，这会照成不必要的人口流动。给居民带来工作，学习和生活上的不便。
 
-广州疫情持续发酵，核酸检测人数和范围日益增加。根据《广州市新型冠状病毒肺炎疫情防控指挥部关于进一步强化疫情防控工作的通告（第17号）》要求，白云机场6月8日为出港旅客提供24小时核酸检测服务，并承诺采样后4-8小时出结果。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09204258/Screen-Shot-2021-06-09-at-8.40.48-PM.png)
-从2020年1月末中共病毒全球大流行，到雅培研制出15分钟快速新冠检测仪器，用时约2个多月，且检测准确率超95%。中共一方面诋毁其核酸检测准确性，另一方面也在自行研制“国产”快速检测方法。终于，在7月初由卡尤迪生物研制的“闪测系统”成功上市并应用于北京、杭州等地医院以及新疆疫情防控。据称“闪测系统”30分钟出结果，且灵敏度95%以上。
+该报道还提供了一个新冠疫苗接种证书的样本。除了接种人的姓名，生日等信息外，还包括证书从什么时候开始生效。由于目前市场上的新冠疫苗都是针对数月前发现的新冠毒株来生产的。如果遇到新冠病毒的变异毒株，还会被感染。
 
-虽然闪测系统时间优势与雅培产品相比不具备优势，但其至少可以解决耗时较长这一缺陷。然而，无论是1月初石家庄疫情大爆发，还是近期的广州疫情复燃，在全员核酸检测的巨大需求下，中共依旧沿用的是咽拭子检测方式。无论是简易检测点还是集中采样点，均未见省时省力的“闪测系统”，反而仍需要靠数量短缺的医务人员轮班式的疲劳工作。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09204239/Screen-Shot-2021-06-09-at-8.40.56-PM.png)
-1800万核酸检测靠人力的这一实情揭露出中共所产“闪测系统”实为虚假宣传。再者，各地频现的多次核酸检测“假”阴性（如深圳一病例11次检测为阴性）也侧面反映出核酸检测试剂的准确率低下。以50%检测概率估算，至少需要连续5次的核检才能达到95%的准确率。参考北大李玲在《疫情引发对中国未来发展模式的重新思考》论坛中透露2020年GDP中至少67万亿来自抗疫收益，可见中共对30分钟闪测的“弃之不用”，除了性能存疑外，更重要的是相比前者，咽拭子检测虽然低效但其近百的资费价格可为中共提供巨额的收入（如广州核酸检测标准约75元/人，1800万人对应13.5亿的可观收入）。
+持有新冠疫苗接种证书的澳洲人会认为自己比没有接种新冠疫苗的人能够更安全地不受任何限制地旅游，从而会放松对周边环境的警惕，反而会更容易被变异的新冠病毒感染，并且会更快，更大范围地传染给其他人群。
 
-新闻来源：
+解决目前大流行的关键是要彻底查清新冠病毒的来源。如果发现病毒是由实验室制造出来的生化武器，政府就要告诉澳洲人，我们正处在一场生化战争当中。只有铲除了释放病毒的根源，才会阻断新病毒的出现。
 
-高效便民！广州白云机场增设现场核酸检测点 最快4小时出结果https://china.huanqiu.com/article/43SwWAQ1trN
+获得2008年诺贝尔医学奖的法国科学家Luc Montagnier教授在接受采访时提到，”大规模接种疫苗是一个非常严重的医学错误，因为变异病毒来自疫苗本身。新冠疫苗接种证书绝不是一个解决问题的好办法。逼迫越来越多的澳洲人打疫苗，只能把澳大利亚推向万劫不复的深渊！
 
-深圳一病例为何11次检测为阴性？权威解释来了https://china.huanqiu.com/article/43SzTE2S652
+(文章内容仅代表作者观点)
 
-核酸“闪测”系统亮相服贸会 出结果只需30分钟https://news.sina.com.cn/c/2020-09-06/doc-iivhuipp2776772.shtml
+*编辑：cindy*
 
-科学快速应对，卡尤迪“闪测”系统登场 三十分钟！新冠核酸检测即可完成https://www.sohu.com/a/417189603\_124379
+参考消息：
 
-美国确诊病例暴涨背后：检测能力突飞猛进，最快5分钟出结果https://news.sina.com.cn/o/2020-03-29/doc-iimxyqwa3937810.shtml
-
-三十分钟！新冠核酸检测即可完成http://health.people.com.cn/n1/2020/0908/c14739-31853508.html
-
-多地核酸检测降价！那广州呢？可以用医保吗？https://new.qq.com/omn/20210131/20210131A03I6A00.html
-
-新华全媒+丨超1800万——直击全球城市最大规模核酸检测进行http://www.xinhuanet.com/politics/2021-06/06/c\_1127535695.htm
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
+[https://www.themercury.com.au/news/victoria/australians-to-get-covid19-vaccination-certificate/news-story/50b5ae432c05780ae09276fcc168021d?utm\_source=Mercury&utm\_medium=email&utm\_campaign=Editorial&utm\_content=MERC\_LATESTNEWS\_AM-CUR\_01&net\_sub\_id=287163446&type=curated&position=1&overallPos=6](https://www.themercury.com.au/news/victoria/australians-to-get-covid19-vaccination-certificate/news-story/50b5ae432c05780ae09276fcc168021d?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_AM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=6)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0
