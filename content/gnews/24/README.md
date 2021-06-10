@@ -1,68 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《2021年美国创新与竞争法案》涉及中共国部分（2）
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1311458/)
+## 只有信仰才能解开中共教育体制打造的奴性枷锁
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1311532/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+撰稿：8 Mile
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09223911/t-5.jpg)icryptodesk.com
-C部分——2021年战略竞争法
+素材：最后的救赎
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09233905/20210610_Edu.png)图片来自网络
+看到上面的照片，相信所有人都会倒吸一口凉气。在中共国，作为教育输出终端的高校，已然满是体制奴役人民的“缩影”。
 
-《战略竞争法》是两党共同努力的结果，目的是使美国能够有效地应对中共国对我们国家社会和经济安全的挑战，该法案在2021年4月21日几乎一致地（21票对1票）获得了参议院外交关系委员会（SFRC）的通过，该法案提供了一个统一的战略对策。
+从娃娃就开始抓起的“童心向党”，到学术研究、升职竞聘里的党领导一切；从多至8个学生一间屋的凄惨寒舍，到外国留学生的豪华独立套间；从衡水中学内卷压迫出的自卑与报复心理，到给予非洲留学生20万一年的补助倒贴；从奴役青少年的“一考定终身”，到文凭说变就变的红头文件……
 
-通过以下措施增加美国对印度洋-太平洋地区的战略关注点，优先处理联盟、伙伴关系和美国全球领导地位：
-推进以加强美国联盟和伙伴关系、支持解决问题的区域合作为核心的印太战略。
-扩大与印太盟国和伙伴在技术、防务和基础设施方面的合作，增加对盟国和伙伴的安全援助，面对日益增长的中共军事能力加强合作。
-提升美国在国际组织和其他多边机构中的领导地位，包括对抗中共国和中国共产党在这些组织中的恶意影响。
+教育是发展的根基。如果从娃娃开始，就按照中共的体制打断你的脊梁，抹杀你的尊严，剥夺你的权力，钳制你的自由，那么这个国家谈何进步与发展。
 
-通过以下方式对抗中共的恶意政治影响和掠夺性经济行为，并激发美国的外交和经济统领能力：
-通过要求美国外国投资委员会，审查某些大学接受的外国赠品和合同，打击中共国和中共的影响力活动。
-针对中共国在西半球掠夺性的主权贷款，授权美国主管向美洲开发银行（Inter-American Development Bank）投票赞成第10次全面增资，解决中共国的知识产权盗窃和补贴问题，优先向致力于打击外国腐败行为的国家提供技术援助。
-通过将开发金融公司的最高负债额提高到1000亿美元，并投资于安全供应链、基础设施建设、数字连接和网络安全伙伴，增强美国的经济统领能力。
+面对中共体制里说不尽、道不完的败絮，这样的难题未来如何解决？只有重拾信仰，才能让直不起来的脊梁再次挺立。
 
-通过以下方式维护美国的价值观：
-授权广泛的人权和公民社会措施，包括对强制劳动、强制堕胎和绝育，以及新疆的其他虐待行为的制裁，以及（表明）与香港人民、西藏人民和中国公民社会站在一起的措施。
-包括增加国会和美国公众在国际协议和安排方面透明度的重要条款。
-（未完待续）
+当中共体制倒塌的那一刻，只有正道主义的信仰，才能让被中共肢解的家庭、社会秩序逐渐恢复和融合；才能让习惯被枷锁束缚的百姓，真正理解自由、普世价值的含义，重新审视自己，有信念和意愿把控属于自己的未来。
 
-文字整理：
+中共的教育体制是要攻心，是要被洗脑的百姓离不开它。而正道主义的信仰是要健脑，是要告诉每个人秉持正道，你完全可以。
 
-Division C – Strategic Competition Act of 2021
+我们不需要被灌输的空洞感恩，我们需要的是对彼此的关爱。这样的关爱自然会增进彼此的感情，释放个体的潜力。
 
-The Strategic Competition Act is a bipartisan effort to enable the United States to effectively confront the challenges posed by the People’s Republic of China (PRC) to our national and economic security. The bill was passed out of SFRC in a nearly unanimous vote (21-1) on April 21, 2021. The bill provides a unified, strategic response that:
+（本文纯属个人观点）
 
-Increases U.S. strategic focus on the Indo-Pacific and prioritizes alliances, partnerships, and U.S.
+参考资料：
 
-global leadership by:
+[两女生配一个男留学生，河北师大“多元课堂”翻车了](https://3g.163.com/dy/article_cambrian/GBVDPIMQ05452XDZ.html/?unfoldAll=1&amp;referFrom=)
 
-Advancing an Indo-Pacific strategy centered on strengthening U.S. alliances and partnerships and supporting regional cooperation that solves problems.
+[网传黑人留学生一年补助十万，某高校辟谣：假的，实际是二十万！](http://ruiduxinwen.com/product/50)
 
-Expanding cooperation with Indo-Pacific allies and partners on technology, defense, and infrastructure, increasing security assistance to allies and partners, and fostering enhanced
-
-cooperation in the face of China’s growing military capabilities.
-
-Promoting U.S. leadership within international organizations and other multilateral fora, including to
-
-counter malign PRC and Chinese Communist Party (CCP) influence in those organizations.
-
-Confronts China’s malign political influence and predatory economic practices, and energizes U.S. diplomatic and economic statecraft by:
-
-Countering PRC and CCP influence campaigns by requiring the Committee on Foreign Investment in the United States to review certain foreign gifts and contracts to universities.
-
-Countering China’s predatory sovereign lending in the Western Hemisphere by authorizing the U.S. Governor to the Inter-American Development Bank to vote in favor of a 10th general capital increase. Addressing China’s intellectual property theft and subsidies, and prioritizing technical assistance to countries working to counter foreign corrupt practices.
-
-Bolstering U.S. economic statecraft by increasing the Development Finance Corporation’s maximum liability to $100 billion and investing in supply chain security, infrastructure development, and digital connectivity and cybersecurity partnerships.
-
-Upholds U.S. values by:
-
-Authorizing a broad range of human rights and civil society measures including sanctions for forced labor, forced abortion and sterilization, and other abuses in Xinjiang, and measures to stand with the people of Hong Kong, Tibet, and China’s civil society.
-
-Including critical provisions to increase transparency for Congress and the American public related to international agreements and arrangements.
-
-原文链接：
-
-[https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf](https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf)
-
-0
+*编辑：8 Mile*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
++2

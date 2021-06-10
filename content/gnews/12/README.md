@@ -1,99 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彼得·达萨克(Peter Daszak )描述“中国的同事”正在开发“杀手’’级冠状病毒
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1311582/)
+## 【有声读物】闪测系统“昙花一现”，中共核酸检测仍靠“人海战术”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1311703/)
 
-**字幕內容：**
+配音：香草山录音组 蒙古鸿雁
 
-**Peter Daszak（EcoHealth Alliance President)
-彼得·达萨克(生态健康联盟主席）**
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-This is example, first of all
-这是个例子，首先
 
-We’re only looking at viral families that include those that have gotten to people from ani-mals
-我们只关注包括那些从动物身上感染
-到人的病毒家族
 
-so we have narrowed it down straight away
-所以我们直接缩小了范围
 
-Then when you got a sequence of the virus
-然后当你得到病毒序列时
 
-and it looks like a relative of a known nasty pathogen,
-它看起来像是一种已知令人讨厌的病原体的亲戚
 
-just like we did with SARS
-就像我们对非典所做的那样
 
-We found other coronaviruses in bats,
-我们在蝙蝠中发现了其他冠状病毒
+环球网6月9日转载中国民航报消息，近期广州CCP病毒疫情爆发，导致各区县“全员核酸检测”现象频发。在超1800万核酸检测需求下，广州却依旧沿用效率低下的咽拭子检测方式。
 
-a whole host of them,
-很大量的
+广州疫情持续发酵，核酸检测人数和范围日益增加。根据《广州市新型冠状病毒肺炎疫情防控指挥部关于进一步强化疫情防控工作的通告（第17号）》要求，白云机场6月8日为出港旅客提供24小时核酸检测服务，并承诺采样后4-8小时出结果。
 
-some of them looked very similar to SARS.
-其中一些看起来与SARS非常相似
 
-So we sequenced the spike protein:
-所以我们对刺突蛋白进行了测序：
 
-the protein that attaches to cells.
-附着在细胞上的蛋白质
+**文字版原文：【[鹰眼墙国】闪测系统“昙花一现”，中共核酸检测仍靠“人海战术”](https://gnews.org/zh-hans/1311332/、)**
 
-Then we… Well I didn’t do this work,
-然后我们… 好吧，我没有做这个工作
+作者：纽约香草山写作组  鹰(文言)
 
-but my colleagues in China did the work.
-但我在中共国的同事做了这项工作
 
-You create pseudo particles,
-先创造了假的病毒颗粒
 
-you insert the spike proteins from those viruses,
-再插入那些病毒的刺突蛋白
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
-see if they bind to human cells.
-看看它们是否与人体细胞结合
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-At each step of this you move closer and closer to this virus
-每走一步，你就离这种能真正成为
+**更多资讯，更多关注**
 
-could really become pathogenic in people.
-人类致病性的病毒越来越近
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-So you narrow down the field
-所以你缩小了领域
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-you reduce the cost and you end up with a small number of viruses
-你降低了成本而且最终得到了少量病毒
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-That really do look like killers
-看起来真的很像杀手
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-and you look at the people and you say
-然后你看看人群
-
-And the people that live in that region where the animal lives
-这些生活在暴露病毒的动物所在地区的人们
-
-that exposed the virus do we see antibodies specific
-身上是否产生了特定的抗体？
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://www.foxnews.com/media/pompeo-covid-origins-wuhan-lab-theory](https://www.foxnews.com/media/pompeo-covid-origins-wuhan-lab-theory)
-英听校：康州盘古农场 – Layka
-翻译：康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

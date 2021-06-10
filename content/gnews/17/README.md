@@ -1,35 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 只有信仰才能解开中共教育体制打造的奴性枷锁
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1311532/)
+## “德克萨斯州 100% 开放”：州长禁止私营企业和州政府发放疫苗护照
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1311631/)
 
-撰稿：8 Mile
+**字幕内容：**
 
-素材：最后的救赎
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09233905/20210610_Edu.png)图片来自网络
-看到上面的照片，相信所有人都会倒吸一口凉气。在中共国，作为教育输出终端的高校，已然满是体制奴役人民的“缩影”。
+Greg Abbott (Texas Governor)
+格雷格·阿博特 (得克萨斯州州长)
 
-从娃娃就开始抓起的“童心向党”，到学术研究、升职竞聘里的党领导一切；从多至8个学生一间屋的凄惨寒舍，到外国留学生的豪华独立套间；从衡水中学内卷压迫出的自卑与报复心理，到给予非洲留学生20万一年的补助倒贴；从奴役青少年的“一考定终身”，到文凭说变就变的红头文件……
+Texas is open 100%
+德克萨斯州是100% 开放
 
-教育是发展的根基。如果从娃娃开始，就按照中共的体制打断你的脊梁，抹杀你的尊严，剥夺你的权力，钳制你的自由，那么这个国家谈何进步与发展。
+And we want to make sure
+并且我们要确认
 
-面对中共体制里说不尽、道不完的败絮，这样的难题未来如何解决？只有重拾信仰，才能让直不起来的脊梁再次挺立。
+that you have the freedom to go where you want without limits
+你可以不受限制地自由去你想去的地方
 
-当中共体制倒塌的那一刻，只有正道主义的信仰，才能让被中共肢解的家庭、社会秩序逐渐恢复和融合；才能让习惯被枷锁束缚的百姓，真正理解自由、普世价值的含义，重新审视自己，有信念和意愿把控属于自己的未来。
+the Texas legislature passed a law
+德克萨斯州立法机构通过了一项法律
 
-中共的教育体制是要攻心，是要被洗脑的百姓离不开它。而正道主义的信仰是要健脑，是要告诉每个人秉持正道，你完全可以。
+that I’m about to sign that prohibits vaccine passports in Texas
+我即将签署它，该法律禁止在德克萨斯州
+接种疫苗的护照
 
-我们不需要被灌输的空洞感恩，我们需要的是对彼此的关爱。这样的关爱自然会增进彼此的感情，释放个体的潜力。
+No business or government entity can require
+任何企业或政府实体都不能要求
 
-（本文纯属个人观点）
+a person to provide a vaccine passport
+个人提供疫苗护照
 
-参考资料：
+or any vaccine information as a condition of
+或任何疫苗信息作为条件
 
-[两女生配一个男留学生，河北师大“多元课堂”翻车了](https://3g.163.com/dy/article_cambrian/GBVDPIMQ05452XDZ.html/?unfoldAll=1&amp;referFrom=)
+receiving any service or entering any place
+接收任何服务或进入任何地方
 
-[网传黑人留学生一年补助十万，某高校辟谣：假的，实际是二十万！](http://ruiduxinwen.com/product/50)
+I want to thank the Texas legislature for getting this bill to my desk
+我要感谢德州立法机构将这份法案送到我的办公桌
 
-*编辑：8 Mile*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
-+2
+Vaccine passports are now prohibited in the Lone Star State
+孤星州现在禁止使用疫苗护照
+
+原视频链接:[https://twitter.com/ilsharko/status/1402047112213413897?s=24](https://twitter.com/ilsharko/status/1402047112213413897?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场- 银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

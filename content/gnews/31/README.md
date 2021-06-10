@@ -1,27 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大象快讯】中共国华为将被排除在有影响力的摩根大通债券指数之外
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1311427/)
+## 《2021年美国创新与竞争法案》涉及中共国部分（2）
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1311458/)
 
-**整理撰稿：蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09220647/31.jpg)
-路透社2021-6-10日 新闻报道了有关华为的资本市场最新反应：美国银行摩根大通表示，在美国最近对中国科技公司实施制裁后，将从下月底开始将华为的美元债券排除在其一些最具影响力的投资指数之外。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-“华为以美元计价的债券将被排除在摩根大通固定收益指数（包括 CEMBI 和 JACI 家族）之外，因为这些证券的发行实体（Proven Glory Capital Ltd. 和 Proven Honor Capital Ltd.）被明确命名在修订后的命令范围内，”摩根大通在周二晚些时候给指数用户的一份报告中表示。它补充说，排除将在 7 月 30 日发生。华为的债券目前在新兴市场公司 CEMBI 广泛跟踪的多元化指数中的权重为 9 个基点，在以亚洲为重点的 JACI 指数中为 36 个基点。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09223911/t-5.jpg)icryptodesk.com
+C部分——2021年战略竞争法
 
-这家美国投资银行估计，CEMBI 和 JACI 指数集团分别拥有超过 1400 亿美元和 800 亿美元的资产作为基准，这些资金与使用这些指数作为购买清单的全球投资基金有关。
+《战略竞争法》是两党共同努力的结果，目的是使美国能够有效地应对中共国对我们国家社会和经济安全的挑战，该法案在2021年4月21日几乎一致地（21票对1票）获得了参议院外交关系委员会（SFRC）的通过，该法案提供了一个统一的战略对策。
 
-华为是中共国领先的电信设备制造商，出于国家安全考虑，于 2019 年 5 月首次被列入美国贸易黑名单。华为一再否认这是一种风险。但是该禁令使华为的手机业务面临巨大压力。华为曾经是全球最大的智能手机制造商，现在排名第六，第一季度的市场份额为 4%。
+通过以下措施增加美国对印度洋-太平洋地区的战略关注点，优先处理联盟、伙伴关系和美国全球领导地位：
+推进以加强美国联盟和伙伴关系、支持解决问题的区域合作为核心的印太战略。
+扩大与印太盟国和伙伴在技术、防务和基础设施方面的合作，增加对盟国和伙伴的安全援助，面对日益增长的中共军事能力加强合作。
+提升美国在国际组织和其他多边机构中的领导地位，包括对抗中共国和中国共产党在这些组织中的恶意影响。
 
-摩根大通表示，来自华为 (HWT.UL) 和半导体制造国际公司(0981.HK) 的新债券和现有债券仍将被排除在指数之外。
+通过以下方式对抗中共的恶意政治影响和掠夺性经济行为，并激发美国的外交和经济统领能力：
+通过要求美国外国投资委员会，审查某些大学接受的外国赠品和合同，打击中共国和中共的影响力活动。
+针对中共国在西半球掠夺性的主权贷款，授权美国主管向美洲开发银行（Inter-American Development Bank）投票赞成第10次全面增资，解决中共国的知识产权盗窃和补贴问题，优先向致力于打击外国腐败行为的国家提供技术援助。
+通过将开发金融公司的最高负债额提高到1000亿美元，并投资于安全供应链、基础设施建设、数字连接和网络安全伙伴，增强美国的经济统领能力。
 
-**参考链接：**
+通过以下方式维护美国的价值观：
+授权广泛的人权和公民社会措施，包括对强制劳动、强制堕胎和绝育，以及新疆的其他虐待行为的制裁，以及（表明）与香港人民、西藏人民和中国公民社会站在一起的措施。
+包括增加国会和美国公众在国际协议和安排方面透明度的重要条款。
+（未完待续）
 
-[https://www.reuters.com/business/finance/chinas-huawei-be-excluded-influential-jpmorgan-bond-indices-2021-06-09/?taid=60c095d42d0a1000013a7371&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/business/finance/chinas-huawei-be-excluded-influential-jpmorgan-bond-indices-2021-06-09/?taid=60c095d42d0a1000013a7371&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+文字整理：
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+Division C – Strategic Competition Act of 2021
 
-***校对发布**：文顾*
+The Strategic Competition Act is a bipartisan effort to enable the United States to effectively confront the challenges posed by the People’s Republic of China (PRC) to our national and economic security. The bill was passed out of SFRC in a nearly unanimous vote (21-1) on April 21, 2021. The bill provides a unified, strategic response that:
+
+Increases U.S. strategic focus on the Indo-Pacific and prioritizes alliances, partnerships, and U.S.
+
+global leadership by:
+
+Advancing an Indo-Pacific strategy centered on strengthening U.S. alliances and partnerships and supporting regional cooperation that solves problems.
+
+Expanding cooperation with Indo-Pacific allies and partners on technology, defense, and infrastructure, increasing security assistance to allies and partners, and fostering enhanced
+
+cooperation in the face of China’s growing military capabilities.
+
+Promoting U.S. leadership within international organizations and other multilateral fora, including to
+
+counter malign PRC and Chinese Communist Party (CCP) influence in those organizations.
+
+Confronts China’s malign political influence and predatory economic practices, and energizes U.S. diplomatic and economic statecraft by:
+
+Countering PRC and CCP influence campaigns by requiring the Committee on Foreign Investment in the United States to review certain foreign gifts and contracts to universities.
+
+Countering China’s predatory sovereign lending in the Western Hemisphere by authorizing the U.S. Governor to the Inter-American Development Bank to vote in favor of a 10th general capital increase. Addressing China’s intellectual property theft and subsidies, and prioritizing technical assistance to countries working to counter foreign corrupt practices.
+
+Bolstering U.S. economic statecraft by increasing the Development Finance Corporation’s maximum liability to $100 billion and investing in supply chain security, infrastructure development, and digital connectivity and cybersecurity partnerships.
+
+Upholds U.S. values by:
+
+Authorizing a broad range of human rights and civil society measures including sanctions for forced labor, forced abortion and sterilization, and other abuses in Xinjiang, and measures to stand with the people of Hong Kong, Tibet, and China’s civil society.
+
+Including critical provisions to increase transparency for Congress and the American public related to international agreements and arrangements.
+
+原文链接：
+
+[https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf](https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf)
 
 0

@@ -1,43 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】你的善恶标准是什么？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1311692/)
+## 【世事解评】孔子学院气数已尽！
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1311882/)
 
-配音：香草山录音组 信念7
+作者：纽约香草山健身部   幸福鸟
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
 
 
+众所周知，中共国于2004年开始在全球范围内建立孔子学院。表面上，孔子学院旨在于互惠互利的基础上传播中国文化，增强世界对中国的了解以及普及中文教育。但实际上，它们是中共在海外进行宣传以及收集各种情报的根据地。目前全球大约160个国家和地区拥有约500所孔子学院。近年来，欧美多国越来越清楚地意识到孔子学院的真正后台就是中共这一事实，因而纷纷致力于关闭设立在本国大学的孔子学院。据报道，美国校园里的孔子学院数量从2017年的100多个减少到截止今年5月的47个，下降率超过50%。关闭孔子学院的势头方兴未艾。近日，日本也步欧美后尘，正准备着手查处孔子学院。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10030206/%E5%9B%BE%E7%89%8726-1.png)日本文部科学大臣萩生田光一 图片来源：网络
+
+在日本，包括早稻田大学和立命馆大学在内的14所私立大学在校园内设有孔子学院。自民党日本参议院议员有村治子在2021年5月的一次参议院会议上指出，孔子学院“被其他国家认为是一种安全威胁”。于是她随后提议，日本政府的相关部委和机构应合作监督孔子学院。
+
+日本政府担心各主办孔子学院的大学是中共的宣传工具，并同时成为通过个人交流泄露技术给中共的渠道。据《日经亚洲》6月6日的报道，日本文部科学省要求各孔子学院必须提供诸如资金、参与学生的人数以及其是否干预大学研究等信息。更详尽的清单将于2021年底前正式确定。日本文部科学大臣萩生田光一关于孔子学院这样指出，“在拥有共同价值观的国家，如美国和欧洲各国，寻求更多信息或废除这些机构的努力与日俱增。” 他还指出，“我敦促信息披露以提高组织管理和研究项目的透明度”。
+
+中共一直信奉金钱万能，以为金钱和权势所向披靡，是启开操控世界大门的万能钥匙。中共以利益为诱饵企图把其孔子学院的情报网密布于发达国家的各所高等学府。然而，随着中共邪恶本性的逐渐败露，越来越多的西方国家对中共的丑恶嘴脸和无孔不入的渗透深恶痛绝。孔子学院的建立不仅频遭拒绝，而且还面临大量被关闭的可能。孔子学院就像其幕后黑手中共一样气数已尽！
+
+参考：
+
+https://www.rfi.fr/cn/亚洲/20210607-日本据报将审查孔子学院-年底前校方需提供资金等信息
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
 
 
-影响人类社会运作的一个关键因素是​强制性规范众人行为的法律。而一个社会的法律某种意义上又是该社会大多数人所信奉的善恶标准的一种文字化和制度化的体现。由于法律是死的，执行的人才是活的。因而，在真正规范人行为的效果上，基于人心中真正相信并愿意去长久践行的善恶标准而来的法律自觉和道德自觉，远比死的法律条文更重要。人们怎么定义自己的善恶标准，实际上取决于他们如何理解自己存在的意义和个人生命的最终归宿。而这个超脱物质世界主观感受性的问题又只能决定于人们对神的认知和信仰。
-
-
-
-**文字版原文：[【信仰之声】你的善恶标准是什么？](https://gnews.org/zh-hans/1310475/)**
-
-作者：纽约香草山福音部 山城小哥
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 +1
