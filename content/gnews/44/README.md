@@ -1,52 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 跟着钱走，大药厂与福奇博士的关联和羟氯喹的禁用
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1311143/)
+## 6月9日美国政要反共推特精选：要求国会对新冠大流行的起因进行全面调查
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1311206/)
 
-蒙特利尔皇家山战友团Spirit
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09185345/fauci.jpeg)据《华盛顿时报》6月9日报道，吉利德公司（瑞德西伟生产厂家）在2020年第一季度游说联邦政府的245万美元花得很值。怎样才能更好地理解如何使使用羟氯喹（HCQ）治疗中共病毒COVID-19患者是如何成为一个科学泥潭的，最好的办法是跟着钱走。
-
-
-羟氯喹很便宜（一个COVID-19疗程的费用在10美元以下），被医生们所熟知，已被开了80多年，而且可以口服。然而，安东尼-福奇博士和国家过敏和传染病卫生研究所的其他人更倾向于使用瑞德西伟（Remdesivir），这是一种由吉利德科学公司生产的专有静脉注射药物，每个疗程的费用约为3,500美元，副作用未知。为了不使大药厂生气，并可能威胁到邀请参加鸡尾酒会、董事会席位和威胁赠，福奇博士和他的同伙尽一切可能推广瑞德西伟，淡化羟氯喹，可能使全球数以百万计的人丧失生命。
-
-
-尽管世界各地的许多医生都发现了羟氯喹的成功，但在2020年2月，NIH开始为瑞德西伟COVID-19试验招募病人，由福奇博士监督其进展，他对所有的新闻发布有最终决定权，而且据推测他与吉利德公司密切合作。4月16日，该试验发生了一件有趣的事情，在clinicaltrials.gov网站上更新被悄悄改变，该研究从评估瑞德西伟防止COVID-19死亡的能力，被改成评估病人从瑞德西伟恢复的速度。这是一个有趣的变化，因为世界卫生组织泄露的一项关于瑞德西伟的研究显示，在COVID-19患者身上使用这种药物没有统计学意义上的临床益处，而且它有严重的副作用。不过它确实在减少恢复时间方面显示出一些希望。4月23日，当这项研究的消息传到公众面前时，吉利德公司的股价下跌。
-
-
-贝勒医学院的丹尼斯-比尔博士和哥本哈根大学的阿纳-阿斯特鲁普在《BMJ医学贸易杂志》上写道，NIH决定在试验中间改变其研究的终点，是不可取的，因为试验设计没有被起草为关注次要终点，可能产生不可靠的数据，并可能 “将偏见引入试验并创造操纵的机会”。
-
-
-尽管如此，4月29日，NIH热情地推出了其结果。福奇在与前总统唐纳德-J-特朗普一起出现在椭圆形办公室时，说有理由感到乐观，该研究实现了其主要目标，即改善康复时间，使用该药的患者康复时间减少了4天。他没有提到该研究的终点在试验中途发生了变化。尽管如此，媒体之旅还是开始了，福奇博士带头称赞瑞德西伟，同时抨击羟氯喹没有进行类似的临床试验。吉利德公司的股票飙升。
-
-
-5月1日，美国国立卫生研究院的COVID-19治疗指南小组成员批准紧急使用瑞德西伟，并指出羟氯喹只能在医院或研究中使用。调查记者Sharyl Attkisson发现该小组的11名成员与吉利德公司有经济联系。两人是吉利德公司的顾问委员会成员，其他人是有偿顾问或接受研究支持和酬金。然而，这些成员中没有人与羟氯喹有关系，该药是由许多非专利制造商生产的，而且非常便宜，分析家们说即使销售量激增也不会成为公司的财务驱动力。
-
-
-阿特基森女士还发现，一项声称羟氯喹导致死亡人数增加的小型退伍军人管理局试验的作者之一在2018年从吉利德公司获得了24.7万美元的资助。
-
-
-5月22日，《柳叶刀》(Lancet)杂志发表的一篇欺诈性论文在羟氯喹的棺材上钉上了钉子，声称表明羟氯喹没有效果，而且很危险。这项现已被推翻并收回的研究的主要作者是哈佛大学教授Mandeep Mehra博士，他在一个月前参加了由吉利德公司联合主办的会议，讨论COVID-19。许多人猜测吉利德公司是否找人代写这项研究报告，因为这家Surgisphere公司只有几名最近雇用的员工，据说其中包括一名科幻小说作家和一名成人内容的模特。
-
-
-然而，伤害已经造成了。6月11日，美国国立卫生研究院更新了其COVID-19指南，建议除临床试验外不要使用羟氯喹。几天后，6月15日，食品和药物管理局撤销了羟氯喹的紧急使用，瑞德西伟成为美国官方认可的唯一治疗COVID-19的药物。
-
-
-吉利德公司在2020年第一季度游说联邦政府的245万美元花得很值。同时，本月发布的一项新的、尚未经过同行评议的羟氯喹研究发现，它与阿奇霉素一起服用，可使呼吸机患者的COVID-19生存率提高近200%。如果这种药有钱就好了。想象一下，有多少生命可以被拯救。
-
-
-福奇因利益驱使与大药厂勾结，利用手中权力和人们对他的信任欺骗总统和愚弄百姓，如此冷血，对上百万的人命无动于衷。最近他的黑手竟然伸向无辜的孩子，声称很快任何年龄的孩子都可以接种中共病毒疫苗，怎样追责福奇，阻止这场疫苗灾难呢？
+参议员霍利新闻办公室： 在数千页电子邮件的泄露，进一步损害了福奇的信誉和声誉之后，霍利呼吁他辞职，并要求国会对新冠大流行的起因进行全面调查。
 
 
 
+> After the release of thousands of pages of emails that have further damaged the credibility and reputation of Fauci, Hawley is calling on him to resign and for a full congressional investigation into the origins of the COVID pandemic. [https://t.co/NQi2NuTBYd](https://t.co/NQi2NuTBYd)
+> — Senator Hawley Press Office (@SenHawleyPress) [June 9, 2021](https://twitter.com/SenHawleyPress/status/1402678526336245767?ref_src=twsrc%5Etfw)
 
 
 
-编辑，发稿Spirit
+众议院外交委员会共和党： 领袖麦考尔在福克斯就 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) Covid 掩盖事件说：“我认为所有路都指向武汉实验室那里。我确实认为是有一种说法是意外释放，但除非 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 开放，否则我们可能永远不会知道真相。” 看这里
 
 
 
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) with [@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw) on the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s Covid cover-up: “I think all roads lead to the Wuhan lab here. I do think there’s an argument that there was an accidental release, but we may never know the truth unless the Chinese Communist Party opens up.”
+>  
+> Watch here⬇️ [pic.twitter.com/ndPiiTRFOy](https://t.co/ndPiiTRFOy)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [June 9, 2021](https://twitter.com/HouseForeignGOP/status/1402694388917194754?ref_src=twsrc%5Etfw)
 
-原文链接：
-[https://m.washingtontimes.com/news/2021/jun/9/follow-the-money-big-pharma-dr-fauci-and-the-death/](https://m.washingtontimes.com/news/2021/jun/9/follow-the-money-big-pharma-dr-fauci-and-the-death/)
+
+
+众议员爱丽丝·斯泰凡尼可： 美国人民应该得到答案。国会必须对新冠的起源展开调查。 （附众议院共和党推特：行政管理和预算局代理局长，拒绝说拜登总统的预算不会资助武汉病毒学研究所。 你们缴纳的税款不该用于资助可能产出新冠的中国实验室。）
+
+
+
+> The American people deserve answers. Congress MUST launch an investigation into the origin of COVID-19. [https://t.co/bpZiaOwmBZ](https://t.co/bpZiaOwmBZ)
+> — Rep. Elise Stefanik (@RepStefanik) [June 9, 2021](https://twitter.com/RepStefanik/status/1402703178806841344?ref_src=twsrc%5Etfw)
+
+
+
+众议员布里安·斯太尔： 美国不应该直接或间接地资助中国共产党控制的实验室——如武汉病毒学研究所——的功能获得性研究
+
+
+
+> The United States should not be funding—directly or indirectly—gain-of-function research in CCP controlled labs, such as the Wuhan Institute of Virology.
+> — Bryan Steil (@RepBryanSteil) [June 9, 2021](https://twitter.com/RepBryanSteil/status/1402619594641129474?ref_src=twsrc%5Etfw)
+
+
+
+众议员布里安·马斯特： 无论是掩盖新冠肺炎疫情，还是侵犯人权，都必须全方位追究中共国的责任。 （转CNN报道：维吾尔人正被穆斯林国家驱逐出境，这引发了人们对中国影响力不断扩大的担忧）
+
+
+
+> From their COVID cover up to human rights abuse, China must be held accountable on all fronts.[https://t.co/Xj3VZPncVH](https://t.co/Xj3VZPncVH)
+> — Rep. Brian Mast (@RepBrianMast) [June 9, 2021](https://twitter.com/RepBrianMast/status/1402671838258401291?ref_src=twsrc%5Etfw)
+
+
+
 0

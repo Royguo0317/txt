@@ -1,105 +1,314 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【报告文学】站着赢的感觉真好！
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1311178/)
+## 他辜负国家，自己赚了钱，福奇博士是一个比以往任何时候都更大官僚
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1311439/)
 
-#### 【作者】Candy 【编辑】滴水穿石
+**字幕內容：**
 
-这是一篇报告文学，希望本文对还处在同等状况的房东们有所启发。
+**Greg Kelly (Newsmax host)
+格雷格·凯利 （Newsmax 主持人）**
 
-我俩成为挚友已经几十年，虽然二人的性格都很刚正不阿，如炮筒子脾气，但不知什么原因，竟然在不觉间保持了如此长久的友谊。从高中开始，到分别读了大学，到各自有了自己的小家庭，到她有了孙子孙女，从拿薪水的工作到独立经营的生意，从挺郭爆料直到如今，我们彼此都知道得一清二楚。生活虽然偶有波澜，但回首往事，还算比较顺利。
+The birthplace of the coronavirus
+冠状病毒的发源地
 
-这一次在她生意上的挑战，可谓从未经历过。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09195235/rent-e1623283237857.jpg)
-故事发生在2020年年底的美国加州。背景是自那年一月份开始，CCP病毒开始从中共国迅速蔓延到欧洲、美国及全球。美国的川普政府在一月底封航封关，各州也相继出台了一系列的地方政策，以应对突然降临的全球瘟疫大流行。
+probably this facility the laboratory in Wuhan China
+可能是这个在中共国武汉的实验室
 
-我朋友有一栋出租的牧场风格的两层别墅。由于房屋状况不错，布局也很好，对有小孩或老人的普通大家庭而言非常实用。但强烈要求签约的房客只身一人，虽然收入不错，但是其子女都和他的前妻生活，没有信用分数，这都是潜在的不稳定因素。
+a laboratory with all kinds of military overtones
+一个有着各种军事色彩的实验室
 
-她没有改变自己遵守了多年的规矩，拒绝了申请人的要求。但申请人的个性渐渐在穷追不舍的后续活动中彰显开来。他列举了自己的所有优势：从16岁开始就跟随大人们学习拆房、建房，几十年来积累了很多实际经验，无论木工瓦工，水电气焊，样样能干。还担任工程监理多年，在旧金山的两个大型建筑都是他的骄傲。作为房客，他一向都是令房东满意、得到很好的推荐信的那位。不信？电话号码奉上（其实，电话号码一直没有出现，因为分隔的时间太久，都找不到了！）
+if I said that a year ago
+如果我在一年前这样说
 
-房客一天几次电话的催促，对他的过去做着保证，对他的未来发着誓言。终于房客得到了通融，朋友答应可以向他的现任老板求证。我朋友对照工资单上的信息，又查验了他公司的情况，那是一家很有名的建筑公司，便很快和他的老板联系上：
+I’d be branded a conspiracy theories
+我会被贴上阴谋论的烙印
 
-朋友提出了自己的疑问：“他没有家庭，不需要这么大的房子，主要是入住之后可能不太稳定，我从来不租给这样的人。”
+I might be kicked off of social media
+我可能会被踢出社交媒体
 
-老板答道：” 他现在没有家庭不代表以后没有家庭，他可以建立一个家庭嘛。”
+but now even the experts are knowledging substantial indications
+但现在即使是专家也知道大量迹象表明
 
-朋友：“ 他没有信用分数，我更不租给这样的人。”
+that it came from this place
+它来自这个地方
 
-老板：“他可以从现在开始慢慢积累自己的信用啊。”
+not even Dr. Fauci can dismiss that at this point
+即使是福奇博士也不能否认这一点
 
-老板果然是老板，厉害，我朋友竟然无语了。房客按时搬进了他的新居，无数建筑方面的工具跟着入住。起初的几个月房租交付得还好，可后来交得越来越吃力。我朋友基本每月都要电话催促，不断主动为他免去滞纳金，后来还降低了房租，就是为了房客可以交清房租。哎，这房主当的！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09201014/land-e1623283849168.jpg)
-朋友眼看着一个多月的房租要泡汤，必须要采取行动了。她发出了30天通知，而不是照理应该给的3天通知：要么付房租，要么搬走。房客还爽快，答应搬走，可是他没法拿走他的行李，尤其是他的工具，还需要我朋友的帮忙！
+we had a beautiful statement from the former president of the United States today Donald Trump
+我们今天收到了美国前总统唐纳德-川普的精彩声明
 
-这真的让我的朋友摸不着头脑儿。原来，他引进了一个二房客，是他的女朋友和她的成人儿子！
+and it makes a lot of sense
+而且这很有道理
 
-我朋友马上火冒三丈，怒斥着房客，责怪他的不守信用，房客也不停地道歉，但是何用之有？！问题还得解决。
+“The correspondence between Dr. Fauci and China speaks too loudly
+福奇博士和中共国之间的互相“打掩护”太明显了
 
-我朋友马上开车奔到出租屋，二房客可能从没想到房主的出现。惊慌中想躲开，但还是开了门。两人一起商量了办法：二房客不同意搬出，提出继续支付房租。因为是中共病毒期间，联邦、州、县郡都明确规定，不允许因房客欠租而驱逐租客。朋友也只好把死马当成活马医了。
+for anyone to ignore.
+任何人都无法忽视
 
-情势从未向着理想的方向发展，因为我朋友通过旁人的口，事先知道了她的底细。二房客果然名不虚传：撒谎成性，善于曲解，非常会讲动听的漂亮话，表现得非常善解人意，通情达理。她在半年前已经辞去一份收入较高的工作，但她骗朋友说她有工作，其实那时她只从政府领取救济金；还说她知道保住头顶上的房顶是最重要的。相信在美国做过这类工作的人，都听到过一些美国房客爱讲的这句话。
+China should pay Ten Trillion dollars to America, and the world,
+中共国应该向美国和全世界支付十万亿美元，
 
-在二房客支付了几个月的房租后，她的本性昭然若揭。先是提出她的亲戚在华盛顿州的波特兰去世，她要花两周时间帮忙办理后事，当月房租不能支付；接着是她的五位家人一起在救护车里，正被送往医院的路上。总之每次朋友和她联系，都有现成的理由等着：她儿子得了中共病毒，正在家里隔离；他的父亲因中共病毒去世，她又要处理后事；后来听我的律师说，她的母亲也因中共病毒去世。据说在此之前，不知道何时，她的父母已经去世了几次。
+for the death and destruction they caused”
+因为他们造成的死亡和破坏”
 
-我朋友恨不得当面扇那撒谎的女人几个耳光，撕烂她那张虚荣的脸，一脚把她踢出那栋房子！你想想，即使她的家人再健康，恐怕也难逃她这么恶毒的诅咒呀！这是为了她自己生活的舒适，不但坑害房东，还连带着她自己的家人！一点羞耻感都没有，说得冠冕堂皇。这正如郭先生所讲过的，“ 简直在侮辱我的智商！” 同为人，没有太大的区别，不分种族，只是每人把心思放在了不同的地方而已。
+Greg Kelly
+格雷格·凯利
 
-但在美国这样的法治国家，不能乱来。我朋友开始了解相关法律，加入同行组织，与同行们共同学习交流。可以想象，一个华人，自身的英语不可能应付得了这么复杂的状况，所以她一边自己寻找律师，一边寻求同行的推荐。
+Wow! how about that, how about that for leadership
+哇！ 那个怎么样，那个领导力怎么样？
 
-经过半年的时间与二房客不停的斗智斗勇，加上对法律法规方面的尽心学习，尤其是2021年一月底加州又把禁止驱逐的规定延期到六月底，驱逐的实施看似遥遥无期。这些使她倍感压力，身心受到摧残。她终于因不能承受而卧床不起。她是一个坚定的挺郭战友，已经四年有余。即使在她卧床期间，也一直收听收看郭先生和路德先生的直播，从不间断。
+how about there for a clear-cut leadership
+那个明确的领导力怎样？
 
-她反思着自己，回想着郭先生所遇到的那些往事。仅仅在对付伪类这件事上，郭先生就花费了多少时间和精力，要筛选律师，庭前问询，庭上对证。而她的这点事情，在郭先生那里简直是沧海一粟，不足挂齿！
+all right, now the opposite of clear cut leadership
+好吧，现在是明确领导力的反面
 
-朋友的心安定下来，她放下经济方面的顾虑，无论是房租方面的损失，还是律师方面的费用。她决定要尽快找到合适的律师，开始启动法律程序，才能把损失降到最低。
+Dr. Fauci it’s got all kinds of problems now
+福奇博士现在有各种各样的问题
 
-经过半个多月的努力，我朋友自学的法律法规有了头绪，经过和几个律师事务所的交流，最后选定了一家。从此的一切，就悉听律师的安排了。朋友不再为二房客编造出来的那些谎言而花费任何精力，因为她坚信：即使二房客的谎言再完美，也敌不过法律的威力，终有一天她会被赶出那栋房子，豪不留情！
+lot of people suspect that he may not be around for too much longer.
+许多人都怀疑他可能不会逗留太久
 
-我朋友的律师非常负责任，按部就班，但从不滞后。最先发出了六十天的通知，等待二房客回复是否要交房租。届时没反应。
+Dr Fauci has been let’s face it
+福奇博士已经，让我们面对现实吧
 
-律师向法院发出15天的诉求，要求驱逐。同时雇佣专业公司把通知交给了二房客。届时还没反映。
+incorrect inconsistent a bureaucrat playing both sides
+不正确， 不一致， 一个官僚玩两面派
 
-律师继续向法院提出最后的驱逐诉求，法院同意：二房客及其他所有房客在五天之内必须搬出，否则，强行驱逐。并把这个决定告知涉案各方。
+and I think he let down President Trump
+而且我认为他辜负了川普总统
 
-当律师通过电话告诉我朋友这个消息的时候，她兴奋得泪眼朦胧；当她把这个消息告诉我的时候，我尖声地大叫起来，为她开心，更为在这个法治的国度赢得了胜利而痛快淋漓！
+he let down the country
+他辜负了国家
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09201614/image-31.jpeg)图源网络
+probably let him down in his own way
+可能以他自己的方式让他自己也失望
 
-朋友和律师在最后那天的驱逐日，一大早，比约定时间早20分钟在房前的马路上停车等候。已经是5月中旬，可小风嗖嗖，凉凉的。开锁匠也跟着到达。友好的邻居正好出门送他们的孙子去幼儿园，朋友向他们简单介绍了情况，免得他们担心或误解。
+Joe Biden all kinds of correspondence were going through right now
+乔拜登现在正在处理各种反应
 
-两辆警车、三位威猛高大的警察按时出现在现场。打过招呼之后，我朋友询问是否可以录像，警察回答 ：“ 不可以，必须在外面等着，以免有任何危险。等驱逐结束之后才可以去录像。”
+that indicates number one how wrong he is been
+这表明第一，福齐是那么的错误
 
-那位已经有二十几年驱逐经验的律师说，她从来没遇到过有这么多警察同时出现，但对于房主来说，这确实是一件大好事！谁说不是呢！
+number two that he knew a lot more
+第二福齐知道的
 
-精彩的场面终于出现：警察按门铃、大声地敲门都没引起房客的反映；当锁匠把门打开之后，马上听到了警察与房客的对话，而且房客当时就被警察勒令出门。我朋友从没见过那个房客，但她能猜出那是二房客的儿子，寒冷的早晨，那个只穿着一身单薄睡衣的成人男子被当众赶出了房门。
+about the situation with that laboratory than he’s let on publicly
+关于那个实验室的情况比他公开的要更多
 
-警察对整栋房屋进行仔细检查，打不开的锁就由锁匠打开，或者在征求房主意见之后直接把门撞开。在警察敲开最后一个门的时候，又出现了一个陌生的面孔，自然豪不例外地被赶出房门。这次更把我的朋友吓到了：难道是三房客，二房客把房子又出租了！
+he allowed that theory to be minimize his conspiracy theory
+他让那个理论最小化了他的阴谋论
 
-律师前去了解情况，果然不出所料：他每月支付不小的一笔租金给二房客，而且在租之前，二房客发誓说这房子是她拥有的。三房客当时被气得骂她 lair !  三房客当时向我朋友确认：她没有交你租金？！ 然后只听得三房客不停地气愤地骂着。
+he knows better and he knew better
+他现在清楚的知道和他原来也清楚的知道
 
-邻居送小孩回来了，与我朋友交流着平时的一些情况。当邻居得知房租及租房之事的时候，她惊得哑口无言。她说：“ 哇，平时那么能说会道的女人，怎么能干出这样的事情，难怪我刚才打她电话，她没有应答呢！她的每次撒谎，都是为了使她巧妙地避开她所面临的窘境。” 看来这个撒谎的女人无论走到哪里，都会留下她的丑事，暴露她丑陋的人性！
+and what is the mainstream are they going to do
+而且主流媒体将要做什么呢
 
-警察完成了驱逐的任务，房主签了字。被冻得瑟瑟发抖的二房客之子，向警察询问可否进屋拿些衣服。警察公事公办地说：“ 你要征求房主的意见。” 男人转身问我善良的朋友，然后得到10-15分钟的时间。一个警察马上接着说：“10-15分钟之后必须出来，否则有被捕的可能。” 男人毫无尊严地答应着，急速地跑进房子。
+are they going to call him out on this stuff
+他们会在这件事上指责他吗？
 
-穿着睡衣、从别处急忙赶回来的二房客，有幸错过了前来执行驱逐的警察，却给当地警察局打电话，抱怨时间太短，不能搬走他们的东西，警察按章办事。她看没办法，就和我朋友商量，能否给她24小时的时间，打包、找人、雇车连夜搬家，朋友答应了，并多给了他们几个小时的时间。
+remember they’ve been in love with him for a long time
+记住，他们已经宠爱他很久了
 
-最后的结局：好的一面是不该住在这里的人被赶走了；不好的一面是留下一片狼藉，无论卧室还是洗手间，厨房还是车库，满满的杂物。大到床，小到洗手间用品……朋友看到这些，释然之余还是觉得愧疚于自己的房子，因为自己那么漂亮的房子被糟蹋成了这幅样子！
+all those beautiful profiles
+所有那些漂亮的个人资料
 
-CCP病毒不但给全世界的人民带来了前所未有的灾难，千千万万的人死亡，亿万人感染；给世界经济带来了重创，很多中小企业关闭，失业人员增加，刚刚复苏的美国经济有被打回原型，甚至倒退。；社会动荡，“黑命贵”运动到处破坏，抢劫、枪击案大增。
+I saw one reporter who went jogging with Dr Fauci
+我看到一位记者和福奇博士一起慢跑
 
-我朋友的这个案例在这个特殊时期，是一个非常典型的代表。在美国有无数这样的事情发生，律师们都难以再接新的案例。
+somehow he came out of hero in all this with them
+不知何故，他和他们一起从这里以英雄姿态出来
 
-政府在非常时期出台一些特殊的规定，如禁止驱逐令，使得坏房客有恃无恐地住在那里。除去不交房租并受到保护之外，还做上房东的位子，出租本不属于他们的房子。这极大地损害了房东的利益，因为房东不能不交大笔的房地产税，如果交迟了，照样还要挨罚，要交罚款。同时鼓励了坏人做坏事。比如二房客30岁的儿子，一天到晚在家打游戏，抽大烟，不去工作，因为他们可以靠政府的救济或者政策过活，外加从天而降的房租。
+maybe because he signaled
+也许是因为他发出了信号
 
-有人说，加州不是也给房东一些政策性的救济吗？是的，是有规定。但是，你可知道需要满足多少前提条件？！首先是你房客的收入不能达到当地平均收入的40%；对于房东，你必须放弃你房租的20%，所以你只能申请房租的80%等等。而且设计的表格被律师们一看，定义很不准确，也没讲明向哪个政府级别的哪个部门申请。补贴的时间段不同，条件不同等等。
+he didn’t like Donald Trump
+他不喜欢唐纳德川普
 
-房东们怨声载道。一句话，就像CCP一样，做事就是糊弄、对付。他们认为，房东收租就会赚钱，不会考虑房东的费用，比如大笔的房地产税、贷款、保险、维护保养等。加州州长纽森被提名罢免，这也是其中的一个原因。签名的200多万张投票中，有170多万是合格的，足足超出了需要的票数。
+so what are they going to do right now
+那么他们现在要做什么?
 
-朋友的小案子可谓站着赢了，希望罢免纽森州长之事，也能让加州人民站着赢！
+because this guy, haha, is not looking good at all
+因为这家伙，哈哈，看起来不太好
 
-**站着赢的感觉真好！**
+what are they going to do
+他们会做什么呢?
 
-2021年6月9日于美国加州
+so far looks like you’re going to ignore
+迄今为止看起来你会忽略
 
-（文章公代表作者个人观点，与平台GNEWS平台无关）
-![This image has an empty alt attribute; its file name is 66573ACB-5779-4156-8018-754A8CE66D37.jpeg]()![This image has an empty alt attribute; its file name is 66573ACB-5779-4156-8018-754A8CE66D37.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27033533/66573ACB-5779-4156-8018-754A8CE66D37.jpeg)
+let’s go to David Muir
+让我们去看看大卫缪尔
+
+that thoughtful man they say on ABC News
+他们在美国广播公司新闻上说的那个深思熟虑的人
+
+David Muir (ABC evening news host)
+大卫 缪尔（美国广播公司晚间新闻主持人）
+
+Dr Fauci Making news late today
+福奇博士今天晚些时候发布新闻
+
+talking about the states were at the vaccination numbers are considerably lower than the national average
+谈论疫苗接种数量远低于全国平均水平的那些州
+
+his concern as we now toward for the 4th
+他的担心是我们快到国庆节了
+
+Stephanie Ramos(ABC reporter)
+斯蒂芬妮·拉莫斯（美国广播公司记者）
+
+Exactly, David. Dr. Fauci says
+是的，大卫。 福奇博士说
+
+he doesn’t want to see are those mini little outbreaks in those areas
+他不想看到这些地区出现小规模的疫情
+
+Greg Kelly
+格雷格·凯利
+
+This is on the Evening News nobody cares about
+这是没人关心的晚间新闻
+
+what he’s talking about with the mini outbreaks
+他在谈论关于小爆发
+
+He’s been saying that stuff for year-and-a-half
+他一直在说这些东西有一年半了
+
+we care about the emails, the emails right now
+我们在乎的是邮件，当下热点是邮件
+
+And the stuff that he was saying and the stuff that he was reading
+以及他所说的和他正在阅读的东西
+
+why did they ask about that and
+他们为什么问这个？而且
+
+when they do ask they do it
+当他们确实提出关于邮件的问题时，
+
+in the most polite overly cautious way
+他们会以最礼貌、过于谨慎的方式进行
+
+here is NBC News
+这是美国全国广播公司新闻
+
+Kate Snow (NBC evening news)
+凯特·斯诺（NBC晚间新闻）
+
+Dr. Fauci, some of your emails were obtained by several news organizations
+福奇博士，你的一些电子邮件已被多家新闻机构获得
+
+under the Freedom of Information Act
+根据信息自由法
+
+you exchanged emails with a Chinese director there Center for Disease Control
+你与中共国疾病控制中心的一位主任的交换电子邮件
+
+President Trump’s former Chief of Staff today suggested
+川普总统的前幕僚长今天表示说
+
+that you and others didn’t do enough to investigate the origins of the virus
+你和其他人在调查病毒起源方面做得还不够
+
+did you?
+你做了吗？
+
+Grey Kelly
+格雷格·凯利
+
+did you? did you?
+你做了吗？你做了吗？
+
+you see it has some teeth
+你看让他咬钩了
+
+and then they let him off the hook
+然后他们让他摆脱困境
+
+did you？did you do that?
+你做了吗？你做那个了吗？
+
+did you do your job?
+你做工作了吗？
+
+and you can’t answer any other way
+你不能以任何其他方式回答
+
+better question is what did you know
+更好的问题是你知道什么
+
+and when did you know it
+和你是什么时候知道的
+
+what this seems to indicate that you know that
+这似乎表明你知道那个
+
+that Wuhan lab may have been involved in all this
+那个武汉实验室参与了这一切
+
+how did he respond like any classic bureaucrat would
+他回答的口吻就像任何典型的官僚一样
+
+Dr. Fauci
+福奇博士
+
+so when you talk about investigating the origins
+所以当你谈到关于调查病毒的起源
+
+I don’t believe that that’s the role of the National Institutes of Health
+我认为那不是美国国立卫生研究院的角色
+
+Grey Kelly
+格雷格·凯利
+
+Ha, right? not my job
+哈，对吧？不是我的工作
+
+just like any good bureaucrat
+就像任何优秀的官僚那样
+
+the most bureaucrats don’t wind up on the cover of InStyle magazine
+大多数官僚不会登上 InStyle 杂志的封面
+
+that’s what did it for me
+那个对我来说是什么呢
+
+this little moment might wait a second
+这一刻，也许，等一下
+
+the whole country is suffering
+整个国家都在受煎熬
+
+and he’s having a grand time in sunglasses by his pool
+而他在他的游泳池边戴着太阳镜享受生活
+
+made no sense
+这是不公平的
+
+so when I heard about his book deal
+所以当我听说他的新书时
+
+I wasn’t totally shocked
+我并不完全震惊
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 : [https://twitter.com/newsmax/status/1400610871471116292?s=24](https://twitter.com/newsmax/status/1400610871471116292?s=24)
+英听校：康州盘古农场 – Layka
+翻译：康州盘古农场 – Layka
+翻译终校：康州盘古农场 – 格格巫
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
 0

@@ -1,39 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳大利亚将要推行新冠疫苗接种证书吗？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1311378/)
+## 【小象搬运】BBC报道说中国学生在罕见的抗议中将校长“扣为人质”
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1311441/)
 
-撰稿： 喜国公民
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09210525/EADB3780-61ED-45CC-9E2A-ED72198D92A0-edited.jpeg)
-图片来自网络
+**整理撰稿：蓝精灵**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09221730/32-2.jpg)
+BBC在报道南京师范大学的学生抗议事件中，称学生将校长扣为人质。小象从照片和流传的一些资料来看，学生只是将校长围堵，不让校长离开，并未有任何的肢体侵犯行为。倒是很多视频流出来看到大批的警察将学生包围在学校里，并开始拘捕个别学生。目前网络封锁严密，尚没有最新的新闻报道最新事态。括弧中内容是小象的一些说明，以下是BBC新闻报道的摘要内容：
 
-据[水星报报道](https://www.themercury.com.au/news/victoria/australians-to-get-covid19-vaccination-certificate/news-story/50b5ae432c05780ae09276fcc168021d?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_AM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=6)，接种过Covid-19疫苗的澳州人将收到一份证书。该证书将通过医疗保险应用程序提供。澳州服务局的官僚们在上周五的参议院听证会上确认，该证书将在几天内推出。
+中国警方周二表示，抗议学生将一名校长作为人质，抗议是为了将江苏省南京市的一所大学与一所职业学院合并的计划。
 
-这一举措的目的是以帮助激励更多澳州人接种疫苗，为政府和企业对未接种的人实施严厉的规定铺平道路。尽管国家内阁尚未同意，企业可能会寻求使用该证书来拒绝向那些没有接种疫苗的人提供服务。然而，这个新冠疫苗接种证书真的能在澳洲推行吗？
+据报道，一些学生受伤，因为据称警察对他们使用警棍和胡椒喷雾。在群众运动受到控制（不是控制，是禁止）的中国，这种抗议活动很少见。丹阳市警方周二在一份声明中表示，江苏省南京师范大学中北学院的本科生从周日开始“聚集”，将这位 55 岁的校长在校园内拘留了 30 多个小时。声明补充说，学生们“大声辱骂并阻止执法”，（不知道警察过来执行的是什么法）并且即使在当局宣布暂停合并计划后也拒绝让他离开（并没有文件或者校方正式声明确认当局宣布了暂停合并计划）。
 
-一些州的领导人批评了这一计划。新南威尔士州州长Gladys Berejiklian宣称，澳大利亚的自由流动不应取决于疫苗。一些联邦自由党议员对政府推动澳大利亚人需要疫苗证书才能自由旅行表示担忧。
+法新社称，社交媒体用户发布了警察对学生使用警棍和胡椒喷雾的照片，一名女大学生头部流血。警方声明称，“为维护校园秩序……公安机关依法采取必要措施，将被困人员转移，(伤者)立即送往医院救治。（再一次不知道依的是什么法）
 
-总理斯科特-莫里森希望接种疫苗的澳州人能够绕过各州的旅行限制。表示，如何使用该证书由各州和地区决定。
+据报道，截至周二下午，微博平台微博上屏蔽了“南京师范大学中北学院学生被暴力执法致伤”的标签（每当有这一类的事件，在中共国内看不到任何社交媒体消息，偶然会在海外的社交媒体看到，就如同当时武汉疫情严重的时刻，没有消息可以传递出来。）但推特上的一段视频显示，数以千计的大学生被外面的警察包围，警察追赶他们，将一些人拖出人群。江苏省所有六所高校此后都表示，他们将暂停最初于 3 月宣布的任何合并计划。江苏省教育厅曾表示，这一决定是为了符合教育部将独立学院转变为职业学校的指示。（没有看到这类的声明）据《环球时报》报道，这一决定最近几天在该省其他四所独立学院因类似的担忧而引发抗议，并发生了“一些身体对抗事件”。
 
-如果新冠疫苗接种证书是由各州和地区来决定，那么，那些不愿接种疫苗的澳洲人可以选择去那些没有实行新冠疫苗接种证书的州和地区去居住。这要好过中共国的强制性打疫苗，使人没有任何选择。
+独立学院由高校与社会组织或个人共同出资设立。没有获得进入大学所需考试成绩的学生可以向这些机构申请，他们仍然可以在那里获得大学学位，但学费更高。这些学位被视为比职业学位更有声望，毕业生相信他们在该国竞争激烈的就业市场上为他们提供了更好的机会。
 
-但是，这会照成不必要的人口流动。给居民带来工作，学习和生活上的不便。
+预计中国今年将有创纪录的900万大学毕业生。
 
-该报道还提供了一个新冠疫苗接种证书的样本。除了接种人的姓名，生日等信息外，还包括证书从什么时候开始生效。由于目前市场上的新冠疫苗都是针对数月前发现的新冠毒株来生产的。如果遇到新冠病毒的变异毒株，还会被感染。
+**小象：**中共的教育系统从来都没有正常过，自从教育产业化之后，私立学校和公立学校随机转换，教育不是为了培养，教育是为了剥削。教育是中共垄断的行业，用教育绑架所有的家庭，用教育愚化所有的国民，以保有盗国贼家族千秋万代的权力和财富，这才是中共唯一的目的。
 
-持有新冠疫苗接种证书的澳洲人会认为自己比没有接种新冠疫苗的人能够更安全地不受任何限制地旅游，从而会放松对周边环境的警惕，反而会更容易被变异的新冠病毒感染，并且会更快，更大范围地传染给其他人群。
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-解决目前大流行的关键是要彻底查清新冠病毒的来源。如果发现病毒是由实验室制造出来的生化武器，政府就要告诉澳洲人，我们正处在一场生化战争当中。只有铲除了释放病毒的根源，才会阻断新病毒的出现。
+**参考链接：**
 
-获得2008年诺贝尔医学奖的法国科学家Luc Montagnier教授在接受采访时提到，”大规模接种疫苗是一个非常严重的医学错误，因为变异病毒来自疫苗本身。新冠疫苗接种证书绝不是一个解决问题的好办法。逼迫越来越多的澳洲人打疫苗，只能把澳大利亚推向万劫不复的深渊！
+[https://eminetra.com/beijing-rejects-pentagons-request-for-high-level-military-negotiations/559561/](https://eminetra.com/beijing-rejects-pentagons-request-for-high-level-military-negotiations/559561/)
 
-(文章内容仅代表作者观点)
+***校对发布**：文顾*
 
-*编辑：cindy*
-
-参考消息：
-
-[https://www.themercury.com.au/news/victoria/australians-to-get-covid19-vaccination-certificate/news-story/50b5ae432c05780ae09276fcc168021d?utm\_source=Mercury&utm\_medium=email&utm\_campaign=Editorial&utm\_content=MERC\_LATESTNEWS\_AM-CUR\_01&net\_sub\_id=287163446&type=curated&position=1&overallPos=6](https://www.themercury.com.au/news/victoria/australians-to-get-covid19-vaccination-certificate/news-story/50b5ae432c05780ae09276fcc168021d?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_AM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=6)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
-0
++1

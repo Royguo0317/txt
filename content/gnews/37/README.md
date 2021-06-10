@@ -1,31 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 牛津大学的一项研究报告称武汉市场上没有出售蝙蝠或穿山甲
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1311262/)
+## 【鹰眼墙国】闪测系统“昙花一现”，中共核酸检测仍靠“人海战术”
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1311332/)
 
-翻译：烟波浩淼|校对：雨山溪桥客|审核：断播
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09202047/GettyImages-1210084514-656x437-1.jpg)一名男子在中共国湖北省武汉市的武汉白沙洲市场散步。（赫克托•瑞塔玛（HECTOR RETAMAL）/法新社通过盖蒂图片社拍摄）
-牛津大学的一项新研究发现在武汉的海鲜市场上没有蝙蝠或穿山甲。事实上，研究报告指出，在冠状病毒爆发之初，武汉周边没有发现蝙蝠或穿山甲。
-
-通过他们的调查，科学家们认为已经有效地推翻了自然起源的论点。中共国和安东尼·福奇（Anthony Fauci）博士长期以来一直声称，中共病毒从蝙蝠跳到穿山甲，然后在海鲜市场上出售，导致在人类中传播。然而，最近的研究表明，这种病毒很可能起源于实验室。
+香草山写作组  鹰(文言)
 
 
 
-> Regardless of whether SARS-CoV-2 came from nature or a lab, its clear that lab-made super viruses pose great danger. We need to know how much of this research is happening & what dangers we face. I'm asking the relevant Senate committees 2 schedule hearings on this research ASAP.
-> — Senator Rand Paul (@RandPaul) [June 4, 2021](https://twitter.com/RandPaul/status/1400896243379941380?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
 
 
-*参议员兰德保罗 @兰德保罗 · 6 月 4 日*
-*不管SARS-CoV-2来自自然界还是实验室，很明显，实验室制造的超级病毒具有很大的危险性。我们需要知道这项研究有多少正在进行以及我们面临哪些危险。我要求相关的参议院委员会尽快就这项研究安排 2 次听证会。*
-肯塔基州参议员兰德·保罗（Rand Paul）列举了证据，阐述了数千只在海鲜市场接受测试的动物，其中没有一只感染了中共冠状病毒。
 
-“当你拿着中共冠状病毒试图感染蝙蝠（大多数冠状病毒都来自蝙蝠）时，你发现了什么？他解释说：“你会发现中共冠状病毒在蝙蝠的感染率其实并不高，蝙蝠不太容易被感染它。似乎中共冠状病毒最适合人类。”
+环球网6月9日转载中国民航报消息，近期广州CCP病毒疫情爆发，导致各区县“全员核酸检测”现象频发。在超1800万核酸检测需求下，广州却依旧沿用效率低下的咽拭子检测方式。
 
-牛津大学的研究还报告说，中共国人很少吃蝙蝠，最近的蝙蝠自然栖息地距离武汉1500英里。
+广州疫情持续发酵，核酸检测人数和范围日益增加。根据《广州市新型冠状病毒肺炎疫情防控指挥部关于进一步强化疫情防控工作的通告（第17号）》要求，白云机场6月8日为出港旅客提供24小时核酸检测服务，并承诺采样后4-8小时出结果。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09204258/Screen-Shot-2021-06-09-at-8.40.48-PM.png)
+从2020年1月末中共病毒全球大流行，到雅培研制出15分钟快速新冠检测仪器，用时约2个多月，且检测准确率超95%。中共一方面诋毁其核酸检测准确性，另一方面也在自行研制“国产”快速检测方法。终于，在7月初由卡尤迪生物研制的“闪测系统”成功上市并应用于北京、杭州等地医院以及新疆疫情防控。据称“闪测系统”30分钟出结果，且灵敏度95%以上。
 
-原文作者：《一美国新闻网》编辑室
-发布时间：2021年6月8日
-原文链接：[https://www.oann.com/oxford-study-reports-no-bats-or-pangolins-were-sold-in-the-wuhan-wet-market/](https://www.oann.com/oxford-study-reports-no-bats-or-pangolins-were-sold-in-the-wuhan-wet-market/)
+虽然闪测系统时间优势与雅培产品相比不具备优势，但其至少可以解决耗时较长这一缺陷。然而，无论是1月初石家庄疫情大爆发，还是近期的广州疫情复燃，在全员核酸检测的巨大需求下，中共依旧沿用的是咽拭子检测方式。无论是简易检测点还是集中采样点，均未见省时省力的“闪测系统”，反而仍需要靠数量短缺的医务人员轮班式的疲劳工作。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09204239/Screen-Shot-2021-06-09-at-8.40.56-PM.png)
+1800万核酸检测靠人力的这一实情揭露出中共所产“闪测系统”实为虚假宣传。再者，各地频现的多次核酸检测“假”阴性（如深圳一病例11次检测为阴性）也侧面反映出核酸检测试剂的准确率低下。以50%检测概率估算，至少需要连续5次的核检才能达到95%的准确率。参考北大李玲在《疫情引发对中国未来发展模式的重新思考》论坛中透露2020年GDP中至少67万亿来自抗疫收益，可见中共对30分钟闪测的“弃之不用”，除了性能存疑外，更重要的是相比前者，咽拭子检测虽然低效但其近百的资费价格可为中共提供巨额的收入（如广州核酸检测标准约75元/人，1800万人对应13.5亿的可观收入）。
+
+新闻来源：
+
+高效便民！广州白云机场增设现场核酸检测点 最快4小时出结果https://china.huanqiu.com/article/43SwWAQ1trN
+
+深圳一病例为何11次检测为阴性？权威解释来了https://china.huanqiu.com/article/43SzTE2S652
+
+核酸“闪测”系统亮相服贸会 出结果只需30分钟https://news.sina.com.cn/c/2020-09-06/doc-iivhuipp2776772.shtml
+
+科学快速应对，卡尤迪“闪测”系统登场 三十分钟！新冠核酸检测即可完成https://www.sohu.com/a/417189603\_124379
+
+美国确诊病例暴涨背后：检测能力突飞猛进，最快5分钟出结果https://news.sina.com.cn/o/2020-03-29/doc-iimxyqwa3937810.shtml
+
+三十分钟！新冠核酸检测即可完成http://health.people.com.cn/n1/2020/0908/c14739-31853508.html
+
+多地核酸检测降价！那广州呢？可以用医保吗？https://new.qq.com/omn/20210131/20210131A03I6A00.html
+
+新华全媒+丨超1800万——直击全球城市最大规模核酸检测进行http://www.xinhuanet.com/politics/2021-06/06/c\_1127535695.htm
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0
