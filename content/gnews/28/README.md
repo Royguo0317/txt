@@ -1,33 +1,100 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】BBC报道说中国学生在罕见的抗议中将校长“扣为人质”
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1311441/)
+## 《2021年美国创新与竞争法案》涉及中共国部分（1）
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1311442/)
 
-**整理撰稿：蓝精灵**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09221730/32-2.jpg)
-BBC在报道南京师范大学的学生抗议事件中，称学生将校长扣为人质。小象从照片和流传的一些资料来看，学生只是将校长围堵，不让校长离开，并未有任何的肢体侵犯行为。倒是很多视频流出来看到大批的警察将学生包围在学校里，并开始拘捕个别学生。目前网络封锁严密，尚没有最新的新闻报道最新事态。括弧中内容是小象的一些说明，以下是BBC新闻报道的摘要内容：
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-中国警方周二表示，抗议学生将一名校长作为人质，抗议是为了将江苏省南京市的一所大学与一所职业学院合并的计划。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09221803/S-2.jpg)newsable.asianetnews.com
+2021年美国创新与竞争法案
 
-据报道，一些学生受伤，因为据称警察对他们使用警棍和胡椒喷雾。在群众运动受到控制（不是控制，是禁止）的中国，这种抗议活动很少见。丹阳市警方周二在一份声明中表示，江苏省南京师范大学中北学院的本科生从周日开始“聚集”，将这位 55 岁的校长在校园内拘留了 30 多个小时。声明补充说，学生们“大声辱骂并阻止执法”，（不知道警察过来执行的是什么法）并且即使在当局宣布暂停合并计划后也拒绝让他离开（并没有文件或者校方正式声明确认当局宣布了暂停合并计划）。
+目录
+A部分——芯片和开放结构模式（ORAN）5G紧急拨款
+B部分——无止境前沿法
+C部分——2021年战略竞争法
+D分部——国土安全和政府事务委员会条例
+E分部——迎接2021年中共挑战法
+F部分——其他事项
+第一篇——教育和医学研究的竞争力和安全性
+第二篇——司法条例委员会
+第三篇——其他
 
-法新社称，社交媒体用户发布了警察对学生使用警棍和胡椒喷雾的照片，一名女大学生头部流血。警方声明称，“为维护校园秩序……公安机关依法采取必要措施，将被困人员转移，(伤者)立即送往医院救治。（再一次不知道依的是什么法）
+A部分——芯片和开放结构模式（ORAN）5G紧急拨款
+……
 
-据报道，截至周二下午，微博平台微博上屏蔽了“南京师范大学中北学院学生被暴力执法致伤”的标签（每当有这一类的事件，在中共国内看不到任何社交媒体消息，偶然会在海外的社交媒体看到，就如同当时武汉疫情严重的时刻，没有消息可以传递出来。）但推特上的一段视频显示，数以千计的大学生被外面的警察包围，警察追赶他们，将一些人拖出人群。江苏省所有六所高校此后都表示，他们将暂停最初于 3 月宣布的任何合并计划。江苏省教育厅曾表示，这一决定是为了符合教育部将独立学院转变为职业学校的指示。（没有看到这类的声明）据《环球时报》报道，这一决定最近几天在该省其他四所独立学院因类似的担忧而引发抗议，并发生了“一些身体对抗事件”。
+《利用战略联合（USA，Utilizing Strategic Allied）电信法》摘要
 
-独立学院由高校与社会组织或个人共同出资设立。没有获得进入大学所需考试成绩的学生可以向这些机构申请，他们仍然可以在那里获得大学学位，但学费更高。这些学位被视为比职业学位更有声望，毕业生相信他们在该国竞争激烈的就业市场上为他们提供了更好的机会。
+在中共国政府的大力补贴下，华为有望成为5G领先的运营及设备提供商，对美国经济和国家安全产生了深远影响。像华为这样的与中国共产党关系密切的中共国有科技公司，给我们的国家安全和全球信息网络的完整性带来了不可接受的风险。
 
-预计中国今年将有创纪录的900万大学毕业生。
+几年来，国会一直在评估如何支撑全球电信设备供应链，以及限制华为在全球的参与范围。这些努力说明了当前的竞争条件如何有利于华为，此外，由于担心缺乏可行的、负担得起的替代品，美国说服外国合作伙伴禁止华为进入其网络的努力陷入停滞。如果不对基于西方的替代产品的开发进行重大投资，华为将成为全球最便宜、最快、最普遍的5G提供商。
 
-**小象：**中共的教育系统从来都没有正常过，自从教育产业化之后，私立学校和公立学校随机转换，教育不是为了培养，教育是为了剥削。教育是中共垄断的行业，用教育绑架所有的家庭，用教育愚化所有的国民，以保有盗国贼家族千秋万代的权力和财富，这才是中共唯一的目的。
+追加拨款：
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+《利用战略联合（USA）电信法》于2021财年颁布，它在5G竞争中促进了美国的创新，并投资于中共国设备供应商华为（Huawei）和中兴通讯（ZTE）基于西方的替代产品。
 
-**参考链接：**
+《利用战略联合电信法》发挥了美国的优势，利用美国的软件优势，加快开发开放结构模式（称为OpenRAN），允许替代供应商进入特定网络组件的市场，而不必与华为进行端到端的竞争。开放结构模式不仅得到了美国运营商的支持，它还得到了各种规模的美国设备供应商以及一系列非传统供应商和技术公司的支持，为了进一步支持《利用战略联盟电信法》的实施，参议员华纳（Warner）和卢比奥（Rubio）正在提出一项修正案，将提供15亿美元的紧急补充拨款，以实施《利用战略联合电信法》，其中包括：
 
-[https://eminetra.com/beijing-rejects-pentagons-request-for-high-level-military-negotiations/559561/](https://eminetra.com/beijing-rejects-pentagons-request-for-high-level-military-negotiations/559561/)
+为公共无线（设备）供应链创新基金提供15亿美元，以推动向开放式架构、基于软件的无线技术的发展，为美国移动宽带市场的创新性“飞跃”技术提供资金，该基金将由国家电信和信息管理局（NTIA，National Telecommunications and Information Administration）管理，由国家标准与技术研究院（NIST，National Institute of Standards and Technology）、国土安全部（DHS，Department of Homeland Security）以及情报预研预测活动（局）（IARPA，Intelligence Advanced Research Projects Activity）等机构提供投入。
 
-***校对发布**：文顾*
+美国国际技术安全与创新基金的5亿美元芯片也将通过该基金对国际信息和通信技术安全和半导体供应链活动的支持，支持《利用战略联合电信法》授权的活动，包括支持开发和采用安全可靠的电信技术、半导体和其他新兴技术。
+（未完待续）
 
-+1
+文字整理：
+
+The United States Innovation and Competition Act of 2021
+
+Division-by-division summary
+
+Table of Contents
+
+Division A –CHIPS and ORAN 5G Emergency Appropriations ……………..2
+
+Division B – Endless Frontier Act ……………………………………………………………4
+
+Division C – Strategic Competition Act of 2021. ………………………………….8
+
+Division D – Homeland Security and Governmental Affairs Committee Provisions…………………………………………………………………………………………………..9
+
+Division E – Meeting the China Challenge Act of 2021…………………………..10
+
+Division F – Other Matters .. ……………………………………………………………………11
+
+Title I – Competitiveness and Security for Education and Medical Research……………………………………………………………………………………………………12
+
+Title II – Committee on the Judiciary Provisions……………………………………13
+
+Title III – Miscellaneous…………………………………………………………………………..14
+
+……
+
+The Utilizing Strategic Allied (USA) Telecommunications Act Summary
+
+Heavily subsidized by the Chinese government, Huawei is poised to become the leading commercial provider of 5G, with far-reaching effects for U.S. economic and national security.
+
+With close ties to the Communist Party of China, Chinese state-directed technology companies
+
+like Huawei present unacceptable risks to our national security and to the integrity of global
+
+information networks.
+
+For several years, Congress has been evaluating how to shore up the global telecommunications
+
+supply chain and limit the scope of Huawei’s involvement globally. These efforts have illustrated how current terms of competition favor Huawei. Further, U.S. efforts to convince foreign partners to ban Huawei from their networks have stalled amid concerns about a lack of viable, affordable alternatives. Without significant investment in the development of Western-based alternatives, Huawei stands poised to become the cheapest, fastest, most ubiquitous global provider of 5G.
+
+Supplemental Appropriations:
+
+The Utilizing Strategic Allied (USA) Telecommunications Act was enacted in the FY2021 NDAA. It fosters U.S. innovation in the race for 5G and invests in Western-based alternatives to Chinese equipment providers Huawei and ZTE.
+
+The USA Telecom Act plays to American strengths by capitalizing on U.S. software advantages, accelerating development of an open-architecture model (known as OpenRAN) that would allow for alternative vendors to enter the market for specific network components, rather than having to compete with Huawei end-to-end. OpenRAN not only has the support of US carriers, it has the support of US vendors of all sizes, along with a range of non-traditional vendors and technology firms. In order to further support the implementation, Senators Warner and Rubio are proposing an amendment which would provide $1.5 billion in emergency supplemental appropriations to implement the USA Telecom Act, including:
+
+$1.5 billion for the Public Wireless Supply Chain Innovation Fund to spur movement towards open-architecture, software-based wireless technologies, funding innovative, ‘leap-ahead’ technologies in the U.S. mobile broadband market. The fund would be managed by the National Telecommunications and Information Administration (NTIA), with input from the NIST, DHS, and IARPA, among others.
+
+The $500 million CHIPS for America International Technology Security and Innovation Fund will also support activities authorized in the USA Telecommunications Act, through the Fund’s support of international information and communications technology security and semiconductor supply chain activities, including supporting the development and adoption of secure and trusted telecommunications technologies, semiconductors, and other emerging technologies.
+
+原文链接：
+
+[https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf](https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf)
+
+0

@@ -1,48 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2003年福奇接受电视采访时被要求下台
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1311527/)
+## 只有信仰才能解开中共教育体制打造的奴性枷锁
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1311532/)
 
-新闻来源：《国家脉动 (The National Pulse) 》| 作者： 娜塔莉·温特斯 (Natalie Winters) | 发布时间：2021年6月8日
+撰稿：8 Mile
 
-翻译/简评：大和凯多 | 校对/审核：clau | Page：Daoiii
+素材：最后的救赎
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09233905/20210610_Edu.png)图片来自网络
+看到上面的照片，相信所有人都会倒吸一口凉气。在中共国，作为教育输出终端的高校，已然满是体制奴役人民的“缩影”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ZCjzuj58YAZW9/images/bac4467b-3d94-4abd-b040-4fb4b1ee244a.jpg?asset_id=7fb97c28-c6d3-4f49-b3dc-856de790457a&amp;img_etag=%224c0a1c7cbc259320c811b3de29a31a75%22&amp;size=1024)](https://spark.adobe.com/page/ZCjzuj58YAZW9/images/bac4467b-3d94-4abd-b040-4fb4b1ee244a.jpg?asset_id=7fb97c28-c6d3-4f49-b3dc-856de790457a&amp;img_etag=%224c0a1c7cbc259320c811b3de29a31a75%22&amp;size=1024)
+从娃娃就开始抓起的“童心向党”，到学术研究、升职竞聘里的党领导一切；从多至8个学生一间屋的凄惨寒舍，到外国留学生的豪华独立套间；从衡水中学内卷压迫出的自卑与报复心理，到给予非洲留学生20万一年的补助倒贴；从奴役青少年的“一考定终身”，到文凭说变就变的红头文件……
 
-**简评：**
+教育是发展的根基。如果从娃娃开始，就按照中共的体制打断你的脊梁，抹杀你的尊严，剥夺你的权力，钳制你的自由，那么这个国家谈何进步与发展。
 
-2003年4月，一位医生在C-SPAN电视采访节目上要求福奇辞职，坚称在他担任国家过敏和传染病研究所主任期间，美国“控制传染病的能力没有提高，事实上，反而更差了。” 福奇立马说他不会辞职。
+面对中共体制里说不尽、道不完的败絮，这样的难题未来如何解决？只有重拾信仰，才能让直不起来的脊梁再次挺立。
 
-福奇是美国国家过敏和传染病研究所主任，从1984年11月2日开始任职一直到现在已经快37年了。他在18年前针对SARS给出的信息和这次新冠病毒给出的信息如出一辙。正如节目中那位医生所说，“美国控制传染病的能力没有提高，反而更差了。”18年前的这句话显得非常具有前瞻性，尤其CCP病毒正在肆虐全球，她当时就已经看出了福奇的无能和腐败。可惜的是，美国由于福奇的无能腐败和在关键位置上的不作为，付出了巨大的代价。
+当中共体制倒塌的那一刻，只有正道主义的信仰，才能让被中共肢解的家庭、社会秩序逐渐恢复和融合；才能让习惯被枷锁束缚的百姓，真正理解自由、普世价值的含义，重新审视自己，有信念和意愿把控属于自己的未来。
 
+中共的教育体制是要攻心，是要被洗脑的百姓离不开它。而正道主义的信仰是要健脑，是要告诉每个人秉持正道，你完全可以。
 
+我们不需要被灌输的空洞感恩，我们需要的是对彼此的关爱。这样的关爱自然会增进彼此的感情，释放个体的潜力。
 
-**原文翻译：**
+（本文纯属个人观点）
 
-## **18年前，一位医生在公共事务卫星有线电视连线的时候打电话要求福奇下台，因为他当时发出了错误信息（与新冠病毒大爆发期间如出一辙）**
+参考资料：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ZCjzuj58YAZW9/images/bbcefd55-8ad3-4b50-a859-db510e251812.png?asset_id=6e17fad6-1639-4661-9349-c52f1b979fc1&amp;img_etag=%22c68e1eaeb48fbf12a1c11cd939364172%22&amp;size=1024)](https://spark.adobe.com/page/ZCjzuj58YAZW9/images/bbcefd55-8ad3-4b50-a859-db510e251812.png?asset_id=6e17fad6-1639-4661-9349-c52f1b979fc1&amp;img_etag=%22c68e1eaeb48fbf12a1c11cd939364172%22&amp;size=1024)
+[两女生配一个男留学生，河北师大“多元课堂”翻车了](https://3g.163.com/dy/article_cambrian/GBVDPIMQ05452XDZ.html/?unfoldAll=1&amp;referFrom=)
 
-**大约二十年前，一位医生打电话给公共事务卫星有线电视网（C-SPAN）并要求安东尼·福奇博士辞职，坚称在他担任国家过敏和传染病研究所主任期间，美国“控制传染病的能力没有提高，事实上，反而更差了。”**
+[网传黑人留学生一年补助十万，某高校辟谣：假的，实际是二十万！](http://ruiduxinwen.com/product/50)
 
-来电者声称是来自北卡罗来纳州达勒姆的医生，她在2003年4月14日的开放电话节目（Open Phones）中发表了前瞻性言论，该节目重点关注在香港传染病流行的背景下“非典病毒的来源和抗击该疾病的努力。”
-
-这位来电者首先概述了福奇没有能力向美国人传达公共卫生信息：“你在美国国立卫生研究院工作了很长时间，在我看来，在你任职期间，我们控制传染病的能力没有提高，实际上反而更差了。甚至连不能使用抗生素治疗病毒感染的这些基本健康提示也没有向公众充分传达。例如，因为人们会要求抗生素治疗普通感冒或任何其他病毒感染，这肯定会产生更多耐药菌株。我并不是说这与这次的非典流行病有关。”
-
-她最后总结说：“但是你不觉得现在你该下台，并让其他更能传递有效信息的人上台吗？”
-
-福奇在笑之前回答道：“说实话，我不会下台。”
-
-🔗[原文链接](https://thenationalpulse.com/breaking/18-years-ago-cspan-caller-told-fauci-to-resign/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ZCjzuj58YAZW9/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/ZCjzuj58YAZW9/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
-
-0
+*编辑：8 Mile*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
++2

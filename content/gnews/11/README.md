@@ -1,99 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彼得·达萨克(Peter Daszak )描述“中国的同事”正在开发“杀手’’级冠状病毒
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1311582/)
+## 《路德时评》解读美防长下令加强应对中共挑战，美发布贸易审查报告，及拜登将出席G7和北约峰会
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1311606/)
 
-**字幕內容：**
+直播视频：
 
-**Peter Daszak（EcoHealth Alliance President)
-彼得·达萨克(生态健康联盟主席）**
 
-This is example, first of all
-这是个例子，首先
 
-We’re only looking at viral families that include those that have gotten to people from ani-mals
-我们只关注包括那些从动物身上感染
-到人的病毒家族
+《路德时评》2021年6月10日晚间节目主要内容：
 
-so we have narrowed it down straight away
-所以我们直接缩小了范围
+一、美防长下令加强应对中共国挑战
 
-Then when you got a sequence of the virus
-然后当你得到病毒序列时
+美国之音6月10日报道[\[1\]](https://www.voachinese.com/a/pentagon-effort-aims-to-better-address-china-challenge-20210609/5922917.html)：美国国防部长奥斯汀周三指示五角大楼，将中共国及其军事建设议题列为美国国防政策的首要重点，以加强应对中共国构成的挑战。美国军方已把中共国视为“步调挑战”(pacing threat)，也就是中共国军力的发展步调成为美国的军力发展步调的衡量标准，中共国军事现代化的先进程度以及能力范围是美国需要克服的一种标尺。这些行动倡议是基于五角大楼中共国工作组的建议。这个工作组是在今年2月成立的，任务是审议国防部与中共国相关的政策并列出最重要的优先事项。据有关官员说，工作组审议了数千页文件，与现任和前任国防官员进行了面谈，并咨询了其他政府机构和国会。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10000748/55859725_101.jpg)[美国防部长](https://static.dw.com/image/55859725_101.jpg)
+路德社评论：
 
-and it looks like a relative of a known nasty pathogen,
-它看起来像是一种已知令人讨厌的病原体的亲戚
+1、拜登政府今年2月份成立的五角大楼中共国工作组的23名成员来自美国各个兵种，该小组研究了多份报告，走访了各兵种多位军官，以及收集所有信息后作才制定这份报告，该报告将直接影响拜登政府决策，美国各个部门都已经被调动起来全面应对中共国威胁。
 
-just like we did with SARS
-就像我们对非典所做的那样
+2、美国防部报告完全不提俄罗斯，可见中共国已成为美国最大且最棘手要解决的问题，拜登总统将继承川普总统的对共政策，那台湾问题必定就是重中之重，所以美国早就开始调重兵驻扎在台湾附近。
 
-We found other coronaviruses in bats,
-我们在蝙蝠中发现了其他冠状病毒
+3、美国此前战略重心在于反恐，现在必须重新调整战略战术来应对中共国超限战，美国此次要以“无限”应对“超限”。
 
-a whole host of them,
-很大量的
+4、中共官媒也意识到美国即将用“幽灵舰队”来应对中共国挑战，美军“幽灵舰队”项目由隶属于美国防部长办公室的战略能力办公室主导。美空军在发展和运用无人机方面如火如荼，美海军则在发展无人水面作战舰艇方面加大投入，按照“幽灵舰队”的发展构想，该型无人艇在实现自主航行基础上还将搭载各类传感器，用于海上态势感知，以解决来袭导弹等威胁源的发现与定位问题。一旦发现威胁，无人艇将探测到的威胁数据传输给航母编队等有人作战舰艇，以便快速使用防空导弹进行应对。[\[2\]](http://www.xinhuanet.com/mil/2021-06/09/c_1211193246.htm)
 
-some of them looked very similar to SARS.
-其中一些看起来与SARS非常相似
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10000738/1211193246_16232034396411n.jpg)[图片地址](http://www.xinhuanet.com/mil/2021-06/09/1211193246_16232034396411n.jpg)
 
-So we sequenced the spike protein:
-所以我们对刺突蛋白进行了测序：
+5、媒体现在爆出的美国新型军事武器也只是冰山一角，美国之所以有意向媒体透露其军事实力就是在警告中共，美国从武器库中挑选出无人舰艇就是为应对中共国，其实美国早在川普政府或更久之前就在为应对中共国威胁做各种准备，这就是美国军事政策的延续性。
 
-the protein that attaches to cells.
-附着在细胞上的蛋白质
+6、美军武器库中有无数超一流的武器，此次为应对中共国挑战，他们特意从武器库中挑选出幽灵战舰来应对中共国，因为无人潜艇非常适合海上作战，无人舰艇大量运用了AI人工智能技术，完全具备将中共国封锁在第一岛链的实力，这样美国就能将战争拉到电子战层面与中共国对抗，因为中共国只要参与海上对抗，就必须使用卫星通讯系统，美军就能利用电子战打败中共。
 
-Then we… Well I didn’t do this work,
-然后我们… 好吧，我没有做这个工作
+7、中共商船使用的是民用海图，航线离大陆架非常近，海图最重要的就是要标出礁石、暗漩和洋流信息，中共国海军实力有限至今没有掌握大洋深处的海图信息，所以中共潜艇或舰艇只要驶出第一岛链就很发生事故，美国早已经在应对中共国威胁方面做了非常充分的准备。
 
-but my colleagues in China did the work.
-但我在中共国的同事做了这项工作
+二、拜登政府发布供应链贸易审查报告
 
-You create pseudo particles,
-先创造了假的病毒颗粒
+新浪新闻6月9日报道[\[3\]](https://news.sina.com.cn/c/2021-06-09/doc-ikqcfnaz9989262.shtml)：拜登在上任满月之际，曾下令让联邦机构对半导体、稀土矿物质、电动汽车大容量电池、药品这4种关键产品的供应链，进行为期100天的审查。当地时间6月8日，拜登政府发布了一份逾250页的审查报告，报告认为中共国在这四个领域采取的措施“有很多不符合全球公认的公平贸易惯例”。而美国为解决这些问题将采取一系列行动，其中包括将成立一支“供应链贸易行动小组”。有美国高级官员直言，“这支行动小组的重点是，配合我们的一些对共政策发展”。
 
-you insert the spike proteins from those viruses,
-再插入那些病毒的刺突蛋白
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10000726/27a5-krhvrxt0906212.png)[图片地址](https://n.sinaimg.cn/sinakd202169s/620/w1150h270/20210609/27a5-krhvrxt0906212.png)
 
-see if they bind to human cells.
-看看它们是否与人体细胞结合
+路德社评论：
 
-At each step of this you move closer and closer to this virus
-每走一步，你就离这种能真正成为
+1、这份审查报告就是为指导拜登政府制定贸易应对策略，拜登政府将决定对哪些商品增加关税，将哪些战略物资需要拉回到美国生产，这其实就是与中共国进行经济脱钩。川普总统在位时就发现美国供应量被中共国绑架，中共病毒疫情发生后，中共不但用供应链绑架美国，还利用医疗防护物资威胁全世界，所以美国必须要进行点对点的进行回击，摆脱中共国的威胁。
 
-could really become pathogenic in people.
-人类致病性的病毒越来越近
+2、从美国所采取的策略来看，美国内部经济确实面对非常大的压力，中共病毒让美国意识到必须要消灭中共体制，这进一步加速推进美国采取行动应对中共国挑战。除此之外，美国还将联合盟友共同签订贸易协议，停止从中共国采购商品来振兴本国经济。
 
-So you narrow down the field
-所以你缩小了领域
+三、拜登将出席G7和北约领导人峰会
 
-you reduce the cost and you end up with a small number of viruses
-你降低了成本而且最终得到了少量病毒
+自由亚洲新闻网6月9日报道[\[4\]](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/cm-06092021151550.html)：美国总统拜登于6月9日前往英国出席七国集团(G7)首脑会议，之后到比利时出席北约领导人峰会，这是他上任以来的首次国际访问行程。受邀出席七国集团峰会的澳大利亚总理莫里森（Scott Morrison）在出发前一场演说中，强烈支持美国政府对病毒起源的情报调查，并呼吁建立一个拥有监督权、独立的世界卫生组织。白宫星期一（6月7日）表示，美国不会放弃追查中共病毒的起源，而拜登在访问欧洲时也会在峰会上提出讨论。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10000713/%E6%8B%9C%E7%99%BB%E5%B3%B0%E4%BC%9A.jpg)[图片地址](https://i.ytimg.com/vi/lCvnI401FeI/hqdefault.jpg)
+路德社评论：
 
-That really do look like killers
-看起来真的很像杀手
+1、美国国务卿布林肯此前已经在G7峰会和北约做好各方面铺垫，现在就由拜登总统出面敲定各项谈判协议，中共病毒溯源将成为这两个会议的核心内容。即使中共国通过蓝金黄阻止美国调查病毒真相，拜登只要说服北约任何一个国家宣布中共病毒真相，那包括美国在内的所有北约成员国都必须对中共国采取行动。
 
-and you look at the people and you say
-然后你看看人群
+2、拜登此前要求美国各部门90天内发布病毒调查报告，这90天就是给中共的最后期限，如果中共仍然拒绝配合行动，那所有G7和北约成员国都将与美国战队，共同对抗中共国，拜登此次前往美国就是要与盟国商讨九十天后如何对中共国采取行动。
 
-And the people that live in that region where the animal lives
-这些生活在暴露病毒的动物所在地区的人们
+3、美日印澳都将参加此次G7首脑峰会，各成员国将在此次会议上签署协议，病毒溯源肯定是此次峰会商谈的重点内容，这些国家还要共同商讨并提前做好应对中共国耍流氓手段的准备，这就是拜登所说的多边主义。
 
-that exposed the virus do we see antibodies specific
-身上是否产生了特定的抗体？
+4、中共国如果是一个正常国家，海内外媒体一旦报道这些消息后，中共领导就需要开始反思他的所作所为，那就还有回旋的余地，但中共国是一个集权专制国家，西方国家采取的行动已经关系到习神的面子问题，习神此前亲口说病毒事情由他亲自指挥亲自部署，所以习神绝不可能有任何退让。美国已经给中共国无数次机会，中共仍然选择死磕到底，习神正在将14亿中国老百姓带入无底深渊，所以美国必须要消灭中共集权专制体制，中共在此次灭共大势中也不可能拥有任何控制局势的机会。
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
 
-原视频链接: [https://www.foxnews.com/media/pompeo-covid-origins-wuhan-lab-theory](https://www.foxnews.com/media/pompeo-covid-origins-wuhan-lab-theory)
-英听校：康州盘古农场 – Layka
-翻译：康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+参考文章：
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[1][https://www.voachinese.com/a/pentagon-effort-aims-to-better-address-china-challenge-20210609/5922917.html](https://www.voachinese.com/a/pentagon-effort-aims-to-better-address-china-challenge-20210609/5922917.html)
+[2][http://www.xinhuanet.com/mil/2021-06/09/c\_1211193246.htm](http://www.xinhuanet.com/mil/2021-06/09/c_1211193246.htm)
+[3][https://news.sina.com.cn/c/2021-06-09/doc-ikqcfnaz9989262.shtml](https://news.sina.com.cn/c/2021-06-09/doc-ikqcfnaz9989262.shtml)
+[4][https://www.rfa.org/mandarin/yataibaodao/zhengzhi/cm-06092021151550.html](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/cm-06092021151550.html)
 
-0
+文章撰写：【重生】  编辑：【香柏树】
+
+本文仅代表作者个人观点
+
++1

@@ -1,105 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【报告文学】站着赢的感觉真好！
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1311178/)
+## 《2021年美国创新与竞争法案》涉及中共国部分（2）
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1311458/)
 
-#### 【作者】Candy 【编辑】滴水穿石
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-这是一篇报告文学，希望本文对还处在同等状况的房东们有所启发。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09223911/t-5.jpg)icryptodesk.com
+C部分——2021年战略竞争法
 
-我俩成为挚友已经几十年，虽然二人的性格都很刚正不阿，如炮筒子脾气，但不知什么原因，竟然在不觉间保持了如此长久的友谊。从高中开始，到分别读了大学，到各自有了自己的小家庭，到她有了孙子孙女，从拿薪水的工作到独立经营的生意，从挺郭爆料直到如今，我们彼此都知道得一清二楚。生活虽然偶有波澜，但回首往事，还算比较顺利。
+《战略竞争法》是两党共同努力的结果，目的是使美国能够有效地应对中共国对我们国家社会和经济安全的挑战，该法案在2021年4月21日几乎一致地（21票对1票）获得了参议院外交关系委员会（SFRC）的通过，该法案提供了一个统一的战略对策。
 
-这一次在她生意上的挑战，可谓从未经历过。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09195235/rent-e1623283237857.jpg)
-故事发生在2020年年底的美国加州。背景是自那年一月份开始，CCP病毒开始从中共国迅速蔓延到欧洲、美国及全球。美国的川普政府在一月底封航封关，各州也相继出台了一系列的地方政策，以应对突然降临的全球瘟疫大流行。
+通过以下措施增加美国对印度洋-太平洋地区的战略关注点，优先处理联盟、伙伴关系和美国全球领导地位：
+推进以加强美国联盟和伙伴关系、支持解决问题的区域合作为核心的印太战略。
+扩大与印太盟国和伙伴在技术、防务和基础设施方面的合作，增加对盟国和伙伴的安全援助，面对日益增长的中共军事能力加强合作。
+提升美国在国际组织和其他多边机构中的领导地位，包括对抗中共国和中国共产党在这些组织中的恶意影响。
 
-我朋友有一栋出租的牧场风格的两层别墅。由于房屋状况不错，布局也很好，对有小孩或老人的普通大家庭而言非常实用。但强烈要求签约的房客只身一人，虽然收入不错，但是其子女都和他的前妻生活，没有信用分数，这都是潜在的不稳定因素。
+通过以下方式对抗中共的恶意政治影响和掠夺性经济行为，并激发美国的外交和经济统领能力：
+通过要求美国外国投资委员会，审查某些大学接受的外国赠品和合同，打击中共国和中共的影响力活动。
+针对中共国在西半球掠夺性的主权贷款，授权美国主管向美洲开发银行（Inter-American Development Bank）投票赞成第10次全面增资，解决中共国的知识产权盗窃和补贴问题，优先向致力于打击外国腐败行为的国家提供技术援助。
+通过将开发金融公司的最高负债额提高到1000亿美元，并投资于安全供应链、基础设施建设、数字连接和网络安全伙伴，增强美国的经济统领能力。
 
-她没有改变自己遵守了多年的规矩，拒绝了申请人的要求。但申请人的个性渐渐在穷追不舍的后续活动中彰显开来。他列举了自己的所有优势：从16岁开始就跟随大人们学习拆房、建房，几十年来积累了很多实际经验，无论木工瓦工，水电气焊，样样能干。还担任工程监理多年，在旧金山的两个大型建筑都是他的骄傲。作为房客，他一向都是令房东满意、得到很好的推荐信的那位。不信？电话号码奉上（其实，电话号码一直没有出现，因为分隔的时间太久，都找不到了！）
+通过以下方式维护美国的价值观：
+授权广泛的人权和公民社会措施，包括对强制劳动、强制堕胎和绝育，以及新疆的其他虐待行为的制裁，以及（表明）与香港人民、西藏人民和中国公民社会站在一起的措施。
+包括增加国会和美国公众在国际协议和安排方面透明度的重要条款。
+（未完待续）
 
-房客一天几次电话的催促，对他的过去做着保证，对他的未来发着誓言。终于房客得到了通融，朋友答应可以向他的现任老板求证。我朋友对照工资单上的信息，又查验了他公司的情况，那是一家很有名的建筑公司，便很快和他的老板联系上：
+文字整理：
 
-朋友提出了自己的疑问：“他没有家庭，不需要这么大的房子，主要是入住之后可能不太稳定，我从来不租给这样的人。”
+Division C – Strategic Competition Act of 2021
 
-老板答道：” 他现在没有家庭不代表以后没有家庭，他可以建立一个家庭嘛。”
+The Strategic Competition Act is a bipartisan effort to enable the United States to effectively confront the challenges posed by the People’s Republic of China (PRC) to our national and economic security. The bill was passed out of SFRC in a nearly unanimous vote (21-1) on April 21, 2021. The bill provides a unified, strategic response that:
 
-朋友：“ 他没有信用分数，我更不租给这样的人。”
+Increases U.S. strategic focus on the Indo-Pacific and prioritizes alliances, partnerships, and U.S.
 
-老板：“他可以从现在开始慢慢积累自己的信用啊。”
+global leadership by:
 
-老板果然是老板，厉害，我朋友竟然无语了。房客按时搬进了他的新居，无数建筑方面的工具跟着入住。起初的几个月房租交付得还好，可后来交得越来越吃力。我朋友基本每月都要电话催促，不断主动为他免去滞纳金，后来还降低了房租，就是为了房客可以交清房租。哎，这房主当的！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09201014/land-e1623283849168.jpg)
-朋友眼看着一个多月的房租要泡汤，必须要采取行动了。她发出了30天通知，而不是照理应该给的3天通知：要么付房租，要么搬走。房客还爽快，答应搬走，可是他没法拿走他的行李，尤其是他的工具，还需要我朋友的帮忙！
+Advancing an Indo-Pacific strategy centered on strengthening U.S. alliances and partnerships and supporting regional cooperation that solves problems.
 
-这真的让我的朋友摸不着头脑儿。原来，他引进了一个二房客，是他的女朋友和她的成人儿子！
+Expanding cooperation with Indo-Pacific allies and partners on technology, defense, and infrastructure, increasing security assistance to allies and partners, and fostering enhanced
 
-我朋友马上火冒三丈，怒斥着房客，责怪他的不守信用，房客也不停地道歉，但是何用之有？！问题还得解决。
+cooperation in the face of China’s growing military capabilities.
 
-我朋友马上开车奔到出租屋，二房客可能从没想到房主的出现。惊慌中想躲开，但还是开了门。两人一起商量了办法：二房客不同意搬出，提出继续支付房租。因为是中共病毒期间，联邦、州、县郡都明确规定，不允许因房客欠租而驱逐租客。朋友也只好把死马当成活马医了。
+Promoting U.S. leadership within international organizations and other multilateral fora, including to
 
-情势从未向着理想的方向发展，因为我朋友通过旁人的口，事先知道了她的底细。二房客果然名不虚传：撒谎成性，善于曲解，非常会讲动听的漂亮话，表现得非常善解人意，通情达理。她在半年前已经辞去一份收入较高的工作，但她骗朋友说她有工作，其实那时她只从政府领取救济金；还说她知道保住头顶上的房顶是最重要的。相信在美国做过这类工作的人，都听到过一些美国房客爱讲的这句话。
+counter malign PRC and Chinese Communist Party (CCP) influence in those organizations.
 
-在二房客支付了几个月的房租后，她的本性昭然若揭。先是提出她的亲戚在华盛顿州的波特兰去世，她要花两周时间帮忙办理后事，当月房租不能支付；接着是她的五位家人一起在救护车里，正被送往医院的路上。总之每次朋友和她联系，都有现成的理由等着：她儿子得了中共病毒，正在家里隔离；他的父亲因中共病毒去世，她又要处理后事；后来听我的律师说，她的母亲也因中共病毒去世。据说在此之前，不知道何时，她的父母已经去世了几次。
+Confronts China’s malign political influence and predatory economic practices, and energizes U.S. diplomatic and economic statecraft by:
 
-我朋友恨不得当面扇那撒谎的女人几个耳光，撕烂她那张虚荣的脸，一脚把她踢出那栋房子！你想想，即使她的家人再健康，恐怕也难逃她这么恶毒的诅咒呀！这是为了她自己生活的舒适，不但坑害房东，还连带着她自己的家人！一点羞耻感都没有，说得冠冕堂皇。这正如郭先生所讲过的，“ 简直在侮辱我的智商！” 同为人，没有太大的区别，不分种族，只是每人把心思放在了不同的地方而已。
+Countering PRC and CCP influence campaigns by requiring the Committee on Foreign Investment in the United States to review certain foreign gifts and contracts to universities.
 
-但在美国这样的法治国家，不能乱来。我朋友开始了解相关法律，加入同行组织，与同行们共同学习交流。可以想象，一个华人，自身的英语不可能应付得了这么复杂的状况，所以她一边自己寻找律师，一边寻求同行的推荐。
+Countering China’s predatory sovereign lending in the Western Hemisphere by authorizing the U.S. Governor to the Inter-American Development Bank to vote in favor of a 10th general capital increase. Addressing China’s intellectual property theft and subsidies, and prioritizing technical assistance to countries working to counter foreign corrupt practices.
 
-经过半年的时间与二房客不停的斗智斗勇，加上对法律法规方面的尽心学习，尤其是2021年一月底加州又把禁止驱逐的规定延期到六月底，驱逐的实施看似遥遥无期。这些使她倍感压力，身心受到摧残。她终于因不能承受而卧床不起。她是一个坚定的挺郭战友，已经四年有余。即使在她卧床期间，也一直收听收看郭先生和路德先生的直播，从不间断。
+Bolstering U.S. economic statecraft by increasing the Development Finance Corporation’s maximum liability to $100 billion and investing in supply chain security, infrastructure development, and digital connectivity and cybersecurity partnerships.
 
-她反思着自己，回想着郭先生所遇到的那些往事。仅仅在对付伪类这件事上，郭先生就花费了多少时间和精力，要筛选律师，庭前问询，庭上对证。而她的这点事情，在郭先生那里简直是沧海一粟，不足挂齿！
+Upholds U.S. values by:
 
-朋友的心安定下来，她放下经济方面的顾虑，无论是房租方面的损失，还是律师方面的费用。她决定要尽快找到合适的律师，开始启动法律程序，才能把损失降到最低。
+Authorizing a broad range of human rights and civil society measures including sanctions for forced labor, forced abortion and sterilization, and other abuses in Xinjiang, and measures to stand with the people of Hong Kong, Tibet, and China’s civil society.
 
-经过半个多月的努力，我朋友自学的法律法规有了头绪，经过和几个律师事务所的交流，最后选定了一家。从此的一切，就悉听律师的安排了。朋友不再为二房客编造出来的那些谎言而花费任何精力，因为她坚信：即使二房客的谎言再完美，也敌不过法律的威力，终有一天她会被赶出那栋房子，豪不留情！
+Including critical provisions to increase transparency for Congress and the American public related to international agreements and arrangements.
 
-我朋友的律师非常负责任，按部就班，但从不滞后。最先发出了六十天的通知，等待二房客回复是否要交房租。届时没反应。
+原文链接：
 
-律师向法院发出15天的诉求，要求驱逐。同时雇佣专业公司把通知交给了二房客。届时还没反映。
+[https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf](https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf)
 
-律师继续向法院提出最后的驱逐诉求，法院同意：二房客及其他所有房客在五天之内必须搬出，否则，强行驱逐。并把这个决定告知涉案各方。
-
-当律师通过电话告诉我朋友这个消息的时候，她兴奋得泪眼朦胧；当她把这个消息告诉我的时候，我尖声地大叫起来，为她开心，更为在这个法治的国度赢得了胜利而痛快淋漓！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09201614/image-31.jpeg)图源网络
-
-朋友和律师在最后那天的驱逐日，一大早，比约定时间早20分钟在房前的马路上停车等候。已经是5月中旬，可小风嗖嗖，凉凉的。开锁匠也跟着到达。友好的邻居正好出门送他们的孙子去幼儿园，朋友向他们简单介绍了情况，免得他们担心或误解。
-
-两辆警车、三位威猛高大的警察按时出现在现场。打过招呼之后，我朋友询问是否可以录像，警察回答 ：“ 不可以，必须在外面等着，以免有任何危险。等驱逐结束之后才可以去录像。”
-
-那位已经有二十几年驱逐经验的律师说，她从来没遇到过有这么多警察同时出现，但对于房主来说，这确实是一件大好事！谁说不是呢！
-
-精彩的场面终于出现：警察按门铃、大声地敲门都没引起房客的反映；当锁匠把门打开之后，马上听到了警察与房客的对话，而且房客当时就被警察勒令出门。我朋友从没见过那个房客，但她能猜出那是二房客的儿子，寒冷的早晨，那个只穿着一身单薄睡衣的成人男子被当众赶出了房门。
-
-警察对整栋房屋进行仔细检查，打不开的锁就由锁匠打开，或者在征求房主意见之后直接把门撞开。在警察敲开最后一个门的时候，又出现了一个陌生的面孔，自然豪不例外地被赶出房门。这次更把我的朋友吓到了：难道是三房客，二房客把房子又出租了！
-
-律师前去了解情况，果然不出所料：他每月支付不小的一笔租金给二房客，而且在租之前，二房客发誓说这房子是她拥有的。三房客当时被气得骂她 lair !  三房客当时向我朋友确认：她没有交你租金？！ 然后只听得三房客不停地气愤地骂着。
-
-邻居送小孩回来了，与我朋友交流着平时的一些情况。当邻居得知房租及租房之事的时候，她惊得哑口无言。她说：“ 哇，平时那么能说会道的女人，怎么能干出这样的事情，难怪我刚才打她电话，她没有应答呢！她的每次撒谎，都是为了使她巧妙地避开她所面临的窘境。” 看来这个撒谎的女人无论走到哪里，都会留下她的丑事，暴露她丑陋的人性！
-
-警察完成了驱逐的任务，房主签了字。被冻得瑟瑟发抖的二房客之子，向警察询问可否进屋拿些衣服。警察公事公办地说：“ 你要征求房主的意见。” 男人转身问我善良的朋友，然后得到10-15分钟的时间。一个警察马上接着说：“10-15分钟之后必须出来，否则有被捕的可能。” 男人毫无尊严地答应着，急速地跑进房子。
-
-穿着睡衣、从别处急忙赶回来的二房客，有幸错过了前来执行驱逐的警察，却给当地警察局打电话，抱怨时间太短，不能搬走他们的东西，警察按章办事。她看没办法，就和我朋友商量，能否给她24小时的时间，打包、找人、雇车连夜搬家，朋友答应了，并多给了他们几个小时的时间。
-
-最后的结局：好的一面是不该住在这里的人被赶走了；不好的一面是留下一片狼藉，无论卧室还是洗手间，厨房还是车库，满满的杂物。大到床，小到洗手间用品……朋友看到这些，释然之余还是觉得愧疚于自己的房子，因为自己那么漂亮的房子被糟蹋成了这幅样子！
-
-CCP病毒不但给全世界的人民带来了前所未有的灾难，千千万万的人死亡，亿万人感染；给世界经济带来了重创，很多中小企业关闭，失业人员增加，刚刚复苏的美国经济有被打回原型，甚至倒退。；社会动荡，“黑命贵”运动到处破坏，抢劫、枪击案大增。
-
-我朋友的这个案例在这个特殊时期，是一个非常典型的代表。在美国有无数这样的事情发生，律师们都难以再接新的案例。
-
-政府在非常时期出台一些特殊的规定，如禁止驱逐令，使得坏房客有恃无恐地住在那里。除去不交房租并受到保护之外，还做上房东的位子，出租本不属于他们的房子。这极大地损害了房东的利益，因为房东不能不交大笔的房地产税，如果交迟了，照样还要挨罚，要交罚款。同时鼓励了坏人做坏事。比如二房客30岁的儿子，一天到晚在家打游戏，抽大烟，不去工作，因为他们可以靠政府的救济或者政策过活，外加从天而降的房租。
-
-有人说，加州不是也给房东一些政策性的救济吗？是的，是有规定。但是，你可知道需要满足多少前提条件？！首先是你房客的收入不能达到当地平均收入的40%；对于房东，你必须放弃你房租的20%，所以你只能申请房租的80%等等。而且设计的表格被律师们一看，定义很不准确，也没讲明向哪个政府级别的哪个部门申请。补贴的时间段不同，条件不同等等。
-
-房东们怨声载道。一句话，就像CCP一样，做事就是糊弄、对付。他们认为，房东收租就会赚钱，不会考虑房东的费用，比如大笔的房地产税、贷款、保险、维护保养等。加州州长纽森被提名罢免，这也是其中的一个原因。签名的200多万张投票中，有170多万是合格的，足足超出了需要的票数。
-
-朋友的小案子可谓站着赢了，希望罢免纽森州长之事，也能让加州人民站着赢！
-
-**站着赢的感觉真好！**
-
-2021年6月9日于美国加州
-
-（文章公代表作者个人观点，与平台GNEWS平台无关）
-![This image has an empty alt attribute; its file name is 66573ACB-5779-4156-8018-754A8CE66D37.jpeg]()![This image has an empty alt attribute; its file name is 66573ACB-5779-4156-8018-754A8CE66D37.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27033533/66573ACB-5779-4156-8018-754A8CE66D37.jpeg)
 0

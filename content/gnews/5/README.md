@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】你的善恶标准是什么？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1311692/)
+## 【有声读物】闪测系统“昙花一现”，中共核酸检测仍靠“人海战术”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1311703/)
 
-配音：香草山录音组 信念7
+配音：香草山录音组 蒙古鸿雁
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,17 +14,20 @@
 
 
 
-影响人类社会运作的一个关键因素是​强制性规范众人行为的法律。而一个社会的法律某种意义上又是该社会大多数人所信奉的善恶标准的一种文字化和制度化的体现。由于法律是死的，执行的人才是活的。因而，在真正规范人行为的效果上，基于人心中真正相信并愿意去长久践行的善恶标准而来的法律自觉和道德自觉，远比死的法律条文更重要。人们怎么定义自己的善恶标准，实际上取决于他们如何理解自己存在的意义和个人生命的最终归宿。而这个超脱物质世界主观感受性的问题又只能决定于人们对神的认知和信仰。
+环球网6月9日转载中国民航报消息，近期广州CCP病毒疫情爆发，导致各区县“全员核酸检测”现象频发。在超1800万核酸检测需求下，广州却依旧沿用效率低下的咽拭子检测方式。
+
+广州疫情持续发酵，核酸检测人数和范围日益增加。根据《广州市新型冠状病毒肺炎疫情防控指挥部关于进一步强化疫情防控工作的通告（第17号）》要求，白云机场6月8日为出港旅客提供24小时核酸检测服务，并承诺采样后4-8小时出结果。
 
 
 
-**文字版原文：[【信仰之声】你的善恶标准是什么？](https://gnews.org/zh-hans/1310475/)**
+**文字版原文：【[鹰眼墙国】闪测系统“昙花一现”，中共核酸检测仍靠“人海战术”](https://gnews.org/zh-hans/1311332/、)**
 
-作者：纽约香草山福音部 山城小哥
+作者：纽约香草山写作组  鹰(文言)
 
 
 
-音频处理/发稿：雪梨
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
@@ -40,4 +43,4 @@
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-+1
+0

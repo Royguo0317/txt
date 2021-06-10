@@ -1,54 +1,314 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大时政生活杂谈 （第十六期）2021-06-07
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1311513/)
+## 他辜负国家，自己赚了钱，福奇博士是一个比以往任何时候都更大官僚
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1311439/)
 
-作者: 蒙特利尔皇家山战友团 平民正道
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09232110/gjkgkkj.jpg)
-- **一周新闻简报**
+**字幕內容：**
 
+**Greg Kelly (Newsmax host)
+格雷格·凯利 （Newsmax 主持人）**
 
-1:   今天魁省单日新增194例，比昨天增加了15人，这是连续2天达到不足200的新病例。目前累计的病例达到：371,960例，其中康复了358,221人。死亡人数为:11,152人
+The birthplace of the coronavirus
+冠状病毒的发源地
 
-2：昨天一天魁省接种疫苗人数：66,590人，总接种量达到了6,153,771剂，总接种量已到了66%，还有6,518,159剂等待接种。
+probably this facility the laboratory in Wuhan China
+可能是这个在中共国武汉的实验室
 
-3: 今天7号周一，魁省从今天开始所有的红色疫情警报解除了！蒙特利尔和Laval市也从红色降低为橙色。恢复堂食，中学生也要返回学校正常上课。
+a laboratory with all kinds of military overtones
+一个有着各种军事色彩的实验室
 
-4: 加拿大环境部向蒙特利尔区发出了酷热的警告，今明两天最高气温会超过30度，体感温度达40度，要持续到周三才会消退，大家要做好防暑降温的工作。尽量不要出门。
+if I said that a year ago
+如果我在一年前这样说
 
-- **新中国联邦一周年庆典感悟**
+I’d be branded a conspiracy theories
+我会被贴上阴谋论的烙印
 
+I might be kicked off of social media
+我可能会被踢出社交媒体
 
-回想刚加入新中国联邦像个梦一样看不到方向。通过观看6.4庆典，让我们感觉到梦想就像变成真的。过去参加爆料革命，个人的经历不是特别成熟。看到伟大的战友过去的一年对我们每个人都是巨大的鼓舞。看到闫博士，郭先生和世界上的政治家，感觉到我们的国家-新中国联邦正在形成。
+but now even the experts are knowledging substantial indications
+但现在即使是专家也知道大量迹象表明
 
-- **新冠病毒和疫苗杂谈**
+that it came from this place
+它来自这个地方
 
+not even Dr. Fauci can dismiss that at this point
+即使是福奇博士也不能否认这一点
 
-墨博士的太太1.29爆料羟氯喹可以治疗新冠，加上之后闫博士的大力推荐，美国很多医生听了以后用这个药救了很多人。
+we had a beautiful statement from the former president of the United States today Donald Trump
+我们今天收到了美国前总统唐纳德-川普的精彩声明
 
-戴口罩对免疫系统不会有影响。但是戴着口罩不要做大剂量的运动。口罩的缝隙来不及排除出去从口中呼出的一氧化碳，在医学上叫做一氧化碳中毒。跑步、骑车等不建议戴口罩，去到人群密集的地方需要戴口罩。
+and it makes a lot of sense
+而且这很有道理
 
-预防血栓的形成，用闫丽梦博士的方法吃羟氯喹。一开始要连续吃，吃15天，每天200毫克。同时吃25到50毫克的锌和钙。
+“The correspondence between Dr. Fauci and China speaks too loudly
+福奇博士和中共国之间的互相“打掩护”太明显了
 
-怎么让家庭医生给我们开处方药？可以试着跟医生说犯了风湿性关节炎很疼，在国内的时候吃这个药很有用。有的医生会开，有的不会。这是翌姗大姐朋友的真实例子。
+for anyone to ignore.
+任何人都无法忽视
 
-Fleming医生说找到真相并不难，难的是他们愿不愿意去寻找。福奇等医学领域的大人物都被蓝金黄，为了权力和利益相互交织在一起。把丑陋的一面展示给我们看，没有底线。伪科学、伪政治，科学都失去了真实性。
+China should pay Ten Trillion dollars to America, and the world,
+中共国应该向美国和全世界支付十万亿美元，
 
-Jackie大姐单位的医生护士对病毒一概不知。他们都说自己打了疫苗。也有护士不同意家人打疫苗的。翌姗姐说一个魁瓜护士对父亲说不要打疫苗，用羟氯喹就能治疗新冠。
+for the death and destruction they caused”
+因为他们造成的死亡和破坏”
 
-疫情期间很多常规病人无法正常看病。如果身体不适，一定要及时联系家庭医生，他们会帮你做检查。比如跟医生说我这两天突然胸口疼喘不上气，胸口像有头大象压着，医生立刻会跟你做个检查。建议过了40岁的人，即使非常健康，每隔2年做一个检查。如果问到疼痛指数1-10的时候，要说8.5以上，要不然没人理。通常医院做一个正规检查要排队一年到半年。只要没有生命危险，现在所有的病都往后退了。我们可以打电话到医院说把我到waiting list 上，任何时候我都可以来。有的人本来安排做手术的，由于大流行期间医院人手紧张，病人手术时间被一推再推，3次之后病人没了。
+Greg Kelly
+格雷格·凯利
 
-中共想在全球称霸，早在加入WTO就预谋好了。他们制定各种计划蓝金黄世界各国的政界、科学界和文艺界。很多人不相信病毒是共产党放出来的。我们要传播病毒真相和爆料革命，把中国人和CCP分开。
+Wow! how about that, how about that for leadership
+哇！ 那个怎么样，那个领导力怎么样？
 
-在中国流行不说假话办不成大事的恶俗。五六十年代出生的人从小学习《毛主席语录》，早请示晚汇报。国内的人车上挂着毛主席像章辟邪，把它当神供着。亲人之间没有信任感。家族里头相互攀比，你比我好了，我一定要比你更好。我要挖你的墙角，道德绑架你。挑拨离间、鸡犬不宁。失去信仰没有家族观念。
+how about there for a clear-cut leadership
+那个明确的领导力怎样？
 
-川普总统和夫人感染病毒，朱利安尼市长感染病毒，川普总统的发言人也感染病毒。福奇却不感染。这些疑问将来都会得到解答。
+all right, now the opposite of clear cut leadership
+好吧，现在是明确领导力的反面
 
-[节目链接](https://www.gtv.org/video/id=60bea51a8ce6da73c415a9eb)
+Dr. Fauci it’s got all kinds of problems now
+福奇博士现在有各种各样的问题
 
-* * *
+lot of people suspect that he may not be around for too much longer.
+许多人都怀疑他可能不会逗留太久
 
-*编辑、发稿 文锦*
+Dr Fauci has been let’s face it
+福奇博士已经，让我们面对现实吧
+
+incorrect inconsistent a bureaucrat playing both sides
+不正确， 不一致， 一个官僚玩两面派
+
+and I think he let down President Trump
+而且我认为他辜负了川普总统
+
+he let down the country
+他辜负了国家
+
+probably let him down in his own way
+可能以他自己的方式让他自己也失望
+
+Joe Biden all kinds of correspondence were going through right now
+乔拜登现在正在处理各种反应
+
+that indicates number one how wrong he is been
+这表明第一，福齐是那么的错误
+
+number two that he knew a lot more
+第二福齐知道的
+
+about the situation with that laboratory than he’s let on publicly
+关于那个实验室的情况比他公开的要更多
+
+he allowed that theory to be minimize his conspiracy theory
+他让那个理论最小化了他的阴谋论
+
+he knows better and he knew better
+他现在清楚的知道和他原来也清楚的知道
+
+and what is the mainstream are they going to do
+而且主流媒体将要做什么呢
+
+are they going to call him out on this stuff
+他们会在这件事上指责他吗？
+
+remember they’ve been in love with him for a long time
+记住，他们已经宠爱他很久了
+
+all those beautiful profiles
+所有那些漂亮的个人资料
+
+I saw one reporter who went jogging with Dr Fauci
+我看到一位记者和福奇博士一起慢跑
+
+somehow he came out of hero in all this with them
+不知何故，他和他们一起从这里以英雄姿态出来
+
+maybe because he signaled
+也许是因为他发出了信号
+
+he didn’t like Donald Trump
+他不喜欢唐纳德川普
+
+so what are they going to do right now
+那么他们现在要做什么?
+
+because this guy, haha, is not looking good at all
+因为这家伙，哈哈，看起来不太好
+
+what are they going to do
+他们会做什么呢?
+
+so far looks like you’re going to ignore
+迄今为止看起来你会忽略
+
+let’s go to David Muir
+让我们去看看大卫缪尔
+
+that thoughtful man they say on ABC News
+他们在美国广播公司新闻上说的那个深思熟虑的人
+
+David Muir (ABC evening news host)
+大卫 缪尔（美国广播公司晚间新闻主持人）
+
+Dr Fauci Making news late today
+福奇博士今天晚些时候发布新闻
+
+talking about the states were at the vaccination numbers are considerably lower than the national average
+谈论疫苗接种数量远低于全国平均水平的那些州
+
+his concern as we now toward for the 4th
+他的担心是我们快到国庆节了
+
+Stephanie Ramos(ABC reporter)
+斯蒂芬妮·拉莫斯（美国广播公司记者）
+
+Exactly, David. Dr. Fauci says
+是的，大卫。 福奇博士说
+
+he doesn’t want to see are those mini little outbreaks in those areas
+他不想看到这些地区出现小规模的疫情
+
+Greg Kelly
+格雷格·凯利
+
+This is on the Evening News nobody cares about
+这是没人关心的晚间新闻
+
+what he’s talking about with the mini outbreaks
+他在谈论关于小爆发
+
+He’s been saying that stuff for year-and-a-half
+他一直在说这些东西有一年半了
+
+we care about the emails, the emails right now
+我们在乎的是邮件，当下热点是邮件
+
+And the stuff that he was saying and the stuff that he was reading
+以及他所说的和他正在阅读的东西
+
+why did they ask about that and
+他们为什么问这个？而且
+
+when they do ask they do it
+当他们确实提出关于邮件的问题时，
+
+in the most polite overly cautious way
+他们会以最礼貌、过于谨慎的方式进行
+
+here is NBC News
+这是美国全国广播公司新闻
+
+Kate Snow (NBC evening news)
+凯特·斯诺（NBC晚间新闻）
+
+Dr. Fauci, some of your emails were obtained by several news organizations
+福奇博士，你的一些电子邮件已被多家新闻机构获得
+
+under the Freedom of Information Act
+根据信息自由法
+
+you exchanged emails with a Chinese director there Center for Disease Control
+你与中共国疾病控制中心的一位主任的交换电子邮件
+
+President Trump’s former Chief of Staff today suggested
+川普总统的前幕僚长今天表示说
+
+that you and others didn’t do enough to investigate the origins of the virus
+你和其他人在调查病毒起源方面做得还不够
+
+did you?
+你做了吗？
+
+Grey Kelly
+格雷格·凯利
+
+did you? did you?
+你做了吗？你做了吗？
+
+you see it has some teeth
+你看让他咬钩了
+
+and then they let him off the hook
+然后他们让他摆脱困境
+
+did you？did you do that?
+你做了吗？你做那个了吗？
+
+did you do your job?
+你做工作了吗？
+
+and you can’t answer any other way
+你不能以任何其他方式回答
+
+better question is what did you know
+更好的问题是你知道什么
+
+and when did you know it
+和你是什么时候知道的
+
+what this seems to indicate that you know that
+这似乎表明你知道那个
+
+that Wuhan lab may have been involved in all this
+那个武汉实验室参与了这一切
+
+how did he respond like any classic bureaucrat would
+他回答的口吻就像任何典型的官僚一样
+
+Dr. Fauci
+福奇博士
+
+so when you talk about investigating the origins
+所以当你谈到关于调查病毒的起源
+
+I don’t believe that that’s the role of the National Institutes of Health
+我认为那不是美国国立卫生研究院的角色
+
+Grey Kelly
+格雷格·凯利
+
+Ha, right? not my job
+哈，对吧？不是我的工作
+
+just like any good bureaucrat
+就像任何优秀的官僚那样
+
+the most bureaucrats don’t wind up on the cover of InStyle magazine
+大多数官僚不会登上 InStyle 杂志的封面
+
+that’s what did it for me
+那个对我来说是什么呢
+
+this little moment might wait a second
+这一刻，也许，等一下
+
+the whole country is suffering
+整个国家都在受煎熬
+
+and he’s having a grand time in sunglasses by his pool
+而他在他的游泳池边戴着太阳镜享受生活
+
+made no sense
+这是不公平的
+
+so when I heard about his book deal
+所以当我听说他的新书时
+
+I wasn’t totally shocked
+我并不完全震惊
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 : [https://twitter.com/newsmax/status/1400610871471116292?s=24](https://twitter.com/newsmax/status/1400610871471116292?s=24)
+英听校：康州盘古农场 – Layka
+翻译：康州盘古农场 – Layka
+翻译终校：康州盘古农场 – 格格巫
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
