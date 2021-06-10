@@ -1,52 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【病毒专题】福奇与石正丽、达扎克等人早于17年便有合作
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1311705/)
+## 美国两党联合灭共，切断中共偷盗拐骗根基
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1312169/)
 
-作者：休斯顿星光农场写作部 燕南飞
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
-《国家脉博》6月9日披露，安东尼·福奇（Anthony Fauci）早在2017年便与 “蝙蝠女 “和生态健康组织的达斯扎克一起主持会议。尽管福奇试图与武毒所和在那里进行的功能增益研究保持距离，但这一披露使他进一步蒙上了阴影。
+台湾宝岛农场
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10044815/%E6%93%B7%E5%8F%96610-8.jpg)
+**拜登政府针对中共不公平贸易行为**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06111826/21-5.jpg)
+拜登政府周二（6月8日）表示，美国将设立一支新的「突击工作组」来打击中共不公平的贸易行为。这一宣布正值拜登政府公布对半导体、电动汽车电池等关键产品供应链审查结果之际。
 
-图片来自网络
+**美参议院在产业方面加强科技制裁**
 
-据报道，福奇在2017年的一次会议上担任主讲人，与会人员都是在covid-19 的起源及随后的掩盖中的主要人员（或起到主要作用），包括生态健康联盟主席彼得·达扎克（Peter Daszak）和武汉的顶级实验室研究员石正丽。
+周二（6月8日），美国参议院通过一项全面产业政策立法，旨在与中共在科技领域展开对抗。
 
-中共疾病预防控制中心（CDC）主任高福与其他三位科学家一起负责组织这次会议。高福曾给福奇博士发邮件，感谢他公开否认武汉病毒学研究所在制造COVID-19方面的作用。
+**前国务卿****蓬佩奥再次强调病毒真相的重要**
 
-除了福奇博士发表主题演讲外，正在进行的关于COVID-19起源的辩论的核心研究人员也发表了讲话，据说他们在掩盖武汉实验室在COVID-19大流行中的作用方面发挥了重要作用。
+美国前国务卿蓬佩奥表示，中共政权犯下了「足以引起民主国家强烈回击的渎职行为」，拜登政府必须领导国际社会来抵抗中共。根据前述，拜登政府已经在贸易、科技领域加大了制裁力道，并且全面的法律化，可以认为美国两党已经取得了灭共共识。
 
-其中的一位会议发言人——武汉病毒研究所新发传染病中心主任石正丽，最近成为参议员兰德·保罗质与奇博士激烈争论的话题。
+蓬佩奥进一步警告，如果中共在病毒（COVID-19）问题上逃过了应有的惩罚，中共将会变得更肆无忌惮」，而且以后「几乎没有什么不敢跨越的界限」了。
 
-“多年来，美国的病毒学家拉尔夫·巴里奇博士（Dr. Ralph Baric）一直与武汉病毒学研究所的石正丽合作，分享他关于如何制造超级病毒的发现。这种功能增强的研究得到了美国国立卫生研究院的资助，”参议员保罗曾质疑福西博士时问道。
+**病毒溯源、真相揭露是关键**
 
-此次会议中，石演讲的主题证明与COVID-19特别相关，该主题名为”SARS冠状病毒可能起源于单一马蹄蝙蝠栖息地的SL-CoVs之间的频繁重组事件”。而福奇博士的发言题目是 “新出现和重新出现的传染病：从艾滋病到寨卡 （Zika）”。
+中共通过收买媒体、国际组织，极力混淆大众对病毒、疫情的认知，并且企图将病毒诬蔑是美国实验室所研制的生物武器。
 
-同时在会上发言的还有生态健康联盟主席彼得·达扎克（Peter Daszak）。该非营利组织因从福奇博士的国家过敏和传染病研究所（NIAID）获得数百万美国纳税人的资金，并将部分资金输送给武汉病毒研究所而受到审查，因为中共领导下的武汉病毒研究室将达扎克的组织列为合作伙伴。
+事实上，本次病毒是与中共勾结的美国重要官员佛奇（福奇）动用美国税金资助武汉病毒实验所成立、研究病毒，并放任武汉病毒实验所进行功能增强实验，将病毒武器化、恶意散播的结果。最终目的是为了摧毁各国行政、金融、公卫及医疗体系，并分化内部达到政治目的。
 
-《国家脉动》还找到了达扎克的讲话，他在讲话中形容将 “杀手”病毒的研究工作委托了给他的 “中（共）国同事”。
+中共渗透各国媒体、国际组织，经营许多专家形象，在病毒初期或是关键点上利用虚假消息、国际组织及中共推崇的专家，混淆各界对病毒的认知，并有意图、有计划的掩盖病毒预防方案、早期治疗方案，大力推广无安全性可言的疫苗作为病毒解决方案。
 
-新加坡国立大学医学院新发传染病项目主任王林发博士也在会议上发言。
+人类史上疫苗研发需要历经数十年，而美国可以在不足一年时间内研发、贩售并推广疫苗接种，是因为佛奇（福奇）推行紧急授权法案，使疫苗厂商可以省略许多必要步骤，让疫苗在不安全情形下开始贩售、接种。
 
-王林发除了与达扎克和石正丽一起被列为研究的共同作者之外，还参与了达扎克在《柳叶刀》医学杂志上发表的声明，该声明在早期就过早地推翻了COVID-19是人为制造的可能性。
+然而，国际许多研究开始提出病毒有更廉价、有效的预防方案。连中共解放军的相关文件也有提出相关预防方案。
 
-注：
+**解放军申请预防用药相关文件**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09150839/1-42.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09151343/2-16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10044649/%E6%93%B7%E5%8F%96610-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09152702/COVID19_AQ.png)
+**国际逐渐推广羟氯喹效力：**[**Study shows hydroxychloroquine and zinc treatments increased coronavirus survival rate by almost three times**](https://www.washingtonexaminer.com/news/study-hydroxychloroquine-increase-survival-rate-200-percent)
 
-- 拉尔夫-巴里奇博士（Dr. Ralph Baric），北卡罗来纳大学，流行病学系教授
+（本文仅分享相关资料供参考，无广告意图）
 
+着╱文旦
 
-新闻来源：《国家脉博》
+编著╱zhong
 
-[EXPOSED: Fauci Headlined Conference With ‘Bat Lady’ and EcoHealth’s Daszak Despite Distancing Himself from Wuhan. (thenationalpulse.com)](Fauci%20Headlined%20Conference%20With%20'Bat%20Lady'%20and%20EcoHealth's%20Daszak%20Despite%20Distancing%20Himself%20from%20Wuhan.%20%28thenationalpulse.com%29)
+发布╱little liu
 
-编辑：文順      校对：Helen      发稿：文柳
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
-
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
 0

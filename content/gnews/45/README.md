@@ -1,35 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 只有信仰才能解开中共教育体制打造的奴性枷锁
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1311532/)
+## 【有声读物】你的善恶标准是什么？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1311692/)
 
-撰稿：8 Mile
+配音：香草山录音组 信念7
 
-素材：最后的救赎
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09233905/20210610_Edu.png)图片来自网络
-看到上面的照片，相信所有人都会倒吸一口凉气。在中共国，作为教育输出终端的高校，已然满是体制奴役人民的“缩影”。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-从娃娃就开始抓起的“童心向党”，到学术研究、升职竞聘里的党领导一切；从多至8个学生一间屋的凄惨寒舍，到外国留学生的豪华独立套间；从衡水中学内卷压迫出的自卑与报复心理，到给予非洲留学生20万一年的补助倒贴；从奴役青少年的“一考定终身”，到文凭说变就变的红头文件……
 
-教育是发展的根基。如果从娃娃开始，就按照中共的体制打断你的脊梁，抹杀你的尊严，剥夺你的权力，钳制你的自由，那么这个国家谈何进步与发展。
 
-面对中共体制里说不尽、道不完的败絮，这样的难题未来如何解决？只有重拾信仰，才能让直不起来的脊梁再次挺立。
 
-当中共体制倒塌的那一刻，只有正道主义的信仰，才能让被中共肢解的家庭、社会秩序逐渐恢复和融合；才能让习惯被枷锁束缚的百姓，真正理解自由、普世价值的含义，重新审视自己，有信念和意愿把控属于自己的未来。
 
-中共的教育体制是要攻心，是要被洗脑的百姓离不开它。而正道主义的信仰是要健脑，是要告诉每个人秉持正道，你完全可以。
 
-我们不需要被灌输的空洞感恩，我们需要的是对彼此的关爱。这样的关爱自然会增进彼此的感情，释放个体的潜力。
 
-（本文纯属个人观点）
+影响人类社会运作的一个关键因素是​强制性规范众人行为的法律。而一个社会的法律某种意义上又是该社会大多数人所信奉的善恶标准的一种文字化和制度化的体现。由于法律是死的，执行的人才是活的。因而，在真正规范人行为的效果上，基于人心中真正相信并愿意去长久践行的善恶标准而来的法律自觉和道德自觉，远比死的法律条文更重要。人们怎么定义自己的善恶标准，实际上取决于他们如何理解自己存在的意义和个人生命的最终归宿。而这个超脱物质世界主观感受性的问题又只能决定于人们对神的认知和信仰。
 
-参考资料：
 
-[两女生配一个男留学生，河北师大“多元课堂”翻车了](https://3g.163.com/dy/article_cambrian/GBVDPIMQ05452XDZ.html/?unfoldAll=1&amp;referFrom=)
 
-[网传黑人留学生一年补助十万，某高校辟谣：假的，实际是二十万！](http://ruiduxinwen.com/product/50)
+**文字版原文：[【信仰之声】你的善恶标准是什么？](https://gnews.org/zh-hans/1310475/)**
 
-*编辑：8 Mile*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
-+2
+作者：纽约香草山福音部 山城小哥
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1
