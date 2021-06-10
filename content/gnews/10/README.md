@@ -1,100 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《2021年美国创新与竞争法案》涉及中共国部分（1）
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1311442/)
+## 中共国的足球梦
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1311486/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+原创：维京商人
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09225154/20191003042830_80195.jpg)
+君不见中共国的国家男子足球队在阿联酋迪拜开始了2022年世界杯亚洲区40强预选赛最后几轮的较量。中共国男足的这几个对手各个可谓兵强马壮、实力不俗，从印度洋岛国、人口已过50万的马尔代夫，到饱受战火洗礼的叙利亚，每一个对手中共国男足都没有百分百的把握战而胜之，当然，他们刚刚大胜了大名鼎鼎的太平洋岛国足球强国关岛队和东南亚第一篮球强国菲律宾。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09225202/v2-e7bdeb8e3d0bb0fd75a718cc87586ab2_720w.jpg)
+稍微有点经历的球迷都会对近年来中共国足球水平的衰落唏嘘不已，不但没有接近世界先进水平，反而从亚洲一流退化到了亚洲二流，甚至大步迈向三流。难怪有人戏言，中共国足球和足球是两个项目。郝海东先生曾经多次在路德访谈节目中从专业体育参与者和管理者的角度解读了他眼中的中共国足球，那么，笔者也试着从一个草根球迷的角度看看中共国足球和足球到底有什么区别。
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09221803/S-2.jpg)newsable.asianetnews.com
-2021年美国创新与竞争法案
+首先，足球运动的基础是业余足球。在中共国，老百姓是热爱足球的，大城小市，街头巷尾，早些年总是能够看到摆块砖头就踢的小伙伴们，更不需要什么真草或者人工草场来助兴，黄土地柏油路都没问题。那么为什么这么多喜爱足球的人就不能促成业余足球水平的推广和提高呢？这个事情还真要从中共国足球和足球运动的区别谈起。
 
-目录
-A部分——芯片和开放结构模式（ORAN）5G紧急拨款
-B部分——无止境前沿法
-C部分——2021年战略竞争法
-D分部——国土安全和政府事务委员会条例
-E分部——迎接2021年中共挑战法
-F部分——其他事项
-第一篇——教育和医学研究的竞争力和安全性
-第二篇——司法条例委员会
-第三篇——其他
+无论在西方发达国家还是发展中国家，每个国家都无一例外在社区或学校提供力所能及的场地设施给民众使用，而且所有国家的人民都以进行运动为骄傲，无论种族、肤色、年龄。反观中共国，举国上下最最火爆的就两个支柱产业，一是房地产，它催生了大量空住房甚至鬼城，又消灭了很多可以供老百姓运动锻炼的土地资源，贪婪的开发商和存在利益输送的政府官员才不会把这些群众体育设施最为必需品，弄个滑梯和双杠就已经是对韭菜们最大的福利了；另一个产业则是网红直播，这个行业不仅没有任何科技创新去推动生产力发展和社会进步，反而如同大烟枪一样给年轻人们插上了虚幻的翅膀，都希望做网红，哪有人愿意去运动场上挥汗如雨。
 
-A部分——芯片和开放结构模式（ORAN）5G紧急拨款
-……
+客观条件的制约已经限制了业余足球的开展，而各种社会压力更是让所有足球爱好者们无暇抽身。学生要面对中共国的学业压力，各种升学考试和竞赛辅导班侵蚀了身心健康成长的空间和时间。年长一点的成年人又要面临繁重的工作、家庭负担以及社会应酬，这还只是普通家庭只有一个或者两个孩子的前提下。试想，如果一个家庭真的有三个孩子，哪位家长能够在平时抽身参与足球运动？简直是异想天开！
 
-《利用战略联合（USA，Utilizing Strategic Allied）电信法》摘要
+在业余足球方面已经大大落后的中共国，在专业足球方面又如何呢？从注册球员人数上看，中共国的注册人数约为5万人，而邻国韩国是50万人，日本更是高达近百万人。注册人数的不足就导致选材率低，造成这一问题的本质是中共国没有形成一套完善的球员培养体系，这就导致足球人才不敢进入专业足球领域。具体来说，无论是早些年的专业体校还是当今的各种足校、俱乐部梯队，在运动员培养和常规教育之间，并没有畅通的渠道，这就导致选择了专业运动员培养之路的年轻人很难得到良好的素质教育，当专业路径受阻后，他们也基本没可能再回到常规教育，最好的选择也就是作为运动员特招。
 
-在中共国政府的大力补贴下，华为有望成为5G领先的运营及设备提供商，对美国经济和国家安全产生了深远影响。像华为这样的与中国共产党关系密切的中共国有科技公司，给我们的国家安全和全球信息网络的完整性带来了不可接受的风险。
+与选材率低相对应的是成材率低，原因有二。从自身素质而言，绝大部分专业运动员在中学阶段甚至小学后期就已经脱离了常规素质教育，这就无形中导致这些专业运动员的动脑能力差，没有思考，难以理解更加深入、复杂的理论。从培训体系而言，放眼中共国，数十年来也没有建立一套可持续的青少年足球训练大纲，足球风格更是随领导喜好而朝令夕改。今年可以走拉丁风格，明年就开始学习德国战车。作为小球员成长的领路人，基层专业足球教练能够得到高水平培训的机会少之又少，更何况，中共国普遍存在的吃拿卡要、拉帮结派现象，导致能够做好言传身教的专业教练就更稀少了。很多小球员从一开始学习到的就是不规范的动作要领和错误的战术讲解，训练体系的缺失更是使得优秀专业球员的成长主要依赖于自身散养和运气而非整体人才培养体系的成功。
 
-几年来，国会一直在评估如何支撑全球电信设备供应链，以及限制华为在全球的参与范围。这些努力说明了当前的竞争条件如何有利于华为，此外，由于担心缺乏可行的、负担得起的替代品，美国说服外国合作伙伴禁止华为进入其网络的努力陷入停滞。如果不对基于西方的替代产品的开发进行重大投资，华为将成为全球最便宜、最快、最普遍的5G提供商。
+经过了选材率和成材率这两道关口，加上数以十年计的摸爬滚打，当一些职业球员好不容易进入到了各级国家队的时候，等待他们的往往不是考虑如何把球踢好，而是怎么拉关系、讲政治。中共国足球管理机构的负责人，既有打乒乓球的，也有做水上运动的，但偏偏没有一位是有过一线足球运动从业和管理经验的，更不要说有任何在足球发达国家经历的。对于这些非专业的投机者，他们往往考虑的都是如何摘桃子而不是挖井栽树。没有人愿意花经历和时间去打造体系、夯实基础、厚积薄发，如何更快见效、博得升官发财的机会才是正道。
 
-追加拨款：
+正是因为如此，中共国职业联赛当年的YOYO体测、头球算两分、免除升降等政策也就不难理解了。直至今日，职业联赛给国家队让路、U23强制政策等也让人忍俊不噤，这些政策在足球发达国家简直是闻所未闻。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09230255/2-5-12.png)
+在笔者看来，中共国足球没有发展的根本原因是它一直是政治的附属品，没有真真正正遵从足球运动本身的规律。现今世界，职业体育已经是一套成熟的运营体系，无论是管理、培训、训练、比赛，还是商业运作、公共关系、品牌推广，无不是专业人做专业事。在中共国一切都要讲政治的前提下，职业联赛和青少年培养体制的漏洞犹如一面镜子，照着现实社会中的所有假恶丑。
 
-《利用战略联合（USA）电信法》于2021财年颁布，它在5G竞争中促进了美国的创新，并投资于中共国设备供应商华为（Huawei）和中兴通讯（ZTE）基于西方的替代产品。
+足球是踢出来的，需要靠实力说话。不知道中共国的世界杯之梦还要等多久？是不是只有在习总书记的强国梦中才能实现？
 
-《利用战略联合电信法》发挥了美国的优势，利用美国的软件优势，加快开发开放结构模式（称为OpenRAN），允许替代供应商进入特定网络组件的市场，而不必与华为进行端到端的竞争。开放结构模式不仅得到了美国运营商的支持，它还得到了各种规模的美国设备供应商以及一系列非传统供应商和技术公司的支持，为了进一步支持《利用战略联盟电信法》的实施，参议员华纳（Warner）和卢比奥（Rubio）正在提出一项修正案，将提供15亿美元的紧急补充拨款，以实施《利用战略联合电信法》，其中包括：
+* * *
 
-为公共无线（设备）供应链创新基金提供15亿美元，以推动向开放式架构、基于软件的无线技术的发展，为美国移动宽带市场的创新性“飞跃”技术提供资金，该基金将由国家电信和信息管理局（NTIA，National Telecommunications and Information Administration）管理，由国家标准与技术研究院（NIST，National Institute of Standards and Technology）、国土安全部（DHS，Department of Homeland Security）以及情报预研预测活动（局）（IARPA，Intelligence Advanced Research Projects Activity）等机构提供投入。
+*编辑、发稿 文锦*
 
-美国国际技术安全与创新基金的5亿美元芯片也将通过该基金对国际信息和通信技术安全和半导体供应链活动的支持，支持《利用战略联合电信法》授权的活动，包括支持开发和采用安全可靠的电信技术、半导体和其他新兴技术。
-（未完待续）
-
-文字整理：
-
-The United States Innovation and Competition Act of 2021
-
-Division-by-division summary
-
-Table of Contents
-
-Division A –CHIPS and ORAN 5G Emergency Appropriations ……………..2
-
-Division B – Endless Frontier Act ……………………………………………………………4
-
-Division C – Strategic Competition Act of 2021. ………………………………….8
-
-Division D – Homeland Security and Governmental Affairs Committee Provisions…………………………………………………………………………………………………..9
-
-Division E – Meeting the China Challenge Act of 2021…………………………..10
-
-Division F – Other Matters .. ……………………………………………………………………11
-
-Title I – Competitiveness and Security for Education and Medical Research……………………………………………………………………………………………………12
-
-Title II – Committee on the Judiciary Provisions……………………………………13
-
-Title III – Miscellaneous…………………………………………………………………………..14
-
-……
-
-The Utilizing Strategic Allied (USA) Telecommunications Act Summary
-
-Heavily subsidized by the Chinese government, Huawei is poised to become the leading commercial provider of 5G, with far-reaching effects for U.S. economic and national security.
-
-With close ties to the Communist Party of China, Chinese state-directed technology companies
-
-like Huawei present unacceptable risks to our national security and to the integrity of global
-
-information networks.
-
-For several years, Congress has been evaluating how to shore up the global telecommunications
-
-supply chain and limit the scope of Huawei’s involvement globally. These efforts have illustrated how current terms of competition favor Huawei. Further, U.S. efforts to convince foreign partners to ban Huawei from their networks have stalled amid concerns about a lack of viable, affordable alternatives. Without significant investment in the development of Western-based alternatives, Huawei stands poised to become the cheapest, fastest, most ubiquitous global provider of 5G.
-
-Supplemental Appropriations:
-
-The Utilizing Strategic Allied (USA) Telecommunications Act was enacted in the FY2021 NDAA. It fosters U.S. innovation in the race for 5G and invests in Western-based alternatives to Chinese equipment providers Huawei and ZTE.
-
-The USA Telecom Act plays to American strengths by capitalizing on U.S. software advantages, accelerating development of an open-architecture model (known as OpenRAN) that would allow for alternative vendors to enter the market for specific network components, rather than having to compete with Huawei end-to-end. OpenRAN not only has the support of US carriers, it has the support of US vendors of all sizes, along with a range of non-traditional vendors and technology firms. In order to further support the implementation, Senators Warner and Rubio are proposing an amendment which would provide $1.5 billion in emergency supplemental appropriations to implement the USA Telecom Act, including:
-
-$1.5 billion for the Public Wireless Supply Chain Innovation Fund to spur movement towards open-architecture, software-based wireless technologies, funding innovative, ‘leap-ahead’ technologies in the U.S. mobile broadband market. The fund would be managed by the National Telecommunications and Information Administration (NTIA), with input from the NIST, DHS, and IARPA, among others.
-
-The $500 million CHIPS for America International Technology Security and Innovation Fund will also support activities authorized in the USA Telecommunications Act, through the Fund’s support of international information and communications technology security and semiconductor supply chain activities, including supporting the development and adoption of secure and trusted telecommunications technologies, semiconductors, and other emerging technologies.
-
-原文链接：
-
-[https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf](https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf)
-
-0
++1

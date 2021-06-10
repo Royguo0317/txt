@@ -1,61 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 苹果手机新的“私人中继”功能将无法在中国使用
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1311107/)
+## 6月9日美国政要反共推特精选：要求国会对新冠大流行的起因进行全面调查
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1311206/)
 
-翻译：康州盘古农场 – 柯镇恶
+参议员霍利新闻办公室： 在数千页电子邮件的泄露，进一步损害了福奇的信誉和声誉之后，霍利呼吁他辞职，并要求国会对新冠大流行的起因进行全面调查。
 
-校对：康州盘古农场 – Mike Li
 
-编辑：康州盘古农场 – 明子
 
-发布：康州盘古农场-恩典
-![此图像的alt属性为空；文件名为20210609__unknown-3.png]()![此图像的alt属性为空；文件名为20210609__unknown-3.png](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09174855/20210609__unknown-3.png)
-**据《路透社》作者：Stephen Nellis，Paresh Dave  2021年6月8日报道：**
+> After the release of thousands of pages of emails that have further damaged the credibility and reputation of Fauci, Hawley is calling on him to resign and for a full congressional investigation into the origins of the COVID pandemic. [https://t.co/NQi2NuTBYd](https://t.co/NQi2NuTBYd)
+> — Senator Hawley Press Office (@SenHawleyPress) [June 9, 2021](https://twitter.com/SenHawleyPress/status/1402678526336245767?ref_src=twsrc%5Etfw)
 
-苹果公司(Apple)周一表示，出于监管原因，中国用户将无法使用新的“私人中继”功能，该功能旨在防止互联网服务提供商和广告商跟踪用户的网络浏览行为。
 
-该功能是苹果公司周一在其年度软件开发者大会上宣布的多项隐私保护措施之一，这是该公司多年来努力减少广告商和其他第三方对其用户的跟踪的最新举措。
 
-苹果在中国取消该功能的决定，是该公司在一个占其营收近 15% 的国家就隐私方面做出的一系列妥协中的最新一次。
+众议院外交委员会共和党： 领袖麦考尔在福克斯就 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) Covid 掩盖事件说：“我认为所有路都指向武汉实验室那里。我确实认为是有一种说法是意外释放，但除非 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 开放，否则我们可能永远不会知道真相。” 看这里
 
-2018 年，苹果移走了用于锁定中国用户 iCloud 数据的数字密钥，从而允许当局通过国内法院来获取用户信息。
 
-在中国执政的共产党维持着一个庞大的监控系统，以密切关注公民如何使用该国已经受到严格控制的互联网。在习近平主席的领导下，中共国的异议空间缩小了，审查制度扩大了。
 
-**苹果手机的**“**私人中继**”**功能的原理是，首先将网络流量发送到苹果公司维护的服务器，在那里它被剥离了一段称为 IP 地址的信息。然后，从那里，苹果公司将流量发送到由第三方运营商维护的第二台服务器，该服务器为用户分配一个临时 IP 地址并将流量继续发送到其目标网站。**
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) with [@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw) on the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s Covid cover-up: “I think all roads lead to the Wuhan lab here. I do think there’s an argument that there was an accidental release, but we may never know the truth unless the Chinese Communist Party opens up.”
+>  
+> Watch here⬇️ [pic.twitter.com/ndPiiTRFOy](https://t.co/ndPiiTRFOy)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [June 9, 2021](https://twitter.com/HouseForeignGOP/status/1402694388917194754?ref_src=twsrc%5Etfw)
 
-苹果公司表示，在中继系统的第二跳中使用外部服务商是有意的，这是为了防止苹果公司知道用户的身份和用户正在访问的网站。
 
-苹果公司表示，“私人中继”服务也不会在白俄罗斯、哥伦比亚、埃及、哈萨克斯坦、沙特阿拉伯、南非、土库曼斯坦、乌干达和菲律宾提供。
 
-苹果尚未透露将在系统中使用哪些外部合作伙伴，但表示计划在未来公开它们。该功能可能要到今年晚些时候才会向公众开放。
+众议员爱丽丝·斯泰凡尼可： 美国人民应该得到答案。国会必须对新冠的起源展开调查。 （附众议院共和党推特：行政管理和预算局代理局长，拒绝说拜登总统的预算不会资助武汉病毒学研究所。 你们缴纳的税款不该用于资助可能产出新冠的中国实验室。）
 
-IP 地址可用来以多种方式跟踪用户，包括作为“指纹”的关键要素，这是一种广告商将不同的数据串在一起以推断用户身份的做法。苹果公司和谷歌公司都禁止这种做法。
 
-数字营销公司 Adswerve 的创新主管查尔斯·法里纳 (Charles Farina) 告诉路透社，结合苹果之前的措施，“私人中继”功能“将有效地使 IP 地址无法用作指纹识别机制”。
 
-他说，它还可以防止广告商使用 IP 地址来确定一个人的位置。
+> The American people deserve answers. Congress MUST launch an investigation into the origin of COVID-19. [https://t.co/bpZiaOwmBZ](https://t.co/bpZiaOwmBZ)
+> — Rep. Elise Stefanik (@RepStefanik) [June 9, 2021](https://twitter.com/RepStefanik/status/1402703178806841344?ref_src=twsrc%5Etfw)
 
-【评论】：看完这个新闻，小柯眉头一皱，发现事情并不简单。
 
-我们知道，所谓的“翻墙”，其原理就是：设置一个中间代理节点，然后用户端先将流量发送到代理节点，再由代理节点将流量转发到目标网站。
 
-这样看来，苹果手机最新的“私人中继”服务，不就是一个官方的翻墙服务吗？
+众议员布里安·斯太尔： 美国不应该直接或间接地资助中国共产党控制的实验室——如武汉病毒学研究所——的功能获得性研究
 
-由于目前没有足够的信息，无法作出明确的判断。但是如果这个“私人中继”功能确实如新闻中所描述，那这确实就是一个翻墙服务。虽然说该功能在中共国不可用，但是有心人总有办法获取到非中共国版本的苹果手机。
 
-目前要实现手机翻墙，对大多数人来说还是有一定技术难度的。但是如果使用带有这个“私人中继”功能的苹果手机，那么手机一开机，啥都不用干，直接就自带翻墙功能，这是啥概念啊！
 
-苹果公司对中共的妥协是众所周知的，所以，虽然我们不指望苹果公司来推倒防火墙，但是我有一种感觉，一种直觉，这是一个征兆，感觉距离防火墙的倒塌真的不远了。
+> The United States should not be funding—directly or indirectly—gain-of-function research in CCP controlled labs, such as the Wuhan Institute of Virology.
+> — Bryan Steil (@RepBryanSteil) [June 9, 2021](https://twitter.com/RepBryanSteil/status/1402619594641129474?ref_src=twsrc%5Etfw)
 
-因为，苹果公司官方所说的设计这个功能是为了保护用户隐私，我认为这只是一种表面的说法。也许，只是也许哈，也许是有别的服务商要提供类似服务，苹果公司感受到了竞争压力，所以出了这个功能。只是一种猜想，希望能猜对吧。
 
-原文链接：[https://www.reuters.com/world/china/apples-new-private-relay-feature-will-not-be-available-china-2021-06-07/](https://www.reuters.com/world/china/apples-new-private-relay-feature-will-not-be-available-china-2021-06-07/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+众议员布里安·马斯特： 无论是掩盖新冠肺炎疫情，还是侵犯人权，都必须全方位追究中共国的责任。 （转CNN报道：维吾尔人正被穆斯林国家驱逐出境，这引发了人们对中国影响力不断扩大的担忧）
+
+
+
+> From their COVID cover up to human rights abuse, China must be held accountable on all fronts.[https://t.co/Xj3VZPncVH](https://t.co/Xj3VZPncVH)
+> — Rep. Brian Mast (@RepBrianMast) [June 9, 2021](https://twitter.com/RepBrianMast/status/1402671838258401291?ref_src=twsrc%5Etfw)
+
+
 
 0
