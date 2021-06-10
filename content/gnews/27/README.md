@@ -1,54 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大时政生活杂谈 （第十六期）2021-06-07
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1311513/)
+## 彼得·达萨克(Peter Daszak )描述“中国的同事”正在开发“杀手’’级冠状病毒
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1311582/)
 
-作者: 蒙特利尔皇家山战友团 平民正道
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09232110/gjkgkkj.jpg)
-- **一周新闻简报**
+**字幕內容：**
 
+**Peter Daszak（EcoHealth Alliance President)
+彼得·达萨克(生态健康联盟主席）**
 
-1:   今天魁省单日新增194例，比昨天增加了15人，这是连续2天达到不足200的新病例。目前累计的病例达到：371,960例，其中康复了358,221人。死亡人数为:11,152人
+This is example, first of all
+这是个例子，首先
 
-2：昨天一天魁省接种疫苗人数：66,590人，总接种量达到了6,153,771剂，总接种量已到了66%，还有6,518,159剂等待接种。
+We’re only looking at viral families that include those that have gotten to people from ani-mals
+我们只关注包括那些从动物身上感染
+到人的病毒家族
 
-3: 今天7号周一，魁省从今天开始所有的红色疫情警报解除了！蒙特利尔和Laval市也从红色降低为橙色。恢复堂食，中学生也要返回学校正常上课。
+so we have narrowed it down straight away
+所以我们直接缩小了范围
 
-4: 加拿大环境部向蒙特利尔区发出了酷热的警告，今明两天最高气温会超过30度，体感温度达40度，要持续到周三才会消退，大家要做好防暑降温的工作。尽量不要出门。
+Then when you got a sequence of the virus
+然后当你得到病毒序列时
 
-- **新中国联邦一周年庆典感悟**
+and it looks like a relative of a known nasty pathogen,
+它看起来像是一种已知令人讨厌的病原体的亲戚
 
+just like we did with SARS
+就像我们对非典所做的那样
 
-回想刚加入新中国联邦像个梦一样看不到方向。通过观看6.4庆典，让我们感觉到梦想就像变成真的。过去参加爆料革命，个人的经历不是特别成熟。看到伟大的战友过去的一年对我们每个人都是巨大的鼓舞。看到闫博士，郭先生和世界上的政治家，感觉到我们的国家-新中国联邦正在形成。
+We found other coronaviruses in bats,
+我们在蝙蝠中发现了其他冠状病毒
 
-- **新冠病毒和疫苗杂谈**
+a whole host of them,
+很大量的
 
+some of them looked very similar to SARS.
+其中一些看起来与SARS非常相似
 
-墨博士的太太1.29爆料羟氯喹可以治疗新冠，加上之后闫博士的大力推荐，美国很多医生听了以后用这个药救了很多人。
+So we sequenced the spike protein:
+所以我们对刺突蛋白进行了测序：
 
-戴口罩对免疫系统不会有影响。但是戴着口罩不要做大剂量的运动。口罩的缝隙来不及排除出去从口中呼出的一氧化碳，在医学上叫做一氧化碳中毒。跑步、骑车等不建议戴口罩，去到人群密集的地方需要戴口罩。
+the protein that attaches to cells.
+附着在细胞上的蛋白质
 
-预防血栓的形成，用闫丽梦博士的方法吃羟氯喹。一开始要连续吃，吃15天，每天200毫克。同时吃25到50毫克的锌和钙。
+Then we… Well I didn’t do this work,
+然后我们… 好吧，我没有做这个工作
 
-怎么让家庭医生给我们开处方药？可以试着跟医生说犯了风湿性关节炎很疼，在国内的时候吃这个药很有用。有的医生会开，有的不会。这是翌姗大姐朋友的真实例子。
+but my colleagues in China did the work.
+但我在中共国的同事做了这项工作
 
-Fleming医生说找到真相并不难，难的是他们愿不愿意去寻找。福奇等医学领域的大人物都被蓝金黄，为了权力和利益相互交织在一起。把丑陋的一面展示给我们看，没有底线。伪科学、伪政治，科学都失去了真实性。
+You create pseudo particles,
+先创造了假的病毒颗粒
 
-Jackie大姐单位的医生护士对病毒一概不知。他们都说自己打了疫苗。也有护士不同意家人打疫苗的。翌姗姐说一个魁瓜护士对父亲说不要打疫苗，用羟氯喹就能治疗新冠。
+you insert the spike proteins from those viruses,
+再插入那些病毒的刺突蛋白
 
-疫情期间很多常规病人无法正常看病。如果身体不适，一定要及时联系家庭医生，他们会帮你做检查。比如跟医生说我这两天突然胸口疼喘不上气，胸口像有头大象压着，医生立刻会跟你做个检查。建议过了40岁的人，即使非常健康，每隔2年做一个检查。如果问到疼痛指数1-10的时候，要说8.5以上，要不然没人理。通常医院做一个正规检查要排队一年到半年。只要没有生命危险，现在所有的病都往后退了。我们可以打电话到医院说把我到waiting list 上，任何时候我都可以来。有的人本来安排做手术的，由于大流行期间医院人手紧张，病人手术时间被一推再推，3次之后病人没了。
+see if they bind to human cells.
+看看它们是否与人体细胞结合
 
-中共想在全球称霸，早在加入WTO就预谋好了。他们制定各种计划蓝金黄世界各国的政界、科学界和文艺界。很多人不相信病毒是共产党放出来的。我们要传播病毒真相和爆料革命，把中国人和CCP分开。
+At each step of this you move closer and closer to this virus
+每走一步，你就离这种能真正成为
 
-在中国流行不说假话办不成大事的恶俗。五六十年代出生的人从小学习《毛主席语录》，早请示晚汇报。国内的人车上挂着毛主席像章辟邪，把它当神供着。亲人之间没有信任感。家族里头相互攀比，你比我好了，我一定要比你更好。我要挖你的墙角，道德绑架你。挑拨离间、鸡犬不宁。失去信仰没有家族观念。
+could really become pathogenic in people.
+人类致病性的病毒越来越近
 
-川普总统和夫人感染病毒，朱利安尼市长感染病毒，川普总统的发言人也感染病毒。福奇却不感染。这些疑问将来都会得到解答。
+So you narrow down the field
+所以你缩小了领域
 
-[节目链接](https://www.gtv.org/video/id=60bea51a8ce6da73c415a9eb)
+you reduce the cost and you end up with a small number of viruses
+你降低了成本而且最终得到了少量病毒
 
-* * *
+That really do look like killers
+看起来真的很像杀手
 
-*编辑、发稿 文锦*
+and you look at the people and you say
+然后你看看人群
+
+And the people that live in that region where the animal lives
+这些生活在暴露病毒的动物所在地区的人们
+
+that exposed the virus do we see antibodies specific
+身上是否产生了特定的抗体？
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: [https://www.foxnews.com/media/pompeo-covid-origins-wuhan-lab-theory](https://www.foxnews.com/media/pompeo-covid-origins-wuhan-lab-theory)
+英听校：康州盘古农场 – Layka
+翻译：康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

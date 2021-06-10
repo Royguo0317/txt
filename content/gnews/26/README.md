@@ -1,314 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 他辜负国家，自己赚了钱，福奇博士是一个比以往任何时候都更大官僚
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1311439/)
+## 《路德时评》解读美防长下令加强应对中共挑战，美发布贸易审查报告，及拜登将出席G7和北约峰会
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1311606/)
 
-**字幕內容：**
+直播视频：
 
-**Greg Kelly (Newsmax host)
-格雷格·凯利 （Newsmax 主持人）**
 
-The birthplace of the coronavirus
-冠状病毒的发源地
 
-probably this facility the laboratory in Wuhan China
-可能是这个在中共国武汉的实验室
+《路德时评》2021年6月10日晚间节目主要内容：
 
-a laboratory with all kinds of military overtones
-一个有着各种军事色彩的实验室
+一、美防长下令加强应对中共国挑战
 
-if I said that a year ago
-如果我在一年前这样说
+美国之音6月10日报道[\[1\]](https://www.voachinese.com/a/pentagon-effort-aims-to-better-address-china-challenge-20210609/5922917.html)：美国国防部长奥斯汀周三指示五角大楼，将中共国及其军事建设议题列为美国国防政策的首要重点，以加强应对中共国构成的挑战。美国军方已把中共国视为“步调挑战”(pacing threat)，也就是中共国军力的发展步调成为美国的军力发展步调的衡量标准，中共国军事现代化的先进程度以及能力范围是美国需要克服的一种标尺。这些行动倡议是基于五角大楼中共国工作组的建议。这个工作组是在今年2月成立的，任务是审议国防部与中共国相关的政策并列出最重要的优先事项。据有关官员说，工作组审议了数千页文件，与现任和前任国防官员进行了面谈，并咨询了其他政府机构和国会。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10000748/55859725_101.jpg)[美国防部长](https://static.dw.com/image/55859725_101.jpg)
+路德社评论：
 
-I’d be branded a conspiracy theories
-我会被贴上阴谋论的烙印
+1、拜登政府今年2月份成立的五角大楼中共国工作组的23名成员来自美国各个兵种，该小组研究了多份报告，走访了各兵种多位军官，以及收集所有信息后作才制定这份报告，该报告将直接影响拜登政府决策，美国各个部门都已经被调动起来全面应对中共国威胁。
 
-I might be kicked off of social media
-我可能会被踢出社交媒体
+2、美国防部报告完全不提俄罗斯，可见中共国已成为美国最大且最棘手要解决的问题，拜登总统将继承川普总统的对共政策，那台湾问题必定就是重中之重，所以美国早就开始调重兵驻扎在台湾附近。
 
-but now even the experts are knowledging substantial indications
-但现在即使是专家也知道大量迹象表明
+3、美国此前战略重心在于反恐，现在必须重新调整战略战术来应对中共国超限战，美国此次要以“无限”应对“超限”。
 
-that it came from this place
-它来自这个地方
+4、中共官媒也意识到美国即将用“幽灵舰队”来应对中共国挑战，美军“幽灵舰队”项目由隶属于美国防部长办公室的战略能力办公室主导。美空军在发展和运用无人机方面如火如荼，美海军则在发展无人水面作战舰艇方面加大投入，按照“幽灵舰队”的发展构想，该型无人艇在实现自主航行基础上还将搭载各类传感器，用于海上态势感知，以解决来袭导弹等威胁源的发现与定位问题。一旦发现威胁，无人艇将探测到的威胁数据传输给航母编队等有人作战舰艇，以便快速使用防空导弹进行应对。[\[2\]](http://www.xinhuanet.com/mil/2021-06/09/c_1211193246.htm)
 
-not even Dr. Fauci can dismiss that at this point
-即使是福奇博士也不能否认这一点
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10000738/1211193246_16232034396411n.jpg)[图片地址](http://www.xinhuanet.com/mil/2021-06/09/1211193246_16232034396411n.jpg)
 
-we had a beautiful statement from the former president of the United States today Donald Trump
-我们今天收到了美国前总统唐纳德-川普的精彩声明
+5、媒体现在爆出的美国新型军事武器也只是冰山一角，美国之所以有意向媒体透露其军事实力就是在警告中共，美国从武器库中挑选出无人舰艇就是为应对中共国，其实美国早在川普政府或更久之前就在为应对中共国威胁做各种准备，这就是美国军事政策的延续性。
 
-and it makes a lot of sense
-而且这很有道理
+6、美军武器库中有无数超一流的武器，此次为应对中共国挑战，他们特意从武器库中挑选出幽灵战舰来应对中共国，因为无人潜艇非常适合海上作战，无人舰艇大量运用了AI人工智能技术，完全具备将中共国封锁在第一岛链的实力，这样美国就能将战争拉到电子战层面与中共国对抗，因为中共国只要参与海上对抗，就必须使用卫星通讯系统，美军就能利用电子战打败中共。
 
-“The correspondence between Dr. Fauci and China speaks too loudly
-福奇博士和中共国之间的互相“打掩护”太明显了
+7、中共商船使用的是民用海图，航线离大陆架非常近，海图最重要的就是要标出礁石、暗漩和洋流信息，中共国海军实力有限至今没有掌握大洋深处的海图信息，所以中共潜艇或舰艇只要驶出第一岛链就很发生事故，美国早已经在应对中共国威胁方面做了非常充分的准备。
 
-for anyone to ignore.
-任何人都无法忽视
+二、拜登政府发布供应链贸易审查报告
 
-China should pay Ten Trillion dollars to America, and the world,
-中共国应该向美国和全世界支付十万亿美元，
+新浪新闻6月9日报道[\[3\]](https://news.sina.com.cn/c/2021-06-09/doc-ikqcfnaz9989262.shtml)：拜登在上任满月之际，曾下令让联邦机构对半导体、稀土矿物质、电动汽车大容量电池、药品这4种关键产品的供应链，进行为期100天的审查。当地时间6月8日，拜登政府发布了一份逾250页的审查报告，报告认为中共国在这四个领域采取的措施“有很多不符合全球公认的公平贸易惯例”。而美国为解决这些问题将采取一系列行动，其中包括将成立一支“供应链贸易行动小组”。有美国高级官员直言，“这支行动小组的重点是，配合我们的一些对共政策发展”。
 
-for the death and destruction they caused”
-因为他们造成的死亡和破坏”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10000726/27a5-krhvrxt0906212.png)[图片地址](https://n.sinaimg.cn/sinakd202169s/620/w1150h270/20210609/27a5-krhvrxt0906212.png)
 
-Greg Kelly
-格雷格·凯利
+路德社评论：
 
-Wow! how about that, how about that for leadership
-哇！ 那个怎么样，那个领导力怎么样？
+1、这份审查报告就是为指导拜登政府制定贸易应对策略，拜登政府将决定对哪些商品增加关税，将哪些战略物资需要拉回到美国生产，这其实就是与中共国进行经济脱钩。川普总统在位时就发现美国供应量被中共国绑架，中共病毒疫情发生后，中共不但用供应链绑架美国，还利用医疗防护物资威胁全世界，所以美国必须要进行点对点的进行回击，摆脱中共国的威胁。
 
-how about there for a clear-cut leadership
-那个明确的领导力怎样？
+2、从美国所采取的策略来看，美国内部经济确实面对非常大的压力，中共病毒让美国意识到必须要消灭中共体制，这进一步加速推进美国采取行动应对中共国挑战。除此之外，美国还将联合盟友共同签订贸易协议，停止从中共国采购商品来振兴本国经济。
 
-all right, now the opposite of clear cut leadership
-好吧，现在是明确领导力的反面
+三、拜登将出席G7和北约领导人峰会
 
-Dr. Fauci it’s got all kinds of problems now
-福奇博士现在有各种各样的问题
+自由亚洲新闻网6月9日报道[\[4\]](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/cm-06092021151550.html)：美国总统拜登于6月9日前往英国出席七国集团(G7)首脑会议，之后到比利时出席北约领导人峰会，这是他上任以来的首次国际访问行程。受邀出席七国集团峰会的澳大利亚总理莫里森（Scott Morrison）在出发前一场演说中，强烈支持美国政府对病毒起源的情报调查，并呼吁建立一个拥有监督权、独立的世界卫生组织。白宫星期一（6月7日）表示，美国不会放弃追查中共病毒的起源，而拜登在访问欧洲时也会在峰会上提出讨论。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10000713/%E6%8B%9C%E7%99%BB%E5%B3%B0%E4%BC%9A.jpg)[图片地址](https://i.ytimg.com/vi/lCvnI401FeI/hqdefault.jpg)
+路德社评论：
 
-lot of people suspect that he may not be around for too much longer.
-许多人都怀疑他可能不会逗留太久
+1、美国国务卿布林肯此前已经在G7峰会和北约做好各方面铺垫，现在就由拜登总统出面敲定各项谈判协议，中共病毒溯源将成为这两个会议的核心内容。即使中共国通过蓝金黄阻止美国调查病毒真相，拜登只要说服北约任何一个国家宣布中共病毒真相，那包括美国在内的所有北约成员国都必须对中共国采取行动。
 
-Dr Fauci has been let’s face it
-福奇博士已经，让我们面对现实吧
+2、拜登此前要求美国各部门90天内发布病毒调查报告，这90天就是给中共的最后期限，如果中共仍然拒绝配合行动，那所有G7和北约成员国都将与美国战队，共同对抗中共国，拜登此次前往美国就是要与盟国商讨九十天后如何对中共国采取行动。
 
-incorrect inconsistent a bureaucrat playing both sides
-不正确， 不一致， 一个官僚玩两面派
+3、美日印澳都将参加此次G7首脑峰会，各成员国将在此次会议上签署协议，病毒溯源肯定是此次峰会商谈的重点内容，这些国家还要共同商讨并提前做好应对中共国耍流氓手段的准备，这就是拜登所说的多边主义。
 
-and I think he let down President Trump
-而且我认为他辜负了川普总统
+4、中共国如果是一个正常国家，海内外媒体一旦报道这些消息后，中共领导就需要开始反思他的所作所为，那就还有回旋的余地，但中共国是一个集权专制国家，西方国家采取的行动已经关系到习神的面子问题，习神此前亲口说病毒事情由他亲自指挥亲自部署，所以习神绝不可能有任何退让。美国已经给中共国无数次机会，中共仍然选择死磕到底，习神正在将14亿中国老百姓带入无底深渊，所以美国必须要消灭中共集权专制体制，中共在此次灭共大势中也不可能拥有任何控制局势的机会。
 
-he let down the country
-他辜负了国家
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
 
-probably let him down in his own way
-可能以他自己的方式让他自己也失望
+参考文章：
 
-Joe Biden all kinds of correspondence were going through right now
-乔拜登现在正在处理各种反应
+[1][https://www.voachinese.com/a/pentagon-effort-aims-to-better-address-china-challenge-20210609/5922917.html](https://www.voachinese.com/a/pentagon-effort-aims-to-better-address-china-challenge-20210609/5922917.html)
+[2][http://www.xinhuanet.com/mil/2021-06/09/c\_1211193246.htm](http://www.xinhuanet.com/mil/2021-06/09/c_1211193246.htm)
+[3][https://news.sina.com.cn/c/2021-06-09/doc-ikqcfnaz9989262.shtml](https://news.sina.com.cn/c/2021-06-09/doc-ikqcfnaz9989262.shtml)
+[4][https://www.rfa.org/mandarin/yataibaodao/zhengzhi/cm-06092021151550.html](https://www.rfa.org/mandarin/yataibaodao/zhengzhi/cm-06092021151550.html)
 
-that indicates number one how wrong he is been
-这表明第一，福齐是那么的错误
+文章撰写：【重生】  编辑：【香柏树】
 
-number two that he knew a lot more
-第二福齐知道的
+本文仅代表作者个人观点
 
-about the situation with that laboratory than he’s let on publicly
-关于那个实验室的情况比他公开的要更多
-
-he allowed that theory to be minimize his conspiracy theory
-他让那个理论最小化了他的阴谋论
-
-he knows better and he knew better
-他现在清楚的知道和他原来也清楚的知道
-
-and what is the mainstream are they going to do
-而且主流媒体将要做什么呢
-
-are they going to call him out on this stuff
-他们会在这件事上指责他吗？
-
-remember they’ve been in love with him for a long time
-记住，他们已经宠爱他很久了
-
-all those beautiful profiles
-所有那些漂亮的个人资料
-
-I saw one reporter who went jogging with Dr Fauci
-我看到一位记者和福奇博士一起慢跑
-
-somehow he came out of hero in all this with them
-不知何故，他和他们一起从这里以英雄姿态出来
-
-maybe because he signaled
-也许是因为他发出了信号
-
-he didn’t like Donald Trump
-他不喜欢唐纳德川普
-
-so what are they going to do right now
-那么他们现在要做什么?
-
-because this guy, haha, is not looking good at all
-因为这家伙，哈哈，看起来不太好
-
-what are they going to do
-他们会做什么呢?
-
-so far looks like you’re going to ignore
-迄今为止看起来你会忽略
-
-let’s go to David Muir
-让我们去看看大卫缪尔
-
-that thoughtful man they say on ABC News
-他们在美国广播公司新闻上说的那个深思熟虑的人
-
-David Muir (ABC evening news host)
-大卫 缪尔（美国广播公司晚间新闻主持人）
-
-Dr Fauci Making news late today
-福奇博士今天晚些时候发布新闻
-
-talking about the states were at the vaccination numbers are considerably lower than the national average
-谈论疫苗接种数量远低于全国平均水平的那些州
-
-his concern as we now toward for the 4th
-他的担心是我们快到国庆节了
-
-Stephanie Ramos(ABC reporter)
-斯蒂芬妮·拉莫斯（美国广播公司记者）
-
-Exactly, David. Dr. Fauci says
-是的，大卫。 福奇博士说
-
-he doesn’t want to see are those mini little outbreaks in those areas
-他不想看到这些地区出现小规模的疫情
-
-Greg Kelly
-格雷格·凯利
-
-This is on the Evening News nobody cares about
-这是没人关心的晚间新闻
-
-what he’s talking about with the mini outbreaks
-他在谈论关于小爆发
-
-He’s been saying that stuff for year-and-a-half
-他一直在说这些东西有一年半了
-
-we care about the emails, the emails right now
-我们在乎的是邮件，当下热点是邮件
-
-And the stuff that he was saying and the stuff that he was reading
-以及他所说的和他正在阅读的东西
-
-why did they ask about that and
-他们为什么问这个？而且
-
-when they do ask they do it
-当他们确实提出关于邮件的问题时，
-
-in the most polite overly cautious way
-他们会以最礼貌、过于谨慎的方式进行
-
-here is NBC News
-这是美国全国广播公司新闻
-
-Kate Snow (NBC evening news)
-凯特·斯诺（NBC晚间新闻）
-
-Dr. Fauci, some of your emails were obtained by several news organizations
-福奇博士，你的一些电子邮件已被多家新闻机构获得
-
-under the Freedom of Information Act
-根据信息自由法
-
-you exchanged emails with a Chinese director there Center for Disease Control
-你与中共国疾病控制中心的一位主任的交换电子邮件
-
-President Trump’s former Chief of Staff today suggested
-川普总统的前幕僚长今天表示说
-
-that you and others didn’t do enough to investigate the origins of the virus
-你和其他人在调查病毒起源方面做得还不够
-
-did you?
-你做了吗？
-
-Grey Kelly
-格雷格·凯利
-
-did you? did you?
-你做了吗？你做了吗？
-
-you see it has some teeth
-你看让他咬钩了
-
-and then they let him off the hook
-然后他们让他摆脱困境
-
-did you？did you do that?
-你做了吗？你做那个了吗？
-
-did you do your job?
-你做工作了吗？
-
-and you can’t answer any other way
-你不能以任何其他方式回答
-
-better question is what did you know
-更好的问题是你知道什么
-
-and when did you know it
-和你是什么时候知道的
-
-what this seems to indicate that you know that
-这似乎表明你知道那个
-
-that Wuhan lab may have been involved in all this
-那个武汉实验室参与了这一切
-
-how did he respond like any classic bureaucrat would
-他回答的口吻就像任何典型的官僚一样
-
-Dr. Fauci
-福奇博士
-
-so when you talk about investigating the origins
-所以当你谈到关于调查病毒的起源
-
-I don’t believe that that’s the role of the National Institutes of Health
-我认为那不是美国国立卫生研究院的角色
-
-Grey Kelly
-格雷格·凯利
-
-Ha, right? not my job
-哈，对吧？不是我的工作
-
-just like any good bureaucrat
-就像任何优秀的官僚那样
-
-the most bureaucrats don’t wind up on the cover of InStyle magazine
-大多数官僚不会登上 InStyle 杂志的封面
-
-that’s what did it for me
-那个对我来说是什么呢
-
-this little moment might wait a second
-这一刻，也许，等一下
-
-the whole country is suffering
-整个国家都在受煎熬
-
-and he’s having a grand time in sunglasses by his pool
-而他在他的游泳池边戴着太阳镜享受生活
-
-made no sense
-这是不公平的
-
-so when I heard about his book deal
-所以当我听说他的新书时
-
-I wasn’t totally shocked
-我并不完全震惊
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 : [https://twitter.com/newsmax/status/1400610871471116292?s=24](https://twitter.com/newsmax/status/1400610871471116292?s=24)
-英听校：康州盘古农场 – Layka
-翻译：康州盘古农场 – Layka
-翻译终校：康州盘古农场 – 格格巫
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1

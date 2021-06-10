@@ -1,100 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《2021年美国创新与竞争法案》涉及中共国部分（1）
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1311442/)
+## 加拿大时政生活杂谈 （第十六期）2021-06-07
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1311513/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者: 蒙特利尔皇家山战友团 平民正道
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09232110/gjkgkkj.jpg)
+- **一周新闻简报**
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09221803/S-2.jpg)newsable.asianetnews.com
-2021年美国创新与竞争法案
 
-目录
-A部分——芯片和开放结构模式（ORAN）5G紧急拨款
-B部分——无止境前沿法
-C部分——2021年战略竞争法
-D分部——国土安全和政府事务委员会条例
-E分部——迎接2021年中共挑战法
-F部分——其他事项
-第一篇——教育和医学研究的竞争力和安全性
-第二篇——司法条例委员会
-第三篇——其他
+1:   今天魁省单日新增194例，比昨天增加了15人，这是连续2天达到不足200的新病例。目前累计的病例达到：371,960例，其中康复了358,221人。死亡人数为:11,152人
 
-A部分——芯片和开放结构模式（ORAN）5G紧急拨款
-……
+2：昨天一天魁省接种疫苗人数：66,590人，总接种量达到了6,153,771剂，总接种量已到了66%，还有6,518,159剂等待接种。
 
-《利用战略联合（USA，Utilizing Strategic Allied）电信法》摘要
+3: 今天7号周一，魁省从今天开始所有的红色疫情警报解除了！蒙特利尔和Laval市也从红色降低为橙色。恢复堂食，中学生也要返回学校正常上课。
 
-在中共国政府的大力补贴下，华为有望成为5G领先的运营及设备提供商，对美国经济和国家安全产生了深远影响。像华为这样的与中国共产党关系密切的中共国有科技公司，给我们的国家安全和全球信息网络的完整性带来了不可接受的风险。
+4: 加拿大环境部向蒙特利尔区发出了酷热的警告，今明两天最高气温会超过30度，体感温度达40度，要持续到周三才会消退，大家要做好防暑降温的工作。尽量不要出门。
 
-几年来，国会一直在评估如何支撑全球电信设备供应链，以及限制华为在全球的参与范围。这些努力说明了当前的竞争条件如何有利于华为，此外，由于担心缺乏可行的、负担得起的替代品，美国说服外国合作伙伴禁止华为进入其网络的努力陷入停滞。如果不对基于西方的替代产品的开发进行重大投资，华为将成为全球最便宜、最快、最普遍的5G提供商。
+- **新中国联邦一周年庆典感悟**
 
-追加拨款：
 
-《利用战略联合（USA）电信法》于2021财年颁布，它在5G竞争中促进了美国的创新，并投资于中共国设备供应商华为（Huawei）和中兴通讯（ZTE）基于西方的替代产品。
+回想刚加入新中国联邦像个梦一样看不到方向。通过观看6.4庆典，让我们感觉到梦想就像变成真的。过去参加爆料革命，个人的经历不是特别成熟。看到伟大的战友过去的一年对我们每个人都是巨大的鼓舞。看到闫博士，郭先生和世界上的政治家，感觉到我们的国家-新中国联邦正在形成。
 
-《利用战略联合电信法》发挥了美国的优势，利用美国的软件优势，加快开发开放结构模式（称为OpenRAN），允许替代供应商进入特定网络组件的市场，而不必与华为进行端到端的竞争。开放结构模式不仅得到了美国运营商的支持，它还得到了各种规模的美国设备供应商以及一系列非传统供应商和技术公司的支持，为了进一步支持《利用战略联盟电信法》的实施，参议员华纳（Warner）和卢比奥（Rubio）正在提出一项修正案，将提供15亿美元的紧急补充拨款，以实施《利用战略联合电信法》，其中包括：
+- **新冠病毒和疫苗杂谈**
 
-为公共无线（设备）供应链创新基金提供15亿美元，以推动向开放式架构、基于软件的无线技术的发展，为美国移动宽带市场的创新性“飞跃”技术提供资金，该基金将由国家电信和信息管理局（NTIA，National Telecommunications and Information Administration）管理，由国家标准与技术研究院（NIST，National Institute of Standards and Technology）、国土安全部（DHS，Department of Homeland Security）以及情报预研预测活动（局）（IARPA，Intelligence Advanced Research Projects Activity）等机构提供投入。
 
-美国国际技术安全与创新基金的5亿美元芯片也将通过该基金对国际信息和通信技术安全和半导体供应链活动的支持，支持《利用战略联合电信法》授权的活动，包括支持开发和采用安全可靠的电信技术、半导体和其他新兴技术。
-（未完待续）
+墨博士的太太1.29爆料羟氯喹可以治疗新冠，加上之后闫博士的大力推荐，美国很多医生听了以后用这个药救了很多人。
 
-文字整理：
+戴口罩对免疫系统不会有影响。但是戴着口罩不要做大剂量的运动。口罩的缝隙来不及排除出去从口中呼出的一氧化碳，在医学上叫做一氧化碳中毒。跑步、骑车等不建议戴口罩，去到人群密集的地方需要戴口罩。
 
-The United States Innovation and Competition Act of 2021
+预防血栓的形成，用闫丽梦博士的方法吃羟氯喹。一开始要连续吃，吃15天，每天200毫克。同时吃25到50毫克的锌和钙。
 
-Division-by-division summary
+怎么让家庭医生给我们开处方药？可以试着跟医生说犯了风湿性关节炎很疼，在国内的时候吃这个药很有用。有的医生会开，有的不会。这是翌姗大姐朋友的真实例子。
 
-Table of Contents
+Fleming医生说找到真相并不难，难的是他们愿不愿意去寻找。福奇等医学领域的大人物都被蓝金黄，为了权力和利益相互交织在一起。把丑陋的一面展示给我们看，没有底线。伪科学、伪政治，科学都失去了真实性。
 
-Division A –CHIPS and ORAN 5G Emergency Appropriations ……………..2
+Jackie大姐单位的医生护士对病毒一概不知。他们都说自己打了疫苗。也有护士不同意家人打疫苗的。翌姗姐说一个魁瓜护士对父亲说不要打疫苗，用羟氯喹就能治疗新冠。
 
-Division B – Endless Frontier Act ……………………………………………………………4
+疫情期间很多常规病人无法正常看病。如果身体不适，一定要及时联系家庭医生，他们会帮你做检查。比如跟医生说我这两天突然胸口疼喘不上气，胸口像有头大象压着，医生立刻会跟你做个检查。建议过了40岁的人，即使非常健康，每隔2年做一个检查。如果问到疼痛指数1-10的时候，要说8.5以上，要不然没人理。通常医院做一个正规检查要排队一年到半年。只要没有生命危险，现在所有的病都往后退了。我们可以打电话到医院说把我到waiting list 上，任何时候我都可以来。有的人本来安排做手术的，由于大流行期间医院人手紧张，病人手术时间被一推再推，3次之后病人没了。
 
-Division C – Strategic Competition Act of 2021. ………………………………….8
+中共想在全球称霸，早在加入WTO就预谋好了。他们制定各种计划蓝金黄世界各国的政界、科学界和文艺界。很多人不相信病毒是共产党放出来的。我们要传播病毒真相和爆料革命，把中国人和CCP分开。
 
-Division D – Homeland Security and Governmental Affairs Committee Provisions…………………………………………………………………………………………………..9
+在中国流行不说假话办不成大事的恶俗。五六十年代出生的人从小学习《毛主席语录》，早请示晚汇报。国内的人车上挂着毛主席像章辟邪，把它当神供着。亲人之间没有信任感。家族里头相互攀比，你比我好了，我一定要比你更好。我要挖你的墙角，道德绑架你。挑拨离间、鸡犬不宁。失去信仰没有家族观念。
 
-Division E – Meeting the China Challenge Act of 2021…………………………..10
+川普总统和夫人感染病毒，朱利安尼市长感染病毒，川普总统的发言人也感染病毒。福奇却不感染。这些疑问将来都会得到解答。
 
-Division F – Other Matters .. ……………………………………………………………………11
+[节目链接](https://www.gtv.org/video/id=60bea51a8ce6da73c415a9eb)
 
-Title I – Competitiveness and Security for Education and Medical Research……………………………………………………………………………………………………12
+* * *
 
-Title II – Committee on the Judiciary Provisions……………………………………13
-
-Title III – Miscellaneous…………………………………………………………………………..14
-
-……
-
-The Utilizing Strategic Allied (USA) Telecommunications Act Summary
-
-Heavily subsidized by the Chinese government, Huawei is poised to become the leading commercial provider of 5G, with far-reaching effects for U.S. economic and national security.
-
-With close ties to the Communist Party of China, Chinese state-directed technology companies
-
-like Huawei present unacceptable risks to our national security and to the integrity of global
-
-information networks.
-
-For several years, Congress has been evaluating how to shore up the global telecommunications
-
-supply chain and limit the scope of Huawei’s involvement globally. These efforts have illustrated how current terms of competition favor Huawei. Further, U.S. efforts to convince foreign partners to ban Huawei from their networks have stalled amid concerns about a lack of viable, affordable alternatives. Without significant investment in the development of Western-based alternatives, Huawei stands poised to become the cheapest, fastest, most ubiquitous global provider of 5G.
-
-Supplemental Appropriations:
-
-The Utilizing Strategic Allied (USA) Telecommunications Act was enacted in the FY2021 NDAA. It fosters U.S. innovation in the race for 5G and invests in Western-based alternatives to Chinese equipment providers Huawei and ZTE.
-
-The USA Telecom Act plays to American strengths by capitalizing on U.S. software advantages, accelerating development of an open-architecture model (known as OpenRAN) that would allow for alternative vendors to enter the market for specific network components, rather than having to compete with Huawei end-to-end. OpenRAN not only has the support of US carriers, it has the support of US vendors of all sizes, along with a range of non-traditional vendors and technology firms. In order to further support the implementation, Senators Warner and Rubio are proposing an amendment which would provide $1.5 billion in emergency supplemental appropriations to implement the USA Telecom Act, including:
-
-$1.5 billion for the Public Wireless Supply Chain Innovation Fund to spur movement towards open-architecture, software-based wireless technologies, funding innovative, ‘leap-ahead’ technologies in the U.S. mobile broadband market. The fund would be managed by the National Telecommunications and Information Administration (NTIA), with input from the NIST, DHS, and IARPA, among others.
-
-The $500 million CHIPS for America International Technology Security and Innovation Fund will also support activities authorized in the USA Telecommunications Act, through the Fund’s support of international information and communications technology security and semiconductor supply chain activities, including supporting the development and adoption of secure and trusted telecommunications technologies, semiconductors, and other emerging technologies.
-
-原文链接：
-
-[https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf](https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf)
+*编辑、发稿 文锦*
 
 0

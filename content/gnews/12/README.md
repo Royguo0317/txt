@@ -1,46 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】闪测系统“昙花一现”，中共核酸检测仍靠“人海战术”
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1311703/)
+## 《路德社》新闻快讯（视频版）: 20210609闫博士接受IndiaToday采访
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1311919/)
 
-配音：香草山录音组 蒙古鸿雁
+《路德社》出品
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+以下视频是详细内容：
+
+主要内容：
+
+1.打杂客和其他科学家公开谈论过武毒所的功能增强实验
+
+2.中共享各种病毒进行这种实验是公开的秘密
+
+3.打杂客拨款给中共国后得到了利益
+
+4.蝠奇在内的很多科学家意识到病毒来自实验室，但是为了中共国而包庇事实
+
+5.中共国不会让人们去武汉做真正的调查、了解真正零号病人的情况
+
+6.一旦展开真的调查，人们就会意识到武毒所只不过是参与中共国超限生物武器长期项目的众多实验室之一
+
+7.已经把科学和情报证据写在三篇报告中
+
+8.病毒骨架就掌握在PLA手中
+
+9.闫博士在19年12月掌握的情报、信息中，没有指向「事故泄漏」而很多都指向「故意投放」
+
+10.这就是一个超限生物武器，来摧毁各国的文明
+
+11.WHO的砖家们特别是这个病毒的砖家组被中共国操控
+
+12.希望美国政府刨根问底
+
+13.美国调查员需要了解中共政府和PLA才能在90天内看到真正的结果
 
 
 
+翻译：路德社翻译组
 
+制作：路德社视频组
 
+审核校对：玫瑰新闻组
 
-
-环球网6月9日转载中国民航报消息，近期广州CCP病毒疫情爆发，导致各区县“全员核酸检测”现象频发。在超1800万核酸检测需求下，广州却依旧沿用效率低下的咽拭子检测方式。
-
-广州疫情持续发酵，核酸检测人数和范围日益增加。根据《广州市新型冠状病毒肺炎疫情防控指挥部关于进一步强化疫情防控工作的通告（第17号）》要求，白云机场6月8日为出港旅客提供24小时核酸检测服务，并承诺采样后4-8小时出结果。
-
-
-
-**文字版原文：【[鹰眼墙国】闪测系统“昙花一现”，中共核酸检测仍靠“人海战术”](https://gnews.org/zh-hans/1311332/、)**
-
-作者：纽约香草山写作组  鹰(文言)
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+上传排版：玫瑰新闻组
 
 0

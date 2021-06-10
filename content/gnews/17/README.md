@@ -1,58 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “德克萨斯州 100% 开放”：州长禁止私营企业和州政府发放疫苗护照
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1311631/)
+## 美国国防部长奥斯汀发布内部指令启动多项工作对抗中共
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1311733/)
 
-**字幕内容：**
+【日本东京方舟农场】  撰稿：青衣      校对：miumiu law
 
-Greg Abbott (Texas Governor)
-格雷格·阿博特 (得克萨斯州州长)
+据《法国国际广播电台》6月9日报道，美国国防部长奥斯汀周三（6月9日）指示五角大楼将中共国及其军事建设议题列为美国国防政策的首要重点。奥斯汀还发布内部指令启动多项工作，以加强应对中共国所构成的挑战。
 
-Texas is open 100%
-德克萨斯州是100% 开放
+据报道，美国多名官员表示，奥斯汀发布了一项内部指令，要求采取几项对抗中共国的措施。但关于这些措施与以往有何不同，尚缺少一些具体细节。
 
-And we want to make sure
-并且我们要确认
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10015434/05C5D63C-B29A-4D44-BD0D-837E69588073.jpeg)
 
-that you have the freedom to go where you want without limits
-你可以不受限制地自由去你想去的地方
+五角大楼发表声明指出，这些措施旨在加强内部流程及程序，以加强国防部为全体政府做出贡献，应对来自中（共）国的挑战。不过关于这些举措将会是什么，五角大楼没有提供具体细节，并称这些措施中有部分将维持机密。
 
-the Texas legislature passed a law
-德克萨斯州立法机构通过了一项法律
+另据《大纪元》报道称，近几年来，美国一直把对抗中共作为其国家安全政策的核心。两国在技术、人权，以及中共在南中国海的军事活动等方面都存在冲突。美国国防部发表声明称，根据国防部“中国问题特别工作组”提交的最终建议，奥斯汀部长发布了一项指令，启动了整个国防部的几项主要工作，以更好地应对中国（中共）作为美国头号步步逼近的对手所带来的安全挑战。
 
-that I’m about to sign that prohibits vaccine passports in Texas
-我即将签署它，该法律禁止在德克萨斯州
-接种疫苗的护照
+报道称，奥斯汀在一份声明中表示，这些努力是拜登政府对来自中国（中共）的挑战做出的更广泛反应的一部分，并将纳入国防部的国防战略。奥斯汀说：“我今天指示的工作将提高该部（国防部）的能力，以振兴我们的盟友和合作伙伴网络，加强威慑力，并加速发展新的作战概念、新兴能力、未来部队态势以及现代化的文职和军事人员。”
 
-No business or government entity can require
-任何企业或政府实体都不能要求
+这个“中国问题特别工作组”由奥斯汀的中国问题首席顾问伊利·拉特纳（Ely Ratner）领导，负责评估五角大楼的涉华项目和优先事项，并向奥斯汀提供政策建议。据悉，国防部的这个中国工作组是由拜登总统在今年2月宣布成立的。
 
-a person to provide a vaccine passport
-个人提供疫苗护照
+《路透社》援引一位不愿透露姓名的高级国防官员的话称，国防部长的这项指令最终是为了解决国防部的问题，并确保它符合（该部）所声明的中国优先事项。《彭博社》的报道也指出，这些举措旨在弥合五角大楼将重点转移到中共时的“说和做差距”。
 
-or any vaccine information as a condition of
-或任何疫苗信息作为条件
+上述国防官员表示，这些指令包括努力与印太地区的盟友更紧密地合作，并为美国的军事态势提供指导，以应对中共。国防部将审查联合作战概念以及专业军事教育，以便专注于与中国（中共）的竞争。
 
-receiving any service or entering any place
-接收任何服务或进入任何地方
+上个月，拜登政府公布的国防预算，包括将数十亿美元的开支从旧系统中转移出来，用于核武库现代化，以威慑中共。据称，预算中有超过50亿美元将用于“太平洋威慑倡议”。该倡议旨在对抗中共，重点是印度-太平洋地区的竞争，目标是通过对雷达、卫星和导弹系统的投资，加强美国在该地区的准备。具体来说，五角大楼计划增加对导弹的投资来遏制中共，这些导弹包括雷神（Raytheon）制造的战斧巡航导弹（Tomahawk）和标准6（SM-6）导弹等。
 
-I want to thank the Texas legislature for getting this bill to my desk
-我要感谢德州立法机构将这份法案送到我的办公桌
+注：本文仅代表作者观点
 
-Vaccine passports are now prohibited in the Lone Star State
-孤星州现在禁止使用疫苗护照
+参考链接：
 
-原视频链接:[https://twitter.com/ilsharko/status/1402047112213413897?s=24](https://twitter.com/ilsharko/status/1402047112213413897?s=24)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场- 银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+1. [https://twitter.com/RFI\_Cn/status/1402743073528946692](https://twitter.com/RFI_Cn/status/1402743073528946692)
+2. [https://twitter.com/dajiyuan/status/1402709938523324423](https://twitter.com/dajiyuan/status/1402709938523324423)
+3. [https://twitter.com/aboluowang/status/1402803233781817348](https://twitter.com/aboluowang/status/1402803233781817348)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

@@ -1,68 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《2021年美国创新与竞争法案》涉及中共国部分（2）
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1311458/)
+## 加拿大时政生活杂谈之弗莱明医生公开毕生成果治疗新冠病毒
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1311546/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者： 平民正道
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09235759/XOpabLWW.jpg)
+弗莱明(Fleming)医生在网上公开从医30多年的文献资料，其中有包括关于新冠病毒的结果和临床的实验数据。这是一份非常好的科普性的，简单的教学材料。他把他的研究成果拿出来无私地奉献给世界，让人感动。重要的一点，他所有的数据都来自于临床真实的数据。他从整个1800名感染新冠病毒的病人当中，得出了实验数据，给了很多治疗方法，救了很多病人。他救人的成功率达到97%,其中最重要的药是羟氯喹。这个医生像天使有一样揭露新冠病毒的真相。他用了大量的数据勇敢地说出来，他对人类有巨大贡献。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09235412/%E5%B1%8F%E5%B9%95%E6%88%AA%E5%9B%BE1309.png)
+在这张图表中显示他的病人分布在7个国家，他用了各种各样的药治疗病人的新冠。我们可以中从找到治疗新冠的药物。还可以把这个告诉医生，让医生给我们开药。弗莱明博士说新冠病毒并不可怕，一旦我们知道怎么预防和在早期治疗他，完全可以避免死亡。另一张图显示新冠病毒最容易造成病人血栓，血栓可以发生在腿上，心脏以及脑子里等。黑色的血块就是血栓。博士还给我们贡献了一张治疗新冠病毒的用药表格。用他方法几乎100%治疗3-4天的症状。他的方案几乎都用到了羟氯喹和阿奇霉素。他主要防治的机理是不让血栓形成。发炎会形成血栓，如果能控制各个器官的发炎就能控制新冠病毒。
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09223911/t-5.jpg)icryptodesk.com
-C部分——2021年战略竞争法
+他在演讲中还提供了各个方面对新冠病毒进行预防，从5个方面进行阐述。
 
-《战略竞争法》是两党共同努力的结果，目的是使美国能够有效地应对中共国对我们国家社会和经济安全的挑战，该法案在2021年4月21日几乎一致地（21票对1票）获得了参议院外交关系委员会（SFRC）的通过，该法案提供了一个统一的战略对策。
+第一个是用的处方药。有羟氯喹、伊维菌素和阿奇霉素，干扰素和大面积使用激素治疗法等等。还有一个他强调一定要提高自身免疫系统。他说不要随便用这些药，我们本身就有抗病毒的免疫能力。通常孩子发烧喝鸡汤，睡觉和洗个热水澡便可自愈。发烧在孩子身上可能会产生免疫病毒。自身产生的抗体可以抗击产生血栓形成，避免发炎，让自身去产生新冠的免疫抗体。他强烈地否定了许多人说的新冠没有办法治疗。他说得了病毒不一定会死，我们有办法治疗。我们有药和实际的临床数据给大家看。他给我们提供了免疫抗体的方法，比如多吃带叶酸的水果，补充镁，钙，锌和抗血栓的维C等。
 
-通过以下措施增加美国对印度洋-太平洋地区的战略关注点，优先处理联盟、伙伴关系和美国全球领导地位：
-推进以加强美国联盟和伙伴关系、支持解决问题的区域合作为核心的印太战略。
-扩大与印太盟国和伙伴在技术、防务和基础设施方面的合作，增加对盟国和伙伴的安全援助，面对日益增长的中共军事能力加强合作。
-提升美国在国际组织和其他多边机构中的领导地位，包括对抗中共国和中国共产党在这些组织中的恶意影响。
+他还提到了呼吸系统。在临床上面他用了雾化治疗防止呼吸道感染，用了哮喘的药。重症病人不能呼吸他用插管的办法代替病人呼吸。用机器代替呼吸就是让机器给压力，让全身的细胞和血管供氧，让神经末梢供氧。通常插管2个星期左右。一旦病人恢复了供氧功能，不需要继续插管。
 
-通过以下方式对抗中共的恶意政治影响和掠夺性经济行为，并激发美国的外交和经济统领能力：
-通过要求美国外国投资委员会，审查某些大学接受的外国赠品和合同，打击中共国和中共的影响力活动。
-针对中共国在西半球掠夺性的主权贷款，授权美国主管向美洲开发银行（Inter-American Development Bank）投票赞成第10次全面增资，解决中共国的知识产权盗窃和补贴问题，优先向致力于打击外国腐败行为的国家提供技术援助。
-通过将开发金融公司的最高负债额提高到1000亿美元，并投资于安全供应链、基础设施建设、数字连接和网络安全伙伴，增强美国的经济统领能力。
+弗莱明博士把最深刻的道理用最简单的语言和文字表达出来。他的医疗方法分享到了全世界。提高免疫系统的办法还有锻炼和食补。通常说你吃什么，你就是什么样。饮食健康加上充足的睡眠可以提高免疫力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09234554/fleming.jpg)
+[节目链接](https://www.gtv.org/video/id=60bea51a8ce6da73c415a9eb)
 
-通过以下方式维护美国的价值观：
-授权广泛的人权和公民社会措施，包括对强制劳动、强制堕胎和绝育，以及新疆的其他虐待行为的制裁，以及（表明）与香港人民、西藏人民和中国公民社会站在一起的措施。
-包括增加国会和美国公众在国际协议和安排方面透明度的重要条款。
-（未完待续）
+* * *
 
-文字整理：
+*编辑、发稿 文锦*
 
-Division C – Strategic Competition Act of 2021
-
-The Strategic Competition Act is a bipartisan effort to enable the United States to effectively confront the challenges posed by the People’s Republic of China (PRC) to our national and economic security. The bill was passed out of SFRC in a nearly unanimous vote (21-1) on April 21, 2021. The bill provides a unified, strategic response that:
-
-Increases U.S. strategic focus on the Indo-Pacific and prioritizes alliances, partnerships, and U.S.
-
-global leadership by:
-
-Advancing an Indo-Pacific strategy centered on strengthening U.S. alliances and partnerships and supporting regional cooperation that solves problems.
-
-Expanding cooperation with Indo-Pacific allies and partners on technology, defense, and infrastructure, increasing security assistance to allies and partners, and fostering enhanced
-
-cooperation in the face of China’s growing military capabilities.
-
-Promoting U.S. leadership within international organizations and other multilateral fora, including to
-
-counter malign PRC and Chinese Communist Party (CCP) influence in those organizations.
-
-Confronts China’s malign political influence and predatory economic practices, and energizes U.S. diplomatic and economic statecraft by:
-
-Countering PRC and CCP influence campaigns by requiring the Committee on Foreign Investment in the United States to review certain foreign gifts and contracts to universities.
-
-Countering China’s predatory sovereign lending in the Western Hemisphere by authorizing the U.S. Governor to the Inter-American Development Bank to vote in favor of a 10th general capital increase. Addressing China’s intellectual property theft and subsidies, and prioritizing technical assistance to countries working to counter foreign corrupt practices.
-
-Bolstering U.S. economic statecraft by increasing the Development Finance Corporation’s maximum liability to $100 billion and investing in supply chain security, infrastructure development, and digital connectivity and cybersecurity partnerships.
-
-Upholds U.S. values by:
-
-Authorizing a broad range of human rights and civil society measures including sanctions for forced labor, forced abortion and sterilization, and other abuses in Xinjiang, and measures to stand with the people of Hong Kong, Tibet, and China’s civil society.
-
-Including critical provisions to increase transparency for Congress and the American public related to international agreements and arrangements.
-
-原文链接：
-
-[https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf](https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf)
-
-0
++1

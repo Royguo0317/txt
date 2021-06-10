@@ -1,41 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【健身健心】为什么说减脂没有局部的
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1311709/)
+## 【热点播报】 贺锦丽辗转万难走访瓜、墨两国
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1311639/)
 
-作者：纽约香草山健身部 周一
+作者：纽约香草山健身部 童谣
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
 
 
 
-有很多想要健身的朋友经常会说我想减手臂，我想减大腿，我想减腰腹等等。首先在你决定减那里之前问自己一个问题，是不是你想让自己胖哪里就胖哪里呢？我想胖胸我想胖臀想胖哪里就胖哪里。如果可以那样每个人都是完美身材了。既然做不到那就不要指望想减哪里就减哪里，七哥说过凡事一定要看是否符合逻辑。
 
-美国运动协会在1971年针对一个网球运动员做过一项报告，他的右手是惯用手，所以他的右手臂的肌肉要相对来说比左手臂发达，但是两个手臂的皮下脂肪含量是相同的。如果按某些网红健身达人的说法这个网球运动员的右手臂脂肪含量要比左手臂低才对，但是事实并不是那样的。
 
-那么这份调查到底可不可信呢？另外一项调查是在2007年对一百个男男女女只对上半身的一侧手臂进行了八周的训练，八周过后这些人手臂的肌肉都有所增加但两个手臂皮下脂肪含量依然是一样的，所以两边并没有任何的差异。那么是不是可以就凭这份调查就是不可以局部燃脂呢？当然不可以。
+6月6日，美国副总统贺锦丽上任后首次出访，前往遭疫情重创的瓜地马拉及墨西哥。但她搭乘的空军二号起飞后半小时出现“技术问题”，为保险起见，专机被迫返回安德鲁联合基地，换乘另一架飞机再度出发。贺锦丽6日抵达瓜地马拉，预计6月8日飞往墨西哥。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10012135/%E5%9B%BE%E7%89%8724-1.png)图片来源：www.highsnobiety.com
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10020539/%E8%A2%AB%E8%BF%AB%E6%8A%98%E8%BF%94.jpg)图片来源：australiannewsreview.com
 
-在2013年的另一份调查对一组男女依然进行的是单边的腿部训练，八周过后没有运动的那条腿的脂肪含量和运动的那条腿的皮下脂肪含量依然是一样。
+报道显示，非法进入美国的无证移民大多来自瓜、墨地区。贺锦丽成为拜登副手以来首次出国访问，目的也是为了解决白宫面临的棘手问题之一，当地移民的根源问题。
 
-所以很多的事实证明减脂不是局部的，你想要一个好的身材除了要有一个健康的饮食习惯还有保持一个良好的运动习惯，让我们的体脂肪保持在一个良好的水平状态你的身材自然就会变得很好。
+一个月前，亚利桑那州总检察长马克‧布洛诺维奇曾要求拜登撤换贺锦丽专责美国南部边境危机的角色，他指责贺锦丽自3月奉命处理非法移民问题以来，从未行动，或提出任何解决方案。美国海关与边境保护局（CBP）表示，4月份，有178,622名试图进入美国的非法移民，比3月的172,000人增加了3%，是该局20年来逮到的最高非法移民人数。面对贺锦丽接受任命以来没有任何政绩，布洛诺维奇不满说道“副总统对视察边境地区发生的情况没有兴趣”。
 
-校对/发稿：飞虹
+此次贺锦丽为了化解舆论压力，顶着疫情危机，瞩目之下，首次出访就被迫折返，引发网络一阵热议。曾经川普的边境墙政策一直是民主党疯狂打击的靶子，如今移民问题迫在眉睫，民主党执政却无计可施。这样的尴尬局面自然会引发各州议员和民众不满。反倒让人提出质疑，这样执政不得力的政府到底是谁选出来的？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
+参考引用：
+
+https://www.ntdtv.com/b5/2021/06/07/a103136719.html
+
+https://www.epochtimes.com/gb/21/5/16/n12953735.htm
+
+编辑/上传：小小安 审核/发布：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 [**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+[**纽约香草山农场Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(****英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+
+
+
+
+
+
 
 0
