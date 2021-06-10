@@ -1,63 +1,183 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆臺新闻】“延安精神” 淫乱史，百姓的精神鸦片
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1311177/)
+## 为天安门和香港点燃一盏蜡烛
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1311337/)
 
-#### 作者:紫橄榄
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09200755/img_5c2734fcc639b-640x1053-1.png) 图片源自网络
-**【媒体观点】**
+**字幕内容：**
 
-央视信息：中共中央宣传部今天（6月9日）举行新闻发布会，陕西省有关负责同志围绕“弘扬延安精神，奋力谱写陕西新时代追赶超越新篇章”主题，介绍陕西的经济社会发展情况。
+Lighting a candle for Tiananmen and HK
+为天安门和香港点燃一盏蜡烛
 
-中共陕西省委书记、省人大常委会主任刘国中介绍，陕西是中华民族和华夏文明的重要发祥地之一，有着光荣的革命历史。陕西全省经济总量由新中国成立之初不足13亿元增长到去年的2.62万亿元，各项事业呈现出新气象新作为。
+For more than 30 years Hongkongers have been using candlelight to teach the Chinese Communist Part that Killing your people is useless and cannot solve any problem
+30多年来，香港人一直在用烛光
+教育中国共产党
+杀戮你的人民是没有用的，不能解决任何问题
 
-陕西坚持在发展中保障和改善民生，全省288万农村贫困人口脱贫，56个贫困县全部摘帽。开启“十四五”新征程，陕西将继续弘扬延安精神，奋力谱写陕西新时代追赶超越新篇章。
+It will only spur even more people to resist
+这只会刺激更多的人进行抵抗
 
-**【笔者评论】**
+Every year on 4 June, thousands in HongKong attend a vigil… to mourn those killed in the 1989 Tiananmen crackdown in Beijing.
+每年6月4日，数以千计的香港人参加守夜活动……
+以悼念在1989年北京天安门镇压中被杀害的人
 
-上述讯息为2021年6月9日中共国央视新闻联播的报道，笔者认为，中共从建立起最擅长骗术与洗脑中国人民，用各种党精神与党文化偷换概念以忽悠华夏百姓，中共的“延安精神”实为一个官廷与宫廷争夺史，以“延安精神”忽悠百姓，强注精神鸦片，而要百姓分得半条被子而感恩＂党妈＂，从下面三点看法概括如下：
+HongKong is one of the very few places in China… where public commemora-tion has been allowed
+香港是中共国极少数
+允许公开纪念的地方之一
 
-**一，“延安精神”官廷争夺史**
+The flame of democracy in China is very visibly being carried tonight by over 50,000 HongKong residents who staged a candlelit vigil to mark the first anniversary of the Peking massacre
+今晚，超过5万名香港居民举行了
+纪念北京大屠杀一周年的烛光晚会
+非常明显地传递了中国的民主之火
 
-“延安精神”从“延安整风运动”开始，说是一次马克思主义思想教育运动，清除了教条主义的影响，实质是毛泽东引入派系的的马克思主义–苏维埃政府赤匪军 从井冈山被国民政府正规军火力追打，从湘江战役全面溃败后，欲通过河本走 河西走廊投向苏联逃窜， 即所谓欺骗中国人民的“万里长征”到延安红色根据地当地苏维埃政府。
+Now this decades-long tradition is under threat
+现在，这个长达数十年的传统正受到威胁
 
-到达延安后，毛泽东派系为了取替当地延边陕甘宁地区的军政袖刘志丹
+This year marks the second time authorities have banned the vigil
+今年是当局第二次禁止守夜活动
 
-受训于广州黄埔军校四期的刘志丹在陕甘宁苏区影响力是无人可取替的。
+They cite Covid concerns, but activists fear it’s more than that
+他们表示是担心新冠病毒的原因
+但活动人士担心的原因不止这些
 
-为了用一个政治正确的整治党风运动先发制对方于死地，毛泽东派系发动“整风肃反”运动，把风暴引向当地苏区政府的领袖刘志丹。刘及手下的几千忠诚处死，或者故意派到前线阵地与国民政府军激战，把他们扔在炮火中“牺牲”，刘志丹就是其中之一。
+China has been cracking down on HongKong dissent and introduced restrictions including a national security law
+中共一直在镇压香港的异议人士
+并出台了包括国家安全法在内的限制措施
 
-1936年4月14日，刘志丹率部下攻打山西中阳县与国民军交战，刘志丹在前线被“阵亡”。
+I am Chow Hang Tung, vice-chairperson of the vigil’s organizer HongKong Al-liance
+我是守夜活动组织者支联会的副主席邹幸彤
 
-毛泽东 假惺惺在瓦窑堡举行追悼大会哀悼刘志丹，题词：“群众领袖，民族英雄”,心中暗暗窃喜夺到中共的党魁宝座当舵手。
+There will be the first 4 June since the national security law was passed
+这将是实施国家安全法以来的第一个6月4日
 
-**二，“延安精神”宫廷夺爱史**
+Many ask if the vigil will disappear
+许多人问，守夜活动是否会消失
 
-“革命圣地”延安， 人间地狱的淫乱共妻生活，《一个革命的幸存者》曾志女士的书中描述延安延安整风运动的细节：“白天走上街头巷尾或深入农村，晚上回来却是又
+But I think we have been persisting for more than 30 years
+但我认为，我们已经坚持了30多年了
 
-唱又闹，疯疯癫癫的。夜间男女也不分，几个人挤在一张床上。”
+It is more or less in HongKong People’s DNA now
+守夜或多或少已经在香港人的基因里了
 
-延安整风运动，中共高官开始了第一轮的换妻潮，《台湾人的长征记录——江西苏区･红军西窜回忆》一书的作者蔡孝干撰写回忆 ，当年中共高层在苏区淫乱的共妻生活。
+I believe we will still see more candlelight on that night
+我相信在那个夜晚，我们仍然会看到更多的烛光
 
-朱鸿召著书《延安日常生活中的历史（1937-1947）》指出，中共在延安时期，权力跟性二者有著密不可分的关系。邓力群趁著李锐在延安整风时挨整之际，趁虚而入，占有了李锐年轻的妻子范元甄。这些都是当时延安流行的一种风气。
+Ms Chow is one of the few leaders left in the alliance
+邹女士是支联会中仅存的几位领导人之一
 
-郑超麟的回忆录《革命与恋爱》，中宣部长彭述之先是与蔡和森的妻子向警予胡搞，又与罗亦农的妻子睡到了一起；向警予死后，蔡和森又夺去了李立三的妻子李一纯， ……
+Many of her fellow activists have been arrested or are in jail
+她的许多活动家同伴已经被逮捕或被关进监狱
 
-中共的乱沦文化始于从欧洲引进马克思共产国际的邪恶思想，百年全部侵吞华夏的传统文化：夫妻忠诚如一，家庭亲情至上的美德。
+Actually I never thought I’d end up becoming the face of the organization, be-cause I’m not used to this position, nor am I really suited for it
+事实上，我从未想过我最终会成为组织的代言人
+因为我不习惯这个职位，也不太适合这个职位
 
-**三，农村贫困的原因**
+But many in our organization have been arrested
+但我们组织中的许多人已经被逮捕
 
-中共用集权专制和二元制度把农村农民的碎片化，农村人口没有任何资格分享国家红利，用驭民一五术让百姓穷困中而不知觉如温井中的青蛙无知无觉，为一日三餐而忙碌奔波，没有自由思想，更不会去思考自己几代人穷困的主因是什么？
+There’s nobody left to speak out any more
+再也没有人敢站出来说话了
 
-而在中共非法统治的一个手腕是隐秘不被贫穷的农村百姓所察觉。每年春节前到门口用送半条被子给百姓，好让百姓感恩戴德称中共为党妈，这就是中共的邪恶–持久战术。
+There’s a gap that has to be filled. So I have to be the one filling it
+有一个缺口必须被填补
+所以我必须是那个填补它的人
 
-**总之，**中共气数百年必尽，中共的喉舌和媒体之所以加大力度的宣传其“延安精神”，“党文化’，”长征大逃亡精神”。他们知道已经到达灭亡之日，全球各国围堵中共于兵临城下，中共必为他们所制造的超限生物大战，让全世界各国与人民付出代价，就是中共的灭亡之时。
+I feel a bit lonely because many of my fellow activists are now behind bars
+我感到有点孤独，因为我的许多活动家伙伴现在都在监狱里
 
-2021年6月9日
+When you want to do any campaign, there’s nobody you can discuss it with, no-body who can work with you
+当你想做任何运动时，没有人可以和你讨论
+没有人可以和你一起工作
 
-免责声明： 本文只代表作者观点， 与 Gnews平台无关。
+But spiritually, I don’t feel I am alone
+但在精神上，我并不觉得自己是孤独的
 
-信息来源：[央网](https://news.cctv.com/2021/06/09/ARTIOqqmRlyb0cJdF4BGuqnT210609.shtml) [BBC](https://www.bbc.com/zhongwen/simp/indepth/2013/12/131217_mao_yuyingshi_iv)
+Hongkongers are still on our side and want to fight for democracy
+香港人仍然站在我们这边
+想要为民主而战
+
+We are all fighting together
+我们都在共同奋斗
+
+There’s still a lot of people supporting us
+仍然有很多人支持我们
+
+End one-party rule! Support democracy in China!
+终结一党统治! 支持民主中国!
+
+The Alliance has been campaigning to “end one-party rule” in China
+支联会一直在为”结束一党统治”的中国而努力
+
+Their opponents say this breaches the national security law which forbids “sub-version”
+他们的反对者说这违反了禁止”颠复”的国家安全法
+
+But the Alliance remains defiant
+但支联会仍然不甘示弱
+
+They’re urging Hongkongers to light candles on 4 June
+他们呼吁香港人在6月4日点亮蜡烛
+
+I will light up a candle in the street
+我将在街上点燃一支蜡烛
+
+Are you going to arrest me for that?
+要为此逮捕我吗？
+
+HongKong allows political expression
+香港允许表达政治观点
+
+Are we letting them use their “red lines” to change our basic principle?
+我们是否允许他们用他们的“红线”来改变我们的基本原则？
+
+Or should we defend it?
+还是应该捍卫它？
+
+With the national security law, it’s become even more meaningful to commemo-rate 4 June
+随着国家安全法的出台，纪念六四变得更加有意义了
+
+Do we dare to come out?
+我们敢站出来吗？
+
+Do we dare to protect the candlelight to Victoria park?
+我们敢保护维多利亚公园的烛光吗？
+
+It reflects Hongkongers’ determination to resist
+它反映了香港人抵抗的决心
+
+As long as we don’t give up, there is still hope that Hongkongers can protect our freedom
+只要我们不放弃，香港人仍有希望保护我们的自由
+
+I am prepared to be arrested.
+我已经准备好被逮捕了
+
+This is how Hong Kong is now
+这就是香港现在的样子
+
+If you fight for democracy under an authoritarian regime, being arrested is un-avoidable
+如果你在一个专制政权下为民主而战，被逮捕是不可避免的
+
+Let it come
+让它来吧
+
+I am willing to pay the price for fighting for democracy
+我愿意为争取民主而付出代价
+
+On the morning of 4 June, 2021, Chow Hang Tung was arrested by Hong Kong police
+2021年6月4日上午，邹幸彤被香港警方逮捕
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: [https://twitter.com/bbcworld/status/1400671426663923712?s=21](https://twitter.com/bbcworld/status/1400671426663923712?s=21)
+
+英听校：康州盘古农场 – Mike Li
+翻译： 康州盘古农场 – Mike Li
+翻译终校：康州盘古农场 -格格巫
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场- 银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

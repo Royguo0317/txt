@@ -1,39 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳大利亚将要推行新冠疫苗接种证书吗？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1311378/)
+## 南京师范的查课和查寝能不能挽救这个伪政权
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1311459/)
 
-撰稿： 喜国公民
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09210525/EADB3780-61ED-45CC-9E2A-ED72198D92A0-edited.jpeg)
-图片来自网络
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09223836/E3ad-TWVoAIPU0B_%E5%89%AF%E6%9C%AC_%E5%89%AF%E6%9C%AC.jpg)
+据[墙国蛙蛤蛤@GFWfrog](https://twitter.com/GFWfrog)于[下午12:25 · 2021年6月9日](https://twitter.com/GFWfrog/status/1402482051148763142)·[Twitter for Android](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——·
 
-据[水星报报道](https://www.themercury.com.au/news/victoria/australians-to-get-covid19-vaccination-certificate/news-story/50b5ae432c05780ae09276fcc168021d?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_AM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=6)，接种过Covid-19疫苗的澳州人将收到一份证书。该证书将通过医疗保险应用程序提供。澳州服务局的官僚们在上周五的参议院听证会上确认，该证书将在几天内推出。
+匿名投稿：南京师范大学中北学院通过查课、查寝等方式确定抗议学生的名单，让各班班长劝回参与抗议的学生，明确表示事件平息后，要对参与抗议的学生进行处分或开除处理。某班长更是『语重心长』地对同班同学说：『看看香港废青最后的下场，这次风波就要步香港后尘』！
 
-这一举措的目的是以帮助激励更多澳州人接种疫苗，为政府和企业对未接种的人实施严厉的规定铺平道路。尽管国家内阁尚未同意，企业可能会寻求使用该证书来拒绝向那些没有接种疫苗的人提供服务。然而，这个新冠疫苗接种证书真的能在澳洲推行吗？
 
-一些州的领导人批评了这一计划。新南威尔士州州长Gladys Berejiklian宣称，澳大利亚的自由流动不应取决于疫苗。一些联邦自由党议员对政府推动澳大利亚人需要疫苗证书才能自由旅行表示担忧。
 
-总理斯科特-莫里森希望接种疫苗的澳州人能够绕过各州的旅行限制。表示，如何使用该证书由各州和地区决定。
+> 匿名投稿：南京师范大学中北学院通过查课、查寝等方式确定抗议学生的名单，让各班班长劝回参与抗议的学生，明确表示事件平息后，要对参与抗议的学生进行处分或开除处理。某班长更是『语重心长』地对同班同学说：『看看香港废青最后的下场，这次风波就要步香港后尘』！ [pic.twitter.com/sl31w3UszC](https://t.co/sl31w3UszC)
+> — 墙国蛙蛤蛤🐸 (@GFWfrog) [June 9, 2021](https://twitter.com/GFWfrog/status/1402482051148763142?ref_src=twsrc%5Etfw)
 
-如果新冠疫苗接种证书是由各州和地区来决定，那么，那些不愿接种疫苗的澳洲人可以选择去那些没有实行新冠疫苗接种证书的州和地区去居住。这要好过中共国的强制性打疫苗，使人没有任何选择。
 
-但是，这会照成不必要的人口流动。给居民带来工作，学习和生活上的不便。
 
-该报道还提供了一个新冠疫苗接种证书的样本。除了接种人的姓名，生日等信息外，还包括证书从什么时候开始生效。由于目前市场上的新冠疫苗都是针对数月前发现的新冠毒株来生产的。如果遇到新冠病毒的变异毒株，还会被感染。
+推文附图为——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09223854/E3ad-TWVoAIPU0B_%E5%89%AF%E6%9C%AC.jpg)
+最擅长组织学生运动和工运的中国共产党已经彻底沦陷，当年大肆宣扬的学生运动和工人运动都是在爱国的大旗之下进行，在爱国大旗号蛊惑之下参与共产党组织的学生运动和工人运动的学生们和工人们在无形之中帮助了中国共产党，于是乎有了中国共产党对中国人民七十年的奴役。
 
-持有新冠疫苗接种证书的澳洲人会认为自己比没有接种新冠疫苗的人能够更安全地不受任何限制地旅游，从而会放松对周边环境的警惕，反而会更容易被变异的新冠病毒感染，并且会更快，更大范围地传染给其他人群。
+在中国共产党七十年奴役之下忍无可忍、退无可退的十四亿中国人民其实早已习惯了逆来顺受，早已习惯了没有自由、没有选票、没有宗教信息自由、没有结社自由和新闻自由的日子，是啊，只有活着比什么都重要，可是在今天想要安全地活着已经不仅仅需要口罩和羟氯喹了，在今天想要安全地活着还要忍受说好的本科变成专科或者变成技校文凭的被强奸，如果你觉得忍不下这口气， 对不起，你已经成了境外势力了，对不起，你已经成了闹事分子了。
 
-解决目前大流行的关键是要彻底查清新冠病毒的来源。如果发现病毒是由实验室制造出来的生化武器，政府就要告诉澳洲人，我们正处在一场生化战争当中。只有铲除了释放病毒的根源，才会阻断新病毒的出现。
+都是学生运动为什么昨是而今非呢？都是学生运动为什么昨日是爱国而今日是闹事儿呢？原因无它，盖因当年未窃据庙堂，所以需要爱国名义下的学生运动来夺取政权，盖因当下已经窃据庙堂，不仅窃据庙堂而且一窃七十载，不仅一窃七十载而且还要世袭罔替、永不退位，只是在它们一手制造和释放的中共病毒的袭扰之下，在喘气已经变得危险的情况下，全人类和这个国家的十四亿人民还能容忍这个反人类集团多长时间呢？
 
-获得2008年诺贝尔医学奖的法国科学家Luc Montagnier教授在接受采访时提到，”大规模接种疫苗是一个非常严重的医学错误，因为变异病毒来自疫苗本身。新冠疫苗接种证书绝不是一个解决问题的好办法。逼迫越来越多的澳洲人打疫苗，只能把澳大利亚推向万劫不复的深渊！
+（文章内容仅代表作者个人观点）
 
-(文章内容仅代表作者观点)
-
-*编辑：cindy*
-
-参考消息：
-
-[https://www.themercury.com.au/news/victoria/australians-to-get-covid19-vaccination-certificate/news-story/50b5ae432c05780ae09276fcc168021d?utm\_source=Mercury&utm\_medium=email&utm\_campaign=Editorial&utm\_content=MERC\_LATESTNEWS\_AM-CUR\_01&net\_sub\_id=287163446&type=curated&position=1&overallPos=6](https://www.themercury.com.au/news/victoria/australians-to-get-covid19-vaccination-certificate/news-story/50b5ae432c05780ae09276fcc168021d?utm_source=Mercury&amp;utm_medium=email&amp;utm_campaign=Editorial&amp;utm_content=MERC_LATESTNEWS_AM-CUR_01&amp;net_sub_id=287163446&amp;type=curated&amp;position=1&amp;overallPos=6)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0

@@ -1,70 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 小红书微博账号疑因在六·四发表敏感言论被封
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1310838/)
+## 美高官乘军机访台，预示着美国政府的积极反共路线
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1310994/)
 
-新闻来源：香港自由新闻（Hong Kong Free Press）| 作者：法新社（AFP）| 发布时间：2021年6月7日
+新闻来源：《华盛顿自由灯塔》The Washington Free Beacon| 作者：Jack McEvoy| 发布时间：2021年6月8日
 
-翻译/简评：Claire| 校对：小小妹|审核：clau | Page：小六月
+翻译/简评：叶知秋（文义）|校对：村民彼得潘|审核：小小妹|Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uMS40cSwE2nrD/images/4738a59f-1920-4e28-8d7e-33d7bb95bcd5.jpg?asset_id=0e321f5c-c293-4e2c-bd28-aaa824634c7f&amp;img_etag=%22a597609ad577e4d8dc72722fa3b7aa09%22&amp;size=1024)](https://spark.adobe.com/page/uMS40cSwE2nrD/images/4738a59f-1920-4e28-8d7e-33d7bb95bcd5.jpg?asset_id=0e321f5c-c293-4e2c-bd28-aaa824634c7f&amp;img_etag=%22a597609ad577e4d8dc72722fa3b7aa09%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/UdOnafg1iQfyx/images/680b997b-bc7e-4d1c-9e77-817cca861ec5.jpg?asset_id=9b848cad-5a72-4115-8e11-dc831606d3f2&amp;img_etag=%2278f00abc7a2b1a5f27a6be9977b530ec%22&amp;size=1024)](https://spark.adobe.com/page/UdOnafg1iQfyx/images/680b997b-bc7e-4d1c-9e77-817cca861ec5.jpg?asset_id=9b848cad-5a72-4115-8e11-dc831606d3f2&amp;img_etag=%2278f00abc7a2b1a5f27a6be9977b530ec%22&amp;size=1024)
 
 **简评：**
 
-6月4日，小红书在微博上发帖称：“大声告诉我，今天的日期是……！”后，被中共封号。在帖子发布四天后，该微博页面仍然无法使用，中国网络监管机构称其在“因违反法律法规而被举报”后被调查。
+据路透社报道，美国参议院两党代表团此次到访台湾，乘坐的是美国空军的C-17运输机，这与以往美国官员乘坐专机访台明显不同。关于为台湾提供疫苗一事，据说中共国方面也曾多次表示愿意向台湾提供疫苗，但台湾政府称对中共疫苗的安全性存在担忧，而且由于台湾的法律限制，也无法进口中共国的疫苗等药品。
 
-中共在六四如临大敌。32年前的6月4日，大批中国学生在北京天安门广场和平表达政治改革诉求，最后遭到军事镇压，伤亡惨重。然而，32年了，中共没有公布事情真相、没有被追究责任，更没有向伤亡的学生们道歉。相反的，每年6月4日，维权人士被消失，所有关于六四的言论都遭到封锁。然而即使有中共的高压统治，真相还是会浮出水面的。网络上传播着大量的六四当天真实的照片和视频；世界各国的维权人士纷纷指责中共的邪恶统治；爆料革命更是把真相传播到世界各地。请战友们不要放弃信念。我相信在未来的某一天，中共会因它的狂妄被制裁，中共会被自己的谎言湮灭。中共欠所有人一个道歉。人心不死，烛光不灭。
+如果中共官员说：“在台湾疫情日益严峻的情况下，中方对美方给予台湾的疫苗援助表示欢迎，也希望台湾人民能够尽快战胜疫情。”用这样有胸怀的外交语言难道不是会给他们的国际形象加分么？这样一来，岂不是也可以缓解一下美国用军机访台这种想反对又无能为力的尴尬局面？当然了，这种情形，也就只能假设一下，因为中共政权的邪恶本质，决定了它们永远说不出这样的话，更做不出这样有人性的事。
 
-爆料革命会还大家一个真相，为真不破！
+毛泽东曾经说过，“一切反动派都是纸老虎”，这句话现在看起来是为已经沦为反动派的共产党自己准备的，它们如今确实已经成为了“纸老虎”，被人家逼到家门口，也只能说几句恐吓的话。可惜了习总加速师的“战狼”外交政策，随着美军步步紧逼，正在逐渐现出原形，估计当美国及其盟国在台海地区军事存在进一步升级之后，中共国的“战狼小粉红”将面临一场生动的反洗脑课程，课后他们会认清，中共政权及其党羽无非一群键盘侠。
+
+此次美国军机访台事件在中共国网络上的发酵预示着中共外强中干的本质正在被墙内老百姓认清，这种认知如果产生蝴蝶效应，对中共政权的威胁将是致命的。
 
 **原文翻译：**
 
-## **购物网站社交媒体因在天安门事件纪念日发帖被中共封号**
+## **中共国谴责美国对台湾提供抗疫物资**
 
-在帖子发布四天后,这款由腾讯和阿里巴巴支持的应用程序的微博页面在周一仍然无法使用，取而代之的是一个通知，称其在“因违反法律法规而被举报”后被撤下。
+[!\[\]()!\[\](https://spark.adobe.com/page/UdOnafg1iQfyx/images/72a63f53-f346-4261-9631-62b157cffe38.jpg?asset_id=e4a322ba-1a4a-4461-8342-346a8314734d&amp;img_etag=%225db1fabaa4999bd3d1bc17dc0de731ad%22&amp;size=1024)](https://spark.adobe.com/page/UdOnafg1iQfyx/images/72a63f53-f346-4261-9631-62b157cffe38.jpg?asset_id=e4a322ba-1a4a-4461-8342-346a8314734d&amp;img_etag=%225db1fabaa4999bd3d1bc17dc0de731ad%22&amp;size=1024)由美国参议员塔米•达克沃思(Tammy Duckworth)（中）、克里斯托弗•孔斯(Christoper Coons)（右二）和丹•沙利文(Dan Sullivan)（右）组成的代表团于2021年6月6日抵达台北松山机场后与台湾外交部长吴钊燮(Joseph Wu)（左二）和美国在台协会(AIT)处长郦英杰(Brent Christensen)（左）比赞合影。（图片: PEI Chen/POOL/法新社拍摄） （PEI Chen/POOL/法新社通过盖蒂图片社）
 
-一款中共国的购物应用程序软件在1989年天安门广场镇压周年纪念日发布帖子后在社交媒体上被屏蔽，因为北京方在这个敏感日期启动审查。
+在美国承诺将为台湾运送数万剂新冠病毒疫苗后，中华人民共和国对美国进行了猛烈的抨击。
 
-6月4日，根据网上流传的截图显示，小红书，一个类似缤趣（Pinterest）的用户分享旅游和购物技巧的平台的微博页面发布了一条帖子，称“大声告诉我，今天的日期是……！”
+美国承诺向台湾捐赠75万剂新冠病毒疫苗，以抗击台湾最近新冠病毒病例递增的趋势，新冠疫情已经造成台湾300余人死亡。参议员丹·沙利文（阿拉斯加共和党）、克里斯·孔斯（特拉华州民主党）和塔米·达克沃思（伊利诺伊州民主党）周日抵达台北后，中国共产党官员表示反对援助。中国外交部发言人汪文斌表示，中共政府“坚决”反对任何援助计划。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uMS40cSwE2nrD/images/8a9de93b-4318-4158-9b98-ac5f52cc5fd0.png?asset_id=8813e2b3-49d1-46cd-9cd8-c8f640bd8c00&amp;img_etag=%22ab28b038f62dc26247c43b01878311fa%22&amp;size=1024)](https://spark.adobe.com/page/uMS40cSwE2nrD/images/8a9de93b-4318-4158-9b98-ac5f52cc5fd0.png?asset_id=8813e2b3-49d1-46cd-9cd8-c8f640bd8c00&amp;img_etag=%22ab28b038f62dc26247c43b01878311fa%22&amp;size=1024)小红书。图片：小红书网站，手机截图
+“我们敦促美方立即停止与台湾开展任何形式的官方往来，慎重处理台湾问题，不向‘台独’分裂势力发出任何错误信号，以免给中美关系和台海和平稳定造成进一步严重损害。”汪文斌在北京举行的新闻发布会上说。
 
-这个日期是镇压32年的纪念日。但不确定该帖子是否暗指天安门事件，因为该公司经常在周五迎来周末的时候发表类似声明。
+作为一个中共国视为非法的分离省份，台湾也得到了其他地区盟友的支持，其中包括来自日本的100多万剂疫苗。
 
-在帖子发布四天后, 这款由腾讯和阿里巴巴支持的应用程序的微博页面在周一仍然无法使用，取而代之的是一个通知，称其在“因违反法律法规而被举报”后被撤下。
+沙利文批评北京对新冠疫情大流行处理不当，阻碍了全球应对病毒的反应。他说，支持台湾和其他地区盟友将有助于阻止病毒的传播，同时也夯实了美国对台湾的承诺。
 
-中共领导层对天安门广场镇压事件高度敏感。
+“尽管全球疫情大流行源自中共国（中国共产党却表现得缺乏透明度和国际合作精神），相比之下，我们美国却致力于以建设性和开放的态度与我们的朋友、盟友和伙伴合作，用有效的疫苗造福我们本国人民以及世界各国人民，以带来治愈和缓解的疗效。” 沙利文在一份声明中表示，“今天，美国参议院两党代表团对台湾的访问再次展示了我们对世界这一关键地区的朋友和合作伙伴持续不变的承诺。”
 
-他们竭尽全力将这场运动从集体记忆中抹去，从历史教科书中删除，并审查有关镇压的在线讨论信息。
-
-1989年6月4日，士兵们进军北京并向居民和学生抗议者开火，镇压了长达数周的呼吁政治变革和遏制官员腐败的示威浪潮。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/uMS40cSwE2nrD/images/efdbc69f-031d-4595-8d45-849aa2e05a36.png?asset_id=99ea9842-382d-411b-9c84-aee5a1f40242&amp;img_etag=%22358b2a32690a2e040de9a00a6f8a8aba%22&amp;size=1024)](https://spark.adobe.com/page/uMS40cSwE2nrD/images/efdbc69f-031d-4595-8d45-849aa2e05a36.png?asset_id=99ea9842-382d-411b-9c84-aee5a1f40242&amp;img_etag=%22358b2a32690a2e040de9a00a6f8a8aba%22&amp;size=1024)镇压之后。照片：HRIC 档案，由盖尔·巴特勒（Gail Butler）和利比·施马茨（Libby Schmalz）提供。
-
-数百人，某些估计有超过1,000 人在镇压中丧生。
-
-今年（2021年），香港当局在香港一年一度的守夜活动被禁止后，逮捕了几名试图为这一日子举行纪念活动的人。
-
-中共国大陆禁止公众纪念6月4日，社交媒体搜索镇压日期也经常被屏蔽。
-
-微信支付和聊天应用程序的用户无法在周年纪念日前后发送蜡烛表情符号，少数讨论镇压问题的人采用了隐晦的双关语和模糊的提法。
-
-小红书没有立即回应法新社的置评请求。
-
-该应用程序拥有庞大的千禧一代的追随者，并得到竞争对手腾讯和阿里巴巴的支持，具有购物功能，允许品牌和网红直接向追随者销售产品。
-
-据另一位投资者天图资本称，这家总部位于上海的公司在2018年获得了包括阿里巴巴和腾讯在内的3亿美元的投资后，其市值超过了30亿美元。
-
-[原文链接](https://hongkongfp.com/2021/06/07/tell-me-loudly-todays-date-is-china-blocks-shopping-apps-social-media-after-post-on-tiananmen-massacre-anniversary/)
+[🔗原文链接](https://freebeacon.com/coronavirus/china-decries-us-covid-aid-to-taiwan/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/uMS40cSwE2nrD/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/uMS40cSwE2nrD/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/UdOnafg1iQfyx/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/UdOnafg1iQfyx/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-0
++1

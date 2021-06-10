@@ -1,148 +1,100 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年06月09日澳喜要闻（每日更新）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1311379/)
+## 《2021年美国创新与竞争法案》涉及中共国部分（1）
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1311442/)
 
-撰稿：GTV澳喜影像视频组、新闻组
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**一、路德社早间时评主要内容：**
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09221803/S-2.jpg)newsable.asianetnews.com
+2021年美国创新与竞争法案
 
-- **美国竟追回了支付给黑客的比特币。**路透社6月7日报道：美国司法部副部长丽萨·莫纳科表示，警方调查人员查获了63.7个比特币，现在价值约为230万美元。这些比特币是上个月美国最大燃油管道公司在遭受黑客攻击后支付的。FBI认为，黑客攻击是由一个名为DarkSide的团伙发动的。这次攻击造成了长达数天的供应中断，导致汽油价格飙升、恐慌性抢购和局部燃料短缺。这则消息公布之后，比特币价格立马下跌到三万美金以下，因为比特币最大的价值之一就在于它的安全性。这则消息不仅验证美国已经具备破解能力，也明确了美国司法系统已经认可破解比特币的合法性，这意味着美国随时可以调查所有利用暗网和比特币作恶的犯罪团伙，中共这些年也利用暗网和比特币做了无数坏事，但是美国绝对不会轻易破解合法交易的比特币。习神从2019年就开始大力推广区块链货币，计划用数字人民币挑战美元霸权，路德社曾解读说，只要美国开发出量子计算机，中共国企图利用数字人民币挑战美元霸权的阴谋就无法得逞。比特币是目前所有数字货币中加密程度最高，破解难度最大的数字货币，但是美国已经具备破解比特币的能力，这是历史性事件。
+目录
+A部分——芯片和开放结构模式（ORAN）5G紧急拨款
+B部分——无止境前沿法
+C部分——2021年战略竞争法
+D分部——国土安全和政府事务委员会条例
+E分部——迎接2021年中共挑战法
+F部分——其他事项
+第一篇——教育和医学研究的竞争力和安全性
+第二篇——司法条例委员会
+第三篇——其他
 
+A部分——芯片和开放结构模式（ORAN）5G紧急拨款
+……
 
-- **拜登顾问在福克斯讨论彻查中共实验室。**WHO顾问梅茨接受福克斯电视台采访时说，他们面临的问题不是WHO，甚至不是福奇，而是中共。中共至今掩盖了大量的事实，包括销毁样本，隐藏纪录，对全世界范围内的中共科学家下达禁令，监禁问问题的中共国记者。中共国越是坚决不让调查就越可疑，我们就越应该深入思考。中共国不愿意接受调查或许是因为他们知道病毒是怎么来的。美国左右两派通过争论或探讨的方式就调查中共病毒真相达成共识，如果中共拒绝接受调查，那美国将会采取行动逼迫中共就范。这才是应对中共病毒应有的态度，真相越辩越明，中共极力掩盖真相的行为反而让美国更加怀疑中共病毒就是来自中共实验室的生物武器。美国主流媒体都开始报道中共病毒问题，要求中共开放实验室，为美国将来向中共追责做舆论铺垫。
+《利用战略联合（USA，Utilizing Strategic Allied）电信法》摘要
 
+在中共国政府的大力补贴下，华为有望成为5G领先的运营及设备提供商，对美国经济和国家安全产生了深远影响。像华为这样的与中国共产党关系密切的中共国有科技公司，给我们的国家安全和全球信息网络的完整性带来了不可接受的风险。
 
-- **Sellin上校说闫博士丈夫三月已经抵达美国。**Sellin上校发推说，闫丽梦博士的丈夫已于今年3月偷偷进入美国。Sellin上校作为高级情报人员，早已知道这些问题的答案，闫博士丈夫Perera进入美国时就已经被军情部门监控，Perera肯定带着任务抵达美国。闫博士一直都不知道此事，她也对Sellin上校获取情报的能力感到震惊。Perera自从三月份抵达美国以来并没有任何投诚美国的行动，他之所以能获得H1B签证肯定是获得美国或香港某个机构的推荐。中共病毒疫情开始后，美国切断了高校从中共国获得资金的渠道，各大院校基本停止招聘人员，所以Perera不可能去美国高校任职。Perera是中共“十面埋伏”中的一招，无论中共使出何种招数都已经被爆料革命所掌握。
+几年来，国会一直在评估如何支撑全球电信设备供应链，以及限制华为在全球的参与范围。这些努力说明了当前的竞争条件如何有利于华为，此外，由于担心缺乏可行的、负担得起的替代品，美国说服外国合作伙伴禁止华为进入其网络的努力陷入停滞。如果不对基于西方的替代产品的开发进行重大投资，华为将成为全球最便宜、最快、最普遍的5G提供商。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09210820/20210609_ABC-scaled.jpg)
-**二、路德社晚间时评主要内容：**
+追加拨款：
 
-- **美国立法应对中共超限战。**美国参议院以68比32通过由民主党发起的一揽子法案《2021年美国创新与竞争法》。其中，《无尽边疆法》授权近两千亿美元用于加强美国前沿技术和基础科学研究，申请该经费的前提是，申请者不与中共国存在任何合作关系。此举将有效阻断中共对美国学术界的渗透。《2021年战略竞争法》则让美国从反恐主义转向反共主义，美国在野政治人物和军事人物以及专业的新闻工作者，都可依法在权力、政治、外交、经济、创新、军事甚至文化层面抗击中共。除上述法案之外还包括其他法案在内的《2021年美国创新与竞争法》，将围绕“揭露中共病毒真相”这一核心目的全面应对中共超限战，把中共从美国生态中彻底剥离出去。美国式的举国体制令中共深感绝望，透过中共社评可知，中共已经认识到美国正在以系统性的立法方式开启依法灭共时代。此外，共和党参议员卢比奥在推特发表声明，称其投下反对票的原因是，认为该法案对中共的打击还不够彻底。
+《利用战略联合（USA）电信法》于2021财年颁布，它在5G竞争中促进了美国的创新，并投资于中共国设备供应商华为（Huawei）和中兴通讯（ZTE）基于西方的替代产品。
 
+《利用战略联合电信法》发挥了美国的优势，利用美国的软件优势，加快开发开放结构模式（称为OpenRAN），允许替代供应商进入特定网络组件的市场，而不必与华为进行端到端的竞争。开放结构模式不仅得到了美国运营商的支持，它还得到了各种规模的美国设备供应商以及一系列非传统供应商和技术公司的支持，为了进一步支持《利用战略联盟电信法》的实施，参议员华纳（Warner）和卢比奥（Rubio）正在提出一项修正案，将提供15亿美元的紧急补充拨款，以实施《利用战略联合电信法》，其中包括：
 
-- **最后是一条简讯。美国即将与台湾进行贸易协定谈判，中共头上再遭重锤击打。此时，无招可出的中共只能在口头上表示反对。**
+为公共无线（设备）供应链创新基金提供15亿美元，以推动向开放式架构、基于软件的无线技术的发展，为美国移动宽带市场的创新性“飞跃”技术提供资金，该基金将由国家电信和信息管理局（NTIA，National Telecommunications and Information Administration）管理，由国家标准与技术研究院（NIST，National Institute of Standards and Technology）、国土安全部（DHS，Department of Homeland Security）以及情报预研预测活动（局）（IARPA，Intelligence Advanced Research Projects Activity）等机构提供投入。
 
+美国国际技术安全与创新基金的5亿美元芯片也将通过该基金对国际信息和通信技术安全和半导体供应链活动的支持，支持《利用战略联合电信法》授权的活动，包括支持开发和采用安全可靠的电信技术、半导体和其他新兴技术。
+（未完待续）
 
-**三、来自香港前沿的报道：**
+文字整理：
 
-- **首季因「永久离港」提强积金有7700宗**
+The United States Innovation and Competition Act of 2021
 
+Division-by-division summary
 
-据大纪元6月8日讯。“国安法”落实后，不少港人倾向移民离开。积金局6月7日公布，今年首季度即1至3月提取强积金的申索总数达6.66万宗，其中以“永久离港”为由的有7700宗，涉及金额达19.31亿港元，较去年同期急升近半。
+Table of Contents
 
-- **林郑被批连累香港遭西方制裁**
+Division A –CHIPS and ORAN 5G Emergency Appropriations ……………..2
 
+Division B – Endless Frontier Act ……………………………………………………………4
 
-据香港01新闻6月8日讯。全国政协常委何柱国昨天在电台节目中批评林郑月娥提出修订的《逃犯条例》是“自把自为”，通俗地说，就是林郑想怎么做就怎么做，令香港和她自己一起被西方发达国家制裁。
+Division C – Strategic Competition Act of 2021. ………………………………….8
 
-**【战友评论】林郑睁开你的眼睛看看：四百多万的市民上街抗议，无辜市民、记者在元朗被大陆白衣人士暴打，流氓黑警肆意妄为，女学生被强奸轮奸，义士被自杀，少女被奸杀，等等等等。林郑，即使你不再担任政府职务，****对****你的制裁也不会消失。正是：跟着共产党走进火葬场。**
+Division D – Homeland Security and Governmental Affairs Committee Provisions…………………………………………………………………………………………………..9
 
-- **港府疑故意隐瞒中共疫苖副作用**
+Division E – Meeting the China Challenge Act of 2021…………………………..10
 
+Division F – Other Matters .. ……………………………………………………………………11
 
-据大纪元6月9日讯。中共疫苗接种已超7亿剂，但至今中共官方未公布任何打疫苗后的死亡个案。香港曾出现一周之内有12人接种中共病毒疫苗后死亡、4名孕妇流产的情况；截至5月30日，累计80宗死亡，23宗流产。6月1日香港政府突然宣布，即日起不再公布专家委员会认为与疫苗无“潜在关联”的死亡个案。外界质疑，此举涉嫌蓄意隐瞒疫苗的严重副作用。
+Title I – Competitiveness and Security for Education and Medical Research……………………………………………………………………………………………………12
 
-- **加拿大为港人申请枫叶卡开通两项新途径**
+Title II – Committee on the Judiciary Provisions……………………………………13
 
+Title III – Miscellaneous…………………………………………………………………………..14
 
-据美国之音6月8日讯。加拿大为香港居民开通两项申请枫叶卡途径，该规定有效期为2021年6月1日至2026年8月31日。据悉，途径A适用于申请前三年在加拿大获得大专及以上学位者，途径B适用于申请前三年在加拿大有至少一年全职工作经验或相当于一年全职工作的半职工作经验者，并在申请前五年，在加拿大获得大专及以上学位。
+……
 
-**四、伪中共国新闻：**
+The Utilizing Strategic Allied (USA) Telecommunications Act Summary
 
-- **中共在新疆控制生育，维吾尔族人少生几百万**
+Heavily subsidized by the Chinese government, Huawei is poised to become the leading commercial provider of 5G, with far-reaching effects for U.S. economic and national security.
 
+With close ties to the Communist Party of China, Chinese state-directed technology companies
 
-据大纪元6月8日讯。根据德国研究员郑国恩的研究报告，这项区域政策可以在20年内减少当地少数民族人口260万至450万人。该报告是第一篇经同行评审、研究中共镇压新疆维吾尔族和其它少数民族，对长期人口数量影响的学术论文。
+like Huawei present unacceptable risks to our national security and to the integrity of global
 
-- **中共网军造谣意大利总理承认病毒来自意大利，意大利领馆回应：完全是谎言**
+information networks.
 
+For several years, Congress has been evaluating how to shore up the global telecommunications
 
-据大纪元6月8日讯。中共军事入门网站等多家媒体近日密集转载一条消息，称意大利总理承认意国疫情早于中共国。这则消息很快被意方否认，意大利驻华使馆官方微博指其内容完全是谎言。
+supply chain and limit the scope of Huawei’s involvement globally. These efforts have illustrated how current terms of competition favor Huawei. Further, U.S. efforts to convince foreign partners to ban Huawei from their networks have stalled amid concerns about a lack of viable, affordable alternatives. Without significant investment in the development of Western-based alternatives, Huawei stands poised to become the cheapest, fastest, most ubiquitous global provider of 5G.
 
-**五、美国新闻：**
+Supplemental Appropriations:
 
-- **美参议院通过抗衡中国的一揽子法案**
+The Utilizing Strategic Allied (USA) Telecommunications Act was enacted in the FY2021 NDAA. It fosters U.S. innovation in the race for 5G and invests in Western-based alternatives to Chinese equipment providers Huawei and ZTE.
 
+The USA Telecom Act plays to American strengths by capitalizing on U.S. software advantages, accelerating development of an open-architecture model (known as OpenRAN) that would allow for alternative vendors to enter the market for specific network components, rather than having to compete with Huawei end-to-end. OpenRAN not only has the support of US carriers, it has the support of US vendors of all sizes, along with a range of non-traditional vendors and technology firms. In order to further support the implementation, Senators Warner and Rubio are proposing an amendment which would provide $1.5 billion in emergency supplemental appropriations to implement the USA Telecom Act, including:
 
-美国之音6月9日报道，美国参议院6月8日通过了耗资大约2500亿美元的《美国创新与竞争法》，通过加大对科技领域的投资来赢得与中国的竞争。参议院多数党领袖舒默说，这项立法将成为美国参议院近期历史上最重要的跨党派成就之一，为美国在今后一个世纪的领导地位奠定基础。美国总统拜登对该法案在参议院获得通过表示赞赏，称美国必须保持其作为地球上最具创新力和生产力的国家的地位。
+$1.5 billion for the Public Wireless Supply Chain Innovation Fund to spur movement towards open-architecture, software-based wireless technologies, funding innovative, ‘leap-ahead’ technologies in the U.S. mobile broadband market. The fund would be managed by the National Telecommunications and Information Administration (NTIA), with input from the NIST, DHS, and IARPA, among others.
 
-**【战友评论】****来自****Eddy****推文的评论****，《战略竞争法案》就是灭共法案！法案里包括病毒真相调查，经济产业脱钩，****2600****多页的内容，每一页都是在中共身上割肉，其中不乏直接捅到脏器的病毒溯源以及在各个层面的彻底脱钩。**
+The $500 million CHIPS for America International Technology Security and Innovation Fund will also support activities authorized in the USA Telecommunications Act, through the Fund’s support of international information and communications technology security and semiconductor supply chain activities, including supporting the development and adoption of secure and trusted telecommunications technologies, semiconductors, and other emerging technologies.
 
-- **美国共和党领袖凯文，麦卡锡要求福奇辞职**
+原文链接：
 
-
-每日电邮澳洲分社6月5日讯，美国共和党领袖凯文·麦卡锡日前公开要求福奇辞职。根据最近的“福奇邮件门”事件，麦卡锡说：“美国人民已经不相信福奇了。”福奇目前还要面对一系列舆论疑问，包括从2014年到2019年间为何向武汉实验室资助了三百四十万美金。
-
-- **彼得.达扎克知道中共病毒来自武汉实验室**
-
-
-每日电邮澳洲分社6月5日讯，彼得·达扎克被认为和他的团队曾竭力隐瞒病毒来自实验室的真相。2020年2月，达扎克联名26位世界顶级科学家，在世界权威医学期刊《柳叶刀》上，发表联名信，抵制“病毒人工制成的阴谋论”，坚称病毒来自自然。但实际上彼得·打扎克的“生态健康联盟”资助了武汉实验室的病毒试验项目。
-
-- **中共军方早在疫情前就开始病毒试验**
-
-
-澳洲电邮6月4日讯，据《名利场》的报道，早在“中共病毒”疫情爆发前几个月，中共军方曾在携带人肺细胞的老鼠身上进行病毒试验。这项研究的23位联合作者中，有11人是中共军方的人。美国国家安全委员会的调查者表示，他们有重要证据，可以表明病毒来自实验室。有消息说，人称“蝙蝠女的中共病毒专家石正丽，在过去三年，已经至少做过两次把“中共病毒”放在人肺老鼠上的实验。但在公开场合，她一直否认病毒来自实验室。
-
-**六、世界其他地区新闻：**
-
-- **G7峰会本周开幕，共同捍卫民主抗衡中共国**
-
-
-据美国之音6月8日讯。本周晚些时候，七国集团领导人将出席在英国举行的年度峰会。这一民主国家俱乐部希望向世界证明，西方能够团结一致捍卫民主价值观，赢得与中共国的竞争。这也是美国总统拜登在赢得大选后的首次海外访问。白宫表示，拜注销席会议凸显出他对恢复美国联盟、重振跨大西洋关系，以及与美国盟友和多边伙伴密切合作以应对全球挑战的承诺。
-
-**七、爆料革命大事记：**
-
-- **六四一周年庆典——闫博士会场内演讲**
-
-
-闫博士对能来参加这次纪念日，表示无比激动。这不仅仅是个纪念日，过去的日子，大家一起并肩，经历了那么多艰辛和磨难，甚至是生死威胁。但是因为有爆料革命的推动，才让CCP以及它的党卫军产生了恐惧，因为我们勇敢地向世界揭露了真相，击碎了他们想称霸全球的阴谋。
-
-闫博士称赞中国人是智慧、勤劳、诚实、可信的，但在中共的描述中，都是反的，甚至他们以我们无法用高素质与西方文明世界相处，而剥夺了我们本应该拥有的民主自由。这一次，我们告诉他们并告诉世界，CCP错了，因为我们即将推翻他们的邪恶政权和马列共产思想，然后用新中国人的形象来告诉世界，我们可以并一定能融入西方的普世价值，并让源远流长的中华文明来丰富这个美好的世界。
-
-闫博士再次告诉世界，这个病毒来自武汉实验室，由CCP以及军方科学家制造，他们伙同全世界的同谋，共同发起虚假信息战，终于，福奇的谎言被邮件揭穿，这些人与CCP一起欺骗世界，杀害人民，掩盖真相。而真相只有一个，那就是中共是这个病毒唯一的生父，因为只有他们拥有这个病毒最原始的骨架，是他们故意释放了病毒，并首先对无辜的武汉人民下手，毋庸置疑。
-
-当爆料革命告诉世界羟氯喹安全且有效的时候，中共及其军队承认，但没有告诉西方。当川普总统试图告诉国民的时候，福奇却用谎言和手段阻止了这一救命良药的推广，眼看着几十万人死去。福奇还对勇士做了什么？我们中国的一位护士在最惨的时期向他求助，并揭露真相，福奇出卖了她，她就这样消失了。
-
-整个疫情过程中，我们看到习一尊一直吹嘘他所谓的胜利，但背后一切的虚假我们早就通过路德社而揭露给大家，多亏了我们一直以来的好朋友，班农先生、比尔·格茨先生、纳瓦罗先生等等，他们都在病毒真相上，不遗余力地奔走，但受到了非常大的阻挠。闫博士说，这些都只是前进路上的很小一部分的困难，她冒着生命危险，放弃家人的安危，受到巨大的诋毁，但值得欣慰的是，一年后的今天，这些进展都是让人觉得付出是值得的，因为西方已经觉醒，知道CCP的邪恶，越来越多的人知道闫博士的话都是真的。但这不够，人们必须知道，这个病毒是来自武汉实验室，来自中共军方，这是我们要继续努力的方向。如果人们不意识到这一切的话，中共手中还有大量其他可怕的病毒，他们还会做什么？
-
-接着，闫博士感谢法治基金和法治社会，她真诚呼吁要让更多的人知道病毒真相，因为全世界就处于一个超限生物战争中，如果我们不加快速度，就不会有明天，不会有下一代，更别提安全了。
-
-最后闫博士说，CCP试图将所有对它们不利的人消失，并毁掉他们的名誉，但它们这次将一败涂地。另外她强调，拒绝疫苗护照，人类需要的是安全的疫苗，但是现在的疫苗应付不了一个生物战争。
-
-- **郭文贵先生6月8日盖特直播摘要。澳喜要闻小组整理**
-
-
-更正路德社关于美国黑客比特币的信息。美国不会黑客拿走比特币，是有掌握比特币的人提前拿情报、拿信息、拿比特币包括交出比特币的密钥进行交换，同时告知「相关机构」，共产党通过比特币在海外犯罪。
-
-查清比特币的去向，就查清了共产党在海外的犯罪组织和情报组织，查清火币、海外虚拟币掩盖的偷税犯罪的金钱组织，就能查冠状病毒和美国的情报机构、共产党在世界的情报机构，包括孔子学院这些学生的身份。火币的钱主要来自广东、上海，最大的汇出行是内蒙古。
-
-郭先生在2018年就说过美国军机会进入台湾，接下来美军在台湾周围迅速部署，航空母舰也会停靠台湾，最后宣布台湾是事实上的主权独立国家。美国如果宣布台湾事实上独立，并派重兵保护，台湾人民就得救了，我希望这一天能到来，我们将为此努力。
-
-- **“COVID-19侦探”追踪：**
-
-
-火来战友发推，舟山蝙蝠病毒ZC45和ZXC21的发现者王长军，和掌握福林酶切位点嵌入技术的姜世勃有直接的合作关系。执行COVID-19非人类灵长类动物实验的单超和中共军方的姜世勃也有直接合作，发现除了ACE2受体以外，AXL受体也能作为COVID-19的受体。
-
-闫博士补充：不仅是姜世勃，新上任的中国科协副主席、解放军将军魏灿也知道COVID-19病毒喜欢结合人类AXL受体。中共和军事科学家们在SARS-CoV-2中“获得”了多少人类靶向功能？！
-
-塞林上校则在2021年5月18日就公布了解放军南方医科大福林酶切位点被人为改变的实锤证据。昨天，塞林上校公布了姜世勃、刘书文与南方医科大具有福林酶切位点插入技术的人员互相联系的推文链接。塞林上校特别感谢“COVID-19侦探”homelessChinese的挖掘，将姜世勃与许志凯联系在一起。塞林上校明确指出姜世勃是在美国工作了近20年的解放军特工，他将其他与解放军有联系的科学家带到美国，有些还在那里，比如杜兰英。跟随爆料革命的战友们都知道，杜兰英是周育森的妻子，周育森是中国军事医学科学院微生物流行病研究所病原分子生物学研究室主任、病原微生物生物安全国家重点实验室病原生物学专业实验室负责人，他在2020年2月就申请了中共病毒疫苗专利——这说明在疫情大流行开始时，周育森就已经研发好病毒疫苗。然而，三个月后，即2020年的5月，周育森以“心脏病”的理由突然死亡。
-
-* * *
-
-感谢新闻摘录，新闻撰稿，配音录制以及视频制作战友们的辛勤付出。
-
-感谢坦克人提供的技术支持。
-
-欢迎明天澳洲晚九点，北京晚六点继续收听观看“澳喜要闻”。
-
-* * *
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
-
+[https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf](https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf)
 
 0

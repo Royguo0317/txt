@@ -1,32 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒疫苗的利润铸就了9个新的制药业亿万富翁
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1311119/)
+## 6月9日美国政要反共推特精选：要求国会对新冠大流行的起因进行全面调查
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1311206/)
 
-阿黎
-
-加拿大独立国会议员兰迪-西里尔今天发推，揭示中共病毒疫苗的利润铸就了9个新的制药业亿万富翁。他在推文中说，是什么推动了（中共病毒）大流行的发生？利润和收益是强大的激励因素，一个由虚无主义者组成的社会很容易成为制造恐惧的受益者的猎物。
+参议员霍利新闻办公室： 在数千页电子邮件的泄露，进一步损害了福奇的信誉和声誉之后，霍利呼吁他辞职，并要求国会对新冠大流行的起因进行全面调查。
 
 
 
-> Covid vaccine profits mint 9 new pharma billionaires – CNN. What drives a pandemic? Profits and ill-gotten gains are powerful incentives and a society of nihilists are easy prey for the fear mongering beneficiaries. [#onpoli](https://twitter.com/hashtag/onpoli?src=hash&amp;ref_src=twsrc%5Etfw) [#cdnpoli](https://twitter.com/hashtag/cdnpoli?src=hash&amp;ref_src=twsrc%5Etfw) [#wearelivingalie](https://twitter.com/hashtag/wearelivingalie?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/SeYltXTbtg](https://t.co/SeYltXTbtg)
-> — Randy Hillier (@randyhillier) [June 9, 2021](https://twitter.com/randyhillier/status/1402622713290690564?ref_src=twsrc%5Etfw)
+> After the release of thousands of pages of emails that have further damaged the credibility and reputation of Fauci, Hawley is calling on him to resign and for a full congressional investigation into the origins of the COVID pandemic. [https://t.co/NQi2NuTBYd](https://t.co/NQi2NuTBYd)
+> — Senator Hawley Press Office (@SenHawleyPress) [June 9, 2021](https://twitter.com/SenHawleyPress/status/1402678526336245767?ref_src=twsrc%5Etfw)
 
 
 
-据伦敦CNN Business5月21日报道，生产中共病毒疫苗的公司股价近日飙升，造就了至少9位新的亿万富翁。
+众议院外交委员会共和党： 领袖麦考尔在福克斯就 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) Covid 掩盖事件说：“我认为所有路都指向武汉实验室那里。我确实认为是有一种说法是意外释放，但除非 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 开放，否则我们可能永远不会知道真相。” 看这里
 
-在新的亿万富翁名单中名列前茅的是莫得纳（Moderna）的首席执行官史蒂夫-班赛尔（Stéphane Bancel）和BioNTech（BNTX）的首席执行官乌格-撒因（Ugur Sahin），中国康希诺生物制品公司的高管和莫得纳公司的早期投资者也成为了纸面上的亿万富翁。
 
-自2020年2月以来，莫得纳的股价上涨了700%以上，而BioNTech飙升了600%。康希诺公司的股价在同一时期内上涨了约440%。
 
-关于中共病毒疫苗对接种者造成的伤害和死亡已有无数报道，主要的伤害包括在体内形成血栓，造成心脏疾病、脑栓塞、肺栓塞，严重者可造成死亡；削弱人体免疫力，包括破坏癌症免疫蛋白，大大增加患癌症几率；孕妇流产、面瘫、失明、耳聋、瘫痪、癫痫、神经系统出血、皮疹和晕厥等，澳大利亚有报道一接种者患上艾滋病。
+> LR [@RepMcCaul](https://twitter.com/RepMcCaul?ref_src=twsrc%5Etfw) with [@FoxNews](https://twitter.com/FoxNews?ref_src=twsrc%5Etfw) on the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)’s Covid cover-up: “I think all roads lead to the Wuhan lab here. I do think there’s an argument that there was an accidental release, but we may never know the truth unless the Chinese Communist Party opens up.”
+>  
+> Watch here⬇️ [pic.twitter.com/ndPiiTRFOy](https://t.co/ndPiiTRFOy)
+> — House Foreign Affairs GOP (@HouseForeignGOP) [June 9, 2021](https://twitter.com/HouseForeignGOP/status/1402694388917194754?ref_src=twsrc%5Etfw)
 
-目前，第一位疫苗接种者已死亡。我们是否可以预期半年或一年后更多的接种者遭遇不幸？会否出现癌症大爆发？诺贝尔获奖者鲁克-蒙塔格涅尔（Luc Montagnier)推测的两年内接种疫苗的人将无法生还是危言耸听吗？
 
-* * *
 
-*编辑、发稿 文锦*
+众议员爱丽丝·斯泰凡尼可： 美国人民应该得到答案。国会必须对新冠的起源展开调查。 （附众议院共和党推特：行政管理和预算局代理局长，拒绝说拜登总统的预算不会资助武汉病毒学研究所。 你们缴纳的税款不该用于资助可能产出新冠的中国实验室。）
 
-+1
+
+
+> The American people deserve answers. Congress MUST launch an investigation into the origin of COVID-19. [https://t.co/bpZiaOwmBZ](https://t.co/bpZiaOwmBZ)
+> — Rep. Elise Stefanik (@RepStefanik) [June 9, 2021](https://twitter.com/RepStefanik/status/1402703178806841344?ref_src=twsrc%5Etfw)
+
+
+
+众议员布里安·斯太尔： 美国不应该直接或间接地资助中国共产党控制的实验室——如武汉病毒学研究所——的功能获得性研究
+
+
+
+> The United States should not be funding—directly or indirectly—gain-of-function research in CCP controlled labs, such as the Wuhan Institute of Virology.
+> — Bryan Steil (@RepBryanSteil) [June 9, 2021](https://twitter.com/RepBryanSteil/status/1402619594641129474?ref_src=twsrc%5Etfw)
+
+
+
+众议员布里安·马斯特： 无论是掩盖新冠肺炎疫情，还是侵犯人权，都必须全方位追究中共国的责任。 （转CNN报道：维吾尔人正被穆斯林国家驱逐出境，这引发了人们对中国影响力不断扩大的担忧）
+
+
+
+> From their COVID cover up to human rights abuse, China must be held accountable on all fronts.[https://t.co/Xj3VZPncVH](https://t.co/Xj3VZPncVH)
+> — Rep. Brian Mast (@RepBrianMast) [June 9, 2021](https://twitter.com/RepBrianMast/status/1402671838258401291?ref_src=twsrc%5Etfw)
+
+
+
+0
