@@ -1,27 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 党首辩论中日本首相首次称台湾为“国家”
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1312023/)
+## 美国防部长奥斯汀下令加强应对中共挑战
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1311842/)
 
-【日本东京方舟农场】 作者：文拓     校对：miumiu law
+作者：休斯顿星光农场写作部 火星
 
-6月9日下午，在日本国会进行的党首辩论过程中，进行到第8分钟时，立宪民主党代表枝野议员首先提到防止疫情扩散政策成功的国家时，提到了台湾，并称之为国家。在随后的总理大臣菅義偉进行回答时，在第11分钟时，也将台湾和澳大利亚，新西兰一起称为实施严格管控的3个国家。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10040050/C23A0E4F-0021-4D5D-B1CE-8AA800C505B3.jpeg)
+6月9日，美国国防部长奥斯汀指示五角大楼，将中共及其军事建设议题列为美国国防政策的首要重点，以加强应对中共构成的挑战。
 
-在本次的讨论中，对台湾的称呼并不是重要的内容，可能被多数媒体忽略，可是被嗅觉敏感的产经新闻发现并进行了报道。[https://news.yahoo.co.jp/articles/79d5d280e171d054bb2d157dbbeb9e52758eb20d](https://news.yahoo.co.jp/articles/79d5d280e171d054bb2d157dbbeb9e52758eb20d)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10025019/%E7%BE%8E%E5%9B%BD%E9%98%B2%E9%83%A8%E9%95%BF.jpeg)图片来自：RFI媒体
 
-日本是一个以细心严谨而闻名世界的国家，政治家的表现更是小心谨慎。在国会这种最高级别的讨论会，而且是全国直播，党首的发言不仅影响自己的政治生命，而且影响到整个政党的前途，他们是不会信口开河的，特别是台湾和中国共产党政府现在如此紧张敏感的政治形势下。所以从这两位日本政治家对台湾的定位，可以窥见日本政府对中态度的微妙转变。
+据报道，美国总统乔·拜登(Joe Biden)今年2月下令五角大楼成立一个特别工作组，奥斯汀的这项指令是这个特别工作组提出的建议的结果。
 
-我们期待日本对中共政府的野蛮和非人道进行更多更明显的表态。
+一位要求不透露姓名的高级国防官员在对媒体做吹风介绍时说：“来自部长的这项指令最终是关于整理好本部内务，并确保它能够应对已阐明的有关中共的优先事项。”
 
-注：本文仅代表作者观点
+美国多名官员表示，奥斯汀发布一项内部指令，要求采取几项对抗中共的措施，但关于这些措施与以往有何不同仅有一些具体细节。
 
-参考资料：
+五角大楼发表声明指出，这些措施旨在加强内部流程及程序，以加强国防部为全体政府做出贡献，以应对来自中共的挑战，这些措施中有部分将维持机密。
 
-1. [https://www.youtube.com/watch?v=qRYbPViht3U](https://www.youtube.com/watch?v=qRYbPViht3U)
-2. [https://news.yahoo.co.jp/articles/79d5d280e171d054bb2d157dbbeb9e52758eb20d](https://news.yahoo.co.jp/articles/79d5d280e171d054bb2d157dbbeb9e52758eb20d)
+这份声明指出，这些措施将改善美国国防部的能力，以”加强我们盟友及伙伴的网络，增强威慑能力，加速发展新的部内运作概念”。
 
+上个月，拜登政府的国防预算要求把大批用于老旧系统的开支转用于军队现代化，以遏阻中共。
 
-0
+信息来源：RFI媒体
+
+[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210609-%E7%BE%8E%E5%9B%BD%E9%98%B2%E9%83%A8%E9%95%BF%E5%A5%A5%E6%96%AF%E6%B1%80%E4%B8%8B%E4%BB%A4%E5%8A%A0%E5%BC%BA%E5%BA%94%E5%AF%B9%E4%B8%AD%E5%9B%BD%E6%8C%91%E6%88%98](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210609-%E7%BE%8E%E5%9B%BD%E9%98%B2%E9%83%A8%E9%95%BF%E5%A5%A5%E6%96%AF%E6%B1%80%E4%B8%8B%E4%BB%A4%E5%8A%A0%E5%BC%BA%E5%BA%94%E5%AF%B9%E4%B8%AD%E5%9B%BD%E6%8C%91%E6%88%98)
+
+编辑：文順      校对：Helen      发稿：文柳
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
+
++1

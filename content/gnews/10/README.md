@@ -1,61 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 羟氯喹和锌的预防方案开始被重视还打疫苗？
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1312305/)
+## 【中国观察】中共国科技公司极端手段监控员工——还是选择躺平吧
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1312344/)
 
-台湾宝岛农场
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10053443/%E6%93%B7%E5%8F%96610-9.jpg)
-[Clare Lopez:研究](https://www.washingtonexaminer.com/news/study-hydroxychloroquine-increase-survival-rate-200-percent)表明，在感染病毒的初期，使用羟氯喹和锌尽早治疗，可以提高存活率将近三倍。
+翻译：文扬
 
-**2020年美国会中专家公开表示羟氯喹被恶意打压**
+校对/编辑：文泓
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10063225/image2-1-1.png)图片来源：CSO Australia
+**译论：**
 
-在去年年底时在美国的议会上，博士理查德·乌索说:羟氯喹(HCQ)的出现会打击制药行业，所以才没有被推广」 。
+在中共国做一名打工者，身份简直卑微到了极点，“互联网生态文化”9-9-6已经压得人透不过气来，现在中共国科技公司又采取高科技监控手段，监控员工工作时的一切隐私，个中细节让人不寒而栗。当然这与中共推崇的警察社会是一脉相承的，深究一下，是中共治下的整个社会都出了大问题。
 
-在WHO否定羟氯喹预防效用的报告中，药的剂量及病人的轻重症情形产生了极大的疑点，需要继续去探讨。
+当前，中共国国际生存空间日趋压缩，与西方社会彻底脱钩只是一个时间问题；国内银行窟窿难补，通货膨胀高企、经济低迷持续。中共还在拼命压榨企业，企业一味盘剥员工，整个社会进入“内卷”循环，科技公司全面监控员工只是社会矛盾爆发前的一个插曲。郭先生指出，中共灭亡前夕的疯狂会带走很多无辜者。为了不至成为中共灭亡时的牺牲品，国内同胞们请尽量选择躺平吧。
 
-从香港出逃到美国、了解本次病毒关键讯息的阎丽梦博士表示，药物使用都有一定的剂量，而不是多吃就会多好，当你多吃了就会有副作用，这是一个正常的道理，但在这份报告中有很大的问题要探讨。此外，羟氯喹是现阶段作为预防用药最佳选择，并非所谓的「神药」。目的在于最小代价的保护生命、身体健康，争取更多时间来了解病毒真相、发现真正的解决方案。 （现阶段、成本最低的、副作用最小的过度方案；疫苗并非最佳防疫方案，带来的危害可能超过病毒本身）
+**译文：**
 
-**关于羟氯喹作为初期治疗方案**
+——中共国科技公司正在采用极端的监控手段，以确保员工保持生产力。
 
-由medRxiv发表观察性研究发现，如果以更高的剂量分发给患有严重疾病的通气患者，抗疟药羟氯喹和锌可以将确诊者存活机率提高近200%。班农Bannon’s War Room直播节目中，也曾采访相关专家，该专家表示早期利用羟氯喹作为治疗方案，存活机率远高于收容于正式医疗院所当中，在感染初期把握时间以羟氯喹为治疗方案，可以降低医疗院所的量能负担，也可以提高确诊者的存活机率。
+——许多中共国员工实行12小时的“朝九晚九，一周工作六天的9-9-6 ”轮班制，而且在“第三只眼”的注视下工作。
 
-**病毒之父佛奇（福奇）打压羟氯喹**
+——来自“第三只眼”的（工作）效率报告细分了员工在每个网站上花费的时间，以及其他数据。
 
-Marjorie Taylor Greene：有多少人因为相信了佛奇(福奇)博士说羟氯喹无用而死。
+在上个工作岗位，32岁的北京人蒋毅（音译）从登录办公室网络的那一刻起，就知道自己被监视了。因为他的前雇主，一家位于中共国首都的中型科技公司，使用监控软件“第三只眼”，将所有员工置于公司的监视之下。
 
-佛奇在疫情初期便在没有提出科学性证据的情形之下，打压羟氯喹的预防效力，并大力推广疫苗。佛奇推动的紧急授权法，让疫苗厂商可以省略许多关键性的必要步骤，让不安全、效力不可信且有巨大副作用的疫苗可以在1年内研发、生产并开始贩卖接种。疫苗研发往往需要耗费数十年时间进行研发、测试，而紧急授权法让疫苗厂商可以省略许多人体测试，在新冠疫苗的实测阶段，并未针对孕妇或幼儿进行相关测试，因此许多孕妇接种后便流产。台湾也有几例接种后流产案例，依照部分研究机构的对外演说，接种新冠疫苗可能导致神经、认知、心血管等后遗症，对青年人的伤害巨大。
+“我当时每天工作12到16个小时写代码。有一天，我的老板来找我，挥舞着一张纸，问我为什么要看两个视频而不完成本职工作，这件事简直让我崩溃，”蒋毅说。
 
-新研究表明：适当剂量的羟氯喹+阿奇霉素治疗可将生存率提高近200%。
+类似于美国使用的一些员工监控软件，如 CloudDesk，该系统监控网络使用情况和空闲时间。但“第三只眼”更进了一步，**除了监控聊天记录，实时****监控每位员工正在查看的内容外，该软件还会在员工查看媒体网站上的视频或****看招聘信息时****向雇主发出****提示**。
 
-**解放军有关羟氯喹及治疗病毒用药专利申请文件**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09150839/1-42.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09151343/2-16.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10044649/%E6%93%B7%E5%8F%96610-7.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10054125/image0-1-10.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09152702/COVID19_AQ.png)
-路德社LUDE Media与阎丽梦博士，早在2020年1月19号对外大力推广羟氯喹加锌，是目前最有效、成本最低、副作用最小的预防方案，在没有对羟氯喹有过敏现象或使用禁忌的人，配合定期定量使用羟氯喹加锌可以达到预防效力，为世界研制真正有效的解决方案争取时间，不可信的疫苗不是最佳的解决方案，并会产生严重的副作用。
+蒋毅说，**每周监控软件都会为雇主生成“（工作）效率报告”。这些报告提供了每个员工所查看内容的精确细分，按网站和应用程序分类。**
 
-但这一切都被中共勾结媒体、国际组织还有部分人士，所恶意打压。
+“这个系统让员工感到害怕。他们知道他们在 12 小时的轮班制中一直在被监视。即使没有生活在恐惧中，9-9-6 的生活已经够悲惨了。” 蒋毅指的是中共国的“互联网公司生态”文化，上班族每周工作 6 天，从上午 9 点到晚上 9 点，每天工作 12 小时。
 
-资料来源:
+他说，他的一些同事甚至觉得系统迫使他们工作“007”天——从零点到零点，一周工作7天的俚语。
 
-[Study shows hydroxychloroquine and zinc treatments increased coronavirus survival rate by almost three times](https://www.washingtonexaminer.com/news/study-hydroxychloroquine-increase-survival-rate-200-percent)
+在该公司的网站上，该系统声称“全能、可控、稳定”，“适应一切颠覆监视手段”。它列出了大约一千个客户，从政府实体到科技公司。
 
-[IT’S WORSE THAN WE THOUGHT! Fauci and Top US Doctors Caught! They CONSPIRED to Disqualify Hydroxychloroquine as COVID Treatment — MILLIONS DEAD AS A RESULT](https://www.thegatewaypundit.com/2021/06/worse-thought-fauci-top-us-doctors-caught-conspired-disquality-hydroxychloroquine-covid-treatment-millions-dead-result/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)[ClareMLopeztwitter](https://twitter.com/ClareMLopez/status/1402771866910089217)
+类似这样奥威尔式监控系统在中共国并不新鲜。2018年，移动监控应用“中端通”被开发出来，用于实时跟踪员工的位置。迄今为止，约有347家公司在使用该应用程序，它可以监测员工在厕所里花了多长时间，以及他们在办公时间内的确切位置。
 
-[mtgreeneetwitter](https://twitter.com/mtgreenee/status/1402685164002721796?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1402685164002721796%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.washingtonexaminer.com%2Fnews%2Fstudy-hydroxychloroquine-increase-survival-rate-200-percent)
+据日经新闻的报道，提供在线监控系统的深信服科技股份有限公司还开发了一种方法，让企业在员工使用公司Wi-Fi时跟踪他们的移动浏览历史和应用使用记录。
 
-着╱文旦
+阿里巴巴、字节跳动、小米和新浪公司是深信服的主要客户，这家公司阻止了中国版Twitter新浪微博的移动应用程序，担心该社交软件影响员工生产力。
 
-编著╱zhong
+这种监控可能很快就会超越对员工行为的监控，而延伸到他们的内心感受。去年11月，香港出版物《中国周刊》的一篇文章写道，佳能中国正在推出一种安全摄像机，只有在员工在每天的脸部扫描中露出笑容时才允许他们进入工作场所。
 
-发布╱little liu
+佳能中共国区副总裁江原泰诚（Ehara Taisei）对《中国周刊》说：“我们希望通过笑脸可以缓解因疫情造成的沉闷气氛。”
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+中国电子科技大学副教授贾凯（音译）质疑人类社会在多大程度上可以由程序管理，他对《日经新闻》说，计算机系统只能捕捉“人类行为的简化版本”。
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+“例如，如果一个员工今天感冒了，程序是否能够检测到这一点，并为该人完成工作提供更多时间？答案是否定的，”贾凯告诉日经新闻。
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+原文链接：
 
-文章审核：zhong
-
-文章发布：Little Liu
+[Chinese tech companies are using ‘Third Eye’ surveillance software to make sure their tech workers are pulling punishing ‘9-9-6’ shifts](https://www.insider.com/chinas-tech-staff-work-punishing-hours-under-extreme-surveillance-2021-6)
+[https://www.insider.com/chinas-tech-staff-work-punishing-hours-under-extreme-surveillance-2021-6](https://www.insider.com/chinas-tech-staff-work-punishing-hours-under-extreme-surveillance-2021-6)
 
 0
