@@ -1,52 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报 — 中共反人类罪篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1315422/)
+## 我们很激昂，却很不真实
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315487/)
 
-- 作者：蚂蚁兄弟
+作者：文护念|校对：文明明|审核：SilverSpurs7|Page：小雨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11143233/0611011.jpg)
+
+近日闹得沸沸扬扬的事件无疑是中共国的学界，上海复旦大学海归博士姜文华手刃剽窃论文成果的党委书记王永珍事件。由于受到生理基础的镜像神经元的影响，对他人的感觉作出镜像一般的反应，俗称“同情心”，由于笔者不清楚海归博士姜文华的生平，所以不做过多的评论，但对此悲剧事件深表同情，借此浅谈一下个人愚见。
+
+处于水深火热的中共国，经济危机、政治危机、病毒危机、道德危机等等错综复杂的因素交错在一起，接下来相似事件很大程度会成为常态，笔者除了无能为力，还是无能为力。但是物有本末，事有终始，冤有头债有主，姜文华此次行为不伤及无辜，没有报复社会，没有自我了断，而是选择了“定点清除”沦为中共卵翼“大学祭酒”的王永珍。相信部分人心中充满晦气，心术不正，稍有想歪，就认为这是非常过瘾，这在医学上叫“鸦片报偿区”，感觉就像看武侠片拔刀相助，觉得很过瘾。我需要阐明我的立场，不鼓励任何暴力，亦不鼓励违法犯罪的事情。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/CZnY0NLemA0hw/images/a51cb696-ed30-4a44-a4ff-cb39bb51bc0a.jpg?asset_id=d3b5ec67-27cb-426f-80ed-ca4928a2cc2b&amp;img_etag=%225b53f87c2b50ea2033e3b9ab94ae9ec3%22&amp;size=2560)](https://spark.adobe.com/page/CZnY0NLemA0hw/images/a51cb696-ed30-4a44-a4ff-cb39bb51bc0a.jpg?asset_id=d3b5ec67-27cb-426f-80ed-ca4928a2cc2b&amp;img_etag=%225b53f87c2b50ea2033e3b9ab94ae9ec3%22&amp;size=1024)上海复旦大学海归博士姜文华
+
+每每在中共国出现惨案，社会出现最高的呼声就是：死刑。这些“吃瓜群众”究竟在愤怒什么呢？是愤怒不愿直视的那部分人性吗？一旦发生我们无法理解的事情，大多数人就下意识地与所谓的“邪恶”划清界限，我们习惯性地认为，作恶之人与我们普通人是两个完全不同的物种，他就是凶手，他该死。 从浅层的理解来分析，相信很多的“吃瓜群众”是无法理解，上海复旦学府的海归博士本可有着前途无量的工作，为何会做出此番举动，自毁前程。
+
+看待一个问题的时候，我们更应该系统地分析。海归博士姜文华如若犯罪，会受到相应的惩罚，这是司法程序；但是他为什么会犯错，如果我们不深入去了解分析，得出有用的结论，那么这是大部分“吃瓜群众”无知的表现，这无疑是“弱肾必恨妻，病脑出言欺。”
+
+我们讨论的重点是关心如何减少类似的悲剧再次发生，而不是在网上传播自己一知半解的无知的愤怒。要认真了解他们的生活方式，尊重他们，保持敬畏之心，如果无法提供建设性的帮助，那么请收起你们无知的激昂。
+
+比起愤怒，我们更需要的是去反思，去寻找根源。活在中共国这样一个没有相对公平的竞争环境，人与人之间没有一个相互尊重的人文环境，那么我们离邪恶到底有多远？我们到底扮演了什么角色?有没有绝对的好人与坏人？我们都受这个中共体制系统的加害，却也加入到这个系统加害每一个人的进程，严格来讲，从某种程度上来讲很多人并不无辜。
+
+面对林林总总的社会暴力循环，唯有摧毁中共这个邪恶的政体，才可有一线生机，重塑适合大家生存的生态坏境与人文环境。如果中共这个“体”不亡，则多方面的社会问题就会层出不穷，墙内诸多事件并不是由于道德危机所导致，恰恰则是这个政体逼着走投无路的群众，冒天下之大不韪做出的非理智行为。深信如若不是感到绝望，但凡窥见一丝希望，许多人也不会做出这样的事情。
+
+邪灵中共只要在地球存在一天，那么我们每一个人都有可能是受害者，亦可能成为无意识的加害者，普通人与罪恶的距离，往往是一念之差。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/CZnY0NLemA0hw/images/cf85d094-e89f-4a44-8737-a9de0dfea229.jpg?asset_id=2d6afedd-c4a2-4d1f-b3ba-a0dc867467c2&amp;img_etag=%22d292bba6b3a258ca3404f8bec1ab95e8%22&amp;size=1024)](https://spark.adobe.com/page/CZnY0NLemA0hw/images/cf85d094-e89f-4a44-8737-a9de0dfea229.jpg?asset_id=2d6afedd-c4a2-4d1f-b3ba-a0dc867467c2&amp;img_etag=%22d292bba6b3a258ca3404f8bec1ab95e8%22&amp;size=1024)
+
+***文章仅代表个人观点***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+[!\[\]()!\[\](https://spark.adobe.com/page/CZnY0NLemA0hw/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/CZnY0NLemA0hw/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-**西班牙2021年6月11日电/西喜社——**
 
-您若想了解全文报导内容，请点击标题链接
 
-**1. [新报告详述中共国维吾尔族穆斯林遭受酷刑的第一手资料](https://www.npr.org/2021/06/10/1005263835/new-report-details-firsthand-accounts-of-torture-from-uyghur-muslims-in-china?t=1623415668129&amp;t=1623438210841)**
-
-10日，美国国家公共广播电台NPR，根据国际特赦组织周四发表的一份新报告，中共政府针对穆斯林少数民族群体的迫害行为构成了反人类罪。该报告详细介绍了中共政府有组织地大规模监禁、酷刑和迫害新疆省人民，包括维吾尔族和哈萨克族。报告还详细介绍了中共国政府广泛的掩盖行为。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135327/unknown-6-2.png)
-
-**2. [中共国的维吾尔人生活在一个 “乌托邦式的地狱环境 “中](https://www.theguardian.com/global-development/2021/jun/10/china-uyghur-xinjiang-dystopian-hellscape-says-amnesty-international-report)**
-
-英国卫报10日报道，国际特赦组织收集的中共国新疆地区侵犯人权的新证据显示，对于数十万遭受大规模拘禁和酷刑的穆斯林来说，新疆已经成为一个 “乌托邦式的地狱景象”。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135437/unknown-7-3.png)
-
-**3.  [美国对维吾尔族种族灭绝的反应](https://www.browndailyherald.com/2021/06/10/harris-22-iqbal-24-american-response-uyghur-genocide/)**
-
-面对维吾尔族人被中共灭绝的危机，美国站出来了，面对全世界大声谴责中共、有针对性的全球联合制裁和对维吾尔难民的直接援助，为应对我们这一代最恶劣的人道主义危机之一，提供了有效的负责任和手段。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135606/unknown-8-2.png)
-
-**4. [中共国的一些“苹果”供应商在招聘启事中说他们不会雇用维吾尔族穆斯林等少数民族](https://www.businessinsider.com/apple-suppliers-china-uyghur-muslims-job-postings-the-information-2021-6)**
-
-据The Information周二报道，中共国的一些“苹果”供应商不接受少数民族求职者，并明确表示边缘化群体的成员不应该申请。
-
-该新闻网站发现，为iPhone、iPad和AirPods生产零部件的公司在网上发布了歧视性的招聘信息，如电路板、iPhone玻璃、数据线和相机镜头。富士康科技是被发现的公司之一，招聘广告写道。“不接受来自西藏或新疆地区的藏族、维吾尔族、回族、彝族、东乡族人”。另一份来自生产iPhone零部件的国泰达明公司的文件写道：”只接受没有饮食限制的少数民族（维吾尔族除外）”。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135713/unknown-9-2.png)
-
-**5. **[**报道称阿联酋、沙特、埃及将维吾尔人驱逐至中共国**](https://www.middleeastmonitor.com/20210609-uae-saudi-egypt-deporting-uyghurs-to-china-report-says/)
-
-据CNN报道，土耳其、阿拉伯联合酋长国、埃及和沙特阿拉伯被列为将维吾尔族穆斯林驱逐到中共国的国家，这些引起了人们对中共日益增长的影响力的担忧。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135823/unknown-10-2.png)
-
-审核：Aries的星；校对：信心满满；发稿：信心的选择
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-+1
+0

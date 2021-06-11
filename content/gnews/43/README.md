@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在中国的大学，警察镇压学生抗议
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1314983/)
+## 纳塔莉·温特斯揭露彼得·打杂客2016年“致命病毒”视频
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1315029/)
 
-中国几所大学的学生抗议学校政策。这些学院正在转型变成职业学校。学生很愤怒，因为他们毕业获得的是大专而不是大本文凭。特警和防爆警察野蛮镇压抗议学生。
+纳塔莉·温特斯6月8日在战斗室评打杂客“致命病毒”视频，说打杂客对来龙去脉心知肚明。彼得·打杂客在2016年2月纽约医药学会举办的大流行病论坛上亲述其在中国的同事们如何制造致命病毒。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
