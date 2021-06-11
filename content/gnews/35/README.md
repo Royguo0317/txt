@@ -1,42 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报-病毒篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1312133/)
+## 欧洲主要国家旅游业重启，游客按规定进入
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1313019/)
 
-- 作者：此生灭共
+美联社6月10日报道：欧盟的大门正向外部世界逐一重新打开，希望能吸引游客，以及他们的钱。
 
+法国国境周三正式重新开放。来自欧洲以外和一些国家的已接种中共病毒疫苗的游客仍将被要求提供不超过72小时或48小时的核酸检测报告。未接种疫苗的儿童将被允许与接种疫苗的成年人一起入境，但年龄超过11岁以上的需要提供核酸检测报告。
 
-***更多真相，请关注******[Gtv、Gnews！](https://gtv.org/)***
+美国人是意大利的第二大外国游客群体，自5月中旬以来一直受到欢迎。然而，他们在抵达后需要自我隔离10天，除非他们乘坐所谓的 “经过核酸检测的航班 “抵达。这意味着乘客在飞行前和飞行后都要接受测试，并且必须填写有关他们的行踪的文件，以便在需要时方便追踪联系人。
 
-**西班牙2021年6月10日电/西喜社——**
+意大利上个月也开始允许来自英国和以色列的游客入境，这意味着他们不再需要一个必要的理由来访问，也不必进行自我隔离，只需要他们出示在抵达前48小时内进行的核酸检测证明。
 
-1.地中海邮轮乘客的 COVID-19 检测呈阳性
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10053955/10A.jpg)
-华盛顿邮报6月9日电，MSC Cruises表示，本周在地中海游轮上进行例行检查时，两名乘客的[冠状病毒](https://www.washingtonpost.com/coronavirus/?itid=lk_inline_manual_2)检测呈阳性。邮轮公司表示，乘客及其随行人员都在西西里岛锡拉库萨离开了船，并于周二“通过受保护的地中海邮轮公司运输”带回家。Biondolillo说，MSC船上的乘客不需要接种疫苗，但他们必须被多次检测。[www.washingtonpost.com](https://www.washingtonpost.com/travel/2021/06/09/msc-cruise-covid-passenger-italy/)
+依靠旅游业的希腊早在4月就开始对美国游客开放，现在来自中国、英国和其他20个国家的游客也被允许进行非必要的旅行。所有的人都必须提供中共病毒疫苗接种证书或核酸检测报告，并在希腊的计划中填写一份旅客定位表。
 
-2.医生担心印度COVID-19变种病毒令人不安的新症状
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10054017/10-B.jpg)
-纽约邮报6月9日电，印度的医生担心，[新型COVID-19变体](https://nypost.com/2021/06/07/as-indias-covid-surge-wanes-families-deal-with-the-devastation/)造成了一些新症状，包括血栓引起的坏疽、听力障碍和严重的胃部不适。曾在七山医院治疗过八名患者的孟买心脏病专家Ganesh Manudhane博士说，他的一些患者已经形成了微血栓，在严重时，这些凝块会导致受影响的组织死亡并出现坏疽。[nypost.com](https://nypost.com/2021/06/09/doctors-fear-alarming-new-symptoms-linked-to-indian-covid-variant/)
+雅典长期以来一直敦促欧盟采取共同的方法，但没有等到一个实现的机会。6月1日，希腊、德国和其他五个集团成员为旅行者推出了中共病毒疫苗证书系统，比7月1日在整个27国集团推出该计划的时间提前了数周。
 
-3.拜登政府表示，接种 COVID-19 疫苗不是在联邦大楼亲自工作的先决条件
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10054051/10C.jpg)
-福克斯6月9日电，拜登政府不要求工作在联邦大楼的雇员接种冠状病毒疫苗，虽然联邦劳动力工作组“强烈”建议员工接种疫苗，但它目前建议疫苗接种状态[不应成为面对面就业的先决条件](https://www.saferfederalworkforce.gov/faq/vaccinations/)。政府还指出，不应要求员工披露其疫苗接种情况。[www.foxnews.com](https://www.foxnews.com/politics/biden-administration-covid-19-vaccination-not-a-precondition-employment)
+周一，西班牙拉开了夏季旅游季节的序幕，欢迎来自美国和大多数国家的已接种中共病毒疫苗的游客，以及能够提供检测结果来证明没有被感染的欧洲游客。
 
-4. 178 名医护人员因拒绝接受 COVID-19 疫苗接种而被休斯顿卫理公会医院系统停职
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10054112/10-D.jpg)
-今日美国6月9日电，休斯顿医院系统的178名工人因拒绝接种新冠疫苗而被停职并面临被解雇，这引发了人们的抗议。休斯顿卫理公会首席执行官 Marc Boom说，178名被停职的工人中有27人已经接种了一剂疫苗，他希望他们能接种第二剂。所有人都将被停职两周，如果未能完全接种疫苗，他们将被解雇。[eu.usatoday.com](https://eu.usatoday.com/story/news/health/2021/06/09/houston-methodist-hospital-workers-refuse-covid-vaccine-get-suspended/7616446002/)
+美国人和其他大多数非欧洲人需要卫生部门出具的官方疫苗证明。西班牙接受那些接种了欧盟批准的四种中共病毒疫苗以及世界卫生组织授权的两种中国中共病毒疫苗的人–只要游客在旅行前至少两周完成了中共病毒疫苗接种。
 
-5.英国记录了 7,540 例 COVID-19 病例，6 例死亡
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10054214/10E-scaled.jpg)
-路透社6月9日电，英国在周三报告了7,540例冠状病毒病例，和6 例新的死亡病例. [www.reutersagency.com](https://www.reutersagency.com/en/media-center/welcome-to-the-new-reuters-com/)
+来自巴西、南非和印度的游客目前被禁止入境，因为那里的感染率很高，未接种疫苗的美国人和其他许多非欧盟国家的人暂时不能来西班牙旅游。
 
-审核：蚂蚁兄弟； 校对：信心满满； 发稿：Nuevo唐人
+但是，对于被认为是低风险的国家，例如来自英国的公民，他们可以在没有任何健康文件的情况下抵达西班牙，这是有豁免的。欧盟公民需要提供中共病毒疫苗接种证明，显示他们最近从中共病毒(COVID-19)中康复的证明，或在抵达后48小时内核酸检测成阴性。
 
-**[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)**
+新闻来源：[美联社](https://apnews.com/article/joe-biden-europe-travel-coronavirus-vaccine-health-83594cbef7ac77a7522210f990a6aeff)
 
+编译：神奇四侠
 
+校对发稿：Ada(马德里）
 
-
-
-+1
+0

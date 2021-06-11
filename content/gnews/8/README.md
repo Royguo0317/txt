@@ -1,55 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 达萨克视频佐证致命冠状病毒由中共研发
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1312477/)
+## 奎伊博士和穆勒教授用科学证据在WSJ再刊文证明病毒来源
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1312844/)
 
-新闻来源：The National Pulse《国家脉动》| 作者：NATALIE WINTERS| 发布时间： 2021年6月8日
-翻译/简评：Ying2064| 校对：clau |审核：小小妹 | Page：小六月
+字幕 & 评论：8 Mile
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10082248/Peter_Dasza_and_Wuhan_Institute_of_Virology.jpg)
+各国科学家继闫博士后，都在继续深挖并在主流媒体上曝光中共病毒来源真相。澳洲媒体也紧跟步伐，对此进行了更为深入的报道。
 
-**简评：**
+加利福尼亚大学名誉教授理查德-穆勒接受澳洲天空电台采访时说，在实验室里科学地改变冠状病毒的性质以优化其影响是 “令人恐惧的”。
 
-《国家脉动》挖出与武汉病毒研究所有合作关系的达萨克在2016年一个讨论“新出现的传染病和下一个大流行病”的论坛上承认其中共国同事开发出了致命的冠状病毒，并描述了病毒制造的细节。
+这番话是在《华尔街日报》发表关于COVID-19的起源报告之后发表的，穆勒教授和奎伊博士是该报告的共同作者。
 
-此视频仅有1分钟左右，但是无疑从多方面印证了爆料革命对新冠病毒情报的准确性。首先，病毒是以蝙蝠冠状病毒为骨架改造的。后期由与达萨克有联系的中共国科学家人工插入S蛋白以观察它们是否能与人体细胞结合。最重要的是，这项研究的目的就是让冠状病毒对人类有致病性，甚至致死。
+（本文纯属个人观点）
 
-随着越来越多的证据表明福奇的国家过敏和传染病研究所与武汉病毒研究所的联系，我们已经确定达萨克的生态健康联盟是福奇为代表的西方科学界向中共实验室输送资金的主要代理机构之一。达萨克亲口描述的病毒制造过程，不仅打脸了病毒自然来源说，同时也佐证这场病毒大流行是中共精心设计的生化武器。我们已经看到，美国和世界科学界与中共蓝金黄勾兑的巨大网络正在一步步被揭开。随着各国国家机构和媒体相继跟进和报道传播真相，我们坚信能够用真实可靠的情报和科学事实来唤醒民众的认知，揭开病毒真相，阻止中共这个邪恶组织继续通过释放病毒达到其政治目的。
+Source:
 
-**原文翻译：**
+[The Science Suggests a Wuhan Lab Leak](https://www.wsj.com/articles/the-science-suggests-a-wuhan-lab-leak-11622995184)
 
-## 达萨克视频描述中共国同事开发致命冠状病毒
+[Scientific report suggests Wuhan lab leak as origin of COVID-19](https://www.skynews.com.au/details/_6258197750001?id=731225)
 
-生态健康联盟主席彼得·达萨克（Peter Daszak）——他与武汉病毒研究所合作进行由福奇博士的国家过敏和传染病研究所资助的研究——在《国家脉动》发掘的一个片段中夸耀他的“中共国同事”对致命的类似非典（SARS）的冠状病毒的操纵。
+*编辑：8 Mile*
 
-达萨克是在2016年一个讨论“新发传染病和下一个大流行病”的论坛上承认了，这似乎与福奇一再否认资助武汉病毒研究所的功能增强研究的说法不一致。
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-在描述他的组织如何对致命的病毒进行排序时，达萨克描述了在病毒中“插入刺突蛋白”以观察它们是否能“与人体细胞结合”的过程是由他“在中共国的同事”进行的。
-
-“那么当你得到一个病毒的序列，并且它看起来像一个已知的讨厌的病原体的亲戚，就像我们对非典病毒所做的那样。我们在蝙蝠身上发现了其他冠状病毒，一大堆，其中一些看起来与非典病毒非常相似。所以我们对刺突蛋白进行了测序：附着在细胞上的蛋白。然后我们……嗯，我没有做这项工作，但我在中共国的同事做了这项工作。你创造个假的颗粒，插入这些病毒的刺突蛋白，看看它们是否与人体细胞结合。在这个过程中的每一步，你都会发现这些病毒越来越容易使人得病。
-
-他补充说：“你最终会发现有一小部分病毒确实看起来是致命的。”
-
-这些评论是在越来越多的证据表明福奇的国家过敏和传染病研究所与武汉病毒研究所有着深厚的财务和人事联系之后发表的——而且达萨克的生态健康联盟是向中共实验室输送资金的主要代理机构之一。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/qX4gB1Z9WUlxl/images/24e80f51-84e1-4650-833f-652a802aa210.png?asset_id=e4d59454-76be-419a-bbd3-b007e10e1f59&amp;img_etag=%229250155df83231d2597b0ffdedc47db4%22&amp;size=1024)](https://spark.adobe.com/page/qX4gB1Z9WUlxl/images/24e80f51-84e1-4650-833f-652a802aa210.png?asset_id=e4d59454-76be-419a-bbd3-b007e10e1f59&amp;img_etag=%229250155df83231d2597b0ffdedc47db4%22&amp;size=1024)
-
-在美国国家过敏和传染病研究所提供的370万美元的资助下发表的十多篇研究论文中，武汉实验室的新发传染病中心主任石正丽与达萨克为共同作者。石正丽在她的简历中表明了有福奇支持的经费。
-
-武汉实验室还曾将美国国家卫生研究院列为其“合作伙伴”之一，但在2021年3月秘密地删除了这一说法。
-
-[原文链接](https://thenationalpulse.com/exclusive/daszak-reveals-chinese-colleagues-manipulating-coronaviruses/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/qX4gB1Z9WUlxl/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/qX4gB1Z9WUlxl/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0

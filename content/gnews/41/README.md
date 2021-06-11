@@ -1,67 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【币圈】-数字货币动态- 2021.06.10
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1312237/)
+## 《2021年美国创新与竞争法案》涉及中共国部分（5）
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1313009/)
 
-*喜马拉雅华盛顿DC 编辑：aQ*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10050530/610-1.jpg)
-## **每日一问**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-*“币圈一日，人间一年”，如何淡定应对？*
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10140426/c-4.jpg)wallpapercave.com
+F部分——其他事项
 
-## **喜马拉雅Coin要闻**
+第一篇——教育和医学研究的竞争力和安全性
 
-- 至今仍未通过KYC的配额战友，请尽快联系农场跟进联盟代持事宜，以备不时之需。
+F部分的第一篇旨在为我国的K-12学校和高等教育机构提供资源和支持，帮助他们教育我们的学生，帮助我国提高竞争力，适应不断变化的全球经济。
 
+……
 
-## **新闻动态**
+孔子学院
 
-1. 比特币矿工Poolin将萨尔瓦多采用比特币作为法定货币的消息永远地刻在了区块链上，因为矿池Poolin在区块686,938上添加了一个报纸头条。区块链探索者服务Blockchair的数据显示，第686,938块上有 “asamblea aprueba la ley bitcoin（议会批准比特币法）” –这是萨尔瓦多日报《萨尔瓦多日报》星期三的头版标题。Poolin是按哈希率计算的第三大比特币矿池，负责开采包含该信息的交易区块。
-2. 目前在微博中搜索“币安”、“binance”、“欧易”、“OKEx”、“火币”及“huobi”等关键词已不显示结果。微博页面显示”根据相关法律法规和政策，搜索结果未予显示“。
-3. Cryptoglobe消息，自上月比特币价格跌破4万美元大关以来，比特币巨鲸一直在购买比特币，到目前为止已经积累了近20亿美元。
-4. 路透社消息，业内消息人士称，Kraken、Bitfinex、KuCoin等交易所或准备进军印度，业界估计印度有1500万加密货币投资者。业内消息人士表示，这些公司已经开始谈判以更好地了解印度市场和切入点。
-5. Fetch.ai的首席执行官Humayun Sheikh周三宣布，人工智能研究实验室Fetch.ai与区块链网络Iota达成数据共享物联网伙伴关系。这次合作的基本目标是为联网设备实现 “受控数据共享环境”，为物联网（IoT）能力的广泛飞跃创造条件。
-6. 致力于孵化Solana项目的区块链开发工作室Solana Labs周三宣布，它已经通过私人代币销售筹集了3.1415亿美元，这是今年最大的私人销售之一。这笔资金将用于启动现有和即将推出的在Solana上的去中心化应用和平台。它还将用于建立一个专门针对Solana网络的风险投资部门和交易柜台。
-7. Cointelegraph消息，区块链基础设施公司Blockdaemon进行2800万美元的A轮融资。这笔资金由Greenspring Associates领投，包括加密货币贷款公司BlockFi和加密资产经纪人Voyager Digital Ltd的参与，其中高盛投资500万美元。
-8. Blocktempo消息，在昨日宣布发行债券后，MicroStrategy 今天又宣布将总额增至 5 亿美元。业内知情人士透露，MicroStrategy 目前已收到来自有兴趣的机构投资人总额多达 16 亿美元的要求。
-9. 推行比特币ETF的巴西 Nubank银行在近日的第八轮融资中，获得股神巴菲特的5亿美元投资。
-10. 加密货币交易所Kraken周二宣告将启用首创的平行链拍卖平台（Parachain Auction Platform），使客户能够直接从该交易所参与拍卖。新平台允许用户透过质押Kusama的KSM代币以争夺波卡的平行链插槽，并获得收到空投或其他奖励的机会。受到Kraken消息影響，KSM价格随之飆升。
-11. 投资公司Victory Capital Management在周三的公告宣布，它将成为基于纳斯达克加密货币指数（NCI）的 “私募基金和其他工具 “的独家赞助商，该指数由纳斯达克和巴西加密货币资产管理公司Hashdex开发。该公司表示，它计划为合格投资者推出追踪NCI的私募基金，以及追踪纳斯达克比特币参考价格指数和纳斯达克以太坊价格指数的私募基金。
-12. Cointelegraph消息，社交软件LINE将提供一个NFT市场，允许在公司虚拟货币钱包Line Bitmax Wallet内进行NFT（非同质化代币）交易。同时，LINE将与doublejump.tokyo合作扩展该业务。
-13. Pagesix消息，迈阿密第一个接受加密货币支付的夜店E11 EVEN在比特币2021大会期间赚取了价值六位数的比特币。据悉，上周六说唱歌手G-Eazy在E11 EVEN进行表演，观众包括Twitter的JackDorsey和Snapchat的Evan Spiegel等。
-14. Chia创始人Bram Cohen发推文称，Chia团队在研究新标准池协议，该协议不仅允许用户随时在池之间跳转，而且可以防止欺诈。
-15. U.Today消息，萨尔瓦多投票并正式通过了使比特币成为法定货币的法案。该法令将在官方公报上公布后90天内生效。
-16. Livebitcoinnews消息，挪威财政部长JanToreSanner最近透露，由于价格不断波动，比特币还不会成为支付货币。他还表示，如果BTC的波动性能在未来消失，它将真正帮助加密货币成为主流合法资产。
-17. CoinDesk消息，巴拉圭国会议员Carlos Rejala计划提出一项新法案来吸引国际矿业公司和其他加密企业。该项目旨在将巴拉圭定位为拉丁美洲的加密中心，并为该地区其他国家树立榜样。如果该法案获得批准，他将寻求提出第二个法案，以促进使用比特币作为法定货币。
-18. CoinDesk消息，美国商品期货交易委员会（CFTC）专员Dan Berkovitz表示，未经许可的DeFi市场在美国可能是非法的。
-19. Cointelegraph消息，以太坊创始人V神最近在Lex Fridman的播客上透露，他在2016年对狗狗币的25000美元投资中获利超过400万美元，并全部捐赠给慈善机构。
-20. Dfinity创始人Dominic Williams抨击了Polkadot和Ethereum提出的扩展解决方案，认为其提供了一种脱节的用户体验。他断言，这将使太坊用户带来摩擦点暴露在对手方的安全漏洞之下，他强调以太坊超过一半的节点是由亚马逊网络服务托管的。
-21. Coinbase首席安全官Philip Martin周二在Twitter上解释了该公司参与或没有参与司法部对比特币的扣押令的情况，并驳斥了Coinbase参与了与最近Colonial Pipeline勒索软件攻击有关的任何加密货币资产扣押的说法。
-22. 星期日泰晤士报报道，总部位于英国的基金经理Ruffer清空了其6亿美元的比特币以及DOGE等代币。该基金为富有的客户和慈善机构管理着大约340亿美元的资金，在2020年12月开始出售其加密货币藏品到最近清空所有比特币头寸，他从销售中获得了11亿美元的利润，或为该基金带来了83%的回报。
-23. 据Glassnode Insights的一份报告，以美元计算的以太坊转账量在两周内下降了60%。DeFi交易量和交易数量本月有所下降，交易费用自1月1日以来首次回到5美元以下。以太坊DeFi活动已放缓至2020年的水平。
-24. Glassnode数据显示，6月8日流入交易所的BTC数量为65,910枚，价值约22.2亿美元，流出交易所的BTC数量为95,812枚，价值约32.3亿美元。总计净流出29,902枚BTC，数量创2019年11月以来新高，价值约10.1亿美元。
-25. Crypto Quant数据显示，昨日Coinbase流出395903ETH（约合9.67亿美元）。对此，Crypto Quant首席执行官Ki Young Ju表示，这是一个非常罕见的看涨信号，可能是机构投资者的场外交易。
-26. 全球币价网站CoinGecko 在6月8日数据显示，加密货币市场一片飘红，比特币一度下跌至30000美元关口。金融科技砖家苏筱芮认为，比特币等加密货币价格上涨主要来源于共识机制，而共识机制下产生的底层信用薄弱等问题却无法得到解决。多数玩家将参与加密货币投资作为一种高度投机性行为，对于比特币本身安全性的质疑便很容易引发崩盘。
-27. 据官方公告，为积极响应和配合中国政府监管要求，RRMine平台已于2021年5月22日率先停止BTC算力销售。6月8日全部停止BTC算力的相关服务。
-28. CoinDesk消息，昨日美国参议院通过了“Endless Frontier Act”，这是一项两党法案，旨在通过创建一个以区块链为主要焦点的新技术理事会来应对中国最近在技术领域的野心。
-29. 据网信中国官方微信公众号消息，国家网信办组织召开2021年国家打击治理跨境赌博网络工作组专题会议，会议强调全力推动打击治理工作取得更大成效，加大对区块链平台及衍生平台应用的监测力度。
-30. Coindesk消息，美国纽约参议院通过禁止向新PoW矿场供电的法案。
-31. Coinquora.com消息，在萨尔瓦多批准比特币成为法定货币后，巴拿马国会议员Gabriel Silva也表示他正在制定一项提案，以将比特币和其他加密货币纳入该国法定货币范围。
-32. Cryptoglobe消息，自从萨尔瓦多总统上周六（6月5日）在迈阿密举行的2021年比特币会议上宣布他将让比特币成为该国的法定货币以来，其他七个拉丁美洲国家的政界人士表示他们也对比特币感兴趣。
-33. Cointelegram消息，伊朗总统鲁哈尼呼吁建立加密货币交易法律框架。在周二的内阁经济协调委员会会议上，鲁哈尼强调了加密货币活动合法化的必要性，以维护和保护国家利益。他还澄清说，在夏末之前，加密货币挖矿仍然是被禁止的。
-34. Decrypt消息，六名加密货币所有者对Coinbase提起了集体诉讼，声称该公司错误地将他们的账户锁定长达数月之久，并寻求超过500万美元的赔偿。
-35. 卫星新闻消息，俄罗斯外交部长表示，加密货币将在国际结算中占据重要地位的时刻会“不可避免地”到来。
-36. 链闻消息，新疆昌吉回族自治州发展和改革委员会发布“关于立即对虚拟货币挖矿行为企业进行停产整顿的通知”，要求新疆准东开发区管委会立即责令从事虚拟货币挖矿的企业须于6月9日14时前全部停产整顿，并将相关停产整顿情况报至发改委。
-37. Moskovski Capital的CIO Lex Moskovski发推称，glassnode图表显示，4965枚比特币在最近一天从矿工钱包中取出。
-38. Gleaner消息，美国石油管道公司Colonial Pipeline的首席执行官(Joseph Blount)示，鉴于该公司在燃料运输中的关键作用，以及管道长期关闭可能导致“混乱”，他决定向黑客支付赎金。但这是一生中不得不做出的最艰难的决定之一。
+一些高校与孔子学院保持着合作关系，其中包括计划由该机构和中共国政府共同控制的项目，孔子学院有时也引发两党对学术自由和言论的担忧。近年来，对孔子学院采取了多种限制措施，全国孔子学院数量从常设调查小组委员会2019年2月报告的110所高峰下降到不足50所。
 
+制定与孔子学院有关的新的透明度要求和保护。这项法案将要求美国教育部与美国国家科学院、工程院和医学院合作，对孔子学院进行审查，以确保它们保护学术自由，或者要求各机构公开发布与孔子学院的协议，不遵守规定的院校将无法获得1965年《高等教育法》（20 U.S.C.1001等）规定的联邦补助金，但《高等教育法》第四章规定的联邦学生补助金除外。
 
+……
 
+（该法案涉及中共国部分完）
 
+文字整理：
 
+Division F – Other Matters
 
-*编辑：aQ
-发布：文顾*
+Title I – Competitiveness and Security for Education and Medical Research
+
+Title I of the Division F seeks to provide resources and supports to our nation’s K12 schools and
+
+institutions of higher education as they work to educate our students and help our nation become
+
+more competitive and meet the changing global economy.
+
+……
+
+Confucius Institutes
+
+Some colleges and universities have maintained partnerships with Confucius Institutes, which are
+
+programs that are intended to be jointly controlled by the institution and the Chinese government.
+
+Confucius Institutes have at times raised bipartisan concerns about academic freedom and expression.
+
+A variety of restrictions have been adopted on Confucius Institutes in recent years, and the number of Confucius Institutes has dropped to less than 50 nationwide, down from a peak of 110 as reported in a February 2019 report by the Permanent Subcommittee on Investigations.
+
+ Create new transparency requirements and protections related to Confucius Institutes. This bill would require the U.S. Department of Education, in collaboration with the National Academies of Science, Engineering, and Medicine, to review Confucius Institute to ensure they protect academic freedom, or for institutions to post their agreements with Confucius Institutes publicly. Institutions that fail to comply would lose access to federal grants provided under the Higher Education Act of 1965 (20 U.S.C. 1001 et seq.), except for Federal student aid under title IV of the HEA.
+
+……
+
+原文链接：
+
+[https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf](https://www.democrats.senate.gov/imo/media/doc/USICA%20Summary%205.18.21.pdf)
 
 0
