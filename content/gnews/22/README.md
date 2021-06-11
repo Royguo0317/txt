@@ -1,24 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年6月10日灭共要闻
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1314855/)
+## 在中国的大学，警察镇压学生抗议
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1314983/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11104122/iShot2021-06-11-22.36.05.jpg)
-**[播放视频](https://gtv.org/video/id=60c367308ce6da73c419186d)**
+中国几所大学的学生抗议学校政策。这些学院正在转型变成职业学校。学生很愤怒，因为他们毕业获得的是大专而不是大本文凭。特警和防爆警察野蛮镇压抗议学生。
 
-主要内容：
-
-美国议员乘军机访台湾！ 外交部：坚决反对，提出严正交涉！
-
-蓬佩奥：应该成立一个机构或调查组，调查中共是否故意投放病毒！
-
-疫情重灾区广州荔湾区鹤园小区，大量居民被拉走隔离
-
-广州领导视察疫区，大量群众呼喊“饿了几天”。
-
-中国复旦大学杀人案爆出内幕：党委书记剽窃论文利用职权迫害！
-
-**By**：【秘翻组**–**上天造灭疫组】
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0

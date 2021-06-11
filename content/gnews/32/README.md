@@ -1,258 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快报】众议员盖茨就举报人闫博士及COVID的来历质询FBI局长 2021.06.11
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1314731/)
+## 【战云长天时评62期—锐观察】美FBI局长就阻拦闫博士报告在国会接受听证
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1314833/)
 
-** ****作者：**映兰轩
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11095632/611-2.png)
+作者：喜马拉雅东京樱花团｜捆绑CCP一千年
+![](https://lh3.googleusercontent.com/FU6ZA9ZQUAkM2FMRKvaebYzHQkYNb5Ktzlbo7x4JXwupGqHHXpO4XTR2DMNB3ASSNd_AuBDzG7JM53yFfMxAaMHoz6SAAn1jZ5HvjohE8XcKiyOGWS0P4H6afAkljAgDlNeJYcic)
+美国时间6月10日，郭文贵先生在其盖特账号发布视讯称，在美国的国会山，由国会议员发动的听证会，即要求FBI局长（克里斯托弗**·**雷）掩盖闫丽梦博士爆料真相作证。“最重要的就是回答对科学家闫丽梦博士当时在洛杉矶被国土安全部如何威胁搜身？闫博士差点死在机场，最后被追到纽约下榻的公寓，砸她的门。后来闫博士和班农先生面对FBI的律师面谈四天。班农先生睡地板。FBI说要两年调查这个案子。”最后我们（爆料革命和班农先生）采取独立行动，直接上媒体。（见《郭》）
 
+随着班农、郭文贵先生等人在媒体的推动下，使得闫博士2020年4月28日冒着生命危险来到美国爆料，遭遇美国FBI无礼对待，如今，美国还可以还闫博士一个尊严，闫博士爆料的起因终于水落石出。由于事情重大，这可能事关拜登政府不作为和还前总统川普一个清白——他的FBI局长被中共蓝金黄了（收买了）。人们不禁要问，美国潜伏的力量还有多少是隐藏的？前司法部长巴尔什么时候被过堂？相信这些真相被曝光的速度会势如破竹。早在2020年10月5日 ，唐纳德**·**川普总统就打算除名克里斯托弗·雷，他说，如果再赢得四年的胜利，他还有一件重要事情要做，就是“抛弃他的联邦调查局局长克里斯托弗·雷”，因他私下里和其亲信称雷为“深层政府”的工具。在通俄门事件中，川普盟友众议员道格柯林斯（共和党）称雷为‘同谋’并要求他的辞职。”福克斯商业明星和川普的知己卢·道布斯也抨击雷，将雷描绘成一些邪恶的‘奥巴马门’掩盖事件的领导者” （见《每日野兽》），由此可见，川普称雷为“深层政府”的工具意义深远，这直接指认雷就是那个充当CCP潜伏在美国的工具之一。这件事可见非同小可，这甚至可以理解为川普败选的帮凶。雷和司法部长巴尔自从当了CCP的走狗后，可谓隐藏的很深，并公开发表反共言论，背地里出卖美国。这叫小骂大帮忙，和中共的伪民运们如出一辙。由此以来，FBI对闫博士无理阻拦一事可见一斑。
 
-# ***今日摘要***
+这就不难理解，“闫丽梦博士的三份报告给了FBI之后， 他们并没有报告给川普总统，也没交给白宫，更没有交给司法部，也没有交给国会。如果交给国会，美国不至于死那么多人。世界也不至于死那么多人。”郭文贵先生所言不虚。更令人震惊的是，“当时，闫博士的先生也来到了美国，FBI、国土安全部没有采取任何行动。爆料革命明确指出他是重要病毒学家。据说，他拿到工作签证来美国，居然和FBI合作，目的是要诋毁闫博士，说科学家没有资格讲病毒，科学家说的都是假话，是郭文贵和班农设计的骗局。”郭先生所言，爆料革命人都懂的。“说突然间。科学家的先生来到美国。”这就是为什么早在5月中旬左右， 塞林博士（ Dr. Lawrence Sellin ）突然在其 Twitter 上爆出闫丽梦博士的先生佩雷拉阿拉克奇热·普拉萨德·马亨德拉博士（简称：佩雷拉）来美国的消息。正如路德社所言，这当然不是打草惊蛇，一定是全数掌控才会有这个曝光的行动。“我们知道整个事件真相，我们是整个事件的行动者。”郭先生不仅语出惊人，并且惊人地给出佩雷拉博士的行踪路线图，郭先生说，你问问佩雷拉，“去深圳、去北京、去武汉、去山西；回斯里兰卡（去这些地方）都见了谁？到迪拜见谁了？”虽然这些路线图尚未解密，但爆料革命人士心知肚明。此人应直接被CCP高层任命为解决超限科学误导的关键人物，并在可能的情况下，灭爆、灭郭、暗杀闫博士等。这就是世界上数一数二、举足轻重的毒王之一，可以自由出入美国等地，美 “FBI、国土安全部，你们不查闫丽梦博士报告里的问题，却调查爆料革命爆料人。” 这些“美奸”是典型的中共思维，不解决问题，专解决提出问题的人。郭先生的爆料再次证明了川普说。雷，一个中共的工具，FBI在雷的领导下，在作风上像极了CCP。
 
-1. **[众议员盖茨就关于举报人闫博士及COVID的来历质询FBI局长](https://thenationalpulse.com/breaking/watch-rep-gaetz-grills-fbi-director-on-dr-yan-whistleblower-covid-origins/)**
-2. [**澳大利亚和日本联手追究北京的经济霸凌行为的责任**](https://hongkongfp.com/2021/06/04/in-pictures-hong-kong-students-stage-annual-tiananmen-massacre-monument-event-amid-vigil-ban/)
-3. [**新的证据证实羟氯喹和阿奇霉素将COVID-19患者的存活率提高了200%**](https://www.zerohedge.com/covid-19/hydroxychloroquine-azithromycin-boosted-survival-ventilated-covid-19-patients-200-new?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
-4. **[TikTok全球行动负责人是前中共外交官](https://thenationalpulse.com/breaking/tiktok-global-ops-chief-is-former-ccp-diplomat/)**
-5. [**全球最大肉类供应商JBS向勒索软件黑客支付1100万美元的比特币**](https://www.thegatewaypundit.com/2021/06/jbs-worlds-largest-meat-supplier-paid-11-million-bitcoin-ransomware-hackers/)
+笔者认为，发起这次听证会的Matt Gaetz议员是一次勇敢的行动，他搅动了川普没敢动的鳄鱼、搅动了拜登政府的沉默力量。这次G7峰会领导人都对病毒溯源呼声达成一致，这次行动非同一般。议员说，主席先生，关于COVID19起源问题一直被掩盖，比如，我们看到福奇的邮件，今天七国集团G7峰会呼吁重新调查 COVID19病毒起源。还有拜登政府也在不遗余力打压对COVID19起源问题的调查。我想搞清楚，FBI在CPVID19起源问题上的立场。”（见《国会》）很显然，雷领导的FBI在 COVID19起源问题上所持的是中共的立场——掩盖真相。
 
+为此，该议员介绍说，“2020年4月8日，闫丽梦博士抵达洛杉矶机场。当时有一位联邦调查局（FBI）探员跟她进行了面谈，闫博士随后飞往纽约。而FBI探员从洛杉矶出发，跟随她前往纽约。并且该探员在2020年5月1日和2日与闫博士在纽约进行了两次面谈。FBI拿走了闫博士手机”。这些叙述和路德社、闫博士反复描述的一致。特别是提到闫博士手机，Matt Gaetz 议员 接着说：“那部手机里有闫博士和CDC北京疾控中心主任微信对话的证据。这些对话证据可追索到2019年12月。对话内容是关于中共军方参与病毒的研发过程。尤其是病毒与武汉病毒所之间具体联系。雷局长，你是什么时候获知你的探员与闫博士有接触的？你是什么时候审阅了那些微信信息？”（见《国会》）议员直接发问雷局长，你什么时候知道你的探员和闫博士接触并审阅了闫博士文件的？这等于若正面回答就意味着证明他自己渎职。
+![](https://lh3.googleusercontent.com/YVgZmgkdIZ0Nl_u149uFw72AvQYjSpUNIjabv8M5y1H0YrTWlUorAX5tCtrWrxNIjIQ0xWYVtVx0PGBSzKWW3Ys3XQtguMLa3PnMYgtI92rwrsSqcFVuNpFw3QhGYyDbetRjTuJK)
+FBI局长雷说，我不知道我是否适合在这个场合提及任何具体细节的调查？“但有两件事我可以说的。一，我认为你和委员会都知道，我一直在大声疾呼，并且我愿意继续对敌对国的反情报威胁发表我的意见。这些形式多样的反情报威胁来自中国共产党，我认为这是我们面临的最严重的威胁。”雷显然在避重就轻，所问非所答。显然在暗示他曾在2020年被誉为美国四骑士之一，在接受哈德逊智库演讲时直接指明中共是直接威胁美国的敌对势力，“我们不会对此容忍。” 对此，又作何解？你已经容忍了一年多，且继续忍受美国堕落下去？
 
-# 重要事件
+议员先生看不下去了，抢过雷的讲话问：“请问闫博士是这个威胁中的一部分吗？” 面对这种尖酸刻薄问题，雷，噎住了……雷：“呃，我再说一遍，我不想具体谈论任何特定的调查。”显然，无法回答这一具体问题。“我想说的是第二件事，……”议员继续阻止雷转移视线：“雷局长，这是为什么我认为第一个问题非常重要，你知道的，回溯到2020年4月、5月、10月份。我们那时候还没有近60万人被COVID19杀死。”议员显然认为，美国被中共杀死60多万人，和雷有着直接关系，如果美国FBI作为一个负责任的执法部门，美国和世界至少不会死那么多人。议员先生接着说：“2020年10月14日，FBI探员Andrew Zitman带了一个科学家去纽约见了闫博士，这个科学家为FBI工作。这个科学家和闫博士开了近6个小时的会。你能告诉我们有关这次会议的任何事情吗？还有，就COVID19起源，这次面谈对我们有何启示？闫博士来到美国已经一年了，而你却说你什么都不能说。”这一连串的问题，雷直接被直接问到不能说。当议员连线FBI证人时，雷彻底被震慑住了，“我们正在非常努力地尝试解密尽可能多的信息并分享尽可能多的信息。我理解为什么这会让许多家庭感到沮丧。”一句“努力地尝试解密”就能对所有问题负责吗？这一事件彻底翻转COVID19的真相，并且暴露了“美国深层政府”背后的许多黑幕。
 
-- **[06.10 Thenationalpulse：](https://thenationalpulse.com/breaking/watch-rep-gaetz-grills-fbi-director-on-dr-yan-whistleblower-covid-origins/)[众议员盖茨就关于举报人闫博士及COVID的来历质询FBI局长](https://thenationalpulse.com/breaking/watch-rep-gaetz-grills-fbi-director-on-dr-yan-whistleblower-covid-origins/) Rep. Gaetz Grills FBI Director On Dr. Yan Whistleblower/COVID Origins**
+笔者认为，这一事件将迅速扭转整个反击超限生物基因战的局面。在该听证会播出伊始，中共的伪类们又在活跃起来诋毁闫博士，谎称闫丽梦的老公在听证会上作证，爆料革命手握闫丽梦这张王牌将要失效。并且称新中国联邦是“喜国”。问题是，这些曾经混进爆料革命的伪类还能蹦跶几天？几乎没有一个正常人的思维会愚蠢到睁眼说瞎话，翻墙到外面去了，仍然在那里掩耳盗铃地捂着眼睛对墙外自由世界说，“郭文贵一伙人是骗子。”如今整个世界因为爆料革命翻转了天地，CCP潜伏在欧美各国的“深层政府”正在土崩瓦解。此时此刻，不和新中国联邦合作灭共，世界还有选择吗？那些伪类们，失去中共国以后，在世界上还有出路吗？真正的中共病毒就是中共百年来培育的思想病毒，他不但侵蚀着中国人的大脑，而且正在侵蚀着人类的思考能力。他们的目的就是置人于浑浊的温水里慢慢丧失大脑功能。如果不能灭共，最后世界都将成为僵尸世界——没有灵魂的、不会思考的活死人。因此，今天国会山的听证会意味着闫丽梦博士为人类所做的一切努力都将公之于众，世界也将认识到新中国联邦的力量所在。而这些也许是郭文贵先生感到欣慰之处。
 
+2021年6月11日写于东亚
 
-国会议员马特-盖茨（Matt Gaetz）在国会质询FBI局长雷（ Wray），关于冠状病毒的起源以及2020年4月中共国叛逃者/告密者闫博士进入美国时FBI到底知道什么。
+参考资料：
+[国会](https://www.youtube.com/watch?v=_gj5891KRJM&amp;feature=youtu.be)
+[郭](https://gtv.org/getter/60c2149ae15f7e227eef4288)
+[每日野兽](https://www.thedailybeast.com/trump-wants-to-oust-fbi-director-chris-wray-after-the-election)
+[喜马拉雅](https://twitter.com/i/status/1403166223362236420)
+![](https://lh3.googleusercontent.com/7RP3Qlkfa3rVa9hBBUjRrhOonQaZ1KNtZZyhxVgrnLKKm0ebQhOQI-glkfSkAEl3_3SXDM9xTPsITXU-AZdXgtIhbmwN0fUwjfS4uNV6AD61FWIUjGgrGzaJa9jB42UNZElwTnhT)
+[美联邦调查局局长雷Wray: 中国共产党不择手段欲成为世界唯一超级权力，美国两党政府空前联手，对抗中共 | FBI Director Wray | Hudson Institute](https://youtu.be/yEKNkJQeOPM)
 
-闫博士发表了大量关于COVID-19病毒的人为性质的证据，她在史蒂夫-班农和美国其他持不同政见团体的帮助下，冒着生命危险进入美国。
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*校对：喜马拉雅东京樱花团 / 東洋武士*
+*责任编辑：喜马拉雅东京樱花团 / 文小白*
+*发布：喜马拉雅东京樱花团 / 老黑*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04060740/IMG_2779.jpg)
 
-曾被企业媒体嘲笑的闫博士尽可能早地与联邦调查局特工互动，试图警告美国当局中共的掩饰行为。
 
-详情请看视频。
-
-- [**06.10 Zerohedge：澳大利亚和日本联手追究北京的经济霸凌行为的责任Australia And Japan Join Forces To Hold Beijing Accountable For Its Economic Bullying**](https://hongkongfp.com/2021/06/04/in-pictures-hong-kong-students-stage-annual-tiananmen-massacre-monument-event-amid-vigil-ban/)
-
-
-澳大利亚和日本将联手反对北京的经济欺凌行为，因为两国继续对中国的侵略性国际行为失去耐心。
-在6月9日的联合虚拟会议后的一份声明中，澳大利亚和日本的外交部长Marise Payne和Motegi Toshimitsu，以及国防部长Kishi Nobuo和Peter Dutton宣布，两国 “将致力于反对通过经济手段进行胁迫和破坏稳定的行为，这种行为破坏了基于规则的国际体系。”
-日本和澳大利亚对中国的行为越来越关注，因为这两个国家都受到了北京成为全球大国的好战推动。
-
-声明说：我们对中国不符合1982年《联合国海洋法公约》（UNCLOS）的海洋主张和活动表示反对。我们重申，我们强烈反对任何可能改变现状和加剧紧张局势的破坏性或胁迫性的单边行动。
-
-盟友们还谴责北京对新疆和香港的维吾尔族和其他少数民族的人权侵犯行为。
-这份联合声明是在新西兰和澳大利亚发表声明宣布相互支持一周后发表的，也是在美国宣布将继续支持澳大利亚之后发表的，这向北京的社会主义者表明，面对中国日益强大的力量和主导地位，印太地区的自由民主国家将站在一起。
-
-中国政权的发言人汪文彬对这一声明作出回应，告诉这两个国家不要再夸大 “中国威胁”，并指责他们 “恶意诽谤中国”。他敦促澳大利亚和日本停止插手，遵守国际关系的基本准则，但没有解释他的言论。
-
-- [**06.10 Zerohedge：新的证据证实羟氯喹和阿奇霉素将COVID-19患者的存活率提高了200%Hydroxychloroquine & Azithromycin Boosted Survival Of Ventilated COVID-19 Patients By 200%: New Study Confirms**](https://www.zerohedge.com/covid-19/hydroxychloroquine-azithromycin-boosted-survival-ventilated-covid-19-patients-200-new?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
-
-
-一项新的研究发现，使用经过体重调整的羟氯喹（HCQ）和阿奇霉素（AZM）可使COVID-19患者的生存率提高近200%。
-
-这项尚未经过同行评审的观察性研究是基于对美国大流行病头两个月期间255名病人的重新分析得到的。
-
-研究人员发现，当HCQ-AZM组合以较低的剂量治疗COVID-19患者时，死亡的风险高出三倍以上。
-
-“我们发现，当HCQ和AZM两种药物的累积剂量超过一定水平时，患者的存活率是其他患者的2.9倍，”该研究的作者指出。
-
-“通过使用因果分析和考虑体重调整后的累积剂量，我们证明了联合治疗，&gt;3克HCQ和&gt;1克AZM大大增加了服用IMV的COVID患者的生存率，并且HCQ累积剂量&gt;80毫克/公斤的效果大大提升”。
-
-羟氯喹–一种抗炎和抗疟疾药物–在整个大流行病期间一直是对COVID-19最有争议的疗法之一。
-
-该药于1955年被美国食品和药物管理局（FDA）批准用于治疗和预防疟疾。它也被用于治疗红斑狼疮和类风湿性关节炎。
-
-- **[06.10 Thenationalpulse：TikTok全球行动负责人是前中共外交官TikTok Global Ops Chief Is Former Chinese Communist Party Diplomat.](https://thenationalpulse.com/breaking/tiktok-global-ops-chief-is-former-ccp-diplomat/)**
-
-
-TikTok的全球运营经理Tamer Tang是一名前中共外交官，曾在该政权的文化和旅游部以及各国大使馆任职。他自2018年8月起担任这一职务，之前是中共的直接雇员，2015年至2018年在中国埃及大使馆担任随员，2014年至2015年在该政权的旅游和文化部担任秘书。
-
-在《国家脉搏》发现这一联系之前，有报道称TikTok在2020年雇佣了一名驻德黑兰的中共外交官来监管该应用程序的内容。
-
-这些披露并不令人惊讶：该应用程序会审查破坏中国共产党叙事的内容，其创始人承诺利用其平台 “促进社会主义核心价值观 “和对中国政府的奉献。
-
-在TikTok的一个应用程序被中国政府禁止后，前TikTok首席执行官张一鸣承诺 “加强党的建设”，”加强对全体员工的四个意识、社会主义核心价值观、舆论导向和法律法规的教育”，同时 “进一步深化与权威媒体的合作，改进权威媒体内容的传播，确保权威声音的有效传播。” 该公司还承认在其招聘过程中优先考虑中国共产党员。
-
-在招聘 “内容审查编辑 “的帖子中，TikTok宣称 “共产党员将被优先考虑”，并将其理想员工描述为 “热爱阅读新闻，关心时事，并具有良好的政治敏感性和判断力 “的人。
-
-- [**06.10 Thegatewaypundit：**](https://www.thegatewaypundit.com/2021/06/jbs-worlds-largest-meat-supplier-paid-11-million-bitcoin-ransomware-hackers/)[**全球最大肉类供应商JBS向勒索软件黑客支付1100万美元的比特币JBS, World’s Largest Meat Supplier, Paid $11 Million in Bitcoin to Ransomware Hackers**](https://www.thegatewaypundit.com/2021/06/jbs-worlds-largest-meat-supplier-paid-11-million-bitcoin-ransomware-hackers/)
-
-
-据《华尔街日报》报道，JBS美国控股有限公司首席执行官说，上周网络犯罪分子暂时中断了加工全国大约五分之一肉类供应的工厂，该公司向他们支付了1100万美元的赎金。
-
-巴西肉类公司JBS SA美国分部首席执行官Andre Nogueira说，用比特币支付赎金是为了保护JBS肉类工厂不受进一步干扰，并限制对依赖JBS的餐馆、杂货店和农民的潜在影响。
-
-Nogueira先生周三在接受《华尔街日报》采访时说，向犯罪分子付款是非常痛苦的，但我们为客户做了正确的事情。他补充说，这笔钱是在JBS的大部分工厂重新启动和运行之后支付的。
-
-JBS在两个周日前遭到勒索软件攻击，威胁到美国肉类供应。
-
-在JBS公司暂停其五个最大的牛肉工厂的加工后，美国五分之一的牛肉产量被消灭了，这些工厂每天共管理22,500头牛。
-
-对JBS的网络攻击发生在勒索软件黑客关闭Colonial管道，造成天然气管道和短缺的几周后。
-
-司法部周一宣布扣押了Colonial Pipeline支付给黑客的430万美元的比特币（75BTC）赎金中的大部分。
-
-联邦调查局表示，与俄罗斯有关的 “REvil和Sodinokibi “是JBS黑客事件的幕后黑手。
-
-# 每日文贵说
-![]()![](https://cdn.discordapp.com/attachments/823056109513867304/836100098751594506/image0.jpg)
-# 更多要闻链接
-
-1. [闫博士再上路德节目详谈出逃经历，令人震撼](https://www.youtube.com/watch?v=9JVA2IQGpcY)
-﻿
-2. [英美签新大西洋宪章 奠定新秩序](https://www.epochtimes.com/b5/21/6/10/n13013351.htm)
-﻿
-3. [朱利安尼爆料，福奇与莫德纳合作研发疫苗](https://twitter.com/zhiyitw33/status/1402985076602720271)
-﻿
-4. [乔拜登在英国皇家空军米尔登霍尔向美军发表讲话](https://www.dailymail.co.uk/news/article-9669877/US-troops-UK-cheer-Bidens-warning-Putin-start-Europe-trip.html)
-﻿
-5. [NIH的COVID-19 治疗指南委员会中有11人都跟研发瑞得西韦的Gilead有经济往来](https://twitter.com/jsdfposjpqyuee1/status/1402714598462038021)
-﻿
-6. [美专家被指与武毒所合作长达15年](https://www.1688.com.au/world/international/2021/06/09/1047381)
-﻿
-7. [伊丽莎白女王号航母打击群在此次 #CSG21 远征部署中第一次停靠港口。西西里岛的奥古斯塔港](https://twitter.com/BoDiplo/status/1402784311229792256)
-
-
-# 每日推特文摘
-
-
-
-- 香港的战友要小心中共的大特务
-
-
-
-
-
-
-> 香港的战友要小心中共的大特务 [pic.twitter.com/UIktrDhBJL](https://t.co/UIktrDhBJL)
-> — George \_Anti CCP 姜子牙 (@GeorgeZ44231116) [June 11, 2021](https://twitter.com/GeorgeZ44231116/status/1403202597108989955?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-- 中共自娛自樂
-
-
-
-
-
-
-> 中共自娛自樂！ [pic.twitter.com/OaVBHebCIo](https://t.co/OaVBHebCIo)
-> — 安红橘绛轩 (@maryann\_3040) [June 10, 2021](https://twitter.com/maryann_3040/status/1402965384244850701?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-- 可查询西奈山伊坎医学院 1 Gustave L. Levy Pl, New York, NY 10029 电话212-241-6500。当务之急是找到并曝光闫丽梦博士的丈夫（Ranawaka Arachchige Prasad Mahendra Perera），以保护她免受伤害。
-Also check Icahn School of Medicine at Mount Sinai 1 Gustave L. Levy Pl, New York, NY 10029 phone 212-241-6500. It is urgent that we locate and expose Dr. Li-Meng Yan’s husband (Ranawaka Arachchige Prasad Mahendra Perera to protect her from harm.
-
-
-
-
-
-
-> Also check Icahn School of Medicine at Mount Sinai
-> 1 Gustave L. Levy Pl, New York, NY 10029 phone 212-241-6500. It is urgent that we locate and expose Dr. Li-Meng Yan's husband (Ranawaka Arachchige Prasad Mahendra Perera to protect her from harm. [https://t.co/QfJHNgAXaG](https://t.co/QfJHNgAXaG)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 11, 2021](https://twitter.com/LawrenceSellin/status/1403190128143749122?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-- 这就是中国的学者，明目张胆的赤裸裸的讨论如何侵略和杀戮几千万人。中共制下的学者早就无人性可言，再看看民间的粉红，跟风必言武统台湾，杀光台独。都是华人血统，人家活在自己的家园上，关你什么事？你们这群禽兽不如的东西不除，中国大地仍旧是地狱！
-
-
-
-
-
-
-> 这就是中国的学者，明目张胆的赤裸裸的讨论如何侵略和杀戮几千万人。中共制下的学者早就无人性可言，再看看民间的粉红，跟风必言武统台湾，杀光台独。都是华人血统，人家活在自己的家园上，关你什么事？你们这群禽兽不如的东西不除，中国大地仍旧是地狱！ [https://t.co/xzGS9t0bUy](https://t.co/xzGS9t0bUy)
-> — 墨博士 (@4RxMbPD3YbeN1fS) [June 10, 2021](https://twitter.com/4RxMbPD3YbeN1fS/status/1403001091969544208?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-- 龟头唐疯狗般的表演真是帮了大忙了，这叫史翠珊效应Streisand effect。龟头唐撒泼打滚，阻止闫博士说话，让观众更加想知道闫博士到底说了啥
-
-
-
-
-
-
-> 龟头唐疯狗般的表演真是帮了大忙了，这叫史翠珊效应Streisand effect。龟头唐撒泼打滚，阻止闫博士说话，让观众更加想知道闫博士到底说了啥 [https://t.co/hE0rscoTnX](https://t.co/hE0rscoTnX)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [June 10, 2021](https://twitter.com/jsdfposjpqyuee1/status/1403043873656492032?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-- 我深感关切的是，联邦调查局忽视了有关COVID-19来源的可采取行动的情报，而这些情报本可以拯救美国人的生命。
-I am deeply concerned that the FBI ignored actionable intelligence regarding the origins of COVID-19 that could have saved American lives.
-
-
-
-
-
-
-> I am deeply concerned that the FBI ignored actionable intelligence regarding the origins of COVID-19 that could have saved American lives. [pic.twitter.com/foAip0eeUl](https://t.co/foAip0eeUl)
-> — Rep. Matt Gaetz (@RepMattGaetz) [June 10, 2021](https://twitter.com/RepMattGaetz/status/1403108731769045009?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-- 白邦瑞博士（Michael Pillsbury) 还建议，情报界应该采访之前声称新冠病毒是中国制造的生物武器的闫丽梦。闫丽梦是前香港大学公共卫生学院传染病研究中心的病毒和免疫学博士后研究员。她去年在接受福克斯新闻采访时说，她从香港逃到美国，就是希望能传播新冠病毒的“真相”。
-
-
-
-
-
-
-> 白邦瑞博士（Michael Pillsbury) 还建议，情报界应该采访之前声称新冠病毒是中国制造的生物武器的闫丽梦。闫丽梦是前香港大学公共卫生学院传染病研究中心的病毒和免疫学博士后研究员。她去年在接受福克斯新闻采访时说，她从香港逃到美国，就是希望能传播新冠病毒的“真相”。[https://t.co/P4aZTJnK1q](https://t.co/P4aZTJnK1q)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [June 11, 2021](https://twitter.com/DrLiMengYAN1/status/1403147257101291526?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-谢谢你以我的经历为例，呼吁公众和政府对大公司极其不公平的审查制度采取行动@Marsha Blackburn。如果没有这种有偏见的审查制度，我们本可以拯救很多很多的生命。每个人都应该知道#COVID19的真相!
-Thank you for calling for public & government action to the extremely unfair censorship from Big Tech, using my experience as a great example [@MarshaBlackburn](https://twitter.com/MarshaBlackburn). We would have saved many many lives, if there were NO such biased censorship! Everyone deserves the truth of [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)!
-
-
-
-
-
-> Thank you for calling for public & government action to the extremely unfair censorship from Big Tech, using my experience as a great example [@MarshaBlackburn](https://twitter.com/MarshaBlackburn?ref_src=twsrc%5Etfw).
-> We would have saved many many lives, if there were NO such biased censorship!
-> Everyone deserves the truth of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)! [https://t.co/FNISlUMb2T](https://t.co/FNISlUMb2T)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [June 10, 2021](https://twitter.com/DrLiMengYAN1/status/1403108185339318274?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-*鸣谢：更多要闻链接部分由 骑着毛驴来挺郭 战友提供*
-
-*编辑：映兰轩
-审核：星空無垠
-发布：文顾*
-
-0
++2

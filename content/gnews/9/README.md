@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战斗室：彼得·打杂客2016年亲述如何制造致命病毒
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1315003/)
+## 闫丽梦博士号召立法惩罚中共制造疫情、毁灭人类文明
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1315095/)
 
-战斗室6月8日播放彼得·打杂客于2016年2月23日大流行病主题论坛上视频片段。打杂客在回答问题时提到，他在中国的同事们如何制造致命病毒。
+06/10/2021 闫丽梦博士：人们应该推动我们的政府去立法，真正地惩罚中共，不仅因为他们所造成的金钱损失，也因为他们的意识形态和他们的征服欲望要毁灭整个人类文明。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
