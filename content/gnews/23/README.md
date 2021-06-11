@@ -1,44 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】闫丽梦博士在新中国联邦周年庆上的演讲全文
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1313496/)
+## 美商务部长向中共表示，美对中共国不公平和扭曲的产业政策表示担忧
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1314543/)
 
-配音：香草山录音组 蒙古鸿雁
+#### 文章撰写:【默凡】
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11081834/rg3pastsdge_2021-06-11_20-18-07.png)
 
+6月10日，美国商务部部长吉娜·雷蒙多与中共商务部部长王文涛互通电话， 雷蒙多向王文涛介绍了拜登政府以美国工人为重点的经济政策，同时对中共国不公平和扭曲市场的产业政策表示担忧。雷蒙多部长要求中共政府为美国公司在中共国市场创造公平的竞争环境，并对美国技术加强保护，严防未经授权者的非法盗用。雷蒙多部长表示，她期待着未来与王部长就这些问题进行更加深入的讨论。
 
+美国参议院本周批准了旨在提高美国与中共国技术竞争能力的一揽子立法，也引发了北京的强烈批评。拜登总统发布的新的行政命令要求对外国控制的应用程序进行广泛审查，以确定它们是否对美国构成安全威胁。新命令并未专门针对任何公司，但有可能通过强制审查与中共国等国家有潜在联系的所有软件应用程序，进而更广泛地打击中共国拥有的应用程序。白宫表示，商务部被授权立即开始审查。并下令商务部审查这些应用程序和其他应用程序带来的安全问题。
 
+参考文章：[美中商务部长通话: 中国不公平和扭曲市场的产业政策不可接受](https://www.voachinese.com/a/ljx-u-s-china-taiwan-trade-policies/5923525.html)
 
+本文仅代表作者本人观点，不代表Gnews平台
 
+* * *
 
+排版发布：日本东京方舟农场 文柯Miles
 
-2021年6月4日，闫丽梦博士在新中国联邦成立一周年的庆典上发表了震撼人心的精彩演讲。她谈到了中国共产党是如何掩盖和欺骗整个世界关于新型冠状病毒的真相，也向我们展示了关于病毒的来龙去脉。她向世界人民发出警示：如果不消灭共产党，整个人类都将失去未来、失去下一代、失去安全、失去一切的一切。这篇演讲精彩万分，每一个人都不容错过。
-
-
-
-**文字版原文：[【热点播报】闫丽梦博士在新中国联邦周年庆上的演讲全文](https://gnews.org/zh-hans/1309053/)**
-
-作者：纽约香草山翻译部 文雅621
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

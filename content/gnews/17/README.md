@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象白话】G7峰会将给全球提供大量疫苗 美国CDC召开紧急会议讨论疫苗导致心肌炎
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1313586/)
+## 7月15日，美国总统拜登在白宫会见安格拉·默克尔
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1314628/)
 
-美国疾病控制与预防中心周四宣布，将在 6 月 18 日召开其顾问的“紧急会议”，讨论在服用基于 mRNA 的辉瑞 (Pfizer) 和Moderna COVID-19 后出现的罕见但高于预期的心脏炎症报告疫苗。该机构周四披露，到目前为止，CDC 已经确定了 226 份报告，这些报告可能符合该机构对注射后心肌炎和心包炎的“工作病例定义”  。绝大多数人已经康复，但 41 人仍有症状，15 人仍在住院，3 人在重症监护室。这些报告仅代表已完全接种辉瑞或 Moderna 疫苗的近 1.3 亿美国人中的一小部分。
+信息来源：德国世界报网络版
+发布时间：2021年6月11日
+翻译 /整理/ 简评： Shuizhuyu
 
-英国首相鲍里斯约翰逊预计，七国集团将同意在周五开始的峰会期间向较贫穷国家捐赠 10 亿剂 COVID-19 疫苗，并在明年年底前帮助世界接种疫苗，“G7 国家承诺到 2022 年底向全球捐赠 10 亿剂疫苗”。
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/27052258/joshua-sukoff-SYHi8oX0JC8-unsplash-scaled.jpg)
 
-世界顶尖的疫苗公司在不断的调整，不断完善疫苗，中共国现在也在不断地推出新的疫苗，而且很多疫苗在趁着目前疫情威胁的现状，跳过正常手续，申请紧急使用的批复。尽管现在连病毒的源头都没有找到，病毒扩散的动机和路径，对普通大众来说都还是一个含糊不清的事情，但是政治家们成功的将疫苗放在了世界的重心，由此诞生的疫苗经济，疫苗外交，成为了各国政治家追捧的方式和方法。这看起来有点滑稽，虽然我们不愿意承认，但是这似乎与中共之前给自己设计的光明大道非常的类似。
 
-参考链接：
+总理安格拉·默克尔（Angela Merkel）将在她的总理任期即将结束时再次成为白宫的客人。 7月15日，她受到美国总统乔拜登的接见。访问的一些主题已经确定。
 
-[https://www.cbsnews.com/news/covid-19-vaccine-myocarditis-heart-inflammation-cdc/?ftag=CNM-00-10aab7e](https://www.cbsnews.com/news/covid-19-vaccine-myocarditis-heart-inflammation-cdc/?ftag=CNM-00-10aab7e)
+7月15日，美国总统拜登将在白宫接见德国总理默克尔（CDU）。白宫发言人周五在英国卡比斯湾举行的七国集团峰会期间表示，总理的访问将加强德国和美国之间“密切的双边关系”。
 
-图片来源：[https://www.cbsnews.com/](https://www.cbsnews.com/news/covid-19-vaccine-myocarditis-heart-inflammation-cdc/?ftag=CNM-00-10aab7e)
+柏林政府发言人证实了默克尔访问法新社的消息。与此同时，默克尔降落在英格兰西南部的康沃尔，她和拜登一样正在那里参加七国集团峰会。两人也可能会在那里举行双边讨论。
 
-整理撰稿：蓝精灵
+拜登的发言人珍·普萨基 (Jen Psaki) 表示，白宫会议的主题包括新冠大流行的挑战、气候变化以及“基于我们共同的民主价值观”对经济繁荣和国际安全的支持。
 
-校对发布：Penny
+《德国商报》周五报道称，华盛顿的会议也是关于柏林和华盛顿就北溪2波罗的海管道的争端。据《德国商报》消息，柏林关于化解冲突的提议目前正在双方进一步接触。成为默克尔/拜登对话的基础。
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+简评： 今天是G7峰会的第一天， 就在刚刚德国媒体爆出了这条新闻。 即将离任的德国总理默克尔将在7月15日访问美国白宫。 也就是意味着， 两国有更多的事情和议题需要讨论和联合， 相信对于爆料革命新中国联邦也是一个好消息。 西方集团越团结，就是中共最不愿意看到的。
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
+
+🔗[US-Praesident-Biden-empfaengt-Merkel-am-15-Juli-im-Weissen-Haus](https://www.welt.de/politik/ausland/article231751545/US-Praesident-Biden-empfaengt-Merkel-am-15-Juli-im-Weissen-Haus.html)
 
 0

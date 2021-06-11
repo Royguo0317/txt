@@ -1,54 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《欧中协议》的结束对中共的影响太大了！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1313380/)
+## 共产主义中国的全球大外宣是如何攻击人类自由的
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1314469/)
 
-**摘要：在2021年6月9日的盖特中，郭先生说《欧中协议》的结束对中共的打击巨大，它希望以此与美国抗衡的希望彻底破灭，这说明欧洲人已经觉醒，同样美中也必须脱钩。**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10184653/Miles_2021-06-09-getter.srt.txt)
-### 《欧中协议》的结束对中共的影响太大了！
-The Impact of the End of the EU-China Agreement’s on the CCP
+原文:洛伊斯(Lois)
 
-兄弟姐妹们，你们记得头一段时间，关于《欧中协议》结束以后我告诉大家，你们没明白，《欧中协议》对共产党的打击有多大！大家去想一想，《欧中协议》几乎是共产党抗衡美国最后的希望。《欧中协议》的结束对它的影响太大了！
+翻译:文虓Bobby
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11071404/image001-13.jpg)
+中国共产党(CCP)对其国有媒体拥有绝对的控制权，同时利用越来越先进的技术在全世界传播具有破坏性的宣传。2016年，中国共产党领导人习近平在接受中国国家电视台采访时表示，中共国必须努力打造更具国际影响力的形象。
 
-Brothers and sisters, you remember what I told you after the EU-China Comprehensive Agreement on Investment (abbr. EU-China Agreement) was ended, but maybe you don’t fully understand what a heavy blow the end of this deal was to the CCP. Thank about it. The EU-China Agreement was almost the last hope for the CCP as a counterbalance to the United States. The end of the EU-China Agreement has had a tremendous impact on the CCP!
+新冠肺炎大流行也为中共创造了机会，通过驱逐外国记者、造谣和其他方法来掩盖真相，操纵中共国的历史叙事。
 
-我毫不夸张地说，没有我们，《欧中协议》绝对结束不了。以后的故事多了。很多人可能说咱吹牛是吧？俺吹牛，俺吹牛，俺吹公牛，啥牛都吹，中不中？战友们记住——《欧中协议》关键！
+然而，西方媒体似乎已经揭穿了北京推销“中国梦”的企图。
 
-It is no exaggeration to say that the EU-China Agreement would never have been stopped if it were not for us. There are many stories behind it to be exposed. Many people may say that I am bragging. I’m bragging. I’m boasting. I’m blowing my mouth off, okay? Fellow fighters, remember that the EU-China Agreement is very critical.
+“自COVID-19以来，我们可以看到北京方面如何启动这一信息基础设施，在国家支持的虚假信息战和医疗外交的支持下，传播自己的故事，”国际记者联合会的一名记者说。
 
-关于这个院校的问题，大家知道和《欧中协议》啥关系吗？过去这30年，共产党培养的人才最多的[是在]美国和欧洲。
+今年3月，英国广播公司(BBC)广播4台的一档节目称，中共国利用虚假信息战术和咄咄逼人的“战狼外交”来操纵目标观众。中共国外交部的赵立坚是中共著名的“大宣传”传播者。今年3月，中共国外交部副司长在推特上暗示新冠肺炎起源于美国，引发一片哗然。
 
-Regarding what happened in colleges and universities, do you know the relationship between these events and the EU-China Agreement? In the past 30 years, the CCP sent talented people for training, mostly in the United States and Europe.
+此外，据称中国共产党利用数百万公民密切监视和控制中共国的网络舆论（导向）。这些成员每个帖子得到0.5元的报酬，因此该组织有了“五毛水军”的绰号。
 
-《欧中协议》的结束就是欧中的对抗；欧中的对抗是中国共产党对欧洲的威胁、制裁、打击和对官员的收买，“蓝金黄”，包括要输送共产主义，[让]欧洲人已经觉醒了。
+2019年，这支影子军队攻击了香港的民主抗议活动，传播示威活动的暴力视频，并将其贴上恐怖主义的标签。和平镜头被审查。该组织还呼吁限制稀土和药品出口，以响应川普政府对华为的制裁，并鼓励抵制西方公司反对新疆棉花生产中涉及的维吾尔族劳动力剥削。
 
-The end of the EU-China Agreement means the confrontation between Europe and China. Why is there a confrontation between Europe and China? Because of the CCP’s threats, sanctions, crackdowns on Europe, bribing of their officials, the BGY plot, as well as injecting communism. All this has awakened European people.
+中国教育部也一直在使用其2004年推出的全球孔子学院系统，将中国共产党的宣传注入我们的线下生活。今年3月，美国参议院投票决定取消对该教育项目的拨款。美国国务院称该项目为“推动北京在美国校园和中小学开展全球宣传和恶意影响活动的实体”。
 
-就像我展示给德国政府看的，我说：只要你签欧中协议，你记住，它一定要求你做本币互换，也就拿人民币互换，人民币就是冥币。而且特别地要求，一些技术上，特别是德国人看好的这个所谓的华为5G上，一定不会答应你的要求，而且它要把数据中心和技术留在中国。怎么样？最后他们发现了这个秘密，对吧？
+“中国倡议”是美国司法部于2018年设立的，也是对中共国在美持续不断的造谣和间谍活动的回应。该倡议的一个显著成就是逮捕了北京“猎狐行动”(Operation Fox Hunt)的八名中共成员，该行动旨在遣返所谓的腐败中共国逃犯。由中国共产党控制的美国高层政治人物，比如川普总统的前助手罗杰·斯通(Roger Stone)，也在实施驱逐反共异见人士的行动。
 
-Just as I revealed to the German government, I told them that if you sign the EU-China agreement, the CCP will definitely require you to make a currency swap, i.e., to swap EUR with RMB. Renminbi is hell money. Moreover, regarding certain technologies, particularly Huawei’s 5G technology that the Germans are optimistic about, the CCP definitely will not agree to your requirements. Besides, it will require the data center and technology to stay in China. How about that? Finally, they figured out the risks of doing a deal with the CCP, right?
+这次行动的主要目标是郭文贵，英文名Miles Guo。郭文贵是中共国异见人士，也是全球华人吹哨运动(Chinese Whistleblower Movement)的领导人，该运动揭露了中国共产党的腐败。他的行动使其成为中国共产党的头号目标;因此，他逃到了美国，并一直没有回到中共国。
 
-所以《欧中协议》必须停；美中必须脱钩。
+另一个目标是阿里巴巴(Alibaba)前董事局主席马云(Jack Ma)，郭文贵差不多两年前就预测过他会消失。在这位中国富豪去年10月发表批评中国金融监管机构和国有银行的演讲后，有关他入狱或流放的传言铺天盖地。中共当局以包括经济垄断和创纪录罚款在内的指控打压了马云的阿里巴巴(Alibaba)和蚂蚁集团(Ant Group)。
 
-Therefore, the EU-China Agreement must be stopped. The United States must decouple with communist China.
+英国《金融时报》报导称，马云还被免去了湖畔大学(Hupan University)校长的职务。湖畔大学是中共国排名最靠前的高等高管培训学校。据该校的一名消息人士称，中国共产党当局担心马云正在湖畔建立一个与中共目标相竞争的网络。尽管马云在中共国的慈善成就为他在许多西方政治领导人中赢得了好名声，但中共的虚假新闻战实际上已经摧毁了他。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60c0aa59e15f7e227eeed9fb](https://gtv.org/getter/60c0aa59e15f7e227eeed9fb) (0:27-2:11, 5:56-6:02)
-鸣谢：[1] 感谢[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于[https://gnews.org/zh-hans/1310694/](https://gnews.org/zh-hans/1310694/)
-[2] 感谢[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于[https://gnews.org/1313192/](https://gnews.org/1313192/)
+中国共产党利用宣传和虚假信息来推进其对人类自由的破坏，现代数字技术强化了这些方法的复杂性和心理冲击。数字技术专家、美国科学家联合会(Federation of American Scientists)成员伊珊•夏尔马(Ishan Sharma)在一份报告中建议，美国应该通过加强负责任的国内数字监控，来打击外国的数字威权主义，以发现“五毛水军”(50 Cent Army)等影子组织的成员。
 
-* * *
 
-字幕：【JennyL（纽约香草山农场）】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-+3
+[原文链结](https://londondailypost.com/how-chinese-disinformation-campaigns-hurt-global-democracy/.)
+
+审核：玫瑰天空
+
+上传:糊糊文婴
+
+0

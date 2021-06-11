@@ -1,46 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】萨尔瓦多成全球首个将比特币列为法定货币的国家
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1313485/)
+## 美国对TikTok的解禁令：只是暂时休战
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1314511/)
 
-配音：香草山录音组 蒙古鸿雁
+消息来源：意大利晚报（corriere.it）
+发布时间：2021年06月10日
+翻译整理：斩草要除根
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11075448/olivier-bergeron-5JSZzMilCVo-unsplash-scaled.jpg)
 
 
+拜登签署的协议只是休战。周三，美国总统发布了一项行政命令，以保护美国的敏感数据，并促进建立开放、可互操作、可靠和安全的互联网。实现这个目标的中间步骤就是先取消前总统唐纳德特朗普的行政命令，该命令试图阻止中共国在美国的应用软件TikTok以及微信及其它7个应用软件。
 
-2021年6月9日，萨尔瓦多（El Salvador）国会通过《比特币法》，成为全世界第一个将比特币列为法定货币的国家。
+与其前任不同的是，拜登政府希望建立“清晰易懂的标准”，以评估与外国政府，特别是中共国有联系国家的安全风险。所以，现在的这个解封令不是因为恐惧，而是展开与北京在技术开发和数据管理方面的拉锯战。此外，据《纽约时报》报道，周三签署的命令将为后续调查 TikTok 或其他应用程序上奠定了基础。
 
-萨尔瓦多是位于中美洲北部的沿海国家，也是中美洲人口最密集的国家。它毗邻太平洋，国土面积20720平方公里，下设14个省，2019年总人口670.5万。萨尔瓦多国内经济以农业为主，主要盛产咖啡豆和棉花，工业基础薄弱，是世界上“中低等收入国家” 之一，2019年GDP为267.5亿美元。
+简评：一些分析人士指出，拜登政府试图在确定和应对国家安全担忧方面制定更好的机制，这样后续可能出台的禁令才经得起司法挑战。虽然TikTok目前还没有面临禁令，但并不意味着拜登会让它和其他中共国的应用程序摆脱困境。相反，拜登政府正在创建新的审查程序。“TikTok仍可能被放到砧板上。”
 
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
 
-
-**文字版原文：[【热点播报】萨尔瓦多成全球首个将比特币列为法定货币的国家](https://gnews.org/zh-hans/1311061/)**
-
-作者：经济小组/ 纽约香草山农场 乱谈秦
+🔗[g7-resto-mondo-protesta-contro-anna-wintour](https://www.corriere.it/america-cina/2021/06/10/nodo-irlanda-biden-johnson-quanti-vaccini-lasceranno-g7-resto-mondo-protesta-contro-anna-wintour-7b2f0fac-c9c4-11eb-9b8e-b9086462d45e.shtml)
 
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

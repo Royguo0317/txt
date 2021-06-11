@@ -1,68 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月10日美国政要推特精选： 是时候该让福奇辞职了！
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1313604/)
+## 【拆台新闻】中共口炮党提醒日方在台湾问题上谨言慎行
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1314668/)
 
-参议员霍利新闻办公室： 福奇与参与或资助武汉病毒研究所的团体和科学家进行了通信联系。 他们积极地试图隐瞒他们参与了这项研究。 是时候该让福奇辞职了。 【转[http://newspressnow.com](https://t.co/5trToqadWj?amp=1)报道：霍利支持呼吁福奇辞职的决定】
+#### 文章撰写:【默凡】
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11092246/a3a4fd296-4532rnatio4323nal-flag.jpg)
 
+新华社北京6月11日报道：针对日本数位政府官员近日屡屡公然称台湾为“国家”，国台办发言人马晓光11日应询表示，台湾是中共国的一部分。我们坚决反对一些日本官员对中共国台湾地区的错误表述，对日方在台湾问题上屡屡采取错误行径感到震惊。我们敦促日方立即纠正错误，以实际行动恪守一个中国原则和中日四个政治文件精神，在台湾问题上谨言慎行，不向“台独”势力发出任何错误信号。马晓光说，我们正告民进党当局和“台独”分裂势力，企图勾连外部势力制造违反一个中共国原则的各种行径，丝毫改变不了台湾是中共国一部分的铁的事实。
 
-> Fauci corresponded with groups and scientists who had participated or funded research at the Wuhan Institute of Virology.
-> They were actively trying to conceal their involvement in that research.
-> 
-> It's time for Fauci to resign. [https://t.co/x6DKSsBFbd](https://t.co/x6DKSsBFbd)
-> — Senator Hawley Press Office (@SenHawleyPress) [June 10, 2021](https://twitter.com/SenHawleyPress/status/1403019428246212613?ref_src=twsrc%5Etfw)
+拆台评论：
 
+自从美日发表联合声明后，美国彻底对日本进行军事松绑，日本的军事实力将得到快速发展。同时，日本也公开承诺要保护台湾国土安全，这是继美国之后，有一个军事强国宣布将保卫台湾安全，这彻底粉碎了中共企图用武力拿下台湾的计划。
 
+其实，以美国为首的西方国家远不止要保护台湾安全，未来还要重新恢复台湾的国际地位，甚至宣布台湾是一个主权国家，彻底废掉中共国的国际地位，将中共踢出联合国，而这一切都是中共向全世界发起超限生物武器攻击的后果。日本数位官员公开宣称台湾为国家，这就是提前开始吹风，做舆论铺垫，以此试一试中共国的反应，按照中共国一贯的作风，也只能用口炮进行还击，无论中共国采用什么方式还击，台湾的国际地位都会被世界所认可。
 
-前白宫贸易顾问彼得·纳瓦罗: 我(那是)有 6000 万片羟氯喹 HCQ 药片，福奇和[@cc](https://twitter.com/CC) 由于他们的羟基歇斯底里症而不允许美国公众使用。 (cnn主播) [@JohnBerman](https://twitter.com/JohnBerman)[@cnn](https://twitter.com/CNN) 和圣·蝠奇手上沾满鲜血。有超过 50,000 名(死去的)美国人今天本该还活着【转每日邮件dailymail 文章：川普对羟氯喹的看法一直是正确的吗？ 新的研究表明，前总统力荐的药物可以将新冠COVID存活率提高200%】
+参考文章：[国台办：敦促日方立即纠正错误，在台湾问题上谨言慎行](http://www.xinhuanet.com/tw/2021-06/11/c_1127554652.htm)
 
+本文仅代表作者本人观点，不代表Gnews平台
 
+* * *
 
-> I had 60 million tablets of HCQ that Tony Fauci and [@cc](https://twitter.com/CC?ref_src=twsrc%5Etfw) wouldn't allow the American public to use because of their Hydroxy Hysteria. Blood on [@JohnBerman](https://twitter.com/JohnBerman?ref_src=twsrc%5Etfw) [@cnn](https://twitter.com/CNN?ref_src=twsrc%5Etfw) and Saint Fauci's hands. More than 50,000 Americans would be alive today.[https://t.co/ivOb5XjUPz](https://t.co/ivOb5XjUPz)
-> — Peter Navarro (@RealPNavarro) [June 10, 2021](https://twitter.com/RealPNavarro/status/1402996105256738816?ref_src=twsrc%5Etfw)
-
-
-
-参议员泰德·克鲁兹： 那是当然，如果这是真的，一向诚实的福奇博士会告诉我们的…。 当然，脸书(Facebook)和推特(Twitter)也就不会禁止人们这么说了。对吗？ 【转推来自华盛顿观察家：研究证实 [#羟氯喹](https://twitter.com/hashtag/%E7%BE%9F%E6%B0%AF%E5%96%B9?src=hashtag_click) 加锌可以提高3倍 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 感染者的活命几率】
-
-
-
-> Surely, if this were true, the always-honest Dr. Fauci would have told us….
-> 
-> And surely Facebook & Twitter wouldn’t have banned people for saying it. Right? [https://t.co/QYtBWQXVKI](https://t.co/QYtBWQXVKI)
-> — Ted Cruz (@tedcruz) [June 10, 2021](https://twitter.com/tedcruz/status/1403124701447270401?ref_src=twsrc%5Etfw)
-
-
-
-参议员马可·卢比奥： 参议员卢比奥联合玛莎·麦卡勒姆[@marthamaccallum](https://twitter.com/marthamaccallum)讨论 [#Fauci](https://twitter.com/hashtag/Fauci?src=hashtag_click) 福奇博士在美国公众中失去信誉的问题以及 [#批判种族理论](https://twitter.com/hashtag/%E6%89%B9%E5%88%A4%E7%A7%8D%E6%97%8F%E7%90%86%E8%AE%BA?src=hashtag_click)。 阅读和观看
-
-
-
-> Sen. Rubio joined [@marthamaccallum](https://twitter.com/marthamaccallum?ref_src=twsrc%5Etfw) to discuss Dr. [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw)'s loss of credibility with the American public and [#CriticalRaceTheory](https://twitter.com/hashtag/CriticalRaceTheory?src=hash&amp;ref_src=twsrc%5Etfw).
-> 
-> Read & watch⬇️[https://t.co/JylnolOJbA](https://t.co/JylnolOJbA)
-> — Senator Rubio Press (@SenRubioPress) [June 10, 2021](https://twitter.com/SenRubioPress/status/1403108361831337998?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 大型科技公司审查了新冠病毒 COVID-19 (中共病毒) 的起源问题 【附玛莎议员的相关讲话视频】
-
-
-
-> Big tech censored the origins of COVID-19 [pic.twitter.com/AghiQb7yXx](https://t.co/AghiQb7yXx)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 10, 2021](https://twitter.com/MarshaBlackburn/status/1403049726216491019?ref_src=twsrc%5Etfw)
-
-
-
-参议员瑞克·斯科特： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的目标是统治世界，今天在参议院共和党军事委员会[@SASCGOP](https://twitter.com/SASCGOP)会议上，国防部[@SecDef](https://twitter.com/SecDef) 也表示同意。随着我们面临来自世界各地越来越多的威胁，拜登应该停止试图削减我们军队的资金。
-
-
-
-> Communist China’s goal is world domination & today in [@SASCGOP](https://twitter.com/SASCGOP?ref_src=twsrc%5Etfw), [@SecDef](https://twitter.com/SecDef?ref_src=twsrc%5Etfw) agreed. Biden should stop trying to cut funding for our military as we face increasing threats from around the world. 👀⬇️ [pic.twitter.com/HTpXnP0CR8](https://t.co/HTpXnP0CR8)
-> — Rick Scott (@SenRickScott) [June 10, 2021](https://twitter.com/SenRickScott/status/1403074458995339268?ref_src=twsrc%5Etfw)
-
-
+排版发布：日本东京方舟农场 文柯Miles
 
 0
