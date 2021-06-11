@@ -1,33 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 7国集团吹响了灭共集结号！
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1315268/)
+## 九个州代表团观摩亚利桑那州的“国家审计”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315285/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11130708/7AAB6227-A94E-4ABD-B4DC-53B0338EAE75.jpeg)图片来源：https://qz.com/2004738/who-is-in-the-g7-and-where-will-the-g7-summit-2021-be-held/
-#### 
-加拿大多伦多枫叶农场 丁过
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-美国总统乔.拜登5月26日要求情报机关“加大力度”调查病毒源头并在90天内向他报告，时间仅仅过去半个月，全球主要国家的政府，就相继态度鲜明地表示支持对病毒来源一查到底，这应该是所有曝料革命战友近来最开心的事。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11130803/A-8.jpg)change.org
+前天（6月8日）笔者转载报道了，在宾夕法尼亚议会参观了“国家审计”后，佐治亚州、阿拉斯加和科罗拉多州也派出代表团赴亚利桑那州参观学习【1】，昨晚（6月10日）“国家审计”现场，又传出消息，将有更多的州观摩，共计达9个州。
 
-G7会议将在6月12日举行，参加本次会议除了成员国加拿大、法国、德国、意大利、日本、英国和美国之外，印度、澳大利亚、韩国和南非作为峰会的客座国家也参加了本次会议。澳大利亚是最早呼吁对中共病毒来源进行彻底调查的国家，印度近日首次发出支持进一步调查的呼吁，闫丽梦博士近来多次接受印度最有影响力媒体的釆访，向印度人民揭露了中共军方发动超限生物战的真相，为印度朝野以毒灭共态度的形成进行了有效的铺垫。
+《门道专家》报道说，在周五将有总计达9个州的访问团到亚利桑那州审计中心，目前只剩下一个托盘未清点。【2】
 
-稍为熟悉国际事务的人都知道，一直以来西方社会是以英美为核心，德国、日本虽然经济实力很强，是民主阵营中重要的一员，但民主阵营由英语系海洋文化来主导的格局从未改变。美英首脑在G7峰会召开前两天提前举行会谈，并发表了联合声明，声明直指“支持对包括中国在内的新冠病毒起源展开独立调查”，声明强调“及时、透明、讲求证据的独立流程，包括在中国，以及在未来调查起源不明的疫情”。
+全文如下：
 
-这份指向明确、异常强硬的声明信息量巨大，为G7定下了讨伐中共的基调，对那些执迷不悟或企图通过左右摇摆搏取利益的国家或团体、个人，是一种震慑。对中共而言，则是一份充满杀机的声明，意味着G7不再允许中共拖延时间，不再和中共玩口水战。预计G7将很快对中共发出类似于72小时的最后通碟，如果通碟不奏效，随之而来的就是对中共的全面制裁和经济封锁，也可能迅速升级为区域战争。
+9个州代表团将在周五抵达亚利桑那州进行历史性审计的现场考察。
 
-欧洲理事会主席米歇尔、欧盟委员会主席冯德莱恩在参加G7峰会前（10日）举行的记者会上明确表示，支持对病毒来源进行彻底调查，世界有权利知道病毒从哪里来，到底发生了什么，以便能够吸取教训，并开发出正确的工具，确保此类事件不会再次发生。两位欧盟领导人和英美首脑，在同一天发出同样的声音，表明整个欧洲包括北约组织，已经和G七完全达成了灭共共识。
+截至周二（6月8日），有6个州参观了该设施，周四，弗吉尼亚州参议员阿曼达·蔡斯（Amanda Chase）是第7位。
 
-最令人期待和精神振奋的是，七国集团官员正在撰写公报，概述了到2022年12月结束疫情的计划。该文件将构成峰会“最后阶段会谈”的基础，并将在周日发布。这则消息值得持续关注。
+这是巨大的！9个州的代表团人数增加了一倍多，这些代表团接受了对审计的巡视，希望复制审计过程。
 
-凡事都有因果，如果这份七国公告是严肃的，那么在不到一年半的时间里结束疫情，得有两个前提，一是灭掉中共，二是中共彻底投降，把所有制造病毒的资料、第一批染疫病人的资料、生物武器库中所有的生物武器、散布在全世界的生化部队人员资料等等全部交出来，否则结束疫情就是空谈。我们相信，七国也深知这个道理，那么，这个公报的出台，就等于七国吹响了灭共集结号。
+“全国范围内的审计工作正如火如荼地进行着！”——鲍里斯·爱普什坦（Boris Epshteyn）在班农先生的作战室里说。
+
+对马里科帕（Maricopa）郡2020年大选进行的第一次全面法庭审计，几乎完成了审计的手工清点过程，只剩下一个未开封的票箱托盘。
+
+更多的文件审核已经开启，他们计划提高这一进程的速度，手工重新计票很快就要结束了，但文件审核还需要几个星期的时间。
+
+这一进程应在6月底前完成，不久之后，他们将向全国提供一份调查结果报告。
+
+克里斯蒂娜鲍伯（Christina Bobb）在《美国新闻网》（OANN）说，她预计会看到，“清点的票数与认证的数字相差甚远”（的情况），因为事实上，一些托盘的选票失踪高达20%，这些选票本应都在那里。
+
+（此文完）
+
+另据《门道专家》报道，亚利桑那州共和党主席凯利沃德（Kelli Ward）确认，手工计票将在6月14日总统生日前完成【3】，之前有过类似的报道，这是官方的进一步确认。
+
+通过透明的重新清点来解决争议，这是常识性问题，难道美国真地堕落到“置常识而不顾”的水准了吗？看来不是，众州来观摩“国家审计”本身就反映了正义力量的伸张，新中国联邦也不会眼睁睁地看着美国堕落下去！
 
 参考链接：
 
-[欧盟、七国集团领导人支持美国重新调查新冠病毒源头的要求](https://www.voachinese.com/a/EU-G7-Biden-covid-origins-investigation-China-20210609/5924239.html)
+【1】[https://gnews.org/zh-hans/1309032/](https://gnews.org/zh-hans/1309032/)
 
-[G7峰会：英美再就新冠溯源调查向中国施压](https://www.bbc.com/zhongwen/simp/world-57436933)
+【2】[https://www.thegatewaypundit.com/2021/06/vreaking-freight-train-audits-coming-friday-9-delegations-will-visit-friday-one-pallet-left-count/](https://www.thegatewaypundit.com/2021/06/vreaking-freight-train-audits-coming-friday-9-delegations-will-visit-friday-one-pallet-left-count/)
 
-[G7 leaders to call for new probe into origins of Coronavirus: Draft communique](https://www.hindustantimes.com/world-news/g7-leaders-to-call-for-new-probe-into-origins-of-coronavirus-draft-communique-101623338358449.html)
+【3】[https://www.thegatewaypundit.com/2021/06/arizona-audit-update-gop-chair-kelli-ward-says-ballot-count-may-completed-june-14th-presidents-birthday/](https://www.thegatewaypundit.com/2021/06/arizona-audit-update-gop-chair-kelli-ward-says-ballot-count-may-completed-june-14th-presidents-birthday/)
 
 0
