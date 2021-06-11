@@ -1,52 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报 — 病毒篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1315188/)
+## CDC紧急讨论226例接种过中共病毒疫苗少年的心脏炎症问题
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1315311/)
 
-- 作者：Isabe
+加拿大多伦多枫叶农场 阿黎
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11131547/Q5IVT6EKQ5OUTNNAUZBKLFN6YQ-scaled.jpg)
+据《每日邮报》6月10日报道，美国卫生官员周四宣布，男性青少年和年轻人在打完第二针中共病毒疫苗后出现心脏炎症的报告高于预期。
 
+该机构说，共有226个病例被报告，可能符合CDC对注射后心肌炎和心包炎的 “工作病例定义”。在这些病例中，3人在重症监护室，15人住院，41人有持续症状，167人已经康复。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11131914/COVID-19-Vaccine-in-Adolescents_1.jpg)
+疾病控制和预防中心（CDC）周四宣布，会议定于6月18日举行，其顾问将讨论那些接受辉瑞公司和莫德纳公司开发的免疫的人的心肌炎或心肌发炎的病例。
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+截至周四，该机构说它已经收到了475份关于这种情况的报告，其中226份符合它自己对心肌炎的定义。虽然大多数人后来都康复了，但有41名患者出现了持续的症状，而15名仍在住院的患者中有3名仍在接受重症监护。到目前为止，还没有死亡的报告。
 
-**西班牙2021年6月11日电/西喜社——**
+以色列发现辉瑞公司中共病毒疫苗与年轻男性的心脏炎症病例之间 “可能 “存在联系。
 
-您若想了解全文报导内容，请点击标题链接
+尽管CDC之前的一份通知说，心肌炎的病例是 “罕见的”，只影响到美国近1.3亿完全接种疫苗的人中的一小部分，但两周后发布的另一份文件指出，”观察到的数字……比预期的要高”，即16-24岁的人。大多数人在注射第二针疫苗后出现了症状。
 
-**1. [马特·盖茨（Matt Gaetz）– FBI 与中国共产党合作掩盖 COVID 起源？](https://www.redvoicemedia.com/2021/06/matt-gaetz-fbi-covering-up-covid-origins-in-concert-with-chinese-communist-party/)**
+疾病预防控制中心的疫苗安全官员Tom Shimabukuro告诉哥伦比亚广播公司新闻，一些报告的病例在经过更仔细的审查后可能会被排除，不过他补充说，初步信息与以色列研究人员在疫苗接种者身上发现的情况 “一致”。上周，特拉维夫卫生部表示，这种情况可能与疫苗接种有关，特别是对年轻男性而言。
 
-如你所知，最有罪的是中国共产党，但正如你在《国家脉动》上的报道似乎每天都在证明，我们看到中国共产党和美国大部分机构的利益融合在一起。福奇的电子邮件表明，美国科学家和研究人员与武汉的这些活动有多么紧密的联系，而这些活动正是将这种病毒传播到世界上的活动。现在我们看到一个 FBI 错过了一个可以挽救数十万人生命的重要电话。 — 马特·盖茨
+目前疾控中心还在全力推动十二岁以上的青少年接种疫苗。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11122205/unknown-1-5.png)
+辉瑞公司上个月获得了对12岁及以上儿童的紧急使用授权。它现在正致力于对6个月大的儿童进行试验。莫德纳仍然只适用于成人。同时，阿斯利康和强生公司的疫苗也都因可能与血凝块有关而被调查。
 
-**2. [中国声称在蝙蝠体内发现了 24 种不同的以前未知的冠状病毒](https://www.dailymail.co.uk/news/article-9676127/China-claims-24-different-new-coronaviruses-bats-amid-lab-leak-suspicions.html?ito=social-twitter_mailonline)**
+[原文链接](https://www.dailymail.co.uk/news/article-9672233/amp/The-Latest-WHO-warns-delta-variant-hold-Europe.html?__twitter_impression=true)
 
-中国研究人员声称, 据他们的研究结果表明：蝙蝠冠状病毒存在“多样性”，可以传播给人类。他们说：样本中的一种蝙蝠冠状病毒在基因上与引起当前大流行的 SARS-CoV-2 病毒非常相似，以反击 Covid-19 病毒从武汉实验室泄漏的理论。
+* * *
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11122517/unknown-2-4.png)
+*编辑、发稿 文锦*
 
-**3. [中共国官方报道：有超过 6 亿人接受了 COVID-19 接种](https://www.reuters.com/business/healthcare-pharmaceuticals/sinopharm-units-covid-vaccine-secures-approval-use-minors-china-2021-06-11/?taid=60c3342c35ede90001f5ee20&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)**
-
-一名卫生官员周五表示，中国已经有超过 6 亿人接种了 COVID-19 疫苗，因为中国正在努力实现到 6 月底为其 14 亿人口中的 40% 接种疫苗的目标。国家卫生健康委员会（NHC）官员崔刚在媒体吹风会上说，截至周四，已接种了 8.45 亿剂疫苗，覆盖 6.22亿人。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11122916/unknown-3-5.png)
-
-**4. [新研究发现，COVID-19病毒可导致糖尿病](https://abcnews.go.com/Health/covid-19-virus-diabetes-studies-find/story?id=78168634) **
-
-对于感染 COVID-19 病毒的人来说，有一个令人不安的消息。 新的研究发现，除了肺炎和其他健康问题外，该病毒还可能导致糖尿病。“这种病毒实际上会破坏胰腺中制造胰岛素的细胞。”大多数人会从 COVID 中康复而不会出现长期问题，但医生已经注意到一些患者会继续发展为糖尿病。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11123336/unknown-4-5.png)
-
-**5. [研究揭示了病毒进化的早期阶段](https://www.techexplorist.com/study-shed-light-early-stages-viral-evolution/39497/)**
-
-科学家们研究了一个由细菌酶组成的“容器”的结构、组装和进化。
-
-在其进化过程中，这种人造病毒样颗粒有效地包装并保护了其编码信使 RNA 的多个副本。 由于科学家们揭示了病毒如何进化，新的工作可能为未来的病毒治疗铺平道路。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11123549/unknown-5-2.png)
-
-审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-+1
+0

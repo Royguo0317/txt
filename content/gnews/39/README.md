@@ -1,28 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】6/10/2021：闫博士首谈2020年与FBI和国土安全部官员报告经历 堪比好莱坞大片
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1314809/)
+## 《路德社》精选新闻简讯：参议院法案允许台湾士兵在美国穿带国旗的制服
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1314868/)
 
-**编辑：华盛顿DC农场 路德简报项目组**
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11102343/20210610-1-scaled.jpg)
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11102534/20210610-2-scaled.jpg)
-
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11104702/image002-4.jpg)
+参议院以 68 票对 32 票的绝对多数通过了 2021 年《创新与竞争法案》。主要目的是加强美国在技术和研究方面与中国的竞争力。 该法案呼吁取消对美台外交交流的剩余限制。 它既没有向台湾提供外交承认，也没有改变官方对台湾国际地位的立场。 它还呼吁在该法案颁布后 90 天内停止限制其军事人员展示台湾主权的象征。
 
 
 
-> 2021 年6月10 日 路德晚间特刊
-> 
-> 1.闫博士首谈与FBI和国土安全探员接触经历 
-> 
-> 2.中共布网： 原计划在洛杉矶机场让中领馆截走闫博士 不让她在美国揭露中共病毒 
-> 
-> 3.闫博士同学李钰是中共培养的指定联络人 战友要警惕各微信群中都有“ 李钰” 
-> 
-> 4. 闫博士老公三次谋杀闫博士未遂 近期再次入境美图谋不轨 [pic.twitter.com/pPZZV0WgDq](https://t.co/pPZZV0WgDq)
-> — 平民爆料 (@WM18320321) [June 11, 2021](https://twitter.com/WM18320321/status/1403358671212580864?ref_src=twsrc%5Etfw)
+[原文引用](https://www.taiwannews.com.tw/en/news/4219341)
 
+本文作者：Rebecca (一切心皆不可得 ! )
 
+审核校对：sherryok (水云间)
 
-+1
+上传排版：糊糊文婴
+
+0
