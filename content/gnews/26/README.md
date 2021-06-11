@@ -1,47 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 九个州代表团观摩亚利桑那州的“国家审计”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315285/)
+## 我们很激昂，却很不真实
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315487/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：文护念|校对：文明明|审核：SilverSpurs7|Page：小雨
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11130803/A-8.jpg)change.org
-前天（6月8日）笔者转载报道了，在宾夕法尼亚议会参观了“国家审计”后，佐治亚州、阿拉斯加和科罗拉多州也派出代表团赴亚利桑那州参观学习【1】，昨晚（6月10日）“国家审计”现场，又传出消息，将有更多的州观摩，共计达9个州。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11143233/0611011.jpg)
 
-《门道专家》报道说，在周五将有总计达9个州的访问团到亚利桑那州审计中心，目前只剩下一个托盘未清点。【2】
+近日闹得沸沸扬扬的事件无疑是中共国的学界，上海复旦大学海归博士姜文华手刃剽窃论文成果的党委书记王永珍事件。由于受到生理基础的镜像神经元的影响，对他人的感觉作出镜像一般的反应，俗称“同情心”，由于笔者不清楚海归博士姜文华的生平，所以不做过多的评论，但对此悲剧事件深表同情，借此浅谈一下个人愚见。
 
-全文如下：
+处于水深火热的中共国，经济危机、政治危机、病毒危机、道德危机等等错综复杂的因素交错在一起，接下来相似事件很大程度会成为常态，笔者除了无能为力，还是无能为力。但是物有本末，事有终始，冤有头债有主，姜文华此次行为不伤及无辜，没有报复社会，没有自我了断，而是选择了“定点清除”沦为中共卵翼“大学祭酒”的王永珍。相信部分人心中充满晦气，心术不正，稍有想歪，就认为这是非常过瘾，这在医学上叫“鸦片报偿区”，感觉就像看武侠片拔刀相助，觉得很过瘾。我需要阐明我的立场，不鼓励任何暴力，亦不鼓励违法犯罪的事情。
 
-9个州代表团将在周五抵达亚利桑那州进行历史性审计的现场考察。
+[!\[\]()!\[\](https://spark.adobe.com/page/CZnY0NLemA0hw/images/a51cb696-ed30-4a44-a4ff-cb39bb51bc0a.jpg?asset_id=d3b5ec67-27cb-426f-80ed-ca4928a2cc2b&amp;img_etag=%225b53f87c2b50ea2033e3b9ab94ae9ec3%22&amp;size=2560)](https://spark.adobe.com/page/CZnY0NLemA0hw/images/a51cb696-ed30-4a44-a4ff-cb39bb51bc0a.jpg?asset_id=d3b5ec67-27cb-426f-80ed-ca4928a2cc2b&amp;img_etag=%225b53f87c2b50ea2033e3b9ab94ae9ec3%22&amp;size=1024)上海复旦大学海归博士姜文华
 
-截至周二（6月8日），有6个州参观了该设施，周四，弗吉尼亚州参议员阿曼达·蔡斯（Amanda Chase）是第7位。
+每每在中共国出现惨案，社会出现最高的呼声就是：死刑。这些“吃瓜群众”究竟在愤怒什么呢？是愤怒不愿直视的那部分人性吗？一旦发生我们无法理解的事情，大多数人就下意识地与所谓的“邪恶”划清界限，我们习惯性地认为，作恶之人与我们普通人是两个完全不同的物种，他就是凶手，他该死。 从浅层的理解来分析，相信很多的“吃瓜群众”是无法理解，上海复旦学府的海归博士本可有着前途无量的工作，为何会做出此番举动，自毁前程。
 
-这是巨大的！9个州的代表团人数增加了一倍多，这些代表团接受了对审计的巡视，希望复制审计过程。
+看待一个问题的时候，我们更应该系统地分析。海归博士姜文华如若犯罪，会受到相应的惩罚，这是司法程序；但是他为什么会犯错，如果我们不深入去了解分析，得出有用的结论，那么这是大部分“吃瓜群众”无知的表现，这无疑是“弱肾必恨妻，病脑出言欺。”
 
-“全国范围内的审计工作正如火如荼地进行着！”——鲍里斯·爱普什坦（Boris Epshteyn）在班农先生的作战室里说。
+我们讨论的重点是关心如何减少类似的悲剧再次发生，而不是在网上传播自己一知半解的无知的愤怒。要认真了解他们的生活方式，尊重他们，保持敬畏之心，如果无法提供建设性的帮助，那么请收起你们无知的激昂。
 
-对马里科帕（Maricopa）郡2020年大选进行的第一次全面法庭审计，几乎完成了审计的手工清点过程，只剩下一个未开封的票箱托盘。
+比起愤怒，我们更需要的是去反思，去寻找根源。活在中共国这样一个没有相对公平的竞争环境，人与人之间没有一个相互尊重的人文环境，那么我们离邪恶到底有多远？我们到底扮演了什么角色?有没有绝对的好人与坏人？我们都受这个中共体制系统的加害，却也加入到这个系统加害每一个人的进程，严格来讲，从某种程度上来讲很多人并不无辜。
 
-更多的文件审核已经开启，他们计划提高这一进程的速度，手工重新计票很快就要结束了，但文件审核还需要几个星期的时间。
+面对林林总总的社会暴力循环，唯有摧毁中共这个邪恶的政体，才可有一线生机，重塑适合大家生存的生态坏境与人文环境。如果中共这个“体”不亡，则多方面的社会问题就会层出不穷，墙内诸多事件并不是由于道德危机所导致，恰恰则是这个政体逼着走投无路的群众，冒天下之大不韪做出的非理智行为。深信如若不是感到绝望，但凡窥见一丝希望，许多人也不会做出这样的事情。
 
-这一进程应在6月底前完成，不久之后，他们将向全国提供一份调查结果报告。
+邪灵中共只要在地球存在一天，那么我们每一个人都有可能是受害者，亦可能成为无意识的加害者，普通人与罪恶的距离，往往是一念之差。
 
-克里斯蒂娜鲍伯（Christina Bobb）在《美国新闻网》（OANN）说，她预计会看到，“清点的票数与认证的数字相差甚远”（的情况），因为事实上，一些托盘的选票失踪高达20%，这些选票本应都在那里。
+[!\[\]()!\[\](https://spark.adobe.com/page/CZnY0NLemA0hw/images/cf85d094-e89f-4a44-8737-a9de0dfea229.jpg?asset_id=2d6afedd-c4a2-4d1f-b3ba-a0dc867467c2&amp;img_etag=%22d292bba6b3a258ca3404f8bec1ab95e8%22&amp;size=1024)](https://spark.adobe.com/page/CZnY0NLemA0hw/images/cf85d094-e89f-4a44-8737-a9de0dfea229.jpg?asset_id=2d6afedd-c4a2-4d1f-b3ba-a0dc867467c2&amp;img_etag=%22d292bba6b3a258ca3404f8bec1ab95e8%22&amp;size=1024)
 
-（此文完）
+***文章仅代表个人观点***
 
-另据《门道专家》报道，亚利桑那州共和党主席凯利沃德（Kelli Ward）确认，手工计票将在6月14日总统生日前完成【3】，之前有过类似的报道，这是官方的进一步确认。
+编辑：【英国伦敦喜庄园编辑部】
 
-通过透明的重新清点来解决争议，这是常识性问题，难道美国真地堕落到“置常识而不顾”的水准了吗？看来不是，众州来观摩“国家审计”本身就反映了正义力量的伸张，新中国联邦也不会眼睁睁地看着美国堕落下去！
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-参考链接：
 
-【1】[https://gnews.org/zh-hans/1309032/](https://gnews.org/zh-hans/1309032/)
+[!\[\]()!\[\](https://spark.adobe.com/page/CZnY0NLemA0hw/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/CZnY0NLemA0hw/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-【2】[https://www.thegatewaypundit.com/2021/06/vreaking-freight-train-audits-coming-friday-9-delegations-will-visit-friday-one-pallet-left-count/](https://www.thegatewaypundit.com/2021/06/vreaking-freight-train-audits-coming-friday-9-delegations-will-visit-friday-one-pallet-left-count/)
 
-【3】[https://www.thegatewaypundit.com/2021/06/arizona-audit-update-gop-chair-kelli-ward-says-ballot-count-may-completed-june-14th-presidents-birthday/](https://www.thegatewaypundit.com/2021/06/arizona-audit-update-gop-chair-kelli-ward-says-ballot-count-may-completed-june-14th-presidents-birthday/)
 
 0

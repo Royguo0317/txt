@@ -1,57 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】以法律名义“杀人止谤”：中共制定《军人地位和权益保障法》
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1315580/)
+## 【拆台新闻】 修改安全生产法就能安全吗？
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1315662/)
 
-作者：纽约香草山农场 写作四组 唯心力行
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11190101/31-2.jpg)
+来自中共新闻联播，在国务院新闻办6月11日举行的发布会，应急管理部相关负责人介绍，新修改的安全生产法将于今年9月1日起施行。修改后的安全生产法明确规定，健全安全生产责任体系，强化新问题新风险的防范应对，加大对违法行为的惩处力度等。发生特别重大生产安全事故，对负有责任的生产经营单位最高罚款可达一亿元。此外还增加了对违法行为可以按日连续计罚的规定。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+首先，请解释什么是“新问题新风险”，那么对应的理应是“旧问题旧风险”咯，在安全面前暴露出来的问题难道还有新旧之分吗？那么划分新旧之间的标准又是什么呢？什么样的问题和风险才适用于新修改的安全生产法呢？
 
+其次，“加大违法行为的惩处力度”，我只看到当发生特别重大生产安全事故时，只有对负的生产经营单位的经济处罚提高了，金额提高到一亿元。那么对于造成重大伤亡的本质原因是否都是生产经营单位的问题呢？如果是因为管理不善或者制度缺漏而造成的事故，这些负责监管的政府部门和制定制度的司法部门，又该如何承担事故后果呢？再者，只将经济处罚提高了，是否意味着所有的事故，最终都能靠金钱来摆平呢？对于昧着良心赚钱的黑心商人来说，只赔钱，没有其他明文规定的刑事处罚升级，是否正中下怀了呢？
 
+安全生产法，何来安全？对劳动者安全，对生产经营单位安全，还是对官员安全？总之，最不安全的肯定是老百姓了。
 
+（本文只代表作者观点，与Gnews平台无关。）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11170635/%E6%9D%80%E4%BA%BA%E6%AD%A2%E8%B0%A4-%E9%81%93%E8%B7%AF%E4%BB%A5%E7%9B%AE-1.png)*背景图片来源：新唐人电视台（ [https://www.ntdtv.com/b5/2019/07/30/a102633843.html](https://www.ntdtv.com/b5/2019/07/30/a102633843.html)）*
-据中共官宣《新华社》北京6月10日电，十三届全国人大常委会第二十九次会议，10日表决通过了《军人地位和权益保障法》，规定“任何组织和个人不得以任何方式诋毁、贬损军人的荣誉，侮辱、诽谤军人的名誉，不得故意毁损、玷污军人的荣誉标识”【1】等。
+**新闻来源：**
 
-该法立法宗旨不仅在于落实“先军政治”，更是密织法网“杀人止谤”。中共以法律的名义坏事做绝，依法治国就是黑帮治国的代名词。按照中共宪法第35条规定，公民“有言论、出版、集会、结社、游行、示威的自由”【2】。但是，宪法第一条规定，“禁止任何组织或者个人破坏社会主义制度”【2】，中共的领导是社会主义的本质特征。第一条的宪法地位最高，统领其他宪法条文。中共出台一系列法律禁止一切反党、反社会主义的言论和思想，人的内在精神和外在表达都成为被惩罚的对象。
+[国内联播快讯2021年06月11日新闻联播 (xwlb.net.cn)](http://www.xwlb.net.cn/20078.html)
 
-这不禁让人联想到《国语》和《史记-周本纪》记载的西周末年厉王“杀人止谤”，民众“道路以目”的场景。最后的结局是，不可一世的周厉王，被国人暴动推翻。
-
-“杀人止谤”和“道路以目”讲的是：西周时期的周厉王是历史上有名的暴君，他暴虐凶残、拒不纳谏，甚至不惜杀人止谤，以至于使国人都“莫敢出言”，仅能靠目光来传达信息。百姓最终忍无可忍发动起义，周厉王被逼逃亡，西周自此走向败亡【3】。
-
-今天的中共是人类有史以来最为残暴的统治者，其杀人的数量和对民众的控制程度登峰造极。但其覆灭也指日可待。
-
-资料来源：
-
-【1】[http://www.xinhuanet.com/2021-06/11/c\_1127552223.htm](http://www.xinhuanet.com/2021-06/11/c_1127552223.htm)
-
-【2】
-
-[https://www.acftu.org/wjzl/flfg/fl/202011/t20201124\_739866.html?7OkeOa4k=qAc3kqqZHkaZHkaZHhvGShz6VewcxPR7WNZbYxnq1raqqqqqqqqqqqqqHq](https://www.acftu.org/wjzl/flfg/fl/202011/t20201124_739866.html?7OkeOa4k=qAc3kqqZHkaZHkaZHhvGShz6VewcxPR7WNZbYxnq1raqqqqqqqqqqqqqHq)
-
-【3】[https://www.sohu.com/a/397369350\_120680166](https://www.sohu.com/a/397369350_120680166)
-
-【4】[https://gnews.org/zh-hans/1145695/](https://gnews.org/zh-hans/1145695/)
-
-编辑/校对/发稿：Delilah小胖
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
-
-
-
+***校对发布**：文顾*
 
 0

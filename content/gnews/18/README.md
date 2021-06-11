@@ -1,43 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我们很激昂，却很不真实
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315487/)
+## 【世事解评】以法律名义“杀人止谤”：中共制定《军人地位和权益保障法》
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1315580/)
 
-作者：文护念|校对：文明明|审核：SilverSpurs7|Page：小雨
+作者：纽约香草山农场 写作四组 唯心力行
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11143233/0611011.jpg)
-
-近日闹得沸沸扬扬的事件无疑是中共国的学界，上海复旦大学海归博士姜文华手刃剽窃论文成果的党委书记王永珍事件。由于受到生理基础的镜像神经元的影响，对他人的感觉作出镜像一般的反应，俗称“同情心”，由于笔者不清楚海归博士姜文华的生平，所以不做过多的评论，但对此悲剧事件深表同情，借此浅谈一下个人愚见。
-
-处于水深火热的中共国，经济危机、政治危机、病毒危机、道德危机等等错综复杂的因素交错在一起，接下来相似事件很大程度会成为常态，笔者除了无能为力，还是无能为力。但是物有本末，事有终始，冤有头债有主，姜文华此次行为不伤及无辜，没有报复社会，没有自我了断，而是选择了“定点清除”沦为中共卵翼“大学祭酒”的王永珍。相信部分人心中充满晦气，心术不正，稍有想歪，就认为这是非常过瘾，这在医学上叫“鸦片报偿区”，感觉就像看武侠片拔刀相助，觉得很过瘾。我需要阐明我的立场，不鼓励任何暴力，亦不鼓励违法犯罪的事情。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/CZnY0NLemA0hw/images/a51cb696-ed30-4a44-a4ff-cb39bb51bc0a.jpg?asset_id=d3b5ec67-27cb-426f-80ed-ca4928a2cc2b&amp;img_etag=%225b53f87c2b50ea2033e3b9ab94ae9ec3%22&amp;size=2560)](https://spark.adobe.com/page/CZnY0NLemA0hw/images/a51cb696-ed30-4a44-a4ff-cb39bb51bc0a.jpg?asset_id=d3b5ec67-27cb-426f-80ed-ca4928a2cc2b&amp;img_etag=%225b53f87c2b50ea2033e3b9ab94ae9ec3%22&amp;size=1024)上海复旦大学海归博士姜文华
-
-每每在中共国出现惨案，社会出现最高的呼声就是：死刑。这些“吃瓜群众”究竟在愤怒什么呢？是愤怒不愿直视的那部分人性吗？一旦发生我们无法理解的事情，大多数人就下意识地与所谓的“邪恶”划清界限，我们习惯性地认为，作恶之人与我们普通人是两个完全不同的物种，他就是凶手，他该死。 从浅层的理解来分析，相信很多的“吃瓜群众”是无法理解，上海复旦学府的海归博士本可有着前途无量的工作，为何会做出此番举动，自毁前程。
-
-看待一个问题的时候，我们更应该系统地分析。海归博士姜文华如若犯罪，会受到相应的惩罚，这是司法程序；但是他为什么会犯错，如果我们不深入去了解分析，得出有用的结论，那么这是大部分“吃瓜群众”无知的表现，这无疑是“弱肾必恨妻，病脑出言欺。”
-
-我们讨论的重点是关心如何减少类似的悲剧再次发生，而不是在网上传播自己一知半解的无知的愤怒。要认真了解他们的生活方式，尊重他们，保持敬畏之心，如果无法提供建设性的帮助，那么请收起你们无知的激昂。
-
-比起愤怒，我们更需要的是去反思，去寻找根源。活在中共国这样一个没有相对公平的竞争环境，人与人之间没有一个相互尊重的人文环境，那么我们离邪恶到底有多远？我们到底扮演了什么角色?有没有绝对的好人与坏人？我们都受这个中共体制系统的加害，却也加入到这个系统加害每一个人的进程，严格来讲，从某种程度上来讲很多人并不无辜。
-
-面对林林总总的社会暴力循环，唯有摧毁中共这个邪恶的政体，才可有一线生机，重塑适合大家生存的生态坏境与人文环境。如果中共这个“体”不亡，则多方面的社会问题就会层出不穷，墙内诸多事件并不是由于道德危机所导致，恰恰则是这个政体逼着走投无路的群众，冒天下之大不韪做出的非理智行为。深信如若不是感到绝望，但凡窥见一丝希望，许多人也不会做出这样的事情。
-
-邪灵中共只要在地球存在一天，那么我们每一个人都有可能是受害者，亦可能成为无意识的加害者，普通人与罪恶的距离，往往是一念之差。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/CZnY0NLemA0hw/images/cf85d094-e89f-4a44-8737-a9de0dfea229.jpg?asset_id=2d6afedd-c4a2-4d1f-b3ba-a0dc867467c2&amp;img_etag=%22d292bba6b3a258ca3404f8bec1ab95e8%22&amp;size=1024)](https://spark.adobe.com/page/CZnY0NLemA0hw/images/cf85d094-e89f-4a44-8737-a9de0dfea229.jpg?asset_id=2d6afedd-c4a2-4d1f-b3ba-a0dc867467c2&amp;img_etag=%22d292bba6b3a258ca3404f8bec1ab95e8%22&amp;size=1024)
-
-***文章仅代表个人观点***
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CZnY0NLemA0hw/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/CZnY0NLemA0hw/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11170635/%E6%9D%80%E4%BA%BA%E6%AD%A2%E8%B0%A4-%E9%81%93%E8%B7%AF%E4%BB%A5%E7%9B%AE-1.png)*背景图片来源：新唐人电视台（ [https://www.ntdtv.com/b5/2019/07/30/a102633843.html](https://www.ntdtv.com/b5/2019/07/30/a102633843.html)）*
+据中共官宣《新华社》北京6月10日电，十三届全国人大常委会第二十九次会议，10日表决通过了《军人地位和权益保障法》，规定“任何组织和个人不得以任何方式诋毁、贬损军人的荣誉，侮辱、诽谤军人的名誉，不得故意毁损、玷污军人的荣誉标识”【1】等。
+
+该法立法宗旨不仅在于落实“先军政治”，更是密织法网“杀人止谤”。中共以法律的名义坏事做绝，依法治国就是黑帮治国的代名词。按照中共宪法第35条规定，公民“有言论、出版、集会、结社、游行、示威的自由”【2】。但是，宪法第一条规定，“禁止任何组织或者个人破坏社会主义制度”【2】，中共的领导是社会主义的本质特征。第一条的宪法地位最高，统领其他宪法条文。中共出台一系列法律禁止一切反党、反社会主义的言论和思想，人的内在精神和外在表达都成为被惩罚的对象。
+
+这不禁让人联想到《国语》和《史记-周本纪》记载的西周末年厉王“杀人止谤”，民众“道路以目”的场景。最后的结局是，不可一世的周厉王，被国人暴动推翻。
+
+“杀人止谤”和“道路以目”讲的是：西周时期的周厉王是历史上有名的暴君，他暴虐凶残、拒不纳谏，甚至不惜杀人止谤，以至于使国人都“莫敢出言”，仅能靠目光来传达信息。百姓最终忍无可忍发动起义，周厉王被逼逃亡，西周自此走向败亡【3】。
+
+今天的中共是人类有史以来最为残暴的统治者，其杀人的数量和对民众的控制程度登峰造极。但其覆灭也指日可待。
+
+资料来源：
+
+【1】[http://www.xinhuanet.com/2021-06/11/c\_1127552223.htm](http://www.xinhuanet.com/2021-06/11/c_1127552223.htm)
+
+【2】
+
+[https://www.acftu.org/wjzl/flfg/fl/202011/t20201124\_739866.html?7OkeOa4k=qAc3kqqZHkaZHkaZHhvGShz6VewcxPR7WNZbYxnq1raqqqqqqqqqqqqqHq](https://www.acftu.org/wjzl/flfg/fl/202011/t20201124_739866.html?7OkeOa4k=qAc3kqqZHkaZHkaZHhvGShz6VewcxPR7WNZbYxnq1raqqqqqqqqqqqqqHq)
+
+【3】[https://www.sohu.com/a/397369350\_120680166](https://www.sohu.com/a/397369350_120680166)
+
+【4】[https://gnews.org/zh-hans/1145695/](https://gnews.org/zh-hans/1145695/)
+
+编辑/校对/发稿：Delilah小胖
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
 
 
 

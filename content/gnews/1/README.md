@@ -1,35 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国防部长担心中美印太对峙会意外升级
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315656/)
+## CNN也给中共添堵
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315702/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11185835/A-9.jpg)independenteagle.com
-《日经亚洲新闻》 6月11日报道，美国国防部长劳埃德·奥斯汀(Lloyd Austin)6月10日对议员们说，中共国正准备控制印度洋-太平洋地区，华盛顿和北京领导人之间没有直接沟通，一个小事件就可能引发危机。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11193917/B-11.jpg)swifttheadline.com
+目前为止从G7峰会上看不到太多的讨共、罚共的消息，给人一种G7们“不敢惹中共”的感觉，只在疑似中共大外宣的CNN看到一则对中共似夸似贬的短文，“中共国可能不是七国集团的成员，但它在议程上占据主导地位”【1】。
 
-奥斯汀称，缺少热线电话(通常被称为红色电话)是一个“关键问题”。奥斯汀回答现任缅因州参议院议员及前缅因州州长安格斯·金 (Angus King)的问题时，他将现有的情形比作《八月炮火》，一部有关第一次世界大战史的著作。这本书就是叙述1914年8月第一次世界大战在大战危机的形成、爆发以及大战初期的战役。大战起因是1914年6月奥匈王位继承人被暗杀引爆武装冲突，而部分原因是缺乏缓和紧张局势的机制。
+6月11日的文章说，中共国的崛起及带来的意识形态挑战，将成为七国集团峰会领导人面临的最紧迫议题之一。
 
-在参议院军事委员会(Senate Armed Services Committee)举行的一场国防预算听证会上，金开玩笑说到，该书在亚马逊(Amazon.com)上有中文译本，“我想我可以把它们买下来，送到北京的政治局去。”
+作为美国总统的第一次国外之行中，拜登将试图说服盟国加入华盛顿，对北京在新疆、香港和南海等地区的行动采取强硬立场。
 
-但金对他所看到的危险并不轻率。他指出，“我认为，这个国家今天面临的最严重风险之一是与中共国的意外冲突，在南中国海、台湾海峡的某种冲突，以及从这种意外冲突中升级的危险。”
+拜登上周在《华盛顿邮报》（the Washington Post）上撰文指出，“美国必须强大以领导世界”，对抗包括“中俄两国政府的有害活动”。
 
-“让我担心的是，我们似乎没有一个有效的热线，直接的，不管你想怎么称呼它，与中共国”在总统或国防部长级别。金说，“我知道中共国不愿意这么做，但我相信……应该成为国家安全的优先事项。”
+在一些地区，有迹象表明这种统一战线已经形成。
 
-奥斯汀同意建立更好的联系是减轻意外冲突升级风险的重要途径， 他说:“当我们看到中共国在印度洋-太平洋地区的一些侵略性行为时，你知道，我担心可能发生的事情会引发一场危机，我认为……我们需要能够与我们的盟友和伙伴以及我们的对手或潜在对手进行对话。”
+在周四（6月10日）的一份联合声明中，拜登和他的英国同行鲍里斯·约翰逊（Boris Johnson）誓言支持进一步调查中共病毒的来源，包括在中共国的来源。
 
-在听证会上，参议员们多次询问奥斯汀对中共国意图的评估，以及美国是否采取了足够的措施与中共国作战并赢得战争。
+来自英国和其他七国集团成员国的支持，将为拜登推动重新审查病毒来源，包括对实验室泄漏理论进行新的审查增加砝码。北京上个月猛烈抨击拜登的呼吁，指责华盛顿“通过政治操纵来推卸责任”。
 
-奥斯汀说，“我相信他们的目标是控制印太地区”，“我也相信，他们渴望成为世界上的主导或卓越的国家。所以我认为他们正在朝着这个目标努力”。
+据报道，预计拜登在峰会上将推出一个绿色替代方案，与中共国的“一带一路”倡议相抗衡，旨在支持发展中国家的可持续发展。
 
-但当有参议员提出美国需阻止中共对台湾采取行动时，参谋长联席会议主席马克·米勒警告称，美国的主要目的应当是威慑，而不是冲突。这位四星上将说，“我们正处于大国战略竞争的状态。它需要保持竞争，而威慑是防止它从竞争走向事件或从竞争走向战争的关键。”
+（CNN文章完）
 
-米勒说，你要让对手知道你有阻止他的能力，这样威慑就会起作用。他补充道，“但我可以向你们保证，我们有能力按照台湾关系法等作出政治决定。我们确实有军事能力。”
+美英联合声明就中共病毒起源问题的表述如下【2】：我们还将支持世卫组织主持的中共病毒（COVID-19）起源调查的第二阶段，包括中共国在内的一个及时、透明和以证据为基础的独立程序，以及调查来历不明的疫情。
 
 参考链接：
 
-[https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/China-wants-to-control-Indo-Pacific-Defense-Secretary-Austin-says](https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/China-wants-to-control-Indo-Pacific-Defense-Secretary-Austin-says)
+【1】[https://www.cnn.com/world/live-news/biden-g7-summit-updates-intl-06-11-2021/h\_bfc1491d4ddde2ea76d30e6b0c725233](https://www.cnn.com/world/live-news/biden-g7-summit-updates-intl-06-11-2021/h_bfc1491d4ddde2ea76d30e6b0c725233)
+
+【2】[https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/10/joint-statement-on-the-visit-to-the-united-kingdom-of-the-honorable-joseph-r-biden-jr-president-of-the-united-states-of-america-at-the-invitation-of-the-rt-hon-boris-johnson-m-p-the-prime-min/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/10/joint-statement-on-the-visit-to-the-united-kingdom-of-the-honorable-joseph-r-biden-jr-president-of-the-united-states-of-america-at-the-invitation-of-the-rt-hon-boris-johnson-m-p-the-prime-min/)
 
 0

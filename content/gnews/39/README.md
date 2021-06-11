@@ -1,71 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】我有追求公义之心，也有心思意念的罪——《什么是罪？我是罪人吗？》观后感
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1315038/)
+## 西喜时事新闻简报 — 病毒篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1315188/)
 
-作者：纽约香草山农场福音部  一棵草
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
+- 作者：Isabe
 
 
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11113340/%E5%9B%BE%E7%89%8733.png)
+**西班牙2021年6月11日电/西喜社——**
 
-作为一名爆料革命的战友，跟着七哥走在行公义讨伐CCP的路上，难道我还有罪吗？
+您若想了解全文报导内容，请点击标题链接
 
-七哥说过，如果一个体制内的既得利益者，还能反对CCP，反对这个体制，不是更伟大吗？
+**1. [马特·盖茨（Matt Gaetz）– FBI 与中国共产党合作掩盖 COVID 起源？](https://www.redvoicemedia.com/2021/06/matt-gaetz-fbi-covering-up-covid-origins-in-concert-with-chinese-communist-party/)**
 
-这句话，让我不禁问自己：如果我不是受迫害的地主后代，而是个官三代，享受着世界级的荣华富贵，我还会不会痛恨共产主义而支持爆料革命？我会不会怜悯敬佩那些为争取自由而死去的香港年轻人？我会不会对武汉那么多因CCP病毒冤死的老百姓有悲悯之心？我发现，我居然不敢肯定地说，我会。那么多财富，我能放弃吗？能舍得为所欲为的权力吗？面对生死，能不妥协吗？
+如你所知，最有罪的是中国共产党，但正如你在《国家脉动》上的报道似乎每天都在证明，我们看到中国共产党和美国大部分机构的利益融合在一起。福奇的电子邮件表明，美国科学家和研究人员与武汉的这些活动有多么紧密的联系，而这些活动正是将这种病毒传播到世界上的活动。现在我们看到一个 FBI 错过了一个可以挽救数十万人生命的重要电话。 — 马特·盖茨
 
-一个假设，就把我打回原形了。贪婪、懦弱、冷漠、自私，还有太多心思意念里的恶，差不多都有。人几乎都是善与恶并存的矛盾体，善恶从何而来？带着这些疑惑，一起看看福音漫谈《什么是罪？我是罪人吗？》的解读。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11122205/unknown-1-5.png)
 
-先从神创造人说起，神按照自己的样子创造人，神是希望人的心和神一样，完美无暇。因为神是全然圣洁、公义、慈爱、信实、荣耀的。在我们的灵魂中有神的美好的一面，我们都向往公平、自由、博爱、谦卑、善良，没有邪恶。所以爆料革命像滚雪球一样，凝聚了越来越多的各行各业，不分阶层的追随正义的战友们，坚定地一起战斗，要灭掉魔鬼撒旦共产党。
+**2. [中国声称在蝙蝠体内发现了 24 种不同的以前未知的冠状病毒](https://www.dailymail.co.uk/news/article-9676127/China-claims-24-different-new-coronaviruses-bats-amid-lab-leak-suspicions.html?ito=social-twitter_mailonline)**
 
-但同时在爆料革命当中又有背叛，有懦弱，有贪心、嫉妒、恼恨、淫乱、诡诈、污秽、欺骗、自私，为什么追求公义的路上，这些罪恶让我们不断地迷失方向？
+中国研究人员声称, 据他们的研究结果表明：蝙蝠冠状病毒存在“多样性”，可以传播给人类。他们说：样本中的一种蝙蝠冠状病毒在基因上与引起当前大流行的 SARS-CoV-2 病毒非常相似，以反击 Covid-19 病毒从武汉实验室泄漏的理论。
 
-从罪恶之源——始祖亚当——说起，这些罪恶是亚当和夏娃背叛，远离了神的结果。在创世记第二章：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11122517/unknown-2-4.png)
 
-2.16 耶和华神吩咐他说，园中各样树上的果子，你可以随意吃。
+**3. [中共国官方报道：有超过 6 亿人接受了 COVID-19 接种](https://www.reuters.com/business/healthcare-pharmaceuticals/sinopharm-units-covid-vaccine-secures-approval-use-minors-china-2021-06-11/?taid=60c3342c35ede90001f5ee20&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)**
 
-2.17 只是分别善恶树上的果子，你不可吃，因为你吃的日子必定死。
+一名卫生官员周五表示，中国已经有超过 6 亿人接种了 COVID-19 疫苗，因为中国正在努力实现到 6 月底为其 14 亿人口中的 40% 接种疫苗的目标。国家卫生健康委员会（NHC）官员崔刚在媒体吹风会上说，截至周四，已接种了 8.45 亿剂疫苗，覆盖 6.22亿人。
 
-但是亚当和夏娃在伊甸园受了魔鬼撒旦的试探之后，吃了善恶树上的果子，开始了罪的起源。当神质问他们的时候，亚当把责任推给夏娃，夏娃归咎于蛇的引诱。这种低下的推诿之心，更让神愤怒，把他们赶出了伊甸园，接下来我们每个人因罪必死，过着善与罪纠缠的矛盾人生。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11122916/unknown-3-5.png)
 
-并且这个罪的发展非常迅速，亚当和夏娃的儿子该隐，因嫉妒恼恨而杀了弟弟亚伯，心思意念上的罪，如此之快地成为了行为上的犯罪，现在人类法律上的犯罪，可见罪之深重，不可自已。
+**4. [新研究发现，COVID-19病毒可导致糖尿病](https://abcnews.go.com/Health/covid-19-virus-diabetes-studies-find/story?id=78168634) **
 
-法律上的罪是因（贪心、嫉妒、恼恨、淫乱、诡诈、污秽、欺骗、自私）心思意念上的罪发展而成的，所以法律是人的道德最低的一个标准。共产党的罪，比法律的标准更低，已经低到了人能想象的罪的极限，人神共愤怒。
+对于感染 COVID-19 病毒的人来说，有一个令人不安的消息。 新的研究发现，除了肺炎和其他健康问题外，该病毒还可能导致糖尿病。“这种病毒实际上会破坏胰腺中制造胰岛素的细胞。”大多数人会从 COVID 中康复而不会出现长期问题，但医生已经注意到一些患者会继续发展为糖尿病。
 
-现在我们知道，始祖亚当和夏娃，亏缺了神的荣耀，与神的差距就是我们的罪。这种罪，一直都伴随着人类，即使我们跟随爆料革命行公义，我们依然摆脱不掉。但是我们要永远活在因罪必死的定律里，不可自拔吗？神就不让我们回到他的身边吗？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11123336/unknown-4-5.png)
 
-不！神爱我们，爱他创造的，又让他失望的，无法自救的人类。
+**5. [研究揭示了病毒进化的早期阶段](https://www.techexplorist.com/study-shed-light-early-stages-viral-evolution/39497/)**
 
-神亲自来拯救我们，让我们藉着信，白白地得到永生和赦罪的恩典。
+科学家们研究了一个由细菌酶组成的“容器”的结构、组装和进化。
 
-神甚至将他的独生子赐给我们，叫一切信他的，不至灭亡，反得永生。
+在其进化过程中，这种人造病毒样颗粒有效地包装并保护了其编码信使 RNA 的多个副本。 由于科学家们揭示了病毒如何进化，新的工作可能为未来的病毒治疗铺平道路。
 
-用他的独生子耶稣基督的宝血，赦免了我们的罪，只要我们相信他。这一期福音漫谈对罪的解读，让我更顺服创造我们的万能的神，赞美圣洁公义的神，感谢神！哈利路亚！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11123549/unknown-5-2.png)
 
-相关链接：
+审核：蚂蚁兄弟；校对：阿伯塔；发稿：信心的选择
 
-福音漫谈《什么是罪？我是罪人吗？》GTV https://www.gtv.org/video/id=5fdfdde9c0544c3d972f5dfb
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
