@@ -1,47 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 九个州代表团观摩亚利桑那州的“国家审计”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315285/)
+## 西喜时事新闻简报 — 中共反人类罪篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1315422/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+- 作者：蚂蚁兄弟
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11130803/A-8.jpg)change.org
-前天（6月8日）笔者转载报道了，在宾夕法尼亚议会参观了“国家审计”后，佐治亚州、阿拉斯加和科罗拉多州也派出代表团赴亚利桑那州参观学习【1】，昨晚（6月10日）“国家审计”现场，又传出消息，将有更多的州观摩，共计达9个州。
 
-《门道专家》报道说，在周五将有总计达9个州的访问团到亚利桑那州审计中心，目前只剩下一个托盘未清点。【2】
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-全文如下：
+**西班牙2021年6月11日电/西喜社——**
 
-9个州代表团将在周五抵达亚利桑那州进行历史性审计的现场考察。
+您若想了解全文报导内容，请点击标题链接
 
-截至周二（6月8日），有6个州参观了该设施，周四，弗吉尼亚州参议员阿曼达·蔡斯（Amanda Chase）是第7位。
+**1. [新报告详述中共国维吾尔族穆斯林遭受酷刑的第一手资料](https://www.npr.org/2021/06/10/1005263835/new-report-details-firsthand-accounts-of-torture-from-uyghur-muslims-in-china?t=1623415668129&amp;t=1623438210841)**
 
-这是巨大的！9个州的代表团人数增加了一倍多，这些代表团接受了对审计的巡视，希望复制审计过程。
+10日，美国国家公共广播电台NPR，根据国际特赦组织周四发表的一份新报告，中共政府针对穆斯林少数民族群体的迫害行为构成了反人类罪。该报告详细介绍了中共政府有组织地大规模监禁、酷刑和迫害新疆省人民，包括维吾尔族和哈萨克族。报告还详细介绍了中共国政府广泛的掩盖行为。
 
-“全国范围内的审计工作正如火如荼地进行着！”——鲍里斯·爱普什坦（Boris Epshteyn）在班农先生的作战室里说。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135327/unknown-6-2.png)
 
-对马里科帕（Maricopa）郡2020年大选进行的第一次全面法庭审计，几乎完成了审计的手工清点过程，只剩下一个未开封的票箱托盘。
+**2. [中共国的维吾尔人生活在一个 “乌托邦式的地狱环境 “中](https://www.theguardian.com/global-development/2021/jun/10/china-uyghur-xinjiang-dystopian-hellscape-says-amnesty-international-report)**
 
-更多的文件审核已经开启，他们计划提高这一进程的速度，手工重新计票很快就要结束了，但文件审核还需要几个星期的时间。
+英国卫报10日报道，国际特赦组织收集的中共国新疆地区侵犯人权的新证据显示，对于数十万遭受大规模拘禁和酷刑的穆斯林来说，新疆已经成为一个 “乌托邦式的地狱景象”。
 
-这一进程应在6月底前完成，不久之后，他们将向全国提供一份调查结果报告。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135437/unknown-7-3.png)
 
-克里斯蒂娜鲍伯（Christina Bobb）在《美国新闻网》（OANN）说，她预计会看到，“清点的票数与认证的数字相差甚远”（的情况），因为事实上，一些托盘的选票失踪高达20%，这些选票本应都在那里。
+**3.  [美国对维吾尔族种族灭绝的反应](https://www.browndailyherald.com/2021/06/10/harris-22-iqbal-24-american-response-uyghur-genocide/)**
 
-（此文完）
+面对维吾尔族人被中共灭绝的危机，美国站出来了，面对全世界大声谴责中共、有针对性的全球联合制裁和对维吾尔难民的直接援助，为应对我们这一代最恶劣的人道主义危机之一，提供了有效的负责任和手段。
 
-另据《门道专家》报道，亚利桑那州共和党主席凯利沃德（Kelli Ward）确认，手工计票将在6月14日总统生日前完成【3】，之前有过类似的报道，这是官方的进一步确认。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135606/unknown-8-2.png)
 
-通过透明的重新清点来解决争议，这是常识性问题，难道美国真地堕落到“置常识而不顾”的水准了吗？看来不是，众州来观摩“国家审计”本身就反映了正义力量的伸张，新中国联邦也不会眼睁睁地看着美国堕落下去！
+**4. [中共国的一些“苹果”供应商在招聘启事中说他们不会雇用维吾尔族穆斯林等少数民族](https://www.businessinsider.com/apple-suppliers-china-uyghur-muslims-job-postings-the-information-2021-6)**
 
-参考链接：
+据The Information周二报道，中共国的一些“苹果”供应商不接受少数民族求职者，并明确表示边缘化群体的成员不应该申请。
 
-【1】[https://gnews.org/zh-hans/1309032/](https://gnews.org/zh-hans/1309032/)
+该新闻网站发现，为iPhone、iPad和AirPods生产零部件的公司在网上发布了歧视性的招聘信息，如电路板、iPhone玻璃、数据线和相机镜头。富士康科技是被发现的公司之一，招聘广告写道。“不接受来自西藏或新疆地区的藏族、维吾尔族、回族、彝族、东乡族人”。另一份来自生产iPhone零部件的国泰达明公司的文件写道：”只接受没有饮食限制的少数民族（维吾尔族除外）”。
 
-【2】[https://www.thegatewaypundit.com/2021/06/vreaking-freight-train-audits-coming-friday-9-delegations-will-visit-friday-one-pallet-left-count/](https://www.thegatewaypundit.com/2021/06/vreaking-freight-train-audits-coming-friday-9-delegations-will-visit-friday-one-pallet-left-count/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135713/unknown-9-2.png)
 
-【3】[https://www.thegatewaypundit.com/2021/06/arizona-audit-update-gop-chair-kelli-ward-says-ballot-count-may-completed-june-14th-presidents-birthday/](https://www.thegatewaypundit.com/2021/06/arizona-audit-update-gop-chair-kelli-ward-says-ballot-count-may-completed-june-14th-presidents-birthday/)
+**5. **[**报道称阿联酋、沙特、埃及将维吾尔人驱逐至中共国**](https://www.middleeastmonitor.com/20210609-uae-saudi-egypt-deporting-uyghurs-to-china-report-says/)
 
-0
+据CNN报道，土耳其、阿拉伯联合酋长国、埃及和沙特阿拉伯被列为将维吾尔族穆斯林驱逐到中共国的国家，这些引起了人们对中共日益增长的影响力的担忧。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135823/unknown-10-2.png)
+
+审核：Aries的星；校对：信心满满；发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
++1

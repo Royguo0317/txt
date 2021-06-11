@@ -1,33 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国必须打击中共国的“境外影响”
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1315502/)
+## 【世事解评】以法律名义“杀人止谤”：中共制定《军人地位和权益保障法》
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1315580/)
 
-#### 编译：Boxinglady ( 文拳）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11151113/Screenshot-2021-06-11-12.09.25-PM.png)
-美国参议员马克卢比奥周四表示，美国需要反击中国政府的“境外影响”，以更好地保护世界各地的维吾尔人，并要求对美国有线电视新闻网（CNN）报道的关于在北京的要求下，几个主要的阿拉伯国家在其境内驱逐了维吾尔人的事件进行调查。
+作者：纽约香草山农场 写作四组 唯心力行
 
-美国参议院外交关系委员会成员在与人权观察中共国部主任索菲·理查森的讨论中提到了这份独家报告。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-“美国有线电视新闻网报道了一名维吾尔族男子在迪拜被迫离开其怀孕的妻子，被带走并被引渡到中共国，”卢比奥在周四向委员会发表的开幕词中说。 “如果我们现在不反击中共的境外势力，总有一天我们会发现这种做法会越来越频繁，以至于中共国以外的许多地方都将与中共国一样危险。领土被中共直接控制。”
 
-美国有线电视新闻网周二发布的报告记录了一系列据称应中共国要求从阿拉伯联合酋长国、沙特阿拉伯和埃及三个主要阿拉伯国家被拘留和驱逐出境的事件。一名维吾尔族男子仍有被沙特阿拉伯驱逐出境的风险。
 
-近年来，在习近平主席的领导下，北京对该地区少数民族的政策明显加强，促使许多人逃往海外。被驱逐者的家人担心，他们的亲人最终会成为近年来被送往新疆拘禁营的大约 200 万维吾尔人中的一员。
 
-前被拘留者和活动人士称这些为“集中营”——囚犯们在这些地方接受旨在去伊斯兰化的强烈灌输，被迫学习普通话，并接受共产党宣传的指导。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11170635/%E6%9D%80%E4%BA%BA%E6%AD%A2%E8%B0%A4-%E9%81%93%E8%B7%AF%E4%BB%A5%E7%9B%AE-1.png)*背景图片来源：新唐人电视台（ [https://www.ntdtv.com/b5/2019/07/30/a102633843.html](https://www.ntdtv.com/b5/2019/07/30/a102633843.html)）*
+据中共官宣《新华社》北京6月10日电，十三届全国人大常委会第二十九次会议，10日表决通过了《军人地位和权益保障法》，规定“任何组织和个人不得以任何方式诋毁、贬损军人的荣誉，侮辱、诽谤军人的名誉，不得故意毁损、玷污军人的荣誉标识”【1】等。
 
-美国国务院指责北京对维吾尔人实施“种族灭绝”。中共国强烈否认侵犯人权的指控，坚称新疆营地是自愿的“职业培训中心”，旨在消除宗教极端主义和恐怖主义。
+该法立法宗旨不仅在于落实“先军政治”，更是密织法网“杀人止谤”。中共以法律的名义坏事做绝，依法治国就是黑帮治国的代名词。按照中共宪法第35条规定，公民“有言论、出版、集会、结社、游行、示威的自由”【2】。但是，宪法第一条规定，“禁止任何组织或者个人破坏社会主义制度”【2】，中共的领导是社会主义的本质特征。第一条的宪法地位最高，统领其他宪法条文。中共出台一系列法律禁止一切反党、反社会主义的言论和思想，人的内在精神和外在表达都成为被惩罚的对象。
 
-简评：背负着种族灭绝罪的中共集权政府，不但在境内侵犯少数民族人民的人权，它的侵权魔掌早已通过中共在海外多年布局的蓝金黄和经济利益勾兑网络伸向了世界。此次报道中的阿拉伯国家屈服于中共而驱逐维吾尔人的事件，让西方国家清楚意识到中共在海外破坏人权的行为对破坏世界人权自由的危害。犯有族灭绝罪和向全球释放生物武器的中共政权终将被被扔进历史的垃圾堆中！
+这不禁让人联想到《国语》和《史记-周本纪》记载的西周末年厉王“杀人止谤”，民众“道路以目”的场景。最后的结局是，不可一世的周厉王，被国人暴动推翻。
 
-**图片及新闻来源: **[点击进入](https://abc17news.com/news/national-world/2021/06/11/rubio-says-us-must-fight-chinas-extraterritorial-reach-citing-cnn-report-on-uyghur-deportations/)
+“杀人止谤”和“道路以目”讲的是：西周时期的周厉王是历史上有名的暴君，他暴虐凶残、拒不纳谏，甚至不惜杀人止谤，以至于使国人都“莫敢出言”，仅能靠目光来传达信息。百姓最终忍无可忍发动起义，周厉王被逼逃亡，西周自此走向败亡【3】。
 
-2021年6月11日
+今天的中共是人类有史以来最为残暴的统治者，其杀人的数量和对民众的控制程度登峰造极。但其覆灭也指日可待。
 
-本文仅代表个人观点，不代表 Gnews 平台
+资料来源：
 
-**校对发布**：紫橄榄
+【1】[http://www.xinhuanet.com/2021-06/11/c\_1127552223.htm](http://www.xinhuanet.com/2021-06/11/c_1127552223.htm)
+
+【2】
+
+[https://www.acftu.org/wjzl/flfg/fl/202011/t20201124\_739866.html?7OkeOa4k=qAc3kqqZHkaZHkaZHhvGShz6VewcxPR7WNZbYxnq1raqqqqqqqqqqqqqHq](https://www.acftu.org/wjzl/flfg/fl/202011/t20201124_739866.html?7OkeOa4k=qAc3kqqZHkaZHkaZHhvGShz6VewcxPR7WNZbYxnq1raqqqqqqqqqqqqqHq)
+
+【3】[https://www.sohu.com/a/397369350\_120680166](https://www.sohu.com/a/397369350_120680166)
+
+【4】[https://gnews.org/zh-hans/1145695/](https://gnews.org/zh-hans/1145695/)
+
+编辑/校对/发稿：Delilah小胖
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
+
+
 
 0
