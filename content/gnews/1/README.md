@@ -1,25 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共是跨国犯罪组织 没资格敦促文明国家
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1313495/)
+## 6月10日美国政要推特精选： 是时候该让福奇辞职了！
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1313604/)
 
-#### 翻译：Hakunamatata
+参议员霍利新闻办公室： 福奇与参与或资助武汉病毒研究所的团体和科学家进行了通信联系。 他们积极地试图隐瞒他们参与了这项研究。 是时候该让福奇辞职了。 【转[http://newspressnow.com](https://t.co/5trToqadWj?amp=1)报道：霍利支持呼吁福奇辞职的决定】
 
-#### 校对：Wenwang
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10203409/1-57.jpg)图片来源：twitter
-近日，美国国务卿安东尼·布林肯 (Antony Blinken) 在国会听证会上表示，美国“也许会恢复与台湾的经济谈判”。随后中共就开始狂吠，警告美国不能与台湾达成贸易协议。看来中共真的误以为它企图称霸世界的臆想已成真，有资格操控世界了。真的如此吗？
 
-据卡塔尔半岛电视台（Aljazeera）网站近日报道，中共国外交部战狼发言人赵立坚敦促华盛顿“停止与台湾任何形式的官方交往，谨慎处理台湾问题，不要向台独势力发出任何错误信号”。并且无耻声称民主的台湾是中共的领土，必要时会用武力夺回。近几个月来，中共的确对台湾进行威胁，包括派遣战斗机进入其防空区域。与此同时，美国却在行动上加大了对台湾的支持力度，不仅批准了新的军售，派出高级别代表团访台，还让美国军机降落台湾机场等等，所有这些举措都让中共愤怒，同时却束手无策。中共军方将领王洪光曾口吐狂言道，“美军敢去台湾，我就三天拿下台湾，”这种战狼式口号现在也烟消云散，不了了之。
 
-报道称，布林肯在听证会上表示“我知道我们正在与台湾就某种框架协议进行对话，或者很快将进行对话。”当被问及乔·拜登（Joe Biden）总统政府对与台湾商谈双边贸易协定的立场时，布林肯说，美国“秉持的立场是台湾必须拥有自卫的手段……为此美国会继续向台湾提供重要的装备。”他补充说 “美国对北京政府针对台湾表现出的侵略性感到担忧。”
+> Fauci corresponded with groups and scientists who had participated or funded research at the Wuhan Institute of Virology.
+> They were actively trying to conceal their involvement in that research.
+> 
+> It's time for Fauci to resign. [https://t.co/x6DKSsBFbd](https://t.co/x6DKSsBFbd)
+> — Senator Hawley Press Office (@SenHawleyPress) [June 10, 2021](https://twitter.com/SenHawleyPress/status/1403019428246212613?ref_src=twsrc%5Etfw)
 
-报道指出，美国贸易代表办公室(USTR)发言人表示 “美国认为继续加强与台湾的双边贸易关系很重要”。台湾驻华盛顿代表处发言人同时声称，他们“正在努力与美国贸易代表办公室进行讨论，有望推动双边贸易关系取得进展”。美国的德国马歇尔基金会（German Marshall Fund）台湾问题专家邦妮·格拉泽（Bonnie Glaser）表示，布林肯的表态是一个信号，华盛顿可能会继续与台湾恢复贸易投资框架进行谈判（TIFA），这是自前奥巴马政府执政以来一直没有采取的举措。拜登政府高级官员一直在鼓励美国贸易代表办公室举行一轮TIFA会谈，台湾方面也期望如此。格拉泽补充说，中共国可能出于对会谈的担忧而反对恢复TIFA，但这反而可能会最终促成自由贸易协定，并鼓励英国等其他国家与台湾展开贸易谈判。中共国将把此类会谈看成拜登政府加强与台湾关系战略的一部分，以及认为美国对“一个中国”的承诺正在减弱，因为美国长期以来的政策是承认北京，而不是台北。
 
-#### 评论：
 
-中共在国际社会长期打压台湾作为一个独立国家的角色，阻止台湾加入世卫组织，而在CCP病毒2020年第一波席卷全球时，台湾却成为了国际防疫的标杆。台湾作为一个民主化进程远超中共国制度的国家，有资格有能力与西方文明世界在各个领域搭建桥梁进行合作，而中共作为一个跨国犯罪组织却千方百计想要对台湾进行武统，中共的这种流氓行径应该受到国际社会的谴责和制裁。中共伪政权利用生化武器和疫苗对其人民和各国进行攻击伤害，践踏人权，违反法治民主，破坏国际秩序，犯下了一系列的恶行。因此，中共没有资格对文明的国家发出敦促，它应得的是：接受世界的审判！
+前白宫贸易顾问彼得·纳瓦罗: 我(那是)有 6000 万片羟氯喹 HCQ 药片，福奇和[@cc](https://twitter.com/CC) 由于他们的羟基歇斯底里症而不允许美国公众使用。 (cnn主播) [@JohnBerman](https://twitter.com/JohnBerman)[@cnn](https://twitter.com/CNN) 和圣·蝠奇手上沾满鲜血。有超过 50,000 名(死去的)美国人今天本该还活着【转每日邮件dailymail 文章：川普对羟氯喹的看法一直是正确的吗？ 新的研究表明，前总统力荐的药物可以将新冠COVID存活率提高200%】
 
-[原文链接](https://www.aljazeera.com/news/2021/6/8/china-warns-us-against-trade-deal-with-taiwan)
+
+
+> I had 60 million tablets of HCQ that Tony Fauci and [@cc](https://twitter.com/CC?ref_src=twsrc%5Etfw) wouldn't allow the American public to use because of their Hydroxy Hysteria. Blood on [@JohnBerman](https://twitter.com/JohnBerman?ref_src=twsrc%5Etfw) [@cnn](https://twitter.com/CNN?ref_src=twsrc%5Etfw) and Saint Fauci's hands. More than 50,000 Americans would be alive today.[https://t.co/ivOb5XjUPz](https://t.co/ivOb5XjUPz)
+> — Peter Navarro (@RealPNavarro) [June 10, 2021](https://twitter.com/RealPNavarro/status/1402996105256738816?ref_src=twsrc%5Etfw)
+
+
+
+参议员泰德·克鲁兹： 那是当然，如果这是真的，一向诚实的福奇博士会告诉我们的…。 当然，脸书(Facebook)和推特(Twitter)也就不会禁止人们这么说了。对吗？ 【转推来自华盛顿观察家：研究证实 [#羟氯喹](https://twitter.com/hashtag/%E7%BE%9F%E6%B0%AF%E5%96%B9?src=hashtag_click) 加锌可以提高3倍 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 感染者的活命几率】
+
+
+
+> Surely, if this were true, the always-honest Dr. Fauci would have told us….
+> 
+> And surely Facebook & Twitter wouldn’t have banned people for saying it. Right? [https://t.co/QYtBWQXVKI](https://t.co/QYtBWQXVKI)
+> — Ted Cruz (@tedcruz) [June 10, 2021](https://twitter.com/tedcruz/status/1403124701447270401?ref_src=twsrc%5Etfw)
+
+
+
+参议员马可·卢比奥： 参议员卢比奥联合玛莎·麦卡勒姆[@marthamaccallum](https://twitter.com/marthamaccallum)讨论 [#Fauci](https://twitter.com/hashtag/Fauci?src=hashtag_click) 福奇博士在美国公众中失去信誉的问题以及 [#批判种族理论](https://twitter.com/hashtag/%E6%89%B9%E5%88%A4%E7%A7%8D%E6%97%8F%E7%90%86%E8%AE%BA?src=hashtag_click)。 阅读和观看
+
+
+
+> Sen. Rubio joined [@marthamaccallum](https://twitter.com/marthamaccallum?ref_src=twsrc%5Etfw) to discuss Dr. [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw)'s loss of credibility with the American public and [#CriticalRaceTheory](https://twitter.com/hashtag/CriticalRaceTheory?src=hash&amp;ref_src=twsrc%5Etfw).
+> 
+> Read & watch⬇️[https://t.co/JylnolOJbA](https://t.co/JylnolOJbA)
+> — Senator Rubio Press (@SenRubioPress) [June 10, 2021](https://twitter.com/SenRubioPress/status/1403108361831337998?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 大型科技公司审查了新冠病毒 COVID-19 (中共病毒) 的起源问题 【附玛莎议员的相关讲话视频】
+
+
+
+> Big tech censored the origins of COVID-19 [pic.twitter.com/AghiQb7yXx](https://t.co/AghiQb7yXx)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 10, 2021](https://twitter.com/MarshaBlackburn/status/1403049726216491019?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的目标是统治世界，今天在参议院共和党军事委员会[@SASCGOP](https://twitter.com/SASCGOP)会议上，国防部[@SecDef](https://twitter.com/SecDef) 也表示同意。随着我们面临来自世界各地越来越多的威胁，拜登应该停止试图削减我们军队的资金。
+
+
+
+> Communist China’s goal is world domination & today in [@SASCGOP](https://twitter.com/SASCGOP?ref_src=twsrc%5Etfw), [@SecDef](https://twitter.com/SecDef?ref_src=twsrc%5Etfw) agreed. Biden should stop trying to cut funding for our military as we face increasing threats from around the world. 👀⬇️ [pic.twitter.com/HTpXnP0CR8](https://t.co/HTpXnP0CR8)
+> — Rick Scott (@SenRickScott) [June 10, 2021](https://twitter.com/SenRickScott/status/1403074458995339268?ref_src=twsrc%5Etfw)
+
+
 
 0

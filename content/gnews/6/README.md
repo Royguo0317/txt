@@ -1,46 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】萨尔瓦多成全球首个将比特币列为法定货币的国家
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1313485/)
+## 【小象白话】G7峰会将给全球提供大量疫苗 美国CDC召开紧急会议讨论疫苗导致心肌炎
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1313586/)
 
-配音：香草山录音组 蒙古鸿雁
+美国疾病控制与预防中心周四宣布，将在 6 月 18 日召开其顾问的“紧急会议”，讨论在服用基于 mRNA 的辉瑞 (Pfizer) 和Moderna COVID-19 后出现的罕见但高于预期的心脏炎症报告疫苗。该机构周四披露，到目前为止，CDC 已经确定了 226 份报告，这些报告可能符合该机构对注射后心肌炎和心包炎的“工作病例定义”  。绝大多数人已经康复，但 41 人仍有症状，15 人仍在住院，3 人在重症监护室。这些报告仅代表已完全接种辉瑞或 Moderna 疫苗的近 1.3 亿美国人中的一小部分。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+英国首相鲍里斯约翰逊预计，七国集团将同意在周五开始的峰会期间向较贫穷国家捐赠 10 亿剂 COVID-19 疫苗，并在明年年底前帮助世界接种疫苗，“G7 国家承诺到 2022 年底向全球捐赠 10 亿剂疫苗”。
 
+世界顶尖的疫苗公司在不断的调整，不断完善疫苗，中共国现在也在不断地推出新的疫苗，而且很多疫苗在趁着目前疫情威胁的现状，跳过正常手续，申请紧急使用的批复。尽管现在连病毒的源头都没有找到，病毒扩散的动机和路径，对普通大众来说都还是一个含糊不清的事情，但是政治家们成功的将疫苗放在了世界的重心，由此诞生的疫苗经济，疫苗外交，成为了各国政治家追捧的方式和方法。这看起来有点滑稽，虽然我们不愿意承认，但是这似乎与中共之前给自己设计的光明大道非常的类似。
 
+参考链接：
 
+[https://www.cbsnews.com/news/covid-19-vaccine-myocarditis-heart-inflammation-cdc/?ftag=CNM-00-10aab7e](https://www.cbsnews.com/news/covid-19-vaccine-myocarditis-heart-inflammation-cdc/?ftag=CNM-00-10aab7e)
 
+图片来源：[https://www.cbsnews.com/](https://www.cbsnews.com/news/covid-19-vaccine-myocarditis-heart-inflammation-cdc/?ftag=CNM-00-10aab7e)
 
+整理撰稿：蓝精灵
 
+校对发布：Penny
 
-2021年6月9日，萨尔瓦多（El Salvador）国会通过《比特币法》，成为全世界第一个将比特币列为法定货币的国家。
-
-萨尔瓦多是位于中美洲北部的沿海国家，也是中美洲人口最密集的国家。它毗邻太平洋，国土面积20720平方公里，下设14个省，2019年总人口670.5万。萨尔瓦多国内经济以农业为主，主要盛产咖啡豆和棉花，工业基础薄弱，是世界上“中低等收入国家” 之一，2019年GDP为267.5亿美元。
-
-
-
-**文字版原文：[【热点播报】萨尔瓦多成全球首个将比特币列为法定货币的国家](https://gnews.org/zh-hans/1311061/)**
-
-作者：经济小组/ 纽约香草山农场 乱谈秦
-
-
-
-音频处理：喜山必胜Maverick
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

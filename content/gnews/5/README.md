@@ -1,44 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】闫丽梦博士在新中国联邦周年庆上的演讲全文
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1313496/)
+## 【修罗短评】喷在学生脸上的辣椒水和二十万的奖学金
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1313575/)
 
-配音：香草山录音组 蒙古鸿雁
+作者：修罗闻道|校对：文明明|审核：Beicy-数学老师|Page：小雨
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/dlFiWaHcaE942/images/653b1619-0192-46c3-94bd-90e24d40cd7c.png?asset_id=edb15163-59db-40b3-b9cb-c45ca0638d9f&amp;img_etag=%2222e0608dfebdcb11a0873f71454fd7f7%22&amp;size=1024)](https://spark.adobe.com/page/dlFiWaHcaE942/images/653b1619-0192-46c3-94bd-90e24d40cd7c.png?asset_id=edb15163-59db-40b3-b9cb-c45ca0638d9f&amp;img_etag=%2222e0608dfebdcb11a0873f71454fd7f7%22&amp;size=1024)
 
+“这里的每一个都是我的孩子！”
 
+南京师范大学学生被打视频从6月7日开始在全网疯传，成群的保安对着一群年轻稚嫩的学生拳脚相加、棍棒齐飞，被呲了辣椒水的学生不断地痛苦喊叫，让人看得既心疼又愤怒。
 
+真如段子讽刺的那样：“一群当年的高考落榜生，将当年考上大学的上进生，踹倒在地上蹂躏、摩擦。”平日里随意开着玩笑、称兄道弟的保安大哥，如今凶神恶煞般的见人就打。没有理由可讨论，只要有命令就好。不判断黑白，只听从领导。
 
+但是，南京师大的“转设”操作，本就严重侵害了在校学生的切身利益，每个懂得换位思考的人都能体会学生的痛苦和不甘。那些愚蠢的、外行的所谓领导从一开始就没有考虑过学生的利益和感受，“唯上是尊”，当学生的不满达到顶点，从而愤起抗议的时候，才知道慌了神。当他们的无能和愚蠢无法掌控场面时，只有诉诸于暴力镇压。不是他们不能和平理性的处理问题，而是根本没有这个能力应付。权力傲慢与无知，注定是一切社会悲剧的源泉。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/dlFiWaHcaE942/images/6b6c18d7-0ee1-4bcb-9213-9a189cbec80c.jpg?asset_id=2715ac57-c6f2-4c1f-88cc-ea076a62abc7&amp;img_etag=%221a4b66aaebaf2da0c034e925a928e41a%22&amp;size=1024)](https://spark.adobe.com/page/dlFiWaHcaE942/images/6b6c18d7-0ee1-4bcb-9213-9a189cbec80c.jpg?asset_id=2715ac57-c6f2-4c1f-88cc-ea076a62abc7&amp;img_etag=%221a4b66aaebaf2da0c034e925a928e41a%22&amp;size=1024)
 
+6月7日晚上，很多得到消息的家长来到南师大泰州学院门口，然而这里早已层层把守，学生和家长根本无法见面。保安们质问家长来学校的目的，家长说送吃的。保安问哪个是你家小孩？有个家长喊道：这里的每一个都是我的孩子！
 
-2021年6月4日，闫丽梦博士在新中国联邦成立一周年的庆典上发表了震撼人心的精彩演讲。她谈到了中国共产党是如何掩盖和欺骗整个世界关于新型冠状病毒的真相，也向我们展示了关于病毒的来龙去脉。她向世界人民发出警示：如果不消灭共产党，整个人类都将失去未来、失去下一代、失去安全、失去一切的一切。这篇演讲精彩万分，每一个人都不容错过。
+**“这里的每一个都是我的孩子！”**
 
+好几位家长当场就哭了。里面都是自己含辛茹苦养大的孩子，熬了十几年的光景才上了大学，虽然不是一流名牌院校，但也算对自己辛劳的交代，刚要过几天省心的日子，就看到自己的孩子在学校里受到这般欺辱，用对待恐怖分子的形式暴力相加，试问哪位做父母的能够接受？
 
+32年前他们能残忍地杀害年轻的学生，今天他们依然可以毫不留情地痛下杀手。这种死性不改的体制，血海里养成，必然需要持续的鲜血去滋养。
 
-**文字版原文：[【热点播报】闫丽梦博士在新中国联邦周年庆上的演讲全文](https://gnews.org/zh-hans/1309053/)**
+这两日，为了平息舆论，媒体又要开始引导“境外势力参与”、“学生们被别有用心的人利用”。真好比：“境外势力是党爹，啥时候缺德，啥时候喊爹！”
 
-作者：纽约香草山翻译部 文雅621
+这边厢同胞的子弟被拳打脚踢，那边厢洋人的后代酒池肉林。
 
+刚刚在网易被和谐掉的新闻：网传黑人留学生一年补助十万，某高校辟谣：假的，实际是二十万！这所财大气粗的高校就是知名的天津师大。从国外请来的留学生，免除学费、教材费等多项费用，每年报销两次国际机票之外，每人每年还可领取奖学金20.08万！相当于每个留学生每天收入550元起，还记得“有6亿中国人，每个月收入低于1000元”吗？
 
+这些留学生两天的收入，就超过六亿国人的月收入！是这些留学生创造了任何的经济价值吗？当然不是！他们的唯一价值就是：让天下人见识一下，这个神经错乱的、持续卖国的非法政府存在的荒谬性！
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+试问，国人为何穷？因为国人辛勤劳动创造的财富，都被那些尸位素餐、丝毫不创造价值的官员挥霍了，撒重金以结洋人之欢心就是其中之一！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+[!\[\]()!\[\](https://spark.adobe.com/page/dlFiWaHcaE942/images/4f4c3ce6-50e8-4630-8a73-1b85abe9f27f.jpg?asset_id=d1cf177d-a633-454e-9632-9918016c3301&amp;img_etag=%221378226dc6caff08b95ee2d30606a6ea%22&amp;size=2560)](https://spark.adobe.com/page/dlFiWaHcaE942/images/4f4c3ce6-50e8-4630-8a73-1b85abe9f27f.jpg?asset_id=d1cf177d-a633-454e-9632-9918016c3301&amp;img_etag=%221378226dc6caff08b95ee2d30606a6ea%22&amp;size=1024)
 
-**更多资讯，更多关注**
+还有更无耻的河北师大，通过最近流传出来的课堂照片能清晰地发现，留学生上课时，居然每个男学生身边全部安排了两个女学生陪读，和山东大学如出一辙。真不知道这些女学生中间有没有校领导的女儿。如果没有，希望一定有他们未来的儿媳妇。
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+有人曾臭骂很多大陆高等院校在对待外国留学生的问题上，如同妓院一般。这种观点是荒谬的，纵观人类万年历史，没有哪个妓院给嫖客送钱，还管吃、管住、报销路费。师不如妓，校不如窑。
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+天下不敬自辱之人，以文化教育之名，行肮脏龌龊卖国之事。山河千年守神州，将来这是谁的国？
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+***文章仅代表作者观点***
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+编辑：【英国伦敦喜庄园编辑部】
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-0
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/dlFiWaHcaE942/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/dlFiWaHcaE942/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
++1

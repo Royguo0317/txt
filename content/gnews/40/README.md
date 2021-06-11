@@ -1,57 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】佛州州长签署法案打击CCP在美影响
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1313020/)
+## 【热点推荐】FBI局长克里斯托弗·A·雷接受众议院司法委员会听证会质询前期报道
+` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1313125/)
 
-作者：纽约香草山媒体部 7bends
+温哥华扬帆农场 – 文敏
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10151041/FBIA_061021.jpg)
+2021年6月10日，美东时间上午10:30， FBI局长克里斯托弗·A·雷 接受众议院司法委员会听证会质询。
 
+2020年初，CCP 病毒肆虐全球，但是由于邪恶中共的欺骗，世人并未意识到巨大的灾难来临。闫丽梦博士，作为香港P3实验室的病毒科学家，受WHO任命，负责与中国医学界包括中共疾控中心沟通。当COVID-19在武汉爆发时，闫博士在第一时间根据掌握的资料发现，此病毒绝非是中共国所说的来自于自然，而是实验室制造，并且病毒将给世界带来灾难性后果，它的背后是中共邪恶政权的惊天阴谋。闫博士于北京时间2020年1月17日下午2点联系了路徳，将病毒真相告诉路德。之后在郭文贵先生的安排之下，闫博士历经生死劫难乘坐飞机首先到达美国洛杉矶机场，但是在机场受到美国FBI及国土安全部4小时的询问以致差点死在机场。他们没收了她的手机，更有甚者，美国FBI及国土安全部一路跟踪到纽约闫博士的住处砸门威胁。这件事有太多太多的疑问，闫丽梦博士在此之前名不见经传，是一名普通的科研工作者，在中共国2020年初期的宣传中是一名“实验室养小仓鼠的”，但是FBI和国土安全部为何如此大动干戈在机场拦下闫博士，FBI为什么对闫博士如此感兴趣，他们如何知道闫博士航班信息，如何在机场认出她，为何在机场进行4个小时的盘查，为什么要没收她的手机，他们要知道什么，作为冒着生命危险逃出香港来到美国的病毒真相知情者，本来在美国应该受到英雄般的对待，却不曾想到又陷入另一场政治角力中。
 
+自2020年至今，病毒夺走60万美国人的生命。根据今天6月10号文贵先生的盖特得知：闫博士提交给FBI的三份关于病毒的报告,FBI并没有交给川普总统，没有交给白宫，没有交给司法部也没有交给国会，如果FBI去年将闫博士的三分报告提交，美国就不会死这么多人，世界也不会死这么多人。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+在今天的听证会上，来自佛罗里达州的参议院matt Gaetz向 FBI局长克里斯托弗·A·雷问及以下问题：
 
+matt Gaetz议员问：有一个掩盖冠状病毒源头的福奇的邮件暴露很多事情，拜登政府一直在淡化调查，我们看FBI做了什么，4月份闫博士到了美国，在洛杉矶机场FBI一直询问她，并跟到纽约。2020年5月2号，FBI拿走了她的手机查看微信里面的证据，包括中共国疾病控制中心的相关信息。2019年12月，中共军方涉及了这些病毒计划和武毒所，雷局长，你什么时候知道你的这些官员提供的这些证据？
 
+雷答：我不太确定，因为我没办法谈具体的调查，来自中国的这些情报一直是对美国的最大威胁。
 
-The Daily Signal报导，6月7日，佛罗里达州州长Rod DeSantis签署了两项法案，以打击中国共产党等外国政府在佛罗里达州的影响力和企业间谍活动。
+问：闫博士你提到了吗？
 
-![]()![](https://www.dailysignal.com/wp-content/uploads/GettyImages-1322345222-1024x532.jpg)图片来源：The Daily Signal (Joe Raedle/Getty Images)
+答：我不能谈具体的调查问题。
 
-DeSantis州长也在记者会上对这两个方案进行了解释：
+问：这是非常重要的，因为第一件事情，去年4-5月，几十万人死于病毒，时隔一年，你能告诉美国人你们的官员对闫博士的询问内容吗？你们至今没有告诉关于病毒的相关信息。
 
-第一个法案旨在保护公共机构免受不正当外国影响。该法案将禁止公共实体与中国共产党或古巴或任何邪恶势力之间的协议。
+答：因为我知道这个问题，但是我不能谈具体的调查信息，我要说因为在我们调查之外，大家在讨论，情报部门也在讨论，情报圈已经在看这些问题，因为在病毒的源头有不同观点。
 
-第二个法案根据佛州法律将盗窃和贩卖商业机密定为刑事犯罪。任何未经授权故意窃取或试图窃取商业机密并将其用于自身利益的人，现在将被控三级重罪，面临最高五年的监禁。
+问：我们现在不能让中共负责是因为有不同的观点，但是我们不能忽视这些事实，我想请你们提供关于你们所做的关于闫博士声称的事实分析、北京关于病毒源头知道什么、军方的渗透，你没有看这些事实吗？你只是分享这些观点，FBI不相信闫博士提供的这些报告，我这里有证据FBI官员拿走了闫博士的手机，你们有没有调查手机里的这些证据？你们的官员跟着闫博士从洛杉矶到纽约，她是逃出中共的爆料者，她呈现了很多关于军民融合、武毒所等证据，很多人在否认它，但是你有没有对中共做相关调查？
 
-另外，关于COVID-19大流行，这位州长有精道的见解。他认为，大流行根本不应该发生，其罪魁祸首是中国共产党，但非常有可能，美国的资金也流向了武汉。
+答：我必须小心再小心，不能提供给你正在进行的调查，因为这些是机密的信息，当然我理解你为什么问这些问题，我承诺你我会分别提供这些信息。
 
-在提及世界卫生组织时，这位州长的语言极为犀利。他说，WHO就像是在中国共产党的口袋里。他们的做法基本上就是让每一个人都往另一个方向看，目的就是试图粉饰中国共产党在这种病毒中的角色。而且不仅仅是WTO或者各种官僚机构，整个学术界基本上都是用马车围绕着中共，为中共辩护。
+综合以上问答，显然雷并没有清晰的回答任何一个问题，但是这恰恰说明他们在掩盖什么，无论是什么原因的掩盖，真相一定会大白于天下。
 
-让人感慨的是，当四年前郭文贵先生冒着生命危险，以一人之力警告美国和世界，CCP带来的黑暗将要笼罩全球，大家要做好准备时，有多少人相信呢？如今，全球已经在CCP病毒中死亡将近380万人，感染超过1.8亿人（不包括没有可信数据的中共国），在如此惨重的代价之下，世界才慢慢醒来……
+今天这个听证会的进行，坐在被质询位置上的FBI局长雷，无论他怎么狡辩，都无法掩盖被中共蓝金黄收买的事实以及背后的邪恶势力。然而正义可能会来得晚一些，但是永远不会缺席，美国关于病毒溯源问题的角力已经向前迈进一大步，CCP灭亡的时间已经近在咫尺。
 
-参考阅读：
+（备注：关于佛罗里达州的参议院matt Gaetz和 FBI局长克里斯托弗•A•雷之间的问答参考秘密翻译组的翻译内容。）
 
-[Gov. Ron DeSantis Signs Bills Combating Chinese Communist Party’s Influence in US](https://www.dailysignal.com/2021/06/07/desantis-signs-bills-combating-chinese-communist-partys-influence-in-us/amp/?utm_source=TDS_Email&amp;utm_medium=email&amp;utm_campaign=MorningBell&amp;utm_content=httpswwwdailysignalcom20210607desantissignsbillscombatingchinesecommunistpartysinfluenceinusutmsourcerssutmmediumrssutmcampaigndesantissignsbillscombatingchinesecommunistpartysinfluenceinus&amp;mkt_tok=ODI0LU1IVC0zMDQAAAF9idchFlTptP5v9hby0A4NaTSGU62yhuIhmkuKEjl8P6Cp61MwU6Qitw7SZji5F0tQkgMu78tlrKy4SU1rjq77nsIaWuvcxJsuEiN_xgmkmhnABGdC&amp;__twitter_impression=true)
+(以上代表作者观点，与GNEWS平台无关)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+审核/发稿：Shuang
 
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-0
++4
