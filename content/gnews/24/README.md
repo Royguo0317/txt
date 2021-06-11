@@ -1,27 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国对TikTok的解禁令：只是暂时休战
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1314511/)
+## 2021/06/04 郭文贵先生盖特精要-001
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1314669/)
 
-消息来源：意大利晚报（corriere.it）
-发布时间：2021年06月10日
-翻译整理：斩草要除根
+听写：苹果树| PR: 樂禧禧| Page：小六月
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11075448/olivier-bergeron-5JSZzMilCVo-unsplash-scaled.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/PnufxB4FfULqF/images/cf43ce33-1b8e-4782-bc64-c05f4937bdf1.jpg?asset_id=56d616ca-f5d1-4137-b504-d588ffcadd4c&amp;img_etag=%229591ca766e5871796b9acb1d1d9c3786%22&amp;size=1024)](https://spark.adobe.com/page/PnufxB4FfULqF/images/cf43ce33-1b8e-4782-bc64-c05f4937bdf1.jpg?asset_id=56d616ca-f5d1-4137-b504-d588ffcadd4c&amp;img_etag=%229591ca766e5871796b9acb1d1d9c3786%22&amp;size=1024)
+
+6月10号：今天上午10:30在国会山询问关于闫博士来美国，以及他给美国政府的报告的有关事情！说明了什么？新中国联邦和爆料革命走到今天实在实在太不容易了，无数个背后的伟大的，有巨大成功的影响力的，美国欧洲，以及默默无闻的战友们！是我们真正的英雄！永远永远都要感恩感激他们！🙏
+
+• 今天又是个大日子！美国国会议员对现任 FBI局长雷恩询问。当中最重要的就是关于科学家闫丽梦女士如何来到纽约。
+
+• 闫丽梦博士在洛杉矶被国土安全部威胁搜身，到达纽约后又被洛杉矶的国土安全部追到纽约，和FBI的人砸她的门。后来在喜马拉雅大使馆和班农先生面谈4天。
+
+• FBI说要两年调查这个案子，最后我们自己采取了独立行动，直接上媒体。 闫丽梦博士写给FBI的报告并没有给川普总统，也没交给白宫，更没交给司法部，也没交给国会！如果交的话，美国和世界不会死那么多人。
+
+• 2020年年初，闫博士的先生也来到了美国，FBI、国土安全部都没采取任何行动，今年他又拿工作签证来到美国。据说他来跟FBI合作，不是来说科学家多牛，而是来说科学家没有资格讲病毒。科学家出来都是假话，是班农和郭文贵设计的骗局。闫的先生现在到哪儿去了？他去深圳、北京、武汉、山西干什么？他回斯里兰卡见谁？到迪拜都见谁？去UAE干什么？
+
+• 不要对美国的法制、国会失去耐心和信心。这个国家是有法制的。在美国你想等到法律的公平审判，你必须要有耐心。不能急功近利。
+
+• 爆料革命一而再再而三地向美国传达信息。从2017到现在，哪件事我们是不对的？砸爆料革命的人都是来自于华尔街、华盛顿邮报、纽约，都是中共的女记者。中共政府完全控制美国媒体。
+
+• 高教育高知识不等于高道德！高权位高影响力更不等于高道德！政治家就更别提了，没几个好东西。我说这一辈子最不相信的就是政治家。如果那一天文贵搞政治，那就天打八雷轰！
+
+• 美国这个国家已经被共产党彻底绑架！我们爆料革命新中国联邦有多难！没有这么多战友无名的战友在网络上的一个又一个地发帖子，没有这么多战友看路德访谈，没有这么多战友和科学家们冒着风险，没有我们背后最重要的沼泽地放弃利益、生命安全，没有那些人冒着生命的危险到处有所让媒体，怎么可能？要知恩感恩！灭共是我们唯一的目的！
+
+[链接](https://gtv.org/getter/60c2149ae15f7e227eef4288)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
-拜登签署的协议只是休战。周三，美国总统发布了一项行政命令，以保护美国的敏感数据，并促进建立开放、可互操作、可靠和安全的互联网。实现这个目标的中间步骤就是先取消前总统唐纳德特朗普的行政命令，该命令试图阻止中共国在美国的应用软件TikTok以及微信及其它7个应用软件。
-
-与其前任不同的是，拜登政府希望建立“清晰易懂的标准”，以评估与外国政府，特别是中共国有联系国家的安全风险。所以，现在的这个解封令不是因为恐惧，而是展开与北京在技术开发和数据管理方面的拉锯战。此外，据《纽约时报》报道，周三签署的命令将为后续调查 TikTok 或其他应用程序上奠定了基础。
-
-简评：一些分析人士指出，拜登政府试图在确定和应对国家安全担忧方面制定更好的机制，这样后续可能出台的禁令才经得起司法挑战。虽然TikTok目前还没有面临禁令，但并不意味着拜登会让它和其他中共国的应用程序摆脱困境。相反，拜登政府正在创建新的审查程序。“TikTok仍可能被放到砧板上。”
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
-
-🔗[g7-resto-mondo-protesta-contro-anna-wintour](https://www.corriere.it/america-cina/2021/06/10/nodo-irlanda-biden-johnson-quanti-vaccini-lasceranno-g7-resto-mondo-protesta-contro-anna-wintour-7b2f0fac-c9c4-11eb-9b8e-b9086462d45e.shtml)
+编辑：【英国伦敦喜庄园编辑部】
+[!\[\]()!\[\](https://spark.adobe.com/page/PnufxB4FfULqF/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/PnufxB4FfULqF/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
-
-+1
+0

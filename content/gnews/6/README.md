@@ -1,29 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】06/10/2021：今天是个大日子在美国国会山由国会议员发动向FBI局长雷(Christopher Wray)的问询
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1314732/)
+## 博明：中共企图控制台湾从而粉碎美国的影响力和联盟
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1314911/)
 
-**制作：Cantonese工作室**
+博明说，中共企图通过控制台湾来粉碎美国的影响力以及美国的联盟。
 
+2021年6月8日，博明在参议院军事委员会“美国与中国的战略竞争”听证会上，回答霍利参议员关于习近平2013年内部讲话的问题时做上述发言。
 
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-**播报:【文依】资料整理:【陆柒陆捌】【Ruby三鑫】【michelle喜乐】海报制作:【小豆芽】视频制作:【KEN】发布： 【陆柒陆捌】**
-
-摘要：
-
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11094202/12_page-0002-1.jpg)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11094234/12_page-0003-1.jpg)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11094502/12_page-0004-1.jpg)
-4
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11094709/12_page-0005-1.jpg)
-5
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11094740/12_page-0006-1.jpg)
-6
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11094812/12_page-0007-1.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11094922/image0%E9%9D%A2-4.jpg)
 0

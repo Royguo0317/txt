@@ -1,29 +1,90 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 罗恩-德桑蒂斯州长签署打击中共在美国影响的法案
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1314536/)
+## 【班农战斗室】拿到毒源证据毫无作为，班农怒斥FBI局长草菅人命
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1314740/)
 
-翻译: 康州盘古农场 – TrueSky
-校对: 康州盘古农场 – Mike Li
-编辑: 康州盘古农场 ‑ 傻小子
-发布: 康州盘古农场 ‑ 恩典
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11081616/9531.jpg)佛罗里达州州长罗恩*–*德桑蒂斯于*2021*年*6*月*7*日在迈阿密的佛罗里达州国民警卫队罗伯特*-A-*巴拉德军械库举起他签署的两项法案，以打击来自中共国等国政府在佛罗里达的外国影响和企业间谍活动。*(Photo: Joe Raedle/Getty Images)*
-**据《dailysignal.com》作者：Mary Margaret Olohan，2021年6月7日报道：**
+翻译：七彩光
+校对：守望黎明
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11100945/image001-22.png)图片来源：墨尔本雅典娜农场设计组精灵蓝
+主持人：史蒂夫.班农
 
-迈阿密-佛罗里达州州长罗恩-德桑蒂斯周一签署了两项旨在打击中共在美国的影响的法案。
-共和党人德桑蒂斯在新闻发布会上说，第一项法案旨在保障公共机构免受“不当的外国影响”，他指出，该法案将禁止“公共实体与中国共产党或古巴或任何这些恶势力之间的协议”。第二项法案根据佛罗里达州的法律将盗窃和贩卖商业机密定为犯罪。
-州长警告说，“任何人在没有授权的情况下，故意窃取或试图窃取商业秘密，并将其用于自己的利益，现在将面临三级重罪，最高可被判处五年监禁。”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11081937/9532.jpg)今天，佛罗里达州正在采取立场反对共产主义独裁者和不良国家行为者。我们将通过进攻来阻止中共对我们的教育系统和政府的影响。
-[https://twitter.com/GovRonDeSantis/status/1401905776889827328?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1401905776889827328%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.dailysignal.com%2F2021%2F06%2F07%2Fdesantis-signs-bills-combating-chinese-communist-partys-influence-in-us%2F](https://twitter.com/GovRonDeSantis/status/1401905776889827328?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1401905776889827328%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.dailysignal.com%2F2021%2F06%2F07%2Fdesantis-signs-bills-combating-chinese-communist-partys-influence-in-us%2F)
-“我真的希望我们能对COVID大流行病的起源进行问责，因为这场全球大流行本不需要发生”，德桑蒂斯周一说，“中国共产党应负主要责任，但也有美国的钱很可能流到了武汉。”
-这位州长还说，长期以来，他一直把中共国视为美国的对手。
-“[世界卫生组织]是中国共产党的囊中之物。他说：“他们基本上是让所有人都视而不见。”他们的想法是试图粉饰中共在这种病毒中的作用，这不仅仅是世卫组织，也不仅仅是官僚机构。你看到学术界在很大程度上围观并为中共辩护。”
+嘉宾：Richard Baris, Chris Chmielenski, Matt Deperno, Natalie Winters, Vernon Jones, Matt Gaetz, Ken Paxton, Joe Reick, Marylyn Todd
 
-原文连接：[https://www.dailysignal.com/2021/06/07/desantis-signs-bills-combating-chinese-communist-partys-influence-in-us/](https://www.dailysignal.com/2021/06/07/desantis-signs-bills-combating-chinese-communist-partys-influence-in-us/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+#### **1.****“美国人无法忍受”凯文.麦卡锡：新的民意调查结果显示共和党众议会领袖声誉扫地**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+民意调查员理查德.巴里斯（Richard Baris）披露了一项新的民意调查，显示美国人“无法忍受”共和党众院少数党领袖凯文.麦卡锡。周四，巴里斯告诉【战斗室】说，现在五分之二的共和党人对麦卡锡持“非常不喜欢 ”。
 
-+1
+“这来自于第三方独立人士发起的调查，调查对象是共和党人。如果党的领导人如此不受欢迎，一个政党就无法发出强有力的声音。”
+
+他说：“美国人实在无法再容忍这这帮家伙。”
+
+#### **2.****班农前所未有的吼声：对富人征税！**
+
+班农挑起了对超级富豪征税的话题。
+
+梅里克.加兰本周说，他的 “首要任务” 是保护寡头，不让美国人发现他们交过的税少得多么可怜。公共调查平台ProPublica透露，美国最富有的人，包括沃伦.巴菲特（Warren Buffett）、杰夫.贝佐斯（Jeff Bezos）、迈克尔.布隆伯格（Michael Bloomberg）和埃隆.马斯克（Elon Musk），几乎统统没有缴纳所得税。
+
+班农说：“他们拥有5000亿美元的资产，但在5年的时间里总共缴付了不到150亿的税。原因就是游戏规则被操纵了。”
+
+“反正他们就是不交任何税，所以必须开始增加边际税对这些富人的增量收入课税。”
+
+班农说，当初他建议对最有钱的公司加税时，川普共和党政府里的那两位“积极的民主党人”，史蒂夫.姆努钦（Steve Mnuchin）和加里.科恩（Gary Cohn）“简直要疯掉了。”
+
+“他们都是所谓‘开明’派，他们身边所有基金会都是‘开明派’搞的。那些人都是激进分子。”
+
+“他们之所以对你们的孩子兜售左倾的“批判性种族理论”，就是这个原因。” 班农说，“而且他们自己什么代价都不用付，完全是忽悠普罗大众挑起矛盾，然后自己搭便车。”
+
+休息过后，班农对【战斗室】的个别听众进行了抨击，因为他们竟然会对提高对寡头征税感到愤怒。
+
+“当你是个孩子的时候，可以像个孩子那样思考；但当你成了大人，就不能再那么幼稚。”
+
+班农解释了反征富人税的权威们是如何忽悠普通民众，就像早前用“自由贸易”忽悠人一样。
+
+在点评这些在所得税上几乎一毛不拔的寡头们时，班农说：“你们中有谁愿意出来走两步，哪怕按区区1%缴点所得税行不行？”
+
+他解释说：“为了税赋的公平，我们的建国先贤不惜发动革命为之一战。而我们现在的贵族老爷们，却对这个国家人为的沉沦视若无睹。 ”
+
+班农说：“我不是社会主义者，我是资本主义者。但现在美国的制度成了寡头经济，而不是资本主义。”
+
+“请不要坐在那里空喊“不，不要加税！”，那样的话明天你或将无钱可花，或者只能气急败坏地在家里乱发脾气。”
+
+#### **3.****重磅：****安特里姆县选举系统被匿名用户远程访问，机器被改设为拒收共和党选票**
+
+宪法律师马特.德佩诺（Matt DePerno）介绍了他在密歇根州安特里姆县（Antrim County）发现的爆炸性的最新证据。
+
+他周四告诉【战斗室】：“我们现在已经证明，有人直接进入了安特里姆县的系统。有一个匿名用户登录了投票系统，并在我们试图重新计算选票时对数据库进行了修改。”
+
+德佩诺说：“这是一个非常重大的发现。一个在系统中拥有高权限的匿名用户现形，对那些不希望进行法证审计的人来说可不是好消息。”
+
+德佩诺还透露，选票的票面被 “刻意修改”，以较高的比例拒绝共和党的选票。
+
+德佩诺说：“选票上的特定黑框被改动，以便产生识别错误。通过修改这些特定的区块，能够造成对共和党选票的拒绝。这意味着，如果你投票给川普，然后把你的选票投入选票机，你的选票被拒绝的比率比乔**.**拜登的选票要高出20%。”
+
+德佩诺敦促密歇根州人给参议院多数党领袖、也就是那个一直在跟中共国有做生意的迈克**.**谢尔基（Mike Shirkey）打电话，要求他看一看这些令人震惊的证据。
+
+德佩诺说：“我们正在接近目标。”。他和他的团队已经向密歇根州参议院提交了3500份要求进行法证审计的请愿书，同时还把这些请愿书发布了在他的网站DePernoLaw.com上。
+
+#### **4.****班农质问FBI局长克里斯托弗**.**雷：“你的手上沾了多少人的鲜血？”**
+
+班农问：克里斯托弗.雷到底知道些什么？他是什么时候知道的？
+
+众议院议员马特.盖茨（Matt Gaetz）周四质证这位联邦调查局局长，联邦调查局是不是在2020年4月就收到关于病毒源自武汉实验室的信息。雷在回答时畏首畏尾。
+
+班农说：“现在你们该知道当初他们为什么急着要把马特.盖茨拉下马了吧？他们就是想毁掉马特.盖茨，因为他是少数几个既手里有料又有智慧的人，可以将雷这样的人拉到国会进行质询。”
+
+班农说：“会有一天一切都会真相大白。2020年4月28日和4月29日，当你的部门拿到病毒来自于中共的直接证据后，你做了什么？”。
+
+“克里斯托弗.雷，看你干下的好事! 你的手上沾上了多少人的鲜血？”
+
+**参考资料：维基百科**
+
+**原文链接：**
+
+1. [‘Americans Cannot Stand’ Kevin McCarthy: New Poll Reveals GOP Leader Favorability Collapsing](https://warroom.org/2021/06/10/americans-cannot-stand-kevin-mccarthy-new-poll-reveals-gop-leader-favorability-collapsing/)
+2. [Bannon Goes on Epic Rant: Tax the Rich!](https://warroom.org/2021/06/10/bannon-goes-on-epic-rant-tax-the-rich/)
+3. [HUGE: Antrim County Election System Remotely Accessed by Anonymous User, Machines Changed to Reject GOP Ballots](https://warroom.org/2021/06/10/huge-antrim-county-election-system-remotely-accessed-by-anonymous-user-machines-changed-to-reject-gop-ballots/)
+4. [Bannon Blasts Chris Wray: ‘How Much Blood Is On Your Hands?’](https://warroom.org/2021/06/10/bannon-blasts-chris-wray-how-much-blood-is-on-your-hands/)
+
+
+0
