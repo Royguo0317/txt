@@ -1,33 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国五角大楼：中共国是头号威胁
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1314480/)
+## 【有声读物】实控人密集被拘被罚，上市公司迎来收割季？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1314574/)
 
-消息来源：意大利共和报（repubblica.it）
-发布时间：2021年06月09日
-翻译整理：斩草要除根
+配音：香草山录音组 蒙古鸿雁
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11072720/iiona-virgin-s0wBwOfBpo0-unsplash-scaled.jpg)
+![该图像有一个空的 alt 属性； 它的文件名为 GNEW-GTV-MOS-LOGO-2-109.jpg]()![该图像有一个空的 alt 属性； 它的文件名为 GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-全球反恐战争结束，美国现在有一个新的敌人需要集中其军事力量来准备对抗，那就是中共国。国防部长约翰·劳埃德·奥斯汀 (John Lloyd Austin) 向五角大楼发出了一项指令：一份宣布北京为“头号威胁”的文件。
 
-这是一个划时代的转变，正式标志着一个时代的更替。伊斯兰国、基地组织、伊朗甚至普京的俄罗斯都退居次席。从现在开始，五角大楼的注意力将集中在远东地区。奥斯汀说：“我们需要努力提高振兴我们盟友的能力，加强威慑并加速新作战概念的发展，部门的部署和更现代化的军队和文职力量，这一切都是为了阻止中共国力量的增长”。
 
-在实践中，国防部长部署了一个旨在评估北京军事及其对美国国家利益危害程度的小组。他们认为，美国安全的未来完全取决于与中共国的对抗。
 
-文件的内容是保密的。但是五角大楼明确表明：联盟将成为印度-太平洋棋盘上的绝对中心，从现在开始，协议、补给和演习将主要在该领域进行。新加坡、马来西亚、日本、韩国，尤其是印度等国家都将具有战略意义，而与澳大利亚和新西兰的关系将重振。显然，台湾将受益最大。
+澎湃网6月10日转载经济参考报消息，截至6月9日，年内共有44家上市公司实际控制人被罚，而7日至9日实控人被拘的上市公司已达6家。
 
-届时将对战术进行全面改革，以应对军事领域的新维度。美国已经明白，仅靠现代手段是不够的，还需要不同的想法和方式来构想军事行动。这是因为中共国不仅改进和增加了武装力量，而且在处理冲突的方法上也有改变。
+根据中共证监会数据，2020年共办理财务造假、违法违规等案件740件，同比增长34%。进入2021年后对上市公司的处罚潮依旧没有停歇，截至2月9日已有101家上市公司受罚，同比去年增幅50%。
 
-暂时无法预测北京会作何反应。毫无疑问，该指令将加剧太平洋地区的紧张局势，增加摩擦事故的危险。但拜登总统愿意冒升级的风险。
+**文字版原文：[【鹰眼墙国】实控人密集被拘被罚，上市公司迎来收割季？](https://gnews.org/zh-hans/1313657/)**
 
-简评：“新八国联军”已经成型，军事力量的集结也已经完毕，接下来全面围剿中共国就是实际行动了。面对着美国和联盟军的真枪实弹，我们看看中共这个“口炮”党还能坚持多久。
+作者：纽约香草山写作组 鹰(文言)
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
-🔗[https://www.repubblica.it/esteri/2021/06/09/news/pentagono\_cina\_usa-305200140/?ref=RHTP-VS-I287621970-P12-S6-T1](https://www.repubblica.it/esteri/2021/06/09/news/pentagono_cina_usa-305200140/?ref=RHTP-VS-I287621970-P12-S6-T1)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-+2
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
