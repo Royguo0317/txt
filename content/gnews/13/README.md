@@ -1,46 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】萨尔瓦多成全球首个将比特币列为法定货币的国家
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1313485/)
+## 疫苗背后
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1313605/)
 
-配音：香草山录音组 蒙古鸿雁
+作者：村民彼得潘|校对：X-Wing|审核：Beicy-数学老师|Page：小雨
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/D8yc7fSPDmxri/images/462662ea-e2ee-45ef-add2-10686cb1a013.jpg?asset_id=4dfbe0c3-c89f-4289-9605-a5e515cf9391&amp;img_etag=%2261abf43d8012e38105e9a42a7d7c0081%22&amp;size=1024)](https://spark.adobe.com/page/D8yc7fSPDmxri/images/462662ea-e2ee-45ef-add2-10686cb1a013.jpg?asset_id=4dfbe0c3-c89f-4289-9605-a5e515cf9391&amp;img_etag=%2261abf43d8012e38105e9a42a7d7c0081%22&amp;size=1024)
 
+直到最近，从一个非洲朋友口中我才了解到，如果外国人没打中共产的疫苗，现在会被中共国拒之门外。
 
+眼下世界疫情仍难见转机，中共借机塑造着自身的伟大形象，强迫入境人员打疫苗自然不足为奇。不过万一打了他们手下的伟大科学家研制的疫苗出了事故，他们会不会负责，又能不能担得起这么大的责任呢？我想答案不言自明，并没有细问。
 
+粗略推想，且不说疫苗功效或副作用如何，让外国友人打两针辉瑞再进门也许靠谱得多。当然，所谓共产党的“制度自信”是不允许我们的海关领导们这样崇洋媚外的，将国产疫苗打进外国人的血液里，才是理所当然，扬我国威。
 
+有关疫苗的荒谬远不止于中共国境内。早在西方的疫苗刚刚起步，我便被一张社交网络上的贴图逗乐了。图里小孩问父亲：“怎样才能知道他们打了疫苗呢？”父亲答：“他们会让你知道的。”
 
+简直一语成谶。
 
+在这点上，朋友和我达成共识，当下的疫苗已经完全不是什么的健康问题，而是个社会问题。
 
-2021年6月9日，萨尔瓦多（El Salvador）国会通过《比特币法》，成为全世界第一个将比特币列为法定货币的国家。
+尤其在西方世界，习惯了自由的人们经历了几乎是反人道的封锁在家，很长一段时间之后，疫苗的出现让人们找到了一张万能通行证。接种了疫苗意味着随意出行，摘下口罩，重回曾经的生活，而不用担心受人指摘，受人约束。
 
-萨尔瓦多是位于中美洲北部的沿海国家，也是中美洲人口最密集的国家。它毗邻太平洋，国土面积20720平方公里，下设14个省，2019年总人口670.5万。萨尔瓦多国内经济以农业为主，主要盛产咖啡豆和棉花，工业基础薄弱，是世界上“中低等收入国家” 之一，2019年GDP为267.5亿美元。
+[![](https://spark.adobe.com/page/D8yc7fSPDmxri/images/b3c28499-e117-4857-acff-259fb76920c4?asset_id=73c0734a-1289-48f1-bdc4-88650e1f16fd&amp;img_etag=%22c569f79eb02141a827495948bb17b980%22&amp;size=1024)](https://spark.adobe.com/page/D8yc7fSPDmxri/images/b3c28499-e117-4857-acff-259fb76920c4?asset_id=73c0734a-1289-48f1-bdc4-88650e1f16fd&amp;img_etag=%22c569f79eb02141a827495948bb17b980%22&amp;size=1024)
 
+人们其实并不关心，一方面，在快速变种进化的新冠病毒面前，疫苗的长期效用几乎为零；另一方面，短时间研发出来的疫苗本身的副作用还远远没有被查清，已经出现多例血栓以及被美国政府叫停的强生疫苗足以说明问题。可是每每在重大危机面前，人们总能被惊惶与短视所蒙蔽，罔顾摆在眼前的事实。
 
+反观当权者，似乎他们也离不开疫苗。重启社会，重振经济，同时还要有足够的理由安抚民心，还有什么比推行疫苗更“管用”的呢？顶层设计者们也许自己并不打算接种，但他们仍然紧握麦克风，一遍遍重复着疫苗的宣传语，打疫苗就像炒菜要放盐一样顺理成章，用这样一个笼统的概念将新冠病毒的特殊性遮掩起来，妄图得过且过，蒙混过关。
 
-**文字版原文：[【热点播报】萨尔瓦多成全球首个将比特币列为法定货币的国家](https://gnews.org/zh-hans/1311061/)**
+民众怨声载道诚然也是十分可怕的。曾饱尝民族主义者们拥戴的莫迪在印度医疗系统濒临崩溃之际，受人诟病的最大一点，就是没能为本国人民提供足够量的疫苗。印度人在最近短短几十天内饱受苦难，遂掉转枪头，逼莫迪下台。
 
-作者：经济小组/ 纽约香草山农场 乱谈秦
+其他更加弱小的第三世界国家则更加不堪一击，没有西方的先进疫苗做支撑，他们的官方口吻中几乎只剩下绝望。这样的惯性思维将贫富、阶级乃至于歧视与许多普世价值编制到整个疫苗故事中，一会儿要求西方开放疫苗专利，一会儿在引进哪一国疫苗的问题上争执不休。多层次多角度，政府的议程被排得满满当当，公众更加为自己的焦虑情绪找到了宣泄口，无暇顾及政府是否真正尽职尽责。
 
+在这样一个语境下，似乎只有给民众带来疫苗的政府才是好政府。人们全然不顾在舆论聚焦的边缘，羟氯喹已经过了无数次临床成功的验证，而真正能够从根上解决疫情的病毒溯源在一波三折中暴露了诸多关键信息。
 
+很遗憾我们并没能在第一波疫情就看到公众对新冠病毒的清醒认知，而新变种进化出的更强传染力已经开始在印度和越南等一些国家造成极大影响，而在西方已经注射新冠疫苗的人群中也出现了不少感染案例，这一切现象似乎都预示着疫情的新一轮更棘手的高峰。
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+也许拜登政府的病毒溯源与追责方案能够将枪口最终指向靶心，这一点上我们至少能够给到美情报机构一些信心，而中共在加速不止的道路上也必将自顾不暇、捉襟见肘，但世界各地的老百姓们是否准备好了从疫苗营造出的幻境中醒来，正视新冠病毒危机，这也许还需要画上一个巨大问号。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+***文章仅代表作者观点***
 
-**更多资讯，更多关注**
+编辑：【英国伦敦喜庄园编辑部】
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[!\[\]()!\[\](https://spark.adobe.com/page/D8yc7fSPDmxri/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/D8yc7fSPDmxri/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

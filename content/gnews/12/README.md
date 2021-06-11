@@ -1,44 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】闫丽梦博士在新中国联邦周年庆上的演讲全文
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1313496/)
+## 6月10日美国政要推特精选： 是时候该让福奇辞职了！
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1313604/)
 
-配音：香草山录音组 蒙古鸿雁
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+参议员霍利新闻办公室： 福奇与参与或资助武汉病毒研究所的团体和科学家进行了通信联系。 他们积极地试图隐瞒他们参与了这项研究。 是时候该让福奇辞职了。 【转[http://newspressnow.com](https://t.co/5trToqadWj?amp=1)报道：霍利支持呼吁福奇辞职的决定】
 
 
 
+> Fauci corresponded with groups and scientists who had participated or funded research at the Wuhan Institute of Virology.
+> They were actively trying to conceal their involvement in that research.
+> 
+> It's time for Fauci to resign. [https://t.co/x6DKSsBFbd](https://t.co/x6DKSsBFbd)
+> — Senator Hawley Press Office (@SenHawleyPress) [June 10, 2021](https://twitter.com/SenHawleyPress/status/1403019428246212613?ref_src=twsrc%5Etfw)
 
 
 
-
-2021年6月4日，闫丽梦博士在新中国联邦成立一周年的庆典上发表了震撼人心的精彩演讲。她谈到了中国共产党是如何掩盖和欺骗整个世界关于新型冠状病毒的真相，也向我们展示了关于病毒的来龙去脉。她向世界人民发出警示：如果不消灭共产党，整个人类都将失去未来、失去下一代、失去安全、失去一切的一切。这篇演讲精彩万分，每一个人都不容错过。
-
-
-
-**文字版原文：[【热点播报】闫丽梦博士在新中国联邦周年庆上的演讲全文](https://gnews.org/zh-hans/1309053/)**
-
-作者：纽约香草山翻译部 文雅621
+前白宫贸易顾问彼得·纳瓦罗: 我(那是)有 6000 万片羟氯喹 HCQ 药片，福奇和[@cc](https://twitter.com/CC) 由于他们的羟基歇斯底里症而不允许美国公众使用。 (cnn主播) [@JohnBerman](https://twitter.com/JohnBerman)[@cnn](https://twitter.com/CNN) 和圣·蝠奇手上沾满鲜血。有超过 50,000 名(死去的)美国人今天本该还活着【转每日邮件dailymail 文章：川普对羟氯喹的看法一直是正确的吗？ 新的研究表明，前总统力荐的药物可以将新冠COVID存活率提高200%】
 
 
 
-音频处理：喜山必胜Maverick
-发稿：雪梨
+> I had 60 million tablets of HCQ that Tony Fauci and [@cc](https://twitter.com/CC?ref_src=twsrc%5Etfw) wouldn't allow the American public to use because of their Hydroxy Hysteria. Blood on [@JohnBerman](https://twitter.com/JohnBerman?ref_src=twsrc%5Etfw) [@cnn](https://twitter.com/CNN?ref_src=twsrc%5Etfw) and Saint Fauci's hands. More than 50,000 Americans would be alive today.[https://t.co/ivOb5XjUPz](https://t.co/ivOb5XjUPz)
+> — Peter Navarro (@RealPNavarro) [June 10, 2021](https://twitter.com/RealPNavarro/status/1402996105256738816?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+参议员泰德·克鲁兹： 那是当然，如果这是真的，一向诚实的福奇博士会告诉我们的…。 当然，脸书(Facebook)和推特(Twitter)也就不会禁止人们这么说了。对吗？ 【转推来自华盛顿观察家：研究证实 [#羟氯喹](https://twitter.com/hashtag/%E7%BE%9F%E6%B0%AF%E5%96%B9?src=hashtag_click) 加锌可以提高3倍 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 感染者的活命几率】
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+> Surely, if this were true, the always-honest Dr. Fauci would have told us….
+> 
+> And surely Facebook & Twitter wouldn’t have banned people for saying it. Right? [https://t.co/QYtBWQXVKI](https://t.co/QYtBWQXVKI)
+> — Ted Cruz (@tedcruz) [June 10, 2021](https://twitter.com/tedcruz/status/1403124701447270401?ref_src=twsrc%5Etfw)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+参议员马可·卢比奥： 参议员卢比奥联合玛莎·麦卡勒姆[@marthamaccallum](https://twitter.com/marthamaccallum)讨论 [#Fauci](https://twitter.com/hashtag/Fauci?src=hashtag_click) 福奇博士在美国公众中失去信誉的问题以及 [#批判种族理论](https://twitter.com/hashtag/%E6%89%B9%E5%88%A4%E7%A7%8D%E6%97%8F%E7%90%86%E8%AE%BA?src=hashtag_click)。 阅读和观看
+
+
+
+> Sen. Rubio joined [@marthamaccallum](https://twitter.com/marthamaccallum?ref_src=twsrc%5Etfw) to discuss Dr. [#Fauci](https://twitter.com/hashtag/Fauci?src=hash&amp;ref_src=twsrc%5Etfw)'s loss of credibility with the American public and [#CriticalRaceTheory](https://twitter.com/hashtag/CriticalRaceTheory?src=hash&amp;ref_src=twsrc%5Etfw).
+> 
+> Read & watch⬇️[https://t.co/JylnolOJbA](https://t.co/JylnolOJbA)
+> — Senator Rubio Press (@SenRubioPress) [June 10, 2021](https://twitter.com/SenRubioPress/status/1403108361831337998?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 大型科技公司审查了新冠病毒 COVID-19 (中共病毒) 的起源问题 【附玛莎议员的相关讲话视频】
+
+
+
+> Big tech censored the origins of COVID-19 [pic.twitter.com/AghiQb7yXx](https://t.co/AghiQb7yXx)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 10, 2021](https://twitter.com/MarshaBlackburn/status/1403049726216491019?ref_src=twsrc%5Etfw)
+
+
+
+参议员瑞克·斯科特： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的目标是统治世界，今天在参议院共和党军事委员会[@SASCGOP](https://twitter.com/SASCGOP)会议上，国防部[@SecDef](https://twitter.com/SecDef) 也表示同意。随着我们面临来自世界各地越来越多的威胁，拜登应该停止试图削减我们军队的资金。
+
+
+
+> Communist China’s goal is world domination & today in [@SASCGOP](https://twitter.com/SASCGOP?ref_src=twsrc%5Etfw), [@SecDef](https://twitter.com/SecDef?ref_src=twsrc%5Etfw) agreed. Biden should stop trying to cut funding for our military as we face increasing threats from around the world. 👀⬇️ [pic.twitter.com/HTpXnP0CR8](https://t.co/HTpXnP0CR8)
+> — Rick Scott (@SenRickScott) [June 10, 2021](https://twitter.com/SenRickScott/status/1403074458995339268?ref_src=twsrc%5Etfw)
+
+
 
 0

@@ -1,50 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 惊恐的踩踏——疫情以来加拿大和西方国家的社会怪象
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1313255/)
+## 【小象搬运】史蒂夫班农爆炸言论关于雷在国会做冠状病毒听证会
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1313436/)
 
-作者：阿黎
+周四早上，联邦调查局局长克里斯·雷（Chris Wray）前往国会，就他去年对中国冠状病毒的了解向美国公众撒谎的事情听证。去年，中国病毒学家闫立梦博士，在中国人发起的法制基金的帮助下，秘密来到美国。抵达美国后，她将手机交给了联邦调查局。该机构已经掌握了这些信息一年多了！
 
-坚定的民主、法治、自由信奉者——加拿大独立国会议员兰迪-西里尔（Randy Hillier)今天在推特上发了一个视频，他用动物踩踏事件形象地描述了中共病毒疫情爆发以来的16个月，加拿大和西方社会人与人之间的关系和社会心理所发生变化。
+众议员马特·盖茨（R-FL）今天在众议院委员会听证会上对克里斯·雷进行了拷问。雷似乎就联邦调查局在过去一年收集的有关冠状病毒的信息，以及它是在中国武汉的一个实验室中孵化出来的事实向美国公众撒了谎。
+
+Steve Bannon 播出了 Wray 的证词以及他与 Matt Gaetz 的交流。听到这里，史蒂夫班农爆炸了，他气愤的说：“猜猜克里斯雷是什么？你可以撒谎。你可以扭曲事实，你可以做任何事情，但我知道。你告诉人们的是什么？您对 (COVID) 工作组说了些什么？而你今天坐在那里，却只是胆怯地表达，“哦，我得到了一项调查。不能谈。” 好吧，你不能谈，你去向死者回答吧！先生！你为什么不回答600,000因为病毒而死去地美国人民？！”
+
+小象：网上资料记载踪迹显示，还在川普政府时期，闫博士就写了关于病毒地报告，而FBI并没有将报告交与国会和白宫，现在事情发展验证了报告中的内容。
+
+参考链接：
 
 
 
-> WATCH TO THE END: A frightened human society can become a mob and act very much like a frightened herd in a stampede.[https://t.co/IOV98L4RWl](https://t.co/IOV98L4RWl)[#ONPoli](https://twitter.com/hashtag/ONPoli?src=hash&amp;ref_src=twsrc%5Etfw) [#CDNPoli](https://twitter.com/hashtag/CDNPoli?src=hash&amp;ref_src=twsrc%5Etfw) [#NoMoreLockdowns](https://twitter.com/hashtag/NoMoreLockdowns?src=hash&amp;ref_src=twsrc%5Etfw) [#WeMustResist](https://twitter.com/hashtag/WeMustResist?src=hash&amp;ref_src=twsrc%5Etfw) [#WeAreLivingALie](https://twitter.com/hashtag/WeAreLivingALie?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Randy Hillier (@randyhillier) [June 10, 2021](https://twitter.com/randyhillier/status/1402944549648011265?ref_src=twsrc%5Etfw)
+> [“Answer, Sir, to the Dead! Answer to the 600,000!” – Steve Bannon EXPLODES After Wray Continues to Lie under Oath on FBI’s Information on Coronavirus (VIDEO)](https://www.thegatewaypundit.com/2021/06/answer-sir-dead-answer-600000-steve-bannon-explodes-wray-continues-lie-oath-fbis-information-coronavirus-video/)
 
 
 
-他在视频中是这样说的：
+图片来源：[https://www.thegatewaypundit.com/](https://www.thegatewaypundit.com/)
 
-*当牛群发生踩踏事件或任何动物发生踩踏事件时，那是因为它们惊慌失措、恐惧不安，因为它们在奔跑。我们也知道在踩踏事件的最后往往会发生什么**…*
+整理撰稿：蓝精灵
 
-*我一直在寻找方法来正确描述我们国家，以及西方世界在**2020**年和**2021**年这**16**个月中所发生的事情，（我发现）很难找到充分描述整个社会所发生的事情的词语。我相信，描述所发生的事情的最佳方式是用动物世界中的踩踏事件作比喻。*
+校对发布：Penny
 
-*我们都可以回忆起牛群**、**水牛或旅鼠踩踏的图像和视频；恐惧是否是产生非理性行为、恐慌行为的最大传染因素？以至于受到惊吓的动物狂奔却忘记了是被什么所吓倒。*
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-*我们已经看到了这些视频，当一个畜群或社会发生踩踏事件时，许多人被压死，许多财产被破坏，而且**……**当畜群发生踩踏事件时，结果还不知道。我们也见过人类社会以这种方式行事，也有悲惨的后果，要么是因为有人在剧院里大喊着火，大家惊慌失措地跑出来，要么是我们在音乐会或体育赛事中看到的人群拥挤。*
-
-*在那里，个人实际上被压垮了，因为当人群处于踩踏状态时，他们失去了同情心或（对他人的）兴趣。这是一种人人为自己的心态，（人人都）试图逃跑。*
-
-*因此，恐惧是一种传染病。在群体或暴民发生踩踏时产生恐慌和非理性的行为，无法思考。有些人为了减少踩踏事件（采取行动），但他们的行为本身会引起更多的恐慌，更多的苦恼和更多的恐惧，这很像过去**16**个月在我国发生的情况。*
-
-*我们的机构，我们的政治领导人，他们的目的是安静下来，平息恐惧，但他们一直在助长、诱惑和煽动恐慌和恐怖。无论是我们的公共卫生官员**、**政治家**、**医疗协会，甚至教育系统，都加剧了社会中的恐惧程度。所以难怪我们会做很多有害的事情。难怪我们所采取的措施实际上造成了比在**2020**年**3**月时所担心的更多的损害。*
-
-*我们社会的牧羊人已经失败了，而且失败得很惨，与此同时，我们的许多企业实体、组织和协会却因为危机和我们中间的混乱获得了丰厚的利润，而这些利润都是不义之财。*
-
-*人类确实是社会动物，就像野生动物一样，我们仍然有本能的特征。恐惧是其中之一，恐惧是有传染性的。*
-
-*这次踩踏事件是自然发生的事件，还是人为的？我们是否会终结于一个畜栏里，在那里我们相信我们是安全的，但没有自由？*
-
-西里尔议员在视频中用动物踩踏事件，以加拿大人容易接受的语言婉转地表达了他对目前所发生的人际关系淡泊，人们变得更自私，人们互不关心，甚至相互对立的看法。
-
-西里尔的视频几乎涉及并点明了疫情以来的所有事实，包括提出灾难是自然发生的，还是人为的；政府和相关有影响力的机构煽动和助长了恐慌；大公司从中获取巨额不义之财；“牧羊人”领导严重失败，“羊群”被赶到“羊圈”里不准出来 – 多么形象的比喻！加拿大人难道不是最容易带领的不敢反抗的羊吗？
-
-希望加拿大人看一看西里尔议员的视频，面对现实，认识到中共的邪恶和中共在加拿大的严重渗透，反对加拿大共产化，维护加拿大的民主、法治和自由。
-
-* * *
-
-*编辑、发稿 文锦*
-
-+5
++1

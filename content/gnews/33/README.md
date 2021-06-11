@@ -1,109 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】老天叫我来移山——《大王派我来巡山》灭共版
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1313193/)
+## 《欧中协议》的结束对中共的影响太大了！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1313380/)
 
-**作者：纽约香草山农场 乱谈秦 
-原词曲：赵英俊**
+**摘要：在2021年6月9日的盖特中，郭先生说《欧中协议》的结束对中共的打击巨大，它希望以此与美国抗衡的希望彻底破灭，这说明欧洲人已经觉醒，同样美中也必须脱钩。**
+[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10184653/Miles_2021-06-09-getter.srt.txt)
+### 《欧中协议》的结束对中共的影响太大了！
+The Impact of the End of the EU-China Agreement’s on the CCP
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
+兄弟姐妹们，你们记得头一段时间，关于《欧中协议》结束以后我告诉大家，你们没明白，《欧中协议》对共产党的打击有多大！大家去想一想，《欧中协议》几乎是共产党抗衡美国最后的希望。《欧中协议》的结束对它的影响太大了！
 
+Brothers and sisters, you remember what I told you after the EU-China Comprehensive Agreement on Investment (abbr. EU-China Agreement) was ended, but maybe you don’t fully understand what a heavy blow the end of this deal was to the CCP. Thank about it. The EU-China Agreement was almost the last hope for the CCP as a counterbalance to the United States. The end of the EU-China Agreement has had a tremendous impact on the CCP!
 
+我毫不夸张地说，没有我们，《欧中协议》绝对结束不了。以后的故事多了。很多人可能说咱吹牛是吧？俺吹牛，俺吹牛，俺吹公牛，啥牛都吹，中不中？战友们记住——《欧中协议》关键！
 
+It is no exaggeration to say that the EU-China Agreement would never have been stopped if it were not for us. There are many stories behind it to be exposed. Many people may say that I am bragging. I’m bragging. I’m boasting. I’m blowing my mouth off, okay? Fellow fighters, remember that the EU-China Agreement is very critical.
 
+关于这个院校的问题，大家知道和《欧中协议》啥关系吗？过去这30年，共产党培养的人才最多的[是在]美国和欧洲。
 
+Regarding what happened in colleges and universities, do you know the relationship between these events and the EU-China Agreement? In the past 30 years, the CCP sent talented people for training, mostly in the United States and Europe.
 
+《欧中协议》的结束就是欧中的对抗；欧中的对抗是中国共产党对欧洲的威胁、制裁、打击和对官员的收买，“蓝金黄”，包括要输送共产主义，[让]欧洲人已经觉醒了。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10162140/154-1-1.jpg)
+The end of the EU-China Agreement means the confrontation between Europe and China. Why is there a confrontation between Europe and China? Because of the CCP’s threats, sanctions, crackdowns on Europe, bribing of their officials, the BGY plot, as well as injecting communism. All this has awakened European people.
 
-月亮对我瞪眼睛
-雨声陪我到天明
-我是一个努力干活儿
-却没有钱的流浪汉
-早出晚归干一年
-不够房子添一块砖
-我的未来究竟在哪儿
-谁能给我个回答
-老天叫我来移山
-我从东边跑西边
-睁开我的眼
-绷紧我的脸
-生活充满艰与险
-老天叫我来移山
-找些咸菜做晚餐
-这头顶的云
-无比的暗
-孤城遥望玉门关
+就像我展示给德国政府看的，我说：只要你签欧中协议，你记住，它一定要求你做本币互换，也就拿人民币互换，人民币就是冥币。而且特别地要求，一些技术上，特别是德国人看好的这个所谓的华为5G上，一定不会答应你的要求，而且它要把数据中心和技术留在中国。怎么样？最后他们发现了这个秘密，对吧？
 
-太阳对我眨眼睛
-溪水潺潺陪我行
-我是一个努力干活儿
-还有理想的圣天使
-别问我从哪里来
-也别问我到哪里去
-我要摘下最美的花儿
-献给我的小公举
-老天叫我来移山
-我要世界转一转
-举起我的旗
-唱起我的歌
-灭共充满节奏感
-老天叫我来移山
-抓个共匪做晚餐
-这战友的情
-无比的甜
-不破楼兰终不还
+Just as I revealed to the German government, I told them that if you sign the EU-China agreement, the CCP will definitely require you to make a currency swap, i.e., to swap EUR with RMB. Renminbi is hell money. Moreover, regarding certain technologies, particularly Huawei’s 5G technology that the Germans are optimistic about, the CCP definitely will not agree to your requirements. Besides, it will require the data center and technology to stay in China. How about that? Finally, they figured out the risks of doing a deal with the CCP, right?
 
-老天叫我来移山
-我要世界转一转
-举起我的旗
-唱起我的歌
-灭共充满节奏感
-老天叫我来移山
-抓个共匪做晚餐
-这战友的情
-无比的甜
-不破楼兰终不还
+所以《欧中协议》必须停；美中必须脱钩。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10162409/154-2-1.jpg)图源网络
+Therefore, the EU-China Agreement must be stopped. The United States must decouple with communist China.
 
-**后记**：
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60c0aa59e15f7e227eeed9fb](https://gtv.org/getter/60c0aa59e15f7e227eeed9fb) (0:27-2:11, 5:56-6:02)
+鸣谢：[1] 感谢[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供中文文本于[https://gnews.org/zh-hans/1310694/](https://gnews.org/zh-hans/1310694/)
+[2] 感谢[喜联盟七哥盖特组](https://gnews.org/zh-hans/author/miles-getter/) 提供英文翻译于[https://gnews.org/1313192/](https://gnews.org/1313192/)
 
-几千年来，华夏各民族受苦受难，或迷迷糊糊、不知所措，或偏居一隅、苟且偷生，或背井离乡、颠沛流离，或远渡重洋、遥望故乡。其中却有一群聪明、勇敢、善良又幸运的人，遇到了郭文贵先生和爆料革命，在这里觉醒，在这里升华，在这里找到了人生的方向和信仰，从迷茫的苦逼族，变成了快乐的灭共者。
+* * *
 
-八个月前，基于某位战友的提议，选赵英俊词曲和演唱的《大王派我来巡山》歌词，改成这首灭共歌曲。一眨眼世界变化很大，2021年2月3日14时33分，赵英俊因病医治无效，在北京病逝，享年43岁。温暖有才的英俊哥到人间潇洒地转了一转，留下一朵小红花，哼着歌依依不舍去了天堂。他留下最后的话是“真正的死亡不是死去，而是被人遗忘”，他唱的最后的歌是《送你一朵小红花》。从中我能感受到他对生活的热爱和对信念的坚持。用其中一段歌词缅怀英俊哥：
+字幕：【JennyL（纽约香草山农场）】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-“送你一朵小红花，开在你昨天新长的枝桠，奖励你有勇气，主动来和我说话。不共戴天的冰水啊，义无反顾的烈酒啊，多么苦难的日子里，你都已战胜了它。送你一朵小红花, 遮住你今天新添的伤疤, 奖励你在下雨天, 还愿意送我回家, 科罗拉多的风雪啊, 喜马拉雅的骤雨啊, 只要你相信我, 闭上眼就能到达。”
-
-赵英俊歌曲欣赏：
-
-[大王叫我来巡山—赵英俊  MV](https://www.bilibili.com/video/av756575414/)
-
-[送你一朵小红花—赵英俊  一小时纯享版](https://www.youtube.com/watch?v=VHHUbg9KS5U)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
-
-校对/发稿：小鹿
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
-
-
-
-
-
-0
++3
