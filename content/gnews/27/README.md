@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 玛莎·布莱克本参议员: 国会上对福奇博士的质疑和批判性种族理论在美国引发更多反对行动
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1315061/)
+## 闫丽梦博士号召立法惩罚中共制造疫情、毁灭人类文明
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1315095/)
 
-06/10/2021 玛莎·布莱克本参议员谈及参议员们在国会对福奇博士的质疑以及批判性种族理论在美国的一些地方引发更多反对行动。
+06/10/2021 闫丽梦博士：人们应该推动我们的政府去立法，真正地惩罚中共，不仅因为他们所造成的金钱损失，也因为他们的意识形态和他们的征服欲望要毁灭整个人类文明。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
