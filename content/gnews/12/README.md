@@ -1,33 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】 无所适从&#8211;航空公司警告：接种疫苗的人不应旅行
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1316935/)
+## 中共狂傲向世界宣告在香港的胜利
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1317636/)
 
-作者：休斯顿星光农场 写作部 文顺
+#### **编译：七彩光**| **校对：人间四月**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12141954/capture-7.jpg)图片来源：news.have8.tv
+据《彭博社》记者卡里·苏·林德伯格（Kari Soo Lindberg）与其助理约翰·程（John Cheng）6月12日报道，中共驻香港的中联办主任骆惠宁在周六举办的纪念中共成立100周年大会上，发出了足以令世人警醒的叫嚣。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01225742/Screenshot-2021-06-01-215655.jpg)
+周六，中联办、驻港国安公署、外交部驻港公署及解放军驻港部队，共4个机构联合举办了名为“中共与一国两制”的主題论坛。中联办主任骆惠宁发表了主题演讲。
 
-近期，因接种疫苗的旅客在乘坐飞机时引发血栓事件频发，西班牙和俄罗斯航空公司警告已经接种过疫苗的人不应旅行，美国疾控中心（CDC）官网也发出关于飞机旅行超过4小时出现血栓的警告。
+骆惠宁说，那些试图利用香港作为地缘政治的棋子，作为遏制中国工具的人，正在破坏“一国两制”的基础，是香港繁荣和稳定的真正大敌。“如果没有中央政府的一系列重大决定来拨乱反正，很难想象香港是如何从乱到治的。”骆惠宁甚至公开叫嚣说，要求结束一党专政的人是“香港的真正大敌”。
 
-据ArmstrongEconomics报道，每年有超过3亿人乘坐长途航班（一般超过4小时）。血凝块也叫深静脉血栓（DVT），对一些长途旅行者来说是一个严重的风险。大多数关于血栓和长途旅行的信息来自于收集到的关于航空旅行的信息。然而，任何旅行超过四个小时的人，无论是乘坐飞机、汽车、公共汽车或火车，都可能有血栓的风险。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12102234/Screenshot-2021-06-12-092204.jpg)*图片来源：路透社*
-这一消息令许多人茫然失措。此前，各国政府以自由出行为由推动疫苗护照，西班牙更是宣布从6月7日起向全球接种中共病毒疫苗的人士开放边境。但如今注射疫苗后，人们却因更高的血栓风险依然无法出行。
+文章作者分析认为，虽然这次活动是为了纪念中共建党一百周年，但更是为了庆祝中共对香港民主派的成功打击。因为中共采取了一系列令人眼花缭乱惨无人道的措施来控制对这个前英国殖民地的民主抗争运动，监禁主要活动家，并要求未来的候选人必须是尊重共产党的“爱国者”。
 
-此外，有记录显示，有人在接种疫苗后不坐飞机而死于血凝块。有人发现，因感染中共病毒的死亡病人往往涉及血凝块原因。而英国《标准晚报》也表示，接种疫苗或未接种疫苗的人在飞行时出现血凝块的风险是一样的。
+同时，中共正在全国各地举行活动，以迎接下个月的建党一百周年庆典，习近平主席正在利用这一机会强调他自己的功劳，尤其是在加强其认为是自己在领土控制方面取得的巨大成功。在2019年香港发生了历史性的规模宏大长达一年多之久的返送中群众街头抗议后，中共政府着手改写香港的政治参与规则。
 
-与中共病毒溯源同出一辙，媒体不会报道真正可信的信息，人们也不可能得到这些信息的真相，因为各国政府正在积极推动疫苗经济。报道称，不管有多少人死亡，政客们永远不会承认错误，他们也不会被起诉，因为他们控制了整个过程。
+报道还提及，本周六的活动恰好与香港立法会外示威者与警察发生暴力冲突两周年时间吻合。在2019年的集会中，在抗议者试图进入（立法会）大院后，警方用催泪瓦斯驱散了集会者，此事件标志着双方走向了更多的肢体接触抗争的转折点。
 
-新闻来源：[https://www.armstrongeconomics.com/international-news/disease/vaccinated-people-told-not-to-travel/?**cf\_chl\_jschl\_tk**=ffc4528c59ffd6d1d7325bd9ce92873d1389afe8-1623483365-0-ATLkdCP4wiG3SfvfXlTe3ZBawaj6fjaW3fKzTrbzC9sOEJV5Pgq-Y1uDGKHq-oTRB-NftuRwXYPNh1kOyjntBYmskh\_yK4w67\_t6v\_K0ez9eZWgoxe\_NDOFMadw70srX83IfZ-R\_ZlCoDX9\_R2kMrTkwAOZHX4zpYV7gUlcykzZ-0olqZGcX2d92XcXlbNj583bCnq8bYUD8-ouZus2QmiPN9EY6nLfXVaQEqGSdLC9CPPDF3uG6hCBeN39f5ThvP9WhpoO9XwRxNe3Y7SIsKGRZJmN2z4xRNiuuZOpbOHHErh9UFYnkeeNM-HCXlaHXtpRdApZbJz-WDzN2orfpm\_luMTHvtXfhGOr5yEPjFbM\_Z1f46SXJs3VDWtW8b25uPOWlM1jHr7yKa-aHjA9bSSqxvaJRmW6fCuX7EGz8lt3Lo0ksKqgA2oKHp4HiDsnMBtdcoziV-*QYIe8MDBhiejYISMfJshySCqlF*-I2\_n8e4l\_\_uXyqpnFTUizAWdBGYb\_TppdwvKirtoIBC4o3Xbm7lQJ6taT5auxEdP8Z\_Q\_F](https://www.armstrongeconomics.com/international-news/disease/vaccinated-people-told-not-to-travel/?cf_chl_jschl_tk=ffc4528c59ffd6d1d7325bd9ce92873d1389afe8-1623483365-0-ATLkdCP4wiG3SfvfXlTe3ZBawaj6fjaW3fKzTrbzC9sOEJV5Pgq-Y1uDGKHq-oTRB-NftuRwXYPNh1kOyjntBYmskh_yK4w67_t6v_K0ez9eZWgoxe_NDOFMadw70srX83IfZ-R_ZlCoDX9_R2kMrTkwAOZHX4zpYV7gUlcykzZ-0olqZGcX2d92XcXlbNj583bCnq8bYUD8-ouZus2QmiPN9EY6nLfXVaQEqGSdLC9CPPDF3uG6hCBeN39f5ThvP9WhpoO9XwRxNe3Y7SIsKGRZJmN2z4xRNiuuZOpbOHHErh9UFYnkeeNM-HCXlaHXtpRdApZbJz-WDzN2orfpm_luMTHvtXfhGOr5yEPjFbM_Z1f46SXJs3VDWtW8b25uPOWlM1jHr7yKa-aHjA9bSSqxvaJRmW6fCuX7EGz8lt3Lo0ksKqgA2oKHp4HiDsnMBtdcoziV-QYIe8MDBhiejYISMfJshySCqlF-I2_n8e4l__uXyqpnFTUizAWdBGYb_TppdwvKirtoIBC4o3Xbm7lQJ6taT5auxEdP8Z_Q_F)
+作者特别提及，香港一些活动人士在社交媒体上发布了抗议呼吁，敦促人们在铜锣湾和旺角的购物区聚集。而警方计划于周六在全港部署2000多名警察。
 
-编辑：Helen       校对：爱丽丝      发稿：文柳
+* * *
 
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+**评：**中共自建党以来，用尽了谎言、欺骗、威胁、恐吓、暴力等手段对待中共国老百姓，但在宣称自己的主义和实质方面，却总是能够做到言行一致，亦即独裁专政是中共一以贯之持的，这一点虽然掩藏过，但从来没有否认过。
 
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+自香港几百万人民反抗独裁，追求真正民主的反送中运动以来，中共极尽所能，利用各种不可告人的手段来镇压香港市民，另一方面，又不断对外宣称香港是中共的香港。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
+中共叫嚣反对“一党执政”的人是香港的敌人，就是把几百万追求民主的香港市民视为了敌人，中共会用尽各种阶级斗争的手段来进一步坑害和统治香港民众。同时，骆慧宁的发言也是代表中共对世界各国民主政权国家的宣战，凡是民主的国家都是中共的敌人。
 
-
+&gt;&gt;**原文链接**&gt;&gt;[Rivals of One-Party Rule Are H.K.’s ‘Real Enemies,’ Beijing Says](https://www.bloomberg.com/news/articles/2021-06-12/rivals-of-one-party-rule-are-h-k-s-real-enemies-beijing-says)
 
 0

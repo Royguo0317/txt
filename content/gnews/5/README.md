@@ -1,37 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国司法部正式调查刘特佐等人的“一马”案以及政治构陷案
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1317620/)
+## 【圣城传声筒】暂别香港 —— 致被迫离乡背井的港人
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1317721/)
 
-#### **翻译：蜜蜂 | 责编：沙拉猫**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12140357/doj_seal.jpg)
-**美国司法部**
-公共事务部
-日期：2021年6月11日（星期五）
+作者：纽约香草山香港部写作组
 
-**美国艺人/商人和马来西亚籍人士被控参与后方渠道游说活动，试图游说美国停止调查一马公司案，并遣返中国异见人士**
 
-美国哥伦比亚特区联邦地区法院大陪审团于本周四提交了一份《追加起诉书》，指控一名美国艺人和商人以及一名马来西亚籍人士自2017年（或前后）开始策划一场未注册通过后方渠道的活动，企图对当时的美国总统府和司法部施加影响，使其放弃对刘特佐（Jho Low）等人与一间名为“一马发展有限公司”（1MDB）的国际战略及发展公司的有关调查，并将一名中国异见人士遣返回中国。
 
-根据该《追加起诉书》，39岁的刘特佐（又称Low Taek Jh ，Jho Low）和48岁的米歇尔（Prakazrel “Pras” Michel）被控与埃利奥特·布罗伊迪(Elliott Broidy)、尼基·拉姆·戴维斯(Nickie Lum Davis)和其他人合谋，分别在刘特佐和中华人民共和国公安部副部长的指示下，从事未公开的游说活动，以求撤销对刘特佐和其他人涉嫌“一马公司”贪污案的调查和没收程序，并将一名中国异议人士遣返回中国。米歇尔和刘特佐还被控密谋进行与外国影响活动有关的洗钱行为。米歇尔还被控干扰证人和密谋向银行做出虚假陈述。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
-2019年5月，米歇尔和刘特佐在哥伦比亚特区被控策划和隐瞒了一起外国资金和渠道政治捐款计划【注：未得到竞选活动授权筹集资金的人，他们接收指定用途的捐款并将其转发给竞选活动的候选人或候选人的授权竞选委员会】。他们将刘特佐的数百万美元资金作为所谓的合法竞选捐款而投入美国总统竞选，同时隐瞒了这些资金的真正来源。根据起诉书，为了实施该计划，米歇尔接受了刘特佐的资金，并将这些钱亲自以及通过约20名“稻草捐款人”【注：指以非法利用他人资金以个人名义进行政治捐助的人】捐了出去。
 
-若罪名成立，刘特佐将面临每项罪名5至10年监禁的最高刑罚。如果被定罪，米歇尔面临的最高刑罚则是每项罪名5至20年监禁。联邦地区法院的法官将在考虑《美国量刑指南》和其他法定因素后作出量刑判决。
 
-司法部刑事司副助理检察长凯文·德里斯科尔（Kevin O. Driscoll）、司法部监察长办公室及网络调查办公室主管、特别探员基斯·博纳诺（Keith A. Bonanno）、联邦调查局洛杉矶办事处主管、助理主任克里斯蒂·约翰逊（Kristi Koons Johnson）和联邦调查局纽约办事处主管、助理主任威廉·斯威尼（William F. Sweeney）宣布了本消息。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12152754/51.jpg)图片来源：苹果日报
 
-司法部监察长办公室和联邦调查局洛杉矶办事处以及联邦调查局驻纽约国际反腐特别小组正在调查此案。
+早晨，出⻔上学
 
-刑事司公共廉政局首席副局长约翰·凯勒（John D. Keller）、选举犯罪办公室副主任肖恩·慕林（Sean F. Mulryne）和上庭律师尼可·洛克希特（Nicole R. Lockhart）正在对此案提起公诉。
+妈妈说，不坐⻋ 走路吧
 
-起诉书只是对被告提出指控，在法庭排除合理怀疑证明其有罪前，所有被告人均被视为无罪。
+多踩踩香港的地气
 
-主题：金融欺诈、腐败
-部门：刑事司
-新闻发布稿序号：21-547
+街上，有穿警服的
 
-&gt;&gt;公文链接&gt;&gt;[U.S. Entertainer/Businessman and Malaysian National Charged with Back-Channel Lobbying Campaign to Drop 1MDB Investigation and Remove Chinese Dissident from U.S.](https://www.justice.gov/opa/pr/us-entertainerbusinessman-and-malaysian-national-charged-back-channel-lobbying-campaign-drop)
+妈妈说，别去盯着看哦
+
+千万不要沾到晦气
+
+转眼，抗争两年过去
+
+妈妈说，要记得他们哦
+
+看香港人多有勇气
+
+不久，无奈将要离去
+
+妈妈说，明年再回来吧
+
+那时肯定没有邪气
+
+梦里，亲吻紫荆花旗
+
+妈妈说，一切都已过去
+
+来闻香港自由空气
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115247/M6.jpg)
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+
+
 
 0
