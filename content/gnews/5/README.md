@@ -1,33 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】 无所适从&#8211;航空公司警告：接种疫苗的人不应旅行
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1316935/)
+## 【世纪大案】40：自信的枕头哥和司法部长葫芦里的药
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1317594/)
 
-作者：休斯顿星光农场 写作部 文顺
+作者：香草山文艺部 Tiffany的早餐
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01225742/Screenshot-2021-06-01-215655.jpg)
-
-近期，因接种疫苗的旅客在乘坐飞机时引发血栓事件频发，西班牙和俄罗斯航空公司警告已经接种过疫苗的人不应旅行，美国疾控中心（CDC）官网也发出关于飞机旅行超过4小时出现血栓的警告。
-
-据ArmstrongEconomics报道，每年有超过3亿人乘坐长途航班（一般超过4小时）。血凝块也叫深静脉血栓（DVT），对一些长途旅行者来说是一个严重的风险。大多数关于血栓和长途旅行的信息来自于收集到的关于航空旅行的信息。然而，任何旅行超过四个小时的人，无论是乘坐飞机、汽车、公共汽车或火车，都可能有血栓的风险。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12102234/Screenshot-2021-06-12-092204.jpg)*图片来源：路透社*
-这一消息令许多人茫然失措。此前，各国政府以自由出行为由推动疫苗护照，西班牙更是宣布从6月7日起向全球接种中共病毒疫苗的人士开放边境。但如今注射疫苗后，人们却因更高的血栓风险依然无法出行。
-
-此外，有记录显示，有人在接种疫苗后不坐飞机而死于血凝块。有人发现，因感染中共病毒的死亡病人往往涉及血凝块原因。而英国《标准晚报》也表示，接种疫苗或未接种疫苗的人在飞行时出现血凝块的风险是一样的。
-
-与中共病毒溯源同出一辙，媒体不会报道真正可信的信息，人们也不可能得到这些信息的真相，因为各国政府正在积极推动疫苗经济。报道称，不管有多少人死亡，政客们永远不会承认错误，他们也不会被起诉，因为他们控制了整个过程。
-
-新闻来源：[https://www.armstrongeconomics.com/international-news/disease/vaccinated-people-told-not-to-travel/?**cf\_chl\_jschl\_tk**=ffc4528c59ffd6d1d7325bd9ce92873d1389afe8-1623483365-0-ATLkdCP4wiG3SfvfXlTe3ZBawaj6fjaW3fKzTrbzC9sOEJV5Pgq-Y1uDGKHq-oTRB-NftuRwXYPNh1kOyjntBYmskh\_yK4w67\_t6v\_K0ez9eZWgoxe\_NDOFMadw70srX83IfZ-R\_ZlCoDX9\_R2kMrTkwAOZHX4zpYV7gUlcykzZ-0olqZGcX2d92XcXlbNj583bCnq8bYUD8-ouZus2QmiPN9EY6nLfXVaQEqGSdLC9CPPDF3uG6hCBeN39f5ThvP9WhpoO9XwRxNe3Y7SIsKGRZJmN2z4xRNiuuZOpbOHHErh9UFYnkeeNM-HCXlaHXtpRdApZbJz-WDzN2orfpm\_luMTHvtXfhGOr5yEPjFbM\_Z1f46SXJs3VDWtW8b25uPOWlM1jHr7yKa-aHjA9bSSqxvaJRmW6fCuX7EGz8lt3Lo0ksKqgA2oKHp4HiDsnMBtdcoziV-*QYIe8MDBhiejYISMfJshySCqlF*-I2\_n8e4l\_\_uXyqpnFTUizAWdBGYb\_TppdwvKirtoIBC4o3Xbm7lQJ6taT5auxEdP8Z\_Q\_F](https://www.armstrongeconomics.com/international-news/disease/vaccinated-people-told-not-to-travel/?cf_chl_jschl_tk=ffc4528c59ffd6d1d7325bd9ce92873d1389afe8-1623483365-0-ATLkdCP4wiG3SfvfXlTe3ZBawaj6fjaW3fKzTrbzC9sOEJV5Pgq-Y1uDGKHq-oTRB-NftuRwXYPNh1kOyjntBYmskh_yK4w67_t6v_K0ez9eZWgoxe_NDOFMadw70srX83IfZ-R_ZlCoDX9_R2kMrTkwAOZHX4zpYV7gUlcykzZ-0olqZGcX2d92XcXlbNj583bCnq8bYUD8-ouZus2QmiPN9EY6nLfXVaQEqGSdLC9CPPDF3uG6hCBeN39f5ThvP9WhpoO9XwRxNe3Y7SIsKGRZJmN2z4xRNiuuZOpbOHHErh9UFYnkeeNM-HCXlaHXtpRdApZbJz-WDzN2orfpm_luMTHvtXfhGOr5yEPjFbM_Z1f46SXJs3VDWtW8b25uPOWlM1jHr7yKa-aHjA9bSSqxvaJRmW6fCuX7EGz8lt3Lo0ksKqgA2oKHp4HiDsnMBtdcoziV-QYIe8MDBhiejYISMfJshySCqlF-I2_n8e4l__uXyqpnFTUizAWdBGYb_TppdwvKirtoIBC4o3Xbm7lQJ6taT5auxEdP8Z_Q_F)
-
-编辑：Helen       校对：爱丽丝      发稿：文柳
-
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
-
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
 
+
+摘要：枕头哥林德尔秘密协助川普的传闻成真，数月后选择在新中国联邦成立周年庆典上重磅爆料，以示对新中国联邦爆料革命的支持。被强力狙击错失大法官宝座的戈兰德卷土重来，以司法部长身份宣布介入大选案。
+
+2021年6月4日，新中国联邦成立一周年。100年前的1921年夏，一帮极端原教旨主义的乌托邦主义者建立了中国共产党，这是人类历史上最大和最臭名昭著的犯罪组织。50年前的1971年夏，美国国家安全顾问亨利·基辛格博士秘密访问了共产主义中国。美国和中共当时并没有共同的意识形态，但为了对付苏联却走到了一起。([新中国联邦的诞生](https://gnews.org/zh-hans/1297405/) )
+
+2021年6月4日，这两个伟大国家的人民的命运又在纽约曼哈顿相遇。经过一月份总统换届的一系列风波，美国的保守派人士和爆料革命的战友，在公然的选举欺诈和政治迫害下，已经愤愤不平了好几个月。尽管美国的一股力量即使是在拜登执政的情况下，仍然有条不紊地推进全球灭共的步伐，但同时大家也都能感受到，一批丑恶的政客，仍然在通俄门、国会山骚乱、黑命贵这些话题上浪费时间，并且试图阻挡灭共的浪潮，阻挡对福奇等科学界卖美贼、武汉病毒研究所的调查。
+
+经过2020年CCP-Covid大流行和大选，美国一半的偏保守民众已经被唤醒。在灭共的路上走得最远的人之一就是战友们喜爱的枕头哥麦克·林德尔(Mike Lindell)。在6月4日新中国联邦成立一周年的纽约主会场，林德尔上台演讲并突然抛出重磅视频，详细介绍了他在过去几个月和技术专家合作，掌握了明确的中共操纵美国大选的证据。林德尔表示他会把官司打到最高法院，最高法院面对这样的证据必定推翻2020大选结果([世纪大案 38：GOP和建制派的没落，MAGA和新中国联邦的崛起](https://gnews.org/zh-hans/737844/) )([世纪大案37: 贪婪与恐惧——第117届国会](https://gnews.org/zh-hans/728849) )([香港风云21：昨日香港，今日美国](https://gnews.org/zh-hans/727252))。
+
+枕头哥林德尔是美国著名的床上用品制造商mypillow的创始人。2021年一月，在大选揭晓、公然舞弊的时期，林德尔前往白宫与川普总统会谈。他离开白宫时被记者拍到手持文件，放大后隐约可见文件似乎涉及戒严法。
+
+![img]()![img](https://static01.nyt.com/images/2021/01/15/us/politics/15transition-briefing-lindell/merlin_182378253_b32db8aa-ac3d-420a-9c05-5674a03547ae-jumbo.jpg?quality=90&amp;auto=webp)Gerald Herbert/Associated Press
+
+之后林德尔的活动，成为人们热议的话题，直到他选择在新中国联邦成立周年庆典上，抛出重磅的爆料，以表示川普的支持者对新中国联邦爆料革命的绝对支持。
+
+2016年2月13日，保守派旗手斯卡利亚(Antonin Scalia)大法官离奇逝世。正值2016大选年，奥巴马希望在大选前通过提名，改变美国高法的党派力量均衡。奥巴马放弃了提名极左派法官，而是提名偏中间派的戈兰德(Merrick Garland)，希望在参议院阻力更小。参议院多数党领袖麦康奈尔赌上了自己的政治生涯，强力抵制奥巴马的提名，最终获得了成功，等到了川普的胜选([世纪大案 20：最高法院](https://gnews.org/zh-hans/461127/))。
+
+四年过去，拜登依靠竞选舞弊入主白宫，提名戈兰德任司法部长。
+
+2021年6月11日，枕头哥林德尔宣布掌握重大证据后一周，戈兰德宣布司法部将仔细审查任何选举后的审计工作，以寻找违反投票法的证据，司法部将积极维护公民投票权。
+
+他计划将司法部民权司内专门负责保护投票权的工作人员数量增加一倍，目的是确保美国人的投票权得到保障，并密切审查各州如何进行选举。他说，人员激增将在未来30天内发生，加强后的部门将使用其掌握的所有法律，“以确保保护每一个寻求参与民主的合格美国人”([【灭共头条】司法部正式介入总统选举后的审计，奇妙的旅程已开启!](https://gnews.org/zh-hans/1317220/))。
+
+保守派对此的反映是负面的，保守派主流认为，司法部此举是在破坏正在节节胜利的选票审计工作，并且在威胁大选舞弊审计工作人员。郭文贵先生却认为，美国的系统性优势在此体现出来。尽管民主党控制了白宫和两院，拜登选择了戈兰德，但司法部一旦介入此事，法制系统向前的推进将是乐观的，在大选中舞弊的罪行，终将得到刑事处罚。
+
+司法部的出手，究竟意味着什么，我们拭目以待。无论如何，枕头哥林德尔为爆料革命新中国联邦送上了一份大礼——美国大选舞弊不仅是美国内政，更是中共直接操纵的结果。美国人因此可以认识到，不灭中共，美国民主的基础将不复存在。以美灭共不是美国人对中国人的施舍，以美灭共是中美伟大的人民为自由和民主的携手战斗。
+
+(待续)
+
+相关链接：
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/26123748/image0-2-1-2.png)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

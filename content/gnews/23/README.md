@@ -1,43 +1,113 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】两年了，你还好吗？
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1317349/)
+## 【香草诗词汇】至尊珍惜
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1317460/)
 
-作者：香草山香港部 格格树
+## **–烧脑《大话西游》中–
+–自问百年一川明–**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+作者：纽约香草山健身部 澄道
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12105154/5-%E8%81%96%E5%9F%8E%E5%82%B3%E8%81%B2%E7%AD%92%E2%80%94%E9%A6%99%E8%8D%89%E5%B1%B1%E9%A6%99%E6%B8%AF%E9%83%A8-%E6%A0%BC%E6%A0%BC%E6%A8%B9.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12114419/6-%E8%87%B3%E5%B0%8A%E7%8F%8D%E6%83%9C.jpeg)
 
-6月12日，两年了，你们在哪里？蓦然回首，记忆仍深刻，感触仍在。
+不取决于人境遇
+大多源于思瞬间
 
-6月9日和平游行得不到合理的回应，才触发6月12日的更强烈的反对声音。
+当时那把剑
+离我的喉咙
+只有0.01厘米
+四分之一柱香后
+那把剑主人
+会彻底爱上我！
+因为我决定
+说一个谎话
+虽然我以前说过
+无数回
+但这一次是＂最完美的＂！
+至尊珍惜
 
-看着一把把从桥上飘落下来的雨伞，也预示着香港曾经的法治自由已经慢慢的碎了一地。
+宣布那个决定（种灭罪）
+到我离开白房子
+只有一天
+但24小时后
+这个决定受益者
+仍不愿放弃我
+虽然后来证明
+我还远远未懂得
+至尊珍惜！
 
-这一天，也是我第一次近距离看到王婆婆。她举着英国国旗在天桥的入口高挺着。为对面天桥上和桥下的市民和学生打气。
+星爷
+＂爱你一万年＂！
+初闻不知片中意
+不珍惜
+无懂爱
 
-然而就在这一天开始，香港人目睹警察如何充当政权的刽子手。向无辜的市民作出残暴的镇压，硝烟满地，满目疮痍。还有体制的崩坏沦陷，道德沦丧。让香港人极为痛心疾首。之后的一年多，香港人抗争之路，走过的痛苦艰辛和血泪，更让我精神状态陷入无比黑暗。记忆和仇恨，至今，伤口仍会隐隐作痛。
+川大爷
+＂偿我十万亿＂！
+再闻已是片中人
+不灭共
+无生还
 
-可能那天那夜，我与你擦肩而过。我只想问，你现在还好吗？
+没有珍惜
+爱你的人
+尘世间
+莫过
+最痛
+
+过等太久
+爱你的人
+烟火巷
+超脱
+三界
+
+等你明白了
+舍生取义的道理
+自然会回来
+和我唱这首歌
+
+＂至尊宝＂
+深知珍惜
+
+灭共我无疑异
+只是错过了
+天使 Dr闫博士
+如果可能我定
+＂身披金甲圣衣
+脚踏七色云彩＂
+来赴约
+
+川大爷
+已知珍惜
+
+生亦何欢
+知珍惜者当享用
+
+死亦何苦
+不珍惜者受难逃
+
+@爱动爱议码06122
+@僧剧场般视角诗培训桌上机
+@澄道来了
 
 校对/发稿：雪梨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115247/M6.jpg)
+![This image has an empty alt attribute; its file name is 6_june-1.jpg]()![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV ****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
