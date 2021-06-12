@@ -1,60 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 民调显示近54%的美国人相信病毒源自武汉病毒所
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315948/)
+## 瑞典中共病毒实录
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1316036/)
 
-新闻来源：《布赖特巴特新闻网》Breitbart| 作者：Wendell Husebø| 发布时间：2021年6月10日
+作者：大明 | 校对：X-Wing | 审核：Beicy-数学老师 | Page: Daoiii
 
-翻译/简评：大和凯多|校对：clau|审核：Beicy-数学老师|Page：小雨
+[!\[\]()!\[\](https://spark.adobe.com/page/9v3TT40fECYcw/images/9c6a6fab-a38c-4eeb-9632-8708c485dd58.jpg?asset_id=2ed000ab-b7f2-45a1-a2b1-8e3d8557ee38&amp;img_etag=%227ac438a183beef05e2b47adc5cc46270%22&amp;size=2560)](https://spark.adobe.com/page/9v3TT40fECYcw/images/9c6a6fab-a38c-4eeb-9632-8708c485dd58.jpg?asset_id=2ed000ab-b7f2-45a1-a2b1-8e3d8557ee38&amp;img_etag=%227ac438a183beef05e2b47adc5cc46270%22&amp;size=1024)瑞典首相勒文
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GznhayN2hBLgn/images/4d7a7f23-d1b0-47b5-bf64-9c97b11d8e65.jpg?asset_id=e6578697-cdfc-4e4e-adc7-4e5f7df2e63c&amp;img_etag=%2293ec5921a8b02fda451c574c6ba92fcf%22&amp;size=2560)](https://spark.adobe.com/page/GznhayN2hBLgn/images/4d7a7f23-d1b0-47b5-bf64-9c97b11d8e65.jpg?asset_id=e6578697-cdfc-4e4e-adc7-4e5f7df2e63c&amp;img_etag=%2293ec5921a8b02fda451c574c6ba92fcf%22&amp;size=1024)
+瑞典，北欧五国中领土最大的国家，经济军事科技领先，和高福利的社会制度，举世闻名。然而在这次席卷全球的中共病毒生化危机中，这个全球发达国家中独树一帜的防疫政策成为奇观！官方数据，截至2021年6月9日，感染108万死亡14578人，近7天平均感染人数近2000人。总人口千万的瑞典每十个人中就有一个人感染过中共病毒。
 
-**简评：**
+这只是官方数据，别以为民主国家什么都是真的。并非指责瑞典现政府作假，而是真实的社会情况并非政府了解的。瑞典也有美国的福奇一样的安国师，此人完全是瑞典版的福奇，同样地误导自己同胞，甚至也是和福奇一样有杀害自己国民的举动，全民免疫，这个被英国和多个国家啪啪打脸的政策，被这这位安国师当作抵抗中共病毒的法宝，但是结果是瑞典的感染人数和死亡人数是周边丹麦挪威芬兰三个国家总和的三倍还多，以至于连瑞典人也有声音质疑瑞典政府是抛弃年老的国民，减少政府财政负担。
 
-6月3日至7日的一项民意调查显示，大多数美国人现在相信冠状病毒起源于武汉病毒研究所。国会山的立法官员们正在查看一份关于病毒来源秘密的报告，该报告据称支持冠状病毒起源于武汉病毒研究所的说法。一位共和党众议员表示他们很想知道病毒来源，这个问题的答案比他们当初认为的要严重很多。
+当瑞典的全民免疫的谎言被现实打脸后，瑞典政府并没有周边国家的防疫力度，依然是在走打疫苗和全民免疫的防疫策略。更在6月1号放开很多限制，和欧洲多国一样为了保经济推行疫苗护照，看着满大街不带口罩的人，似乎疫情已经过去，但是真实的情况是瑞典疫情依然严重，芬兰一次又一次推迟对瑞典开放边境。瑞典社会真实的疫情是怎样的呢？感染人数绝对不是官方统计的一百万，瑞典的华人群体估计多数都已经被感染，很多人感染后没去医院也就根本不会列入统计数据‘有些华人全家感染，康复后才知道自己曾经是感染病毒而非普通感冒。
 
-关于病毒来源这个问题，全世界迫切地需要一个答案。不管中共如何玩弄手段，所有问题的根源都必须从这个话题开始。病毒来源这个问题一旦有了确定的答案，也就是说美国一旦宣布病毒来源于中共的武汉病毒研究所，而且是中共军方参与的，那这场病毒大流行的性质就变成了中共向全世界发起的一场生物战争。历史会因此而改变。中共血债累累，杀人无数，全世界必将对这个魔鬼进行大审判。
+笔者和朋友分析瑞典感染人数恐怕超过半数，准确数据肯定远远超过政府数据！华人对瑞典的全民免疫防疫没有认同的，有很多华人感染两三次’有感染三次的每次都留点后遗症。不做检测，没有人能判断是否感染病毒还是普通感冒。印度变种病毒在欧洲大陆多国出现，英国即使接种一针疫苗的人数众多，但是还有小镇因为变异病毒而封锁，疫苗只能减缓病毒传播而不可能消灭病毒，这是好像连老贼福奇都说过，强变异的病毒’即使辉瑞的疫苗是否有效都要时间去验证！只推疫苗却不见治疗方法的世界是怎么了？真理往往只掌握在少数人手里！瑞典的防疫政策是否正确留给历史去评价，但是对于失去亲人的瑞典人，白发人送黑发人的人生最大不幸，却在身边的人发生，这是不是瑞典政府的不作为杀人呢？
 
-**原文翻译：**
+爆料革命新中国联邦，阎博士三篇报告向全世界揭开了中共军方研制故意投放超限战生物武器中共病毒的事实。美国社会从上到下地全面推进病毒真相，拜登政府要求90天查清病毒来源的命令，只要确定中共病毒来源于中共军方故意投毒，那中共就结束了！反人类罪，全球国家会联合灭共。瑞典政府的防疫政策叫我不会什么都相信政府，谷歌翻译的错误叫我不会全信大媒体。追求真相，跟随爆料革命，继续吃硫酸氢氯喹预防吧！只有灭共人类才有安全！
 
-## **民意调查：大部分人现在相信冠状病毒源自武汉病毒研究所**
+[!\[\]()!\[\](https://spark.adobe.com/page/9v3TT40fECYcw/images/7c2ae5ec-cd96-476c-baaf-2f17ee46d869.png?asset_id=1b98775c-403e-473a-9cdf-683675f9aa31&amp;img_etag=%229afb5f67c37395b84c603873fa8b32d6%22&amp;size=2560)](https://spark.adobe.com/page/9v3TT40fECYcw/images/7c2ae5ec-cd96-476c-baaf-2f17ee46d869.png?asset_id=1b98775c-403e-473a-9cdf-683675f9aa31&amp;img_etag=%229afb5f67c37395b84c603873fa8b32d6%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GznhayN2hBLgn/images/fdbefc68-268d-4db3-9fa0-72c01e49a9cc.jpg?asset_id=38437367-bf32-4ab7-ba7f-1625d6081aba&amp;img_etag=%221b9c0cba14893c5021770281780397c5%22&amp;size=2560)](https://spark.adobe.com/page/GznhayN2hBLgn/images/fdbefc68-268d-4db3-9fa0-72c01e49a9cc.jpg?asset_id=38437367-bf32-4ab7-ba7f-1625d6081aba&amp;img_etag=%221b9c0cba14893c5021770281780397c5%22&amp;size=1024)图片来源：盖蒂图片社
-
-**周三公布的一项民意调查显示，现在大多数美国人相信冠状病毒是起源于武汉病毒研究所。**
-
-当Trafalgar Group（译者注：Trafalgar Group是一家民意调查公司。）询问受访者时，“关于新冠状病毒起源的看法，您最想说什么？”，近54%的人表示该病毒起源于实验室。
-
-更具体地说，29.1% 的人认为病毒是故意从实验室释放的，24.4% 的人认为它是从实验室意外泄漏的。
-
-29.3% 的人表示他们不确定病毒的来源。
-
-这项民意调查是在立法官员查看一份秘密报告之际进行的，该报告据称支持冠状病毒起源于武汉病毒研究所的说法。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/GznhayN2hBLgn/images/1bd0b5ca-a899-4c59-a872-706c792166dd.jpg?asset_id=5eddbf82-a831-4bd9-ae35-1962766620b7&amp;img_etag=%224bfae2d6aee149d9a609f0cb24cf1582%22&amp;size=1024)](https://spark.adobe.com/page/GznhayN2hBLgn/images/1bd0b5ca-a899-4c59-a872-706c792166dd.jpg?asset_id=5eddbf82-a831-4bd9-ae35-1962766620b7&amp;img_etag=%224bfae2d6aee149d9a609f0cb24cf1582%22&amp;size=1024)
-
-众议院能源和商务委员会委员摩根•格里菲斯（弗吉尼亚州共和党人）对该报告表示：“我觉得我们很多人都认为各个监督委员会应该更早一点知道这份报告。我们很想知道答案……因为我们认为他们掌握了比我们在3月份所知道的更多实情。”
-
-这份绝密报告是由政府支持的劳伦斯利弗莫尔国家实验室的研究人员于2020年5月发布的。
-
-与此同时，负责调查病毒实验室泄漏的前副助理国务卿戴维•费思(David Feith)于6月2日表示，如果政府、教育机构和企业在和中方进行科技交流，是不能确定他们是否是在不知情的情况下与中共军方合作。
-
-当前任国务卿迈克•彭佩奥被问及他是否相信中共军方参与了武汉病毒实验室的研究时，他答道：“这是肯定的。这是一个高度可信的评估，就是这个情况。”
-
-无论科学界和中共之间有什么联系，国务院关于病毒起源的概况介绍说，中共已经“系统地阻止了对新冠病毒大流行起源进行透明和彻底的调查，并且选择将大量资源用于欺骗和造谣。”
-
-该民意调查于6月3日至7日进行，共有1025名类似大选选民的受访者参与。该民意调查误差幅度为3.06%。
-
-🔗[原文链接](https://www.breitbart.com/politics/2021/06/10/poll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology/)
+*文章仅代表作者观点*
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GznhayN2hBLgn/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/GznhayN2hBLgn/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/9v3TT40fECYcw/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/9v3TT40fECYcw/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

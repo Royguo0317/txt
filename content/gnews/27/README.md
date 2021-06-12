@@ -1,63 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月11日美国政要推特精选：美国人需要知道冠状病毒的起源
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1315920/)
+## 拜登的司法部长要严格审查法庭审计
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315960/)
 
-参议员迈克·布劳恩： 美国人需要知道冠状病毒的起源。 我已经追问过福奇博士、国家卫生研究院主任柯林斯和国务部长布林肯，为什么我们不将情报界的信息解密。 他们都没有一个好的答案为什么我们不应该有尽可能多的透明度。 （附福克斯新闻采访视频）
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11221803/M.jpg)bloomberg.com
+冲破层层阻拦的亚利桑那州“国家审计”接近尾声，近10个州先后考察、观摩了选票重新清点的现场，眼看大选欺诈舞弊的盖子就要揭开，舞弊行为者们自然不甘束手就擒，此番杀出的是司法部长，他声明要严格审查大选后审计出的违反投票法的证据。
 
+《门道专家》报道，司法部长梅里克·加兰（Merrick Garland）宣布，他的司法部将审查任何选举后审计出的违反投票法的证据！！
 
-> Americans need an answer on COVID's origins.
-> 
-> I've pressed Dr. Fauci, NIH Director Collins, and Sec. of State Blinken on why we wouldn't declassify the info our intel community has. 
-> 
-> None of them had a good answer why we shouldn't have as much transparency as possible. [pic.twitter.com/uQ22JPQ5XT](https://t.co/uQ22JPQ5XT)
-> — Senator Mike Braun (@SenatorBraun) [June 11, 2021](https://twitter.com/SenatorBraun/status/1403417203756703745?ref_src=twsrc%5Etfw)
+全文如下：
 
+腐败的司法部和联邦调查局完全忽视了2020年选举中泛滥的选举罪行，因此，毫不奇怪，现在腐败的大法官决定威胁任何参与选举审计的人，以防止调查他们所犯下的选举罪行和欺诈行为。
 
+司法部在2020年的选举中完全忽视了选举罪行，在这个过程中，每一个地方都有犯罪和腐败，但我们的主流媒体、司法部，以及联邦调查局忽略了它们，任何关于选举罪行的提及都被大科技公司禁止，要让所有这些机构都站在同一艘腐败的船上，这是一项不小的任务。
 
-参议员霍利新闻办公室： 霍利告诉新闻社[@newspressnow](https://twitter.com/newspressnow)，在最近那些破坏性的电子邮件被公布后，是时候该福奇辞职了 “与参与或资助武汉病毒研究所研究的团体和科学家有通信，并积极试图隐瞒他们的参与。”
+我们发现了这些件事并进行了报道，不是司法部——他们忽略了这一点——在2020年大选后的一大早，数千张选票被送到底特律的投票地点，所有选票都投给了乔·拜登。
 
+我们拍下了这段视频，确定那帮人把所有人赶出亚特兰大投票地点，然后把装有选票的箱子从桌子底下拉出来，在没有人监督的情况下，把选票往计票制表机里运行了两次和三次，不幸的是，摄像机开着。但到目前为止，这并不重要，因为司法部和联邦调查局可以忽视这一切。
 
+多个州忽视了监管链的法律，但司法部和联邦调查局并不在意。
 
-> Hawley told [@newspressnow](https://twitter.com/newspressnow?ref_src=twsrc%5Etfw) it's time for Fauci to resign after the recent release of damaging emails
-> 
-> "There's correspondence with groups and scientists who participated or funded research at the Wuhan Institute of Virology, and were actively trying to conceal their involvement." [pic.twitter.com/E1qoZq1Wew](https://t.co/E1qoZq1Wew)
-> — Senator Hawley Press Office (@SenHawleyPress) [June 11, 2021](https://twitter.com/SenHawleyPress/status/1403392610920767490?ref_src=twsrc%5Etfw)
+但是现在，当美国爱国者们抽出自己的时间，自愿帮助揭开审计中的欺诈和腐败时，司法部终于承认有一场选举了。总检察长说，他和他的一帮律师和调查人员将仔细检查在审计期间采取的每一项行动，来恐吓和阻止审计的发生。
 
+我们知道他们会做点什么，现在，深层政府势力最终采取了这一行动，并威胁到任何敢于相信自己直觉，并希望帮助废止在2020年选举中任何欺诈性投票的人。
 
+我们最后能说美国是一个由一群骗子经营的香蕉共和国吗？
 
-参议员詹姆斯·兰克福德： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的恶者故意试图压制或歪曲有关 COVID-19 及其传播的信息，需要对他们追责。今天，我与科顿参议员及其他共和党同事一起提出立法来制裁这些官员。 【附兰克福德参议员官网发布的新闻：兰克福德等提法案：李文亮全球公共卫生追责法案】
+（原文完）
 
+估计深层政府被逼到了临界边缘，选择梅里克·加兰作为司法部长，就是在这时派上用场。病毒真相FBI可以不管，那些明显的大选欺诈现象，他们可以睁一只眼闭一只眼，眼看舞弊行为就要被揭露时，司法部就来“过问、严格审查”揭露舞弊的人了。
 
+还好，正道主义者有备而来，就像文章最后一句的阐述，“美国能是一个由一群骗子经营的香蕉共和国吗？”肯定不会！更何况还有新中国联邦的支持！
 
-> Bad actors in communist [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) who knowingly attempt to suppress or distort information about COVID-19 and how it spread need to be held accountable. Today, I joined [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & my GOP colleagues to introduce legislation to sanction those officials. 
->  [https://t.co/ewxUZnkeLy](https://t.co/ewxUZnkeLy)
-> — Sen. James Lankford (@SenatorLankford) [June 10, 2021](https://twitter.com/SenatorLankford/status/1403075745375653889?ref_src=twsrc%5Etfw)
+原文链接：
 
-
-
-众议员迈克·华尔兹： （自由灯塔的编辑）康蒂内蒂[@Continetti](https://twitter.com/continetti)是绝对正确的，[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 掩盖COVID，应该取消 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 举办奥运会的资格。 再加上他们正在进行的种族灭绝、对台湾的威胁以及对香港和西藏的镇压。 [#抵制北京2022](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC2022?src=hashtag_click) 【附自由灯塔专栏文章：怎样让中共国付出代价】
-
-
-
-> .[@Continetti](https://twitter.com/continetti?ref_src=twsrc%5Etfw) is absolutely right that the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s coverup of COVID should disqualify China from hosting the Olympics. 
-> 
-> Add on their ongoing genocide, threats against Taiwan, and repressions against Hong Kong and Tibet. [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wNhzMP2YPf](https://t.co/wNhzMP2YPf)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 11, 2021](https://twitter.com/michaelgwaltz/status/1403383877356462081?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿蓬佩奥： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 掩盖了武汉 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的传播。 如果你们想让本届政府要求回答，请转推。
-
-
-
-> The Chinese Communist Party covered up the spread of the Wuhan virus. 
-> 
-> RETWEET if you want to see this administration DEMAND ANSWERS.
-> — Mike Pompeo (@mikepompeo) [June 11, 2021](https://twitter.com/mikepompeo/status/1403351027290673152?ref_src=twsrc%5Etfw)
-
-
+[https://www.thegatewaypundit.com/2021/06/breaking-ag-merrick-garland-announces-doj-will-scrutinize-post-election-audits-evidence-voting-law-violations/](https://www.thegatewaypundit.com/2021/06/breaking-ag-merrick-garland-announces-doj-will-scrutinize-post-election-audits-evidence-voting-law-violations/)
 
 0

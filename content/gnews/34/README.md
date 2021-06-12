@@ -1,25 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【百年罪恶看中共】观图有感——议那场知识青年上山下乡运动
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1315831/)
+## 6月11日美国政要推特精选：美国人需要知道冠状病毒的起源
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1315920/)
 
-温哥华扬帆农场 – 海变石
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11211539/061121.png)
-据说这幅画看哭了无数知青。53年前，毛泽东在已经发动的那场荒诞至极，灭绝人伦的所谓的“文化大革命”的运动中，为了彻底消除权利竞争者的残余势力，进而又发动了“知识青年上山下乡运动”。将2000多万年轻的中学生、大学生从城市赶到农村。多少青年惨遭不测，无数花季少女被农村干部等奸污…多少花儿一样柔弱无助姑娘为了生存被强行嫁给当地的汉子…造成她们终身的伤痛。一代人成了毛泽东宫斗的牺牲品。在那个惨无人道的时代她们不敢发声，苟且偷安。
+参议员迈克·布劳恩： 美国人需要知道冠状病毒的起源。 我已经追问过福奇博士、国家卫生研究院主任柯林斯和国务部长布林肯，为什么我们不将情报界的信息解密。 他们都没有一个好的答案为什么我们不应该有尽可能多的透明度。 （附福克斯新闻采访视频）
 
-说到这里有一个小爆料；上个世纪80年代中期，北京一群影视方面的专业人士，他们中有摄影、文字、音乐等不同领域的人才回到陕北革命老区采风。他们年纪40多岁，都经历过文革和上山下乡，对那场浩劫都有切肤之痛，80年代在中共统治中是一个相对宽松的时期。有识之士们都思潮涌动，深刻反思，揭露文革惨案的伤感文学很流行。在采风过程中他们遇到了一位被当地人称为“驸马”的陕北男人；高高的个子，身材略瘦，一幅典型的陕北农民的样子。原本文革起因就是毛对当时的国家主席刘少奇的夺权斗争而发动的群众运动。可以想见，在共党“一人得道，鸡犬升天”；“一人遭殃，株连九族”的党文化下，刘和他的家人、族人、部下和拉得上关系的朋友都会遭到怎样的非人对待？按当时的口号是：把他打倒在地，还要踏上亿万只脚！此“驸马”的由来据说就是当年组织上将刘少奇第一位妻子所生的女儿许配给了这位陕北农民。刘的女儿完全没有反抗之力，任凭命运摆布。那年头，陕北农民穷得一家人只有一、两套衣服穿。家人中谁需要出去干活谁穿衣服。刘女不会干什么农活，就整天围个被子窝在炕上。生活状态可想而知。后来1976年毛死后，共党宫斗中毛的得势者被打倒，刘少奇等当年被迫害的一批人得到解放。据说中央让当地县领导带着衣服、军大衣将刘女接走。当然，组织上给他们做了离婚手续。“驸马”依旧做他的农民，依旧是一脸懵逼的样子：一切听党的！党叫干啥就干啥！
 
-爹亲娘亲不如党亲！
 
-53年后的今天人类已经从互联网时代走向智能时代；中国人有钱了，可以在全世界买买了！世界上最豪华的地产上、最奢侍的享受中哪里没有中国人的面孔？但是，当她们看到这幅反应史实的画作，还是偷偷地、压抑着、颤抖着哭；因为她们以为那是自己不堪的过去：耻辱痛苦、肮脏丢人是自己倒霉亦或是自己行为不端！这就是中共的恶 ：人民被杀人诛心！这就是为什么共产党还在继续制造着一个又一个的人伦惨剧！可悲的是百姓已经被洗脑到了愚己的地步…
+> Americans need an answer on COVID's origins.
+> 
+> I've pressed Dr. Fauci, NIH Director Collins, and Sec. of State Blinken on why we wouldn't declassify the info our intel community has. 
+> 
+> None of them had a good answer why we shouldn't have as much transparency as possible. [pic.twitter.com/uQ22JPQ5XT](https://t.co/uQ22JPQ5XT)
+> — Senator Mike Braun (@SenatorBraun) [June 11, 2021](https://twitter.com/SenatorBraun/status/1403417203756703745?ref_src=twsrc%5Etfw)
 
-终于，历史来到了2017年，一个中国人，郭文贵先生站出来说话了！如晴天霹雳，爆料革命横空出世，2020年6月4日诞生了新中国联邦！CCP的画皮被一片一片地剥开。中国善良的百姓在慢慢睁开眼睛，看看你我他都在怎样活，再想想我们的子孙后代们将生活在什么样的世界中？世界正义的力量也都在缓缓觉醒，人类文明和法制下的和平还能持续吗？
 
-伟大的总统里根曾说：当善良的人勇敢起来，邪恶会无能为力！ 当每一个中国人学会守护自己的权利、守护自己的家园，CCP就必被铲除，到那时中国就会实现民主自由！每一位有良知的人都可以成为压倒CCP的一棵稻草！
 
-编审：文敏
+参议员霍利新闻办公室： 霍利告诉新闻社[@newspressnow](https://twitter.com/newspressnow)，在最近那些破坏性的电子邮件被公布后，是时候该福奇辞职了 “与参与或资助武汉病毒研究所研究的团体和科学家有通信，并积极试图隐瞒他们的参与。”
 
-发稿：Shuang
+
+
+> Hawley told [@newspressnow](https://twitter.com/newspressnow?ref_src=twsrc%5Etfw) it's time for Fauci to resign after the recent release of damaging emails
+> 
+> "There's correspondence with groups and scientists who participated or funded research at the Wuhan Institute of Virology, and were actively trying to conceal their involvement." [pic.twitter.com/E1qoZq1Wew](https://t.co/E1qoZq1Wew)
+> — Senator Hawley Press Office (@SenHawleyPress) [June 11, 2021](https://twitter.com/SenHawleyPress/status/1403392610920767490?ref_src=twsrc%5Etfw)
+
+
+
+参议员詹姆斯·兰克福德： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的恶者故意试图压制或歪曲有关 COVID-19 及其传播的信息，需要对他们追责。今天，我与科顿参议员及其他共和党同事一起提出立法来制裁这些官员。 【附兰克福德参议员官网发布的新闻：兰克福德等提法案：李文亮全球公共卫生追责法案】
+
+
+
+> Bad actors in communist [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) who knowingly attempt to suppress or distort information about COVID-19 and how it spread need to be held accountable. Today, I joined [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & my GOP colleagues to introduce legislation to sanction those officials. 
+>  [https://t.co/ewxUZnkeLy](https://t.co/ewxUZnkeLy)
+> — Sen. James Lankford (@SenatorLankford) [June 10, 2021](https://twitter.com/SenatorLankford/status/1403075745375653889?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·华尔兹： （自由灯塔的编辑）康蒂内蒂[@Continetti](https://twitter.com/continetti)是绝对正确的，[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 掩盖COVID，应该取消 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 举办奥运会的资格。 再加上他们正在进行的种族灭绝、对台湾的威胁以及对香港和西藏的镇压。 [#抵制北京2022](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC2022?src=hashtag_click) 【附自由灯塔专栏文章：怎样让中共国付出代价】
+
+
+
+> .[@Continetti](https://twitter.com/continetti?ref_src=twsrc%5Etfw) is absolutely right that the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s coverup of COVID should disqualify China from hosting the Olympics. 
+> 
+> Add on their ongoing genocide, threats against Taiwan, and repressions against Hong Kong and Tibet. [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wNhzMP2YPf](https://t.co/wNhzMP2YPf)
+> — Rep. Mike Waltz (@michaelgwaltz) [June 11, 2021](https://twitter.com/michaelgwaltz/status/1403383877356462081?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 掩盖了武汉 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的传播。 如果你们想让本届政府要求回答，请转推。
+
+
+
+> The Chinese Communist Party covered up the spread of the Wuhan virus. 
+> 
+> RETWEET if you want to see this administration DEMAND ANSWERS.
+> — Mike Pompeo (@mikepompeo) [June 11, 2021](https://twitter.com/mikepompeo/status/1403351027290673152?ref_src=twsrc%5Etfw)
+
+
 
 0
