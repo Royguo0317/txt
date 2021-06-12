@@ -1,57 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】以法律名义“杀人止谤”：中共制定《军人地位和权益保障法》
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1315580/)
+## 美国防部长担心中美印太对峙会意外升级
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315656/)
 
-作者：纽约香草山农场 写作四组 唯心力行
+俄罗斯莫斯科喀秋莎农场   银河
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+编辑上传   水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11185835/A-9.jpg)independenteagle.com
+《日经亚洲新闻》 6月11日报道，美国国防部长劳埃德·奥斯汀(Lloyd Austin)6月10日对议员们说，中共国正准备控制印度洋-太平洋地区，华盛顿和北京领导人之间没有直接沟通，一个小事件就可能引发危机。
 
+奥斯汀称，缺少热线电话(通常被称为红色电话)是一个“关键问题”。奥斯汀回答现任缅因州参议院议员及前缅因州州长安格斯·金 (Angus King)的问题时，他将现有的情形比作《八月炮火》，一部有关第一次世界大战史的著作。这本书就是叙述1914年8月第一次世界大战在大战危机的形成、爆发以及大战初期的战役。大战起因是1914年6月奥匈王位继承人被暗杀引爆武装冲突，而部分原因是缺乏缓和紧张局势的机制。
 
+在参议院军事委员会(Senate Armed Services Committee)举行的一场国防预算听证会上，金开玩笑说到，该书在亚马逊(Amazon.com)上有中文译本，“我想我可以把它们买下来，送到北京的政治局去。”
 
+但金对他所看到的危险并不轻率。他指出，“我认为，这个国家今天面临的最严重风险之一是与中共国的意外冲突，在南中国海、台湾海峡的某种冲突，以及从这种意外冲突中升级的危险。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11170635/%E6%9D%80%E4%BA%BA%E6%AD%A2%E8%B0%A4-%E9%81%93%E8%B7%AF%E4%BB%A5%E7%9B%AE-1.png)*背景图片来源：新唐人电视台（ [https://www.ntdtv.com/b5/2019/07/30/a102633843.html](https://www.ntdtv.com/b5/2019/07/30/a102633843.html)）*
-据中共官宣《新华社》北京6月10日电，十三届全国人大常委会第二十九次会议，10日表决通过了《军人地位和权益保障法》，规定“任何组织和个人不得以任何方式诋毁、贬损军人的荣誉，侮辱、诽谤军人的名誉，不得故意毁损、玷污军人的荣誉标识”【1】等。
+“让我担心的是，我们似乎没有一个有效的热线，直接的，不管你想怎么称呼它，与中共国”在总统或国防部长级别。金说，“我知道中共国不愿意这么做，但我相信……应该成为国家安全的优先事项。”
 
-该法立法宗旨不仅在于落实“先军政治”，更是密织法网“杀人止谤”。中共以法律的名义坏事做绝，依法治国就是黑帮治国的代名词。按照中共宪法第35条规定，公民“有言论、出版、集会、结社、游行、示威的自由”【2】。但是，宪法第一条规定，“禁止任何组织或者个人破坏社会主义制度”【2】，中共的领导是社会主义的本质特征。第一条的宪法地位最高，统领其他宪法条文。中共出台一系列法律禁止一切反党、反社会主义的言论和思想，人的内在精神和外在表达都成为被惩罚的对象。
+奥斯汀同意建立更好的联系是减轻意外冲突升级风险的重要途径， 他说:“当我们看到中共国在印度洋-太平洋地区的一些侵略性行为时，你知道，我担心可能发生的事情会引发一场危机，我认为……我们需要能够与我们的盟友和伙伴以及我们的对手或潜在对手进行对话。”
 
-这不禁让人联想到《国语》和《史记-周本纪》记载的西周末年厉王“杀人止谤”，民众“道路以目”的场景。最后的结局是，不可一世的周厉王，被国人暴动推翻。
+在听证会上，参议员们多次询问奥斯汀对中共国意图的评估，以及美国是否采取了足够的措施与中共国作战并赢得战争。
 
-“杀人止谤”和“道路以目”讲的是：西周时期的周厉王是历史上有名的暴君，他暴虐凶残、拒不纳谏，甚至不惜杀人止谤，以至于使国人都“莫敢出言”，仅能靠目光来传达信息。百姓最终忍无可忍发动起义，周厉王被逼逃亡，西周自此走向败亡【3】。
+奥斯汀说，“我相信他们的目标是控制印太地区”，“我也相信，他们渴望成为世界上的主导或卓越的国家。所以我认为他们正在朝着这个目标努力”。
 
-今天的中共是人类有史以来最为残暴的统治者，其杀人的数量和对民众的控制程度登峰造极。但其覆灭也指日可待。
+但当有参议员提出美国需阻止中共对台湾采取行动时，参谋长联席会议主席马克·米勒警告称，美国的主要目的应当是威慑，而不是冲突。这位四星上将说，“我们正处于大国战略竞争的状态。它需要保持竞争，而威慑是防止它从竞争走向事件或从竞争走向战争的关键。”
 
-资料来源：
+米勒说，你要让对手知道你有阻止他的能力，这样威慑就会起作用。他补充道，“但我可以向你们保证，我们有能力按照台湾关系法等作出政治决定。我们确实有军事能力。”
 
-【1】[http://www.xinhuanet.com/2021-06/11/c\_1127552223.htm](http://www.xinhuanet.com/2021-06/11/c_1127552223.htm)
+参考链接：
 
-【2】
-
-[https://www.acftu.org/wjzl/flfg/fl/202011/t20201124\_739866.html?7OkeOa4k=qAc3kqqZHkaZHkaZHhvGShz6VewcxPR7WNZbYxnq1raqqqqqqqqqqqqqHq](https://www.acftu.org/wjzl/flfg/fl/202011/t20201124_739866.html?7OkeOa4k=qAc3kqqZHkaZHkaZHhvGShz6VewcxPR7WNZbYxnq1raqqqqqqqqqqqqqHq)
-
-【3】[https://www.sohu.com/a/397369350\_120680166](https://www.sohu.com/a/397369350_120680166)
-
-【4】[https://gnews.org/zh-hans/1145695/](https://gnews.org/zh-hans/1145695/)
-
-编辑/校对/发稿：Delilah小胖
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
-
-
-
-
+[https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/China-wants-to-control-Indo-Pacific-Defense-Secretary-Austin-says](https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/China-wants-to-control-Indo-Pacific-Defense-Secretary-Austin-says)
 
 0

@@ -1,52 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纽约一位药剂师被解雇&nbsp; 因坚持患者应该被告知打疫苗有风险
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1315503/)
+## 西班牙和俄罗斯媒体：航空公司正在解决血栓问题并建议接种疫苗的人不要旅行
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1315612/)
 
-#### 作者：《美国前线医生》｜发表时间：2021年5月23日
+**原文：**来自：未删节新闻[UNABHÄNGIGE NEWS UND INFOS](http://UNABHÄNGIGE%20NEWS%20UND%20INFOS)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11150631/AFLD-2021-06-11-coverphoto.jpeg)
+**翻译：**加拿大温哥华圆成农场 昔马千羽
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11174956/58863.png)https://uncutnews.ch/medien-in-spanien-und-russland-fluggesellschaften-gehen-das-problem-der-blutgerinnsel-an-und-empfehlen-geimpften-personen-nicht-zu-reisen/
+世界各大航空公司都在争论是否允许接种疫苗的客户登机，因为实验性 mRNA 血清存在血栓风险。多年来，血栓风险较高的人只能在严密监督下飞行，这一直是规则。
 
-美国前线医生（America’s Frontline Doctors, AFLDS）采访了纽约药剂师约珥·伍德先生（Joel Wood），他因为患者没有被提供在接受“实验性生物制剂”（译者注：比如中共病毒疫苗就是一种“实验性生物制剂”）前需要签订的《知情同意书》，而拒绝给病人施打这些药物，因此被解雇。
+与飞行不相容的凝块
+
+建议这些人不要飞行，除非他们处于危及生命的情况，因为高于一定的高度，如果他们敏感，接种疫苗的人有出现中风、血栓形成或心脏病发作等并发症的风险。
+
+有几份报告警告说，接受注射的人（无论品牌如何）可能会出现凝血和出血问题，这是主要反应之一。所有这些回应都类似于多年来对旅客航空旅行实施的限制。来源
+
+一家俄罗斯新闻门户网站说：任何接种过 SARS-CoV-2 冠状病毒疫苗的人可能不再被允许登机
+
+叶夫根尼·科瓦列夫医生告诉公共新闻社，那些接种了冠状病毒疫苗的人乘坐飞机旅行可能很危险。
+
+欧洲已经在讨论限制接种疫苗者乘坐飞机的可能性。事实是，冠状病毒疫苗会影响与凝血相关的功能。这会增加血栓形成的风险。科瓦列夫说，在飞行过程中，旅客长时间处于坐姿，这使情况变得更糟。
+
+他补充说，医学专业人士甚至创造了“旅行血栓”一词，这意味着无非是长时间坐在椅子上。这种姿势有助于捏住静脉。根据医生的说法，血栓形成可以保护一个人免于大量失血。它被认为是一个正常的过程，其失败可能导致不可逆转的后果。
+
+因此，科瓦列夫建议旅客在接种疫苗后只穿宽松的衣服飞行，这不妨碍行动。此外，高危人群应多喝水。
+
+资料来源： [ПРИВИТЫМ ОТ КОРОНАВИРУСА SARS-COV-2 МОГУТ ЗАПРЕТИТЬ ЛЕТАТЬ НА САМОЛЕТАХ](http://ПРИВИТЫМ%20ОТ%20КОРОНАВИРУСА%20SARS-COV-2%20МОГУТ%20ЗАПРЕТИТЬ%20ЛЕТАТЬ%20НА%20САМОЛЕТАХ)
+
+**简评：**目前的情况看，无论死多少人，政客们都不会承认错误。 他们不能被起诉，因为他们控制了整个过程，媒体推波助澜。而被洗脑说疫苗有用的人，突然发现（或有一天终会发现）自己左右不是人。同时打了疫苗的，以后保险公司有另外的提示。
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：比卡丘
+
+20210611
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01083510/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 
 
-
-> NY pharmacist Joel Wood refused to administer experimental biological agents without first giving his patients a chance to give their informed consent—as required by law.
-> 
-> After writing his employer about his concerns, he was fired. 
-> 
-> This is outrageous. [https://t.co/EoiDY1W1A5](https://t.co/EoiDY1W1A5) [pic.twitter.com/V5WtWRs8vd](https://t.co/V5WtWRs8vd)
-> — Dr. Simone Gold (@drsimonegold) [June 11, 2021](https://twitter.com/drsimonegold/status/1403261235626446848?ref_src=twsrc%5Etfw)
-
-
-
-5月5日，伍德先生致电他所在的金尼药品公司（Kinney Drugs）的匿名的热线电话，表达了对疫苗的可传染性和青少年接种疫苗的担忧。5月9日，他给该公司写了一封电子邮件，其中他说到：“我在金尼公司工作了5年多。我一直以为他们把员工和病人的安全放在首位。然而，我想知道公司怎么解决工作场所中，**打了疫苗的人传播疾病**的这个安全问题。这是一个众所周知的现象，**辉瑞公司在研究报告第 67 页**中特别提到了这一问题。**疫苗有可能通过身体接触**（工作场合不用担心这个问题），**也可能通过空气传播**——这可是工作场合要面临的一个问题。口罩并不提供任何安全保障。我希望在本周末之前能收到公司解决问题的电子邮件。”
-
-伍德先生继续说道：“如果收不到解决问题的电子邮件，我就要给职业安全与健康管理局（Occupational Safety and Health Administration, OSHA）投诉。”
-
-“我为 Moderna 疫苗的安全性和不提供《知情同意书》感到担忧。我从许多工作人员和病人那里听说，他们并不知道这种针剂没有得到FDA的批准。据我所知，打这种针的工作人员没有告知人们这是一种未被批准的疫苗。试想一下如果病人在打第二针时被告知疫苗并没有被批准，可是他们以为打第一针的时候就被批准了，现在被告知不是，那问题就来了。”
-
-“我还想谈谈大家都不愿谈的显而易见的问题。我理解需要遵循政府监管机构的建议。然而，当这些机构是错误的或提出不适当的建议时，首当其冲受害的则是我们的病人。”
-
-“我担心金尼公司正朝着与它自己的座右铭截然相反的方向发展……我们现在要为12岁以上的儿童注射一种曾被《纽约时报》两次称为‘普通感冒’的疾病的疫苗。我们并没有关于这种针剂用在儿童身上的长期数据。”
-
-伍德先生在给金尼公司的信中最后说：“如果收不到公司的电子邮件回复，解决这些问题，我将以举报人的身份给职业安全与健康管理局以及新闻机构写信，举报正在发生的违法行为。我不认为这个违法行为是故意而为之的，但这个行为违反了允许人们讨论疫苗和歧视问题的《国际人权法》。我们有责任告诉公众这个疫苗的真实情况，它的真正作用。没有大流行病，数字是被夸大了，使它看起来像大流行。我们需要告知人们疫苗可能传播疾病的情况。”
-
-因为没有收到解决问题的答复，伍德先生后来向职业安全与健康管理局提起了正式投诉。5月11日，他收到的答复是：“目前关于涉及到[中共]冠状病毒的投诉，职业安全与健康管理局没有统一标准或管辖权。我们只能给投诉人提供三个电话号码。”然后他们提供了纽约州州长办公室、纽约州病毒热线和纽约州劳工部病毒违规热线的电话号码。**伍德先生随后被金尼药物公司解雇**。
-
-《美国前线医生》采访了这位纽约药剂师约珥·伍德先生，讲述他在工作5年后因拒绝在没有给患者提供《知情同意书》情况下给患者注射[中共]病毒疫苗被解雇的情况。
-
-[点击收听采访录音和阅读采访全文](https://americasfrontlinedoctors.org/frontlinenews/interview-listen-to-ny-pharmacist-discuss-his-refusal-to-administer-experimental-biological-agents-without-informed-consent/)
-
-* * *
-
-翻译：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
+0

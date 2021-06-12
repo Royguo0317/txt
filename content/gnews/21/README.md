@@ -1,86 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 吾乃人神福奇，天地代表科学化身
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315634/)
+## 中共高校学生抗议遭遇当局暴力镇压
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315688/)
 
-新闻来源：《零对冲》| 作者：Tyler Durden | 发布时间：2021年6月10日
+新闻来源：《布赖特巴特》| 作者：JOHN HAYWARD | 发布时间：2021年6月9日
 
-翻译/简评：MikeHua | 校对：clau | 审核：小小妹 | Page：我是球大哥
+翻译/简评：随波逐流 | 校对：clau | 审核：小小妹 | Page：我是球大哥
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0WItT6QfCPknP/images/829661a7-9382-4488-a027-4dcb66571cec.jpg?asset_id=fd70dab2-cad2-48b9-a517-a40040548727&amp;img_etag=%222bddd9268e6e96147163eb11639555bf%22&amp;size=1024)](https://spark.adobe.com/page/0WItT6QfCPknP/images/829661a7-9382-4488-a027-4dcb66571cec.jpg?asset_id=fd70dab2-cad2-48b9-a517-a40040548727&amp;img_etag=%222bddd9268e6e96147163eb11639555bf%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/D5s4mzbF844hq/images/8a64e28a-32ed-4937-8528-bc6bfffdbac2.jpg?asset_id=a337c3ca-0b10-4637-a5c6-e77484e00c88&amp;img_etag=%22a521ea0556dd54fc4ee52f7c2cf12edd%22&amp;size=1024)](https://spark.adobe.com/page/D5s4mzbF844hq/images/8a64e28a-32ed-4937-8528-bc6bfffdbac2.jpg?asset_id=a337c3ca-0b10-4637-a5c6-e77484e00c88&amp;img_etag=%22a521ea0556dd54fc4ee52f7c2cf12edd%22&amp;size=1024)
 
-福奇是美国沼泽地中典型的寡头和控制行业的角色。在疫情爆发之前，福气在媒体上只是一名普通的卫生部官员。在疫情爆发之后，通过上CNN和大批左媒的追捧下，福奇被奉为科学界最高权威，冠状病毒任何相关事宜的终极解释来源。福奇曾经公开表示只要被感染和有症状的人戴口罩，然后又改口称每个人都必须戴口罩，再又改口成需要戴两个口罩。在疫苗上，福奇不断提高达到‘集体免疫’的疫苗百分比标准。自从疫情爆发以来，福奇成为左派媒体之神，公开的邮件显示福奇在疫情初期明确知道中共政府掩盖疫情以及病毒的危险性，但是却坚称法治基金所提到的病毒真相为谣言。福奇的手上沾满了美国和世界人民的鲜血。
+周日，南京师范大学中北学院的大学生因反对校方将该学院与南京职业学校合并的提案，进行了异常激烈的抗议活动，起初为和平抗议，在校长和其他校方领导与学生讨论后，学生情绪越发激动，不让校长离开。周二，防爆警察、校方雇来的辅警以及安保人员冲进校园来帮校长解围，并对抗议学生暴力执法，引发了双方的激烈冲突，在此过程中，警方对抗议学生使用警棍、胡椒喷雾并辱骂学生，导致有的学生受伤流血。此后中共迅速发动了网络审查，完全封锁了冲突视频的网上传播。
 
-福奇的背后是谁？究竟是什么力量让这个满口谎言的江湖骗子在疫情爆发后的一年内仍公然在国家级的媒体上撒谎？他和中共的联系已经在邮件中展露无遗，为什么还没有任何人拿他治罪？这些问题都会在未来以毒灭共的大戏中得到回答。这些为了钱和中共勾结的卖美贼会和中共一起走下地狱，在这次世界革命中被消灭。
+虽然中共国大陆在当局的高压维稳手段下，很少有激烈的公众抗议活动，但不久前香港发生的震撼世人的学生抗议活动对中共的巨大冲击仍令其心有余悸，加上之前中共对国内的毒奶粉、毒疫苗事件不妥的处理方式，还有疫情冲击下对人民所造成的精神和经济的双重压力已令公众的不满情绪临近爆发的边缘，这些都使中共异常紧张，非常担心形势的恶化。中共高校盲目扩招，大肆敛财的现象普遍存在，这个问题太大了，因此他们非常害怕抗议运动迅速蔓延成全国性的运动，像当年的六四和之前的香港一样变得一发不可收拾，无计可施之下，唯有暴力镇压并封锁消息。但纸终究包不住火，青年学生已经觉醒，这种对抗更让他们看清了中共的真实面目，越来越多的学生一定会不断站出来反对中共，并最终发展成一场浩大的全民反共运动，直至中共灭亡。
 
 **原文翻译：**
 
-## **福奇荒谬的谎言：“攻击我就是攻击科学”。**
+## **中共国学生在罕有的抗议中扣押校长作为人质**
 
-福奇博士在微软全国广播公司（MSNBC）电视台上维护自己。微软全国广播公司看起来很配合福奇散布他的谎言。
+[!\[\]()!\[\](https://spark.adobe.com/page/D5s4mzbF844hq/images/1b8d3a6b-92c7-48ba-b117-52621da1496d.jpg?asset_id=93faa94e-13dc-4e50-9c92-898e214a8bb4&amp;img_etag=%221fb24edfcdc621f1b05d703822b94110%22&amp;size=2560)](https://spark.adobe.com/page/D5s4mzbF844hq/images/1b8d3a6b-92c7-48ba-b117-52621da1496d.jpg?asset_id=93faa94e-13dc-4e50-9c92-898e214a8bb4&amp;img_etag=%221fb24edfcdc621f1b05d703822b94110%22&amp;size=1024)赵燕/法新社通过盖蒂图片社
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0WItT6QfCPknP/images/ba1edd0f-af3f-4781-9537-29c886a3516e.jpg?asset_id=9653e474-d8e5-4876-9db1-1eae96e82e2d&amp;img_etag=%224027bd975667e48e23882bed3838c558%22&amp;size=2560)](https://spark.adobe.com/page/0WItT6QfCPknP/images/ba1edd0f-af3f-4781-9537-29c886a3516e.jpg?asset_id=9653e474-d8e5-4876-9db1-1eae96e82e2d&amp;img_etag=%224027bd975667e48e23882bed3838c558%22&amp;size=1024)
+**周日，中共国南京一所大学的学生举行了异常激烈的抗议活动，开始是反对大学合并计划的和平游行，在该校校长被扣为人质30小时后，以防暴警察冲进校园而告终。**
 
-这条消息来自Greenwald的推特。
+抗议发生在南京师范大学中北学院，本科学生反对一项将他们的学院与南京职业学校合并以节省成本的提议。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0WItT6QfCPknP/images/4ba09538-59ce-415f-9110-7db817dadfb0.png?asset_id=86e90ace-04a1-47b2-b75e-9505574c55f9&amp;img_etag=%2237daeb321934258cb4377657585b9f8b%22&amp;size=3538)](https://spark.adobe.com/page/0WItT6QfCPknP/images/4ba09538-59ce-415f-9110-7db817dadfb0.png?asset_id=86e90ace-04a1-47b2-b75e-9505574c55f9&amp;img_etag=%2237daeb321934258cb4377657585b9f8b%22&amp;size=1024)
+其他几所独立学院的学生也对合并计划进行了类似的抗议，因为他们认为将大学与不太知名的职业学校合并会使他们的学位贬值，阻碍他们在中共国竞争激烈的劳动力市场中找到好的职位。学生抗议者表示，合并计划实质上是通过降低他们支付了高额学费的文凭的价值对他们进行的欺诈。
 
-**令人痛苦的荒谬谎言**
+一名学生对法新社解释说：“这是彻底对学生欺骗和隐瞒了真相。这就是为什么学生们自发组织起来的原因。中北学院的学费真的很贵，一年17000块左右……谁会花那么多钱上职业学院？”
 
-福奇声称的“令人痛苦的荒谬谎言”是：“攻击我就是攻击科学”。
+17,000 元人民币相当于 2700 美元左右，按照2021年美国大学学费的标准，这将是一个便宜的价格，但考虑到国民收入中位数，这在中共国是一个高昂的价格。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0WItT6QfCPknP/images/eec95b71-3669-4d70-b22a-e82e0e566701.png?asset_id=a2b24c40-34cf-4d92-a93b-6baa5bd5be42&amp;img_etag=%22eecf79745b9e1eb909ff0743ae5e1ea6%22&amp;size=2560)](https://spark.adobe.com/page/0WItT6QfCPknP/images/eec95b71-3669-4d70-b22a-e82e0e566701.png?asset_id=a2b24c40-34cf-4d92-a93b-6baa5bd5be42&amp;img_etag=%22eecf79745b9e1eb909ff0743ae5e1ea6%22&amp;size=1024)
+其他一些校园抗议活动一直很活跃，但没有一个学院像中北学院的抗议者那样激烈。起初，他们只是在大学入口的外面游行，挥舞着横幅，组成人链，但后来校长与他们会面讨论了他们的不满后，他们决定不让常青校长离开。
 
-福奇是一个被证实了的骗子。他自己都承认了。他撒谎（据说是为了让医护人员有口罩）并不重要。
+在其他大学官员宣布合并提案已被撤回后，学生们不顾警方要求释放常校长的警告，并违背他的意愿继续扣留他。
 
-**福奇门是什么？**
+防暴警察周二冲进校园，引发了一场冲突，目击者称其规模和暴力程度比中共国官员愿意承认的要大得多。
 
-左派右派都将自由信息法案披露福奇的邮件当作正式病毒实验室来源和福奇对口罩效用撒谎的证据。
+市公安局发表声明称：“公安机关依法采取必要措施，解救了被困人员”，并表示常校长和少数在“维护校园秩序”行动中受轻伤的人被“立即送往医院接受治疗。”
 
-**Rand Paul 推特**
+自由亚洲电台（RFA）引用了校园目击者向外国媒体讲述的一个截然不同的故事：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0WItT6QfCPknP/images/8b1fa1f8-b7aa-494c-b20d-29f28ca60227.png?asset_id=21c34d01-a973-4199-a882-81312d12c4e0&amp;img_etag=%22dc843b6f2f4dddfdaa1db8b17c0f5f05%22&amp;size=2560)](https://spark.adobe.com/page/0WItT6QfCPknP/images/8b1fa1f8-b7aa-494c-b20d-29f28ca60227.png?asset_id=21c34d01-a973-4199-a882-81312d12c4e0&amp;img_etag=%22dc843b6f2f4dddfdaa1db8b17c0f5f05%22&amp;size=1024)
+社交媒体上流传的照片显示，身穿防暴服的警察对学生使用警棍和胡椒喷雾，一名女士因头部受伤正在流血。一名中北学生告诉法新社，大约有3000名学生和400名警察发生了冲突。
 
-《彭博社》说对了：[福奇邮件门没有证实新冠泄露说](https://www.bloomberg.com/opinion/articles/2021-06-08/-faucigate-emails-prove-nothing-about-a-covid-lab-leak?sref=Fbhig0fX)
+该学生告诉法新社：“我们没有被捕。学校雇佣了辅警，他们伤害、殴打、喷胡椒粉、威胁并辱骂学生。”
 
-《彭博社》所言是真。我们现在还不清楚。没有确凿的证据。但是《彭博社》提到了关键问题，只有我和极少数人关注的问题。
+推特上发布的一段视频显示，数十名警察和安保人员在拥挤的学校礼堂里对学生推搡并朝他们大喊大叫。另一段视频显示，数以千计有节奏地喊着口号的本科生在运动场上被成排的警察包围，警察把一些人从人群中拖了出来。
 
-如果福奇欠公众一个解释，那就是为什么他批准资金资助可能让病毒变得更危险的——所谓的功能增强实验。
+中国共产党庞大的审查大军迅速行动以禁止对抗视频的传播，完全封锁了微博上的“#南京师范大学中北学院学生被暴力执法所伤“的标签。微博相当于在中共国被禁的推特。据说它的用户输入很长的主题标签是没有问题的。
 
-虽然福奇普遍被媒体神化为美国“顶尖传染病专家”，他真正的职位是美国国家过敏和传染病研究所 (National Institute of Allergy and Infectious Diseases)所长。从这个角度看，他不能凌驾于批评之上。他批准资助其他科学家认为非常危险的病毒研究项目。
+[!\[\]()!\[\](https://spark.adobe.com/page/D5s4mzbF844hq/images/e71cd980-185e-4d7d-a2f3-0b08279f6d50.png?asset_id=d1aade96-191c-4b25-b323-6bce73d6b419&amp;img_etag=%228272aec1f127d972e3c62a31dc60e9f3%22&amp;size=2560)](https://spark.adobe.com/page/D5s4mzbF844hq/images/e71cd980-185e-4d7d-a2f3-0b08279f6d50.png?asset_id=d1aade96-191c-4b25-b323-6bce73d6b419&amp;img_etag=%228272aec1f127d972e3c62a31dc60e9f3%22&amp;size=1024)
 
-这些危险的项目包括几个罗格斯大学生物学家理查德·埃布赖特(Richard Ebright)称令人担忧的功能增强的项目，这些项目改变流感病毒以转染宿主，例如在美国和中共国科学家共同合作的改变蝙蝠冠状病毒的项目。
+自由亚洲电台的记者说，虽然在威权统治下的中共国很少有强烈的公众抗议，但大学合并问题太大了，以至于中共官员决定在南京进行暴力镇压，这是阻止抗议运动蔓延的唯一途径。
 
-埃布赖特早在疫情爆发前花费数年时间警告人们功能增强研究。另一个担忧功能增强实验的科学家是哈佛流行病学家马克·利普希奇(Marc Lipsitch)。
+大陆官员无疑对香港的学生抗议者以及之前爆发的几次超出中共控制的民众不满有紧张的记忆，比如对2018年疫苗丑闻的强烈反对。
 
-**功能增强**
-
-“功能增强”是对于“故意让病毒更加致命”的委婉说法。
-
-对蝙蝠病毒的研究涉及中美之间的合作。
-
-**今天的问题**
-
-- 为什么几乎没有媒体报道功能增强？
-- 福奇在支持功能增强研究上扮演了什么角色？
-- 美国在那些途径上和中共国合作？
-- 这些合作途径是否包含武汉？
-
-
-**我就是科学！**
-
-说“攻击我就是攻击科学”，福奇基本上就是在说“我就是科学”。
-
-对不起我必须说出来，科学没有撒谎并且从不撒谎。人会撒谎，科学家撒谎，江湖骗子撒谎。
-
-科学家可能会而得出错误结论，但是科学不会。
-
-福奇是一个被证实了的骗子，还说他自己就是科学，他不光是骗子，还是个江湖骗子。
-
-我建议不要关注福奇那些大家都已经形成意见的口罩问题，要更深入地挖掘福奇在美国和中共国功能增强研究中扮演的角色，这项研究使得冠状病毒变得更加致命。
-
-[原文链接](https://www.zerohedge.com/covid-19/dr-faucis-preposterous-lie-attacks-me-are-attacks-science)
+[原文链接](https://www.breitbart.com/national-security/2021/06/09/chinese-students-hold-principal-hostage-rare-protest/#)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -89,6 +63,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0WItT6QfCPknP/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/0WItT6QfCPknP/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/D5s4mzbF844hq/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/D5s4mzbF844hq/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

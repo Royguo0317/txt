@@ -1,37 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CNN也给中共添堵
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315702/)
+## 那个陷害文贵先生的刘特佐受到新的刑事指控
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1315813/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11210450/37-1.jpg)
+来自美国之音的报道，一个联邦大陪审团星期四(6月10日)对在逃的马来西亚富商刘特佐(Jho Low)和美国说唱歌手和商人米歇尔(Prakazrel “Pras” Michel)提出新的刑事指控，指控他们在2017年前后开展了一项未登记的、通过后门渠道的游说活动，试图对特朗普政府和司法部施加影响，让他们放弃对与马来西亚政府拥有的“一马发展有限公司”(1MDB)的腐败案有关的刘特佐和其他人展开的调查，并让逃亡在美国的富商郭文贵返回中国。
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11193917/B-11.jpg)swifttheadline.com
-目前为止从G7峰会上看不到太多的讨共、罚共的消息，给人一种G7们“不敢惹中共”的感觉，只在疑似中共大外宣的CNN看到一则对中共似夸似贬的短文，“中共国可能不是七国集团的成员，但它在议程上占据主导地位”【1】。
+美国司法部星期五(6月11日)在一份声明中说，根据一份替代起诉书，39岁的刘特佐和48岁的米歇尔被指与埃利奥特·布罗伊迪(Elliott Broidy)、尼基·拉姆·戴维斯(Nickie Lum Davis)和其他人合谋，分别在刘特佐和“中华人民共和国公安部副部长”的指示下，从事未公开的游说活动，要求撤销涉及刘特佐等人的一马公司的贪污调查和没收诉讼，并将“一名中国异议人士”遣返回中国。这两人还被指控串谋进行与外国影响力活动有关的洗钱活动。米歇尔还被指控干扰证人和串谋向银行做出虚假陈述。
 
-6月11日的文章说，中共国的崛起及带来的意识形态挑战，将成为七国集团峰会领导人面临的最紧迫议题之一。
+这是继2019年5月，刘特佐因一项隐瞒外国资金来源和假借他人名义进行政治捐款的指控后，第二次将自己送上刑事法庭。据文贵先生解密，刘特佐是中共高官孟建柱的私生子，孟建柱在位期间，利用职权便利，布局马来西亚等东南亚小国，并让其私生子刘特佐成为活跃马来西亚政坛和经济、产业领域的代言人。
 
-作为美国总统的第一次国外之行中，拜登将试图说服盟国加入华盛顿，对北京在新疆、香港和南海等地区的行动采取强硬立场。
+虽然司法部从未透露这位中国公安部高官以及中国异议人士的姓名，但是之前的美国多家报道显示，这位“副部长”高官指的是孙力军，那名“中国异议人士”就是受到中国通缉并在美国高调抨击中共的富商郭文贵。但孙力军的背后势力，直指孟建柱。
 
-拜登上周在《华盛顿邮报》（the Washington Post）上撰文指出，“美国必须强大以领导世界”，对抗包括“中俄两国政府的有害活动”。
+如果新指控的罪名成立，刘特佐将面临每项罪最高5至10年的监禁，米歇尔将面临每项罪从5年到20年不等的最高刑罚。
 
-在一些地区，有迹象表明这种统一战线已经形成。
+刘特佐在马来西亚和美国都面临刑事指控，但他2015年逃离马来西亚后失踪。马来西亚警方说，刘特佐被中国当局窝藏在澳门，北京否认这一说法。
 
-在周四（6月10日）的一份联合声明中，拜登和他的英国同行鲍里斯·约翰逊（Boris Johnson）誓言支持进一步调查中共病毒的来源，包括在中共国的来源。
+中共在全世界布下的网，企图影响各国的政坛，这一阴谋正在被西方法律各个击破，刘特佐只是一个缩影，最终其背后张扬跋扈的红色家族才是受到审判的终极目标。
 
-来自英国和其他七国集团成员国的支持，将为拜登推动重新审查病毒来源，包括对实验室泄漏理论进行新的审查增加砝码。北京上个月猛烈抨击拜登的呼吁，指责华盛顿“通过政治操纵来推卸责任”。
+（本文只代表作者观点，与Gnews平台无关。）
 
-据报道，预计拜登在峰会上将推出一个绿色替代方案，与中共国的“一带一路”倡议相抗衡，旨在支持发展中国家的可持续发展。
+**新闻来源：**
 
-（CNN文章完）
+[刘特佐等因试图游说美国停止调查“一马”案并遣返郭文贵受到新的刑事指控 (voachinese.com)](https://www.voachinese.com/a/Jho-low-1mdb-guo-wengui-Prakazrel-michel-20210611/5925702.html)
 
-美英联合声明就中共病毒起源问题的表述如下【2】：我们还将支持世卫组织主持的中共病毒（COVID-19）起源调查的第二阶段，包括中共国在内的一个及时、透明和以证据为基础的独立程序，以及调查来历不明的疫情。
+***校对发布**：文顾*
 
-参考链接：
-
-【1】[https://www.cnn.com/world/live-news/biden-g7-summit-updates-intl-06-11-2021/h\_bfc1491d4ddde2ea76d30e6b0c725233](https://www.cnn.com/world/live-news/biden-g7-summit-updates-intl-06-11-2021/h_bfc1491d4ddde2ea76d30e6b0c725233)
-
-【2】[https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/10/joint-statement-on-the-visit-to-the-united-kingdom-of-the-honorable-joseph-r-biden-jr-president-of-the-united-states-of-america-at-the-invitation-of-the-rt-hon-boris-johnson-m-p-the-prime-min/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/10/joint-statement-on-the-visit-to-the-united-kingdom-of-the-honorable-joseph-r-biden-jr-president-of-the-united-states-of-america-at-the-invitation-of-the-rt-hon-boris-johnson-m-p-the-prime-min/)
-
-0
++1

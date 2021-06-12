@@ -1,26 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年6月11日灭共要闻
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1315641/)
+## FBI局长表述美情报机构未就病毒起源达成共识
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315677/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11182826/%E7%81%AD%E4%B8%80%E7%BB%84%E5%B0%81%E9%9D%A2-4.jpg)
-[播放视频](https://gtv.org/video/id=60c3dc888ce6da73c4197e47)
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-主要内容：
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11191605/F-5.jpg)motifri.com
+6月10日晚上，据《公共新闻社》（ОСН）报道，美国联邦调查局（FBI）局长克里斯托弗·雷（Christopher Ray）在国会听证会上发言。国会新闻处依据他所表述的报道，美国情报机构在中共病毒的来源上没有达成共识。
 
-印度专家广泛认同闫博士报告；
+雷强调，“这个问题正在讨论中。”他指出，对中共病毒的来源情况有不同的看法。此外，雷称他还不能透露更多细节。
 
-G7峰会或讨论2022年之前为全球人口接种中共病毒疫苗；
+早些时候，《公共新闻社》报道，美国前国务卿迈克·蓬佩奥说，武汉病毒研究所据称从事“军事开发”。他指出，他“可以肯定地谈论这一事实”。
 
-美方撤销对微信、TikTok等应用程序禁令；
+他说，军事发展与民用活动同时进行。蓬佩奥指出，武汉病毒研究所“与中共军队有着密切的关系”。
 
-河北9地发布通知，不注射疫苗不准进入公共场所；
+参考链接：
 
-中共水军将院校学生的维权行为定性为暴动；
+[https://www.osnmedia.ru/world/glava-fbr-otvetil-na-vopros-o-proishozhdenii-koronavirusa/](https://www.osnmedia.ru/world/glava-fbr-otvetil-na-vopros-o-proishozhdenii-koronavirusa/)
 
-维权院校学生爆料： 校方没收手机，搜查女宿舍。
 
-**By**：【秘翻组**–**上天造灭疫组】
 
 0

@@ -1,25 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆台新闻】 修改安全生产法就能安全吗？
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1315662/)
+## CNN也给中共添堵
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315702/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11190101/31-2.jpg)
-来自中共新闻联播，在国务院新闻办6月11日举行的发布会，应急管理部相关负责人介绍，新修改的安全生产法将于今年9月1日起施行。修改后的安全生产法明确规定，健全安全生产责任体系，强化新问题新风险的防范应对，加大对违法行为的惩处力度等。发生特别重大生产安全事故，对负有责任的生产经营单位最高罚款可达一亿元。此外还增加了对违法行为可以按日连续计罚的规定。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-首先，请解释什么是“新问题新风险”，那么对应的理应是“旧问题旧风险”咯，在安全面前暴露出来的问题难道还有新旧之分吗？那么划分新旧之间的标准又是什么呢？什么样的问题和风险才适用于新修改的安全生产法呢？
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11193917/B-11.jpg)swifttheadline.com
+目前为止从G7峰会上看不到太多的讨共、罚共的消息，给人一种G7们“不敢惹中共”的感觉，只在疑似中共大外宣的CNN看到一则对中共似夸似贬的短文，“中共国可能不是七国集团的成员，但它在议程上占据主导地位”【1】。
 
-其次，“加大违法行为的惩处力度”，我只看到当发生特别重大生产安全事故时，只有对负的生产经营单位的经济处罚提高了，金额提高到一亿元。那么对于造成重大伤亡的本质原因是否都是生产经营单位的问题呢？如果是因为管理不善或者制度缺漏而造成的事故，这些负责监管的政府部门和制定制度的司法部门，又该如何承担事故后果呢？再者，只将经济处罚提高了，是否意味着所有的事故，最终都能靠金钱来摆平呢？对于昧着良心赚钱的黑心商人来说，只赔钱，没有其他明文规定的刑事处罚升级，是否正中下怀了呢？
+6月11日的文章说，中共国的崛起及带来的意识形态挑战，将成为七国集团峰会领导人面临的最紧迫议题之一。
 
-安全生产法，何来安全？对劳动者安全，对生产经营单位安全，还是对官员安全？总之，最不安全的肯定是老百姓了。
+作为美国总统的第一次国外之行中，拜登将试图说服盟国加入华盛顿，对北京在新疆、香港和南海等地区的行动采取强硬立场。
 
-（本文只代表作者观点，与Gnews平台无关。）
+拜登上周在《华盛顿邮报》（the Washington Post）上撰文指出，“美国必须强大以领导世界”，对抗包括“中俄两国政府的有害活动”。
 
-**新闻来源：**
+在一些地区，有迹象表明这种统一战线已经形成。
 
-[国内联播快讯2021年06月11日新闻联播 (xwlb.net.cn)](http://www.xwlb.net.cn/20078.html)
+在周四（6月10日）的一份联合声明中，拜登和他的英国同行鲍里斯·约翰逊（Boris Johnson）誓言支持进一步调查中共病毒的来源，包括在中共国的来源。
 
-***校对发布**：文顾*
+来自英国和其他七国集团成员国的支持，将为拜登推动重新审查病毒来源，包括对实验室泄漏理论进行新的审查增加砝码。北京上个月猛烈抨击拜登的呼吁，指责华盛顿“通过政治操纵来推卸责任”。
+
+据报道，预计拜登在峰会上将推出一个绿色替代方案，与中共国的“一带一路”倡议相抗衡，旨在支持发展中国家的可持续发展。
+
+（CNN文章完）
+
+美英联合声明就中共病毒起源问题的表述如下【2】：我们还将支持世卫组织主持的中共病毒（COVID-19）起源调查的第二阶段，包括中共国在内的一个及时、透明和以证据为基础的独立程序，以及调查来历不明的疫情。
+
+参考链接：
+
+【1】[https://www.cnn.com/world/live-news/biden-g7-summit-updates-intl-06-11-2021/h\_bfc1491d4ddde2ea76d30e6b0c725233](https://www.cnn.com/world/live-news/biden-g7-summit-updates-intl-06-11-2021/h_bfc1491d4ddde2ea76d30e6b0c725233)
+
+【2】[https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/10/joint-statement-on-the-visit-to-the-united-kingdom-of-the-honorable-joseph-r-biden-jr-president-of-the-united-states-of-america-at-the-invitation-of-the-rt-hon-boris-johnson-m-p-the-prime-min/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/10/joint-statement-on-the-visit-to-the-united-kingdom-of-the-honorable-joseph-r-biden-jr-president-of-the-united-states-of-america-at-the-invitation-of-the-rt-hon-boris-johnson-m-p-the-prime-min/)
 
 0
