@@ -1,108 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】SARS-CoV-2变异、疫苗和免疫：关注变异体的含义
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1317595/)
+## 港府修订《电影审查条例》进一步打压香港人的自由
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1317720/)
 
-译评：纽约香草山佛教部  一花一世界
+新闻来源：《香港自由新闻》| 作者：RHODA KWAN | 发布时间：2021年6月11日
 
+翻译/简评：叶知秋（文义） | 校对：X-Wing | 审核：Beicy-数学老师 | Page：我是球大哥
 
+[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/c05196d0-3334-42b2-badc-612c5ed57bc4.jpg?asset_id=ef882259-393c-4935-a7c5-f71a8325cef1&amp;img_etag=%2216aba76433a03e0eeac4f2b243586319%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/c05196d0-3334-42b2-badc-612c5ed57bc4.jpg?asset_id=ef882259-393c-4935-a7c5-f71a8325cef1&amp;img_etag=%2216aba76433a03e0eeac4f2b243586319%22&amp;size=1024)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+香港政府在林郑月娥的带领下，正在全面中共化。香港《电影审查条例》的修订，说明港共政府跟中共学会了一样的流氓逻辑，法律随意定，出什么事就定什么法。但是，中共政权在香港镇压反送中运动，拼命维稳，是为维护他们的政权，因为他们知道，自己在中华大地作恶70多年，政权就是他们的生命，如果因为香港人发起的民主运动掀起全中国人的反共意识，必将导致他们的政权垮塌，而为虎作伥的香港政府以及为中共作恶的爪牙们，是为了什么？难道他们真的以为自己可以成为红色江山的接班人？
 
+看看如今世界范围内对中共病毒真相的追讨，看看美国正义力量对与中共为伍的福奇之流的揭露和追责，看看欧洲议会近期对欧中投资协议的冻结，再看看在中共以假治国的手段下濒临崩溃的经济，恐怕香港那些与中共国为伍的人，有着接班的心，也没有接班的机会了。
 
+香港维多利亚公园纪念八九六四英灵烛光守夜活动持续30多年，面对中共残酷镇压，香港人可以组织上百万人游行，如今在中共撕毁中英协议，实际废除一国两制的情况下，香港人依然在坚持！香港人的意志是让人敬佩的，香港人埋藏在骨子里的不屈服于强权的精神更值得我们学习和继承。请爆料革命的战友们继续传播香港危机真相，继续传播中共病毒真相，与香港人一起，并肩作战，早日消灭中国共产党，以告慰那些在反送中运动中牺牲和被捕的勇敢的香港人，让我们中国人的圣城早日从中共的魔爪中解脱出来。
 
-**编者语：**
+**原文翻译：**
 
-Signal Transduction and Targeted Therapy网站上近日发表了一篇SARS-Cov-2的相关文章。该文章是由Ji Yun Noh，Hye Won Jeong和Eui-Cheol Shin于2021年5月22日共同完成并发表的。文章主要针对Wang等人之前发表在《自然》杂志上的一篇论文，作者对该论文作以分析并讨论了目前市面上的COVID-19疫苗的效用与病毒变异体之间的关系。
+## **香港政府正在以国家安全为由审查电影**
 
-本文译者将Noh等人的论文翻译并加以自身的评价，以便让读者可以更好的理解。本篇文章也很好地解释了为什么我们一直强调，目前市面上的疫苗并不能有效地保护接种人不受新冠病毒的侵袭。
+*政府表示，言论自由必须与“保障合法社会利益”之间取得平衡。*
 
-原文来源：Signal Transduction and Targeted Therapy
+新的政府指引已经开始执行，允许香港当局以维护国家安全为由审查电影。
 
-原文链接：[https://www.nature.com/articles/s41392-021-00623-2](https://www.nature.com/articles/s41392-021-00623-2)
+周五在《公报》上刊登的最新审查规则实际上允许审查员撤下他们认为违反《国家安全法》的电影。
 
-论文链接：[https://rdcu.be/cmqyj](https://rdcu.be/cmqyj)
+[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/ba083d82-9fcb-402c-9fcf-057520e186e6.jpg?asset_id=dd947201-8d82-421c-9098-cb6a15b802a6&amp;img_etag=%22290b4d95c422779b68feefda6c254e6a%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/ba083d82-9fcb-402c-9fcf-057520e186e6.jpg?asset_id=dd947201-8d82-421c-9098-cb6a15b802a6&amp;img_etag=%22290b4d95c422779b68feefda6c254e6a%22&amp;size=1024)照片：香港政府一站通。
 
-论文详细信息：
+《电影审查条例》的新修订指示电影审查机构在审查电影是否适合公开放映时，必须“警惕”对“任何可能构成危害国家安全罪行的行为或活动”所做的描绘。
 
-“*SARS-CoV-2 mutations, vaccines, and immunity: implication of variants of concern*,” Ji Yun Noh, Hye Won Jeong, and Eui-Cheol Shin, *Signal Transduction and Targeted Therapy* (2021) 6:203
-[https://doi.org/10.1038/s41392-021-00623-2](https://doi.org/10.1038/s41392-021-00623-2)
+参见：[导演、发行商和电影爱好者如何努力保持香港电影的活力](https://hongkongfp.com/2021/04/25/how-directors-distributors-and-devotees-are-struggling-to-keep-hong-kong-cinema-alive/)
 
-* * *
+一部“客观和合理地被视作认同、支持、宣扬、美化、鼓励或煽动该等行为或活动”的电影也可根据新指引进行审查。
 
-* * *
+“鉴于维护国家安全及有效防范或制止任何危害国家安全的行为或活动至为重要，审查员可以得出影片不宜上映的结论。”该指引写道。
 
-在最近发表在《自然》杂志上的一项研究中，Wang等人研究了COVID-19 mRNA疫苗和SARS-CoV-2自然感染所引起的抗体对SARS-CoV-2变体的中和活性。
+[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/428d2d10-ae61-4112-8360-38c19861e9c0.jpg?asset_id=5cecff1a-5c28-48d6-8d3a-0866adb9b53c&amp;img_etag=%22198cc0e259258517e129ce2539b00c26%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/428d2d10-ae61-4112-8360-38c19861e9c0.jpg?asset_id=5cecff1a-5c28-48d6-8d3a-0866adb9b53c&amp;img_etag=%22198cc0e259258517e129ce2539b00c26%22&amp;size=1024)照片：维基共享资源。
 
-当下，COVID-19大流行对公共卫生、经济和社会的破坏性影响，使疫苗开发成为全球卫生的首要任务。因此，作为对COVID-19的紧急回应，疫苗开发正在以前所未有的速度进行。
+该指引还指示审查机构审查那些“很可能构成危害国家安全罪行”的电影。
 
-目前，COVID-19疫苗主要有四种类型：核酸（mRNA和DNA）、病毒载体、蛋白亚单位和灭活病毒。两种COVID-19 mRNA疫苗（辉瑞-生物技术公司开发的BNT162b2和Moderna公司的mRNA-1273）已经获得了美国食品和药物管理局（FDA）和欧洲药品管理局（EMA）的授权。此外，另有两种病毒载体疫苗也获得了使用授权，Ad26.COV2.S（强生/杨森）获得FDA和EMA的批准，ChAdOx1 nCoV-19（阿斯利康）获得EMA批准。
+商务及经济发展局局长亦可指导审查人员如何行使其权力。
 
-BNT162b2和mRNA-1273是脂质纳米颗粒制剂，二者都是核苷修饰的RNA疫苗，通过编码SARS-CoV-2的融合前刺突糖蛋白生效。在3期临床试验中，这两种疫苗在预防COVID-19方面都显示出良好的疫苗效力（94-95%）。然而，SARS-CoV-2的新变体及其全球扩散引起了人们的关注，即目前的COVID-19疫苗对已知的变异毒株（VOCs）的保护可能会减少。在英国（B.1.1.7）、南非（B.1.351）和巴西（P.1）出现了多个值得注意的携带刺突蛋白突变的变体。B.1.1.7变体（20I/501Y.V1）是全球范围内传播最广泛的变异毒株（VOC），其在受体结合域（RBD）中有一个N501Y替换，在N端域有H69/V70缺失，在刺突状蛋白的福林酶切位点旁有P681H突变。这个变异与传播性的增强有关。至于B.1.351变体（20H/501Y.V2），其包含几个突变，包括K417N、E484K和N501Y。另外，P.1变体（B.1.1.28.1）在刺突蛋白的RBD中拥有K417T、E484K和N501Y的替换。这些变异毒株（VOCs）都存在D614G突变，该突变使病毒快速传播的能力增强。
+香港的国家安全法将颠覆国家政权罪、分裂国家罪、勾结外国势力和恐怖活动定为刑事犯罪，是在数月的泛民主派抗议和骚乱之后实施的。民主派人士和人权团体批评该法律措辞含糊，侵犯了公民自由。
 
-Wang等人测试了接种者的血浆（BNT162b2，n = 6；mRNA-1273，n = 14），测试疫苗对携带K417N、E484K、N501Y以及这三种RBD突变组合（B.1.351变体）的假型病毒的中和活性。研究显示，疫苗对E484K、N501Y和K417N:E484K:N501Y组合的中和活性下降了1至3倍（分别为p = 0.0033、p = 0.0002和p &lt; 0.0001），但对野生型和K417N突变的中和活性没有明显差异。这一结果表明，COVID-19 mRNA疫苗激发的中和抗体对具有RBD突变的新出现的SARS-CoV-2 VOCs效果较差。此外，从SARS-CoV-2感染6个月后的患者身上获得的康复期血浆对K417N:E484K:N501Y组合的中和效果要比预期的低0.5-20.2倍（P &lt; 0.0001）。
+电影、报刊及物品管理办事处负责审查和分类公开放映的电影。
 
-在随后的分析中，该研究被扩展到SARS-CoV-2 RBD特异性记忆B细胞。mRNA疫苗引起了强烈的SARS-CoV-2 RBD特异性记忆B细胞反应，其表现类似于自然感染。实际上，单克隆抗体（mAbs）由SARS-CoV-2 RBD特异性记忆B细胞表达，并对SARS-CoV-2假病毒具有强大的中和活性。然而，在17种最有效的mAbs中，有14种在中和K417N、E484K或N501Y突变时表现出活性降低或消失。该研究还检测到mAbs的选择压力：当重组水泡口炎病毒/SARS-CoV-2 S在疫苗激发的mAbs存在下被培养时，这些突变就出现了。
+**‘合法的社会利益’**
 
-同样，Chen等人的报告说，BNT162b2疫苗接种者的血清对新出现的SARS-CoV-2变体的中和活性降低。他们观察到，与Vero-hACE2-TMPRSS2细胞中的D614G变体相比，接种者的血清对B.1.1.7分离株（2倍）、E484K/N501Y/D614G重组变体（4倍）、编码B.1.351刺突蛋白的两个嵌合SARS-CoV-2毒株（10倍）和P.1刺突蛋白（2.2倍）的中和效力明显下降。测试中，K417N/D614G变体没有显示出明显的中和活性降低，这表明BNT162b2疫苗接受者的血清对含有E484K和N501Y的病毒的中和能力较低。
+政府在周五宣布执行新指引时表示，言论自由必须与“保障合法社会利益”之间取得平衡。
 
-此外，Wang等人证明，在康复期血浆（9.4倍）和接受mRNA疫苗的接种者血清（10.3-12.4倍）中，它们对B.1.351毒株的中和活性大幅下降。而E484K似乎是导致中和抗性的主要因素。此外，临床使用的，或正在临床调查的mAb治疗剂对B.1.351变体的中和效力下降。
+“尽管基本权利(包括上映影片时享有的发表自由)应受尊重，但行使该等权利时同时受由法律订定及以达致合理目的(例如尊重他人权利或名誉及保障国家安全或公共秩序，或保障公共卫生或道德)而必须作出的规定所限制。”政府发言人说。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12134927/50.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/20ac00d0-7746-4a4e-ac7f-0b56cbbc8216.jpg?asset_id=02952458-713e-4b43-825a-2e21b9b4055d&amp;img_etag=%22ec7acfb3a0dfe79166620000b1a020a9%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/20ac00d0-7746-4a4e-ac7f-0b56cbbc8216.jpg?asset_id=02952458-713e-4b43-825a-2e21b9b4055d&amp;img_etag=%22ec7acfb3a0dfe79166620000b1a020a9%22&amp;size=1024)档案照片：路易丝·德尔莫特/香港自由新闻
 
-综上所述，最近的研究结果表明，抗性SARS-CoV-2变体的出现可能会使目前COVID-19疫苗失效。然而，COVID-19疫苗不仅可以引起中和抗体，还可以引起SARS-CoV-2特异性CD4+和CD8+ T细胞反应。目前，各种疫苗平台，包括mRNA和病毒载体进行疫苗接种时，已被证明可以引起SARS-CoV-2特异性CD4+和CD8+ T细胞反应（图1）。原则上，由于多个T细胞表位分散在病毒蛋白中，但中和抗体针对的是病毒蛋白中的一个狭窄区域，所以，相比中和抗体反应，更难逃避的是T细胞反应。尽管最近一直有SARS-CoV-2变体与主要组织相容性复合体的结合被废除的报道，Tarke等人最近报道了，SARS-CoV-2变体对COVID-19康复者和COVID-19 mRNA疫苗接受者的CD4+和CD8+ T细胞反应的影响不大。实际上，疫苗/康复血清对变体B.1.1.7、B.1.351、P.1和CAL.20C（在南加州出现）的T细胞反应与对SARS-CoV-2祖株的反应没有区别。尽管有变异体的突变，大多数SARS-CoV-2的T细胞表位是保守的。
+上个月，政府官员到访了工会（医管局员工阵线）办公室，警告他们不要放映两部有关天安门大屠杀的电影纪录片。
 
-COVID-19疫苗引起了SARS-CoV-2特异性CD4+和CD8+ T细胞反应以及中和抗体。尽管目前COVID-19 mRNA疫苗激发的抗体对SARS-CoV-2变体的中和活性减弱，但T细胞反应可能对宿主保护SARS-CoV-2变体有作用。
+据报道，去年9月，香港政府对一家独立电影发行商表示，两部关于2019年泛民主抗议活动的新纪录片必须包含对其内容的官方警告。
 
-目前，人们对COVID-19大流行病的未来是不可预测的。相关部门需要不断仔细监测变异体的出现，并彻底调查其对公共卫生的影响。SARS-CoV-2 变异毒株（VOCs）的不断出现对更新目前的COVID-19疫苗及后续开发的提供更广泛保护的疫苗都有影响。即使SARS-CoV-2变体逃脱了目前COVID-19疫苗所激发的中和抗体，T细胞免疫也可能有助于通过减弱疾病严重程度和降低死亡率来减少COVID-19的疾病负担。COVID-19疫苗的实际效果，特别是在预防住院、并发症和死亡方面，应在不久的将来进行重新评估。最重要的是，政府应实施公共卫生政策，以确保对SARS-CoV-2变种的担忧和对变异毒株（VOCs）可能降低的疫苗效力不会导致COVID-19疫苗接种率的扁平化。
+[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/3318c41b-84ee-4e01-b269-ee17655fc834.jpg?asset_id=c20411b3-73fc-469e-9150-907d765f1e7f&amp;img_etag=%228267f40d6cc93ee3a3f3f35530ea22bd%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/3318c41b-84ee-4e01-b269-ee17655fc834.jpg?asset_id=c20411b3-73fc-469e-9150-907d765f1e7f&amp;img_etag=%228267f40d6cc93ee3a3f3f35530ea22bd%22&amp;size=1024)影片开头要求影意志有限公司加入的警告。照片：影意志，来自脸书
 
-* * *
+电影《理大围城》的 DVD 被电影、报刊及物品管理办事处(OFNAA)归还给制片人，但它已被破坏成碎片，审查人员称它是被意外损坏的。
 
-**评论：**
+[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/17c32f8b-5e51-4054-a0b8-b6cf11bbd9e4.png?asset_id=eeb4912b-231e-4da4-96b7-0c46e762fcf9&amp;img_etag=%22359f854e294b6d9d1ffaff57ea0fc75c%22&amp;size=3372)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/17c32f8b-5e51-4054-a0b8-b6cf11bbd9e4.png?asset_id=eeb4912b-231e-4da4-96b7-0c46e762fcf9&amp;img_etag=%22359f854e294b6d9d1ffaff57ea0fc75c%22&amp;size=1024)
 
-《自然》杂志的这篇报告只是最近诸多证实疫苗无用的报告之一。这篇报告中针对COVID-19 mRNA疫苗所激发的抗体对几种病毒变体的效果，将其进行对比测试，以证明抗体中和效果显著降低。而目前，由辉瑞和Moderna公司开发的疫苗仅针对的是源自武汉的原始毒株。鉴于冠状病毒强变异的特性，此种毒株在美国已不复存在，取而代之的是14种毒株变体。换而言之，疫苗的开发赶不上病毒的变异速度。
+在周五的新指引推出之前，香港电影审查机构有权审查电影是否描绘残暴、攻击性行为或具有歧视性特征的内容。
 
-另外更重要的一点是，目前所谓的疫苗不是我们传统意义上经过严格程序开发的疫苗，它们甚至没有经过动物实验。美国药监局在其官网上明确指出，辉瑞和Moderna公司开发的预防新冠病毒的疫苗并非批准使用的疫苗，只是紧急批准使用的实验性药物，可能会有保护作用，但也可能不会保护每个人。可见，药监局对此新药亦无把握，只能悄无声息地做出声明，这样既不得罪大医药公司，又将法律责任早早撇清。
+这一变化正值6月30日安全法在香港出台一年纪念日之际。
 
-日前，有科学家提出，新冠疫苗比新冠病毒本身还毒：“mRNA 疫苗中的脂质纳米颗粒（LNP）会导致免疫系统在全身制造一种合成的刺突蛋白（Spike protein），这种蛋白比原始新冠病毒上的刺突蛋白更具致病性，在体内的数量比自然感染更多。”众所周知，新冠病毒是实验室功能性增强实验的产物，即非自然起源病毒。因此，不管是无意泄漏还是有意释放，其变异速度之快，传染力和毒性之强，有目共睹。事实上，普通流感的疫苗尚且需要年年开发、年年打，且只有50%-60%的效用，您怎么能相信如此仓促开发出的疫苗是有效的？要知道，新冠疫苗的致死率甚至是其它疫苗的4000倍！
+本地艺术家对香港艺术表达空间和言论自由的萎缩表示忧虑。
 
-珍爱生命，远离疫苗，预防为要！硫酸羟氯喹是目前最有效和最安全的治疗预防药物，越来越多的数据事实正在不断证明这一点。
+自该法实施以来，当亲北京的声音声称这是违法行为后，与抗议相关的纪录片的放映被突然取消，而香港领导人林郑月娥誓言要对危及城市国家安全的公共艺术空间保持“全面警惕”。
 
-参考阅读：
+[原文链接](https://hongkongfp.com/2021/06/11/new-guidelines-allow-hong-kong-to-censor-films-on-national-security-grounds/)
 
-[Scientists and Doctors Warn Against experimental COVID-19 Vaccines](http://www.kathydopp.info/COVIDinfo/Vaccines/VaccineADE)
-
-[Fact Check-VAERS reported vaccine deaths have not been confirmed or deemed causal by CDC](https://www.reuters.com/article/factcheck-vaers-deaths-idUSL1N2MZ2H8)
-
-[EMERGENCY USE AUTHORIZATION (EUA) OF THE PFIZER-BIONTECH COVID-19 VACCINE TO PREVENT CORONAVIRUS DISEASE 2019 (COVID-19) IN INDIVIDUALS 12 YEARS OF AGE AND OLDER](https://www.fda.gov/media/144414/download)
-
-[EMERGENCY USE AUTHORIZATION (EUA) OF THE MODERNA COVID-19 VACCINE TO PREVENT CORONAVIRUS DISEASE 2019 (COVID-19) IN INDIVIDUALS 18 YEARS OF AGE AND OLDER](https://www.fda.gov/media/144638/download)
-
-[Who was excluded from COVID-19 Vaccine Safety Trials](https://rumble.com/vgqco7-who-was-excluded-from-covid-19-vaccine-safety-trials.html)
-
-[Study shows hydroxychloroquine treatments increased coronavirus survival rate by almost three times](https://www.washingtonexaminer.com/news/study-hydroxychloroquine-increase-survival-rate-200-percent)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
-
-
+[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

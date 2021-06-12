@@ -1,58 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇曾与石正丽、达萨克共同主持涉及冠状病毒的学术会议
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1317744/)
+## 不惜一切代价：找寻失踪女孩
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1317809/)
 
-新闻来源：The National Pulse| 作者：NATALIE WINTERS| 发布时间：2021年6月9日
+作者：Gokuabuela| 校对：X-Wing| 审核：Beicy-数学老师| Page：小六月
 
-翻译/简评：clau| 校对：X-Wing|审核：Beicy- 数学老师 | Page：小六月
+[!\[\]()!\[\](https://spark.adobe.com/page/JNaztCdoC7xVi/images/06ee7d1a-2648-4ae5-a6d1-631b447fbf75.jpg?asset_id=35965317-06a4-44a3-95ef-6d75831ae2d2&amp;img_etag=%22d58dbd94faf0df249b3c1f78bdedc61d%22&amp;size=1024)](https://spark.adobe.com/page/JNaztCdoC7xVi/images/06ee7d1a-2648-4ae5-a6d1-631b447fbf75.jpg?asset_id=35965317-06a4-44a3-95ef-6d75831ae2d2&amp;img_etag=%22d58dbd94faf0df249b3c1f78bdedc61d%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0c5pXqkzPXlJl/images/5ae2783f-e28c-46aa-8d2e-7447065fd011.jpg?asset_id=111ae47f-946d-4e16-a15d-9c604b9ceaf2&amp;img_etag=%22095a3f48f169254279f38db95b21c18f%22&amp;size=1024)](https://spark.adobe.com/page/0c5pXqkzPXlJl/images/5ae2783f-e28c-46aa-8d2e-7447065fd011.jpg?asset_id=111ae47f-946d-4e16-a15d-9c604b9ceaf2&amp;img_etag=%22095a3f48f169254279f38db95b21c18f%22&amp;size=1024)
+之前，我们报道过[“孩子去哪了”](https://gnews.org/zh-hans/1248476/)，4月27日，西班牙特内里费岛2位女孩失踪，一位6岁，一位1岁。其父母处于分居状态，有邻居看到当晚女孩的爸爸独自拿着几个大袋子，开着游艇出海。4个小时后，人们在海上发现了空无一人的游艇，GPS系统等都已经被关闭。
 
-**简评：**
+事件发生后，引起了西班牙全国的巨大轰动。由于最后发现游艇的海域水深600-2000米，难以找到任何线索。在进行陆地调查的同时，西班牙政府发誓要不惜一切代价，找到失踪女孩。当时的计划是：出动国民警卫队的反潜舰艇，用声纳探索海底，如果不成功，调用西班牙最先进的海洋科考船，“逐寸扫描海底，不放过任何一块石头”。
 
-2017年10月1日至3日，美国维吉尼亚州的阿林顿县，福奇和石正丽、达萨克共同主持了一个以“新发和再次爆发的病毒”为议题的学术会议。同时参会并发言的有刚上任不到两个月的中共国疾控中心的主任高福，以及杜克大学——新加坡国立大学医学院新发传染病项目主任王林发。将近四年后回看，可谓是关键人物齐聚一堂，共商大事，2018年武汉病毒研究所的P4实验室正式投入使用。
+经过40天的不懈努力，真得调用了海洋科考船，本周四（6月10日），传来了一个令人心碎的消息：在海底打捞上来的一个袋子里，发现了6岁女孩奥利维亚（OLIVIA）的尸体。爸爸和1岁女孩安娜（ANNA）暂时还没有消息，搜寻工作将不会停止。
 
-紧接着的2017年10月5日，郭文贵先生在美国国家记者俱乐部与比尔·格茨先生共同召开记者招待会时，烧掉了三份涉及中共13579计划（生化武器计划）的关键文件。直到2020年新冠病毒爆发后，此事才解密。
+[!\[\]()!\[\](https://spark.adobe.com/page/JNaztCdoC7xVi/images/7dd443e5-c717-4ae2-a9d8-dd0c57d0077e.png?asset_id=7e5a5421-7707-4fd1-b17b-3140cf193ba6&amp;img_etag=%2259ab5a587904004b394a98a897a3d1e2%22&amp;size=2560)](https://spark.adobe.com/page/JNaztCdoC7xVi/images/7dd443e5-c717-4ae2-a9d8-dd0c57d0077e.png?asset_id=7e5a5421-7707-4fd1-b17b-3140cf193ba6&amp;img_etag=%2259ab5a587904004b394a98a897a3d1e2%22&amp;size=1024)图1
 
-2021年6月，当我们回看几年前发生的这些事情，相信爆料革命的战友们肯定会觉得唏嘘不已。历史不会重来，几百万人已经因为新冠病毒死去，更多的人正遭受着病毒和毒疫苗的伤害，活着的人和觉醒的人只有直面挑战，勇敢地去战斗，才能有未来，一切已经开始！
+图1上标注：打捞到袋子的地点离GUIMAR港大约1.8公里。4月27日发现失踪，5月24日开始用科考船搜寻，6月10日发现奥利维亚的遗体，搜寻将继续。
 
-**原文翻译：**
+[!\[\]()!\[\](https://spark.adobe.com/page/JNaztCdoC7xVi/images/72a3893e-72d2-40f1-b8c7-1078e5c0153a.png?asset_id=ad5b9a14-36f0-42c8-94f4-845bbb234502&amp;img_etag=%226b05d6871ddb1dea0e752ac0935e96e6%22&amp;size=5168)](https://spark.adobe.com/page/JNaztCdoC7xVi/images/72a3893e-72d2-40f1-b8c7-1078e5c0153a.png?asset_id=ad5b9a14-36f0-42c8-94f4-845bbb234502&amp;img_etag=%226b05d6871ddb1dea0e752ac0935e96e6%22&amp;size=1024)图２
 
-## **独家披露：福奇曾与“蝙蝠女”和生态健康联盟的达萨克一起主持会议，尽管他与武汉方面保持距离。**
+图２显示，科考船使用当今最先进的复合式声纳系统，能根据回波实现实时成像，就是能根据声纳发出的声波，在屏幕上形成物品的图像。在海底1000米处发现了装有遗体的袋子。用水下机器人实施了打捞，水下机器人可以直接和声纳系统联网，用机械手进行工作，最深工作深度为2000米。 科考船从接到任务开始，每天24小时不间断地工作。找到奥利维亚的遗体后，当地政府决定今天12:00全市将静默一分钟，表示哀悼。 大量的信息从社交媒体发往孩子的妈妈贝阿特丽丝（BEATRIZ），表示和妈妈一起承担悲痛，并将一起等待，不放弃最后的希望。
+![]()![](https://spark.adobe.com/page/JNaztCdoC7xVi/images/69f6eeb1-519a-49d1-8786-5cfc6d344b5b.png?asset_id=e393e78a-7e52-4e12-9a0f-c84c5f66e04c&amp;img_etag=%22566a7fdf77b0e0dda112b49e4f00c04c%22&amp;size=2560)图３
+[!\[\]()!\[\](https://spark.adobe.com/page/JNaztCdoC7xVi/images/69f6eeb1-519a-49d1-8786-5cfc6d344b5b.png?asset_id=e393e78a-7e52-4e12-9a0f-c84c5f66e04c&amp;img_etag=%22566a7fdf77b0e0dda112b49e4f00c04c%22&amp;size=2560)](https://spark.adobe.com/page/JNaztCdoC7xVi/images/69f6eeb1-519a-49d1-8786-5cfc6d344b5b.png?asset_id=e393e78a-7e52-4e12-9a0f-c84c5f66e04c&amp;img_etag=%22566a7fdf77b0e0dda112b49e4f00c04c%22&amp;size=1024)
 
-据《国家脉动》独家披露，安东尼·福奇博士在2017年与涉及新冠病毒的起源和后续掩盖的核心研究人员一起主持了一场会议，包括生态健康联盟主席彼得·达萨克和武汉实验室的顶级研究员石正丽。
+图３，西班牙首相桑切斯在推特上发文“我无法想象孩子的妈妈所承受的痛苦，用我的双臂，我的深情，和我的家人一起，拥抱孩子的妈妈—贝阿特丽丝”。
 
-福奇博士试图与武汉病毒研究所和在那里进行的功能增强研究保持距离，这些披露将进一步使他面对的问题变得复杂。
+西班牙几乎所有的党派领导人都发推文表示哀痛和对受害者家庭的支持。孩子的妈妈贝阿特丽丝在收到噩耗后，表示：我仍旧抱有希望。
 
-中国疾病预防控制中心（CDC）主任高福（George Gao）——他曾给福奇博士发电子邮件，感谢他公开否定武汉病毒研究所在创造新冠病毒中的作用——与其他三位科学家一起负责组织2017年的这场会议。
+为人父者，为人母者，对孩子的伤害是我们生命不能承受之痛。而在中共国，可以满大街的监控，如果你喊一声“打倒习近平”，最多不超过8小时，天涯海角，虽远必诛。也可以在几小时内，帮助外国友人们找到丢失的自行车、丢失的钱包等，彰显“负责任的大国风范”。但就是找不回每年丢失的那么多的中国老百姓的孩子！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0c5pXqkzPXlJl/images/a8299b56-3d18-4eba-b8b4-93287f319c5c.png?asset_id=2494fa76-b5a0-4e1e-846e-e10126845201&amp;img_etag=%222c73a67d9f3a956f8e217d9b6217175e%22&amp;size=1024)](https://spark.adobe.com/page/0c5pXqkzPXlJl/images/a8299b56-3d18-4eba-b8b4-93287f319c5c.png?asset_id=2494fa76-b5a0-4e1e-846e-e10126845201&amp;img_etag=%222c73a67d9f3a956f8e217d9b6217175e%22&amp;size=1024)会议议程
+是真找不到吗？是根本不愿意花功夫去找！赵家人的孩子又不会丢，所以丢孩子有什么好在意的呢？中共最喜欢的事情就是让草根们互相伤害，然后，它站出来，做做姿态，比如来个专项行动，解救了10个孩子，然后，大家一起说，还是共产党好啊，你看，它会帮我们解救孩子。殊不知，每年丢失上万的孩子，难道不是制度之殇？
 
-除了福奇博士发表主题演讲外，正处于新冠病毒起源争议中心的核心研究人员——据说他们在掩盖武汉实验室在该大流行病中的作用方面发挥了重要作用——也发表了讲话。
+我们还知道，中共会把中国人的孩子作为礼物，送给外国政要，作为蓝金黄的手段，就像“3块硬盘”里的那些孩子。按照中共的反人类本质，他们需要儿童失踪这样的一个口子，来掩饰他们的无耻行为。
 
-一位会议发言人，武汉病毒研究所新发传染病中心主任石正丽，最近成为参议员兰德·保罗（Rand Paul）与福奇博士激烈争论的话题。
+一个普通的民主国家，如西班牙，为了失踪的孩子可以不惜一切代价，至今花费已超过百万欧元，上至总理下到平民百姓都十分关注，向失踪孩子目前表达哀痛同情之共情，真正体现了对国民普通生命的尊重。而中国共产党宣传的爱国教育，号称“犯我中华者，虽远必诛”，却根本不在乎其国家和民族的未来——孩子，这样的政权你怎么能相信它？
 
-“多年来，美国的病毒学家拉尔夫·巴里奇博士（Dr. Ralph Baric）一直与武汉病毒研究所的石正丽合作，分享他关于如何发现创造超级病毒。这种功能增强研究得到了美国国立卫生研究院的资助，”保罗参议员询问道，然后福奇博士断言这些说法“完完全全不正确”。
+（文章仅代表作者观点）
 
-尽管福奇博士试图与这位武汉的研究人员保持距离，后者因其在类似非典的冠状病毒方面的工作而获得了“蝙蝠女”的美誉，但会议议程显示他们都在该活动中进行了发言。
-
-而石正丽演讲的主题——“非典冠状病毒可能源于一个马蹄蝙蝠栖息地的类似非典的冠状病毒之间的频繁重组事件”——证明与新冠病毒特别相关。福奇博士发表了“新发和再次爆发的传染病：从艾滋病病毒到寨卡（Zika）病毒”的讲话。
-
-担任生态健康联盟主席的彼得·达萨克也在会上发言。该非盈利组织因从福奇博士的国家过敏和传染病研究所（NIAID）接受了数百万美国纳税人的资金，并将部分资金输送给武汉病毒研究所而受到审查，因为这个由中共管理的实验室将达萨克的组织列为合作伙伴之一。
-
-《国家脉动》还挖出了达萨克的讲话，他在讲话中描述了将“杀手”病毒的工作委托给他的“中共国同事”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/0c5pXqkzPXlJl/images/f965bdb9-f6b6-48a0-83c5-446457a76a74.png?asset_id=fa74199a-ef30-49ed-940e-95bd7bf4545a&amp;img_etag=%22064dc20fe60ad28852255e62a9980f77%22&amp;size=1024)](https://spark.adobe.com/page/0c5pXqkzPXlJl/images/f965bdb9-f6b6-48a0-83c5-446457a76a74.png?asset_id=fa74199a-ef30-49ed-940e-95bd7bf4545a&amp;img_etag=%22064dc20fe60ad28852255e62a9980f77%22&amp;size=1024)会议日程
-
-杜克大学——新加坡国立大学医学院新发传染病项目主任王林发博士也在会议上发言。
-
-除了与达萨克和石正丽一起被列为研究的共同作者之外，王林发还参与了达萨克在《柳叶刀》医学杂志上发表的声明，该声明过早地试图证明新冠病毒可能来源自人为是错误的(判断)。
-
-[阅读会议文件](https://www.scribd.com/document/511161477/Cellsymposia-CVIR2017-Oral-Program-1#download&amp;from_embed)
-
-[原文链接](https://thenationalpulse.com/exclusive/fauci-headlined-conference-with-shi-and-daszak/)
+[引用内容链接](https://www.elconfidencial.com/espana/2021-06-11/el-buque-angeles-alvarino-continua-la-busqueda-de-anna-y-tomas-gimeno-en-tenerife_3126936/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -61,6 +47,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0c5pXqkzPXlJl/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/0c5pXqkzPXlJl/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/JNaztCdoC7xVi/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/JNaztCdoC7xVi/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
