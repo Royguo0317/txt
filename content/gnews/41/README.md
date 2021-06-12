@@ -1,11 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 广州隔离居民断粮四天没有食物
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1316696/)
+## 卢比奥：美企从中共强迫劳动中获利，造成消费者成帮凶
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1316688/)
 
-广州居民被封村后，四天没东西吃，反映后无人处理。
+作者：休斯顿星光农场写作部 白居易
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
+6月10日，美国共和党联邦参议员卢比奥周五痛批亚马逊、苹果和耐克等美国企业，对外界指控中共强迫劳动的情况”视若无睹”，致使美国消费者成为北京压迫政策的”帮凶”。
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+据法广网报道，美国参院外交委员会就中共对新疆维吾尔人和其他穆斯林少数民族的镇压行为召开听证会，卢比奥在会中表示，许多美国企业尚未觉醒意识到，它们正从中共政府侵犯人权的行为”获利”这个事实。
 
-+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12034534/%E5%8D%A2%E6%AF%94%E5%A5%A5.jpeg)
+
+图片来源：网络
+
+卢比奥说：”像耐克（Nike）、苹果（Apple）、亚马逊（Amazon）和可口可乐（Coca-Cola）这些企业长期使用强迫劳动力。他们从强迫劳动获利，或向疑似使用强迫劳动力的供应商采购。令人遗憾的是，这些企业造成我们所有人成为这些罪行的共犯。”
+
+亚马逊发言人回应表示：”一旦我们接获强迫劳动证据，便会采取行动并暂停卖家权利。”可口可乐拒绝置评。其他被点名的企业尚未回覆。
+
+“人权观察”中共国分部主任李察逊（Sophie Richardson）在参院听证会上指出，由于中共的”极端压迫和监视”，使得企业根本不可能进行人权尽职调查。她表示，有些企业似乎不愿或无法查明有关自身供应链的确切资讯，因为检查员无法在不用担心他们被秋后算帐的情况下，突袭访查工厂或和劳工交谈。
+
+消息来源：[RFI法广](https://6do.news/source/8)
+
+[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210611-%E5%8D%A2%E6%AF%94%E5%A5%A5%E6%8C%87%E8%B4%A3%E7%BE%8E%E4%BC%81%E6%BC%A0%E8%A7%86%E6%96%B0%E7%96%86%E4%BE%B5%E7%8A%AF%E4%BA%BA%E6%9D%83-%E9%80%A0%E6%88%90%E6%B6%88%E8%B4%B9%E8%80%85%E6%88%90%E5%B8%AE%E5%87%B6](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210611-%E5%8D%A2%E6%AF%94%E5%A5%A5%E6%8C%87%E8%B4%A3%E7%BE%8E%E4%BC%81%E6%BC%A0%E8%A7%86%E6%96%B0%E7%96%86%E4%BE%B5%E7%8A%AF%E4%BA%BA%E6%9D%83-%E9%80%A0%E6%88%90%E6%B6%88%E8%B4%B9%E8%80%85%E6%88%90%E5%B8%AE%E5%87%B6)
+
+编辑：文順      校对：Helen      发稿：文柳
+
+更多资讯，欢迎点击休斯顿星光农场官方推特账号！
+
+更多节目资讯，欢迎进入休斯顿星光G|TV官方链接！
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
+
+
+
+0

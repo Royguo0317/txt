@@ -1,36 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国司法部将审查大选后的审计
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1316614/)
+## 2021/06/10 科顿福克斯采访：福奇应该离开了
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1316722/)
 
-来源：美国门户网站
-作者：Joe Hoft，2021年6月11日
-翻译/整理：阿娜
+视频字幕/听写：云岭 | 翻译：Roberts | 校对：Wade | 简评/文字整理/编辑：胖丁 | Page: Daoiii
 
-腐败的美国司法部及其联邦调查局完全无视2020年大选中大量的选举犯罪。 所以对于现在腐败的总检察长决定威胁任何参与选举审计的人，以阻止他们调查所犯的选举罪行和欺诈行为感到并不奇怪。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12034913/1200x675-4-1.jpg)
 
-美国司法部完全无视2020年美国选举中的选举犯罪行为。 在这个过程中，每个地方都有犯罪和腐败，但我们的主流媒体、司法部和它的联邦调查局都忽视了这些犯罪，而且任何关于选举犯罪的说法都被大公司禁止。 要让所有这些机构跳上同一艘腐败的船并不是一件小的任务。
+简评：
 
-我们发现了这一点并进行了报道。 现在是司法部，他们轻视，在2020年大选后的清晨，数千张选票被送到底特律的投票地点，选票全部投给了乔-拜登。
+**大瘟疫初期，福奇支持病毒自然说。现在更多的证据指向病毒来自武汉实验室，福奇又改口了。福奇更愿意保护他在中共国的合作机构和朋友，而不是为美国人民提供真相。阿肯色州的人民对他失去了信心，福奇应该离开了。**
 
-我们拍下了这段视频，并确定这帮人将所有人赶出了亚特兰大的投票地点，然后从桌子下面拉出选票，趁着没人注意，将选票两次和三次塞进了制表机。不幸的是，对他们来说，摄像机是开着的。 但到目前为止，这并不重要，因为美国司法部和联邦调查局忽视所有的这一切。
-
-多个州的监管链法律被忽视，但司法部和联邦调查局并不在意。
-
-但现在，当美国的爱国者们抽出自己的时间，自愿帮助揭开审计中的欺诈和腐败时，司法部终于承认有一场选举。 司法部长梅里克-加兰德 （Merrick Garland）说，他和他的那些律师和调查员将仔细检查这些恐吓和阻止选票审计工作开展的每一个行为。
+GTV视频链接：[汤姆•科顿议员表示“是时候让福奇离开了”](https://gtv.org/video/id=60c327ffe15f7e227eef944a)
 
 
 
-> Panic Mode!! You know you’re over the 🎯 when Attorney General Merrick Garland announces that the US Justice Department will scrutinize any post-election audits for evidence of voting law violations!![@JovanHPulitzer](https://twitter.com/JovanHPulitzer?ref_src=twsrc%5Etfw) [pic.twitter.com/xlZIwX0vD2](https://t.co/xlZIwX0vD2)
-> — Cameron Rodriguez (@Cam\_Music) [June 11, 2021](https://twitter.com/Cam_Music/status/1403427202184613888?ref_src=twsrc%5Etfw)
+**视频字幕：**
+
+**科顿：**我是反映上周在阿肯色州各地听到的民意。他们已经对福奇没有信心了，因为他多次逃避、误导和政治化的建议。
+
+这个很清楚。在大瘟疫的初期，他当时的做法与现在的主张相反。现在不好办了，病毒看来起源于武汉实验室，起码迄今为止这是病毒最可能的来源。
+
+福奇博士似乎更注重保护给那些实验室提供科研资助的机构，保护他在中共国实验室的朋友，而不是为美国人民提供真相，所以很多阿肯色州的人民对他失去了信心，是时候让他离开了。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/VCiLPDy2ZkaAL/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/VCiLPDy2ZkaAL/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 
-我们知道他们会有所行动。 现在，影子政府终于采取了这一行动，并威胁任何敢于相信他们的直觉，并想协助撤销在2020年选举中任何欺诈性的投票。
-
-参考新闻🔗[美国门户网站](https://www.thegatewaypundit.com/2021/06/breaking-ag-merrick-garland-announces-doj-will-scrutinize-post-election-audits-evidence-voting-law-violations/)
-
-校对: 劳伦斯
-
-0
++1
