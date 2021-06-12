@@ -1,36 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国司法部将审查大选后的审计
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1316614/)
+## 2021/06/09 GREG访谈：冠状病毒大概率出自武汉实验室
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1316692/)
 
-来源：美国门户网站
-作者：Joe Hoft，2021年6月11日
-翻译/整理：阿娜
+视频字幕：雨中漫步 | 听写/翻译：Roberts | 校对：Wade | 简评/文字整理/编辑：胖丁 | Page: Daoiii
 
-腐败的美国司法部及其联邦调查局完全无视2020年大选中大量的选举犯罪。 所以对于现在腐败的总检察长决定威胁任何参与选举审计的人，以阻止他们调查所犯的选举罪行和欺诈行为感到并不奇怪。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12034151/1200x675-3-1.jpg)
 
-美国司法部完全无视2020年美国选举中的选举犯罪行为。 在这个过程中，每个地方都有犯罪和腐败，但我们的主流媒体、司法部和它的联邦调查局都忽视了这些犯罪，而且任何关于选举犯罪的说法都被大公司禁止。 要让所有这些机构跳上同一艘腐败的船并不是一件小的任务。
+简评：
 
-我们发现了这一点并进行了报道。 现在是司法部，他们轻视，在2020年大选后的清晨，数千张选票被送到底特律的投票地点，选票全部投给了乔-拜登。
+**科学家们发现冠状病毒从中共国武汉实验室泄漏的可能性很大。**
 
-我们拍下了这段视频，并确定这帮人将所有人赶出了亚特兰大的投票地点，然后从桌子下面拉出选票，趁着没人注意，将选票两次和三次塞进了制表机。不幸的是，对他们来说，摄像机是开着的。 但到目前为止，这并不重要，因为美国司法部和联邦调查局忽视所有的这一切。
+**2020年5月份有报告指出，在北京承认疫情之前，就有实验室的员工感染了新冠。拜登政府给出90天的时间调查病毒起因。国务卿布林肯呼吁追责中共，称这次处理疫情的研究和经验对未来应对流行病十分重要。**
 
-多个州的监管链法律被忽视，但司法部和联邦调查局并不在意。
-
-但现在，当美国的爱国者们抽出自己的时间，自愿帮助揭开审计中的欺诈和腐败时，司法部终于承认有一场选举。 司法部长梅里克-加兰德 （Merrick Garland）说，他和他的那些律师和调查员将仔细检查这些恐吓和阻止选票审计工作开展的每一个行为。
+GTV视频链接：[Greg Palka on Fox 现在更多的迹象表明，新冠病毒始于中共国实验室泄漏](https://gtv.org/video/id=60c2109ae15f7e227eef411c)
 
 
 
-> Panic Mode!! You know you’re over the 🎯 when Attorney General Merrick Garland announces that the US Justice Department will scrutinize any post-election audits for evidence of voting law violations!![@JovanHPulitzer](https://twitter.com/JovanHPulitzer?ref_src=twsrc%5Etfw) [pic.twitter.com/xlZIwX0vD2](https://t.co/xlZIwX0vD2)
-> — Cameron Rodriguez (@Cam\_Music) [June 11, 2021](https://twitter.com/Cam_Music/status/1403427202184613888?ref_src=twsrc%5Etfw)
+**视频字幕：**
+
+**女主持人：**最近浮出水面的一份报告显示：科学家们发现冠状病毒从中共国武汉实验室泄漏的可能性很大。
+
+**男主持人：**Greg Palka 加入我们的线上直播，给我们带来更多资讯。
+
+**Greg：**是的，现在更多的迹象表明，新冠病毒始于中共国实验室泄漏。刚刚浮出水面的，来自著名的加利福尼亚劳伦斯利福弗莫尔实验室的报告，为进一步调查武汉病毒实验室的泄漏，而不是附近的海鲜市场提供了有力的证据。报告称实验室理论非常可信。
+
+事实上，去年5月份，当许多专家还在对实验室泄漏理论视而不见的时候，他们就已经做出了这份报告。之后的研究参考了这份报告。其中包括，发现在北京承认疾病开始传播很久之前，就有实验室员工感染新冠。
+
+拜登总统现在要求他的情报部门寻找线索。他最近给出90天时间找到确切答案，到底是如中国所称病毒来自动物还是来自那个实验室。国务卿布林肯呼吁追责中共国。这是他周一对国会小组的讲话。
+
+**布林肯：**我不确定具体的可能性。但我想有两种可能，一个就是你刚才说的病毒来自实验室，另一个就是自然产生。
+
+**Greg：**布林肯还说，尽管起底新冠病毒来源很困难，但是这对防止将来再次爆发至关重要。除此之外，大家应该注意到，专家们还说，各国一年多以来处理新冠病毒的研究对未来应对流行病也十分重要。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-我们知道他们会有所行动。 现在，影子政府终于采取了这一行动，并威胁任何敢于相信他们的直觉，并想协助撤销在2020年选举中任何欺诈性的投票。
+[!\[\]()!\[\](https://spark.adobe.com/page/jcD0EoDSDRLwF/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/jcD0EoDSDRLwF/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-参考新闻🔗[美国门户网站](https://www.thegatewaypundit.com/2021/06/breaking-ag-merrick-garland-announces-doj-will-scrutinize-post-election-audits-evidence-voting-law-violations/)
 
-校对: 劳伦斯
 
 0
