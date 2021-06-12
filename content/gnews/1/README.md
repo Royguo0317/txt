@@ -1,55 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】本周CDC报告的疫苗接种死亡人数令人震惊
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1317904/)
+## 令人震惊：美国疾控中心疫苗不良事件报告系统本周报道的疫苗死亡人数激增
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1317954/)
 
-作者：纽约香草山农场   四季
+翻译：烟波浩淼|校对：雨山溪桥客|审核：断播
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12191023/image002-9.jpg)图片来自网络
+**2021****年，在不到5****个月的时间里，美国与疫苗有关的死亡人数超过了整个过去10****年。**
 
+今年与疫苗有关的死亡人数绝对直线上升。根据[CDC自己的数据](https://wonder.cdc.gov/vaers.html)，在2021年的头3个月，VAERS网站记录了超过[1750](https://www.thegatewaypundit.com/2021/03/exclusive-per-cdc-data-nearly-twice-many-vaccine-related-deaths-far-2021-1755-vaccine-deaths-past-decade-994/)人死于疫苗接种。
 
+现在这个数字是[5997](https://www.openvaers.com/covid-data/mortality)。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+“**[疫苗不良事件报告系统（VAERS）](https://wonder.cdc.gov/vaers.html)**数据库包含使用美国许可疫苗免疫后未经核实的不良事件（疾病、健康问题和/或症状）报告信息。任何人都可以接受报告，并可以在以下位置以电子方式提交：[https://vaers.hhs.gov/](https://vaers.hhs.gov/).”
 
+**接种**** COVID ****疫苗后报告的死亡人数：总计**** 5,888**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12191358/vaers-deaths-1.jpg)
+与上周相比有很大的增长。死亡人数在一周内又增加了700人。
 
+**VAERS疫苗数据（疫苗不良事件报告系统，美国）**
+截止2021年6月4日，共有329021份报告
+死亡 5888人
+住院 19597
+急诊 43891
+门诊 58800
 
-根据 CDC 的数据，美国今年与疫苗有关的死亡人数暴涨。2021 年前 3 个月，疫苗不良事件报告系统VAERS 网站在美国记录了 1,750 多人死于疫苗接种。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12183019/Untitled-design-2021-06-12T162945.276.png)
-然而，被报告的死亡数字现在是 5,997人，比上周大幅增加。 一周内死亡人数又增加了 700 人。在不到 5个月的时间里，2021 年美国与疫苗相关的死亡人数比过去整个十年都多。
+过敏反应 1459
+贝尔麻痹 1737
+有生命危险 5885
+心脏病发作 2190
+心肌炎/心包炎 1087
+血小板减少/低血小板 1564
+流产 652
+严重过敏反应 15052
+残疾 4583
 
-截至 2021 年 6 月 4 日，疫苗不良事件报告总数为329,021 份：
-
-死亡人数 5,888 例
-
-住院人数 19,597例
-
-紧急护理 43,891例
-
-诊所访问 58,800例
-
-不良反应涉及的疾病有：过敏反应，贝尔氏麻痹，致命反应，心脏病发作，心肌炎/心包炎，血小板减少症/低血小板，流产，严重过敏反应，残疾。
-
-这些鲜活的生命不断的逝去似乎没有尽头。只有尽快确认病毒来源，问责中共，才能终结全球疫情。
-
-参考链接：https://www.thegatewaypundit.com/2021/06/shocking-jump-vaccine-deaths-reported-week-cdc-linked-vaers-tracking-website/
-
-校对/发稿：火内
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+原文作者：吉姆·霍夫特（Jim Hoft）
+发布链接：2021 年 6 月 12 日
+原文链接：[https://www.thegatewaypundit.com/2021/06/shocking-jump-vaccine-deaths-reported-week-cdc-linked-vaers-tracking-website/](https://www.thegatewaypundit.com/2021/06/shocking-jump-vaccine-deaths-reported-week-cdc-linked-vaers-tracking-website/)
 
 0

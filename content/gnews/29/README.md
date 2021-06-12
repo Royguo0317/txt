@@ -1,33 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】 无所适从&#8211;航空公司警告：接种疫苗的人不应旅行
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1316935/)
+## 【快评】内有乾坤：G7峰会就支援发展中国家基础设施建设达成共识
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1317559/)
 
-作者：休斯顿星光农场 写作部 文顺
+作者：经济小组/加拿大多伦多枫叶农场 军迷Wilson
+编审：经济小组/加拿大多伦多枫叶农场 向往真理
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01225742/Screenshot-2021-06-01-215655.jpg)
+七国集团（G7）峰会在英国当地时间11日召开，会议第一个协商成果是“就支援发展中国家基础设施建设的新构想达成了共识”。基建竟然是G7发布的第一个共识，确实有点意外。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12130018/cnn.jpg)*图片来源：cnn*
+如果只看字面，会认为G7峰会展示的第一个成果，是七国集团似乎还在充温和好人，大不了是对抗中共的”一带一路”。但只要稍为探究就会发现，G7是在下一盘以基建为支点的战略大棋。
 
-近期，因接种疫苗的旅客在乘坐飞机时引发血栓事件频发，西班牙和俄罗斯航空公司警告已经接种过疫苗的人不应旅行，美国疾控中心（CDC）官网也发出关于飞机旅行超过4小时出现血栓的警告。
+据美国国家经济委员会和总统经济顾问委员会共同撰写的《交通基础设施投资经济分析报告》，美国约有65%的主要道路亟待维护或重修，25%的桥梁已经无法满足当前的交通需求。铁路网、堤坝、电网、自来水和下水道系统都存在类似的问题。据估算，到2025年，基础设施投资不足会让美国国内生产总值损失掉3.9万亿美元。不仅美国，西方的基础设施系统普遍存在相似的严重老化现象。
 
-据ArmstrongEconomics报道，每年有超过3亿人乘坐长途航班（一般超过4小时）。血凝块也叫深静脉血栓（DVT），对一些长途旅行者来说是一个严重的风险。大多数关于血栓和长途旅行的信息来自于收集到的关于航空旅行的信息。然而，任何旅行超过四个小时的人，无论是乘坐飞机、汽车、公共汽车或火车，都可能有血栓的风险。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12102234/Screenshot-2021-06-12-092204.jpg)*图片来源：路透社*
-这一消息令许多人茫然失措。此前，各国政府以自由出行为由推动疫苗护照，西班牙更是宣布从6月7日起向全球接种中共病毒疫苗的人士开放边境。但如今注射疫苗后，人们却因更高的血栓风险依然无法出行。
+基础设施老化，会阻碍经济发展。基础设施改造建设工程花钱最多，还涉及敏感的公共权益、投资者利益等多方利益的平衡和分配等复杂问题，特别是冷战后的全球化环境下，西方包括美国的大量资本离开本土，和中共国等发展中国家结成利益共同体，利用当地的廉价劳动力或资源生产廉价商品返销西方。几十年来，大量廉价商品借助西方的低关税（西方遵守世贸关税协定），摧毁了西方的实业，破坏了西方的税基，这是西方债台高筑，财政状况持续恶化，各国本币不断贬值的主要原因。
 
-此外，有记录显示，有人在接种疫苗后不坐飞机而死于血凝块。有人发现，因感染中共病毒的死亡病人往往涉及血凝块原因。而英国《标准晚报》也表示，接种疫苗或未接种疫苗的人在飞行时出现血凝块的风险是一样的。
+凡事皆有两面，大问题里面蕴藏大机会。G7从基础设施建设入手，就是看中了基础设施建设蕴含的巨大价值和机会，基建有望帮助西方解决正在逼近的经济金融危机、货币危机，甚至可以重新确立G7在世界秩序中的主导地位。
 
-与中共病毒溯源同出一辙，媒体不会报道真正可信的信息，人们也不可能得到这些信息的真相，因为各国政府正在积极推动疫苗经济。报道称，不管有多少人死亡，政客们永远不会承认错误，他们也不会被起诉，因为他们控制了整个过程。
+根本问题是经济。七国集团除了德国，当前均出现了巨大的财政赤字和政府负债率，因此解决经济问题是G7的首要任务。根据多次获得最佳宏观分析师的周金涛先生分析，由于布雷顿森林体系解体后几十年的货币超发，廉价资本泛滥，全球产能过剩严重，全球经济将不可避免地进入万劫不复的萧条阶段。之所以这么说，是因为在这个阶段，必须消灭超发的货币和多余的产能，这是异常惨烈和痛苦的过程。
 
-新闻来源：[https://www.armstrongeconomics.com/international-news/disease/vaccinated-people-told-not-to-travel/?**cf\_chl\_jschl\_tk**=ffc4528c59ffd6d1d7325bd9ce92873d1389afe8-1623483365-0-ATLkdCP4wiG3SfvfXlTe3ZBawaj6fjaW3fKzTrbzC9sOEJV5Pgq-Y1uDGKHq-oTRB-NftuRwXYPNh1kOyjntBYmskh\_yK4w67\_t6v\_K0ez9eZWgoxe\_NDOFMadw70srX83IfZ-R\_ZlCoDX9\_R2kMrTkwAOZHX4zpYV7gUlcykzZ-0olqZGcX2d92XcXlbNj583bCnq8bYUD8-ouZus2QmiPN9EY6nLfXVaQEqGSdLC9CPPDF3uG6hCBeN39f5ThvP9WhpoO9XwRxNe3Y7SIsKGRZJmN2z4xRNiuuZOpbOHHErh9UFYnkeeNM-HCXlaHXtpRdApZbJz-WDzN2orfpm\_luMTHvtXfhGOr5yEPjFbM\_Z1f46SXJs3VDWtW8b25uPOWlM1jHr7yKa-aHjA9bSSqxvaJRmW6fCuX7EGz8lt3Lo0ksKqgA2oKHp4HiDsnMBtdcoziV-*QYIe8MDBhiejYISMfJshySCqlF*-I2\_n8e4l\_\_uXyqpnFTUizAWdBGYb\_TppdwvKirtoIBC4o3Xbm7lQJ6taT5auxEdP8Z\_Q\_F](https://www.armstrongeconomics.com/international-news/disease/vaccinated-people-told-not-to-travel/?cf_chl_jschl_tk=ffc4528c59ffd6d1d7325bd9ce92873d1389afe8-1623483365-0-ATLkdCP4wiG3SfvfXlTe3ZBawaj6fjaW3fKzTrbzC9sOEJV5Pgq-Y1uDGKHq-oTRB-NftuRwXYPNh1kOyjntBYmskh_yK4w67_t6v_K0ez9eZWgoxe_NDOFMadw70srX83IfZ-R_ZlCoDX9_R2kMrTkwAOZHX4zpYV7gUlcykzZ-0olqZGcX2d92XcXlbNj583bCnq8bYUD8-ouZus2QmiPN9EY6nLfXVaQEqGSdLC9CPPDF3uG6hCBeN39f5ThvP9WhpoO9XwRxNe3Y7SIsKGRZJmN2z4xRNiuuZOpbOHHErh9UFYnkeeNM-HCXlaHXtpRdApZbJz-WDzN2orfpm_luMTHvtXfhGOr5yEPjFbM_Z1f46SXJs3VDWtW8b25uPOWlM1jHr7yKa-aHjA9bSSqxvaJRmW6fCuX7EGz8lt3Lo0ksKqgA2oKHp4HiDsnMBtdcoziV-QYIe8MDBhiejYISMfJshySCqlF-I2_n8e4l__uXyqpnFTUizAWdBGYb_TppdwvKirtoIBC4o3Xbm7lQJ6taT5auxEdP8Z_Q_F)
+那么逻辑就逐渐清晰了，七国集团为了平缓过渡这场周期性危机叠加病毒危机造成的超级危机，将当前市场上危险的超发货币，驱赶到需要巨量资本的基建市场，引导到发展国家的基础设施市场，以阻止正在逼近的经济危机和货币信用危机。如果成功，将盘活G7的经济，G7的货币将被重新注入信用。
 
-编辑：Helen       校对：爱丽丝      发稿：文柳
+道理很简单，基础设施建设本身需要使用大量的建材、机械设备、产业工人和服务，这将极大地带动上中下游包括第三产业等几乎所有的经济成分，同时大大缓解产能过剩压力。当资本和产业良性结合并产生收益时，国家税收就会增加，货币就会扭转颓势重新升值，西方经济有望软着陆。
 
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+纵观历史，一个国家尤其是一个民主国家，如果没有大难临头比如大敌当前，就很难统一国家的目标或意志，就很难启动大基建这样需要举全国之力的国家级项目。历史学家亚当斯指出，美国将“变得怠惰，直到获得野蛮血液的注入，才会有新的能量”。
 
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+班农先生几年前就发出召唤，为了阻止文明的衰落和道德的沦丧，我们需要和野蛮人来一场终极之战。这个野蛮人无疑就是中共，中共锲而不舍地要消灭西方文明，成功地将自己变成西方的敌人，它们肮脏的血，将被用来为人类文明的一次重大征程祭旗。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
+[参考链接](https://china.kyodonews.net/news/2021/06/dfac9516ff74-g7.html)
 
+* * *
 
+编辑 发稿 云起时
 
-0
++1
