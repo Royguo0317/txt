@@ -1,37 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卢比奥：美企从中共强迫劳动中获利，造成消费者成帮凶
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1316688/)
+## G7以大型基础设施项目对抗中共国的影响力
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1316802/)
 
-作者：休斯顿星光农场写作部 白居易
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
-6月10日，美国共和党联邦参议员卢比奥周五痛批亚马逊、苹果和耐克等美国企业，对外界指控中共强迫劳动的情况”视若无睹”，致使美国消费者成为北京压迫政策的”帮凶”。
+信息来源：德国路透社网络版 
+记者：斯蒂芬·霍兰（Steve Holland）迈克尔·霍尔登（Michael Holden）
+发布时间：2021年6月12日
+翻译 /整理/ 简评： Shuizhuyu
 
-据法广网报道，美国参院外交委员会就中共对新疆维吾尔人和其他穆斯林少数民族的镇压行为召开听证会，卢比奥在会中表示，许多美国企业尚未觉醒意识到，它们正从中共政府侵犯人权的行为”获利”这个事实。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12034534/%E5%8D%A2%E6%AF%94%E5%A5%A5.jpeg)
-
-图片来源：网络
-
-卢比奥说：”像耐克（Nike）、苹果（Apple）、亚马逊（Amazon）和可口可乐（Coca-Cola）这些企业长期使用强迫劳动力。他们从强迫劳动获利，或向疑似使用强迫劳动力的供应商采购。令人遗憾的是，这些企业造成我们所有人成为这些罪行的共犯。”
-
-亚马逊发言人回应表示：”一旦我们接获强迫劳动证据，便会采取行动并暂停卖家权利。”可口可乐拒绝置评。其他被点名的企业尚未回覆。
-
-“人权观察”中共国分部主任李察逊（Sophie Richardson）在参院听证会上指出，由于中共的”极端压迫和监视”，使得企业根本不可能进行人权尽职调查。她表示，有些企业似乎不愿或无法查明有关自身供应链的确切资讯，因为检查员无法在不用担心他们被秋后算帐的情况下，突袭访查工厂或和劳工交谈。
-
-消息来源：[RFI法广](https://6do.news/source/8)
-
-[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210611-%E5%8D%A2%E6%AF%94%E5%A5%A5%E6%8C%87%E8%B4%A3%E7%BE%8E%E4%BC%81%E6%BC%A0%E8%A7%86%E6%96%B0%E7%96%86%E4%BE%B5%E7%8A%AF%E4%BA%BA%E6%9D%83-%E9%80%A0%E6%88%90%E6%B6%88%E8%B4%B9%E8%80%85%E6%88%90%E5%B8%AE%E5%87%B6](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210611-%E5%8D%A2%E6%AF%94%E5%A5%A5%E6%8C%87%E8%B4%A3%E7%BE%8E%E4%BC%81%E6%BC%A0%E8%A7%86%E6%96%B0%E7%96%86%E4%BE%B5%E7%8A%AF%E4%BA%BA%E6%9D%83-%E9%80%A0%E6%88%90%E6%B6%88%E8%B4%B9%E8%80%85%E6%88%90%E5%B8%AE%E5%87%B6)
-
-编辑：文順      校对：Helen      发稿：文柳
-
-更多资讯，欢迎点击休斯顿星光农场官方推特账号！
-
-更多节目资讯，欢迎进入休斯顿星光G|TV官方链接！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12051627/image0-4-3.jpg)
 
 
+美国总统乔·拜登 (Joe Biden) 政府的一位高级官员表示，七国集团 (G7) 周六将宣布一项旨在帮助发展中国家的全球基础设施计划，从而与中共国价值数万亿美元的“一带一路”倡议抗衡。
+
+在中国过去 40 年的经济和军事崛起之后，G7 正试图对习近平日益自信的态度做出连贯一致的回应。
+
+这位不愿透露姓名的美国官员对记者说，美国还将推动其他七国集团领导人在中共国采取“针对强迫劳动的具体行动”，并在为期三天的最后公报中加入对北京的批评。 在英格兰西南部举行峰会。
+
+简评： G7峰会已经进行了一天， 以为美国官员发出了这样的呼声。 言外之意就是要打破习近平的全球一体化，抗衡中共国的一代一路。 而取而代之的是全球的西方价值观取向， 这才是人类的未来， 才是世界保持和平安详生活的基础。
+
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
+
+🔗[g7-counter-chinas-belt-road-with-infrastructure-project-senior-us-official](https://www.reuters.com/world/g7-counter-chinas-belt-road-with-infrastructure-project-senior-us-official-2021-06-12/)
 
 0
