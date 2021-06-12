@@ -1,53 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇长期威胁科学家要遵循他对中共病毒的扭曲叙述，否则将毁掉他们的职业生涯
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1317497/)
+## 【新闻速递】 无所适从&#8211;航空公司警告：接种疫苗的人不应旅行
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1316935/)
 
-**作者：** Ethan Huff 2021-06-10
+作者：休斯顿星光农场 写作部 文顺
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12121158/06122.jpg)
-图片来源：Ethan Huff原文
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01225742/Screenshot-2021-06-01-215655.jpg)
 
-《自然新闻》去年4月，我们报道了外国科学家在中共冠状病毒中发现了艾滋病的插入物，指出它是一种通过生物工程制造的生物武器，而不是一种自然界的随机行为。现在，我们有更多的证据表明，托尼·福奇威胁许多这些科学家撤回他们的研究，否则他会试图摧毁他们的职业生涯。
+近期，因接种疫苗的旅客在乘坐飞机时引发血栓事件频发，西班牙和俄罗斯航空公司警告已经接种过疫苗的人不应旅行，美国疾控中心（CDC）官网也发出关于飞机旅行超过4小时出现血栓的警告。
 
-《*Great Game India*》是最早发表其中一些研究的刊物，这引起了如此强烈的批评，以致于作者最终撤回了这些研究文章。从那时起，泄露的福奇电子邮件显示，是福奇本人对这些科学家发出威胁，扼杀了他们的重要研究工作。
+据ArmstrongEconomics报道，每年有超过3亿人乘坐长途航班（一般超过4小时）。血凝块也叫深静脉血栓（DVT），对一些长途旅行者来说是一个严重的风险。大多数关于血栓和长途旅行的信息来自于收集到的关于航空旅行的信息。然而，任何旅行超过四个小时的人，无论是乘坐飞机、汽车、公共汽车或火车，都可能有血栓的风险。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12102234/Screenshot-2021-06-12-092204.jpg)*图片来源：路透社*
+这一消息令许多人茫然失措。此前，各国政府以自由出行为由推动疫苗护照，西班牙更是宣布从6月7日起向全球接种中共病毒疫苗的人士开放边境。但如今注射疫苗后，人们却因更高的血栓风险依然无法出行。
 
-事实证明，福奇对艾滋病了解一二，早在20世纪80年代，福奇就曾大力研究艾滋病疫苗。多年来，福奇已经推动许多其他疫苗，所有这些疫苗都失败了，并再次对中共病毒做同样的事情。
+此外，有记录显示，有人在接种疫苗后不坐飞机而死于血凝块。有人发现，因感染中共病毒的死亡病人往往涉及血凝块原因。而英国《标准晚报》也表示，接种疫苗或未接种疫苗的人在飞行时出现血凝块的风险是一样的。
 
-当它变得很明显，由于外部独立研究人员的工作，计划性中共病毒大流行叙事开始破裂时，福奇立即行动起来，制止了这种叙述。换句话说，福奇不是站在科学一边，而是决心强迫他人执行自己的邪恶议程。
+与中共病毒溯源同出一辙，媒体不会报道真正可信的信息，人们也不可能得到这些信息的真相，因为各国政府正在积极推动疫苗经济。报道称，不管有多少人死亡，政客们永远不会承认错误，他们也不会被起诉，因为他们控制了整个过程。
 
-“去年，一群印度科学家发现冠状病毒是用类似艾滋病的插入物进行工程设计的，”公共利益律师和活动家普拉尚特·布尚（Prashant Bhushan）在推特中写道，他毕生致力于做公正、公平和符合公众利益的事情，”不管后果如何。”
+新闻来源：[https://www.armstrongeconomics.com/international-news/disease/vaccinated-people-told-not-to-travel/?**cf\_chl\_jschl\_tk**=ffc4528c59ffd6d1d7325bd9ce92873d1389afe8-1623483365-0-ATLkdCP4wiG3SfvfXlTe3ZBawaj6fjaW3fKzTrbzC9sOEJV5Pgq-Y1uDGKHq-oTRB-NftuRwXYPNh1kOyjntBYmskh\_yK4w67\_t6v\_K0ez9eZWgoxe\_NDOFMadw70srX83IfZ-R\_ZlCoDX9\_R2kMrTkwAOZHX4zpYV7gUlcykzZ-0olqZGcX2d92XcXlbNj583bCnq8bYUD8-ouZus2QmiPN9EY6nLfXVaQEqGSdLC9CPPDF3uG6hCBeN39f5ThvP9WhpoO9XwRxNe3Y7SIsKGRZJmN2z4xRNiuuZOpbOHHErh9UFYnkeeNM-HCXlaHXtpRdApZbJz-WDzN2orfpm\_luMTHvtXfhGOr5yEPjFbM\_Z1f46SXJs3VDWtW8b25uPOWlM1jHr7yKa-aHjA9bSSqxvaJRmW6fCuX7EGz8lt3Lo0ksKqgA2oKHp4HiDsnMBtdcoziV-*QYIe8MDBhiejYISMfJshySCqlF*-I2\_n8e4l\_\_uXyqpnFTUizAWdBGYb\_TppdwvKirtoIBC4o3Xbm7lQJ6taT5auxEdP8Z\_Q\_F](https://www.armstrongeconomics.com/international-news/disease/vaccinated-people-told-not-to-travel/?cf_chl_jschl_tk=ffc4528c59ffd6d1d7325bd9ce92873d1389afe8-1623483365-0-ATLkdCP4wiG3SfvfXlTe3ZBawaj6fjaW3fKzTrbzC9sOEJV5Pgq-Y1uDGKHq-oTRB-NftuRwXYPNh1kOyjntBYmskh_yK4w67_t6v_K0ez9eZWgoxe_NDOFMadw70srX83IfZ-R_ZlCoDX9_R2kMrTkwAOZHX4zpYV7gUlcykzZ-0olqZGcX2d92XcXlbNj583bCnq8bYUD8-ouZus2QmiPN9EY6nLfXVaQEqGSdLC9CPPDF3uG6hCBeN39f5ThvP9WhpoO9XwRxNe3Y7SIsKGRZJmN2z4xRNiuuZOpbOHHErh9UFYnkeeNM-HCXlaHXtpRdApZbJz-WDzN2orfpm_luMTHvtXfhGOr5yEPjFbM_Z1f46SXJs3VDWtW8b25uPOWlM1jHr7yKa-aHjA9bSSqxvaJRmW6fCuX7EGz8lt3Lo0ksKqgA2oKHp4HiDsnMBtdcoziV-QYIe8MDBhiejYISMfJshySCqlF-I2_n8e4l__uXyqpnFTUizAWdBGYb_TppdwvKirtoIBC4o3Xbm7lQJ6taT5auxEdP8Z_Q_F)
 
-“现在，福奇电子邮件显示，是安东尼·福奇博士亲自威胁印度科学家，迫使他们撤回他们的研究！
+编辑：Helen       校对：爱丽丝      发稿：文柳
 
-**福奇因其危害人类罪应被判处长期监禁**
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
 
-受福奇威胁的科学家基本上揭开了骗局的盖子，他们透露，中共病毒是由福奇和他的部下特意策划的，并作为生物武器释放出来。当然，福奇不希望这些信息公开。
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
 
-法国诺贝尔文学奖得主吕克·蒙塔涅尔证实中共病毒含有艾滋病样的插入物，这是不可能自然发生的。他们很可能被武汉病毒学研究所（WIV）的研究人员放在那里，他们由福奇用美国纳税人的钱支付，以进行非法的功能增益研究。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
 
-“蝙蝠女郎”石正丽，福奇的同谋之一，也明显地对揭露感到不安，也威胁发现他们的科学家”闭上臭嘴”，否则要付出代价。
 
-福奇、石和其他医学法西斯分子确实像暴徒一样，无休止地威胁和阻挠真正的科学。好消息是，一切都现在浮出水面，希望这些职业罪犯有一天能面对他们应得的正义的惩罚。
-
-我们现在还有另一封电子邮件形式的证据表明，去年3月福奇被告知了武汉冠状病毒是如何”产生的”。一位名叫亚当·盖特纳的研究伙伴给福奇一个剧本，讲述疯狂的科学家是如何把这一切放在一起的，然而福奇仍然站在世界面前，在所有的事情上撒了整整一年的谎。
-
-著名传染病专家克里斯蒂安·安徒生也告诉福奇，印度关于中共病毒类似艾滋病特征的研究，实际上确实有力地证明了中共病毒的生物工程制造的本质。福奇继续无视这两个人， 同时兜售中共病毒来自海鲜市场的蝙蝠的虚假叙述。
-
-**评：**1940年12月24日出生于美国纽约布鲁克林的安东尼·福奇是美国免疫学家，现任美国国家过敏和传染病研究所所长、白宫中共冠状病毒工作组成员及总统首席医疗顾问，福奇被公认为是世界领先的传染病专家之一。作为美国国家卫生院（NIH）的医生，福奇曾以各种身份为美国公共卫生服务50多年，自罗纳德·里根以来，他一直是每位美国总统的顾问。他作为科学家和NIH NIAID的负责人，是美国科学界的代表人物；从1983年到2002年，福奇是所有科学期刊上被引用次数最多的科学家之一。迄今为止，已担任美国国家过敏和传染病研究所所长逾35年，历经7任美国总统（里根，老布什，克林顿，小布什，欧巴马，川普，到现任的拜登总统）而不倒，是美国医学界的教父，掌握着巨额医学研究基金，足以决定美国甚至他国的医学界科学家的职业生涯，凭借他自身的权力以及藏在他背后的黑暗力量。
-
-最近被曝光的福奇上千封个人邮件显示，他与武汉病毒研究所存在紧密联系，是他资助并参与了中共通过生物基因工程技术制造出中共病毒。并且在中共释放该病毒到武汉最终导致中共病毒全世界大流行的过程中，福奇一直在全力帮助中共掩盖中共病毒的真相，力推中共病毒源自自然界的说法，并威胁全世界医学界科学家发表揭露中共病毒真相的文章。如今随着越来越多有关中共病毒真相人证和物证的曝光，福奇也自身难保，这条老狐狸开始改变去年以来的说法，开始同意中共病毒源自中共病毒实验室的说法，并呼吁要继续追查中共病毒的真实来源。然而一年多来中共病毒肆虐全球，导致全球超过1.75亿人被中共病毒感染，其中接近380万感染者已经死亡；美国作为第一大受害国，国内的感染人数超过3300万，其中死亡人数达到60万人[1]。毫无疑问，福奇作为反人类犯罪组织中共的同谋，他的双手沾满了人类的鲜血，应该为其危害人类罪受到法律的严厉惩罚。
-
-# 原文：Ethan Huff, “Fauci has a long history of threatening scientists, promising to destroy their careers if they don’t follow his twisted narrative on infectious disease”.《[Natural News](Natural%20News)》, June 10, 2021. [https://www.naturalnews.com/2021-06-10-fauci-threatening-scientists-destroy-careers-twisted-diseases.html](https://www.naturalnews.com/2021-06-10-fauci-threatening-scientists-destroy-careers-twisted-diseases.html)
-
-#  
-
-# [1] COVID-19 Dashboard by the Center for Systems Science and Engineering (CSSE) at Johns Hopkins University (JHU). Updates on June 12, 2021. [https://coronavirus.jhu.edu/map.html](https://coronavirus.jhu.edu/map.html)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：涅
 
 0
