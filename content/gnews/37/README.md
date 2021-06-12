@@ -1,33 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北京试图挑战美国海军力量—发现中共国新型隐形战斗机
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1315270/)
+## 西喜时事新闻简报 — 中共反人类罪篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1315422/)
 
-#### 编译：Boxinglady ( 文拳）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11131338/Screenshot-2021-06-11-10.12.58-AM.png)中共国沈阳J-31型隐形战斗机，图片截自网络![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11131615/Screenshot-2021-06-11-10.15.54-AM.png)美国的X-35隐形战斗机，图片截自网络
-中共国将在其即将到来的航母上部署新型隐形战斗机，以寻求与美国海军的能力相抗衡。
+- 作者：蚂蚁兄弟
 
-在中国武汉的一个试验场，在一艘航空母舰的模型上发现了一个类似于美国 F-35 的隐形 FC-31 Gyrfalcon 模型。
 
-这架飞机已经研制了十年，首架原型机于 2013 年试飞，将增强中共国的海上军事力量。
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-它很可能与中共国在争议激烈的南中国海日益增加的军事存在一起部署，英国新的伊丽莎白女王号航母将在那里进行首次作战航行。
+**西班牙2021年6月11日电/西喜社——**
 
-中共国正在建造第三艘名为“003”的航母，最终可能建造六艘。FC-31 的出现表明它将用于未来的中共国航母。
+您若想了解全文报导内容，请点击标题链接
 
-作为测试过程的一部分，飞机模型被抬到武汉的假航母上并四处移动。在武汉现场看到的以前的飞机模型后来在运营商上投入使用。 FC-31 是在社交媒体上流传的一张未注明日期的照片中拍摄的。人们看到它停在非隐形 J-15 和一架 Z-18 直升机旁边。
+**1. [新报告详述中共国维吾尔族穆斯林遭受酷刑的第一手资料](https://www.npr.org/2021/06/10/1005263835/new-report-details-firsthand-accounts-of-torture-from-uyghur-muslims-in-china?t=1623415668129&amp;t=1623438210841)**
 
-这些飞机已经部署在辽宁号和山东号两艘中共国航母上。较大的“003”最早可能在2025年投入使用。沈阳飞机公司正在开发双引擎FC-31。美国军方官员已经预料到了它在航空母舰上的使用。
+10日，美国国家公共广播电台NPR，根据国际特赦组织周四发表的一份新报告，中共政府针对穆斯林少数民族群体的迫害行为构成了反人类罪。该报告详细介绍了中共政府有组织地大规模监禁、酷刑和迫害新疆省人民，包括维吾尔族和哈萨克族。报告还详细介绍了中共国政府广泛的掩盖行为。
 
-在去年提交给国会的一份关于中共国武器的报告中，五角大楼表示：“小型 FC-31 的开发继续进行，用于出口或作为未来海军战斗机的下一代航空母舰。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135327/unknown-6-2.png)
 
-新闻来源: [点击进入](https://www.telegraph.co.uk/news/2021/06/11/new-chinesestealth-fighter-spotted-beijing-seeks-challenge-power/)
+**2. [中共国的维吾尔人生活在一个 “乌托邦式的地狱环境 “中](https://www.theguardian.com/global-development/2021/jun/10/china-uyghur-xinjiang-dystopian-hellscape-says-amnesty-international-report)**
 
-2021年6月11日
+英国卫报10日报道，国际特赦组织收集的中共国新疆地区侵犯人权的新证据显示，对于数十万遭受大规模拘禁和酷刑的穆斯林来说，新疆已经成为一个 “乌托邦式的地狱景象”。
 
-本文仅代表个人观点，不代表 Gnews 平台
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135437/unknown-7-3.png)
 
-校对发布：紫橄榄
+**3.  [美国对维吾尔族种族灭绝的反应](https://www.browndailyherald.com/2021/06/10/harris-22-iqbal-24-american-response-uyghur-genocide/)**
 
-0
+面对维吾尔族人被中共灭绝的危机，美国站出来了，面对全世界大声谴责中共、有针对性的全球联合制裁和对维吾尔难民的直接援助，为应对我们这一代最恶劣的人道主义危机之一，提供了有效的负责任和手段。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135606/unknown-8-2.png)
+
+**4. [中共国的一些“苹果”供应商在招聘启事中说他们不会雇用维吾尔族穆斯林等少数民族](https://www.businessinsider.com/apple-suppliers-china-uyghur-muslims-job-postings-the-information-2021-6)**
+
+据The Information周二报道，中共国的一些“苹果”供应商不接受少数民族求职者，并明确表示边缘化群体的成员不应该申请。
+
+该新闻网站发现，为iPhone、iPad和AirPods生产零部件的公司在网上发布了歧视性的招聘信息，如电路板、iPhone玻璃、数据线和相机镜头。富士康科技是被发现的公司之一，招聘广告写道。“不接受来自西藏或新疆地区的藏族、维吾尔族、回族、彝族、东乡族人”。另一份来自生产iPhone零部件的国泰达明公司的文件写道：”只接受没有饮食限制的少数民族（维吾尔族除外）”。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135713/unknown-9-2.png)
+
+**5. **[**报道称阿联酋、沙特、埃及将维吾尔人驱逐至中共国**](https://www.middleeastmonitor.com/20210609-uae-saudi-egypt-deporting-uyghurs-to-china-report-says/)
+
+据CNN报道，土耳其、阿拉伯联合酋长国、埃及和沙特阿拉伯被列为将维吾尔族穆斯林驱逐到中共国的国家，这些引起了人们对中共日益增长的影响力的担忧。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135823/unknown-10-2.png)
+
+审核：Aries的星；校对：信心满满；发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
++1
