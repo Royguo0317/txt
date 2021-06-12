@@ -1,63 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月11日美国政要推特精选：美国人需要知道冠状病毒的起源
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1315920/)
+## 从【习近平爱读的书】到【马背英雄】
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315981/)
 
-参议员迈克·布劳恩： 美国人需要知道冠状病毒的起源。 我已经追问过福奇博士、国家卫生研究院主任柯林斯和国务部长布林肯，为什么我们不将情报界的信息解密。 他们都没有一个好的答案为什么我们不应该有尽可能多的透明度。 （附福克斯新闻采访视频）
+作者：gokuabuela|校对：X-Wing|审核：Beicy-数学老师|Page：小雨
 
+[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/58390736-5f39-4847-80f2-d3fadace0a09.jpg?asset_id=65f8eaa2-111d-44aa-909f-3e1645323f7b&amp;img_etag=%226515b6e0b89c66008e9e31c5f87d0527%22&amp;size=1024)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/58390736-5f39-4847-80f2-d3fadace0a09.jpg?asset_id=65f8eaa2-111d-44aa-909f-3e1645323f7b&amp;img_etag=%226515b6e0b89c66008e9e31c5f87d0527%22&amp;size=1024)
 
+日前，西班牙的媒体报道了世界领导人都喜欢看什么书。 西班牙首相喜欢看人物传记，例如【邱吉尔传】，【托尼·布莱尔传】等。奥巴马喜欢看反种族主义的书。乔·拜登则喜欢看爱尔兰诗歌。那么，习近平呢？文章说：“习近平自称看过很多中国、俄国和西方的名著，有一串长长的书单，尽管从来没有见他引用过任何内容”。 习近平最喜欢的书是：【主算法】（The master algorithm），这是比尔·盖兹推荐过的书，主要是讲述可以用人工智能的算法，以最有效的方式做出行政和政治决策。还有就是【金钱改变一切】和【智能生活】，而据称习近平最喜欢的书是【灰犀牛】——“如何认识我们所忽视的明显危险并采取行动”。这些书大部分都是属于美国的科普读物。
 
-> Americans need an answer on COVID's origins.
-> 
-> I've pressed Dr. Fauci, NIH Director Collins, and Sec. of State Blinken on why we wouldn't declassify the info our intel community has. 
-> 
-> None of them had a good answer why we shouldn't have as much transparency as possible. [pic.twitter.com/uQ22JPQ5XT](https://t.co/uQ22JPQ5XT)
-> — Senator Mike Braun (@SenatorBraun) [June 11, 2021](https://twitter.com/SenatorBraun/status/1403417203756703745?ref_src=twsrc%5Etfw)
+[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/3605ebfe-97ff-40d6-8632-3d42f409a58c.png?asset_id=3fe28a2e-94c3-441e-9065-fae07dae1b59&amp;img_etag=%228d2b0a8ae72bf9a4369e76ee5de81cbc%22&amp;size=2560)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/3605ebfe-97ff-40d6-8632-3d42f409a58c.png?asset_id=3fe28a2e-94c3-441e-9065-fae07dae1b59&amp;img_etag=%228d2b0a8ae72bf9a4369e76ee5de81cbc%22&amp;size=1024)
 
+有意思的是，随后几天，记者设法采访了【灰犀牛】的作者， 米歇尔·乌克（Michele Wucker）， 让她谈谈对习近平的看法。 不可避免地谈到了疫情，她称“中共国对危险有自己的看法，有更高效的组织，这点比美国好得多”。
 
+这样的回答并不令人吃惊，从文化的角度来说，西方很久以前就开始培养这种白左的思想。1995年的奥斯卡评比，【阿甘正传】击败了【肖申克的救赎】获得了最佳影片。当年很喜欢【阿甘正传】，但是，现在回想，它宣扬的就是：在一个规则内，你只要完美地遵守规则，哪怕你是一个傻子，你也能获得一切。洗脑就是这样悄无声息的，很早前就开始了。
 
-参议员霍利新闻办公室： 霍利告诉新闻社[@newspressnow](https://twitter.com/newspressnow)，在最近那些破坏性的电子邮件被公布后，是时候该福奇辞职了 “与参与或资助武汉病毒研究所研究的团体和科学家有通信，并积极试图隐瞒他们的参与。”
+再说说音乐界，80，90年代最流行的是摇滚乐，反叛、呐喊、抗争，表达对社会的不满和对人生的思索。德国的蝎子乐队（Scorpions）在1989年9月创作了【变革之风】（WIND OF CHANGE）, 纪念中国的6.4事件和苏联的逐步开放，结果1989年11月柏林墙倒塌，该曲成为铁幕崩塌，共产主义衰落，人类迎来和平的标志曲目，激励了整整一代人。
 
+而到今天，再无这样直接撼动你心底的歌曲，也无让你心灵震颤的电影，更无如【丧钟为谁而鸣】，【百年孤独】这样的文学巨作。这一切，都是黑暗势力早早地就开始了文化圈禁运动。
 
+把人圈起来，打造一个【楚门的世界】，遮住真实的天，围住你的周围，让你看到的是：服从和规则，让你谈论的是娱乐和气候，以及忽视自然差异的绝对平等。不让你拥有的是反抗和呐喊。剥夺的是你的自由和勇气。
 
-> Hawley told [@newspressnow](https://twitter.com/newspressnow?ref_src=twsrc%5Etfw) it's time for Fauci to resign after the recent release of damaging emails
-> 
-> "There's correspondence with groups and scientists who participated or funded research at the Wuhan Institute of Virology, and were actively trying to conceal their involvement." [pic.twitter.com/E1qoZq1Wew](https://t.co/E1qoZq1Wew)
-> — Senator Hawley Press Office (@SenHawleyPress) [June 11, 2021](https://twitter.com/SenHawleyPress/status/1403392610920767490?ref_src=twsrc%5Etfw)
+经过30年的努力，欧美人也从野狼被哄成了家犬，和他们被散养不同，中国人有着更显而易见的悲惨，就是真正的被圈养成羊，不仅不能反抗，连回忆和批评都不行。看看中国那长长的禁片名单，还没开始反抗呢，就被“防患于未然”了。
 
+世界就在这“祥和”的气氛中走到了今天，没有人去真正约束共产党的行动，他们撕毁了协议，血洗了香港。他们建立了集中营，灭绝新疆人。他们和黑暗势力联合，对全人类进行大清洗，微弱的反抗声很快被掩盖，甚至不如瑞典的环保女孩更被人所知。
 
+曾经长生天的子民，金帐汗国的后代，面对奴役，已经沦落到了不敢反抗，不知道反抗的地步。看过国内的一个直播，是几个蒙古汉子直播吃肉，是的，身高马大的汉子，直播各种吃肉，牛肉，羊肉，蒸着吃，煮着吃，烤着吃。而另一边，牧场年年被侵占，被缩小，蒙古文教学被禁止，蒙古的孩子被黑警毒打，蒙古的女公务员愤然自尽。
 
-参议员詹姆斯·兰克福德： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的恶者故意试图压制或歪曲有关 COVID-19 及其传播的信息，需要对他们追责。今天，我与科顿参议员及其他共和党同事一起提出立法来制裁这些官员。 【附兰克福德参议员官网发布的新闻：兰克福德等提法案：李文亮全球公共卫生追责法案】
+丢失了战马，失去了雄鹰的不仅仅是草原儿女，也是我们每一个人，包括世界上的每一个人。病毒肆虐，疫苗飞速普及，病毒起源尚在艰难推进。这一年多来，科学界、媒体、政治家，大部分都还在沉默。西方社会并没有我们预想中的反抗和呐喊，最多就像小羊羔嘶喊了两嗓子，低下头继续吃草。社会的进步需要不屈的灵魂，我们需要发出呐喊。
 
+艺术是心灵的表达，【愿荣耀归于香港】，圣洁和不屈的歌声让香港从中共的战火下重生，成为我们心中的圣城。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/4ec5f93d-0220-494e-8d02-c87c7eed28bd.png?asset_id=0f4d8418-72c7-4c37-a1e4-160fab4ebb99&amp;img_etag=%22fee93ee78154bbe89821f404db7274d0%22&amp;size=1024)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/4ec5f93d-0220-494e-8d02-c87c7eed28bd.png?asset_id=0f4d8418-72c7-4c37-a1e4-160fab4ebb99&amp;img_etag=%22fee93ee78154bbe89821f404db7274d0%22&amp;size=1024)
 
-> Bad actors in communist [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) who knowingly attempt to suppress or distort information about COVID-19 and how it spread need to be held accountable. Today, I joined [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & my GOP colleagues to introduce legislation to sanction those officials. 
->  [https://t.co/ewxUZnkeLy](https://t.co/ewxUZnkeLy)
-> — Sen. James Lankford (@SenatorLankford) [June 10, 2021](https://twitter.com/SenatorLankford/status/1403075745375653889?ref_src=twsrc%5Etfw)
+【马背英雄】的横空出世，就像黎明的第一束光，宣告了推翻共产党，反抗大重启计划的到来。在这个至暗时刻，尤其重要。佛家说“当头棒喝”，【马背英雄】就是唤醒人们反抗精神的那声“棒喝”。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/2ed414e8-2939-4b02-ae49-b0e6c6e7d278.jpg?asset_id=941c2b59-f1b5-4017-a5ec-f5a599072527&amp;img_etag=%22ff43914e8147c89dbf5a9b6e5a2147a2%22&amp;size=1024)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/2ed414e8-2939-4b02-ae49-b0e6c6e7d278.jpg?asset_id=941c2b59-f1b5-4017-a5ec-f5a599072527&amp;img_etag=%22ff43914e8147c89dbf5a9b6e5a2147a2%22&amp;size=1024)
 
+【马背英雄】就是我们的战歌，这个时代需要英雄，爆料革命必出英雄！全世界人民需要掀翻桌子，长身而起，要生存，要反抗！
 
-众议员迈克·华尔兹： （自由灯塔的编辑）康蒂内蒂[@Continetti](https://twitter.com/continetti)是绝对正确的，[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 掩盖COVID，应该取消 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 举办奥运会的资格。 再加上他们正在进行的种族灭绝、对台湾的威胁以及对香港和西藏的镇压。 [#抵制北京2022](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC2022?src=hashtag_click) 【附自由灯塔专栏文章：怎样让中共国付出代价】
+“你要战，那便战”！
 
+**新闻参考：**
 
-
-> .[@Continetti](https://twitter.com/continetti?ref_src=twsrc%5Etfw) is absolutely right that the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s coverup of COVID should disqualify China from hosting the Olympics. 
-> 
-> Add on their ongoing genocide, threats against Taiwan, and repressions against Hong Kong and Tibet. [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wNhzMP2YPf](https://t.co/wNhzMP2YPf)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 11, 2021](https://twitter.com/michaelgwaltz/status/1403383877356462081?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿蓬佩奥： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 掩盖了武汉 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的传播。 如果你们想让本届政府要求回答，请转推。
+- [El inquietante abismo entre lo que lee Pedro Sánchez y lo que leen los políticos chinos](https://blogs.elconfidencial.com/espana/takoma/2021-05-24/libros-politicos-occidentales-chinos_3095004/)
+- [La mujer que enseñó a Xi Jinping a torear un rinoceronte gris: “Ven diferente los riesgos”](https://www.elconfidencial.com/mundo/2021-06-05/michele-wucker-pandemia-rinoceronte-gris_3115963/)
 
 
+文章仅代表作者观点
 
-> The Chinese Communist Party covered up the spread of the Wuhan virus. 
-> 
-> RETWEET if you want to see this administration DEMAND ANSWERS.
-> — Mike Pompeo (@mikepompeo) [June 11, 2021](https://twitter.com/mikepompeo/status/1403351027290673152?ref_src=twsrc%5Etfw)
+编辑：【英国伦敦喜庄园编辑部】
 
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

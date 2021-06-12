@@ -1,73 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 稍有不慎就可能殃及整个民族
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315899/)
+## 【鹰眼墙国】 千亿投资的港珠澳大桥，为何如今“鞍马稀”？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1316013/)
 
-作者：江南樵夫|校对：X-Wing|审核：Beicy-数学老师|Page：小雨
+作者：香草山农场  鹰(文言)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/MuxAdsh0EPmm4/images/69f9eaa1-a63f-4093-9cbd-8c7509d38e7e.jpg?asset_id=53e89cd7-2437-4103-8310-a2f00b57185a&amp;img_etag=%2277a55452f6eede031e91895ddc8aa823%22&amp;size=2560)](https://spark.adobe.com/page/MuxAdsh0EPmm4/images/69f9eaa1-a63f-4093-9cbd-8c7509d38e7e.jpg?asset_id=53e89cd7-2437-4103-8310-a2f00b57185a&amp;img_etag=%2277a55452f6eede031e91895ddc8aa823%22&amp;size=1024)
 
-**樵夫**：接种国产疫苗仍然不能防止被感染。
 
-针对接种国产疫苗之后国内外发生的种种感染事件，中国疾控中心专家邵一鸣日前在网易新闻上答疑称：疫苗的作用从上到下分三类，一是防感染，二是防发病，三是防传播。我国开发的新冠疫苗是防发病也即重症而非防感染。所以接种国产疫苗之后并不能保证不被新冠病毒传染。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1.jpeg](https://lh3.googleusercontent.com/Er5mBSkSkg7Ctx_BSqBbxnEJfevKrAvBlD7_Qwsz1EnoAIQIJBgjW34F9luWd2eMQxtFWLxQg_dGNIPVHTypFOR4lrKH7YP0vpQhJo8EOMTOpAkRtUeMRcSmEgCZCl82cL9vGXuf)
 
-家人们请注意，就算接种了国产疫苗也不要放松防疫警惕哈。因为你现在接种的疫苗只防发病不防感染。再次提醒，就算接种了国产疫苗的家人也不要到处瞎逛，尤其是在中高风险区的家人们。
 
-**堂侄**：我还没接种疫苗，一点也不可怕，就当是流感一样。
 
-**樵夫**：全球已经感染一亿七千五百万人，死亡三百五十万。这种史无前例的瘟疫还是蛮可怕的哈。香港大学管轶最近接受采访称，要接种国际主流认可的疫苗，别信王婆卖瓜，自卖自夸的东西。
+环球网6月12日转载央视新闻客户端消息，截至2021年4月经港珠澳大桥珠海公路口岸进出口总值2016亿元。
+![This image has an empty alt attribute; its file name is Untitled-design-2021-06-11T203233.954.png](https://lh6.googleusercontent.com/HqxgyYDMu1CJGLH6YSTuRGFNLtLwaNmmqTiK_w40eTIfJhh04tnVTT4dcCRAu5CmQEtAAVGB4QYov4DuTCBwilq5C9rBXde6N86axpy-AEuZkATwf07kJ1nwSNB7HiQPLbEFhB9q)
+港珠澳大桥于2009年12月动工，用以连接深圳、香港和珠海，全长55公里，投资金额达1269亿元，为了充分发挥港珠澳大桥对地区贸易的牵引作用，中共在设计过程中不但配备7项取得技术性突破的子系统（包含消防、供电、给排水和防雷等），更将通车频率设定为5-6万辆/天以应对繁忙的跨境车辆，为此耗时2年专门研制兼容不同制式的全自动缴费系统。
 
-管轶是疫情期间第一时间到达武汉的病毒学家，并第一时间逃离武汉。
+但在18年10月正式通车后，港珠澳大桥使用率却差强人意。根据广东省交通部门数据，截至2019年10月大桥开通一周年，经港珠澳大桥的旅客总数2443.45万人次，但通行车辆却仅有153.72万车次，日均4212车次，不但低于二级公路的通车量（二级公路年平均日交通量5000-15000辆），更不及其设计参数的一成标准，2020年的通行频率更是惨不忍睹，甚至达到10分钟一辆车日均150辆的程度。
+![This image has an empty alt attribute; its file name is Untitled-design-2021-06-11T203257.897.png](https://lh5.googleusercontent.com/I-u3LS6skzfrq1l2zyoAGG8a9dXLgFbvqk5eEXdqemcKUIgdc0xgJZJ1bSrq8_-CB2fpnc-_bBUHg862rsuIj-NYe4o6uyKzsIlfozujgwQR7qqmioDfLOZc4fZ5NlUTrW929vu5)
+虽然港珠澳大桥通行车辆繁多包含跨境巴士、穿梭巴士、跨境出租车、货运车、私家车等，但只有取得大桥口岸通行车牌的上午车辆才能获得行驶指标。港珠澳车牌的申办门槛较高，广东省3年内纳税累积100万元的国企、集体企业、私企民企可申请一辆通行车辆；境外投资者在内地投资且3年纳税额达10万元可申办第一张通行证，纳税额达50万可申办第二张，除了通行证的申请缓解繁琐难度较大外，同行车牌的价格高昂也让私家车主望而却步（如2018年11月现牌转让价格50万元），截止2018年2月22日，广东省共办理并发放11211个通行商务车指标。诸多因素造成港珠澳大桥的通车成本居高不下，再加上固定的指标限制，这才导致大桥建成后如此“闲置”。
 
-**堂侄**：我要接种疫苗的时候，就是决心去抗疫的时候了，看来还用不上我。
+虽然中共为了增加大桥对周边经济的刺激并于20年7月正式开髋跨境电商业务，但由于其收费标准（普通货车60元/车次，货柜车115元/车次）依据高于国内大多高速公路平均收费0.4元/公里（55公里对应收费22元），再有上文提及申办同行车牌价格高昂，所以截至2021年5月7日，场站运送的跨境包裹仅为2200万个，这一数值还不及2021年春节期间（2月11-17日）深圳全市快递收件量2400万件。
 
-**樵夫**：别意气用事，老老实实呆着。真轮到你上的时候，广州可能医疗资源已经耗尽，尸横遍野了。
+除了上述成本原因，更重要的是由于2019年香港返送中运动，中共抹黑造谣并利用黑社会和假警等武装力量进行大抓捕和破坏，严重影响了香港地区的商贸往来，不但各大外资企业纷纷搬离，更有大批香港人士被迫离开故土。而《国安法》、选举法等中共独裁法律的制定和施行更将香港的自由贸易和契约精神付之一炬，香港已经完全沦为中共残害下的臭港，最大的外资引进渠道和交易平台都被中共“杀鸡取卵”，而严重依赖香港经济驱动的港珠澳大桥及奥港澳大湾区又何谈能够“无薪独烛”。
 
-还是用老办法防疫最好，别太信国产疫苗。深圳当局最近紧急停打国产疫苗是明智的。喝喝高度酒，唱唱无忧歌，出门戴口罩，集会莫扎窝哈……
+新闻来源：
 
-国家疾控中心都说了，咱们的疫苗只防重症，不防传染。万一发现接种之后出现重症患者之后他们可能又会说，咱们的疫苗只防传播，不防感染和发病。
+经港珠澳大桥进出口总值突破2000亿元https://china.huanqiu.com/article/43VDolYT0EO
 
-家人们，千万注意安全哈。
+识别车牌仅需0.3秒，港珠澳大桥的收费系统堪称一绝https://3g.163.com/dy/article/D85P5MQM0511DTU9.html
 
-**堂侄**：2003年非典的时候，我们作为医生去看发热病人，当时不让戴口罩，那个病比现在的死亡率高多了，都不怕，当时喝酒加抽烟，现在只是传染性隐匿性强。
+港珠澳大桥海关助力跨境电商加速跑 总货值超59亿（图）http://www.customs.gov.cn/customs/xwfb34/302425/3659102/index.html
 
-**樵夫**：管轶和饶毅都是你本科的校友。
+如何破解港珠澳大桥冷清之困？毛艳华：增加深圳支线难度大，视粤港澳大湾区为共同家园来挖掘大桥的潜力！https://www.163.com/dy/article/GC2H6VH90550TXTJ.html
 
-**堂侄**：他们可能没经历过非典。
+港珠澳大桥成“摆设”？投资千亿却车流稀少，司机：条件高没资格https://new.qq.com/omn/20210410/20210410A08RO900.html
 
-**樵夫**：是的，新冠的传染性极强，死亡率却并不如其它烈性病毒。但虽然如此，其对整个人类的死亡威胁也是史无前例的。感染新冠即使康复的人，其机体功能也已经大不如前。
+今年港珠澳大桥格外“冷清”，平均10分钟通行1辆车https://www.sohu.com/a/425405365\_100143648
 
-**堂侄**：重症会有影响，轻症的应该没有后遗症。
+五分钟了解公路等级划分 https://www.sohu.com/a/169725645\_99919239
 
-**樵夫**：尤其是用激素治疗SARS的，许多当年的医护感染康复之后，后遗症使他们生不如死悔恨终身。
+港珠澳大桥正式开通 “联合车牌”供不应求叫价50万https://finance.sina.com.cn/roll/2018-11-03/doc-ihmutuea6494075.shtml
 
-**堂侄**：怕就打疫苗，张文宏眼光独到，完全可信。
+留守深圳人寄出年货2400万件 http://shenzhen.sina.com.cn/news/n/2021-02-19/detail-ikftpnny7823411.shtml
 
-[!\[\]()!\[\](https://spark.adobe.com/page/MuxAdsh0EPmm4/images/b66ff577-ce4e-4d73-978d-cc1df377b182.jpg?asset_id=16d00ac6-1dfe-4134-b7c3-6c7d00c71929&amp;img_etag=%227bb3ec82aea3a7cc1b94fc4527447bdb%22&amp;size=2560)](https://spark.adobe.com/page/MuxAdsh0EPmm4/images/b66ff577-ce4e-4d73-978d-cc1df377b182.jpg?asset_id=16d00ac6-1dfe-4134-b7c3-6c7d00c71929&amp;img_etag=%227bb3ec82aea3a7cc1b94fc4527447bdb%22&amp;size=1024)
+校对/发稿：火内
+![This image has an empty alt attribute; its file name is 6_june-2.jpeg](https://lh3.googleusercontent.com/8PDnMEWvM_0NbOhqugdPTNrglErpeqa00buVdg17-UaJV363Mv_I_RiH6P3EOw_RwgAEBk2U2u3YGsGqRDqmWxiiMWW-IJJrURcwqAngrq__fd-eYRIF08vpQ9ZNhoQx7GDq84px)
+更多资讯，更多关注
 
-**樵夫**：钟南山已成过去，广州去了张文宏。
+[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-虽然我一直欣赏张文宏在疫情二次爆发之前的种种见解。但现在他已不是独立的科学家，普通人最好要独立判断他的每一个煽动哈。
+[纽约香草山农场GTV-MOS TALK](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)香草山访谈
 
-**堂侄**：上海人精明，见解独特，预判准确，长期以来没发现他有什么瑕疵。这个人很了不起。
+[纽约香草山农场Twitter](https://twitter.com/HIMALAYA_MOS)(中文)
 
-**樵夫**：在做政府机构的领导之前，此人的见解的确可圈可点。但人都有身不由己的时候，现在听张文宏的话尤其需要分辨弦外之音。他之前只是一个医学专家，加入上海疾控中心领导行列之后，他除了医学专家之外还是一个地地道道的政治家。
+[纽约香草山农场Twitter(英文)](https://twitter.com/MosHimalaya)
 
-张文宏自身典型的矛盾就是对国产疫苗的前倨而后恭。他曾经反对接种国产疫苗，他说，中国人买汽车都知道买进口的，一到打疫苗就犯糊涂了。
-
-可是一旦上面把疫苗外交定为国策之后，他的话风马上就转了。生命是自己的，家人们要学会独立思考，自己作出判断哈！
-
-***文章仅代表作者观点***
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/MuxAdsh0EPmm4/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/MuxAdsh0EPmm4/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
