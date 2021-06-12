@@ -1,43 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登的司法部长要严格审查法庭审计
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315960/)
+## 【中共国段子】境外势力
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1316037/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
-
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11221803/M.jpg)bloomberg.com
-冲破层层阻拦的亚利桑那州“国家审计”接近尾声，近10个州先后考察、观摩了选票重新清点的现场，眼看大选欺诈舞弊的盖子就要揭开，舞弊行为者们自然不甘束手就擒，此番杀出的是司法部长，他声明要严格审查大选后审计出的违反投票法的证据。
-
-《门道专家》报道，司法部长梅里克·加兰（Merrick Garland）宣布，他的司法部将审查任何选举后审计出的违反投票法的证据！！
-
-全文如下：
-
-腐败的司法部和联邦调查局完全忽视了2020年选举中泛滥的选举罪行，因此，毫不奇怪，现在腐败的大法官决定威胁任何参与选举审计的人，以防止调查他们所犯下的选举罪行和欺诈行为。
-
-司法部在2020年的选举中完全忽视了选举罪行，在这个过程中，每一个地方都有犯罪和腐败，但我们的主流媒体、司法部，以及联邦调查局忽略了它们，任何关于选举罪行的提及都被大科技公司禁止，要让所有这些机构都站在同一艘腐败的船上，这是一项不小的任务。
-
-我们发现了这些件事并进行了报道，不是司法部——他们忽略了这一点——在2020年大选后的一大早，数千张选票被送到底特律的投票地点，所有选票都投给了乔·拜登。
-
-我们拍下了这段视频，确定那帮人把所有人赶出亚特兰大投票地点，然后把装有选票的箱子从桌子底下拉出来，在没有人监督的情况下，把选票往计票制表机里运行了两次和三次，不幸的是，摄像机开着。但到目前为止，这并不重要，因为司法部和联邦调查局可以忽视这一切。
-
-多个州忽视了监管链的法律，但司法部和联邦调查局并不在意。
-
-但是现在，当美国爱国者们抽出自己的时间，自愿帮助揭开审计中的欺诈和腐败时，司法部终于承认有一场选举了。总检察长说，他和他的一帮律师和调查人员将仔细检查在审计期间采取的每一项行动，来恐吓和阻止审计的发生。
-
-我们知道他们会做点什么，现在，深层政府势力最终采取了这一行动，并威胁到任何敢于相信自己直觉，并希望帮助废止在2020年选举中任何欺诈性投票的人。
-
-我们最后能说美国是一个由一群骗子经营的香蕉共和国吗？
-
-（原文完）
-
-估计深层政府被逼到了临界边缘，选择梅里克·加兰作为司法部长，就是在这时派上用场。病毒真相FBI可以不管，那些明显的大选欺诈现象，他们可以睁一只眼闭一只眼，眼看舞弊行为就要被揭露时，司法部就来“过问、严格审查”揭露舞弊的人了。
-
-还好，正道主义者有备而来，就像文章最后一句的阐述，“美国能是一个由一群骗子经营的香蕉共和国吗？”肯定不会！更何况还有新中国联邦的支持！
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2021/06/breaking-ag-merrick-garland-announces-doj-will-scrutinize-post-election-audits-evidence-voting-law-violations/](https://www.thegatewaypundit.com/2021/06/breaking-ag-merrick-garland-announces-doj-will-scrutinize-post-election-audits-evidence-voting-law-violations/)
-
+作者：xingfffooo 
+编辑：Summer
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10162655/A32E3178-FD13-4B78-98A1-971F4426623E.gif)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11231057/%E5%A2%83%E5%A4%96%E5%8A%BF%E5%8A%9B.png)
+(以上段子作品属于个人创作，对真实性不做保证。如有雷同，纯属巧合。）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10132904/2CE1FC59-B8C3-4396-9368-E41D1099C06B.jpeg)
 0

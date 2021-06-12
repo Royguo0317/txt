@@ -1,52 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读美英宣布签订《新大西洋宪章》，应对中共国威胁
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1315832/)
+## 6月11日美国政要推特精选：美国人需要知道冠状病毒的起源
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1315920/)
 
-直播视频：
+参议员迈克·布劳恩： 美国人需要知道冠状病毒的起源。 我已经追问过福奇博士、国家卫生研究院主任柯林斯和国务部长布林肯，为什么我们不将情报界的信息解密。 他们都没有一个好的答案为什么我们不应该有尽可能多的透明度。 （附福克斯新闻采访视频）
 
 
 
-《路德时评》2021年6月11日早间节目主要内容：
+> Americans need an answer on COVID's origins.
+> 
+> I've pressed Dr. Fauci, NIH Director Collins, and Sec. of State Blinken on why we wouldn't declassify the info our intel community has. 
+> 
+> None of them had a good answer why we shouldn't have as much transparency as possible. [pic.twitter.com/uQ22JPQ5XT](https://t.co/uQ22JPQ5XT)
+> — Senator Mike Braun (@SenatorBraun) [June 11, 2021](https://twitter.com/SenatorBraun/status/1403417203756703745?ref_src=twsrc%5Etfw)
 
-**·** 美英宣布签订《新大西洋宪章》
 
-美国之音6月11日报道[\[1\]](https://www.voachinese.com/a/Biden-Johnson-new-Atlantic-charter-china-20210610/5924819.html)：美国总统拜登星期四与英国首相约翰逊签署了《新大西洋宪章》，承诺在共同原则的基础上应对全球性的挑战，包括日益咄咄逼人的威权中共国的崛起，表示要“决心捍卫民主和开放社会的原则、价值观和机构”。新宪章列出了八个合作的广泛领域，包括捍卫民主、重申集体安全的重要性、建立一个公平的贸易体系、对付气候变化、打击网络袭击和强化健康体系等。这份文件没有提中共国的名字，但字里行间很明显可以看到的是，这两位领导人有意就如何处理与北京的战略竞争进行合作。这份文件说，他们“打算加强维持国际合作的机构、法律和规范，对它们进行调整，来迎接21世纪的新挑战，并防范那些会损害它们的东西”。他们还“决心驾驭和保护我们在科学和技术方面的创新优势，以支持我们的共同安全，并在国内创造就业”，促进新标准和技术的开发和应用，以支持民主价值观等。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11205433/photo_l.jpg)[图片地址](https://img.kyodonews.net/chinese/public/images/posts/515d5ca99df3a8de25b9cb46ffbc576a/photo_l.jpg)
+参议员霍利新闻办公室： 霍利告诉新闻社[@newspressnow](https://twitter.com/newspressnow)，在最近那些破坏性的电子邮件被公布后，是时候该福奇辞职了 “与参与或资助武汉病毒研究所研究的团体和科学家有通信，并积极试图隐瞒他们的参与。”
 
-路德社评论：
 
-1、大西洋宪章由美国总统罗斯福和英国首相丘吉尔于1941年8月13日在大西洋北部纽芬兰阿金夏海湾的奥古斯塔号军舰签署，并在14日公布。宪章宣布了民族自治、领土完整、经济国际主义、社会安全、缩减军备以及国际合作等八个原则，并决心以此作为重建战后世界和平和秩序的政策依据。它标志着英美两国在政治上结成了同盟，也对后来反法西斯大同盟的建立以及联合国的成立都产生了重要影响。[\[2\]](https://zh.wikipedia.org/wiki/%E5%A4%A7%E8%A5%BF%E6%B4%8B%E5%AE%AA%E7%AB%A0)
 
-2、当年由英国保守党领袖和美国民主党领袖签署协议，现在也是如此，历史总是惊人地相似。1941年签订《大西洋宪章》意味着美英形成联盟，它们将共同对抗法西斯秩序，从而奠定了战胜法西斯的基础，当时的纳粹德国各方面都非常强大，盟国甚至不知道纳粹屠杀大量犹太人，当时世界仍有许多人看不清楚法西斯国家的邪恶，今天的中共就像当年的纳粹德国。
+> Hawley told [@newspressnow](https://twitter.com/newspressnow?ref_src=twsrc%5Etfw) it's time for Fauci to resign after the recent release of damaging emails
+> 
+> "There's correspondence with groups and scientists who participated or funded research at the Wuhan Institute of Virology, and were actively trying to conceal their involvement." [pic.twitter.com/E1qoZq1Wew](https://t.co/E1qoZq1Wew)
+> — Senator Hawley Press Office (@SenHawleyPress) [June 11, 2021](https://twitter.com/SenHawleyPress/status/1403392610920767490?ref_src=twsrc%5Etfw)
 
-3、宪章就是两国合作的基石，合作的基石就是建立以自由、平等、人权为基础的规则，未来出现纠纷就必须依法解决，保障所有人的私有财产和自由，这就是英美两国合作的基石。英美签署宪章形成结盟后，美国吸引了全世界大量精英，英美历经数百年的积淀已经向世界证明他们拥有契约精神。
 
-4、中共不守信用不代表中国人不守信用，古代的地契都是在族长的见证签字后生效，这份在宣纸写上的地契可以留存上百年，这就是契约的象征，地契就毁在中共斗争上。上世纪三十年代到四十年代，国军主力一直在清除苏俄和日本对东北地区的入侵，而中共当时则在国内拉拢匪帮。毛贼东很清楚枪杆子里出政权，毛当时就写信给国军，表示要从地主手中没收土地分给贫困的农民，让有钱人的粮食充公分给穷人吃，中共就用这种虚假承诺团结底层人民推翻了国民党。新中共国成立后，毛贼东从1950年1月份就开始搞土地改革，中共从农民手中抢走土地归集体所有，集体所有就归党所有，开始欺骗和掠夺中国老百姓。
 
-5、中共的宪章就是枪杆子里出政权，枪杆子就意味着通过武装出政权，这毫无民主、自由、人权和平等可言，中共极为强调政权而非人权，政权是集权国家的专有词汇，西方国家强调的是政府，政府来自于人民选举，这就相当于小区的物业管理公司，中共则用枪杆子逼老百姓承认其政权的合法性，老百姓的私有财产也得不到法律保护。
+参议员詹姆斯·兰克福德： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的恶者故意试图压制或歪曲有关 COVID-19 及其传播的信息，需要对他们追责。今天，我与科顿参议员及其他共和党同事一起提出立法来制裁这些官员。 【附兰克福德参议员官网发布的新闻：兰克福德等提法案：李文亮全球公共卫生追责法案】
 
-6、英美从来不用专制对抗专制，利用专制对抗专制是集权政府的陷阱，必须要以民主、自由和人权建立的宪章为根基，中共现在就利用微信群来发展它的集权统治，中共在微信群中安插言论打手来打压异议人士，即使在反共的聊天群也是如此，从而破坏言论自由，以此巩固自己的集权统治。
 
-7、英美两国的文明和科技在近一百年之所以发展得如此迅速，就是因为他们遵守契约，并且在不断完善契约，英美国家的社会遵守契约，而社会中的权贵阶级也都遵守契约，权贵阶级不能欺压老百姓。而中共一旦有权有势有权之后，就开始压榨老百姓，控制老百姓言论，打压异议人士，其实最终阉割的还是中共自己。中共从小就给墙内老百姓洗脑要解放全世界，解放全人类，而在西方国家，只要尽自己责任，从周边小事做起，邻舍自然就认可你，自然就能形成联邦效应。新中国联邦爆料革命推动灭共就是要让每个战友从身边做起，从影响周边人做起，只有个体强大才能让国家强大。
 
-8、美国非常强调自由、人权和平的普世价值观，但是美国并没有植入道德和民主，民主只是维护自由和平等的方式，中共国宪法则非常强调人民民主专政，专政就意味着没有自由和平等，中共就利用民主的幌子实行专制集权统治，利用道德约束别人而不是自己，所以中共体制也不可能有创新，也不可能拥有高科技，更不可能拥有国际话语权。
+> Bad actors in communist [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) who knowingly attempt to suppress or distort information about COVID-19 and how it spread need to be held accountable. Today, I joined [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & my GOP colleagues to introduce legislation to sanction those officials. 
+>  [https://t.co/ewxUZnkeLy](https://t.co/ewxUZnkeLy)
+> — Sen. James Lankford (@SenatorLankford) [June 10, 2021](https://twitter.com/SenatorLankford/status/1403075745375653889?ref_src=twsrc%5Etfw)
 
-9、英美签订大宪章之后，英国就在德国上空投下数百万张宣传单宣传盟军大宪章，因为纳粹长期给德国人民进行民族主义教育，德国如果战败就将成为殖民地，德国老百姓将成为亡国奴，跟中共现在所宣传的一模一样，这样就能让德国老百姓成为纳粹的铜墙铁壁。大宪章就保障了德国人民的自由，还承诺让德国自己决定建立何种社会制度。
 
-10、中共正在通过一带一路计划挑战国际秩序，新的大宪章增加了一些条款来共同应对中共国对国际秩序的挑战，其他国家将各自选边站，由于中共病毒问题，所有国家未来都会与英美战队，共同围剿中共。
 
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+众议员迈克·华尔兹： （自由灯塔的编辑）康蒂内蒂[@Continetti](https://twitter.com/continetti)是绝对正确的，[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 掩盖COVID，应该取消 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 举办奥运会的资格。 再加上他们正在进行的种族灭绝、对台湾的威胁以及对香港和西藏的镇压。 [#抵制北京2022](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC2022?src=hashtag_click) 【附自由灯塔专栏文章：怎样让中共国付出代价】
 
-参考文章：
 
-[1][https://www.voachinese.com/a/Biden-Johnson-new-Atlantic-charter-china-20210610/5924819.html](https://www.voachinese.com/a/Biden-Johnson-new-Atlantic-charter-china-20210610/5924819.html)
-[2][https://zh.wikipedia.org/wiki/%E5%A4%A7%E8%A5%BF%E6%B4%8B%E5%AE%AA%E7%AB%A0](https://zh.wikipedia.org/wiki/%E5%A4%A7%E8%A5%BF%E6%B4%8B%E5%AE%AA%E7%AB%A0)
 
-文章撰写：【小虫】  校对：【无花果】
+> .[@Continetti](https://twitter.com/continetti?ref_src=twsrc%5Etfw) is absolutely right that the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s coverup of COVID should disqualify China from hosting the Olympics. 
+> 
+> Add on their ongoing genocide, threats against Taiwan, and repressions against Hong Kong and Tibet. [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wNhzMP2YPf](https://t.co/wNhzMP2YPf)
+> — Rep. Mike Waltz (@michaelgwaltz) [June 11, 2021](https://twitter.com/michaelgwaltz/status/1403383877356462081?ref_src=twsrc%5Etfw)
 
-本文仅代表作者个人观点
 
-+2
+
+前国务卿蓬佩奥： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 掩盖了武汉 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的传播。 如果你们想让本届政府要求回答，请转推。
+
+
+
+> The Chinese Communist Party covered up the spread of the Wuhan virus. 
+> 
+> RETWEET if you want to see this administration DEMAND ANSWERS.
+> — Mike Pompeo (@mikepompeo) [June 11, 2021](https://twitter.com/mikepompeo/status/1403351027290673152?ref_src=twsrc%5Etfw)
+
+
+
+0
