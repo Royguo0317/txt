@@ -1,37 +1,305 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【金融分析】比特币——暗网交易的温床
-` 温哥华扬帆农场` [轉載自GNews](https://gnews.org/zh-hans/1316179/)
+## 比尔·格茨：中共国的太空武器计划是美国面临的最危险威胁
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1316255/)
 
-温哥华扬帆农场 – 文灵freesky
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12002730/Freesky06112111.png)
-比特币的区块链天然去中心化，或者说去银行化、去金融机构化，没有中间人、不受政府干扰、交易地址与IP没有关系，交易双方的身份和位置信息都无法被追踪的特点，这些都与暗网的高匿名需求和安全需求不谋而和。（或者说比特币等去中心化的虚拟币就是为暗网而产生的）
+**字幕内容：**
 
-什么是暗网，简单说暗网就是犯罪活动的避风港。进行虐童、买卖人口、枪支弹药、杀手、活人活摘器官、洗钱、国家级的军事绝密信息以及物品交易等非法活动，我们普通人所能搜索的能见到的（明网）信息不过是冰山一角，不到6%。到2020年暗网上的交易已达6万亿美元。其中中共控制着50%的暗网交易量。在美国有一个匿名化的交易网站叫做丝绸之路，自称黑市亚马逊，主导了美国境内的非法交易，而它唯一的交易货币就是比特币。其中的交易主要以买卖枪支弹药、毒品、妇女儿童以及人体器官，涉及金额之巨大，让人瞠目结舌。
+Tammy Bruce (Foxnews host)
+塔米布鲁斯（福克斯新闻主持人）
 
-不止在美国，全球各地都充斥着借助使用比特币完成的犯罪活动。2015年香港富豪石油大亨黄煜坤在台湾被绑架，7000万赎金就是通过比特币绕过银行监管交付绑匪;2016年7月26日，一名27岁叙利亚男子在德国巴伐利亚州小城安斯巴赫(Ansbach)引爆了炸弹，造成12人受伤，嫌犯当场身亡，他所用枪支就是用比特币在暗网上购买;2017年5月，WannaCry席卷100多个国家，造成无数医院，警局，学术机构，大学瘫痪，赎金只要比特币;2017年5月，即将上映的《加勒比海盗5》全片被盗，面临巨额的票房损失，盗窃者也是要比特币作为赎金;还有官员贪污洗钱的问题，通过比特币转入离岸避税天堂，那些钱神不知鬼不觉在地球上就能转好几圈换好几次身份。
+Washington Times national security correspondent Bill Gertz
+华盛顿时报国家安全记者比尔·格茨
 
-2021年5月7日美国殖民管道公司在遭遇一个网络犯罪团伙攻击后中断网络运营，美国东部地区的燃料供应被切断，造成巨大混乱和恐慌。遭到攻击的美国殖民管道（Colonial Pipeline）公司每天输送250万桶汽油、柴油及航空燃油和其他精炼产品，其运送量占美国东海岸供应量的45%。 5 月 8 日，高管们被迫支付了 75 个比特币的赎金，相当于当时的约 430 万美元之后最终石油才得以再次开启流动
+Bill, it’s great to see you
+比尔, 很高兴见到你
 
-郭先生于2020年11月15日说：CCP是暗网的最大支持者，在暗网布局很深，中共利用暗网支持恐怖主义，收集情报，贩卖军火，贩毒，收买大批政客，科学家，媒体，操控海外股市，为大批的中东的人在暗网上私人定制清真人体器官移植。对中文字的源代码控制，自动删除文字源和信息达到对中文信息的封锁，王建死亡真相的信息被完全封锁就是中文字源代码控制的结果。中共通过暗网利用高科技特别针对爆料革命，爆料革命每个参与者，或者他们担心的人，都将成为他们监听的对象，和重点跟踪对象。
+I always read your work
+我一直在读你的作品
 
-2021年6月8日美国FBI追回美国殖民管道公司支付给黑客的价值230万美元的比特币。这一消息无疑给了暗黑势力重要的一击。
+It is very insightful and you’re very busy these days
+文章很有见地并且你这几天很忙
 
-FBI根据司法部相关法律批准，追踪到黑客地址为殖民管道公司追回被胁迫支付的比特币赎金。FBI此次行动意味着只要是危害国家和人民安全的犯罪行为，FBI就可以依法追溯利用比特币以及其它去中心化虚拟货币交易的所有罪恶。
+what’s going on but I want to pick up with you this dynamic
+最近发生了什么？但我想和你一起了解这个动态
 
-特朗普于6月7日本周一在接受福克斯商业采访时也重力碾压比特币，重申了他对比特币的负面立场。
+as we’ve been discussing the wuhan lab dynamic
+正如我们一直在讨论武汉实验室动态
 
-特朗普表示“比特币，它看起来就像一个骗局。在我们这里，它的价格是 6,000 美元，而且要低得多。我不喜欢它，因为它是另一种货币与美元竞争，本质上它是一种与美元竞争的货币。我认为应该对它们进行非常非常高的监管，但货币应该是美元，”在Trump的采访后比特币应声暴跌超过10%至$32931，以太坊也紧随其后一度跌破10%,价格在$2510。
+the Fauci emails and the other issues
+福奇的电子邮件和其他问题
 
-比特币诞生以来，因为其火热的行情，被不少山寨币争相模仿，它们是参考比特币的思想、原理及源代码产生的，但往往他们的发明者比中本聪（比特币发明者）要更嗜血，恶意作市，疯狂洗劫投资者的屡有发生，因所有去中心化虚拟货币都具有不可追踪性，这使得犯罪分子更加的肆无忌惮和猖狂，利用以比特币为主的各种去中心化的虚拟货币的犯罪活动，每周以近千亿美元交易在暗网发生，而所有的这一切总会与各种严重犯罪活动紧密的联合在一起。
+that we’re facing national security issues,
+我们正面临国家安全的问题
 
-服务黑暗集团的去中心化的虚拟数字币，随着正义势力的觉醒和胜利必将失去其被黑暗势力利用的特性，之所以被追逐完全是因为可以服务于暗黑势力，失去利用价值必被市场抛弃，所以不具任何实际价值。以比特币为首的所有去中心化的虚拟货币”凉凉”是必走之路。
+like cyber security, right
+像网络安全，对吧？
 
-新中国联邦的喜马拉雅币却将是一枝独秀最受世界追捧的真正的虚拟货币，它拥有所有虚拟币的特点还具备其它虚拟货币不具备的优点，首先是目前唯一锚定黄金具有实体价值的虚拟币；第二它是中心化的反洗钱和反犯罪的虚拟币；第三它具备市场自由流通，具有投资价值的货币；第四可随时自由兑换喜马拉雅元，而喜马拉雅元1：1锚定美元与美元共生。不与任何法定货币冲突；第五总共1000亿个币的发行量。可持续发行100年，永久发展；第六只要合法资金，不受任何地点，任何时间，任何空间的限制完全自由兑换，流通。所以以比特币为首的服务黑暗集团的所有去中心化的虚拟货币没落之时，也就是我们喜马拉雅币冉冉升起之时。
+these is immediate things that are happening
+这些是正在发生的直接事情
 
-编审：吃货先生
+we assign them we know like JBS attack Russian-speaking afters
+我们指定他们，我们知道像JBS的攻击
+说俄语的后生们
 
-发稿：Shuang
+nothing happens
+什么也没有发生
+
+I think it’s fair to say out of China or Russia, without those governments knowing
+我认为公平地说
+没有中共国或俄罗斯的政府不知道的情况
+
+what is what is your sense of what is the most urgent situation here now?
+你觉得现在这里最紧急的情况是什么?
+
+and if we are responding properly
+如果我们正确应对
+
+how do things look to you？
+你觉得事情看起来怎样？
+
+Bill Gertz
+比尔·格茨
+
+oh well things are fairly dire
+好的，事情相当糟糕
+
+I would say the greatest national security threat facing the United States
+我想说美国面临的最大国家安全威胁
+
+is the genocidal communist nuclear-armed Communist dictatorship in Beijing
+是北京的共产种族灭绝
+核武器武装下的共产主义专政
+
+I think that this overshadows all of the other threats they were facing and there are a threat
+我认为它大过了所有其他威胁
+
+they were facing and there are a threat
+他们正面临和有的威胁
+
+you mentioned cyber and other things
+你提到的网络攻击和其他的事情
+
+but I think dealing with the threat from China
+但我认为应对来自中共国的威胁
+
+is really our number one priority
+确实是我们的首要的任务
+
+China is on the march around the world
+中共国正在向全世界进军
+
+Chinese supreme leader Xi Jinping has announced the China dream
+中共的最高领导人习近平宣布了中国梦
+
+which I call the China Nightmare
+我称之为中共国噩梦
+
+and it’s basically to take over the world
+基本上就是要接管全世界
+
+that China will become the dominant power
+中共国将成为主导力量
+
+in order to do that they have to defeat the United States
+为了做到这一点，他们必须打败美国
+
+and ultimately they are working behind the scenes
+最终，他们在幕后努力
+
+to divide our country to corrupt every segment of the society
+分裂我们的国家以腐蚀社会的各个部分
+
+Chinese money has infiltrated every segment
+中共的资金已渗透到各个领域
+
+from Academia to government to the business Community to the entertainment industry
+从学术界到政府到商界再到娱乐业
+
+Tammy Bruce
+塔米布鲁斯
+
+This is my point to Senator Cotton is
+这是我对参议员科顿的观点是
+
+that congress doesn’t seem to be
+那个国会似乎不是
+
+and of course there are things happening behind the scenes
+当然还有幕后发生的事情
+
+We don’t know every single thing happening
+我们不知道发生的每一件事
+
+This been going on it’s been appeared
+这一直在出现
+
+we now have of course we had a President
+我们现在有当然我们有过一位总统
+
+Who China was respectful of and afraid of
+是中共国尊重的和害怕的总统
+
+which is where you want China is to be afraid of the American president
+我们希望看到中共害怕美国总统的情况
+
+and now we have one who seems to be doing things to assist them
+现在我们有一个似乎正在做一些事情来帮助他们
+
+in a certain sense at least a placate them
+在某种意义上至少是安抚他们
+
+do you think Joe Biden is a part of the problem
+你认为乔拜登是其中麻烦的一部分吗？
+
+are the Democrats deliberately stepping away from this
+民主党是不是故意回避这个？
+
+do they just not see it for some reason
+他们是不是因为某种原因没有看到它？
+
+Bill Gertz
+比尔·格茨
+
+well as you mentioned
+好的，如你提到的
+
+the Trump Administration made a revolutionary shift in policy towards China
+川普政府对华政策发生革命性转变
+
+it was basically saying that the emperor has no clothes
+基本上是说戳穿了中共国皇帝没穿衣服的谎言
+
+and we have this major threat that’s stealing our jobs
+我们有这个主要威胁，中共正在窃取我们的工作
+
+undermining our country
+破坏我们的国家
+
+That policy still in a place in effect
+该政策现在仍然有效
+
+in kind of an autopilot right now
+现在类似于一个自动驾驶的状态
+
+but the Biden administration has many of the officials
+但拜登政府有很多的官员
+
+who have been corrupted by Chinese money
+被中共的钱所腐蚀了
+
+whether that’s at the highest levels of the White House
+无论是在白宫的最高层
+
+even the DNI (Director of National Intelligence)has been infiltrated with this Chinese mon-ey
+就连国家情报总监(DNI)也被这些中共的钱渗透了
+
+we got decouple from China
+我们要与中共国脱钩
+
+I think that’s the first steps
+我认为那是第一步
+
+we’ve got to take a look at this threat
+我们必须看看这个威胁
+
+and we’ve got to be realistic about how to address
+我们必须实事求是地解决
+
+Tammy Bruce
+塔米布鲁斯
+
+Yeah, those are good points
+是呀，那些是很好的观点
+
+Because this is about impact the money
+因为这是关于金钱的影响
+
+as we have seen in this country
+正如我们在这个国家看到的
+
+You can find people to do whatever it is you want them to do
+你可以找人做你想让他们做的任何事
+
+and it’s just people think oh China just like
+而只是人们想到中共国就像是
+
+who wants to really take over the world that’s impossible
+真正接管这个世界那是不可能的
+
+Oh no, they really think they really can
+哦不，他们真的认为他们真的可以
+
+And they’re been busy in the midst of the pandemic
+他们在大流行中很忙
+
+they’ve landed on Mars
+他们登陆火星
+
+I mean they’ve done that
+我的意思他们已经完成了火星登陆
+
+they’re continuing on with the rest of the work
+他们正在继续进行其余的工作
+
+they don’t seem to be worried about thing.
+他们似乎并不担心事情
+
+Bill Gertz
+比尔·格茨
+
+Well, the Chinese space weapons threat is probably one of the most dangerous military threats
+是呀，中共国太空武器威胁可能是美国正在面临的
+
+that the United States is facing
+最危险的军事威胁之一
+
+China has developed several different types of anti satellite weapons,
+中共国研制了几种不同类型的反卫星武器
+
+they have the ability right now
+他们现在有能力
+
+to knock out satellites at almost every orbit.
+摧毁几乎所有轨道上的卫星
+
+That’s hide or geosynchronous satellites are medium and low orbit.
+那是隐藏或与地球同步的中低轨道卫星
+
+US is catching up with its space defenses and spacing offense
+美国正在追赶其太空防御和太空进攻的步伐
+
+Tammy Bruce
+塔米布鲁斯
+
+Thank goodness,
+谢天谢地
+
+thank goodness for the for Trump starting up the Space Force,
+感谢川普开始了天空军
+
+we know that was needed, sir.
+我们知道这是需要的，先生
+
+Thank you very much your work at the Washington Times,
+非常感谢你在华盛顿时报所做的工作
+
+Bill Gertz thanks for being with me.
+比尔·格茨感谢你接受采访
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接: [https://video.foxnews.com/v/6257856328001#sp=show-clips](https://video.foxnews.com/v/6257856328001#sp=show-clips)
+
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场- 银龙
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

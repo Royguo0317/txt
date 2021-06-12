@@ -1,305 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 比尔·格茨：中共国的太空武器计划是美国面临的最危险威胁
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1316255/)
+## 郭先生0611V盖特LOGO创意经画家和CC哏屁之手终现神奇
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1316507/)
 
-**字幕内容：**
+据[6月12号文贵直播：新盖特，盖特Pay将是全球的领导者；爆料革命不要急功近利，任何时候都要无我；爆料革命，新中国联邦，法治基金，将永远在我们的生命之上，成为我们的信仰！](https://gtv.org/video/id=60c372d08ce6da73c4192a2d) 时间点7：06——
 
-Tammy Bruce (Foxnews host)
-塔米布鲁斯（福克斯新闻主持人）
+前天、昨天、现在、今天一大早上，我们的波波都已经出去在工作了，刚才一大早上让我给臭骂了一顿，是吧？为什么知道吗？中国某个最牛的艺术家、画家，当时我跟他沟通，我说我们要把盖特设计成这样一个Logo，我说这是我的想法，他说“文贵呀，你这个想法太妙了。但是我都马上随时都归天的人了”，他说，“我给你画一幅画”。三十分钟以后给我传过来，画了一幅画。
 
-Washington Times national security correspondent Bill Gertz
-华盛顿时报国家安全记者比尔·格茨
+Wow，哇噻…这中国真是有人才，这个画家就把我的想法一下子给表达出来了，这幅画未来绝对是震撼的啊，绝对是震撼的，绝对是，绝对是震撼的啊——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12022404/LOGO_%E5%89%AF%E6%9C%AC.png)
+把我的意思啪的全表达出来了，我说这个暗影，黑、白、红，我就把这个想法呢就跟我们的国旗设计师，背后的是，这个背后的国旗的总设计师是郭文贵，无容置疑的，这四十九个星是我设计，七星是我设计的，把它组合到一起最重要的人叫CC嗝屁，参与者是其中的文房四宝还有很多设计师，但是里面的组织者叫文喜，七哥，文喜爱七哥叫文喜。
 
-Bill, it’s great to see you
-比尔, 很高兴见到你
+那么这个设计呢我就告诉了CC嗝屁，我说你帮我把这个想法怎么做一下，你说他连照片他都没看，这画，第二天叭的就给我传回来了，传过来我一看，我吓的，真的是吓的我崩的一下子，你知道吗？
 
-I always read your work
-我一直在读你的作品
+哇噻，这个CC嗝屁也太牛了吧，就把我心中那种想法，七哥是天才设计师，他不会具体设计呀，这个CC嗝屁绝了。我拿过来，我第一时间我就给了我们合作者的他的闺女看，我说你看看啊，你爹这个形象咋样？立马打电话过来——“Miles，谁设计的？” 我说了我的想法，然后具体完成CC嗝屁。
 
-It is very insightful and you’re very busy these days
-文章很有见地并且你这几天很忙
+哇，她说这是我前所未有的看到他最好的一个照片，哇，她说这个将改变世界，这个了不得了。啊…她就兴奋了，是吧。哎呀，我同时给她发的时候，我给另外三人也发过去了，这三人回复说，哇，了不得，了不得了，其中一个就是家族基金。
 
-what’s going on but I want to pick up with you this dynamic
-最近发生了什么？但我想和你一起了解这个动态
+这个家族基金关于给工程师奖励G-TV股票，到现在都不太愿意，说你是个疯子，你怎么能给工程师奖励10亿股股票啊？G-TV当年才20亿股，你现在新G-TV你要给他10亿股，你是个人类的疯子，没有这样的疯子。
 
-as we’ve been discussing the wuhan lab dynamic
-正如我们一直在讨论武汉实验室动态
+我就告诉他很清楚，我说你要让这些工程师永远没有忧虑的在这工作。我说你看Facebook、推特、所有这些人将面临着巨大的诉讼，就是关于疫苗、关于羟氯喹、关于病毒、甚至关于美国大选。
 
-the Fauci emails and the other issues
-福奇的电子邮件和其他问题
+因为美国人一定会告他的这些人，不让吃羟氯喹的人和当初阻止传播羟氯喹的人都会被告的，包括这个什么CNN、福克斯，福克斯我听说现在，CNN最害怕的是这些人诉讼他，是吧？我说他这些媒体出问题了，就剩下了咱们这个平台了嘛，是吧，就这个平台了吧，是吧，就那个平台了嘛，盖特，是吧，还有G-TV吧，还有G-News吧。
 
-that we’re facing national security issues,
-我们正面临国家安全的问题
+我说这些工程师都富有了，我们要接下来的事情最核心的秘密，我说你看，原来在Alipay，阿里巴巴的Ailpay的所谓百人精英小组，马云吹过牛，我这100人只要在，我走到全世界走到任何地方，给我三个月我就有一个Ailpay。大家不要忘了，Ailpay就是支付宝，就是支付宝所有这些东西它都是一个基于银行的支付系统而已，收支系统，它并没有任何代码的加密，就是区块链的加密，它并没有任何高新的技术，它要离了共产党的银行它屁都不是。
 
-like cyber security, right
-像网络安全，对吧？
+所以共产党就在中国国内就是关上门打狗，把马云扔到屋里去，好好想，头一星期还给人家讲故事，第二星期就见谁都磕头，马云，是吧。头一星期啥都不吃，还打坐，听说一星期以后，给啥啥都吃，说吃这些过敏的东西给他以后他都吃，然后人家让他蹲在地上吃，是吧？他都吃，最后几个月放出来的时候说，没有任何东西不吃的，没有什么事可以不干的，只要活着，是吧，为什么呀？因为他的银行在共产党手里掐着呢。你身体肉身在墙内呢，弄死你、弄残你、虐待你，让你当狗就当狗，让你当人就当人，还有银行把你关了不就完了吗？一个银监会就把你收拾了。
 
-these is immediate things that are happening
-这些是正在发生的直接事情
+所有未来G系列的G支付、喜美元是横跨世界，没人可以把它搞掉，我现在可以负责任的告诉你，几大银行——永远不可能倒闭的银行，就是整个它的支撑者。还有一个，它用的是区块链，这个支付的叫区块链支付技术，没有人可以破解，它所有的法律结构是横跨世界十几个国家，没有一个国家说了算，是吧？所以这个系统是完美的。
 
-we assign them we know like JBS attack Russian-speaking afters
-我们指定他们，我们知道像JBS的攻击
-说俄语的后生们
+关键问题，你Ailpay也好、支付宝也好，跟你屁没关系，你只是个支付平台，是吧？还有钱包什么的，但是未来的喜美元，它是什么？大家知道它是跟美金直接挂钩，它就是美金，未来还有跟日元、法元、任何元需要的挂钩，更重要的事情，包括它的虚拟币，它是跟20%的黄金挂钩的，人类没有一个，还有它的储备系统。
 
-nothing happens
-什么也没有发生
+如果今天你们要知道喜美元有多少钱进去了，我今天跟你们说完以后，你们所有人都不再看直播了，你们都得出去光着腚跳舞去了，绝对光腚跳舞去了，绝对光腚跳舞去了，就不跟你们说了。
 
-I think it’s fair to say out of China or Russia, without those governments knowing
-我认为公平地说
-没有中共国或俄罗斯的政府不知道的情况
+那未来最大的就是阿里巴巴、Ailpay、支付宝的这几个所谓百人君子，多人，我告诉你，不少于这些人——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12022521/%E5%A4%A7%E5%8E%A6.png)
+已经逃出墙内在我们的团队工作，在我们工程师团队里，在一个秘密的地方秘密的工作，我们有5个小组在工作。
 
-what is what is your sense of what is the most urgent situation here now?
-你觉得现在这里最紧急的情况是什么?
+所以我告诉投资委员会，我说你们不投这些人，你投谁呀？今天你觉得10亿是大钱，过几年以后你要把它成功做到，你就觉得10亿就是个笑话，对你们投资者来讲就是很小的钱。
 
-and if we are responding properly
-如果我们正确应对
+我说你们外国人啊，总是想拿到钱再花钱，我说我们先给别人、先给别人、先给予，所以我发了这个照片以后，就这一张照片的力量，大家要记住啊。其中一个荷兰人激动到不行，说就看这张照片，他说这个了不得，这个事太大了，他说我同意你给工程师这个激励、奖励。
 
-how do things look to you？
-你觉得事情看起来怎样？
+我们有两个特别差的律师，就永远啥事都说不好，永远是消极——哎呀，这个不行、这个副作用太大。但是就是这件事上，哇噻，他积极到简直不行了，全面参与，主动参与，他认为这个是了不得的大事。我先具体不说过一段再讲，大家会看到。
 
-Bill Gertz
-比尔·格茨
+接上文——
 
-oh well things are fairly dire
-好的，事情相当糟糕
+[郭先生0611I爆料革命的战友无处不在,丽丽素面推介七哥](https://gnews.org/zh-hans/1316297/)
 
-I would say the greatest national security threat facing the United States
-我想说美国面临的最大国家安全威胁
+[郭先生0611II打服未来舅哥遇闺中七嫂，烧鸡是七嫂祖传秘制](https://gnews.org/zh-hans/1316344/)
 
-is the genocidal communist nuclear-armed Communist dictatorship in Beijing
-是北京的共产种族灭绝
-核武器武装下的共产主义专政
+[郭先生0611III重要的话说三遍：珍惜你的每一股G-TV股票](https://gnews.org/zh-hans/1316390/)
 
-I think that this overshadows all of the other threats they were facing and there are a threat
-我认为它大过了所有其他威胁
+[郭先生0611IV秘密战友将做成的事情会使喜系列战友横行天下](https://gnews.org/zh-hans/1316486/)
 
-they were facing and there are a threat
-他们正面临和有的威胁
+编辑整理——
 
-you mentioned cyber and other things
-你提到的网络攻击和其他的事情
+多伦多枫叶农场：Winner为自由而战（文祥）
 
-but I think dealing with the threat from China
-但我认为应对来自中共国的威胁
+伦敦喜庄园：万物归一
 
-is really our number one priority
-确实是我们的首要的任务
+校对整合——
 
-China is on the march around the world
-中共国正在向全世界进军
+洛杉矶天使农场：文琪🌹
 
-Chinese supreme leader Xi Jinping has announced the China dream
-中共的最高领导人习近平宣布了中国梦
+发布——
 
-which I call the China Nightmare
-我称之为中共国噩梦
-
-and it’s basically to take over the world
-基本上就是要接管全世界
-
-that China will become the dominant power
-中共国将成为主导力量
-
-in order to do that they have to defeat the United States
-为了做到这一点，他们必须打败美国
-
-and ultimately they are working behind the scenes
-最终，他们在幕后努力
-
-to divide our country to corrupt every segment of the society
-分裂我们的国家以腐蚀社会的各个部分
-
-Chinese money has infiltrated every segment
-中共的资金已渗透到各个领域
-
-from Academia to government to the business Community to the entertainment industry
-从学术界到政府到商界再到娱乐业
-
-Tammy Bruce
-塔米布鲁斯
-
-This is my point to Senator Cotton is
-这是我对参议员科顿的观点是
-
-that congress doesn’t seem to be
-那个国会似乎不是
-
-and of course there are things happening behind the scenes
-当然还有幕后发生的事情
-
-We don’t know every single thing happening
-我们不知道发生的每一件事
-
-This been going on it’s been appeared
-这一直在出现
-
-we now have of course we had a President
-我们现在有当然我们有过一位总统
-
-Who China was respectful of and afraid of
-是中共国尊重的和害怕的总统
-
-which is where you want China is to be afraid of the American president
-我们希望看到中共害怕美国总统的情况
-
-and now we have one who seems to be doing things to assist them
-现在我们有一个似乎正在做一些事情来帮助他们
-
-in a certain sense at least a placate them
-在某种意义上至少是安抚他们
-
-do you think Joe Biden is a part of the problem
-你认为乔拜登是其中麻烦的一部分吗？
-
-are the Democrats deliberately stepping away from this
-民主党是不是故意回避这个？
-
-do they just not see it for some reason
-他们是不是因为某种原因没有看到它？
-
-Bill Gertz
-比尔·格茨
-
-well as you mentioned
-好的，如你提到的
-
-the Trump Administration made a revolutionary shift in policy towards China
-川普政府对华政策发生革命性转变
-
-it was basically saying that the emperor has no clothes
-基本上是说戳穿了中共国皇帝没穿衣服的谎言
-
-and we have this major threat that’s stealing our jobs
-我们有这个主要威胁，中共正在窃取我们的工作
-
-undermining our country
-破坏我们的国家
-
-That policy still in a place in effect
-该政策现在仍然有效
-
-in kind of an autopilot right now
-现在类似于一个自动驾驶的状态
-
-but the Biden administration has many of the officials
-但拜登政府有很多的官员
-
-who have been corrupted by Chinese money
-被中共的钱所腐蚀了
-
-whether that’s at the highest levels of the White House
-无论是在白宫的最高层
-
-even the DNI (Director of National Intelligence)has been infiltrated with this Chinese mon-ey
-就连国家情报总监(DNI)也被这些中共的钱渗透了
-
-we got decouple from China
-我们要与中共国脱钩
-
-I think that’s the first steps
-我认为那是第一步
-
-we’ve got to take a look at this threat
-我们必须看看这个威胁
-
-and we’ve got to be realistic about how to address
-我们必须实事求是地解决
-
-Tammy Bruce
-塔米布鲁斯
-
-Yeah, those are good points
-是呀，那些是很好的观点
-
-Because this is about impact the money
-因为这是关于金钱的影响
-
-as we have seen in this country
-正如我们在这个国家看到的
-
-You can find people to do whatever it is you want them to do
-你可以找人做你想让他们做的任何事
-
-and it’s just people think oh China just like
-而只是人们想到中共国就像是
-
-who wants to really take over the world that’s impossible
-真正接管这个世界那是不可能的
-
-Oh no, they really think they really can
-哦不，他们真的认为他们真的可以
-
-And they’re been busy in the midst of the pandemic
-他们在大流行中很忙
-
-they’ve landed on Mars
-他们登陆火星
-
-I mean they’ve done that
-我的意思他们已经完成了火星登陆
-
-they’re continuing on with the rest of the work
-他们正在继续进行其余的工作
-
-they don’t seem to be worried about thing.
-他们似乎并不担心事情
-
-Bill Gertz
-比尔·格茨
-
-Well, the Chinese space weapons threat is probably one of the most dangerous military threats
-是呀，中共国太空武器威胁可能是美国正在面临的
-
-that the United States is facing
-最危险的军事威胁之一
-
-China has developed several different types of anti satellite weapons,
-中共国研制了几种不同类型的反卫星武器
-
-they have the ability right now
-他们现在有能力
-
-to knock out satellites at almost every orbit.
-摧毁几乎所有轨道上的卫星
-
-That’s hide or geosynchronous satellites are medium and low orbit.
-那是隐藏或与地球同步的中低轨道卫星
-
-US is catching up with its space defenses and spacing offense
-美国正在追赶其太空防御和太空进攻的步伐
-
-Tammy Bruce
-塔米布鲁斯
-
-Thank goodness,
-谢天谢地
-
-thank goodness for the for Trump starting up the Space Force,
-感谢川普开始了天空军
-
-we know that was needed, sir.
-我们知道这是需要的，先生
-
-Thank you very much your work at the Washington Times,
-非常感谢你在华盛顿时报所做的工作
-
-Bill Gertz thanks for being with me.
-比尔·格茨感谢你接受采访
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://video.foxnews.com/v/6257856328001#sp=show-clips](https://video.foxnews.com/v/6257856328001#sp=show-clips)
-
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场- 银龙
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+喜马拉雅日本银河系农场：山川异域
 
 0

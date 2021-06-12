@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】塞林博士：主流媒体一直在掩盖病毒的实验室起源
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1316024/)
+## 广船鹤园小区业主全部送走隔离
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1316304/)
 
-6/5/2021 塞林博士：主流媒体从一开始就在一直掩盖病毒的实验室起源。我们必须非常仔细地审视，自这场大流行开始以来，他们所从事的活动可能存在的犯罪行为。
+当地男子现场报道广船鹤园小区业主全部送走隔离，现场多辆隔离接送车辆排队拥堵，人满为患。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
