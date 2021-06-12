@@ -1,20 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】6/11/2021早：美英宣布将签订《新大西洋宪章》 凸显美英坚决对抗中共的立场
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1317064/)
+## 《路德社》精选新闻简讯：拜登政府推出2万亿美元基建计划
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1317020/)
 
-编辑：华盛顿DC农场 路德简报项目组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12075836/2021-6-11-3-scaled.jpg)
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12075616/image002-8.jpg)
 
-> 2021 年6月11日 路德时评 早 
-> 
-> 1. 美英宣布将签订《新大西洋宪章》 凸显美英坚决对抗中共的立场 
-> 
-> 2. 《新大西洋宪章》是新世纪的反法西斯同盟宣言 对抗以中共为代表的新纳粹邪恶轴心国 [pic.twitter.com/CKsHKv99CM](https://t.co/CKsHKv99CM)
-> — 平民爆料 (@WM18320321) [June 12, 2021](https://twitter.com/WM18320321/status/1403548175114375172?ref_src=twsrc%5Etfw)
+乔拜登总统推出了一项规模高达 2 万亿美元的基础设施和就业计划。该计划包括用于修复老化的道路和桥梁、启动交通项目以及重建学校建筑和医院。它还将扩大电动汽车，更换所有铅管，并检修国家的供水系统。拜登还希望将美国跨国公司的最低税率提高到 21%。该提案分为四个主要领域，包括交通、住房和家庭生活质量、研究和教育。
 
 
+
+[原文引用](https://www.usatoday.com/in-depth/news/politics/2021/04/01/2-trillion-infrastructure-bill-charts-detail-bidens-plan/4820227001/)
+
+本文作者：Rebecca (一切心皆不可得 ! )
+
+审核校对：sherryok (水云间)
+
+上传排版：糊糊文婴
 
 0

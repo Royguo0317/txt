@@ -2,7 +2,7 @@
 ---
 
 ## 关于中国维族穆斯林遭中共酷刑的最新资料
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1316925/)
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1316936/)
 
 - 作者：葛大饼
 
@@ -47,6 +47,4 @@ NPR（全国公共广播电台） 的All Things Considered（万事皆晓栏目�
 
 [欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-
-
-0
++1

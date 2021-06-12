@@ -1,26 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国疾病控制和预防中心计划召开关于疫苗后罕见心脏炎症的“紧急会议”
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1316907/)
+## 光影传镜：为人“尸”表之李钰
+` 喜马拉雅光影传镜` [轉載自GNews](https://gnews.org/zh-hans/1316795/)
 
-翻译 : 康州盘古 – 郭班之樱
-校对 : 康州盘古 – 格格巫
-审核 : 康州盘古 – 格格巫
-发布 : 康州盘古 ‑ 恩典
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12060519/967.jpg)
-**亚历山大·锡在CBS新闻于2021年 6 月 10 日 报道：**
-美国疾病控制与预防中心（CDC）周四宣布，将在 6 月 18 日召开顾问 “紧急会议”，讨论在接种了基于 mRNA 的辉瑞（Pfizer）和 莫德纳（Moderna） 的COVID-19疫苗后出现的罕见但又高于预期的心脏炎症报告。
-CDC周四披露，到目前为止，该机构已经确定了 226 份报告，这些报告可能符合该机构对注射后心肌炎和心包炎的“工作病例定义”。 绝大多数人已经康复了，但 41 人还有症状，15 人仍在住院，而且还有3 人在重症监护室。这些报告仅代表已完全接种辉瑞或莫德纳疫苗的近 1.3 亿美国人当中的一小部分而已。
-CDC 疫苗安全官员汤姆·岛袋博士警告提示：“这有点像苹果与橙子的比较（两个完全不同的东西，根本无法比较），因为这些都是初步的报告，并不是所有的这些都是会变成真正的心肌炎或心包炎的报告。”
-岛袋说，他们的发现与今年早些时候以色列研究过的，以及从美国国防部报告过的罕见的心脏炎症病例的报告，大体上“一致”。他说，CDC赶在下周自己的顾问召开紧急会议之前，正在对报告进行更多数据分析，并计划分析因感染 COVID-19 而引起的心脏炎症的风险。
-关于心肌炎和心包炎的新细节，首先在美国食品和药物管理局独立顾问小组的介绍中出现了，他们将于周四开会讨论监管机构应如何处理在年幼儿童中接种 COVID-19 疫苗的紧急使用权。上个月，在年仅 12 岁的美国人获得 COVID-19 疫苗的紧急使用授权后，辉瑞公司本周宣布已决定在年仅 6 个月大的儿童的临床试验中使用的剂量，并希望通过以下方式在十月前提交数据。 莫德纳周四表示也已经向美国食品和药物管理局（FDA ）请求批准向青少年提供其 mRNA 疫苗。虽然辉瑞表示他们希望在 9 月之前完成对 2 岁儿童的试验，但 FDA官员此前曾告示，对这些年龄组的疫苗批准可能需要长一点的时间，最早会是秋季的中后期 ，这里引用了儿童接受注射后所需的额外随访数据。FDA疫苗办公室的高级官员多兰·芬克（Doran Fink ）博士说：“我们认识到一些不良反应，例如今天早些时候所讨论的心肌炎或心包炎，可能是太罕见而在典型规模的安全数据库中检测到，无法作为许可前临床试验数据
-CDC此前披露，心脏炎症的报告主要发生在第二次（COVID-19 疫苗）注射后的年轻男性和十几岁的男孩身上，并且曾有报告，在 16 至 24 岁的人群中“观察到的病例数高于预期”。 上个月，CDC敦促医疗人士对有心脏炎症症状的患者“询问先前的 COVID-19 疫苗接种情况”。
-FDA 疫苗办公室主任玛丽恩·格鲁伯（Marion Gruber） 博士在会议上说：“在确定是否向健康的儿科个体颁发使用 COVID-19 疫苗的紧急使用授权的风险收益时，需要考虑这些信息，而且风险收益考虑可能会不同，不仅与成年人对比，对于年轻和年龄大一点的儿科群体来说，它们也可能有所不同”。
-原文链接：[https://www.cbsnews.com/news/covid-19-vaccine-myocarditis-heart-inflammation-cdc/?ftag=CNM-00-10aab7e](https://www.cbsnews.com/news/covid-19-vaccine-myocarditis-heart-inflammation-cdc/?ftag=CNM-00-10aab7e)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+编辑：喜马拉雅光影传镜
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+6月11日闫博士做客路德节目，讲到了她从香港逃离到美国的故事，过程惊心动魄，让人感叹！在闫博士逃离香港的过程中，爆料革命在香港的战友付出巨大牺牲，全力的配合，最终让闫博士逃出生天。与之鲜明对比的是闫博士的“表面姐妹”，实则是中共大外宣的一份子的李钰老“尸”。本来与闫博士关系还不差的她，在闫博士出逃之后，在朋友圈宣布她可能“刑事犯罪”，威胁闫博士的好友交出通讯记录上交国安，并且诱骗闫博士希望她返回香港或者让闫博士的老公“马狠”来美国相聚。今天我们光影传镜节目来好好欣赏一下李钰“老尸”的“美照”，送她出道！
+
+李钰“老尸”在香港福建中学任职，主要从事文体工作，并且在学校委员会有职位
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12053808/WhatsApp-Image-2021-06-12-at-13.17.23.jpeg)
+近距离“美照”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12053843/WhatsApp-Image-2021-06-12-at-13.17.22-2.jpeg)
+在教职工联谊会上“美丽的笑容”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12053959/WhatsApp-Image-2021-06-12-at-13.17.22-1.jpeg)
+研发“社会主义核心价值观”中小学课程
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12054139/WhatsApp-Image-2021-06-12-at-13.17.22-4.jpeg)
+前往新加坡参加活动
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12054234/WhatsApp-Image-2021-06-12-at-13.17.22.jpeg)
+带学生到湖南交流
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12054526/WhatsApp-Image-2021-06-12-at-13.17.23-1.jpeg)
+李钰“老尸”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12054655/WhatsApp-Image-2021-06-12-at-13.17.23-2.jpeg)
+“运动健将”李钰
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12054807/WhatsApp-Image-2021-06-12-at-13.17.23-3.jpeg)
+打入“敌人”内部的李钰“同志”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12055100/WhatsApp-Image-2021-06-12-at-13.17.23-4.jpeg)
+风华正茂的香港学生，被这样的“老尸”毒害
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12055210/WhatsApp-Image-2021-06-12-at-13.17.23-5.jpeg)
+李钰代表的其实就是一批人，也许处在相对自由的地方，也许有着体面的工作，却为了一点点名利出卖人格，甘愿与独裁恐怖政权为伍。他们为了自己的私利出卖了香港的法治自由，可是当到了香港真的沦陷的那一天，他们自己的那点私利也没人保护了。
+
+**\*栏目长期征集战友原创摄影作品；原创绘画作品；原创精彩视频作品。**
+
+审核：玫瑰天空
+
+发布：喜马拉雅摄影师
 
 0
