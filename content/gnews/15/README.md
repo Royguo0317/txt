@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】塞林博士：主流媒体一直在掩盖病毒的实验室起源
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1316024/)
+## 【粤语配音】战斗室：彼得·打杂客2016年亲述如何制造致命病毒
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1316256/)
 
-6/5/2021 塞林博士：主流媒体从一开始就在一直掩盖病毒的实验室起源。我们必须非常仔细地审视，自这场大流行开始以来，他们所从事的活动可能存在的犯罪行为。
+战斗室6月8日播放彼得·打杂客于2016年2月23日大流行病主题论坛上视频片段。打杂客在回答问题时提到，他在中国的同事们如何制造致命病毒。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
