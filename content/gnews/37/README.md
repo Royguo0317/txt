@@ -1,23 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：先生，请回答死难者的问题！请回答60万人的问题！
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1315727/)
+## 【热点播报】疫苗安全性再起疑云&#8212;-疫苗全接种邮轮乘客测出新冠阳性
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1315812/)
 
-**– 克里斯.雷宣誓后，继续就联邦调查局关于冠状病毒的信息撒谎，史蒂夫-班农暴怒了**
+作者： 纽约香草山媒体部 7bends
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11201542/image002-5.jpg)
-联邦调查局局长克里斯·雷（Chris Wray）就他对中共冠状病毒的了解向美国公众撒了谎。 去年，中国病毒学家闫丽梦博士逃到西方，并将她的手机交给了联邦调查局。 该机构已经掌握了这些信息一年多了！ 众议员马特·盖茨（R-FL）今天在众议院委员会听证会上对雷进行了拷问。 史蒂夫班农播出了雷的证词以及他与众议员盖茨的交流。他愤怒指出，雷向美国人民撒谎，他必须回答中共病毒死难者对他的追问，而不是说“无可奉告”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
 
 
 
-[原文引用](https://www.thegatewaypundit.com/2021/06/answer-sir-dead-answer-600000-steve-bannon-explodes-wray-continues-lie-oath-fbis-information-coronavirus-video/)
 
-本文作者：Rebecca (一切心皆不可得 ! )
 
-审核校对：sherryok (水云间)
+据[Breaking 911](https://breaking911.com/2-passengers-on-first-fully-vaccinated-north-american-cruise-test-positive-for-covid/)报导，北美首艘全员完全接种疫苗的“名人千禧”游轮上的两名乘客被查出新冠阳性。名人千禧 6月10日发布声明称，两名同一客舱的船上乘客，在进行所要求的巡航测试结束时，被验出新冠病毒呈阳性。这两名测试呈阳性的乘客目前没有症状，正处于隔离状态并由船上的医疗队进行监测。所有密切接触者都会被追踪并加紧检测。
 
-上传排版：糊糊文婴
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11210705/171.jpg)
 
-0
+由于“名人千禧”上的所有船员和乘客都被要求完全接种疫苗，并且必须在登船启航前的72小时内出示新冠疫苗接种后检测呈阴性的证明，所以这次事件格外令人担忧疫苗的有效性和安全性。
+
+现有的新冠疫苗并非传统意义上的疫苗。正在应用推广的几种所谓疫苗都是在还未搞清楚病毒起源，对病毒本身以及变异情况尚缺乏深入了解时，就匆忙开发出来带有实验性质的、本不该被广泛推广的临时疫苗。而无良主流媒体和利益集团却一再误导民众，大肆推广疫苗。接触不到真实信息的普通大众沦为利益集团的牺牲品和试验品。
+
+从去年主流媒体一边倒地指责爆料革命提出的“病毒来源于实验室”为阴谋论，到今年“病毒来源于实验室”的事实被越来越多的人认可；从去年有良知的医生用羟氯喹挽救无数生命却面临被解雇吊销医疗执照的风险，到今年羟氯喹被悄悄松绑。事实一再证明爆料革命信息的超前性和准确性。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+
+
+
+
+
++1

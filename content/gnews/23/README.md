@@ -1,63 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月11日美国政要推特精选：美国人需要知道冠状病毒的起源
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1315920/)
+## 【字幕视频】道德经 第一章
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1315932/)
 
-参议员迈克·布劳恩： 美国人需要知道冠状病毒的起源。 我已经追问过福奇博士、国家卫生研究院主任柯林斯和国务部长布林肯，为什么我们不将情报界的信息解密。 他们都没有一个好的答案为什么我们不应该有尽可能多的透明度。 （附福克斯新闻采访视频）
+作者/制作：香草山健身部 书记己嗝屁！ 
+配音：香草山健身部 冰虫夏语
 
-
-
-> Americans need an answer on COVID's origins.
-> 
-> I've pressed Dr. Fauci, NIH Director Collins, and Sec. of State Blinken on why we wouldn't declassify the info our intel community has. 
-> 
-> None of them had a good answer why we shouldn't have as much transparency as possible. [pic.twitter.com/uQ22JPQ5XT](https://t.co/uQ22JPQ5XT)
-> — Senator Mike Braun (@SenatorBraun) [June 11, 2021](https://twitter.com/SenatorBraun/status/1403417203756703745?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
 
-参议员霍利新闻办公室： 霍利告诉新闻社[@newspressnow](https://twitter.com/newspressnow)，在最近那些破坏性的电子邮件被公布后，是时候该福奇辞职了 “与参与或资助武汉病毒研究所研究的团体和科学家有通信，并积极试图隐瞒他们的参与。”
+
+> 道，可道也。非，恒道也。名可名也。非恒名也。无名 ，万物之始也；有名，万物之母也。故恒无欲也，以 观其眇；恒有欲也，以观其所徼。两者同出，异名同谓。 玄之又玄，众眇之门。
 
 
+老子破天荒提出“道”这个概念，作为自己的哲学思想体系的核心。它的涵义非常的博大精深。
 
-> Hawley told [@newspressnow](https://twitter.com/newspressnow?ref_src=twsrc%5Etfw) it's time for Fauci to resign after the recent release of damaging emails
-> 
-> "There's correspondence with groups and scientists who participated or funded research at the Wuhan Institute of Virology, and were actively trying to conceal their involvement." [pic.twitter.com/E1qoZq1Wew](https://t.co/E1qoZq1Wew)
-> — Senator Hawley Press Office (@SenHawleyPress) [June 11, 2021](https://twitter.com/SenHawleyPress/status/1403392610920767490?ref_src=twsrc%5Etfw)
+有人认为它是一种物质性的东西，是构成宇宙万物的元素；有的认为它是一种精神性的东西，同时也是产生宇宙万物的泉源。
 
+**“道”**（宇宙运行的规律）
+我们知道的“道”（规律），他们便不会是永恒不变的“道”（规律） (宇宙万物都是不断的在运动的，一颗恒星如果瘫塌成黑洞，就会从恒星运行的规律转化为黑洞运行的规律，所以“道”（规律）不会是永恒不变的)；
 
+**“名”**
+我们日常上所说的名，都是人为上给他定义的”(一只猩猩之所以叫猩猩，那是人为给他命名的，你无论叫他什么名字， 他本身的生物的属性便不会随着名字的改变而改变。你可以把猩猩叫成猴子，但“猩猩”的生物属性是不会改变的， “名”可以随着时间的变化，属性的变化，可以重新给他定义。所以我们知道的“名”也便非永恒不变的)。
 
-参议员詹姆斯·兰克福德： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的恶者故意试图压制或歪曲有关 COVID-19 及其传播的信息，需要对他们追责。今天，我与科顿参议员及其他共和党同事一起提出立法来制裁这些官员。 【附兰克福德参议员官网发布的新闻：兰克福德等提法案：李文亮全球公共卫生追责法案】
+**“无名”**可以用来表述天地浑沌未开之际的状况，也可用来表述宇宙万物在人类还没有给他命“名”时的运行规律（没有人为给他定义，人类还没有诞生， 但是规律却是客观存在的）；而“有”，则是宇宙万物产生之本原的命名，这种命名是人为给他定义的，而“有”却产生自“无”， “无”便不是表示不存在，而是人们从“无”的现象中发现了“有”。就好比黑洞才是最近几十年才让人们发现的。但它早就在这宇宙运行了上亿年了，在人类没发现前就表示黑洞不存在吗。 因此，要常从“无”中去观察领悟“有”的奥妙；要常从“有”中去观察体会“无”的端倪。
 
+无与有这两者，来源相同而名称相异，“有”和“无”二者这间的关系是非常微妙、深远，玄妙的。它不是一般的玄妙、深奥，而是玄妙又玄妙、 深远又深远。也是人类认识宇宙，探索宇宙，了解天地万物运行之奥妙的总门。
 
+这里老子用“有”和“无”方式阐述万物的由来和自身的规律，我们称之为**天道**。 天道有天道的规律。那人类社会的运行是否也要有自身的规律呢。 这点可以从孔子问道于老子中体现出老子对于人道的看法。
 
-> Bad actors in communist [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) who knowingly attempt to suppress or distort information about COVID-19 and how it spread need to be held accountable. Today, I joined [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & my GOP colleagues to introduce legislation to sanction those officials. 
->  [https://t.co/ewxUZnkeLy](https://t.co/ewxUZnkeLy)
-> — Sen. James Lankford (@SenatorLankford) [June 10, 2021](https://twitter.com/SenatorLankford/status/1403075745375653889?ref_src=twsrc%5Etfw)
+一次孔子对老子说，如今天下大乱，连年征战，导致农田荒废，百姓民不聊生。是否可以用周朝的礼制来约束它们的行为。 老子说，你所说的“礼”那是几百年前的东西，那些当初制定周礼的人到现在连骨头都烂了。 几百年前的东西怎么能解决当今的问题。 造成如今天下粉乱的局面是诸侯们的争霸之心导致的。 也是由人性当中的欲望，私欲造成的。而人性是复杂的。有恶的一面，也有善的一面。人性也是让人捉模不透的东西，也要制定相应制度去约束。 而人性也会随着事物的发展和观念的改变而发生变化。当人们认为什么是对的应该去做，什么不对不应该去做的时候，天下自然而然就到了不治之治的局面。 而你却妄想用“礼”的那一套观念来治理君王体制下的天下，那是根本不可能实现的。
 
+清政府也一样，抱着祖宗家法不可废的观念，遭到了当时人民的遗弃。
 
+现在也一样，当今的政府为了有效的剥削人民，控制人民，给人民灌输了错误的历史欢，价值观，世界观，和人生观。让不明真像和缺少独立思考的人信以为真。
 
-众议员迈克·华尔兹： （自由灯塔的编辑）康蒂内蒂[@Continetti](https://twitter.com/continetti)是绝对正确的，[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 掩盖COVID，应该取消 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 举办奥运会的资格。 再加上他们正在进行的种族灭绝、对台湾的威胁以及对香港和西藏的镇压。 [#抵制北京2022](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC2022?src=hashtag_click) 【附自由灯塔专栏文章：怎样让中共国付出代价】
+而这种观念的形成便不是人们内心真实的想法，是统治者为了自身的利益，故意给人们灌输的。 当人们知道真相后，不认可这种观念和这种治理下的制度的时候，人们自然而然也会选择遗弃你。 当全社会都没人认可这种观念的时候，甚至连维持自己统治的暴力机构军队都不认可政府的时候，那也是统治者到头的时候。
 
+这就是二千多年前老子提出的治国思想。无为而治，不加外力干预，让人们遵从自己的内心和本性，去制定他们认可的制度。 而这种制度也会随着观念的改变而作出相应的修改和完善，不然也会随着事物的发展跟不上时代而遭到的遗弃。
 
+总之，《道德经》是一本让人晦涩难懂的书。不同的人能看出不同的内容来。有人能悟出政治规律，军事规律，经济规律，也有人能悟出养生之道。五花八门，各种解释都有。汉代，唐代，更是拿道家思想去治国，成为中国历史上最强大的两个王朝。
 
-> .[@Continetti](https://twitter.com/continetti?ref_src=twsrc%5Etfw) is absolutely right that the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s coverup of COVID should disqualify China from hosting the Olympics. 
-> 
-> Add on their ongoing genocide, threats against Taiwan, and repressions against Hong Kong and Tibet. [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wNhzMP2YPf](https://t.co/wNhzMP2YPf)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 11, 2021](https://twitter.com/michaelgwaltz/status/1403383877356462081?ref_src=twsrc%5Etfw)
+（文章仅代表作者个人观点）
 
+校对/发稿：雪梨
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-前国务卿蓬佩奥： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 掩盖了武汉 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的传播。 如果你们想让本届政府要求回答，请转推。
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-> The Chinese Communist Party covered up the spread of the Wuhan virus. 
-> 
-> RETWEET if you want to see this administration DEMAND ANSWERS.
-> — Mike Pompeo (@mikepompeo) [June 11, 2021](https://twitter.com/mikepompeo/status/1403351027290673152?ref_src=twsrc%5Etfw)
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

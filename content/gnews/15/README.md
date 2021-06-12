@@ -1,63 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从【习近平爱读的书】到【马背英雄】
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315981/)
+## 今天的现场、明天的历史、未来的故事
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1316012/)
 
-作者：gokuabuela|校对：X-Wing|审核：Beicy-数学老师|Page：小雨
+作者：原乡人| 校对：X-Wing |审核：Beicy-数学老师 |Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/58390736-5f39-4847-80f2-d3fadace0a09.jpg?asset_id=65f8eaa2-111d-44aa-909f-3e1645323f7b&amp;img_etag=%226515b6e0b89c66008e9e31c5f87d0527%22&amp;size=1024)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/58390736-5f39-4847-80f2-d3fadace0a09.jpg?asset_id=65f8eaa2-111d-44aa-909f-3e1645323f7b&amp;img_etag=%226515b6e0b89c66008e9e31c5f87d0527%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11224947/1-25-3.jpg)
 
-日前，西班牙的媒体报道了世界领导人都喜欢看什么书。 西班牙首相喜欢看人物传记，例如【邱吉尔传】，【托尼·布莱尔传】等。奥巴马喜欢看反种族主义的书。乔·拜登则喜欢看爱尔兰诗歌。那么，习近平呢？文章说：“习近平自称看过很多中国、俄国和西方的名著，有一串长长的书单，尽管从来没有见他引用过任何内容”。 习近平最喜欢的书是：【主算法】（The master algorithm），这是比尔·盖兹推荐过的书，主要是讲述可以用人工智能的算法，以最有效的方式做出行政和政治决策。还有就是【金钱改变一切】和【智能生活】，而据称习近平最喜欢的书是【灰犀牛】——“如何认识我们所忽视的明显危险并采取行动”。这些书大部分都是属于美国的科普读物。
+2021年6月10日的路德时评（路艾冠谈嘉宾闫博士）节目，路德邀请闫博士亲口讲述2020年4月29日逃离香港前后的一系列惊恐经历。两个小时的节目一眨眼就过去了，居然没有察觉，其横空出世和惊心动魄让好莱坞大片如 《Mission Impossible»》看起来如同在玩家家。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/3605ebfe-97ff-40d6-8632-3d42f409a58c.png?asset_id=3fe28a2e-94c3-441e-9065-fae07dae1b59&amp;img_etag=%228d2b0a8ae72bf9a4369e76ee5de81cbc%22&amp;size=2560)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/3605ebfe-97ff-40d6-8632-3d42f409a58c.png?asset_id=3fe28a2e-94c3-441e-9065-fae07dae1b59&amp;img_etag=%228d2b0a8ae72bf9a4369e76ee5de81cbc%22&amp;size=1024)
+德国文豪歌德写过的一部自传取名 《Dichtung und Wahrheit》，中文名字叫《诗与真》，如果更直白一点翻译的话，就是《创作与真相》。歌德想借此表明，这里写的不是少年维特，而是自己真实的成长经历，他不在编故事，而是写历史。在德语中“故事”和“历史”共用一个词为Geschichte，因为“故事”和“历史”都可以是精彩纷呈跌宕起伏，但是两者虽然相似，却不同源：故事是天马行空、从无到有的创作Dichtung，如《诗》，而历史是已经发生的、正在发生的标在时间轴上的真相Wahrheit，如《真》。
 
-有意思的是，随后几天，记者设法采访了【灰犀牛】的作者， 米歇尔·乌克（Michele Wucker）， 让她谈谈对习近平的看法。 不可避免地谈到了疫情，她称“中共国对危险有自己的看法，有更高效的组织，这点比美国好得多”。
+虚构的故事讲错了可以重新再来，真实的历史却是一旦发生无法改变，但是真相的大白需要时间的沉淀；闫博士爆料一年多过去了，时间开始证实病毒的真相。中共伪类和主流媒体对闫博士的抹黑和造谣，永远只能是一个个蹩脚的故事，而闫博士、路德时评、郭先生发起爆料革命却是在用行动创造历史。故事永远是故事，但是历史人物历史事件却可以成为未来的故事，让人讲述。
 
-这样的回答并不令人吃惊，从文化的角度来说，西方很久以前就开始培养这种白左的思想。1995年的奥斯卡评比，【阿甘正传】击败了【肖申克的救赎】获得了最佳影片。当年很喜欢【阿甘正传】，但是，现在回想，它宣扬的就是：在一个规则内，你只要完美地遵守规则，哪怕你是一个傻子，你也能获得一切。洗脑就是这样悄无声息的，很早前就开始了。
+西方媒体流行讲故事story telling，记者写报告也要学会怎么来讲述narrative，但是主流大媒体在报道中却常常忽略周边发生的事实，罔顾事实片面报道，媒体理应让百姓获取真相，“investigative journalism调查报道”早就让位于“道听途说”，尤其关于中共国的消息报道，对中共有认识又有勇气报道的记者一个个被中共驱逐出境，最后主流媒体讲的都是大外宣的“中国故事”，不是真相。
 
-再说说音乐界，80，90年代最流行的是摇滚乐，反叛、呐喊、抗争，表达对社会的不满和对人生的思索。德国的蝎子乐队（Scorpions）在1989年9月创作了【变革之风】（WIND OF CHANGE）, 纪念中国的6.4事件和苏联的逐步开放，结果1989年11月柏林墙倒塌，该曲成为铁幕崩塌，共产主义衰落，人类迎来和平的标志曲目，激励了整整一代人。
+不止是媒体，今天看到美国FBI局长Christopher Wray在国会听证会上对议员Matt Gaetz问及闫博士到达美国时就有FBI人员介入，FBI对闫博士的爆料如何看待时，不仅一问三不知，而且还说情报局对病毒起源的事也是众说纷纭等等带风向的话。郭先生说过，你没法叫醒一个装睡的人，Wray局长估计也是其中之一。
 
-而到今天，再无这样直接撼动你心底的歌曲，也无让你心灵震颤的电影，更无如【丧钟为谁而鸣】，【百年孤独】这样的文学巨作。这一切，都是黑暗势力早早地就开始了文化圈禁运动。
+今天闫博士不仅“口述大片”，更爆了一个新料，其重磅的程度不亚于病毒真相的爆料：李钰，网名“鲤鱼”，闫博士的青岛二中的同乡校友，同在香港生活，可以一起相约逛街的女友，竟然是中共的国安卧底。她活跃在微信的无数个同学群/校友群/同乡群，闫博士离开香港不久，她就在微信朋友圈警告闫博士限定时间与中共警方联系，否则就是刑事犯罪，未来要负法律责任。而且还打电话联系闫博士的亲朋好友，传达中共旨意。
 
-把人圈起来，打造一个【楚门的世界】，遮住真实的天，围住你的周围，让你看到的是：服从和规则，让你谈论的是娱乐和气候，以及忽视自然差异的绝对平等。不让你拥有的是反抗和呐喊。剥夺的是你的自由和勇气。
+[!\[\]()!\[\](https://spark.adobe.com/page/rQNqt6z2Ce6GI/images/2b78d4b9-34bb-4ddf-a373-e6d8aad8cd37.png?asset_id=81cf3104-c805-4f29-8faa-0b93df24ec05&amp;img_etag=%223ae9c0f4ec4599a1d5ea7905675dce31%22&amp;size=2560)](https://spark.adobe.com/page/rQNqt6z2Ce6GI/images/2b78d4b9-34bb-4ddf-a373-e6d8aad8cd37.png?asset_id=81cf3104-c805-4f29-8faa-0b93df24ec05&amp;img_etag=%223ae9c0f4ec4599a1d5ea7905675dce31%22&amp;size=1024)
 
-经过30年的努力，欧美人也从野狼被哄成了家犬，和他们被散养不同，中国人有着更显而易见的悲惨，就是真正的被圈养成羊，不仅不能反抗，连回忆和批评都不行。看看中国那长长的禁片名单，还没开始反抗呢，就被“防患于未然”了。
+有谁会料到，这位为人师表的师范生，在香港观塘福建中学教普通话的老师居然为国安服务，中共的魔爪通过微信已经伸到每个人用中文媒体的人身边，不管是在国内还是在国外，只要你与国内的亲朋好友在微信上有联系，一旦发现你与中共过不去，微信各个群里的国安卧底，就会宣布你是被专政的对象，让你众叛亲离、身败名裂。
 
-世界就在这“祥和”的气氛中走到了今天，没有人去真正约束共产党的行动，他们撕毁了协议，血洗了香港。他们建立了集中营，灭绝新疆人。他们和黑暗势力联合，对全人类进行大清洗，微弱的反抗声很快被掩盖，甚至不如瑞典的环保女孩更被人所知。
+就在闫博士爆料的直播中，艾丽发现李钰删除了她的Facebook账号，作为听众的我们成了中共又一次犯罪作案销毁证据的历史见证人，造孽的中共又给未来提供了讲故事的素材。不知歌德在世，又会做如何评论，估计懒得去提，如此低劣！兴许会说还是让写«悲惨世界»的雨果来点评一下吧，人性的丑恶和令人作呕到底可以走多远。
 
-曾经长生天的子民，金帐汗国的后代，面对奴役，已经沦落到了不敢反抗，不知道反抗的地步。看过国内的一个直播，是几个蒙古汉子直播吃肉，是的，身高马大的汉子，直播各种吃肉，牛肉，羊肉，蒸着吃，煮着吃，烤着吃。而另一边，牧场年年被侵占，被缩小，蒙古文教学被禁止，蒙古的孩子被黑警毒打，蒙古的女公务员愤然自尽。
+郭先生常说：“美国你们太high了，中共很low”。可是，谁会想到一个政党会让师范大学的毕业生，为人师表的老师做卧底？华人注重教育的传统，居然也可以被利用，变成给你专政的工具，理解为什么复旦大学数学系的海归教授手刃党支书了。中共你完了，你真的完了！
 
-丢失了战马，失去了雄鹰的不仅仅是草原儿女，也是我们每一个人，包括世界上的每一个人。病毒肆虐，疫苗飞速普及，病毒起源尚在艰难推进。这一年多来，科学界、媒体、政治家，大部分都还在沉默。西方社会并没有我们预想中的反抗和呐喊，最多就像小羊羔嘶喊了两嗓子，低下头继续吃草。社会的进步需要不屈的灵魂，我们需要发出呐喊。
+[!\[\]()!\[\](https://spark.adobe.com/page/rQNqt6z2Ce6GI/images/64cb9b5e-2da3-4b45-b0a3-2be176556c2e.jpg?asset_id=5b1cb1c4-eb8d-4e8a-b99a-0de5c945a959&amp;img_etag=%22442bf9a83f85c1cc6d286a5233e90d58%22&amp;size=2560)](https://spark.adobe.com/page/rQNqt6z2Ce6GI/images/64cb9b5e-2da3-4b45-b0a3-2be176556c2e.jpg?asset_id=5b1cb1c4-eb8d-4e8a-b99a-0de5c945a959&amp;img_etag=%22442bf9a83f85c1cc6d286a5233e90d58%22&amp;size=1024)
 
-艺术是心灵的表达，【愿荣耀归于香港】，圣洁和不屈的歌声让香港从中共的战火下重生，成为我们心中的圣城。
+**新闻来源：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/4ec5f93d-0220-494e-8d02-c87c7eed28bd.png?asset_id=0f4d8418-72c7-4c37-a1e4-160fab4ebb99&amp;img_etag=%22fee93ee78154bbe89821f404db7274d0%22&amp;size=1024)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/4ec5f93d-0220-494e-8d02-c87c7eed28bd.png?asset_id=0f4d8418-72c7-4c37-a1e4-160fab4ebb99&amp;img_etag=%22fee93ee78154bbe89821f404db7274d0%22&amp;size=1024)
-
-【马背英雄】的横空出世，就像黎明的第一束光，宣告了推翻共产党，反抗大重启计划的到来。在这个至暗时刻，尤其重要。佛家说“当头棒喝”，【马背英雄】就是唤醒人们反抗精神的那声“棒喝”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/2ed414e8-2939-4b02-ae49-b0e6c6e7d278.jpg?asset_id=941c2b59-f1b5-4017-a5ec-f5a599072527&amp;img_etag=%22ff43914e8147c89dbf5a9b6e5a2147a2%22&amp;size=1024)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/2ed414e8-2939-4b02-ae49-b0e6c6e7d278.jpg?asset_id=941c2b59-f1b5-4017-a5ec-f5a599072527&amp;img_etag=%22ff43914e8147c89dbf5a9b6e5a2147a2%22&amp;size=1024)
-
-【马背英雄】就是我们的战歌，这个时代需要英雄，爆料革命必出英雄！全世界人民需要掀翻桌子，长身而起，要生存，要反抗！
-
-“你要战，那便战”！
-
-**新闻参考：**
-
-- [El inquietante abismo entre lo que lee Pedro Sánchez y lo que leen los políticos chinos](https://blogs.elconfidencial.com/espana/takoma/2021-05-24/libros-politicos-occidentales-chinos_3095004/)
-- [La mujer que enseñó a Xi Jinping a torear un rinoceronte gris: “Ven diferente los riesgos”](https://www.elconfidencial.com/mundo/2021-06-05/michele-wucker-pandemia-rinoceronte-gris_3115963/)
+- Youtube：[6/10/2021 路德时评-闫博士与FBI和国土安全部接触过程](https://www.youtube.com/watch?v=9JVA2IQGpcY)
+- GTV：[6/10/2021 路德时评（路艾冠谈嘉宾闫博士）：闫博士首次谈论2020年与FBI以及国土安全部官员报告经历，过程比好莱坞大片还要精彩](https://gtv.org/video/id=60c2ae3f8ce6da73c4189c13)
 
 
-文章仅代表作者观点
+***文章仅代表个人观点***
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/rQNqt6z2Ce6GI/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/rQNqt6z2Ce6GI/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

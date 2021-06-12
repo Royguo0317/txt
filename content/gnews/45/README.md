@@ -1,25 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## FBI局长表述美情报机构未就病毒起源达成共识
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315677/)
+## 《路德社》精选新闻简讯：揭开引发中共病毒大流行的起源
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1315725/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11200156/image001-15.jpg)
+SARS-CoV-2（导致 Covid-19 并于 2020 年 3 月引发全球大流行的病毒）的起源已成为科学界最紧迫的问题之一。 自从大流行初期世界首次意识到新出现的“新型”冠状病毒以来，两种相互竞争的理论一直主导着讨论。第一个，也是很长一段时间被认为可能的故事是，病毒来自大自然，从某种蝙蝠的天然宿主中跳出，通过一种仍然未知的中间动物进入人类（可能在或在中国武汉的“海鲜市场”附近），然后像野火一样蔓延。
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11191605/F-5.jpg)motifri.com
-6月10日晚上，据《公共新闻社》（ОСН）报道，美国联邦调查局（FBI）局长克里斯托弗·雷（Christopher Ray）在国会听证会上发言。国会新闻处依据他所表述的报道，美国情报机构在中共病毒的来源上没有达成共识。
-
-雷强调，“这个问题正在讨论中。”他指出，对中共病毒的来源情况有不同的看法。此外，雷称他还不能透露更多细节。
-
-早些时候，《公共新闻社》报道，美国前国务卿迈克·蓬佩奥说，武汉病毒研究所据称从事“军事开发”。他指出，他“可以肯定地谈论这一事实”。
-
-他说，军事发展与民用活动同时进行。蓬佩奥指出，武汉病毒研究所“与中共军队有着密切的关系”。
-
-参考链接：
-
-[https://www.osnmedia.ru/world/glava-fbr-otvetil-na-vopros-o-proishozhdenii-koronavirusa/](https://www.osnmedia.ru/world/glava-fbr-otvetil-na-vopros-o-proishozhdenii-koronavirusa/)
+第二种说法是，它是从武汉的一个实验室泄露出来的，事实上，那里有一些实验室研究和操作与 SARS-CoV-2 非常相似的冠状病毒。如果它是意外泄漏的，它是否作为合法科学研究的一部分进行了基因改造？而且，病毒是否会在中国政府不知情的情况下意外泄漏，或者是否有掩盖？
 
 
+
+[原文引用](https://edition.cnn.com/2021/06/10/health/coronavirus-origin-natural-spillover-lab-leak-gupta/index.html)
+
+本文作者：Rebecca (一切心皆不可得 ! )
+
+审核校对：sherryok (水云间)
+
+上传排版：糊糊文婴
 
 0

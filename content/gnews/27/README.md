@@ -1,39 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 对待已经接种疫苗的亲人朋友要有同理心和尊重
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1315878/)
+## 6月11日美国政要推特精选：美国人需要知道冠状病毒的起源
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1315920/)
 
-**翻译整理： 葛大饼**
+参议员迈克·布劳恩： 美国人需要知道冠状病毒的起源。 我已经追问过福奇博士、国家卫生研究院主任柯林斯和国务部长布林肯，为什么我们不将情报界的信息解密。 他们都没有一个好的答案为什么我们不应该有尽可能多的透明度。 （附福克斯新闻采访视频）
 
-**责编：人间四月**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22095745/1-118.png)
-在网络媒体《Ghion Journal》上有一篇关于《如何与已接种中共病毒疫苗的亲朋好友们沟通》的文章，值得和大家分享一下。
 
-文章作者说，发表这些想法其实很犹豫，不是因为这个话题不需要谈论，而是出于担心这篇文章只会进一步加剧 “疫苗 “之战所引发的社会分歧。此外，作为一个对主流媒体上那些给读者提供 “如何与’反疫苗’亲属沟通 “的建议而感到恼火的人，作者最不想做的事情就是以小人之心度君子之腹。然而，经过深思熟虑并与朋友交谈后，昨天他还是决定继续码字，这篇文章的目的不是为了拉开人们的距离，而是希望能促使大家达成一个共识。
 
-作者坦言他没有 “接种疫苗”，因为它可能会导致一连串的不良反应。作者尊重那些对 “疫苗 “的安全性和有效性有不同看法并决定接受注射的家庭成员、朋友和同事。因此，这篇文章不是要嘲笑那些接受福奇建议的人，而是向那些像作者一样对 “疫苗 “持敌视态度的人建议如何与做出不同决定的人交谈。要有爱心，很多人被注射疫苗不是出于自信，而是出于恐惧、无望和孤独。
+> Americans need an answer on COVID's origins.
+> 
+> I've pressed Dr. Fauci, NIH Director Collins, and Sec. of State Blinken on why we wouldn't declassify the info our intel community has. 
+> 
+> None of them had a good answer why we shouldn't have as much transparency as possible. [pic.twitter.com/uQ22JPQ5XT](https://t.co/uQ22JPQ5XT)
+> — Senator Mike Braun (@SenatorBraun) [June 11, 2021](https://twitter.com/SenatorBraun/status/1403417203756703745?ref_src=twsrc%5Etfw)
 
-在与被注射的人交谈时，首先要记住他们不是你的敌人；作者也善意地提醒这场辩论的 “另一方 “的人们。尽量回避对中共病毒的医治纷争有很大帮助；从最杰出的科学家到高中生，现实是，除了上帝，没有人知道这种大流行病将如何发展。我们所有人，无论我们做出怎样的注射决定，都生活在刀下；不注射 “疫苗 “有风险，注射也有风险。我们不要假装我们已经搞清楚了一切；我们唯一知道的是，中共病毒是致命的，我们还远远没有走出困境。
 
-最重要的是要明白，接受 “疫苗接种 “的人做出了一个不可逆转的决定。没有必要用事实和数字来敲打他们的脑袋，这只会引起他们的焦虑。每当我与在咖啡馆或当地市场遇到的人交谈时，如果提到 “疫苗 “的话题，而你意识到他们被注射了疫苗，就尽量克制不要发生争执。赢得与被注射者之间关于疫苗的辩论，将意味着他们会被打倒，并可能让他们感到沮丧；相反，应该祝他们好运，并善意地告诉他们，自己没有被 “注射疫苗”。
 
-不可避免的是，当有人发现你没有被辉瑞、BioNTech、Moderna莫德纳、阿斯利康或强生公司生产的“狗皮膏药”射中时，如果你试图为一个你不应该辩解的人决定辩护，你将被称为 “反疫苗 “或阴谋论者。当这一时刻到来时，请大步走下去，并相信你是与过去许多伟大的思想家站在一起，他们曾因“违背现状”而被排斥，但却被后代所拥护。
+参议员霍利新闻办公室： 霍利告诉新闻社[@newspressnow](https://twitter.com/newspressnow)，在最近那些破坏性的电子邮件被公布后，是时候该福奇辞职了 “与参与或资助武汉病毒研究所研究的团体和科学家有通信，并积极试图隐瞒他们的参与。”
 
-作者也希望对这些实验性 “疫苗 “的所有疑虑都是错误的；他不希望被证明是正确的，但却看到在过去六个月里一直警告的可怕结果都出现了。作者曾祈祷这些 “中共病毒疫苗 “最终被证明是安全和有效的；如果时间证明这是真的，他甚至可能决定改变主意，接受注射。然而，离这个确定点现在还差的很远，这就是为什么所有 “中共病毒疫苗 “仍在进行临床试验。如果人们选择参加临床实验，那是他们的权利，但作者希望大家都尊重自己的权利，不要轻易加入这场赌博。
 
-作者在文章还说， 他的目的不是要在这里表示虔诚；相反，他每天都在追求少一点自我，多一点对他人的同情。希望人们能到达一个理性的中间地带，而不是在两个极端发动战争。大多数理性的人都会同意，儿童在没有父母通知、在场或同意的情况下接受 “疫苗接种 “是一条红线，就算不是强制性的，也应该受到激烈的抵制。此外，作者认为大多数有理智的人都能同意，把像作者这样拒绝注射mRNA疫苗或腺病毒 “疫苗 “的人妖魔化是不符合美国国情的，也是应受谴责的。
 
-人们被操纵，互相掐架；统治者几个世纪以来一直在向人类释放的同样的 “分化和征服 “技术，现在已经被武器化，达到了历史上从未见过的程度。现在不是像桶里的螃蟹一样争吵的时候，现在是大家站起来抗争的时候了。让我们尊重彼此的决定，让我们真诚地辩论，让我们不要假装我们拥有所有的事实。同理心和尊重，这就是你与 “接种疫苗 “和未接种疫苗的家人、朋友、同事和陌生人的对话方式。
+> Hawley told [@newspressnow](https://twitter.com/newspressnow?ref_src=twsrc%5Etfw) it's time for Fauci to resign after the recent release of damaging emails
+> 
+> "There's correspondence with groups and scientists who participated or funded research at the Wuhan Institute of Virology, and were actively trying to conceal their involvement." [pic.twitter.com/E1qoZq1Wew](https://t.co/E1qoZq1Wew)
+> — Senator Hawley Press Office (@SenHawleyPress) [June 11, 2021](https://twitter.com/SenHawleyPress/status/1403392610920767490?ref_src=twsrc%5Etfw)
 
-**“****没有对自己的谦卑，就没有对他人的尊重****“—-****亨利****–****弗雷德里克****–****阿米尔**
 
-#### 评论：
 
-该文作者因为传播中共病毒疫苗真相曾被推特关账户，他的母亲不幸传染了中共病毒不幸去世，这使他踏上寻找真相的旅途。全球觉醒的人们都在行动！相信战友们也都有这样的处境，2021年我们不仅要担心中共病毒，还要担心中共病毒疫苗，渐渐的发现身边越来越多的亲朋好友都开始打疫苗了，内心的痛苦莫过于他们根本听不进我们所传播的中共病毒和疫苗真相，都积极去打了疫苗。 有争论、争吵甚至成为陌路人。
+参议员詹姆斯·兰克福德： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的恶者故意试图压制或歪曲有关 COVID-19 及其传播的信息，需要对他们追责。今天，我与科顿参议员及其他共和党同事一起提出立法来制裁这些官员。 【附兰克福德参议员官网发布的新闻：兰克福德等提法案：李文亮全球公共卫生追责法案】
 
-是什么让我们和亲人朋友们撕裂，是因为共产党！如果不是中共的蓝金黄，如果不是这些主流媒体掩盖真相，如果不是无耻政客和利益集团的作恶，我们的家人和朋友们肯定不会去打这种百害无一利的中共病毒疫苗的！爆料革命从一开始就告诉大家，这是共产党制造的生化武器病毒，只有灭共才是解决病毒的唯一途径，任何疫苗都是没用的！千万别打疫苗！服用羟氯喹和锌！
 
-[文章链接](https://ghionjournal.com/how-talk-vaccinated-friends-relatives-jab/)
+
+> Bad actors in communist [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) who knowingly attempt to suppress or distort information about COVID-19 and how it spread need to be held accountable. Today, I joined [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & my GOP colleagues to introduce legislation to sanction those officials. 
+>  [https://t.co/ewxUZnkeLy](https://t.co/ewxUZnkeLy)
+> — Sen. James Lankford (@SenatorLankford) [June 10, 2021](https://twitter.com/SenatorLankford/status/1403075745375653889?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·华尔兹： （自由灯塔的编辑）康蒂内蒂[@Continetti](https://twitter.com/continetti)是绝对正确的，[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 掩盖COVID，应该取消 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 举办奥运会的资格。 再加上他们正在进行的种族灭绝、对台湾的威胁以及对香港和西藏的镇压。 [#抵制北京2022](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC2022?src=hashtag_click) 【附自由灯塔专栏文章：怎样让中共国付出代价】
+
+
+
+> .[@Continetti](https://twitter.com/continetti?ref_src=twsrc%5Etfw) is absolutely right that the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s coverup of COVID should disqualify China from hosting the Olympics. 
+> 
+> Add on their ongoing genocide, threats against Taiwan, and repressions against Hong Kong and Tibet. [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wNhzMP2YPf](https://t.co/wNhzMP2YPf)
+> — Rep. Mike Waltz (@michaelgwaltz) [June 11, 2021](https://twitter.com/michaelgwaltz/status/1403383877356462081?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 掩盖了武汉 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的传播。 如果你们想让本届政府要求回答，请转推。
+
+
+
+> The Chinese Communist Party covered up the spread of the Wuhan virus. 
+> 
+> RETWEET if you want to see this administration DEMAND ANSWERS.
+> — Mike Pompeo (@mikepompeo) [June 11, 2021](https://twitter.com/mikepompeo/status/1403351027290673152?ref_src=twsrc%5Etfw)
+
+
 
 0

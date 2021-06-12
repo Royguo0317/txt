@@ -1,61 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】 千亿投资的港珠澳大桥，为何如今“鞍马稀”？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1316013/)
+## 瑞典中共病毒实录
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1316036/)
 
-作者：香草山农场  鹰(文言)
+作者：大明 | 校对：X-Wing | 审核：Beicy-数学老师 | Page: Daoiii
+
+[!\[\]()!\[\](https://spark.adobe.com/page/9v3TT40fECYcw/images/9c6a6fab-a38c-4eeb-9632-8708c485dd58.jpg?asset_id=2ed000ab-b7f2-45a1-a2b1-8e3d8557ee38&amp;img_etag=%227ac438a183beef05e2b47adc5cc46270%22&amp;size=2560)](https://spark.adobe.com/page/9v3TT40fECYcw/images/9c6a6fab-a38c-4eeb-9632-8708c485dd58.jpg?asset_id=2ed000ab-b7f2-45a1-a2b1-8e3d8557ee38&amp;img_etag=%227ac438a183beef05e2b47adc5cc46270%22&amp;size=1024)瑞典首相勒文
+
+瑞典，北欧五国中领土最大的国家，经济军事科技领先，和高福利的社会制度，举世闻名。然而在这次席卷全球的中共病毒生化危机中，这个全球发达国家中独树一帜的防疫政策成为奇观！官方数据，截至2021年6月9日，感染108万死亡14578人，近7天平均感染人数近2000人。总人口千万的瑞典每十个人中就有一个人感染过中共病毒。
+
+这只是官方数据，别以为民主国家什么都是真的。并非指责瑞典现政府作假，而是真实的社会情况并非政府了解的。瑞典也有美国的福奇一样的安国师，此人完全是瑞典版的福奇，同样地误导自己同胞，甚至也是和福奇一样有杀害自己国民的举动，全民免疫，这个被英国和多个国家啪啪打脸的政策，被这这位安国师当作抵抗中共病毒的法宝，但是结果是瑞典的感染人数和死亡人数是周边丹麦挪威芬兰三个国家总和的三倍还多，以至于连瑞典人也有声音质疑瑞典政府是抛弃年老的国民，减少政府财政负担。
+
+当瑞典的全民免疫的谎言被现实打脸后，瑞典政府并没有周边国家的防疫力度，依然是在走打疫苗和全民免疫的防疫策略。更在6月1号放开很多限制，和欧洲多国一样为了保经济推行疫苗护照，看着满大街不带口罩的人，似乎疫情已经过去，但是真实的情况是瑞典疫情依然严重，芬兰一次又一次推迟对瑞典开放边境。瑞典社会真实的疫情是怎样的呢？感染人数绝对不是官方统计的一百万，瑞典的华人群体估计多数都已经被感染，很多人感染后没去医院也就根本不会列入统计数据‘有些华人全家感染，康复后才知道自己曾经是感染病毒而非普通感冒。
+
+笔者和朋友分析瑞典感染人数恐怕超过半数，准确数据肯定远远超过政府数据！华人对瑞典的全民免疫防疫没有认同的，有很多华人感染两三次’有感染三次的每次都留点后遗症。不做检测，没有人能判断是否感染病毒还是普通感冒。印度变种病毒在欧洲大陆多国出现，英国即使接种一针疫苗的人数众多，但是还有小镇因为变异病毒而封锁，疫苗只能减缓病毒传播而不可能消灭病毒，这是好像连老贼福奇都说过，强变异的病毒’即使辉瑞的疫苗是否有效都要时间去验证！只推疫苗却不见治疗方法的世界是怎么了？真理往往只掌握在少数人手里！瑞典的防疫政策是否正确留给历史去评价，但是对于失去亲人的瑞典人，白发人送黑发人的人生最大不幸，却在身边的人发生，这是不是瑞典政府的不作为杀人呢？
+
+爆料革命新中国联邦，阎博士三篇报告向全世界揭开了中共军方研制故意投放超限战生物武器中共病毒的事实。美国社会从上到下地全面推进病毒真相，拜登政府要求90天查清病毒来源的命令，只要确定中共病毒来源于中共军方故意投毒，那中共就结束了！反人类罪，全球国家会联合灭共。瑞典政府的防疫政策叫我不会什么都相信政府，谷歌翻译的错误叫我不会全信大媒体。追求真相，跟随爆料革命，继续吃硫酸氢氯喹预防吧！只有灭共人类才有安全！
+
+[!\[\]()!\[\](https://spark.adobe.com/page/9v3TT40fECYcw/images/7c2ae5ec-cd96-476c-baaf-2f17ee46d869.png?asset_id=1b98775c-403e-473a-9cdf-683675f9aa31&amp;img_etag=%229afb5f67c37395b84c603873fa8b32d6%22&amp;size=2560)](https://spark.adobe.com/page/9v3TT40fECYcw/images/7c2ae5ec-cd96-476c-baaf-2f17ee46d869.png?asset_id=1b98775c-403e-473a-9cdf-683675f9aa31&amp;img_etag=%229afb5f67c37395b84c603873fa8b32d6%22&amp;size=1024)
+
+*文章仅代表作者观点*
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1.jpeg](https://lh3.googleusercontent.com/Er5mBSkSkg7Ctx_BSqBbxnEJfevKrAvBlD7_Qwsz1EnoAIQIJBgjW34F9luWd2eMQxtFWLxQg_dGNIPVHTypFOR4lrKH7YP0vpQhJo8EOMTOpAkRtUeMRcSmEgCZCl82cL9vGXuf)
-
-
-
-环球网6月12日转载央视新闻客户端消息，截至2021年4月经港珠澳大桥珠海公路口岸进出口总值2016亿元。
-![This image has an empty alt attribute; its file name is Untitled-design-2021-06-11T203233.954.png](https://lh6.googleusercontent.com/HqxgyYDMu1CJGLH6YSTuRGFNLtLwaNmmqTiK_w40eTIfJhh04tnVTT4dcCRAu5CmQEtAAVGB4QYov4DuTCBwilq5C9rBXde6N86axpy-AEuZkATwf07kJ1nwSNB7HiQPLbEFhB9q)
-港珠澳大桥于2009年12月动工，用以连接深圳、香港和珠海，全长55公里，投资金额达1269亿元，为了充分发挥港珠澳大桥对地区贸易的牵引作用，中共在设计过程中不但配备7项取得技术性突破的子系统（包含消防、供电、给排水和防雷等），更将通车频率设定为5-6万辆/天以应对繁忙的跨境车辆，为此耗时2年专门研制兼容不同制式的全自动缴费系统。
-
-但在18年10月正式通车后，港珠澳大桥使用率却差强人意。根据广东省交通部门数据，截至2019年10月大桥开通一周年，经港珠澳大桥的旅客总数2443.45万人次，但通行车辆却仅有153.72万车次，日均4212车次，不但低于二级公路的通车量（二级公路年平均日交通量5000-15000辆），更不及其设计参数的一成标准，2020年的通行频率更是惨不忍睹，甚至达到10分钟一辆车日均150辆的程度。
-![This image has an empty alt attribute; its file name is Untitled-design-2021-06-11T203257.897.png](https://lh5.googleusercontent.com/I-u3LS6skzfrq1l2zyoAGG8a9dXLgFbvqk5eEXdqemcKUIgdc0xgJZJ1bSrq8_-CB2fpnc-_bBUHg862rsuIj-NYe4o6uyKzsIlfozujgwQR7qqmioDfLOZc4fZ5NlUTrW929vu5)
-虽然港珠澳大桥通行车辆繁多包含跨境巴士、穿梭巴士、跨境出租车、货运车、私家车等，但只有取得大桥口岸通行车牌的上午车辆才能获得行驶指标。港珠澳车牌的申办门槛较高，广东省3年内纳税累积100万元的国企、集体企业、私企民企可申请一辆通行车辆；境外投资者在内地投资且3年纳税额达10万元可申办第一张通行证，纳税额达50万可申办第二张，除了通行证的申请缓解繁琐难度较大外，同行车牌的价格高昂也让私家车主望而却步（如2018年11月现牌转让价格50万元），截止2018年2月22日，广东省共办理并发放11211个通行商务车指标。诸多因素造成港珠澳大桥的通车成本居高不下，再加上固定的指标限制，这才导致大桥建成后如此“闲置”。
-
-虽然中共为了增加大桥对周边经济的刺激并于20年7月正式开髋跨境电商业务，但由于其收费标准（普通货车60元/车次，货柜车115元/车次）依据高于国内大多高速公路平均收费0.4元/公里（55公里对应收费22元），再有上文提及申办同行车牌价格高昂，所以截至2021年5月7日，场站运送的跨境包裹仅为2200万个，这一数值还不及2021年春节期间（2月11-17日）深圳全市快递收件量2400万件。
-
-除了上述成本原因，更重要的是由于2019年香港返送中运动，中共抹黑造谣并利用黑社会和假警等武装力量进行大抓捕和破坏，严重影响了香港地区的商贸往来，不但各大外资企业纷纷搬离，更有大批香港人士被迫离开故土。而《国安法》、选举法等中共独裁法律的制定和施行更将香港的自由贸易和契约精神付之一炬，香港已经完全沦为中共残害下的臭港，最大的外资引进渠道和交易平台都被中共“杀鸡取卵”，而严重依赖香港经济驱动的港珠澳大桥及奥港澳大湾区又何谈能够“无薪独烛”。
-
-新闻来源：
-
-经港珠澳大桥进出口总值突破2000亿元https://china.huanqiu.com/article/43VDolYT0EO
-
-识别车牌仅需0.3秒，港珠澳大桥的收费系统堪称一绝https://3g.163.com/dy/article/D85P5MQM0511DTU9.html
-
-港珠澳大桥海关助力跨境电商加速跑 总货值超59亿（图）http://www.customs.gov.cn/customs/xwfb34/302425/3659102/index.html
-
-如何破解港珠澳大桥冷清之困？毛艳华：增加深圳支线难度大，视粤港澳大湾区为共同家园来挖掘大桥的潜力！https://www.163.com/dy/article/GC2H6VH90550TXTJ.html
-
-港珠澳大桥成“摆设”？投资千亿却车流稀少，司机：条件高没资格https://new.qq.com/omn/20210410/20210410A08RO900.html
-
-今年港珠澳大桥格外“冷清”，平均10分钟通行1辆车https://www.sohu.com/a/425405365\_100143648
-
-五分钟了解公路等级划分 https://www.sohu.com/a/169725645\_99919239
-
-港珠澳大桥正式开通 “联合车牌”供不应求叫价50万https://finance.sina.com.cn/roll/2018-11-03/doc-ihmutuea6494075.shtml
-
-留守深圳人寄出年货2400万件 http://shenzhen.sina.com.cn/news/n/2021-02-19/detail-ikftpnny7823411.shtml
-
-校对/发稿：火内
-![This image has an empty alt attribute; its file name is 6_june-2.jpeg](https://lh3.googleusercontent.com/8PDnMEWvM_0NbOhqugdPTNrglErpeqa00buVdg17-UaJV363Mv_I_RiH6P3EOw_RwgAEBk2U2u3YGsGqRDqmWxiiMWW-IJJrURcwqAngrq__fd-eYRIF08vpQ9ZNhoQx7GDq84px)
-更多资讯，更多关注
-
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[纽约香草山农场GTV-MOS TALK](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)香草山访谈
-
-[纽约香草山农场Twitter](https://twitter.com/HIMALAYA_MOS)(中文)
-
-[纽约香草山农场Twitter(英文)](https://twitter.com/MosHimalaya)
-
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[!\[\]()!\[\](https://spark.adobe.com/page/9v3TT40fECYcw/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/9v3TT40fECYcw/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
