@@ -1,63 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月11日美国政要推特精选：美国人需要知道冠状病毒的起源
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1315920/)
+## 揭批100句党史名言“假恶丑”系列——毛泽东篇（三）
+` 左媛专栏` [轉載自GNews](https://gnews.org/zh-hans/1315520/)
 
-参议员迈克·布劳恩： 美国人需要知道冠状病毒的起源。 我已经追问过福奇博士、国家卫生研究院主任柯林斯和国务部长布林肯，为什么我们不将情报界的信息解密。 他们都没有一个好的答案为什么我们不应该有尽可能多的透明度。 （附福克斯新闻采访视频）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11215307/A3190CAE-66C1-4C49-A9E1-4F6F0EDA78EF.jpeg)
+作者：左媛
 
+编辑：萨日
 
+#### **党史名言第八句：只有统一战线的策略才是马克思列宁主义的策略。关门主义的策略是孤家寡人的策略。
+1935年《论反对日本帝国主义的策略》**
 
-> Americans need an answer on COVID's origins.
-> 
-> I've pressed Dr. Fauci, NIH Director Collins, and Sec. of State Blinken on why we wouldn't declassify the info our intel community has. 
-> 
-> None of them had a good answer why we shouldn't have as much transparency as possible. [pic.twitter.com/uQ22JPQ5XT](https://t.co/uQ22JPQ5XT)
-> — Senator Mike Braun (@SenatorBraun) [June 11, 2021](https://twitter.com/SenatorBraun/status/1403417203756703745?ref_src=twsrc%5Etfw)
+抗战正式打响之前，毛泽东在延安做了这个报告，极大地把当时的合法政权“中华民国”和民国军事委员会委员长蒋介石污名化，极大地煽动中国社会各界力量倾向共产党，把自己美化为“抗日中坚力量”。毛三寸不烂之舌果然神奇，从此各种坑蒙拐骗偷抢纷纷上场，为达到自己的目标无所不用至极。
 
+毛在报告中把“大土豪、大劣绅、大军阀、大官僚、大买办”打成“卖国贼营垒”，污蔑“他们的利益同帝国主义的利益是不可分离的，他们的总头子就是蒋介石。这一卖国贼营垒是中国人民的死敌”。毛说这话时不需要点出“死敌”们的姓名、言行和后果，只凭他一句话就定了论调。简单总结一下，就是有财产、有地位、有权力、有能力的人统统被共产党毛泽东打成“中国人民的死敌”。在中国4亿左右的人群里，这些“大”字辈的人终究是极少数，而且他们的地位、学识和修养也不可能使他们去突破做人的道德良知的底线，在共产党“暴力革命”的浪潮中节节后退，结果也就可想而知了。
 
+毛说，只有统一战线的策略才是马克思列宁主义的策略。传说毛自述有“三不摸”：一不摸马列原著，二不摸枪炮，三不摸钱。一个不摸马列原著的人言必称“马列”，一个在后来延安整风中无情打击所有熟知马列原著的学者和同僚的人言必称“马列”，这不是流氓是什么？但是，中共奉行的是“成王败寇”，毛奉行的是“狠要狠到无情，忍到忍到无耻”，只要目的达到了，手段是不值得一提的。“流氓”算什么？杀人都不眨眼，唯恐杀得少，不嫌灭得多！
 
-参议员霍利新闻办公室： 霍利告诉新闻社[@newspressnow](https://twitter.com/newspressnow)，在最近那些破坏性的电子邮件被公布后，是时候该福奇辞职了 “与参与或资助武汉病毒研究所研究的团体和科学家有通信，并积极试图隐瞒他们的参与。”
+被毛列入“统一战线”的又有哪些人呢？当然是他认为可以利用值得利用的一切对象：农民工人学生是主力，城市小资产阶级和军阀中的动摇势力等等都是争取对象。问题是，共产党“革命成功”之后，当年为中共效力的这些人又得到了什么呢？当然，绝少数利益获得者最初获得了权力，走进了金銮殿，成了荣耀的“开国者”，但在随即而来的持续的内斗中纷纷被斗死斗残。这就是共产党，时时证实了“跟着共产党走进火葬场”这句话的真实残酷！而绝大多数的农民则在党的欺骗和盘剥下变成了“赤贫阶级”，甚至几十年不被允许走出村子。不知他们回想过去是否会悔恨终生。
 
+在中共和毛的词典里，任何人都是没有价值只有“使用价值”。一旦用完了，就像厕纸一样扔进马桶，一冲了之。它的“统战”策略持续到今天，扩大到世界每一个角落。在今天的国际舞台上，所有为中共站台的说话的帮忙的，无一不是它的“统战”成果。
 
+所谓“关门主义是孤家寡人的策略”倒是一句真话，只是这道门是“开”还是“关”全凭中共的需要，与国家和人民是没有关系的。当初，它想夺权的时候，大开“党门”，容纳一切它想容纳也能容纳的“统战”对象，欺了聂绀弩骗了梁漱溟；夺权成功要巩固政权，就违背诺言与文明为敌，“关门”唱独角戏，还关了聂绀弩批了梁漱溟，甩锅英美“封锁”而导致国穷民困，成了国际的孤家寡人；毛死后经济崩溃共党岌岌可危，不得不打开国门，迎来欧美日澳港台解救穷困不堪的中国人，让中国人吃饱穿暖了，中共更是趁“西风”吹得体格肥胖肿大，不可一世；好景不长！目空一切愚蠢狂妄的CCP自我注水肿成了“世界老二”，到处指点江山到处买买买，好像地球成了它的囊中玩物。习神被吹成了新的“舵手”，“舵手”把中国这艘巨型破船驶向了巨型冰山，“中南坑”恶名远扬！世界为之侧目，为之怒目，习神正在玩“关门自撸”，国内百姓再次水深火热！爆料革命短短四年，就把中共伪装的“潘多拉盒子”撕开了口子，打回了原型，亮出它的假擀面杖子丑态毕露！
 
-> Hawley told [@newspressnow](https://twitter.com/newspressnow?ref_src=twsrc%5Etfw) it's time for Fauci to resign after the recent release of damaging emails
-> 
-> "There's correspondence with groups and scientists who participated or funded research at the Wuhan Institute of Virology, and were actively trying to conceal their involvement." [pic.twitter.com/E1qoZq1Wew](https://t.co/E1qoZq1Wew)
-> — Senator Hawley Press Office (@SenHawleyPress) [June 11, 2021](https://twitter.com/SenHawleyPress/status/1403392610920767490?ref_src=twsrc%5Etfw)
+这一次的“关门策略”，是中共不可逆转的唯一！它想再玩自以为是的“统战”游戏是玩不成的了。因为爆料革命，因为一群中国人的锲而不舍，“蓝金黄”成了举世闻名的一个关键词，它是中共玩统战的最重要手段。中共所有的“阴谋”“阳谋”都正在彻底地被揭露被粉碎。今天的中共，统战无人来，不得不关门。史上第一“孤家寡人”唯有中共，前方是千年悬崖死路一条！历史的轮回就是这么不可避免，应验了文贵先生常常说的一句话：万事皆虚，只有果不虚！
 
+2021.6.10 于纽约
 
-
-参议员詹姆斯·兰克福德： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的恶者故意试图压制或歪曲有关 COVID-19 及其传播的信息，需要对他们追责。今天，我与科顿参议员及其他共和党同事一起提出立法来制裁这些官员。 【附兰克福德参议员官网发布的新闻：兰克福德等提法案：李文亮全球公共卫生追责法案】
-
-
-
-> Bad actors in communist [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) who knowingly attempt to suppress or distort information about COVID-19 and how it spread need to be held accountable. Today, I joined [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & my GOP colleagues to introduce legislation to sanction those officials. 
->  [https://t.co/ewxUZnkeLy](https://t.co/ewxUZnkeLy)
-> — Sen. James Lankford (@SenatorLankford) [June 10, 2021](https://twitter.com/SenatorLankford/status/1403075745375653889?ref_src=twsrc%5Etfw)
-
-
-
-众议员迈克·华尔兹： （自由灯塔的编辑）康蒂内蒂[@Continetti](https://twitter.com/continetti)是绝对正确的，[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 掩盖COVID，应该取消 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 举办奥运会的资格。 再加上他们正在进行的种族灭绝、对台湾的威胁以及对香港和西藏的镇压。 [#抵制北京2022](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC2022?src=hashtag_click) 【附自由灯塔专栏文章：怎样让中共国付出代价】
-
-
-
-> .[@Continetti](https://twitter.com/continetti?ref_src=twsrc%5Etfw) is absolutely right that the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s coverup of COVID should disqualify China from hosting the Olympics. 
-> 
-> Add on their ongoing genocide, threats against Taiwan, and repressions against Hong Kong and Tibet. [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wNhzMP2YPf](https://t.co/wNhzMP2YPf)
-> — Rep. Mike Waltz (@michaelgwaltz) [June 11, 2021](https://twitter.com/michaelgwaltz/status/1403383877356462081?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿蓬佩奥： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 掩盖了武汉 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的传播。 如果你们想让本届政府要求回答，请转推。
-
-
-
-> The Chinese Communist Party covered up the spread of the Wuhan virus. 
-> 
-> RETWEET if you want to see this administration DEMAND ANSWERS.
-> — Mike Pompeo (@mikepompeo) [June 11, 2021](https://twitter.com/mikepompeo/status/1403351027290673152?ref_src=twsrc%5Etfw)
-
-
-
+（本文章仅代表个人观点）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10160823/DA6F73BB-E1BE-4773-AE89-C17C54C95780.jpeg)
 0

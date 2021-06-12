@@ -1,36 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国与中共国发生热战的几率到底有多大？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1315894/)
+## 6月11日美国政要推特精选：美国人需要知道冠状病毒的起源
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1315920/)
 
-#### 翻译报道：WEN JIE
+参议员迈克·布劳恩： 美国人需要知道冠状病毒的起源。 我已经追问过福奇博士、国家卫生研究院主任柯林斯和国务部长布林肯，为什么我们不将情报界的信息解密。 他们都没有一个好的答案为什么我们不应该有尽可能多的透明度。 （附福克斯新闻采访视频）
 
-#### 责编：人间四月
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11214523/1.jpg-6.png)图片来源：RFI
-《美国保守党》（The American Conservative）杂志近日发表文章，由于美国的制造业过于依赖中共国，近期不断增长的反华情绪，CCP病毒的影响以及华盛顿对中共国所表达出的某些夸张言辞，一些美国政治观察家们都感到美国正处在和中共国展开一场热战的边缘。
 
-关于战争冲突不可避免的话题，许多华盛顿的政客却假装“眼不见心不烦”，他们从不关心与中共国开战首先要明确的政治利益，或者即将来临的太平洋战争怎样打才能赢，但是这些都是必须考虑的问题。
 
-如果这场新的太平洋战争是出于政治目的，想要改变中共政府内部或者外部的行为，让中共国没有能力抵制美国的政治要求，那是不值得的，因为现在的中共国不是1941年的日本帝国。日本当时的经济总量大概是美国的十分之一，就是这样也要美国三年的艰苦战争才能赢回美国在珍珠港和菲律宾的惨败。而且，当年日本决定袭击珍珠港的美军时，日本已经在中共国的几个省，英国和荷兰展开了战争。
+> Americans need an answer on COVID's origins.
+> 
+> I've pressed Dr. Fauci, NIH Director Collins, and Sec. of State Blinken on why we wouldn't declassify the info our intel community has. 
+> 
+> None of them had a good answer why we shouldn't have as much transparency as possible. [pic.twitter.com/uQ22JPQ5XT](https://t.co/uQ22JPQ5XT)
+> — Senator Mike Braun (@SenatorBraun) [June 11, 2021](https://twitter.com/SenatorBraun/status/1403417203756703745?ref_src=twsrc%5Etfw)
 
-今天的中共国经济规模接近美国的经济规模，与日本帝国相比，中共政府尽管与其邻居存在一些争端，但是整体上避免与它们有军事冲突。实际上，由于中共国与澳大利亚、文莱、柬埔寨、印度尼西亚、日本、老挝、马来西亚、缅甸、新西兰、菲律宾、新加坡、韩国、泰国和越南等亚太国家建立了自由贸易协定（RCEP），华盛顿想要与它们建立反中共的联盟变得很困难，甚至不可能。美国的外交官发现没有任何一个国家真的想卷入美国和中共的冲突中。
 
-与此同时，中共不会面临两条战线作战，俄罗斯或者印度不会冒险与中共国开战。然而在与中共国的战争中，美国必须采取严肃认真的态度冒险可能需要与中共国和俄国同时作战，这两大主要的地区军事力量，能让他们联手起来就时因为华盛顿对这两个国家都怀有敌意。
 
-关于与中共国发生冲突的可能性上，左翼在大多数讨论中都认为美国的空军和海军对中共国大陆进行袭击就会成功。如果地面战争排除在外，那样做是合理的，很容易想象，对中共国的基础设施快速进行远程打击所造成的破坏能够快速结束战争，就像在科索沃、叙利亚以及最近的伊拉克进行的空中行动。
+参议员霍利新闻办公室： 霍利告诉新闻社[@newspressnow](https://twitter.com/newspressnow)，在最近那些破坏性的电子邮件被公布后，是时候该福奇辞职了 “与参与或资助武汉病毒研究所研究的团体和科学家有通信，并积极试图隐瞒他们的参与。”
 
-然而鉴于中共国防的规模和深度，即使那样的打击能造成极大的损失，但是本质上影响中共领导取得战略胜利似乎看起来不可能。当今是基于情报、监视和侦查的时代，掩饰美国的空军海军在中共国海岸线大规模集结的行动有难度，似乎不太可能，美国海军水面舰队和美国的岛屿基地承受极为严重损失的可能性也是非常高的。
 
-简单来说，中共国是可以承受那些破坏的。实际上，最有可能的结果是一连串的进攻性打击，但是随着时间推移，这种战术收益递减。在太平洋地区要维持对中共国连续打击，所需要的后勤保障基地很薄弱甚至不存在。而且，中共国是拥核国家。美国诉诸核武器打击中共国是自杀行为。核震慑对阻止中共对美国领土的核袭击是有用的，除此之外，在军事是完全没有用的。如果真的发生与中共国进行核战争，那么对人类和气候将会产生严重后果。
 
-#### 评：
+> Hawley told [@newspressnow](https://twitter.com/newspressnow?ref_src=twsrc%5Etfw) it's time for Fauci to resign after the recent release of damaging emails
+> 
+> "There's correspondence with groups and scientists who participated or funded research at the Wuhan Institute of Virology, and were actively trying to conceal their involvement." [pic.twitter.com/E1qoZq1Wew](https://t.co/E1qoZq1Wew)
+> — Senator Hawley Press Office (@SenHawleyPress) [June 11, 2021](https://twitter.com/SenHawleyPress/status/1403392610920767490?ref_src=twsrc%5Etfw)
 
-本文作者呼吁不要战争，应该还是指的传统的热战模式。无论是天道还是人道，没有人希望发生战争。但是就CCP病毒给世界造成的巨大损失，不亚于任何一次大战，事实上世界已经处在中共的超限生化战中了。现在世界上觉醒的人以及我们爆料革命的战友们都很清楚，这次的病毒就是来自中共的实验室和中共有意投放到世界。我们可以不要战争，但是没有理由不追责中共，以中共100年的行事风格，战争是在所难免，世界站在战争的正义一面。
 
-另外，文中分析的中共经济规模、核威慑力量以及所谓的经济合作伙伴等的原因，译者认为澳大利亚，新西兰，日本等这些国家现在不都是因为追溯病毒来源而与中共外交关系陷入冰点。CCP病毒给世界人民造成的灾难，没有哪个国家不会为自己的国民去追溯病毒来源的，现在全世界都在忙着溯源病毒来源，各种信息和情报都指向武汉病毒研究所，这是世界目前病毒溯源的进展。中共配不配合国际社会调查才是决定有没有与中共战争的前提，这个战争不是美国一家就能决定的，而是全球各个国家都有决定的权利。
 
-原文链接 [America’s Coming War With China](https://www.theamericanconservative.com/articles/americas-coming-war-with-china/)
+参议员詹姆斯·兰克福德： [#共产主义中国](https://twitter.com/hashtag/%E5%85%B1%E4%BA%A7%E4%B8%BB%E4%B9%89%E4%B8%AD%E5%9B%BD?src=hashtag_click) 的恶者故意试图压制或歪曲有关 COVID-19 及其传播的信息，需要对他们追责。今天，我与科顿参议员及其他共和党同事一起提出立法来制裁这些官员。 【附兰克福德参议员官网发布的新闻：兰克福德等提法案：李文亮全球公共卫生追责法案】
+
+
+
+> Bad actors in communist [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) who knowingly attempt to suppress or distort information about COVID-19 and how it spread need to be held accountable. Today, I joined [@SenTomCotton](https://twitter.com/SenTomCotton?ref_src=twsrc%5Etfw) & my GOP colleagues to introduce legislation to sanction those officials. 
+>  [https://t.co/ewxUZnkeLy](https://t.co/ewxUZnkeLy)
+> — Sen. James Lankford (@SenatorLankford) [June 10, 2021](https://twitter.com/SenatorLankford/status/1403075745375653889?ref_src=twsrc%5Etfw)
+
+
+
+众议员迈克·华尔兹： （自由灯塔的编辑）康蒂内蒂[@Continetti](https://twitter.com/continetti)是绝对正确的，[#CCP](https://twitter.com/hashtag/CCP?src=hashtag_click) 掩盖COVID，应该取消 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 举办奥运会的资格。 再加上他们正在进行的种族灭绝、对台湾的威胁以及对香港和西藏的镇压。 [#抵制北京2022](https://twitter.com/hashtag/%E6%8A%B5%E5%88%B6%E5%8C%97%E4%BA%AC2022?src=hashtag_click) 【附自由灯塔专栏文章：怎样让中共国付出代价】
+
+
+
+> .[@Continetti](https://twitter.com/continetti?ref_src=twsrc%5Etfw) is absolutely right that the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s coverup of COVID should disqualify China from hosting the Olympics. 
+> 
+> Add on their ongoing genocide, threats against Taiwan, and repressions against Hong Kong and Tibet. [#BoycottBeijing2022](https://twitter.com/hashtag/BoycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/wNhzMP2YPf](https://t.co/wNhzMP2YPf)
+> — Rep. Mike Waltz (@michaelgwaltz) [June 11, 2021](https://twitter.com/michaelgwaltz/status/1403383877356462081?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬佩奥： [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 掩盖了武汉 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的传播。 如果你们想让本届政府要求回答，请转推。
+
+
+
+> The Chinese Communist Party covered up the spread of the Wuhan virus. 
+> 
+> RETWEET if you want to see this administration DEMAND ANSWERS.
+> — Mike Pompeo (@mikepompeo) [June 11, 2021](https://twitter.com/mikepompeo/status/1403351027290673152?ref_src=twsrc%5Etfw)
 
 
 

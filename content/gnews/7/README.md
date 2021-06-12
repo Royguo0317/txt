@@ -1,60 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 民调显示近54%的美国人相信病毒源自武汉病毒所
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315948/)
+## 从【习近平爱读的书】到【马背英雄】
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315981/)
 
-新闻来源：《布赖特巴特新闻网》Breitbart| 作者：Wendell Husebø| 发布时间：2021年6月10日
+作者：gokuabuela|校对：X-Wing|审核：Beicy-数学老师|Page：小雨
 
-翻译/简评：大和凯多|校对：clau|审核：Beicy-数学老师|Page：小雨
+[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/58390736-5f39-4847-80f2-d3fadace0a09.jpg?asset_id=65f8eaa2-111d-44aa-909f-3e1645323f7b&amp;img_etag=%226515b6e0b89c66008e9e31c5f87d0527%22&amp;size=1024)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/58390736-5f39-4847-80f2-d3fadace0a09.jpg?asset_id=65f8eaa2-111d-44aa-909f-3e1645323f7b&amp;img_etag=%226515b6e0b89c66008e9e31c5f87d0527%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GznhayN2hBLgn/images/4d7a7f23-d1b0-47b5-bf64-9c97b11d8e65.jpg?asset_id=e6578697-cdfc-4e4e-adc7-4e5f7df2e63c&amp;img_etag=%2293ec5921a8b02fda451c574c6ba92fcf%22&amp;size=2560)](https://spark.adobe.com/page/GznhayN2hBLgn/images/4d7a7f23-d1b0-47b5-bf64-9c97b11d8e65.jpg?asset_id=e6578697-cdfc-4e4e-adc7-4e5f7df2e63c&amp;img_etag=%2293ec5921a8b02fda451c574c6ba92fcf%22&amp;size=1024)
+日前，西班牙的媒体报道了世界领导人都喜欢看什么书。 西班牙首相喜欢看人物传记，例如【邱吉尔传】，【托尼·布莱尔传】等。奥巴马喜欢看反种族主义的书。乔·拜登则喜欢看爱尔兰诗歌。那么，习近平呢？文章说：“习近平自称看过很多中国、俄国和西方的名著，有一串长长的书单，尽管从来没有见他引用过任何内容”。 习近平最喜欢的书是：【主算法】（The master algorithm），这是比尔·盖兹推荐过的书，主要是讲述可以用人工智能的算法，以最有效的方式做出行政和政治决策。还有就是【金钱改变一切】和【智能生活】，而据称习近平最喜欢的书是【灰犀牛】——“如何认识我们所忽视的明显危险并采取行动”。这些书大部分都是属于美国的科普读物。
 
-**简评：**
+[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/3605ebfe-97ff-40d6-8632-3d42f409a58c.png?asset_id=3fe28a2e-94c3-441e-9065-fae07dae1b59&amp;img_etag=%228d2b0a8ae72bf9a4369e76ee5de81cbc%22&amp;size=2560)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/3605ebfe-97ff-40d6-8632-3d42f409a58c.png?asset_id=3fe28a2e-94c3-441e-9065-fae07dae1b59&amp;img_etag=%228d2b0a8ae72bf9a4369e76ee5de81cbc%22&amp;size=1024)
 
-6月3日至7日的一项民意调查显示，大多数美国人现在相信冠状病毒起源于武汉病毒研究所。国会山的立法官员们正在查看一份关于病毒来源秘密的报告，该报告据称支持冠状病毒起源于武汉病毒研究所的说法。一位共和党众议员表示他们很想知道病毒来源，这个问题的答案比他们当初认为的要严重很多。
+有意思的是，随后几天，记者设法采访了【灰犀牛】的作者， 米歇尔·乌克（Michele Wucker）， 让她谈谈对习近平的看法。 不可避免地谈到了疫情，她称“中共国对危险有自己的看法，有更高效的组织，这点比美国好得多”。
 
-关于病毒来源这个问题，全世界迫切地需要一个答案。不管中共如何玩弄手段，所有问题的根源都必须从这个话题开始。病毒来源这个问题一旦有了确定的答案，也就是说美国一旦宣布病毒来源于中共的武汉病毒研究所，而且是中共军方参与的，那这场病毒大流行的性质就变成了中共向全世界发起的一场生物战争。历史会因此而改变。中共血债累累，杀人无数，全世界必将对这个魔鬼进行大审判。
+这样的回答并不令人吃惊，从文化的角度来说，西方很久以前就开始培养这种白左的思想。1995年的奥斯卡评比，【阿甘正传】击败了【肖申克的救赎】获得了最佳影片。当年很喜欢【阿甘正传】，但是，现在回想，它宣扬的就是：在一个规则内，你只要完美地遵守规则，哪怕你是一个傻子，你也能获得一切。洗脑就是这样悄无声息的，很早前就开始了。
 
-**原文翻译：**
+再说说音乐界，80，90年代最流行的是摇滚乐，反叛、呐喊、抗争，表达对社会的不满和对人生的思索。德国的蝎子乐队（Scorpions）在1989年9月创作了【变革之风】（WIND OF CHANGE）, 纪念中国的6.4事件和苏联的逐步开放，结果1989年11月柏林墙倒塌，该曲成为铁幕崩塌，共产主义衰落，人类迎来和平的标志曲目，激励了整整一代人。
 
-## **民意调查：大部分人现在相信冠状病毒源自武汉病毒研究所**
+而到今天，再无这样直接撼动你心底的歌曲，也无让你心灵震颤的电影，更无如【丧钟为谁而鸣】，【百年孤独】这样的文学巨作。这一切，都是黑暗势力早早地就开始了文化圈禁运动。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GznhayN2hBLgn/images/fdbefc68-268d-4db3-9fa0-72c01e49a9cc.jpg?asset_id=38437367-bf32-4ab7-ba7f-1625d6081aba&amp;img_etag=%221b9c0cba14893c5021770281780397c5%22&amp;size=2560)](https://spark.adobe.com/page/GznhayN2hBLgn/images/fdbefc68-268d-4db3-9fa0-72c01e49a9cc.jpg?asset_id=38437367-bf32-4ab7-ba7f-1625d6081aba&amp;img_etag=%221b9c0cba14893c5021770281780397c5%22&amp;size=1024)图片来源：盖蒂图片社
+把人圈起来，打造一个【楚门的世界】，遮住真实的天，围住你的周围，让你看到的是：服从和规则，让你谈论的是娱乐和气候，以及忽视自然差异的绝对平等。不让你拥有的是反抗和呐喊。剥夺的是你的自由和勇气。
 
-**周三公布的一项民意调查显示，现在大多数美国人相信冠状病毒是起源于武汉病毒研究所。**
+经过30年的努力，欧美人也从野狼被哄成了家犬，和他们被散养不同，中国人有着更显而易见的悲惨，就是真正的被圈养成羊，不仅不能反抗，连回忆和批评都不行。看看中国那长长的禁片名单，还没开始反抗呢，就被“防患于未然”了。
 
-当Trafalgar Group（译者注：Trafalgar Group是一家民意调查公司。）询问受访者时，“关于新冠状病毒起源的看法，您最想说什么？”，近54%的人表示该病毒起源于实验室。
+世界就在这“祥和”的气氛中走到了今天，没有人去真正约束共产党的行动，他们撕毁了协议，血洗了香港。他们建立了集中营，灭绝新疆人。他们和黑暗势力联合，对全人类进行大清洗，微弱的反抗声很快被掩盖，甚至不如瑞典的环保女孩更被人所知。
 
-更具体地说，29.1% 的人认为病毒是故意从实验室释放的，24.4% 的人认为它是从实验室意外泄漏的。
+曾经长生天的子民，金帐汗国的后代，面对奴役，已经沦落到了不敢反抗，不知道反抗的地步。看过国内的一个直播，是几个蒙古汉子直播吃肉，是的，身高马大的汉子，直播各种吃肉，牛肉，羊肉，蒸着吃，煮着吃，烤着吃。而另一边，牧场年年被侵占，被缩小，蒙古文教学被禁止，蒙古的孩子被黑警毒打，蒙古的女公务员愤然自尽。
 
-29.3% 的人表示他们不确定病毒的来源。
+丢失了战马，失去了雄鹰的不仅仅是草原儿女，也是我们每一个人，包括世界上的每一个人。病毒肆虐，疫苗飞速普及，病毒起源尚在艰难推进。这一年多来，科学界、媒体、政治家，大部分都还在沉默。西方社会并没有我们预想中的反抗和呐喊，最多就像小羊羔嘶喊了两嗓子，低下头继续吃草。社会的进步需要不屈的灵魂，我们需要发出呐喊。
 
-这项民意调查是在立法官员查看一份秘密报告之际进行的，该报告据称支持冠状病毒起源于武汉病毒研究所的说法。
+艺术是心灵的表达，【愿荣耀归于香港】，圣洁和不屈的歌声让香港从中共的战火下重生，成为我们心中的圣城。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GznhayN2hBLgn/images/1bd0b5ca-a899-4c59-a872-706c792166dd.jpg?asset_id=5eddbf82-a831-4bd9-ae35-1962766620b7&amp;img_etag=%224bfae2d6aee149d9a609f0cb24cf1582%22&amp;size=1024)](https://spark.adobe.com/page/GznhayN2hBLgn/images/1bd0b5ca-a899-4c59-a872-706c792166dd.jpg?asset_id=5eddbf82-a831-4bd9-ae35-1962766620b7&amp;img_etag=%224bfae2d6aee149d9a609f0cb24cf1582%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/4ec5f93d-0220-494e-8d02-c87c7eed28bd.png?asset_id=0f4d8418-72c7-4c37-a1e4-160fab4ebb99&amp;img_etag=%22fee93ee78154bbe89821f404db7274d0%22&amp;size=1024)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/4ec5f93d-0220-494e-8d02-c87c7eed28bd.png?asset_id=0f4d8418-72c7-4c37-a1e4-160fab4ebb99&amp;img_etag=%22fee93ee78154bbe89821f404db7274d0%22&amp;size=1024)
 
-众议院能源和商务委员会委员摩根•格里菲斯（弗吉尼亚州共和党人）对该报告表示：“我觉得我们很多人都认为各个监督委员会应该更早一点知道这份报告。我们很想知道答案……因为我们认为他们掌握了比我们在3月份所知道的更多实情。”
+【马背英雄】的横空出世，就像黎明的第一束光，宣告了推翻共产党，反抗大重启计划的到来。在这个至暗时刻，尤其重要。佛家说“当头棒喝”，【马背英雄】就是唤醒人们反抗精神的那声“棒喝”。
 
-这份绝密报告是由政府支持的劳伦斯利弗莫尔国家实验室的研究人员于2020年5月发布的。
+[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/2ed414e8-2939-4b02-ae49-b0e6c6e7d278.jpg?asset_id=941c2b59-f1b5-4017-a5ec-f5a599072527&amp;img_etag=%22ff43914e8147c89dbf5a9b6e5a2147a2%22&amp;size=1024)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/2ed414e8-2939-4b02-ae49-b0e6c6e7d278.jpg?asset_id=941c2b59-f1b5-4017-a5ec-f5a599072527&amp;img_etag=%22ff43914e8147c89dbf5a9b6e5a2147a2%22&amp;size=1024)
 
-与此同时，负责调查病毒实验室泄漏的前副助理国务卿戴维•费思(David Feith)于6月2日表示，如果政府、教育机构和企业在和中方进行科技交流，是不能确定他们是否是在不知情的情况下与中共军方合作。
+【马背英雄】就是我们的战歌，这个时代需要英雄，爆料革命必出英雄！全世界人民需要掀翻桌子，长身而起，要生存，要反抗！
 
-当前任国务卿迈克•彭佩奥被问及他是否相信中共军方参与了武汉病毒实验室的研究时，他答道：“这是肯定的。这是一个高度可信的评估，就是这个情况。”
+“你要战，那便战”！
 
-无论科学界和中共之间有什么联系，国务院关于病毒起源的概况介绍说，中共已经“系统地阻止了对新冠病毒大流行起源进行透明和彻底的调查，并且选择将大量资源用于欺骗和造谣。”
+**新闻参考：**
 
-该民意调查于6月3日至7日进行，共有1025名类似大选选民的受访者参与。该民意调查误差幅度为3.06%。
+- [El inquietante abismo entre lo que lee Pedro Sánchez y lo que leen los políticos chinos](https://blogs.elconfidencial.com/espana/takoma/2021-05-24/libros-politicos-occidentales-chinos_3095004/)
+- [La mujer que enseñó a Xi Jinping a torear un rinoceronte gris: “Ven diferente los riesgos”](https://www.elconfidencial.com/mundo/2021-06-05/michele-wucker-pandemia-rinoceronte-gris_3115963/)
 
-🔗[原文链接](https://www.breitbart.com/politics/2021/06/10/poll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology/)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
+文章仅代表作者观点
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GznhayN2hBLgn/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/GznhayN2hBLgn/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

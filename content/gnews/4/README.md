@@ -1,61 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】 千亿投资的港珠澳大桥，为何如今“鞍马稀”？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1316013/)
+## 国会议员Matt Gaetz在国会山就闫博士与新冠病毒一事质询FBI局长
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1316006/)
 
-作者：香草山农场  鹰(文言)
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-2-1.jpeg](https://lh3.googleusercontent.com/Er5mBSkSkg7Ctx_BSqBbxnEJfevKrAvBlD7_Qwsz1EnoAIQIJBgjW34F9luWd2eMQxtFWLxQg_dGNIPVHTypFOR4lrKH7YP0vpQhJo8EOMTOpAkRtUeMRcSmEgCZCl82cL9vGXuf)
+蒙特利尔皇家山战友团 作者: 平民正道
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11223454/FBIA_061021-1.jpg)图片来源： Gnews
+2021年6月10号上午众议院司法委员会听证会在国会山举行, FBI局长Wray接受质询。国会议员Matt Gaetz说，冠状病毒起源的问题一直在没有得到彻查。我们都看到了福奇的邮件，很明显福奇早就知道新冠病毒的内幕，但他装做不知道。6月10号上午，七国集团（G7）呼吁重新调查病毒起源。拜登政府打压对病毒起源问题的调查。Matt Gaetz想搞清楚FBI在冠状病毒起源问题上的立场。
 
-环球网6月12日转载央视新闻客户端消息，截至2021年4月经港珠澳大桥珠海公路口岸进出口总值2016亿元。
-![This image has an empty alt attribute; its file name is Untitled-design-2021-06-11T203233.954.png](https://lh6.googleusercontent.com/HqxgyYDMu1CJGLH6YSTuRGFNLtLwaNmmqTiK_w40eTIfJhh04tnVTT4dcCRAu5CmQEtAAVGB4QYov4DuTCBwilq5C9rBXde6N86axpy-AEuZkATwf07kJ1nwSNB7HiQPLbEFhB9q)
-港珠澳大桥于2009年12月动工，用以连接深圳、香港和珠海，全长55公里，投资金额达1269亿元，为了充分发挥港珠澳大桥对地区贸易的牵引作用，中共在设计过程中不但配备7项取得技术性突破的子系统（包含消防、供电、给排水和防雷等），更将通车频率设定为5-6万辆/天以应对繁忙的跨境车辆，为此耗时2年专门研制兼容不同制式的全自动缴费系统。
+Matt Gaetz描述到，2020年4月28日闫丽梦博士抵达洛杉矶机场后一位联邦调查局(FBI)探员跟她进行了面谈。会谈结束后，闫博士随即飞往纽约，这位FBI探员也跟随她前往纽约。该探员还在2020年5月1日和2日跟闫博士（在纽约）进行了2次谈话。闫丽梦博士的手机被FBI拿走了。那是一部包含重要信息的手机，里面有闫和北京疾控中心主任微信对话的证据。根据微信内容我们可以知道，从2019年12月起，中共军方参与了病毒的研发过程，病毒与武汉病毒研究所之间的具体联系也在其中。Matt Gaetz问雷探长，他是什么时候获知他的探员与闫博士有接触的？是什么时候审阅了那些微信信息？
 
-但在18年10月正式通车后，港珠澳大桥使用率却差强人意。根据广东省交通部门数据，截至2019年10月大桥开通一周年，经港珠澳大桥的旅客总数2443.45万人次，但通行车辆却仅有153.72万车次，日均4212车次，不但低于二级公路的通车量（二级公路年平均日交通量5000-15000辆），更不及其设计参数的一成标准，2020年的通行频率更是惨不忍睹，甚至达到10分钟一辆车日均150辆的程度。
-![This image has an empty alt attribute; its file name is Untitled-design-2021-06-11T203257.897.png](https://lh5.googleusercontent.com/I-u3LS6skzfrq1l2zyoAGG8a9dXLgFbvqk5eEXdqemcKUIgdc0xgJZJ1bSrq8_-CB2fpnc-_bBUHg862rsuIj-NYe4o6uyKzsIlfozujgwQR7qqmioDfLOZc4fZ5NlUTrW929vu5)
-虽然港珠澳大桥通行车辆繁多包含跨境巴士、穿梭巴士、跨境出租车、货运车、私家车等，但只有取得大桥口岸通行车牌的上午车辆才能获得行驶指标。港珠澳车牌的申办门槛较高，广东省3年内纳税累积100万元的国企、集体企业、私企民企可申请一辆通行车辆；境外投资者在内地投资且3年纳税额达10万元可申办第一张通行证，纳税额达50万可申办第二张，除了通行证的申请缓解繁琐难度较大外，同行车牌的价格高昂也让私家车主望而却步（如2018年11月现牌转让价格50万元），截止2018年2月22日，广东省共办理并发放11211个通行商务车指标。诸多因素造成港珠澳大桥的通车成本居高不下，再加上固定的指标限制，这才导致大桥建成后如此“闲置”。
+Wray的回答像是打太极，故意岔开话题。他没有在这个场合提及任何具体的调查。笼统地说到他一直在大声疾呼，并且愿意继续对敌对国的反情报威胁发表意见。并认为美国面临的最严重威胁是来自中华人民共和国和中国共产党的形式多样的反情报威胁。Wray避开闫博士不谈，显然有问题。
 
-虽然中共为了增加大桥对周边经济的刺激并于20年7月正式开髋跨境电商业务，但由于其收费标准（普通货车60元/车次，货柜车115元/车次）依据高于国内大多高速公路平均收费0.4元/公里（55公里对应收费22元），再有上文提及申办同行车牌价格高昂，所以截至2021年5月7日，场站运送的跨境包裹仅为2200万个，这一数值还不及2021年春节期间（2月11-17日）深圳全市快递收件量2400万件。
+Matt Gaetz打断了Wray的谈话，给他施压，让他说说闫博士来美一事。Wray继续回避，Matt Gaetz穷追不舍道：
 
-除了上述成本原因，更重要的是由于2019年香港返送中运动，中共抹黑造谣并利用黑社会和假警等武装力量进行大抓捕和破坏，严重影响了香港地区的商贸往来，不但各大外资企业纷纷搬离，更有大批香港人士被迫离开故土。而《国安法》、选举法等中共独裁法律的制定和施行更将香港的自由贸易和契约精神付之一炬，香港已经完全沦为中共残害下的臭港，最大的外资引进渠道和交易平台都被中共“杀鸡取卵”，而严重依赖香港经济驱动的港珠澳大桥及奥港澳大湾区又何谈能够“无薪独烛”。
+回溯到2020年4、5月份10月份，美国还没有近60万人死于冠状病毒。2020年10月14日，FBI探员Andrew Zitman带了一个为 FBI工作的科学家。2020年10月14日他去纽约见了闫博士。这个科学家和闫博士开了近6个小时的会。Matt Gaetz希望Wray告诉我们有关这次会议的一些事情和就冠状病毒的起源.他批评Wray到，闫博士来到美国已经一年了，他接受不了Wray没有提及任何有关这方面的事情。Wray没有向外界说明（FBI）是否有病毒起源的情报，这些情报对美国人的安全和健康至关重要。
 
-新闻来源：
+面对Matt Gaetz的质问，FBI局长继续狡辩。他说甚至总统先生本人（也公开提及过），情报界一直在对此进行调查。情报界内部对冠状病毒起源问题也存在分歧。
 
-经港珠澳大桥进出口总值突破2000亿元https://china.huanqiu.com/article/43VDolYT0EO
+Matt Gaetz希望美国让中共为病毒的事负责。他要求FBI对一下内容的科学分析提供给本委员会：闫博士的说法，闫博士提供给FBI的信息，北京方面对病毒起源的认知，中共军方的参与，以及甚至在事发之初试图抛出一个假基因组序列来糊弄这个世界。
 
-识别车牌仅需0.3秒，港珠澳大桥的收费系统堪称一绝https://3g.163.com/dy/article/D85P5MQM0511DTU9.html
+Wray还想继续糊弄大家，只说了会让他的员工与大家接触，看看能否分享什么信息之类。
 
-港珠澳大桥海关助力跨境电商加速跑 总货值超59亿（图）http://www.customs.gov.cn/customs/xwfb34/302425/3659102/index.html
+Matt Gaetz有些生气地说到：当闫博士发布了关于中国及其军方参与制造病毒以及病毒从实验室流出的声明，有很多人想诋毁她。他质问FBI局长是否有能力认定那种诋毁闫博士的行径属于中共所开展的反情报行动。
 
-如何破解港珠澳大桥冷清之困？毛艳华：增加深圳支线难度大，视粤港澳大湾区为共同家园来挖掘大桥的潜力！https://www.163.com/dy/article/GC2H6VH90550TXTJ.html
+Wray还是没有正面答Matt Gaetz议员地问题。他向Matt Gaetz议员保证，回去会跟他的人一起看看能提供哪些信息以及须要采取何种形式来提供信息。
 
-港珠澳大桥成“摆设”？投资千亿却车流稀少，司机：条件高没资格https://new.qq.com/omn/20210410/20210410A08RO900.html
+就有关闫博士的手机被FBI探员Dana Murphy拿走的那个来自司法部的收据，Matt Gaetz议员得到全体无异议同意。
 
-今年港珠澳大桥格外“冷清”，平均10分钟通行1辆车https://www.sohu.com/a/425405365\_100143648
+[参考链接:](https://www.youtube.com/watch?v=_gj5891KRJM)
 
-五分钟了解公路等级划分 https://www.sohu.com/a/169725645\_99919239
+* * *
 
-港珠澳大桥正式开通 “联合车牌”供不应求叫价50万https://finance.sina.com.cn/roll/2018-11-03/doc-ihmutuea6494075.shtml
-
-留守深圳人寄出年货2400万件 http://shenzhen.sina.com.cn/news/n/2021-02-19/detail-ikftpnny7823411.shtml
-
-校对/发稿：火内
-![This image has an empty alt attribute; its file name is 6_june-2.jpeg](https://lh3.googleusercontent.com/8PDnMEWvM_0NbOhqugdPTNrglErpeqa00buVdg17-UaJV363Mv_I_RiH6P3EOw_RwgAEBk2U2u3YGsGqRDqmWxiiMWW-IJJrURcwqAngrq__fd-eYRIF08vpQ9ZNhoQx7GDq84px)
-更多资讯，更多关注
-
-[纽约香草山农场GTV-香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[纽约香草山农场GTV-MOS TALK](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)香草山访谈
-
-[纽约香草山农场Twitter](https://twitter.com/HIMALAYA_MOS)(中文)
-
-[纽约香草山农场Twitter(英文)](https://twitter.com/MosHimalaya)
-
-[纽约香草山农场 YouTube](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+编辑、发布 ctt
 
 0
