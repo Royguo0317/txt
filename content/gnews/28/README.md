@@ -1,33 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 超七成美国人认为中共病毒可能来自实验室
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315649/)
+## CNN也给中共添堵
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315702/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11183837/c-6.jpg)citizen.co.za
-The Gateway Pundit网站6月10日报道，民调专家理查德·巴里斯今天在《作战室》上与史蒂夫·班农分享了他的发现——超过70%的美国人认为至少在某种程度上可能是实验室制造的中共病毒。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11193917/B-11.jpg)swifttheadline.com
+目前为止从G7峰会上看不到太多的讨共、罚共的消息，给人一种G7们“不敢惹中共”的感觉，只在疑似中共大外宣的CNN看到一则对中共似夸似贬的短文，“中共国可能不是七国集团的成员，但它在议程上占据主导地位”【1】。
 
-自福奇800多封邮件被曝光，越来越多的证据表明福奇与武汉病毒研究所有着密切的联系。
+6月11日的文章说，中共国的崛起及带来的意识形态挑战，将成为七国集团峰会领导人面临的最紧迫议题之一。
 
-美国国家过敏症和传染病研究所 (NIAID) 为武汉病毒研究所资助了370万美金进行功能增强研究。武汉病毒研究所将美国国立卫生研究院 (NIH) 列为其“合作伙伴”之一，但于 2021 年 3 月秘密删除了这个内容。
+作为美国总统的第一次国外之行中，拜登将试图说服盟国加入华盛顿，对北京在新疆、香港和南海等地区的行动采取强硬立场。
 
-一年多来，中共政府、美国医疗精英和新闻媒体巨头一直在推动武汉病毒是从蝙蝠传播到人类的说法。在福奇的帮助下，美国得以资助中共制造致命病毒，用于致命的生物攻击。病毒真相就是源自中共实验室的生物武器，福奇博士和媒体为了掩盖事实撒了一年多的谎。
+拜登上周在《华盛顿邮报》（the Washington Post）上撰文指出，“美国必须强大以领导世界”，对抗包括“中俄两国政府的有害活动”。
 
-即使美国被深度腐蚀的政客仍卖力地为中共隐瞒真相，罔顾民众生死，但是民意已起，追查病毒真相的意志将无法逆转。这是这一年以来爆料革命和新中国联邦不懈努力的结果。感谢文贵先生，感谢班农战斗室，感谢闫博士和无数台前幕后为此拼搏奋斗默默无闻的战友。病毒真相是中共的终结者，“以毒灭共”已经势不可挡。
+在一些地区，有迹象表明这种统一战线已经形成。
+
+在周四（6月10日）的一份联合声明中，拜登和他的英国同行鲍里斯·约翰逊（Boris Johnson）誓言支持进一步调查中共病毒的来源，包括在中共国的来源。
+
+来自英国和其他七国集团成员国的支持，将为拜登推动重新审查病毒来源，包括对实验室泄漏理论进行新的审查增加砝码。北京上个月猛烈抨击拜登的呼吁，指责华盛顿“通过政治操纵来推卸责任”。
+
+据报道，预计拜登在峰会上将推出一个绿色替代方案，与中共国的“一带一路”倡议相抗衡，旨在支持发展中国家的可持续发展。
+
+（CNN文章完）
+
+美英联合声明就中共病毒起源问题的表述如下【2】：我们还将支持世卫组织主持的中共病毒（COVID-19）起源调查的第二阶段，包括中共国在内的一个及时、透明和以证据为基础的独立程序，以及调查来历不明的疫情。
 
 参考链接：
 
+【1】[https://www.cnn.com/world/live-news/biden-g7-summit-updates-intl-06-11-2021/h\_bfc1491d4ddde2ea76d30e6b0c725233](https://www.cnn.com/world/live-news/biden-g7-summit-updates-intl-06-11-2021/h_bfc1491d4ddde2ea76d30e6b0c725233)
 
+【2】[https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/10/joint-statement-on-the-visit-to-the-united-kingdom-of-the-honorable-joseph-r-biden-jr-president-of-the-united-states-of-america-at-the-invitation-of-the-rt-hon-boris-johnson-m-p-the-prime-min/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/10/joint-statement-on-the-visit-to-the-united-kingdom-of-the-honorable-joseph-r-biden-jr-president-of-the-united-states-of-america-at-the-invitation-of-the-rt-hon-boris-johnson-m-p-the-prime-min/)
 
-
-
-> [More Bad News for Megalomaniac Tony Fauci: Over 70% of Americans Believe It’s at Least Somewhat Likely COVID Was Created in Lab](https://www.thegatewaypundit.com/2021/06/bad-news-megalomaniac-tony-fauci-70-americans-believe-least-somewhat-likely-covid-created-lab/)
-
-
-
-
-
-+1
+0
