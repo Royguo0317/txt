@@ -1,52 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报 — 中共反人类罪篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1315422/)
+## 美国必须打击中共国的“境外影响”
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1315502/)
 
-- 作者：蚂蚁兄弟
+#### 编译：Boxinglady ( 文拳）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11151113/Screenshot-2021-06-11-12.09.25-PM.png)
+美国参议员马克卢比奥周四表示，美国需要反击中国政府的“境外影响”，以更好地保护世界各地的维吾尔人，并要求对美国有线电视新闻网（CNN）报道的关于在北京的要求下，几个主要的阿拉伯国家在其境内驱逐了维吾尔人的事件进行调查。
 
+美国参议院外交关系委员会成员在与人权观察中共国部主任索菲·理查森的讨论中提到了这份独家报告。
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+“美国有线电视新闻网报道了一名维吾尔族男子在迪拜被迫离开其怀孕的妻子，被带走并被引渡到中共国，”卢比奥在周四向委员会发表的开幕词中说。 “如果我们现在不反击中共的境外势力，总有一天我们会发现这种做法会越来越频繁，以至于中共国以外的许多地方都将与中共国一样危险。领土被中共直接控制。”
 
-**西班牙2021年6月11日电/西喜社——**
+美国有线电视新闻网周二发布的报告记录了一系列据称应中共国要求从阿拉伯联合酋长国、沙特阿拉伯和埃及三个主要阿拉伯国家被拘留和驱逐出境的事件。一名维吾尔族男子仍有被沙特阿拉伯驱逐出境的风险。
 
-您若想了解全文报导内容，请点击标题链接
+近年来，在习近平主席的领导下，北京对该地区少数民族的政策明显加强，促使许多人逃往海外。被驱逐者的家人担心，他们的亲人最终会成为近年来被送往新疆拘禁营的大约 200 万维吾尔人中的一员。
 
-**1. [新报告详述中共国维吾尔族穆斯林遭受酷刑的第一手资料](https://www.npr.org/2021/06/10/1005263835/new-report-details-firsthand-accounts-of-torture-from-uyghur-muslims-in-china?t=1623415668129&amp;t=1623438210841)**
+前被拘留者和活动人士称这些为“集中营”——囚犯们在这些地方接受旨在去伊斯兰化的强烈灌输，被迫学习普通话，并接受共产党宣传的指导。
 
-10日，美国国家公共广播电台NPR，根据国际特赦组织周四发表的一份新报告，中共政府针对穆斯林少数民族群体的迫害行为构成了反人类罪。该报告详细介绍了中共政府有组织地大规模监禁、酷刑和迫害新疆省人民，包括维吾尔族和哈萨克族。报告还详细介绍了中共国政府广泛的掩盖行为。
+美国国务院指责北京对维吾尔人实施“种族灭绝”。中共国强烈否认侵犯人权的指控，坚称新疆营地是自愿的“职业培训中心”，旨在消除宗教极端主义和恐怖主义。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135327/unknown-6-2.png)
+简评：背负着种族灭绝罪的中共集权政府，不但在境内侵犯少数民族人民的人权，它的侵权魔掌早已通过中共在海外多年布局的蓝金黄和经济利益勾兑网络伸向了世界。此次报道中的阿拉伯国家屈服于中共而驱逐维吾尔人的事件，让西方国家清楚意识到中共在海外破坏人权的行为对破坏世界人权自由的危害。犯有族灭绝罪和向全球释放生物武器的中共政权终将被被扔进历史的垃圾堆中！
 
-**2. [中共国的维吾尔人生活在一个 “乌托邦式的地狱环境 “中](https://www.theguardian.com/global-development/2021/jun/10/china-uyghur-xinjiang-dystopian-hellscape-says-amnesty-international-report)**
+**图片及新闻来源: **[点击进入](https://abc17news.com/news/national-world/2021/06/11/rubio-says-us-must-fight-chinas-extraterritorial-reach-citing-cnn-report-on-uyghur-deportations/)
 
-英国卫报10日报道，国际特赦组织收集的中共国新疆地区侵犯人权的新证据显示，对于数十万遭受大规模拘禁和酷刑的穆斯林来说，新疆已经成为一个 “乌托邦式的地狱景象”。
+2021年6月11日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135437/unknown-7-3.png)
+本文仅代表个人观点，不代表 Gnews 平台
 
-**3.  [美国对维吾尔族种族灭绝的反应](https://www.browndailyherald.com/2021/06/10/harris-22-iqbal-24-american-response-uyghur-genocide/)**
+**校对发布**：紫橄榄
 
-面对维吾尔族人被中共灭绝的危机，美国站出来了，面对全世界大声谴责中共、有针对性的全球联合制裁和对维吾尔难民的直接援助，为应对我们这一代最恶劣的人道主义危机之一，提供了有效的负责任和手段。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135606/unknown-8-2.png)
-
-**4. [中共国的一些“苹果”供应商在招聘启事中说他们不会雇用维吾尔族穆斯林等少数民族](https://www.businessinsider.com/apple-suppliers-china-uyghur-muslims-job-postings-the-information-2021-6)**
-
-据The Information周二报道，中共国的一些“苹果”供应商不接受少数民族求职者，并明确表示边缘化群体的成员不应该申请。
-
-该新闻网站发现，为iPhone、iPad和AirPods生产零部件的公司在网上发布了歧视性的招聘信息，如电路板、iPhone玻璃、数据线和相机镜头。富士康科技是被发现的公司之一，招聘广告写道。“不接受来自西藏或新疆地区的藏族、维吾尔族、回族、彝族、东乡族人”。另一份来自生产iPhone零部件的国泰达明公司的文件写道：”只接受没有饮食限制的少数民族（维吾尔族除外）”。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135713/unknown-9-2.png)
-
-**5. **[**报道称阿联酋、沙特、埃及将维吾尔人驱逐至中共国**](https://www.middleeastmonitor.com/20210609-uae-saudi-egypt-deporting-uyghurs-to-china-report-says/)
-
-据CNN报道，土耳其、阿拉伯联合酋长国、埃及和沙特阿拉伯被列为将维吾尔族穆斯林驱逐到中共国的国家，这些引起了人们对中共日益增长的影响力的担忧。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135823/unknown-10-2.png)
-
-审核：Aries的星；校对：信心满满；发稿：信心的选择
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-+1
+0

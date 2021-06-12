@@ -1,56 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登指示商务部调查与外国对手有联系的应用程序
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315646/)
+## CNN也给中共添堵
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315702/)
 
-新闻来源：《布莱特巴特》| 作者：LUCAS NOLAN | 发布时间：2021年6月9日
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-翻译/简评：叶知秋（文义） | 校对：clau | 审核：Beicy-数学老师 | Page：我是球大哥
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11193917/B-11.jpg)swifttheadline.com
+目前为止从G7峰会上看不到太多的讨共、罚共的消息，给人一种G7们“不敢惹中共”的感觉，只在疑似中共大外宣的CNN看到一则对中共似夸似贬的短文，“中共国可能不是七国集团的成员，但它在议程上占据主导地位”【1】。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ItiaLJvs7QiIN/images/6d355c8d-3938-4570-a5a1-dc6ddeca4700.jpg?asset_id=7d5a75b7-314d-436f-acef-784975c768a1&amp;img_etag=%22518aa661fe90158959eabd6536c15a6e%22&amp;size=1024)](https://spark.adobe.com/page/ItiaLJvs7QiIN/images/6d355c8d-3938-4570-a5a1-dc6ddeca4700.jpg?asset_id=7d5a75b7-314d-436f-acef-784975c768a1&amp;img_etag=%22518aa661fe90158959eabd6536c15a6e%22&amp;size=1024)
+6月11日的文章说，中共国的崛起及带来的意识形态挑战，将成为七国集团峰会领导人面临的最紧迫议题之一。
 
-如本文所述，川普政府时期颁布的限制抖音、微信的禁令，实际上自颁布之后，由于法律问题，一直都是停滞不前的。如今拜登以一则新的行政命令取而代之，也未必是坏事。
+作为美国总统的第一次国外之行中，拜登将试图说服盟国加入华盛顿，对北京在新疆、香港和南海等地区的行动采取强硬立场。
 
-中共商务部对此事的回应，称其是“朝着正确方向迈出的积极一步”。但是《华尔街日报》报道说，“新行政令没有特别针对任何公司，但要求审查与中国等国有潜在联系的所有软件应用。因此，此举对中资所有的应用程式的打击力度甚至可能超过川普政府时期的禁令。”
+拜登上周在《华盛顿邮报》（the Washington Post）上撰文指出，“美国必须强大以领导世界”，对抗包括“中俄两国政府的有害活动”。
 
-由于众所周知的拜登家族与中共勾兑的丑闻，使得人们对拜登政府的对中政策一直都保持警觉。而实际上，自拜登政府上台以来，川普时期的很多反共政策都在稳步推进，尤其是在中共病毒问题上，更是出现了令人难以想象的进展，从媒体对病毒真相争相报道到科学界对实验室制造病毒证据的不断挖掘，中共病毒来自中共国实验室制造几乎得到公认。在台海问题上，美国参议院两党代表团本月6日乘坐美国空军的C-17运输机到访台湾的举动，等于明确警告中共政府不要轻举妄动，美国将与台湾站在一起。
+在一些地区，有迹象表明这种统一战线已经形成。
 
-抖音、微信及其它在中共控制下的应用程序，一直在为中共政权服务，这在中共国已经不是新鲜事，这些应用程序窃取用户隐私的做法更是毋庸置疑。中共国网民不敢在中共国社交软件上谈及任何政治敏感话题，就是深知这些应用程序会把个人隐私信息传递给中共政府，而政府也会利用这些被窃取的个人隐私信息对民众进行打压。川普政府对微信、抖音的封杀禁令难以奏效，一方面是因为中共这些年利用蓝金黄手段在美国有很深的渗透，另一方面是因为美国是法制国家，中共擅于利用美国法律的漏洞来为自己拖延时间。
+在周四（6月10日）的一份联合声明中，拜登和他的英国同行鲍里斯·约翰逊（Boris Johnson）誓言支持进一步调查中共病毒的来源，包括在中共国的来源。
 
-但是，这种情况不会一直存在。随着爆料革命对病毒真相的进一步推进，随着美国社会及世界各国在曝光的病毒真相面前进一步觉醒，中共很快将面临其无法应对的国际压力，当中共政权在世界各国的讨伐声中走向灭亡的时候，为中共服务的中共国网络平台及社交媒体自然会因其信誉的丧失而退出市场。
+来自英国和其他七国集团成员国的支持，将为拜登推动重新审查病毒来源，包括对实验室泄漏理论进行新的审查增加砝码。北京上个月猛烈抨击拜登的呼吁，指责华盛顿“通过政治操纵来推卸责任”。
 
-**原文翻译：**
+据报道，预计拜登在峰会上将推出一个绿色替代方案，与中共国的“一带一路”倡议相抗衡，旨在支持发展中国家的可持续发展。
 
-## **乔·拜登撤销了川普对中共国应用程序抖音和微信的禁令**
+（CNN文章完）
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ItiaLJvs7QiIN/images/285bed0e-5312-4e21-8d85-28f68cb5ade7.jpg?asset_id=2ac1b20c-82a1-4780-8a43-8c4d301f69fd&amp;img_etag=%22395d30789104fdacb04293e1d397f92c%22&amp;size=2560)](https://spark.adobe.com/page/ItiaLJvs7QiIN/images/285bed0e-5312-4e21-8d85-28f68cb5ade7.jpg?asset_id=2ac1b20c-82a1-4780-8a43-8c4d301f69fd&amp;img_etag=%22395d30789104fdacb04293e1d397f92c%22&amp;size=1024)Tasos Katopodis /盖蒂图片社
+美英联合声明就中共病毒起源问题的表述如下【2】：我们还将支持世卫组织主持的中共病毒（COVID-19）起源调查的第二阶段，包括中共国在内的一个及时、透明和以证据为基础的独立程序，以及调查来历不明的疫情。
 
-**乔·拜登总统签署了一项行政命令，撤销前总统川普对中共拥有的应用程序抖音和微信的禁令。**
+参考链接：
 
-据The Verge网站报道，拜登总统周三签署了一项行政命令，撤销了前总统川普对中共拥有的应用程序抖音和微信的禁令。取而代之的是，拜登将指示商务部调查与外国对手有联系的应用程序，这些应用程序可能对美国的数据隐私或国家安全构成风险。
+【1】[https://www.cnn.com/world/live-news/biden-g7-summit-updates-intl-06-11-2021/h\_bfc1491d4ddde2ea76d30e6b0c725233](https://www.cnn.com/world/live-news/biden-g7-summit-updates-intl-06-11-2021/h_bfc1491d4ddde2ea76d30e6b0c725233)
 
-这一行政命令取代了川普总统去年制定的一系列行政命令，这些行政命令在美国应用商店中屏蔽了包括抖音、微信和支付宝在内的应用程序，并采取措施阻止它们在美国运营。这些命令的许多影响因持续的法庭挑战而停滞不前，但周三的新命令将彻底撤销川普时期的命令。
-
-拜登的命令将建立一个新框架，涉及与中国等外国对手的政府或军队有关的应用程序，(新框架)将确定这些应用程序交易的国家安全风险, 以及它们收集美国消费者的敏感数据。这是一个受到普遍关注的问题，因为最近抖音修改了其条款和条件，表示它将从用户那里收集生物识别数据，包括他们的“面纹”。
-
-抖音和微信没有立即回应The Verge网站的置评请求。拜登政府一名高级官员周三表示：“政府致力于促进开放、互操作性、可靠和安全的互联网，保护线上和线下的人权，并支持一个充满活力的全球数字经济。我们正在与电子部门谈论的挑战是，包括中共国在内的某些国家不认同这些承诺或价值观，而是正在努力利用数字技术和美国数据，从而带来不可接受的国家安全风险。”
-
-周三的行政命令呼吁商务部和其它联邦机构共同制定建议，以防止收集、出售和传输敏感的美国消费者数据给外国对手。然而，该命令并未涉及美国海外投资委员会(CFIUS)采取的行动或调查，该委员会在川普政府的领导下为抖音等应用程序从其中共国所有者“字节跳动”中剥离设定了几个最后期限。
-
-“美国政府仍在积极讨论美国海外投资委员会(CFIUS)的行动。”一位高级政府官员周三表示。在此处阅读the Verge网站的更多信息。
-
-*Lucas Nolan 是《布莱特巴特新闻网》的记者，报道言论自由和在线审查问题。在推特上关注他 [@LucasNolan](https://twitter.com/lucasnolan) 或通过地址为[\[email protected\]](https://mail.google.com/mail/u/0/?fs=1&amp;tf=cm&amp;source=mailto&amp;to=lucasnolan@protonmail.com)的安全电子邮件联系*
-
-[原文链接](https://www.breitbart.com/tech/2021/06/09/joe-biden-revokes-trump-ban-on-communist-chinese-apps-tiktok-wechat/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ItiaLJvs7QiIN/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/ItiaLJvs7QiIN/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+【2】[https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/10/joint-statement-on-the-visit-to-the-united-kingdom-of-the-honorable-joseph-r-biden-jr-president-of-the-united-states-of-america-at-the-invitation-of-the-rt-hon-boris-johnson-m-p-the-prime-min/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/10/joint-statement-on-the-visit-to-the-united-kingdom-of-the-honorable-joseph-r-biden-jr-president-of-the-united-states-of-america-at-the-invitation-of-the-rt-hon-boris-johnson-m-p-the-prime-min/)
 
 0

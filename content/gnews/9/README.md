@@ -1,35 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国防部长担心中美印太对峙会意外升级
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315656/)
+## FBI局长表述美情报机构未就病毒起源达成共识
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1315677/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11185835/A-9.jpg)independenteagle.com
-《日经亚洲新闻》 6月11日报道，美国国防部长劳埃德·奥斯汀(Lloyd Austin)6月10日对议员们说，中共国正准备控制印度洋-太平洋地区，华盛顿和北京领导人之间没有直接沟通，一个小事件就可能引发危机。
+编辑上传 水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11191605/F-5.jpg)motifri.com
+6月10日晚上，据《公共新闻社》（ОСН）报道，美国联邦调查局（FBI）局长克里斯托弗·雷（Christopher Ray）在国会听证会上发言。国会新闻处依据他所表述的报道，美国情报机构在中共病毒的来源上没有达成共识。
 
-奥斯汀称，缺少热线电话(通常被称为红色电话)是一个“关键问题”。奥斯汀回答现任缅因州参议院议员及前缅因州州长安格斯·金 (Angus King)的问题时，他将现有的情形比作《八月炮火》，一部有关第一次世界大战史的著作。这本书就是叙述1914年8月第一次世界大战在大战危机的形成、爆发以及大战初期的战役。大战起因是1914年6月奥匈王位继承人被暗杀引爆武装冲突，而部分原因是缺乏缓和紧张局势的机制。
+雷强调，“这个问题正在讨论中。”他指出，对中共病毒的来源情况有不同的看法。此外，雷称他还不能透露更多细节。
 
-在参议院军事委员会(Senate Armed Services Committee)举行的一场国防预算听证会上，金开玩笑说到，该书在亚马逊(Amazon.com)上有中文译本，“我想我可以把它们买下来，送到北京的政治局去。”
+早些时候，《公共新闻社》报道，美国前国务卿迈克·蓬佩奥说，武汉病毒研究所据称从事“军事开发”。他指出，他“可以肯定地谈论这一事实”。
 
-但金对他所看到的危险并不轻率。他指出，“我认为，这个国家今天面临的最严重风险之一是与中共国的意外冲突，在南中国海、台湾海峡的某种冲突，以及从这种意外冲突中升级的危险。”
-
-“让我担心的是，我们似乎没有一个有效的热线，直接的，不管你想怎么称呼它，与中共国”在总统或国防部长级别。金说，“我知道中共国不愿意这么做，但我相信……应该成为国家安全的优先事项。”
-
-奥斯汀同意建立更好的联系是减轻意外冲突升级风险的重要途径， 他说:“当我们看到中共国在印度洋-太平洋地区的一些侵略性行为时，你知道，我担心可能发生的事情会引发一场危机，我认为……我们需要能够与我们的盟友和伙伴以及我们的对手或潜在对手进行对话。”
-
-在听证会上，参议员们多次询问奥斯汀对中共国意图的评估，以及美国是否采取了足够的措施与中共国作战并赢得战争。
-
-奥斯汀说，“我相信他们的目标是控制印太地区”，“我也相信，他们渴望成为世界上的主导或卓越的国家。所以我认为他们正在朝着这个目标努力”。
-
-但当有参议员提出美国需阻止中共对台湾采取行动时，参谋长联席会议主席马克·米勒警告称，美国的主要目的应当是威慑，而不是冲突。这位四星上将说，“我们正处于大国战略竞争的状态。它需要保持竞争，而威慑是防止它从竞争走向事件或从竞争走向战争的关键。”
-
-米勒说，你要让对手知道你有阻止他的能力，这样威慑就会起作用。他补充道，“但我可以向你们保证，我们有能力按照台湾关系法等作出政治决定。我们确实有军事能力。”
+他说，军事发展与民用活动同时进行。蓬佩奥指出，武汉病毒研究所“与中共军队有着密切的关系”。
 
 参考链接：
 
-[https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/China-wants-to-control-Indo-Pacific-Defense-Secretary-Austin-says](https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/China-wants-to-control-Indo-Pacific-Defense-Secretary-Austin-says)
+[https://www.osnmedia.ru/world/glava-fbr-otvetil-na-vopros-o-proishozhdenii-koronavirusa/](https://www.osnmedia.ru/world/glava-fbr-otvetil-na-vopros-o-proishozhdenii-koronavirusa/)
+
+
 
 0

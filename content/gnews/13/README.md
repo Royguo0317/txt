@@ -1,86 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 吾乃人神福奇，天地代表科学化身
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315634/)
+## 拜登指示商务部调查与外国对手有联系的应用程序
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315646/)
 
-新闻来源：《零对冲》| 作者：Tyler Durden | 发布时间：2021年6月10日
+新闻来源：《布莱特巴特》| 作者：LUCAS NOLAN | 发布时间：2021年6月9日
 
-翻译/简评：MikeHua | 校对：clau | 审核：小小妹 | Page：我是球大哥
+翻译/简评：叶知秋（文义） | 校对：clau | 审核：Beicy-数学老师 | Page：我是球大哥
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0WItT6QfCPknP/images/829661a7-9382-4488-a027-4dcb66571cec.jpg?asset_id=fd70dab2-cad2-48b9-a517-a40040548727&amp;img_etag=%222bddd9268e6e96147163eb11639555bf%22&amp;size=1024)](https://spark.adobe.com/page/0WItT6QfCPknP/images/829661a7-9382-4488-a027-4dcb66571cec.jpg?asset_id=fd70dab2-cad2-48b9-a517-a40040548727&amp;img_etag=%222bddd9268e6e96147163eb11639555bf%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/ItiaLJvs7QiIN/images/6d355c8d-3938-4570-a5a1-dc6ddeca4700.jpg?asset_id=7d5a75b7-314d-436f-acef-784975c768a1&amp;img_etag=%22518aa661fe90158959eabd6536c15a6e%22&amp;size=1024)](https://spark.adobe.com/page/ItiaLJvs7QiIN/images/6d355c8d-3938-4570-a5a1-dc6ddeca4700.jpg?asset_id=7d5a75b7-314d-436f-acef-784975c768a1&amp;img_etag=%22518aa661fe90158959eabd6536c15a6e%22&amp;size=1024)
 
-福奇是美国沼泽地中典型的寡头和控制行业的角色。在疫情爆发之前，福气在媒体上只是一名普通的卫生部官员。在疫情爆发之后，通过上CNN和大批左媒的追捧下，福奇被奉为科学界最高权威，冠状病毒任何相关事宜的终极解释来源。福奇曾经公开表示只要被感染和有症状的人戴口罩，然后又改口称每个人都必须戴口罩，再又改口成需要戴两个口罩。在疫苗上，福奇不断提高达到‘集体免疫’的疫苗百分比标准。自从疫情爆发以来，福奇成为左派媒体之神，公开的邮件显示福奇在疫情初期明确知道中共政府掩盖疫情以及病毒的危险性，但是却坚称法治基金所提到的病毒真相为谣言。福奇的手上沾满了美国和世界人民的鲜血。
+如本文所述，川普政府时期颁布的限制抖音、微信的禁令，实际上自颁布之后，由于法律问题，一直都是停滞不前的。如今拜登以一则新的行政命令取而代之，也未必是坏事。
 
-福奇的背后是谁？究竟是什么力量让这个满口谎言的江湖骗子在疫情爆发后的一年内仍公然在国家级的媒体上撒谎？他和中共的联系已经在邮件中展露无遗，为什么还没有任何人拿他治罪？这些问题都会在未来以毒灭共的大戏中得到回答。这些为了钱和中共勾结的卖美贼会和中共一起走下地狱，在这次世界革命中被消灭。
+中共商务部对此事的回应，称其是“朝着正确方向迈出的积极一步”。但是《华尔街日报》报道说，“新行政令没有特别针对任何公司，但要求审查与中国等国有潜在联系的所有软件应用。因此，此举对中资所有的应用程式的打击力度甚至可能超过川普政府时期的禁令。”
+
+由于众所周知的拜登家族与中共勾兑的丑闻，使得人们对拜登政府的对中政策一直都保持警觉。而实际上，自拜登政府上台以来，川普时期的很多反共政策都在稳步推进，尤其是在中共病毒问题上，更是出现了令人难以想象的进展，从媒体对病毒真相争相报道到科学界对实验室制造病毒证据的不断挖掘，中共病毒来自中共国实验室制造几乎得到公认。在台海问题上，美国参议院两党代表团本月6日乘坐美国空军的C-17运输机到访台湾的举动，等于明确警告中共政府不要轻举妄动，美国将与台湾站在一起。
+
+抖音、微信及其它在中共控制下的应用程序，一直在为中共政权服务，这在中共国已经不是新鲜事，这些应用程序窃取用户隐私的做法更是毋庸置疑。中共国网民不敢在中共国社交软件上谈及任何政治敏感话题，就是深知这些应用程序会把个人隐私信息传递给中共政府，而政府也会利用这些被窃取的个人隐私信息对民众进行打压。川普政府对微信、抖音的封杀禁令难以奏效，一方面是因为中共这些年利用蓝金黄手段在美国有很深的渗透，另一方面是因为美国是法制国家，中共擅于利用美国法律的漏洞来为自己拖延时间。
+
+但是，这种情况不会一直存在。随着爆料革命对病毒真相的进一步推进，随着美国社会及世界各国在曝光的病毒真相面前进一步觉醒，中共很快将面临其无法应对的国际压力，当中共政权在世界各国的讨伐声中走向灭亡的时候，为中共服务的中共国网络平台及社交媒体自然会因其信誉的丧失而退出市场。
 
 **原文翻译：**
 
-## **福奇荒谬的谎言：“攻击我就是攻击科学”。**
+## **乔·拜登撤销了川普对中共国应用程序抖音和微信的禁令**
 
-福奇博士在微软全国广播公司（MSNBC）电视台上维护自己。微软全国广播公司看起来很配合福奇散布他的谎言。
+[!\[\]()!\[\](https://spark.adobe.com/page/ItiaLJvs7QiIN/images/285bed0e-5312-4e21-8d85-28f68cb5ade7.jpg?asset_id=2ac1b20c-82a1-4780-8a43-8c4d301f69fd&amp;img_etag=%22395d30789104fdacb04293e1d397f92c%22&amp;size=2560)](https://spark.adobe.com/page/ItiaLJvs7QiIN/images/285bed0e-5312-4e21-8d85-28f68cb5ade7.jpg?asset_id=2ac1b20c-82a1-4780-8a43-8c4d301f69fd&amp;img_etag=%22395d30789104fdacb04293e1d397f92c%22&amp;size=1024)Tasos Katopodis /盖蒂图片社
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0WItT6QfCPknP/images/ba1edd0f-af3f-4781-9537-29c886a3516e.jpg?asset_id=9653e474-d8e5-4876-9db1-1eae96e82e2d&amp;img_etag=%224027bd975667e48e23882bed3838c558%22&amp;size=2560)](https://spark.adobe.com/page/0WItT6QfCPknP/images/ba1edd0f-af3f-4781-9537-29c886a3516e.jpg?asset_id=9653e474-d8e5-4876-9db1-1eae96e82e2d&amp;img_etag=%224027bd975667e48e23882bed3838c558%22&amp;size=1024)
+**乔·拜登总统签署了一项行政命令，撤销前总统川普对中共拥有的应用程序抖音和微信的禁令。**
 
-这条消息来自Greenwald的推特。
+据The Verge网站报道，拜登总统周三签署了一项行政命令，撤销了前总统川普对中共拥有的应用程序抖音和微信的禁令。取而代之的是，拜登将指示商务部调查与外国对手有联系的应用程序，这些应用程序可能对美国的数据隐私或国家安全构成风险。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0WItT6QfCPknP/images/4ba09538-59ce-415f-9110-7db817dadfb0.png?asset_id=86e90ace-04a1-47b2-b75e-9505574c55f9&amp;img_etag=%2237daeb321934258cb4377657585b9f8b%22&amp;size=3538)](https://spark.adobe.com/page/0WItT6QfCPknP/images/4ba09538-59ce-415f-9110-7db817dadfb0.png?asset_id=86e90ace-04a1-47b2-b75e-9505574c55f9&amp;img_etag=%2237daeb321934258cb4377657585b9f8b%22&amp;size=1024)
+这一行政命令取代了川普总统去年制定的一系列行政命令，这些行政命令在美国应用商店中屏蔽了包括抖音、微信和支付宝在内的应用程序，并采取措施阻止它们在美国运营。这些命令的许多影响因持续的法庭挑战而停滞不前，但周三的新命令将彻底撤销川普时期的命令。
 
-**令人痛苦的荒谬谎言**
+拜登的命令将建立一个新框架，涉及与中国等外国对手的政府或军队有关的应用程序，(新框架)将确定这些应用程序交易的国家安全风险, 以及它们收集美国消费者的敏感数据。这是一个受到普遍关注的问题，因为最近抖音修改了其条款和条件，表示它将从用户那里收集生物识别数据，包括他们的“面纹”。
 
-福奇声称的“令人痛苦的荒谬谎言”是：“攻击我就是攻击科学”。
+抖音和微信没有立即回应The Verge网站的置评请求。拜登政府一名高级官员周三表示：“政府致力于促进开放、互操作性、可靠和安全的互联网，保护线上和线下的人权，并支持一个充满活力的全球数字经济。我们正在与电子部门谈论的挑战是，包括中共国在内的某些国家不认同这些承诺或价值观，而是正在努力利用数字技术和美国数据，从而带来不可接受的国家安全风险。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0WItT6QfCPknP/images/eec95b71-3669-4d70-b22a-e82e0e566701.png?asset_id=a2b24c40-34cf-4d92-a93b-6baa5bd5be42&amp;img_etag=%22eecf79745b9e1eb909ff0743ae5e1ea6%22&amp;size=2560)](https://spark.adobe.com/page/0WItT6QfCPknP/images/eec95b71-3669-4d70-b22a-e82e0e566701.png?asset_id=a2b24c40-34cf-4d92-a93b-6baa5bd5be42&amp;img_etag=%22eecf79745b9e1eb909ff0743ae5e1ea6%22&amp;size=1024)
+周三的行政命令呼吁商务部和其它联邦机构共同制定建议，以防止收集、出售和传输敏感的美国消费者数据给外国对手。然而，该命令并未涉及美国海外投资委员会(CFIUS)采取的行动或调查，该委员会在川普政府的领导下为抖音等应用程序从其中共国所有者“字节跳动”中剥离设定了几个最后期限。
 
-福奇是一个被证实了的骗子。他自己都承认了。他撒谎（据说是为了让医护人员有口罩）并不重要。
+“美国政府仍在积极讨论美国海外投资委员会(CFIUS)的行动。”一位高级政府官员周三表示。在此处阅读the Verge网站的更多信息。
 
-**福奇门是什么？**
+*Lucas Nolan 是《布莱特巴特新闻网》的记者，报道言论自由和在线审查问题。在推特上关注他 [@LucasNolan](https://twitter.com/lucasnolan) 或通过地址为[\[email protected\]](https://mail.google.com/mail/u/0/?fs=1&amp;tf=cm&amp;source=mailto&amp;to=lucasnolan@protonmail.com)的安全电子邮件联系*
 
-左派右派都将自由信息法案披露福奇的邮件当作正式病毒实验室来源和福奇对口罩效用撒谎的证据。
-
-**Rand Paul 推特**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/0WItT6QfCPknP/images/8b1fa1f8-b7aa-494c-b20d-29f28ca60227.png?asset_id=21c34d01-a973-4199-a882-81312d12c4e0&amp;img_etag=%22dc843b6f2f4dddfdaa1db8b17c0f5f05%22&amp;size=2560)](https://spark.adobe.com/page/0WItT6QfCPknP/images/8b1fa1f8-b7aa-494c-b20d-29f28ca60227.png?asset_id=21c34d01-a973-4199-a882-81312d12c4e0&amp;img_etag=%22dc843b6f2f4dddfdaa1db8b17c0f5f05%22&amp;size=1024)
-
-《彭博社》说对了：[福奇邮件门没有证实新冠泄露说](https://www.bloomberg.com/opinion/articles/2021-06-08/-faucigate-emails-prove-nothing-about-a-covid-lab-leak?sref=Fbhig0fX)
-
-《彭博社》所言是真。我们现在还不清楚。没有确凿的证据。但是《彭博社》提到了关键问题，只有我和极少数人关注的问题。
-
-如果福奇欠公众一个解释，那就是为什么他批准资金资助可能让病毒变得更危险的——所谓的功能增强实验。
-
-虽然福奇普遍被媒体神化为美国“顶尖传染病专家”，他真正的职位是美国国家过敏和传染病研究所 (National Institute of Allergy and Infectious Diseases)所长。从这个角度看，他不能凌驾于批评之上。他批准资助其他科学家认为非常危险的病毒研究项目。
-
-这些危险的项目包括几个罗格斯大学生物学家理查德·埃布赖特(Richard Ebright)称令人担忧的功能增强的项目，这些项目改变流感病毒以转染宿主，例如在美国和中共国科学家共同合作的改变蝙蝠冠状病毒的项目。
-
-埃布赖特早在疫情爆发前花费数年时间警告人们功能增强研究。另一个担忧功能增强实验的科学家是哈佛流行病学家马克·利普希奇(Marc Lipsitch)。
-
-**功能增强**
-
-“功能增强”是对于“故意让病毒更加致命”的委婉说法。
-
-对蝙蝠病毒的研究涉及中美之间的合作。
-
-**今天的问题**
-
-- 为什么几乎没有媒体报道功能增强？
-- 福奇在支持功能增强研究上扮演了什么角色？
-- 美国在那些途径上和中共国合作？
-- 这些合作途径是否包含武汉？
-
-
-**我就是科学！**
-
-说“攻击我就是攻击科学”，福奇基本上就是在说“我就是科学”。
-
-对不起我必须说出来，科学没有撒谎并且从不撒谎。人会撒谎，科学家撒谎，江湖骗子撒谎。
-
-科学家可能会而得出错误结论，但是科学不会。
-
-福奇是一个被证实了的骗子，还说他自己就是科学，他不光是骗子，还是个江湖骗子。
-
-我建议不要关注福奇那些大家都已经形成意见的口罩问题，要更深入地挖掘福奇在美国和中共国功能增强研究中扮演的角色，这项研究使得冠状病毒变得更加致命。
-
-[原文链接](https://www.zerohedge.com/covid-19/dr-faucis-preposterous-lie-attacks-me-are-attacks-science)
+[原文链接](https://www.breitbart.com/tech/2021/06/09/joe-biden-revokes-trump-ban-on-communist-chinese-apps-tiktok-wechat/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -89,6 +51,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0WItT6QfCPknP/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/0WItT6QfCPknP/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/ItiaLJvs7QiIN/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/ItiaLJvs7QiIN/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

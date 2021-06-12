@@ -1,33 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 7国集团吹响了灭共集结号！
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1315268/)
+## 西喜时事新闻简报 — 中共反人类罪篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1315422/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11130708/7AAB6227-A94E-4ABD-B4DC-53B0338EAE75.jpeg)图片来源：https://qz.com/2004738/who-is-in-the-g7-and-where-will-the-g7-summit-2021-be-held/
-#### 
-加拿大多伦多枫叶农场 丁过
+- 作者：蚂蚁兄弟
 
-美国总统乔.拜登5月26日要求情报机关“加大力度”调查病毒源头并在90天内向他报告，时间仅仅过去半个月，全球主要国家的政府，就相继态度鲜明地表示支持对病毒来源一查到底，这应该是所有曝料革命战友近来最开心的事。
 
-G7会议将在6月12日举行，参加本次会议除了成员国加拿大、法国、德国、意大利、日本、英国和美国之外，印度、澳大利亚、韩国和南非作为峰会的客座国家也参加了本次会议。澳大利亚是最早呼吁对中共病毒来源进行彻底调查的国家，印度近日首次发出支持进一步调查的呼吁，闫丽梦博士近来多次接受印度最有影响力媒体的釆访，向印度人民揭露了中共军方发动超限生物战的真相，为印度朝野以毒灭共态度的形成进行了有效的铺垫。
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-稍为熟悉国际事务的人都知道，一直以来西方社会是以英美为核心，德国、日本虽然经济实力很强，是民主阵营中重要的一员，但民主阵营由英语系海洋文化来主导的格局从未改变。美英首脑在G7峰会召开前两天提前举行会谈，并发表了联合声明，声明直指“支持对包括中国在内的新冠病毒起源展开独立调查”，声明强调“及时、透明、讲求证据的独立流程，包括在中国，以及在未来调查起源不明的疫情”。
+**西班牙2021年6月11日电/西喜社——**
 
-这份指向明确、异常强硬的声明信息量巨大，为G7定下了讨伐中共的基调，对那些执迷不悟或企图通过左右摇摆搏取利益的国家或团体、个人，是一种震慑。对中共而言，则是一份充满杀机的声明，意味着G7不再允许中共拖延时间，不再和中共玩口水战。预计G7将很快对中共发出类似于72小时的最后通碟，如果通碟不奏效，随之而来的就是对中共的全面制裁和经济封锁，也可能迅速升级为区域战争。
+您若想了解全文报导内容，请点击标题链接
 
-欧洲理事会主席米歇尔、欧盟委员会主席冯德莱恩在参加G7峰会前（10日）举行的记者会上明确表示，支持对病毒来源进行彻底调查，世界有权利知道病毒从哪里来，到底发生了什么，以便能够吸取教训，并开发出正确的工具，确保此类事件不会再次发生。两位欧盟领导人和英美首脑，在同一天发出同样的声音，表明整个欧洲包括北约组织，已经和G七完全达成了灭共共识。
+**1. [新报告详述中共国维吾尔族穆斯林遭受酷刑的第一手资料](https://www.npr.org/2021/06/10/1005263835/new-report-details-firsthand-accounts-of-torture-from-uyghur-muslims-in-china?t=1623415668129&amp;t=1623438210841)**
 
-最令人期待和精神振奋的是，七国集团官员正在撰写公报，概述了到2022年12月结束疫情的计划。该文件将构成峰会“最后阶段会谈”的基础，并将在周日发布。这则消息值得持续关注。
+10日，美国国家公共广播电台NPR，根据国际特赦组织周四发表的一份新报告，中共政府针对穆斯林少数民族群体的迫害行为构成了反人类罪。该报告详细介绍了中共政府有组织地大规模监禁、酷刑和迫害新疆省人民，包括维吾尔族和哈萨克族。报告还详细介绍了中共国政府广泛的掩盖行为。
 
-凡事都有因果，如果这份七国公告是严肃的，那么在不到一年半的时间里结束疫情，得有两个前提，一是灭掉中共，二是中共彻底投降，把所有制造病毒的资料、第一批染疫病人的资料、生物武器库中所有的生物武器、散布在全世界的生化部队人员资料等等全部交出来，否则结束疫情就是空谈。我们相信，七国也深知这个道理，那么，这个公报的出台，就等于七国吹响了灭共集结号。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135327/unknown-6-2.png)
 
-参考链接：
+**2. [中共国的维吾尔人生活在一个 “乌托邦式的地狱环境 “中](https://www.theguardian.com/global-development/2021/jun/10/china-uyghur-xinjiang-dystopian-hellscape-says-amnesty-international-report)**
 
-[欧盟、七国集团领导人支持美国重新调查新冠病毒源头的要求](https://www.voachinese.com/a/EU-G7-Biden-covid-origins-investigation-China-20210609/5924239.html)
+英国卫报10日报道，国际特赦组织收集的中共国新疆地区侵犯人权的新证据显示，对于数十万遭受大规模拘禁和酷刑的穆斯林来说，新疆已经成为一个 “乌托邦式的地狱景象”。
 
-[G7峰会：英美再就新冠溯源调查向中国施压](https://www.bbc.com/zhongwen/simp/world-57436933)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135437/unknown-7-3.png)
 
-[G7 leaders to call for new probe into origins of Coronavirus: Draft communique](https://www.hindustantimes.com/world-news/g7-leaders-to-call-for-new-probe-into-origins-of-coronavirus-draft-communique-101623338358449.html)
+**3.  [美国对维吾尔族种族灭绝的反应](https://www.browndailyherald.com/2021/06/10/harris-22-iqbal-24-american-response-uyghur-genocide/)**
 
-0
+面对维吾尔族人被中共灭绝的危机，美国站出来了，面对全世界大声谴责中共、有针对性的全球联合制裁和对维吾尔难民的直接援助，为应对我们这一代最恶劣的人道主义危机之一，提供了有效的负责任和手段。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135606/unknown-8-2.png)
+
+**4. [中共国的一些“苹果”供应商在招聘启事中说他们不会雇用维吾尔族穆斯林等少数民族](https://www.businessinsider.com/apple-suppliers-china-uyghur-muslims-job-postings-the-information-2021-6)**
+
+据The Information周二报道，中共国的一些“苹果”供应商不接受少数民族求职者，并明确表示边缘化群体的成员不应该申请。
+
+该新闻网站发现，为iPhone、iPad和AirPods生产零部件的公司在网上发布了歧视性的招聘信息，如电路板、iPhone玻璃、数据线和相机镜头。富士康科技是被发现的公司之一，招聘广告写道。“不接受来自西藏或新疆地区的藏族、维吾尔族、回族、彝族、东乡族人”。另一份来自生产iPhone零部件的国泰达明公司的文件写道：”只接受没有饮食限制的少数民族（维吾尔族除外）”。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135713/unknown-9-2.png)
+
+**5. **[**报道称阿联酋、沙特、埃及将维吾尔人驱逐至中共国**](https://www.middleeastmonitor.com/20210609-uae-saudi-egypt-deporting-uyghurs-to-china-report-says/)
+
+据CNN报道，土耳其、阿拉伯联合酋长国、埃及和沙特阿拉伯被列为将维吾尔族穆斯林驱逐到中共国的国家，这些引起了人们对中共日益增长的影响力的担忧。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11135823/unknown-10-2.png)
+
+审核：Aries的星；校对：信心满满；发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
++1
