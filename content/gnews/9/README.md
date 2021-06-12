@@ -1,33 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】 无所适从&#8211;航空公司警告：接种疫苗的人不应旅行
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1316935/)
+## 【鹰眼墙国】国内院线票房“回暖”，难解影院生存艰难现状
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1317477/)
 
-作者：休斯顿星光农场 写作部 文顺
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01225742/Screenshot-2021-06-01-215655.jpg)
-
-近期，因接种疫苗的旅客在乘坐飞机时引发血栓事件频发，西班牙和俄罗斯航空公司警告已经接种过疫苗的人不应旅行，美国疾控中心（CDC）官网也发出关于飞机旅行超过4小时出现血栓的警告。
-
-据ArmstrongEconomics报道，每年有超过3亿人乘坐长途航班（一般超过4小时）。血凝块也叫深静脉血栓（DVT），对一些长途旅行者来说是一个严重的风险。大多数关于血栓和长途旅行的信息来自于收集到的关于航空旅行的信息。然而，任何旅行超过四个小时的人，无论是乘坐飞机、汽车、公共汽车或火车，都可能有血栓的风险。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12102234/Screenshot-2021-06-12-092204.jpg)*图片来源：路透社*
-这一消息令许多人茫然失措。此前，各国政府以自由出行为由推动疫苗护照，西班牙更是宣布从6月7日起向全球接种中共病毒疫苗的人士开放边境。但如今注射疫苗后，人们却因更高的血栓风险依然无法出行。
-
-此外，有记录显示，有人在接种疫苗后不坐飞机而死于血凝块。有人发现，因感染中共病毒的死亡病人往往涉及血凝块原因。而英国《标准晚报》也表示，接种疫苗或未接种疫苗的人在飞行时出现血凝块的风险是一样的。
-
-与中共病毒溯源同出一辙，媒体不会报道真正可信的信息，人们也不可能得到这些信息的真相，因为各国政府正在积极推动疫苗经济。报道称，不管有多少人死亡，政客们永远不会承认错误，他们也不会被起诉，因为他们控制了整个过程。
-
-新闻来源：[https://www.armstrongeconomics.com/international-news/disease/vaccinated-people-told-not-to-travel/?**cf\_chl\_jschl\_tk**=ffc4528c59ffd6d1d7325bd9ce92873d1389afe8-1623483365-0-ATLkdCP4wiG3SfvfXlTe3ZBawaj6fjaW3fKzTrbzC9sOEJV5Pgq-Y1uDGKHq-oTRB-NftuRwXYPNh1kOyjntBYmskh\_yK4w67\_t6v\_K0ez9eZWgoxe\_NDOFMadw70srX83IfZ-R\_ZlCoDX9\_R2kMrTkwAOZHX4zpYV7gUlcykzZ-0olqZGcX2d92XcXlbNj583bCnq8bYUD8-ouZus2QmiPN9EY6nLfXVaQEqGSdLC9CPPDF3uG6hCBeN39f5ThvP9WhpoO9XwRxNe3Y7SIsKGRZJmN2z4xRNiuuZOpbOHHErh9UFYnkeeNM-HCXlaHXtpRdApZbJz-WDzN2orfpm\_luMTHvtXfhGOr5yEPjFbM\_Z1f46SXJs3VDWtW8b25uPOWlM1jHr7yKa-aHjA9bSSqxvaJRmW6fCuX7EGz8lt3Lo0ksKqgA2oKHp4HiDsnMBtdcoziV-*QYIe8MDBhiejYISMfJshySCqlF*-I2\_n8e4l\_\_uXyqpnFTUizAWdBGYb\_TppdwvKirtoIBC4o3Xbm7lQJ6taT5auxEdP8Z\_Q\_F](https://www.armstrongeconomics.com/international-news/disease/vaccinated-people-told-not-to-travel/?cf_chl_jschl_tk=ffc4528c59ffd6d1d7325bd9ce92873d1389afe8-1623483365-0-ATLkdCP4wiG3SfvfXlTe3ZBawaj6fjaW3fKzTrbzC9sOEJV5Pgq-Y1uDGKHq-oTRB-NftuRwXYPNh1kOyjntBYmskh_yK4w67_t6v_K0ez9eZWgoxe_NDOFMadw70srX83IfZ-R_ZlCoDX9_R2kMrTkwAOZHX4zpYV7gUlcykzZ-0olqZGcX2d92XcXlbNj583bCnq8bYUD8-ouZus2QmiPN9EY6nLfXVaQEqGSdLC9CPPDF3uG6hCBeN39f5ThvP9WhpoO9XwRxNe3Y7SIsKGRZJmN2z4xRNiuuZOpbOHHErh9UFYnkeeNM-HCXlaHXtpRdApZbJz-WDzN2orfpm_luMTHvtXfhGOr5yEPjFbM_Z1f46SXJs3VDWtW8b25uPOWlM1jHr7yKa-aHjA9bSSqxvaJRmW6fCuX7EGz8lt3Lo0ksKqgA2oKHp4HiDsnMBtdcoziV-QYIe8MDBhiejYISMfJshySCqlF-I2_n8e4l__uXyqpnFTUizAWdBGYb_TppdwvKirtoIBC4o3Xbm7lQJ6taT5auxEdP8Z_Q_F)
-
-编辑：Helen       校对：爱丽丝      发稿：文柳
-
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
-
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
+作者：香草山农场  鹰(文言)
 
 
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+
+
+
+澎湃网6月12日报道，上海电影节中共电影产业高峰论坛上，博纳影业创始人于冬发出暂缓电影专资金征收和降低服务费率的“请求”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12125846/Untitled-design-2021-06-12T105543.591.png)
+中共电影专项资金的征收比例为电影票房的5%，通过省级专项资金办征收最终汇总到国家电影资金办，依据2019年600多亿元票房计算，专资金规模达30亿元。自2011年后国内电影市场迎来爆发性增长，连续多年增长率高于25%，然而2016年却高开低走，票房成绩454亿，增长率降至3%。电影票价分为原始票价和网络代售服务费，而2016年原始票价平均为33元，相比15年降低5%，为继续营造票房迅猛增长态势，中共转资办更改票房统计口径，将服务费作为票价计入票房统计，以16年线上购票人次10.4亿测算，平均每张3元服务费将为全年票房提升超30亿元的“额外数值”。
+
+2017年1月25日电商服务费正式启用，全年服务费占综合票房的比例约为6%-7%，虽然计入服务费一定程度上为电影票房增速提供了助力，但影院数量增速依旧从13年的36%降至19年的14.5%。2020年CCP病毒大爆发彻底改变了国人乃至全世界人民的生活方式，电影院、酒吧等公共场所全面进入发展停滞期，病毒在国内阶段性、区域性的大爆发直接影响电影院的正常营业（如高风险地区要求停业，中风险地区要求上座率不超过50%或75%），2020年国内电影票房收入降至204.17亿元，回到13年同期水平，同比19年降幅达68%。其中万达院线以7800万人次、31.49亿元票房依旧把持国内院线的龙头地位。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12125727/Untitled-design-2021-06-12T105639.660.png)
+虽然国内因为疫情原因对院线予以缓征的“优惠”，如湖北省免征12个月专资金，北京免征8个月，但全国范围内的居家隔离以及防疫措施再有高昂的租金等开支依旧造成2020年一季度2200多家影院关门（占比2019年12408家影院数量的17.7%），5328家影视公司倒闭注销。作为行业龙头的万达虽然凭借资产规模庞大的万达地产抗压能力较强，但其2020年营收62.95亿元，同比19年下滑59.21%，净亏损达69.41亿元。
+
+疫情下大型影院还可以凭借号召力和资本力量残喘，但对于中小型影院来说运转压力和日常开支却被极具拉大，在19年曝出“天价服务费”后，中共电影局对服务费标准设定限高为票价的10%，同时对VIP厅设置及收费标准做出统一规定，此后影院的收益集中于服务费和总票房的二次分账。电影总票房分账先缴纳5%的专资金及相关3.3%的税费，剩下的57%分予院线，其他43%归属出品发行方。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12125805/Untitled-design-2021-06-12T105608.118.png)
+以2020年票房204.17亿元计算，院线抽成约为116.37亿元，相比19年约366.3亿元的抽成“收入”可为大打折扣。虽然银幕数稳定增长，20年达75581块（同比19年增长8.3%），且2021年“就地过年”和五一期间消费热情高涨，院线极大复苏。但一则CCP病毒的区域性爆发现状并未有效缓解，无论是云南瑞丽的“加时赛”，还是石家庄疫情，再有安徽六安、辽宁大连鲅鱼圈疫情，再到最近的广州疫情大爆发都表明国内疫情远未结束，在中共极力掩盖、不透明和“强制”接种“毒”疫苗下仍会造成更大规模的衍生灾害；二则由于常态化疫情防控所要求的院线上座率无法满足100%，其次配备消毒、防疫设施设备再有日常维护频次增加都将加大院线的运营成本，在票价涨幅不大的前提下，成本的提高意味着资金周转难度增加。在经历2020年中小微影院被淘汰后剩下的影院虽然抗压能力较强，但收支不平衡的加剧，以及中共对国内民企私企强征暴敛力度加强，都将造成国内院线勉强维系的常态。
+
+新闻来源：
+
+博纳影业于冬：呼吁电影专资缓征三年，服务费应低于专资https://www.thepaper.cn/newsDetail\_forward\_13117458
+
+2020年影院有多惨？龙头股给真相：3000家倒闭，员工工资说不出口https://www.163.com/dy/article/G943PAPS0517M9EH.html
+
+影院广告回暖同比增长10.1%，2021年的影院要打“翻身仗”？http://finance.sina.com.cn/tech/2021-03-24/doc-ikkntiam7475004.shtml
+
+国家电影专资办发布《2020年度中国电影市场数据报告》| 干货https://www.sohu.com/a/449518780\_388075
+
+2020年中国电影市场发展现状分析 总票房成绩倒退7年【组图】https://www.qianzhan.com/analyst/detail/220/210127-044aefb6.html
+
+武汉5家影城被国家电影局点名 票价25元服务费78元http://hb.sina.com.cn/news/n/2019-04-21/detail-ihvhiqax4177046.shtml
+
+票房服务费600天63亿，别让它变成数字游戏https://www.huxiu.com/article/259336.html
+
+电影产业寒冬：5328家公司倒闭，2200多家影院关门https://www.thepaper.cn/newsDetail\_forward\_6999720
+
+校对/发稿：火内
+
+
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
+
+
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
