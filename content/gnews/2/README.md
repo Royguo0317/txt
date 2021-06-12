@@ -1,60 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 民调显示近54%的美国人相信病毒源自武汉病毒所
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315948/)
+## 国会议员Matt Gaetz在国会山就闫博士与新冠病毒一事质询FBI局长
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1316006/)
 
-新闻来源：《布赖特巴特新闻网》Breitbart| 作者：Wendell Husebø| 发布时间：2021年6月10日
-
-翻译/简评：大和凯多|校对：clau|审核：Beicy-数学老师|Page：小雨
-
-[!\[\]()!\[\](https://spark.adobe.com/page/GznhayN2hBLgn/images/4d7a7f23-d1b0-47b5-bf64-9c97b11d8e65.jpg?asset_id=e6578697-cdfc-4e4e-adc7-4e5f7df2e63c&amp;img_etag=%2293ec5921a8b02fda451c574c6ba92fcf%22&amp;size=2560)](https://spark.adobe.com/page/GznhayN2hBLgn/images/4d7a7f23-d1b0-47b5-bf64-9c97b11d8e65.jpg?asset_id=e6578697-cdfc-4e4e-adc7-4e5f7df2e63c&amp;img_etag=%2293ec5921a8b02fda451c574c6ba92fcf%22&amp;size=1024)
-
-**简评：**
-
-6月3日至7日的一项民意调查显示，大多数美国人现在相信冠状病毒起源于武汉病毒研究所。国会山的立法官员们正在查看一份关于病毒来源秘密的报告，该报告据称支持冠状病毒起源于武汉病毒研究所的说法。一位共和党众议员表示他们很想知道病毒来源，这个问题的答案比他们当初认为的要严重很多。
-
-关于病毒来源这个问题，全世界迫切地需要一个答案。不管中共如何玩弄手段，所有问题的根源都必须从这个话题开始。病毒来源这个问题一旦有了确定的答案，也就是说美国一旦宣布病毒来源于中共的武汉病毒研究所，而且是中共军方参与的，那这场病毒大流行的性质就变成了中共向全世界发起的一场生物战争。历史会因此而改变。中共血债累累，杀人无数，全世界必将对这个魔鬼进行大审判。
-
-**原文翻译：**
-
-## **民意调查：大部分人现在相信冠状病毒源自武汉病毒研究所**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/GznhayN2hBLgn/images/fdbefc68-268d-4db3-9fa0-72c01e49a9cc.jpg?asset_id=38437367-bf32-4ab7-ba7f-1625d6081aba&amp;img_etag=%221b9c0cba14893c5021770281780397c5%22&amp;size=2560)](https://spark.adobe.com/page/GznhayN2hBLgn/images/fdbefc68-268d-4db3-9fa0-72c01e49a9cc.jpg?asset_id=38437367-bf32-4ab7-ba7f-1625d6081aba&amp;img_etag=%221b9c0cba14893c5021770281780397c5%22&amp;size=1024)图片来源：盖蒂图片社
-
-**周三公布的一项民意调查显示，现在大多数美国人相信冠状病毒是起源于武汉病毒研究所。**
-
-当Trafalgar Group（译者注：Trafalgar Group是一家民意调查公司。）询问受访者时，“关于新冠状病毒起源的看法，您最想说什么？”，近54%的人表示该病毒起源于实验室。
-
-更具体地说，29.1% 的人认为病毒是故意从实验室释放的，24.4% 的人认为它是从实验室意外泄漏的。
-
-29.3% 的人表示他们不确定病毒的来源。
-
-这项民意调查是在立法官员查看一份秘密报告之际进行的，该报告据称支持冠状病毒起源于武汉病毒研究所的说法。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/GznhayN2hBLgn/images/1bd0b5ca-a899-4c59-a872-706c792166dd.jpg?asset_id=5eddbf82-a831-4bd9-ae35-1962766620b7&amp;img_etag=%224bfae2d6aee149d9a609f0cb24cf1582%22&amp;size=1024)](https://spark.adobe.com/page/GznhayN2hBLgn/images/1bd0b5ca-a899-4c59-a872-706c792166dd.jpg?asset_id=5eddbf82-a831-4bd9-ae35-1962766620b7&amp;img_etag=%224bfae2d6aee149d9a609f0cb24cf1582%22&amp;size=1024)
-
-众议院能源和商务委员会委员摩根•格里菲斯（弗吉尼亚州共和党人）对该报告表示：“我觉得我们很多人都认为各个监督委员会应该更早一点知道这份报告。我们很想知道答案……因为我们认为他们掌握了比我们在3月份所知道的更多实情。”
-
-这份绝密报告是由政府支持的劳伦斯利弗莫尔国家实验室的研究人员于2020年5月发布的。
-
-与此同时，负责调查病毒实验室泄漏的前副助理国务卿戴维•费思(David Feith)于6月2日表示，如果政府、教育机构和企业在和中方进行科技交流，是不能确定他们是否是在不知情的情况下与中共军方合作。
-
-当前任国务卿迈克•彭佩奥被问及他是否相信中共军方参与了武汉病毒实验室的研究时，他答道：“这是肯定的。这是一个高度可信的评估，就是这个情况。”
-
-无论科学界和中共之间有什么联系，国务院关于病毒起源的概况介绍说，中共已经“系统地阻止了对新冠病毒大流行起源进行透明和彻底的调查，并且选择将大量资源用于欺骗和造谣。”
-
-该民意调查于6月3日至7日进行，共有1025名类似大选选民的受访者参与。该民意调查误差幅度为3.06%。
-
-🔗[原文链接](https://www.breitbart.com/politics/2021/06/10/poll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+蒙特利尔皇家山战友团 作者: 平民正道
 
 
-编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11223454/FBIA_061021-1.jpg)图片来源： Gnews
+2021年6月10号上午众议院司法委员会听证会在国会山举行, FBI局长Wray接受质询。国会议员Matt Gaetz说，冠状病毒起源的问题一直在没有得到彻查。我们都看到了福奇的邮件，很明显福奇早就知道新冠病毒的内幕，但他装做不知道。6月10号上午，七国集团（G7）呼吁重新调查病毒起源。拜登政府打压对病毒起源问题的调查。Matt Gaetz想搞清楚FBI在冠状病毒起源问题上的立场。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GznhayN2hBLgn/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/GznhayN2hBLgn/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+Matt Gaetz描述到，2020年4月28日闫丽梦博士抵达洛杉矶机场后一位联邦调查局(FBI)探员跟她进行了面谈。会谈结束后，闫博士随即飞往纽约，这位FBI探员也跟随她前往纽约。该探员还在2020年5月1日和2日跟闫博士（在纽约）进行了2次谈话。闫丽梦博士的手机被FBI拿走了。那是一部包含重要信息的手机，里面有闫和北京疾控中心主任微信对话的证据。根据微信内容我们可以知道，从2019年12月起，中共军方参与了病毒的研发过程，病毒与武汉病毒研究所之间的具体联系也在其中。Matt Gaetz问雷探长，他是什么时候获知他的探员与闫博士有接触的？是什么时候审阅了那些微信信息？
+
+Wray的回答像是打太极，故意岔开话题。他没有在这个场合提及任何具体的调查。笼统地说到他一直在大声疾呼，并且愿意继续对敌对国的反情报威胁发表意见。并认为美国面临的最严重威胁是来自中华人民共和国和中国共产党的形式多样的反情报威胁。Wray避开闫博士不谈，显然有问题。
+
+Matt Gaetz打断了Wray的谈话，给他施压，让他说说闫博士来美一事。Wray继续回避，Matt Gaetz穷追不舍道：
+
+回溯到2020年4、5月份10月份，美国还没有近60万人死于冠状病毒。2020年10月14日，FBI探员Andrew Zitman带了一个为 FBI工作的科学家。2020年10月14日他去纽约见了闫博士。这个科学家和闫博士开了近6个小时的会。Matt Gaetz希望Wray告诉我们有关这次会议的一些事情和就冠状病毒的起源.他批评Wray到，闫博士来到美国已经一年了，他接受不了Wray没有提及任何有关这方面的事情。Wray没有向外界说明（FBI）是否有病毒起源的情报，这些情报对美国人的安全和健康至关重要。
+
+面对Matt Gaetz的质问，FBI局长继续狡辩。他说甚至总统先生本人（也公开提及过），情报界一直在对此进行调查。情报界内部对冠状病毒起源问题也存在分歧。
+
+Matt Gaetz希望美国让中共为病毒的事负责。他要求FBI对一下内容的科学分析提供给本委员会：闫博士的说法，闫博士提供给FBI的信息，北京方面对病毒起源的认知，中共军方的参与，以及甚至在事发之初试图抛出一个假基因组序列来糊弄这个世界。
+
+Wray还想继续糊弄大家，只说了会让他的员工与大家接触，看看能否分享什么信息之类。
+
+Matt Gaetz有些生气地说到：当闫博士发布了关于中国及其军方参与制造病毒以及病毒从实验室流出的声明，有很多人想诋毁她。他质问FBI局长是否有能力认定那种诋毁闫博士的行径属于中共所开展的反情报行动。
+
+Wray还是没有正面答Matt Gaetz议员地问题。他向Matt Gaetz议员保证，回去会跟他的人一起看看能提供哪些信息以及须要采取何种形式来提供信息。
+
+就有关闫博士的手机被FBI探员Dana Murphy拿走的那个来自司法部的收据，Matt Gaetz议员得到全体无异议同意。
+
+[参考链接:](https://www.youtube.com/watch?v=_gj5891KRJM)
+
+* * *
+
+编辑、发布 ctt
 
 0

@@ -1,55 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】印度律师协会起诉世卫首席科学家散布伊维菌素治疗新冠病毒的“虚假信息”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1315700/)
+## 【热点播报】疫苗安全性再起疑云&#8212;-疫苗全接种邮轮乘客测出新冠阳性
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1315812/)
 
-作者：纽约香草山农场 四季
+作者： 纽约香草山媒体部 7bends
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
 
 
 
-据报道，印度律师协会（IBA）于5月25日向世界卫生组织首席科学家苏米亚-斯瓦米纳坦（Soumya Swaminathan）博士发出法律通知，指控她否认伊维菌素对中共病毒的效果，涉嫌“散布虚假信息并误导印度人民，以完成她的议程”。印度律师协会的法律通知要求斯瓦米纳坦博士就一些关键问题做出回应，如果她拒绝，该组织将根据 2005 年《印度刑法典》和《灾难管理法》的条款，保留对她提起诉讼的权利。
 
-![]()![](https://www.naturalnews.com/wp-content/uploads/sites/91/2021/06/Covid-19-Coronavirus-05.jpg)图片来源：Natural News
 
-印度律师协会在一份声明中写道，“斯瓦米纳坦博士无视有关伊维菌素的研究和报告，并故意隐瞒其有效性的数据，目的是劝阻印度人民不要使用伊维菌素”。
+据[Breaking 911](https://breaking911.com/2-passengers-on-first-fully-vaccinated-north-american-cruise-test-positive-for-covid/)报导，北美首艘全员完全接种疫苗的“名人千禧”游轮上的两名乘客被查出新冠阳性。名人千禧 6月10日发布声明称，两名同一客舱的船上乘客，在进行所要求的巡航测试结束时，被验出新冠病毒呈阳性。这两名测试呈阳性的乘客目前没有症状，正处于隔离状态并由船上的医疗队进行监测。所有密切接触者都会被追踪并加紧检测。
 
-印度律师协会表示，斯瓦米纳坦博士持续发表反对伊维菌素的声明，“造成了进一步的损害”，剥夺了公众获得可能会挽救他们生命的药物，使他们无法免于生病或死亡。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/11210705/171.jpg)
 
-印度律师协会坚持认为，斯瓦米纳坦博士拒绝前线COVID-19重症监护联盟（FLCCC）和英国伊维菌素推荐发展（BIRD）的可靠科学——这两个机构都认为伊维菌素可以预防和治疗中共病毒。
+由于“名人千禧”上的所有船员和乘客都被要求完全接种疫苗，并且必须在登船启航前的72小时内出示新冠疫苗接种后检测呈阴性的证明，所以这次事件格外令人担忧疫苗的有效性和安全性。
 
-伊维菌素运动是印度政府阻止中共病毒在整个地区蔓延所做的努力的一部分。然而，5月10日，斯瓦米纳坦博士发推文说：“将任何药物用于新适应症时，其安全性和有效性都很重要。世界卫生组织建议除了临床试验外，不要将伊维菌素用于COVID-19。”斯瓦米纳坦博士在收到印度律师协会的诉讼通知后立即删除了这条推文。据报道称，斯瓦米纳坦博士最初发布这条推文是为了回应果阿卫生部长的声明，即，所有18岁及以上的居民都将服用伊维菌素作为预防措施，无论他们的COVID状况如何。
+现有的新冠疫苗并非传统意义上的疫苗。正在应用推广的几种所谓疫苗都是在还未搞清楚病毒起源，对病毒本身以及变异情况尚缺乏深入了解时，就匆忙开发出来带有实验性质的、本不该被广泛推广的临时疫苗。而无良主流媒体和利益集团却一再误导民众，大肆推广疫苗。接触不到真实信息的普通大众沦为利益集团的牺牲品和试验品。
 
-这些廉价却被证明有效的药物本能挽救千万人的生命，但如今，在中共病毒肆虐世界的15个月后，它们仍被束之高阁。印度遭受中共病毒残害使得整个国家犹如人间地狱，令人唏嘘。只有尽早确认病毒来源真相，向中共追责，才能从根本上终结中共病毒。
+从去年主流媒体一边倒地指责爆料革命提出的“病毒来源于实验室”为阴谋论，到今年“病毒来源于实验室”的事实被越来越多的人认可；从去年有良知的医生用羟氯喹挽救无数生命却面临被解雇吊销医疗执照的风险，到今年羟氯喹被悄悄松绑。事实一再证明爆料革命信息的超前性和准确性。
 
-参考阅读：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
 
-[Indian Bar Association sues WHO chief for spreading “disinformation” about ivermectin for covid](https://www.naturalnews.com/2021-06-10-indian-bar-association-sues-who-disinformation-ivermectin.html#)
+编辑/校对/发稿：小鹿
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-编辑/校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
 
 
 
-0
+
+
++1

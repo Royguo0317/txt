@@ -1,73 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 稍有不慎就可能殃及整个民族
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315899/)
+## 民调显示近54%的美国人相信病毒源自武汉病毒所
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315948/)
 
-作者：江南樵夫|校对：X-Wing|审核：Beicy-数学老师|Page：小雨
+新闻来源：《布赖特巴特新闻网》Breitbart| 作者：Wendell Husebø| 发布时间：2021年6月10日
 
-[!\[\]()!\[\](https://spark.adobe.com/page/MuxAdsh0EPmm4/images/69f9eaa1-a63f-4093-9cbd-8c7509d38e7e.jpg?asset_id=53e89cd7-2437-4103-8310-a2f00b57185a&amp;img_etag=%2277a55452f6eede031e91895ddc8aa823%22&amp;size=2560)](https://spark.adobe.com/page/MuxAdsh0EPmm4/images/69f9eaa1-a63f-4093-9cbd-8c7509d38e7e.jpg?asset_id=53e89cd7-2437-4103-8310-a2f00b57185a&amp;img_etag=%2277a55452f6eede031e91895ddc8aa823%22&amp;size=1024)
+翻译/简评：大和凯多|校对：clau|审核：Beicy-数学老师|Page：小雨
 
-**樵夫**：接种国产疫苗仍然不能防止被感染。
+[!\[\]()!\[\](https://spark.adobe.com/page/GznhayN2hBLgn/images/4d7a7f23-d1b0-47b5-bf64-9c97b11d8e65.jpg?asset_id=e6578697-cdfc-4e4e-adc7-4e5f7df2e63c&amp;img_etag=%2293ec5921a8b02fda451c574c6ba92fcf%22&amp;size=2560)](https://spark.adobe.com/page/GznhayN2hBLgn/images/4d7a7f23-d1b0-47b5-bf64-9c97b11d8e65.jpg?asset_id=e6578697-cdfc-4e4e-adc7-4e5f7df2e63c&amp;img_etag=%2293ec5921a8b02fda451c574c6ba92fcf%22&amp;size=1024)
 
-针对接种国产疫苗之后国内外发生的种种感染事件，中国疾控中心专家邵一鸣日前在网易新闻上答疑称：疫苗的作用从上到下分三类，一是防感染，二是防发病，三是防传播。我国开发的新冠疫苗是防发病也即重症而非防感染。所以接种国产疫苗之后并不能保证不被新冠病毒传染。
+**简评：**
 
-家人们请注意，就算接种了国产疫苗也不要放松防疫警惕哈。因为你现在接种的疫苗只防发病不防感染。再次提醒，就算接种了国产疫苗的家人也不要到处瞎逛，尤其是在中高风险区的家人们。
+6月3日至7日的一项民意调查显示，大多数美国人现在相信冠状病毒起源于武汉病毒研究所。国会山的立法官员们正在查看一份关于病毒来源秘密的报告，该报告据称支持冠状病毒起源于武汉病毒研究所的说法。一位共和党众议员表示他们很想知道病毒来源，这个问题的答案比他们当初认为的要严重很多。
 
-**堂侄**：我还没接种疫苗，一点也不可怕，就当是流感一样。
+关于病毒来源这个问题，全世界迫切地需要一个答案。不管中共如何玩弄手段，所有问题的根源都必须从这个话题开始。病毒来源这个问题一旦有了确定的答案，也就是说美国一旦宣布病毒来源于中共的武汉病毒研究所，而且是中共军方参与的，那这场病毒大流行的性质就变成了中共向全世界发起的一场生物战争。历史会因此而改变。中共血债累累，杀人无数，全世界必将对这个魔鬼进行大审判。
 
-**樵夫**：全球已经感染一亿七千五百万人，死亡三百五十万。这种史无前例的瘟疫还是蛮可怕的哈。香港大学管轶最近接受采访称，要接种国际主流认可的疫苗，别信王婆卖瓜，自卖自夸的东西。
+**原文翻译：**
 
-管轶是疫情期间第一时间到达武汉的病毒学家，并第一时间逃离武汉。
+## **民意调查：大部分人现在相信冠状病毒源自武汉病毒研究所**
 
-**堂侄**：我要接种疫苗的时候，就是决心去抗疫的时候了，看来还用不上我。
+[!\[\]()!\[\](https://spark.adobe.com/page/GznhayN2hBLgn/images/fdbefc68-268d-4db3-9fa0-72c01e49a9cc.jpg?asset_id=38437367-bf32-4ab7-ba7f-1625d6081aba&amp;img_etag=%221b9c0cba14893c5021770281780397c5%22&amp;size=2560)](https://spark.adobe.com/page/GznhayN2hBLgn/images/fdbefc68-268d-4db3-9fa0-72c01e49a9cc.jpg?asset_id=38437367-bf32-4ab7-ba7f-1625d6081aba&amp;img_etag=%221b9c0cba14893c5021770281780397c5%22&amp;size=1024)图片来源：盖蒂图片社
 
-**樵夫**：别意气用事，老老实实呆着。真轮到你上的时候，广州可能医疗资源已经耗尽，尸横遍野了。
+**周三公布的一项民意调查显示，现在大多数美国人相信冠状病毒是起源于武汉病毒研究所。**
 
-还是用老办法防疫最好，别太信国产疫苗。深圳当局最近紧急停打国产疫苗是明智的。喝喝高度酒，唱唱无忧歌，出门戴口罩，集会莫扎窝哈……
+当Trafalgar Group（译者注：Trafalgar Group是一家民意调查公司。）询问受访者时，“关于新冠状病毒起源的看法，您最想说什么？”，近54%的人表示该病毒起源于实验室。
 
-国家疾控中心都说了，咱们的疫苗只防重症，不防传染。万一发现接种之后出现重症患者之后他们可能又会说，咱们的疫苗只防传播，不防感染和发病。
+更具体地说，29.1% 的人认为病毒是故意从实验室释放的，24.4% 的人认为它是从实验室意外泄漏的。
 
-家人们，千万注意安全哈。
+29.3% 的人表示他们不确定病毒的来源。
 
-**堂侄**：2003年非典的时候，我们作为医生去看发热病人，当时不让戴口罩，那个病比现在的死亡率高多了，都不怕，当时喝酒加抽烟，现在只是传染性隐匿性强。
+这项民意调查是在立法官员查看一份秘密报告之际进行的，该报告据称支持冠状病毒起源于武汉病毒研究所的说法。
 
-**樵夫**：管轶和饶毅都是你本科的校友。
+[!\[\]()!\[\](https://spark.adobe.com/page/GznhayN2hBLgn/images/1bd0b5ca-a899-4c59-a872-706c792166dd.jpg?asset_id=5eddbf82-a831-4bd9-ae35-1962766620b7&amp;img_etag=%224bfae2d6aee149d9a609f0cb24cf1582%22&amp;size=1024)](https://spark.adobe.com/page/GznhayN2hBLgn/images/1bd0b5ca-a899-4c59-a872-706c792166dd.jpg?asset_id=5eddbf82-a831-4bd9-ae35-1962766620b7&amp;img_etag=%224bfae2d6aee149d9a609f0cb24cf1582%22&amp;size=1024)
 
-**堂侄**：他们可能没经历过非典。
+众议院能源和商务委员会委员摩根•格里菲斯（弗吉尼亚州共和党人）对该报告表示：“我觉得我们很多人都认为各个监督委员会应该更早一点知道这份报告。我们很想知道答案……因为我们认为他们掌握了比我们在3月份所知道的更多实情。”
 
-**樵夫**：是的，新冠的传染性极强，死亡率却并不如其它烈性病毒。但虽然如此，其对整个人类的死亡威胁也是史无前例的。感染新冠即使康复的人，其机体功能也已经大不如前。
+这份绝密报告是由政府支持的劳伦斯利弗莫尔国家实验室的研究人员于2020年5月发布的。
 
-**堂侄**：重症会有影响，轻症的应该没有后遗症。
+与此同时，负责调查病毒实验室泄漏的前副助理国务卿戴维•费思(David Feith)于6月2日表示，如果政府、教育机构和企业在和中方进行科技交流，是不能确定他们是否是在不知情的情况下与中共军方合作。
 
-**樵夫**：尤其是用激素治疗SARS的，许多当年的医护感染康复之后，后遗症使他们生不如死悔恨终身。
+当前任国务卿迈克•彭佩奥被问及他是否相信中共军方参与了武汉病毒实验室的研究时，他答道：“这是肯定的。这是一个高度可信的评估，就是这个情况。”
 
-**堂侄**：怕就打疫苗，张文宏眼光独到，完全可信。
+无论科学界和中共之间有什么联系，国务院关于病毒起源的概况介绍说，中共已经“系统地阻止了对新冠病毒大流行起源进行透明和彻底的调查，并且选择将大量资源用于欺骗和造谣。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/MuxAdsh0EPmm4/images/b66ff577-ce4e-4d73-978d-cc1df377b182.jpg?asset_id=16d00ac6-1dfe-4134-b7c3-6c7d00c71929&amp;img_etag=%227bb3ec82aea3a7cc1b94fc4527447bdb%22&amp;size=2560)](https://spark.adobe.com/page/MuxAdsh0EPmm4/images/b66ff577-ce4e-4d73-978d-cc1df377b182.jpg?asset_id=16d00ac6-1dfe-4134-b7c3-6c7d00c71929&amp;img_etag=%227bb3ec82aea3a7cc1b94fc4527447bdb%22&amp;size=1024)
+该民意调查于6月3日至7日进行，共有1025名类似大选选民的受访者参与。该民意调查误差幅度为3.06%。
 
-**樵夫**：钟南山已成过去，广州去了张文宏。
+🔗[原文链接](https://www.breitbart.com/politics/2021/06/10/poll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology/)
 
-虽然我一直欣赏张文宏在疫情二次爆发之前的种种见解。但现在他已不是独立的科学家，普通人最好要独立判断他的每一个煽动哈。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-**堂侄**：上海人精明，见解独特，预判准确，长期以来没发现他有什么瑕疵。这个人很了不起。
-
-**樵夫**：在做政府机构的领导之前，此人的见解的确可圈可点。但人都有身不由己的时候，现在听张文宏的话尤其需要分辨弦外之音。他之前只是一个医学专家，加入上海疾控中心领导行列之后，他除了医学专家之外还是一个地地道道的政治家。
-
-张文宏自身典型的矛盾就是对国产疫苗的前倨而后恭。他曾经反对接种国产疫苗，他说，中国人买汽车都知道买进口的，一到打疫苗就犯糊涂了。
-
-可是一旦上面把疫苗外交定为国策之后，他的话风马上就转了。生命是自己的，家人们要学会独立思考，自己作出判断哈！
-
-***文章仅代表作者观点***
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/MuxAdsh0EPmm4/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/MuxAdsh0EPmm4/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/GznhayN2hBLgn/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/GznhayN2hBLgn/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

@@ -1,55 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独立观点】读道德经所想 第二章
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1315921/)
+## 从【习近平爱读的书】到【马背英雄】
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1315981/)
 
-作者：纽约香草山健身部 书记己嗝屁！
+作者：gokuabuela|校对：X-Wing|审核：Beicy-数学老师|Page：小雨
 
+[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/58390736-5f39-4847-80f2-d3fadace0a09.jpg?asset_id=65f8eaa2-111d-44aa-909f-3e1645323f7b&amp;img_etag=%226515b6e0b89c66008e9e31c5f87d0527%22&amp;size=1024)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/58390736-5f39-4847-80f2-d3fadace0a09.jpg?asset_id=65f8eaa2-111d-44aa-909f-3e1645323f7b&amp;img_etag=%226515b6e0b89c66008e9e31c5f87d0527%22&amp;size=1024)
 
+日前，西班牙的媒体报道了世界领导人都喜欢看什么书。 西班牙首相喜欢看人物传记，例如【邱吉尔传】，【托尼·布莱尔传】等。奥巴马喜欢看反种族主义的书。乔·拜登则喜欢看爱尔兰诗歌。那么，习近平呢？文章说：“习近平自称看过很多中国、俄国和西方的名著，有一串长长的书单，尽管从来没有见他引用过任何内容”。 习近平最喜欢的书是：【主算法】（The master algorithm），这是比尔·盖兹推荐过的书，主要是讲述可以用人工智能的算法，以最有效的方式做出行政和政治决策。还有就是【金钱改变一切】和【智能生活】，而据称习近平最喜欢的书是【灰犀牛】——“如何认识我们所忽视的明显危险并采取行动”。这些书大部分都是属于美国的科普读物。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/3605ebfe-97ff-40d6-8632-3d42f409a58c.png?asset_id=3fe28a2e-94c3-441e-9065-fae07dae1b59&amp;img_etag=%228d2b0a8ae72bf9a4369e76ee5de81cbc%22&amp;size=2560)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/3605ebfe-97ff-40d6-8632-3d42f409a58c.png?asset_id=3fe28a2e-94c3-441e-9065-fae07dae1b59&amp;img_etag=%228d2b0a8ae72bf9a4369e76ee5de81cbc%22&amp;size=1024)
 
+有意思的是，随后几天，记者设法采访了【灰犀牛】的作者， 米歇尔·乌克（Michele Wucker）， 让她谈谈对习近平的看法。 不可避免地谈到了疫情，她称“中共国对危险有自己的看法，有更高效的组织，这点比美国好得多”。
 
+这样的回答并不令人吃惊，从文化的角度来说，西方很久以前就开始培养这种白左的思想。1995年的奥斯卡评比，【阿甘正传】击败了【肖申克的救赎】获得了最佳影片。当年很喜欢【阿甘正传】，但是，现在回想，它宣扬的就是：在一个规则内，你只要完美地遵守规则，哪怕你是一个傻子，你也能获得一切。洗脑就是这样悄无声息的，很早前就开始了。
 
-[原文]
+再说说音乐界，80，90年代最流行的是摇滚乐，反叛、呐喊、抗争，表达对社会的不满和对人生的思索。德国的蝎子乐队（Scorpions）在1989年9月创作了【变革之风】（WIND OF CHANGE）, 纪念中国的6.4事件和苏联的逐步开放，结果1989年11月柏林墙倒塌，该曲成为铁幕崩塌，共产主义衰落，人类迎来和平的标志曲目，激励了整整一代人。
 
-天下皆知美之为美，恶已；皆知善，斯不善矣。有无之相生也，难易之相成也，长短之相刑也，高下之相盈也，音声之相和也，先后之相随，恒也。是以圣人居无为之事，行不言之教，万物作而弗始也，为而弗志也，成功而弗居也。夫唯弗居，是以弗去。
+而到今天，再无这样直接撼动你心底的歌曲，也无让你心灵震颤的电影，更无如【丧钟为谁而鸣】，【百年孤独】这样的文学巨作。这一切，都是黑暗势力早早地就开始了文化圈禁运动。
 
-![]()![](https://www.guang5.com/uploadfile/2018/0920/20180920053631146.jpeg)图源网络
+把人圈起来，打造一个【楚门的世界】，遮住真实的天，围住你的周围，让你看到的是：服从和规则，让你谈论的是娱乐和气候，以及忽视自然差异的绝对平等。不让你拥有的是反抗和呐喊。剥夺的是你的自由和勇气。
 
-[注译]
+经过30年的努力，欧美人也从野狼被哄成了家犬，和他们被散养不同，中国人有着更显而易见的悲惨，就是真正的被圈养成羊，不仅不能反抗，连回忆和批评都不行。看看中国那长长的禁片名单，还没开始反抗呢，就被“防患于未然”了。
 
-天下人都知道美之所以为美，那是由于有丑陋的存在；都知道善之所以为善，那是因为有恶的存在。（这里，老子用朴素的辩证法思想，通过日常社会的观察现象，指出人们对美好事物的认定和追求，也会产生出对丑恶现象的唾弃。）
+世界就在这“祥和”的气氛中走到了今天，没有人去真正约束共产党的行动，他们撕毁了协议，血洗了香港。他们建立了集中营，灭绝新疆人。他们和黑暗势力联合，对全人类进行大清洗，微弱的反抗声很快被掩盖，甚至不如瑞典的环保女孩更被人所知。
 
-有和无互相转化，难和易互相形成，长和短互相显现，高和下互相充实，音与声互相谐和，前和后互相接随——这是永恒的。（这里所提出的一系列对立面在人类社会生活中随处可见，如善恶、美丑、是非、强弱、成败、祸福等，都蕴含着丰富的辩证法原理。都具有相互依存、相互联系、相互作用的关系。这里论说了对立统一的规律，确认了对立统一的永恒、普遍的法则。）因此，圣人用无为的观点对待世事，用不言的方式施行教化：听任万物自然兴起而不为其创始，有所施为，但不加自己的倾向，功成业就而不自居。正由于不居功，就无所谓失去。（此处所讲的“无为”不是无所作为，随心所欲，而是要以辩证法的原则指导人们的社会生活，帮助人们寻找顺应自然、遵循事物客观发展的规律。他以圣人为例，教导人们要有所作为，但不是强作妄为，而是要按照自然界的“无为”规律。）
+曾经长生天的子民，金帐汗国的后代，面对奴役，已经沦落到了不敢反抗，不知道反抗的地步。看过国内的一个直播，是几个蒙古汉子直播吃肉，是的，身高马大的汉子，直播各种吃肉，牛肉，羊肉，蒸着吃，煮着吃，烤着吃。而另一边，牧场年年被侵占，被缩小，蒙古文教学被禁止，蒙古的孩子被黑警毒打，蒙古的女公务员愤然自尽。
 
-老子在这里指出，事物都有自身的对立面，都是以对立的方面为自己存在的前提，没有“有”，也就没有“无”，没有“长”，也就没有“短”；反之亦然。这是在正常情况下的对立面。
+丢失了战马，失去了雄鹰的不仅仅是草原儿女，也是我们每一个人，包括世界上的每一个人。病毒肆虐，疫苗飞速普及，病毒起源尚在艰难推进。这一年多来，科学界、媒体、政治家，大部分都还在沉默。西方社会并没有我们预想中的反抗和呐喊，最多就像小羊羔嘶喊了两嗓子，低下头继续吃草。社会的进步需要不屈的灵魂，我们需要发出呐喊。
 
-如果一个社会在独裁政府的统治下，政府就会垄断媒体、打压真相，通过媒体的虚假宣传，让人们分不清是非、黑白、善恶、对错，甚至故意给人们树立起一个假的对立面。这样，当社会出现问题的时候，他们就会拿假的对立面出来当挡箭牌。而他们这样作的目的就是，可以更好地维持自己的统治和利益。
+艺术是心灵的表达，【愿荣耀归于香港】，圣洁和不屈的歌声让香港从中共的战火下重生，成为我们心中的圣城。
 
-如果我们可以用辨证思维、学会用客观的角度看问题，那么即便在自己不甚了解的情况下，也可以根据客观世界本来的面目来解释看待世界。这样一来，一个人就可以通过推理和分析便能从对方虚假的宣传中指出他们的问题，从而彻底揭穿他们的真面目。
+[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/4ec5f93d-0220-494e-8d02-c87c7eed28bd.png?asset_id=0f4d8418-72c7-4c37-a1e4-160fab4ebb99&amp;img_etag=%22fee93ee78154bbe89821f404db7274d0%22&amp;size=1024)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/4ec5f93d-0220-494e-8d02-c87c7eed28bd.png?asset_id=0f4d8418-72c7-4c37-a1e4-160fab4ebb99&amp;img_etag=%22fee93ee78154bbe89821f404db7274d0%22&amp;size=1024)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+【马背英雄】的横空出世，就像黎明的第一束光，宣告了推翻共产党，反抗大重启计划的到来。在这个至暗时刻，尤其重要。佛家说“当头棒喝”，【马背英雄】就是唤醒人们反抗精神的那声“棒喝”。
 
-编辑/校对/发稿：Irene木木
+[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/2ed414e8-2939-4b02-ae49-b0e6c6e7d278.jpg?asset_id=941c2b59-f1b5-4017-a5ec-f5a599072527&amp;img_etag=%22ff43914e8147c89dbf5a9b6e5a2147a2%22&amp;size=1024)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/2ed414e8-2939-4b02-ae49-b0e6c6e7d278.jpg?asset_id=941c2b59-f1b5-4017-a5ec-f5a599072527&amp;img_etag=%22ff43914e8147c89dbf5a9b6e5a2147a2%22&amp;size=1024)
 
-**更多资讯，更多关注**
+【马背英雄】就是我们的战歌，这个时代需要英雄，爆料革命必出英雄！全世界人民需要掀翻桌子，长身而起，要生存，要反抗！
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+“你要战，那便战”！
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+**新闻参考：**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+- [El inquietante abismo entre lo que lee Pedro Sánchez y lo que leen los políticos chinos](https://blogs.elconfidencial.com/espana/takoma/2021-05-24/libros-politicos-occidentales-chinos_3095004/)
+- [La mujer que enseñó a Xi Jinping a torear un rinoceronte gris: “Ven diferente los riesgos”](https://www.elconfidencial.com/mundo/2021-06-05/michele-wucker-pandemia-rinoceronte-gris_3115963/)
 
 
+文章仅代表作者观点
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/mcJ55E0kmkzdC/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
