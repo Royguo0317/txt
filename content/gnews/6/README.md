@@ -1,39 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 已打疫苗者 因血栓风险不适合长途飞行旅游！
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1318697/)
+## 湖北十堰一居民区清晨突发猛烈爆炸，现场犹如遭到恐袭
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1318756/)
 
-台湾宝岛农场 马克强
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13005842/%E6%93%B7%E5%8F%96613-6.jpg)
-中共在2019年底以迅雷不及掩耳之势放出了COVID19病毒，肆虐并重创全球经济与毒杀人类的性命。  而国际医药大厂在国家政府的紧急状态之下，被核准了历经1年多左右且尚在做动物实验的疫苗给人类施打。 一般而言，疫苗发展的时间最少历经10年以上。  然而，COVID19疫苗在仓促的情况下施打在人体上，果然造成了成千上万的人产生了许许多多的副作用，如肢体颤抖、脸部麻痹、女性月经紊乱与大出血、血栓、心脏疾病、脑部损伤、及生殖系统等问题（注1）。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13004849/%E6%93%B7%E5%8F%96613-0-1.jpg)
-在全球接种疫苗人数将近达9亿人同时（2021年6月5日）（注2），西班牙以及俄罗斯航空则警告接种COVID19疫苗者不适合搭飞机旅行，因为在高空的状态之下人体可能会产生血栓的情况。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13004900/%E6%93%B7%E5%8F%96613-1-1.jpg)
-西班牙新闻网站指出：’航空公司正在解决血栓问题，并建议注射疫苗的人不要参与搭乘旅行’。  因为施打实验性mRNA疫苗者之血液中存在血栓的风险。  依照航空相关规定（非针对新冠疫苗），具有血栓高风险者只能够在严密的监督之下才能搭乘飞行。  接种疫苗者，在飞行航程到达一定的高度时，发生中风、形成血栓或心脏病等并发症的风险极高。  有几份报告警告说，接受注射疫苗者（无论哪一种疫苗）可能会出现凝血与出血的问题，这就是主要的原因。
+作者：台湾宝岛农场 快慢机
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013424/%E6%93%B7%E5%8F%96613-7.jpg)
+当地时间2021年6月13日，清晨06:30左右，湖北省十堰市，张湾区艳湖小区内，突然发生猛烈爆炸，现场犹如遭受恐怖袭击般惨烈。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013454/%E6%93%B7%E5%8F%96613-0-2.jpg)
+据悉，这次高烈度爆炸事故，恰巧发生在大陆端午节三天假期的第二天清晨时分。爆炸事故发生后，当地的公安、应急救援、医疗机构等多个相关部门，已经陆续抵达事故现场，并立即展开救援及调查等后续工作。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013507/%E6%93%B7%E5%8F%96613-1-2.jpg)
+目前，官方给出的初步勘查结论为：“疑似燃气所引发的大规模爆炸事故”。详细的具体情况，还要等待进一步的调查结果出来，才能知晓。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013518/%E6%93%B7%E5%8F%96613-2-1.jpg)
+由于此次高烈度的爆炸事故，恰巧发生在端午节三天小长假的第二天清晨，很多居住在该小区内的业主，应该都还没有如往常工作日般的早起出门。因此便导致了一定规模的人员被困及附带损伤的情况出现。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013530/%E6%93%B7%E5%8F%96613-3-1.jpg)
+疑似燃气引发的爆炸！究竟是小区内的天然气管道，还是常规液化煤气罐所致？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013540/%E6%93%B7%E5%8F%96613-4-1.jpg)
+从爆炸事故现场的照片来看，一整片钢筋混凝土结构的，两层建筑物，被爆炸冲击波所破坏的面目全非，仅剩框架结构还立在原处。部分该建筑物的屋顶已被爆炸气浪毁坏殆尽，漏出断壁残垣的破败洞口。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013552/%E6%93%B7%E5%8F%96613-5-1.jpg)
+这处被毁坏相当严重的两层建筑物，应该就是该次爆炸爆心所在。从该处建筑物的结构造型上来看，其并非常规的居民民宅，大概率是该小区内的一处商用建筑物。而距其前后不足50米处，便是数栋普通的常规多层小区民宅建筑。其上的绝大部分窗户玻璃都已被震碎，不少窗户的窗框结构，也都不同程度的出现了变形。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013602/%E6%93%B7%E5%8F%96613-6-1.jpg)
+现场路面已经被掩埋在，因巨大爆炸破坏所造成的无数废墟瓦砾之下。目光所及之处，犹如遭受了恐怖袭击之后的灾难现场一般。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013613/%E6%93%B7%E5%8F%96613-7-1.jpg)
+能够造成如此烈度爆炸的，要么是爆心建筑物内的天然气管道产生了大量泄漏，要么就是该处建筑物内存有大量的液化煤气罐。除此之外，几乎没有其它可能，由燃气而引发如此强度的大爆炸。同时也并不排除，又是一起走投无路，从而蓄意报复社会的恶性攻击行为。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013622/%E6%93%B7%E5%8F%96613-8.jpg)
+此文仅代表笔者个人观点！
 
-另外一家俄罗斯新闻门户网站指出：’任何接种过SARS-CoV-2冠状病毒疫苗的人可能不再被允许登机’。  叶夫根尼.  科瓦列夫医生告诉公共新闻社，那些接种了冠状病毒疫苗的人搭乘飞机旅行可能具有极高的风险性。  欧洲已经在讨论限制接种疫苗者搭乘飞机的可能性。  主要是，冠状病毒疫苗会影响与凝血相关的功能，而这会增加形成血栓的风险。  科瓦列夫说，在飞行过程中旅客长时间处于坐姿，而这样会使情况更糟糕。  （注3）
-
-甚至，在美国的疾病控制与预防中心（CDC）的网站中，也有关于搭飞机超过4小时可能出现血栓的警告（注4）。   而这样的情况对于接近9亿已接种疫苗者，除了必须面对接下来中、长期可能未知的副作用之外，而如今的这个消息，无疑问的是让已经打疫苗者在加上另一个严重的’副作用’。
-
-姑且无论疫苗背后所牵涉到的复杂政治、商业利益等问题。  在这些庞大的媒体各国政府强力宣传施打疫苗之际，似乎刻意的忽略了简单、便宜而有效、且极少副作用的药物，如羟氯喹+锌、阿奇霉素或依维菌素等（注5）。  并且，这些便宜的药物在疫情以来，已经获得相当多临床医生与科学家证实具有相当优秀的预防与治疗COVID19病毒的效果。
-
-最后，这疫苗到底要不要打？  是你由自己决定，而不是在受威胁的情况下被逼而施打的。  所以，最终的结果与影响是一辈子无法回复，都是由你自己来承担！  聪明的你能不用心点多作一些功课吗？
-
-（本文仅代表个人立场）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09152702/COVID19_AQ.png)
-数据源 ：
-
-1. [Vaccine researcher admits ‘big mistake,’ says spike protein is dangerous ‘toxin’](https://www.lifesitenews.com/news/vaccine-researcher-admits-big-mistake-says-spike-protein-is-dangerous-toxin)
-2. 谷歌统计数据
-3. [Medien in Spanien und Russland: Fluggesellschaften gehen das Problem der Blutgerinnsel an und empfehlen geimpften Personen, nicht zu reisen | uncut-news.ch](https://uncutnews.ch/medien-in-spanien-und-russland-fluggesellschaften-gehen-das-problem-der-blutgerinnsel-an-und-empfehlen-geimpften-personen-nicht-zu-reisen/)
-4. [Blood Clots and Travel: What You Need to Know](https://www.cdc.gov/ncbddd/dvt/travel.html)
-5. [伊維菌素？借鏡印度– GNEWS](https://gnews.org/zh-hant/1299198/)
-
-
-审核、校对╱早不稻仁
-
-发布╱little  liu
+[新闻链接](https://baijiahao.baidu.com/s?id=1702414100020567549&amp;wfr=spider&amp;for=pc)
 
 [点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
@@ -41,4 +34,8 @@
 
 [点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-+1
+文章审核：zhong
+
+文章发布：Little Liu
+
+0

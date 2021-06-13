@@ -1,75 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 逮个正着：疾控制中心改变了检测阈值以消除新的中共病毒患者病例
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1318172/)
+## 6月12日劳伦斯.塞林博士推特合集:协助闫丽梦博士的丈夫进入美国的人必须受到调查
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1318309/)
 
-翻译：烟波浩淼|校对：雨山溪桥客|审核：断播
-
-[基特·奈特利（Kit Knightly）通过Off-Guardian.org撰写](https://off-guardian.org/2021/05/18/how-the-cdc-is-manipulating-data-to-prop-up-vaccine-effectiveness/)
-
-***新的政策将人为地减少接种疫苗人群中的“突破性感染”，而旧的规定继续夸大未接种疫苗人群中的病例数。***
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12214116/CDC_Headquarters_PHIL_10693-2000x900-1.jpg)
-美国疾病控制中心（CDC）正在改变其数据记录和检测中共病毒（Covid19）的做法，以使实验性基因治疗“疫苗”似乎能有效预防这种所谓的疾病。
-
-他们毫不掩饰，在4月底5月初在自己的网站上宣布了政策变化（当然，他们没有承认变化背后相当明显的动机）。
-
-窍门在于他们对所谓的“突破性感染”的报告，即那些完全“接种”了预防Sars-Cov-2感染的人，但还是被感染了。
-
-从本质上讲，中共病毒长期以来被证明（对于那些愿意关注的人来说）是一种完全建立在两个关键因素之上的大流行说法：
-
-1. **假阳性测试**。通过改变周期阈值（CT值），可以操纵[不可靠的PCR检测](https://off-guardian.org/2020/06/27/covid19-pcr-tests-are-scientifically-meaningless/)，报告[大量假阳性](https://off-guardian.org/2021/03/27/making-something-out-of-nothing-pcr-tests-ct-values-and-false-positives/)。
+劳伦斯·塞林博士： 解决方法很简单。 爱国的美国人希望闫丽梦博士的丈夫 Ranawaka A P M Perera 被驱逐出美国，因为他是对她的人身安全和美国国家安全的威胁。 那些协助他进入美国的人必须受到调查。
 
 
-- **夸大的病例数**。全世界使用的“中共病毒病例”这一令人难以置信的[宽泛定义](https://www.ecdc.europa.eu/en/covid-19/surveillance/case-definition)，将任何接受阳性检测的人列为“中共病毒病例”，即使他们从出现过任何症状。
+
+> The solution is very simple. Patriotic Americans want Ranawaka A P M Perera, Dr Li-Meng Yan's husband, deported from the United States as a threat to her physical safety & the national security of the United States. Those who assisted his entry into the U.S. must be investigated. [pic.twitter.com/MnGXU64Unm](https://t.co/MnGXU64Unm)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403754545759625218?ref_src=twsrc%5Etfw)
 
 
-如果没有这两项政策，就永远不会有明显的大流行，现在疾病预防控制中心已经颁布了两项政策变化，这意味着它们不再适用于接种疫苗的人。
 
-首先，**他们在检测疑似“突破性感染”的样本时降低了****CT****值。**
+劳伦斯·塞林博士： 我请求 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探们进行调查，并在此处贴出在这些图像中的人员和机构之间的相互联系，并在此处发布。
 
-根据疾控制中心对州卫生当局关于处理“可能的突破性感染”的指示（4月底上传到他们的网站）来看：
 
-对于已知RT-PCR周期阈值（Ct）的病例，**仅将****Ct****值小于或等于****28**的标本提交给疾控中心进行测序。（对于更高的Ct值不，测序是不可行的）。
 
-**在整个大流行期间，****CT****值超过****35****已经成为常态，世界各地的实验室都进入了****40****年代。**
+> I request that the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives investigate and post here the connections among the persons and institutions in these images and post here. [pic.twitter.com/xYQNzrqXg5](https://t.co/xYQNzrqXg5)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403740965098164224?ref_src=twsrc%5Etfw)
 
-基本上，实验室运行了尽可能多的周期以获得积极的结果，尽管专家警告说这是毫无意义的（**甚至**[**福奇自己**](https://archive.is/7fqu3)**也说任何超过****35****个周期的东西都是毫无意义的）**。
 
-但是现在，而且只对完全接种疫苗的人，疾控中心只接受28个周期或更少周期的样本。这只能是一个深思熟虑的决定，目的是减少官方记录的“突破性感染”的数量。
 
-第二，无症状或轻度感染将不再被记录为“中共病毒病例”。
+劳伦斯·塞林博士： 遗憾的是，FBI (联邦调查局)在政治上妥协了，而且腐败到了无可救药的地步。 它是民主党和所有相信效仿 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 一党制国家的执法机构——美国的盖世太保或克格勃。 不能再相信它在法律下会行使平等正义。
 
-没错。即使在 28 的低 CT 值收集的样本可以测序到据称导致中共病毒的病毒，疾防控中心也不会再记录那些不会导致住院或死亡的突破性感染。
 
-从他们的[网站](https://www.cdc.gov/vaccines/covid-19/health-departments/breakthrough-cases.html)：
 
-截至2021年5月1日，疾控中心已从监测所有报告的疫苗突破性病例转变为只识别和调查因任何原因导致的住院或死亡病例。这一转变将有助于最大限度地提高收集的最重要的临床和公共健康病例的数据质量。先前的病例统计，最后一次更新是在2021年4月26日，仅供参考，今后不会更新。
+> Regrettably, the FBI is politically compromised & hopelessly corrupt. It is the law enforcement arm of the Democrat Party & all those who believe in a one-party state modelled after the CCP – American Gestapo or KGB. It can no longer be trusted to apply equal justice under law. [https://t.co/yMLZOGg94O](https://t.co/yMLZOGg94O)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403644251473338371?ref_src=twsrc%5Etfw)
 
-就像那样，无症状或只有轻微症状将不再被视为“中共病毒病例”，但前提是你已经接种了疫苗。
 
-疾控中心出台了新的政策，有效地建立了分级诊断系统。也就是说，从现在开始，未接种疫苗的人将发现被诊断为中共病毒的病例比接种疫苗的人容易得多。
 
-考虑一下…
+劳伦斯·塞林博士： 下周我计划与一些美国国会议员会面。 我会请他们调查，为什么闫丽梦博士的丈夫(据她说)在有暴力行为和威胁言辞的情况下，会出现在美国，以及谁在美国帮助 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 让他进来干肮脏的事情。 【图片文字：美国众议院情报常设委员会 （HPSCI）】
 
-**A**未接种疫苗的人。他们用40个周期的PCR检测中共病毒呈阳性，尽管没有任何症状，但他们被正式认定为“中共病毒病例”。
 
-**B**已接种了疫苗的人。他们在28个周期检测呈阳性，并且因高烧卧床6周。因为他们从来没有进过医院，也没有死，所以他们不是中共病毒病例。
 
-**C**同样已接种疫苗的人，发高烧，呼吸系统出了问题，在医院住了几周后死亡。只是他们的PCR测试阳性是29个周期，所以他们也不是官方的中共病毒病例。
+> Next week I have a planned meeting with members of the U.S. Congress. I will ask them to investigate why Dr. Li-Meng Yan's husband is in the U.S. given, according to her, his violent actions and threats and who in the U.S. helped the CCP get him in to do its dirty business. [pic.twitter.com/J0pTYDD2Kf](https://t.co/J0pTYDD2Kf)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403610680738123777?ref_src=twsrc%5Etfw)
 
-疾控中心正在展示一种“疾病”的美妙之处，它可以根据你怎么测量它而出现或消失。
 
-**需要明确的是：如果这些新政策自****2019****年****12****月以来就是全球应对中共病毒的方法，那么就根本不会出现大流行。**
 
-如果你只将它们应用于接种疫苗的人，而对未接种疫苗的人保留旧的规则，唯一可能的结果可能是在官方记录中，中共病毒病例在未接种疫苗的人中比接种疫苗的人中流行得更多。
+劳伦斯·塞林博士： 我们确切地知道闫丽梦博士的丈夫在哪里。 当他突然出现在她附近工作时，他在香港的一个实验室里有很好的位置。 我们想知道在美国有谁在帮助 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 干他们的肮脏勾当。 调查记者们正在追踪。
 
-这是一项旨在不断夸大一个数字，并有系统地减少另一个数字的政策。
 
-这不是明显的、故意的欺骗行为，那是什么呢？
 
-原文作者：泰勒·杜登（Tyler Durden）
-发布时间：2021年5月23日
-原文链接：[https://www.zerohedge.com/covid-19/caught-red-handed-cdc-changes-test-thresholds-virtually-eliminate-new-covid-cases-among](https://www.zerohedge.com/covid-19/caught-red-handed-cdc-changes-test-thresholds-virtually-eliminate-new-covid-cases-among)
+> We know exactly where Dr. Li-Meng Yan's husband is. He was well-established in a lab in Hong Kong when he suddenly appears working near her. We want to know who in the U.S. is helping the Chinese Communist Party in their dirty business. Investigative reporters are on the trail. [https://t.co/f0GRSreEr1](https://t.co/f0GRSreEr1)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403605415477362690?ref_src=twsrc%5Etfw)
 
-0
+
+
++1

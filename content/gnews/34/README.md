@@ -1,52 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月12日劳伦斯.塞林博士推特合集:协助闫丽梦博士的丈夫进入美国的人必须受到调查
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1318309/)
+## G7峰会：拜登敦促西方结盟对抗中共
+` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/1318259/)
 
-劳伦斯·塞林博士： 解决方法很简单。 爱国的美国人希望闫丽梦博士的丈夫 Ranawaka A P M Perera 被驱逐出美国，因为他是对她的人身安全和美国国家安全的威胁。 那些协助他进入美国的人必须受到调查。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/gnews抬头图片.png)
+韩国恩典农场：尚生    上传：追着曙光跑
 
+摘要：作者对BBC关于G7峰会其中一篇报道进行了翻译。
+原文链接：[G7 summit: Biden wants West to form alliance against China](https://www.bbc.com/news/world-us-canada-57452158?xtor=AL-72-%5Bpartner%5D-%5Bbbc.news.twitter%5D-%5Bheadline%5D-%5Bnews%5D-%5Bbizdev%5D-%5Bisapi%5D&amp;at_custom4=3940F3C0-CB5A-11EB-9421-ABEE4744363C&amp;at_custom3=%40BBCWorld&amp;at_campaign=64&amp;at_custom2=twitter&amp;at_medium=custom7&amp;at_custom1=%5Bpost+type%5D)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222650/6%E6%9C%8813%E5%8F%B7%E6%8B%9C%E7%99%BB%E4%B8%89%E4%BA%BA.jpg)图片来源：网络
+一位助手告诉英国广播公司，美国总统乔·拜登将在七国集团峰会的第二天敦促西方国家对抗中共日益增长的影响力。
+在英国举行的会议上，拜登总统将呼吁建立新的联盟，支援发展中国家的基础设施建设，抗衡北京对发展中国家的基础设施支援（渗透）。
+美国及其盟友指责中共在新疆强迫劳动和其他侵犯人权的行为。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222735/6%E6%9C%8813%E6%97%A5%E5%88%86%E6%9E%90%E5%AE%B6.png)图片来源：网络
+美国人认为周六举行的G7会议，是关于中共在全球影响力的崛起和挑战。北京的一带一路倡议已经向发展中国家注入了数十亿美元，这必将遭到西方民主国家的反击。
+高级政府官员希望证明西方价值观可以占上风。他们认为，中共投资的代价太高，新疆维吾尔族的强迫劳动在道德上令人震惊，在经济上是不可接受的，因为它阻碍了公平竞争。
+拜登总统坚持认为，全球供应链必须摆脱这种劳动力。美国官员表示，这不仅仅是为了对抗中共，也是为了给世界提供正面积极的选择。
+但拜登政府对于西方将为这一全球基础设施计划做出多少贡献以及在什么时间尺度上一直含糊其辞。很清楚的是，西方大国重新下定决心，他们现在需要采取行动，对抗一个复兴且日益强大的中共。
+但拜登政府对于西方将为这一全球基础设施计划做出多少贡献以及在什么时间尺度上一直含糊其辞。很清楚的是，西方大国重新下定决心，他们现在需要采取行动，对抗一个复兴且日益强大的中共。
 
+到目前为止，西方各国对中共做了什么？
+今年早些时候，美国、欧盟、英国和加拿大对中国实施了协调制裁。
+制裁，包括旅行禁令和资产冻结，针对的是新疆被指控严重侵犯维吾尔穆斯林人权的高级官员。
+据估计，超过100万维吾尔族和其他少数民族被拘留在西北省的营地。
+中共国政府被指控对维吾尔妇女进行强迫绝育，并将儿童与家人隔离。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222826/6%E6%9C%8813%E6%97%A5%E4%B8%AD%E5%85%B1%E5%B7%A5%E4%BA%BA.jpg)图片来源：网络
+根据路透社消息：中共为新疆地区的少数民族建立了庞大的拘留营网络。
+英国广播公司2月曾发表了一项调查，里面描述了中共对拘押的新疆少数民族进行酷刑折磨、蓄意强奸和性虐待。
 
-> The solution is very simple. Patriotic Americans want Ranawaka A P M Perera, Dr Li-Meng Yan's husband, deported from the United States as a threat to her physical safety & the national security of the United States. Those who assisted his entry into the U.S. must be investigated. [pic.twitter.com/MnGXU64Unm](https://t.co/MnGXU64Unm)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403754545759625218?ref_src=twsrc%5Etfw)
-
-
-
-劳伦斯·塞林博士： 我请求 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探们进行调查，并在此处贴出在这些图像中的人员和机构之间的相互联系，并在此处发布。
-
-
-
-> I request that the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives investigate and post here the connections among the persons and institutions in these images and post here. [pic.twitter.com/xYQNzrqXg5](https://t.co/xYQNzrqXg5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403740965098164224?ref_src=twsrc%5Etfw)
-
-
-
-劳伦斯·塞林博士： 遗憾的是，FBI (联邦调查局)在政治上妥协了，而且腐败到了无可救药的地步。 它是民主党和所有相信效仿 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 一党制国家的执法机构——美国的盖世太保或克格勃。 不能再相信它在法律下会行使平等正义。
-
-
-
-> Regrettably, the FBI is politically compromised & hopelessly corrupt. It is the law enforcement arm of the Democrat Party & all those who believe in a one-party state modelled after the CCP – American Gestapo or KGB. It can no longer be trusted to apply equal justice under law. [https://t.co/yMLZOGg94O](https://t.co/yMLZOGg94O)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403644251473338371?ref_src=twsrc%5Etfw)
-
-
-
-劳伦斯·塞林博士： 下周我计划与一些美国国会议员会面。 我会请他们调查，为什么闫丽梦博士的丈夫(据她说)在有暴力行为和威胁言辞的情况下，会出现在美国，以及谁在美国帮助 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 让他进来干肮脏的事情。 【图片文字：美国众议院情报常设委员会 （HPSCI）】
-
-
-
-> Next week I have a planned meeting with members of the U.S. Congress. I will ask them to investigate why Dr. Li-Meng Yan's husband is in the U.S. given, according to her, his violent actions and threats and who in the U.S. helped the CCP get him in to do its dirty business. [pic.twitter.com/J0pTYDD2Kf](https://t.co/J0pTYDD2Kf)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403610680738123777?ref_src=twsrc%5Etfw)
-
-
-
-劳伦斯·塞林博士： 我们确切地知道闫丽梦博士的丈夫在哪里。 当他突然出现在她附近工作时，他在香港的一个实验室里有很好的位置。 我们想知道在美国有谁在帮助 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 干他们的肮脏勾当。 调查记者们正在追踪。
-
-
-
-> We know exactly where Dr. Li-Meng Yan's husband is. He was well-established in a lab in Hong Kong when he suddenly appears working near her. We want to know who in the U.S. is helping the Chinese Communist Party in their dirty business. Investigative reporters are on the trail. [https://t.co/f0GRSreEr1](https://t.co/f0GRSreEr1)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403605415477362690?ref_src=twsrc%5Etfw)
-
-
-
-+1
+0

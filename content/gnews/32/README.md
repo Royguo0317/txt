@@ -1,79 +1,196 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳洲热点】澳洲总理公开承认中共病毒疫苗的神话破灭，边境开放遥遥无期
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1318355/)
+## 国会议员马特·盖茨与联邦调查局局长克里斯托弗·雷 FBI 对 COVID-19 起源正面交锋
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1318346/)
 
-翻译：小红帽
+**字幕内容：**
+**Matt Gaetz (Congressman)
+马特·盖茨（国会议员）**
 
-编辑/译评：枳实
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12224122/image1-1-3.png)
-图片来源：纽约香草山农场
+If we don’t look at that rooted information
+如果我们不看那些扎实的信息
 
-译评：
+We’re unable to ascertain what differences of opinion are correct and incorrect
+我们无法确定哪些意见分歧是正确的和不正确的
 
-闫丽梦博士早在2020年1月就警告不要指望短期内能够获得有效的疫苗。的确，尽管政府，媒体，和学界一面倒的鼓吹疫苗的有效性和安全性，可是真实的数据不断涌现，现在连澳洲总理都不得不站出来承认广泛接种中共病毒疫苗根本无法让澳洲重开边境，让大家自由海外旅行，让一切恢复正常。因为英国的例子活生生就摆在那里，在疫苗接种率如此之高的情况下，每周新增病例数却从一万多一下子跃升到四万多。因为在澳洲大部分社区的新增病例数连续为零的天数都超过了一年，所以当人们衡量疫苗的副作用和在澳洲感染中共病毒的风险时候很容易得出结论接种疫苗的风险远远大于收益。然而很多人听信了媒体和“专家”的忽悠，相信接种疫苗是开放边境和海外旅行的唯一希望，现在英国的现实已经证明，这个希望完全是虚幻和不切实际的。
+but it’s hard to believe that the FBI didn’t believe Dr. Yan was credible or significant
+但很难相信 FBI 不相信闫博士是可信的或重要的
 
-实际上广泛疫苗接种，恰恰能够诱发变异毒株的产生。这是免疫学家早就警告的，也是从生物学角度很容易理解的。广泛的疫苗接种，加上冠状病毒容易变异的特性，导致能够突破疫苗免疫保护的毒株成为优势毒株，就像滥用抗生素能诱发耐药的“超级病菌”的产生一样。
+because she lands on April 28th
+因为她在 4 月 28 日落地时
 
-更严重的是，这些变异毒株产生的自然过程又可以在实验室中进行模拟，只需要在培养中共病毒的小鼠体内注射疫苗所诱发的抗体就可以了。同时还可以另外增加其它的致病特征，比如本文中提到的印度所报道的听力损害和坏疽表现。也就是说，广泛的疫苗接种不仅能诱发变异毒株，更为来源于生物武器实验室的变异毒株的释放提供了完美的掩护和播散的温床。
+Your agent Dana Murphy takes her phone that day
+你的探员达娜·墨菲那天拿走了她的电话
 
-所以说，世界各国，尤其是澳洲民众，应该面对现实，果断放弃对疫苗的天真的幻想，直面疫情的源头：中共的生物武器实验室，不切断疫情的源头，比这个造成听力损害和坏疽的变异毒株更加危险的生物武器袭击将会纷至沓来，疫情将永无尽头。
+I’m holding the receipt from where you got the phone
+我正拿着你得到她的电话的收据
 
-译文：
+that had the Wechat messages
+那里有微信的信息
 
-印度的病毒株更容易传播，更严重，而且对疫苗更有抵抗力。
+that had very important information regarding Beijing and the Chinese Communist Party
+涉及到北京和中国共产党的非常重要的信息
 
-自从中共国出现中共病毒，引发全球大流行，使经济瘫痪、数百万人死亡并迫使国际边界关闭。一年半多以来，人们越来越担心，印度的病毒株可能会破坏期待已久的重新开放，使世界重新陷入危机。
+and it’s not every day that an FBI agent flies from Los Angeles to New York
+并不是每天都能有联邦调查局特工从洛杉矶飞到纽约
 
-世界卫生组织本周说，去年10月在印度首次发现的所谓Delta变体（这是世界卫生组织为简化其学名 B.1.617.2 ，并避免以发现新毒株的国家命名称为“印度变种”而有污名化之嫌，因此赋予的新名称），现在已经扩散到包括澳大利亚在内的至少62个国家，并且是造成亚洲和非洲各地越来越多的疫情的背后原因。
+to follow a Chinese doctor who is a whistleblower and a fact witness
+跟随一位身为爆料者和事实证人的中国博士
 
-在英国，Delta 变种现在占新病例的 90%。尽管疫苗接种运动取得成功，但这些新病例已经开始出现，并且会再次激增。
+and even if Dr. Yan’s technical analysis of the virus is incorrect
+即使闫博士对病毒的科学分析是错误的
 
-周五，英国在全国记录了 8125 例新病例。这是四个月以来的最高每日数字。新病例每周增加 58%，其中有 158 人住院。
+the fact that she showed up
+而事实是她站出来
 
-据《泰晤士报》报道，这些令人不安的数字正迫使政府考虑将6月21日的最终放宽限制推迟两周或四周。
+saying that she wanted to provide information
+说她要提供信息
 
-目的是让人们有更多的时间去打第二针。英国大约75%的人已经接种了疫苗，但只有40%的人接种了两针。
+and tell the truth seems significant today now
+而且敢于揭露真相，在今天看起来很重要
 
-本周公布的数字显示，Delta变种的383名住院病人中有三分之二是没有接种过疫苗的人，而接种过两剂疫苗的人有42人住院，12人死亡。
+back when Dr Yan made these pronouncements
+当闫博士发表这些声明的时候
 
-“这是为了给人们提供确定性，”一位政府人士告诉《泰晤士报》。”最糟糕的情况是，我们放宽了限制，然后又不得不再次实施。我们绝对不能来回折腾。”
+regarding the Chinese Communist Party their military involvement
+涉及中国共产党他们的军队的参与（制造病毒）
 
-据该报报道，英国首相鲍里斯-约翰逊预计将等到周日查看这些数据，并作出最终决定，但人们普遍预计会出现延迟。
+the leak of this virus from the lab
+从实验室泄漏的病毒
 
-《太阳报》周五晚间报道，约翰逊先生准备将 “自由日 “推迟到7月19日。
+we had a number of people trying to discredit her
+我们有很多人试图诋毁她
 
-在此之前，英国公共卫生部门的分析显示感染人数从上周的 12,431 人上升到 42,323 人，增幅为 240%。
+are you able to ascertain whether or not that effort to discredit Dr. Yan
+你能确定这些诋毁闫博士的努力
 
-约翰逊先生周五在 G7 峰会上告诉世界各国领导人，“我们需要确保我们不会重复过去 18 个月中犯下的一些错误”。
+is part of the counterintelligence efforts by the Chinese Communist Party
+是中国共产党反间谍工作的一部分？
 
-英国儿科医生、独立 SAGE 咨询小组成员安东尼·科斯特洛在本月早些时候告诉 BBC，6 月 21 日放宽限制还为时过早。
+Christopher Wray (FBI Director)
+克里斯托弗·雷（联邦调查局局长）
 
-他指出，Delta 变体被认为具有 50% 至 70% 的传染性，住院的可能性高 2.7 倍，并显示出“疫苗逃逸”的证据。
+Again I want to be careful both about information
+再次，我要非常小心的关于信息
 
-“如果你接种了一剂疫苗，你的保护率只有 34%，”科斯特洛医生说。
+we can provide in general about any kind of ongoing investigation
+我们可以提供有关任何类型的正在进行的调查的一般信息
 
-“如果您接种了两剂疫苗，则只有大约三分之二受到保护。 这意味着有数以百万计的人可能会被这种病毒感染。 现在，他们中的许多人比较年轻，死亡率应该会低得多。 但是，很多人最终可能会住院，国家医疗服务系统可能会陷入另一次案例激增时期——我们对此还不清楚。”
+but also about what inform that information would take
+但也关于以什么形式来提供这些信息也要慎重
 
-除了更高的传染性，还有来自印度的传闻称，在儿童中Delta 变种比 Alpha 变种更严重。
+because in some cases you may be touching on things
+因为在某些情况下，你可能会触及到一些东西
 
-在印度治疗患者的医生报告了令人不安的新症状，包括坏疽和听力损失。
+that would be classified and that might require a different format
+那可能是机密的并且可能需要不同的方式处理
 
-《泰晤士报》周六发布的一项 YouGov 民意调查发现，大多数英国选民支持推迟 6 月 21 日重新开放。
+so I certainly understand why you’re asking the questions
+所以我当然理解你为什么问这些问题
 
-民意调查发现，53% 的人表示限制应该在 6 月 21 日之后继续存在，34% 的人表示应该结束。
+let me commit to you that I will go back with my folks
+让我向你承诺我会回去与我的同事们
 
-本周早些时候，澳大利亚总理斯科特·莫里森在前往英国参加 G7 会谈之前警告说，Delta 变种在那里令人担忧的蔓延意味着澳大利亚的边境可能会继续关闭，且看不到尽头。
+and see what information can be provided
+并看看什么信息可以提供
 
-莫里森先生告诉珀斯广播电台 6PR：“他们的疫苗接种率在 70 %以上，而且他们的老年人口年龄疫苗接种率甚至比这还高，可是他们每天有 4000 个病例，每天 4000 例。”
+and what form it would have to take if we can provide
+以及它必须采取什么形式，如果我们能提供的话
 
-主持人利亚姆-巴特利特打断了他的话，指出 “他们对外开放的国家比我们国家多得多”。
+Matt Gaetz
+马特·盖茨
 
-“没错，如果你建议我们把目标设定为每天处理 4000 个病例的话。我认为澳大利亚人不会同意你的观点。”总理说。
+That would be very good
+那会很好
 
-“我会告诉你什么是真实的，我会告诉你什么是事实。 英国的疫苗接种率超过 70%，每天超过 4000 例。 我今天去新加坡，那里的疫苗接种率超过 40%，他们处于封锁状态。 因此，我们从这次大流行中学到的东西是没有绝对的。 病毒制定了规则。”
+Hold on Mr. chairman
+等一下主席先生
 
-原文链接：[Why the Delta variant is terrifying coronavirus experts](https://www.news.com.au/lifestyle/health/health-problems/why-the-delta-variant-is-terrifying-coronavirus-experts/news-story/50293c32d11dfa7faaa3cf85613e46d1)
+You let everybody else go over here
+你让其他人都超时了
+
+You might be recognized just for unanimous consent
+这仅仅是申请一致无异议同意，也许你会让我读完
+
+Chairman
+主席
+
+Gentlemen’s time has expired
+先生们的时间已过
+
+Matt Gaetz
+马特·盖茨
+
+you’re not treating everyone equally
+你没有平等地对待每个人
+
+Mr. Chairman, you went over by more than 10 minutes
+主席先生，你超过不止
+
+Chairman
+主席
+
+Gentlemen’s time
+先生们的时间
+
+Matt Gaetz
+马特·盖茨
+
+Johnson went over by 45 seconds
+约翰逊超过了 45 秒
+
+Chairman
+主席
+
+Gentlemen’s time has expired Mr. Gaetz
+先生们的时间已过
+
+Matt Gaetz
+马特·盖茨
+
+I just want a unanimous consent request
+我只想要一个全体无异议同意
+
+Chairman
+主席
+
+Oh oh oh okay I’m sorry
+噢，噢，噢，好的，抱歉
+
+All right go ahead go ahead
+好吧，继续，继续
+
+Matt Gaetz
+马特·盖茨
+
+Thank you Mr Chairman
+谢谢你，主席先生
+
+I see unanimous consent to enter into the record the receipt from the United States De-partment of Justice wherein Dr. Yan’s phone was taken by FBI agent Dana Murphy
+关于其中闫博士的电话被联邦调查局特工
+达娜·墨菲拿走的美国司法部的收据
+我想得到全体无异议同意
+
+Chairman
+主席
+
+That objection uh that objection
+无人反对，无人反对
+
+The gentlemen’s time has expired Mr. Gaetz
+先生们的时间已过
+
+原视频链接: [https://twitter.com/repmattgaetz/status/1403028196208087052?s=24](https://twitter.com/repmattgaetz/status/1403028196208087052?s=24)
+英听校： 康州盘古农场 – Layka
+翻译：康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

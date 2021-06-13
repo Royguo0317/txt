@@ -1,196 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国会议员马特·盖茨与联邦调查局局长克里斯托弗·雷 FBI 对 COVID-19 起源正面交锋
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1318346/)
+## 澳洲联邦科学与工业研究院将终止与中共国的部分合作
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1318529/)
 
-**字幕内容：**
-**Matt Gaetz (Congressman)
-马特·盖茨（国会议员）**
+翻译与评论：Shirley
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12233438/20210613_task1_Cover.jpg)网络图片
+联邦科学与工业研究院（CISRO）将终止与中共国顶级海洋科学研究所的海洋研究合作，因为澳洲安全情报局（ASIO）局长伯吉斯（Mike Burgess）两周前警告说，这个合作可能有助于中共国海军追捕澳大利亚潜艇。
 
-If we don’t look at that rooted information
-如果我们不看那些扎实的信息
+总部设在塔斯马尼亚州首府霍巴特的南半球海洋研究中心的工作人员周五（6月11日）被告知，与中共国顶级的青岛国家海洋实验室的五年研究协议，将在明年6月到期后不再续签。
 
-We’re unable to ascertain what differences of opinion are correct and incorrect
-我们无法确定哪些意见分歧是正确的和不正确的
+根据澳大利亚战略政策研究所的《中国国防大学追踪》，青岛国家海洋实验室与中国人民解放军海军（PLAN）潜艇学院（也位于青岛）在国防科学研究方面进行了密切合作，领导着中共国的“透明海洋”计划，旨在利用安装在卫星上的光探测和测距技术，来确定深度达500米的潜艇的位置。
 
-but it’s hard to believe that the FBI didn’t believe Dr. Yan was credible or significant
-但很难相信 FBI 不相信闫博士是可信的或重要的
+作为此合作项目的主要负责人，CISRO的首席研究科学家蔡文炬，不仅领导着耗资2000万澳元、有来自塔斯马尼亚大学和新南威尔士大学的研究人员工作的联合研究中心，而且也是该青岛实验室的教授，“千人计划”的一员，以及首位“鳌山人才”领军科学家。
 
-because she lands on April 28th
-因为她在 4 月 28 日落地时
+尽管CISRO否认蔡教授是“千人计划”学者，认为他唯一的领薪工作是作为CSIRO的雇员。可是2017年4月19日的每日头条就报道说，蔡教授不仅是“千人计划”的一员，而且享受每年100-120万元人民币的人才津贴，补助科研经费300-500万元，生活津贴500万元人民币。
 
-Your agent Dana Murphy takes her phone that day
-你的探员达娜·墨菲那天拿走了她的电话
+从中共国出来的人都知道，凡是不符合中国共产党意愿的报道，是根本不可能出现并至今存在的。因此蔡教授一定是拿到了中共国提供给他的、高于他在CISRO领到的薪金数倍的“千人计划”的一员。为什么CISRO不知道蔡教授在中共国的收入？是他刻意隐瞒了什么吗？
 
-I’m holding the receipt from where you got the phone
-我正拿着你得到她的电话的收据
+关于蔡教授在中共国的津贴，人民日报在2017年4月25日的《面向全球招聘科学家》也有报道，在文学城的网页中可以查到相关内容。
 
-that had the Wechat messages
-那里有微信的信息
+值得庆幸的是，现在澳洲已经明白了习神的“军民融合”理论，确定了青岛国家海洋实验室一定会将合作中获得的数据提供给中共国军队使用，也及时地阻止了中共国海军对澳洲潜艇更多的威胁。
 
-that had very important information regarding Beijing and the Chinese Communist Party
-涉及到北京和中国共产党的非常重要的信息
+可悲的是，做为澳洲公民的蔡教授，为了眼前的金钱利益以及所谓的“出人头地”，向澳洲政府隐瞒了一些事情。如果隐瞒的事情都被暴露出来以后，蔡教授是为中共陪葬还是担负法律责任呢？
 
-and it’s not every day that an FBI agent flies from Los Angeles to New York
-并不是每天都能有联邦调查局特工从洛杉矶飞到纽约
+（本文仅代表个人观点）
 
-to follow a Chinese doctor who is a whistleblower and a fact witness
-跟随一位身为爆料者和事实证人的中国博士
+*发稿：光耀华夏*
 
-and even if Dr. Yan’s technical analysis of the virus is incorrect
-即使闫博士对病毒的科学分析是错误的
+参考资料：
 
-the fact that she showed up
-而事实是她站出来
+[The Australian: CSIRO sinks China study deal over submarine fears](https://www.theaustralian.com.au/nation/defence/csiro-sinks-china-studydeal-over-submarine-fears/news-story/76b0b8b66741508c3d652b1cda01e301)
 
-saying that she wanted to provide information
-说她要提供信息
+[The Australian: 战略专家警告CSIRO与中国顶尖海洋科学研究所合作伙伴关系](https://cn.theaustralian.com.au/2020/02/10/34652/)
 
-and tell the truth seems significant today now
-而且敢于揭露真相，在今天看起来很重要
+[The Australian: 利用监管松懈 中国签约澳洲研究人才参与秘密计划](https://cn.theaustralian.com.au/2020/08/24/43736/)
 
-back when Dr Yan made these pronouncements
-当闫博士发表这些声明的时候
+[每日头条：海洋国家实验室将组超五千人高端团队！蔡文炬获聘首位领军科学家](https://kknews.cc/zh-sg/science/3964jry.html)
 
-regarding the Chinese Communist Party their military involvement
-涉及中国共产党他们的军队的参与（制造病毒）
+[文学城：6年1400万，山东聘请这位华人科学家值不值？](https://www.wenxuecity.com/news/2017/05/26/6266845.html)
 
-the leak of this virus from the lab
-从实验室泄漏的病毒
+* * *
 
-we had a number of people trying to discredit her
-我们有很多人试图诋毁她
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-are you able to ascertain whether or not that effort to discredit Dr. Yan
-你能确定这些诋毁闫博士的努力
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 
-is part of the counterintelligence efforts by the Chinese Communist Party
-是中国共产党反间谍工作的一部分？
-
-Christopher Wray (FBI Director)
-克里斯托弗·雷（联邦调查局局长）
-
-Again I want to be careful both about information
-再次，我要非常小心的关于信息
-
-we can provide in general about any kind of ongoing investigation
-我们可以提供有关任何类型的正在进行的调查的一般信息
-
-but also about what inform that information would take
-但也关于以什么形式来提供这些信息也要慎重
-
-because in some cases you may be touching on things
-因为在某些情况下，你可能会触及到一些东西
-
-that would be classified and that might require a different format
-那可能是机密的并且可能需要不同的方式处理
-
-so I certainly understand why you’re asking the questions
-所以我当然理解你为什么问这些问题
-
-let me commit to you that I will go back with my folks
-让我向你承诺我会回去与我的同事们
-
-and see what information can be provided
-并看看什么信息可以提供
-
-and what form it would have to take if we can provide
-以及它必须采取什么形式，如果我们能提供的话
-
-Matt Gaetz
-马特·盖茨
-
-That would be very good
-那会很好
-
-Hold on Mr. chairman
-等一下主席先生
-
-You let everybody else go over here
-你让其他人都超时了
-
-You might be recognized just for unanimous consent
-这仅仅是申请一致无异议同意，也许你会让我读完
-
-Chairman
-主席
-
-Gentlemen’s time has expired
-先生们的时间已过
-
-Matt Gaetz
-马特·盖茨
-
-you’re not treating everyone equally
-你没有平等地对待每个人
-
-Mr. Chairman, you went over by more than 10 minutes
-主席先生，你超过不止
-
-Chairman
-主席
-
-Gentlemen’s time
-先生们的时间
-
-Matt Gaetz
-马特·盖茨
-
-Johnson went over by 45 seconds
-约翰逊超过了 45 秒
-
-Chairman
-主席
-
-Gentlemen’s time has expired Mr. Gaetz
-先生们的时间已过
-
-Matt Gaetz
-马特·盖茨
-
-I just want a unanimous consent request
-我只想要一个全体无异议同意
-
-Chairman
-主席
-
-Oh oh oh okay I’m sorry
-噢，噢，噢，好的，抱歉
-
-All right go ahead go ahead
-好吧，继续，继续
-
-Matt Gaetz
-马特·盖茨
-
-Thank you Mr Chairman
-谢谢你，主席先生
-
-I see unanimous consent to enter into the record the receipt from the United States De-partment of Justice wherein Dr. Yan’s phone was taken by FBI agent Dana Murphy
-关于其中闫博士的电话被联邦调查局特工
-达娜·墨菲拿走的美国司法部的收据
-我想得到全体无异议同意
-
-Chairman
-主席
-
-That objection uh that objection
-无人反对，无人反对
-
-The gentlemen’s time has expired Mr. Gaetz
-先生们的时间已过
-
-原视频链接: [https://twitter.com/repmattgaetz/status/1403028196208087052?s=24](https://twitter.com/repmattgaetz/status/1403028196208087052?s=24)
-英听校： 康州盘古农场 – Layka
-翻译：康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
