@@ -1,81 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统发声明痛斥对他的虚假指责
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1318062/)
+## 【小象搬运】中国的儿童可能是 COVID-19 疫苗接种的下一个队列
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1318130/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+小象：给儿童接种疫苗目前看起来很清晰的在按部就班布置，美国医药巨头先行取得青少年3-17岁的紧急使用，这个步骤已经进行了好几个月，世界卫生组织配合通过，中共国的疫苗紧跟上，舆论吹风，专家出来陈述青少年儿童接种的必要性，然后卫建委通过。不说话的那个是医药公司，也是背后那只推动的大手。这是很滑稽的事情，疫苗乱象，昨天还说疫苗可能对变种毒株没有作用， 今天就要给孩子扎针。
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12204634/T-8.jpg)patriotjournal.org
-快到川普总统舒展一口气的时候了？亚利桑那州“国家审计”手工计票接近尾声，虽然会遇到更严峻的挑战，但至少10个州派代表团现场观摩、学习取经，反映了人们对揭露选举舞弊欺诈的渴望和决心，以及不惧威胁的勇气【1】。
+美联社发表了一篇文章：如果中国要实现其在年底前为 80% 的人口接种冠状病毒疫苗的暂定目标，数千万儿童可能不得不开始卷起袖子。中共监管机构上周迈出了第一步，批准了该国 3 至 17 岁儿童使用科兴疫苗，并于周五宣布了国药疫苗的同样做法。
 
-在大选舞弊行为彻底揭穿之前，下面川普总统声明里已经正名的、曾经遭到的攻击和诬陷例子，应该算是“刚刚拉开的序幕”。从中也能看到，前三项是爆料革命、新中国联邦主导的、建议的，直接或间接提供的情报真相，足以说明爆料革命、新中国联邦对川普总统的支持，对美国的贡献。
+儿童在大流行中基本上没有受到最严重的影响，他们比成年人更不容易被感染，并且在感染病毒时通常表现出的症状也较轻。但专家表示，儿童仍然可以将病毒传播给他人，一些人指出，如果各国要通过疫苗接种活动实现群体免疫，那么为儿童接种疫苗应该是计划的一部分。
 
-声明翻译如下：【2】
+世界上很少有监管机构评估过儿童 COVID-19 注射的安全性，目前大多数注射仅适用于成人。但审批正在开始。美国、加拿大、新加坡和香港都允许在年仅 12 岁的儿童中使用辉瑞疫苗。
 
-2021年6月12日
+Sinovac 和国药控股的公告可能为已经在从巴西到印度尼西亚的数十个国家使用的疫苗开辟了道路，用于向世界各地的儿童提供。在泰国，Sinovac 为该国提供大部分疫苗，卫生部长 Anutin Charnvirakul 对中国批准儿童紧急使用的消息表示欢迎。“一旦获得批准，我们就准备提供覆盖所有年龄段的疫苗，”Anutin 周一表示。其他疫苗制造商也在努力扩大对年轻人的使用。Moderna 正在寻求将其注射剂用于 12 岁以下儿童的许可，例如辉瑞。两家公司都在对更年幼的儿童进行研究，直至 6 个月大。
 
-唐纳德J.川普美国第45任总统
+澳大利亚弗林德斯大学的疫苗专家尼古拉·彼得罗夫斯基 (Nikolai Petrovsky) 表示，虽然假设这些疫苗对儿童是安全的是合理的，但他质疑为儿童接种一种病毒疫苗的必要性，这种病毒对他们来说相对保护，不会使用尚未显示它阻止传输。
 
-你们注意到了吗？他们现在承认我在选举前所说的一切都是正确的。
+“据我所知，没有数据表明科兴疫苗会阻止儿童传播，”他在一封电子邮件中写道。“没有这样的证据，我们需要问为什么我们要给孩子们接种疫苗。”
 
-● 羟基氯喹有效
+中国有14亿人口，这意味着到6月份需要接种5.6亿人才能达到40%的目标，需要11.2亿人才能达到80%的目标。如果不为其2.54 亿 14 岁以下儿童中的许多儿童接种疫苗，则很难做到后者。
 
-● 病毒来自中共国的一个实验室
+华兴首席执行官尹卫东上周对国家广播公司中央电视台表示，中国何时开始为儿童接种疫苗，将由政府国家卫健委根据疫情情况确定。
 
-● 亨特·拜登（Hunter Biden）的笔记本电脑是真的
+参考链接：
 
-● 拉斐特广场（Lafayette Square）没有被允许拍照
+[https://nypost.com/2021/06/11/chinas-children-may-be-next-in-line-for-covid-19-vaccines/?utm\_medium=SocialFlow&utm\_campaign=SocialFlow&utm\_source=NYPTwitter](https://nypost.com/2021/06/11/chinas-children-may-be-next-in-line-for-covid-19-vaccines/?utm_medium=SocialFlow&amp;utm_campaign=SocialFlow&amp;utm_source=NYPTwitter)
 
-● “俄罗斯悬赏”（Russian Bounties）的故事是假的
+图片来源：[https://nypost.com/](https://nypost.com/)
 
-● 我们确实在2020年底前以创纪录的时间生产出了疫苗
+整理撰稿：蓝精灵
 
-● 蓝州（民主党州）的封锁不起作用
+校对发布：Penny
 
-● 学校应该开放
-
-● 批判种族理论对我们的学校和国家都是一场灾难
-
-● 我们的南部边境安全计划空前成功
-
-（声明完）
-
-期待川普总统能被“昭雪”，重返白宫；或者2022年就位众议院议长；或者2024再次当选，与新中国联邦共建世界文明。
-
-文字整理：
-
-June 12. 2021
-
-Statement by Donald J. Trump, 45th President of the United States of America
-
-Have you noticed that they are now admitting I was right about everything they lied about before the election?
-
-● Hydroxychloroquine works
-
-● The Virus came from a Chinese lab
-
-● Hunter Biden’s laptop was real
-
-● Lafayette Square was not cleared for a photo
-
-● The “Russian Bounties” story was fake
-
-● We did produce vaccines before the end of 2020 in record time
-
-● Blue state lockdowns didn’t work
-
-● Schools should be opened
-
-● Critical Race Theory is a disaster for our schools and our Country
-
-● Our Southern Border security program was unprecedentedly successful
-
-有关链接：
-
-【1】[https://gnews.org/zh-hans/1317968/](https://gnews.org/zh-hans/1317968/)
-
-【2】[https://twitter.com/JennaEllisEsq/status/1403728604446474240/photo/1](https://twitter.com/JennaEllisEsq/status/1403728604446474240/photo/1)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

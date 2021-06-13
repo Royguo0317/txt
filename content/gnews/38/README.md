@@ -1,151 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】响鼓秀埸（七）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1318101/)
+## 【大象快讯】加拿大总理特鲁多呼吁七国集团对中国采取协调一致的态度
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1318161/)
 
-## **– 羊大秀之＂响鼓也有秀＂画外音–**
+一位消息人士称，加拿大总理贾斯汀·特鲁多周六领导了七国集团关于中国的讨论，并呼吁领导人就中华人民共和国提出的挑战采取统一的方法。了解讨论情况的消息人士告诉路透社，G7 领导人共同控制着约 40 万亿美元的经济影响力他们就建立对华协调一致的方式达成广泛一致。
 
-作者：纽约香草山健身部 澄道
+消息人士说：“特鲁多今天传达的信息是，我们确实需要努力达成共识，以统一方法应对中国给我们所有人带来的挑战。” “我们必须表现出作为一个群体的团结，也必须表现出作为一个群体的行动。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+消息人士称，七国集团在中国问题上“有一个大体一致”。
 
+加拿大作为中共渗透最为严重的国家之一，在美国对中共采取的一系列的行动之后，一直在观望，很少在公开场合表态。这次G7峰会如果确实有这样的发言，在G7峰会上， 加拿大至少表明了立场。但也不排除表面作秀，自从去年中美关系恶化以来，加拿大鲜有行动。
 
+参考链接：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12210026/7-%E9%9F%BF%E9%BC%93%E7%A7%80%E5%9F%B8%EF%BC%88%E4%B8%83%EF%BC%89.jpeg)
+[https://www.reuters.com/world/china/canadas-trudeau-called-concerted-g7-approach-china-source-2021-06-12/?taid=60c545daa6698a0001b8813c&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/china/canadas-trudeau-called-concerted-g7-approach-china-source-2021-06-12/?taid=60c545daa6698a0001b8813c&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
-才下＂Freedom Tower＂
-仍然忙碌的
-场记
-又应邀
-来到＂休斯顿星光＂
-的艺术主场
+图片来源：[https://www.reuters.com/](https://www.reuters.com/)
 
-好吗
-这顿赶
-还没
-稳当妥定
-又被问三围
+整理撰稿：蓝精灵
 
-胸围：
-节目策划
-GTV节目策划
-灭共GTV节目策划
+校对发布：Penny
 
-腰围：
-撰稿文案
-节目策划
-如果说是个＂good idea＂
-的话
-那么文案撰稿.就是
-将想法上的＂good idea “
-转化为文字
-表述的方式
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-臀围：
-彩虹文宣
-则是绘文案
-画定位
-吹拉吟唱谈
-不一品悦稻香
-
-左手握着
-＂苹果十＂
-听诗歌创作分享
-看不走寻常线路的
-＂折子戏＂的战友彩排
-
-右手擎着
-＂苹果十二＂
-点着回复及
-滑着出粮的节奏
-
-分享如下：
-
-闲白折子戏（节目策划建议案）
-–刮骨闲白小剧场–
-–疗毒折子真人戏–
-
-节目缘起：略
-Vl整体设置：略
-IP选定：略
-
-名称：
-闲白折子戏（暂定）
-
-slogan：
-闲白未必不灭共
-折子如此戏红毒
-
-理念：
-风骨气节华夏魂
-闲白戏中人
-灭共铲毒正道想
-折子口中往
-
-目标：
-一则折子戏
-借古讽今
-一段闲白秀
-勿忘初衷
-
-时间
-盘古时间：
-美东时间
-
-时长：
-60分钟
-一期
-
-节目架构：
-闲白担当人：略
-折子戏中人：略
-戏外音：略
-甲
-乙
-丙
-丁
-..
-
-节目持续性：
-闲白人生有昼夜
-折子戏码无始终
-
-@爱动爱议码06121
-@出粮欠棕榈邀（桌前灯）
-@澄道来了
-
-文案寄出已
-挠字工免则
-用或是
-用多少
-用者自敲
-
-节目组的
-年轻人
-活力四射
-七芒星灿
-太棒了
-……
-
-@爱动爱议码06123
-@佛堂北厅独享＂谢米七克＂
-@澄道来了
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 6_june-1.jpg]()![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
