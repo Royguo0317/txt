@@ -1,25 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 自大流行以来首次有 200 万人次搭乘美国航班
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1317848/)
+## 亚利桑那州的“国家审计”手工清点最后一日
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1317968/)
 
-据美国运输安全管理局（简称T.S.A.）称，周五有超过 200 万旅客通过美国机场安全检查站，这是自 2020 年 3 月以来首次达到这样的里程碑。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-T.S.A 的达比·拉乔伊 (Darby LaJoye) 表示：“越来越多的旅客证明了这个国家的韧性和对付Covid-19的高度信心。”官员在周六发表的一份声明中说。“T.S.A.随时准备提供安全可靠的筛查流程，作为整体旅行体验的一部分。”
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12191527/A-10.jpg)survivethenews.com
+持续关注“国家审计”的进展情况。
 
-该机构周五筛查了2,028,961 名旅客，几乎是一年前通过安全检查站的 519,304 人的四倍。根据 T.S.A. 的数据，周五的数字仍仅占 2019 年同一天总数的 74% 左右。
+《门道专家》发文，“亚利桑那州最后一天清点：预计将出现巨大差异——（又有）两个州代表团参观审计”。【1】
 
-根据 T.S.A.的数据，在5月阵亡将士纪念日之前的那个周五，航空旅行几乎突破了200万大关，当时有超过 195 万人通过了安全检查站。尽管如此，在阵亡将士纪念日周末，更多的美国人更喜欢公路旅行。在假期前，T.S.A. 表示预计90%的旅客会开车前往目的地。
+文章说，在手工清点过程的最后一天，两个州代表团参观了美国的“国家审计”。
 
-据该机构称，在大流行开始之前，美国运输安全管理局平均每天对约 200 万至 250 万旅客进行筛查。该机构表示，自大流行以来，去年 4 月 13 日的安检量最低，当时只有不到 88,000 名航空旅客通过安全检查站。
+6名威斯康星州共和党议员和前密苏里州州长埃里克·格雷滕斯（Eric Greitens）出现在了亚利桑那州凤凰城的退伍军人纪念体育馆内。
 
-美国疾病控制与预防中心在 4 月份宣布，已完全接种疫苗的美国人旅行时风险更低。
+威斯康星州是一个摇摆不定的州，在大选日的深夜，我们看到了一个神秘的、无法解释的选票（图表的）掉落，（一时间）选票全都抛给了乔·拜登，州立法者必须在为时已晚之前采取行动。
 
-文章来源：[NYTIMES](https://www.nytimes.com/2021/06/12/us/us-air-travel-coronavirus-pandemic.html)
+川普总统在密苏里州获胜，但埃里克·格雷滕斯（Eric Greitens）在这里观察这一过程，并将一些想法带回他的州。
 
-编译：文复
+手工清点工作即将结束，他们预计选票总数将出现巨大的差异。
 
-校对发稿：Ada（马德里）
+如果有任何少于马里科帕（Maricopa）郡认证的选票数量，这都是选举舞弊的证据。
+
+（原文完）
+
+手工清点后的选票与选举管理委员会确认的票数“出现巨大差异”，仅此一条是不是就可以否定该州的“大选结果”？
+
+从一开始就阻止“审计”，到派出上百人的律师团队给法院施压，法院几次裁定“驳回审计”诉求，以及下达“停止审计”命令，再到向司法部请求，要求“停止审计”，直至昨天（6月11日）司法部长梅里克·加兰（Merrick Garland）站到前台发话，对质疑选举舞弊欺诈的“国家审计”要严格审查【2】……
+
+而亚利桑那人的回答却是：“美国能是一个由一群骗子管理的香蕉共和国吗？”更有前战斗机飞行员、亚利桑那州参议员温迪·罗杰斯（Wendy Rogers.）女士警告梅里克·加兰，“你不能碰亚利桑那州的选票或机器，除非你想在亚利桑那州监狱里待着。”【3】
+
+已经8个多月了，亚利桑那州的爱国者在为美国谱写历史，创造历史，期待改变历史！
+
+参考链接：
+
+【1】[https://www.thegatewaypundit.com/2021/06/last-day-counting-huge-discrepancies-expected-2-state-delegations-tour-audit/](https://www.thegatewaypundit.com/2021/06/last-day-counting-huge-discrepancies-expected-2-state-delegations-tour-audit/)
+
+【2】[https://gnews.org/zh-hans/1315960/](https://gnews.org/zh-hans/1315960/)
+
+【3】[https://www.thegatewaypundit.com/2021/06/arizona-lawmaker-responds-ag-garland-will-not-touch-arizona-ballots-machines-unless-want-spend-time-arizona-prison/](https://www.thegatewaypundit.com/2021/06/arizona-lawmaker-responds-ag-garland-will-not-touch-arizona-ballots-machines-unless-want-spend-time-arizona-prison/)
 
 0

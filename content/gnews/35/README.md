@@ -1,62 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇把代号P3CO的病毒功能增强研究的拨款给了谁？
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1317733/)
+## 不惜一切代价：找寻失踪女孩
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1317809/)
 
-新闻来源：《国家脉动》| 作者：NATALIE WINTERS | 发布时间：2021年6月7日
+作者：Gokuabuela| 校对：X-Wing| 审核：Beicy-数学老师| Page：小六月
 
-翻译/简评：新街口 | 校对：clau | 审核：Beicy- 数学老师 | Page：我是球大哥
+[!\[\]()!\[\](https://spark.adobe.com/page/JNaztCdoC7xVi/images/06ee7d1a-2648-4ae5-a6d1-631b447fbf75.jpg?asset_id=35965317-06a4-44a3-95ef-6d75831ae2d2&amp;img_etag=%22d58dbd94faf0df249b3c1f78bdedc61d%22&amp;size=1024)](https://spark.adobe.com/page/JNaztCdoC7xVi/images/06ee7d1a-2648-4ae5-a6d1-631b447fbf75.jpg?asset_id=35965317-06a4-44a3-95ef-6d75831ae2d2&amp;img_etag=%22d58dbd94faf0df249b3c1f78bdedc61d%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/THqgqkN7hezbL/images/a15d98b3-007e-4dea-884e-3797983d72ab.jpg?asset_id=a0b32807-071f-4647-add2-450972761fbd&amp;img_etag=%22c9bcda261238e5b03a2d0a0c2e03d52c%22&amp;size=2560)](https://spark.adobe.com/page/THqgqkN7hezbL/images/a15d98b3-007e-4dea-884e-3797983d72ab.jpg?asset_id=a0b32807-071f-4647-add2-450972761fbd&amp;img_etag=%22c9bcda261238e5b03a2d0a0c2e03d52c%22&amp;size=1024)
+之前，我们报道过[“孩子去哪了”](https://gnews.org/zh-hans/1248476/)，4月27日，西班牙特内里费岛2位女孩失踪，一位6岁，一位1岁。其父母处于分居状态，有邻居看到当晚女孩的爸爸独自拿着几个大袋子，开着游艇出海。4个小时后，人们在海上发现了空无一人的游艇，GPS系统等都已经被关闭。
 
-福奇在几周前的参议院听证会上曾向议员和公众声称美国国立卫生研究院(NIH)没有资助过武汉病毒实验室进行功能增强研究。但是本篇文章却向读者展示出了福奇撒谎的证据链。
+事件发生后，引起了西班牙全国的巨大轰动。由于最后发现游艇的海域水深600-2000米，难以找到任何线索。在进行陆地调查的同时，西班牙政府发誓要不惜一切代价，找到失踪女孩。当时的计划是：出动国民警卫队的反潜舰艇，用声纳探索海底，如果不成功，调用西班牙最先进的海洋科考船，“逐寸扫描海底，不放过任何一块石头”。
 
-从本篇文章的视频链接中，我们可以看到福奇2018年在美国国家过敏和传染病研究所(NIAID)研讨会的演讲中，不但明确地表示出了对病毒功能增强研究的支持，而且还同时介绍了一个新的指导纲要，用来指导如何对功能增强研究进行拨款资助。除此之外，他还要求统一给功能增强研究项目用P3CO的代号，从而让人们知道这个代号的项目都可能会造成病毒大爆发的风险。
+经过40天的不懈努力，真得调用了海洋科考船，本周四（6月10日），传来了一个令人心碎的消息：在海底打捞上来的一个袋子里，发现了6岁女孩奥利维亚（OLIVIA）的尸体。爸爸和1岁女孩安娜（ANNA）暂时还没有消息，搜寻工作将不会停止。
 
-这个视频既证明了福奇知道功能增强研究给人类带来的危害，也证明了他确实给功能增强研究进行了拨款。那么，福奇博士和他管理的NIH是否可以向公众展示他们到底给多少代号为P3CO的项目拨款了呢？哪些科研机构接收了这些P3CO项目的拨款呢？
+[!\[\]()!\[\](https://spark.adobe.com/page/JNaztCdoC7xVi/images/7dd443e5-c717-4ae2-a9d8-dd0c57d0077e.png?asset_id=7e5a5421-7707-4fd1-b17b-3140cf193ba6&amp;img_etag=%2259ab5a587904004b394a98a897a3d1e2%22&amp;size=2560)](https://spark.adobe.com/page/JNaztCdoC7xVi/images/7dd443e5-c717-4ae2-a9d8-dd0c57d0077e.png?asset_id=7e5a5421-7707-4fd1-b17b-3140cf193ba6&amp;img_etag=%2259ab5a587904004b394a98a897a3d1e2%22&amp;size=1024)图1
 
-文章最后还揭露了福奇2020年2月的一封关于P3CO的邮件，要求他负责的美国国家过敏和传染病研究所(NIAID)解释是否对冠状病毒研究进行了资助。而且该邮件的附件是一份石正丽联名作者的、关于蝙蝠冠状病毒增强研究的论文。从这个邮件我们可以看到福奇和美国国家过敏和传染病研究所与武汉病毒研究所之间的某种联系。
+图1上标注：打捞到袋子的地点离GUIMAR港大约1.8公里。4月27日发现失踪，5月24日开始用科考船搜寻，6月10日发现奥利维亚的遗体，搜寻将继续。
 
-我们期待能有更多的像《国家脉动》这样的媒体来揭露真相，同时也期待美国议会能够对福奇进行再一次的听证。
+[!\[\]()!\[\](https://spark.adobe.com/page/JNaztCdoC7xVi/images/72a3893e-72d2-40f1-b8c7-1078e5c0153a.png?asset_id=ad5b9a14-36f0-42c8-94f4-845bbb234502&amp;img_etag=%226b05d6871ddb1dea0e752ac0935e96e6%22&amp;size=5168)](https://spark.adobe.com/page/JNaztCdoC7xVi/images/72a3893e-72d2-40f1-b8c7-1078e5c0153a.png?asset_id=ad5b9a14-36f0-42c8-94f4-845bbb234502&amp;img_etag=%226b05d6871ddb1dea0e752ac0935e96e6%22&amp;size=1024)图２
 
-**原文翻译：**
+图２显示，科考船使用当今最先进的复合式声纳系统，能根据回波实现实时成像，就是能根据声纳发出的声波，在屏幕上形成物品的图像。在海底1000米处发现了装有遗体的袋子。用水下机器人实施了打捞，水下机器人可以直接和声纳系统联网，用机械手进行工作，最深工作深度为2000米。 科考船从接到任务开始，每天24小时不间断地工作。找到奥利维亚的遗体后，当地政府决定今天12:00全市将静默一分钟，表示哀悼。 大量的信息从社交媒体发往孩子的妈妈贝阿特丽丝（BEATRIZ），表示和妈妈一起承担悲痛，并将一起等待，不放弃最后的希望。
+![]()![](https://spark.adobe.com/page/JNaztCdoC7xVi/images/69f6eeb1-519a-49d1-8786-5cfc6d344b5b.png?asset_id=e393e78a-7e52-4e12-9a0f-c84c5f66e04c&amp;img_etag=%22566a7fdf77b0e0dda112b49e4f00c04c%22&amp;size=2560)图３
+[!\[\]()!\[\](https://spark.adobe.com/page/JNaztCdoC7xVi/images/69f6eeb1-519a-49d1-8786-5cfc6d344b5b.png?asset_id=e393e78a-7e52-4e12-9a0f-c84c5f66e04c&amp;img_etag=%22566a7fdf77b0e0dda112b49e4f00c04c%22&amp;size=2560)](https://spark.adobe.com/page/JNaztCdoC7xVi/images/69f6eeb1-519a-49d1-8786-5cfc6d344b5b.png?asset_id=e393e78a-7e52-4e12-9a0f-c84c5f66e04c&amp;img_etag=%22566a7fdf77b0e0dda112b49e4f00c04c%22&amp;size=1024)
 
-# **观察: 福奇庆祝解除功能增益研究禁令，披露武汉实验室未遵守的新准则**
+图３，西班牙首相桑切斯在推特上发文“我无法想象孩子的妈妈所承受的痛苦，用我的双臂，我的深情，和我的家人一起，拥抱孩子的妈妈—贝阿特丽丝”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/THqgqkN7hezbL/images/e97b13f7-5827-44c1-a0d9-4572c2603048.png?asset_id=97a184f6-ed82-4bec-bc6b-545dda59dfda&amp;img_etag=%224ba8ebf448448cc789ff24c1ce973152%22&amp;size=2560)](https://spark.adobe.com/page/THqgqkN7hezbL/images/e97b13f7-5827-44c1-a0d9-4572c2603048.png?asset_id=97a184f6-ed82-4bec-bc6b-545dda59dfda&amp;img_etag=%224ba8ebf448448cc789ff24c1ce973152%22&amp;size=1024)
+西班牙几乎所有的党派领导人都发推文表示哀痛和对受害者家庭的支持。孩子的妈妈贝阿特丽丝在收到噩耗后，表示：我仍旧抱有希望。
 
-根据最近发布出的福奇电子邮件，安东尼·福奇博士在庆祝一度被停止的功能增强性研究重新启动时，概述了新的研究资助指南。但根据报道武汉病毒研究所并没有遵循这些指南。
+为人父者，为人母者，对孩子的伤害是我们生命不能承受之痛。而在中共国，可以满大街的监控，如果你喊一声“打倒习近平”，最多不超过8小时，天涯海角，虽远必诛。也可以在几小时内，帮助外国友人们找到丢失的自行车、丢失的钱包等，彰显“负责任的大国风范”。但就是找不回每年丢失的那么多的中国老百姓的孩子！
 
-福奇这个新的指导方针断言“我认为这不会是万无一失的，事情总会过去的。”
+是真找不到吗？是根本不愿意花功夫去找！赵家人的孩子又不会丢，所以丢孩子有什么好在意的呢？中共最喜欢的事情就是让草根们互相伤害，然后，它站出来，做做姿态，比如来个专项行动，解救了10个孩子，然后，大家一起说，还是共产党好啊，你看，它会帮我们解救孩子。殊不知，每年丢失上万的孩子，难道不是制度之殇？
 
-2018年1月，在美国国家过敏症和传染病研究所 (NIAID) 咨询委员会议上，福奇透露了新框架，以确定是否资助实施有争议研究的项目。功能增强研究可以增加病原体的传播性、致病性或宿主范围，并且通常被描述为病毒的“武器化”。
+我们还知道，中共会把中国人的孩子作为礼物，送给外国政要，作为蓝金黄的手段，就像“3块硬盘”里的那些孩子。按照中共的反人类本质，他们需要儿童失踪这样的一个口子，来掩饰他们的无耻行为。
 
-在视频中，福奇对美国国立卫生研究院重新开始对功能增强性研究进行资助做出了评论。
+一个普通的民主国家，如西班牙，为了失踪的孩子可以不惜一切代价，至今花费已超过百万欧元，上至总理下到平民百姓都十分关注，向失踪孩子目前表达哀痛同情之共情，真正体现了对国民普通生命的尊重。而中国共产党宣传的爱国教育，号称“犯我中华者，虽远必诛”，却根本不在乎其国家和民族的未来——孩子，这样的政权你怎么能相信它？
 
-“所以让我解释一下，因为每当这件事出来时，总会有媒体来回推敲，就像“NIH现在要进行危险的研究”一样。而实际上，却恰恰相反，”他在透露新的“P3”框架之前补充道：
+（文章仅代表作者观点）
 
-“因此，现在建立了一个纲要来指导对那些可能会产生、转移或使用增强的潜在大流行病原体的研究的资助决策。这个程序中，每个人都必须给它起一个整洁的小名字，这就是P3CO。因此，如果您听说过P3CO，那就是潜在的流行病防范护理和监督。”
-
-福奇最近发布的数千封电子邮件中也提到了P3框架，其中包括2020年2月1日发给美国国家过敏症和传染病研究所NIAID副主任Hugh Auchincloss的电子邮件：
-
-“你寄给我的论文说这些实验是在功能增强暂停之前进行的，但后来得到了美国国立卫生研究院的审查和批准。不确定这意味着什么，因为Emily确信没有冠状病毒工作通过了P3框架。她将尝试确定我们是否与国外的这项工作有任何远距离的关联。”
-
-电子邮件所附的学术论文标题为：一个类似于非典的蝙蝠冠状病毒循环集群显示了感染人类的潜力，其中讨论了美国和中共国的研究人员如何修改病毒以更好地了解如何将这种病毒附着在人类身上。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/THqgqkN7hezbL/images/9d1838c7-1dfc-4814-9c48-4ff7f7aeea42.jpg?asset_id=bec345e6-df88-4d92-bd17-9c624979e130&amp;img_etag=%220f50e58c9afa853564c2911c8d822e0e%22&amp;size=2560)](https://spark.adobe.com/page/THqgqkN7hezbL/images/9d1838c7-1dfc-4814-9c48-4ff7f7aeea42.jpg?asset_id=bec345e6-df88-4d92-bd17-9c624979e130&amp;img_etag=%220f50e58c9afa853564c2911c8d822e0e%22&amp;size=1024)福奇电子邮件
-
-
-
-[原文链接](https://thenationalpulse.com/breaking/fauci-celebrates-end-of-gof-moratorium/)
+[引用内容链接](https://www.elconfidencial.com/espana/2021-06-11/el-buque-angeles-alvarino-continua-la-busqueda-de-anna-y-tomas-gimeno-en-tenerife_3126936/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/THqgqkN7hezbL/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/THqgqkN7hezbL/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/JNaztCdoC7xVi/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/JNaztCdoC7xVi/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

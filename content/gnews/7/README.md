@@ -1,151 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】响鼓秀埸（七）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1318101/)
+## 【独立观点】甘肃马拉松事件后，奉亡劝中共官员，“躺平”迎接中共灭亡
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1318109/)
 
-## **– 羊大秀之＂响鼓也有秀＂画外音–**
-
-作者：纽约香草山健身部 澄道
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+作者：纽约香草山健身部 Jack Li文阳
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12210026/7-%E9%9F%BF%E9%BC%93%E7%A7%80%E5%9F%B8%EF%BC%88%E4%B8%83%EF%BC%89.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
 
-才下＂Freedom Tower＂
-仍然忙碌的
-场记
-又应邀
-来到＂休斯顿星光＂
-的艺术主场
 
-好吗
-这顿赶
-还没
-稳当妥定
-又被问三围
 
-胸围：
-节目策划
-GTV节目策划
-灭共GTV节目策划
+6月11日，中共发布了甘肃白银马拉松事件的调查处理结果，另据报道，6月9日，当地警方接到报警称一男子从自家坠楼身亡，经核查，坠楼男子为景泰县委原书记李作璧。目前警方声明已排除他杀，具体情况正在进一步调查中，但民间消息称，死因存疑。
 
-腰围：
-撰稿文案
-节目策划
-如果说是个＂good idea＂
-的话
-那么文案撰稿.就是
-将想法上的＂good idea “
-转化为文字
-表述的方式
+5月22日，甘肃省白银市景泰县举行山地马拉松百公里越野赛，因遭遇低温狂风暴雨等天气，导致多名选手失温被困赛道，至少致21人死亡。景泰县委书记李作璧当时主持了开幕式。
 
-臀围：
-彩虹文宣
-则是绘文案
-画定位
-吹拉吟唱谈
-不一品悦稻香
+中共甘肃省委、省政府于6月11日宣布了甘肃白银马拉松21人遇难事件调查结果，27名相关人员被追责，其中对景泰县委副书记、县长张文玲予以免职。白银市政协原副主席、景泰县委原书记李作壁对事件负有主要领导责任，因李作壁在事件发生后坠楼死亡，不再给予处分。
 
-左手握着
-＂苹果十＂
-听诗歌创作分享
-看不走寻常线路的
-＂折子戏＂的战友彩排
+此外，调查还认定，甘肃晟景体育文化发展有限公司对事件的发生负有直接责任，公司负责人张小燕等5人已正式批准逮捕，由司法机关依法追究其刑事责任。
 
-右手擎着
-＂苹果十二＂
-点着回复及
-滑着出粮的节奏
+在中共国，官员是高危行业，特别是中低层官员，风险很大。中共在用人选拔上，采用逆淘汰制，只要会迎合上级，溜须拍马，买官卖官才有机会升到领导岗位。造成能人贤达被淘汰，庸才蠢材竞相上位。
 
-分享如下：
+李书记斯人已去，该负何责，在此不作评论。中共在事后追责中，对县长也只是予以免职处分，实在想不通李书记为何如此决断。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12211819/Untitled-design-2021-06-12T191245.826.png)
+中共在末日来临之前，为了维稳，可能会用尽一切方法，维持社会稳定。各位中共的各级官员、警察、军人以及普通公务员，除了为百姓谋福利之外，“躺平”是现在最合适的为“官”之道，用不作为来保存自己，对抗中共，迎接CCP的灭亡。
 
-闲白折子戏（节目策划建议案）
-–刮骨闲白小剧场–
-–疗毒折子真人戏–
+参考阅读：https://cn.reuters.com/article/gansu-baiyin-marathon-accident-0611-idCNKCS2DN129
 
-节目缘起：略
-Vl整体设置：略
-IP选定：略
+https://www.zaobao.com.sg/realtime/china/story20210611-1154969
 
-名称：
-闲白折子戏（暂定）
+校对/发稿：火内
 
-slogan：
-闲白未必不灭共
-折子如此戏红毒
 
-理念：
-风骨气节华夏魂
-闲白戏中人
-灭共铲毒正道想
-折子口中往
 
-目标：
-一则折子戏
-借古讽今
-一段闲白秀
-勿忘初衷
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
 
-时间
-盘古时间：
-美东时间
 
-时长：
-60分钟
-一期
-
-节目架构：
-闲白担当人：略
-折子戏中人：略
-戏外音：略
-甲
-乙
-丙
-丁
-..
-
-节目持续性：
-闲白人生有昼夜
-折子戏码无始终
-
-@爱动爱议码06121
-@出粮欠棕榈邀（桌前灯）
-@澄道来了
-
-文案寄出已
-挠字工免则
-用或是
-用多少
-用者自敲
-
-节目组的
-年轻人
-活力四射
-七芒星灿
-太棒了
-……
-
-@爱动爱议码06123
-@佛堂北厅独享＂谢米七克＂
-@澄道来了
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 6_june-1.jpg]()![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

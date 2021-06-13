@@ -1,45 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚利桑那州的“国家审计”手工清点最后一日
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1317968/)
+## 【小象白话】有问题了！新冠变异对抗体及疫苗构成挑战 又发现24种新病毒 有类似Sars-Cov-2的
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1317972/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+澎拜新闻2021年6月12日发表一篇文章，文章配合了在免疫学杂志发表的中国团队研究，题为“新型冠状病毒突变株中和抗体逃逸及拓展使用其他物种ACE2受体”）Analysis of SARS-CoV-2 variant mutations reveals neutralization escape mechanisms and the ability to use ACE2 recetors from additional species),文章重点指出：“研究确认了突变病毒株刺突糖蛋白多个突变位点对中和抗体逃逸以及不同物种ACE2使用的影响，显示突变毒株对目前抗体治疗以及疫苗保护构成严峻挑战。”
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12191527/A-10.jpg)survivethenews.com
-持续关注“国家审计”的进展情况。
+换一句简单的话来说， 就是目前治疗和疫苗保护对于突变毒株估计不起作用了。
 
-《门道专家》发文，“亚利桑那州最后一天清点：预计将出现巨大差异——（又有）两个州代表团参观审计”。【1】
+文章还指出：“这些突变株的刺突蛋白上的突变，很可能影响当前抗体治疗药物和疫苗保护效果，以及跨种传播到其他的宿主动物”
 
-文章说，在手工清点过程的最后一天，两个州代表团参观了美国的“国家审计”。
+这里的意思是指突变毒株将会传染到动物，然后再传染给人，可能会变成所谓的“人畜共患疾病”，文章指出：“新馆病毒通过的突变，增强了小鼠或者水貂ACE2入侵主细胞的能力”，虽然以前没有找到中间宿主，在新冠爆发以来，中共包装推出的中间宿主的有：蝙蝠，穿山甲，貉，水貂，狗，猫，鸡鸭等等，但是一直没有在这些动物身上找到类似的SARS-Covid-2病毒。
 
-6名威斯康星州共和党议员和前密苏里州州长埃里克·格雷滕斯（Eric Greitens）出现在了亚利桑那州凤凰城的退伍军人纪念体育馆内。
+文章指出：“需要对相关动物进行监测，更好的了解复杂性，以防患未来的爆发”。
 
-威斯康星州是一个摇摆不定的州，在大选日的深夜，我们看到了一个神秘的、无法解释的选票（图表的）掉落，（一时间）选票全都抛给了乔·拜登，州立法者必须在为时已晚之前采取行动。
+论文链接在这里， 大家有兴趣可以去看详细的技术参数：[https://www.cell.com/immunity/full test/](https://www.cell.com/immunity/full%20test/)S1074-7613（21）00247-8
 
-川普总统在密苏里州获胜，但埃里克·格雷滕斯（Eric Greitens）在这里观察这一过程，并将一些想法带回他的州。
+在几乎同时，美国有线电视新闻网发表了这样一条新闻：“中国研究人员周四表示，他们在蝙蝠中发现了一批新型冠状病毒，其中一种可能在基因上与Covid-19病毒最接近。”
 
-手工清点工作即将结束，他们预计选票总数将出现巨大的差异。
+研究人员在发表在《细胞》杂志上的一份报告中写道：“我们总共组装了来自不同蝙蝠物种的 24 个新型冠状病毒基因组，其中包括四种类似 SARS-CoV-2 的冠状病毒。”其中一个在基因上与引起当前大流行的 SARS-CoV-2 病毒非常相似——一种名为RpYN06 的病毒样本，取自一种名为 Rhinolophus pusillus 的马蹄蝠物种。“除了刺突蛋白的遗传差异外，它是最接近 SARS-CoV-2 的菌株，刺突蛋白是病毒附着在细胞上时使用的旋钮状结构。”
 
-如果有任何少于马里科帕（Maricopa）郡认证的选票数量，这都是选举舞弊的证据。
+“连同2020年6月从泰国采集的SARS-CoV-2相关病毒，这些结果清楚地表明，与SARS-CoV-2密切相关的病毒继续在蝙蝠种群中传播，并且在某些地区可能发生频率较高，大多数样本来自马蹄蝙蝠种类。2017 年，研究人员在云南的一个洞穴中取样，发现病毒在基因上与马蹄蝠中的 SARS 病毒非常接近。周四报告中描述的三个样本在基因上也接近 SARS。
 
-（原文完）
+尽管关于冠状病毒大流行的起源存在一些争议，但世界卫生组织的一份报告称，最有可能的来源是动物，可能是蝙蝠。当人们处理或屠宰动物时，病毒会感染人类。
 
-手工清点后的选票与选举管理委员会确认的票数“出现巨大差异”，仅此一条是不是就可以否定该州的“大选结果”？
+凯尔巴斯先生对于这篇文章评论发推， 他是这样说的：“美国情报专家预计中共真准备将新变种注入蝙蝠，然后用注入蝙蝠来显示病毒不是实验室泄漏。几乎就在暗示中，中国研究人员正在“寻找”携带新型冠状病毒的蝙蝠。”这个是掩盖事实地最好写照，在共党地教育体系里，胁迫，任意抓捕每时每刻。
 
-从一开始就阻止“审计”，到派出上百人的律师团队给法院施压，法院几次裁定“驳回审计”诉求，以及下达“停止审计”命令，再到向司法部请求，要求“停止审计”，直至昨天（6月11日）司法部长梅里克·加兰（Merrick Garland）站到前台发话，对质疑选举舞弊欺诈的“国家审计”要严格审查【2】……
+CNN这篇文章又回到了起点，新冠病毒始于自然， 野外，云南矿洞，人们应为吃蝙蝠或者处理过程种，收到感染。两条新闻一起看， 是很有意思的。同时这也是两条很吓人的新闻，新出了24种病毒，而且其中是流行病的新冠病毒的最亲的亲戚！着两个故事的背景是G7峰会达成一致，一起追溯新冠病毒的来源， WHO组织将要进行第二轮的新冠起源的调查。国务卿电话要求杨洁篪转告中共国， 要协助和配合调查，
 
-而亚利桑那人的回答却是：“美国能是一个由一群骗子管理的香蕉共和国吗？”更有前战斗机飞行员、亚利桑那州参议员温迪·罗杰斯（Wendy Rogers.）女士警告梅里克·加兰，“你不能碰亚利桑那州的选票或机器，除非你想在亚利桑那州监狱里待着。”【3】
-
-已经8个多月了，亚利桑那州的爱国者在为美国谱写历史，创造历史，期待改变历史！
+此时的画面感， 就是中共使劲地抡着一口大锅，四处张望，始终还不知道最后扔去哪里。
 
 参考链接：
 
-【1】[https://www.thegatewaypundit.com/2021/06/last-day-counting-huge-discrepancies-expected-2-state-delegations-tour-audit/](https://www.thegatewaypundit.com/2021/06/last-day-counting-huge-discrepancies-expected-2-state-delegations-tour-audit/)
+[https://edition.cnn.com/2021/06/10/health/bats-coronavirus-china-genome/index.html?utm\_source=feedburner&utm\_medium=feed&utm\_campaign=Feed%3A+rss%2Fcnn\_topstories+%28RSS%3A+CNN+-+Top+Stories%29](https://edition.cnn.com/2021/06/10/health/bats-coronavirus-china-genome/index.html?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+rss%2Fcnn_topstories+%28RSS%3A+CNN+-+Top+Stories%29)
 
-【2】[https://gnews.org/zh-hans/1315960/](https://gnews.org/zh-hans/1315960/)
+整理撰稿：蓝精灵
 
-【3】[https://www.thegatewaypundit.com/2021/06/arizona-lawmaker-responds-ag-garland-will-not-touch-arizona-ballots-machines-unless-want-spend-time-arizona-prison/](https://www.thegatewaypundit.com/2021/06/arizona-lawmaker-responds-ag-garland-will-not-touch-arizona-ballots-machines-unless-want-spend-time-arizona-prison/)
+校对发布：Penny
 
-0
+\*以上仅代表作者观点，不代表Gnews平台\*
+
++2

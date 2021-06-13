@@ -1,81 +1,151 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统发声明痛斥对他的虚假指责
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1318062/)
+## 【香草诗词汇】响鼓秀埸（七）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1318101/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+## **– 羊大秀之＂响鼓也有秀＂画外音–**
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12204634/T-8.jpg)patriotjournal.org
-快到川普总统舒展一口气的时候了？亚利桑那州“国家审计”手工计票接近尾声，虽然会遇到更严峻的挑战，但至少10个州派代表团现场观摩、学习取经，反映了人们对揭露选举舞弊欺诈的渴望和决心，以及不惧威胁的勇气【1】。
+作者：纽约香草山健身部 澄道
 
-在大选舞弊行为彻底揭穿之前，下面川普总统声明里已经正名的、曾经遭到的攻击和诬陷例子，应该算是“刚刚拉开的序幕”。从中也能看到，前三项是爆料革命、新中国联邦主导的、建议的，直接或间接提供的情报真相，足以说明爆料革命、新中国联邦对川普总统的支持，对美国的贡献。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-声明翻译如下：【2】
 
-2021年6月12日
 
-唐纳德J.川普美国第45任总统
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12210026/7-%E9%9F%BF%E9%BC%93%E7%A7%80%E5%9F%B8%EF%BC%88%E4%B8%83%EF%BC%89.jpeg)
 
-你们注意到了吗？他们现在承认我在选举前所说的一切都是正确的。
+才下＂Freedom Tower＂
+仍然忙碌的
+场记
+又应邀
+来到＂休斯顿星光＂
+的艺术主场
 
-● 羟基氯喹有效
+好吗
+这顿赶
+还没
+稳当妥定
+又被问三围
 
-● 病毒来自中共国的一个实验室
+胸围：
+节目策划
+GTV节目策划
+灭共GTV节目策划
 
-● 亨特·拜登（Hunter Biden）的笔记本电脑是真的
+腰围：
+撰稿文案
+节目策划
+如果说是个＂good idea＂
+的话
+那么文案撰稿.就是
+将想法上的＂good idea “
+转化为文字
+表述的方式
 
-● 拉斐特广场（Lafayette Square）没有被允许拍照
+臀围：
+彩虹文宣
+则是绘文案
+画定位
+吹拉吟唱谈
+不一品悦稻香
 
-● “俄罗斯悬赏”（Russian Bounties）的故事是假的
+左手握着
+＂苹果十＂
+听诗歌创作分享
+看不走寻常线路的
+＂折子戏＂的战友彩排
 
-● 我们确实在2020年底前以创纪录的时间生产出了疫苗
+右手擎着
+＂苹果十二＂
+点着回复及
+滑着出粮的节奏
 
-● 蓝州（民主党州）的封锁不起作用
+分享如下：
 
-● 学校应该开放
+闲白折子戏（节目策划建议案）
+–刮骨闲白小剧场–
+–疗毒折子真人戏–
 
-● 批判种族理论对我们的学校和国家都是一场灾难
+节目缘起：略
+Vl整体设置：略
+IP选定：略
 
-● 我们的南部边境安全计划空前成功
+名称：
+闲白折子戏（暂定）
 
-（声明完）
+slogan：
+闲白未必不灭共
+折子如此戏红毒
 
-期待川普总统能被“昭雪”，重返白宫；或者2022年就位众议院议长；或者2024再次当选，与新中国联邦共建世界文明。
+理念：
+风骨气节华夏魂
+闲白戏中人
+灭共铲毒正道想
+折子口中往
 
-文字整理：
+目标：
+一则折子戏
+借古讽今
+一段闲白秀
+勿忘初衷
 
-June 12. 2021
+时间
+盘古时间：
+美东时间
 
-Statement by Donald J. Trump, 45th President of the United States of America
+时长：
+60分钟
+一期
 
-Have you noticed that they are now admitting I was right about everything they lied about before the election?
+节目架构：
+闲白担当人：略
+折子戏中人：略
+戏外音：略
+甲
+乙
+丙
+丁
+..
 
-● Hydroxychloroquine works
+节目持续性：
+闲白人生有昼夜
+折子戏码无始终
 
-● The Virus came from a Chinese lab
+@爱动爱议码06121
+@出粮欠棕榈邀（桌前灯）
+@澄道来了
 
-● Hunter Biden’s laptop was real
+文案寄出已
+挠字工免则
+用或是
+用多少
+用者自敲
 
-● Lafayette Square was not cleared for a photo
+节目组的
+年轻人
+活力四射
+七芒星灿
+太棒了
+……
 
-● The “Russian Bounties” story was fake
+@爱动爱议码06123
+@佛堂北厅独享＂谢米七克＂
+@澄道来了
 
-● We did produce vaccines before the end of 2020 in record time
+校对/发稿：雪梨
 
-● Blue state lockdowns didn’t work
+![This image has an empty alt attribute; its file name is 6_june-1.jpg]()![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-● Schools should be opened
+**更多资讯，更多关注**
 
-● Critical Race Theory is a disaster for our schools and our Country
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-● Our Southern Border security program was unprecedentedly successful
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-有关链接：
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-【1】[https://gnews.org/zh-hans/1317968/](https://gnews.org/zh-hans/1317968/)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-【2】[https://twitter.com/JennaEllisEsq/status/1403728604446474240/photo/1](https://twitter.com/JennaEllisEsq/status/1403728604446474240/photo/1)
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

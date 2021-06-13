@@ -1,86 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 港府修订《电影审查条例》进一步打压香港人的自由
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1317720/)
+## 福奇曾与石正丽、达萨克共同主持涉及冠状病毒的学术会议
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1317744/)
 
-新闻来源：《香港自由新闻》| 作者：RHODA KWAN | 发布时间：2021年6月11日
+新闻来源：The National Pulse| 作者：NATALIE WINTERS| 发布时间：2021年6月9日
 
-翻译/简评：叶知秋（文义） | 校对：X-Wing | 审核：Beicy-数学老师 | Page：我是球大哥
+翻译/简评：clau| 校对：X-Wing|审核：Beicy- 数学老师 | Page：小六月
 
-[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/c05196d0-3334-42b2-badc-612c5ed57bc4.jpg?asset_id=ef882259-393c-4935-a7c5-f71a8325cef1&amp;img_etag=%2216aba76433a03e0eeac4f2b243586319%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/c05196d0-3334-42b2-badc-612c5ed57bc4.jpg?asset_id=ef882259-393c-4935-a7c5-f71a8325cef1&amp;img_etag=%2216aba76433a03e0eeac4f2b243586319%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/0c5pXqkzPXlJl/images/5ae2783f-e28c-46aa-8d2e-7447065fd011.jpg?asset_id=111ae47f-946d-4e16-a15d-9c604b9ceaf2&amp;img_etag=%22095a3f48f169254279f38db95b21c18f%22&amp;size=1024)](https://spark.adobe.com/page/0c5pXqkzPXlJl/images/5ae2783f-e28c-46aa-8d2e-7447065fd011.jpg?asset_id=111ae47f-946d-4e16-a15d-9c604b9ceaf2&amp;img_etag=%22095a3f48f169254279f38db95b21c18f%22&amp;size=1024)
 
-香港政府在林郑月娥的带领下，正在全面中共化。香港《电影审查条例》的修订，说明港共政府跟中共学会了一样的流氓逻辑，法律随意定，出什么事就定什么法。但是，中共政权在香港镇压反送中运动，拼命维稳，是为维护他们的政权，因为他们知道，自己在中华大地作恶70多年，政权就是他们的生命，如果因为香港人发起的民主运动掀起全中国人的反共意识，必将导致他们的政权垮塌，而为虎作伥的香港政府以及为中共作恶的爪牙们，是为了什么？难道他们真的以为自己可以成为红色江山的接班人？
+**简评：**
 
-看看如今世界范围内对中共病毒真相的追讨，看看美国正义力量对与中共为伍的福奇之流的揭露和追责，看看欧洲议会近期对欧中投资协议的冻结，再看看在中共以假治国的手段下濒临崩溃的经济，恐怕香港那些与中共国为伍的人，有着接班的心，也没有接班的机会了。
+2017年10月1日至3日，美国维吉尼亚州的阿林顿县，福奇和石正丽、达萨克共同主持了一个以“新发和再次爆发的病毒”为议题的学术会议。同时参会并发言的有刚上任不到两个月的中共国疾控中心的主任高福，以及杜克大学——新加坡国立大学医学院新发传染病项目主任王林发。将近四年后回看，可谓是关键人物齐聚一堂，共商大事，2018年武汉病毒研究所的P4实验室正式投入使用。
 
-香港维多利亚公园纪念八九六四英灵烛光守夜活动持续30多年，面对中共残酷镇压，香港人可以组织上百万人游行，如今在中共撕毁中英协议，实际废除一国两制的情况下，香港人依然在坚持！香港人的意志是让人敬佩的，香港人埋藏在骨子里的不屈服于强权的精神更值得我们学习和继承。请爆料革命的战友们继续传播香港危机真相，继续传播中共病毒真相，与香港人一起，并肩作战，早日消灭中国共产党，以告慰那些在反送中运动中牺牲和被捕的勇敢的香港人，让我们中国人的圣城早日从中共的魔爪中解脱出来。
+紧接着的2017年10月5日，郭文贵先生在美国国家记者俱乐部与比尔·格茨先生共同召开记者招待会时，烧掉了三份涉及中共13579计划（生化武器计划）的关键文件。直到2020年新冠病毒爆发后，此事才解密。
+
+2021年6月，当我们回看几年前发生的这些事情，相信爆料革命的战友们肯定会觉得唏嘘不已。历史不会重来，几百万人已经因为新冠病毒死去，更多的人正遭受着病毒和毒疫苗的伤害，活着的人和觉醒的人只有直面挑战，勇敢地去战斗，才能有未来，一切已经开始！
 
 **原文翻译：**
 
-## **香港政府正在以国家安全为由审查电影**
+## **独家披露：福奇曾与“蝙蝠女”和生态健康联盟的达萨克一起主持会议，尽管他与武汉方面保持距离。**
 
-*政府表示，言论自由必须与“保障合法社会利益”之间取得平衡。*
+据《国家脉动》独家披露，安东尼·福奇博士在2017年与涉及新冠病毒的起源和后续掩盖的核心研究人员一起主持了一场会议，包括生态健康联盟主席彼得·达萨克和武汉实验室的顶级研究员石正丽。
 
-新的政府指引已经开始执行，允许香港当局以维护国家安全为由审查电影。
+福奇博士试图与武汉病毒研究所和在那里进行的功能增强研究保持距离，这些披露将进一步使他面对的问题变得复杂。
 
-周五在《公报》上刊登的最新审查规则实际上允许审查员撤下他们认为违反《国家安全法》的电影。
+中国疾病预防控制中心（CDC）主任高福（George Gao）——他曾给福奇博士发电子邮件，感谢他公开否定武汉病毒研究所在创造新冠病毒中的作用——与其他三位科学家一起负责组织2017年的这场会议。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/ba083d82-9fcb-402c-9fcf-057520e186e6.jpg?asset_id=dd947201-8d82-421c-9098-cb6a15b802a6&amp;img_etag=%22290b4d95c422779b68feefda6c254e6a%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/ba083d82-9fcb-402c-9fcf-057520e186e6.jpg?asset_id=dd947201-8d82-421c-9098-cb6a15b802a6&amp;img_etag=%22290b4d95c422779b68feefda6c254e6a%22&amp;size=1024)照片：香港政府一站通。
+[!\[\]()!\[\](https://spark.adobe.com/page/0c5pXqkzPXlJl/images/a8299b56-3d18-4eba-b8b4-93287f319c5c.png?asset_id=2494fa76-b5a0-4e1e-846e-e10126845201&amp;img_etag=%222c73a67d9f3a956f8e217d9b6217175e%22&amp;size=1024)](https://spark.adobe.com/page/0c5pXqkzPXlJl/images/a8299b56-3d18-4eba-b8b4-93287f319c5c.png?asset_id=2494fa76-b5a0-4e1e-846e-e10126845201&amp;img_etag=%222c73a67d9f3a956f8e217d9b6217175e%22&amp;size=1024)会议议程
 
-《电影审查条例》的新修订指示电影审查机构在审查电影是否适合公开放映时，必须“警惕”对“任何可能构成危害国家安全罪行的行为或活动”所做的描绘。
+除了福奇博士发表主题演讲外，正处于新冠病毒起源争议中心的核心研究人员——据说他们在掩盖武汉实验室在该大流行病中的作用方面发挥了重要作用——也发表了讲话。
 
-参见：[导演、发行商和电影爱好者如何努力保持香港电影的活力](https://hongkongfp.com/2021/04/25/how-directors-distributors-and-devotees-are-struggling-to-keep-hong-kong-cinema-alive/)
+一位会议发言人，武汉病毒研究所新发传染病中心主任石正丽，最近成为参议员兰德·保罗（Rand Paul）与福奇博士激烈争论的话题。
 
-一部“客观和合理地被视作认同、支持、宣扬、美化、鼓励或煽动该等行为或活动”的电影也可根据新指引进行审查。
+“多年来，美国的病毒学家拉尔夫·巴里奇博士（Dr. Ralph Baric）一直与武汉病毒研究所的石正丽合作，分享他关于如何发现创造超级病毒。这种功能增强研究得到了美国国立卫生研究院的资助，”保罗参议员询问道，然后福奇博士断言这些说法“完完全全不正确”。
 
-“鉴于维护国家安全及有效防范或制止任何危害国家安全的行为或活动至为重要，审查员可以得出影片不宜上映的结论。”该指引写道。
+尽管福奇博士试图与这位武汉的研究人员保持距离，后者因其在类似非典的冠状病毒方面的工作而获得了“蝙蝠女”的美誉，但会议议程显示他们都在该活动中进行了发言。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/428d2d10-ae61-4112-8360-38c19861e9c0.jpg?asset_id=5cecff1a-5c28-48d6-8d3a-0866adb9b53c&amp;img_etag=%22198cc0e259258517e129ce2539b00c26%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/428d2d10-ae61-4112-8360-38c19861e9c0.jpg?asset_id=5cecff1a-5c28-48d6-8d3a-0866adb9b53c&amp;img_etag=%22198cc0e259258517e129ce2539b00c26%22&amp;size=1024)照片：维基共享资源。
+而石正丽演讲的主题——“非典冠状病毒可能源于一个马蹄蝙蝠栖息地的类似非典的冠状病毒之间的频繁重组事件”——证明与新冠病毒特别相关。福奇博士发表了“新发和再次爆发的传染病：从艾滋病病毒到寨卡（Zika）病毒”的讲话。
 
-该指引还指示审查机构审查那些“很可能构成危害国家安全罪行”的电影。
+担任生态健康联盟主席的彼得·达萨克也在会上发言。该非盈利组织因从福奇博士的国家过敏和传染病研究所（NIAID）接受了数百万美国纳税人的资金，并将部分资金输送给武汉病毒研究所而受到审查，因为这个由中共管理的实验室将达萨克的组织列为合作伙伴之一。
 
-商务及经济发展局局长亦可指导审查人员如何行使其权力。
+《国家脉动》还挖出了达萨克的讲话，他在讲话中描述了将“杀手”病毒的工作委托给他的“中共国同事”。
 
-香港的国家安全法将颠覆国家政权罪、分裂国家罪、勾结外国势力和恐怖活动定为刑事犯罪，是在数月的泛民主派抗议和骚乱之后实施的。民主派人士和人权团体批评该法律措辞含糊，侵犯了公民自由。
+[!\[\]()!\[\](https://spark.adobe.com/page/0c5pXqkzPXlJl/images/f965bdb9-f6b6-48a0-83c5-446457a76a74.png?asset_id=fa74199a-ef30-49ed-940e-95bd7bf4545a&amp;img_etag=%22064dc20fe60ad28852255e62a9980f77%22&amp;size=1024)](https://spark.adobe.com/page/0c5pXqkzPXlJl/images/f965bdb9-f6b6-48a0-83c5-446457a76a74.png?asset_id=fa74199a-ef30-49ed-940e-95bd7bf4545a&amp;img_etag=%22064dc20fe60ad28852255e62a9980f77%22&amp;size=1024)会议日程
 
-电影、报刊及物品管理办事处负责审查和分类公开放映的电影。
+杜克大学——新加坡国立大学医学院新发传染病项目主任王林发博士也在会议上发言。
 
-**‘合法的社会利益’**
+除了与达萨克和石正丽一起被列为研究的共同作者之外，王林发还参与了达萨克在《柳叶刀》医学杂志上发表的声明，该声明过早地试图证明新冠病毒可能来源自人为是错误的(判断)。
 
-政府在周五宣布执行新指引时表示，言论自由必须与“保障合法社会利益”之间取得平衡。
+[阅读会议文件](https://www.scribd.com/document/511161477/Cellsymposia-CVIR2017-Oral-Program-1#download&amp;from_embed)
 
-“尽管基本权利(包括上映影片时享有的发表自由)应受尊重，但行使该等权利时同时受由法律订定及以达致合理目的(例如尊重他人权利或名誉及保障国家安全或公共秩序，或保障公共卫生或道德)而必须作出的规定所限制。”政府发言人说。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/20ac00d0-7746-4a4e-ac7f-0b56cbbc8216.jpg?asset_id=02952458-713e-4b43-825a-2e21b9b4055d&amp;img_etag=%22ec7acfb3a0dfe79166620000b1a020a9%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/20ac00d0-7746-4a4e-ac7f-0b56cbbc8216.jpg?asset_id=02952458-713e-4b43-825a-2e21b9b4055d&amp;img_etag=%22ec7acfb3a0dfe79166620000b1a020a9%22&amp;size=1024)档案照片：路易丝·德尔莫特/香港自由新闻
-
-上个月，政府官员到访了工会（医管局员工阵线）办公室，警告他们不要放映两部有关天安门大屠杀的电影纪录片。
-
-据报道，去年9月，香港政府对一家独立电影发行商表示，两部关于2019年泛民主抗议活动的新纪录片必须包含对其内容的官方警告。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/3318c41b-84ee-4e01-b269-ee17655fc834.jpg?asset_id=c20411b3-73fc-469e-9150-907d765f1e7f&amp;img_etag=%228267f40d6cc93ee3a3f3f35530ea22bd%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/3318c41b-84ee-4e01-b269-ee17655fc834.jpg?asset_id=c20411b3-73fc-469e-9150-907d765f1e7f&amp;img_etag=%228267f40d6cc93ee3a3f3f35530ea22bd%22&amp;size=1024)影片开头要求影意志有限公司加入的警告。照片：影意志，来自脸书
-
-电影《理大围城》的 DVD 被电影、报刊及物品管理办事处(OFNAA)归还给制片人，但它已被破坏成碎片，审查人员称它是被意外损坏的。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/17c32f8b-5e51-4054-a0b8-b6cf11bbd9e4.png?asset_id=eeb4912b-231e-4da4-96b7-0c46e762fcf9&amp;img_etag=%22359f854e294b6d9d1ffaff57ea0fc75c%22&amp;size=3372)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/17c32f8b-5e51-4054-a0b8-b6cf11bbd9e4.png?asset_id=eeb4912b-231e-4da4-96b7-0c46e762fcf9&amp;img_etag=%22359f854e294b6d9d1ffaff57ea0fc75c%22&amp;size=1024)
-
-在周五的新指引推出之前，香港电影审查机构有权审查电影是否描绘残暴、攻击性行为或具有歧视性特征的内容。
-
-这一变化正值6月30日安全法在香港出台一年纪念日之际。
-
-本地艺术家对香港艺术表达空间和言论自由的萎缩表示忧虑。
-
-自该法实施以来，当亲北京的声音声称这是违法行为后，与抗议相关的纪录片的放映被突然取消，而香港领导人林郑月娥誓言要对危及城市国家安全的公共艺术空间保持“全面警惕”。
-
-[原文链接](https://hongkongfp.com/2021/06/11/new-guidelines-allow-hong-kong-to-censor-films-on-national-security-grounds/)
+[原文链接](https://thenationalpulse.com/exclusive/fauci-headlined-conference-with-shi-and-daszak/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/0c5pXqkzPXlJl/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/0c5pXqkzPXlJl/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

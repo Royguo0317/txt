@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大象快讯】G7 峰会：世卫组织保持武汉实验室泄漏理论“开放”
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1318167/)
+## 【有声读物】世纪大案 39：FBI局长雷，咆哮的马特·盖茨，愤怒的班大爷
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1318255/)
 
-2021年6月12日，七国集团领导人讨论了冠状病毒爆发的起源，世界卫生组织证实了所有假设都在继续考虑——包括武汉实验室泄漏理论。周六在康沃尔举行的峰会上，七国集团领导人与世卫组织总干事谭德塞博士一起讨论了 COVID 危机和避免未来大流行的努力。
+录音：信念7
 
-在领导人讨论后的简报会上，谭德塞博士证实，在康沃尔峰会上提出了COVID-19爆发的主题。上个月，美国总统乔拜登命令情报官员“加倍”努力调查冠状病毒大流行的起源，包括它来自中国实验室的理论。
 
-谈到世界各地因新冠病毒死亡的数百万人，谭德塞博士说：“这非常悲惨，我认为这些人应得的尊重是知道这种病毒的起源是什么，所以我们可以防止它再次发生。 ”谭德塞博士证实，世卫组织正在为对新冠病毒起源的第二阶段调查做准备，他说这需要中国的“透明度”和“合作”。
 
-路德社评论：G7峰会上，谭书记看到了最新风向标，转而支持彻查新冠病毒的来源，包括实验室起源论。与中共彻底反水。
+2021年6月11日，众议院司法委员会召开听证会，传FBI局长雷(Christopher Wray)听证。川普上任的2017年提名自己人雷(Christopher Wray)任第八任FBI局长。雷之前在著名律所King & Spalding LLP做诉讼合伙人(litigation partner)，重要客户之一就是郭文贵先生。王岐山通过海航给律所大单，暗中收买了雷。川普总统交给他拜登腐败案，结果他按下了案件，让川普错失大选([世纪大案 17：贼喊捉贼](https://gnews.org/zh-hans/441412/) )。
 
-大象：中共一直坚持“科学的问题科学解决，要以世卫组织报告为准“，现在世界卫生组织的转向，为下一步揭露中共的病毒超限生物战打开了 一个大缺口。而且这几天中共宣称发现新的病毒，正如凯尔巴斯先生所说：“美国情报专家预计中共真准备将新变种注入蝙蝠，然后用注入蝙蝠来显示病毒不是实验室泄漏。几乎就在暗示中，中国研究人员正在“寻找”携带新型冠状病毒的蝙蝠。”
+文字版原文：[【世纪大案】39：FBI局长雷，咆哮的马特·盖茨，愤怒的班大爷](https://gnews.org/zh-hans/1313031/)
 
-参考链接：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
 
-[https://news.sky.com/story/g7-summit-world-leaders-discuss-covid-origins-as-who-keeps-wuhan-lab-leak-theory-open-12331212](https://news.sky.com/story/g7-summit-world-leaders-discuss-covid-origins-as-who-keeps-wuhan-lab-leak-theory-open-12331212)
+发稿：奇门遁甲
 
-图片来源：[https://news.sky.com/](https://news.sky.com/)
+**更多资讯，更多关注**
 
-整理撰稿：蓝精灵
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-校对发布：Penny
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
 
 0
