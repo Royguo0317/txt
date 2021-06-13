@@ -1,25 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】大战地硝烟已经在全球燃起——巴基斯坦省阻止未接种疫苗的 SIM 卡
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1318643/)
+## 【香草山水墨堂】美酒敬英雄——闫丽梦
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1318638/)
 
-小象：泰勒德登2021 年 6 月 12 日发表文章：巴基斯坦省阻止未接种疫苗的 SIM 卡。这篇文章描述了巴基斯坦，中共的老朋友用手机的使用权来强迫人们接种疫苗，我不能肯定这一幕是否是一个试验场，好久以前，在委内瑞拉，已经做过一场实验，用食物来控制人民的选举权，以至于一个独裁政权把一个南美最富有盛产世界小姐的国家变成了民众沿街乞讨的最为贫困的国家之一，当然之后有另外的政治势力崛起，但是我们很少看到新的委内瑞拉的报告，至少目前是不清楚的。巴基斯坦在利用疫情，做出一系列的信息整合，信息监控，以达到资源的再分配，这个和中共国的做法十分的相似，只不过巴基斯坦往数字集权化的方向走的更加前面一些。以下内容是文章的部分摘要，看看泰勒是如何看待这个事情的：
+**作者**：香草山美食部 文百合
 
-“巴基斯坦预计下一财年将花费超过 10 亿美元进口 COVID-19 疫苗，为约 1 亿人接种。问题是，全国各地涌现出反疫苗团体，并阻止了一些人接种疫苗。据RT News报道，作为回应，巴基斯坦的一个地方政府在其战争资金中拥有了一种新武器来对抗疫苗犹豫：禁用拒绝被接种疫苗的人的手机SIM卡。 旁遮普省卫生部长 Yasmin Rashid 周四在与旁遮普省政府和军方官员会面时决定，任何拒绝接受 COVID-19 疫苗的人都将在“特定时间”禁用其 SIM 卡。“我们正在尽一切努力强迫人们接种疫苗……政府不能让不想接种疫苗的人冒着已经接种疫苗者的生命危险，”拉希德说。她补充说，一旦新措施获得国家指挥和运营中心的正式批准，从一个人拒绝接种到拒绝 SIM 卡的时间表将被确定，该中心负责监督巴基斯坦对 COVID-19 的全国反应。 会议结束后，旁遮普省的初级和二级卫生部门在推特上写道：  “没有接种疫苗的人的移动 SIMS 可能会被封锁，这是由卫生部长Yasmin Rashid 博士主持的内阁会议决定的。没有关于何时开始阻止 SIM 卡的消息。然而，省级官员宣布该计划正在推进：部门发言人赛义德·哈马德·拉扎 (Syed Hammad Raza) 告诉巴基斯坦的黎明报：“最终决定阻止未接种疫苗的人的移动 SIM 卡。”批评人士称，旁遮普邦的新措施是政府的危险举动。 “这是一个倒退的步骤，因为它影响了公民的言论自由权。需要的是提高对疫苗接种的认识，而不是强制，”印度软件自由法律中心的法律主任 Prasanth Sugathan 告诉国家报。“在大流行期间，手机对于人们与他人联系和接收信息很重要，”Sugathan 说。 除了 SIM 卡禁令外，拒绝接种疫苗的人也可能被限制进入餐馆、商场和公园。 这绝对是荒谬的，想象一下，如果美国一个自由主义的都市区采取这种没有接种疫苗就没有电话的措施，人们会失去理智并可能反叛。“
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042102/WhatsApp_Image_2020-10-24_at_04.33.05-8-768x103-1.jpeg)
 
-西方的某些国家某些地方已经开始这么做了， 比方说某些航空公司。这中状况应该最热衷于控制民众，或者以控制民众为自己终身目标的政权的热爱，他们在世界各地进行不同程度的尝试，试探，实验，意图以最温和的最让人察觉不到他们真实意图的方式来实现。尤其是中共国以及向中共国学习政权江山代代相传经验的独裁政府。而西方的国家，现在正在开始聚焦病毒真相，在病毒真相揭开的这一段难过的时间里，疫苗爱好者正在快马加鞭地争取每一分钟，这好像是大家都在和时间赛跑。在小象看来， 这是正义和邪恶正在正面交锋，大战地硝烟已经在全球燃起。
 
-参考链接：
 
-[https://www.zerohedge.com/covid-19/pakistans-punjab-province-decides-block-sim-cards-people-refusing-vaccines](https://www.zerohedge.com/covid-19/pakistans-punjab-province-decides-block-sim-cards-people-refusing-vaccines)
 
-图片来源：[https://www.zerohedge.com/](https://www.zerohedge.com/)
 
-整理撰稿：蓝精灵
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13000659/image0-41-1-scaled.jpg)
 
-校对发布：Penny
+天使闫丽梦——
+你从云端走来
+越过高山
+飞过海洋
+你是天选之子
+上帝赋予你唯一的使命
+传递真相
+是仙，你有血有肉
+是人，你英勇无比
+面对群魔乱舞
+你守护真相
+真相就是你的剑
+刺向魔鬼的心脏
+天使闫丽梦传递真相
+拯救人类
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13001206/image0-40-1-scaled.jpg)
+
+编辑/校对/发稿：遍地开花
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
+
+
+
+
 
 0

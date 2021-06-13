@@ -1,53 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特战小队引入罗伯特议事规则的尝试与思考
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1318889/)
+## 【墙内热搜】湖北十堰发生燃气爆炸，已致多人死亡
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1318970/)
 
-撰稿：澳喜特战旅101
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13025350/20210613_Rules.png)图片来自网络
-我们小队的每周会议，已经运行了几个月，通过第一阶段的适应与磨合，小队内部已经形成了积极发言，充分表达意见的良好氛围。同时，我们也注意到了一些新问题，比如：发言的无序性、主题杂乱、话题深度如何把控等。
+作者：香草山美食部 新世界的一员
 
-能否引入更有效的会议规则，改善特战小队会议的效率，更有利于每个成员充分表达意见？我们尝试采取罗规的方式进行控制和改善，由于我们对罗规也是处于学习阶段，在今后的每次会议中通过不断的实践，让大家都能得到学习和提高。
-
-罗伯特议事规则是现代文明的议事精神，它可以精炼成为十二条原则，并凸显了三个特点：
-
-– 约定性，即规则明示在前，对事不对人； 
-– 工具性，凡事不往道德上扯，能用工具来解决的绝不无端拔高和指控； 
-– 价值中性，旨在凝聚组织认同，提高运作效率，平衡多元利益，通过文明议事来说服、辩论、妥协，从而形成有效果的行动。
-
-小队会议可以分为两个阶段：
-
-1. 议题讨论，会议确定一到两个中心议题，按照罗规会议规则进行讨论，最后采取表决的方式，对主题进行总结。这个阶段是会议的主要内容部分。
-2. 自由发言阶段，主要控制点是时间，类似于澳喜的畅想频道规则，采取畅所欲言的方式，话题可以发散，可以涉及生活、家庭、社会、投资等方方面面。
-3. 会议主持人由队员轮流掌握，使每位都得到锻炼的机会。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
 
-我们不仅要全力以赴投身于灭共，同时也应该在参与爆料革命的过程中，学到更多的东西，获得成长。不仅要从能力上不断提升，同时也要求我们的意志变得更加坚定和强大！特战小队是我们澳喜特战旅最基本的作战单元，每个小队的核心要素就是团结，我们需要不断地尝试和改善内部的交流氛围，取得更多的互信与鼓励，不断地巩固和提升我们的小队作战能力！
 
-附2021年6月11日小队会议的提要（谢谢WXG战友的记录）：
+我在单位听七哥的歌，微友发来视频，说，快看快讯，迟了估计又被删了。我一看，又是一起特大事故，共产党统治下，煤气、电梯，都是高危因素，随时能要走人们的生命。
 
-LW – 欧洲战友的到来，人员合并是相互学习、吸收和发掘人才的好机会。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031603/image1-7-scaled.jpg)
 
-WXG – 对于近期出现的一些内部矛盾，应采取观察态度。
-8M – 澳喜特战旅小队的模式优势突出，需要进一步发扬。
-WD – 保护好战友的安全是非常关键的。
-HS – 不搞个人崇拜，不讨论过分的话题，紧跟七哥的节奏。
-GLJ – 避免战友之间出现相互攻击情况。
-WXN – 支持联盟的决策，战友之间相互理解，合力作战为重。
-XS – 应给予法农德农战友最温暖的接待和包容。
-GLJG – 为澳喜取得的成绩骄傲，这是一种荣誉。
+事故是今天刚刚，也就是北京时间6月13号早晨6点，在湖北十堰发生的，燃气爆炸，整个现场惨不忍睹，整个菜市场都塌了，一楼整个垮了。看视频还有多名消防员受伤，说明有二次事故，大型设备在进场。
 
-（本文纯属个人观点）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031804/image0-46-scaled.jpg)
 
-参考资料：
+今天正好是节假日放假时间，再加上是凌晨时间，不知又有多少家庭遭受伤害。
 
-[罗伯特议事法则](https://baike.baidu.com/item/罗伯特议事法则/1899130)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031633/image2-2-scaled.jpg)
 
-*编辑：**8 Mile*
+事故发生在十堰市“四一厂”也即东风汽车公司车架厂的一个居民小区(又名艳湖小区)，居民以车架厂职工家属为主，该出事农贸市场是服务艳湖小区数万人口的唯一农贸市场。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031846/2-26-scaled.jpg)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+据央视新闻消息，截至半小时前，已搜救出150人，其中12人死亡；138人受伤（其中37人重伤）。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031846/3-21-scaled.jpg)
+
+出现如此大的人员伤亡，党匪恐怕还是会设法推卸责任，或者找牵羊罪。但完全隐瞒是不可能了，后续如何，我们拭目以待。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031841/4-15-scaled.jpg)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0

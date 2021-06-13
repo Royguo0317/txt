@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共“一带一路”项目的劳工被“像奴隶一样”对待
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1319134/)
+## 民意调查：现在大多数美国人相信冠状病毒源自武汉病毒研究所
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1319298/)
 
-翻译 : 康州盘古农场 – 柯镇恶
+翻译 : 康州盘古农场 – TrueSky
 校对 : 康州盘古农场 – 格格巫
 编辑 : 康州盘古农场 – 格格巫
-发布 : 康州盘古农场 – 恩典
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13044949/973.jpg)
-**据《大纪元时报》作者：DOROTHY LI在2021年6月10日报道：**
-在中共国最大海外直接投资的土耳其煤电厂，技术熟练的中国移民工人被迫每周工作 7 天，每天工作超过 12 小时，工资过低，而且没有求援的希望。
-刘强（化名）告诉《大纪元时报》，被吹捧的每月 2346 美元的高薪，促使他在大流行期间去土耳其的胡努特鲁（Hunutlu）热电厂工作。
-胡努特鲁煤电厂是中国政权“一带一路”倡议 (BRI) 的旗舰项目，这是一项耗资数万亿美元的基础设施计划，目标是通过投资基础设施的开发，来提高中共政权在全球贸易联系中的影响力。根据公司的网站显示，土耳其的项目总投资 17亿美元，主要来自于上海电力公司，由分包商中国能源工程集团安徽一号电力建设有限公司（AEPC）承建。
-接受《大纪元时报》采访的技术工人称，他们每周工作 84 小时，在工地上几乎没有保护措施。刘说他们每天只有几个小时的睡眠时间，早上 6 点起床，晚上 11 点下班。“当初我们被告知，预定的工作时长是9个小时，这是一份正常的工作，”刘在接受大纪元时报采访时说。“但是当我们来到土耳其时，公司没有与我们签订合同，也没有给予任何工作许可证，”他补充说，更不用说保险或医疗赔偿了。刘说，土耳其夏季炎热，户外工作时间过长，让他们头晕目眩和疲劳无力，而导致了失误甚至受伤。该男子声称，他的两个室友腿部受伤后，并没有得到适当的治疗，他们只能躺在工人宿舍里。一名受重伤的人被告知，除非骨头骨折，否则他不能住院。“我们担心我们不会赚到多少钱，反而会留下身体伤害，骨折或其他伤害，这可能是终生的，”刘继续说道。
-刘说，由于他的技能不能满足所申请工作的标准，他的月薪被削减了三分之一以上。刘补充说，在这个工作点的 1,000 多名中国工人中，有些人支付了 470 至 1,560 美元的招聘费。
-**滞留海外**
-刘告诉大纪元时报，大流行使他们的状况更加恶化。
-据他描述，工地四周都是带刺的金属丝网，就像一座监狱。工人的活动被严格限制在生活区。供应的食物缺乏营养，很少有肉。“我们累了、生病了，需要休息，但他们不允许，”刘说。
-据中国政权的报道，由于CCP（中国共产党）病毒，胡努特鲁电厂管理人员采取了“封闭式的”策略，禁止任何人离开现场。超过1800员工在大流行病期间继续在工作。刘说，一些工人提出了抗议，但他们仍被关押在现场，不能回国。他说，他们的护照被扣押，无法从公司获得进入中国所需的文件。“他们说我们只有在工作完一整年后才允许回去。这里太可怕了！一年后会怎样？我不知道。”“我必须像奴隶一样生活和工作，”刘继续说道。
-该男子告诉《大纪元时报》，中国工人曾向中国大使馆寻求帮助，但却被告知与中国雇主的劳务纠纷超出了大使馆的工作范围，大使馆只负责处理与外方的关系。中国驻土耳其大使馆没有回复（关于该工人声称工人缺乏安全保护并被禁止返回中国的）询问邮件。我们无法通过电话、网络消息或微信联系到中国分包商 AEPC。按照刘的说法，安徽镇江控股集团（AZHG）是APEC的分包商。然而，当AZHG的工作人员被问及海外项目时，他们立即挂断了电话，并没有回应指控。
-刘的经历与纽约的《中国劳工观察》报告中其他几名中国农民工所描述的故事相似，例如过度加班、扣工资、医疗不足、护照被扣。
-该报告指出，在海外为中国政权的“一带一路”项目工作的劳工是人口贩卖和强迫劳动的受害者。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13054927/9741.jpg)
+**据《布雷巴特新闻网》作者：WENDELL HUSEBØ，在2021年6月10日报道：**
 
-原文链接：[https://www.theepochtimes.com/chinese-migrants-labor-like-a-slave-on-the-regimes-belt-and-road-projects\_3853662.html](https://www.theepochtimes.com/chinese-migrants-labor-like-a-slave-on-the-regimes-belt-and-road-projects_3853662.html)
+周三公布的一项民意调查显示，现在大多数美国人认为冠状病毒起源于武汉病毒研究所。
+当受访者被Trafalgar集团问及”什么最能说明你对COVID-19如何开始的看法？”时，近54%的人说该病毒源自实验室。更具体地说，29.1%的人认为病毒是故意从实验室释放出来的，而24.4%的人认为它是意外地从实验室泄露的。而29.3%的人表示，他们对病毒的起源地没有确定的想法。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13055300/9742.jpg)我们的@[email protected]#民意调查在@[email protected]今晚的节目中发布。今晚的节目显示，大多数美国人认为#冠状病毒来自实验室而非自然。见报告：[https://thetrafalgargroup.org/news/nat-issues-covid-origin-0609…
+https://twitter.com/RobertCahaly/status/1402819850792226816?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1402819850792226816%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.breitbart.com%2Fpolitics%2F2021%2F06%2F10%2Fpoll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology%2F](https://thetrafalgargroup.org/news/nat-issues-covid-origin-0609…
+https://twitter.com/RobertCahaly/status/1402819850792226816?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1402819850792226816%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.breitbart.com%2Fpolitics%2F2021%2F06%2F10%2Fpoll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology%2F)
+这项民意调查是在立法者关注一份据称支持冠状病毒起源于中共国武汉病毒研究所的理论的机密报告时进行的。”我们很多人认为各种监督委员会应该更早一点知道这份报告”，众议院能源和商业委员会成员摩根-格里菲斯（R-VA）谈到报告时说，”我们想得到答案……因为我们认为他们拥有比我们最初在3月时想象的更大的一块拼图。”
+这份绝密报告是由政府支持的劳伦斯-利弗莫尔国家实验室的研究人员于2020年5月发布的。同时，调查实验室泄密丑闻的前副助理国务卿戴维-费斯6月2日表示，政府、教育机构和公司如果在中共国进行科学和技术交流，就不能确定他们没有在不知情的情况下与中共的军队合作。当前国务卿迈克-蓬佩奥在3月被问及他是否可以确认美国相信中共军方参与了武汉实验室的研究时，蓬佩奥回答说：”这是正确的，这是一个高度自信的评估，情况确实如此。”不管科学家和中共之间有什么联系，国务院关于病毒起源的概况介绍说，中共”系统地阻止对COVID-19大流行病的起源进行透明和彻底的调查，而是选择将巨大的资源用于欺骗和造谣”。
+民意调查于6月3日至7日进行，受访者为1025名可能参加大选的选民。误差率为3.06%。
+
+原文连接：[https://www.breitbart.com/politics/2021/06/10/poll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology/?utm\_medium=social&utm\_source=facebook&fbclid=IwAR1-McH5yM2bH6sKVjnp5a1fJweUZPoWnJBgzbkHJV9qFDKU5fvylzmLRpA](https://www.breitbart.com/politics/2021/06/10/poll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology/?utm_medium=social&amp;utm_source=facebook&amp;fbclid=IwAR1-McH5yM2bH6sKVjnp5a1fJweUZPoWnJBgzbkHJV9qFDKU5fvylzmLRpA)
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
 康州盘古农场欢迎您加入:(或点击上方图片）
 
