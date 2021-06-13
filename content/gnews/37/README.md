@@ -1,81 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统发声明痛斥对他的虚假指责
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1318062/)
+## 【小象白话】教育的目的就是骗钱——山西大学商院学生聚集抗议学历改制
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1318069/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+大纪元报道：“近日，山西大学商务学院在瞒骗学生的情况下，悄悄更改其在高等教育学生信息网（学信网）上的校名，引发抗议。该校还被爆用禁止学生外出、恐吓威胁等手段防止事件影响扩大”。
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12204634/T-8.jpg)patriotjournal.org
-快到川普总统舒展一口气的时候了？亚利桑那州“国家审计”手工计票接近尾声，虽然会遇到更严峻的挑战，但至少10个州派代表团现场观摩、学习取经，反映了人们对揭露选举舞弊欺诈的渴望和决心，以及不惧威胁的勇气【1】。
+与前几日江浙爆发学潮的原因有所不同的是，山西大学商务学院在去年已经完成转设。此前，他们被告知学院将转设成“普通本科”，但今年三月份正式下达文件后，显示被转设成了“职业本科”。开始没有人注意，继江浙院校发生学生抗议事件后，他们有学生发现，“学校竟然在不通知他们的情况下，悄悄将学信网上的校名改成了“山西工程科技职业大学”，这让他们感到被欺骗。由于学生持续抗议，该学院和当局目前已动用多种手段进行打压、噤声。“学校“声称要是通过“其它任何平台、途径，都是不合规的！都要追责问责！”甚至威胁“即将触犯法律红线”、要“抓进局子里”。但是，有通过所给途径反映问题的学生“通常都会被约谈，动不动就是记档案”。
 
-在大选舞弊行为彻底揭穿之前，下面川普总统声明里已经正名的、曾经遭到的攻击和诬陷例子，应该算是“刚刚拉开的序幕”。从中也能看到，前三项是爆料革命、新中国联邦主导的、建议的，直接或间接提供的情报真相，足以说明爆料革命、新中国联邦对川普总统的支持，对美国的贡献。
+“中共教育部于去年5月18日发布《关于加快推进独立学院转设工作的实施方案》，要求去年年底前各独立学院制定转设工作方案，同时推动一批独立学院实现转设，并提到三种转设路径包括转为民办、转为公办与终止办学。其中转设分独立学院跟高职、高专进行结对、合并，转设成为职业技术大学，并由此引发一系列风波。”
 
-声明翻译如下：【2】
+国内的教育系统就是中共惯用假骗偷的系统，更可怕的是，它控制的学历制度，控制着所有年轻人未来的工作，生活，家庭。在摇篮中， 中共就已经将这些孩子的未来牢牢地抓在手里。这一系列的学校改制政策，它不仅仅是学校改制那么简单，经济下滑，中共政府收入锐减，在搜刮财富和中共维稳费用支出的分配上，也波及到高校的财政拨款和收敛学费上，它是一个学生的学费利润重新归属与谁的问题。中共官员办教育，目的是抢劫骗取家长的口袋以及从中央这个大骗子那里骗拨款，所有的教育改革，学校改制，都是实现这两个目的的手段和方法。所以越来越复杂的科目设置，越来越复杂的中考高考制度改革，越来越复杂的积分计算，还有名堂繁多的合作办学，这些都是在教育嗜血的机器里更换一个零件而已。
 
-2021年6月12日
+参考链接：
 
-唐纳德J.川普美国第45任总统
+[https://www.epochtimes.com/gb/21/6/12/n13018257.htm](https://www.epochtimes.com/gb/21/6/12/n13018257.htm)
 
-你们注意到了吗？他们现在承认我在选举前所说的一切都是正确的。
+图片来源：[https://www.epochtimes.com/](https://www.epochtimes.com/)
 
-● 羟基氯喹有效
+整理撰稿：蓝精灵
 
-● 病毒来自中共国的一个实验室
+校对发布：Penny
 
-● 亨特·拜登（Hunter Biden）的笔记本电脑是真的
-
-● 拉斐特广场（Lafayette Square）没有被允许拍照
-
-● “俄罗斯悬赏”（Russian Bounties）的故事是假的
-
-● 我们确实在2020年底前以创纪录的时间生产出了疫苗
-
-● 蓝州（民主党州）的封锁不起作用
-
-● 学校应该开放
-
-● 批判种族理论对我们的学校和国家都是一场灾难
-
-● 我们的南部边境安全计划空前成功
-
-（声明完）
-
-期待川普总统能被“昭雪”，重返白宫；或者2022年就位众议院议长；或者2024再次当选，与新中国联邦共建世界文明。
-
-文字整理：
-
-June 12. 2021
-
-Statement by Donald J. Trump, 45th President of the United States of America
-
-Have you noticed that they are now admitting I was right about everything they lied about before the election?
-
-● Hydroxychloroquine works
-
-● The Virus came from a Chinese lab
-
-● Hunter Biden’s laptop was real
-
-● Lafayette Square was not cleared for a photo
-
-● The “Russian Bounties” story was fake
-
-● We did produce vaccines before the end of 2020 in record time
-
-● Blue state lockdowns didn’t work
-
-● Schools should be opened
-
-● Critical Race Theory is a disaster for our schools and our Country
-
-● Our Southern Border security program was unprecedentedly successful
-
-有关链接：
-
-【1】[https://gnews.org/zh-hans/1317968/](https://gnews.org/zh-hans/1317968/)
-
-【2】[https://twitter.com/JennaEllisEsq/status/1403728604446474240/photo/1](https://twitter.com/JennaEllisEsq/status/1403728604446474240/photo/1)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0
