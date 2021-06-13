@@ -1,52 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佛罗里达州新法案针对中共渗透美国教育系统
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1318002/)
+## 【独立观点】 德澳举行“2+2”会谈，增强印太地区合作，共同反制中共
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1318024/)
 
-新闻来源：《校园改革》| 作者：Alex Munguia| 发布时间：2021年6月10日
-
-翻译/简评：Victory | 校对：SilverSpurs7 | 审核：Beicy-数学老师 | Page：我是球大哥
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7ID6uVaK5sBIq/images/f572b9cf-40d4-4592-b7b4-d7b834454f0d.jpg?asset_id=35b799fe-a12e-42a7-83d7-e98b1f714c21&amp;img_etag=%227fbf1595dce3472386ec78216dcd2158%22&amp;size=1024)](https://spark.adobe.com/page/7ID6uVaK5sBIq/images/f572b9cf-40d4-4592-b7b4-d7b834454f0d.jpg?asset_id=35b799fe-a12e-42a7-83d7-e98b1f714c21&amp;img_etag=%227fbf1595dce3472386ec78216dcd2158%22&amp;size=1024)
-
-爆料革命早期就曝光了中共势力对海外无孔不入的“蓝金黄”渗透，美国教育系统是中共的重点目标之一。中共在美国影响力的大量事实展现在美国人面前。如今中共“下三滥”的渗透手段已经尽人皆知，就必然会引发美国相应的反制措施。
-
-中共在海外开设孔子学院，名为传播中国文化，实则是间谍机构，为渗透全世界做了海外平台。最近很多国家开始对孔子学院本质有了清醒认识，因此很多孔子学院在压力下被迫关闭。佛罗里达新法案虽然不算非常重大的事件，但我们可以管中窥豹，灭共的潮流已经形成，各个行业都在行动。
-
-**原文翻译：**
-
-## **佛罗里达州州长德桑蒂斯(DeSantis)签署两项法案，遏制中共国对美国高等教育系统的影响**
-
-**州长的发言人表示，“这项立法有效禁止了‘孔子学院’在佛罗里达州的运作。”**
-
-**该立法将要求大学向国家报告大额的外国捐赠和资助。**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/7ID6uVaK5sBIq/images/1f74dad3-0a30-42d2-9a69-11992689de87.png?asset_id=17c61b16-5a4e-42af-a586-f0007b4030d3&amp;img_etag=%2281b7ee6a81eb3547ba18e18aa237075c%22&amp;size=1024)](https://spark.adobe.com/page/7ID6uVaK5sBIq/images/1f74dad3-0a30-42d2-9a69-11992689de87.png?asset_id=17c61b16-5a4e-42af-a586-f0007b4030d3&amp;img_etag=%2281b7ee6a81eb3547ba18e18aa237075c%22&amp;size=1024)
-
-佛罗里达州州长Ron DeSantis于6月7日签署了新法案为法律，该法案是针对中共对佛罗里达州教育系统的影响。
-
-HB7017和HB1523法案针对的是企业间谍活动、犯罪活动和外国影响。如《校园改革》今年早些时候报道，佛罗里达大学的一名教授收到180万美元却在隐瞒其与中共政府的关系，另外还有一个来自Jacksonville 女性的案件。
-
-DeSantis州长表示，“我们今天所做的就是说，够了。我们必须开始反击，所以佛罗里达州正在这样做。”
-
-州长的新闻秘书克里斯蒂娜-普肖(Christina Pushaw)告诉《校园改革》说：“中共及其合作者在佛罗里达州的大学，或者说在佛罗里达州的任何地方都无处容身。这项立法有效地禁止了’孔子学院’在佛罗里达的运作。”
-
-DeSantis州长办公室的一份新闻稿指出，该法案要求“大学和学院向州立大学系统理事会或教育部披露5万美元或以上的外国捐赠和资助”
-
-这些法律旨在审查佛罗里达州的所有实体，包括州、公司和大学。2019年，在佛罗里达州位于迈阿密戴德学院的最后一所孔子学院被关闭。
-
-据新闻称，在宣布签署该法案时，州议员艾琳-格拉尔(Erin Grall)说：“佛罗里达州的学院、大学和公共实体在接受礼物——特别是来自外国对手的礼物时，必须遵循高标准的披露和透明度。”
-
-🔗[原文链接](https://campusreform.org/article?id=17617)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+作者：纽约香草山健身部 Ivy001
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7ID6uVaK5sBIq/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/7ID6uVaK5sBIq/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
+
+
+
+6月10日，德国外交部长马斯（HeikoMaas）、国防部长卡伦鲍尔（Annegret Kramp-Karrenbauer）和澳大利亚外交部长佩恩（Marise Payne）、国防部长达顿（Peter Dutton）举行了两国间的第二次“2+2”安全政策磋商会谈。双方一致认为，德国专注于实施其新的《印太政策准则》，以加强在该地区的参与，为强化印太地区的合作提供了一个重要的机会。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12203133/Untitled-design-2021-06-12T183004.741.png)图片来源：RFI
+部长们讨论了南中国海局势，强调了《联合国海洋法公约》的核心地位，并重申2016年的南海仲裁是最终的，对各方都有约束力。澳大利亚欢迎德国在2021年下半年在印太地区部署一艘护卫舰。
+
+佩恩会后通过推特写道：“澳大利亚和德国是具有全球责任的战略伙伴。我与马斯在今天的会谈上，签署了强化战略伙伴关系，并将推动我们在印太地区和全球基于规则的秩序中的共同战略利益。”
+
+由于二战影响，德国的军事力量是受限制的，它不能象美国、英国等盟军，可以在世界各大洋部署海军。这次澳大利亚欢迎德国在印太地区部署一艘护卫舰，表示着德国的海军力量可以被允许进入印太地区，进行常规部署。这是德国获得印太联盟认可的象征。
+
+众所周知，澳大利亚是在印太地区和中共对抗最激烈的国家，澳大利亚一直站在反共最前线。而德国是和中共勾兑最深的国家之一，和中共关系亲密，一直在拖反共后腿。现在，德国和澳大利亚在一起探讨中共国问题，并且加入到印太地区反制中共的战略部署中。这表示着：德国已经抛弃中共，加入反共联盟，并且为反制中共贡献力量。
+
+又一个国家弃中共而去，中共在国际上越来越被孤立了，习近平真的成为“孤家寡人”了。煤山也离习近平越来越近啦。
+
+参考阅读： https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20210611-%E5%BE%B7%E6%BE%B3%E4%B8%BE%E8%A1%8C2-2%E4%BC%9A%E8%B0%88-%E5%A2%9E%E5%BC%BA%E5%9C%A8%E5%8D%B0%E5%A4%AA%E5%9C%B0%E5%8C%BA%E5%90%88%E4%BD%9C-%E6%8E%A2%E8%AE%A8%E4%B8%AD%E5%9B%BD%E9%97%AE%E9%A2%98
+
+https://zh.vietnamplus.vn/%E5%BE%B7%E5%9B%BD%E5%92%8C%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E5%BC%BA%E8%B0%83%E4%BA%86unclos%E5%9C%A8%E8%A7%A3%E5%86%B3%E4%B8%9C%E6%B5%B7%E9%97%AE%E9%A2%98%E7%9A%84%E4%BD%9C%E7%94%A8/140762.vnp
+
+校对/发稿：火内
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
