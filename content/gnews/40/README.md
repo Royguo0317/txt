@@ -1,196 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国会议员马特·盖茨与联邦调查局局长克里斯托弗·雷 FBI 对 COVID-19 起源正面交锋
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1318346/)
+## 【小象搬运】里克·欣肖发文谴责罗马教皇对中共保持沉默
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1318513/)
 
-**字幕内容：**
-**Matt Gaetz (Congressman)
-马特·盖茨（国会议员）**
+三十年来，里克·欣肖（Rick Hinshaw）作为专栏作家，然后是《长岛天主教徒》的编辑，在公共广场上为信仰价值观发声；天主教联盟和纽约州天主教会议的通讯主任；天主教论坛有线电视节目的联合主持人；现在是他自己的博客“阅读标志”的编辑。里克欣肖2021年6月10日在Newsmax发表了一篇文章，呼吁教皇带领宗教界发声：教皇对中国保持沉默，作者是一位很喜爱尊敬方济各教皇的教徒，所以他说写这篇文章的时候非常难过，以下是部分摘要：
 
-If we don’t look at that rooted information
-如果我们不看那些扎实的信息
+我很感激——即使我不同意他关于如何最好地到达那里的审慎判断：他强调提升穷人、促进世界和平和为上帝的地球提供管理权。我尊他为基督的代表。所以写这个我很难过。
 
-We’re unable to ascertain what differences of opinion are correct and incorrect
-我们无法确定哪些意见分歧是正确的和不正确的
+但我深感不安的是，教宗一直对残酷、系统性和不断扩大的人类压迫保持沉默，而这正是中共政权的本质。
 
-but it’s hard to believe that the FBI didn’t believe Dr. Yan was credible or significant
-但很难相信 FBI 不相信闫博士是可信的或重要的
+再加上中国对台湾的威胁、通过军事升级追求世界统治、努力控制技术、操纵全球经济，以及在全球爆发毁灭性的新冠病毒大流行之后的掩盖和不诚实。很明显，对人类来说最大的威胁的生存威胁，这是一个野蛮、侵略、极权主义的国家政权。
 
-because she lands on April 28th
-因为她在 4 月 28 日落地时
+然而罗马是沉默的。
 
-Your agent Dana Murphy takes her phone that day
-你的探员达娜·墨菲那天拿走了她的电话
+180万维吾尔穆斯林被关押在集中营中，被迫成为奴隶劳动，遭受殴打、饥饿、轮奸、酷刑、政治灌输和强制绝育，梵蒂冈的抗议几乎听不见。正如《华盛顿邮报》 所称，这种“种族灭绝”的压迫被美国大屠杀纪念博物馆谴责为“危害人类罪”，并被来自世界各地的大约 76名信仰领袖谴责为“至大屠杀以来最令人震惊的人类悲剧之一”。但这些声音不是由世界上超过 10 亿天主教徒的领袖所发出。
 
-I’m holding the receipt from where you got the phone
-我正拿着你得到她的电话的收据
+中国专家史蒂文·莫舍尔 (Steven Mosher) 说，中国继续其活生生的、强迫摘取和贩卖器官的可怕做法，“像许多二手汽车零件一样，将心脏、肝脏、肺脏和肾脏分解出来进行转售”，他也首次揭露了该政权的强制堕胎暴行2018年，罗马教皇社会科学院院长马塞洛·桑切斯·索隆多主教称赞中国政府实现了“器官捐赠制度”的“改革”。但在 2019 年，一个位于伦敦的独立人民法庭进行了为期一年的调查，发现“没有证据”表明从政治犯、法轮功修炼者和维吾尔族穆斯林身上非法摘取器官的行为已经停止。令人难以置信的是鉴于中国所有的野蛮侵犯人权行为，索隆多主教宣称：“现在，最能贯彻教会社会教义的人是中国人。” （我的重点）
 
-that had the Wechat messages
-那里有微信的信息
+中国镇压了香港的民主抗议活动，并实施了“国家安全法”以通过严厉的监禁来压制异议，梵蒂冈没有强烈谴责，包括，正如华尔街日报的威廉麦格恩报道的那样，去年 12 月，香港最知名的民主斗士吉米赖，同时也是“香港最著名的天主教人士”被判入狱的时候，梵蒂冈也保持了沉默。“在他和他的家人最需要牧羊人的时刻，”麦格恩感叹道，“教皇弗朗西斯就是 MIA。”
 
-that had very important information regarding Beijing and the Chinese Communist Party
-涉及到北京和中国共产党的非常重要的信息
+为什么？当然，尽管梵蒂冈与共产党政府达成了有争议且主要是秘密的协议，但教会领袖不会在其他人遭受迫害时保持沉默以保护教会。即使他们这样做了，它也不起作用。人权倡导者 Ewelina Ochab 博士上个月在《福布斯》上撰文，引用了美国国际宗教自由委员会 2021 年的报告：“尽管梵中就主教任命达成一致，但中共当局继续骚扰、拘留和折磨拒绝加入国家支持的天主教协会的地下天主教主教——例如崔泰和黄金彤。”“政府还继续在其‘宗教中国化’运动中拆除天主教和新教教堂建筑和十字架。”“两年过去了，”时任美国国务卿迈克庞培去年 9 月评论说，“很明显，中梵协议并没有保护天主教徒免受党的掠夺。”情况只会变得更糟。Ochab 写道“考虑到目前的迫害趋势，”“预计中国将很快……与朝鲜竞争，成为基督徒生活最糟糕的地方。这同样适用于其他宗教团体。预计会以各种形式进一步限制宗教或信仰自由权。”
 
-and it’s not every day that an FBI agent flies from Los Angeles to New York
-并不是每天都能有联邦调查局特工从洛杉矶飞到纽约
+“中国人民，”蓬佩奥说，“需要梵蒂冈的道德见证和权威来支持中国的宗教信徒。”
 
-to follow a Chinese doctor who is a whistleblower and a fact witness
-跟随一位身为爆料者和事实证人的中国博士
+正如麦格恩所写，如果弗朗西斯的沉默符合过去一些不愿卷入世俗事务的教皇的传统，他的沉默会更容易理解。但这位教皇很少会在从资本主义到气候变化、移民、堕胎或性别意识形态等问题上表达自己的意见。
 
-and even if Dr. Yan’s technical analysis of the virus is incorrect
-即使闫博士对病毒的科学分析是错误的
+现在，世界和中国香港和台湾人民需要他的道德声音，为中共压迫和侵略的难以言喻的罪恶大声疾呼。相反，梵蒂冈的表现，借用 1970 年代的热门歌曲“美国派”“一句话也没说；教堂的钟声都坏了。
 
-the fact that she showed up
-而事实是她站出来
+参考链接：新浪新闻
 
-saying that she wanted to provide information
-说她要提供信息
+整理撰稿：蓝精灵
 
-and tell the truth seems significant today now
-而且敢于揭露真相，在今天看起来很重要
+校对发布：Penny
 
-back when Dr Yan made these pronouncements
-当闫博士发表这些声明的时候
-
-regarding the Chinese Communist Party their military involvement
-涉及中国共产党他们的军队的参与（制造病毒）
-
-the leak of this virus from the lab
-从实验室泄漏的病毒
-
-we had a number of people trying to discredit her
-我们有很多人试图诋毁她
-
-are you able to ascertain whether or not that effort to discredit Dr. Yan
-你能确定这些诋毁闫博士的努力
-
-is part of the counterintelligence efforts by the Chinese Communist Party
-是中国共产党反间谍工作的一部分？
-
-Christopher Wray (FBI Director)
-克里斯托弗·雷（联邦调查局局长）
-
-Again I want to be careful both about information
-再次，我要非常小心的关于信息
-
-we can provide in general about any kind of ongoing investigation
-我们可以提供有关任何类型的正在进行的调查的一般信息
-
-but also about what inform that information would take
-但也关于以什么形式来提供这些信息也要慎重
-
-because in some cases you may be touching on things
-因为在某些情况下，你可能会触及到一些东西
-
-that would be classified and that might require a different format
-那可能是机密的并且可能需要不同的方式处理
-
-so I certainly understand why you’re asking the questions
-所以我当然理解你为什么问这些问题
-
-let me commit to you that I will go back with my folks
-让我向你承诺我会回去与我的同事们
-
-and see what information can be provided
-并看看什么信息可以提供
-
-and what form it would have to take if we can provide
-以及它必须采取什么形式，如果我们能提供的话
-
-Matt Gaetz
-马特·盖茨
-
-That would be very good
-那会很好
-
-Hold on Mr. chairman
-等一下主席先生
-
-You let everybody else go over here
-你让其他人都超时了
-
-You might be recognized just for unanimous consent
-这仅仅是申请一致无异议同意，也许你会让我读完
-
-Chairman
-主席
-
-Gentlemen’s time has expired
-先生们的时间已过
-
-Matt Gaetz
-马特·盖茨
-
-you’re not treating everyone equally
-你没有平等地对待每个人
-
-Mr. Chairman, you went over by more than 10 minutes
-主席先生，你超过不止
-
-Chairman
-主席
-
-Gentlemen’s time
-先生们的时间
-
-Matt Gaetz
-马特·盖茨
-
-Johnson went over by 45 seconds
-约翰逊超过了 45 秒
-
-Chairman
-主席
-
-Gentlemen’s time has expired Mr. Gaetz
-先生们的时间已过
-
-Matt Gaetz
-马特·盖茨
-
-I just want a unanimous consent request
-我只想要一个全体无异议同意
-
-Chairman
-主席
-
-Oh oh oh okay I’m sorry
-噢，噢，噢，好的，抱歉
-
-All right go ahead go ahead
-好吧，继续，继续
-
-Matt Gaetz
-马特·盖茨
-
-Thank you Mr Chairman
-谢谢你，主席先生
-
-I see unanimous consent to enter into the record the receipt from the United States De-partment of Justice wherein Dr. Yan’s phone was taken by FBI agent Dana Murphy
-关于其中闫博士的电话被联邦调查局特工
-达娜·墨菲拿走的美国司法部的收据
-我想得到全体无异议同意
-
-Chairman
-主席
-
-That objection uh that objection
-无人反对，无人反对
-
-The gentlemen’s time has expired Mr. Gaetz
-先生们的时间已过
-
-原视频链接: [https://twitter.com/repmattgaetz/status/1403028196208087052?s=24](https://twitter.com/repmattgaetz/status/1403028196208087052?s=24)
-英听校： 康州盘古农场 – Layka
-翻译：康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

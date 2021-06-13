@@ -1,43 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## NBA球星被敦促终止与强迫劳动的中国公司的代言
-` XINYUAN` [轉載自GNews](https://gnews.org/zh-hans/1318822/)
+## 【墙内热搜】湖北十堰发生燃气爆炸，已致多人死亡
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1318970/)
 
-作者：David Brunnstrom, Michael Martina
+作者：香草山美食部 新世界的一员
 
-编译：澳喜农场-XINYUAN
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13022823/image3.jpeg)
-两党国会（行政中国委员会）主席在给美国国家篮球运动员协会的一封信中表示，十几名 NBA 球员与总部位于中国的安踏 、李宁和匹克运动服装公司达成了交易。而且最近的西方媒体发文前这些公司一直在使用新疆棉花了。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
-参议员杰夫·默克利和众议员吉姆·麦戈文在信中补充说：“球员们继续与安踏体育签署了新协议。我们认为，与在新疆采购棉花的公司有商业关系会给 NBA 球员和 NBA 本身带来声誉风险”。他们还指出，美国政府已经确定了中国在新疆实施种族灭绝和危害人类罪，并禁止从中国该地区进口棉花。信中还说“NBA 和 NBA 球员甚至不应该暗中支持这种可怕的侵犯人权行为”
 
-自 2018 年以来的报道显示，新疆当局系统性地强迫少数民族穆斯林从事强迫劳动，并且有可靠证据表明新疆棉花生产过程中存在强迫劳动。
 
-这封提供给路透社的信件还表示，安踏、李宁和匹克公开支持新疆棉花，这可能使他们成为使用强迫劳动者的同谋。
+我在单位听七哥的歌，微友发来视频，说，快看快讯，迟了估计又被删了。我一看，又是一起特大事故，共产党统治下，煤气、电梯，都是高危因素，随时能要走人们的生命。
 
-NBPA 没有立即回应。而中国驻华盛顿大使馆又站出来声称有关强迫劳动的指控是“一个无耻的谎言”。并在回复邮件中继续称：“美国和其他地方的某些势力企图搞砸新疆、遏制中国的企图永远不会成功。他们最终会搬起石头砸自己的脚。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031603/image1-7-scaled.jpg)
 
-自从2019年底以来，NBA 在中国（其最重要的海外市场）的地位急剧恶化，当时休斯顿火箭队总经理达里尔·莫雷表示支持香港的拥护民主抗议活动，随后北京的国家电视台将 NBA 比赛从频道撤下。
+事故是今天刚刚，也就是北京时间6月13号早晨6点，在湖北十堰发生的，燃气爆炸，整个现场惨不忍睹，整个菜市场都塌了，一楼整个垮了。看视频还有多名消防员受伤，说明有二次事故，大型设备在进场。
 
-去年 7 月，NBA又表示，在受到当地员工虐待年轻球员和在新疆骚扰外国员工的指控后，它正在重新评估其在中国的训练计划。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031804/image0-46-scaled.jpg)
 
-NBA 总裁亚当·西尔弗随后在 9 月表示，NBA 与中国的长期互动关系，会继续对美国和共产主义国家之间的相互理解产生“正面积极”的影响。
+今天正好是节假日放假时间，再加上是凌晨时间，不知又有多少家庭遭受伤害。
 
-评论：这次，NBA球员又一次站到了政治的风口浪尖上，这让我想起2019年香港示威游行时，休斯敦火箭队总经理达莫雷曾在推文中贴出一张写有“Fight For Freedom/Stand With Hong Kong（争取自由，与香港一起）”的图片。莫雷随后秒删并道歉，称自己不代表NBA。而NBA总裁萧华（Adam Silver）在采访中表示支持言论自由。于是中央电视总台和腾讯即宣布暂停新赛季的两场NBA中国赛转播。连外交部都拿民意说事，无端指责他们。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031633/image2-2-scaled.jpg)
 
-萧华当晚连续发声称，不会为捍卫自由言论道歉。但让很多人伤心感到遗憾。当他抵达上海，准备按原计划出席湖人队在当地的季前赛，但发现NBA 中国赛上海站的路灯宣传牌却已被拆除。
+事故发生在十堰市“四一厂”也即东风汽车公司车架厂的一个居民小区(又名艳湖小区)，居民以车架厂职工家属为主，该出事农贸市场是服务艳湖小区数万人口的唯一农贸市场。
 
-其实，NBA只想支持香港争取民主和言论自由，并未明确说明支持香港独立。言论自由不只是NBA，也是整个美国信奉的基本人权。但当时所有拒绝出席NBA活动的艺人均以“始终坚持一个中国原则，坚决维护国家领土和主权完整，坚决反对任何企图分裂国家的言论和行为”为由选边站队。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031846/2-26-scaled.jpg)
 
-NBA成员永远想不到，自己的个人行为会把整个协会拉扯进如此深的舆论旋涡，进而向所在机构施压，这是中国惩罚个人发声的惯常做法。是的，中国的政治正确是一切生意的基础，有了正确的政治观，才有相应的空间做生意。在美国人眼里，政治和商业可以明确分开。作为美国四大职业体育联盟之一，NBA球员和员工在美国国内享有批评政府的自由。NBA里有正义的力量，只要他们继续坚守，随着国人的觉醒，相信在未来的新中国，会有更多的人们支持他们，并与他们合作。
+据央视新闻消息，截至半小时前，已搜救出150人，其中12人死亡；138人受伤（其中37人重伤）。
 
-(本文仅代表个人观点)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031846/3-21-scaled.jpg)
 
-参考链接[：://www.google.se/amp/s/www.bbc.com/zhongwen/simp/world-49983207.amp](https://www.google.se/amp/s/www.bbc.com/zhongwen/simp/world-49983207.amp)
+出现如此大的人员伤亡，党匪恐怕还是会设法推卸责任，或者找牵羊罪。但完全隐瞒是不可能了，后续如何，我们拭目以待。
 
-当NBA价值观与中国核心利益发生冲撞
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031841/4-15-scaled.jpg)
 
-新闻来源：[https://www.reuters.com/lifestyle/sports/congressional-body-urges-nba-stars-end-endorsement-chinese-sportswear-2021-06-01/](https://www.reuters.com/lifestyle/sports/congressional-body-urges-nba-stars-end-endorsement-chinese-sportswear-2021-06-01/)
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
