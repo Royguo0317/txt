@@ -1,86 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 港府修订《电影审查条例》进一步打压香港人的自由
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1317720/)
+## G7的领导者们聚会，构建世界新秩序
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1317819/)
 
-新闻来源：《香港自由新闻》| 作者：RHODA KWAN | 发布时间：2021年6月11日
+作者：Gokuabuela|校对：X-Wing|审核：Beicy-数学老师|Page：小雨
 
-翻译/简评：叶知秋（文义） | 校对：X-Wing | 审核：Beicy-数学老师 | Page：我是球大哥
+[!\[\]()!\[\](https://spark.adobe.com/page/TOWEkwDiyLwsK/images/c34d90ba-6913-4a2a-9269-f4b8a7c6cc1e.jpg?asset_id=124c64ae-52f9-467a-a8ac-14cd6213a19d&amp;img_etag=%227f5fc317bd9c92436ab357bc88288346%22&amp;size=2560)](https://spark.adobe.com/page/TOWEkwDiyLwsK/images/c34d90ba-6913-4a2a-9269-f4b8a7c6cc1e.jpg?asset_id=124c64ae-52f9-467a-a8ac-14cd6213a19d&amp;img_etag=%227f5fc317bd9c92436ab357bc88288346%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/c05196d0-3334-42b2-badc-612c5ed57bc4.jpg?asset_id=ef882259-393c-4935-a7c5-f71a8325cef1&amp;img_etag=%2216aba76433a03e0eeac4f2b243586319%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/c05196d0-3334-42b2-badc-612c5ed57bc4.jpg?asset_id=ef882259-393c-4935-a7c5-f71a8325cef1&amp;img_etag=%2216aba76433a03e0eeac4f2b243586319%22&amp;size=1024)
+**简评：**
 
-香港政府在林郑月娥的带领下，正在全面中共化。香港《电影审查条例》的修订，说明港共政府跟中共学会了一样的流氓逻辑，法律随意定，出什么事就定什么法。但是，中共政权在香港镇压反送中运动，拼命维稳，是为维护他们的政权，因为他们知道，自己在中华大地作恶70多年，政权就是他们的生命，如果因为香港人发起的民主运动掀起全中国人的反共意识，必将导致他们的政权垮塌，而为虎作伥的香港政府以及为中共作恶的爪牙们，是为了什么？难道他们真的以为自己可以成为红色江山的接班人？
+从这篇文章我们可以更清楚地验证之前我们发表的七[国集团峰会将改变全球地缘政治](https://gnews.org/zh-hans/1304990/)的观点。
 
-看看如今世界范围内对中共病毒真相的追讨，看看美国正义力量对与中共为伍的福奇之流的揭露和追责，看看欧洲议会近期对欧中投资协议的冻结，再看看在中共以假治国的手段下濒临崩溃的经济，恐怕香港那些与中共国为伍的人，有着接班的心，也没有接班的机会了。
+拜登执政以后，的确像路德访谈分析的一样，一方面继承川普的与北京对抗的路线，另一方面开始全面修补与盟国，主要是指欧洲的关系。
 
-香港维多利亚公园纪念八九六四英灵烛光守夜活动持续30多年，面对中共残酷镇压，香港人可以组织上百万人游行，如今在中共撕毁中英协议，实际废除一国两制的情况下，香港人依然在坚持！香港人的意志是让人敬佩的，香港人埋藏在骨子里的不屈服于强权的精神更值得我们学习和继承。请爆料革命的战友们继续传播香港危机真相，继续传播中共病毒真相，与香港人一起，并肩作战，早日消灭中国共产党，以告慰那些在反送中运动中牺牲和被捕的勇敢的香港人，让我们中国人的圣城早日从中共的魔爪中解脱出来。
+另外，我们又看到，英国脱欧，英国和北爱尔兰的冲突，最重要的是英国希望对中共“以打促和”，希望北京成为一个“听话的伙伴”，而美国似乎态度更为坚决。
 
-**原文翻译：**
+通过峰会，如果能修补大西洋双方的内部分歧，对中共达成统一的态度，将奠定改变世界格局的基础。拜登政府的内外政策已经非常明显，对内：种族和解，刺激经济，产业链回归，收服科技巨头和华尔街；对外，联合盟国，包括日本、韩国、印度、澳大利亚，稳住俄罗斯，与中共决战。
 
-## **香港政府正在以国家安全为由审查电影**
+G7峰会，可能会是全球联合灭共的正式出发点。非常值得关注，我们将持续关注报道。
 
-*政府表示，言论自由必须与“保障合法社会利益”之间取得平衡。*
+[!\[\]()!\[\](https://spark.adobe.com/page/TOWEkwDiyLwsK/images/ad8e0bce-1cbf-4df8-b7be-e493151b26cd.jpg?asset_id=30a7edb7-1194-4c9f-8143-d27007209531&amp;img_etag=%226b474d21bb60c35bde3ef47e1298b68d%22&amp;size=2560)](https://spark.adobe.com/page/TOWEkwDiyLwsK/images/ad8e0bce-1cbf-4df8-b7be-e493151b26cd.jpg?asset_id=30a7edb7-1194-4c9f-8143-d27007209531&amp;img_etag=%226b474d21bb60c35bde3ef47e1298b68d%22&amp;size=1024)图片：来源《机密报》
 
-新的政府指引已经开始执行，允许香港当局以维护国家安全为由审查电影。
+**全文:**
 
-周五在《公报》上刊登的最新审查规则实际上允许审查员撤下他们认为违反《国家安全法》的电影。
+长期以来，七国集团峰会的作用一直受到质疑。召集世界上最富有的七个民主国家的领导人（欧盟作为嘉宾）讨论抽象的问题，然后签署一份没有法律约束力的文件，也许不是把握国际棋盘脉搏的最佳方式。通常情况下，什么都不会发生，直到有事发生。2018年的峰会表明，世界上有两个集团互相对峙着，一边是加拿大、英国、法国、德国、意大利、日本（加上欧盟作为嘉宾），另一边是美国。面对这样分裂的局面，中共国和俄罗斯则摩拳擦掌。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/ba083d82-9fcb-402c-9fcf-057520e186e6.jpg?asset_id=dd947201-8d82-421c-9098-cb6a15b802a6&amp;img_etag=%22290b4d95c422779b68feefda6c254e6a%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/ba083d82-9fcb-402c-9fcf-057520e186e6.jpg?asset_id=dd947201-8d82-421c-9098-cb6a15b802a6&amp;img_etag=%22290b4d95c422779b68feefda6c254e6a%22&amp;size=1024)照片：香港政府一站通。
+在这种情况下，本周五在英国沿海城市康沃尔开始的七国集团峰会不能被视为只是另一次峰会。这可能是近几十年来最重要的国际事件之一。出于几个原因，这是乔•拜登作为总统的第一次，他为自己的政府选择了“美国回来了”的口号，以便尽可能地与他的前任保持距离。这是英美领导人在一场大流行病之后的首次会面，这场疫情大流行不仅在全世界造成了378万多人死亡，而且还凸显了中共日益强大的影响力。这次峰会是第一次由将英国带出欧盟的古怪政治家主持。对于鲍里斯•约翰逊来说，这次峰会是一个打响全球英国品牌的机会，表明英国仍然是游戏盘上的一个重要角色。
 
-《电影审查条例》的新修订指示电影审查机构在审查电影是否适合公开放映时，必须“警惕”对“任何可能构成危害国家安全罪行的行为或活动”所做的描绘。
+各方领导人签署了一份新的“大西洋宪章”，这是温斯顿•丘吉尔和富兰克林•罗斯福在1941年缔结的条约的现代版本，重点关注包括气候变化和安全在内的挑战。在镜头前，满脸笑容。但在背后，情况就大不相同了。据《泰晤士报》披露，拜登（爱尔兰后裔）通过外交渠道指责英国首相“煽动”北爱尔兰的紧张局势，并要求他承担在《爱尔兰议定书》中向欧盟做出的承诺，这是《英国脱欧协议》的一个关键部分，以便不危及爱尔兰Ulster（阿尔斯特）地区的和平。双边会谈后，约翰逊告诉英国广播公司，在需要解决北爱尔兰的贸易问题上，英美 “完全一致”。
 
-参见：[导演、发行商和电影爱好者如何努力保持香港电影的活力](https://hongkongfp.com/2021/04/25/how-directors-distributors-and-devotees-are-struggling-to-keep-hong-kong-cinema-alive/)
+对于美国总统拜登的首次国际访问，他明确表示，民主国家与威权政权，特别是与中共国的竞争是这个时代的决定性全球挑战。他不仅维持了其前任川普总统带头采取的反对习近平政权的措施，而且还扩大了这些措施。
 
-一部“客观和合理地被视作认同、支持、宣扬、美化、鼓励或煽动该等行为或活动”的电影也可根据新指引进行审查。
+唐宁街方面认为，需要与中共国采取更多竞争与合作的混合方式，特别是全球危机，如气候变化，没有北京就无法解决。这并不是七国集团峰会前的唯一分歧。约翰逊将不得不捍卫英国的利益。但是，作为东道主，他也必须在参与者中寻求共识。而这并不是一件容易的事。
 
-“鉴于维护国家安全及有效防范或制止任何危害国家安全的行为或活动至为重要，审查员可以得出影片不宜上映的结论。”该指引写道。
+除了大流行病的康复、疫苗和气候变化之外，预计峰会议程还包括支持自由和公平贸易以及加强网络安全等议题，这是在美国最近发生网络攻击之后的一个有争议的问题。星期天，成果文件中会公布多少简洁的内容，还有待观察。在所达成的协议中，七国集团的财政部长上周已经提出了对跨国公司在其经营的每个国家至少征收15%的全球最低公司税。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/428d2d10-ae61-4112-8360-38c19861e9c0.jpg?asset_id=5cecff1a-5c28-48d6-8d3a-0866adb9b53c&amp;img_etag=%22198cc0e259258517e129ce2539b00c26%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/428d2d10-ae61-4112-8360-38c19861e9c0.jpg?asset_id=5cecff1a-5c28-48d6-8d3a-0866adb9b53c&amp;img_etag=%22198cc0e259258517e129ce2539b00c26%22&amp;size=1024)照片：维基共享资源。
+[🔗](https://www.elconfidencial.com/mundo/europa/2021-06-11/los-lideres-del-g7-se-reunen-para-disenar-el-mundo-pos-pandemia_3126391/)新闻来源：[西班牙《机密报》Los líderes del G7 se reúnen para diseñar el mundo pospandemia](https://www.elconfidencial.com/mundo/europa/2021-06-11/los-lideres-del-g7-se-reunen-para-disenar-el-mundo-pos-pandemia_3126391/)
 
-该指引还指示审查机构审查那些“很可能构成危害国家安全罪行”的电影。
-
-商务及经济发展局局长亦可指导审查人员如何行使其权力。
-
-香港的国家安全法将颠覆国家政权罪、分裂国家罪、勾结外国势力和恐怖活动定为刑事犯罪，是在数月的泛民主派抗议和骚乱之后实施的。民主派人士和人权团体批评该法律措辞含糊，侵犯了公民自由。
-
-电影、报刊及物品管理办事处负责审查和分类公开放映的电影。
-
-**‘合法的社会利益’**
-
-政府在周五宣布执行新指引时表示，言论自由必须与“保障合法社会利益”之间取得平衡。
-
-“尽管基本权利(包括上映影片时享有的发表自由)应受尊重，但行使该等权利时同时受由法律订定及以达致合理目的(例如尊重他人权利或名誉及保障国家安全或公共秩序，或保障公共卫生或道德)而必须作出的规定所限制。”政府发言人说。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/20ac00d0-7746-4a4e-ac7f-0b56cbbc8216.jpg?asset_id=02952458-713e-4b43-825a-2e21b9b4055d&amp;img_etag=%22ec7acfb3a0dfe79166620000b1a020a9%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/20ac00d0-7746-4a4e-ac7f-0b56cbbc8216.jpg?asset_id=02952458-713e-4b43-825a-2e21b9b4055d&amp;img_etag=%22ec7acfb3a0dfe79166620000b1a020a9%22&amp;size=1024)档案照片：路易丝·德尔莫特/香港自由新闻
-
-上个月，政府官员到访了工会（医管局员工阵线）办公室，警告他们不要放映两部有关天安门大屠杀的电影纪录片。
-
-据报道，去年9月，香港政府对一家独立电影发行商表示，两部关于2019年泛民主抗议活动的新纪录片必须包含对其内容的官方警告。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/3318c41b-84ee-4e01-b269-ee17655fc834.jpg?asset_id=c20411b3-73fc-469e-9150-907d765f1e7f&amp;img_etag=%228267f40d6cc93ee3a3f3f35530ea22bd%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/3318c41b-84ee-4e01-b269-ee17655fc834.jpg?asset_id=c20411b3-73fc-469e-9150-907d765f1e7f&amp;img_etag=%228267f40d6cc93ee3a3f3f35530ea22bd%22&amp;size=1024)影片开头要求影意志有限公司加入的警告。照片：影意志，来自脸书
-
-电影《理大围城》的 DVD 被电影、报刊及物品管理办事处(OFNAA)归还给制片人，但它已被破坏成碎片，审查人员称它是被意外损坏的。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/17c32f8b-5e51-4054-a0b8-b6cf11bbd9e4.png?asset_id=eeb4912b-231e-4da4-96b7-0c46e762fcf9&amp;img_etag=%22359f854e294b6d9d1ffaff57ea0fc75c%22&amp;size=3372)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/17c32f8b-5e51-4054-a0b8-b6cf11bbd9e4.png?asset_id=eeb4912b-231e-4da4-96b7-0c46e762fcf9&amp;img_etag=%22359f854e294b6d9d1ffaff57ea0fc75c%22&amp;size=1024)
-
-在周五的新指引推出之前，香港电影审查机构有权审查电影是否描绘残暴、攻击性行为或具有歧视性特征的内容。
-
-这一变化正值6月30日安全法在香港出台一年纪念日之际。
-
-本地艺术家对香港艺术表达空间和言论自由的萎缩表示忧虑。
-
-自该法实施以来，当亲北京的声音声称这是违法行为后，与抗议相关的纪录片的放映被突然取消，而香港领导人林郑月娥誓言要对危及城市国家安全的公共艺术空间保持“全面警惕”。
-
-[原文链接](https://hongkongfp.com/2021/06/11/new-guidelines-allow-hong-kong-to-censor-films-on-national-security-grounds/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
+（文章仅代表作者观点—）
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/hmMnkwLcTQUGi/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/TOWEkwDiyLwsK/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/TOWEkwDiyLwsK/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

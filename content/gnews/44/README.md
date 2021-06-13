@@ -1,48 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】美
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1317515/)
+## 中美外交官就病毒来源交锋
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1317478/)
 
-作者：香草山教育部 程万里
+中共国高级外交政策顾问杨洁篪周五与国务卿安东尼·布林肯通了电话。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
+美国和中共国的高级外交官似乎又进行了一场措辞尖锐的交锋，北京说它告诫美国停止干涉其内政，并指责美国将寻找 COVID-19 大流行的起源政治化。
 
+中共国高级外交政策顾问杨洁篪和国务卿布林肯周五通电话，暴露出在扼制香港自由和新疆西北部地区大规模拘押穆斯林等多个争议领域存在广泛分歧。
 
+杨洁篪说，中共国对布林肯所说的病毒是从中共国中部城市武汉，这个最早发现病例的地方的一个实验室里逃逸出来的“荒谬”故事表示“严重关切”。
 
-多少年了
-美在哪里
-灰霾的天
-黑浑的水
-硬让理解为水墨
+美国和其他国家还指责中共国未能提供原始数据和允许对事故原发地的造访，以便对病毒的起源和最初传播方式进行更彻底的调查。
 
-那么多年了
-花开花落 日复一年
-早已习以为常 没了颜色
+文章来源：[10tv](http://www.10tv.com/article/news/health/coronavirus/china-us-diplomats-clash-virus-origin/507-3a1f3fa0-f0be-4c68-8e2e-952c968bf19a)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12120408/10.2020.06.04-bj-cn.jpg)
+图片来源：RFA
 
-突然一天
-裂开的天
-血红中的一片蓝
-那才是美
-美在脸上
-美在心里
+编译：文复
 
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+校对发稿：Ada(马德里）
 
 0

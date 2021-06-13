@@ -1,29 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彼得·达扎克在为武汉实验室辩护时称“人们误解了中共国政府”
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1317601/)
+## 【圣城传声筒】暂别香港 —— 致被迫离乡背井的港人
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1317721/)
 
-担任世界卫生组织 COVID-19 调查员的彼得·达扎克（Peter Daszak）最近在一场采访中，似乎在为“实验室泄漏”理论进行辩护—而这一观点得到了前疾病控制和预防中心主任罗伯特·雷德菲尔德的支持。
+作者：纽约香草山香港部写作组
 
-达扎克在播客“本周病毒学”节目中采访两位世界卫生组织 COVID-19 调查员 Marion Koopmans 和 Thea Kølsen Fischer时说：“第四种情况是实验室事故，这种说法已经持续了一年。刻意造毒我们现在按下不表，现在我们考虑意外释放，我很想听听您们对此的看法，”。
 
-“我从实验室主任那里听到的一件事我觉得很有趣，我们问了他所有这些问题，他们在那边称之为谣言，我们称之为阴谋论，我们没有回应这些谣言，因为如果你这样做，你就会助长他们。”
 
-达扎克经营着福奇资助的生态健康联盟，该联盟因向武汉实验室提供资金而受到审查，他还暗示人们“误解了中共国政府”，同时透露一名中国共产党高级官员运作着该实验室。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
 
-“所以我认为人们误解了中共政府，他是中共国政府的一名高级工作人员，运作着一个实验室，在他们被指控的时候没有说话，原因是，他已经说得很清楚了，他们不想助长这些阴谋。他们是没有根据的。他们发出了声明：这一切根本不是真的。你们要干什么？
 
-另一位受访者 Thea Kølsen Fischer 还透露世卫组织的调查不是“实验室审核”，而只是与武汉实验室人员的问答练习。她说：“这只是基于询问，而不是我们带着拭子、测试、血清学跟进或调查实验室，因为这不是实验室审核。我们只在那里进行提问和采访，”
 
-评论：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12152754/51.jpg)图片来源：苹果日报
 
-从套取美国国家卫生研究院NIH的资金转而资助武汉病毒研究所，到2020年4月发给福奇对其“病毒是自然外溢”说法表示感谢的邮件被曝光，无数行径证明了达扎克是中共长期豢养的美科学界打手，邪恶又廉价。事到如今，他仍然在为中共脱罪而造谣，准备与中共绑在一个战车上疾驰向万丈深渊，灭共的进程会将这些鬼魅暴露在阳光之下，等待他们的只可能是世界正义力量的审判。
+早晨，出⻔上学
 
-文章来源：[thenationalpulse](https://thenationalpulse.com/breaking/daszak-defends-ccp-from-lab-leak-conspiracy/)
+妈妈说，不坐⻋ 走路吧
 
-编译：文复
+多踩踩香港的地气
 
-校对发稿：Ada(马德里）
+街上，有穿警服的
+
+妈妈说，别去盯着看哦
+
+千万不要沾到晦气
+
+转眼，抗争两年过去
+
+妈妈说，要记得他们哦
+
+看香港人多有勇气
+
+不久，无奈将要离去
+
+妈妈说，明年再回来吧
+
+那时肯定没有邪气
+
+梦里，亲吻紫荆花旗
+
+妈妈说，一切都已过去
+
+来闻香港自由空气
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115247/M6.jpg)
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+
+
 
 0
