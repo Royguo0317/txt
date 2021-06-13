@@ -1,37 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国司法部正式调查刘特佐等人的“一马”案以及政治构陷案
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1317620/)
+## 2021/06/12-001 文贵先生盖特精要
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1317709/)
 
-#### **翻译：蜜蜂 | 责编：沙拉猫**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12140357/doj_seal.jpg)
-**美国司法部**
-公共事务部
-日期：2021年6月11日（星期五）
+听写： Jennifer | 校对：樂禧禧 | Page：我是球大哥
 
-**美国艺人/商人和马来西亚籍人士被控参与后方渠道游说活动，试图游说美国停止调查一马公司案，并遣返中国异见人士**
+[!\[\]()!\[\](https://spark.adobe.com/page/RtzltM4Ad7KcO/images/84135e76-bcc6-4b82-980d-0f008863356b.png?asset_id=705b117d-3447-41d1-a03c-73405c4d0da5&amp;img_etag=%2218f86d361f73791fe7069868995ffb21%22&amp;size=1024)](https://spark.adobe.com/page/RtzltM4Ad7KcO/images/84135e76-bcc6-4b82-980d-0f008863356b.png?asset_id=705b117d-3447-41d1-a03c-73405c4d0da5&amp;img_etag=%2218f86d361f73791fe7069868995ffb21%22&amp;size=1024)
 
-美国哥伦比亚特区联邦地区法院大陪审团于本周四提交了一份《追加起诉书》，指控一名美国艺人和商人以及一名马来西亚籍人士自2017年（或前后）开始策划一场未注册通过后方渠道的活动，企图对当时的美国总统府和司法部施加影响，使其放弃对刘特佐（Jho Low）等人与一间名为“一马发展有限公司”（1MDB）的国际战略及发展公司的有关调查，并将一名中国异见人士遣返回中国。
+6月12号：尊敬的战友们好．美国司法部全面介入调查，2020年美国总统大选！和美国司法部公诉孟建柱的私生子刘特左．将对在美国潜伏的特务网．吴争……韦石……等．开始全面司法调查．中南坑老杂毛们也开始了残酷的政治内战……这一切都会让我们加速消灭中国共产党……
 
-根据该《追加起诉书》，39岁的刘特佐（又称Low Taek Jh ，Jho Low）和48岁的米歇尔（Prakazrel “Pras” Michel）被控与埃利奥特·布罗伊迪(Elliott Broidy)、尼基·拉姆·戴维斯(Nickie Lum Davis)和其他人合谋，分别在刘特佐和中华人民共和国公安部副部长的指示下，从事未公开的游说活动，以求撤销对刘特佐和其他人涉嫌“一马公司”贪污案的调查和没收程序，并将一名中国异议人士遣返回中国。米歇尔和刘特佐还被控密谋进行与外国影响活动有关的洗钱行为。米歇尔还被控干扰证人和密谋向银行做出虚假陈述。
+[G-TV链接](https://gtv.org/getter/60c4be95e15f7e227ef02176)
 
-2019年5月，米歇尔和刘特佐在哥伦比亚特区被控策划和隐瞒了一起外国资金和渠道政治捐款计划【注：未得到竞选活动授权筹集资金的人，他们接收指定用途的捐款并将其转发给竞选活动的候选人或候选人的授权竞选委员会】。他们将刘特佐的数百万美元资金作为所谓的合法竞选捐款而投入美国总统竞选，同时隐瞒了这些资金的真正来源。根据起诉书，为了实施该计划，米歇尔接受了刘特佐的资金，并将这些钱亲自以及通过约20名“稻草捐款人”【注：指以非法利用他人资金以个人名义进行政治捐助的人】捐了出去。
+[!\[\]()!\[\](https://spark.adobe.com/page/RtzltM4Ad7KcO/images/0ffe8125-c1ae-4bc5-a25d-e6509701af39.png?asset_id=57a053eb-3f5b-4b96-8e49-aaf66f09dc22&amp;img_etag=%22288e4b5ac8b2498090aa5004efe226f0%22&amp;size=2560)](https://spark.adobe.com/page/RtzltM4Ad7KcO/images/0ffe8125-c1ae-4bc5-a25d-e6509701af39.png?asset_id=57a053eb-3f5b-4b96-8e49-aaf66f09dc22&amp;img_etag=%22288e4b5ac8b2498090aa5004efe226f0%22&amp;size=1024)
 
-若罪名成立，刘特佐将面临每项罪名5至10年监禁的最高刑罚。如果被定罪，米歇尔面临的最高刑罚则是每项罪名5至20年监禁。联邦地区法院的法官将在考虑《美国量刑指南》和其他法定因素后作出量刑判决。
+1.24小时以内盖特功能关闭，今晚12点会移到新盖特平台，数据可以保存并转移。
 
-司法部刑事司副助理检察长凯文·德里斯科尔（Kevin O. Driscoll）、司法部监察长办公室及网络调查办公室主管、特别探员基斯·博纳诺（Keith A. Bonanno）、联邦调查局洛杉矶办事处主管、助理主任克里斯蒂·约翰逊（Kristi Koons Johnson）和联邦调查局纽约办事处主管、助理主任威廉·斯威尼（William F. Sweeney）宣布了本消息。
+2.昨天美国司法部 宣布美国大选的事情，这就是美国的法治，拜登总统也不能改一个数据。大选和美国司法部、国会山不可能让100%的人满意。拜登选的司法部长司法部长该干啥干啥 ，川普总统选的司法部长该不干啥就该不干啥，这就是美国。
 
-司法部监察长办公室和联邦调查局洛杉矶办事处以及联邦调查局驻纽约国际反腐特别小组正在调查此案。
+3.美国大选事件 可以看出一个国民的素质，没有暴乱。司法部事件太大了，司法部起诉刘特左，是孟建柱的私生子，曾经要遣返七哥，这个事一定会搞清楚的！
 
-刑事司公共廉政局首席副局长约翰·凯勒（John D. Keller）、选举犯罪办公室副主任肖恩·慕林（Sean F. Mulryne）和上庭律师尼可·洛克希特（Nicole R. Lockhart）正在对此案提起公诉。
+4.吴征是中国的特务，吴征和刘特左像亲兄弟一样，FBI和我说，很难相信刘特左是孟建柱的私生子，我说你不相信是因为你不知道共产党的邪恶！刘特左在美国没那么简单，他是共产党生殖器治国的间谍活动一部分，他没有太具体的任务，但有一生的完整任务：干掉美国，搞掉西方世界。
 
-起诉书只是对被告提出指控，在法庭排除合理怀疑证明其有罪前，所有被告人均被视为无罪。
+5.没有爆料革命 没有七哥的今天 没有公平，没有清白。2017年我就知道吴征起诉我，他威胁我，我申请政治僻护。
 
-主题：金融欺诈、腐败
-部门：刑事司
-新闻发布稿序号：21-547
+6.国内政治经济一堆问题，香港 、台湾、中美关系 、一带一路、俄罗斯 、新疆事件，剑指习近平，据说韩正当总理，可能一步之遥当主席。以美灭共，以共灭共，可能要倒过来了！可能要先以共灭共吧！
 
-&gt;&gt;公文链接&gt;&gt;[U.S. Entertainer/Businessman and Malaysian National Charged with Back-Channel Lobbying Campaign to Drop 1MDB Investigation and Remove Chinese Dissident from U.S.](https://www.justice.gov/opa/pr/us-entertainerbusinessman-and-malaysian-national-charged-back-channel-lobbying-campaign-drop)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/RtzltM4Ad7KcO/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/RtzltM4Ad7KcO/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

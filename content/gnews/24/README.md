@@ -1,31 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国敦促美俄削减核武库
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1317789/)
+## 亚利桑那州的“国家审计”手工清点最后一日
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1317968/)
 
-中共国外交部长王毅周五在联合国主持的日内瓦裁军谈判会议上呼吁美国和俄罗斯削减核武库。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-虽然华盛顿一直在宣传中共国的核武库，但这只是美国和俄罗斯拥有的一小部分。估计中共国的高级核库存为 350 枚弹头，俄罗斯拥有约 6,350 枚弹头，而美国拥有 5,800 枚。
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12191527/A-10.jpg)survivethenews.com
+持续关注“国家审计”的进展情况。
 
-尽管数字如此，美国抱怨北京不想进入军控谈判。但除非美国和俄罗斯努力削减其武器库，否则中共国没有动力这样做。无论如何，美国继续将这个问题归咎于中国。
+《门道专家》发文，“亚利桑那州最后一天清点：预计将出现巨大差异——（又有）两个州代表团参观审计”。【1】
 
-美国裁军大使罗伯特伍德在会议上说：“迄今为止，中共国拒绝了美国就降低风险和战略稳定启动双边谈判的努力，”
+文章说，在手工清点过程的最后一天，两个州代表团参观了美国的“国家审计”。
 
-除了拥有比北京多得多的核武器外，美国还在用军事硬件包围中共国。美国计划在中共国附近部署中程导弹，这些导弹之前被美国于 2019 年退出的《中程核力量条约》禁止。
+6名威斯康星州共和党议员和前密苏里州州长埃里克·格雷滕斯（Eric Greitens）出现在了亚利桑那州凤凰城的退伍军人纪念体育馆内。
 
-王毅对美国进一步军事化亚洲的计划进行了抨击，他认为这破坏了地区稳定。
+威斯康星州是一个摇摆不定的州，在大选日的深夜，我们看到了一个神秘的、无法解释的选票（图表的）掉落，（一时间）选票全都抛给了乔·拜登，州立法者必须在为时已晚之前采取行动。
 
-他说：中方反对个别国家发展和部署破坏战略稳定的地区和全球导弹防御系统，反对一个国家在周边国家部署陆基中程弹道导弹。
+川普总统在密苏里州获胜，但埃里克·格雷滕斯（Eric Greitens）在这里观察这一过程，并将一些想法带回他的州。
 
-评论：
+手工清点工作即将结束，他们预计选票总数将出现巨大的差异。
 
-武器是中性的，关键是掌握在谁的手中，用来做什么。中共的此番叫嚣，属于例行狂吠，贼喊捉贼，其实暗里明里早已对世界使出了超限生物武器，发动了战争,杀人无数。只有尽快消灭中共，才能清除这世界上包括核武威胁在内各种深层次威胁。
+如果有任何少于马里科帕（Maricopa）郡认证的选票数量，这都是选举舞弊的证据。
 
-文章来源：[路透社](https://www.reuters.com/world/middle-east/china-urges-us-russian-nuclear-cuts-progress-iran-talks-2021-06-11/)
+（原文完）
 
-作者：文复
+手工清点后的选票与选举管理委员会确认的票数“出现巨大差异”，仅此一条是不是就可以否定该州的“大选结果”？
 
-校对发稿：Ada(马德里）
+从一开始就阻止“审计”，到派出上百人的律师团队给法院施压，法院几次裁定“驳回审计”诉求，以及下达“停止审计”命令，再到向司法部请求，要求“停止审计”，直至昨天（6月11日）司法部长梅里克·加兰（Merrick Garland）站到前台发话，对质疑选举舞弊欺诈的“国家审计”要严格审查【2】……
+
+而亚利桑那人的回答却是：“美国能是一个由一群骗子管理的香蕉共和国吗？”更有前战斗机飞行员、亚利桑那州参议员温迪·罗杰斯（Wendy Rogers.）女士警告梅里克·加兰，“你不能碰亚利桑那州的选票或机器，除非你想在亚利桑那州监狱里待着。”【3】
+
+已经8个多月了，亚利桑那州的爱国者在为美国谱写历史，创造历史，期待改变历史！
+
+参考链接：
+
+【1】[https://www.thegatewaypundit.com/2021/06/last-day-counting-huge-discrepancies-expected-2-state-delegations-tour-audit/](https://www.thegatewaypundit.com/2021/06/last-day-counting-huge-discrepancies-expected-2-state-delegations-tour-audit/)
+
+【2】[https://gnews.org/zh-hans/1315960/](https://gnews.org/zh-hans/1315960/)
+
+【3】[https://www.thegatewaypundit.com/2021/06/arizona-lawmaker-responds-ag-garland-will-not-touch-arizona-ballots-machines-unless-want-spend-time-arizona-prison/](https://www.thegatewaypundit.com/2021/06/arizona-lawmaker-responds-ag-garland-will-not-touch-arizona-ballots-machines-unless-want-spend-time-arizona-prison/)
 
 0
