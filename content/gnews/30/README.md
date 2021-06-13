@@ -1,25 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】大战地硝烟已经在全球燃起——巴基斯坦省阻止未接种疫苗的 SIM 卡
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1318643/)
+## 已打疫苗者 因血栓风险不适合长途飞行旅游！
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1318697/)
 
-小象：泰勒德登2021 年 6 月 12 日发表文章：巴基斯坦省阻止未接种疫苗的 SIM 卡。这篇文章描述了巴基斯坦，中共的老朋友用手机的使用权来强迫人们接种疫苗，我不能肯定这一幕是否是一个试验场，好久以前，在委内瑞拉，已经做过一场实验，用食物来控制人民的选举权，以至于一个独裁政权把一个南美最富有盛产世界小姐的国家变成了民众沿街乞讨的最为贫困的国家之一，当然之后有另外的政治势力崛起，但是我们很少看到新的委内瑞拉的报告，至少目前是不清楚的。巴基斯坦在利用疫情，做出一系列的信息整合，信息监控，以达到资源的再分配，这个和中共国的做法十分的相似，只不过巴基斯坦往数字集权化的方向走的更加前面一些。以下内容是文章的部分摘要，看看泰勒是如何看待这个事情的：
+台湾宝岛农场 马克强
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13005842/%E6%93%B7%E5%8F%96613-6.jpg)
+中共在2019年底以迅雷不及掩耳之势放出了COVID19病毒，肆虐并重创全球经济与毒杀人类的性命。  而国际医药大厂在国家政府的紧急状态之下，被核准了历经1年多左右且尚在做动物实验的疫苗给人类施打。 一般而言，疫苗发展的时间最少历经10年以上。  然而，COVID19疫苗在仓促的情况下施打在人体上，果然造成了成千上万的人产生了许许多多的副作用，如肢体颤抖、脸部麻痹、女性月经紊乱与大出血、血栓、心脏疾病、脑部损伤、及生殖系统等问题（注1）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13004849/%E6%93%B7%E5%8F%96613-0-1.jpg)
+在全球接种疫苗人数将近达9亿人同时（2021年6月5日）（注2），西班牙以及俄罗斯航空则警告接种COVID19疫苗者不适合搭飞机旅行，因为在高空的状态之下人体可能会产生血栓的情况。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13004900/%E6%93%B7%E5%8F%96613-1-1.jpg)
+西班牙新闻网站指出：’航空公司正在解决血栓问题，并建议注射疫苗的人不要参与搭乘旅行’。  因为施打实验性mRNA疫苗者之血液中存在血栓的风险。  依照航空相关规定（非针对新冠疫苗），具有血栓高风险者只能够在严密的监督之下才能搭乘飞行。  接种疫苗者，在飞行航程到达一定的高度时，发生中风、形成血栓或心脏病等并发症的风险极高。  有几份报告警告说，接受注射疫苗者（无论哪一种疫苗）可能会出现凝血与出血的问题，这就是主要的原因。
 
-“巴基斯坦预计下一财年将花费超过 10 亿美元进口 COVID-19 疫苗，为约 1 亿人接种。问题是，全国各地涌现出反疫苗团体，并阻止了一些人接种疫苗。据RT News报道，作为回应，巴基斯坦的一个地方政府在其战争资金中拥有了一种新武器来对抗疫苗犹豫：禁用拒绝被接种疫苗的人的手机SIM卡。 旁遮普省卫生部长 Yasmin Rashid 周四在与旁遮普省政府和军方官员会面时决定，任何拒绝接受 COVID-19 疫苗的人都将在“特定时间”禁用其 SIM 卡。“我们正在尽一切努力强迫人们接种疫苗……政府不能让不想接种疫苗的人冒着已经接种疫苗者的生命危险，”拉希德说。她补充说，一旦新措施获得国家指挥和运营中心的正式批准，从一个人拒绝接种到拒绝 SIM 卡的时间表将被确定，该中心负责监督巴基斯坦对 COVID-19 的全国反应。 会议结束后，旁遮普省的初级和二级卫生部门在推特上写道：  “没有接种疫苗的人的移动 SIMS 可能会被封锁，这是由卫生部长Yasmin Rashid 博士主持的内阁会议决定的。没有关于何时开始阻止 SIM 卡的消息。然而，省级官员宣布该计划正在推进：部门发言人赛义德·哈马德·拉扎 (Syed Hammad Raza) 告诉巴基斯坦的黎明报：“最终决定阻止未接种疫苗的人的移动 SIM 卡。”批评人士称，旁遮普邦的新措施是政府的危险举动。 “这是一个倒退的步骤，因为它影响了公民的言论自由权。需要的是提高对疫苗接种的认识，而不是强制，”印度软件自由法律中心的法律主任 Prasanth Sugathan 告诉国家报。“在大流行期间，手机对于人们与他人联系和接收信息很重要，”Sugathan 说。 除了 SIM 卡禁令外，拒绝接种疫苗的人也可能被限制进入餐馆、商场和公园。 这绝对是荒谬的，想象一下，如果美国一个自由主义的都市区采取这种没有接种疫苗就没有电话的措施，人们会失去理智并可能反叛。“
+另外一家俄罗斯新闻门户网站指出：’任何接种过SARS-CoV-2冠状病毒疫苗的人可能不再被允许登机’。  叶夫根尼.  科瓦列夫医生告诉公共新闻社，那些接种了冠状病毒疫苗的人搭乘飞机旅行可能具有极高的风险性。  欧洲已经在讨论限制接种疫苗者搭乘飞机的可能性。  主要是，冠状病毒疫苗会影响与凝血相关的功能，而这会增加形成血栓的风险。  科瓦列夫说，在飞行过程中旅客长时间处于坐姿，而这样会使情况更糟糕。  （注3）
 
-西方的某些国家某些地方已经开始这么做了， 比方说某些航空公司。这中状况应该最热衷于控制民众，或者以控制民众为自己终身目标的政权的热爱，他们在世界各地进行不同程度的尝试，试探，实验，意图以最温和的最让人察觉不到他们真实意图的方式来实现。尤其是中共国以及向中共国学习政权江山代代相传经验的独裁政府。而西方的国家，现在正在开始聚焦病毒真相，在病毒真相揭开的这一段难过的时间里，疫苗爱好者正在快马加鞭地争取每一分钟，这好像是大家都在和时间赛跑。在小象看来， 这是正义和邪恶正在正面交锋，大战地硝烟已经在全球燃起。
+甚至，在美国的疾病控制与预防中心（CDC）的网站中，也有关于搭飞机超过4小时可能出现血栓的警告（注4）。   而这样的情况对于接近9亿已接种疫苗者，除了必须面对接下来中、长期可能未知的副作用之外，而如今的这个消息，无疑问的是让已经打疫苗者在加上另一个严重的’副作用’。
 
-参考链接：
+姑且无论疫苗背后所牵涉到的复杂政治、商业利益等问题。  在这些庞大的媒体各国政府强力宣传施打疫苗之际，似乎刻意的忽略了简单、便宜而有效、且极少副作用的药物，如羟氯喹+锌、阿奇霉素或依维菌素等（注5）。  并且，这些便宜的药物在疫情以来，已经获得相当多临床医生与科学家证实具有相当优秀的预防与治疗COVID19病毒的效果。
 
-[https://www.zerohedge.com/covid-19/pakistans-punjab-province-decides-block-sim-cards-people-refusing-vaccines](https://www.zerohedge.com/covid-19/pakistans-punjab-province-decides-block-sim-cards-people-refusing-vaccines)
+最后，这疫苗到底要不要打？  是你由自己决定，而不是在受威胁的情况下被逼而施打的。  所以，最终的结果与影响是一辈子无法回复，都是由你自己来承担！  聪明的你能不用心点多作一些功课吗？
 
-图片来源：[https://www.zerohedge.com/](https://www.zerohedge.com/)
+（本文仅代表个人立场）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09152702/COVID19_AQ.png)
+数据源 ：
 
-整理撰稿：蓝精灵
+1. [Vaccine researcher admits ‘big mistake,’ says spike protein is dangerous ‘toxin’](https://www.lifesitenews.com/news/vaccine-researcher-admits-big-mistake-says-spike-protein-is-dangerous-toxin)
+2. 谷歌统计数据
+3. [Medien in Spanien und Russland: Fluggesellschaften gehen das Problem der Blutgerinnsel an und empfehlen geimpften Personen, nicht zu reisen | uncut-news.ch](https://uncutnews.ch/medien-in-spanien-und-russland-fluggesellschaften-gehen-das-problem-der-blutgerinnsel-an-und-empfehlen-geimpften-personen-nicht-zu-reisen/)
+4. [Blood Clots and Travel: What You Need to Know](https://www.cdc.gov/ncbddd/dvt/travel.html)
+5. [伊維菌素？借鏡印度– GNEWS](https://gnews.org/zh-hant/1299198/)
 
-校对发布：Penny
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+审核、校对╱早不稻仁
 
-0
+发布╱little  liu
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
++1
