@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大象快讯】加拿大总理特鲁多呼吁七国集团对中国采取协调一致的态度
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1318161/)
+## 【有声读物】世纪大案 39：FBI局长雷，咆哮的马特·盖茨，愤怒的班大爷
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1318255/)
 
-一位消息人士称，加拿大总理贾斯汀·特鲁多周六领导了七国集团关于中国的讨论，并呼吁领导人就中华人民共和国提出的挑战采取统一的方法。了解讨论情况的消息人士告诉路透社，G7 领导人共同控制着约 40 万亿美元的经济影响力他们就建立对华协调一致的方式达成广泛一致。
+录音：信念7
 
-消息人士说：“特鲁多今天传达的信息是，我们确实需要努力达成共识，以统一方法应对中国给我们所有人带来的挑战。” “我们必须表现出作为一个群体的团结，也必须表现出作为一个群体的行动。”
 
-消息人士称，七国集团在中国问题上“有一个大体一致”。
 
-加拿大作为中共渗透最为严重的国家之一，在美国对中共采取的一系列的行动之后，一直在观望，很少在公开场合表态。这次G7峰会如果确实有这样的发言，在G7峰会上， 加拿大至少表明了立场。但也不排除表面作秀，自从去年中美关系恶化以来，加拿大鲜有行动。
+2021年6月11日，众议院司法委员会召开听证会，传FBI局长雷(Christopher Wray)听证。川普上任的2017年提名自己人雷(Christopher Wray)任第八任FBI局长。雷之前在著名律所King & Spalding LLP做诉讼合伙人(litigation partner)，重要客户之一就是郭文贵先生。王岐山通过海航给律所大单，暗中收买了雷。川普总统交给他拜登腐败案，结果他按下了案件，让川普错失大选([世纪大案 17：贼喊捉贼](https://gnews.org/zh-hans/441412/) )。
 
-参考链接：
+文字版原文：[【世纪大案】39：FBI局长雷，咆哮的马特·盖茨，愤怒的班大爷](https://gnews.org/zh-hans/1313031/)
 
-[https://www.reuters.com/world/china/canadas-trudeau-called-concerted-g7-approach-china-source-2021-06-12/?taid=60c545daa6698a0001b8813c&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/china/canadas-trudeau-called-concerted-g7-approach-china-source-2021-06-12/?taid=60c545daa6698a0001b8813c&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
 
-图片来源：[https://www.reuters.com/](https://www.reuters.com/)
+发稿：奇门遁甲
 
-整理撰稿：蓝精灵
+**更多资讯，更多关注**
 
-校对发布：Penny
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-+1
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+0

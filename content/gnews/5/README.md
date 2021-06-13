@@ -1,52 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月12日劳伦斯.塞林博士推特合集:协助闫丽梦博士的丈夫进入美国的人必须受到调查
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1318309/)
+## 【鹰眼墙国】自由贸易“有法可依”，海南自贸港创“佳绩”？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1318333/)
 
-劳伦斯·塞林博士： 解决方法很简单。 爱国的美国人希望闫丽梦博士的丈夫 Ranawaka A P M Perera 被驱逐出美国，因为他是对她的人身安全和美国国家安全的威胁。 那些协助他进入美国的人必须受到调查。
-
-
-
-> The solution is very simple. Patriotic Americans want Ranawaka A P M Perera, Dr Li-Meng Yan's husband, deported from the United States as a threat to her physical safety & the national security of the United States. Those who assisted his entry into the U.S. must be investigated. [pic.twitter.com/MnGXU64Unm](https://t.co/MnGXU64Unm)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403754545759625218?ref_src=twsrc%5Etfw)
+作者：香草山农场  鹰(文言)
 
 
 
-劳伦斯·塞林博士： 我请求 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探们进行调查，并在此处贴出在这些图像中的人员和机构之间的相互联系，并在此处发布。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
 
-> I request that the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives investigate and post here the connections among the persons and institutions in these images and post here. [pic.twitter.com/xYQNzrqXg5](https://t.co/xYQNzrqXg5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403740965098164224?ref_src=twsrc%5Etfw)
+新浪网6月10日转载央视报道，中共人大常委会正式通过《中华人民共和国海南自由贸易港法》，为2020年6月划定的海南全岛设立自贸区补充了法律依据。
+
+2020年6月中共推出《海南自由贸易港建设总体方案》妄图将海南省作为替代香港进行国际贸易和吸引外来投资的“利器”，不但设定部分商品免征进口关税、进口环节增值税和消费税更有个税封顶15%、岛内免税购买、海南产货物进内地免税等宏利。根据中共数据，海南自贸港建设满一周年，全省重点园区营收达4665.34亿元，同比增长八成，且新增注册企业3.82万家。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12225510/Untitled-design-2021-06-12T205141.959.png)
+首先参考海南省统计局发布的2019年数据，19年海南省重点产业园区吸引15478家企业落户（其中新入园4059家），全年营收达3178.16亿元，而上述4665.34亿元的营收同比增长幅度31.9%，远达不到八成水准。
+
+鉴于19年仅有4059家企业“新增”入园，而2020年却翻了9.4倍达3.82万家，企业所带来的就业以及经济增长都应远高于19年，然而GDP却仅从5308．94亿元提升至5532.39亿元（同比增长4.2%）。
+
+20年新增企业比19年多34141家，即便以最低人数的小微企业粗算（平均岗位招聘人数4.1人），新增就业规模约13.6万，然而2020年的新增城镇就业相比19年非但没有增加反而减少900达14.4万人，数据的不自洽所反映的则是2020年统计数据的极度夸大。
+
+再者，作为中共首推的最大面积的自贸港又有诸多免税红利，的确受到外资的“追捧”，2020年全省外商直接新设立企业1005家（19年对应为338家），实际使用外伤投资金额30.33亿美元（同比增长100.7%），然而2020年海南省货物进出口总额却只有3%的涨幅达933亿元，国内贸易额为1974.63亿元（同比提升1.2%），即外商企业数量的猛增并没有显著带动对内对外的经济增长，究竟是上述外资被虚报了还是被克扣挪用了？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12225548/Untitled-design-2021-06-12T204407.559.png)
+2020年海南省常住居民人均可支配收入为27904元，同比增长4.6%，但作为减免税收（如个税封顶15%）的“自贸港”个人所得税却实现10.6%的涨幅。
+
+《自由贸易港法》实行了最严格的生态环境保护制度，然而在自贸港建设的一年中，用于节能环保的财政支出却同比降低10.9%，协调发展沦为“纸上谈兵”。
+
+综上，无论是贸易数据还是税收方面，海南自贸港都名不符实，中共对中英声明的公然违背以及对香港自由民主抗争的残酷镇压手段都让自由贸易成为过去时，而伴随国际与中共脱钩进程加快，自贸港也将形同虚设。
+
+新闻来源：
+
+超级重磅！海南自由贸易港法通过！有何深意？https://news.sina.com.cn/c/2021-06-10/doc-ikqcfnca0326460.shtml
+
+详解海南自贸港：全岛零关税 税率比肩香港新加坡https://news.sina.com.cn/c/2020-06-02/doc-iirczymk4766326.shtml
+
+深度解析！全球最大自由贸易港来了！为什么海南自贸港或将取代香港！https://new.qq.com/omn/20210402/20210402A017JA00.html
+
+2019年海南省重点产业园区营收3178.16亿元 同比增长12.48% https://www.askci.com/news/zsdt/20200602/1737411161293.shtml
+
+海南自贸港，重点园区亮点足（经济聚焦）http://finance.people.com.cn/n1/2021/0408/c1004-32072284.html
+
+2019年海南省国民经济和社会发展统计公报http://zw.hainan.gov.cn/hainan/tjgb/202003/eb3a424d5a514c819aa285c9bd39ba21.shtml
+
+2020年海南省国民经济和社会发展统计公报http://www.hinews.cn/news/system/2021/02/10/032507805.shtml
+
+2021年中国数字经济行业就业市场现状分析 小微企业需求大、上市公司薪资回报较高 https://3g.163.com/dy/article/GBB7HMTS051480KF.html
+
+校对/发稿：火内
 
 
 
-劳伦斯·塞林博士： 遗憾的是，FBI (联邦调查局)在政治上妥协了，而且腐败到了无可救药的地步。 它是民主党和所有相信效仿 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 一党制国家的执法机构——美国的盖世太保或克格勃。 不能再相信它在法律下会行使平等正义。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
 
 
 
-> Regrettably, the FBI is politically compromised & hopelessly corrupt. It is the law enforcement arm of the Democrat Party & all those who believe in a one-party state modelled after the CCP – American Gestapo or KGB. It can no longer be trusted to apply equal justice under law. [https://t.co/yMLZOGg94O](https://t.co/yMLZOGg94O)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403644251473338371?ref_src=twsrc%5Etfw)
+**更多资讯，更多关注**
 
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-劳伦斯·塞林博士： 下周我计划与一些美国国会议员会面。 我会请他们调查，为什么闫丽梦博士的丈夫(据她说)在有暴力行为和威胁言辞的情况下，会出现在美国，以及谁在美国帮助 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 让他进来干肮脏的事情。 【图片文字：美国众议院情报常设委员会 （HPSCI）】
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-> Next week I have a planned meeting with members of the U.S. Congress. I will ask them to investigate why Dr. Li-Meng Yan's husband is in the U.S. given, according to her, his violent actions and threats and who in the U.S. helped the CCP get him in to do its dirty business. [pic.twitter.com/J0pTYDD2Kf](https://t.co/J0pTYDD2Kf)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403610680738123777?ref_src=twsrc%5Etfw)
-
-
-
-劳伦斯·塞林博士： 我们确切地知道闫丽梦博士的丈夫在哪里。 当他突然出现在她附近工作时，他在香港的一个实验室里有很好的位置。 我们想知道在美国有谁在帮助 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 干他们的肮脏勾当。 调查记者们正在追踪。
-
-
-
-> We know exactly where Dr. Li-Meng Yan's husband is. He was well-established in a lab in Hong Kong when he suddenly appears working near her. We want to know who in the U.S. is helping the Chinese Communist Party in their dirty business. Investigative reporters are on the trail. [https://t.co/f0GRSreEr1](https://t.co/f0GRSreEr1)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403605415477362690?ref_src=twsrc%5Etfw)
-
-
-
-+1
+0
