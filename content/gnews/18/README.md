@@ -1,29 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共让一半孩子不能读高中目的何在？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1318644/)
+## 已打疫苗者 因血栓风险不适合长途飞行旅游！
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1318697/)
 
-撰稿：自由战士
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13000837/20210613_task2_Cover.jpg)（图片来自网络）
-2020年，中共国各地官方发布的关于《普通高中招生工作的通知》，明确指出职高和普通高中的比例为5:5。这项政策在2021年持续在巩固落实中，这就意味着有一半的孩子会在将来不能受到高等教育，当然在邪恶中共国的教育从幼儿园到大学洗脑教育一直伴随着。我们从下面几个方面可以整体分析一下这个邪恶计划的目的：
+台湾宝岛农场 马克强
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13005842/%E6%93%B7%E5%8F%96613-6.jpg)
+中共在2019年底以迅雷不及掩耳之势放出了COVID19病毒，肆虐并重创全球经济与毒杀人类的性命。  而国际医药大厂在国家政府的紧急状态之下，被核准了历经1年多左右且尚在做动物实验的疫苗给人类施打。 一般而言，疫苗发展的时间最少历经10年以上。  然而，COVID19疫苗在仓促的情况下施打在人体上，果然造成了成千上万的人产生了许许多多的副作用，如肢体颤抖、脸部麻痹、女性月经紊乱与大出血、血栓、心脏疾病、脑部损伤、及生殖系统等问题（注1）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13004849/%E6%93%B7%E5%8F%96613-0-1.jpg)
+在全球接种疫苗人数将近达9亿人同时（2021年6月5日）（注2），西班牙以及俄罗斯航空则警告接种COVID19疫苗者不适合搭飞机旅行，因为在高空的状态之下人体可能会产生血栓的情况。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13004900/%E6%93%B7%E5%8F%96613-1-1.jpg)
+西班牙新闻网站指出：’航空公司正在解决血栓问题，并建议注射疫苗的人不要参与搭乘旅行’。  因为施打实验性mRNA疫苗者之血液中存在血栓的风险。  依照航空相关规定（非针对新冠疫苗），具有血栓高风险者只能够在严密的监督之下才能搭乘飞行。  接种疫苗者，在飞行航程到达一定的高度时，发生中风、形成血栓或心脏病等并发症的风险极高。  有几份报告警告说，接受注射疫苗者（无论哪一种疫苗）可能会出现凝血与出血的问题，这就是主要的原因。
 
-首先，郭先生前几天的盖特有说这个中美大学教育的学校对比情况，美国一共三亿左右人口，但是他们的大学有7000多所，而且顶尖的学校可以说是不计其数。大家知道全球大学教育最好的就是美国，也是因为优秀的大学教育，让美国在科技，人文，经济，军事等等各个方面都一直保持在世界前列。美国不仅能够吸引全球的顶级人才，同样也有完整的培养人才的一个完整的大学教育体系。但是反观中共国，14亿人口，但是大学就1000多所，而且里面90%以上都是政府背景，这样就要服从党的领导，听从党的安排，然后就没有了所谓的科技的创新和文化的进步。科技人才很难在邪恶中共这个培养模式中脱颖而出，现在在习包子的统治下，要求孩子们都不能上高中，这个节奏下去，下一步计划就是小学毕业就可以了，要跟着中共的统治都是小学文化即可。
+另外一家俄罗斯新闻门户网站指出：’任何接种过SARS-CoV-2冠状病毒疫苗的人可能不再被允许登机’。  叶夫根尼.  科瓦列夫医生告诉公共新闻社，那些接种了冠状病毒疫苗的人搭乘飞机旅行可能具有极高的风险性。  欧洲已经在讨论限制接种疫苗者搭乘飞机的可能性。  主要是，冠状病毒疫苗会影响与凝血相关的功能，而这会增加形成血栓的风险。  科瓦列夫说，在飞行过程中旅客长时间处于坐姿，而这样会使情况更糟糕。  （注3）
 
-其次，在中共消耗完人口红利后，目前迎来了老龄化，壮劳力已经出现严重断层。为了让下一代的韭菜能够更加快速的投入到被割行列，就制定了这个职高教育，让年轻一代尽快为他们的统治剥削进行输血。一方面在催生安排三胎计划，另一方就是让现在的孩子提前毕业变成他们的奴隶。
+甚至，在美国的疾病控制与预防中心（CDC）的网站中，也有关于搭飞机超过4小时可能出现血栓的警告（注4）。   而这样的情况对于接近9亿已接种疫苗者，除了必须面对接下来中、长期可能未知的副作用之外，而如今的这个消息，无疑问的是让已经打疫苗者在加上另一个严重的’副作用’。
 
-最后，随着目前墙内经济的下滑，我们可以看到到处都有研究生毕业后送快递，送外卖的比比皆是。因为中共知道，这些受过高等教育的人，在这个变态强压的社会现实面前，很容易被唤醒，为了让大家更好被管控，少读书是很好的一个办法。这样的退化的社会制度最终只能被历史淘汰。我们华夏民族如果继续被中共统治，将会被世界遗弃，无论哪个领域到时都不会看到华人的面孔，我们必须要消灭这个邪恶的政党，要让我们的子孙后代能够正常的走到世界舞台，这个是每一个新中国联邦人的使命，爆料革命唤醒了我们每一个战友，并肩作战Take down the ccp。
+姑且无论疫苗背后所牵涉到的复杂政治、商业利益等问题。  在这些庞大的媒体各国政府强力宣传施打疫苗之际，似乎刻意的忽略了简单、便宜而有效、且极少副作用的药物，如羟氯喹+锌、阿奇霉素或依维菌素等（注5）。  并且，这些便宜的药物在疫情以来，已经获得相当多临床医生与科学家证实具有相当优秀的预防与治疗COVID19病毒的效果。
 
-（本文只代表作者个人观点）
+最后，这疫苗到底要不要打？  是你由自己决定，而不是在受威胁的情况下被逼而施打的。  所以，最终的结果与影响是一辈子无法回复，都是由你自己来承担！  聪明的你能不用心点多作一些功课吗？
 
-*发稿：光耀华夏*
+（本文仅代表个人立场）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09152702/COVID19_AQ.png)
+数据源 ：
 
-* * *
+1. [Vaccine researcher admits ‘big mistake,’ says spike protein is dangerous ‘toxin’](https://www.lifesitenews.com/news/vaccine-researcher-admits-big-mistake-says-spike-protein-is-dangerous-toxin)
+2. 谷歌统计数据
+3. [Medien in Spanien und Russland: Fluggesellschaften gehen das Problem der Blutgerinnsel an und empfehlen geimpften Personen, nicht zu reisen | uncut-news.ch](https://uncutnews.ch/medien-in-spanien-und-russland-fluggesellschaften-gehen-das-problem-der-blutgerinnsel-an-und-empfehlen-geimpften-personen-nicht-zu-reisen/)
+4. [Blood Clots and Travel: What You Need to Know](https://www.cdc.gov/ncbddd/dvt/travel.html)
+5. [伊維菌素？借鏡印度– GNEWS](https://gnews.org/zh-hant/1299198/)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+审核、校对╱早不稻仁
 
+发布╱little  liu
 
-0
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
++1

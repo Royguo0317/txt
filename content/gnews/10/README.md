@@ -1,44 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 已打疫苗者 因血栓风险不适合长途飞行旅游！
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1318697/)
+## NBA球星被敦促终止与强迫劳动的中国公司的代言
+` XINYUAN` [轉載自GNews](https://gnews.org/zh-hans/1318822/)
 
-台湾宝岛农场 马克强
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13005842/%E6%93%B7%E5%8F%96613-6.jpg)
-中共在2019年底以迅雷不及掩耳之势放出了COVID19病毒，肆虐并重创全球经济与毒杀人类的性命。  而国际医药大厂在国家政府的紧急状态之下，被核准了历经1年多左右且尚在做动物实验的疫苗给人类施打。 一般而言，疫苗发展的时间最少历经10年以上。  然而，COVID19疫苗在仓促的情况下施打在人体上，果然造成了成千上万的人产生了许许多多的副作用，如肢体颤抖、脸部麻痹、女性月经紊乱与大出血、血栓、心脏疾病、脑部损伤、及生殖系统等问题（注1）。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13004849/%E6%93%B7%E5%8F%96613-0-1.jpg)
-在全球接种疫苗人数将近达9亿人同时（2021年6月5日）（注2），西班牙以及俄罗斯航空则警告接种COVID19疫苗者不适合搭飞机旅行，因为在高空的状态之下人体可能会产生血栓的情况。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13004900/%E6%93%B7%E5%8F%96613-1-1.jpg)
-西班牙新闻网站指出：’航空公司正在解决血栓问题，并建议注射疫苗的人不要参与搭乘旅行’。  因为施打实验性mRNA疫苗者之血液中存在血栓的风险。  依照航空相关规定（非针对新冠疫苗），具有血栓高风险者只能够在严密的监督之下才能搭乘飞行。  接种疫苗者，在飞行航程到达一定的高度时，发生中风、形成血栓或心脏病等并发症的风险极高。  有几份报告警告说，接受注射疫苗者（无论哪一种疫苗）可能会出现凝血与出血的问题，这就是主要的原因。
+作者：David Brunnstrom, Michael Martina
 
-另外一家俄罗斯新闻门户网站指出：’任何接种过SARS-CoV-2冠状病毒疫苗的人可能不再被允许登机’。  叶夫根尼.  科瓦列夫医生告诉公共新闻社，那些接种了冠状病毒疫苗的人搭乘飞机旅行可能具有极高的风险性。  欧洲已经在讨论限制接种疫苗者搭乘飞机的可能性。  主要是，冠状病毒疫苗会影响与凝血相关的功能，而这会增加形成血栓的风险。  科瓦列夫说，在飞行过程中旅客长时间处于坐姿，而这样会使情况更糟糕。  （注3）
+编译：澳喜农场-XINYUAN
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13022823/image3.jpeg)
+两党国会（行政中国委员会）主席在给美国国家篮球运动员协会的一封信中表示，十几名 NBA 球员与总部位于中国的安踏 、李宁和匹克运动服装公司达成了交易。而且最近的西方媒体发文前这些公司一直在使用新疆棉花了。
 
-甚至，在美国的疾病控制与预防中心（CDC）的网站中，也有关于搭飞机超过4小时可能出现血栓的警告（注4）。   而这样的情况对于接近9亿已接种疫苗者，除了必须面对接下来中、长期可能未知的副作用之外，而如今的这个消息，无疑问的是让已经打疫苗者在加上另一个严重的’副作用’。
+参议员杰夫·默克利和众议员吉姆·麦戈文在信中补充说：“球员们继续与安踏体育签署了新协议。我们认为，与在新疆采购棉花的公司有商业关系会给 NBA 球员和 NBA 本身带来声誉风险”。他们还指出，美国政府已经确定了中国在新疆实施种族灭绝和危害人类罪，并禁止从中国该地区进口棉花。信中还说“NBA 和 NBA 球员甚至不应该暗中支持这种可怕的侵犯人权行为”
 
-姑且无论疫苗背后所牵涉到的复杂政治、商业利益等问题。  在这些庞大的媒体各国政府强力宣传施打疫苗之际，似乎刻意的忽略了简单、便宜而有效、且极少副作用的药物，如羟氯喹+锌、阿奇霉素或依维菌素等（注5）。  并且，这些便宜的药物在疫情以来，已经获得相当多临床医生与科学家证实具有相当优秀的预防与治疗COVID19病毒的效果。
+自 2018 年以来的报道显示，新疆当局系统性地强迫少数民族穆斯林从事强迫劳动，并且有可靠证据表明新疆棉花生产过程中存在强迫劳动。
 
-最后，这疫苗到底要不要打？  是你由自己决定，而不是在受威胁的情况下被逼而施打的。  所以，最终的结果与影响是一辈子无法回复，都是由你自己来承担！  聪明的你能不用心点多作一些功课吗？
+这封提供给路透社的信件还表示，安踏、李宁和匹克公开支持新疆棉花，这可能使他们成为使用强迫劳动者的同谋。
 
-（本文仅代表个人立场）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09152702/COVID19_AQ.png)
-数据源 ：
+NBPA 没有立即回应。而中国驻华盛顿大使馆又站出来声称有关强迫劳动的指控是“一个无耻的谎言”。并在回复邮件中继续称：“美国和其他地方的某些势力企图搞砸新疆、遏制中国的企图永远不会成功。他们最终会搬起石头砸自己的脚。”
 
-1. [Vaccine researcher admits ‘big mistake,’ says spike protein is dangerous ‘toxin’](https://www.lifesitenews.com/news/vaccine-researcher-admits-big-mistake-says-spike-protein-is-dangerous-toxin)
-2. 谷歌统计数据
-3. [Medien in Spanien und Russland: Fluggesellschaften gehen das Problem der Blutgerinnsel an und empfehlen geimpften Personen, nicht zu reisen | uncut-news.ch](https://uncutnews.ch/medien-in-spanien-und-russland-fluggesellschaften-gehen-das-problem-der-blutgerinnsel-an-und-empfehlen-geimpften-personen-nicht-zu-reisen/)
-4. [Blood Clots and Travel: What You Need to Know](https://www.cdc.gov/ncbddd/dvt/travel.html)
-5. [伊維菌素？借鏡印度– GNEWS](https://gnews.org/zh-hant/1299198/)
+自从2019年底以来，NBA 在中国（其最重要的海外市场）的地位急剧恶化，当时休斯顿火箭队总经理达里尔·莫雷表示支持香港的拥护民主抗议活动，随后北京的国家电视台将 NBA 比赛从频道撤下。
 
+去年 7 月，NBA又表示，在受到当地员工虐待年轻球员和在新疆骚扰外国员工的指控后，它正在重新评估其在中国的训练计划。
 
-审核、校对╱早不稻仁
+NBA 总裁亚当·西尔弗随后在 9 月表示，NBA 与中国的长期互动关系，会继续对美国和共产主义国家之间的相互理解产生“正面积极”的影响。
 
-发布╱little  liu
+评论：这次，NBA球员又一次站到了政治的风口浪尖上，这让我想起2019年香港示威游行时，休斯敦火箭队总经理达莫雷曾在推文中贴出一张写有“Fight For Freedom/Stand With Hong Kong（争取自由，与香港一起）”的图片。莫雷随后秒删并道歉，称自己不代表NBA。而NBA总裁萧华（Adam Silver）在采访中表示支持言论自由。于是中央电视总台和腾讯即宣布暂停新赛季的两场NBA中国赛转播。连外交部都拿民意说事，无端指责他们。
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+萧华当晚连续发声称，不会为捍卫自由言论道歉。但让很多人伤心感到遗憾。当他抵达上海，准备按原计划出席湖人队在当地的季前赛，但发现NBA 中国赛上海站的路灯宣传牌却已被拆除。
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+其实，NBA只想支持香港争取民主和言论自由，并未明确说明支持香港独立。言论自由不只是NBA，也是整个美国信奉的基本人权。但当时所有拒绝出席NBA活动的艺人均以“始终坚持一个中国原则，坚决维护国家领土和主权完整，坚决反对任何企图分裂国家的言论和行为”为由选边站队。
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+NBA成员永远想不到，自己的个人行为会把整个协会拉扯进如此深的舆论旋涡，进而向所在机构施压，这是中国惩罚个人发声的惯常做法。是的，中国的政治正确是一切生意的基础，有了正确的政治观，才有相应的空间做生意。在美国人眼里，政治和商业可以明确分开。作为美国四大职业体育联盟之一，NBA球员和员工在美国国内享有批评政府的自由。NBA里有正义的力量，只要他们继续坚守，随着国人的觉醒，相信在未来的新中国，会有更多的人们支持他们，并与他们合作。
 
-+1
+(本文仅代表个人观点)
+
+参考链接[：://www.google.se/amp/s/www.bbc.com/zhongwen/simp/world-49983207.amp](https://www.google.se/amp/s/www.bbc.com/zhongwen/simp/world-49983207.amp)
+
+当NBA价值观与中国核心利益发生冲撞
+
+新闻来源：[https://www.reuters.com/lifestyle/sports/congressional-body-urges-nba-stars-end-endorsement-chinese-sportswear-2021-06-01/](https://www.reuters.com/lifestyle/sports/congressional-body-urges-nba-stars-end-endorsement-chinese-sportswear-2021-06-01/)
+
+0
