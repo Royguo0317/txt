@@ -1,55 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草山水墨堂】美酒敬英雄——闫丽梦
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1318638/)
+## 重磅！美国军方逮捕了福奇同谋-德博拉-伯克斯博士
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1318737/)
 
-**作者**：香草山美食部 文百合
+素材： Jenny
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042102/WhatsApp_Image_2020-10-24_at_04.33.05-8-768x103-1.jpeg)
+翻译评论： Rosa
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13010744/800.jpg)photo source: https://apnews.com/article/travel-pandemics-only-on-ap-delaware-thanksgiving-52810c22488fff7e6bb70746bdc9bc61
+美国军方已经逮捕了德博拉-伯克斯博士，他也被称为 “围巾女士”，此前有报道称她和她的犯罪伙伴，仍然在逃的安东尼-福奇博士，与疾病预防控制中心合谋，欺骗美国公众，使其相信口罩是缓解Covid-19传播的有效方法。
 
+正如2月所报道的那样，在唐纳德-J-特朗普总统获得她和深层国家的安东尼-福奇博士之间的冗长电子邮件链后，伯克斯的名字被列入密封起诉书。其中，Birx和Fauci讨论了口罩是否能减轻Covid-19的传播，他们相互承认，口罩在防止Covid-19进入人体呼吸系统方面完全无效。相反，他们承认长期的 “口罩 “对人体生理机能有严重的副作用，特别是在儿童、老人和免疫力低下的人中。
 
+尽管如此，Birx在给Fauci的一封电子邮件中写道：”无论美国总统的立场如何，我们必须继续鼓励和执行掩蔽，因为这会给人们一种平静的感觉，使他们感到安全”。
 
+根据一项评估美国所有因Covid-19死亡事件的军事研究，这种安全假象是导致15000名美国人死亡的主要因素。
 
+例如，一个戴着口罩的13岁男孩在内华达州里诺90度的高温下踢足球时突然摔死。结果发现他有哮喘病，但从未得到过临床诊断。他的母亲是一位口罩倡导者，她曾在电视上听到Birx博士说，户外活动也应该佩戴口罩，即便是在安全社交距离无法保障的情况下。由于足球是一项接触性运动，她担心她的孩子可能会从另一个没有戴口罩的孩子那里感染上Covid-19，因此要求她的儿子在与其他孩子接触时都要戴口罩。她的非理性恐惧，再加上Birx的歇斯底里，导致了这个男孩的死亡。顺便说一句，CDC声称他死于Covid-19，尽管这个男孩从未接受过测试。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13000659/image0-41-1-scaled.jpg)
+团结就是力量，美国是世界各国的一个好榜样。在需要的时候，每个爱国者都牺牲了自己的需求来帮助同胞。
 
-天使闫丽梦——
-你从云端走来
-越过高山
-飞过海洋
-你是天选之子
-上帝赋予你唯一的使命
-传递真相
-是仙，你有血有肉
-是人，你英勇无比
-面对群魔乱舞
-你守护真相
-真相就是你的剑
-刺向魔鬼的心脏
-天使闫丽梦传递真相
-拯救人类
+然而，在最黑暗的时期可能会失去希望，美国人民在这种逆境中需要一些东西来团结他们。特朗普总统说，战斗还没有结束。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13001206/image0-40-1-scaled.jpg)
+评：美国内部同中共深度勾结的黑暗势力正在全面瓦解中。美国民意全面觉醒之日，也意味着中共的彻底灭亡之时。
 
-编辑/校对/发稿：遍地开花
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
-**更多资讯，更多关注**
+（本文只代表作者个人观点）
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+发稿：Rosa
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+原文链接：http://www.theconservativtreview.com/breaking-news-u-s-military-arrests-dr-deborah-birx/
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
-
-
-
-
-
-0
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![This image has an empty alt attribute; its file name is 1-%E6%BE%B3%E5%96%9CLogo.jpeg]()![This image has an empty alt attribute; its file name is 1-%E6%BE%B3%E5%96%9CLogo.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
++1
