@@ -1,52 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月12日劳伦斯.塞林博士推特合集:协助闫丽梦博士的丈夫进入美国的人必须受到调查
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1318309/)
+## 马洛主编揭左派及主流媒体给了中共通行证
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1318496/)
 
-劳伦斯·塞林博士： 解决方法很简单。 爱国的美国人希望闫丽梦博士的丈夫 Ranawaka A P M Perera 被驱逐出美国，因为他是对她的人身安全和美国国家安全的威胁。 那些协助他进入美国的人必须受到调查。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12232634/A-11.jpg)alexmarlow.com
+福克斯的塔克·卡尔森（Tucker Carlson）采访了《布雷特巴特》（Breitbart）主编亚历克斯·马洛（Alex Marlow），马洛说，大科技公司和媒体对中共病毒起源的掩盖，实际上是保护中共国的企业商业模式。
 
+6月12日发布的该文说，在中共病毒疫情的早期阶段和2020年选举周期的后期，媒体和民主党人都否认了中共对病毒负有责任的可能性，在某些情况下，主流媒体和大型科技公司对那些暗示与中共国有联系的媒体进行了审查。
 
-> The solution is very simple. Patriotic Americans want Ranawaka A P M Perera, Dr Li-Meng Yan's husband, deported from the United States as a threat to her physical safety & the national security of the United States. Those who assisted his entry into the U.S. must be investigated. [pic.twitter.com/MnGXU64Unm](https://t.co/MnGXU64Unm)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403754545759625218?ref_src=twsrc%5Etfw)
+据《布雷特巴特》主编亚历克斯·马洛所说，他是《大事件：揭露建制媒体的隐藏交易和秘密腐败》一书的作者，有无数的例子表明，媒体给了中共国通行证，他认为这是媒体努力的一部分，他们让时任总统唐纳德·川普（Donald Trump）成为“坏人”，而不是中共国（这个真正的坏人）成为坏人。
 
+采访的部分文字如下：
 
+卡尔森：《布雷特巴特》主编，亚历克斯·马洛是《大事件：揭露建制媒体的隐藏交易和秘密腐败》一书的作者，他今晚将加入我们。
 
-劳伦斯·塞林博士： 我请求 [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) 新冠侦探们进行调查，并在此处贴出在这些图像中的人员和机构之间的相互联系，并在此处发布。
+亚历克斯，非常感谢你能来，这看起来确实是——听着，这不是政治性的，就我自己而言，我会说，不管谁是总统，谁是我投的票，谁给的钱，谁爱的人，没关系，这是关于公共健康的。
 
+你怎么能生活在一个，不允许医生谈论他们记录和观察到的、关于死亡的数据的国家？我是说，这是什么？
 
+马洛：是的，塔克，非常感谢你邀请我，感谢你对我的书所说的溢美之词。
 
-> I request that the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives investigate and post here the connections among the persons and institutions in these images and post here. [pic.twitter.com/xYQNzrqXg5](https://t.co/xYQNzrqXg5)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403740965098164224?ref_src=twsrc%5Etfw)
+从我开始研究的时候，我进行了一年的项目（调查），我知道不是其他任何人，是左派和媒体想让川普总统在中共病毒问题上成为坏人，而不是中共国成坏人。但我越是深究，就越意识到这其实是为了保护中共国的企业商业模式。
 
+《国家广播公司》（NBC）是NBC环球的一部分，在中共国有着巨大的业务；《美国广播公司》（ABC）是ABC迪斯尼的一部分，在中共国有巨大业务；彭博社，上次我在这里的时候，我们加入了你们的节目，还有硅谷的科技巨头，如果他们还不在中共国，但他们希望不久有一天能在中共国，我们已经把大量的言论自由外包给了《油管》（YouTube）这样的地方。
 
+现在，我们把我们的科学外包给他们，我们被告知，约翰逊（Johnson）被开除是因为他违抗了世界卫生组织，而世界卫生组织基本上是中共国的附属机构。塔克，为什么谭德塞，一个不是医生的人，为什么他是当今世界上最强大的医生？好吧，他是中共国的选择，即使他在应对非洲霍乱爆发时表现不佳，还有很多（不佳表现）。
 
-劳伦斯·塞林博士： 遗憾的是，FBI (联邦调查局)在政治上妥协了，而且腐败到了无可救药的地步。 它是民主党和所有相信效仿 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 一党制国家的执法机构——美国的盖世太保或克格勃。 不能再相信它在法律下会行使平等正义。
+卡尔森：不过，你一定会想，美国的一切好东西都植根于言论自由、良心自由、调查自由，这有没有一点是行不通的？如果我们没有这些东西，那又有什么意义呢？
 
+马洛：这也是我的感觉，这就是为什么看到独立的思路涌现出来时，人们自己要讲出去，努力绕过这些技术审查机构，这是如此美好。但正如你所知，仅仅建立自己的推特是不够的，因为这些地方是垄断的，这就是为什么人们开始使用反垄断法，考虑解散这些公司是如此重要。
 
+但是，当他们相信《政治事实》（PolitiFact）和马克·扎克伯格（Mark Zuckerberg）的科学，而不是真正的医生时，我们知道这个系统已经崩溃了，现在它有可能夺去生命。
 
-> Regrettably, the FBI is politically compromised & hopelessly corrupt. It is the law enforcement arm of the Democrat Party & all those who believe in a one-party state modelled after the CCP – American Gestapo or KGB. It can no longer be trusted to apply equal justice under law. [https://t.co/yMLZOGg94O](https://t.co/yMLZOGg94O)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403644251473338371?ref_src=twsrc%5Etfw)
+卡尔森：是的，这就是为什么他们要用这个杀人，看起来是这样的。亚历克斯·马洛，很感谢你今晚能来，恭喜你的书。有先见之明。
 
+马洛：谢谢，塔克。
 
+（原文完）
 
-劳伦斯·塞林博士： 下周我计划与一些美国国会议员会面。 我会请他们调查，为什么闫丽梦博士的丈夫(据她说)在有暴力行为和威胁言辞的情况下，会出现在美国，以及谁在美国帮助 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 让他进来干肮脏的事情。 【图片文字：美国众议院情报常设委员会 （HPSCI）】
+马洛主编的书仅有上述内容还是远远不够的，对邪恶中共的认知还在懵懂期。好在他和塔克都在坚持言论自由和独立思考，对美国的现状有评判意识，再补上中共认知的课就显得很有必要了。
 
+原文链接：
 
+[https://www.breitbart.com/politics/2021/06/12/marlow-left-and-the-media-wanted-to-make-trump-the-bad-guy-when-it-came-to-coronavirus-not-china/](https://www.breitbart.com/politics/2021/06/12/marlow-left-and-the-media-wanted-to-make-trump-the-bad-guy-when-it-came-to-coronavirus-not-china/)
 
-> Next week I have a planned meeting with members of the U.S. Congress. I will ask them to investigate why Dr. Li-Meng Yan's husband is in the U.S. given, according to her, his violent actions and threats and who in the U.S. helped the CCP get him in to do its dirty business. [pic.twitter.com/J0pTYDD2Kf](https://t.co/J0pTYDD2Kf)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403610680738123777?ref_src=twsrc%5Etfw)
-
-
-
-劳伦斯·塞林博士： 我们确切地知道闫丽梦博士的丈夫在哪里。 当他突然出现在她附近工作时，他在香港的一个实验室里有很好的位置。 我们想知道在美国有谁在帮助 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 干他们的肮脏勾当。 调查记者们正在追踪。
-
-
-
-> We know exactly where Dr. Li-Meng Yan's husband is. He was well-established in a lab in Hong Kong when he suddenly appears working near her. We want to know who in the U.S. is helping the Chinese Communist Party in their dirty business. Investigative reporters are on the trail. [https://t.co/f0GRSreEr1](https://t.co/f0GRSreEr1)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 12, 2021](https://twitter.com/LawrenceSellin/status/1403605415477362690?ref_src=twsrc%5Etfw)
-
-
-
-+1
+0
