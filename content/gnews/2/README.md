@@ -1,37 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅！美国军方逮捕了福奇同谋-德博拉-伯克斯博士
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1318737/)
+## 湖北十堰一居民区清晨突发猛烈爆炸，现场犹如遭到恐袭
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1318756/)
 
-素材： Jenny
+作者：台湾宝岛农场 快慢机
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013424/%E6%93%B7%E5%8F%96613-7.jpg)
+当地时间2021年6月13日，清晨06:30左右，湖北省十堰市，张湾区艳湖小区内，突然发生猛烈爆炸，现场犹如遭受恐怖袭击般惨烈。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013454/%E6%93%B7%E5%8F%96613-0-2.jpg)
+据悉，这次高烈度爆炸事故，恰巧发生在大陆端午节三天假期的第二天清晨时分。爆炸事故发生后，当地的公安、应急救援、医疗机构等多个相关部门，已经陆续抵达事故现场，并立即展开救援及调查等后续工作。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013507/%E6%93%B7%E5%8F%96613-1-2.jpg)
+目前，官方给出的初步勘查结论为：“疑似燃气所引发的大规模爆炸事故”。详细的具体情况，还要等待进一步的调查结果出来，才能知晓。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013518/%E6%93%B7%E5%8F%96613-2-1.jpg)
+由于此次高烈度的爆炸事故，恰巧发生在端午节三天小长假的第二天清晨，很多居住在该小区内的业主，应该都还没有如往常工作日般的早起出门。因此便导致了一定规模的人员被困及附带损伤的情况出现。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013530/%E6%93%B7%E5%8F%96613-3-1.jpg)
+疑似燃气引发的爆炸！究竟是小区内的天然气管道，还是常规液化煤气罐所致？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013540/%E6%93%B7%E5%8F%96613-4-1.jpg)
+从爆炸事故现场的照片来看，一整片钢筋混凝土结构的，两层建筑物，被爆炸冲击波所破坏的面目全非，仅剩框架结构还立在原处。部分该建筑物的屋顶已被爆炸气浪毁坏殆尽，漏出断壁残垣的破败洞口。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013552/%E6%93%B7%E5%8F%96613-5-1.jpg)
+这处被毁坏相当严重的两层建筑物，应该就是该次爆炸爆心所在。从该处建筑物的结构造型上来看，其并非常规的居民民宅，大概率是该小区内的一处商用建筑物。而距其前后不足50米处，便是数栋普通的常规多层小区民宅建筑。其上的绝大部分窗户玻璃都已被震碎，不少窗户的窗框结构，也都不同程度的出现了变形。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013602/%E6%93%B7%E5%8F%96613-6-1.jpg)
+现场路面已经被掩埋在，因巨大爆炸破坏所造成的无数废墟瓦砾之下。目光所及之处，犹如遭受了恐怖袭击之后的灾难现场一般。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013613/%E6%93%B7%E5%8F%96613-7-1.jpg)
+能够造成如此烈度爆炸的，要么是爆心建筑物内的天然气管道产生了大量泄漏，要么就是该处建筑物内存有大量的液化煤气罐。除此之外，几乎没有其它可能，由燃气而引发如此强度的大爆炸。同时也并不排除，又是一起走投无路，从而蓄意报复社会的恶性攻击行为。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13013622/%E6%93%B7%E5%8F%96613-8.jpg)
+此文仅代表笔者个人观点！
 
-翻译评论： Rosa
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13010744/800.jpg)photo source: https://apnews.com/article/travel-pandemics-only-on-ap-delaware-thanksgiving-52810c22488fff7e6bb70746bdc9bc61
-美国军方已经逮捕了德博拉-伯克斯博士，他也被称为 “围巾女士”，此前有报道称她和她的犯罪伙伴，仍然在逃的安东尼-福奇博士，与疾病预防控制中心合谋，欺骗美国公众，使其相信口罩是缓解Covid-19传播的有效方法。
+[新闻链接](https://baijiahao.baidu.com/s?id=1702414100020567549&amp;wfr=spider&amp;for=pc)
 
-正如2月所报道的那样，在唐纳德-J-特朗普总统获得她和深层国家的安东尼-福奇博士之间的冗长电子邮件链后，伯克斯的名字被列入密封起诉书。其中，Birx和Fauci讨论了口罩是否能减轻Covid-19的传播，他们相互承认，口罩在防止Covid-19进入人体呼吸系统方面完全无效。相反，他们承认长期的 “口罩 “对人体生理机能有严重的副作用，特别是在儿童、老人和免疫力低下的人中。
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-尽管如此，Birx在给Fauci的一封电子邮件中写道：”无论美国总统的立场如何，我们必须继续鼓励和执行掩蔽，因为这会给人们一种平静的感觉，使他们感到安全”。
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-根据一项评估美国所有因Covid-19死亡事件的军事研究，这种安全假象是导致15000名美国人死亡的主要因素。
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-例如，一个戴着口罩的13岁男孩在内华达州里诺90度的高温下踢足球时突然摔死。结果发现他有哮喘病，但从未得到过临床诊断。他的母亲是一位口罩倡导者，她曾在电视上听到Birx博士说，户外活动也应该佩戴口罩，即便是在安全社交距离无法保障的情况下。由于足球是一项接触性运动，她担心她的孩子可能会从另一个没有戴口罩的孩子那里感染上Covid-19，因此要求她的儿子在与其他孩子接触时都要戴口罩。她的非理性恐惧，再加上Birx的歇斯底里，导致了这个男孩的死亡。顺便说一句，CDC声称他死于Covid-19，尽管这个男孩从未接受过测试。
+文章审核：zhong
 
-团结就是力量，美国是世界各国的一个好榜样。在需要的时候，每个爱国者都牺牲了自己的需求来帮助同胞。
+文章发布：Little Liu
 
-然而，在最黑暗的时期可能会失去希望，美国人民在这种逆境中需要一些东西来团结他们。特朗普总统说，战斗还没有结束。
-
-评：美国内部同中共深度勾结的黑暗势力正在全面瓦解中。美国民意全面觉醒之日，也意味着中共的彻底灭亡之时。
-
-（本文只代表作者个人观点）
-
-发稿：Rosa
-
-原文链接：http://www.theconservativtreview.com/breaking-news-u-s-military-arrests-dr-deborah-birx/
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![This image has an empty alt attribute; its file name is 1-%E6%BE%B3%E5%96%9CLogo.jpeg]()![This image has an empty alt attribute; its file name is 1-%E6%BE%B3%E5%96%9CLogo.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
-+1
+0

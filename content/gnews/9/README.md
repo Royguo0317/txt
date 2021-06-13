@@ -1,22 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大枫叶农场直播组大动员
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1318591/)
+## 【香草山水墨堂】美酒敬英雄——闫丽梦
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1318638/)
 
-硫酸羟氯喹64
+**作者**：香草山美食部 文百合
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12235913/q1-8-edited.png)图片来源：GTV
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042102/WhatsApp_Image_2020-10-24_at_04.33.05-8-768x103-1.jpeg)
 
 
-据加拿大枫叶农场记者站于6月12日下午6点发来的最新消息：为更好带动该农场战友共同有效建设GTV直播平台，充分发挥该媒体平台在传播爆料革命及推广新中国联邦发展进程中的积极作用，全方位鲜明展示加拿大枫叶农场的各项活动风采，该农场直播组本着团队合作精神，通过及时向枫叶农场广大成员提供GTV使用技术培训以及多样性节目专栏，来激励战友，发掘人才，吸引志士，力图一起做出更加专业，更有深度的直播节目，并以此努力提高战友们的直播技术水平，而最终向世界展示新中国联邦的专业素质形象！
 
-枫叶农场直播组以其栏目丰富多彩，内容涵盖广泛而备受各界关注和称赞，其主要专栏包括：农场主文枫主持的《枫叶农场是我家》，文医主持的《枫叶以毒灭共》，北京人在北美主持的《枫叶时政评论》，天赐良知主持的《枫叶每日资讯》，亲帆主持的《枫叶技术培训》，约瑟和马马虎虎主持的《枫叶英文（GTV及时中文字幕）》，哈雷主持的《枫叶财经》等脍炙人口，深受战友们喜爱的节目。现又增加了由直播组长正义小Sarah主持的《枫叶生活时尚》专栏。
 
-枫叶农场的战友们以切身全心投入的实际行动，行动，行动！来倾力阐释着文贵先生所倡导的“爆料革命，没你不行！”的真正内涵。
 
-[加拿大多伦多枫叶农场官方直播间：](https://gtv.org/user/5ed43fa02e3bf86d8d0efa12#home)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12235642/fync1.png)
-以上是枫叶农场记者站通讯员硫酸羟氯喹64的报道。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13000659/image0-41-1-scaled.jpg)
+
+天使闫丽梦——
+你从云端走来
+越过高山
+飞过海洋
+你是天选之子
+上帝赋予你唯一的使命
+传递真相
+是仙，你有血有肉
+是人，你英勇无比
+面对群魔乱舞
+你守护真相
+真相就是你的剑
+刺向魔鬼的心脏
+天使闫丽梦传递真相
+拯救人类
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13001206/image0-40-1-scaled.jpg)
+
+编辑/校对/发稿：遍地开花
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
+
+
+
+
 
 0

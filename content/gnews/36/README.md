@@ -1,35 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七国集团将对中共侵犯人权及商品倾销采取一致行动
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1318145/)
+## 【有声读物】世纪大案 39：FBI局长雷，咆哮的马特·盖茨，愤怒的班大爷
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1318255/)
 
-作者：经济小组/加拿大多伦多枫叶农场 军迷Wilson
+录音：信念7
 
-编审：经济小组/加拿大多伦多枫叶农场 向往真理
 
-正在磋商中的七国集团峰会，刚刚达成第二个共识一一七国集团将在应对中共严重侵犯人权、利用不正当手段倾销廉价商品方面，制定统一行为规则，釆取统一行动。在产业回归和重建产业链生态上制定新的共同规则，在摆脱中共产业威胁方面出台反制措施。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12211358/BDBCF317-5109-4E19-A52A-63C48EC0EE72.jpeg)图片来源：Google 
-众所周知，70多年来中共一直实施令人难以置信的暴政，已经直接导致约8千万无辜的中国人死亡。近年来中共在新疆、香港等地区又犯下反人类罪和种族灭绝罪，对西方形成极大的震动，但以美国、欧盟、日本为主的西方，在对中共的惩罚方面并未形成共识，美国和欧盟对中共的制裁力度相当有限，日本政府则因为顾忌中共的经贸报复，没有出台对中共的制裁措施，引起了日本民众的不满。
 
-按照中共国2001年加入世贸的《议定书》，15年后即2016年中共国将自动获得“市场经济地位”，当时的欧盟、美国、日本等世贸成员国认为，中共还在实行[公有制](https://wiki.mbalib.com/wiki/%E5%85%AC%E6%9C%89%E5%88%B6)和[计划经济](https://wiki.mbalib.com/wiki/%E8%AE%A1%E5%88%92%E7%BB%8F%E6%B5%8E)，导致参与国际竞争[企业](https://wiki.mbalib.com/wiki/%E4%BC%81%E4%B8%9A)的[生产](https://wiki.mbalib.com/wiki/%E7%94%9F%E4%BA%A7)、[销售](https://wiki.mbalib.com/wiki/%E9%94%80%E5%94%AE)活动和产品[价格](https://wiki.mbalib.com/wiki/%E4%BB%B7%E6%A0%BC)由中共政府决定，人民币也不能自由兑换，这样的国家不能获得“市场经济地位”，因此，至今中共未获得这一梦寐以求、收割国际韭菜的许可证。
+2021年6月11日，众议院司法委员会召开听证会，传FBI局长雷(Christopher Wray)听证。川普上任的2017年提名自己人雷(Christopher Wray)任第八任FBI局长。雷之前在著名律所King & Spalding LLP做诉讼合伙人(litigation partner)，重要客户之一就是郭文贵先生。王岐山通过海航给律所大单，暗中收买了雷。川普总统交给他拜登腐败案，结果他按下了案件，让川普错失大选([世纪大案 17：贼喊捉贼](https://gnews.org/zh-hans/441412/) )。
 
-由于世贸组织没有反倾销方面的规定，欧盟、美国、日本等国在应对中共国的反倾销上各自为政，多年来并没有形成统一的条规和行动准则，主要是各国有自己的实际情况和利益小算盘，因而被中共各个击破，利用毫无保障条款的奴隶劳工生产出来的廉价商品，在获得中共的出口补贴后，潮水般涌入遵守低进口关税协定的发达国家，对发达经济体的产业形成巨大冲击。
+文字版原文：[【世纪大案】39：FBI局长雷，咆哮的马特·盖茨，愤怒的班大爷](https://gnews.org/zh-hans/1313031/)
 
-参与全球贸易和产业竞争的国家，如果都遵守世贸协定这样的规则，会促进商业文明的进步，为人类带来福祉。而中共从来都是对世界文明社会的经济、政治格局怀有恶意和非法的参与者，导致冷战后的这场全球化，变成了西方的噩梦。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12211348/AABF0631-3AD1-43A7-BDBE-77DA63AED947.jpeg)图片来源：Google 
-基于以上原因，在本次峰会的第二天，七国首脑达成了恢复和重建产业供应链的共识，达成了对中共侵犯人权及商品倾销采取一致行动的共识，对各国整固财政、稳定就业和经济，最终将中共移除出世界文明体系奠定了基础。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
 
-七国集团是当今最大的经济体，欧洲理事会主席米歇尔和欧盟委员会主席冯德莱恩参加了本次峰会，因此拜登在峰会举行前就底气满满的声称，“中国不应参与全球贸易和技术规则”。
+发稿：奇门遁甲
 
-由于西方和中共囯在经济上已经形成你中有我的关系，因此脱钩不是一朝一夕的事，这是愚蠢的中共有恃无恐绑架西方的原因。但西方已经彻底醒悟，以上三个共识就是套在中共脖子上的绞索，当绞索慢慢勒紧时，我们可以慢慢观赏这头恶魔垂死挣扎的丑态。
+**更多资讯，更多关注**
 
-*相关链接：*
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[G7 reaches consensus on China dumping, human rights abuses -U.S. official](https://www.reuters.com/world/china/g7-reaches-consensus-china-dumping-human-rights-abuses-us-official-2021-06-12/)
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-* * *
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-*编审、发布 文静*
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
 
 0

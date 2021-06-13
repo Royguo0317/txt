@@ -1,55 +1,196 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独立观点】读道德经所想 第三章
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1318336/)
+## 国会议员马特·盖茨与联邦调查局局长克里斯托弗·雷 FBI 对 COVID-19 起源正面交锋
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1318346/)
 
-作者：纽约香草山健身部 书记己嗝屁！
+**字幕内容：**
+**Matt Gaetz (Congressman)
+马特·盖茨（国会议员）**
 
+If we don’t look at that rooted information
+如果我们不看那些扎实的信息
 
+We’re unable to ascertain what differences of opinion are correct and incorrect
+我们无法确定哪些意见分歧是正确的和不正确的
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+but it’s hard to believe that the FBI didn’t believe Dr. Yan was credible or significant
+但很难相信 FBI 不相信闫博士是可信的或重要的
 
+because she lands on April 28th
+因为她在 4 月 28 日落地时
 
+Your agent Dana Murphy takes her phone that day
+你的探员达娜·墨菲那天拿走了她的电话
 
-[原文]
+I’m holding the receipt from where you got the phone
+我正拿着你得到她的电话的收据
 
-不上贤，使民不争；不贵难得之货，使民不为盗；不见可欲，使民不乱。是以圣人之治也，虚其心，实其腹，弱其志，强其骨，恒使民无知、无欲也。使夫知不敢、弗为而已，则无不治矣。
+that had the Wechat messages
+那里有微信的信息
 
-![This image has an empty alt attribute; its file name is 20180920053631146.jpeg]()![This image has an empty alt attribute; its file name is 20180920053631146.jpeg](https://www.guang5.com/uploadfile/2018/0920/20180920053631146.jpeg)图源网络
+that had very important information regarding Beijing and the Chinese Communist Party
+涉及到北京和中国共产党的非常重要的信息
 
-[译文]
+and it’s not every day that an FBI agent flies from Los Angeles to New York
+并不是每天都能有联邦调查局特工从洛杉矶飞到纽约
 
-社会不推崇有才德的人，导使老百姓不互相争夺。（从表面上看，这里给人一种错觉，一个社会怎么可能不推崇有才能的人的呢？那样的社会岂非不会发展了？这样消极的看法，显然是既不符合历史发展的规律，也不符合传统儒家思想的进取精神。可见，如果你从字面上理解，那一定理解错了。要知道，老子从来就不提倡什么消极和积极，都是提倡一切要从事物的本身规律出发。老子生活的春秋末期，那时天下大乱，统治者们为了维持自己的统治，纷纷招揽贤才，用以治国安邦。在当时，一些富有野心的人竞相争权夺位、抢占钱财。一时间，社会民心紊乱，盗贼四起。在老子的观点中并不包含贬低人才、否定人才的意思。相反，老子表示，统治者不要给贤才过分优越的地位、权势和功名，不要过度宣传贤才的作用，以免使“贤才”成为一种诱惑，引起人们争权夺利。）
+to follow a Chinese doctor who is a whistleblower and a fact witness
+跟随一位身为爆料者和事实证人的中国博士
 
-不珍爱难得的财物，导使老百姓不去偷窃；不显耀足以引起贪心的事物，导使民心不被迷乱。（如果一个社会过度的追求虚名和利益，那么人们的贪婪之心将会四起。人们为了自己的私利，将会不择手段，甚至会去偷、去骗、去抢。）
+and even if Dr. Yan’s technical analysis of the virus is incorrect
+即使闫博士对病毒的科学分析是错误的
 
-因此，圣人的治理原则是：排空百姓的心机，填饱百姓的肚腹，减弱百姓的竞争意图，增强百姓的筋骨体魄，经常使老百姓没有智巧、没有欲望。致使那些有才智的人也不敢妄为造事。圣人按照“无为”的原则去做，办事顺应自然，那么，天才就不会不太平了。（一个人没有了心机才不会挑动起他们的占有欲、追逐欲，那么人们就可以保持“无知无欲”的纯洁本性。不使人们生贪欲，并不是要剥夺人们的生存权利，而是要尽可能地“实其腹”、“强其骨”，使老百姓的生活得到温饱，身体健壮可以自保自养。此外，还要“虚其心”、“弱其志”，使百姓们没有盗取功民利禄的智巧，没有争强好胜之志。这样做，就顺应了自然规律，就做到了无为而治。）
+the fact that she showed up
+而事实是她站出来
 
-这里，有人认为老子的政治思想在当今的社会是让人难以理解的。人们把他理想社会中的人民理解成了四肢发达，头脑简单，没有奢侈的物质享受欲望，也没有被各种令人头晕目眩的文化或知识困扰的烦恼。其实，老子真正的本意是人们不要过度追求自身生活之外的东西，不要过多地被不必要的名利、虚名、欲望所迷惑。他倡导人们不要把自己的聪明才智浪费在追逐功名利禄上，因为追逐名利不仅不是好事，反而会导致人内心的私欲不断的膨胀。人们应该从自身的本性出发，有所为，有所不为，不要被外在的名利迷失了本心，而是应该从人本身的个性、兴趣、潜能出发去从事自己喜欢的事业。这样，一个社会才能真正的做到，人近其才，物近其用，才能迎来真正的大发展。
+saying that she wanted to provide information
+说她要提供信息
 
-可是，如今的中（共）国，权贵统治者为了更有力的剥削人民，他们不断地夸大金钱和权力的作用，导致整个社会拜金主义盛行。民众往往为了金钱全然不顾道德和人性：教师为了钱可以开补习班，收取高额的费用；医生为了钱可以给病人乱开药；老板为了钱会不断地压榨工人的工资；开发商为了钱会不断地抬高房价；当官的为了钱可以鱼肉百姓。如此一来，这一层层地剥削，一层层地压榨，最后，民众全都成了权贵们的韭菜。
+and tell the truth seems significant today now
+而且敢于揭露真相，在今天看起来很重要
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+back when Dr Yan made these pronouncements
+当闫博士发表这些声明的时候
 
-编辑/校对/发稿：Irene木木
+regarding the Chinese Communist Party their military involvement
+涉及中国共产党他们的军队的参与（制造病毒）
 
-**更多资讯，更多关注**
+the leak of this virus from the lab
+从实验室泄漏的病毒
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+we had a number of people trying to discredit her
+我们有很多人试图诋毁她
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+are you able to ascertain whether or not that effort to discredit Dr. Yan
+你能确定这些诋毁闫博士的努力
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+is part of the counterintelligence efforts by the Chinese Communist Party
+是中国共产党反间谍工作的一部分？
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+Christopher Wray (FBI Director)
+克里斯托弗·雷（联邦调查局局长）
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+Again I want to be careful both about information
+再次，我要非常小心的关于信息
 
+we can provide in general about any kind of ongoing investigation
+我们可以提供有关任何类型的正在进行的调查的一般信息
 
+but also about what inform that information would take
+但也关于以什么形式来提供这些信息也要慎重
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+because in some cases you may be touching on things
+因为在某些情况下，你可能会触及到一些东西
 
+that would be classified and that might require a different format
+那可能是机密的并且可能需要不同的方式处理
 
+so I certainly understand why you’re asking the questions
+所以我当然理解你为什么问这些问题
+
+let me commit to you that I will go back with my folks
+让我向你承诺我会回去与我的同事们
+
+and see what information can be provided
+并看看什么信息可以提供
+
+and what form it would have to take if we can provide
+以及它必须采取什么形式，如果我们能提供的话
+
+Matt Gaetz
+马特·盖茨
+
+That would be very good
+那会很好
+
+Hold on Mr. chairman
+等一下主席先生
+
+You let everybody else go over here
+你让其他人都超时了
+
+You might be recognized just for unanimous consent
+这仅仅是申请一致无异议同意，也许你会让我读完
+
+Chairman
+主席
+
+Gentlemen’s time has expired
+先生们的时间已过
+
+Matt Gaetz
+马特·盖茨
+
+you’re not treating everyone equally
+你没有平等地对待每个人
+
+Mr. Chairman, you went over by more than 10 minutes
+主席先生，你超过不止
+
+Chairman
+主席
+
+Gentlemen’s time
+先生们的时间
+
+Matt Gaetz
+马特·盖茨
+
+Johnson went over by 45 seconds
+约翰逊超过了 45 秒
+
+Chairman
+主席
+
+Gentlemen’s time has expired Mr. Gaetz
+先生们的时间已过
+
+Matt Gaetz
+马特·盖茨
+
+I just want a unanimous consent request
+我只想要一个全体无异议同意
+
+Chairman
+主席
+
+Oh oh oh okay I’m sorry
+噢，噢，噢，好的，抱歉
+
+All right go ahead go ahead
+好吧，继续，继续
+
+Matt Gaetz
+马特·盖茨
+
+Thank you Mr Chairman
+谢谢你，主席先生
+
+I see unanimous consent to enter into the record the receipt from the United States De-partment of Justice wherein Dr. Yan’s phone was taken by FBI agent Dana Murphy
+关于其中闫博士的电话被联邦调查局特工
+达娜·墨菲拿走的美国司法部的收据
+我想得到全体无异议同意
+
+Chairman
+主席
+
+That objection uh that objection
+无人反对，无人反对
+
+The gentlemen’s time has expired Mr. Gaetz
+先生们的时间已过
+
+原视频链接: [https://twitter.com/repmattgaetz/status/1403028196208087052?s=24](https://twitter.com/repmattgaetz/status/1403028196208087052?s=24)
+英听校： 康州盘古农场 – Layka
+翻译：康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
