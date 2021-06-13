@@ -1,151 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】响鼓秀埸（七）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1318101/)
+## 七国集团将对中共侵犯人权及商品倾销采取一致行动
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1318145/)
 
-## **– 羊大秀之＂响鼓也有秀＂画外音–**
+作者：经济小组/加拿大多伦多枫叶农场 军迷Wilson
 
-作者：纽约香草山健身部 澄道
+编审：经济小组/加拿大多伦多枫叶农场 向往真理
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+正在磋商中的七国集团峰会，刚刚达成第二个共识一一七国集团将在应对中共严重侵犯人权、利用不正当手段倾销廉价商品方面，制定统一行为规则，釆取统一行动。在产业回归和重建产业链生态上制定新的共同规则，在摆脱中共产业威胁方面出台反制措施。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12211358/BDBCF317-5109-4E19-A52A-63C48EC0EE72.jpeg)图片来源：Google 
+众所周知，70多年来中共一直实施令人难以置信的暴政，已经直接导致约8千万无辜的中国人死亡。近年来中共在新疆、香港等地区又犯下反人类罪和种族灭绝罪，对西方形成极大的震动，但以美国、欧盟、日本为主的西方，在对中共的惩罚方面并未形成共识，美国和欧盟对中共的制裁力度相当有限，日本政府则因为顾忌中共的经贸报复，没有出台对中共的制裁措施，引起了日本民众的不满。
 
+按照中共国2001年加入世贸的《议定书》，15年后即2016年中共国将自动获得“市场经济地位”，当时的欧盟、美国、日本等世贸成员国认为，中共还在实行[公有制](https://wiki.mbalib.com/wiki/%E5%85%AC%E6%9C%89%E5%88%B6)和[计划经济](https://wiki.mbalib.com/wiki/%E8%AE%A1%E5%88%92%E7%BB%8F%E6%B5%8E)，导致参与国际竞争[企业](https://wiki.mbalib.com/wiki/%E4%BC%81%E4%B8%9A)的[生产](https://wiki.mbalib.com/wiki/%E7%94%9F%E4%BA%A7)、[销售](https://wiki.mbalib.com/wiki/%E9%94%80%E5%94%AE)活动和产品[价格](https://wiki.mbalib.com/wiki/%E4%BB%B7%E6%A0%BC)由中共政府决定，人民币也不能自由兑换，这样的国家不能获得“市场经济地位”，因此，至今中共未获得这一梦寐以求、收割国际韭菜的许可证。
 
+由于世贸组织没有反倾销方面的规定，欧盟、美国、日本等国在应对中共国的反倾销上各自为政，多年来并没有形成统一的条规和行动准则，主要是各国有自己的实际情况和利益小算盘，因而被中共各个击破，利用毫无保障条款的奴隶劳工生产出来的廉价商品，在获得中共的出口补贴后，潮水般涌入遵守低进口关税协定的发达国家，对发达经济体的产业形成巨大冲击。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12210026/7-%E9%9F%BF%E9%BC%93%E7%A7%80%E5%9F%B8%EF%BC%88%E4%B8%83%EF%BC%89.jpeg)
+参与全球贸易和产业竞争的国家，如果都遵守世贸协定这样的规则，会促进商业文明的进步，为人类带来福祉。而中共从来都是对世界文明社会的经济、政治格局怀有恶意和非法的参与者，导致冷战后的这场全球化，变成了西方的噩梦。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12211348/AABF0631-3AD1-43A7-BDBE-77DA63AED947.jpeg)图片来源：Google 
+基于以上原因，在本次峰会的第二天，七国首脑达成了恢复和重建产业供应链的共识，达成了对中共侵犯人权及商品倾销采取一致行动的共识，对各国整固财政、稳定就业和经济，最终将中共移除出世界文明体系奠定了基础。
 
-才下＂Freedom Tower＂
-仍然忙碌的
-场记
-又应邀
-来到＂休斯顿星光＂
-的艺术主场
+七国集团是当今最大的经济体，欧洲理事会主席米歇尔和欧盟委员会主席冯德莱恩参加了本次峰会，因此拜登在峰会举行前就底气满满的声称，“中国不应参与全球贸易和技术规则”。
 
-好吗
-这顿赶
-还没
-稳当妥定
-又被问三围
+由于西方和中共囯在经济上已经形成你中有我的关系，因此脱钩不是一朝一夕的事，这是愚蠢的中共有恃无恐绑架西方的原因。但西方已经彻底醒悟，以上三个共识就是套在中共脖子上的绞索，当绞索慢慢勒紧时，我们可以慢慢观赏这头恶魔垂死挣扎的丑态。
 
-胸围：
-节目策划
-GTV节目策划
-灭共GTV节目策划
+*相关链接：*
 
-腰围：
-撰稿文案
-节目策划
-如果说是个＂good idea＂
-的话
-那么文案撰稿.就是
-将想法上的＂good idea “
-转化为文字
-表述的方式
+[G7 reaches consensus on China dumping, human rights abuses -U.S. official](https://www.reuters.com/world/china/g7-reaches-consensus-china-dumping-human-rights-abuses-us-official-2021-06-12/)
 
-臀围：
-彩虹文宣
-则是绘文案
-画定位
-吹拉吟唱谈
-不一品悦稻香
+* * *
 
-左手握着
-＂苹果十＂
-听诗歌创作分享
-看不走寻常线路的
-＂折子戏＂的战友彩排
-
-右手擎着
-＂苹果十二＂
-点着回复及
-滑着出粮的节奏
-
-分享如下：
-
-闲白折子戏（节目策划建议案）
-–刮骨闲白小剧场–
-–疗毒折子真人戏–
-
-节目缘起：略
-Vl整体设置：略
-IP选定：略
-
-名称：
-闲白折子戏（暂定）
-
-slogan：
-闲白未必不灭共
-折子如此戏红毒
-
-理念：
-风骨气节华夏魂
-闲白戏中人
-灭共铲毒正道想
-折子口中往
-
-目标：
-一则折子戏
-借古讽今
-一段闲白秀
-勿忘初衷
-
-时间
-盘古时间：
-美东时间
-
-时长：
-60分钟
-一期
-
-节目架构：
-闲白担当人：略
-折子戏中人：略
-戏外音：略
-甲
-乙
-丙
-丁
-..
-
-节目持续性：
-闲白人生有昼夜
-折子戏码无始终
-
-@爱动爱议码06121
-@出粮欠棕榈邀（桌前灯）
-@澄道来了
-
-文案寄出已
-挠字工免则
-用或是
-用多少
-用者自敲
-
-节目组的
-年轻人
-活力四射
-七芒星灿
-太棒了
-……
-
-@爱动爱议码06123
-@佛堂北厅独享＂谢米七克＂
-@澄道来了
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 6_june-1.jpg]()![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+*编审、发布 文静*
 
 0

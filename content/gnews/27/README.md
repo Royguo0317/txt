@@ -1,45 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚利桑那州的“国家审计”手工清点最后一日
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1317968/)
+## 佛罗里达州新法案针对中共渗透美国教育系统
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1318002/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+新闻来源：《校园改革》| 作者：Alex Munguia| 发布时间：2021年6月10日
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12191527/A-10.jpg)survivethenews.com
-持续关注“国家审计”的进展情况。
+翻译/简评：Victory | 校对：SilverSpurs7 | 审核：Beicy-数学老师 | Page：我是球大哥
 
-《门道专家》发文，“亚利桑那州最后一天清点：预计将出现巨大差异——（又有）两个州代表团参观审计”。【1】
+[!\[\]()!\[\](https://spark.adobe.com/page/7ID6uVaK5sBIq/images/f572b9cf-40d4-4592-b7b4-d7b834454f0d.jpg?asset_id=35b799fe-a12e-42a7-83d7-e98b1f714c21&amp;img_etag=%227fbf1595dce3472386ec78216dcd2158%22&amp;size=1024)](https://spark.adobe.com/page/7ID6uVaK5sBIq/images/f572b9cf-40d4-4592-b7b4-d7b834454f0d.jpg?asset_id=35b799fe-a12e-42a7-83d7-e98b1f714c21&amp;img_etag=%227fbf1595dce3472386ec78216dcd2158%22&amp;size=1024)
 
-文章说，在手工清点过程的最后一天，两个州代表团参观了美国的“国家审计”。
+爆料革命早期就曝光了中共势力对海外无孔不入的“蓝金黄”渗透，美国教育系统是中共的重点目标之一。中共在美国影响力的大量事实展现在美国人面前。如今中共“下三滥”的渗透手段已经尽人皆知，就必然会引发美国相应的反制措施。
 
-6名威斯康星州共和党议员和前密苏里州州长埃里克·格雷滕斯（Eric Greitens）出现在了亚利桑那州凤凰城的退伍军人纪念体育馆内。
+中共在海外开设孔子学院，名为传播中国文化，实则是间谍机构，为渗透全世界做了海外平台。最近很多国家开始对孔子学院本质有了清醒认识，因此很多孔子学院在压力下被迫关闭。佛罗里达新法案虽然不算非常重大的事件，但我们可以管中窥豹，灭共的潮流已经形成，各个行业都在行动。
 
-威斯康星州是一个摇摆不定的州，在大选日的深夜，我们看到了一个神秘的、无法解释的选票（图表的）掉落，（一时间）选票全都抛给了乔·拜登，州立法者必须在为时已晚之前采取行动。
+**原文翻译：**
 
-川普总统在密苏里州获胜，但埃里克·格雷滕斯（Eric Greitens）在这里观察这一过程，并将一些想法带回他的州。
+## **佛罗里达州州长德桑蒂斯(DeSantis)签署两项法案，遏制中共国对美国高等教育系统的影响**
 
-手工清点工作即将结束，他们预计选票总数将出现巨大的差异。
+**州长的发言人表示，“这项立法有效禁止了‘孔子学院’在佛罗里达州的运作。”**
 
-如果有任何少于马里科帕（Maricopa）郡认证的选票数量，这都是选举舞弊的证据。
+**该立法将要求大学向国家报告大额的外国捐赠和资助。**
 
-（原文完）
+[!\[\]()!\[\](https://spark.adobe.com/page/7ID6uVaK5sBIq/images/1f74dad3-0a30-42d2-9a69-11992689de87.png?asset_id=17c61b16-5a4e-42af-a586-f0007b4030d3&amp;img_etag=%2281b7ee6a81eb3547ba18e18aa237075c%22&amp;size=1024)](https://spark.adobe.com/page/7ID6uVaK5sBIq/images/1f74dad3-0a30-42d2-9a69-11992689de87.png?asset_id=17c61b16-5a4e-42af-a586-f0007b4030d3&amp;img_etag=%2281b7ee6a81eb3547ba18e18aa237075c%22&amp;size=1024)
 
-手工清点后的选票与选举管理委员会确认的票数“出现巨大差异”，仅此一条是不是就可以否定该州的“大选结果”？
+佛罗里达州州长Ron DeSantis于6月7日签署了新法案为法律，该法案是针对中共对佛罗里达州教育系统的影响。
 
-从一开始就阻止“审计”，到派出上百人的律师团队给法院施压，法院几次裁定“驳回审计”诉求，以及下达“停止审计”命令，再到向司法部请求，要求“停止审计”，直至昨天（6月11日）司法部长梅里克·加兰（Merrick Garland）站到前台发话，对质疑选举舞弊欺诈的“国家审计”要严格审查【2】……
+HB7017和HB1523法案针对的是企业间谍活动、犯罪活动和外国影响。如《校园改革》今年早些时候报道，佛罗里达大学的一名教授收到180万美元却在隐瞒其与中共政府的关系，另外还有一个来自Jacksonville 女性的案件。
 
-而亚利桑那人的回答却是：“美国能是一个由一群骗子管理的香蕉共和国吗？”更有前战斗机飞行员、亚利桑那州参议员温迪·罗杰斯（Wendy Rogers.）女士警告梅里克·加兰，“你不能碰亚利桑那州的选票或机器，除非你想在亚利桑那州监狱里待着。”【3】
+DeSantis州长表示，“我们今天所做的就是说，够了。我们必须开始反击，所以佛罗里达州正在这样做。”
 
-已经8个多月了，亚利桑那州的爱国者在为美国谱写历史，创造历史，期待改变历史！
+州长的新闻秘书克里斯蒂娜-普肖(Christina Pushaw)告诉《校园改革》说：“中共及其合作者在佛罗里达州的大学，或者说在佛罗里达州的任何地方都无处容身。这项立法有效地禁止了’孔子学院’在佛罗里达的运作。”
 
-参考链接：
+DeSantis州长办公室的一份新闻稿指出，该法案要求“大学和学院向州立大学系统理事会或教育部披露5万美元或以上的外国捐赠和资助”
 
-【1】[https://www.thegatewaypundit.com/2021/06/last-day-counting-huge-discrepancies-expected-2-state-delegations-tour-audit/](https://www.thegatewaypundit.com/2021/06/last-day-counting-huge-discrepancies-expected-2-state-delegations-tour-audit/)
+这些法律旨在审查佛罗里达州的所有实体，包括州、公司和大学。2019年，在佛罗里达州位于迈阿密戴德学院的最后一所孔子学院被关闭。
 
-【2】[https://gnews.org/zh-hans/1315960/](https://gnews.org/zh-hans/1315960/)
+据新闻称，在宣布签署该法案时，州议员艾琳-格拉尔(Erin Grall)说：“佛罗里达州的学院、大学和公共实体在接受礼物——特别是来自外国对手的礼物时，必须遵循高标准的披露和透明度。”
 
-【3】[https://www.thegatewaypundit.com/2021/06/arizona-lawmaker-responds-ag-garland-will-not-touch-arizona-ballots-machines-unless-want-spend-time-arizona-prison/](https://www.thegatewaypundit.com/2021/06/arizona-lawmaker-responds-ag-garland-will-not-touch-arizona-ballots-machines-unless-want-spend-time-arizona-prison/)
+🔗[原文链接](https://campusreform.org/article?id=17617)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7ID6uVaK5sBIq/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/7ID6uVaK5sBIq/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

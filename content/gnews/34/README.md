@@ -1,53 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G7的领导者们聚会，构建世界新秩序
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1317819/)
+## 亚利桑那州的“国家审计”手工清点最后一日
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1317968/)
 
-作者：Gokuabuela|校对：X-Wing|审核：Beicy-数学老师|Page：小雨
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-[!\[\]()!\[\](https://spark.adobe.com/page/TOWEkwDiyLwsK/images/c34d90ba-6913-4a2a-9269-f4b8a7c6cc1e.jpg?asset_id=124c64ae-52f9-467a-a8ac-14cd6213a19d&amp;img_etag=%227f5fc317bd9c92436ab357bc88288346%22&amp;size=2560)](https://spark.adobe.com/page/TOWEkwDiyLwsK/images/c34d90ba-6913-4a2a-9269-f4b8a7c6cc1e.jpg?asset_id=124c64ae-52f9-467a-a8ac-14cd6213a19d&amp;img_etag=%227f5fc317bd9c92436ab357bc88288346%22&amp;size=1024)
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12191527/A-10.jpg)survivethenews.com
+持续关注“国家审计”的进展情况。
 
-**简评：**
+《门道专家》发文，“亚利桑那州最后一天清点：预计将出现巨大差异——（又有）两个州代表团参观审计”。【1】
 
-从这篇文章我们可以更清楚地验证之前我们发表的七[国集团峰会将改变全球地缘政治](https://gnews.org/zh-hans/1304990/)的观点。
+文章说，在手工清点过程的最后一天，两个州代表团参观了美国的“国家审计”。
 
-拜登执政以后，的确像路德访谈分析的一样，一方面继承川普的与北京对抗的路线，另一方面开始全面修补与盟国，主要是指欧洲的关系。
+6名威斯康星州共和党议员和前密苏里州州长埃里克·格雷滕斯（Eric Greitens）出现在了亚利桑那州凤凰城的退伍军人纪念体育馆内。
 
-另外，我们又看到，英国脱欧，英国和北爱尔兰的冲突，最重要的是英国希望对中共“以打促和”，希望北京成为一个“听话的伙伴”，而美国似乎态度更为坚决。
+威斯康星州是一个摇摆不定的州，在大选日的深夜，我们看到了一个神秘的、无法解释的选票（图表的）掉落，（一时间）选票全都抛给了乔·拜登，州立法者必须在为时已晚之前采取行动。
 
-通过峰会，如果能修补大西洋双方的内部分歧，对中共达成统一的态度，将奠定改变世界格局的基础。拜登政府的内外政策已经非常明显，对内：种族和解，刺激经济，产业链回归，收服科技巨头和华尔街；对外，联合盟国，包括日本、韩国、印度、澳大利亚，稳住俄罗斯，与中共决战。
+川普总统在密苏里州获胜，但埃里克·格雷滕斯（Eric Greitens）在这里观察这一过程，并将一些想法带回他的州。
 
-G7峰会，可能会是全球联合灭共的正式出发点。非常值得关注，我们将持续关注报道。
+手工清点工作即将结束，他们预计选票总数将出现巨大的差异。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/TOWEkwDiyLwsK/images/ad8e0bce-1cbf-4df8-b7be-e493151b26cd.jpg?asset_id=30a7edb7-1194-4c9f-8143-d27007209531&amp;img_etag=%226b474d21bb60c35bde3ef47e1298b68d%22&amp;size=2560)](https://spark.adobe.com/page/TOWEkwDiyLwsK/images/ad8e0bce-1cbf-4df8-b7be-e493151b26cd.jpg?asset_id=30a7edb7-1194-4c9f-8143-d27007209531&amp;img_etag=%226b474d21bb60c35bde3ef47e1298b68d%22&amp;size=1024)图片：来源《机密报》
+如果有任何少于马里科帕（Maricopa）郡认证的选票数量，这都是选举舞弊的证据。
 
-**全文:**
+（原文完）
 
-长期以来，七国集团峰会的作用一直受到质疑。召集世界上最富有的七个民主国家的领导人（欧盟作为嘉宾）讨论抽象的问题，然后签署一份没有法律约束力的文件，也许不是把握国际棋盘脉搏的最佳方式。通常情况下，什么都不会发生，直到有事发生。2018年的峰会表明，世界上有两个集团互相对峙着，一边是加拿大、英国、法国、德国、意大利、日本（加上欧盟作为嘉宾），另一边是美国。面对这样分裂的局面，中共国和俄罗斯则摩拳擦掌。
+手工清点后的选票与选举管理委员会确认的票数“出现巨大差异”，仅此一条是不是就可以否定该州的“大选结果”？
 
-在这种情况下，本周五在英国沿海城市康沃尔开始的七国集团峰会不能被视为只是另一次峰会。这可能是近几十年来最重要的国际事件之一。出于几个原因，这是乔•拜登作为总统的第一次，他为自己的政府选择了“美国回来了”的口号，以便尽可能地与他的前任保持距离。这是英美领导人在一场大流行病之后的首次会面，这场疫情大流行不仅在全世界造成了378万多人死亡，而且还凸显了中共日益强大的影响力。这次峰会是第一次由将英国带出欧盟的古怪政治家主持。对于鲍里斯•约翰逊来说，这次峰会是一个打响全球英国品牌的机会，表明英国仍然是游戏盘上的一个重要角色。
+从一开始就阻止“审计”，到派出上百人的律师团队给法院施压，法院几次裁定“驳回审计”诉求，以及下达“停止审计”命令，再到向司法部请求，要求“停止审计”，直至昨天（6月11日）司法部长梅里克·加兰（Merrick Garland）站到前台发话，对质疑选举舞弊欺诈的“国家审计”要严格审查【2】……
 
-各方领导人签署了一份新的“大西洋宪章”，这是温斯顿•丘吉尔和富兰克林•罗斯福在1941年缔结的条约的现代版本，重点关注包括气候变化和安全在内的挑战。在镜头前，满脸笑容。但在背后，情况就大不相同了。据《泰晤士报》披露，拜登（爱尔兰后裔）通过外交渠道指责英国首相“煽动”北爱尔兰的紧张局势，并要求他承担在《爱尔兰议定书》中向欧盟做出的承诺，这是《英国脱欧协议》的一个关键部分，以便不危及爱尔兰Ulster（阿尔斯特）地区的和平。双边会谈后，约翰逊告诉英国广播公司，在需要解决北爱尔兰的贸易问题上，英美 “完全一致”。
+而亚利桑那人的回答却是：“美国能是一个由一群骗子管理的香蕉共和国吗？”更有前战斗机飞行员、亚利桑那州参议员温迪·罗杰斯（Wendy Rogers.）女士警告梅里克·加兰，“你不能碰亚利桑那州的选票或机器，除非你想在亚利桑那州监狱里待着。”【3】
 
-对于美国总统拜登的首次国际访问，他明确表示，民主国家与威权政权，特别是与中共国的竞争是这个时代的决定性全球挑战。他不仅维持了其前任川普总统带头采取的反对习近平政权的措施，而且还扩大了这些措施。
+已经8个多月了，亚利桑那州的爱国者在为美国谱写历史，创造历史，期待改变历史！
 
-唐宁街方面认为，需要与中共国采取更多竞争与合作的混合方式，特别是全球危机，如气候变化，没有北京就无法解决。这并不是七国集团峰会前的唯一分歧。约翰逊将不得不捍卫英国的利益。但是，作为东道主，他也必须在参与者中寻求共识。而这并不是一件容易的事。
+参考链接：
 
-除了大流行病的康复、疫苗和气候变化之外，预计峰会议程还包括支持自由和公平贸易以及加强网络安全等议题，这是在美国最近发生网络攻击之后的一个有争议的问题。星期天，成果文件中会公布多少简洁的内容，还有待观察。在所达成的协议中，七国集团的财政部长上周已经提出了对跨国公司在其经营的每个国家至少征收15%的全球最低公司税。
+【1】[https://www.thegatewaypundit.com/2021/06/last-day-counting-huge-discrepancies-expected-2-state-delegations-tour-audit/](https://www.thegatewaypundit.com/2021/06/last-day-counting-huge-discrepancies-expected-2-state-delegations-tour-audit/)
 
-[🔗](https://www.elconfidencial.com/mundo/europa/2021-06-11/los-lideres-del-g7-se-reunen-para-disenar-el-mundo-pos-pandemia_3126391/)新闻来源：[西班牙《机密报》Los líderes del G7 se reúnen para diseñar el mundo pospandemia](https://www.elconfidencial.com/mundo/europa/2021-06-11/los-lideres-del-g7-se-reunen-para-disenar-el-mundo-pos-pandemia_3126391/)
+【2】[https://gnews.org/zh-hans/1315960/](https://gnews.org/zh-hans/1315960/)
 
-（文章仅代表作者观点—）
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/TOWEkwDiyLwsK/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/TOWEkwDiyLwsK/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+【3】[https://www.thegatewaypundit.com/2021/06/arizona-lawmaker-responds-ag-garland-will-not-touch-arizona-ballots-machines-unless-want-spend-time-arizona-prison/](https://www.thegatewaypundit.com/2021/06/arizona-lawmaker-responds-ag-garland-will-not-touch-arizona-ballots-machines-unless-want-spend-time-arizona-prison/)
 
 0

@@ -1,108 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】SARS-CoV-2变异、疫苗和免疫：关注变异体的含义
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1317595/)
+## 不惜一切代价：找寻失踪女孩
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1317809/)
 
-译评：纽约香草山佛教部  一花一世界
+作者：Gokuabuela| 校对：X-Wing| 审核：Beicy-数学老师| Page：小六月
 
+[!\[\]()!\[\](https://spark.adobe.com/page/JNaztCdoC7xVi/images/06ee7d1a-2648-4ae5-a6d1-631b447fbf75.jpg?asset_id=35965317-06a4-44a3-95ef-6d75831ae2d2&amp;img_etag=%22d58dbd94faf0df249b3c1f78bdedc61d%22&amp;size=1024)](https://spark.adobe.com/page/JNaztCdoC7xVi/images/06ee7d1a-2648-4ae5-a6d1-631b447fbf75.jpg?asset_id=35965317-06a4-44a3-95ef-6d75831ae2d2&amp;img_etag=%22d58dbd94faf0df249b3c1f78bdedc61d%22&amp;size=1024)
 
+之前，我们报道过[“孩子去哪了”](https://gnews.org/zh-hans/1248476/)，4月27日，西班牙特内里费岛2位女孩失踪，一位6岁，一位1岁。其父母处于分居状态，有邻居看到当晚女孩的爸爸独自拿着几个大袋子，开着游艇出海。4个小时后，人们在海上发现了空无一人的游艇，GPS系统等都已经被关闭。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+事件发生后，引起了西班牙全国的巨大轰动。由于最后发现游艇的海域水深600-2000米，难以找到任何线索。在进行陆地调查的同时，西班牙政府发誓要不惜一切代价，找到失踪女孩。当时的计划是：出动国民警卫队的反潜舰艇，用声纳探索海底，如果不成功，调用西班牙最先进的海洋科考船，“逐寸扫描海底，不放过任何一块石头”。
 
+经过40天的不懈努力，真得调用了海洋科考船，本周四（6月10日），传来了一个令人心碎的消息：在海底打捞上来的一个袋子里，发现了6岁女孩奥利维亚（OLIVIA）的尸体。爸爸和1岁女孩安娜（ANNA）暂时还没有消息，搜寻工作将不会停止。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/JNaztCdoC7xVi/images/7dd443e5-c717-4ae2-a9d8-dd0c57d0077e.png?asset_id=7e5a5421-7707-4fd1-b17b-3140cf193ba6&amp;img_etag=%2259ab5a587904004b394a98a897a3d1e2%22&amp;size=2560)](https://spark.adobe.com/page/JNaztCdoC7xVi/images/7dd443e5-c717-4ae2-a9d8-dd0c57d0077e.png?asset_id=7e5a5421-7707-4fd1-b17b-3140cf193ba6&amp;img_etag=%2259ab5a587904004b394a98a897a3d1e2%22&amp;size=1024)图1
 
-**编者语：**
+图1上标注：打捞到袋子的地点离GUIMAR港大约1.8公里。4月27日发现失踪，5月24日开始用科考船搜寻，6月10日发现奥利维亚的遗体，搜寻将继续。
 
-Signal Transduction and Targeted Therapy网站上近日发表了一篇SARS-Cov-2的相关文章。该文章是由Ji Yun Noh，Hye Won Jeong和Eui-Cheol Shin于2021年5月22日共同完成并发表的。文章主要针对Wang等人之前发表在《自然》杂志上的一篇论文，作者对该论文作以分析并讨论了目前市面上的COVID-19疫苗的效用与病毒变异体之间的关系。
+[!\[\]()!\[\](https://spark.adobe.com/page/JNaztCdoC7xVi/images/72a3893e-72d2-40f1-b8c7-1078e5c0153a.png?asset_id=ad5b9a14-36f0-42c8-94f4-845bbb234502&amp;img_etag=%226b05d6871ddb1dea0e752ac0935e96e6%22&amp;size=5168)](https://spark.adobe.com/page/JNaztCdoC7xVi/images/72a3893e-72d2-40f1-b8c7-1078e5c0153a.png?asset_id=ad5b9a14-36f0-42c8-94f4-845bbb234502&amp;img_etag=%226b05d6871ddb1dea0e752ac0935e96e6%22&amp;size=1024)图２
 
-本文译者将Noh等人的论文翻译并加以自身的评价，以便让读者可以更好的理解。本篇文章也很好地解释了为什么我们一直强调，目前市面上的疫苗并不能有效地保护接种人不受新冠病毒的侵袭。
+图２显示，科考船使用当今最先进的复合式声纳系统，能根据回波实现实时成像，就是能根据声纳发出的声波，在屏幕上形成物品的图像。在海底1000米处发现了装有遗体的袋子。用水下机器人实施了打捞，水下机器人可以直接和声纳系统联网，用机械手进行工作，最深工作深度为2000米。 科考船从接到任务开始，每天24小时不间断地工作。找到奥利维亚的遗体后，当地政府决定今天12:00全市将静默一分钟，表示哀悼。 大量的信息从社交媒体发往孩子的妈妈贝阿特丽丝（BEATRIZ），表示和妈妈一起承担悲痛，并将一起等待，不放弃最后的希望。
+![]()![](https://spark.adobe.com/page/JNaztCdoC7xVi/images/69f6eeb1-519a-49d1-8786-5cfc6d344b5b.png?asset_id=e393e78a-7e52-4e12-9a0f-c84c5f66e04c&amp;img_etag=%22566a7fdf77b0e0dda112b49e4f00c04c%22&amp;size=2560)图３
+[!\[\]()!\[\](https://spark.adobe.com/page/JNaztCdoC7xVi/images/69f6eeb1-519a-49d1-8786-5cfc6d344b5b.png?asset_id=e393e78a-7e52-4e12-9a0f-c84c5f66e04c&amp;img_etag=%22566a7fdf77b0e0dda112b49e4f00c04c%22&amp;size=2560)](https://spark.adobe.com/page/JNaztCdoC7xVi/images/69f6eeb1-519a-49d1-8786-5cfc6d344b5b.png?asset_id=e393e78a-7e52-4e12-9a0f-c84c5f66e04c&amp;img_etag=%22566a7fdf77b0e0dda112b49e4f00c04c%22&amp;size=1024)
 
-原文来源：Signal Transduction and Targeted Therapy
+图３，西班牙首相桑切斯在推特上发文“我无法想象孩子的妈妈所承受的痛苦，用我的双臂，我的深情，和我的家人一起，拥抱孩子的妈妈—贝阿特丽丝”。
 
-原文链接：[https://www.nature.com/articles/s41392-021-00623-2](https://www.nature.com/articles/s41392-021-00623-2)
+西班牙几乎所有的党派领导人都发推文表示哀痛和对受害者家庭的支持。孩子的妈妈贝阿特丽丝在收到噩耗后，表示：我仍旧抱有希望。
 
-论文链接：[https://rdcu.be/cmqyj](https://rdcu.be/cmqyj)
+为人父者，为人母者，对孩子的伤害是我们生命不能承受之痛。而在中共国，可以满大街的监控，如果你喊一声“打倒习近平”，最多不超过8小时，天涯海角，虽远必诛。也可以在几小时内，帮助外国友人们找到丢失的自行车、丢失的钱包等，彰显“负责任的大国风范”。但就是找不回每年丢失的那么多的中国老百姓的孩子！
 
-论文详细信息：
+是真找不到吗？是根本不愿意花功夫去找！赵家人的孩子又不会丢，所以丢孩子有什么好在意的呢？中共最喜欢的事情就是让草根们互相伤害，然后，它站出来，做做姿态，比如来个专项行动，解救了10个孩子，然后，大家一起说，还是共产党好啊，你看，它会帮我们解救孩子。殊不知，每年丢失上万的孩子，难道不是制度之殇？
 
-“*SARS-CoV-2 mutations, vaccines, and immunity: implication of variants of concern*,” Ji Yun Noh, Hye Won Jeong, and Eui-Cheol Shin, *Signal Transduction and Targeted Therapy* (2021) 6:203
-[https://doi.org/10.1038/s41392-021-00623-2](https://doi.org/10.1038/s41392-021-00623-2)
+我们还知道，中共会把中国人的孩子作为礼物，送给外国政要，作为蓝金黄的手段，就像“3块硬盘”里的那些孩子。按照中共的反人类本质，他们需要儿童失踪这样的一个口子，来掩饰他们的无耻行为。
 
-* * *
+一个普通的民主国家，如西班牙，为了失踪的孩子可以不惜一切代价，至今花费已超过百万欧元，上至总理下到平民百姓都十分关注，向失踪孩子目前表达哀痛同情之共情，真正体现了对国民普通生命的尊重。而中国共产党宣传的爱国教育，号称“犯我中华者，虽远必诛”，却根本不在乎其国家和民族的未来——孩子，这样的政权你怎么能相信它？
 
-* * *
+（文章仅代表作者观点）
 
-在最近发表在《自然》杂志上的一项研究中，Wang等人研究了COVID-19 mRNA疫苗和SARS-CoV-2自然感染所引起的抗体对SARS-CoV-2变体的中和活性。
+[引用内容链接](https://www.elconfidencial.com/espana/2021-06-11/el-buque-angeles-alvarino-continua-la-busqueda-de-anna-y-tomas-gimeno-en-tenerife_3126936/)
 
-当下，COVID-19大流行对公共卫生、经济和社会的破坏性影响，使疫苗开发成为全球卫生的首要任务。因此，作为对COVID-19的紧急回应，疫苗开发正在以前所未有的速度进行。
-
-目前，COVID-19疫苗主要有四种类型：核酸（mRNA和DNA）、病毒载体、蛋白亚单位和灭活病毒。两种COVID-19 mRNA疫苗（辉瑞-生物技术公司开发的BNT162b2和Moderna公司的mRNA-1273）已经获得了美国食品和药物管理局（FDA）和欧洲药品管理局（EMA）的授权。此外，另有两种病毒载体疫苗也获得了使用授权，Ad26.COV2.S（强生/杨森）获得FDA和EMA的批准，ChAdOx1 nCoV-19（阿斯利康）获得EMA批准。
-
-BNT162b2和mRNA-1273是脂质纳米颗粒制剂，二者都是核苷修饰的RNA疫苗，通过编码SARS-CoV-2的融合前刺突糖蛋白生效。在3期临床试验中，这两种疫苗在预防COVID-19方面都显示出良好的疫苗效力（94-95%）。然而，SARS-CoV-2的新变体及其全球扩散引起了人们的关注，即目前的COVID-19疫苗对已知的变异毒株（VOCs）的保护可能会减少。在英国（B.1.1.7）、南非（B.1.351）和巴西（P.1）出现了多个值得注意的携带刺突蛋白突变的变体。B.1.1.7变体（20I/501Y.V1）是全球范围内传播最广泛的变异毒株（VOC），其在受体结合域（RBD）中有一个N501Y替换，在N端域有H69/V70缺失，在刺突状蛋白的福林酶切位点旁有P681H突变。这个变异与传播性的增强有关。至于B.1.351变体（20H/501Y.V2），其包含几个突变，包括K417N、E484K和N501Y。另外，P.1变体（B.1.1.28.1）在刺突蛋白的RBD中拥有K417T、E484K和N501Y的替换。这些变异毒株（VOCs）都存在D614G突变，该突变使病毒快速传播的能力增强。
-
-Wang等人测试了接种者的血浆（BNT162b2，n = 6；mRNA-1273，n = 14），测试疫苗对携带K417N、E484K、N501Y以及这三种RBD突变组合（B.1.351变体）的假型病毒的中和活性。研究显示，疫苗对E484K、N501Y和K417N:E484K:N501Y组合的中和活性下降了1至3倍（分别为p = 0.0033、p = 0.0002和p &lt; 0.0001），但对野生型和K417N突变的中和活性没有明显差异。这一结果表明，COVID-19 mRNA疫苗激发的中和抗体对具有RBD突变的新出现的SARS-CoV-2 VOCs效果较差。此外，从SARS-CoV-2感染6个月后的患者身上获得的康复期血浆对K417N:E484K:N501Y组合的中和效果要比预期的低0.5-20.2倍（P &lt; 0.0001）。
-
-在随后的分析中，该研究被扩展到SARS-CoV-2 RBD特异性记忆B细胞。mRNA疫苗引起了强烈的SARS-CoV-2 RBD特异性记忆B细胞反应，其表现类似于自然感染。实际上，单克隆抗体（mAbs）由SARS-CoV-2 RBD特异性记忆B细胞表达，并对SARS-CoV-2假病毒具有强大的中和活性。然而，在17种最有效的mAbs中，有14种在中和K417N、E484K或N501Y突变时表现出活性降低或消失。该研究还检测到mAbs的选择压力：当重组水泡口炎病毒/SARS-CoV-2 S在疫苗激发的mAbs存在下被培养时，这些突变就出现了。
-
-同样，Chen等人的报告说，BNT162b2疫苗接种者的血清对新出现的SARS-CoV-2变体的中和活性降低。他们观察到，与Vero-hACE2-TMPRSS2细胞中的D614G变体相比，接种者的血清对B.1.1.7分离株（2倍）、E484K/N501Y/D614G重组变体（4倍）、编码B.1.351刺突蛋白的两个嵌合SARS-CoV-2毒株（10倍）和P.1刺突蛋白（2.2倍）的中和效力明显下降。测试中，K417N/D614G变体没有显示出明显的中和活性降低，这表明BNT162b2疫苗接受者的血清对含有E484K和N501Y的病毒的中和能力较低。
-
-此外，Wang等人证明，在康复期血浆（9.4倍）和接受mRNA疫苗的接种者血清（10.3-12.4倍）中，它们对B.1.351毒株的中和活性大幅下降。而E484K似乎是导致中和抗性的主要因素。此外，临床使用的，或正在临床调查的mAb治疗剂对B.1.351变体的中和效力下降。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12134927/50.jpg)
-
-综上所述，最近的研究结果表明，抗性SARS-CoV-2变体的出现可能会使目前COVID-19疫苗失效。然而，COVID-19疫苗不仅可以引起中和抗体，还可以引起SARS-CoV-2特异性CD4+和CD8+ T细胞反应。目前，各种疫苗平台，包括mRNA和病毒载体进行疫苗接种时，已被证明可以引起SARS-CoV-2特异性CD4+和CD8+ T细胞反应（图1）。原则上，由于多个T细胞表位分散在病毒蛋白中，但中和抗体针对的是病毒蛋白中的一个狭窄区域，所以，相比中和抗体反应，更难逃避的是T细胞反应。尽管最近一直有SARS-CoV-2变体与主要组织相容性复合体的结合被废除的报道，Tarke等人最近报道了，SARS-CoV-2变体对COVID-19康复者和COVID-19 mRNA疫苗接受者的CD4+和CD8+ T细胞反应的影响不大。实际上，疫苗/康复血清对变体B.1.1.7、B.1.351、P.1和CAL.20C（在南加州出现）的T细胞反应与对SARS-CoV-2祖株的反应没有区别。尽管有变异体的突变，大多数SARS-CoV-2的T细胞表位是保守的。
-
-COVID-19疫苗引起了SARS-CoV-2特异性CD4+和CD8+ T细胞反应以及中和抗体。尽管目前COVID-19 mRNA疫苗激发的抗体对SARS-CoV-2变体的中和活性减弱，但T细胞反应可能对宿主保护SARS-CoV-2变体有作用。
-
-目前，人们对COVID-19大流行病的未来是不可预测的。相关部门需要不断仔细监测变异体的出现，并彻底调查其对公共卫生的影响。SARS-CoV-2 变异毒株（VOCs）的不断出现对更新目前的COVID-19疫苗及后续开发的提供更广泛保护的疫苗都有影响。即使SARS-CoV-2变体逃脱了目前COVID-19疫苗所激发的中和抗体，T细胞免疫也可能有助于通过减弱疾病严重程度和降低死亡率来减少COVID-19的疾病负担。COVID-19疫苗的实际效果，特别是在预防住院、并发症和死亡方面，应在不久的将来进行重新评估。最重要的是，政府应实施公共卫生政策，以确保对SARS-CoV-2变种的担忧和对变异毒株（VOCs）可能降低的疫苗效力不会导致COVID-19疫苗接种率的扁平化。
-
-* * *
-
-**评论：**
-
-《自然》杂志的这篇报告只是最近诸多证实疫苗无用的报告之一。这篇报告中针对COVID-19 mRNA疫苗所激发的抗体对几种病毒变体的效果，将其进行对比测试，以证明抗体中和效果显著降低。而目前，由辉瑞和Moderna公司开发的疫苗仅针对的是源自武汉的原始毒株。鉴于冠状病毒强变异的特性，此种毒株在美国已不复存在，取而代之的是14种毒株变体。换而言之，疫苗的开发赶不上病毒的变异速度。
-
-另外更重要的一点是，目前所谓的疫苗不是我们传统意义上经过严格程序开发的疫苗，它们甚至没有经过动物实验。美国药监局在其官网上明确指出，辉瑞和Moderna公司开发的预防新冠病毒的疫苗并非批准使用的疫苗，只是紧急批准使用的实验性药物，可能会有保护作用，但也可能不会保护每个人。可见，药监局对此新药亦无把握，只能悄无声息地做出声明，这样既不得罪大医药公司，又将法律责任早早撇清。
-
-日前，有科学家提出，新冠疫苗比新冠病毒本身还毒：“mRNA 疫苗中的脂质纳米颗粒（LNP）会导致免疫系统在全身制造一种合成的刺突蛋白（Spike protein），这种蛋白比原始新冠病毒上的刺突蛋白更具致病性，在体内的数量比自然感染更多。”众所周知，新冠病毒是实验室功能性增强实验的产物，即非自然起源病毒。因此，不管是无意泄漏还是有意释放，其变异速度之快，传染力和毒性之强，有目共睹。事实上，普通流感的疫苗尚且需要年年开发、年年打，且只有50%-60%的效用，您怎么能相信如此仓促开发出的疫苗是有效的？要知道，新冠疫苗的致死率甚至是其它疫苗的4000倍！
-
-珍爱生命，远离疫苗，预防为要！硫酸羟氯喹是目前最有效和最安全的治疗预防药物，越来越多的数据事实正在不断证明这一点。
-
-参考阅读：
-
-[Scientists and Doctors Warn Against experimental COVID-19 Vaccines](http://www.kathydopp.info/COVIDinfo/Vaccines/VaccineADE)
-
-[Fact Check-VAERS reported vaccine deaths have not been confirmed or deemed causal by CDC](https://www.reuters.com/article/factcheck-vaers-deaths-idUSL1N2MZ2H8)
-
-[EMERGENCY USE AUTHORIZATION (EUA) OF THE PFIZER-BIONTECH COVID-19 VACCINE TO PREVENT CORONAVIRUS DISEASE 2019 (COVID-19) IN INDIVIDUALS 12 YEARS OF AGE AND OLDER](https://www.fda.gov/media/144414/download)
-
-[EMERGENCY USE AUTHORIZATION (EUA) OF THE MODERNA COVID-19 VACCINE TO PREVENT CORONAVIRUS DISEASE 2019 (COVID-19) IN INDIVIDUALS 18 YEARS OF AGE AND OLDER](https://www.fda.gov/media/144638/download)
-
-[Who was excluded from COVID-19 Vaccine Safety Trials](https://rumble.com/vgqco7-who-was-excluded-from-covid-19-vaccine-safety-trials.html)
-
-[Study shows hydroxychloroquine treatments increased coronavirus survival rate by almost three times](https://www.washingtonexaminer.com/news/study-hydroxychloroquine-increase-survival-rate-200-percent)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
-
-
+[!\[\]()!\[\](https://spark.adobe.com/page/JNaztCdoC7xVi/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/JNaztCdoC7xVi/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
