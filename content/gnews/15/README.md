@@ -1,28 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 民意调查：现在大多数美国人相信冠状病毒源自武汉病毒研究所
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1319298/)
+## 【新闻简评】为何38岁的张一鸣辞去字节跳动总裁职位
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1319321/)
 
-翻译 : 康州盘古农场 – TrueSky
-校对 : 康州盘古农场 – 格格巫
-编辑 : 康州盘古农场 – 格格巫
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13054927/9741.jpg)
-**据《布雷巴特新闻网》作者：WENDELL HUSEBØ，在2021年6月10日报道：**
+作者：喜马拉雅东京樱花团 / 行者
 
-周三公布的一项民意调查显示，现在大多数美国人认为冠状病毒起源于武汉病毒研究所。
-当受访者被Trafalgar集团问及”什么最能说明你对COVID-19如何开始的看法？”时，近54%的人说该病毒源自实验室。更具体地说，29.1%的人认为病毒是故意从实验室释放出来的，而24.4%的人认为它是意外地从实验室泄露的。而29.3%的人表示，他们对病毒的起源地没有确定的想法。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13055300/9742.jpg)我们的@[email protected]#民意调查在@[email protected]今晚的节目中发布。今晚的节目显示，大多数美国人认为#冠状病毒来自实验室而非自然。见报告：[https://thetrafalgargroup.org/news/nat-issues-covid-origin-0609…
-https://twitter.com/RobertCahaly/status/1402819850792226816?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1402819850792226816%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.breitbart.com%2Fpolitics%2F2021%2F06%2F10%2Fpoll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology%2F](https://thetrafalgargroup.org/news/nat-issues-covid-origin-0609…
-https://twitter.com/RobertCahaly/status/1402819850792226816?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1402819850792226816%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.breitbart.com%2Fpolitics%2F2021%2F06%2F10%2Fpoll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology%2F)
-这项民意调查是在立法者关注一份据称支持冠状病毒起源于中共国武汉病毒研究所的理论的机密报告时进行的。”我们很多人认为各种监督委员会应该更早一点知道这份报告”，众议院能源和商业委员会成员摩根-格里菲斯（R-VA）谈到报告时说，”我们想得到答案……因为我们认为他们拥有比我们最初在3月时想象的更大的一块拼图。”
-这份绝密报告是由政府支持的劳伦斯-利弗莫尔国家实验室的研究人员于2020年5月发布的。同时，调查实验室泄密丑闻的前副助理国务卿戴维-费斯6月2日表示，政府、教育机构和公司如果在中共国进行科学和技术交流，就不能确定他们没有在不知情的情况下与中共的军队合作。当前国务卿迈克-蓬佩奥在3月被问及他是否可以确认美国相信中共军方参与了武汉实验室的研究时，蓬佩奥回答说：”这是正确的，这是一个高度自信的评估，情况确实如此。”不管科学家和中共之间有什么联系，国务院关于病毒起源的概况介绍说，中共”系统地阻止对COVID-19大流行病的起源进行透明和彻底的调查，而是选择将巨大的资源用于欺骗和造谣”。
-民意调查于6月3日至7日进行，受访者为1025名可能参加大选的选民。误差率为3.06%。
+2021年5月20日38岁的张一鸣（见《维基百科》）发布内部信宣布卸任字节跳动CEO一职，估值近4000亿美元的字节跳动还没有上市。张一鸣在此时选择激流勇退表示“现公司发展良好，但想在更上一层楼，本身有了局限性无法到达更好所以退位，想在更喜欢的地方发展”。但对领导的变动是否有影响？董事会的构成与股权的具体情况并没有做出说明，这让很多人感到困惑，自2012年3月12日成立至今才9年且发展前景良好的私企CEO为何卸任？
 
-原文连接：[https://www.breitbart.com/politics/2021/06/10/poll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology/?utm\_medium=social&utm\_source=facebook&fbclid=IwAR1-McH5yM2bH6sKVjnp5a1fJweUZPoWnJBgzbkHJV9qFDKU5fvylzmLRpA](https://www.breitbart.com/politics/2021/06/10/poll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology/?utm_medium=social&amp;utm_source=facebook&amp;fbclid=IwAR1-McH5yM2bH6sKVjnp5a1fJweUZPoWnJBgzbkHJV9qFDKU5fvylzmLRpA)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+![](https://lh5.googleusercontent.com/DexF0pDdm3RmSkCfGKcyhJ7BLqid-T3stTONLceOPdu9Dit4WlbO9F_aHdRyC0MQcoiT1XDWRQi4ZPGJSr2aJlklMtp5hsjCUoqT4TZa2xMSXeOr9JuCWcE-8uOkZSivdsFW4oP0)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+在分析为何卸任的原因之前，不得不先提一下关于著名互联网行业私企CEO代表马云（现已卸任）的关于违法《反垄断法》阿里巴巴被罚182亿人民币说起。反垄断法是以保证公正的自由交易和确保公正交易的法律。并设有独立的交易委员会监督。（民主社会的三权分立司法、立法、行政各自的独立体系构成）相比中国的法治结构任何法律都要以党（政府行政）为最高决定机构。
 
+![](https://lh4.googleusercontent.com/0XRv_jymeotnP8KJtp37ygQuykhXaA3GHktb3yB9Hmdy0UAE7m5Lalce4u2ZZUlb8Yx2yznC-7ENFcVwahQq7rpyV7BUCIPA2MFlR16nQ68MEXDU8bx2iHIeCbMQcfGyDk6RwyRE)
+
+（图片上方为日本反垄断法的宗旨于监督机构的性质，下方为中国反垄断法法律意图）也就是说管理与监管都由同一个政府所控制，没有独立的监督机构！也说明国企与国家政府在相同位置，当然没有垄断之说。而私企才是真正反垄断法的唯一目标、目的。当然字节跳动的CEO张一鸣也是其目标之一了。
+
+分析2008年施行，2020年1月底修改的反垄断法，为什么对互联网等私企进行变相的制裁？这于中国的发展不是背向而行吗？首先要了解中国企业的特色与目的。中国企业就是有中国政府支持扶持的企业-简称国企，国企是国家命脉和安全的行业，里面当然包含相关的军事企业，也是中国最大的垄断企业。但私企的能力超过国企，国企在市场上失去竞争力时，政府不得不强行无理干涉，使国企能够保存或赶上具有市场竞争的能力。例如字节跳动的私企与竞争对手百度腾讯的差异。百度是垄断企业（搜索引擎）虽有大量广告不用引流就没有了积极性，因管理混乱而使利用者受到伤害，信用跌倒了低谷。（魏则西事件） 而字节跳动通过帮助用户发现自我价值、关注优质内容平台管理迅速的特质，多元、国际化的，也是第一个没有寻求商业保护和融资就创造了4000万美元价值的私企，使得政府不得不通过一些方法加以干涉和控制。
+
+那为什么政府不是关闭私企而是以控制为目的呢？那就要从政治、经济、军事方面了解一下。首先字节跳动2014年被成立了中央党支部，又在2017年4月成立了中央党委，以学习习主席的一切为了党的方针通过抖音对言论的监视，强制任何组织和公民依法支持和协助配合国家情报工作，通过系统和员工执行审查规则，去除敏感材料（例如抗议活动等），以中国和谐文化为目的，做对中国政府有利的报道，抖音被利用为中共作政治宣传的工具。观看私人消息传递，位置内容等各种数据的分析取得情报用于军事方面，可以根据中国政府当地法律强迫字节跳动移交外国用户数据（2017年中国国家安全法）。近估值4000亿美元的字节跳动私企并很有钱途，对中国政府来说是一笔不小的资本，而根据中共的马克思主义习的断章取义推崇理论—共产主义社会，对私有财产制度的否定，而不言及劳动独裁，没有阶级的社会）私企的资本将在未来时间里成为中共的一个金蛋。
+
+![](https://lh6.googleusercontent.com/Tifk8YinS_oCdFSC1JHOZ1xkL4ZVKNhgUHOnBVbEy39cfNnKUAvthWthj9IvTJoKcYLrM7DVDWjZU8o41QxLB7ffJM2PuowMbJuD23eVhc-usNNUr_CwQ5JrPsj0spTVe5kIS_fg)
+
+而字节跳动CEO张一鸣作为业界成功人士，他的所作所为也会相对的影响到特别是年轻人，例如工作待遇问题，与那些和政府相关的单位对比（恶劣环境），也会引起不满。如图一天三餐免费，时间的自由性，被肯定和多做多得的公司文化都是被视为“起了不好的带头作用”。
+
+所以不管张一鸣是自退还是被退，那是必然的结果。字节跳动已辞职的副总裁留下的一句话，“流年笑掷，未来可期”，耐人寻味。希望在新的民主政权到来时，拥有更多的期盼，我们拭目以待。
+
+参考引用：
+
+[维基百科](https://zh.m.wikipedia.org/wiki/张一鸣) 
+[ABC中文](https://www.abc.net.au/chinese/2021-04-12/alibaba-fined-billions-for-anti-competitive-behaviour/100062972) 
+[反垄断法](https://www.jetro.go.jp/ext_images/world/asia/cn/law/pdf/invest_030_cn.pdf) 
+[维基百科](https://zh.m.wikipedia.org/wiki/)
+[人民网](http://politics.people.com.cn/n1/2018/0615/c1001-30062480.html)
+
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*校对：喜马拉雅东京樱花团 / 文小白*
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04060740/IMG_2779.jpg)
 0

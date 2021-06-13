@@ -1,56 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 雷霆行动——“6.4线下活动” Day 2
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1319061/)
+## 十堰发生爆炸的位置是市场还是小区蕴藏着重大秘密
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1319133/)
 
-记者：东京樱花团/东洋武士
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13044359/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-4.png)
+据[**南方日报**](https://weibo.com/1682207150?refer_flag=1001030103_) [2021年6月13日 13:11](https://weibo.com/1682207150/KjYFs3GRH?from=page_1002061682207150_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-日本时间2021年5月30日，为庆祝新中国联邦成立一周年，日本樱花团农场组织了线下户外活动。也是该活动的连续第二天，部分战友昨日完成了登顶高尾山，拖着疲惫的身体略做休整，今日依旧斗志昂扬地踏上了第二站。
+[#*十堰天然气爆炸*#](https://s.weibo.com/weibo?q=%23%E5%8D%81%E5%A0%B0%E5%A4%A9%E7%84%B6%E6%B0%94%E7%88%86%E7%82%B8%23) [#*十堰爆炸*事故已致11人死亡#](https://s.weibo.com/weibo?q=%23%E5%8D%81%E5%A0%B0%E7%88%86%E7%82%B8%E4%BA%8B%E6%95%85%E5%B7%B2%E8%87%B411%E4%BA%BA%E6%AD%BB%E4%BA%A1%23)
+【湖北*十堰*一小区发生燃*气爆炸* 已致11人死亡37人重伤】
+今天早晨6:30，湖北*十堰*市一小区发生燃*气爆炸*。截至上午11时，共搜救出144人，其中重伤37人，死亡11人。目前，伤者均在医院接受救治，事故原因正在调查中。[O湖北*十堰*发生燃*气爆炸*事故，致37人重伤，11人死亡](http://t.cn/A6VdIpbJ) [L南方日报的微博视频](http://t.cn/A6VdIOM8)
 
-今日，樱花团的战友们依旧兵分三路，从关西到中部再到首都圈，各自在计划中的地点，进行新中国联邦的宣传活动。今天在东京的活动地点为，浅草寺和皇居外围跑步道。浅草寺是东京最受欢迎的旅游景点之一，由于游客众多，通往寺内的仲见世通道几乎每天都寸步难行。根据东京观光财团的资料，把观光者的人数也算在内的话，一年有3000-4000万人次来访。按照寺院、神社的参拜、观光人数排行，这里是日本第一。但自从去年全球CCP病毒爆发以来，这种曾经人如潮涌的场景已经超过一年没有出现过了。
 
-从很早以前开始，东京观光的必访之地就是浅草。浅草是以浅草寺为中心的周边繁华街区的总称，也是东京少数几个保留旧东京氛围的「下町」，是日本现存的具有“江户风格”的民众游乐之地，在这里可以感受到东京下町的昔日繁华和特有风情。
 
-![](https://lh5.googleusercontent.com/omFNZr6zEAL57TKfQ7kDtHPOju4w0b7yYeY5vaiJrSyc3deitYBR9Ifzr5o5yMsURxFtsFz38YftbnflFtjxqSRtBXvsSB_iBv6ID7IaP_yEui7tlDGSF2MWZryCy_lswOJMK5cZ)
+根据这一官方通稿，十堰的天然气爆炸是小生在小区，按照常人的理解应该是住户内的天然气管道发生爆炸，不管从画面还是从受访者的语音均无法判定具体的爆炸位置。
 
-据说这座「雷门」是大约1千年以前的武将，为祈求国泰民安和五谷丰收而建造。此后，屡遭火灾等磨难，数次被毁。现在的雷门，在日本有名的电器公司「Panasonic」创始人的捐献赞助下，得以重建。值得炫耀的巨大灯笼，高度3.9公尺，直径3.3公尺，重约700公斤。自重建之后，每隔10年，雷门的大灯笼都会重新制造换上新品。
+下面我们来看一看[\[email protected\]](https://twitter.com/miqilin6)于[下午2:03 · 2021年6月13日](https://twitter.com/miqilin6/status/1403956051532124167)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-「雷门」正式名称是「风雷神门」，是日本和浅草地区的象征。
+中国湖北十堰发生特大燃气爆炸，呼吁民众前往医院献血，初步统计11死亡！
 
-![](https://lh4.googleusercontent.com/5H6OEbuO51TCgvdthAR5pYrYT5R_O3Oe9FLHAUX5SDJ4htI2EcGSOlS9iug9yhbr3QDxL7bS-kIh9hZt1MNSBi8yajbuH15yEuZuTjUPQnhgVSiF1Ar18SePBEs9F6nzQItaaaCI)
 
-浅草寺紧挨着隅田川，而站在隅田川公园，就能看到身后相隔1.6公里的，处于墨田区的东京最著名地标——晴空树。东京晴空树高度为634米，于2011年11月17日获得吉尼斯世界纪录，认证为“世界第一高塔”，成为全世界最高的自立式电波塔。除了铁塔主体之外，东京晴空树尚有其他附属设施，整个街区被称为“东京sora街”。
 
-![](https://lh4.googleusercontent.com/4i8QAgWEUzkftay_yd-EyG6RcA1BRKkAdkXNZ-K7T_fQb_Uza48C3goklpluzZQGRDNfwvT5L85aHUJXA3W7_4JfLncg0ud_qQRodOnTL9orOcbGXK_wjBFMXeo0BMI-JvNZ8qb0)
+> 中国湖北十堰发生特大燃气爆炸💥，呼吁民众前往医院献血，初步统计11死亡！ [pic.twitter.com/bLF27dw94Q](https://t.co/bLF27dw94Q)
+> — miqilin (@miqilin6) [June 13, 2021](https://twitter.com/miqilin6/status/1403956051532124167?ref_src=twsrc%5Etfw)
 
-东京的战友除了在浅草寺的活动之外，还举行了慢跑活动。他们从东京车站出发，围着皇居进行环跑，在慢跑中让国旗迎风飘荡。沿着护城河绕皇居一周约5公里，这就是“皇居跑步路线”，作为马拉松、慢跑和散步路线而受到人们的喜爱。
 
-![](https://lh5.googleusercontent.com/UkJAKvKGM7rsFn7iCIWWUNNT9B3lIZDu298j23bjnSNWu2105fsCa1FJMNVzrkS3wDorjs6IUR0VeyardZrJwpZkxg3FM6twpO8ZVdyjjwBTMEzmWhJc_wp8--gJUL04pRulc8Ct)
 
-![](https://lh3.googleusercontent.com/D5ZvrFZkb3ZE8Y7XtQlyhXXYW9b2VsCA0OeIZAra3vS9zidorH6dmqz5volqflPKxjQLguc0vy3W-4eGSnNnUEX6GxbtI-38ukUqO2B-oXBtyoKLGyu926f9j17YkR07naIhwP4k)
+视频概要：
 
-大阪站
+［难道闻着这么臭他不知道吗？
 
-让我们的视线从关东转向关西，既昨日前往大阪城活动的战友们，今天依旧在大阪活动，他们挥舞着新中国联邦国旗穿梭在大阪的市中心。
+这个天然气它不是很臭，它加臭了也不是很臭。
 
-![](https://lh5.googleusercontent.com/PxLeZR5egiBlBVnk6tAs19B59w_1FW3qwQUbdcuZNybReOPsvhJX6-oWPRPBfjKJDTDFGCpbCrBMRjMchY7CWPOJOlOsE3Yrm40KA6guURU_POYHabd-vjxi05MvHZlm1mUZORGj)
+………
 
-![](https://lh4.googleusercontent.com/rJWCSPpkntOjeLvR9jsULRC9Ci0MDmNEuJtZ7V5X1dAwgQq5trVK8rtXmcP0oxEwnBngluooTmStFsuRgLR-3RDuwVcfc2A0g1q9EBFuhES4fMzqqNkSxPqUGsWmlIS3w7Jsuvw0)
+它这天然气爆炸就一家爆炸吗？
 
-这是一条架设于道顿堀川上的桥，它连接了戎桥筋商店街、道顿堀商店街与心斋桥筋商店街，可以说是大阪最热闹的一座桥。另外，周边大楼上挂满五颜六色的大型广告广告牌，其中又以「江崎格力高的跑跑先生」最有名，因此，这里也成为大阪观光必拍的知名景点。
+河道底下炸了！河道底下一炸整个菜场你看全都没有了……
 
-静冈小分队
+也帮不上忙，戴个手套去帮去呀！］
 
-今天静冈小分队来到了JR东海道本线的冈崎站附近，这里是个有名的摄影点，能见度好的时候，当新干线驶过瞬间，按下单反的快门，即可将美景收入囊中。可惜今天远处的云层比较厚，从照片中无法辨识远处的富士山。
+对照两个视频，我们可以得出的结论是：湖北十堰官方对爆炸地点的语焉不详恰恰是他们要掩盖的重要内容，因为如果是小区发生燃气爆炸，通常来说是住户内的天然气支管爆炸，这种爆炸的损害程度比起河道下面的主管道爆炸肯定要轻很多，而且如果是住户或者小区内的天然气爆炸的说法被接受的话，通常来说事故原因就会出现根本性的颠覆，因为河道下面的主管道爆炸只能归因于当局的管理责任，而如果是小区内的天然气管道爆炸可以推卸责任的地方就太多了。
 
-![](https://lh5.googleusercontent.com/PULIhn2rCMt1bveBUhszjwtb2WLfBxBjuWDxQ0JGwc3o9ZSpj-GKT_qq3V7dYcAAnuf_nDAecCHhygBbhj9tCLSucuVVSjjvxGGMz_z8QdsTzqp33dZXHwv8RsgQ6BXuUi2ltt8p)
+[\[email protected\]](https://twitter.com/miqilin6)推文视频透露的另外一个重要细节就是在拍摄视频时，现场已经聚集了大量群众，救援也是事发地群众的自发救援，官方救援人员并未到现场，那么现场的爆料威力有多大呢？据[**勤奋哥**](https://weibo.com/5876442350?refer_flag=1001030103_) [今天 13:56](https://weibo.com/5876442350/KjYXOjUNC?from=page_1005055876442350_profile&amp;wvr=6&amp;mod=weibotime)
 
-在六四之前，樱花团农场将每天都有雷霆行动的线下活动。战友们很辛苦，在烈日暴晒下很辛苦，请大家关注鼓励哦。樱花团农场致力于动员在日本不同地区的战友，尽可能走完所有名胜美景之地，希望将新中国联邦的蓝色旗帜能飘扬在整个日本。亲爱的战友们一定要注意防晒和补水哦！
+湖北[#*十堰天然气爆炸*#](https://s.weibo.com/weibo?q=%23%E5%8D%81%E5%A0%B0%E5%A4%A9%E7%84%B6%E6%B0%94%E7%88%86%E7%82%B8%23)，一排商铺在*爆炸*前后的对比图，*爆炸*烈度可想而知。
+[#湖北*十堰*燃*气爆炸*现场居民发声#](https://s.weibo.com/weibo?q=%23%E6%B9%96%E5%8C%97%E5%8D%81%E5%A0%B0%E7%87%83%E6%B0%94%E7%88%86%E7%82%B8%E7%8E%B0%E5%9C%BA%E5%B1%85%E6%B0%91%E5%8F%91%E5%A3%B0%23) ​
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13042007/006pGX6ely1grgl2lkadhj30om12rtfm.jpg)
+通过这一幅图片，我们可以看到现场的爆炸威力已经把地下室/半地下室与一层之间的整个楼板全部被掀翻，这样的巨大的爆炸威力之下，仅仅是地下室/半地下室和一层这两个楼层的活动人员他们生还的可能性有多大？现场只死了11个人吗？
 
-*免责申明：本文只代表作者观点，与GNews网站无关。
-校对：喜马拉雅东京樱花团 / 文小白
-责任编辑：喜马拉雅东京樱花团 / 文小白
-发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04060740/IMG_2779.jpg)
+（文章内容仅代表作者个人观点）
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门
+
 0

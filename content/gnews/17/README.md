@@ -1,29 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 温州一商城数百百姓因疫情被中共强行封闭在内
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1319245/)
+## 民意调查：现在大多数美国人相信冠状病毒源自武汉病毒研究所
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1319298/)
 
-视频&撰稿：恭池投石
+翻译 : 康州盘古农场 – TrueSky
+校对 : 康州盘古农场 – 格格巫
+编辑 : 康州盘古农场 – 格格巫
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13054927/9741.jpg)
+**据《布雷巴特新闻网》作者：WENDELL HUSEBØ，在2021年6月10日报道：**
 
-视频素材：我爱和平 一路有你
-网络视频
-6月12日，浙江温州瑞安商城被强行封闭，中共当地政府给出的理由是：瑞安商城一店铺老板是近期发现的外地疑似阳性病例的密切接触者，所以对瑞安商城内的人员进行全员核酸检测。网上流出的视频显示瑞安商城大门已经关闭，现场只有数名警察把守，医生已经进驻开始检测核酸。从流出的视频来看，商场里至少有数百人被封闭在内，多是商场的工作人员或者是顾客，里面的人出不来，外面的人进不去，在现场录制视频的人还说：“完了，真的回不去了”。
+周三公布的一项民意调查显示，现在大多数美国人认为冠状病毒起源于武汉病毒研究所。
+当受访者被Trafalgar集团问及”什么最能说明你对COVID-19如何开始的看法？”时，近54%的人说该病毒源自实验室。更具体地说，29.1%的人认为病毒是故意从实验室释放出来的，而24.4%的人认为它是意外地从实验室泄露的。而29.3%的人表示，他们对病毒的起源地没有确定的想法。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13055300/9742.jpg)我们的@[email protected]#民意调查在@[email protected]今晚的节目中发布。今晚的节目显示，大多数美国人认为#冠状病毒来自实验室而非自然。见报告：[https://thetrafalgargroup.org/news/nat-issues-covid-origin-0609…
+https://twitter.com/RobertCahaly/status/1402819850792226816?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1402819850792226816%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.breitbart.com%2Fpolitics%2F2021%2F06%2F10%2Fpoll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology%2F](https://thetrafalgargroup.org/news/nat-issues-covid-origin-0609…
+https://twitter.com/RobertCahaly/status/1402819850792226816?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1402819850792226816%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.breitbart.com%2Fpolitics%2F2021%2F06%2F10%2Fpoll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology%2F)
+这项民意调查是在立法者关注一份据称支持冠状病毒起源于中共国武汉病毒研究所的理论的机密报告时进行的。”我们很多人认为各种监督委员会应该更早一点知道这份报告”，众议院能源和商业委员会成员摩根-格里菲斯（R-VA）谈到报告时说，”我们想得到答案……因为我们认为他们拥有比我们最初在3月时想象的更大的一块拼图。”
+这份绝密报告是由政府支持的劳伦斯-利弗莫尔国家实验室的研究人员于2020年5月发布的。同时，调查实验室泄密丑闻的前副助理国务卿戴维-费斯6月2日表示，政府、教育机构和公司如果在中共国进行科学和技术交流，就不能确定他们没有在不知情的情况下与中共的军队合作。当前国务卿迈克-蓬佩奥在3月被问及他是否可以确认美国相信中共军方参与了武汉实验室的研究时，蓬佩奥回答说：”这是正确的，这是一个高度自信的评估，情况确实如此。”不管科学家和中共之间有什么联系，国务院关于病毒起源的概况介绍说，中共”系统地阻止对COVID-19大流行病的起源进行透明和彻底的调查，而是选择将巨大的资源用于欺骗和造谣”。
+民意调查于6月3日至7日进行，受访者为1025名可能参加大选的选民。误差率为3.06%。
 
-中共当地政府也在12日发出了通告，通告说：为了快速有效阻断疫情扩散，瑞安老商城区域从12日一直封闭到19日。这就带来了一些疑问，中共当地政府要封闭商城8天，从视频来看，在现场给百姓做检测的医生人数并不多，目前尚不知道核酸检测要做几次，按照之前中共的检测方式，至少需要做两次，而且之间至少要间隔24小时，那么意味着被强迫在里面做核酸检测的人至少要在商场里待上2天，不过现场至少有数百甚至上千人，所需要的时候应该更长。那么现在的问题是，这么多百姓在里面不准出去，他们如何解决吃饭的问题？虽然商城里面有一些饭馆，但是不可能提供数百上千人的饮食供应。还有就是晚上住宿的问题，商城里面应该没有旅馆或者民宿，那这数百上千人也只能睡商城里面地板了，如果晚上降温也没有任何的御寒之物。另外如果这里面有单亲家庭的家长，那他的小孩谁来管？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13054019/20210613_task3a.jpg)视频截图
-笔者认为虽然有了疫情应该排查，但是完全可以通知他们每个人去医院做检测，或者中共你提供住宿也好啊！中共凭什么把这数百上千的老百姓如猪狗一样关在商城里面，这完全是反人类的行为。况且这疫情本是中共一手制作的生化武器造成，老百姓真是冤死了！另一方面中共当地政府宣称没有本地疫情，都是境外输入疫情，那么你为什么不禁止那些疫情高发地区的人进入呢？欧美各国早在5月初就禁飞像例如印度这样CCP病毒大爆发的国家，为什么中共国一直以来不禁止任何疫情高发国？当地政府还宣称疫情不严重，那为什么通知说“为了快速有效阻断疫情扩散”？不严重还需要阻断？
+原文连接：[https://www.breitbart.com/politics/2021/06/10/poll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology/?utm\_medium=social&utm\_source=facebook&fbclid=IwAR1-McH5yM2bH6sKVjnp5a1fJweUZPoWnJBgzbkHJV9qFDKU5fvylzmLRpA](https://www.breitbart.com/politics/2021/06/10/poll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology/?utm_medium=social&amp;utm_source=facebook&amp;fbclid=IwAR1-McH5yM2bH6sKVjnp5a1fJweUZPoWnJBgzbkHJV9qFDKU5fvylzmLRpA)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-中共一党独裁，任意妄为，从来都是一纸政令，把老百姓的生命当草芥。可怜的是中共国老百姓已经失去了反抗意识，区区数个警察就能把数百上千人给管控了，更可悲的是在中共垮台之前他们都不会知道，中共把老百姓当成了实验品，当成了病毒的载体，现在世界上因疫情而发生的一切混乱都是中共一手制造，幸有爆料革命新中国联邦在海外为中华民族努力，中共的日子也长不了了，干倒中共，新中国联邦将拥有民主，法治，自由，一人一票，这样的事将不会再重演！
-
-（本文只代表作者观点）
-
-*发稿：光耀华夏*
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

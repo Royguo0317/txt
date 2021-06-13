@@ -1,23 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 罗马尼亚总统签署法律禁止中共企业参与5G网络开发
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1319364/)
+## 【独家】病毒超限战解析合辑
+` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1319372/)
 
-#### 文章撰写:【默凡】
+Gnews病毒真相小组 整理
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13063323/45ipsdafgaste_2021-0sg346-13_18-32-23.png)
 
-本周五（6月11日），罗马尼亚总统克劳斯·约翰尼斯(Klaus Iohannis)签署了一项得到美国支持的法案，出于对安全的担忧，该法案将禁止中共国和华为参与罗马尼亚5G电信网络的开发。罗马尼亚总理弗洛林·西图(Florin Citu) 领导的中间派政府在4月份批准了一项针对中共国控制的公司的禁令，议会随后也批准了该禁令。
 
-如果中共国被排除在外，华为的欧洲竞争对手爱立信(Ericsson)和诺基亚(Nokia)可能成为5G供应商双巨头。罗马尼亚从2004年加入北大西洋公约组织之前就是美国的坚定盟友，美国已经认定华为是中共在全球布局监控设备的公司之一。
 
-参考文章：[罗马尼亚总统签署法律，实际上禁止中国和华为参与其5G网络开发](https://www.voachinese.com/a/romania-china-huawei-5g-20210611/5926145.html)
 
-本文仅代表作者本人观点，不代表Gnews平台
+## 一、战争从未远离
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13070018/75bc97c842ab9ae8_mh1615015673612.jpg)](https://gnews.org/zh-hans/1160780/)随着对中共病毒来源调查的步步深入，参与此邪恶计划的各方力量都已浮出水面。本文仅根据已有的证据对病毒超限战进行简单梳理
 
-* * *
 
-排版发布：日本东京方舟农场 文柯Miles
+
+
+## 二、生物武器的布局
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13070410/EswPsqLUUAAAYiH-1271x720-1.jpg)](https://gnews.org/zh-hans/1161773/)共产主义对西方的渗透呈现出极为复杂多样的面貌。只有从具体现象上超脱出来，站在一个更高的立足点，才能看清他们的真实面目和目的
+
+
+
+
+## 三、生物武器的制备
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13070650/express.co_.uk1_.jpg)](https://gnews.org/zh-hans/1162633/)在这个领域的每一个设想都有可能成为现实，而每一个现实都会使人类走进灭绝的深渊
+
+
+
+
+## 四、生物武器研究人员及分工
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13070856/PHOTO-2021-02-26-19-36-17-1280x666-1.jpg)](https://gnews.org/zh-hans/1168011/)超限生物武器是一项系统性工程，从总体布局、理论、概念研究到具体实施，只有邪恶中共通过国家力量才能整合这些资源
+
+
+
+
+## 五、颠倒黑白 掩盖罪恶
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13071032/PHOTO-2021-01-27-10-21-12-1280x666-1.jpg)](https://gnews.org/zh-hans/1169805/)中共自从来到世间，其行事总离不开作恶、掩盖和嫁祸三个步骤
+
+
+
+
+## 六、疫苗与解药
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13071147/IMG_20210422_221329.jpg)](https://gnews.org/zh-hans/1176254/)对抗传统大规模杀伤性武器，除了采取必要的防护措施外，研究对抗的解药是唯一有效的解决方案
+
+
+免责声明：本文仅代表作者个人观点，与G-NEWS网站无关
 
 0

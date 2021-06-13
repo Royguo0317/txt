@@ -1,37 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独家】COVID-19起底：背景信息合辑
-` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1319435/)
+## 【独家】COVID-19起底：情报分析合辑
+` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1319466/)
 
 Gnews病毒真相小组 整理
 
 
 
-
-
-## 中共超限生物武器的前世今生
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13072444/unknown1-1.png)](https://gnews.org/zh-hans/1294359/)从2020年1月19日自媒体路德访谈首次向全球直播披露COVID-19疫情以来，全世界对中共国冠状病毒真相的探索从未停止
-
-
-
-
-## 中共病毒研究与973计划
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13072647/unknown2-1.png)1998-2015年间中共国“973”计划中以病毒为主题的研究项目，有关病毒研究的非军方项目，可能最早起始于中国预防医学科学院病毒学研究所
+## 中共病毒项目立项信息
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13074951/D7D126E4-4575-488F-BC9F-64409A28309A-1.jpeg)2016病毒项目是中共国在2005-2015病毒项目的后级计划，被囊括进中共“十三五”计划和2016年“传染病防治”专项当中
 
 
 
 
-## **病毒研究与传染病防治专项**
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13072849/unknown-13-1.png)](https://gnews.org/zh-hans/1294397/)2020年被闫丽梦博士指证为COVID-19病毒骨架的ZC45与ZXC21，是2017年解放军南京军区军事医学研究所王长军团队从事蝙蝠病毒研究的研究成果
+## 中共病毒项目课题分析
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13075112/F9E572CA-09C6-4CBB-B4F9-6A2A14E7F778-1.jpeg)根据媒体信息和政府公开信息，本部分将介绍2016病毒计划的详细内容，以及根据这些内容背后的隐含信息提供一些观点
 
 
 
 
-## **病毒研究与五年计划**
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13073142/unknown-14-1.png)](https://gnews.org/zh-hans/1297213/)根据互联网的公开信息整理的2016-2018年十三五计划国家重大专项统计其中名为“蛋白质机器与生命过程调控”等三个不同课题类别，涉及了大量与病毒有关的研究课题
+## 中共病毒项目与香港关系
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13075219/1BF3BB0E-2D74-4F01-9C16-7EF2DA912673-1.jpeg)](https://gnews.org/zh-hans/1294485/)香港学术界与中共的配合并非短时间内达成的合作关系，而是中共通过对香港学术界以“友好合作”、“联合资助”的名义长期渗透的结果
 
 
 
 
-+2
+## 中共病毒项目其他信息
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13075330/E9C5D648-7F8F-4AEF-AB5D-C0E56CD06A33-1.jpeg)中共当局极可能还有其他种类的人工病毒被作为超限生物武器,这对尚处于COVID-19严重危害的全世界来说是一个重大威胁
+
+
+
+
+## 中共病毒的本质是什么
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13075435/4D73B884-73FB-4715-9430-838528F13A64-1.jpeg)中共通过国家计划带动走“军民融合、化整为零”的路线,通过与海内外资金、研究机构联合的方式,已经打造了属于中共的病毒版一带一路
+
+
+(免责声明：本文仅代表作者个人观点，与G-NEWS网站无关)
+
+0

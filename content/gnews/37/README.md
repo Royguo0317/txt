@@ -1,55 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内热搜】湖北十堰发生燃气爆炸，已致多人死亡
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1318970/)
+## 维稳国里的学生们
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1318966/)
 
-作者：香草山美食部 新世界的一员
+作者：Tang0426 | 校对：仙女儿-文善 | 审核：SilverSpurs7| Page: Daoiii
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/EJQz5D8nse5qg/images/b9426db5-0967-447e-8c5c-87f37072a94e.jpg?asset_id=56b2cbff-60b4-4159-b7ad-f2350f59c92b&amp;img_etag=%22e232cc4c7a798190779ecbcb0930489c%22&amp;size=1024)](https://spark.adobe.com/page/EJQz5D8nse5qg/images/b9426db5-0967-447e-8c5c-87f37072a94e.jpg?asset_id=56b2cbff-60b4-4159-b7ad-f2350f59c92b&amp;img_etag=%22e232cc4c7a798190779ecbcb0930489c%22&amp;size=1024)
+
+#### 他们又动手了！
+
+起因是中共国推行逾百个“独立学院”改制。“独立学院”是九十年代起始的产物，当时为了配合全国高校扩招，而制定的注水政策。现在眼瞅着生源少了，奉教育部指令，以改革的名义一刀砍下使得多少莘莘学子又要被当韭菜割一茬。本科生强转成职业技术生，如此学生拿到的毕业文凭等于降了级，对今后考研、择业无疑有重要影响。
+
+学生忿忿不平。南京师范大学中北学院的千余名学生率先在校园打出“还我本科，拒绝职本”的横幅，聚集抗议当局草率的决策。但学生们等来的不是沟通说理，也不是可能解决问题的官员，而是开着装甲车，列队而来的几百名警察、保安。他们围堵学生，开始所谓的执法，用上了辣椒水、警用棍棒。
+
+先后有浙江、江苏十几所院校卷入，各自在校园维权。
+
+我们都知道中共政权的无耻与冷血，每遇事件无例外地先封闭真相，开始颠倒黑白地独家造谣，这次同样，妄称“学生非法扣留学院院长，限制其人身自由达30多小时”，所以警察来解救院长。接着又编造；学生勾结境外势力。并定性学生的行为是暴动。
+
+中共的蛮横是正常思维无法解析。学生以本科的学分考上学院，每年缴纳高于职业专科的学费就读，忽然间来个文件，说要把他们强制并入职业技术等级，撕毁约定，平白无故让文凭注了水，这让学生怎么接受？想到今后漫漫人生路，学生自然要找人讲理、维权啊，但这成了大规模出警的借口，栽赃学生非法限制了院长大人的人身自由。然而在学生公布的视频里；院长神情怡然与人通着电话，丝毫没有被限制人身自由者的惶恐不安。倒是学生确确实实挨了警察和保安们的打。
+
+虽然中共政权照例封杀媒体介入，只有它控制的一个声音发声，但毕竟是在互联网时代，此事被全球多家媒体和自媒体播报，引发很多热议，有支持学生，也有多种表述观点。有部分人士表示：这些学生在香港全民运动时，玩抖音、玩游戏置身事外，更有甚者是中共的小粉红，骂香港勇士是愤青、挺香港黑警。今天还没迈出校门就尝到了社会主义铁拳——活该。
+
+我倒是支持学生。他们自出生，就承受着中共的洗脑教育。虽然有互联网，却被中共筑起高墙，即使有探身墙外，也被铺天盖地的大外宣伺候着。没有相当的人生阅历和明师指教，又有几人能看透中共的谎言和险恶用心？况且，许多家长希望自家孩子奉行明哲保身。
+
+今天，学生们遇上事儿了，得以一窥中共政权的毫无诚信、冷血与傲慢，是他们人生的宝贵一课，较之那些附身政府的犬类，已是他们非常的有觉悟了。在不公平的现状下，选择抗争维权，虽然观念狭隘，作用有限，但没有跪下，实属难能可贵。他们投向中共的虽然不是匕首，哪怕仅仅只是一颗稻草，有勇气表达对当权者的不满，假以时日，当中华大地聚草成山，必将压向中共这一庞然大物。
+
+有消息传来；浙江、江苏有数间院校已发文终止“本转职”，同学的抗争有了喜见成果，但中共政权始终都会耍阴谋、阳谋的，难保不会秋后算账。同学们保重！
+
+[!\[\]()!\[\](https://spark.adobe.com/page/EJQz5D8nse5qg/images/15500a5f-5d1b-4253-8e42-6c024f2858d6.png?asset_id=12a719c8-6d93-447d-be5e-15c67ad090f0&amp;img_etag=%22edcb43b24f1128f77e08290480052644%22&amp;size=2560)](https://spark.adobe.com/page/EJQz5D8nse5qg/images/15500a5f-5d1b-4253-8e42-6c024f2858d6.png?asset_id=12a719c8-6d93-447d-be5e-15c67ad090f0&amp;img_etag=%22edcb43b24f1128f77e08290480052644%22&amp;size=1024)浙江工业大学之江学院的学生抗议
+
+更可喜的是，又有更多——山西、湖南、天津的同类院校开始聚集申要同等保障。星星之火，已经燎原，风起云涌方得美好明天！
+
+本文仅代表作者观点
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+[!\[\]()!\[\](https://spark.adobe.com/page/EJQz5D8nse5qg/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/EJQz5D8nse5qg/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-我在单位听七哥的歌，微友发来视频，说，快看快讯，迟了估计又被删了。我一看，又是一起特大事故，共产党统治下，煤气、电梯，都是高危因素，随时能要走人们的生命。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031603/image1-7-scaled.jpg)
-
-事故是今天刚刚，也就是北京时间6月13号早晨6点，在湖北十堰发生的，燃气爆炸，整个现场惨不忍睹，整个菜市场都塌了，一楼整个垮了。看视频还有多名消防员受伤，说明有二次事故，大型设备在进场。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031804/image0-46-scaled.jpg)
-
-今天正好是节假日放假时间，再加上是凌晨时间，不知又有多少家庭遭受伤害。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031633/image2-2-scaled.jpg)
-
-事故发生在十堰市“四一厂”也即东风汽车公司车架厂的一个居民小区(又名艳湖小区)，居民以车架厂职工家属为主，该出事农贸市场是服务艳湖小区数万人口的唯一农贸市场。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031846/2-26-scaled.jpg)
-
-据央视新闻消息，截至半小时前，已搜救出150人，其中12人死亡；138人受伤（其中37人重伤）。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031846/3-21-scaled.jpg)
-
-出现如此大的人员伤亡，党匪恐怕还是会设法推卸责任，或者找牵羊罪。但完全隐瞒是不可能了，后续如何，我们拭目以待。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13031841/4-15-scaled.jpg)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
