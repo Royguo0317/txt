@@ -1,27 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普将会选择哪一个新创社交媒体回归？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1319100/)
+## 民意调查：现在大多数美国人相信冠状病毒源自武汉病毒研究所
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1319298/)
 
-#### 翻译报道：William
+翻译 : 康州盘古农场 – TrueSky
+校对 : 康州盘古农场 – 格格巫
+编辑 : 康州盘古农场 – 格格巫
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13054927/9741.jpg)
+**据《布雷巴特新闻网》作者：WENDELL HUSEBØ，在2021年6月10日报道：**
 
-#### 责编：胡天        
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13043100/16235731441.png)[图面来源](https://www.axios.com/jason-miller-trump-campaign-briefing-d0405386-bfb4-4ff2-b89b-753a02798f65.html)
-根据《每日邮报》(MailOnline) 的杰夫·厄尔(Geoff Earle)的报导，自离开白宫以来一直担任美国前总统唐纳德·川普(Donald Trump)发言人的杰森·米勒(Jason Miller)即将离职，并加入一家科技新创公司。据报导，米勒将成为该公司的首席执行官。在 Twitter 和 Facebook 的持续禁令下，川普一直在寻找新的媒体平台。
+周三公布的一项民意调查显示，现在大多数美国人认为冠状病毒起源于武汉病毒研究所。
+当受访者被Trafalgar集团问及”什么最能说明你对COVID-19如何开始的看法？”时，近54%的人说该病毒源自实验室。更具体地说，29.1%的人认为病毒是故意从实验室释放出来的，而24.4%的人认为它是意外地从实验室泄露的。而29.3%的人表示，他们对病毒的起源地没有确定的想法。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13055300/9742.jpg)我们的@[email protected]#民意调查在@[email protected]今晚的节目中发布。今晚的节目显示，大多数美国人认为#冠状病毒来自实验室而非自然。见报告：[https://thetrafalgargroup.org/news/nat-issues-covid-origin-0609…
+https://twitter.com/RobertCahaly/status/1402819850792226816?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1402819850792226816%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.breitbart.com%2Fpolitics%2F2021%2F06%2F10%2Fpoll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology%2F](https://thetrafalgargroup.org/news/nat-issues-covid-origin-0609…
+https://twitter.com/RobertCahaly/status/1402819850792226816?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1402819850792226816%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.breitbart.com%2Fpolitics%2F2021%2F06%2F10%2Fpoll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology%2F)
+这项民意调查是在立法者关注一份据称支持冠状病毒起源于中共国武汉病毒研究所的理论的机密报告时进行的。”我们很多人认为各种监督委员会应该更早一点知道这份报告”，众议院能源和商业委员会成员摩根-格里菲斯（R-VA）谈到报告时说，”我们想得到答案……因为我们认为他们拥有比我们最初在3月时想象的更大的一块拼图。”
+这份绝密报告是由政府支持的劳伦斯-利弗莫尔国家实验室的研究人员于2020年5月发布的。同时，调查实验室泄密丑闻的前副助理国务卿戴维-费斯6月2日表示，政府、教育机构和公司如果在中共国进行科学和技术交流，就不能确定他们没有在不知情的情况下与中共的军队合作。当前国务卿迈克-蓬佩奥在3月被问及他是否可以确认美国相信中共军方参与了武汉实验室的研究时，蓬佩奥回答说：”这是正确的，这是一个高度自信的评估，情况确实如此。”不管科学家和中共之间有什么联系，国务院关于病毒起源的概况介绍说，中共”系统地阻止对COVID-19大流行病的起源进行透明和彻底的调查，而是选择将巨大的资源用于欺骗和造谣”。
+民意调查于6月3日至7日进行，受访者为1025名可能参加大选的选民。误差率为3.06%。
 
-自从川普跳过乔·拜登的就职典礼并首先前往海湖庄园(Mar-a-Lago)，然后前往他位于新泽西州的私人具乐部以来，米勒一直代表川普回答问题。米勒还担任川普 2020 年竞选连任时期的高级顾问。之后，米勒还持续在推特上保持着自己的活跃程度。
+原文连接：[https://www.breitbart.com/politics/2021/06/10/poll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology/?utm\_medium=social&utm\_source=facebook&fbclid=IwAR1-McH5yM2bH6sKVjnp5a1fJweUZPoWnJBgzbkHJV9qFDKU5fvylzmLRpA](https://www.breitbart.com/politics/2021/06/10/poll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology/?utm_medium=social&amp;utm_source=facebook&amp;fbclid=IwAR1-McH5yM2bH6sKVjnp5a1fJweUZPoWnJBgzbkHJV9qFDKU5fvylzmLRpA)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-一位消息人士告诉《每日邮报》，米勒继续在川普的圈子内运作，并补充说目前还没有开始日期或官方公告。这家未确认的公司拥有一个社交媒体平台，据说川普考虑接下来会移步那里。
-
-报导中表示,上周，川普删除了他的网站，该网站作为川普发表声明的平台仅运作一个月。米勒暗示这个变动预示着下一个行动。川普长期以来一直着眼于打造或收购一个自己的媒体平台。根据报导，米勒于6 月 2 日在推特上转发了一条帖子，表示这可能是川普加入另一个媒体平台的前兆。 米勒是这么写的“是的，事实上，确实如此。敬请密切关注！”。
-
-#### 译评:
-
-从2020总统大选的过程以及结果，川普深深体会到没有社交媒体就表示没有武器。到底川普会选择哪一个新创社交媒体回归呢？和新中国联邦有没有关系呢？和G系列盖特(Getome)有没有关系呢？就让我们继续看下去。
-
-原文出处: Trump spokesman Jason Miller is leaving his post to helm tech start-up that could become ex-president’s new social media platform
-
-
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
