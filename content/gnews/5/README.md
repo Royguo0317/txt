@@ -1,28 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 民意调查：现在大多数美国人相信冠状病毒源自武汉病毒研究所
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1319298/)
+## 中共國被忽視的農村老人
+` XINYUAN` [轉載自GNews](https://gnews.org/zh-hans/1319358/)
 
-翻译 : 康州盘古农场 – TrueSky
-校对 : 康州盘古农场 – 格格巫
-编辑 : 康州盘古农场 – 格格巫
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13054927/9741.jpg)
-**据《布雷巴特新闻网》作者：WENDELL HUSEBØ，在2021年6月10日报道：**
+撰稿：澳喜農場—XINYUAN
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13061956/image12-1.jpeg)
+中共國60歲以上的老齡人口已達2.5億，每年還會增加8000多萬，老齡化水平已達到 17%;   到 2050 年將進入重度老齡化階段，屆時老年人 口將達4.37 億，佔總人口 30%以上，三四 個人中就有一個老人。此外，更值得關注的問題是，老齡化程度城鄉倒置情況，也就是說，農村老齡化程度遠高於城市。農村老年人 口佔老年人口總數的 70%以上，保守估計 達到 1.2 億，而且預計這種城鄉倒置的狀況 將一直持續到 2040 年。但在我國城市化和工業化進程中，相當一部分老人都集中在農村。雖然如此，但對農村老人的各項保障措施和養老基礎設施的發展並不完善。而且大部分子女都出外打工，導致了目前農村老人所面臨的嚴峻的形勢。
 
-周三公布的一项民意调查显示，现在大多数美国人认为冠状病毒起源于武汉病毒研究所。
-当受访者被Trafalgar集团问及”什么最能说明你对COVID-19如何开始的看法？”时，近54%的人说该病毒源自实验室。更具体地说，29.1%的人认为病毒是故意从实验室释放出来的，而24.4%的人认为它是意外地从实验室泄露的。而29.3%的人表示，他们对病毒的起源地没有确定的想法。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13055300/9742.jpg)我们的@[email protected]#民意调查在@[email protected]今晚的节目中发布。今晚的节目显示，大多数美国人认为#冠状病毒来自实验室而非自然。见报告：[https://thetrafalgargroup.org/news/nat-issues-covid-origin-0609…
-https://twitter.com/RobertCahaly/status/1402819850792226816?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1402819850792226816%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.breitbart.com%2Fpolitics%2F2021%2F06%2F10%2Fpoll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology%2F](https://thetrafalgargroup.org/news/nat-issues-covid-origin-0609…
-https://twitter.com/RobertCahaly/status/1402819850792226816?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1402819850792226816%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.breitbart.com%2Fpolitics%2F2021%2F06%2F10%2Fpoll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology%2F)
-这项民意调查是在立法者关注一份据称支持冠状病毒起源于中共国武汉病毒研究所的理论的机密报告时进行的。”我们很多人认为各种监督委员会应该更早一点知道这份报告”，众议院能源和商业委员会成员摩根-格里菲斯（R-VA）谈到报告时说，”我们想得到答案……因为我们认为他们拥有比我们最初在3月时想象的更大的一块拼图。”
-这份绝密报告是由政府支持的劳伦斯-利弗莫尔国家实验室的研究人员于2020年5月发布的。同时，调查实验室泄密丑闻的前副助理国务卿戴维-费斯6月2日表示，政府、教育机构和公司如果在中共国进行科学和技术交流，就不能确定他们没有在不知情的情况下与中共的军队合作。当前国务卿迈克-蓬佩奥在3月被问及他是否可以确认美国相信中共军方参与了武汉实验室的研究时，蓬佩奥回答说：”这是正确的，这是一个高度自信的评估，情况确实如此。”不管科学家和中共之间有什么联系，国务院关于病毒起源的概况介绍说，中共”系统地阻止对COVID-19大流行病的起源进行透明和彻底的调查，而是选择将巨大的资源用于欺骗和造谣”。
-民意调查于6月3日至7日进行，受访者为1025名可能参加大选的选民。误差率为3.06%。
+2018年，有一位記者在湖北一個農村調查的時候，見到一個中年婦女大喊，你是北京來的吧？趕快給政府說說，這老人沒人管，我都不能出去打工了。記者問她，你管的是誰呢？她說管的是父親。因為父親得了老年痴呆，記者說如果全靠政府管那怎麼行呢？那位婦女說如果不打工掙錢，家裡哪有給孩子上學的錢呢？
 
-原文连接：[https://www.breitbart.com/politics/2021/06/10/poll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology/?utm\_medium=social&utm\_source=facebook&fbclid=IwAR1-McH5yM2bH6sKVjnp5a1fJweUZPoWnJBgzbkHJV9qFDKU5fvylzmLRpA](https://www.breitbart.com/politics/2021/06/10/poll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology/?utm_medium=social&amp;utm_source=facebook&amp;fbclid=IwAR1-McH5yM2bH6sKVjnp5a1fJweUZPoWnJBgzbkHJV9qFDKU5fvylzmLRpA)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+中共照顧的是五保戶和低保老人，但有些老人，既不夠五保戶的標準，也不是低保老人，收入又低。這一部分老人就很困難，他的資產和養老金都很微薄的。無法照顧自己，需要孩子照顧，可孩子也有一大家子人要養啊。必須要打工賺錢維繫這一切。也無法在家專職照顧他。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+即使老人身體還健康，不需要孩子幫忙照顧，這早晚也是一枚定時炸彈。老人必須，也只能自己照顧自己，如果哪天老人忽然病倒了，一對夫妻要面對一個孩子和4個老人，那將是多麼悲催的一幕啊。就算這樣，中共國竟還敢不知羞恥的要求從領導開始，帶頭生三胎。真是喪心病狂到了極點，才想如此瘋狂的盤剝年輕人。領導幹部們可比百姓生活水平高多了，生多少都不成問題，而普通老百姓敢那麼做嗎？
+
+有的網友直接質問政府能給累死的年輕人發烈士證嗎？
+
+是啊，中共很清楚，政府的不作為會導致層出不窮的問題。但卻根本無視這一點。老百姓活的多掙扎，多艱難。不是他們操心的範疇。還能搜刮多少。他們只允許百姓們打掉牙往肚子里k咽，連吐出來或抱怨幾句都不被允許。
+
+有多少老人在最後的時刻，因為無錢醫治，也無人照顧，孤獨的悄無聲息的死在了家裡，其中還有相當一部分做了自我了結。
+
+2008年國慶，一個由40多名師生組成的調查組，到湖北京山縣孫橋鎮S村作了為期半個月的調查，主要瞭解農村老人現狀，發現京山農村老年人自殺之嚴重，已經到了難以想象的程度。S村三組，總共只有30多戶，最近20年卻有10多例老年人自殺。調查期間，全村就有3例老年人死亡，全為自殺。當問到村裡老年人最近所在村民組有無老年人非正常死亡時，有兩位老年人回答：他們村民組最近這些年就沒有老年人是正常死亡的。老年人的非正常死亡就是自殺，略有不同的是，有的老年人是因為得了重病而自殺，有的老年人則因子女不孝而自殺。從所獲資料估計，有些村民組可能有一半的老年人是自殺死亡的，全村老年人自殺率也高得驚人。
+
+而且鄰村所調查的孫橋鎮，另外9個村的老年人自殺率也都很高。大部分老人的共識是：「老人受病痛折磨，又要勞動；活著也沒有意義，還活著幹什麼？**」**
+
+在任何一個健全的文明社會都會發展出一套針對死亡的文化來，因為任何社會及任何個人最終都要面對死亡。一個健全而健康的文化，可以讓這個文化的成員泰然面對死亡。中國傳統也有這樣應對死亡的文化。但是，中共執政這幾十年來，面對一個已經解決了溫飽問題的普通農村家庭，居然面對老人自殺現象如此麻木不仁。那些溫飽沒解決的地方呢，是不是會更慘烈？
+
+同樣是國民，同樣是給國家納稅，當老了的時候，我所在的歐洲國家會派人免費上門服務，替老人洗衣做飯，外加購物陪聊。還有定期的身體檢查和護理。一切都是免費。如果你的孩子因照顧你無法上班，政府會給孩子發錢。如果再老些，可以直接去政府養老院。這些國人不但享受不到，還要被洗腦忽悠，說是中國人多造成的。
+
+他們從不會告訴你，瑞士銀行一百多個貪官被凍結的資金就達1萬7千億之多。隨便拿出十分之一，能讓多少老人吃好喝好，還能享有豐富的文化娛樂生活？
+
+如今，中國農村老人所面臨的這一切問題不正是中共一手導致的嗎？中共這些年的以假治國造不但使假冒偽劣盛行，還使人們失去了信仰。人們找不到生活的方向，也失去了活下去的信心和意義。連好死不如賴活著這對生命最低的要求都無法接受。是啊，哀莫大於心死，這些老人在用自我了斷來表達對這個政府最後的反抗。活著的人們，你們良心發現了嗎？還願意為這樣的政權效忠嗎？也打算與父輩們走同一條路嗎？
+
+參考鏈接：
+
+[http://www.xinhuanet.com/politics/2019-04/11/c\_1124350926.htm](http://www.xinhuanet.com/politics/2019-04/11/c_1124350926.htm)
+
+[https://core.ac.uk/download/pdf/41447415.pdf](https://core.ac.uk/download/pdf/41447415.pdf)
+
+[https://3g.163.com/dy/article/FFS5GEEK052100BV.html?spss=adap\_pc](https://3g.163.com/dy/article/FFS5GEEK052100BV.html?spss=adap_pc)
+
+(本文僅代表個人觀點)
 
 0

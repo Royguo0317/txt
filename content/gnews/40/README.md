@@ -1,44 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 已打疫苗者 因血栓风险不适合长途飞行旅游！
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1318697/)
+## 重磅！美国军方逮捕了福奇同谋-德博拉-伯克斯博士
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1318737/)
 
-台湾宝岛农场 马克强
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13005842/%E6%93%B7%E5%8F%96613-6.jpg)
-中共在2019年底以迅雷不及掩耳之势放出了COVID19病毒，肆虐并重创全球经济与毒杀人类的性命。  而国际医药大厂在国家政府的紧急状态之下，被核准了历经1年多左右且尚在做动物实验的疫苗给人类施打。 一般而言，疫苗发展的时间最少历经10年以上。  然而，COVID19疫苗在仓促的情况下施打在人体上，果然造成了成千上万的人产生了许许多多的副作用，如肢体颤抖、脸部麻痹、女性月经紊乱与大出血、血栓、心脏疾病、脑部损伤、及生殖系统等问题（注1）。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13004849/%E6%93%B7%E5%8F%96613-0-1.jpg)
-在全球接种疫苗人数将近达9亿人同时（2021年6月5日）（注2），西班牙以及俄罗斯航空则警告接种COVID19疫苗者不适合搭飞机旅行，因为在高空的状态之下人体可能会产生血栓的情况。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13004900/%E6%93%B7%E5%8F%96613-1-1.jpg)
-西班牙新闻网站指出：’航空公司正在解决血栓问题，并建议注射疫苗的人不要参与搭乘旅行’。  因为施打实验性mRNA疫苗者之血液中存在血栓的风险。  依照航空相关规定（非针对新冠疫苗），具有血栓高风险者只能够在严密的监督之下才能搭乘飞行。  接种疫苗者，在飞行航程到达一定的高度时，发生中风、形成血栓或心脏病等并发症的风险极高。  有几份报告警告说，接受注射疫苗者（无论哪一种疫苗）可能会出现凝血与出血的问题，这就是主要的原因。
+素材： Jenny
 
-另外一家俄罗斯新闻门户网站指出：’任何接种过SARS-CoV-2冠状病毒疫苗的人可能不再被允许登机’。  叶夫根尼.  科瓦列夫医生告诉公共新闻社，那些接种了冠状病毒疫苗的人搭乘飞机旅行可能具有极高的风险性。  欧洲已经在讨论限制接种疫苗者搭乘飞机的可能性。  主要是，冠状病毒疫苗会影响与凝血相关的功能，而这会增加形成血栓的风险。  科瓦列夫说，在飞行过程中旅客长时间处于坐姿，而这样会使情况更糟糕。  （注3）
+翻译评论： Rosa
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13010744/800.jpg)photo source: https://apnews.com/article/travel-pandemics-only-on-ap-delaware-thanksgiving-52810c22488fff7e6bb70746bdc9bc61
+美国军方已经逮捕了德博拉-伯克斯博士，他也被称为 “围巾女士”，此前有报道称她和她的犯罪伙伴，仍然在逃的安东尼-福奇博士，与疾病预防控制中心合谋，欺骗美国公众，使其相信口罩是缓解Covid-19传播的有效方法。
 
-甚至，在美国的疾病控制与预防中心（CDC）的网站中，也有关于搭飞机超过4小时可能出现血栓的警告（注4）。   而这样的情况对于接近9亿已接种疫苗者，除了必须面对接下来中、长期可能未知的副作用之外，而如今的这个消息，无疑问的是让已经打疫苗者在加上另一个严重的’副作用’。
+正如2月所报道的那样，在唐纳德-J-特朗普总统获得她和深层国家的安东尼-福奇博士之间的冗长电子邮件链后，伯克斯的名字被列入密封起诉书。其中，Birx和Fauci讨论了口罩是否能减轻Covid-19的传播，他们相互承认，口罩在防止Covid-19进入人体呼吸系统方面完全无效。相反，他们承认长期的 “口罩 “对人体生理机能有严重的副作用，特别是在儿童、老人和免疫力低下的人中。
 
-姑且无论疫苗背后所牵涉到的复杂政治、商业利益等问题。  在这些庞大的媒体各国政府强力宣传施打疫苗之际，似乎刻意的忽略了简单、便宜而有效、且极少副作用的药物，如羟氯喹+锌、阿奇霉素或依维菌素等（注5）。  并且，这些便宜的药物在疫情以来，已经获得相当多临床医生与科学家证实具有相当优秀的预防与治疗COVID19病毒的效果。
+尽管如此，Birx在给Fauci的一封电子邮件中写道：”无论美国总统的立场如何，我们必须继续鼓励和执行掩蔽，因为这会给人们一种平静的感觉，使他们感到安全”。
 
-最后，这疫苗到底要不要打？  是你由自己决定，而不是在受威胁的情况下被逼而施打的。  所以，最终的结果与影响是一辈子无法回复，都是由你自己来承担！  聪明的你能不用心点多作一些功课吗？
+根据一项评估美国所有因Covid-19死亡事件的军事研究，这种安全假象是导致15000名美国人死亡的主要因素。
 
-（本文仅代表个人立场）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09152702/COVID19_AQ.png)
-数据源 ：
+例如，一个戴着口罩的13岁男孩在内华达州里诺90度的高温下踢足球时突然摔死。结果发现他有哮喘病，但从未得到过临床诊断。他的母亲是一位口罩倡导者，她曾在电视上听到Birx博士说，户外活动也应该佩戴口罩，即便是在安全社交距离无法保障的情况下。由于足球是一项接触性运动，她担心她的孩子可能会从另一个没有戴口罩的孩子那里感染上Covid-19，因此要求她的儿子在与其他孩子接触时都要戴口罩。她的非理性恐惧，再加上Birx的歇斯底里，导致了这个男孩的死亡。顺便说一句，CDC声称他死于Covid-19，尽管这个男孩从未接受过测试。
 
-1. [Vaccine researcher admits ‘big mistake,’ says spike protein is dangerous ‘toxin’](https://www.lifesitenews.com/news/vaccine-researcher-admits-big-mistake-says-spike-protein-is-dangerous-toxin)
-2. 谷歌统计数据
-3. [Medien in Spanien und Russland: Fluggesellschaften gehen das Problem der Blutgerinnsel an und empfehlen geimpften Personen, nicht zu reisen | uncut-news.ch](https://uncutnews.ch/medien-in-spanien-und-russland-fluggesellschaften-gehen-das-problem-der-blutgerinnsel-an-und-empfehlen-geimpften-personen-nicht-zu-reisen/)
-4. [Blood Clots and Travel: What You Need to Know](https://www.cdc.gov/ncbddd/dvt/travel.html)
-5. [伊維菌素？借鏡印度– GNEWS](https://gnews.org/zh-hant/1299198/)
+团结就是力量，美国是世界各国的一个好榜样。在需要的时候，每个爱国者都牺牲了自己的需求来帮助同胞。
 
+然而，在最黑暗的时期可能会失去希望，美国人民在这种逆境中需要一些东西来团结他们。特朗普总统说，战斗还没有结束。
 
-审核、校对╱早不稻仁
+评：美国内部同中共深度勾结的黑暗势力正在全面瓦解中。美国民意全面觉醒之日，也意味着中共的彻底灭亡之时。
 
-发布╱little  liu
+（本文只代表作者个人观点）
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+发稿：Rosa
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+原文链接：http://www.theconservativtreview.com/breaking-news-u-s-military-arrests-dr-deborah-birx/
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![This image has an empty alt attribute; its file name is 1-%E6%BE%B3%E5%96%9CLogo.jpeg]()![This image has an empty alt attribute; its file name is 1-%E6%BE%B3%E5%96%9CLogo.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 +1

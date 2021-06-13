@@ -1,37 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】周末学习——林肯在信中与自己辩论奴隶制的道德
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1318674/)
+## 【香草山水墨堂】美酒敬英雄——闫丽梦
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1318638/)
 
-布拉汉姆·林肯 (braham Lincoln) 只为自己的眼睛写下了无数私人笔记——潦草地写下关于他所面临的无数问题和问题的想法和见解。从没想过其他人会阅读它们，他给它们留下了未注明日期、未命名、未签名的内容。使用这些笔记就像进入了一个大多数历史爱好者都不知道的世界。关于这位臭名昭著的私人总统，他们能告诉我们什么新消息吗？
+**作者**：香草山美食部 文百合
 
-阅读它们就是在透过林肯的肩膀看他与奴隶制问题搏斗时的思想，深入思考他的律师和政治家的双重职业，反思围绕共和党诞生的障碍，向著名的支持奴隶制的作家释放他的愤怒，并对内战中上帝的存在进行神学反思。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042102/WhatsApp_Image_2020-10-24_at_04.33.05-8-768x103-1.jpeg)
 
-在其启示性内容的背后，这些片段证明了林肯的敏捷头脑。一个幸存的片段是抒情的，这种风格通常与林肯无关。许多人在推理方面是演绎性的，使用逻辑来提问、挑战、探索和分析。作为一名经验丰富的律师，他经常在阐述自己对某个主题的观点之前，先提出对方论点的逻辑，以此作为开始。林肯经常以解决正在调查的问题或提出一些未来的行动方案作为结论。
 
-在 111 份幸存的笔记中，所有笔记都是第一次在我的《林肯私人》一书中印刷，其中一些最引人入胜的焦点是林肯在 1850 年代重新进入政界，以对抗奴隶制向美国西部领土的蔓延。在给自己的这封信中，可以想象林肯作为起诉律师在法庭的地板上踱步。听他想象中的对手：“你说；” “你的意思是;” 然后反击：“但是说你。”
 
-【如果 A能够证明，无论多么确凿，他可以奴役 B 是正确的，为什么 B 不能抓住同样的论点，并平等地证明他可以奴役 A？
 
-你说A是白的，B是黑的。那么它是颜色；打火机有权利奴役黑暗的吗？小心。根据这条规则，你将成为你遇到的第一个男人的奴隶，拥有比你自己的皮肤更白的皮肤。
 
-你的意思不是确切的颜色？ – 你的意思是白人在智力上比黑人优越，因此有权奴役他们？再小心。根据这条规则，你将成为你遇到的第一个男人的奴隶，拥有比你自己更高的智力。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13000659/image0-41-1-scaled.jpg)
 
-但是你说，这是一个有趣的问题；而且，如果你能把它变成你的兴趣，你就有权利奴役另一个人。很好。如果他能把它变成他的兴趣，他就有权利奴役你。】
+天使闫丽梦——
+你从云端走来
+越过高山
+飞过海洋
+你是天选之子
+上帝赋予你唯一的使命
+传递真相
+是仙，你有血有肉
+是人，你英勇无比
+面对群魔乱舞
+你守护真相
+真相就是你的剑
+刺向魔鬼的心脏
+天使闫丽梦传递真相
+拯救人类
 
-在三个连续的奴隶制辩护中，林肯将每一个支持奴隶制的论点都推回了自己身上，显示了每一个辩护中的基本矛盾，无论是肤色、智力还是兴趣，这些矛盾很容易被扭转，使所有者成为奴隶。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13001206/image0-40-1-scaled.jpg)
 
-在研究了林肯这么多年之后，当我沉浸在他给自己的笔记的隐藏世界中时，我发现自己在很多方面遇到了一个全新的人。
+编辑/校对/发稿：遍地开花
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+**更多资讯，更多关注**
 
-参考链接：
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[https://time.com/6072503/president-lincoln-letter-slavery/?utm\_source=twitter&utm\_medium=social&utm\_campaign=editorial&utm\_term=ideas\_books&linkId=121160106](https://time.com/6072503/president-lincoln-letter-slavery/?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=editorial&amp;utm_term=ideas_books&amp;linkId=121160106)
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-整理翻译：蓝精灵
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-校对发布：Penny
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
+
+
+
+
 
 0

@@ -1,45 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国被忽视的农村老人
-` XINYUAN` [轉載自GNews](https://gnews.org/zh-hans/1319240/)
+## 民意调查：现在大多数美国人相信冠状病毒源自武汉病毒研究所
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1319298/)
 
-撰稿：澳喜农场—XINYUAN
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13060144/image12.jpeg)
-中共国60岁以上的老龄人口已达2.5亿，每年还会增加8000多万，老龄化水平已达到 17%;   到 2050 年将进入重度老龄化阶段，届时老年人 口将达4.37 亿，占总人口 30%以上，三四 个人中就有一个老人。此外，更值得关注的问题是，老龄化程度城乡倒置情况，也就是说，农村老龄化程度远高于城市。农村老年人 口占老年人口总数的 70%以上，保守估计 达到 1.2 亿，而且预计这种城乡倒置的状况 将一直持续到 2040 年。但在我国城市化和工业化进程中，相当一部分老人都集中在农村。虽然如此，但对农村老人的各项保障措施和养老基础设施的发展并不完善。而且大部分子女都出外打工，导致了目前农村老人所面临的严峻的形势。
+翻译 : 康州盘古农场 – TrueSky
+校对 : 康州盘古农场 – 格格巫
+编辑 : 康州盘古农场 – 格格巫
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13054927/9741.jpg)
+**据《布雷巴特新闻网》作者：WENDELL HUSEBØ，在2021年6月10日报道：**
 
-2018年，有一位记者在湖北一个农村调查的时候，见到一个中年妇女大喊，你是北京来的吧？赶快给政府说说，这老人没人管，我都不能出去打工了。记者问她，你管的是谁呢？她说管的是父亲。因为父亲得了老年痴呆，记者说如果全靠政府管那怎么行呢？那位妇女说如果不打工挣钱，家里哪有给孩子上学的钱呢？
+周三公布的一项民意调查显示，现在大多数美国人认为冠状病毒起源于武汉病毒研究所。
+当受访者被Trafalgar集团问及”什么最能说明你对COVID-19如何开始的看法？”时，近54%的人说该病毒源自实验室。更具体地说，29.1%的人认为病毒是故意从实验室释放出来的，而24.4%的人认为它是意外地从实验室泄露的。而29.3%的人表示，他们对病毒的起源地没有确定的想法。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13055300/9742.jpg)我们的@[email protected]#民意调查在@[email protected]今晚的节目中发布。今晚的节目显示，大多数美国人认为#冠状病毒来自实验室而非自然。见报告：[https://thetrafalgargroup.org/news/nat-issues-covid-origin-0609…
+https://twitter.com/RobertCahaly/status/1402819850792226816?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1402819850792226816%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.breitbart.com%2Fpolitics%2F2021%2F06%2F10%2Fpoll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology%2F](https://thetrafalgargroup.org/news/nat-issues-covid-origin-0609…
+https://twitter.com/RobertCahaly/status/1402819850792226816?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1402819850792226816%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.breitbart.com%2Fpolitics%2F2021%2F06%2F10%2Fpoll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology%2F)
+这项民意调查是在立法者关注一份据称支持冠状病毒起源于中共国武汉病毒研究所的理论的机密报告时进行的。”我们很多人认为各种监督委员会应该更早一点知道这份报告”，众议院能源和商业委员会成员摩根-格里菲斯（R-VA）谈到报告时说，”我们想得到答案……因为我们认为他们拥有比我们最初在3月时想象的更大的一块拼图。”
+这份绝密报告是由政府支持的劳伦斯-利弗莫尔国家实验室的研究人员于2020年5月发布的。同时，调查实验室泄密丑闻的前副助理国务卿戴维-费斯6月2日表示，政府、教育机构和公司如果在中共国进行科学和技术交流，就不能确定他们没有在不知情的情况下与中共的军队合作。当前国务卿迈克-蓬佩奥在3月被问及他是否可以确认美国相信中共军方参与了武汉实验室的研究时，蓬佩奥回答说：”这是正确的，这是一个高度自信的评估，情况确实如此。”不管科学家和中共之间有什么联系，国务院关于病毒起源的概况介绍说，中共”系统地阻止对COVID-19大流行病的起源进行透明和彻底的调查，而是选择将巨大的资源用于欺骗和造谣”。
+民意调查于6月3日至7日进行，受访者为1025名可能参加大选的选民。误差率为3.06%。
 
-中共照顾的是五保户和低保老人，但有些老人，既不够五保户的标准，也不是低保老人，收入又低。这一部分老人就很困难，他的资产和养老金都很微薄的。无法照顾自己，需要孩子照顾，可孩子也有一大家子人要养啊。必须要打工赚钱维系这一切。也无法在家专职照顾他。
+原文连接：[https://www.breitbart.com/politics/2021/06/10/poll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology/?utm\_medium=social&utm\_source=facebook&fbclid=IwAR1-McH5yM2bH6sKVjnp5a1fJweUZPoWnJBgzbkHJV9qFDKU5fvylzmLRpA](https://www.breitbart.com/politics/2021/06/10/poll-majority-now-believe-coronavirus-originated-from-wuhan-institute-of-virology/?utm_medium=social&amp;utm_source=facebook&amp;fbclid=IwAR1-McH5yM2bH6sKVjnp5a1fJweUZPoWnJBgzbkHJV9qFDKU5fvylzmLRpA)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-即使老人身体还健康，不需要孩子帮忙照顾，这早晚也是一枚定时炸弹。老人必须，也只能自己照顾自己，如果哪天老人忽然病倒了，一对夫妻要面对一个孩子和4个老人，那将是多么悲催的一幕啊。就算这样，中共国竟还敢不知羞耻的要求从领导开始，带头生三胎。真是丧心病狂到了极点，才想如此疯狂的盘剥年轻人。领导干部们可比百姓生活水平高多了，生多少都不成问题，而普通老百姓敢那么做吗？
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-有的网友直接质问政府能给累死的年轻人发烈士证吗？
-
-是啊，中共很清楚，政府的不作为会导致层出不穷的问题。但却根本无视这一点。老百姓活的多挣扎，多艰难。不是他们操心的范畴。还能搜刮多少。他们只允许百姓们打掉牙往肚子里k咽，连吐出来或抱怨几句都不被允许。
-
-有多少老人在最后的时刻，因为无钱医治，也无人照顾，孤独的悄无声息的死在了家里，其中还有相当一部分做了自我了结。
-
-2008年国庆，一个由40多名师生组成的调查组，到湖北京山县孙桥镇S村作了为期半个月的调查，主要了解农村老人现状，发现京山农村老年人自杀之严重，已经到了难以想象的程度。S村三组，总共只有30多户，最近20年却有10多例老年人自杀。调查期间，全村就有3例老年人死亡，全为自杀。当问到村里老年人最近所在村民组有无老年人非正常死亡时，有两位老年人回答：他们村民组最近这些年就没有老年人是正常死亡的。老年人的非正常死亡就是自杀，略有不同的是，有的老年人是因为得了重病而自杀，有的老年人则因子女不孝而自杀。从所获资料估计，有些村民组可能有一半的老年人是自杀死亡的，全村老年人自杀率也高得惊人。
-
-而且邻村所调查的孙桥镇，另外9个村的老年人自杀率也都很高。大部分老人的共识是：“老人受病痛折磨，又要劳动；活着也没有意义，还活着干什么？**”**
-
-在任何一个健全的文明社会都会发展出一套针对死亡的文化来，因为任何社会及任何个人最终都要面对死亡。一个健全而健康的文化，可以让这个文化的成员泰然面对死亡。中国传统也有这样应对死亡的文化。但是，中共执政这几十年来，面对一个已经解决了温饱问题的普通农村家庭，居然面对老人自杀现象如此麻木不仁。那些温饱没解决的地方呢，是不是会更惨烈？
-
-同样是国民，同样是给国家纳税，当老了的时候，我所在的欧洲国家会派人免费上门服务，替老人洗衣做饭，外加购物陪聊。还有定期的身体检查和护理。一切都是免费。如果你的孩子因照顾你无法上班，政府会给孩子发钱。如果再老些，可以直接去政府养老院。这些国人不但享受不到，还要被洗脑忽悠，说是中国人多造成的。
-
-他们从不会告诉你，瑞士银行一百多个贪官被冻结的资金就达1万7千亿之多。随便拿出十分之一，能让多少老人吃好喝好，还能享有丰富的文化娱乐生活？
-
-如今，中国农村老人所面临的这一切问题不正是中共一手导致的吗？中共这些年的以假治国造不但使假冒伪劣盛行，还使人们失去了信仰。人们找不到生活的方向，也失去了活下去的信心和意义。连好死不如赖活着这对生命最低的要求都无法接受。是啊，哀莫大于心死，这些老人在用自我了断来表达对这个政府最后的反抗。活着的人们，你们良心发现了吗？还愿意为这样的政权效忠吗？也打算与父辈们走同一条路吗？
-
-参考链接：
-
-[http://www.xinhuanet.com/politics/2019-04/11/c\_1124350926.htm](http://www.xinhuanet.com/politics/2019-04/11/c_1124350926.htm)
-
-[https://core.ac.uk/download/pdf/41447415.pdf](https://core.ac.uk/download/pdf/41447415.pdf)
-
-[https://3g.163.com/dy/article/FFS5GEEK052100BV.html?spss=adap\_pc](https://3g.163.com/dy/article/FFS5GEEK052100BV.html?spss=adap_pc)
-
-(本文仅代表个人观点)
-
-+1
+0

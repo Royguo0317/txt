@@ -1,56 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 雷霆行动——“6.4线下活动” Day 2
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1319061/)
+## 川普将会选择哪一个新创社交媒体回归？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1319100/)
 
-记者：东京樱花团/东洋武士
+#### 翻译报道：William
 
-日本时间2021年5月30日，为庆祝新中国联邦成立一周年，日本樱花团农场组织了线下户外活动。也是该活动的连续第二天，部分战友昨日完成了登顶高尾山，拖着疲惫的身体略做休整，今日依旧斗志昂扬地踏上了第二站。
+#### 责编：胡天        
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13043100/16235731441.png)[图面来源](https://www.axios.com/jason-miller-trump-campaign-briefing-d0405386-bfb4-4ff2-b89b-753a02798f65.html)
+根据《每日邮报》(MailOnline) 的杰夫·厄尔(Geoff Earle)的报导，自离开白宫以来一直担任美国前总统唐纳德·川普(Donald Trump)发言人的杰森·米勒(Jason Miller)即将离职，并加入一家科技新创公司。据报导，米勒将成为该公司的首席执行官。在 Twitter 和 Facebook 的持续禁令下，川普一直在寻找新的媒体平台。
 
-今日，樱花团的战友们依旧兵分三路，从关西到中部再到首都圈，各自在计划中的地点，进行新中国联邦的宣传活动。今天在东京的活动地点为，浅草寺和皇居外围跑步道。浅草寺是东京最受欢迎的旅游景点之一，由于游客众多，通往寺内的仲见世通道几乎每天都寸步难行。根据东京观光财团的资料，把观光者的人数也算在内的话，一年有3000-4000万人次来访。按照寺院、神社的参拜、观光人数排行，这里是日本第一。但自从去年全球CCP病毒爆发以来，这种曾经人如潮涌的场景已经超过一年没有出现过了。
+自从川普跳过乔·拜登的就职典礼并首先前往海湖庄园(Mar-a-Lago)，然后前往他位于新泽西州的私人具乐部以来，米勒一直代表川普回答问题。米勒还担任川普 2020 年竞选连任时期的高级顾问。之后，米勒还持续在推特上保持着自己的活跃程度。
 
-从很早以前开始，东京观光的必访之地就是浅草。浅草是以浅草寺为中心的周边繁华街区的总称，也是东京少数几个保留旧东京氛围的「下町」，是日本现存的具有“江户风格”的民众游乐之地，在这里可以感受到东京下町的昔日繁华和特有风情。
+一位消息人士告诉《每日邮报》，米勒继续在川普的圈子内运作，并补充说目前还没有开始日期或官方公告。这家未确认的公司拥有一个社交媒体平台，据说川普考虑接下来会移步那里。
 
-![](https://lh5.googleusercontent.com/omFNZr6zEAL57TKfQ7kDtHPOju4w0b7yYeY5vaiJrSyc3deitYBR9Ifzr5o5yMsURxFtsFz38YftbnflFtjxqSRtBXvsSB_iBv6ID7IaP_yEui7tlDGSF2MWZryCy_lswOJMK5cZ)
+报导中表示,上周，川普删除了他的网站，该网站作为川普发表声明的平台仅运作一个月。米勒暗示这个变动预示着下一个行动。川普长期以来一直着眼于打造或收购一个自己的媒体平台。根据报导，米勒于6 月 2 日在推特上转发了一条帖子，表示这可能是川普加入另一个媒体平台的前兆。 米勒是这么写的“是的，事实上，确实如此。敬请密切关注！”。
 
-据说这座「雷门」是大约1千年以前的武将，为祈求国泰民安和五谷丰收而建造。此后，屡遭火灾等磨难，数次被毁。现在的雷门，在日本有名的电器公司「Panasonic」创始人的捐献赞助下，得以重建。值得炫耀的巨大灯笼，高度3.9公尺，直径3.3公尺，重约700公斤。自重建之后，每隔10年，雷门的大灯笼都会重新制造换上新品。
+#### 译评:
 
-「雷门」正式名称是「风雷神门」，是日本和浅草地区的象征。
+从2020总统大选的过程以及结果，川普深深体会到没有社交媒体就表示没有武器。到底川普会选择哪一个新创社交媒体回归呢？和新中国联邦有没有关系呢？和G系列盖特(Getome)有没有关系呢？就让我们继续看下去。
 
-![](https://lh4.googleusercontent.com/5H6OEbuO51TCgvdthAR5pYrYT5R_O3Oe9FLHAUX5SDJ4htI2EcGSOlS9iug9yhbr3QDxL7bS-kIh9hZt1MNSBi8yajbuH15yEuZuTjUPQnhgVSiF1Ar18SePBEs9F6nzQItaaaCI)
+原文出处: Trump spokesman Jason Miller is leaving his post to helm tech start-up that could become ex-president’s new social media platform
 
-浅草寺紧挨着隅田川，而站在隅田川公园，就能看到身后相隔1.6公里的，处于墨田区的东京最著名地标——晴空树。东京晴空树高度为634米，于2011年11月17日获得吉尼斯世界纪录，认证为“世界第一高塔”，成为全世界最高的自立式电波塔。除了铁塔主体之外，东京晴空树尚有其他附属设施，整个街区被称为“东京sora街”。
 
-![](https://lh4.googleusercontent.com/4i8QAgWEUzkftay_yd-EyG6RcA1BRKkAdkXNZ-K7T_fQb_Uza48C3goklpluzZQGRDNfwvT5L85aHUJXA3W7_4JfLncg0ud_qQRodOnTL9orOcbGXK_wjBFMXeo0BMI-JvNZ8qb0)
 
-东京的战友除了在浅草寺的活动之外，还举行了慢跑活动。他们从东京车站出发，围着皇居进行环跑，在慢跑中让国旗迎风飘荡。沿着护城河绕皇居一周约5公里，这就是“皇居跑步路线”，作为马拉松、慢跑和散步路线而受到人们的喜爱。
-
-![](https://lh5.googleusercontent.com/UkJAKvKGM7rsFn7iCIWWUNNT9B3lIZDu298j23bjnSNWu2105fsCa1FJMNVzrkS3wDorjs6IUR0VeyardZrJwpZkxg3FM6twpO8ZVdyjjwBTMEzmWhJc_wp8--gJUL04pRulc8Ct)
-
-![](https://lh3.googleusercontent.com/D5ZvrFZkb3ZE8Y7XtQlyhXXYW9b2VsCA0OeIZAra3vS9zidorH6dmqz5volqflPKxjQLguc0vy3W-4eGSnNnUEX6GxbtI-38ukUqO2B-oXBtyoKLGyu926f9j17YkR07naIhwP4k)
-
-大阪站
-
-让我们的视线从关东转向关西，既昨日前往大阪城活动的战友们，今天依旧在大阪活动，他们挥舞着新中国联邦国旗穿梭在大阪的市中心。
-
-![](https://lh5.googleusercontent.com/PxLeZR5egiBlBVnk6tAs19B59w_1FW3qwQUbdcuZNybReOPsvhJX6-oWPRPBfjKJDTDFGCpbCrBMRjMchY7CWPOJOlOsE3Yrm40KA6guURU_POYHabd-vjxi05MvHZlm1mUZORGj)
-
-![](https://lh4.googleusercontent.com/rJWCSPpkntOjeLvR9jsULRC9Ci0MDmNEuJtZ7V5X1dAwgQq5trVK8rtXmcP0oxEwnBngluooTmStFsuRgLR-3RDuwVcfc2A0g1q9EBFuhES4fMzqqNkSxPqUGsWmlIS3w7Jsuvw0)
-
-这是一条架设于道顿堀川上的桥，它连接了戎桥筋商店街、道顿堀商店街与心斋桥筋商店街，可以说是大阪最热闹的一座桥。另外，周边大楼上挂满五颜六色的大型广告广告牌，其中又以「江崎格力高的跑跑先生」最有名，因此，这里也成为大阪观光必拍的知名景点。
-
-静冈小分队
-
-今天静冈小分队来到了JR东海道本线的冈崎站附近，这里是个有名的摄影点，能见度好的时候，当新干线驶过瞬间，按下单反的快门，即可将美景收入囊中。可惜今天远处的云层比较厚，从照片中无法辨识远处的富士山。
-
-![](https://lh5.googleusercontent.com/PULIhn2rCMt1bveBUhszjwtb2WLfBxBjuWDxQ0JGwc3o9ZSpj-GKT_qq3V7dYcAAnuf_nDAecCHhygBbhj9tCLSucuVVSjjvxGGMz_z8QdsTzqp33dZXHwv8RsgQ6BXuUi2ltt8p)
-
-在六四之前，樱花团农场将每天都有雷霆行动的线下活动。战友们很辛苦，在烈日暴晒下很辛苦，请大家关注鼓励哦。樱花团农场致力于动员在日本不同地区的战友，尽可能走完所有名胜美景之地，希望将新中国联邦的蓝色旗帜能飘扬在整个日本。亲爱的战友们一定要注意防晒和补水哦！
-
-*免责申明：本文只代表作者观点，与GNews网站无关。
-校对：喜马拉雅东京樱花团 / 文小白
-责任编辑：喜马拉雅东京樱花团 / 文小白
-发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04060740/IMG_2779.jpg)
 0
