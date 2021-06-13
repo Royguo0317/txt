@@ -1,56 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 雷霆行动——“6.4线下活动” Day 2
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1319061/)
+## 温州一商城数百百姓因疫情被中共强行封闭在内
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1319245/)
 
-记者：东京樱花团/东洋武士
+视频&撰稿：恭池投石
 
-日本时间2021年5月30日，为庆祝新中国联邦成立一周年，日本樱花团农场组织了线下户外活动。也是该活动的连续第二天，部分战友昨日完成了登顶高尾山，拖着疲惫的身体略做休整，今日依旧斗志昂扬地踏上了第二站。
+视频素材：我爱和平 一路有你
+网络视频
+6月12日，浙江温州瑞安商城被强行封闭，中共当地政府给出的理由是：瑞安商城一店铺老板是近期发现的外地疑似阳性病例的密切接触者，所以对瑞安商城内的人员进行全员核酸检测。网上流出的视频显示瑞安商城大门已经关闭，现场只有数名警察把守，医生已经进驻开始检测核酸。从流出的视频来看，商场里至少有数百人被封闭在内，多是商场的工作人员或者是顾客，里面的人出不来，外面的人进不去，在现场录制视频的人还说：“完了，真的回不去了”。
 
-今日，樱花团的战友们依旧兵分三路，从关西到中部再到首都圈，各自在计划中的地点，进行新中国联邦的宣传活动。今天在东京的活动地点为，浅草寺和皇居外围跑步道。浅草寺是东京最受欢迎的旅游景点之一，由于游客众多，通往寺内的仲见世通道几乎每天都寸步难行。根据东京观光财团的资料，把观光者的人数也算在内的话，一年有3000-4000万人次来访。按照寺院、神社的参拜、观光人数排行，这里是日本第一。但自从去年全球CCP病毒爆发以来，这种曾经人如潮涌的场景已经超过一年没有出现过了。
+中共当地政府也在12日发出了通告，通告说：为了快速有效阻断疫情扩散，瑞安老商城区域从12日一直封闭到19日。这就带来了一些疑问，中共当地政府要封闭商城8天，从视频来看，在现场给百姓做检测的医生人数并不多，目前尚不知道核酸检测要做几次，按照之前中共的检测方式，至少需要做两次，而且之间至少要间隔24小时，那么意味着被强迫在里面做核酸检测的人至少要在商场里待上2天，不过现场至少有数百甚至上千人，所需要的时候应该更长。那么现在的问题是，这么多百姓在里面不准出去，他们如何解决吃饭的问题？虽然商城里面有一些饭馆，但是不可能提供数百上千人的饮食供应。还有就是晚上住宿的问题，商城里面应该没有旅馆或者民宿，那这数百上千人也只能睡商城里面地板了，如果晚上降温也没有任何的御寒之物。另外如果这里面有单亲家庭的家长，那他的小孩谁来管？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13054019/20210613_task3a.jpg)视频截图
+笔者认为虽然有了疫情应该排查，但是完全可以通知他们每个人去医院做检测，或者中共你提供住宿也好啊！中共凭什么把这数百上千的老百姓如猪狗一样关在商城里面，这完全是反人类的行为。况且这疫情本是中共一手制作的生化武器造成，老百姓真是冤死了！另一方面中共当地政府宣称没有本地疫情，都是境外输入疫情，那么你为什么不禁止那些疫情高发地区的人进入呢？欧美各国早在5月初就禁飞像例如印度这样CCP病毒大爆发的国家，为什么中共国一直以来不禁止任何疫情高发国？当地政府还宣称疫情不严重，那为什么通知说“为了快速有效阻断疫情扩散”？不严重还需要阻断？
 
-从很早以前开始，东京观光的必访之地就是浅草。浅草是以浅草寺为中心的周边繁华街区的总称，也是东京少数几个保留旧东京氛围的「下町」，是日本现存的具有“江户风格”的民众游乐之地，在这里可以感受到东京下町的昔日繁华和特有风情。
+中共一党独裁，任意妄为，从来都是一纸政令，把老百姓的生命当草芥。可怜的是中共国老百姓已经失去了反抗意识，区区数个警察就能把数百上千人给管控了，更可悲的是在中共垮台之前他们都不会知道，中共把老百姓当成了实验品，当成了病毒的载体，现在世界上因疫情而发生的一切混乱都是中共一手制造，幸有爆料革命新中国联邦在海外为中华民族努力，中共的日子也长不了了，干倒中共，新中国联邦将拥有民主，法治，自由，一人一票，这样的事将不会再重演！
 
-![](https://lh5.googleusercontent.com/omFNZr6zEAL57TKfQ7kDtHPOju4w0b7yYeY5vaiJrSyc3deitYBR9Ifzr5o5yMsURxFtsFz38YftbnflFtjxqSRtBXvsSB_iBv6ID7IaP_yEui7tlDGSF2MWZryCy_lswOJMK5cZ)
+（本文只代表作者观点）
 
-据说这座「雷门」是大约1千年以前的武将，为祈求国泰民安和五谷丰收而建造。此后，屡遭火灾等磨难，数次被毁。现在的雷门，在日本有名的电器公司「Panasonic」创始人的捐献赞助下，得以重建。值得炫耀的巨大灯笼，高度3.9公尺，直径3.3公尺，重约700公斤。自重建之后，每隔10年，雷门的大灯笼都会重新制造换上新品。
+*发稿：光耀华夏*
 
-「雷门」正式名称是「风雷神门」，是日本和浅草地区的象征。
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-![](https://lh4.googleusercontent.com/5H6OEbuO51TCgvdthAR5pYrYT5R_O3Oe9FLHAUX5SDJ4htI2EcGSOlS9iug9yhbr3QDxL7bS-kIh9hZt1MNSBi8yajbuH15yEuZuTjUPQnhgVSiF1Ar18SePBEs9F6nzQItaaaCI)
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 
-浅草寺紧挨着隅田川，而站在隅田川公园，就能看到身后相隔1.6公里的，处于墨田区的东京最著名地标——晴空树。东京晴空树高度为634米，于2011年11月17日获得吉尼斯世界纪录，认证为“世界第一高塔”，成为全世界最高的自立式电波塔。除了铁塔主体之外，东京晴空树尚有其他附属设施，整个街区被称为“东京sora街”。
 
-![](https://lh4.googleusercontent.com/4i8QAgWEUzkftay_yd-EyG6RcA1BRKkAdkXNZ-K7T_fQb_Uza48C3goklpluzZQGRDNfwvT5L85aHUJXA3W7_4JfLncg0ud_qQRodOnTL9orOcbGXK_wjBFMXeo0BMI-JvNZ8qb0)
-
-东京的战友除了在浅草寺的活动之外，还举行了慢跑活动。他们从东京车站出发，围着皇居进行环跑，在慢跑中让国旗迎风飘荡。沿着护城河绕皇居一周约5公里，这就是“皇居跑步路线”，作为马拉松、慢跑和散步路线而受到人们的喜爱。
-
-![](https://lh5.googleusercontent.com/UkJAKvKGM7rsFn7iCIWWUNNT9B3lIZDu298j23bjnSNWu2105fsCa1FJMNVzrkS3wDorjs6IUR0VeyardZrJwpZkxg3FM6twpO8ZVdyjjwBTMEzmWhJc_wp8--gJUL04pRulc8Ct)
-
-![](https://lh3.googleusercontent.com/D5ZvrFZkb3ZE8Y7XtQlyhXXYW9b2VsCA0OeIZAra3vS9zidorH6dmqz5volqflPKxjQLguc0vy3W-4eGSnNnUEX6GxbtI-38ukUqO2B-oXBtyoKLGyu926f9j17YkR07naIhwP4k)
-
-大阪站
-
-让我们的视线从关东转向关西，既昨日前往大阪城活动的战友们，今天依旧在大阪活动，他们挥舞着新中国联邦国旗穿梭在大阪的市中心。
-
-![](https://lh5.googleusercontent.com/PxLeZR5egiBlBVnk6tAs19B59w_1FW3qwQUbdcuZNybReOPsvhJX6-oWPRPBfjKJDTDFGCpbCrBMRjMchY7CWPOJOlOsE3Yrm40KA6guURU_POYHabd-vjxi05MvHZlm1mUZORGj)
-
-![](https://lh4.googleusercontent.com/rJWCSPpkntOjeLvR9jsULRC9Ci0MDmNEuJtZ7V5X1dAwgQq5trVK8rtXmcP0oxEwnBngluooTmStFsuRgLR-3RDuwVcfc2A0g1q9EBFuhES4fMzqqNkSxPqUGsWmlIS3w7Jsuvw0)
-
-这是一条架设于道顿堀川上的桥，它连接了戎桥筋商店街、道顿堀商店街与心斋桥筋商店街，可以说是大阪最热闹的一座桥。另外，周边大楼上挂满五颜六色的大型广告广告牌，其中又以「江崎格力高的跑跑先生」最有名，因此，这里也成为大阪观光必拍的知名景点。
-
-静冈小分队
-
-今天静冈小分队来到了JR东海道本线的冈崎站附近，这里是个有名的摄影点，能见度好的时候，当新干线驶过瞬间，按下单反的快门，即可将美景收入囊中。可惜今天远处的云层比较厚，从照片中无法辨识远处的富士山。
-
-![](https://lh5.googleusercontent.com/PULIhn2rCMt1bveBUhszjwtb2WLfBxBjuWDxQ0JGwc3o9ZSpj-GKT_qq3V7dYcAAnuf_nDAecCHhygBbhj9tCLSucuVVSjjvxGGMz_z8QdsTzqp33dZXHwv8RsgQ6BXuUi2ltt8p)
-
-在六四之前，樱花团农场将每天都有雷霆行动的线下活动。战友们很辛苦，在烈日暴晒下很辛苦，请大家关注鼓励哦。樱花团农场致力于动员在日本不同地区的战友，尽可能走完所有名胜美景之地，希望将新中国联邦的蓝色旗帜能飘扬在整个日本。亲爱的战友们一定要注意防晒和补水哦！
-
-*免责申明：本文只代表作者观点，与GNews网站无关。
-校对：喜马拉雅东京樱花团 / 文小白
-责任编辑：喜马拉雅东京樱花团 / 文小白
-发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04060740/IMG_2779.jpg)
 0

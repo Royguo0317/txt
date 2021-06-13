@@ -1,11 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 达扎克声称美国科学基金具有独立性不受政治影响
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1319105/)
+## 樱花简报6月14日
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1319261/)
 
-9/20/2018 达扎克：公共科学基金并非从政治角度评判，而是由同行科学家决定，包括他自己在内的科学家对基金拨款进行同行评审，然后交给机构内的项目官员，而官员也不会受到政治的影响。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+作者：喜马拉雅樱花团 Peter wong，山东大馒头
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13053837/7-8-scaled.jpg)
 0
