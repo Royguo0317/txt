@@ -1,29 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 与福奇串谋的病毒学家关闭推特账户难道要跑路？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1317647/)
+## 【圣城传声筒】暂别香港 —— 致被迫离乡背井的港人
+` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1317721/)
 
-#### 译评：喝咖啡的小蚂蚁 |校对：人间四月
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12142923/Screenshot-2021-06-12-142858.jpg)图片来源：opindia.com
-6月11日，newsx新闻网的杜尔迦·.拉杰夫（Durga Rajeev）报道，斯克利普斯研究所病毒学家克里斯蒂安·安德森（Kristian Andersen）的推特账户已经消失了！
-
-该报道中提到，早在2020年1月份的早些时候，安德森就开始和福奇沟通关于中共病毒是（实验室）人工编辑的潜在可能性！他曾经在邮件中对福奇表示新冠病毒“看起来像是（人工）编辑”的！在其推特账户消失之前，该科学家与福奇串谋的邮件刚刚在推特上被爆了出来！
-
-据说安德森在他写给福奇的邮件里曾支持“（实验室）人工编辑的理论”，“我应当强调的是，经过在今天早些时候的讨论，埃迪、鲍伯、麦克和我都发现病毒基因与自然进化理论预期是不相符的”。然而晚些时候，在2020年3月份，他却和其他的一些科学家一起说中共病毒“不是有目的被操控的”！
-
-报道中还提到,福奇曾表示中共病毒是从动物传染到人的相关发现并未让他信服。这验证了闫丽梦博士和前川普总统都认定的中共病毒“（实验室）人工编辑起源”。6月3日，闫丽梦博士表示，她去年曾经给福奇发过邮件，解释中共病毒不可能来自于自然，并表示中共病毒就是中共使用的超限生物武器！
-
-非常有意思的是，该报道还特别点明了“就在拜登总统要求情报机构加速调查中共病毒起源的时候，安德森与福奇沟通的邮件浮出了水面！”，并援引推特公司发言人的话，“该推特账户是用户关闭的。推特公司没有采取任何措施”！
-
-* * *
-
-评述：实际上，安德森的推特账户关闭事件也已经有些时日了，那么为何会现在又开始见诸报端了呢？并且报道的内容上，一针见血的指出安德森心口不一道貌岸然的同时，肯定福奇没有被中共病毒的自然起源说服，肯定闫丽梦博士和川普总统认定的中共病毒来自于实验室的说法呢？很明显！这篇报道是来替福奇“救火”的！打的就是“丢车保帅”的牌！而那位明知中共病毒来源于实验室，却违背良知和道德替自然起源辩护的安德森，明显已经被狠狠的扔进垃圾桶了！
-
-因为中共长期对美国的渗透，以及美国各大科技公司对中共病毒真相的封锁，造成至今已有超过60万美国人死亡，几千万美国人感染了中共病毒！这个教训是惨痛的！好在美国正在醒来！正如报道中指出的那样，拜登总统也已经指示美国的情报机构加速中共病毒起源的调查了，而越来越多的证据都证明了我们爆料革命和新中国联邦战友路德和闫丽梦博士的爆料是准确而且及时的！而被抛弃的安德森已经四面楚歌成了孤家寡人，不得不关掉了自己的推特账户，开始给自己寻找最后的退路了！
+作者：纽约香草山香港部写作组
 
 
 
-&gt;&gt;原报道链接&gt;&gt; [Covid-19 origin probe gets murkier: Twitter account of Dr Fauci’s whistleblower deactivated](https://www.newsx.com/world/covid-19-origin-probe-gets-murkier-twitter-account-of-dr-faucis-whistleblower-deactivated.html)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12152754/51.jpg)图片来源：苹果日报
+
+早晨，出⻔上学
+
+妈妈说，不坐⻋ 走路吧
+
+多踩踩香港的地气
+
+街上，有穿警服的
+
+妈妈说，别去盯着看哦
+
+千万不要沾到晦气
+
+转眼，抗争两年过去
+
+妈妈说，要记得他们哦
+
+看香港人多有勇气
+
+不久，无奈将要离去
+
+妈妈说，明年再回来吧
+
+那时肯定没有邪气
+
+梦里，亲吻紫荆花旗
+
+妈妈说，一切都已过去
+
+来闻香港自由空气
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115247/M6.jpg)
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+
+
 
 0

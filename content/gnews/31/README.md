@@ -1,33 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】 无所适从&#8211;航空公司警告：接种疫苗的人不应旅行
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1316935/)
+## 喀秋莎新闻参考 &#8211; 2021年6月11日(星期五)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1317618/)
 
-作者：休斯顿星光农场 写作部 文顺
+俄罗斯莫斯科喀秋莎农场  土星
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01225742/Screenshot-2021-06-01-215655.jpg)
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01121633/ka.png)
+**一、新中国联邦新闻**
 
-近期，因接种疫苗的旅客在乘坐飞机时引发血栓事件频发，西班牙和俄罗斯航空公司警告已经接种过疫苗的人不应旅行，美国疾控中心（CDC）官网也发出关于飞机旅行超过4小时出现血栓的警告。
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=IpjGaZIXqKI)、[晚间](https://www.youtube.com/watch?v=kDuH1dYouWY)）:
 
-据ArmstrongEconomics报道，每年有超过3亿人乘坐长途航班（一般超过4小时）。血凝块也叫深静脉血栓（DVT），对一些长途旅行者来说是一个严重的风险。大多数关于血栓和长途旅行的信息来自于收集到的关于航空旅行的信息。然而，任何旅行超过四个小时的人，无论是乘坐飞机、汽车、公共汽车或火车，都可能有血栓的风险。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12102234/Screenshot-2021-06-12-092204.jpg)*图片来源：路透社*
-这一消息令许多人茫然失措。此前，各国政府以自由出行为由推动疫苗护照，西班牙更是宣布从6月7日起向全球接种中共病毒疫苗的人士开放边境。但如今注射疫苗后，人们却因更高的血栓风险依然无法出行。
+美国总统拜登6月10日与英国首相约翰逊签署了《新大西洋宪章》，承诺在共同原则的基础上应对全球性的挑战，包括日益咄咄逼人的威权中共国的崛起，表示要“决心捍卫民主和开放社会的原则、价值观和机构”。
 
-此外，有记录显示，有人在接种疫苗后不坐飞机而死于血凝块。有人发现，因感染中共病毒的死亡病人往往涉及血凝块原因。而英国《标准晚报》也表示，接种疫苗或未接种疫苗的人在飞行时出现血凝块的风险是一样的。
+2. 在一份新的起诉书中，马来西亚金融家刘特佐（Jho Low）和一名Hip Hop三人组的前成员被指控非法游说川普政府放弃与1MDB全球贿赂丑闻有关的调查，并试图将郭文贵先生从美国遣返。根据司法部6月10日的声明，一个联邦大陪审团周四对刘特佐和Prakazrel “Pras” Michel提出了补充起诉。
 
-与中共病毒溯源同出一辙，媒体不会报道真正可信的信息，人们也不可能得到这些信息的真相，因为各国政府正在积极推动疫苗经济。报道称，不管有多少人死亡，政客们永远不会承认错误，他们也不会被起诉，因为他们控制了整个过程。
+3. 美国务卿安东尼·布林肯在6月11日的电话中向他的中共国同行杨洁篪施压，要求允许对中共病毒的起源进行新的专家领导的研究，但杨洁篪称冠状病毒从武汉实验室泄露的理论是荒谬的故事。
 
-新闻来源：[https://www.armstrongeconomics.com/international-news/disease/vaccinated-people-told-not-to-travel/?**cf\_chl\_jschl\_tk**=ffc4528c59ffd6d1d7325bd9ce92873d1389afe8-1623483365-0-ATLkdCP4wiG3SfvfXlTe3ZBawaj6fjaW3fKzTrbzC9sOEJV5Pgq-Y1uDGKHq-oTRB-NftuRwXYPNh1kOyjntBYmskh\_yK4w67\_t6v\_K0ez9eZWgoxe\_NDOFMadw70srX83IfZ-R\_ZlCoDX9\_R2kMrTkwAOZHX4zpYV7gUlcykzZ-0olqZGcX2d92XcXlbNj583bCnq8bYUD8-ouZus2QmiPN9EY6nLfXVaQEqGSdLC9CPPDF3uG6hCBeN39f5ThvP9WhpoO9XwRxNe3Y7SIsKGRZJmN2z4xRNiuuZOpbOHHErh9UFYnkeeNM-HCXlaHXtpRdApZbJz-WDzN2orfpm\_luMTHvtXfhGOr5yEPjFbM\_Z1f46SXJs3VDWtW8b25uPOWlM1jHr7yKa-aHjA9bSSqxvaJRmW6fCuX7EGz8lt3Lo0ksKqgA2oKHp4HiDsnMBtdcoziV-*QYIe8MDBhiejYISMfJshySCqlF*-I2\_n8e4l\_\_uXyqpnFTUizAWdBGYb\_TppdwvKirtoIBC4o3Xbm7lQJ6taT5auxEdP8Z\_Q\_F](https://www.armstrongeconomics.com/international-news/disease/vaccinated-people-told-not-to-travel/?cf_chl_jschl_tk=ffc4528c59ffd6d1d7325bd9ce92873d1389afe8-1623483365-0-ATLkdCP4wiG3SfvfXlTe3ZBawaj6fjaW3fKzTrbzC9sOEJV5Pgq-Y1uDGKHq-oTRB-NftuRwXYPNh1kOyjntBYmskh_yK4w67_t6v_K0ez9eZWgoxe_NDOFMadw70srX83IfZ-R_ZlCoDX9_R2kMrTkwAOZHX4zpYV7gUlcykzZ-0olqZGcX2d92XcXlbNj583bCnq8bYUD8-ouZus2QmiPN9EY6nLfXVaQEqGSdLC9CPPDF3uG6hCBeN39f5ThvP9WhpoO9XwRxNe3Y7SIsKGRZJmN2z4xRNiuuZOpbOHHErh9UFYnkeeNM-HCXlaHXtpRdApZbJz-WDzN2orfpm_luMTHvtXfhGOr5yEPjFbM_Z1f46SXJs3VDWtW8b25uPOWlM1jHr7yKa-aHjA9bSSqxvaJRmW6fCuX7EGz8lt3Lo0ksKqgA2oKHp4HiDsnMBtdcoziV-QYIe8MDBhiejYISMfJshySCqlF-I2_n8e4l__uXyqpnFTUizAWdBGYb_TppdwvKirtoIBC4o3Xbm7lQJ6taT5auxEdP8Z_Q_F)
+4. 在本周对路透社发表的异常尖锐的言论中，美国总领事汉斯科姆·史密斯称，北京的影响“令人震惊”，它 “诋毁”了常规的外交活动，如会见当地活动家，这是政府镇压外国势力的一部分，“给北京这个城市带来了阴影”。
 
-编辑：Helen       校对：爱丽丝      发稿：文柳
+5. 黑山这个巴尔干半岛上的小国对中共国负债累累，正在协商利用数亿欧元的欧盟廉价信贷，并准备出售国有资产以减轻对中共的财政依赖。
 
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+6. 6月10日，参谋长联席会议主席、监督美国军队的最高将领马克·米利将军告诉立法者，中共国正在以“非常严重和持续的速度”提高其军事能力。米利在参议院军事委员会准备的发言中说，“中共国是我们的头号地缘战略安全挑战”，美国现在必须更加努力，以保持其竞争和技术优势。
 
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+7. 众议员奇普·罗伊6月11日提出立法，禁止任何中共党员在美国购买公共或私人房地产。根据一份新闻稿，《确保美国的土地不受外国干涉法》将确保美国的土地永远不会被中共控制。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
+8. 6月8日，中共解放军（PLA）火箭军测试了他们快速部署被称为“航母杀手 ”的东风DF-26导弹的能力，此前他们威胁说如果美国干涉台湾，将对其进行“迎头打击”。
 
+9. 美国总统拜登政府的一位高级官员表示，G7集团将于6月12日宣布一项新的全球基础设施计划，作为对中共国“一带一路”倡议的回应。
 
+10. 中共政府在香港的主要代表6月12日辩称，试图将香港变成“地缘政治的棋子”的人是“真正的敌人”，北京才是这个城市特殊地位的真正捍卫者。
+
+11. 根据路透社看到并得到当地官员证实的通知，中共国工业和信息化部青海办事处6月9日下令禁止在该省开展新的加密采矿项目，并要求关闭现有项目。建立声称运行大数据和超级计算中心的项目的加密矿工将受到惩罚，公司被禁止为采矿活动提供站点或电源。
+
+12. 中共国最高证券监管机构6月10日表示，中共公司可以自由选择上市地点，但必须遵守当地法律法规。
+
+13. 根据一份由保守党后座议员组成的中共国研究小组报告，中共国电信巨头华为和其他与中共拥有或有联系的公司为20所英国大学提供了数千万的研究项目资金。自2015年以来，英国的主要大学接受了来自与中国共产党有联系的公司的至少4000万英镑的研究资助。
+
+14. 中共外交部本周表示，美国应该开放马里兰州福特·德特里克生物研究设施供检查，这一说法在北京面对中共病毒源自武汉实验室泄露的可能性而进行的审查中再次出现。
+
+15. 尽管美国政府警告，中共国新疆地区的警察仍在购买价值数十万美元的美国DNA设备，这些技术的销售可能被用来在该地区进行人权侵犯。
+
+16. 美国政府呼吁阿联酋停止使用中共国华为技术，如果阿联酋不妥协，则美国可能拒绝向阿方出售F-35战机。
+
+17. 总部位于香港的中远海运港口有限公司透露，它已开始与德国集装箱码头运营商 Hamburger Hafen und Logistik AG (HHLA) 进行谈判，可能收购 HHLA Container Terminal Tollerort (CTT) 的少数股权。
+
+**二、世界新闻**
+
+1. 英国外交大臣多米尼克·拉布6月11日表示，毫无疑问，一些国家正在将疫苗用作确保影响力的外交工具，但英国并不支持所谓的疫苗外交。
+
+2. 俄罗斯总统普京在下周与美国总统拜登会面前接受美国全国广播公司新闻采访时表示，美俄关系正处于多年来的最低点。
+
+3. 清洁能源巨头Invenergy LLC表示，其已经调查了一些信息系统的未经授权的活动，但没有看到对其业务的影响。
+
+4. 朝鲜官方媒体朝中社6月12日表示，朝鲜领导人金正恩主持了中央军事委员会会议，他呼吁增强军事力量，但朝中社没有透露任何军事活动的细节。
+
+5. 6月9日，拜登总统告诉驻扎在英国的美军，参谋长联席会议告诉他“美国面临的最大威胁”是“全球变暖”。陆军参谋长联席会议主席马克·米利将军6月10日上午在回答参议员凯文·克拉默的问题时告诉国会小组，“我是从严格的军事角度看问题的。而从严格的军事角度来看，我把中共国、俄罗斯放在那里。”
 
 0
