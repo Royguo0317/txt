@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】读道德经所想 第三章
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1320771/)
+## 【有声读物】点赞
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1320822/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+配音：香草山录音组 熊井（文兰）
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,15 +14,15 @@
 
 
 
-[原文]
+为新中国联邦诞辰一周年点赞！点赞！再点赞！
 
-不上贤，使民不争；不贵难得之货，使民不为盗；不见可欲，使民不乱。是以圣人之治也，虚其心，实其腹，弱其志，强其骨，恒使民无知、无欲也。使夫知不敢、弗为而已，则无不治矣。
+这一年，在郭文贵先生的带领下，爆料革命的战友们英勇奋战，有些在前沿阵地，有些在后方作战。GTV的直播节目唯真不破，越做越好，质量高、画面美。
 
 
 
-**文字版原文：[【独立观点】读道德经所想 第三章](https://gnews.org/zh-hans/1318336/)**
+**文字版原文：[【战友心声】点赞](https://gnews.org/zh-hans/1277463/)**
 
-作者：纽约香草山健身部 书记己嗝屁！
+作者：纽约香草山美食部 文百合
 
 
 

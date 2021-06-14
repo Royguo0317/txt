@@ -1,31 +1,112 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 房价下跌难道只是那些炒房投机者买单吗？
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1320575/)
+## 众议员马特·盖茨（Matt Gaetz）：联邦调查局忽视 COVID-19 起源，情报可挽救美国人生命
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1320568/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13204120/25-1.jpeg)
-中共国银保监会主席郭树清日前在陆家嘴论坛上的言论，成为各大媒体报道的热点。原话是“那些炒作外汇、黄金及其他商品期货的人很难有机会发家致富，正像押注房价永远不会下跌的人最终会付出沉重代价一样。”
+**字幕内容：**
+**Matt Gaetz (Re-. FL)
+马特·盖茨(众议员-佛罗里达州）**
 
-路透北京6月12日报道了中国住房与城乡建设部主管针对郭树清喊话的解读。中国房地产报周六刊登题为“炒房者是时候放弃幻想了”一文中写道，某种意义上说，从打击经营贷，到反洗钱，再到过桥贷限制，本轮楼市调控事实上已经进入深度博弈和攻坚落地的阶段；可以预见楼市的活跃性短期会受到一定程度的抑制，房价增长必然会进入低速，震荡调整的周期。
+I am deeply concerned that the FBI had actionable intelligence,
+我非常担心 联邦调查局拥有的可操作的情报
 
-郭树清现任中国银行保险监督管理委员会主席、党委书记，中国人民银行党委书记、副行长、中国银行保险改革领导小组组长。因此他的讲话被行业内普遍认为，代表着高层的看法，也透露了未来的风向。
+that could have saved American lives,
+这些情报本可以挽救美国人的生命
 
-众所周知，楼市是中共国经济的命脉和支撑，中共国在改革开放四十多年来，能取得让世界惊叹的发展，很大程度上依赖于楼市的贡献，但这种发展是不可持续的，北上广深核心区域的房价，已经赶超英美日本等发达地区，但从人均财富看，却还有很大的差距，那么这样大跃进式的发展，除了透支中共国未来的经济和百姓终身的福祉以外，没有任何可以持续下去的动力。
+but that they ignored that intelligence
+但他们忽略了那个情报
 
-其实，中共国经济的疲软，从习一尊上台巩固极权专制开始，就走了下坡路，除了靠卖地、搞基建等，维持了几年的“盛世”，但终将抵不住真实情况的败露。特别是2019年底开始的中共病毒，对原本就不夯实的中共国经济来说，更是加速问题的爆发，所以，从P2P的全线覆灭，到债券的集中违约，再到股市的黑天鹅事件频发，其实都是中共经济的真实写照。如果此时，还继续纵容楼市的恶意炒作，来满足极少数人的利益的话，那么只有加速全盘溃败。
+they didn’t act on it,
+他们没有采取行动
 
-我想中共高层应该十分清楚中共经济崩溃只是时间问题，因为这是一个积蓄几十年的坑，一旦决堤，造成的打击将是毁灭性的，所以让郭树清出来代表喊话，就表明了中共在楼市上即将用强力的调控和金融政策的收紧，来争取苟延残喘的时间。
+and they missed a very important call, Steve
+他们错过了一个非常重要的情报，史蒂夫
 
-结合当前房贷利率上升的信号，严查经营贷流向，对类金融机构的调控，都预示接下来楼市持续下行的必然。但是，中共的楼市不仅仅只有炒房投机者和房地产开发商，更多为之买单的是那些向往美好生活，堵上全家未来背负巨额贷款的普通家庭，如果房贷利率持续上升，那么对于经济下降中收入面临降低的家庭来说，是何等的残酷，再者，如果房价断崖式下降，那些高位买房的刚需家庭又该怎么承受这个现实？这个烂摊子恐怕中共自己也无解。
+the part of that hearing today, that you did not play, is in the first response, the director of the FBI, Christopher Wray said,
+在今天的听证会上，你没有播放的部分
+是雷听到问题的第一反应
+联邦调查局局长克里斯托弗·雷说
 
-（本文只代表作者观点，与Gnews平台无关。）
+Well, we never know what a counterintelligence operation is,
+“好吧，我们永远不知道什么是反间谍行动”
 
-**新闻来源：**
+why was Christopher Wray answering questions about Coronavirus
+为什么克里斯托弗·雷回答关于冠状病毒问题时
 
-[中国住建部主管媒体“解读”郭树清讲话 “炒房者是时候放弃幻想了” | 路透 (reuters.com)](https://cn.reuters.com/article/china-cbirc-urban-house-loan-0612-idCNKCS2DO0C2?il=0)
+with responses that dealt with counterintelligence,
+涉及反间谍行动的问题？
 
-***校对发布**：文顾*
+what I think happens Steve
+我认为是发生了什么，史蒂夫
+
+is that they missed this fact witness, this whistleblower,
+是他们错过了这个事实、这个爆料者
+
+this person with not only story to tell
+这个人不仅有故事要讲
+
+but documents, and text messages on WeChat
+而且还有微信上的文件和短信
+
+that showed how early, the Chinese Communist Party was aware that
+能够表明中国共产党很早就意识到
+
+this was a deadly virus,
+这是一种致命的病毒
+
+and also the linkage that exists between the Chinese military
+以及中共军队与这种病毒的发展之间
+
+the development of this virus,
+存在的联系
+
+it’s testing in the Wuhan Institute of Virology
+它正在武汉生物研究所进行测试
+
+and its ultimate release to the world.
+并最终向全世界释放
+
+I think the FBI can be very culpable here,
+我认为 FBI 在这方面负有很大的责任
+
+we’re going to stay on them
+我们要继续关注他们
+
+the good news is that as a consequence of this hearing
+好消息是由于这次听证会的结果
+
+We’re going to get back the scientific analysis
+我们要找回科学分析
+
+the scientific notes that the FBI science team put together
+联邦调查局科学团队在与闫丽梦博士
+
+as a consequence of these multi hour meetings with Dr Li-Meng Yan
+许多小时会议的会谈后整理出的科学笔记
+
+but I’m concerned that they categorized her as a counterintelligence threat
+但我担心他们将她归类为反间谍威胁
+
+instead of the truth telling whistleblower she is
+而不是认为她是真正的事实爆料者
+
+and that resulted in deaths that otherwise could have been avoided.
+而这导致了本来可以避免的死亡
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接** : [https://twitter.com/repmattgaetz/status/1403108731769045009?s=24](https://twitter.com/repmattgaetz/status/1403108731769045009?s=24)
+
+英听校：康州盘古农场 – Layka
+翻译：康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

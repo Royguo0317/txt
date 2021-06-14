@@ -1,45 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】点赞
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1320822/)
+## 【中共国段子】“我们可不是吃素的”
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1320840/)
 
-配音：香草山录音组 熊井（文兰）
+#### 作者：雨后彩虹
+编辑：Amos文也
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10162655/A32E3178-FD13-4B78-98A1-971F4426623E.gif)
+自从美军机C17抵达台湾，中共国的小粉红们一致的向党卫军喊话：“去年定的底线破了”，“别怂啊”，“要敢于亮剑”，“实践是检验真理的唯一标准”……小粉红们都别急，这不，党卫军三大军种针对美军的挑衅行为，发出了强势回击，看视频和图片。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+陆军官宣发布了一张印有“准备打仗”的四个大大大……字的图片，还在图片中附上实弹演练，发射导弹的画面。
 
+火箭军行动要比陆军快一天，不愧是火箭军，名不虚传，火箭军官宣发布的大字是：“想挑事？想搞分裂？那你给我听好了！放视频—画面上是各种型号的东风导弹，跟放烟花似的，纷纷拔地而起，“嗖嗖”的飞上天。
 
+美军看好了，最后还有警告：“两岸本一家，同胞共荣辱，血脉是中华，谁想搞分裂，你给我听好了，丹心利剑是我（牙）呀。”
 
+在陆军和火箭军相继回击美军后，空军军种紧接着甩出来“王炸”—战神轰炸机画面，这是多次绕台的主力机型，怕不怕？小粉红们知道为什么放这个视频吗？说白了，就是给美国和台湾看的。
 
+如果这些你们还看不懂？接着来，中共党卫军的军事“砖家”，为了让美军看明白我们三大军种可不是吃素的，频繁发文说：快停止切香肠式试探，三军已经尽力了，没有余地和空间了。
 
+小粉红们，这回你们看懂了吧？党卫军第四军种官宣可不是吃素的。
 
+投稿，原创
 
-为新中国联邦诞辰一周年点赞！点赞！再点赞！
+此段子根据今日头条网站上文章创作，文章是《美军在台海再三挑衅！解放军三大军种发出了强势警告：“时刻备战打仗”》
 
-这一年，在郭文贵先生的带领下，爆料革命的战友们英勇奋战，有些在前沿阵地，有些在后方作战。GTV的直播节目唯真不破，越做越好，质量高、画面美。
-
-
-
-**文字版原文：[【战友心声】点赞](https://gnews.org/zh-hans/1277463/)**
-
-作者：纽约香草山美食部 文百合
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+(以上段子作品属于个人创作，对真实性不做保证。如有雷同，纯属巧合。）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10132904/2CE1FC59-B8C3-4396-9368-E41D1099C06B.jpeg)
 0

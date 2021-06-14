@@ -1,12 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中共国段子】继承人
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1320688/)
+## 【有声读物】 你 我 我们
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1320725/)
 
-#### 作者：xingfffooo
-编辑：Amos文也
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10162655/A32E3178-FD13-4B78-98A1-971F4426623E.gif)![]()![](https://media.discordapp.net/attachments/807425982436868097/853615420735881216/6.png?width=973&amp;height=548)
-(以上段子作品属于个人创作，对真实性不做保证。如有雷同，纯属巧合。）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10132904/2CE1FC59-B8C3-4396-9368-E41D1099C06B.jpeg)
+配音：香草山录音组 Swr拥抱太阳
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
+
+
+
+
+那一刻
+你
+只想有个哭的地方，
+或许
+我
+甚至无法拥你
+哪怕一只臂膀，
+“我们”——
+至少可以一起泪流酣畅；
+
+
+
+**文字版原文：[【香草诗词汇】 你 我 我们](https://gnews.org/zh-hans/1319614/)**
+
+作者：纽约香草山健身部 回响
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0

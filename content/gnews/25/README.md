@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】六月
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1320734/)
+## 【有声读物】读道德经所想 第三章
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1320771/)
 
-配音：香草山录音组 Swr拥抱太阳
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,33 +14,21 @@
 
 
 
-**一**
+[原文]
 
-今天正式进入六月
-热辣辣的天气就开始了
-扁平的太阳变成立体
-在我们头上滚过来
-又滚过去
-
-我不得不静下来
-以读书来呼吸清凉
-随便找一片树荫
-我就变成短命的昆虫
-傻傻地唱
-知了——
+不上贤，使民不争；不贵难得之货，使民不为盗；不见可欲，使民不乱。是以圣人之治也，虚其心，实其腹，弱其志，强其骨，恒使民无知、无欲也。使夫知不敢、弗为而已，则无不治矣。
 
 
 
-**文字版原文：[【香草诗词汇】六月](https://gnews.org/zh-hans/1318398/)**
+**文字版原文：[【独立观点】读道德经所想 第三章](https://gnews.org/zh-hans/1318336/)**
 
-导语作者：纽约香草山农场 诗诗文文
-作者：半耳
+作者：纽约香草山健身部 书记己嗝屁！
 
 
 
 音频处理/发稿：雪梨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
 **更多资讯，更多关注**
 
