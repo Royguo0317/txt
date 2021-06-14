@@ -1,33 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七国集团峰会对抗中共的新兴领域
-` Jimsolomon` [轉載自GNews](https://gnews.org/zh-hans/1322603/)
+## 2021/05/29《云湾说未来》世界数字货币成地缘政治新战场
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1322633/)
 
-作者：CPA Jim 所属农场：[喜马拉雅-华盛顿DC农场](https://gnews.org/zh-hans/author/himalayadcgnews/)
-![Technology requires the human touch]()![Technology requires the human touch](https://www.executivegrapevine.com/uploads/articles/story-frontier-technology-human-touch.jpg)
-七国集团峰会的重要性不言而喻，[G7峰会公报](https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/13/carbis-bay-g7-summit-communique/)提到了若干新兴领域。
+主持人：云影，弯弯 | 嘉宾：政清，忠勇无双 | 校对/审核：Julia Win | Page：我是球大哥
 
-第31条指出全球经济与社会的前沿阵地决定人类的未来繁荣与福祉。我们正在目睹人类社会模式日益多样化，这种变革就影响到经济机会、安全、道德与人权的相互关系，影响到国家、企业与个人之间角色的平衡问题。
+[!\[\]()!\[\](https://spark.adobe.com/page/aTTq2sq4b8BEK/images/f113c686-f673-42b1-837b-a8415f31c0b8.png?asset_id=f5a863b9-121e-4829-9d7a-edac4e9b1411&amp;img_etag=%22d06d6aa2ab5d65f1d61ea6936608797c%22&amp;size=1024)](https://spark.adobe.com/page/aTTq2sq4b8BEK/images/f113c686-f673-42b1-837b-a8415f31c0b8.png?asset_id=f5a863b9-121e-4829-9d7a-edac4e9b1411&amp;img_etag=%22d06d6aa2ab5d65f1d61ea6936608797c%22&amp;size=1024)
 
-中共把经济机会给其想腐化的人和关系人，以国家安全为借口侵犯人权，通过侵犯人权让其治下的专业人士、企业主等违反职业道德去编造虚假报表、披露错误信息、生产假冒伪劣产品、劣质工程，误导国际金融市场，用沉重债务捆绑中共国的地方政府、房奴、一带一路参与国，使得其所谓党大于国家、企业和个人并将这种模式扩大到全世界。
+GTV视频链接：[“云湾说未来” GTV节目第26期：论数字货币王国—世界数字货币成地缘政治新战场](https://gtv.org/video/id=60b257e4f6ff4b33fb947f6e)
 
-第33条提出了一个新的概念“未来技术论坛”（Future Tech Forum），在经济合作与发展组织（The Organisation for Economic Co-operation and Development，OECD）的帮助下将于2021年9月发起。目的是将相同理念的民主伙伴召集起来讨论技术在支持开放社会中和解决全球挑战中的作用。
+**躺平**——墙内年轻人的九九六、内卷、看不到机会，不得不躺平。躺平并非消极，而是一种生活态度，一种对社会的抗议。为了避免囚徒困境，躺平不啻是明智的出路，是中国版非暴力不合作运动。
 
-第33条提到了开放政府伙伴关系（Open Government Partnership），其成员包括美国、英国、巴基斯坦、肯尼亚、尼日尼亚、韩国、德国、塞尔维亚、摩洛哥、意大利、加纳等国，没有中共国，可见中共国对自己政府是否开放方面的自信不如巴基斯坦、肯尼亚、摩洛哥、尼日尼亚等国，四个自信怎么就没有了呢。七国集团将在开放政府伙伴关系的技术基础上建立更多的透明度。
+**躺平币**——唤醒更多的平民百姓，前景潜力无限。
 
-透明度越高，意味着中共在上述开发政府伙伴关系中的非洲成员国以及巴基斯坦的腐化行径越容易曝光，可耻的债务捆绑行径越容易曝光。
+**数字货币**——部分国家已经在探讨数字货币作为储备货币，以及发行国家主权加密货币的可能。区块链让加密货币市场公开化、透明化变得可能。
 
-第33条最后提到支持七国集团数字技术标准合作框架（Framework for G7 Collaboration on Digital Technical Standards），用于开发新的标准。
+喜币，躺平币，就是地缘政治的产物，但区块链本身突破了地域的限制，数字货币也将挑战央行发行的传统货币的权威。
 
-由于中共国不民主，而台湾民主，因此中共国将被排斥在该论坛之外，而台湾有资格参加。中共独裁统治作为落后生产关系、落后的上层建筑在阻碍中国大陆的生产力发展，建立于中华民国宪法上的台湾民主制度作为先进生产关系和上层建筑在促进台湾生产力以至全球生产力的发展。
+**ESG运动**，将环境、社会和公司治理因素纳入投资的评估决策中的投资活动或趋势。伦理投资、责任投资、绿色金融、可持续金融都被用来指代ESG投资理念。随着越来越多的生产企业开始关注绿色生产、绿色制造，加之环境、法律法规的完善，投资者也慢慢意识到企业环境绩效可能会影响到企业财务绩效。于是，绿色金融就开始进入投资者的视线范围。
 
-第34条支持“数字部长关于可信数据自由流动合作的路线图”（Digital Ministers’ Roadmap for Cooperation on Data Free Flow with Trust）、七国集团电子可转移记录合作框架（Framework for G7 Collaboration on Electronic Transferable Records）、数字部长网络安全原则（Digital Ministers’ Internet Safety Principles）。
+**Uniswap**：Uniswap是基于以太坊的代币交换协议，是基于兑换池，而不是订单簿的去中心化交易协议。
 
-这里的网络安全不是中共国所说的网络安全，不是中共以保护孩子为名搞全面网络防火墙，而是保护妇女、孩子、弱势群体，反对仇恨演说，同时又保护人权和言论自由。中共在英国安装的华为5G设备侵蚀英国网络安全，导致七国集团峰会在讨论中共话题时不得不先断网，不知道中共国有关断网的报道的信息来源是华为，还是中共国家安全部，还是解放军，还是外媒报道。
+而所谓的兑换池，指的则是一个资金池，用户在Uniswap中交易的价格则由这个资金池中的代币比例和算法来决定。Uniswap是去中心化的，不仅跟传统的加密货币交易所不同，也跟普通的去中心化代币交易所不同。Uniswap是一组部署到以太坊网络的合约，所有的交易都在链上进行。Uniswap的交易对手并不是其它交易用户，而是跟代币池进行交易，且有自动做市的模型来计算交易价格，代币兑换价格与代币兑换池中代币的比例有关。在Uniswap中，使用最多的功能是代币之间的币币兑换交易。
 
-第35条意识到建立共同太空运营标准的重要性。
+*文章仅代表作者观点*
 
-第35条对应的是中共最近发射航天器，但是对回收失去控制。另一方面这个标准也会有效预防中共以维护网络安全为名击落马斯克发射的星链，因为落后的生产关系总是会采取各种方法阻碍先进生产力的发展，负隅顽抗，太空运营标准的建立和执行将会粉碎这种落后生产关系的图谋。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/aTTq2sq4b8BEK/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/aTTq2sq4b8BEK/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

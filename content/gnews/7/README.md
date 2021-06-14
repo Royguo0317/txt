@@ -1,63 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】郑州5岁女孩在幼儿园被砸身亡
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1322542/)
+## 七国集团峰会对抗中共的新兴领域
+` Jimsolomon` [轉載自GNews](https://gnews.org/zh-hans/1322603/)
 
-**作者**：香草山美食部 新世界的一员
+作者：CPA Jim 所属农场：[喜马拉雅-华盛顿DC农场](https://gnews.org/zh-hans/author/himalayadcgnews/)
+![Technology requires the human touch]()![Technology requires the human touch](https://www.executivegrapevine.com/uploads/articles/story-frontier-technology-human-touch.jpg)
+七国集团峰会的重要性不言而喻，[G7峰会公报](https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/13/carbis-bay-g7-summit-communique/)提到了若干新兴领域。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
+第31条指出全球经济与社会的前沿阵地决定人类的未来繁荣与福祉。我们正在目睹人类社会模式日益多样化，这种变革就影响到经济机会、安全、道德与人权的相互关系，影响到国家、企业与个人之间角色的平衡问题。
 
+中共把经济机会给其想腐化的人和关系人，以国家安全为借口侵犯人权，通过侵犯人权让其治下的专业人士、企业主等违反职业道德去编造虚假报表、披露错误信息、生产假冒伪劣产品、劣质工程，误导国际金融市场，用沉重债务捆绑中共国的地方政府、房奴、一带一路参与国，使得其所谓党大于国家、企业和个人并将这种模式扩大到全世界。
 
+第33条提出了一个新的概念“未来技术论坛”（Future Tech Forum），在经济合作与发展组织（The Organisation for Economic Co-operation and Development，OECD）的帮助下将于2021年9月发起。目的是将相同理念的民主伙伴召集起来讨论技术在支持开放社会中和解决全球挑战中的作用。
 
+第33条提到了开放政府伙伴关系（Open Government Partnership），其成员包括美国、英国、巴基斯坦、肯尼亚、尼日尼亚、韩国、德国、塞尔维亚、摩洛哥、意大利、加纳等国，没有中共国，可见中共国对自己政府是否开放方面的自信不如巴基斯坦、肯尼亚、摩洛哥、尼日尼亚等国，四个自信怎么就没有了呢。七国集团将在开放政府伙伴关系的技术基础上建立更多的透明度。
 
+透明度越高，意味着中共在上述开发政府伙伴关系中的非洲成员国以及巴基斯坦的腐化行径越容易曝光，可耻的债务捆绑行径越容易曝光。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14151533/image0-46-1.jpg)
+第33条最后提到支持七国集团数字技术标准合作框架（Framework for G7 Collaboration on Digital Technical Standards），用于开发新的标准。
 
-翻到朋友发的视频，又是一起痛心的事故、人为的灾难，特记录此事件，祈祷佳佳天堂安好。
+由于中共国不民主，而台湾民主，因此中共国将被排斥在该论坛之外，而台湾有资格参加。中共独裁统治作为落后生产关系、落后的上层建筑在阻碍中国大陆的生产力发展，建立于中华民国宪法上的台湾民主制度作为先进生产关系和上层建筑在促进台湾生产力以至全球生产力的发展。
 
-5月28日17:20左右，5岁女孩佳佳（化名）在爱贝尔幼儿园准备六一表演，没想到突发事故，意外身亡。
+第34条支持“数字部长关于可信数据自由流动合作的路线图”（Digital Ministers’ Roadmap for Cooperation on Data Free Flow with Trust）、七国集团电子可转移记录合作框架（Framework for G7 Collaboration on Electronic Transferable Records）、数字部长网络安全原则（Digital Ministers’ Internet Safety Principles）。
 
-据孩子大姨时女士说：当时接到园区电话，说孩子摇晃教室内的暖气片被砸到。家长赶到现场，发现孩子躺在血泊中，头部受伤严重，昏迷不醒。随后被120送往医院，抢救了两个多小时，还是没有挽回孩子的生命。
+这里的网络安全不是中共国所说的网络安全，不是中共以保护孩子为名搞全面网络防火墙，而是保护妇女、孩子、弱势群体，反对仇恨演说，同时又保护人权和言论自由。中共在英国安装的华为5G设备侵蚀英国网络安全，导致七国集团峰会在讨论中共话题时不得不先断网，不知道中共国有关断网的报道的信息来源是华为，还是中共国家安全部，还是解放军，还是外媒报道。
 
-在共匪邪教的治理之下，视频又选择性地出现障碍了。
+第35条意识到建立共同太空运营标准的重要性。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14151916/image2-4.jpg)
-
-据家长了解：幼儿园的监控在事发前几天坏掉了。没有监控录像，孩子到底在园区内发生了什么无人知晓。事发几天了，依旧没有结果。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14152129/image1-1-3.jpg)
-
-一个稚嫩的孩子就这样无声无息地消失在本应无忧快乐的六一儿童节里。学堂本该是孩子们健康成长的地方，却因为学校的不安全隐患，出现了如此痛心的事故。
-
-据知情人士说，幼儿园是等家长到了才将孩子送到医院的，他们并没有第一时间将孩子送医院，是故意延误治疗了……
-
-如果说暖气片的倒掉只是环境不安全，那么延误救治就纯粹是人为的灾难。
-
-信息来源·；河南在线粉丝群
-
-视频来源：时利欣）#河南在线@河南在线
-
-编辑：飞虹 校对/发稿：遍地开花
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041307/7_july.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042102/WhatsApp_Image_2020-10-24_at_04.33.05-8-768x103-1.jpeg)
-
-
-
-
+第35条对应的是中共最近发射航天器，但是对回收失去控制。另一方面这个标准也会有效预防中共以维护网络安全为名击落马斯克发射的星链，因为落后的生产关系总是会采取各种方法阻碍先进生产力的发展，负隅顽抗，太空运营标准的建立和执行将会粉碎这种落后生产关系的图谋。
 
 0
