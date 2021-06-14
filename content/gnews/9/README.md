@@ -1,49 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】每日经文
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1322011/)
+## 广东台山核电厂核外泄，中共修改2倍多辐射检测剂量安全限值
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1322205/)
 
-作者：美东香草山福音部 凤鸡
+台湾宝岛农场 Amitofu
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
+根据[《CNN》](https://edition.cnn.com/2021/06/14/politics/china-nuclear-reactor-leak-us-monitoring/index.html)14日报导，在 6 月 8 日法国核反应堆厂商Framatome向美国国务院通报提出援助请求，由于中法合作的中国**广东台山核电厂「核外泄」**，**中共国安全部门国家核安全局****NNSA****，****正在不断提高台山核电厂外环境的辐射检测剂量限制，将限值修改为最初发布的两倍多，来避免核电厂关闭，完全不顾及核电厂周边民众和现场工作人员的风险。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14111327/china-nuclear-reactor-leak-us-monitoring-400x225.jpg)CNN
+然而台山核电厂 6 月 8 日晚间，在其网站上声明「称该厂及其周边地区的环境辐射检测剂量读数「**正常**」，两座核反应堆都在运行，并补充说 2 号机组最近完成了检修。自投入商业运行以来，台山核电厂严格按照运行许可证文件和技术程序对机组运行进行控制，两台机组各项运行指标均达到核安全法规和电厂要求技术规格。」
 
+但在法国公用事业公司法国电力公司EDF声明中表示，台山核电站一号反应堆“初级回路中的惰性气体”浓度增加，指称放射性威胁迫在眉睫。洛斯阿拉莫斯国家实验室退休的核科学家罗弗警告说，**如果他们确实有气体泄漏，那就表明核电厂的一些容器被破坏了**，也许一些燃料组件可能会损坏，必须小心地拆除燃料元，气体泄漏可能表明存在更大的问题。
 
+法国公用事业公司 EDF于 6 月 3 日，已向能源部提交了一份运营安全援助的紧急请求许可，转让技术数据和援助，以帮助工厂恢复正常运行，以解决紧急安全问题，并警告美国官员**核反应堆正在泄漏裂变气体**。美国国家安全委员会、国务院和能源部的官员对此指出，如果中共国公共安全面临任何风险，美国将会依据现有的核能条约公布内容。本文仅代表个人立场
 
+祈祷万佛万神加持文贵先生与新中国联邦战友
 
+[Exclusive: US assessing reported leak at Chinese nuclear power facility](https://edition.cnn.com/2021/06/14/politics/china-nuclear-reactor-leak-us-monitoring/index.html)
 
-爱是恒久忍耐，又有恩慈；爱是不嫉妒；爱是不自夸，不张狂，不做害羞的事，不求自己的益处，不轻易发怒，不计算人的恶，不喜欢不义，只喜欢真理；凡事包容，凡事相信，凡事盼望，凡事忍耐。哥林多前书13卷4-7节
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14100417/%E5%93%A5%E6%9E%97%E5%A4%9A%E5%89%8D%E4%B9%A6.png)
-每当看到这几句经文，我都会泪流满面，回想爆料革命走过来的这四年，仿佛神早就知道在我们的爆料革命中要面临的困难，用这段话告诉我们要有耐心并且要爱我们的仇敌，只有这样一步一步才能走到最后的喜马拉雅。
+审核:Athena雅典娜 发布:Amitofu
 
-最近七哥的直播也反复告诫我们要有耐心不要急功近利，只管行动前行不要太多杂念，无我的最高境界也就是这段经文中所描述的那样。还记得七哥对墙内底层战友的寄语吗？
-
-“底层的战友们，你们可能是家庭甚至是家族唯一一个觉醒的人！你知道吗？你是负有使命的，你身负重任你知道吗？你要扛下所有的诋毁、谩骂、甚至是侮辱！你的任务就是扛下所有的责任，带领家庭甚至是家族走向正道！所有的一切你必须扛下，没有退路。”
-
-这段话很多人都是看一次哭一次，面对这个支离破碎的世界，觉醒的人只有点燃爱这盏信仰的明灯，才能坚持负重前行走到最后的终点。在此我向亲爱的父神衷心地祷告，求神早日将CCP打入无边地狱，解救全世界被CCP残害的人民。 让我们凡事包容，凡事相信，凡事盼望，凡事忍耐，阿门。
-
-编辑：飞虹 校对/发稿：小小安
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文)**
-
-[**纽约香草山农场Twitter(****英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
-
-
-
-
-
-
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
 0
