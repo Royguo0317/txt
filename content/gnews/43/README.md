@@ -1,22 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本以韩国在争议岛礁附近例行军演为由取消日韩会晤
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1321495/)
+## 玛丽亚sunday morning采访彭培奥：大量证据显示Covid来自中共军方的实验室
+` 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1321560/)
 
-#### 撰稿：yyshere
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042842/%E6%97%A5%E9%9F%A9.jpg)图片来源：环球网
-根据韩联社报道，韩国外交部官员6月14号透露，韩国和日本日外交部门曾就11号到13号的G7领导人峰会期间，举行简单的两国领导人会晤初步达成了协议，但之后日本单方面取消了这次会见。
+- 中文简介：中国人参与的每一个病毒实验室都是由人民解放军或他们的安全机构运作和控制的。
+- 英文标题：Pompeo: ‘Enormous evidence’ that COVID came from a lab operated by PLA
+- 英文简介：：Every one of those laboratories that the Chinese engaged Is operated and controlled by the People’s Liberation Army or their Security Apparatus.
+- 原视频链接： [https://video.foxnews.com/v/6257666433001?playlist\_id=3386055101001#sp=show-clips](https://video.foxnews.com/v/6257666433001?playlist_id=3386055101001#sp=show-clips)
 
-报道中称，韩国外交部官员表示，总统文在寅在G7峰会期间与英国、欧盟、德国、法国、澳大利亚领导人分别举行了双边会谈，并取得了重大的外交成果。在对日方面，韩国始终保持开放态度，并曾期待日本方面以积极态度展开双边对话，但日方最终以韩国定期实施的“东海领土守护演习”为由取消了会谈，此举令人遗憾。
 
-韩国方面表示，韩国军方自1986年起都会举行例行的独岛防御演习，每年上半年和下半年各一次。每次进行该演习时，日方都会通过外交渠道提出强烈抗议。但韩国方面指出，这次G7会议期间日方以这一演习为由取消已达成初步协议的领导人会谈令人费解。
 
-韩国和日本之间长期以来一直存在“独岛”“竹岛”的领土主权争议。独岛或竹岛在国际上被称为里昂科礁（Liancourt Rocks），面积仅有0.186平方公里，,距离韩国郁陵岛71公里，距离日本隐歧诸岛161公里。二战时日本曾短暂占领，以遏制东海航行船只通行。二战后韩国独立，并宣称拥有独岛主权。但日本右翼团体在1953年韩战期间曾登上岛屿立碑。2012年8月韩国时任总统李明博登独岛，成为韩国历史上首位登上独岛的总统，导致日韩关系空前紧张。2019年7月俄罗斯军机侵入岛屿领空，韩国空军战斗机射击360发机枪弹以示警告。同年8月韩国将在独岛周边进行的军演更名为“东海领土守护演习“。
-
-消息来源： YNA 网络公开信息
-
-（本文系作者个人观点）
 
 0
