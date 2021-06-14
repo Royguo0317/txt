@@ -1,11 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】中共军方在大爆发前已经开始在开发疫苗
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1321429/)
+## 玛丽亚sunday morning采访彭培奥：大量证据显示Covid来自中共军方的实验室
+` 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1321560/)
 
-06/07/2021 莎莉·马克森认为福奇在资助武汉病毒所的功能获得研究上撒谎。冠状病毒是中共解放军生物武器项目的一部分。因为有太多武汉病毒研究所完成的科学论文，其中许多是与中国军事科学家共同完成的，并且在论文的末尾说明了是由美国国立卫生研究院资助。中国解放军军事科学家在2020年2月就申请了第一个冠状病毒疫苗专利，这表明他们很可能在承认有疫情之前就开始了疫苗开发的工作。
+- 中文简介：中国人参与的每一个病毒实验室都是由人民解放军或他们的安全机构运作和控制的。
+- 英文标题：Pompeo: ‘Enormous evidence’ that COVID came from a lab operated by PLA
+- 英文简介：：Every one of those laboratories that the Chinese engaged Is operated and controlled by the People’s Liberation Army or their Security Apparatus.
+- 原视频链接： [https://video.foxnews.com/v/6257666433001?playlist\_id=3386055101001#sp=show-clips](https://video.foxnews.com/v/6257666433001?playlist_id=3386055101001#sp=show-clips)
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
+
 
 0

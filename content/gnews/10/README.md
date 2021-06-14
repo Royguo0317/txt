@@ -1,77 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 光影传镜：中共政治宣传画进化史
-` 喜马拉雅光影传镜` [轉載自GNews](https://gnews.org/zh-hans/1321145/)
+## 《认知梦实相》&#8212;《心灵语》精选摘录
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1321618/)
 
-编辑：喜马拉雅光影传镜
+主播：月亮 | 校对/审核：SilverSpurs7 | Page: Daoiii
 
-宣传或者说洗脑，一直就是中共控制中国人民的重要方式。可以说政治宣传史也就是中共的邪恶发展史，记录了中共在历史上如何的抹黑真相，扭曲事实的。
+[!\[\]()!\[\](https://spark.adobe.com/page/Hf3gg7xOBYhjH/images/68ed3487-b4d6-4c2a-8f3e-4b7cda3da2c8.jpg?asset_id=756e3153-21e9-49dd-9d99-fc34b5aa299c&amp;img_etag=%22d7ea3dc98671a4343b216a876f6a3b8f%22&amp;size=1024)](https://spark.adobe.com/page/Hf3gg7xOBYhjH/images/68ed3487-b4d6-4c2a-8f3e-4b7cda3da2c8.jpg?asset_id=756e3153-21e9-49dd-9d99-fc34b5aa299c&amp;img_etag=%22d7ea3dc98671a4343b216a876f6a3b8f%22&amp;size=1024)
 
-中共一直希望收复台湾
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14041427/%E6%94%BF%E6%B2%BB%E5%AE%A3%E4%BC%A0%E7%94%BB%E4%B8%8A%E7%9A%84%E5%8F%B0%E6%B9%BE%E9%97%AE%E9%A2%98-1.jpg)
-“解救”台湾人民
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14041532/%E8%A7%A3%E6%95%91%E5%8F%B0%E6%B9%BE%E4%BA%BA%E6%B0%91.jpg)
-毛主席语录的“红宝书”流进台湾
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14041730/%E6%AF%9B%E4%B8%BB%E5%B8%AD%E8%AF%AD%E5%BD%95%E7%9A%84%E7%BA%A2%E5%AE%9D%E4%B9%A6%E8%BF%9B%E5%85%A5%E5%8F%B0%E6%B9%BE.jpg)
-朝鲜战争的麦克阿瑟
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14041722/%E6%9C%9D%E9%B2%9C%E6%88%98%E4%BA%89%E7%9A%84%E9%BA%A6%E5%85%8B%E9%98%BF%E7%91%9F.jpg)
-朝鲜战争的杜鲁门
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14041713/%E6%9C%9D%E9%B2%9C%E6%88%98%E4%BA%89%E7%9A%84%E6%9D%9C%E9%B2%81%E9%97%A8.jpg)
-中朝”沉重”打击了美军
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042247/%E4%B8%AD%E6%9C%9D%E6%B2%89%E9%87%8D%E6%89%93%E5%87%BB%E4%BA%86%E7%BE%8E%E5%86%9B.jpg)
-大跃进养猪
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042236/%E5%A4%A7%E8%B7%83%E8%BF%9B%E5%85%BB%E7%8C%AA.jpg)
-除“四害”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042228/%E9%99%A4%E5%9B%9B%E5%AE%B3%E6%89%93%E9%BA%BB%E9%9B%80.jpg)
-钢产量“赶英超美”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042220/%E9%92%A2%E4%BA%A7%E9%87%8F%E6%95%A2%E8%8B%B1%E8%B6%85%E7%BE%8E.jpg)
-科技“大跃进”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042211/%E7%A7%91%E6%8A%80%E5%A4%A7%E8%B7%83%E8%BF%9B.jpg)
-大炼钢铁
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042202/%E5%A4%A7%E7%82%BC%E9%92%A2%E9%93%81.jpg)
-大饥荒时期“粮食大丰收”
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042153/%E5%A4%A7%E9%A5%A5%E8%8D%92%E6%97%B6%E6%9C%9F%E7%B2%AE%E9%A3%9F%E5%A4%A7%E4%B8%B0%E6%94%B6.jpg)
-文化大革命
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042144/%E6%96%87%E5%8C%96%E5%A4%A7%E9%9D%A9%E5%91%BD.jpg)
-“刘邓”反革命
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042135/%E5%88%98%E9%82%93%E5%8F%8D%E9%9D%A9%E5%91%BD.jpg)
-文化大革命“打倒”彭德怀
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042127/%E6%96%87%E5%8C%96%E5%A4%A7%E9%9D%A9%E5%91%BD%E6%89%93%E5%88%B0%E5%BD%AD%E5%BE%B7%E6%80%80.jpg)
-反对赫鲁晓夫
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042118/%E5%8F%8D%E5%AF%B9%E8%B5%AB%E9%B2%81%E6%99%93%E5%A4%AB.jpg)
-“打倒”刘少奇
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042109/%E6%89%93%E5%80%92%E5%88%98%E5%B0%91%E5%A5%87.jpg)
-农民讨论“丰收”1974
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042100/%E5%86%9C%E5%90%8D%E8%AE%A8%E8%AE%BA%E4%B8%B0%E6%94%B61974.jpg)
-灭绝人性的计划生育运动
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042052/%E8%AE%A1%E5%88%92%E7%94%9F%E8%82%B2%E8%BF%90%E5%8A%A81974.jpg)
-反右倾批判邓小平
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042043/%E5%8F%8D%E5%8F%B3%E5%80%BE%E6%89%B9%E5%88%A4%E9%82%93%E5%B0%8F%E5%B9%B31976.jpg)
-毛泽东逝世
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042035/%E6%AF%9B%E6%B3%BD%E4%B8%9C%E9%80%9D%E4%B8%96.jpg)
-新领导人华国锋
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042026/%E6%96%B0%E9%A2%86%E5%AF%BC%E4%BA%BA%E5%8D%8E%E5%9B%BD%E9%94%8B1977.jpg)
+赛斯说自己的书《梦，进化与价值完成》是他最具野心的一部作品，他试图解释交代创世纪是怎么来的，它试图交代所有过去宗教神话完全说不清楚的那一块，试图解释我们的演化论，所谓的人类的起源到底是什么？圣经上佛经上关于人类起源的故事，科学界也有关于人类起源的理论与假设，那到底赛斯怎么看人类的起源，了解赛斯资料对我们的启发是什么？
+
+赛斯说整个宇宙是被“一切万有、神佛主、一体”梦出来的，物质就是能量，所有的能量都包含意识。《梦,进化与价值完成》这是赛斯最后一本大格局的综论，这本书将宇宙的起源人类的文明基因学转世结构集体梦等一网打尽，打破了很多宗教与科学的迷思，里面有很多重要信息，看完这本书你对你自己和对世界的看法将全然改观，并自然走上爱与信心的价值完成之路。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Hf3gg7xOBYhjH/images/6d76fd51-8f58-4ea9-9751-e9eb30135b48.jpg?asset_id=832cc902-3fae-4eb1-a242-48fbda3c7a83&amp;img_etag=%2294fdabb435bc19e5eaaa305ef60bfb59%22&amp;size=3413)](https://spark.adobe.com/page/Hf3gg7xOBYhjH/images/6d76fd51-8f58-4ea9-9751-e9eb30135b48.jpg?asset_id=832cc902-3fae-4eb1-a242-48fbda3c7a83&amp;img_etag=%2294fdabb435bc19e5eaaa305ef60bfb59%22&amp;size=1024)
+
+我们是被一切万有做梦派到地球获得地球经验的，为什么说人生如梦，当结束一生回到我们的来源地，看自己的一生就像梦一样。
+
+所谓的梦其实就是我们内在的一个梦体，做梦就是灵魂在游戏，人活在这个世界上，**很美妙的地方是我们都有一个肉体与一个灵体，**灵体是什么？**事实上是，我们的灵我们的佛保护着我们，我们的肉体是我们（灵）在这个世界上穿上的一件衣服，我们每一个人的内在都含有丰富的灵性。**
+
+讲梦，**梦体就是灵体，梦就是灵，**每一个人每天的生活都在肉体与灵体间闪烁，一闪一灭，所有的人都是这样。你现在活在这个世界上你是无法和你的灵体分开的。
+
+赛斯说：当你的意识活在（聚焦）在肉体里时，它其实也不是所有的时间都活在肉体里，并且定位于肉体里的。赛斯说：你们整个的宇宙结构也以同样方式存在。它闪烁生灭，并且以某种节奏，如呼吸节奏，一进一出，在生灭。在它们内有无穷的个人性变化——几乎象是宇宙的新陈代谢。也就是说，我们的的意识有一瞬是“活着”，贯注于物质实相里。在下一瞬它完全贯注于别处，在一个不同的实相系统里。对我们的意识方式来说，它是活的，或是它“死了”，下一瞬它又“活了”， 但是我们感知不到那个介于中间的不相同的瞬间。赛斯用“一瞬”来比喻，意识在物质的系统内是“死了”或不活动，然后又活了或又活动，但我们不知觉它们不存在的那一瞬。因为速度太快。就如我们看电影，荧幕上什么都没有，但如果我们每秒24张底片播放，荧幕上的人物故事就活龙活现，意识的脉动比放电影的速度要快太多。所以我们看到的物质世界好像是真的一样。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Hf3gg7xOBYhjH/images/61adfe10-f1d1-4db6-b53f-7c4e4b4679a9.jpg?asset_id=e52dd198-5e42-4b99-a536-e821d8bded79&amp;img_etag=%2237b4063ce2529ba4ef4ce910d1b1aa86%22&amp;size=1024)](https://spark.adobe.com/page/Hf3gg7xOBYhjH/images/61adfe10-f1d1-4db6-b53f-7c4e4b4679a9.jpg?asset_id=e52dd198-5e42-4b99-a536-e821d8bded79&amp;img_etag=%2237b4063ce2529ba4ef4ce910d1b1aa86%22&amp;size=1024)
+
+科学家已经发现，我们看到可以认识到的物质世界包括太阳星星月亮星球东西等等，它只占整个宇宙的不到5%，其它95%包括：27%是暗物质dark matter，68%为暗能量。也就是我们现在活着这个世界上，我们的注意力全部集中在不到5%的层面（叫透过钥匙孔看世界），95%层面被我们的头脑肉体挡掉了，以为这个物质世界是唯一真实的世界。而看不到真正真实的世界，转向内练习内在感官就是去感受95%更大的层面，睡眠是无意识的冥想，就是去链接真实。爆料革命是唯真不破，我们《心灵语》更是与大家一起去探讨生命的实相：我们是谁？我们来地球到底干什么？唯真不破，唤醒被困在物质世界忍受身心分离、疾病痛苦的人们，当意识转变五官所见的世界就会瓦解。
+
+灵体是一个快速运动的你，只要想什么它马上看到的就是什么，在灵体的世界里面是信念创造实相的，马上想马上出现，你在梦境里就有这样的特色。肉体当它疲劳睡眠之后它会进入到灵体的世界，**灵体的世界就是梦境的世界，**梦对我们个人来说是一个很重要的事情，它是有意义的，你今天只有认识梦你才会知道它意义在哪里。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Hf3gg7xOBYhjH/images/06a32f9c-6a17-4253-8876-738ba2d5b324.jpg?asset_id=9724d7be-7b7c-452c-9b4b-dd19d885f622&amp;img_etag=%2264dc4dea7609d6c98217163d71c1e259%22&amp;size=2620)](https://spark.adobe.com/page/Hf3gg7xOBYhjH/images/06a32f9c-6a17-4253-8876-738ba2d5b324.jpg?asset_id=9724d7be-7b7c-452c-9b4b-dd19d885f622&amp;img_etag=%2264dc4dea7609d6c98217163d71c1e259%22&amp;size=1024)
+
+我们再讲梦，人从醒到睡着，中间有一个时期叫过渡阶段，人要从肉体切换到灵体，因为灵体与肉体两个结构完全不同，所以切换的时候会有一个转折过去时期，这个转折过去的时期叫梦前时期，因为紧接着后面你的灵体就要脱离你的身体了，每一个人每天都在玩这个游戏。进入梦后，梦分为两个时期，非动眼时期和快速动眼时期，非动眼动眼，非动眼动眼，一晚上七-八小时里面，会经历七到八个这样的周期。第一个阶段叫非动眼时期，是灵体离开肉体到处遨游会友，有银带连着。灵体回来之后叫动眼时期，**动眼时期就是我们头脑里的梦境，**遨游非动眼，回来动眼，遨游是灵体真的在做梦，回来时灵体重演一次刚刚所经历的梦境或是你的白天的情绪的发泄。
+
+赛斯说梦具有 1.与往生的没往生的亲人交流（如开同学会一样） 2.不同转世的自己与不同世亲人交流学习 3.与自己的 “Personal god，Inner self “的交流。
+
+人的压力难过痛苦担忧焦虑恐惧这些感觉在我们心里面没有发泄出去的感觉，它必须要经过梦里面的象征的实境发泄出去，人才有办法健康，否则这些情绪会积压在我们的心灵里面，对我们的心灵是一个杀伤力，所以我们的灵体，每一个人的内在都具足疗愈力，这个疗愈力必须透过梦里面的实境，将你堵塞的情绪把它在梦里展现出去。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Hf3gg7xOBYhjH/images/10915cbe-5876-4ac9-bf8b-507d624de526.jpg?asset_id=48ea2901-99d4-4d93-995a-7eafbdb2ba32&amp;img_etag=%22e6b0167268b5ffddb308bb6eebfc8066%22&amp;size=1024)](https://spark.adobe.com/page/Hf3gg7xOBYhjH/images/10915cbe-5876-4ac9-bf8b-507d624de526.jpg?asset_id=48ea2901-99d4-4d93-995a-7eafbdb2ba32&amp;img_etag=%22e6b0167268b5ffddb308bb6eebfc8066%22&amp;size=1024)
+
+欲知梦的奥妙请点击《心灵语》直播链接：[《缪斯殿堂》之“心灵语”（第29期）：认知梦实相](https://gtv.org/video/id=60c5f289b96c69573d7d242e)
+
+（文章仅代表作者个人观点）
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Hf3gg7xOBYhjH/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Hf3gg7xOBYhjH/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 
-
-在那个没有电视，只有收音机的年代，中共就是用这些充满“力量感”和“幸福感”的画面来洗脑人民，驱动人民。这些政治宣传画反映了那个狂热的，荒谬的时代，也只适用于那个时代，现代人不可能对这些没有任何艺术性的作品产生共鸣的。可是随着社会的发展，中共国的外宣手段也在不断的进步，一些非常具有欺骗性却又相当精美的政治宣传图在网上发酵，其中一个最具代表性的就是乌合麒麟的“作品”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14041916/%E4%B9%8C%E5%90%88%E9%BA%92%E9%BA%9F%E5%AD%9F%E6%99%9A%E8%88%9F-scaled.jpeg)
-在这张图中，应用了美国的流行文化，将孟晚舟形容成挑战黑暗的英雄(蝙蝠侠)，将英国首相，加拿大总理，澳大利亚总理分别形容成小丑女，企鹅，谜语人等黑暗的反派，并用文字暗示这些人都是美国的追随者。这种水平较高，具有很强欺骗性的政治宣传图很具有迷惑性，特别是对孟晚舟事件不太清楚的西方人，很容易被带带入中共的陷阱里。
-
-
-
-如果上面这张是对西方人的，那么下面这种图则针对的是国人
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14041811/%E6%8C%87%E8%B4%A3G7%E4%BC%9A%E8%AE%AE%E7%AD%89%E4%BA%8E%E5%85%AB%E5%9B%BD%E8%81%94%E5%86%9B.jpg)
-这张图中将G7会议中的官员替换成了八国联军时期的军人，将西方领导人的会谈刻画成一场密谋的侵略，在墙内小粉红中引发了一阵的欢呼。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14042018/EEF08A4DF2B76242B3D0843870685BB2667671AB_size287_w500_h281.png)
-对于这种技术强，隐蔽性高的中共政治宣传画，我们必须提高警惕，时代在变化，中共的宣传方式也在进化！
-
-**\*栏目长期征集战友原创摄影作品；原创绘画作品；原创精彩视频作品。**
-
-审核：玫瑰天空
-
-发布：喜马拉雅摄影师
-
-+1
+0
