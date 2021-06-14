@@ -1,33 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北约正准备与中共国发生更激烈的冲突
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1321959/)
+## 美国人民祝福川普总统生日快乐&nbsp; 向最棒总统致敬
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1322018/)
 
-信息来源：德国世界报网络版
-发布时间：2021年6月14日
-翻译 /整理/ 简评： Shuizhuyu
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14095354/Trump_20210614-birthday-coverphoto.jpg)
+据Newsweek6月14日报道，美国第45届总统唐纳德·川普于1946年6月14日在纽约市出生。他的生日正值国旗日，这一天是为了纪念星条旗被作为美国的正式国旗。他在2016年，70岁时成为美国总统，使他当时成为就职时年龄最大的美国总统。然而，拜登在2020年宣誓就职时已经78岁，刷新有史以来最老总统的记录。
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01064052/NATO.png)
+尽管川普总统的推特被永久封号，但他的支持者仍在利用这个社交媒体平台祝他生日快乐。截止Newsweek新闻撰稿时，“总统先生生日快乐”这个关键词正在推特上疯传，有超过3500条推文包括这一短语。
 
+[新闻链接](https://www.newsweek.com/donald-trump-birthday-wishes-flood-people-honor-best-president-1600312)
 
-北约把目光投向了中共国。这体现在峰会的最终宣言中，根据一份报告，成员国达成了一致。美国总统拜登承诺：“我想让整个欧洲都知道美国在那里。”
+* * *
 
-在多年的不情愿之后，北约希望更加激烈地应对来自中共国的可能威胁。 “中共国及其国际政治日益增长的影响力可能会带来我们作为一个联盟必须共同应对的挑战，”德国新闻社在周一布鲁塞尔峰会的最终声明中透露。未来共有30个国家的联盟将涉及中共国，“以捍卫联盟的安全利益”。
+翻译：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-宣言还呼吁中华人民共和国“遵守其国际义务”，履行“大国作用”。此外，中共国应提高其核能力的透明度，并采取建立信任措施。根据德国新闻社的消息，该文件于周一在国家元首和政府首脑全体会议开始前不久被联盟所有成员接受。美国新总统乔拜登首次参加。
-
-与拜登的第一次峰会, 该宣言是中共国未来能够在北约战略构想中发挥作用的基石。当前的 2010 版本甚至没有提到北京。北约秘书长延斯·斯托尔滕贝格强调，北约愿继续与中方在应对气候变化、军控等问题上开展合作。 “我们不会进入新的冷战。中共国不是我们的对手，也不是我们的敌人。”但是，我们必须应对中共国崛起带来的挑战。
-
-峰会的其他核心议题是与俄罗斯的关系和“北约 2030”改革倡议。斯托尔滕贝格形容与俄罗斯的关系“比冷战结束以来的情况更糟”。尽管如此，北约仍然对对话持开放态度。
-
-最高会议特别重要，因为这是与拜登的第一次会议。美国新总统承诺与北约关系正常化，在他的前任唐纳德特朗普领导下，这种关系非常紧张。同时，他也是北约对华转变路线的推动力。他认为中共国是唯一可以挑战传统国际体系并质疑稳定性的竞争者。
-
-简评： G7峰会已经结束， 最后的声明是要检查民主自由法制的西方价值观。 大家都已经非常清楚了。 一个峰会结束了， 另一个也非常重要的峰会， 北约峰会马上要开始， 北约秘书长提出愿意和中方应对气候等问题， 但是必须应对中共国的崛起带来的挑战。 中共国已经成为了质疑国际体系稳定的竞争者， 言外之意就是， 中共你是世界体系的破坏者。
-
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
-
-🔗[Nato-bereitet-sich-auf-staerkere-Auseinandersetzung-mit-China-vor](https://www.welt.de/politik/ausland/article231812663/Nato-bereitet-sich-auf-staerkere-Auseinandersetzung-mit-China-vor.html)
-
-+3
++2
