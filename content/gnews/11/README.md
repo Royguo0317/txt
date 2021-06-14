@@ -1,52 +1,196 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 「制度自信」触礁六成港人拒做公务员
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1322459/)
+## 是时候拆分大型科技公司了，这一次是真的
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1322392/)
 
-**编撰：**天灭中共
+**字幕内容:**
 
-香港特区政府为了讨好中共，落实「爱国者治港」（实为「爱党者治港」），强逼全港18万公务员宣誓效忠，并警告如公务员拒绝宣誓，当局会考虑终止有关公务员的聘用。因此，掀起了政务职系的一波离职潮，人数创23年新高。换句话说，自香港1997年回归以来，第一次出现有近2000名公务员集体辞职的现象，其中包括21名政务官，8个还是首长级人马。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14134343/%E6%93%B7%E5%8F%96615.jpg)（图片来源：港府资料图）
+Tucker Carlson
+塔克 卡尔森
 
-**聂德权：招聘会反应相当踊跃；网民：小圈子招聘**
+So today, Republicans in the House of Representatives
+所以今天，在众议院的共和党人
 
-公务员事务局局长聂德权今（14日）在Facebook撰文并上载短片，指当局上星期就政务主任一职展开内部招聘会，有近700人参加。他形容「反应相当踊跃」，同时指出：「我对于在这个充满挑战的环境下，仍有数百名来自不同部门、不同职系的同事出席内部招聘简介会感到欣喜。」不过，他的这番言论遭到一众网民的讥诮，「乏人问津之下，只能自我消化，还要打肿脸充胖子。」
+proposed bipartisan antitrust legislation
+拟议的两党合作的反垄断立法
 
-**青协研究报告：63%受访者不愿服务现届政府**
+that could split up the tech monopolies
+这可能会分拆科技垄断公司
 
-另一边，香港青年协会今日公布有关「促进公务员队伍的人才发展」研究报告。报告显示，尽管有92.3%的受访者认同公务员人才培育对香港重要性，但仍然有约63%的受访者对投身公务员不感兴趣，当中原因包括「政治压力大」、「不想作宣誓或签署声明」及「不想服务现届政府」。分析人员认为，研究结果反映受访者对加入公务员兴趣低靡，反映社会对政府缺乏信任。
+Congressman Ken Buck is the top Republican on the antitrust subcommittee.
+国会议员肯·巴克是反垄断小组委员会的最高共和党人
 
-**评论：继续孤芳自赏，自欺欺人**
+And he joins us tonight.
+他今晚加入我们的节目
 
-其实，公务员，用香港人的话来说「打政府工」，一直被视为一份优质的工作，工时稳定兼薪高粮准，有带薪假，还有退休金。可惜，当一个无认受性、无正当性、无合法性的三无政权介入后，对社会公平公义的信任感就开始每况愈下。
+Congressman, thanks so much for coming up,
+国会议员，非常感谢你的到来
 
-这一点，不仅在香港，即使是中共严格管制的中国大陆地区，民众的社会信任感都一直处于低水平。
+what would it take to break I mean
+需要什么才能打破，我的意思
 
-但不得不承认的是，中共是一个绝对自恋的政权，沉溺于虚幻的「制度自信」中不可自拔，尤其专注自我吹嘘，像极了一只长期处于发情期的猫，吸引力得不到认同，就日夜嚎叫，上窜下跳，撩事斗非，十分讨厌。
+Google is clearly monopoly by any definition,
+从任何定义来看，谷歌显然是科技垄断企业
 
-这种花痴型的自信，来源于中共所谓的「制度优势」，一种可以不靠尊重建构信任，获得认同的暴力价值观，推崇的是窒息式的强压手段，要人「爱国爱党」，换来的，只能是「说不」或者「躺平」之类的不合作运动。
+what would it take to break up Google
+要怎样才能拆分谷歌？
 
-德国社会学家齐默尔（Georg Simmel）曾指出：「离开了人们之间的一般性信任，社会自身将变成一盘散沙。」可见，信任对社会凝聚力发挥着重要作用。
+is that possible at this point？
+在这一点上，有可能吗？
 
-说到底，「制度自信」始终需要的是「信任」而非「制度优势」，仰赖的只能是口碑而不是宣传。缺失「制度信任」的「自信」，到头来只是孤芳自赏而已。
+Ken Buck (Congressman)
+肯·巴克（国会议员）
 
-以上观点仅代表笔者
+Well, Tucker, I think the key is
+好的，塔克，我认为关键的是
 
-**「资料来源」**
+that we introduce competition into the marketplace,
+我们将竞争引入市场
 
-1、[爱国者治港︱逾60%受访港青无意做公务员「不想宣誓帮林郑政府」 ｜苹果日报](https://hk.appledaily.com/local/20210614/KM4FAPPOYJG2HEQALAGWX3CE6A/)
+there’s, there’s no way I guess there is a way
+那没有方法，我想那是有个办法
 
-审核：早不稻仁
+but I think it’d be an incredible disruption to our economy
+但我认为，如果进入并拆散像谷歌这样的公司
 
-校对：主翅膀下
+to go in and break up a company like Google,
+将对我们的经济造成难以置信的破坏
 
-**发布： little liu**
+But we can certainly make sure
+但我们当然可以确保
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+that Google doesn’t grow unfairly
+谷歌不会不公平地增长
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+that Google doesn’t cheat and that Google has competitors in the marketplace
+谷歌不作弊，谷歌在市场上有竞争对手
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+so those that want to get their, their version of a fact out there,
+所以那些想要得到他们的事实看法的人
+
+their views out they have that opportunity,
+他们有机会发表意见
+
+We have it in cable news,
+我们在有线电视新闻中可以播放
+
+we have it with newspapers
+我们在报纸上可以刊登
+
+and we should have it online,
+我们应该把它放在网上
+
+and it’s because the antitrust laws haven’t been updated in years,
+这是因为反垄断法多年没有更新
+
+Congress hasn’t done its article one job
+国会还没有完成它的第一条的工作
+
+that we need to update these laws now.
+我们现在需要更新这些法律
+
+Tucker Carlson
+塔克 卡尔森
+
+What do you think it was wise for the US government
+你认为这对美国政府来说是明智的吗
+
+to break up Standard Oil 100 years ago that the sugar trust.
+100年前拆分标准石油公司的糖业信托
+
+Many other monopolies,
+许多其他垄断企业
+
+I mean that that seemed to spawn,
+我的意思是那似乎产生了
+
+sort of the best time in American history
+这是美国历史上最好的时光
+
+when we did that.
+当时我们做到了
+
+Ken Buck
+肯·巴克
+
+Absolutely. and, and republicans played a large role in that
+绝对的，共和党人在这方面发挥了重要作用
+
+and so I think now what we’re looking at is something
+所以我想现在我们正在看的是什么
+
+that’s more akin to the telecommunications situation
+这更类似于电信的情况
+
+where we’re able to take your cell phone number
+我们可以拿你的电话号码
+
+and go from one carrier to a different carrier
+而且从一个运营商转到另一个运营商
+
+what we want to make sure is
+我们要确定的是
+
+that you can take your search history from Google,
+你可以从谷歌获取你的搜索历史记录
+
+and take it from that company to a different company.
+并将其从该公司带到另一家公司
+
+They know where you are right now.
+他们知道你现在在哪里
+
+Tucker, they know what you have purchased,
+塔克，他们知道你买过什么
+
+they know your medical history they know everything about you.
+他们了解你的病史，他们了解你的一切
+
+And if you aren’t in control of that data
+如果你无法控制这些数据
+
+and some monopoly is it’s very dangerous,
+而且有些垄断是很危险的
+
+not just to our speech rights,
+不仅是为了我们的言论权利
+
+but to our personal safety.
+也是为了我们的人身安全
+
+Tucker Carlson
+塔克 卡尔森
+
+Yeah, I mean, they control the elections
+是的，我的意思是，他们控制了选举
+
+they control speech they control what you think.
+他们控制了言论，他们控制了你的想法。
+
+Yeah, I would say it’s getting out of hand
+是的，我说它已经失控了
+
+Congressman, I appreciate coming on. Thank you.
+议员先生，我很高兴你能来。 谢谢你。
+
+Ken Buck
+肯·巴克
+
+Thank you.
+谢谢你
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 [https://twitter.com/repkenbuck/status/1403552096201367554?s=24](https://twitter.com/repkenbuck/status/1403552096201367554?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

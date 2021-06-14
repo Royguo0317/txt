@@ -1,50 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德即时简报】解读《新大西洋宪章》
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1322160/)
+## 广东台山核电厂核外泄，中共修改2倍多辐射检测剂量安全限值
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1322205/)
 
-作者：香草山翻译部 GBW
+台湾宝岛农场 Amitofu
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+根据[《CNN》](https://edition.cnn.com/2021/06/14/politics/china-nuclear-reactor-leak-us-monitoring/index.html)14日报导，在 6 月 8 日法国核反应堆厂商Framatome向美国国务院通报提出援助请求，由于中法合作的中国**广东台山核电厂「核外泄」**，**中共国安全部门国家核安全局****NNSA****，****正在不断提高台山核电厂外环境的辐射检测剂量限制，将限值修改为最初发布的两倍多，来避免核电厂关闭，完全不顾及核电厂周边民众和现场工作人员的风险。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14111327/china-nuclear-reactor-leak-us-monitoring-400x225.jpg)CNN
+然而台山核电厂 6 月 8 日晚间，在其网站上声明「称该厂及其周边地区的环境辐射检测剂量读数「**正常**」，两座核反应堆都在运行，并补充说 2 号机组最近完成了检修。自投入商业运行以来，台山核电厂严格按照运行许可证文件和技术程序对机组运行进行控制，两台机组各项运行指标均达到核安全法规和电厂要求技术规格。」
 
+但在法国公用事业公司法国电力公司EDF声明中表示，台山核电站一号反应堆“初级回路中的惰性气体”浓度增加，指称放射性威胁迫在眉睫。洛斯阿拉莫斯国家实验室退休的核科学家罗弗警告说，**如果他们确实有气体泄漏，那就表明核电厂的一些容器被破坏了**，也许一些燃料组件可能会损坏，必须小心地拆除燃料元，气体泄漏可能表明存在更大的问题。
 
+法国公用事业公司 EDF于 6 月 3 日，已向能源部提交了一份运营安全援助的紧急请求许可，转让技术数据和援助，以帮助工厂恢复正常运行，以解决紧急安全问题，并警告美国官员**核反应堆正在泄漏裂变气体**。美国国家安全委员会、国务院和能源部的官员对此指出，如果中共国公共安全面临任何风险，美国将会依据现有的核能条约公布内容。本文仅代表个人立场
 
-（路德社 2021年6月14日早，路安墨）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14104551/%E5%9B%BE%E7%89%872-12.png)
-1. 拜登同意普京说美俄关系正处于历史最低点。中共说俄中关系在最高点。路德：美俄都相信上帝，关系在最低点，只能往上走了。最高点意味着只能往下走了。
+祈祷万佛万神加持文贵先生与新中国联邦战友
 
-2. 路德：人人都有自由的种子，但中共把中国人变成成冬虫夏草了，因为中共把中国人的心杀死了。心中无共，就自由了。
+[Exclusive: US assessing reported leak at Chinese nuclear power facility](https://edition.cnn.com/2021/06/14/politics/china-nuclear-reactor-leak-us-monitoring/index.html)
 
-3.《新大西洋宪章》说，”我们决心捍卫民主和开放社会的原则、价值观和体制，……我们将倡导透明，维护法治，……我们反对通过虚假信息进行干涉包括选举，……我们也将捍卫诸如航行和飞越自由以及其他合法使用海洋的关键国际原则、……负责任的国家网络行为、军备控制，……促进我们的健康保护……”
+审核:Athena雅典娜 发布:Amitofu
 
-a. 路德：中共正在为弃船做准备，包括在后中共的新中国进行操纵性选举。
-
-b. 墨博士：民主联盟先通过《新宪章》，然后对决独裁体系。
-
-c. 路德：中共告诉中国人，他们是龙的传人，但龙并不存在。中共扮演龙的角色，并把中国人训练成虫。
-
-d. 路德：关键是遵守承诺。中国人不遵守承诺，中共说解决方案是集权。
-
-1. 路德：绿色贝雷帽可以不通过冗长的程序而迅速采取行动。闫博士前老公背后是裴伟士，以及一连串中共将干。现在是瓮中捉鳖，新时代火烧连营。
-
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
 0
