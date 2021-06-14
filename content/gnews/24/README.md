@@ -1,49 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】研发CDC新冠疫苗跟踪系统的工程师接种疫苗后死于新冠
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1320849/)
+## 英媒观点：中共国靠“说服力”和“一些现金”推动了疫苗接种
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1320914/)
 
-作者：纽约香草山媒体部 7bends
+撰稿：喜妈
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13234742/image1-23-1.jpg)（来自网络截图）
+英国的《卫报》报道，当3月的英国中共病毒疫苗接种率“达到30%”时，中共国的接种率一“仅为3.56%”。报道称，“新的变异”和“疫苗低接种率”令中共国领导人“感到担忧”。之后中共国方面表示，
 
+中共政府设定了一个目标，即“在 6 月底之前为 40% 的人口接种疫苗”。报道指，中共政府“承认这将是一项艰巨”的任务，可是他们“没有太多时间”。实际上，中共国并没有相应的群体免疫的政策和有效的措施。可是在中共政府相关方面有如此表态之后，“一项全国性的大规模疫苗接种计划” 轰轰烈烈开始启动。甚至，“各省市随后提出了自己的计划来实现目标”，从而形成一种“竞争”。
 
+报道指出，在此基础上，“疫苗生产也加快了”。 2月份时，“只生产了150万剂”；到了3月底，“已提高到每天约500万剂”。文章引用根据中共国家卫生委员会的数据，到5月底，“已注射了近 6.03 亿剂”。文章援引中共国专家的观点，认为中共国正走在“实现‘群体免疫’的道路上”。文章引用来自中共国疾病预防控制中心主任的话，中共国“到今年年底或明年初可以给9亿至10亿人接种疫苗”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+文章探究中共国如何实现疫苗接种上不到三个月时间里的巨大飞跃经验。认为就是“胡萝卜和棍棒”并用的方法。这个方法具体就是“与中共国的大多数全国性运动一样”，“以高层演讲开始”。配合舆论宣传，他们“从大规模向海外出口疫苗转向优先考虑在国内推广的战略的转变”。同时，中共国“在全国各地建立了疫苗接种中心”，中共国通过其体制内的“公务员，演员甚至NBA篮球明星姚明” 等来做出榜样，“说服”人们“接种疫苗”；此外，中共政府还“敦促共产党员和国有企业职工成为榜样”。
 
+报道指出，各地都在向“每位新接种疫苗的人”金额不同的“奖励”或者“牛奶，鸡蛋和洗衣粉”等实物。
 
+可是，文章特别指出，“也许最有力的说服工具是全中共国各地的零星爆发”。 特别是5月中旬，在安徽所出现的确诊，极大地改变了疫苗的接受度。根据《卫报》的报道，中共国里3月底，“仅有1亿人接种了疫苗”；而到5月底前，“已经有超过10亿人接种了疫苗”。
 
-6月12日，Gateway Pundit报道，一位就职于甲骨文公司正值壮年的高管工程师Joel Kallman在接种新冠疫苗后的两个月死于Covid-19病毒，年仅54岁。该工程师此前正在和美国疾病和控制预防中心（CDC）合作研发新冠疫苗追踪系统。3月26日，Joel Kallman在推特上公布他接种了第一针新冠疫苗，截至5月25日他因新冠病毒去世，时间刚刚两个月。
+综合以上的英国媒体的报道内容，笔者认为，这里可以看出中共的体制黑暗和邪恶无耻。我们首先可以知道，体制内和中共国社会还是有对中共病毒疫苗的保留和怀疑人群，这就是最初中共疫苗推行并不顺畅的原因。可是中共的确是太会利用这个体制去给人们洗脑和压迫，活生生底改变了人们的观点，并畅通无阻实现它的邪恶规划。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13230624/64-5.jpg)图片来源：Gateway Pundit
+我们从报道中，也可以看到，一个没有严格和细致的“整体免疫”规划的国家，可以在几个月内从1亿人的中共疫苗注射达到十亿人以上的中共疫苗注射，惊人啊，令国际社会震撼啊。他们“胡萝卜和大棒”的做法，是法治社会和民主体系国家所绝对不能达成的；因为这里涉及到众多人的福利、权力和公民选择。可是，中共国有公民权保护吗？有隐私的保护吗？有百姓福利和自由独立的意志表达吗？这一切都是没有的啊！没有法律保障、没有公民权利、没有自由和独立意志，那还有什么是中共政府想要做而做不到的呢？
 
-1996年开始就职于甲骨文公司的Joel Kallman是公司的高级总监和软件开发副总裁，他领导创建了甲骨文的应用程序开发平台APEX系统。2020年3月，Joel Kallman领导甲骨文公司APEX团队与美国疾病和控制预防中心CDC合作创建了疫苗接种健康检查程序——V-Safe After Vaccine Health Checker，这个程序是用于跟踪疫苗接种后的不良反应。该系统可由接种新冠疫苗的民众自愿报告，报告内容包括注射疫苗后头几天、几周和几个月的副作用，如疼痛或恶心等，以便CDC收集不良反应信息数据，后续供医疗专业人员分析不同人群和患者对不同疫苗的反应。
+该报道，提到中共运用它自己所掌控的体制内的人员、有影响力的公众人物进行“说服”，同时用公权力去压迫，在并行实施经济利益的诱惑，这是何等的无耻！他们无视公民的知情权、健康选择权，用舆论和权力体系去达到能说服就说服，不能说服就压迫，不能说服就诱惑。一个国家，一个政府，干的是行骗欺诈的下三滥性质的事情，如何不让人愤怒？可是，国际上的人们不知道，以为都是中国人们主动的愿意的；墙内的人也不知道，以为国家是为了自己好为了国民好。这就是中共狡猾隐蔽的邪恶。这就是文贵先生长期说的，强奸了人民，还要人民喊着高潮，感谢它带来高潮。真是岂有此理。
 
-从CDC这款疫苗接种后的不良反应跟踪系统V-Safe的功能可以推测出来，现有的各种新冠疫苗远未成熟，尚处于搜集不良反应数据的阶段。令人难过的是，开发疫苗不良反应跟踪系统的开发者Joel Kallman最后的“贡献”很可能就是给自己所开发的系统提供了一个新冠疫苗接种后最严重的不良反应实例——死亡。
+报道中提到，那些在三个月中中共国各地的零星爆发，那些成为“最有力的说服工具”的中共疫苗注射推动力的事情，让笔者感觉非常蹊跷。我们已经知道中共具有制造中共病毒和定点投放的能力，我们完全有理由对此保持高度的怀疑。这里的时间线和发生都是令人疑惑的。还有一点，文章中提到，本来应该去往海外的中共疫苗，中共政府留给自己的人民，这个也是非常不合理的。因为中共从来都是先照顾自己在国际社会的脸面，长期都是宁愿自己的国民吃苦吃亏，也要撑着台面上的光鲜，怎么本次疫情，这个中共的德行突然改了？凡事蹊跷必有妖，这里笔者认为有如下的原因：一是国际社会不相信中共疫苗，它的疫苗推销不了啦；二是它自己也知道自己如此赶制出来的疫苗有价无市，有量无质，只好内部消耗了。总之，虽然真实的原因，作为普通百姓的一员，我们暂时无法得知全貌，可是我们所能看到的，就是中共从来都是草菅人命，从来都是视百姓猪狗不如。从本次又是“大跃进”式的推进疫苗注射，我们可见一斑。不要相信这个邪魔政党，相信它就是自取灭亡！
 
-参考阅读：
+本文纯属个人观点
 
-[Oracle Engineer Who Helped Design CDC Coronavirus Tracking System Dies from COVID-19 Two Months After Getting the Vaccine](https://www.thegatewaypundit.com/2021/06/oracle-engineer-helped-design-cdc-coronavirus-tracking-system-dies-covid-19-two-months-getting-vaccine/)
+参考资料：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+[https://www.theguardian.com/world/2021/may/30/china-forces-pace-of-vaccinations-with-persuasion-and-some-cash](https://www.theguardian.com/world/2021/may/30/china-forces-pace-of-vaccinations-with-persuasion-and-some-cash)
 
-编辑/校对/发稿：Irene木木
+*編輯：Rosa*
 
-**更多资讯，更多关注**
+[【澳喜文章](https://gnews.org/zh-hans/author/aujenny/)[1](https://gnews.org/zh-hans/author/aujenny/)[】](https://gnews.org/zh-hans/author/aujenny/)
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![This image has an empty alt attribute; its file name is 1-%E6%BE%B3%E5%96%9CLogo.jpeg]()![This image has an empty alt attribute; its file name is 1-%E6%BE%B3%E5%96%9CLogo.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0

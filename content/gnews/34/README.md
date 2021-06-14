@@ -1,55 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独立观点】罗马尼亚禁中共和华为参与5G开发
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1320772/)
+## 快乐成长的孩子才是健康的
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1320848/)
 
-作者：纽约香草山健身部 Ivy001
+字幕听译：乐喜喜 | 字幕PR：CharlesS | 字幕： 雨中漫步 | 评论： Filon |评论翻译: 珠穆朗玛峰| 翻译PR: Marialu | Page: Daoiii
 
+[!\[\]()!\[\](https://spark.adobe.com/page/CmyOSc6Zc0me5/images/f1da8ead-380e-44c0-bf0f-aa54cffc88db.jpg?asset_id=6d3d8064-b5e5-42de-a943-fecbd4a686da&amp;img_etag=%224a5a71e64b97f058fead7e5c633e899d%22&amp;size=2560)](https://spark.adobe.com/page/CmyOSc6Zc0me5/images/f1da8ead-380e-44c0-bf0f-aa54cffc88db.jpg?asset_id=6d3d8064-b5e5-42de-a943-fecbd4a686da&amp;img_etag=%224a5a71e64b97f058fead7e5c633e899d%22&amp;size=1024)
 
+让孩子在感受快乐中学到知识这才是教育应该有的样子。看看视频中孩子们脸上的表情，接受过中共国教育的中国人都不陌生，这是每一个中国孩子都曾拥有过的“青春”。我们的孩子将高三毕业后称之为解放，因为度过可能短暂轻松的小学生阶段，中国孩子们的青春少年时期都会在巨大的学习压力中度过，他们是在父母的学习成绩期望中被动地学习着。为了学习，放弃了可能一切自己感兴趣的兴趣爱好。好的考试成绩被认为是唯一正确的事情。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+中共国的教育体制下，考出好的高考成绩被定性为唯一成功之路。只有拥有了好的高考成绩，才会被筛选成为未来社会的“栋梁”之才。千千万万本该拥有快乐童年的孩子们，被模式化的像机器人一般生产出来成为高考机器。仿佛初高中教育的目的就是要将儿童们拥有的奇思妙想的思维棱角都打磨干净，才能成为教育部门考纲下的考试成品。如此教育体制教育出来的孩子，谈何创新思维能力？当一个国家的教育体制为社会培养人才的出路只有一条时，这样的教育体制必定是狭隘落后的。亿万少年挤破头只为一个目标时，孩子们的成长注定是不快乐和不健康的。
 
+编辑：【英国伦敦喜庄园编辑部】
 
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-6月11日，罗马尼亚总统克劳斯-约翰尼斯（Klaus Lohannis）签署了一项得到华盛顿支持的法案。该法案出于安全担忧，禁止中共和华为参与该国5G电信网络的开发。这项法案源于2019年的一份美国-罗马尼亚备忘录，两国政府在备忘录中表示：“作为基于风险的安全措施的一部分，对5G供应商进行仔细和全面的评估是必要的”，应排除那些由外国政府控制并且缺乏透明所有权结构的供应商。
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13222322/62.jpg)图片来源：VOA
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-罗马尼亚总理弗洛林-西图（Florin Citu）领导的中间派政府在4月份批准了一项针对中共控制公司的禁令，随后，罗马尼亚议会也批准了这项禁令。罗马尼亚是继去年10月瑞典禁止华为在瑞典推出5G设备、今年3月份法国拆除华为5G设备、5月份英国拆除华为5G设备之后，又一个站出来禁止华为5G设备的欧洲国家。实际上，罗马尼亚是第一个禁止华为5G设备的东欧国家。从冷战时期延续至今，中共在东欧地区的长期战略投资，使得中共在东欧国家具有强大的影响力。再加上华为通过不正当的竞争手段，其在东欧地区占有绝对的市场优势。
-
-罗马尼亚作为首个禁止华为5G设备的东欧国家，是一个重要的风向标。这个法案的签署，毫无疑问，在华为稳固的东欧版图上撕开了一个重要的缺口——华为在东欧市场再也不是铁板一块了。罗马尼亚对华为5G设备的禁止令，势必影响其他亲美的东欧国家，同时，这也标志着中共对东欧地区的影响力在不断减弱。
-
-随着爆料革命的不断发展，以及战友们对中共邪恶的广泛宣传，反制中共如今已经成为世界不可阻挡的潮流。此后，亦将会有越来越多的国家抛弃中共，站到反共的阵营，站到正义的联盟中来。中共在国际上将越来越孤独，离中共灭亡的日子也越来越近了。
-
-参考阅读：
-
-[罗马尼亚总统签署法律，实际上禁止中（共）国和华为参与其5G网络开发](https://www.voachinese.com/a/romania-china-huawei-5g-20210611/5926145.html)
-
-[罗马尼亚总统签署法律 禁止中（共）国和华为参与其5G网络开发](https://www.timednews.com/article/2021/06/12/5536.html)
-
-[罗马尼亚总统签署法案 禁止华为参与5G](https://www.ntdtv.com/gb/2021/06/11/a103140740.html)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+[!\[\]()!\[\](https://spark.adobe.com/page/BMJ5659E7D7j9/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/BMJ5659E7D7j9/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
