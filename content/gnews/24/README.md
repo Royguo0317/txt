@@ -1,30 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】G7领导人就多项议题痛斥中共
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1322010/)
+## 美国人民祝福川普总统生日快乐&nbsp; 向最棒总统致敬
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1322018/)
 
-撰稿：Ermat【㊙️翻Gnews原创组】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14095354/Trump_20210614-birthday-coverphoto.jpg)
+据Newsweek6月14日报道，美国第45届总统唐纳德·川普于1946年6月14日在纽约市出生。他的生日正值国旗日，这一天是为了纪念星条旗被作为美国的正式国旗。他在2016年，70岁时成为美国总统，使他当时成为就职时年龄最大的美国总统。然而，拜登在2020年宣誓就职时已经78岁，刷新有史以来最老总统的记录。
 
-责编：Shifter
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14095431/118891522_g7_summit_7.jpg)图片来源：BBC News
+尽管川普总统的推特被永久封号，但他的支持者仍在利用这个社交媒体平台祝他生日快乐。截止Newsweek新闻撰稿时，“总统先生生日快乐”这个关键词正在推特上疯传，有超过3500条推文包括这一短语。
 
-据大纪元6月13日报道，为期三天的七国集团（G7）领导人峰会于6月13日结束。会议就新疆人权、香港自治、东海和南海稳定、及中共病毒起源等多项问题发表公告，并首度提及台湾海峡和平与稳定的重要性。
+[新闻链接](https://www.newsweek.com/donald-trump-birthday-wishes-flood-people-honor-best-president-1600312)
 
-会议上，G7领导人要求中共在新疆及香港停止践踏人权，维护公民的基本自由。公报明确指出，“我们将推动我们的价值观，包括呼吁中国（中共）尊重人权和基本自由，特别是有关新疆问题和《中英联合声明》中规定的香港的权利、自由和高度自治。”
+* * *
 
-此外，G7领导人不仅表示了对南中国海、东中国海局势的关切，反对采取任何可能破坏东海和南海稳定的单边行动，还特别强调了“台湾海峡和平与稳定的重要性，并鼓励和平解决两岸问题”。
+翻译：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-不仅如此，G7领导人还要求中共尽快允许世卫组织就中共病毒起源问题进行再次调查。他们说，“我们还呼吁，按照专家报告的建议，在中国进行及时、透明、专家主导和基于科学的COVID-19起源第二阶段研究。”同时，还敦促中共政府遵守2005年《国际卫生条例》。
-
-虽然中共病毒真相几乎已大白于天下，但在现今这个物欲横流、笑贫不笑娼的世界中，还是有些天良已完全泯灭的大人物对中共眉目含情、暗送秋波。然而，共同的价值理念让七国集团对中共发出一致声讨。但这对只相信森林法则的中共还是远远不够的。我们不需要坐而论道，需要的是坚定、果敢的行动，需要的是强有力的制裁。
-
-参考链接：
-
-[G7公报出炉 就多个敏感议题挑战中共](https://www.epochtimes.com/gb/21/6/13/n13019389.htm)
-
-（本文仅代表作者个人观点）
-
-
-
-0
++2
