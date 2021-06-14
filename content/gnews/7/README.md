@@ -1,25 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人命不值钱的国度
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1320823/)
+## 【热点播报】研发CDC新冠疫苗跟踪系统的工程师接种疫苗后死于新冠
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1320849/)
 
-字幕听译：乐喜喜 | 字幕PR：CharlesS | 字幕： 雨中漫步 | 评论： 胖丁 |评论翻译: 珠穆朗玛峰| 翻译PR: Marialu | Page: Daoiii
+作者：纽约香草山媒体部 7bends
 
-[!\[\]()!\[\](https://spark.adobe.com/page/hClWz4N6IWsDp/images/63599935-fde9-49c0-870c-7fe22d1ce247.jpg?asset_id=473a2e47-3205-4810-9f2a-6b1461f067e1&amp;img_etag=%2235ce14c2a9e1d6b117eb452da2af3ad7%22&amp;size=1024)](https://spark.adobe.com/page/hClWz4N6IWsDp/images/63599935-fde9-49c0-870c-7fe22d1ce247.jpg?asset_id=473a2e47-3205-4810-9f2a-6b1461f067e1&amp;img_etag=%2235ce14c2a9e1d6b117eb452da2af3ad7%22&amp;size=1024)
 
-若问世上什么最重要？除了生死没有大事。只要还活着，就有机会成就任何事情。如果生命都没有了，即使家财万贯，也是归于无有。在其他国家，只要救护车的警报响起，不管路况如何，路上行驶的所有车辆都会尽可能地就近靠路边停下，让救护车优先通行。这既是法律，也是所有人没有异议、必须遵循的社会公德。人命大于天，分分钟就可能决定一个生命的存留。生命高于金钱、地位、身份和尊严。这是人类共识。
 
-在中共国治下，一切向钱看。利益大于一切。救护车的警报、挽救生命的急迫不如一车混凝土的价值。在利益面前，法律形同虚设。堵住一辆救护车不需要承担法律责任，而少卸一车混凝土会影响施工的进度和自己的经济利益，工程项目在中共国是暴利行业。在自己的利益和他人的生命之间，中共国从上到下都是一个选择：忽视生命。这无疑是一个国家和全体国民的悲哀。中共的体制已经病入膏肓，中共对生命的践踏已经忍无可忍。必须彻底消灭中共，每个人的生命才能有保障。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+6月12日，Gateway Pundit报道，一位就职于甲骨文公司正值壮年的高管工程师Joel Kallman在接种新冠疫苗后的两个月死于Covid-19病毒，年仅54岁。该工程师此前正在和美国疾病和控制预防中心（CDC）合作研发新冠疫苗追踪系统。3月26日，Joel Kallman在推特上公布他接种了第一针新冠疫苗，截至5月25日他因新冠病毒去世，时间刚刚两个月。
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13230624/64-5.jpg)图片来源：Gateway Pundit
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2FUZTE0dlITWk/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/2FUZTE0dlITWk/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+1996年开始就职于甲骨文公司的Joel Kallman是公司的高级总监和软件开发副总裁，他领导创建了甲骨文的应用程序开发平台APEX系统。2020年3月，Joel Kallman领导甲骨文公司APEX团队与美国疾病和控制预防中心CDC合作创建了疫苗接种健康检查程序——V-Safe After Vaccine Health Checker，这个程序是用于跟踪疫苗接种后的不良反应。该系统可由接种新冠疫苗的民众自愿报告，报告内容包括注射疫苗后头几天、几周和几个月的副作用，如疼痛或恶心等，以便CDC收集不良反应信息数据，后续供医疗专业人员分析不同人群和患者对不同疫苗的反应。
+
+从CDC这款疫苗接种后的不良反应跟踪系统V-Safe的功能可以推测出来，现有的各种新冠疫苗远未成熟，尚处于搜集不良反应数据的阶段。令人难过的是，开发疫苗不良反应跟踪系统的开发者Joel Kallman最后的“贡献”很可能就是给自己所开发的系统提供了一个新冠疫苗接种后最严重的不良反应实例——死亡。
+
+参考阅读：
+
+[Oracle Engineer Who Helped Design CDC Coronavirus Tracking System Dies from COVID-19 Two Months After Getting the Vaccine](https://www.thegatewaypundit.com/2021/06/oracle-engineer-helped-design-cdc-coronavirus-tracking-system-dies-covid-19-two-months-getting-vaccine/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

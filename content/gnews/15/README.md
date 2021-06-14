@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】“无我”之后的你是谁？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1320760/)
+## 【有声读物】点赞
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1320822/)
 
-配音：香草山福音部 Daxia
+配音：香草山录音组 熊井（文兰）
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,13 +14,15 @@
 
 
 
-文贵先生反复谈到在爆料革命中要“无我”。这是给我们每一个战友的警戒。我们要常常问自己：“到底自己为什么而参与灭共?”如果只是盲目地憎恨和嫉妒共产党掌权者，只是为了贪图G系列的经济回报，渴望有钱之后买飞机，买游艇，换个漂亮老婆，包养N个小三，过奢侈享乐的生活，发泄自己以前未曾被满足的欲望，……那我们岂不是成为和中共一样的人了？如果是这样的话，灭共又有多大实际意义呢？
+为新中国联邦诞辰一周年点赞！点赞！再点赞！
+
+这一年，在郭文贵先生的带领下，爆料革命的战友们英勇奋战，有些在前沿阵地，有些在后方作战。GTV的直播节目唯真不破，越做越好，质量高、画面美。
 
 
 
-**文字版原文：[【信仰之声】“无我”之后的你是谁？](https://gnews.org/zh-hans/1316579/)**
+**文字版原文：[【战友心声】点赞](https://gnews.org/zh-hans/1277463/)**
 
-作者：纽约香草山福音部  山城小哥
+作者：纽约香草山美食部 文百合
 
 
 
