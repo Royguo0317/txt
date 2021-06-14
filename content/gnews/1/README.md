@@ -1,66 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纽约时报畅销书揭露美国左媒与中共国的关系
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1322646/)
+## 【世事解评】中欧关系的终结与中共的四面楚歌
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1322654/)
 
-新闻来源：《布莱特巴特》| 作者：HANNAH BLEAU | 发布时间：2021年6月12日
-
-翻译/简评：Dreamer文童 | 校对：X-Wing | 审核：clau | Page：我是球大哥
-
-[!\[\]()!\[\](https://spark.adobe.com/page/DfxIhIcES22et/images/83b1b387-d6af-4ed7-a42c-c8c095402fb1.jpg?asset_id=1befcc7d-c7e4-4050-b324-920030b8151f&amp;img_etag=%225c4f5c1020f4894f639b0cf9b1221e84%22&amp;size=1024)](https://spark.adobe.com/page/DfxIhIcES22et/images/83b1b387-d6af-4ed7-a42c-c8c095402fb1.jpg?asset_id=1befcc7d-c7e4-4050-b324-920030b8151f&amp;img_etag=%225c4f5c1020f4894f639b0cf9b1221e84%22&amp;size=1024)
-
-**简评：**
-
-《福克斯新闻》主持人塔克·卡尔森于周五采访了纽约时报畅销书《解析新闻：揭露建制派媒体的隐蔽交易和秘密腐败》的作者兼《布莱特巴特新闻网》主编亚历克斯·马洛。该部畅销书于今年5月18日首次出版，揭露了美国左媒与中共国的关系，并以病毒大流行的报道为例，讲述了美国左媒如何将病毒大流行与前总统川普联系在一起，而闭口不谈病毒与中共国的关系。同时，该书还揭露了科技巨头公司，比如FACEBOOK和YOUTUBE等，对新闻机构垄断导致的言论自由受阻。
-
-去年1月19日，闫丽梦博士通过路德社将病毒真相公布于众，随后爆料革命众多战友跟进传播，希望更多的人知道真相，即该病毒来自中共军方实验室、可以人传人、病毒强变异、将会造成全球病毒大流行。一年多以来的事实已经证实“119”爆料的真实性，而左派主流媒体却一直宣传“病毒来自于自然”。FACEBOOK等科技公司更是通过事实审查的手段将闫丽梦博士的科学论文屏蔽掉。马洛的新书所揭露的事实与这一切相互印证。美国有良知的媒体人在去年已经意识到爆料革命传递的是真相，也意识到美国左媒与中共的勾结导致真实声音无法发出。这本书出版一个月就成为纽约时报畅销书，可见大多美国民众也意识到了美国左媒已经堕落为FAKE NEWS（假新闻）的助推手。汹涌的民意将推动真相早日曝光，包括中共病毒真相、美国主流媒体与中共的勾结、以及更多中共的邪恶。
-
-**原文翻译：**
-
-#### 塔克·卡尔森：亚历克斯·马洛的《解析新闻》是一部“有先见之明的”作品
-
-![]()![](https://spark.adobe.com/page/DfxIhIcES22et/images/5d7d5b3f-d681-412d-9848-7c26151ac3a4.jpg?asset_id=69b4e1bf-281d-432c-b4f1-866c7e40a61d&amp;img_etag=%22224dbd8f04b50b647f28656685f62b31%22&amp;size=2560)福克斯新闻
-
-在周五节目中结束与《布莱特巴特新闻网》主编的谈话前，塔克·卡尔森将亚历克斯·马洛的媒体畅销书《解析新闻：揭露建制派媒体的隐蔽交易和秘密腐败》描述为一部“有先见之明的”作品，他讨论了企业媒体如何报道中共国冠状病毒，把前总统川普报道为坏人，同时保护中共国的企业商业模式。
-
-“祝贺你发表新书。”卡尔森告诉马洛。“有先见之明，事实就是如此。”
-
-在周五的节目中，马洛和卡尔森讨论了建制派媒体报道病毒大流行的方式——即他们的目标是让川普“在冠状病毒问题上成为坏人，而不是中共国，或者其他任何人，让它与川普有关。”
-
-“但我越深入了解，就越发现这其实是为了保护在中共国的企业商业模式，”马洛解释道。
-
-NBC——它是NBC环球公司的一部分[并且]在中共国有庞大的业务；ABC是ABC迪斯尼公司的一部分，在中共国有庞大的业务；彭博社（Bloomberg），我们上次在你的节目中谈到过这个问题，还有硅谷的科技巨头们……如果他们尚未进入中共国，他们想要在不久的某天进入中共国。并且我们已经将我们的许多自由言论外包给了诸如YouTube这样的媒介。
-
-现在，我们正在将我们的科学外包给他们。我们被告知，[参议员罗恩（Ron）]约翰逊（Johnson）被踢出局，因为他藐视世界卫生组织，同一个世界卫生组织基本上是中共国的附庸，塔克。为什么谭德赛（Tedros）博士，一个不是医生的人，怎么会成为当今世界上最有权力的医生呢？好吧，他是中共国的人选，即使在他搞砸了应对非洲霍乱爆发之后。此类例子不胜枚举。
-
-“虽然你会怀疑，是否有一点，它只是不起作用……美国的一切美好都植根于言论自由、良知自由、自由探索？”卡尔森问道。“如果我们没有这些东西，那么有什么意义呢？”
-
-“这也是我的感觉，这也是为什么看到独立新闻渠道如雨后春笋般出现，人们自己动手去试图绕过这些技术审查员的原因。”马洛说，“但正如你准确知道的那样，仅仅建立自己的推特是不够的，因为这些地方是垄断的，这就是为什么人们开始使用反垄断，开始思考终止这些公司是如此的重要。”
-
-“但当他们相信PolitiFact和马克·扎克伯格的科学，而不是相信真正的医生时，我们知道这个系统已经坏掉，现在它有可能导致损害生命。”他补充道。
-
-观看视频：
+作者：纽约香草山金融部/经济小组 ilovezhanshen
 
 
 
-事实上，《纽约时报》畅销书《解析新闻》已经揭开企业媒体及其与激进左派抱团关系的盖子，包括他们与中国共产党的关系，马洛最近在一篇文章中详细介绍了他揭露的一个关键部分：
-
-也许更有趣的是，许多控制着病毒大流行的绝大部分信息流的新闻室和技术平台与中共国有着深厚的财务关系——或者希望有一天能有这种关系。
-
-以“NBC新闻”为例。NBC新闻是跨国企业集团NBC Comcast Universal的一部分。当北京有一个环球影城时，NBC新闻为什么要对中共国的集中营进行大曝光呢？或者，当《速度与激情》系列最新电影即将上映，并且环球影业正在处理国际发行时，NBC为什么要向他们的读者和观众表明中共国是地球上最糟糕的人权侵犯者呢？（现在突然间，演员约翰·塞纳对共产主义国家的卑躬屈膝变得更有分量，我是说有意义，不是吗？）
-
-我的报告还证实，即使有一点机会进入中共国的新闻机构也几乎一直担心被赶出中共国，甚至“失踪”。
-
-[原文链接](https://www.breitbart.com/politics/2021/06/12/tucker-carlson-alex-marlows-breaking-the-news-a-prescient-work/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/DfxIhIcES22et/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/DfxIhIcES22et/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+6月8日，据CNBC消息称，前白宫高级贸易官员Clete Willems表示，中共制裁欧盟官员的做法是一个“巨大的战略错误”，这种做法终结了欧盟和中国之间的一项重大投资协议，并且已经无法挽回[1]。
 
-+1
+![The Chinese and European Union flags hang during a speech by Herman Van Rompuy, president of the European Union, unseen, at the Central Party School of the Communist Party of China, in Beijing, China, on Tuesday, May 17, 2011. Van Rompuy said the euro is ]()![The Chinese and European Union flags hang during a speech by Herman Van Rompuy, president of the European Union, unseen, at the Central Party School of the Communist Party of China, in Beijing, China, on Tuesday, May 17, 2011. Van Rompuy said the euro is ](https://image.cnbcfm.com/api/v1/image/103061290-GettyImages-114255829.jpg?v=1616475816&amp;w=900&amp;h=506)图片来源：CNBC (*Nelson Ching | Bloomberg | Getty Images*)
+
+此前，欧盟于3月22日因中共对新疆维吾尔人的监禁而制裁了数名中共官员以及相关实体[2]。随后，中共外交部迅速回击，制裁了10名欧盟官员和4家实体机构[3]。5月20日，欧盟以599票支持，30票反对和58票弃权通过决议，冻结了《欧中全面投资协议》（EU-China Comprehensive Agreement on Investment）。
+
+欧中全面投资协议的谈判历时7年，双方谈判人员于2020年12月达成一致。该协议要求中（共）国给与欧盟国家的公司更加公平的地位，并使中共国成为欧盟更加信任的贸易伙伴，双方都将获得对方更为开放的市场。
+
+欧中关系与《欧中全面投资协议》的最大主导者毫无疑问是德国以及德国总理默克尔。中共国是德国的第一大贸易伙伴，而且中（共）国市场对德国的汽车产业有着决定性的影响。《欧中全面投资协议》一旦签署，将允许德国企业对其在中共国的分支机构控股，而不是通过之前的合资模式进入中共国并且按中共的要求强制转让技术。2020年下半年，正值德国担任欧盟轮值主席国，默克尔把通过《欧中全面投资协议》作为她的一大工作重点。
+
+如今，默克尔作为德国总理的16年任期即将结束，这为德中关系与欧中关系添加了更多的不确定性。2021年9月，德国联邦议院将进行新一轮选举，其中绿党成为新一届执政党的可能性更大。绿党总理候选人安娜莱娜·贝尔博克（Annalena Baerbock）最近曾公开表示，要对中共国不尊重人权的行为采取强硬的立场[4]。
+
+自美国川普政府对中共开启了一系列经济制裁后，欧洲一直与中共保持着暧昧的关系——因为欧洲国家对于中（共）国市场的依赖远远大于美国。但随着中共在全世界一系列倒行逆施的流氓行径被暴露出来，尤其是世界对病毒真相溯源的推进，欧洲对中共国的立场也开始发生重大的转变。
+
+欧洲的另一大支柱，英国，已经禁止华为加入其5G网络，并从香港事件中认清了中共的本质。英国不仅为香港人提供签证，还拨款4300万英镑援助香港人移民英国[5]。除此之外，英国还废除了中共国电视台CGTN在英国的播出执照[6]，并驱逐了三名假扮成记者的中（共）国间谍[7]。
+
+根据郭文贵先生最近的爆料，闫丽梦博士以及到达欧洲的某位中（共）国高级科学家为病毒真相提供的实锤证据，还有中共之前通过曾任国际刑警组织主席的孟宏伟对位于欧洲的国际刑警组织进行控制的证据事实、再加上中共国过去几年的其他所作所为，让欧盟委员会认清了中共的流氓本质，最终促成了欧中协议的终结[8]。除此之外，美国也一直在背后施加压力，迫使主要的欧洲国家在对抗中共的问题上与美国站在一起[9]。
+
+6月11日至6月13日，美国总统拜登赴英参加G7峰会。拜登将进一步采取与川普不同的方式，大力团结欧洲的盟友，一起对抗中共的独裁政府[10]。美国国家安全委员会高级官员早前透露，这次峰会的主题主要包括新冠肺炎疫情、气候变化和中（共）国。前国防官员帕维尔（Barry Pavel）更是形容，拜登在峰会期间出席的每一个会议“都会有中（共）国议题渗透其中”。美国媒体引述消息人士指出，G7峰会期间，各国会提出一个抗衡中（共）国“一带一路”的计划，让发展中国家可以用更环保的方式发展基建。另外，该峰会还会讨论台湾、香港议题以及对病毒真相展开透明调查的呼吁 [11]。
+
+在美中脱钩不断推进的大背景下，中共曾经幻想着，可以依靠“蓝金黄”欧洲国家，联欧抗美。如今，这一幻想已经破灭，中共已经实实在在地陷入了四面楚歌的境地。
+
+参考阅读：
+
+1. [China made a ‘huge strategic blunder’ in retaliating against Europe, former U.S. negotiator says](https://www.cnbc.com/2021/06/08/eu-china-tensions-and-its-impact-on-europe-investment-deal.html)
+2. [EU imposes further sanctions over serious violations of human rights around the world](https://www.consilium.europa.eu/en/press/press-releases/2021/03/22/eu-imposes-further-sanctions-over-serious-violations-of-human-rights-around-the-world/)
+3. Foreign Ministry Spokesperson Announces Sanctions on Relevant EU Entities and Personnel\_https://www.fmprc.gov.cn/mfa\_eng/xwfw\_665399/s2510\_665401/t1863106.shtml
+4. [Germany’s Greens chancellor candidate vows to get tough on Russia and China](https://www.reuters.com/world/europe/germanys-greens-chancellor-candidate-vows-get-tough-russia-china-2021-04-24/)
+5. [香港BNO移民：签证申请远超预期，英国政府拨款助港人融入当地](https://www.bbc.com/zhongwen/simp/uk-56672193)
+6. [Ofcom revokes Chinese broadcaster CGTN’s UK licence](https://www.bbc.com/news/entertainment-arts-55931548)
+7. [UK expelled three Chinese spies posing as journalists in past year: The Telegraph](https://www.reuters.com/article/uk-china-britain-espionage/uk-expelled-three-chinese-spies-posing-as-journalists-in-past-year-the-telegraph-idUSKBN2A5066)
+8. [全文字版2021年5月30日郭文贵先生G-TV直播](https://gnews.org/zh-hans/1285961/)
+9. [【字幕】5/31/2021文贵盖特：以毒灭共已和共产党的垂死挣扎，会形成非常有趣的国际政治现象](https://gnews.org/zh-hans/1287035/)
+10. [Biden Seeks Allies’ Support in Confronting Putin, China](https://www.wsj.com/articles/biden-heads-to-europe-to-restore-alliances-and-counter-autocracys-rise-11623231001?mod=e2tw)
+11. [G7峰会：“多边主义抗衡中（共）国”能否奏效成焦点](https://www.bbc.com/zhongwen/simp/world-57424095)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
+
+编审：加拿大多伦多枫叶农场/经济小组 向往真理
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+
+
+
+0
