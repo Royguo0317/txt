@@ -1,37 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 脸书扎克伯格仅在佐治亚州就花费五千一百万助拜登入主白宫（上）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1321256/)
+## 蓬佩奥:32年前，天安门广场发生了一场悲剧，突出了热爱自由的中国人民和北京政权的暴政之间的对比。
+` 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1321374/)
 
-翻译撰稿：白雪
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14030523/IMG_9700.jpg)网络截图3月份脸书股票走势图
-《Breitbart》六月九日发表题为“扎克伯格资助的非营利组织在佐治亚州的选举上花费了 5100 万美元”。
+- 中文简介：中共政权仍然拒绝尊重其人民的权利，而我们延续了纪念天安门英雄的光荣传统
+- 英文标题：32 years ago, a tragedy occurred in Tiananmen Square that highlighted the contrast between the freedom-loving Chinese people and the tyranny of the regime in Beijing.
+- 英文简介：We continue a glorious tradition of Commemorating the heroes of Tiananmen. The regime in Beijing still refuses to respect the rights of its own people.
+- 原视频链接：[https://twitter.com/mikepompeo/status/1400853918142320646](https://twitter.com/mikepompeo/status/1400853918142320646)
 
-根据两份单独的报告，两个由马克·扎克伯格资助的非营利组织在 2020 年 11 月 3 日的大选和 2021 年 1 月 5 日在该州举行的美国参议院决选选举中，在佐治亚州总共花费了 5100 万美元：一份由基金会发布 政府问责制 (FGA)，第二个由扎克伯格资助的非营利组织之一发布。
 
-在 2020 年总统大选之前，选举管理的私人资助在美国政治体系中几乎鲜为人知，当时 Facebook 首席执行官兼创始人马克·扎克伯格和他的妻子普莉希拉·陈向技术与公民生活中心 (CTCL) 捐赠了 3.5 亿美元，后者为 全国各地的县和市政府用于选举管理，并向选举创新与研究中心 (CEIR) 提供 6900 万美元，该中心主要通过国务卿办公室向 23 个州政府提供资金，也用于选举管理的资金。
 
-扎克伯格和他的妻子普莉希拉·陈 (Priscilla Chan) 在 2020 年向 CTCL 和 CEIR 捐赠的估计 4.19 亿美元中，有超过 12% 用于佐治亚州，尽管该州仅占该国人口的 3.2%。  （注：根据人口普查局 2021 年 4 月发布的估计，佐治亚州 2020 年的人口为 1070 万，占美国人口普查局发布的美国 2020 年人口 3.311 亿的估计值的 3.2%。）
 
-根据 2021 年 5 月的一份报告，技术与公民生活中心 (CTCL) 在 2020 年 11 月 3 日的大选中在 40 个县投入了 3100 万美元，并在 2021 年 1 月 5 日的决选中在 15 个县投入了 1450 万美元。  FGA。
-
-根据 2021 年 3 月的 CEIR，另一个由扎克伯格资助的组织，即选举创新与研究中心 (CEIR)，为 2020 年 11 月 3 日的大选直接向佐治亚州国务卿布拉德·拉芬斯伯格 (Brad Raffensperger) 办公室提供了超过 550 万美元的资金 报告：
-
-这两家由扎克伯格资助的非营利组织在乔治亚州每位居民的支出是其他 49 个州每位居民支出总和的四倍——乔治亚州每位居民支出 4.76 美元（5100 万美元/1070 万居民），而其他 49 个州的人均支出为 1.15 美元 （3.68 亿美元/3.234 亿居民）。
-
-CTCL 和 CEIR 在佐治亚州的每名居民支出水平异常高，在该州，民主党总统候选人乔·拜登在 11 月 3 日以不到 12,000 票的优势被前总统唐纳德·特朗普认定为获胜者，  2020 年选举，两名民主党参议院候选人在 2021 年 1 月 5 日的决选中以微弱优势击败两名现任共和党参议员。
-
-“我们一直认为扎克伯格足够聪明，知道如何使用 4 亿美元来实现他的目标。 现在有证据表明这是真的，扎克伯格的设计是让拜登先生入主白宫，”托马斯·莫尔协会 Amistad 项目主任菲尔·克莱恩在接受布莱巴特新闻专访时说。
-
-或许扎克伯格的梦想是有朝一日他可以入主白宫。
-
-但现实很骨感，随着大选真相日益浮出水篇，日前有网友推特晒脸书狂抛股票，也许小扎同学自知时日不多？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14030708/IMG_9699.jpg)
-（本文纯属个人观点）
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-
-[原文链接：](https://www.breitbart.com/politics/2021/06/09/zuckerberg-funded-nonprofits-spent-51-million-on-elections-in-georgia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0
