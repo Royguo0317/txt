@@ -1,29 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以色列政坛变天
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1320589/)
+## 【有声读物】自由之巅的召唤
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1320680/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13205419/B12A00_P_01_02.jpg)
-法新社华盛顿13日报道，以色列国会今天在信任投票中批准成立新的联合政府，右派领导人班奈特将宣誓成为总理，美国总统拜登随即道贺，并期许加强两国之间的关系。
+配音：香草山录音组 Swr拥抱太阳
 
-120席的以色列国会（Knesset）以60票同意、59票反对、1票弃权，通过由班奈特（Naftali Bennett）和拉皮德（Yair Lapid）联手共组新政府，终结长命总理内塔尼亚胡（Benjamin Netanyahu）创纪录的12年任期。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-拜登发表声明说：祝贺总理班奈特（Naftali Bennett）、副总理兼外交部长拉皮德（Yair Lapid）以及以色列新内阁的所有成员。我期待与班奈特合作，加强我们两国之间密切且悠久的关系。
 
-班奈特则感谢拜登在加萨走廊（Gaza Strip）最近暴力冲突中支持以色列，强调将会改善与美国国会两党的关系。
 
-**评论**：以色列一直游走在中美之间，既不敢得罪美国，也不愿放弃中共给与的巨大经济利益，我们可以看到在最近的十年，中共国通过军民融合项目，走出去买买买的战略，让以色列这片不大的领土上，如雨后春笋般的设立了大量风险投资基金，以及中资在以方的孵化器，从而将以色列的前沿高科技名正言顺地“偷盗”回中共国，弥补了中共国本身科技创新力量不足的短板。
 
-这与以色列前总理内塔尼亚胡的亲共立场不无关系。在他在任期间，中共国副主席王岐山就曾带队赴以色列进行访问，而内塔尼亚胡也来中共国访问过，两国元首的互动，奠定了之后各方面的放行，以色列的各领域专家来中共交流站台捞金，也成为独特的“风景线”。但这一切都将随着内塔尼亚胡时代的终结而落下帷幕。新政府是右派领导人，其立场应该会有根本性的改变。如果以色列也阻断对中共国输出技术的通道，那么对中共的科技命脉无疑是致命打击。
 
-（本文只代表作者观点，与Gnews平台无关。）
 
-**新闻来源**：
 
-[班奈特将任以色列总理 拜登道贺 – 法国国际广播电台 – RFI](https://www.rfi.fr/cn/%E7%8F%AD%E5%A5%88%E7%89%B9%E5%B0%86%E4%BB%BB%E4%BB%A5%E8%89%B2%E5%88%97%E6%80%BB%E7%90%86-%E6%8B%9C%E7%99%BB%E9%81%93%E8%B4%BA)
+仰望蓝天
 
-***校对发布**：文顾*
+群星璀璨
+
+那一颗颗一闪闪
+
+汇聚成湾
+
+把黑暗驱赶
+
+你、我、他
+
+我亲爱的战友
+
+
+
+文字版原文：[【香草山诗词汇】自由之巅的召唤](https://gnews.org/zh-hans/582933/)
+
+作者：纽约香草山农场 youyou
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

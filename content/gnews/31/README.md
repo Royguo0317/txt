@@ -1,49 +1,112 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆台新闻】南中国海中美撞机事件
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1320540/)
+## 众议员马特·盖茨（Matt Gaetz）：联邦调查局忽视 COVID-19 起源，情报可挽救美国人生命
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1320568/)
 
-#### 撰写：紫橄榄
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13202308/Screenshot-2021-06-13-5.22.47-PM.png)
-**【媒体观点】**央视网消息（新闻联播版）：继续关注《奋斗百年路 启航新征程·数风流人物》系列报道，今天（6月13日）我们来为您讲述一级飞行员王伟和“导弹司令”杨业功的英雄事迹。
+**字幕内容：**
+**Matt Gaetz (Re-. FL)
+马特·盖茨(众议员-佛罗里达州）**
 
-**王伟：英勇无畏的海空卫士**出生在浙江湖州的王伟1991年6月从空军某航校毕业，毕业后他主动要求到海军部队工作，守卫祖国南大门……2001年4月，王伟驾驶编号为81192的歼8战斗机在执行对美军侦察机跟踪监视飞行任务时，为保卫祖国领空，遭美机撞击被迫跳伞坠海壮烈牺牲，时年33岁。
+I am deeply concerned that the FBI had actionable intelligence,
+我非常担心 联邦调查局拥有的可操作的情报
 
-**【笔者评论】**：上述信息来自2021年6月13日是中共国央视新闻连播的直播报导，南中国海，美中撞机事件已经过去20年了，真相是：撞击地点是在南中国海–国际海域，而不是海南上空。这是中共国为了给百姓树起新的极端民族主义再做虚假宣传，归纳如下：
+that could have saved American lives,
+这些情报本可以挽救美国人的生命
 
-**一，撞击地点**
+but that they ignored that intelligence
+但他们忽略了那个情报
 
-南中国海是国际海域，并非是海南，海南与南中国海是两个截然不同的地理位置。
+they didn’t act on it,
+他们没有采取行动
 
-2001年4月1日，一架美国海军EP-3型侦察机在南海上空执行侦查任务，中共海军航空兵派出2架歼-8II战斗机进行监视和拦截，其中一架中共战机与突然转向的侦察机碰撞，两架中国空军战机左右夹击美国侦察机，在美机转弯时被王伟所驾的战机鲁莽撞上，王伟及飞机坠毁入海中，而美机受损紧飞往并急迫降海南陵水机场。
+and they missed a very important call, Steve
+他们错过了一个非常重要的情报，史蒂夫
 
-**二，人道主义**
+the part of that hearing today, that you did not play, is in the first response, the director of the FBI, Christopher Wray said,
+在今天的听证会上，你没有播放的部分
+是雷听到问题的第一反应
+联邦调查局局长克里斯托弗·雷说
 
-中美撞机事件发生后，美国曾经希望将EP-3侦察机修复后，直接从中国飞回美国，但这个要求遭到了中共国的拒绝。而当时的国驻华大使馆的发言人强调美国仍然希望对飞机进行修理，使其飞离中国。这是最快也是最有效的办法。
+Well, we never know what a counterintelligence operation is,
+“好吧，我们永远不知道什么是反间谍行动”
 
-最终美方因为人道主义以人为本，机组人员还在中共国手中当“人质”，不得不拆卸自4月1日起就停在海南岛陵水机场的美国EP-3飞机，并租赁2架乌克兰大型运输机“安-124型”运回美国。
+why was Christopher Wray answering questions about Coronavirus
+为什么克里斯托弗·雷回答关于冠状病毒问题时
 
-所以，中国外交部发言人朱邦造2001年5月24日星期四说，他强调中国不会允许美国飞机飞离中国！北京只准许美方把美国海军的侦察机拆解运送回国。
+with responses that dealt with counterintelligence,
+涉及反间谍行动的问题？
 
-**三，事件还原**
+what I think happens Steve
+我认为是发生了什么，史蒂夫
 
-2017年4月，有俄罗斯媒体报导，一份从斯诺登于2013年取得的美国国安局文件中，提到相撞事件未被公开的详情。这份长达117页的报告指出，美国EP-3型侦察机机师在事件中犯下数个错误，其中一个是其与中共歼8战机相撞后，被迫降于海南岛陵水机场前，美方机师约有40分钟时间销毁机密资料，但因相关训练不足，致使资料未能及时全部销毁，而让中共国有机会取得相当一部分美国军事机密资料。
+is that they missed this fact witness, this whistleblower,
+是他们错过了这个事实、这个爆料者
 
-原来中共国先给美国机组人员先走，而不给美国军方修好飞回美国，是为了要把飞机扣在机场，可以拿走机上的所有美国军事机密资料。
+this person with not only story to tell
+这个人不仅有故事要讲
 
-中共国向美国索赔一百万美元。美国五角大厦强硬的说法，三万四千五百六十七美元是最后价码，多一毛也不会给的。而中共对美国开口要价一百万美元不变。
+but documents, and text messages on WeChat
+而且还有微信上的文件和短信
 
-**最后，**美国不得不将停在海南岛陵水机场的美国EP-3飞机拆解，用租赁的乌克兰大型运输机“安-124型”运回美国。
+that showed how early, the Chinese Communist Party was aware that
+能够表明中国共产党很早就意识到
 
-2001年7月9日﹐美国租用的第二架俄罗斯“安-124”运输机抵达陵水机场﹐它的任务是接回所有的美方工作人员及装运部分零部件。7月11日﹐这两架俄罗斯的大型运输机将分别载着被拆卸的侦察机、零部件及全体美方工作人员离开中国。
+this was a deadly virus,
+这是一种致命的病毒
 
-总之，中共国用手段包括空中＂碰瓷＂，逼美机降落，为拿到美国战斗机的军事机密，中共国不在乎飞行员的生命安全，用一个年轻的生命换来了他们所需的美国军事情报信息。中共无人性，无人权，更无人道主义精神的体现。
+and also the linkage that exists between the Chinese military
+以及中共军队与这种病毒的发展之间
 
-消息来源:[央视网消息](https://tv.cctv.com/2021/06/13/VIDEShiP35EdviGQAuPkXQwE210613.shtml)
+the development of this virus,
+存在的联系
 
-图片源：[点击进入](https://www.slideshare.net/Slyoldawg/yearofthebatnx-power-lite)
+it’s testing in the Wuhan Institute of Virology
+它正在武汉生物研究所进行测试
 
-文章仅代表作者个人观点，与 Gnews平台无关。
+and its ultimate release to the world.
+并最终向全世界释放
+
+I think the FBI can be very culpable here,
+我认为 FBI 在这方面负有很大的责任
+
+we’re going to stay on them
+我们要继续关注他们
+
+the good news is that as a consequence of this hearing
+好消息是由于这次听证会的结果
+
+We’re going to get back the scientific analysis
+我们要找回科学分析
+
+the scientific notes that the FBI science team put together
+联邦调查局科学团队在与闫丽梦博士
+
+as a consequence of these multi hour meetings with Dr Li-Meng Yan
+许多小时会议的会谈后整理出的科学笔记
+
+but I’m concerned that they categorized her as a counterintelligence threat
+但我担心他们将她归类为反间谍威胁
+
+instead of the truth telling whistleblower she is
+而不是认为她是真正的事实爆料者
+
+and that resulted in deaths that otherwise could have been avoided.
+而这导致了本来可以避免的死亡
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接** : [https://twitter.com/repmattgaetz/status/1403108731769045009?s=24](https://twitter.com/repmattgaetz/status/1403108731769045009?s=24)
+
+英听校：康州盘古农场 – Layka
+翻译：康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
