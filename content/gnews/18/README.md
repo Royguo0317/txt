@@ -1,196 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 是时候拆分大型科技公司了，这一次是真的
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1322392/)
+## 【世事解评】无奈的韭菜 众生躺平相
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1322552/)
 
-**字幕内容:**
+作者：香草山教育组 新生
 
-Tucker Carlson
-塔克 卡尔森
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
-So today, Republicans in the House of Representatives
-所以今天，在众议院的共和党人
 
-proposed bipartisan antitrust legislation
-拟议的两党合作的反垄断立法
 
-that could split up the tech monopolies
-这可能会分拆科技垄断公司
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14145610/%E5%9B%BE%E7%89%877-2.png)[图片来源](https://www.flickr.com/photos/yellowmo/5909909775/)
 
-Congressman Ken Buck is the top Republican on the antitrust subcommittee.
-国会议员肯·巴克是反垄断小组委员会的最高共和党人
+躺平或躺平主义是2021年开始在墙内流行的网络词语。指这一时期的年轻人在国内经济下滑、社会问题激化的大背景下出于对现实环境的失望而做出的“与其跟随社会期望坚持奋斗，不如选择‘躺平’，无欲无求”的处事态度。被视为是对抗社会“内卷化”的一种方式。其具体内涵包括“不买房、不买车、不结婚、不生娃、不消费”及“维持最低生存标准，拒绝成为他人赚钱的机器和被剥削的奴隶”，是“低欲望青年”对于阶级固化的低移动性社会、中产阶级萎缩、在职贫穷、苛刻待遇、劳资关系失谐，以及不合理的社会经济结构等现况的无奈回应。
 
-And he joins us tonight.
-他今晚加入我们的节目
+本文编译了《内幕》网站的文章，“越来越多的中国20岁左右的年轻人在看着他们的朋友过劳死之后，正在拒绝残酷的压榨、开始躺平”，这篇报道中讲述了四个年轻人或是漂在一线北上广城市，或是当地土著，采取不同方式躺平，对抗这不合理的社会。然而躺平也是一种奢侈，当我们面对父母老去、高昂的医疗费用时，我们还是不得不努力，尽自己的微薄之力，以尽孝道。
 
-Congressman, thanks so much for coming up,
-国会议员，非常感谢你的到来
+* * *
 
-what would it take to break I mean
-需要什么才能打破，我的意思
+**沪漂-张志远**
 
-Google is clearly monopoly by any definition,
-从任何定义来看，谷歌显然是科技垄断企业
+上海，上午8点，当上班族正涌入这个城市令人眼花缭乱的地铁网络时，他们带着沉重的公文包和热腾腾的咖啡杯。与此同时，27岁的张志远正躺在床上。27岁的夜猫子张志远告诉记者，他一开始并不想加入 “躺平 “运动，但他努力过后，失望至极从而成为一个躺平族。
 
-what would it take to break up Google
-要怎样才能拆分谷歌？
+“早上8点意味着是时候躺下了”，张志远说道，“我没有工作要去，所以我可以随时躺下。这很好。自从四年前我永久搬到上海，我已经发出了2000多份工作申请，参加了数百次面试”，张说，“在我找工作的第二年，我在一家会计公司找到了一份工作，但四个月后我就辞职了。那种生活方式根本不适合我。”
 
-is that possible at this point？
-在这一点上，有可能吗？
+这对他的父母来说是一个惊人的失望，他们在他的家乡经营一家小企业。在他从上海交通大学毕业后，他们对他抱有很高的期望，上海交通大学是全国九所C9联盟的精英学院之一，其录取率相当于美国的常春藤盟校。但正是他在上海交通大学的经历，张说，使他认为 “躺平 “才是正道。他提到了他的富二代同学，他们在毕业后几周内就通过家庭成员的推荐和其他途径找到了工作，还有他的同班同学利用父母的种子资金开始创业。
 
-Ken Buck (Congressman)
-肯·巴克（国会议员）
+“商人的儿子和官员的女儿得到了一个先机，这相当于在赛道上跑了一两圈。我认为，像我这样的人在比赛中输掉是不可避免的。因此，这让我想到，我为什么还要努力呢？”
 
-Well, Tucker, I think the key is
-好的，塔克，我认为关键的是
+张志远现在从他的父母那里获得每月800美元的津贴，他们还为他支付租金。他偶尔会找到工作来补充这笔津贴，在附近的便利店做兼职，时间长达一个月。然而，大多数时候，他玩电脑游戏到晚上，然后在白天睡觉。
 
-that we introduce competition into the marketplace,
-我们将竞争引入市场
+——————-
 
-there’s, there’s no way I guess there is a way
-那没有方法，我想那是有个办法
+**沪漂-李玉波**
 
-but I think it’d be an incredible disruption to our economy
-但我认为，如果进入并拆散像谷歌这样的公司
+“‘躺平’并不意味着整天躺着或没有工作。”31岁的李玉波说，他在上海的出租房里从事自由设计师和数字艺术家的工作，他按自己的节奏行事，做自己喜欢的事情。
 
-to go in and break up a company like Google,
-将对我们的经济造成难以置信的破坏
+李玉波每天在项目上工作四到五个小时，赚的钱足以让他过上简单的生活，而不会把自己逼到过劳死的程度。“我很反感为了在公司的阶梯上更上一层楼而不得不把自己累死的想法”，李说道，“当然，我知道，如果我加入一家设计公司，我很可能会赚更多的钱，并能够负担更多美味的食物和更好的住宿。但是我每天只能睡三个小时，没有时间享受生活。现在，我的一碗简单的面条味道不错，我的床也足够柔软。我认为没有理由再去努力了。”李玉波补充说。
 
-But we can certainly make sure
-但我们当然可以确保
+——————-
 
-that Google doesn’t grow unfairly
-谷歌不会不公平地增长
+**北京土著-林诗慧**
 
-that Google doesn’t cheat and that Google has competitors in the marketplace
-谷歌不作弊，谷歌在市场上有竞争对手
+对其他人来说，像25岁的北京人林诗慧，“躺平”是一种暂时的状态。林一个月前辞去了她在银行业的工作，因为她觉得自己处于 “崩溃的边缘”。她想“躺平”几个月，然后再 “重新站起来”。
 
-so those that want to get their, their version of a fact out there,
-所以那些想要得到他们的事实看法的人
+“我感觉我正在失去我的思想。在为一个重要项目工作时连续五天没有睡觉后，我想：‘如果我现在不辞职，我就会自杀。’”’林诗慧说道。林准备减薪，如果这意味着她可以利用她需要的时间和空间来管理她的心理健康。“在那个朝九晚六的工作中，我的生活没有任何意义。在我工作的三年里，它变成了一个全天候的工作。现在我想学习如何真正生活。”她说。
 
-their views out they have that opportunity,
-他们有机会发表意见
+——————-
 
-We have it in cable news,
-我们在有线电视新闻中可以播放
+**广漂–周奕翔**
 
-we have it with newspapers
-我们在报纸上可以刊登
+一些中国青年说，“躺平 ”的想法是一种 “中产阶级的理想”，只有超过一定收入水平的人才能实践。“躺平的想法对我来说是荒谬的”，27岁的周奕翔说，他在广州的法律部门工作。“我没有权利‘平躺’，因为我的父母正在衰老。有一天，他们会变得太老，无法工作。那么，谁来支持他们？如果我在浪费我的青春，谁来支付他们的生活和医疗费用？”周说道。
 
-and we should have it online,
-我们应该把它放在网上
+参考资料：
 
-and it’s because the antitrust laws haven’t been updated in years,
-这是因为反垄断法多年没有更新
+[https://www.insider.com/disenchanted-chinese-youth-join-a-mass-movement-to-lie-flat-2021-6](https://www.insider.com/disenchanted-chinese-youth-join-a-mass-movement-to-lie-flat-2021-6)
 
-Congress hasn’t done its article one job
-国会还没有完成它的第一条的工作
+校对/发稿：飞虹
 
-that we need to update these laws now.
-我们现在需要更新这些法律
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
 
-Tucker Carlson
-塔克 卡尔森
+**更多资讯，更多关注**
 
-What do you think it was wise for the US government
-你认为这对美国政府来说是明智的吗
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-to break up Standard Oil 100 years ago that the sugar trust.
-100年前拆分标准石油公司的糖业信托
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-Many other monopolies,
-许多其他垄断企业
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-I mean that that seemed to spawn,
-我的意思是那似乎产生了
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-sort of the best time in American history
-这是美国历史上最好的时光
-
-when we did that.
-当时我们做到了
-
-Ken Buck
-肯·巴克
-
-Absolutely. and, and republicans played a large role in that
-绝对的，共和党人在这方面发挥了重要作用
-
-and so I think now what we’re looking at is something
-所以我想现在我们正在看的是什么
-
-that’s more akin to the telecommunications situation
-这更类似于电信的情况
-
-where we’re able to take your cell phone number
-我们可以拿你的电话号码
-
-and go from one carrier to a different carrier
-而且从一个运营商转到另一个运营商
-
-what we want to make sure is
-我们要确定的是
-
-that you can take your search history from Google,
-你可以从谷歌获取你的搜索历史记录
-
-and take it from that company to a different company.
-并将其从该公司带到另一家公司
-
-They know where you are right now.
-他们知道你现在在哪里
-
-Tucker, they know what you have purchased,
-塔克，他们知道你买过什么
-
-they know your medical history they know everything about you.
-他们了解你的病史，他们了解你的一切
-
-And if you aren’t in control of that data
-如果你无法控制这些数据
-
-and some monopoly is it’s very dangerous,
-而且有些垄断是很危险的
-
-not just to our speech rights,
-不仅是为了我们的言论权利
-
-but to our personal safety.
-也是为了我们的人身安全
-
-Tucker Carlson
-塔克 卡尔森
-
-Yeah, I mean, they control the elections
-是的，我的意思是，他们控制了选举
-
-they control speech they control what you think.
-他们控制了言论，他们控制了你的想法。
-
-Yeah, I would say it’s getting out of hand
-是的，我说它已经失控了
-
-Congressman, I appreciate coming on. Thank you.
-议员先生，我很高兴你能来。 谢谢你。
-
-Ken Buck
-肯·巴克
-
-Thank you.
-谢谢你
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 [https://twitter.com/repkenbuck/status/1403552096201367554?s=24](https://twitter.com/repkenbuck/status/1403552096201367554?s=24)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

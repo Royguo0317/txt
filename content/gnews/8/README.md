@@ -1,63 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】郑州5岁女孩在幼儿园被砸身亡
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1322542/)
+## 扎克伯格脸书集团向武汉实验室病毒功能增强研究的合伙人提供六位数资金
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1322665/)
 
-**作者**：香草山美食部 新世界的一员
+编译：Boxinglady ( 文拳）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
+陈扎克伯格倡议（Chan Zuckerberg Initiative ）是 2020 年美国大部分非法选举变更背后的资助组织，它向北卡罗来纳大学教堂山分校捐赠了近 50 万美元。武汉实验室合作者和功能增强研究支持者 Ralph Baric 博士为该大学的首席研究员。
 
+北卡罗来纳大学教堂山分校 (UNC) 教授——她也参加过武汉病毒研究所的会议，并被实验室的“蝙蝠女”描述为她的“长期合作者”——2020 年 7 月获得了 Facebook 创始人马克·扎克伯格慈善团体的资助。
 
+“陈扎克伯格倡议 (CZI) 最近向 UNC 授予了 433,000 美元的实验室设备赠款，这些设备将加速研究以解决 COVID-19 大流行，”新闻稿指出。 “这笔赠款代表了西海岸慈善组织 CZI 和 UNC 之间的新合作，旨在寻找全球大流行的解决方案，”
 
+据称，这笔赠款帮助产生了一项研究——目前正在等待同行评审——题为 SARS-CoV-2 传染性病毒、鼻咽拭子中的病毒 RNA，以及美国有症状的 COVID-19 门诊患者的血清状况。
 
+“在这里，我们对与传染性病毒分离相关的人口统计学、免疫学、病毒学和临床疾病因素以及鼻咽拭子样本中病毒 RNA 水平进行了全面分析，这是迄今为止对 COVID-19 有症状的门诊成人患者的最大研究，”总结笔记。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14151533/image0-46-1.jpg)
+福奇博士最近试图掩盖他与扎克伯格的关系，他告诉 MSNBC 主持人查克·托德，他“不知道”参议员玛莎·布莱克本在讨论两人泄露的电子邮件时在说什么。
 
-翻到朋友发的视频，又是一起痛心的事故、人为的灾难，特记录此事件，祈祷佳佳天堂安好。
+Baric 与 Facebook 关联的慈善机构之间的财务关系遵循社交媒体平台严格审查用户和故事，这些故事宣传了 COVID-19 起源可以追溯到武汉实验室的理论。
 
-5月28日17:20左右，5岁女孩佳佳（化名）在爱贝尔幼儿园准备六一表演，没想到突发事故，意外身亡。
+Facebook 与完全由民主党运营的“Lead Stories”小组签订了合同，该小组主要由 CNN 不及格人员组成，以审查不便的信息。 Lead Stories 还与 TikTok 签约，而 TikTok 又归字节跳动所有，字节跳动是中国共产党及其人民解放军用来进一步宣传共产主义的公司。
 
-据孩子大姨时女士说：当时接到园区电话，说孩子摇晃教室内的暖气片被砸到。家长赶到现场，发现孩子躺在血泊中，头部受伤严重，昏迷不醒。随后被120送往医院，抢救了两个多小时，还是没有挽回孩子的生命。
+Baric 博士曾为有争议的功能获得性研究辩护为“关键工具”，他是 Facebook 早期批准的病毒自然起源理论的支持者，他参与的《柳叶刀》杂志的一份声明中过早地断言该病毒具有自然性起源。
 
-在共匪邪教的治理之下，视频又选择性地出现障碍了。
+简评：要想人不知除非己莫为！随着近日福奇邮件的不断曝光，操控病毒自然起源理论背后的一切因利益驱使，与中共勾兑的操纵者们的谎言都将被晒在光天化日之下，病毒真相终将大白！那些曾与中共勾兑曾帮助中共洗地的西方利益者们再不选择成为污点证人，他们必将成为中共灭亡时的陪葬品。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14151916/image2-4.jpg)
+新闻来源：[The National Pulse](https://thenationalpulse.com/exclusive/facebook-czi-funds-controversial-wuhan-researcher/)
 
-据家长了解：幼儿园的监控在事发前几天坏掉了。没有监控录像，孩子到底在园区内发生了什么无人知晓。事发几天了，依旧没有结果。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14152129/image1-1-3.jpg)
-
-一个稚嫩的孩子就这样无声无息地消失在本应无忧快乐的六一儿童节里。学堂本该是孩子们健康成长的地方，却因为学校的不安全隐患，出现了如此痛心的事故。
-
-据知情人士说，幼儿园是等家长到了才将孩子送到医院的，他们并没有第一时间将孩子送医院，是故意延误治疗了……
-
-如果说暖气片的倒掉只是环境不安全，那么延误救治就纯粹是人为的灾难。
-
-信息来源·；河南在线粉丝群
-
-视频来源：时利欣）#河南在线@河南在线
-
-编辑：飞虹 校对/发稿：遍地开花
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041307/7_july.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042102/WhatsApp_Image_2020-10-24_at_04.33.05-8-768x103-1.jpeg)
-
-
-
-
+校对发稿：Ada （马德里）
 
 0

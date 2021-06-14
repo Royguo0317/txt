@@ -1,144 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新中国联邦周年庆】看国旗飘飘——专访国旗设计团队里的设计师“文房四宝”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1322094/)
+## 【世事解评】中欧关系的终结与中共的四面楚歌
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1322654/)
 
-前方记者：纽约香草山记者站 | Kathy（文艺）
-
-撰稿：纽约香草山记者站 熊嘟嘟
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+作者：纽约香草山金融部/经济小组 ilovezhanshen
 
 
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
-这是一位富有才华的墙内战友的故事。他，是参与新中国联邦国旗和一系列标识纪念品的设计团队的一员；他，也是少有的可以荣幸地直接与郭文贵先生，一起参与进来的工作小组的成员；他，更在此访谈中，透露了他是如何受到爆料革命/新中国联邦的感召和感染，在疫情期间，走出墙国，经历欧洲、非洲，最后抵达美国，亲身参与到爆料革命/新中国联邦核心发展之地的可谓传奇的经历。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14161508/%E6%96%87%E6%88%BF%E5%9B%9B%E5%AE%9D-%E5%9B%9B%E4%BB%B6%E5%A5%97.png)“文房四宝”战友参与设计的新中国联邦纪念品。图片来源：Kathy文艺文房四宝在新中国联邦庆典现场接受Kathy文艺的现场采访。视频来源：Kathy文艺
-记者：
 
-大家好，今天是2021年6月3日，我现在是在“新中国联邦周年庆典”庆祝活动现场。现在站在我面前的这位年轻的帅哥，实际上是一位很有内秀和有才干的战友。我如果不说出他的名字，你们可能真的不知道他是谁。你们知道谁是新中国联邦国旗的设计者吗？
+6月8日，据CNBC消息称，前白宫高级贸易官员Clete Willems表示，中共制裁欧盟官员的做法是一个“巨大的战略错误”，这种做法终结了欧盟和中国之间的一项重大投资协议，并且已经无法挽回[1]。
 
-文房四宝：
+![The Chinese and European Union flags hang during a speech by Herman Van Rompuy, president of the European Union, unseen, at the Central Party School of the Communist Party of China, in Beijing, China, on Tuesday, May 17, 2011. Van Rompuy said the euro is ]()![The Chinese and European Union flags hang during a speech by Herman Van Rompuy, president of the European Union, unseen, at the Central Party School of the Communist Party of China, in Beijing, China, on Tuesday, May 17, 2011. Van Rompuy said the euro is ](https://image.cnbcfm.com/api/v1/image/103061290-GettyImages-114255829.jpg?v=1616475816&amp;w=900&amp;h=506)图片来源：CNBC (*Nelson Ching | Bloomberg | Getty Images*)
 
-（我是新中国联邦国旗设计的）参与者。
+此前，欧盟于3月22日因中共对新疆维吾尔人的监禁而制裁了数名中共官员以及相关实体[2]。随后，中共外交部迅速回击，制裁了10名欧盟官员和4家实体机构[3]。5月20日，欧盟以599票支持，30票反对和58票弃权通过决议，冻结了《欧中全面投资协议》（EU-China Comprehensive Agreement on Investment）。
 
-记者：
+欧中全面投资协议的谈判历时7年，双方谈判人员于2020年12月达成一致。该协议要求中（共）国给与欧盟国家的公司更加公平的地位，并使中共国成为欧盟更加信任的贸易伙伴，双方都将获得对方更为开放的市场。
 
-是的，您是设计的参与者之一。据我了解，您也是主要的设计者。包括这次庆典活动的国旗胸针和很多其他小纪念品。就是您最近一段时间，默默地设计的。这位战友的名字，叫“文房四宝”。我们现在就请他来讲讲他的故事。文房四宝战友，您应该有许多不为人知的故事。现在把时间交给您。您可以自由发挥，把您的经历，比如您是怎么到爆料革命队伍的？能简单地给我们讲一下吗？谢谢。
+欧中关系与《欧中全面投资协议》的最大主导者毫无疑问是德国以及德国总理默克尔。中共国是德国的第一大贸易伙伴，而且中（共）国市场对德国的汽车产业有着决定性的影响。《欧中全面投资协议》一旦签署，将允许德国企业对其在中共国的分支机构控股，而不是通过之前的合资模式进入中共国并且按中共的要求强制转让技术。2020年下半年，正值德国担任欧盟轮值主席国，默克尔把通过《欧中全面投资协议》作为她的一大工作重点。
 
-文房四宝：
+如今，默克尔作为德国总理的16年任期即将结束，这为德中关系与欧中关系添加了更多的不确定性。2021年9月，德国联邦议院将进行新一轮选举，其中绿党成为新一届执政党的可能性更大。绿党总理候选人安娜莱娜·贝尔博克（Annalena Baerbock）最近曾公开表示，要对中共国不尊重人权的行为采取强硬的立场[4]。
 
-谢谢文艺姐。我是从2018年开始接触爆料革命的。因为我之前在墙内就是做设计的。我那时经常翻墙看一些国外的设计趋势。一次，无意中，我看到了郭文贵先生在油管（YouTube）上的直播。从那以后，我就经常看，而且都是半夜看。当时在墙内也想用自己的专业去参加爆料革命，但是爆料革命战友群的Discord那个链接一直不敢点。有幸的是，在2020年1月20号，我到国外旅游。当时在2020年1月19号，听路德先生的“1·19”直播，第二天我就飞出来了，并且当时就决定不回去了。我从国内飞往欧洲，然后再辗转到非洲，最后才落脚到美国。能够参加到爆料革命当中，运用自己的专业技能，多做一点事情，也是多付出一点行动吧。挺感谢郭文贵先生和战友们的一路相伴和鼓励。来到美国，哪怕是喝水，我觉得都是幸福的。
+自美国川普政府对中共开启了一系列经济制裁后，欧洲一直与中共保持着暧昧的关系——因为欧洲国家对于中（共）国市场的依赖远远大于美国。但随着中共在全世界一系列倒行逆施的流氓行径被暴露出来，尤其是世界对病毒真相溯源的推进，欧洲对中共国的立场也开始发生重大的转变。
 
-记者：
+欧洲的另一大支柱，英国，已经禁止华为加入其5G网络，并从香港事件中认清了中共的本质。英国不仅为香港人提供签证，还拨款4300万英镑援助香港人移民英国[5]。除此之外，英国还废除了中共国电视台CGTN在英国的播出执照[6]，并驱逐了三名假扮成记者的中（共）国间谍[7]。
 
-到了天堂一样的感觉。
+根据郭文贵先生最近的爆料，闫丽梦博士以及到达欧洲的某位中（共）国高级科学家为病毒真相提供的实锤证据，还有中共之前通过曾任国际刑警组织主席的孟宏伟对位于欧洲的国际刑警组织进行控制的证据事实、再加上中共国过去几年的其他所作所为，让欧盟委员会认清了中共的流氓本质，最终促成了欧中协议的终结[8]。除此之外，美国也一直在背后施加压力，迫使主要的欧洲国家在对抗中共的问题上与美国站在一起[9]。
 
-文房四宝：
+6月11日至6月13日，美国总统拜登赴英参加G7峰会。拜登将进一步采取与川普不同的方式，大力团结欧洲的盟友，一起对抗中共的独裁政府[10]。美国国家安全委员会高级官员早前透露，这次峰会的主题主要包括新冠肺炎疫情、气候变化和中（共）国。前国防官员帕维尔（Barry Pavel）更是形容，拜登在峰会期间出席的每一个会议“都会有中（共）国议题渗透其中”。美国媒体引述消息人士指出，G7峰会期间，各国会提出一个抗衡中（共）国“一带一路”的计划，让发展中国家可以用更环保的方式发展基建。另外，该峰会还会讨论台湾、香港议题以及对病毒真相展开透明调查的呼吁 [11]。
 
-确实，呼吸着自由的空气和养分，整个人的状态是不一样的。
+在美中脱钩不断推进的大背景下，中共曾经幻想着，可以依靠“蓝金黄”欧洲国家，联欧抗美。如今，这一幻想已经破灭，中共已经实实在在地陷入了四面楚歌的境地。
 
-记者：
+参考阅读：
 
-您这么两句就把自己，如何从中共国到了欧洲，辗转非洲，又到了美国的经历讲完了。听起来就像无人机，一下子绕着地球飞了一圈。但是这期间的艰辛和故事，一定是特别特别的感人。今天我们在活动现场可能没有时间，今后我一定还要对您进行深度的追访。
+1. [China made a ‘huge strategic blunder’ in retaliating against Europe, former U.S. negotiator says](https://www.cnbc.com/2021/06/08/eu-china-tensions-and-its-impact-on-europe-investment-deal.html)
+2. [EU imposes further sanctions over serious violations of human rights around the world](https://www.consilium.europa.eu/en/press/press-releases/2021/03/22/eu-imposes-further-sanctions-over-serious-violations-of-human-rights-around-the-world/)
+3. Foreign Ministry Spokesperson Announces Sanctions on Relevant EU Entities and Personnel\_https://www.fmprc.gov.cn/mfa\_eng/xwfw\_665399/s2510\_665401/t1863106.shtml
+4. [Germany’s Greens chancellor candidate vows to get tough on Russia and China](https://www.reuters.com/world/europe/germanys-greens-chancellor-candidate-vows-get-tough-russia-china-2021-04-24/)
+5. [香港BNO移民：签证申请远超预期，英国政府拨款助港人融入当地](https://www.bbc.com/zhongwen/simp/uk-56672193)
+6. [Ofcom revokes Chinese broadcaster CGTN’s UK licence](https://www.bbc.com/news/entertainment-arts-55931548)
+7. [UK expelled three Chinese spies posing as journalists in past year: The Telegraph](https://www.reuters.com/article/uk-china-britain-espionage/uk-expelled-three-chinese-spies-posing-as-journalists-in-past-year-the-telegraph-idUSKBN2A5066)
+8. [全文字版2021年5月30日郭文贵先生G-TV直播](https://gnews.org/zh-hans/1285961/)
+9. [【字幕】5/31/2021文贵盖特：以毒灭共已和共产党的垂死挣扎，会形成非常有趣的国际政治现象](https://gnews.org/zh-hans/1287035/)
+10. [Biden Seeks Allies’ Support in Confronting Putin, China](https://www.wsj.com/articles/biden-heads-to-europe-to-restore-alliances-and-counter-autocracys-rise-11623231001?mod=e2tw)
+11. [G7峰会：“多边主义抗衡中（共）国”能否奏效成焦点](https://www.bbc.com/zhongwen/simp/world-57424095)
 
-现在我就想问一下，在爆料革命的队伍里，您是经历了怎样的蜕变？我在打伪、抗议的现场，都有看到您的身影，而且听说半夜还要回去搞设计。您是怎么经历这样一个蜕变的，能简单来说一下吗？做了一些什么样的义工。
 
-文房四宝：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
 
-其实我做的这些工作并不足以去炫耀什么，还是挺感激和感恩爆料革命这个舞台的，就是能感受到自己有做为一个人的真正的良知、善良和正义感。因为我们做设计的，还有很多做策划的战友，都是在幕后。大家也通过跟随爆料革命了解到很多真相，特别是郭文贵先生自己每天真实的生活状态鼓舞着我们，他的内在的精神力量激励着我们，让我们平凡的人生经历了一个极大的提高或者升华。
+编审：加拿大多伦多枫叶农场/经济小组 向往真理
 
-记者：
-
-所以您的设计一定是被这样一种精神所激励，才让您有了灵感的。
-
-文房四宝：
-
-对的，特别是在去年“六·四”之前，我们接到新中国联邦国旗的设计任务，只有十几个小时的完成时间。郭先生加入我们的团队，亲自指导，鼓励我们。经过十个小时之后，团队拿出了这样一个国旗设计构想。我们常常感叹很多事情确实是有天意的。
-
-记者：
-
-这个故事太感人了。
-
-文房四宝：
-
-对。因为我们的设计团队，有来自世界各地的战友，由于时差的原因，大家不是都在一个时区工作。
-
-记者：
-
-您们团队有多少人？
-
-文房四宝：
-
-当时大概有十来个左右吧。那么短的时间里，大家各尽其职，把专业的事情做好，最后出来的概念方案也好、图形创意也好，都是最完美的。
-
-记者：
-
-国旗这个七芒星的概念，是在怎么样的一个契机下到您的脑海里的？还是团队成员各自贡献了某一个理念之后，经过实践验证出来的？能够把这个过程简单地说一下吗？
-
-文房四宝：
-
-整个过程的话，我记得，当时我还在非洲，我那边的时间应该快半夜了。
-
-记者：
-
-时差是多少？
-
-文房四宝：
-
-当时在非洲，跟这边的时差大概是七、八个小时。当时郭先生在群里说，有一个紧急的事情，让大家抓紧，然后说要设计新中国联邦的国旗。我当时是第一个提交方案的，最早设计的一版是紫色的。郭先生半夜醒来的时候，留言说，有战友建议不要用紫色。因为我们是要撇开中共的红和黄嘛，所以最后选择了蓝色。郭先生说他刷牙的牙刷正好也是蓝色的，他特别喜欢我们给选出的那个蓝色。
-
-但是那个图形的方案就一直一直不断地在优化。当时郭先生看了还不是特别的满意，我们也一筹莫展。这时候就有一段特别感人的小插曲。郭先生到他家外面的花园里去祷告。结果正巧郭先生刚祷告完，就有个战友画了一幅草图，就出来那个双星链。因为我们的每一颗星都是七个角，七芒星，中间有颗信仰之星，两个双星链的四十八颗，加一颗信仰之星，总共是四十九颗，意思是七七四十九，代表的是宇宙万事万物的信仰为大。就是这样的意思。
-
-记者：
-
-是的，信仰为大。而且跟“7”相关的数字，也是爆料革命、新中国联邦追求的完美数字。好像这个“7”是有魔性的。当然我们也是七哥（“七哥”，是战友们对郭文贵先生的尊称）的兄弟姊妹。这个就紧扣了正道主义主题啊。所以这个设计是太完美了。十个小时之内终于拿出来最后的方案。郭先生亲自参与，又有您这样的一个团队，这真是智慧的结晶，努力的结晶。当然这个故事还有更精彩的在里面，今天这么短的时间是说不完的，我们有时间坐下来慢慢地聊。
-
-那文房四宝战友，我知道您来美国时间不长，您在这样一个短暂的经历当中，直接就在爆料革命的大家庭里成长，您的感觉和您当初经过千辛万苦从墙内来到美国，现在的想法和以前比，有什么不一样的吗？您有什么样的感想？
-
-文房四宝：
-
-我的感想就是希望共产党早点灭亡。最重要的是共产党统治中国七十年，墙内的老百姓真的太苦了。有的时候我就想，像郭文贵先生说的，我们能够早一点，或者多一些人觉醒过来的话，就不会让共产党这样作恶七十年了。真的。
-
-记者：
-
-您认为出来的这个想法是对的，行动也是对的，到今天也没有后悔过，对吗？
-
-文房四宝：
-
-对，越来越坚定。
-
-记者：
-
-好。这就是一个很感人的故事。这个故事不仅仅因为您设计了国旗，而是你经历几乎五大洲，才来到美国的故事，我会继续追踪报道。今天在现场，有太多的事情，没有太多的时间给到您，所以我们就先简短地谈到这里。感谢您，也感谢您对爆料革命的付出。
-
-文房四宝：
-
-感谢文艺姐。
-
-参考来源：Kathy文艺现场采访视频。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
-
-编辑/校对/发稿：Delilah小胖
+校对/发稿：Irene木木
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
 
 
 

@@ -1,26 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】我与新中国联邦一起成长
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1322076/)
+## 美国防部长发布对抗中国的内部指令具体举措细节不详（玫瑰看新闻六月十日）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1322153/)
 
-作者：喜马拉雅东京樱花团 / 小小星
-![](https://lh3.googleusercontent.com/D4t7YcatvqvLIctDhNMHffYlgOD-JcxngxSclYDB31w4-tQMVgKxKgzzx1xU2htet9GHNJRNkVNw3ZksbEgdXJxnzWUsa3xzD5JS7Dl-wj3KjBb5AzPK-FTZS1p1ThGlHJEpV9qW)（图片由“北美教练（闻佑）”战友设计）
-从2017年郭先生爆料革命的那天起，就每天跟随着，越来越多的人每天跟着七哥一起爆料。天天等待七哥平安出现。他的言行牵动着千万人的心。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14105834/Page_00001-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14105907/Page_00002-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14105945/Page_00003-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110021/Page_00004-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110058/Page_00005-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110136/Page_00006-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110221/Page_00007-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110300/Page_00008-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110330/Page_00009-scaled.jpg)
 
-从自己的事情说起。给我们开智。让我们看清了CCP是怎样抢夺私人企业家财产的。又是通过一个个假私企实则国企（如海航），把全中国人民的钱都汇集了海外。流进了CCP盗国贼家族的账户上，我们听得惊掉了下巴。郭先生用一个又一个事实告诉我们盗国贼是怎样把中国盗空的。
 
-在跟随爆料革命的两年中，我与战友们一起成长，一起开智。彻底认清了CCP以假治国、以黑治国、以警治国以及以生殖器治国的嘴脸。随着爆料革命的成长，郭先生顺势创建了GTV和Gnews平台，这又是一场世界新闻媒体的大战。在CCP通过收买控制世界各地媒体，自媒体，散播满天假消息的报道中。我们的GTV和GNEWS成为一支独秀，闪耀着唯真的光芒！划过黑暗的天空，劈开了一条闪亮的道路。讲事实，说真话，告诉世界人们发生了什么。这本事媒体该有的几本属性，而唯独我们做到了唯真不破的媒体立场！
-
-郭先生更是在2020.6.4创建了新中国联邦！刚刚过完了一周年的生日。我们的新中国联邦人，更是让世界感受到了正义的力量！在这一年里，海外和国内的战友投入了各种战斗中。世界各地蓝色的海洋，上街游行，发传单，传播病毒真相。GTV平台战友们每天精心制作节目。GNEWS也是我们战友们撑起了这片天空。
-
-我们新中国联邦人已经遍及全球，正义满满，唯真不破，勇敢无我。在这场爆料革命中，在新中国联邦一年的成长中，我们每一个战友都是不可缺少的战士，不论是上街游行，分发揭露病毒真相传单，还是投资G系列，还有在媒体上、Gnews和盖特上，我们都在跟CCP进行着战争，把CCP隐藏深处的假丑恶一层层拨开，亮在世界人民面前，让全世界的人都看清CCP的假丑恶。“战友们灭共没你不行，灭共就缺你一个！”正如路德社所言。我行动起来吧！歼灭CCP战斗的胜利就在眼前。
-
-在这一年中，特别是我们又有了一批年轻的战友，新生的力量一起壮大，让越来越多的人了解我们，了解世界真像，和世界正义的力量联合起来，消灭CCP！
-
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*校对：喜马拉雅东京樱花团 / 東洋武士*
-*责任编辑：喜马拉雅东京樱花团 / 捆绑CCP一千年*
-*发布：喜马拉雅东京樱花团 / 老黑*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04060740/IMG_2779.jpg)
-+1
+0

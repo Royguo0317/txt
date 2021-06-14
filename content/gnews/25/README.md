@@ -1,41 +1,193 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新大西洋宪章
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1322346/)
+## 是时候拆分大型科技公司了，这一次是真的
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1322392/)
 
-翻译:康州盘古农场 – Mike Li
-校对:康州盘古农场 – 柯镇恶
-编辑:康州盘古农场 – 明子
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14122349/9841.jpg)
-**据白宫简报厅 2021年6月10日发布：**
-今天，美利坚合众国的总统和代表联合王国的首相重申他们的承诺，即共同努力，实现更加和平与繁荣的未来这一愿景。
-建立在80年前制定的承诺和愿望的基础上，我们经过振兴的《大西洋宪章》申明，我们持续致力于维持我们的长远价值观，并在新的和旧的挑战面前捍卫它们。我们承诺与所有认同我们民主价值观的伙伴紧密合作，并反击那些试图破坏我们联盟和机构的努力。
+**字幕内容:**
 
-第一，我们决心捍卫民主和开放社会的原则、价值观和制度，它们是我们国家力量和联盟的驱动力。我们必须确保民主国家——从我们自己的国家开始——能够解决我们这个时代的关键挑战。我们将支持透明度，维护法治，并支持民间社会和独立媒体。我们还将对抗不公正和不平等，捍卫所有个人的固有尊严和人权。
+Tucker Carlson
+塔克 卡尔森
 
-第二，我们有意加强维持国际合作的机构、法律和规范，使其适应21世纪的新挑战，并保卫它们免遭破坏。我们将通过基于规则的国际秩序来共同应对全球挑战；拥抱新兴技术的前景并管理其危险性；促进经济发展和工作尊严；使国家之间的贸易实现公开和公平。
+So today, Republicans in the House of Representatives
+所以今天，在众议院的共和党人
 
-第三，我们仍然团结在主权、领土完整以及和平解决争端的原则之上。我们反对通过虚假信息或其他恶意影响进行干涉——包括对选举的干涉，同时重申我们对债务透明度、可持续性和债务减免健全管理的承诺。我们也将捍卫诸如航行自由、飞跃自由以及其他国际合法使用海洋的关键原则。
+proposed bipartisan antitrust legislation
+拟议的两党合作的反垄断立法
 
-第四，我们决心利用和保护我们在科学和技术方面的创新优势，以支持我们的共同安全并在国内提供就业机会；开放新的市场；促进新标准和技术的开发和部署以支持民主价值观；继续投资于世界面临的最大挑战的研究；并促进全球可持续发展。
+that could split up the tech monopolies
+这可能会分拆科技垄断公司
 
-第五，我们申明，我们有共同的责任维护我们的集体安全和国际稳定，以及抵御包括网络威胁在内的各种现代威胁的复原能力。我们已经宣布，我们的核威慑力量是为了保卫北约，只要有核武器，北约就将继续是一个核联盟。我们的北约盟国和伙伴将始终可以依靠我们，即使他们继续加强自己的国家力量。我们承诺在网络空间、军备控制、裁军和防扩散措施方面促进负责任的国家行为框架，以减少国际冲突的风险。我们继续致力于打击威胁我们公民和利益的恐怖分子。
+Congressman Ken Buck is the top Republican on the antitrust subcommittee.
+国会议员肯·巴克是反垄断小组委员会的最高共和党人
 
-第六，我们承诺继续为21世纪建设一个包容、公平、气候友好、可持续、基于规则的全球经济。我们将加强金融稳定和透明度，打击腐败和非法金融，并通过高劳工和环境标准进行创新和竞争。
+And he joins us tonight.
+他今晚加入我们的节目
 
-第七，世界已经到了一个关键时刻，从而必须采取紧急的和雄心勃勃的行动来应对气候危机，保护生物多样性，并保护自然。我们各国将在我们所有的国际行动中优先考虑这些问题。
+Congressman, thanks so much for coming up,
+国会议员，非常感谢你的到来
 
-第八，我们认识到健康危机的灾难性影响，以及加强我们对健康威胁的集体防御的全球利益。我们承诺继续合作，加强卫生系统，提高我们的健康保护，并协助其他国家也这样做。
+what would it take to break I mean
+需要什么才能打破，我的意思
 
-小约瑟夫·拜登（Joseph R. Biden, Jr.）
-鲍里斯·约翰逊（Boris Johnson, M.P.）
-2021年6月10日
+Google is clearly monopoly by any definition,
+从任何定义来看，谷歌显然是科技垄断企业
 
-【评语】：《大西洋宪章》里面提出的对法西斯国家作战的目的和进步民主的重建战后和平的目标，体现了资产阶级民主政治的一般原则，对于国际反法西斯统一战线的形成和打败德、日侵略者起到了积极的推进作用。同时，“机会均等”、“海上自由”等内容有利于美国战后与英国争夺势力范围，取得世界“领导地位”。
-这份文件没有提中国的名字，但字里行间很明显可以看到的是，这两位领导人有意就如何处理与北京的战略竞争进行合作。这份宪章在很大程度上呼应了拜登总统的一个核心论点，即西方民主国家正在与中国、俄罗斯这样的威权体制处在一场民主与专制的较量之中。拜登与约翰逊10日发表联合声明表示，两国认知到世界卫生组织在全球卫生安全中的核心重要性，美英将与其他志同道合的会员国共同努力，落实5月世界卫生大会（WHA）通过的强化世界卫生组织相关决议。美英也将支持即时、透明、以证据为基础的独立调查，支持世界卫生组织针对新冠疫情起源进行新一阶段调查，地点包含中国。
+what would it take to break up Google
+要怎样才能拆分谷歌？
 
-文章来源:[https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/10/the-new-atlantic-charter/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/10/the-new-atlantic-charter/)
+is that possible at this point？
+在这一点上，有可能吗？
+
+Ken Buck (Congressman)
+肯·巴克（国会议员）
+
+Well, Tucker, I think the key is
+好的，塔克，我认为关键的是
+
+that we introduce competition into the marketplace,
+我们将竞争引入市场
+
+there’s, there’s no way I guess there is a way
+那没有方法，我想那是有个办法
+
+but I think it’d be an incredible disruption to our economy
+但我认为，如果进入并拆散像谷歌这样的公司
+
+to go in and break up a company like Google,
+将对我们的经济造成难以置信的破坏
+
+But we can certainly make sure
+但我们当然可以确保
+
+that Google doesn’t grow unfairly
+谷歌不会不公平地增长
+
+that Google doesn’t cheat and that Google has competitors in the marketplace
+谷歌不作弊，谷歌在市场上有竞争对手
+
+so those that want to get their, their version of a fact out there,
+所以那些想要得到他们的事实看法的人
+
+their views out they have that opportunity,
+他们有机会发表意见
+
+We have it in cable news,
+我们在有线电视新闻中可以播放
+
+we have it with newspapers
+我们在报纸上可以刊登
+
+and we should have it online,
+我们应该把它放在网上
+
+and it’s because the antitrust laws haven’t been updated in years,
+这是因为反垄断法多年没有更新
+
+Congress hasn’t done its article one job
+国会还没有完成它的第一条的工作
+
+that we need to update these laws now.
+我们现在需要更新这些法律
+
+Tucker Carlson
+塔克 卡尔森
+
+What do you think it was wise for the US government
+你认为这对美国政府来说是明智的吗
+
+to break up Standard Oil 100 years ago that the sugar trust.
+100年前拆分标准石油公司的糖业信托
+
+Many other monopolies,
+许多其他垄断企业
+
+I mean that that seemed to spawn,
+我的意思是那似乎产生了
+
+sort of the best time in American history
+这是美国历史上最好的时光
+
+when we did that.
+当时我们做到了
+
+Ken Buck
+肯·巴克
+
+Absolutely. and, and republicans played a large role in that
+绝对的，共和党人在这方面发挥了重要作用
+
+and so I think now what we’re looking at is something
+所以我想现在我们正在看的是什么
+
+that’s more akin to the telecommunications situation
+这更类似于电信的情况
+
+where we’re able to take your cell phone number
+我们可以拿你的电话号码
+
+and go from one carrier to a different carrier
+而且从一个运营商转到另一个运营商
+
+what we want to make sure is
+我们要确定的是
+
+that you can take your search history from Google,
+你可以从谷歌获取你的搜索历史记录
+
+and take it from that company to a different company.
+并将其从该公司带到另一家公司
+
+They know where you are right now.
+他们知道你现在在哪里
+
+Tucker, they know what you have purchased,
+塔克，他们知道你买过什么
+
+they know your medical history they know everything about you.
+他们了解你的病史，他们了解你的一切
+
+And if you aren’t in control of that data
+如果你无法控制这些数据
+
+and some monopoly is it’s very dangerous,
+而且有些垄断是很危险的
+
+not just to our speech rights,
+不仅是为了我们的言论权利
+
+but to our personal safety.
+也是为了我们的人身安全
+
+Tucker Carlson
+塔克 卡尔森
+
+Yeah, I mean, they control the elections
+是的，我的意思是，他们控制了选举
+
+they control speech they control what you think.
+他们控制了言论，他们控制了你的想法。
+
+Yeah, I would say it’s getting out of hand
+是的，我说它已经失控了
+
+Congressman, I appreciate coming on. Thank you.
+议员先生，我很高兴你能来。 谢谢你。
+
+Ken Buck
+肯·巴克
+
+Thank you.
+谢谢你
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 [https://twitter.com/repkenbuck/status/1403552096201367554?s=24](https://twitter.com/repkenbuck/status/1403552096201367554?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
 康州盘古农场欢迎您加入:(或点击上方图片）
 
