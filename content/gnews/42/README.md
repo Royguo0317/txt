@@ -1,15 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥:32年前，天安门广场发生了一场悲剧，突出了热爱自由的中国人民和北京政权的暴政之间的对比。
-` 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1321374/)
+## 【粤语配音】中共军方在大爆发前已经开始在开发疫苗
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1321429/)
 
-- 中文简介：中共政权仍然拒绝尊重其人民的权利，而我们延续了纪念天安门英雄的光荣传统
-- 英文标题：32 years ago, a tragedy occurred in Tiananmen Square that highlighted the contrast between the freedom-loving Chinese people and the tyranny of the regime in Beijing.
-- 英文简介：We continue a glorious tradition of Commemorating the heroes of Tiananmen. The regime in Beijing still refuses to respect the rights of its own people.
-- 原视频链接：[https://twitter.com/mikepompeo/status/1400853918142320646](https://twitter.com/mikepompeo/status/1400853918142320646)
+06/07/2021 莎莉·马克森认为福奇在资助武汉病毒所的功能获得研究上撒谎。冠状病毒是中共解放军生物武器项目的一部分。因为有太多武汉病毒研究所完成的科学论文，其中许多是与中国军事科学家共同完成的，并且在论文的末尾说明了是由美国国立卫生研究院资助。中国解放军军事科学家在2020年2月就申请了第一个冠状病毒疫苗专利，这表明他们很可能在承认有疫情之前就开始了疫苗开发的工作。
 
-
-
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0
