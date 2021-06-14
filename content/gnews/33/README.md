@@ -1,45 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】我为什么成了基督徒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1320983/)
+## 【路德即时简报】2021年6月13日晚：G7联合公报首提台海和平
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1321157/)
 
-配音：香草山福音部 Daxia
+作者：香草山写作组 GBwater
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
 
+（路德社2021年6月13日晚，路博艾）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14015802/%E5%9B%BE%E7%89%873-10.png)
+G7联合声明
+
+1. 博博士：中国空军正在为7月1日的庆祝活动练习如何飞出7.1和100的队形，和打仗完全没关系。
+
+2. 七国集团在《联合声明》中呼吁台湾海峡两岸和平，并对新冠的起源进行调查。这是36年来，七国首提台湾。
+
+a. 拜登说，民主正受到专制威胁，世界必须进入实验室，调查新冠的来源。拜登上台首提调查病毒。路德：最后通牒很快就会到来。所有实验室都要开放调查。
+
+b. 中共说小团体不能统治世界。
+
+c. 路德：《新大西洋宪章》讨论如何完善后中共时代的国际秩序，不能放任独裁国家，在未来，只有民主国家才能加入国际社会。
+
+1. 塞林博士在推特上发特种部队空降兵标志。他说有人在威胁一个退役的绿色贝雷帽人员。
 
 
-60年代，我出生在一个南方城市。在我小的时候，父母因为工作很忙，就把我送到农村的外公外婆家，我在他们的呵护下度过了快乐的童年。
+a. 博博士：上校是前线作战最高级别了。
 
-外公外婆所处的农村总的来说是个民风淳朴的地方。在那里，人们普遍对神明有一种天然的敬畏。逢年过节时，当地人在家里一定会祭拜神明，或者是祭拜祖先。每当这个时候，外公外婆总是让我在门外一边玩，一边注意观察是否有外人前来。我在老家的那几年，外公外婆家的祭拜一直是暗暗地做，但从不间断。老家的邻居们也常常给我讲故事、跟我闲聊，我那时听到过很多不能用常理来解释的真实故事，也在我幼小的心灵里埋下了对神明的敬畏之心。
+b. 路德：闫博士的前夫背后有大鱼。
 
+校对/发稿：飞虹
 
-
-**文字版原文：[【信仰之声】我为什么成了基督徒](https://gnews.org/zh-hans/1317914/)**
-
-作者：纽约香草山福音部 Honglu61
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
 
 
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-+1
+0
