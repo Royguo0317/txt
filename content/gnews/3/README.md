@@ -1,31 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在海鲜市场“并没有真正看到很多蝙蝠”
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1322567/)
+## 2021/05/29《云湾说未来》世界数字货币成地缘政治新战场
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1322633/)
 
-尽管主流媒体和中共都说 COVID-19 起源于中共国的一个海鲜市场，但生态健康联盟主席和武汉病毒学研究所合作者彼得·达萨克（Peter Daszak）在被国家脉冲挖掘的一个播客中坚称，他在这些市场时“并没有真正看到很多蝙蝠”。
+主持人：云影，弯弯 | 嘉宾：政清，忠勇无双 | 校对/审核：Julia Win | Page：我是球大哥
 
-达萨克（Daszak） 是武汉病毒研究所的“长期合作者”，他在 2020 年 6 月 3 日的节目“本周病毒学”中露面时，也承认美国纳税人的钱资助了其在中国共产党控制的实验室进行的研究。 ”
+[!\[\]()!\[\](https://spark.adobe.com/page/aTTq2sq4b8BEK/images/f113c686-f673-42b1-837b-a8415f31c0b8.png?asset_id=f5a863b9-121e-4829-9d7a-edac4e9b1411&amp;img_etag=%22d06d6aa2ab5d65f1d61ea6936608797c%22&amp;size=1024)](https://spark.adobe.com/page/aTTq2sq4b8BEK/images/f113c686-f673-42b1-837b-a8415f31c0b8.png?asset_id=f5a863b9-121e-4829-9d7a-edac4e9b1411&amp;img_etag=%22d06d6aa2ab5d65f1d61ea6936608797c%22&amp;size=1024)
 
-在安东尼·福奇领导的国家过敏和传染病研究所 (NIAID) 提供的 370 万美元赠款的支持下，达萨克（Daszak） 的生态健康联盟向武汉病毒学研究所提供资金正受到越来越多的审查。
+GTV视频链接：[“云湾说未来” GTV节目第26期：论数字货币王国—世界数字货币成地缘政治新战场](https://gtv.org/video/id=60b257e4f6ff4b33fb947f6e)
 
-正如他在播客中承认的那样，“我们用美国纳税人的钱在中共国的冰箱里收集了 16,000 个蝙蝠样本。” “我们是联邦政府资助的最后一个与武汉病毒研究所合作的组织，”达萨克重申。
+**躺平**——墙内年轻人的九九六、内卷、看不到机会，不得不躺平。躺平并非消极，而是一种生活态度，一种对社会的抗议。为了避免囚徒困境，躺平不啻是明智的出路，是中国版非暴力不合作运动。
 
-尽管福奇试图将他的美国国立卫生研究院 (NIH) 机构和与军方有联系的武汉实验室保持距离，但达扎克在播客中承认，他与该机构及其“蝙蝠女侠”石正丽的合作至少从 2013 年起就得到了美国政府的资助。
+**躺平币**——唤醒更多的平民百姓，前景潜力无限。
 
-NIH：“那时我们已经开始在中共国进行重复的实地考察。我们有一个野战队。当时我们正在和石正丽一起做更多的工作，并且真的在磨练，因为我们有资金走出去，从 NIH 那里做这项工作。”
+**数字货币**——部分国家已经在探讨数字货币作为储备货币，以及发行国家主权加密货币的可能。区块链让加密货币市场公开化、透明化变得可能。
 
-当被问及“恢复 SARS 的传染性分离株”时，Daszak 甚至承认“我没有做过那项工作”，然后补充道“这就是石正丽正在做的事情，是的，从我所知道的情况中培养病毒真的很难做。”
+喜币，躺平币，就是地缘政治的产物，但区块链本身突破了地域的限制，数字货币也将挑战央行发行的传统货币的权威。
 
-在长达一小时的采访中，达萨克Daszak 还透露，他在中国市场“并没有真正看到很多蝙蝠”——这是对 COVID-19 起源于武汉一个菜市场的理论的又一次打击：
+**ESG运动**，将环境、社会和公司治理因素纳入投资的评估决策中的投资活动或趋势。伦理投资、责任投资、绿色金融、可持续金融都被用来指代ESG投资理念。随着越来越多的生产企业开始关注绿色生产、绿色制造，加之环境、法律法规的完善，投资者也慢慢意识到企业环境绩效可能会影响到企业财务绩效。于是，绿色金融就开始进入投资者的视线范围。
 
-新闻来源：[thenationalpulse](https://thenationalpulse.com/breaking/watch-wuhan-lab-partner-daszak-admits-he-didnt-really-see-many-bats-in-wet-market-while-describing-studies-using-u-s-taxpayer-money/)
+**Uniswap**：Uniswap是基于以太坊的代币交换协议，是基于兑换池，而不是订单簿的去中心化交易协议。
 
-编译：Boxinglady ( 文拳）
+而所谓的兑换池，指的则是一个资金池，用户在Uniswap中交易的价格则由这个资金池中的代币比例和算法来决定。Uniswap是去中心化的，不仅跟传统的加密货币交易所不同，也跟普通的去中心化代币交易所不同。Uniswap是一组部署到以太坊网络的合约，所有的交易都在链上进行。Uniswap的交易对手并不是其它交易用户，而是跟代币池进行交易，且有自动做市的模型来计算交易价格，代币兑换价格与代币兑换池中代币的比例有关。在Uniswap中，使用最多的功能是代币之间的币币兑换交易。
 
-校对发稿Ada(马德里）
+*文章仅代表作者观点*
 
-本文仅代表个人观点，不代表 Gnews 平台
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/aTTq2sq4b8BEK/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/aTTq2sq4b8BEK/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

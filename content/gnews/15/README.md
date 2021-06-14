@@ -1,67 +1,196 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 喀秋莎新闻参考 &#8211; 2021年6月13日(星期日)
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1322419/)
+## 是时候拆分大型科技公司了，这一次是真的
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1322392/)
 
-俄罗斯莫斯科喀秋莎农场 土星
+**字幕内容:**
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01121633/ka.png)
-**一、新中国联邦新闻**
+Tucker Carlson
+塔克 卡尔森
 
-1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=ktHPf8R7xCM)、[晚间](https://www.youtube.com/watch?v=5LTLsGWWNs4)）:
+So today, Republicans in the House of Representatives
+所以今天，在众议院的共和党人
 
-Ⅰ. 第47届七大工业国集团（G7）领导峰会6月13日晚间在英国康瓦尔圆满落幕，会后发布联合公报，首度强调维护台海和平与稳定的重要性，并鼓励以和平方式解决两岸议题。
+proposed bipartisan antitrust legislation
+拟议的两党合作的反垄断立法
 
-Ⅱ. 拜登在G7结束的记者会上表示，他和G7领导人都认为现在是民主和专制的两极之战，民主国家必须站出来捍卫民主，所以全球将看到民主国家更加直接应对中共国。他和G7领导人都认为必须查清病毒来源真相，这才能避免下次病毒大流行的发生。西方各国至今无法进入武汉实验室进行实地调查，世界各国必须进入实验室调查真相。
+that could split up the tech monopolies
+这可能会分拆科技垄断公司
 
-2. 美国务卿安东尼·布林肯6月13日在哥伦比亚广播公司的“面对全国”节目中表示，中共国必须配合美国和世界卫生组织的调查，调查中共病毒大流行的起源。
+Congressman Ken Buck is the top Republican on the antitrust subcommittee.
+国会议员肯·巴克是反垄断小组委员会的最高共和党人
 
-3. 福克斯新闻频道的克里斯·华莱士在本周播出的“福克斯新闻周日”节目中就川普政府对中共病毒大流行的起源的调查向前国务卿迈克·蓬佩奥提问，蓬佩奥对病毒来自武汉实验室泄露持完全肯定态度。
+And he joins us tonight.
+他今晚加入我们的节目
 
-4. 七国集团领导人6月13日就新疆的人权问题斥责中共国，呼吁香港保持高度自治，并要求对中共病毒的来源进行全面彻底的调查。
+Congressman, thanks so much for coming up,
+国会议员，非常感谢你的到来
 
-5. 英国执政的保守党前领导人伊恩·邓肯·史密斯爵士(Sir Iain Duncan Smith)表示，七国集团必须放弃“贪婪地冲向中共国”，以便适当地对付中共的独裁政权。
+what would it take to break I mean
+需要什么才能打破，我的意思
 
-6. 根据中共驻维也纳大使馆的一条推文，中共国要求美国停止在重启伊朗核协议的谈判中“犹豫不决”，“果断”采取行动彻底取消对伊朗的制裁。
+Google is clearly monopoly by any definition,
+从任何定义来看，谷歌显然是科技垄断企业
 
-7. 中共国6月13日尖锐地告诫七国集团领导人，由 “小 “国家集团决定世界命运的日子已经一去不复返了。
+what would it take to break up Google
+要怎样才能拆分谷歌？
 
-8. 中共媒体《环球时报》6月11日报道，目前在中共国南方的广东省，60岁及以上的人占中共病毒感染者的30%。
+is that possible at this point？
+在这一点上，有可能吗？
 
-9. 在七国集团领导人峰会讨论了全球中共病毒大流行的原因后，世界卫生组织负责人6月12日敦促中共配合调查中共病毒的起源。世卫组织总干事谭德赛博士在通过视频参加部分峰会后对记者说，他希望在调查病毒来源的下一阶段进行时能有更好的合作和透明度。
+Ken Buck (Congressman)
+肯·巴克（国会议员）
 
-10. 德国总理默克尔6月13日警告称，只有北京在劳工权利方面取得进展，欧盟才会批准其与中共的投资协议。
+Well, Tucker, I think the key is
+好的，塔克，我认为关键的是
 
-11. 工党议员斯蒂芬·金诺克和前保守党领袖伊恩·邓肯·史密斯爵士联合呼吁G7集团对中共在香港和中共国其他地方侵犯人权的行为采取行动。今年早些时候，这两位议员都因支持对参与迫害中共国新疆地区维吾尔族人的中共官员进行制裁而受到中共政府的制裁。
+that we introduce competition into the marketplace,
+我们将竞争引入市场
 
-12. 据国家媒体6月13日报道，土库曼斯坦的领导人表示，他的国家因一条价值数十亿美元的天然气管道和另一个天然气项目而欠中共国的债务已经“全部还清”。
+there’s, there’s no way I guess there is a way
+那没有方法，我想那是有个办法
 
-13. 英国电信公司去年夏天被告知，从2021年1月起，将禁止购买中共公司5G设备，到2027年，他们将不得不拆除他们已经安装的任何设备。华为技术公司表示英国运营单位，其2020年的销售额下降了27%，至9.13亿英镑，而该季度的利息和税前运营利润下降至3640万英镑。
+but I think it’d be an incredible disruption to our economy
+但我认为，如果进入并拆散像谷歌这样的公司
 
-14. 鲍里斯·约翰逊6月13日将会警告，北约必须解决中共国构成的日益严重的威胁，并保持其对俄罗斯的传统关注。中共外交日益强硬，包括对香港人权的压制，令部长们感到震惊。
+to go in and break up a company like Google,
+将对我们的经济造成难以置信的破坏
 
-15. 白宫国家安全顾问杰克·沙利文6月13日表示，七国集团领导人围绕维护民主和技术竞赛等挑战方面与中共进行“对抗和竞争”的需求而团结起来。
+But we can certainly make sure
+但我们当然可以确保
 
-16. 远东外交事务专家章家敦表示，在全球中共病毒大流行的情况下，乔·拜登总统对中共国的软弱立场最终将使习近平主席更加大胆。
+that Google doesn’t grow unfairly
+谷歌不会不公平地增长
 
-**二、世界新闻**
+that Google doesn’t cheat and that Google has competitors in the marketplace
+谷歌不作弊，谷歌在市场上有竞争对手
 
-1. 据国际文传电讯社6月 13日报道，俄罗斯总统弗拉基米尔·普京表示，他预计本周与美国总统乔·拜登的峰会将有助于建立两国之间的对话，并恢复个人联系。
+so those that want to get their, their version of a fact out there,
+所以那些想要得到他们的事实看法的人
 
-2. 以色列总理本雅明·内塔尼亚胡创纪录的12年执政生涯将于6月13日结束，届时议会将对新政府进行投票，迎来一个承诺要弥合因他的离开而产生的激烈分裂的国家的政府。
+their views out they have that opportunity,
+他们有机会发表意见
 
-3. 一位外交人士说，G7领导人将在6月13日结束他们为期三天的会谈，呼吁台湾海峡两岸和平与稳定，这一进展可能会激怒中共。
+We have it in cable news,
+我们在有线电视新闻中可以播放
 
-4. 俄罗斯总统弗拉基米尔·普京在下周与美国总统会晤之前，在太平洋进行了冷战结束以来最大规模的海军演习，展示了武力。
+we have it with newspapers
+我们在报纸上可以刊登
 
-5. 最近在宾夕法尼亚州富尔顿县进行并于 2021 年 2 月发布的选举评估发现，该县的自治领投票机上存在 Microsoft SQL 数据库。根据富尔顿县的报告，分析师发现该软件“没有正当理由”安装在系统上。他们还报告说，多米尼（Dominion ）未能填写有关该软件的适当表格。
+and we should have it online,
+我们应该把它放在网上
 
-6. 前国务卿迈克·蓬佩奥说，在美国高等教育机构发生的事情比任何其他问题都让他“害怕”。他说，“我们无法说出自己的想法，人们想对那些有保守思想的人施加压力，并剥夺他们说话的空间，我们现在指责那些只是说一些关于如何平等对待每个人的常识的人……被指控为种族主义者。在我们的民主制度中，在我们的共和国中，这些都是危险的事情”。
+and it’s because the antitrust laws haven’t been updated in years,
+这是因为反垄断法多年没有更新
 
-7. 台湾总统办公室表示，在这个被中共国宣称占领的岛屿赢得主要民主国家七国集团前所未有的支持后，台湾将成为一支“向善的力量”，并继续寻求更大的国际支持。
+Congress hasn’t done its article one job
+国会还没有完成它的第一条的工作
 
-8. 随着世界上最富有的民主国家发誓要对抗北京的经济胁迫，澳大利亚护卫舰将与英国航母打击群一起在印太地区进行海军演习，以显示对中共国的力量。
+that we need to update these laws now.
+我们现在需要更新这些法律
+
+Tucker Carlson
+塔克 卡尔森
+
+What do you think it was wise for the US government
+你认为这对美国政府来说是明智的吗
+
+to break up Standard Oil 100 years ago that the sugar trust.
+100年前拆分标准石油公司的糖业信托
+
+Many other monopolies,
+许多其他垄断企业
+
+I mean that that seemed to spawn,
+我的意思是那似乎产生了
+
+sort of the best time in American history
+这是美国历史上最好的时光
+
+when we did that.
+当时我们做到了
+
+Ken Buck
+肯·巴克
+
+Absolutely. and, and republicans played a large role in that
+绝对的，共和党人在这方面发挥了重要作用
+
+and so I think now what we’re looking at is something
+所以我想现在我们正在看的是什么
+
+that’s more akin to the telecommunications situation
+这更类似于电信的情况
+
+where we’re able to take your cell phone number
+我们可以拿你的电话号码
+
+and go from one carrier to a different carrier
+而且从一个运营商转到另一个运营商
+
+what we want to make sure is
+我们要确定的是
+
+that you can take your search history from Google,
+你可以从谷歌获取你的搜索历史记录
+
+and take it from that company to a different company.
+并将其从该公司带到另一家公司
+
+They know where you are right now.
+他们知道你现在在哪里
+
+Tucker, they know what you have purchased,
+塔克，他们知道你买过什么
+
+they know your medical history they know everything about you.
+他们了解你的病史，他们了解你的一切
+
+And if you aren’t in control of that data
+如果你无法控制这些数据
+
+and some monopoly is it’s very dangerous,
+而且有些垄断是很危险的
+
+not just to our speech rights,
+不仅是为了我们的言论权利
+
+but to our personal safety.
+也是为了我们的人身安全
+
+Tucker Carlson
+塔克 卡尔森
+
+Yeah, I mean, they control the elections
+是的，我的意思是，他们控制了选举
+
+they control speech they control what you think.
+他们控制了言论，他们控制了你的想法。
+
+Yeah, I would say it’s getting out of hand
+是的，我说它已经失控了
+
+Congressman, I appreciate coming on. Thank you.
+议员先生，我很高兴你能来。 谢谢你。
+
+Ken Buck
+肯·巴克
+
+Thank you.
+谢谢你
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 [https://twitter.com/repkenbuck/status/1403552096201367554?s=24](https://twitter.com/repkenbuck/status/1403552096201367554?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
