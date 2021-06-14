@@ -1,26 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 普京期待直接对话拜登 并希望建立“合作机制”
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1321697/)
+## 【独立观点】无视中共反对，拜登政府与台湾讨论商贸合作
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1321913/)
 
-#### 撰稿：yyshere
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14083843/%E5%8D%8E%E5%B0%94%E8%A1%97%E6%97%A5%E6%8A%A5.jpg)图片来源：WSJ 
-援引克里姆林宫的消息，俄罗斯总统普京表示，他期待着与美国总统拜登本周三即6月15号在日内瓦的会晤中进行“直接对话”。
+作者：纽约香草山健身部Ivy001
 
-普京在接受俄罗斯国家电视台的采访时表示，如果这次会晤能促成建立一个“合作机制”，在共同利益领域，包括战略稳定、地区冲突和环境方面的合作畅通无阻，那么这次会晤就不会“白费”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
 
-普京还赞扬拜登延长了仅存的俄美核军备控制条约，称这是一个“专业决定”。“作为他们的第一步，拜登总统领导的新政府延长了《新削减战略武器条约》（即限制部署核弹头的数量）。我认为这是一个非常重要的步骤。总的来说，这体现了拜登总统的专业精神。这不是一个自发的决定，它是基于对世界局势、我们的国家之间关系及其前景的专业分析。这是一个专业的决定。”
 
-普京还表示，如果美国同意引渡网络犯罪的罪犯，俄罗斯将在引渡网络罪犯方面进行合作。
 
-普京同时还发出了一个新的警告，即乌克兰加入北约的前景对俄罗斯来说是不可接受的。普京对此表示，“在高级别会议之前，双方总是试图减少负面言论，以创造有利于工作的适当条件。这没有什么特别之处。我不会用任何东西来欺骗自己。”
 
-此外普京还指出，“（峰会将有助于）恢复我们的个人接触、关系，建立直接对话，在代表共同利益的领域建立合作的工作机制。确实存在着这样的领域。美国方面也在谈论同样的问题。我基本上同意他们的观点。确实有一些共同感兴趣的问题，如战略稳定、区域冲突、在全球意义上保护环境。在一些问题上，我们确实可以有效地工作。”“我已经谈到了波兰和罗马尼亚。导弹防御系统已经在那里部署，打击系统也可以安装。但我们撤回了我们在古巴的基地。我们没有这样做，而我们的伙伴恰恰在从事这个工作。我确实相信并希望这次个人会晤，我重申，至少将为讨论这些问题创造条件。”
 
-消息来源：俄罗斯政府网站
+6月10日，美国贸易代表戴琪与台湾贸易代表邓振中就加深双方商业关系举行视讯会议。戴琪表示：“美台商业及投资关系十分重要。美国需要与台湾在多边组织框架下，在诸多双方优先的领域合作。”两位官员共同表示，将恢复自2016年中止的美台贸易对话。
 
-（本文系作者个人观点）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14083604/%E6%88%B4%E7%90%AA.jpg)美国贸易代表戴琪 图片来源：VOA 
+
+台湾方面已经发布文告予以证实，美台贸易对话就在未来几周举行。文告称，邓振中表明了台湾与美国全面加深双边经贸关系的强烈愿望。台湾方面称赞双方举行了“和谐而具有建设性”的对话，并表示台湾要在国际供应链方面扮演重要角色。
+
+拜登政府显然做出的是挑战中共的决定，尽管北京方面一再警告，但美台已经开启了首次政府间高层次正式接触。毕竟，拥有诸如台积电、鸿海、联电、和硕等著名公司的台湾，在世界供应链上拥有非常重要的地位，尤其是拥有芯片产能半壁江山的台积电。美台政府高层直接对话，有助于促进彼此的贸易发展，和政府之间的良性循环。
+
+事实上，美国一直是台湾的最强大的盟友和伙伴，并且是台海地区最强大的维和力量。之前，美国政府为了保持与中共的友好关系，只能选择台海模糊战略。最近这几个月，美国政府与台湾互动频繁，从军方交流到国会议员到访，再到政府高层商务贸易对话，拜登政府对中共的抗议置若罔闻。
+
+由此可见，拜登政府对中共由之前的温和模糊战略，转变成强势的反制竞争战略。台湾这张牌，中共已经丧失主动权。
+
+参考链接：
+
+[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210610-%E4%B8%8D%E9%A1%BE%E5%8C%97%E4%BA%AC%E5%8F%8D%E5%AF%B9%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E9%A6%96%E6%AC%A1%E4%B8%8E%E5%8F%B0%E6%B9%BE%E8%AE%A8%E8%AE%BA%E5%95%86%E8%B4%B8%E5%90%88%E4%BD%9C](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210610-%E4%B8%8D%E9%A1%BE%E5%8C%97%E4%BA%AC%E5%8F%8D%E5%AF%B9-%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E9%A6%96%E6%AC%A1%E4%B8%8E%E5%8F%B0%E6%B9%BE%E8%AE%A8%E8%AE%BA%E5%95%86%E8%B4%B8%E5%90%88%E4%BD%9C)
+
+[https://www.voachinese.com/a/USTR-Tai-talks-to-Taiwan-chief-trade-negotiator-20210610/5923858.html](https://www.voachinese.com/a/USTR-Tai-talks-to-Taiwan-chief-trade-negotiator-20210610/5923858.html)
+
+[https://www.reuters.com/article/%E5%8F%B0%E6%B9%BE%E7%BB%8F%E6%B5%8E%E9%83%A8%EF%BC%9A%E5%80%BC%E5%8F%B0%E7%BE%8E%E5%85%B3%E7%B3%BB%E6%9C%80%E5%A5%BD%E6%97%B6%E5%88%BB%EF%BC%8C%E5%B0%86%E5%8A%AA%E5%8A%9B%E4%B8%8E%E7%BE%8E%E6%B4%BD%E8%B0%88%E5%8F%8C%E8%BE%B9%E7%BB%8F%E8%B4%B8%E5%8D%8F%E5%AE%9A-idCNL4S2HD10S](https://www.reuters.com/article/%E5%8F%B0%E6%B9%BE%E7%BB%8F%E6%B5%8E%E9%83%A8%EF%BC%9A%E5%80%BC%E5%8F%B0%E7%BE%8E%E5%85%B3%E7%B3%BB%E6%9C%80%E5%A5%BD%E6%97%B6%E5%88%BB%EF%BC%8C%E5%B0%86%E5%8A%AA%E5%8A%9B%E4%B8%8E%E7%BE%8E%E6%B4%BD%E8%B0%88%E5%8F%8C%E8%BE%B9%E7%BB%8F%E8%B4%B8%E5%8D%8F%E5%AE%9A-idCNL4S2HD10S)
+
+编辑：飞虹 校对/发稿：小小安
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文)**
+
+[**纽约香草山农场Twitter(****英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+
+
+
+
 
 0
