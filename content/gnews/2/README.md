@@ -1,109 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】战场归来（二）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1321041/)
+## 【路德即时简报】2021年6月13日晚：G7联合公报首提台海和平
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1321157/)
 
-## – ＂文明聊天室＂之周年庆访述– 
-– 铭记现场小瞬间 –
-– 无关历史大话题 –
+作者：香草山写作组 GBwater
 
-作者：纽约香草山健身部 澄道
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
 
-戕害伤口之病毒
-治愈不难
-铲除触及你我灵魂深处余毒难
-且难于上青天
+（路德社2021年6月13日晚，路博艾）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14015802/%E5%9B%BE%E7%89%873-10.png)
+G7联合声明
 
-说文明话
-做文明事
-重塑新中国联邦文明人
+1. 博博士：中国空军正在为7月1日的庆祝活动练习如何飞出7.1和100的队形，和打仗完全没关系。
 
-主题：
-硝烟庆周年战场勇归来
-付题：
-新中国联邦周年纪之感动瞬间（系列-1）
-美东时间：
-一三五晚九时
-文明聊天室
-（G TV）
+2. 七国集团在《联合声明》中呼吁台湾海峡两岸和平，并对新冠的起源进行调查。这是36年来，七国首提台湾。
 
-主述人：
-小白白战友（二号机位）
-近距离
-接触者
+a. 拜登说，民主正受到专制威胁，世界必须进入实验室，调查新冠的来源。拜登上台首提调查病毒。路德：最后通牒很快就会到来。所有实验室都要开放调查。
 
-煤油灯勇士（近万照片拍摄者）
-背后猛料
-值得关注
+b. 中共说小团体不能统治世界。
 
-访述人（挠字工）：
-澄道来了
+c. 路德：《新大西洋宪章》讨论如何完善后中共时代的国际秩序，不能放任独裁国家，在未来，只有民主国家才能加入国际社会。
 
-策划（推流）：
-煤油灯
+1. 塞林博士在推特上发特种部队空降兵标志。他说有人在威胁一个退役的绿色贝雷帽人员。
 
-＂战场归来＂
-不乏诸多
-战利品之
-战友＂亮剑＂
 
-近十四小时
-＂持续作战＂
-怎能少得了
-体味战场＂硝烟＂
+a. 博博士：上校是前线作战最高级别了。
 
-分享
-刚刚受用的
-把握
-现在拥有的
+b. 路德：闫博士的前夫背后有大鱼。
 
-即为战友
-更为自身
+校对/发稿：飞虹
 
-夯实
-灭共之地基
-见证
-你我之成长
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
 
-即为未来
-更为现在
 
-文化之再久再广
-不糟乏粕
-文明之无短无缺
-传正承道
-
-澄清思路头脑风暴
-＂文明聊天室＂之系统系列
-深度访述战场归来
-…..尾尾道来
-了却宿愿
-聚集庆典礼
-灭共塑身行
-
-@澄道来了
-@两小时语音毕 急出粮
-@爱动爱议码06141
-
-校对/发稿：雪梨
-
-![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg]()![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

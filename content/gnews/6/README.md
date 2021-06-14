@@ -1,45 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】我为什么成了基督徒
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1320983/)
+## 福克斯刊文：NYU医学专家Dr. Marc Siegel的访谈和文章（玫瑰看新闻2021/06/07 第100期）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1321104/)
 
-配音：香草山福音部 Daxia
+本期焦点新闻摘要：
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+1.福克斯刊文：NYU医学专家Dr. Marc Siegel的访谈和文章
 
+2.闫丽梦博士6月2日最新发推：提请世界注意！
 
+3.全球最大肉品供应商JBS：发起网络攻击的黑客极可能来自俄罗斯
 
+4.马来西亚就中国军机“可疑的”活动召见中国大使
 
+5.外交官称欧盟将在经济制裁前把白俄罗斯航空列入黑名单
 
+6.中共国江苏一人感染H10N3禽流感专家称偶发跨种传播
 
+7.章家敦称【美国纳税人自2014年开始资助中共国“针对美国的生物武器计划”】
 
-60年代，我出生在一个南方城市。在我小的时候，父母因为工作很忙，就把我送到农村的外公外婆家，我在他们的呵护下度过了快乐的童年。
+8.日本首度发现新变异病毒株由英国变异病毒株再变异
 
-外公外婆所处的农村总的来说是个民风淳朴的地方。在那里，人们普遍对神明有一种天然的敬畏。逢年过节时，当地人在家里一定会祭拜神明，或者是祭拜祖先。每当这个时候，外公外婆总是让我在门外一边玩，一边注意观察是否有外人前来。我在老家的那几年，外公外婆家的祭拜一直是暗暗地做，但从不间断。老家的邻居们也常常给我讲故事、跟我闲聊，我那时听到过很多不能用常理来解释的真实故事，也在我幼小的心灵里埋下了对神明的敬畏之心。
+9.世界卫生组织宣布中共国科兴疫苗列入「紧急使用清单」
 
+10.中共国家药监局与阿里、京东等网络售药平台座谈要求严格落实平台责任
 
-
-**文字版原文：[【信仰之声】我为什么成了基督徒](https://gnews.org/zh-hans/1317914/)**
-
-作者：纽约香草山福音部 Honglu61
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+11.中共病毒新闻：接种后5分钟即死亡！内部人士：国产疫苗对变种病毒无效
 
 +1
