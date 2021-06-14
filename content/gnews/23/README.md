@@ -1,33 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北约正准备与中共国发生更激烈的冲突
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1321959/)
+## 【独立观点】无视中共反对，拜登政府与台湾讨论商贸合作
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1321913/)
 
-信息来源：德国世界报网络版
-发布时间：2021年6月14日
-翻译 /整理/ 简评： Shuizhuyu
+作者：纽约香草山健身部Ivy001
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01064052/NATO.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
 
 
-北约把目光投向了中共国。这体现在峰会的最终宣言中，根据一份报告，成员国达成了一致。美国总统拜登承诺：“我想让整个欧洲都知道美国在那里。”
 
-在多年的不情愿之后，北约希望更加激烈地应对来自中共国的可能威胁。 “中共国及其国际政治日益增长的影响力可能会带来我们作为一个联盟必须共同应对的挑战，”德国新闻社在周一布鲁塞尔峰会的最终声明中透露。未来共有30个国家的联盟将涉及中共国，“以捍卫联盟的安全利益”。
 
-宣言还呼吁中华人民共和国“遵守其国际义务”，履行“大国作用”。此外，中共国应提高其核能力的透明度，并采取建立信任措施。根据德国新闻社的消息，该文件于周一在国家元首和政府首脑全体会议开始前不久被联盟所有成员接受。美国新总统乔拜登首次参加。
 
-与拜登的第一次峰会, 该宣言是中共国未来能够在北约战略构想中发挥作用的基石。当前的 2010 版本甚至没有提到北京。北约秘书长延斯·斯托尔滕贝格强调，北约愿继续与中方在应对气候变化、军控等问题上开展合作。 “我们不会进入新的冷战。中共国不是我们的对手，也不是我们的敌人。”但是，我们必须应对中共国崛起带来的挑战。
+6月10日，美国贸易代表戴琪与台湾贸易代表邓振中就加深双方商业关系举行视讯会议。戴琪表示：“美台商业及投资关系十分重要。美国需要与台湾在多边组织框架下，在诸多双方优先的领域合作。”两位官员共同表示，将恢复自2016年中止的美台贸易对话。
 
-峰会的其他核心议题是与俄罗斯的关系和“北约 2030”改革倡议。斯托尔滕贝格形容与俄罗斯的关系“比冷战结束以来的情况更糟”。尽管如此，北约仍然对对话持开放态度。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14083604/%E6%88%B4%E7%90%AA.jpg)美国贸易代表戴琪 图片来源：VOA 
 
-最高会议特别重要，因为这是与拜登的第一次会议。美国新总统承诺与北约关系正常化，在他的前任唐纳德特朗普领导下，这种关系非常紧张。同时，他也是北约对华转变路线的推动力。他认为中共国是唯一可以挑战传统国际体系并质疑稳定性的竞争者。
+台湾方面已经发布文告予以证实，美台贸易对话就在未来几周举行。文告称，邓振中表明了台湾与美国全面加深双边经贸关系的强烈愿望。台湾方面称赞双方举行了“和谐而具有建设性”的对话，并表示台湾要在国际供应链方面扮演重要角色。
 
-简评： G7峰会已经结束， 最后的声明是要检查民主自由法制的西方价值观。 大家都已经非常清楚了。 一个峰会结束了， 另一个也非常重要的峰会， 北约峰会马上要开始， 北约秘书长提出愿意和中方应对气候等问题， 但是必须应对中共国的崛起带来的挑战。 中共国已经成为了质疑国际体系稳定的竞争者， 言外之意就是， 中共你是世界体系的破坏者。
+拜登政府显然做出的是挑战中共的决定，尽管北京方面一再警告，但美台已经开启了首次政府间高层次正式接触。毕竟，拥有诸如台积电、鸿海、联电、和硕等著名公司的台湾，在世界供应链上拥有非常重要的地位，尤其是拥有芯片产能半壁江山的台积电。美台政府高层直接对话，有助于促进彼此的贸易发展，和政府之间的良性循环。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+事实上，美国一直是台湾的最强大的盟友和伙伴，并且是台海地区最强大的维和力量。之前，美国政府为了保持与中共的友好关系，只能选择台海模糊战略。最近这几个月，美国政府与台湾互动频繁，从军方交流到国会议员到访，再到政府高层商务贸易对话，拜登政府对中共的抗议置若罔闻。
 
-🔗[Nato-bereitet-sich-auf-staerkere-Auseinandersetzung-mit-China-vor](https://www.welt.de/politik/ausland/article231812663/Nato-bereitet-sich-auf-staerkere-Auseinandersetzung-mit-China-vor.html)
+由此可见，拜登政府对中共由之前的温和模糊战略，转变成强势的反制竞争战略。台湾这张牌，中共已经丧失主动权。
 
-+3
+参考链接：
+
+[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210610-%E4%B8%8D%E9%A1%BE%E5%8C%97%E4%BA%AC%E5%8F%8D%E5%AF%B9%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E9%A6%96%E6%AC%A1%E4%B8%8E%E5%8F%B0%E6%B9%BE%E8%AE%A8%E8%AE%BA%E5%95%86%E8%B4%B8%E5%90%88%E4%BD%9C](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210610-%E4%B8%8D%E9%A1%BE%E5%8C%97%E4%BA%AC%E5%8F%8D%E5%AF%B9-%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E9%A6%96%E6%AC%A1%E4%B8%8E%E5%8F%B0%E6%B9%BE%E8%AE%A8%E8%AE%BA%E5%95%86%E8%B4%B8%E5%90%88%E4%BD%9C)
+
+[https://www.voachinese.com/a/USTR-Tai-talks-to-Taiwan-chief-trade-negotiator-20210610/5923858.html](https://www.voachinese.com/a/USTR-Tai-talks-to-Taiwan-chief-trade-negotiator-20210610/5923858.html)
+
+[https://www.reuters.com/article/%E5%8F%B0%E6%B9%BE%E7%BB%8F%E6%B5%8E%E9%83%A8%EF%BC%9A%E5%80%BC%E5%8F%B0%E7%BE%8E%E5%85%B3%E7%B3%BB%E6%9C%80%E5%A5%BD%E6%97%B6%E5%88%BB%EF%BC%8C%E5%B0%86%E5%8A%AA%E5%8A%9B%E4%B8%8E%E7%BE%8E%E6%B4%BD%E8%B0%88%E5%8F%8C%E8%BE%B9%E7%BB%8F%E8%B4%B8%E5%8D%8F%E5%AE%9A-idCNL4S2HD10S](https://www.reuters.com/article/%E5%8F%B0%E6%B9%BE%E7%BB%8F%E6%B5%8E%E9%83%A8%EF%BC%9A%E5%80%BC%E5%8F%B0%E7%BE%8E%E5%85%B3%E7%B3%BB%E6%9C%80%E5%A5%BD%E6%97%B6%E5%88%BB%EF%BC%8C%E5%B0%86%E5%8A%AA%E5%8A%9B%E4%B8%8E%E7%BE%8E%E6%B4%BD%E8%B0%88%E5%8F%8C%E8%BE%B9%E7%BB%8F%E8%B4%B8%E5%8D%8F%E5%AE%9A-idCNL4S2HD10S)
+
+编辑：飞虹 校对/发稿：小小安
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文)**
+
+[**纽约香草山农场Twitter(****英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+
+
+
+
+
+0

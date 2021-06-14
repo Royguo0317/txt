@@ -1,18 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】6/13/2021文贵盖特：人类即将进入一个历史时刻，战友们一定要团结
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1322115/)
+## 美国防部长发布对抗中国的内部指令具体举措细节不详（玫瑰看新闻六月十日）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1322153/)
 
-制作： 【彩虹桥】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14105834/Page_00001-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14105907/Page_00002-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14105945/Page_00003-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110021/Page_00004-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110058/Page_00005-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110136/Page_00006-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110221/Page_00007-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110300/Page_00008-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110330/Page_00009-scaled.jpg)
 
-2022年真是个大年，那么共产党的内部的政治斗争，他们很清楚，经济上是绝对撑不住的，房地产倒塌，金融就倒塌；房地产和金融倒塌，所有的所谓的科技股都扯淡。这是肯定的。
-
-那么国内经济不行，国外的经济就能行吗？那不可能。如果美国、欧洲的经济今年年底进入了崩塌阶段的话，共产党就更惨了。所以说爆料革命的兄弟姐妹们，我们一定要搂住，要沉住气。我们要团结，只有我们大家一起团结的时候，才能迎接这场人类的经济、政治板块的大风暴，只有我们团结才能做到这个，才能保护我们的兄弟姐妹战友们。人类上一次又一次的病毒，人类上所有的伟大，人类上所有的文明，人类所有的所谓的英雄，都诞生于所谓的病毒和人类的战争之中，他没办法，这就是人类的命运。
-
-所以说这次人类被共产党放毒和经济的崩塌的同时，和世界政治板块变化的同时，最大受益者一定是新中国联邦和爆料革命，关键是我们战友们要团结，一定要团结，一定要珍惜我们现在拥有的一切，
-珍惜我们在人类上只有我们拥有的这个希望和机会，珍惜我们每个战友、爆料革命、新中国联邦给大家带来的这个机会。
-
-到今年年底再看新中国联邦，再看爆料革命的时候，你会觉得很多事情过去都是笑话一样。到了七月份的时候，你就会明白，这个世界会发生什么样的事。把眼界放远点，让自己沉住气，不要只看眼前那一点，爆料革命这个运动是大家的，没有这个运动和新中国联邦这个整个平台，我们什么都狗屁不是
 
 0

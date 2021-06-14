@@ -1,28 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 雷霆行动，势必灭共——日本东京樱花团农场“6.4线下活动”第一天
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1322040/)
+## 【各抒己见】我与新中国联邦一起成长
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1322076/)
 
-记者：东京樱花团 / Peter Wong & 捆绑CCP一千年
-![](https://lh5.googleusercontent.com/LCN8UmkEXd04FxTVakND7V-EvJA8U1cI758E4jZuAFrJBQBHpZ2ojWroFOhc4Y6ueVt2fB9wPF4qcvGBY2Hbgf4RYTIhF61AgdgXtTKxyds3R-Tiro93KUtAH-Py6Cxo_PjcO1e5)
-日本东京时间5月29日讯，作为新中国联邦“6.4线下活动”，“东京——大阪联动”行动在美丽的东京高尾山和历史悠久的大阪城公园同时开始。樱花团农场的战友们自发组建的充满朝气的“灭共战士团”，威武地向着目的地进发。本次行动旨在向日本和国际社会发出我们的声音——灭共是人类正义的必须。发出新中国联邦人响亮的灭共口号：Take down the CCP。
-![](https://lh3.googleusercontent.com/u_0kxQExh3j7w1fzPGs3ub961v2dCjAGxJpqX_e_Lu_qc44GNLQv7-OAv7aVbpUbvhbg0IO-EojiM8vQA2ZJNwIrqxLjrPla-0PcUHdJsKRqLAlGKWo7yvwiYXjU9wmRzlQPYmQD)
-提到日本的山，虽然富士山最为出名，但东京都的西面也有一座“神山”深受民众的喜爱，这就是高尾山。高尾山位于东京都八王子市，海拔599米，是1,697千米长的东海自然步道的起点。1950年，高尾山与其周边的小佛、景信、阵场山等一同被东京都指定为都立自然公园。1976年，被环境厅指定为明治之森高尾国定公园。战友们身穿蓝色战服，手持新中国联邦国旗，徒步攀登“高尾山”，在爬山过程中向日本民众展示了新中国人的文明形象，以及宣传中共的邪恶本质与病毒真相。
-![](https://lh6.googleusercontent.com/5GjDcRNoHobg6KcC8iIVJPG8pXfmP_mriT_Vr5JIkm8EzaAo5gPGQL4ajh-0GzWWvTeVcoRRCmMKeBTBTJtKPU-NbUD1DYbt-CX4G9mA0MwQrggyw6-xwBGPDgnJ1NrZV_U0ZS6U)
-（战友们在药王院虔诚为中国人民祈祷健康安全，早日灭共）
+作者：喜马拉雅东京樱花团 / 小小星
+![](https://lh3.googleusercontent.com/D4t7YcatvqvLIctDhNMHffYlgOD-JcxngxSclYDB31w4-tQMVgKxKgzzx1xU2htet9GHNJRNkVNw3ZksbEgdXJxnzWUsa3xzD5JS7Dl-wj3KjBb5AzPK-FTZS1p1ThGlHJEpV9qW)（图片由“北美教练（闻佑）”战友设计）
+从2017年郭先生爆料革命的那天起，就每天跟随着，越来越多的人每天跟着七哥一起爆料。天天等待七哥平安出现。他的言行牵动着千万人的心。
 
-山中有744年，由圣武天皇诏建的高尾山药王院，是日本佛教真言宗智山派的三大本山之一。该寺院目前主要以本堂所供奉的大权现和天狗像而著名。高尾山的山顶设有称为“十三州大见晴台”的展望台和高尾山游客中心，在能见度良好时，可以眺望富士山和房总半岛。
+从自己的事情说起。给我们开智。让我们看清了CCP是怎样抢夺私人企业家财产的。又是通过一个个假私企实则国企（如海航），把全中国人民的钱都汇集了海外。流进了CCP盗国贼家族的账户上，我们听得惊掉了下巴。郭先生用一个又一个事实告诉我们盗国贼是怎样把中国盗空的。
 
-由于可以当日往返，游客能够轻松方便地享受山林漫步，自古就是日本人出游的好去处。《米其林绿色指南》于2007年将其评为最高级别的三星景点。2017年登山人数更是达到了300万人次，甚至超过了富士山，被称为世界上登山人数最多的山。
-![](https://lh6.googleusercontent.com/warWGEDQlTzQ4S5h7raOt771Az72WI4dp2Mk037LbY0miEpm-fZFMaPE9EnpGSdoXka3HZyhncLSCfmBdE63WJAc029PxYjDE2RW3VtWZbrtpVsv2xiEq7yraAtiVAkP1Eq-IJ11)
-高尾山是世界上登山人数最多的名山，日本东京樱花团农场将此作为纪念新中国联邦成立一周年“6.4线下活动”的第一站，寓意“新中国联邦”将和高尾山一样，会得到世界上最多正义人士的认可，一起喊出：Take down the CCP！
-![](https://lh5.googleusercontent.com/wQcPuQYHByo56DQPzj28tE51hOdJ7X3iv0omXKUiM1-24zwzGoQFOiGkG8DuAIlFL_-gloU321Y2qEk3gushlLEUZDYAqNUpuQKZpq5LMtOCCDyirRem8H_wSPU5hAVDsMtD5X0t)
-本次活动在新中国联邦宣言发表一周年之际，在中共病毒疫情肆虐下，又不幸处于日本政府再次发布疫情紧急事态宣言的大流行背景下，高尾山作为东京地区非常人气的灵山、大阪城公园作为大阪市地标性建筑，此刻却成为了新中国联邦人宣传爆料革命绝佳场所，战友们不畏艰险，做好个人防护，在山上和公园内巡游，沿途给东京和大阪市民宣传并分发中共病毒真相的资料，以及揭露CCP反人类犯罪事实。同时用GTV直播的形式和全球各地战友连线互动方式，形成线上线下声势浩大的灭共宣传战。日本樱花团农场将继续展开线下活动，将在更多日本名胜和文化遗产处留下新中国联邦的足迹，一边给新中国联邦庆生，一边势必向世界大声宣告“中共不等于中国人”。
+在跟随爆料革命的两年中，我与战友们一起成长，一起开智。彻底认清了CCP以假治国、以黑治国、以警治国以及以生殖器治国的嘴脸。随着爆料革命的成长，郭先生顺势创建了GTV和Gnews平台，这又是一场世界新闻媒体的大战。在CCP通过收买控制世界各地媒体，自媒体，散播满天假消息的报道中。我们的GTV和GNEWS成为一支独秀，闪耀着唯真的光芒！划过黑暗的天空，劈开了一条闪亮的道路。讲事实，说真话，告诉世界人们发生了什么。这本事媒体该有的几本属性，而唯独我们做到了唯真不破的媒体立场！
+
+郭先生更是在2020.6.4创建了新中国联邦！刚刚过完了一周年的生日。我们的新中国联邦人，更是让世界感受到了正义的力量！在这一年里，海外和国内的战友投入了各种战斗中。世界各地蓝色的海洋，上街游行，发传单，传播病毒真相。GTV平台战友们每天精心制作节目。GNEWS也是我们战友们撑起了这片天空。
+
+我们新中国联邦人已经遍及全球，正义满满，唯真不破，勇敢无我。在这场爆料革命中，在新中国联邦一年的成长中，我们每一个战友都是不可缺少的战士，不论是上街游行，分发揭露病毒真相传单，还是投资G系列，还有在媒体上、Gnews和盖特上，我们都在跟CCP进行着战争，把CCP隐藏深处的假丑恶一层层拨开，亮在世界人民面前，让全世界的人都看清CCP的假丑恶。“战友们灭共没你不行，灭共就缺你一个！”正如路德社所言。我行动起来吧！歼灭CCP战斗的胜利就在眼前。
+
+在这一年中，特别是我们又有了一批年轻的战友，新生的力量一起壮大，让越来越多的人了解我们，了解世界真像，和世界正义的力量联合起来，消灭CCP！
 
 *免责申明：本文只代表作者观点，与GNews网站无关。*
 *校对：喜马拉雅东京樱花团 / 東洋武士*
-*责任编辑：喜马拉雅东京樱花团 /*捆绑CCP一千年
-*发布：喜马拉雅东京樱花团 /老黑*
+*责任编辑：喜马拉雅东京樱花团 / 捆绑CCP一千年*
+*发布：喜马拉雅东京樱花团 / 老黑*
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04060740/IMG_2779.jpg)
-0
++1
