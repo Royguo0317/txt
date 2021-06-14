@@ -1,45 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】读道德经所想 第三章
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1320771/)
+## 医院工作人员不接种COVID-19疫苗遭强制解雇，诉讼却被一名联邦法官驳回
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1320793/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+编辑：华盛顿DC农场   文顾
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13224647/cc.jpg)（Getty Images）
+据《商业内幕》新闻报道，100多名医院员工对休斯顿卫理公会要求所有员工接种COVID-19疫苗的政策提起的诉讼被一名联邦法官驳回了。这些员工声称，医院的COVID-19疫苗任务迫使他们成为 “人体小白鼠”。法官却说，这些工人没有被强迫或胁迫注射疫苗。
+ 休斯顿卫理公会在今年早些时候成为全国的头条新闻，当时它宣布将要求其26,000名员工在6月7日前全面接种冠状病毒疫苗。
+ 从那时起，该医院系统已经暂停了178名未在最后期限前完成疫苗接种的员工的工作。如果他们在6月21日之前仍没有接种疫苗，他们将被正式解雇。
+ 这些员工进行了诉讼，称COVID-19疫苗是 “实验性的”，并指出没有一种疫苗得到美国食品和药物管理局的全面批准。他们在诉讼中声称，医院 “强迫其员工成为人类的’小白鼠’，作为继续工作的条件”。他们还指控医院违反了1947年的纽伦堡法典，将疫苗任务比作纳粹对集中营囚犯的医学实验。
+ 但美国地区法官林恩-休斯（Lynn Hughes）对这两种说法都不以为然，他在周六晚间的驳回令中写道，没有一个员工是被迫或被胁迫注射疫苗的。他还指出，医院没有违反纽伦堡法典，因为它是一个私人雇主，而不是政府。
+ 休斯写道：”将注射要求等同于集中营中的医学实验是不对的”，“纳粹医生对受害者进行了医学实验，造成了痛苦、残缺、永久性残疾，在许多情况下还造成了死亡。”
+ 他补充说：工人可以自由地接受或拒绝疫苗，如果他们选择后者，他们 “只需要到其他地方工作”。
+ “如果工人拒绝任务、改变办公室、提前开工或其他指令，他可能会被适当解雇。休斯写道：”每份工作都包括对工人行为的限制，以换取他的报酬。”这都是交易的一部分”。
+ 代表医院员工的律师贾里德-伍德菲尔在一份声明中告诉《商业内幕》，他打算就这一裁决向联邦上诉法院提出上诉，并在必要时向美国最高法院上诉。
+ 伍德菲说：”这只是一场更大的战争中的一场战役，以保护员工的权利，使他们不被强迫参与疫苗试验作为就业的条件，”伍德菲说。”就业不应该以你是否同意充当人体小白鼠为条件。
+ 目前，该医院已经暂停了178名错过疫苗接种期限的员工的工作。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
-
-
-
-
-
-[原文]
-
-不上贤，使民不争；不贵难得之货，使民不为盗；不见可欲，使民不乱。是以圣人之治也，虚其心，实其腹，弱其志，强其骨，恒使民无知、无欲也。使夫知不敢、弗为而已，则无不治矣。
-
-
-
-**文字版原文：[【独立观点】读道德经所想 第三章](https://gnews.org/zh-hans/1318336/)**
-
-作者：纽约香草山健身部 书记己嗝屁！
+新闻来源：https://news.yahoo.com/federal-judge-just-ruled-against-031929578.html
 
 
 
-音频处理/发稿：雪梨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+发布：闪电训练
 
 0
