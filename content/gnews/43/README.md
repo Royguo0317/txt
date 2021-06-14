@@ -1,45 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】读道德经所想 第三章
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1320771/)
+## 快乐成长的孩子才是健康的
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1320848/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+字幕听译：乐喜喜 | 字幕PR：CharlesS | 字幕： 雨中漫步 | 评论： Filon |评论翻译: 珠穆朗玛峰| 翻译PR: Marialu | Page: Daoiii
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/CmyOSc6Zc0me5/images/f1da8ead-380e-44c0-bf0f-aa54cffc88db.jpg?asset_id=6d3d8064-b5e5-42de-a943-fecbd4a686da&amp;img_etag=%224a5a71e64b97f058fead7e5c633e899d%22&amp;size=2560)](https://spark.adobe.com/page/CmyOSc6Zc0me5/images/f1da8ead-380e-44c0-bf0f-aa54cffc88db.jpg?asset_id=6d3d8064-b5e5-42de-a943-fecbd4a686da&amp;img_etag=%224a5a71e64b97f058fead7e5c633e899d%22&amp;size=1024)
 
+让孩子在感受快乐中学到知识这才是教育应该有的样子。看看视频中孩子们脸上的表情，接受过中共国教育的中国人都不陌生，这是每一个中国孩子都曾拥有过的“青春”。我们的孩子将高三毕业后称之为解放，因为度过可能短暂轻松的小学生阶段，中国孩子们的青春少年时期都会在巨大的学习压力中度过，他们是在父母的学习成绩期望中被动地学习着。为了学习，放弃了可能一切自己感兴趣的兴趣爱好。好的考试成绩被认为是唯一正确的事情。
 
+中共国的教育体制下，考出好的高考成绩被定性为唯一成功之路。只有拥有了好的高考成绩，才会被筛选成为未来社会的“栋梁”之才。千千万万本该拥有快乐童年的孩子们，被模式化的像机器人一般生产出来成为高考机器。仿佛初高中教育的目的就是要将儿童们拥有的奇思妙想的思维棱角都打磨干净，才能成为教育部门考纲下的考试成品。如此教育体制教育出来的孩子，谈何创新思维能力？当一个国家的教育体制为社会培养人才的出路只有一条时，这样的教育体制必定是狭隘落后的。亿万少年挤破头只为一个目标时，孩子们的成长注定是不快乐和不健康的。
 
+编辑：【英国伦敦喜庄园编辑部】
 
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-[原文]
-
-不上贤，使民不争；不贵难得之货，使民不为盗；不见可欲，使民不乱。是以圣人之治也，虚其心，实其腹，弱其志，强其骨，恒使民无知、无欲也。使夫知不敢、弗为而已，则无不治矣。
-
-
-
-**文字版原文：[【独立观点】读道德经所想 第三章](https://gnews.org/zh-hans/1318336/)**
-
-作者：纽约香草山健身部 书记己嗝屁！
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[!\[\]()!\[\](https://spark.adobe.com/page/BMJ5659E7D7j9/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/BMJ5659E7D7j9/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
