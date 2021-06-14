@@ -1,33 +1,112 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内时政】612香港反送中两周年，警方高度戒备如临大敌
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1320326/)
+## 众议员马特·盖茨（Matt Gaetz）：联邦调查局忽视 COVID-19 起源，情报可挽救美国人生命
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1320568/)
 
-作者：休斯顿星光农场写作部 白居易
-![This image has an empty alt attribute; its file name is Screenshot-2021-06-01-215655-2.jpg]()![This image has an empty alt attribute; its file name is Screenshot-2021-06-01-215655-2.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
-**6月12日，港警全员出动，划封锁区，设卡巡逻，驱逐试图纪念香港反送中“612”游行两周年的港民。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13164101/18-11.jpg)图片来源：立场新闻
-据自由亚洲电台报道，港警于12日下午4时许在铜锣湾部分区域划封锁区高度戒备，并在连接港岛与九龙半岛的红隧九龙出入口截查往港岛的车辆。旺角鼓油街附近有数名员警戒备，其中有员警带着代表违反港区国安法的紫旗。另外，有设置相关街站的民间组织成员被依违反“限聚令”开罚。
+**字幕内容：**
+**Matt Gaetz (Re-. FL)
+马特·盖茨(众议员-佛罗里达州）**
 
-香港职工会联盟（职工盟）及”反送中”期间成立的医管局员工阵线，下午在旺角一处天桥摆设街站（摊位），勉励港人坚守抗争。下午5时许，有10多名员警到场录影监视并以可能违反防疫规定为由警告街站超过4人。
+I am deeply concerned that the FBI had actionable intelligence,
+我非常担心 联邦调查局拥有的可操作的情报
 
-至6时许，警方要求工会街站立即解散，并以橘色带子围住职工联盟和医管局员工阵线成员，表示将依“限聚令”向他们开出罚单。
+that could have saved American lives,
+这些情报本可以挽救美国人的生命
 
-2019年6月12日，上万名反对港府修订“逃犯条例”草案的民众聚集在立法会周边道路抗议，以阻止立法会二读“逃犯条例”草案。抗议群众后来遭警方以催泪瓦斯、橡胶子弹等方式暴力驱散。至2019年12月，警方公布被捕人士超过6000人，整场运动期间，社交媒体亦出现大量男女青少年失踪的消息，这些人迄今仍杳无音信。有部分参与运动人士指，这些失踪的运动支持者可能被警方灭口，然后被包装成自杀案件。香港人权亟待国际正义力量协助维护。
+but that they ignored that intelligence
+但他们忽略了那个情报
 
-新闻来源：自由亚洲电台、维基百科
+they didn’t act on it,
+他们没有采取行动
 
-[https://www.rfa.org/mandarin/Xinwen/7-06122021125053.html](https://www.rfa.org/mandarin/Xinwen/7-06122021125053.html)
+and they missed a very important call, Steve
+他们错过了一个非常重要的情报，史蒂夫
 
-[https://zh.wikipedia.org/wiki/%E5%8F%8D%E5%B0%8D%E9%80%83%E7%8A%AF%E6%A2%9D%E4%BE%8B%E4%BF%AE%E8%A8%82%E8%8D%89%E6%A1%88%E9%81%8B%E5%8B%95%E4%B8%AD%E5%A4%B1%E8%B9%A4%E4%BA%BA%E5%8F%A3%E7%88%AD%E8%AD%B0#cite\_note-newtalk20191110-3](https://zh.wikipedia.org/wiki/%E5%8F%8D%E5%B0%8D%E9%80%83%E7%8A%AF%E6%A2%9D%E4%BE%8B%E4%BF%AE%E8%A8%82%E8%8D%89%E6%A1%88%E9%81%8B%E5%8B%95%E4%B8%AD%E5%A4%B1%E8%B9%A4%E4%BA%BA%E5%8F%A3%E7%88%AD%E8%AD%B0#cite_note-newtalk20191110-3)
+the part of that hearing today, that you did not play, is in the first response, the director of the FBI, Christopher Wray said,
+在今天的听证会上，你没有播放的部分
+是雷听到问题的第一反应
+联邦调查局局长克里斯托弗·雷说
 
-编辑：文顺 校对：Helen   发稿：爱丽丝
+Well, we never know what a counterintelligence operation is,
+“好吧，我们永远不知道什么是反间谍行动”
 
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+why was Christopher Wray answering questions about Coronavirus
+为什么克里斯托弗·雷回答关于冠状病毒问题时
 
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+with responses that dealt with counterintelligence,
+涉及反间谍行动的问题？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
+what I think happens Steve
+我认为是发生了什么，史蒂夫
+
+is that they missed this fact witness, this whistleblower,
+是他们错过了这个事实、这个爆料者
+
+this person with not only story to tell
+这个人不仅有故事要讲
+
+but documents, and text messages on WeChat
+而且还有微信上的文件和短信
+
+that showed how early, the Chinese Communist Party was aware that
+能够表明中国共产党很早就意识到
+
+this was a deadly virus,
+这是一种致命的病毒
+
+and also the linkage that exists between the Chinese military
+以及中共军队与这种病毒的发展之间
+
+the development of this virus,
+存在的联系
+
+it’s testing in the Wuhan Institute of Virology
+它正在武汉生物研究所进行测试
+
+and its ultimate release to the world.
+并最终向全世界释放
+
+I think the FBI can be very culpable here,
+我认为 FBI 在这方面负有很大的责任
+
+we’re going to stay on them
+我们要继续关注他们
+
+the good news is that as a consequence of this hearing
+好消息是由于这次听证会的结果
+
+We’re going to get back the scientific analysis
+我们要找回科学分析
+
+the scientific notes that the FBI science team put together
+联邦调查局科学团队在与闫丽梦博士
+
+as a consequence of these multi hour meetings with Dr Li-Meng Yan
+许多小时会议的会谈后整理出的科学笔记
+
+but I’m concerned that they categorized her as a counterintelligence threat
+但我担心他们将她归类为反间谍威胁
+
+instead of the truth telling whistleblower she is
+而不是认为她是真正的事实爆料者
+
+and that resulted in deaths that otherwise could have been avoided.
+而这导致了本来可以避免的死亡
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接** : [https://twitter.com/repmattgaetz/status/1403108731769045009?s=24](https://twitter.com/repmattgaetz/status/1403108731769045009?s=24)
+
+英听校：康州盘古农场 – Layka
+翻译：康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

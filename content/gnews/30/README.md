@@ -1,46 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人类不该让为大家抱薪取火的勇士冻死在寒冷之中
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1320233/)
+## 【墙内时政】612香港反送中两周年，警方高度戒备如临大敌
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1320326/)
 
-**摘要：2021年5月27日的GTV直播中，郭先生感慨在全世界的媒体、科学界、政界都泯灭良心、 丧失正义的时刻，只有新中国联邦和爆料革命和其中千千万万个如闫丽梦博士、路德、安红、艾丽、博士军团和郝海东、叶钊颖一样的勇士在为人类寻找真相，为人类的自由而战。他大声疾呼：“为人类、为大家抱薪取暖者不应该被冻死在极寒之中！”**
-[下载字幕](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13150802/Miles_2021-05-27-live-p2.srt.txt)
-#### **人类不该让为大家抱薪取火的勇士冻死在寒冷之中
-The World Should Not Let Those Who Bring Firewood for Everyone Be Frozen to Death**
+作者：休斯顿星光农场写作部 白居易
+![This image has an empty alt attribute; its file name is Screenshot-2021-06-01-215655-2.jpg]()![This image has an empty alt attribute; its file name is Screenshot-2021-06-01-215655-2.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
+**6月12日，港警全员出动，划封锁区，设卡巡逻，驱逐试图纪念香港反送中“612”游行两周年的港民。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13164101/18-11.jpg)图片来源：立场新闻
+据自由亚洲电台报道，港警于12日下午4时许在铜锣湾部分区域划封锁区高度戒备，并在连接港岛与九龙半岛的红隧九龙出入口截查往港岛的车辆。旺角鼓油街附近有数名员警戒备，其中有员警带着代表违反港区国安法的紫旗。另外，有设置相关街站的民间组织成员被依违反“限聚令”开罚。
 
-我们在几年前告诉了世界，黑暗即将到来。可悲的事情，这个世界上由于贪婪和无知、一切听共产党的、一切为共产党的利益所工作，人民泯灭了良心、 丧失了正义。全球媒体失去了自己的所有的原则，全球媒体闭嘴，全球的科学家、良知全部不存在，全球的政治家几乎没有人跟正义站在一起。
+香港职工会联盟（职工盟）及”反送中”期间成立的医管局员工阵线，下午在旺角一处天桥摆设街站（摊位），勉励港人坚守抗争。下午5时许，有10多名员警到场录影监视并以可能违反防疫规定为由警告街站超过4人。
 
-We told the world years ago that darkness was coming. Sadly, because of greed and ignorance, listening to the CCP about everything, and working for the interests of the CCP about everything, people have lost their conscience and justice, and media in the whole world has lost their principles. Almost all media in the world is silent. All scientists in the world have lost their conscience. Few politicians around the globe stand with justice.
+至6时许，警方要求工会街站立即解散，并以橘色带子围住职工联盟和医管局员工阵线成员，表示将依“限聚令”向他们开出罚单。
 
-全球都应该懂一个道理——为人类、为大家抱薪取暖者不应该被冻死在寒极之中。一个为大家来抱柴取暖的人，不应该让他给冻死在寒冷之中；为大家披荆斩棘者、追求自由的人不应该死，不应该他自己被困在荆棘而死亡。
+2019年6月12日，上万名反对港府修订“逃犯条例”草案的民众聚集在立法会周边道路抗议，以阻止立法会二读“逃犯条例”草案。抗议群众后来遭警方以催泪瓦斯、橡胶子弹等方式暴力驱散。至2019年12月，警方公布被捕人士超过6000人，整场运动期间，社交媒体亦出现大量男女青少年失踪的消息，这些人迄今仍杳无音信。有部分参与运动人士指，这些失踪的运动支持者可能被警方灭口，然后被包装成自杀案件。香港人权亟待国际正义力量协助维护。
 
-But the world should understand one thing, those who bring the firewood and warmth for humanity and for everyone should not be frozen to death in the extreme cold. Those who cut through the thorns for everyone and those who pursue freedom should not be trapped in thorns to death.
+新闻来源：自由亚洲电台、维基百科
 
-而今天的社会恰恰相反。全世界全人类每个国家都在干什么事？都在把自己身边为你抱薪取火的、追求自由的人取暖的人把他杀掉——就是我们爆料革命、新中国联邦这些勇士们。全球都是把在最关键（时刻）为你披荆斩棘寻求真相、保护你的人让他死在困顿之中。
+[https://www.rfa.org/mandarin/Xinwen/7-06122021125053.html](https://www.rfa.org/mandarin/Xinwen/7-06122021125053.html)
 
-Yet, today’s society is doing just the opposite. What are the whole world, whole humankind, and every country doing? They are killing people who are bringing warmth to them and the people who are seeking freedom, for instance, the warriors of our Whistleblower Movement and the New Federal State of China (NFSC). The whole world is letting these people who have overcome obstacles to seek truth for you, to protect you at the most critical time die in the distress.
+[https://zh.wikipedia.org/wiki/%E5%8F%8D%E5%B0%8D%E9%80%83%E7%8A%AF%E6%A2%9D%E4%BE%8B%E4%BF%AE%E8%A8%82%E8%8D%89%E6%A1%88%E9%81%8B%E5%8B%95%E4%B8%AD%E5%A4%B1%E8%B9%A4%E4%BA%BA%E5%8F%A3%E7%88%AD%E8%AD%B0#cite\_note-newtalk20191110-3](https://zh.wikipedia.org/wiki/%E5%8F%8D%E5%B0%8D%E9%80%83%E7%8A%AF%E6%A2%9D%E4%BE%8B%E4%BF%AE%E8%A8%82%E8%8D%89%E6%A1%88%E9%81%8B%E5%8B%95%E4%B8%AD%E5%A4%B1%E8%B9%A4%E4%BA%BA%E5%8F%A3%E7%88%AD%E8%AD%B0#cite_note-newtalk20191110-3)
 
-人类总有一天会来回来看我们新中国联邦人、爆料革命做了什么？我们背后有千千万万个闫丽梦科学家，我们背后有千千万万个安红女士、艾丽女士、墨博士、冠博士、路德先生、郝海东兄弟、叶钊颖妹妹。
+编辑：文顺 校对：Helen   发稿：爱丽丝
 
-Humanity will sooner or later come back to see what our NFSC and Whistleblower Movement have done. We have thousands of scientists like Dr. Li-Meng Yan behind us. We have thousands of people like Ms. Anhong, Ms. Aili, Dr. Mo, Dr. Guan, Mr. Lude, Brother Haidong Hao and Sister Zhaoying Ye behind us.
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=60af9c64b7dff64ac984b8b2](https://gtv.org/video/id=60af9c64b7dff64ac984b8b2) (42:42-44:44)
-鸣谢：感谢[喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/) 提供中文文本于 [https://gnews.org/zh-hans/1277441/](https://gnews.org/zh-hans/1277441/)
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
 
-* * *
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
 
-翻译：佚名
-字幕：【JennyL（纽约香草山农场）】
-视频解码：【恒久忍耐】
-自媒体推广：【V%】【TINALS】
-校对 & 编辑：【Isaiah4031】
-[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+5
+0

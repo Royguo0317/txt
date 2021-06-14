@@ -1,21 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 录像显示武汉实验室里有活蝙蝠
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1320481/)
+## 【有声读物】自由之巅的召唤
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1320680/)
 
-英听译: 烟波浩淼| 校对: Arthur | 字幕+视频制作: 小腾腾说 | 审核: V
+配音：香草山录音组 Swr拥抱太阳
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-**莎莉·马克森（Sharri Markson）的《天空新闻》节目**
 
-**莎莉****·****马克森：**
 
-他们没有活的或死的蝙蝠，任何地方都没有证据表明发生了这种事，这是个错误，我希望它能得到纠正。 那么，今晚，**来自武汉病毒研究所内部的重磅镜头表明他的说法是错误的**。 实验室有活的蝙蝠并不是一个阴谋，这是一个事实！正如你所看到的，这段视频显示蝙蝠在武汉研究所的一个笼子里，你还可以看到他们的研究人员正在给一只蝙蝠喂虫子。 在这张图像中，我们可以看到研究人员外出捕捉蝙蝠，一只蝙蝠甚至挂在一个研究人员的帽子上。 在另一张图像中，有老鼠笼子，里面有数以百计的老鼠。
 
-我们知道，武汉病毒研究所使用拟人化的小鼠进行实验，用以了解哪些冠状病毒可以感染人类？在一些实验中，他们使用拟人化小鼠使以前不能感染人类的病毒能够感染人类，这种实验被称为功能增强实验。使病毒更具感染性和毒性，以尝试预测哪些病毒可能会导致大流行。如果去年年初有这段录像，可能重塑围绕中共病毒（COVID-19）的潜在起源的整个故事。那时，我们被告知武汉实验室里没有蝙蝠。但我们被告知带病的蝙蝠在海鲜市场上被出售和屠宰。
 
-你还记得吗？这导致全世界都在呼吁总统和总理关闭海鲜市场。中国人吃蝙蝠汤的视频也被传开来了。事实上，武汉海鲜市场从来没有卖过蝙蝠。达扎克必须意识到他在2020年12月的公开声明是错误的，他声称说武汉实验室有蝙蝠是一个阴谋。他说我们没有问他们是否有蝙蝠。他说，如果像其他许多病毒学实验室一样，他们想要建立一个蝙蝠群，我并不感到惊讶，我知道在这里和其他国家的实验室都在发生这样的事。这是他2021年6月说的。
+仰望蓝天
+
+群星璀璨
+
+那一颗颗一闪闪
+
+汇聚成湾
+
+把黑暗驱赶
+
+你、我、他
+
+我亲爱的战友
+
+
+
+文字版原文：[【香草山诗词汇】自由之巅的召唤](https://gnews.org/zh-hans/582933/)
+
+作者：纽约香草山农场 youyou
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,112 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议员马特·盖茨（Matt Gaetz）：联邦调查局忽视 COVID-19 起源，情报可挽救美国人生命
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1320568/)
+## 拜登总统在G7峰会上重磅发言意味着西方各国对中共的宣战
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1320749/)
 
-**字幕内容：**
-**Matt Gaetz (Re-. FL)
-马特·盖茨(众议员-佛罗里达州）**
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13220322/56631204_403.jpg)
+拜登总统在G7峰会上的重磅发言翻译：（摘自洛子峰推特）
 
-I am deeply concerned that the FBI had actionable intelligence,
-我非常担心 联邦调查局拥有的可操作的情报
+“我认为我们正处于在与世界独裁政府的角逐中，这决定了在快速变化的21世纪中，民主制度能否与他们竞争。我认为我们民主世界的行动与团结，将决定着50年后我们的子孙回顾这段历史时说：我们祖辈当时站出来了吗？民主还真正存在吗？还如曾经那般强大吗？我与所有与会同仁们在会议结束时都认同这一观点，不是因为我有本事说服他们，而是因为他们认为这是正确的事情。
 
-that could have saved American lives,
-这些情报本可以挽救美国人的生命
+你们将看到我们直截了当地应对中国，在G7会议上，我和其他领导人都提出了一个问题：我们至今无法进入武汉实验室进行实地调查，从而搞清楚导致新冠病毒的究竟是海鲜市场出售的蝙蝠与环境交互的产物，还是实验室里的实验出了问题。知道这一问题的答案至关重要，因为我们必须建立一个体系，因为透明度的缺乏可能会导致下一场病毒大流行。我们必须进入实验室，全世界各国必须能进入实验室，通过G7峰会我们将就公开透明的标准制定出国际认同的底线。“
 
-but that they ignored that intelligence
-但他们忽略了那个情报
+**评**：拜登总统这一次在G7峰会上的发言，直接一剑封喉。不仅提出这次是“民主”与“专制”之间体制之争，更将此胜负结果与未来世界人民的福祉联系在一起。同时表示，这一观点已经获得美国同盟国的一致认同，再次向中共等独裁政府喊话，西方民主社会已经做好了抗争的全面准备。
 
-they didn’t act on it,
-他们没有采取行动
+同时，拜登总统之前对于中共病毒始终没有公开发表过任何言论，但此次的发言内容分量之重一定会让中共国无法接招。两个“必须”，是打开武汉实验室，彻查实验室的要求，不容任何拒绝的理由，至于中共是乖乖就范，还是拒不从命，都无法改变病毒来自中共军方的事实，只是现在需要一个流程的配合而已。
 
-and they missed a very important call, Steve
-他们错过了一个非常重要的情报，史蒂夫
+G7峰会过后，美国为首的西方国家将有直接的行动，几个月的军事部署，各国元首的高度统一，再加上各国民意的持续发酵，对中共的宣战已经开始。
 
-the part of that hearing today, that you did not play, is in the first response, the director of the FBI, Christopher Wray said,
-在今天的听证会上，你没有播放的部分
-是雷听到问题的第一反应
-联邦调查局局长克里斯托弗·雷说
+（本文只代表作者观点，与Gnews平台无关。）
 
-Well, we never know what a counterintelligence operation is,
-“好吧，我们永远不知道什么是反间谍行动”
-
-why was Christopher Wray answering questions about Coronavirus
-为什么克里斯托弗·雷回答关于冠状病毒问题时
-
-with responses that dealt with counterintelligence,
-涉及反间谍行动的问题？
-
-what I think happens Steve
-我认为是发生了什么，史蒂夫
-
-is that they missed this fact witness, this whistleblower,
-是他们错过了这个事实、这个爆料者
-
-this person with not only story to tell
-这个人不仅有故事要讲
-
-but documents, and text messages on WeChat
-而且还有微信上的文件和短信
-
-that showed how early, the Chinese Communist Party was aware that
-能够表明中国共产党很早就意识到
-
-this was a deadly virus,
-这是一种致命的病毒
-
-and also the linkage that exists between the Chinese military
-以及中共军队与这种病毒的发展之间
-
-the development of this virus,
-存在的联系
-
-it’s testing in the Wuhan Institute of Virology
-它正在武汉生物研究所进行测试
-
-and its ultimate release to the world.
-并最终向全世界释放
-
-I think the FBI can be very culpable here,
-我认为 FBI 在这方面负有很大的责任
-
-we’re going to stay on them
-我们要继续关注他们
-
-the good news is that as a consequence of this hearing
-好消息是由于这次听证会的结果
-
-We’re going to get back the scientific analysis
-我们要找回科学分析
-
-the scientific notes that the FBI science team put together
-联邦调查局科学团队在与闫丽梦博士
-
-as a consequence of these multi hour meetings with Dr Li-Meng Yan
-许多小时会议的会谈后整理出的科学笔记
-
-but I’m concerned that they categorized her as a counterintelligence threat
-但我担心他们将她归类为反间谍威胁
-
-instead of the truth telling whistleblower she is
-而不是认为她是真正的事实爆料者
-
-and that resulted in deaths that otherwise could have been avoided.
-而这导致了本来可以避免的死亡
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接** : [https://twitter.com/repmattgaetz/status/1403108731769045009?s=24](https://twitter.com/repmattgaetz/status/1403108731769045009?s=24)
-
-英听校：康州盘古农场 – Layka
-翻译：康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+***校对发布**：文顾*
 
 0
