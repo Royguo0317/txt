@@ -1,127 +1,112 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【DT挖掘机】中共制毒网络挖掘合辑
-` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1319494/)
+## 众议员马特·盖茨（Matt Gaetz）：联邦调查局忽视 COVID-19 起源，情报可挽救美国人生命
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1320568/)
 
-Gnews病毒真相小组 整理
+**字幕内容：**
+**Matt Gaetz (Re-. FL)
+马特·盖茨(众议员-佛罗里达州）**
 
+I am deeply concerned that the FBI had actionable intelligence,
+我非常担心 联邦调查局拥有的可操作的情报
 
+that could have saved American lives,
+这些情报本可以挽救美国人的生命
 
-## 神秘南普陀会议解读
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13081200/nanputuo.jpg)](https://gnews.org/zh-hans/154240/)武汉P4病毒实验室又是共匪整个沉船计划里面的一部分，这个推不做深入挖掘，只说明南普陀计划
+but that they ignored that intelligence
+但他们忽略了那个情报
 
+they didn’t act on it,
+他们没有采取行动
 
+and they missed a very important call, Steve
+他们错过了一个非常重要的情报，史蒂夫
 
+the part of that hearing today, that you did not play, is in the first response, the director of the FBI, Christopher Wray said,
+在今天的听证会上，你没有播放的部分
+是雷听到问题的第一反应
+联邦调查局局长克里斯托弗·雷说
 
-## CCP病毒系列01：三种病毒的关联
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13081050/%E4%B8%8B%E8%BD%BD-1-2.jpg)](https://gnews.org/zh-hans/212656/)CCP病毒、SARS冠状病毒、SARS相关冠状病毒，是什么关系
+Well, we never know what a counterintelligence operation is,
+“好吧，我们永远不知道什么是反间谍行动”
 
+why was Christopher Wray answering questions about Coronavirus
+为什么克里斯托弗·雷回答关于冠状病毒问题时
 
+with responses that dealt with counterintelligence,
+涉及反间谍行动的问题？
 
+what I think happens Steve
+我认为是发生了什么，史蒂夫
 
-## 为什么说中共病毒不可能源于自然而必然产生于实验室
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13081548/image0-1-13.jpg)](https://gnews.org/zh-hans/219219/)在得到神秘科学家的帮助梳理清楚科学上 SARS-CoV-2？新冠病毒、SARS 冠状病毒、SARS 相关冠 状病毒它们之间的关系后…
+is that they missed this fact witness, this whistleblower,
+是他们错过了这个事实、这个爆料者
 
+this person with not only story to tell
+这个人不仅有故事要讲
 
+but documents, and text messages on WeChat
+而且还有微信上的文件和短信
 
+that showed how early, the Chinese Communist Party was aware that
+能够表明中国共产党很早就意识到
 
-## 研制CCP病毒终极生化武器的过程及条件
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13081800/image0-1-1.png)](https://gnews.org/zh-hans/221377/)首先，什么是病毒学研究：病毒的结构、分类和进化，感染和开发宿主细胞繁殖的方式，它们与宿主生物体生理和免疫的相互作用，它们引起的疾病…
+this was a deadly virus,
+这是一种致命的病毒
 
+and also the linkage that exists between the Chinese military
+以及中共军队与这种病毒的发展之间
 
+the development of this virus,
+存在的联系
 
+it’s testing in the Wuhan Institute of Virology
+它正在武汉生物研究所进行测试
 
-## P4实验室第2季(1)
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13083109/DT.jpg)](https://gnews.org/zh-hans/242715/)在第二季中，DT挖掘机将主要从更加专业的角度解读为什么被称为CCP病毒更为合理。这不是一个科学上的命名，而是一个大众化的命名
+and its ultimate release to the world.
+并最终向全世界释放
 
+I think the FBI can be very culpable here,
+我认为 FBI 在这方面负有很大的责任
 
+we’re going to stay on them
+我们要继续关注他们
 
+the good news is that as a consequence of this hearing
+好消息是由于这次听证会的结果
 
-## P4实验室第2季(2)
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13083109/DT.jpg)](https://gnews.org/zh-hans/242448/)在得到神秘科学家的帮助梳理清楚科学上SARS-CoV-2？新冠病毒、SARS冠状病毒、SARS相关冠状病毒它们之间的关系后，这位科学家帮助我们进一步说明了新冠病毒不可能源于自然而必然产生于实验室制造的结论的依据
+We’re going to get back the scientific analysis
+我们要找回科学分析
 
+the scientific notes that the FBI science team put together
+联邦调查局科学团队在与闫丽梦博士
 
+as a consequence of these multi hour meetings with Dr Li-Meng Yan
+许多小时会议的会谈后整理出的科学笔记
 
+but I’m concerned that they categorized her as a counterintelligence threat
+但我担心他们将她归类为反间谍威胁
 
-## P4实验室第2季(3)
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13083109/DT.jpg)](https://gnews.org/zh-hans/242455/)本次挖掘中将集中讨论和揭示研制终极生化武器CCP病毒的过程及条件
+instead of the truth telling whistleblower she is
+而不是认为她是真正的事实爆料者
 
+and that resulted in deaths that otherwise could have been avoided.
+而这导致了本来可以避免的死亡
 
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
+**原视频链接** : [https://twitter.com/repmattgaetz/status/1403108731769045009?s=24](https://twitter.com/repmattgaetz/status/1403108731769045009?s=24)
 
-## P4实验室第2季(4)
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13083109/DT.jpg)](https://gnews.org/zh-hans/224238/)CCP进行生化武器研究的三个团队：制作病毒团队、研制解药团队、传播病毒团队。他们在2016年就掌握了新冠病毒这种武器
-
-
-
-
-## P4实验室第2季(5)
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13083109/DT.jpg)](https://gnews.org/zh-hans/233690/)最终接管武汉P4实验室的是谁？又是谁真正展控着P3实验室进行病毒武器的研制，新冠病毒这个生物基因武器的确切完成时间点在哪里
-
-
-
-
-## P4实验室第2季(6)
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13083109/DT.jpg)](https://gnews.org/zh-hans/242474/)武汉的这两个P3实验室都在做什么，具有什么样的关系，武汉的P3实验室和P4实验室具有什么样的关系，具有什么样的战略分工，本文将一一揭示
-
-
-
-
-## P4实验室第2季(7)
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13083109/DT.jpg)](https://gnews.org/zh-hans/248163/)本次挖掘将依据现有的挖掘资料，深刻的挖掘揭示CCP和P4实验室的关系，逐步揭开CCP领导P4实验室对美国发动生化战争的事实
-
-
-
-
-## P4实验室第2季(8)
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13083109/DT.jpg)](https://gnews.org/zh-hans/255924/)在本文中，DT将通过这种四层关系的分析方法来挖掘病毒武器制作的另一个团队，也就是研制解药团队所隐藏的真相，当然，这个团队的关键人物和切入点正是饶子和
-
-
-
-
-## P4实验室第2季(9)
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13083109/DT.jpg)](https://gnews.org/zh-hans/251012/)在本文中，DT向你揭示了一个新的“农夫与蛇”的故事，美国就是这个农夫，而这条蛇在它醒过来时却要用毒牙咬死农夫
-
-
-
-
-## P4实验室第2季(10) 上
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13083109/DT.jpg)](https://gnews.org/zh-hans/249879/)本文先依据冠军的亲爹的推文对中共收集用来做化武的病毒进行了介绍，后又通过资料和照片对中共病毒研究机构进行了详细挖掘
-
-
-
-
-## P4实验室第2季(10) 下
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13083109/DT.jpg)文本DT通过详实的内部资料和照片，对中共的生化武器研究体系做了深度的挖掘，进一步揭穿了中共多年致力于生化武器研制的邪恶行径
-
-
-
-
-## P4实验室第2季(11)
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13083109/DT.jpg)](https://gnews.org/zh-hans/265583/)挖掘和追溯这场中共与美国之间的战略决战的起源是个异常复杂地挖掘过程，DT挖掘机在庞杂的资料挖掘过程中一直在寻找其中的线索，幸运的是，终于理清并找到了
-
-
-
-
-## P4实验室第3季 (1)
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13091036/4ECA3C58-0FE5-416E-A76D-1823671F5116.jpeg)](https://gnews.org/zh-hans/268467/)DT挖掘战队在《P4实验室第二季》的基础上，进行了这次挖掘行动，为希望了解真相的人们披露更多的线索，同时，也揭开我们的第三季的序幕
-
-
-
-
-## 中共武汉病毒研究所的外籍军团！
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13082639/2345%E6%88%AA%E5%9B%BE20200408223730-1.png)](https://gnews.org/zh-hans/166220/)中共武汉病毒研究所的外籍军团！ 这次内容比上次精彩的多！五毛喷我说：开篇一张图，其余全靠编！那就开篇一张图！开编！
-
-
-
-
-## 第三季外传篇 【华盛顿的沼泽有多深】之“CDA230条款”
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13091703/12-4-1.jpg)](https://gnews.org/zh-hans/616847/)
-
-
-
-
-免责声明：本文仅代表作者个人观点，与G-NEWS网站无关
+英听校：康州盘古农场 – Layka
+翻译：康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

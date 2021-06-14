@@ -1,41 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【独家】COVID-19起底：情报分析合辑
-` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1319466/)
+## 【墙内时政】中共迎党庆 北京维稳大扫荡
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1320267/)
 
-Gnews病毒真相小组 整理
-
-
-
-## 中共病毒项目立项信息
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13074951/D7D126E4-4575-488F-BC9F-64409A28309A-1.jpeg)2016病毒项目是中共国在2005-2015病毒项目的后级计划，被囊括进中共“十三五”计划和2016年“传染病防治”专项当中
+作者：休斯顿星光农场  白居易
 
 
+![This image has an empty alt attribute; its file name is Screenshot-2021-06-01-215655-2.jpg]()![This image has an empty alt attribute; its file name is Screenshot-2021-06-01-215655-2.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
+**6月11日，在中共建党百年背景下，北京进行大清场，凡是前往国家信访局的上访维权人士一律被带走，且被采取集中处理。**
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13155218/16-11.jpg)图片来源：维权网
 
-## 中共病毒项目课题分析
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13075112/F9E572CA-09C6-4CBB-B4F9-6A2A14E7F778-1.jpeg)根据媒体信息和政府公开信息，本部分将介绍2016病毒计划的详细内容，以及根据这些内容背后的隐含信息提供一些观点
+据维权网报道，自网传5月20号公安部统一部署建党一百周年首都维稳任务后，各地通往北京的车站码头均进入严厉盘查，有信访纪录的信访人基本上都被劝回，仅剩下一些新访民与残疾访民还坚守在北京。然而北京于6月11日开始大清场，凡是到国家信访局的一律被带走，然后集中处理。
 
+据消息人士说，天安门将进行建党纪念大演练，从6月12号起北京进入维稳攻坚战，在15号之前一定要把“有碍观瞻”的访民清理完毕，到20日时必须没有任何死角。同时，北京周边的天津等地也开始拱卫性维稳清场。
 
+在中共释放病毒并高压维稳下，中共国人民一片哀嚎，当局却为庆祝建党疯狂宣传自己所谓的“丰功伟绩”。然而“水能载舟，亦能覆舟”，一个脱离了人民的党和政府终究会被人民推翻。
 
+信息来源：维权网
 
-## 中共病毒项目与香港关系
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13075219/1BF3BB0E-2D74-4F01-9C16-7EF2DA912673-1.jpeg)](https://gnews.org/zh-hans/1294485/)香港学术界与中共的配合并非短时间内达成的合作关系，而是中共通过对香港学术界以“友好合作”、“联合资助”的名义长期渗透的结果
+[https://wqw2010.blogspot.com/2021/06/blog-post\_53.html](https://wqw2010.blogspot.com/2021/06/blog-post_53.html)
 
+编辑：文顺 校对：Helen   发稿：爱丽丝
 
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
 
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
 
-## 中共病毒项目其他信息
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13075330/E9C5D648-7F8F-4AEF-AB5D-C0E56CD06A33-1.jpeg)中共当局极可能还有其他种类的人工病毒被作为超限生物武器,这对尚处于COVID-19严重危害的全世界来说是一个重大威胁
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
 
-
-
-
-## 中共病毒的本质是什么
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13075435/4D73B884-73FB-4715-9430-838528F13A64-1.jpeg)中共通过国家计划带动走“军民融合、化整为零”的路线,通过与海内外资金、研究机构联合的方式,已经打造了属于中共的病毒版一带一路
-
-
-(免责声明：本文仅代表作者个人观点，与G-NEWS网站无关)
-
-0
++1
