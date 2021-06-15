@@ -1,41 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【时事解析】北约公报10提中共：其野心构成系统性挑战
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1323267/)
+## 2021年6月14日灭共要闻
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1323636/)
 
-作者：休斯顿星光农场  白居易
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15024552/%E7%81%AD%E4%B8%80%E7%BB%84%E5%B0%81%E9%9D%A2-7.jpg)](https://gtv.org/video/id=60c84ba6b96c69573d7f5dda)
+**[播放视频](https://gtv.org/video/id=60c84ba6b96c69573d7f5dda)**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
+主要内容：
 
-6月14日，北大西洋公约组织（NATO）在布鲁塞尔召开峰会，会议公报10次提到中共，指责其明确的野心和独断行为构成系统性挑战。
+G7领导都认为必须查清病毒来源真相；
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14233145/G7-%E5%9B%BE%E7%89%87.jpg)
+锤实证据显示武汉实验室养活蝙蝠；
 
-北约峰会与会领导人资料图片 © 路透社图片
+全世界各地机会纪念香港民主抗争运动两周年；
 
-据法广中文网报道，公报说：“中（共）国的明确野心和独断行为，对于以规则为基础的国际秩序和北约安全相关区域，构成系统性挑战。”
+广州因两名医护确诊，解封再延期，小区居民表示不满；
 
-北约公报指出：“中（共）国正以更多核弹头、更大量的精密投射系统来加速扩大自身核武器库，以建立核三位一体能力（nuclear triad）。”
+中共洗脑歌曲《我为祖国生七胎》网络爆红
 
-北约盟邦敦促中共就其核子能力与原则，与北约进行有意义的对话、建立信心和透明化措施，因为互相保持公开透明和理解，对北约和中（共）国都有益。
-
-北约也点出中共与俄罗斯的军事合作，并指出，“俄罗斯的侵略行径对欧洲-大西洋安全构成威胁”，而“中（共）国日益增长的影响力及其国际政策，可能构成我们必须联合共同应对的挑战”。
-
-此外，北约也忧心中共行为经常缺乏透明性，并常利用不实资讯引导舆论。北约呼吁中共谨守国际承诺，在国际体系中负责任地行事，”包括在太空、网路、海上等领域，以符合其作为重要强权的角色“。
-
-消息来源：
-
-[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210614-%E5%8C%97%E7%BA%A6-%E4%B8%AD%E5%9B%BD%E5%8F%8A%E5%85%B6%E9%87%8E%E5%BF%83%E6%9E%84%E6%88%90-%E7%B3%BB%E7%BB%9F%E6%80%A7%E6%8C%91%E6%88%98](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210614-%E5%8C%97%E7%BA%A6-%E4%B8%AD%E5%9B%BD%E5%8F%8A%E5%85%B6%E9%87%8E%E5%BF%83%E6%9E%84%E6%88%90-%E7%B3%BB%E7%BB%9F%E6%80%A7%E6%8C%91%E6%88%98)
-
-编辑：文順      校对：Helen      发稿：文柳
-
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
-
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/08042348/Screenshot-2021-06-01-215655-2.jpg)
-
-
+**By**：【秘翻组**–**上天造灭疫组】
 
 0

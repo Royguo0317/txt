@@ -1,35 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2018年视频显示武汉实验室合作伙伴策划从大流行病中赚钱
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1323506/)
+## 【热点播报】CDC关联跟踪网站VAERS报告显示疫苗死亡人数惊人跳升
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1323576/)
 
-翻译:康州盘古农场 – Mike Li
-校对:康州盘古农场 –郭班之樱
-编辑:康州盘古农场 – 明子
-发布：康州盘古农场 – 彩虹 Rainbow
-**据《国家脉动》 作者：NATALIE WINTERS，2021年6月13日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14235232/20210614%40%40.png)
-巴里奇，他曾经参加过武汉病毒研究所的会议，并被武汉的“蝙蝠女侠”石正丽描述为她的“长期合作者”之一。在2018年4月北卡罗来纳大学教堂山分校举办的一次活动中，他发表了这样的言论——他将解除对功能增强研究的禁令描述为“关键”。他还向武汉实验室提供了人源化小鼠，以便可能对类似SARS的冠状病毒进行这种有争议的研究形式。
+作者： 纽约香草山媒体部 7bends
 
-巴里奇在2014年游说反对暂停功能增强实验时断言：“功能增强代表了其中一种方法，是公共卫生准备和应对的重要工具”。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
-在他2018年的演讲“想象下一次流感大流行——并预防它！”中，他展示了一张题为“全球灾难：机会存在”。这张幻灯片概述了在埃博拉病毒爆发期间什么类型的股票和行业激增，他用这来推断有关如何“在下一次大流行中赚钱”的金融建议。
 
-他指出：“我想给你们一个好消息。市场里总会有赢家，对吗？因此，如果你曾想在下一次大流行病中做好准备并赚钱，如果这是你想做的，那就买入防护服制造商和防护服或为该特定大流行病制造抗病毒药物的公司的股票”。
 
-巴里奇补充说，上述行业和股票“可能会表现很好”，然后强调到“实际上有共同基金为大流行病做准备”。
+Gateway Pundit 6月12日报道，与美国疾病防治与控制预防中心CDC关联的跟踪网站——VAERS——报告本周死亡人数与上一周相比，大幅增加了700人。
 
-他建议：“有些产品做得很好。1918年西班牙大流感时，口罩很抢手，今天也是如此”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15020859/image0-74.jpg)
 
-在谈到下面这张 “大流行病：机会” 幻灯片时，巴里奇认为，“大流行病确实是机会的时代”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14235217/123-2.png)
-他补充说：“在社会动荡时期，人们有机会获得政治利益、经济利益和个人利益，这样的机会可能会发生”。
+VAERS网站是与CDC相关联的疫苗不良反应跟踪系统。该系统的数据库包含有关使用美国许可的疫苗进行免疫接种后未经证实的不良事件报告的信息。系统接受任何人以电子方式向 [www.vaers.hhs.gov](https://www.vaers.hhs.gov/) 提交报告。VAERS数据库中包含的信息涵盖从1990年至今收到的报告。可以按照年龄、事件类别、性别、制造商、发病间隔、恢复状态，严重/非严重类别，报告年份/月份，接种年份/月份等方式搜索数据。
 
-**文章来源**:[https://thenationalpulse.com/breaking/wuhan-lab-partner-scheming-on-pandemic-profits/](https://thenationalpulse.com/breaking/wuhan-lab-partner-scheming-on-pandemic-profits/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+在不到五个月的时间里，2021年美国与疫苗相关的死亡人数比过去整个十年都多。根据CDC自己的数据，2021年前三个月VAERS网站在美国记录了1750多人死于疫苗，这个数字现在是5997人。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15015903/vaers-deaths-2.jpg)图片来源：Gateway Pundit
+
+截至2021年6月4日的329,021份报告疫苗不良反应的数据分布如下：
+
+死亡人数 5,888
+住院人数 19,597
+紧急护理 43,891
+门诊访问 58,800
+过敏反应 1,459
+贝尔氏麻痹 1,737
+危及生命 5,885
+心脏病发作 2,190
+心肌炎/心包炎 1,087
+血小板减少症/低血小板 1,564
+流产 652
+严重过敏反应 15,052
+致残4,583
+
+参考阅读：
+
+https://www.thegatewaypundit.com/2021/06/shocking-jump-vaccine-deaths-reported-week-cdc-linked-vaers-tracking-website/
+
+https://wonder.cdc.gov/vaers.html
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

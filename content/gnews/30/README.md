@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】白话（五）救赎，基督信仰的独特性
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1323364/)
+## 【有声读物】三星进军欧洲，与英国达成5G网络交易
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1323437/)
 
-配音：香草山福音部 Daxia
+配音：香草山录音组 蒙古鸿雁
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -14,19 +14,20 @@
 
 
 
-三位一体的上帝创造了宇宙万物和人类。当人犯罪堕落后，圣子耶稣基督道成肉身，来到世上生活、传道、受死、复活，完成了救赎大功，使我们可以藉着耶稣基督因信称义，罪得赦免，恢复与神的关系，救赎得以成就在我们身上。这就是基督信仰的核心。
+英国电信集团沃达丰（Vodafone）周一表示，已经选择三星电子为英国供应其5G网络设备，这是这家韩国公司在欧洲电信设备市场的一个突破。
 
-有一个问题常常困扰人，就是在“使救赎得以成就在我们身上”这件事上，我用自由意志做出的决定、我用信心迈出的一步、甚至于我对神的信心，算不算我的付出，算不算我的主动付出？换句话讲，我能得救赎是不是也有我的一点功劳或一丝苦劳？上帝的救赎到底要不要我们帮忙才能完成？
-
-
-
-**文字版原文：[【信仰之声】白话（五）救赎，基督信仰的独特性](https://gnews.org/zh-hans/1318847/)**
-
-作者：纽约香草山福音部  Jinglechenge
+英国在2020年早些时候宣布了对华为的限制：英国移动供应商被禁止在2020年12月31日之后购买新的华为5G设备，他们还必须在2027年年底前将所有华为设备从其5G网络中移除。英国认为，不论是从目前还是从长远来看，虽然供应禁令将使英国的5G推广工作推迟一年，但这不是一个简单的决定，这对于英国的电信网络、国家安全和经济来说，是一个正确的决定。
 
 
 
-音频处理/发稿：雪梨
+**文字版原文：[【热点播报】三星进军欧洲，与英国达成5G网络交易](https://gnews.org/zh-hans/1322626/)**
+
+作者：纽约香草山写作组 四季
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
