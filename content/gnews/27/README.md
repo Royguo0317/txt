@@ -1,33 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 扎克伯格脸书集团向武汉实验室病毒功能增强研究的合伙人提供六位数资金
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1322665/)
+## 【热点播报】三星进军欧洲，与英国达成5G网络交易
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1322626/)
 
-编译：Boxinglady ( 文拳）
+作者：纽约香草山农场 四季
 
-陈扎克伯格倡议（Chan Zuckerberg Initiative ）是 2020 年美国大部分非法选举变更背后的资助组织，它向北卡罗来纳大学教堂山分校捐赠了近 50 万美元。武汉实验室合作者和功能增强研究支持者 Ralph Baric 博士为该大学的首席研究员。
 
-北卡罗来纳大学教堂山分校 (UNC) 教授——她也参加过武汉病毒研究所的会议，并被实验室的“蝙蝠女”描述为她的“长期合作者”——2020 年 7 月获得了 Facebook 创始人马克·扎克伯格慈善团体的资助。
 
-“陈扎克伯格倡议 (CZI) 最近向 UNC 授予了 433,000 美元的实验室设备赠款，这些设备将加速研究以解决 COVID-19 大流行，”新闻稿指出。 “这笔赠款代表了西海岸慈善组织 CZI 和 UNC 之间的新合作，旨在寻找全球大流行的解决方案，”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-据称，这笔赠款帮助产生了一项研究——目前正在等待同行评审——题为 SARS-CoV-2 传染性病毒、鼻咽拭子中的病毒 RNA，以及美国有症状的 COVID-19 门诊患者的血清状况。
 
-“在这里，我们对与传染性病毒分离相关的人口统计学、免疫学、病毒学和临床疾病因素以及鼻咽拭子样本中病毒 RNA 水平进行了全面分析，这是迄今为止对 COVID-19 有症状的门诊成人患者的最大研究，”总结笔记。
 
-福奇博士最近试图掩盖他与扎克伯格的关系，他告诉 MSNBC 主持人查克·托德，他“不知道”参议员玛莎·布莱克本在讨论两人泄露的电子邮件时在说什么。
+英国电信集团沃达丰（Vodafone）周一表示，已经选择三星电子为英国供应其5G网络设备，这是这家韩国公司在欧洲电信设备市场的一个突破。
 
-Baric 与 Facebook 关联的慈善机构之间的财务关系遵循社交媒体平台严格审查用户和故事，这些故事宣传了 COVID-19 起源可以追溯到武汉实验室的理论。
+![]()![](https://dzm0ugdauank9.cloudfront.net/wp-content/uploads/2021/06/2021-06-14T070846Z_1_LYNXNPEH5D07G_RTROPTP_0_SAMSUNG-ELEC-NETWORK_1.jpg)图片来源： 路透社（Kim Hong-Ji）
 
-Facebook 与完全由民主党运营的“Lead Stories”小组签订了合同，该小组主要由 CNN 不及格人员组成，以审查不便的信息。 Lead Stories 还与 TikTok 签约，而 TikTok 又归字节跳动所有，字节跳动是中国共产党及其人民解放军用来进一步宣传共产主义的公司。
+英国在2020年早些时候宣布了对华为的限制：英国移动供应商被禁止在2020年12月31日之后购买新的华为5G设备，他们还必须在2027年年底前将所有华为设备从其5G网络中移除。英国认为，不论是从目前还是从长远来看，虽然供应禁令将使英国的5G推广工作推迟一年，但这不是一个简单的决定，这对于英国的电信网络、国家安全和经济来说，是一个正确的决定。
 
-Baric 博士曾为有争议的功能获得性研究辩护为“关键工具”，他是 Facebook 早期批准的病毒自然起源理论的支持者，他参与的《柳叶刀》杂志的一份声明中过早地断言该病毒具有自然性起源。
+欧洲电信设备市场由诺基亚、爱立信和华为主导，但三星在9月意外地与美国巨头Verizon达成了60亿美元的交易后，已经进入了这个市场。欧洲移动运营商正越来越多地考虑用三星取代中共国的华为作为供应商，西班牙电信（Telefónica）、法国的主要电信公司Orange的高管都已经与三星进行了谈判。
 
-简评：要想人不知除非己莫为！随着近日福奇邮件的不断曝光，操控病毒自然起源理论背后的一切因利益驱使，与中共勾兑的操纵者们的谎言都将被晒在光天化日之下，病毒真相终将大白！那些曾与中共勾兑曾帮助中共洗地的西方利益者们再不选择成为污点证人，他们必将成为中共灭亡时的陪葬品。
+随着5G推广的扩大，三星正依靠欧洲市场保持其网络设备业务的增长。CCS Insight分析师理查德-韦伯说：“三星要赶上爱立信和诺基亚还有很长的路要走，但它在移动宽带、固定无线接入和私有5G网络方面拥有全面的5G RAN产品组合，因此它应该被视为真正的竞争者”。
 
-新闻来源：[The National Pulse](https://thenationalpulse.com/exclusive/facebook-czi-funds-controversial-wuhan-researcher/)
+参考阅读：
 
-校对发稿：Ada （马德里）
+[Samsung Enters Europe With Vodafone 5G Network Deal In Britain](https://www.oann.com/vodafone-opts-for-samsungs-5g-network-solutions-in-britain/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

@@ -1,76 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】中欧关系的终结与中共的四面楚歌
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1322654/)
+## 【新中国联邦周年庆】心潮澎湃话今昔——庆典期间登帝国大厦有感
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1322696/)
 
-作者：纽约香草山金融部/经济小组 ilovezhanshen
+前方记者：纽约香草山记者站 | Kathy (文艺)
 
+撰稿：纽约香草山记者站 | 爱莉安娜
 
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-6月8日，据CNBC消息称，前白宫高级贸易官员Clete Willems表示，中共制裁欧盟官员的做法是一个“巨大的战略错误”，这种做法终结了欧盟和中国之间的一项重大投资协议，并且已经无法挽回[1]。
-
-![The Chinese and European Union flags hang during a speech by Herman Van Rompuy, president of the European Union, unseen, at the Central Party School of the Communist Party of China, in Beijing, China, on Tuesday, May 17, 2011. Van Rompuy said the euro is ]()![The Chinese and European Union flags hang during a speech by Herman Van Rompuy, president of the European Union, unseen, at the Central Party School of the Communist Party of China, in Beijing, China, on Tuesday, May 17, 2011. Van Rompuy said the euro is ](https://image.cnbcfm.com/api/v1/image/103061290-GettyImages-114255829.jpg?v=1616475816&amp;w=900&amp;h=506)图片来源：CNBC (*Nelson Ching | Bloomberg | Getty Images*)
-
-此前，欧盟于3月22日因中共对新疆维吾尔人的监禁而制裁了数名中共官员以及相关实体[2]。随后，中共外交部迅速回击，制裁了10名欧盟官员和4家实体机构[3]。5月20日，欧盟以599票支持，30票反对和58票弃权通过决议，冻结了《欧中全面投资协议》（EU-China Comprehensive Agreement on Investment）。
-
-欧中全面投资协议的谈判历时7年，双方谈判人员于2020年12月达成一致。该协议要求中（共）国给与欧盟国家的公司更加公平的地位，并使中共国成为欧盟更加信任的贸易伙伴，双方都将获得对方更为开放的市场。
-
-欧中关系与《欧中全面投资协议》的最大主导者毫无疑问是德国以及德国总理默克尔。中共国是德国的第一大贸易伙伴，而且中（共）国市场对德国的汽车产业有着决定性的影响。《欧中全面投资协议》一旦签署，将允许德国企业对其在中共国的分支机构控股，而不是通过之前的合资模式进入中共国并且按中共的要求强制转让技术。2020年下半年，正值德国担任欧盟轮值主席国，默克尔把通过《欧中全面投资协议》作为她的一大工作重点。
-
-如今，默克尔作为德国总理的16年任期即将结束，这为德中关系与欧中关系添加了更多的不确定性。2021年9月，德国联邦议院将进行新一轮选举，其中绿党成为新一届执政党的可能性更大。绿党总理候选人安娜莱娜·贝尔博克（Annalena Baerbock）最近曾公开表示，要对中共国不尊重人权的行为采取强硬的立场[4]。
-
-自美国川普政府对中共开启了一系列经济制裁后，欧洲一直与中共保持着暧昧的关系——因为欧洲国家对于中（共）国市场的依赖远远大于美国。但随着中共在全世界一系列倒行逆施的流氓行径被暴露出来，尤其是世界对病毒真相溯源的推进，欧洲对中共国的立场也开始发生重大的转变。
-
-欧洲的另一大支柱，英国，已经禁止华为加入其5G网络，并从香港事件中认清了中共的本质。英国不仅为香港人提供签证，还拨款4300万英镑援助香港人移民英国[5]。除此之外，英国还废除了中共国电视台CGTN在英国的播出执照[6]，并驱逐了三名假扮成记者的中（共）国间谍[7]。
-
-根据郭文贵先生最近的爆料，闫丽梦博士以及到达欧洲的某位中（共）国高级科学家为病毒真相提供的实锤证据，还有中共之前通过曾任国际刑警组织主席的孟宏伟对位于欧洲的国际刑警组织进行控制的证据事实、再加上中共国过去几年的其他所作所为，让欧盟委员会认清了中共的流氓本质，最终促成了欧中协议的终结[8]。除此之外，美国也一直在背后施加压力，迫使主要的欧洲国家在对抗中共的问题上与美国站在一起[9]。
-
-6月11日至6月13日，美国总统拜登赴英参加G7峰会。拜登将进一步采取与川普不同的方式，大力团结欧洲的盟友，一起对抗中共的独裁政府[10]。美国国家安全委员会高级官员早前透露，这次峰会的主题主要包括新冠肺炎疫情、气候变化和中（共）国。前国防官员帕维尔（Barry Pavel）更是形容，拜登在峰会期间出席的每一个会议“都会有中（共）国议题渗透其中”。美国媒体引述消息人士指出，G7峰会期间，各国会提出一个抗衡中（共）国“一带一路”的计划，让发展中国家可以用更环保的方式发展基建。另外，该峰会还会讨论台湾、香港议题以及对病毒真相展开透明调查的呼吁 [11]。
-
-在美中脱钩不断推进的大背景下，中共曾经幻想着，可以依靠“蓝金黄”欧洲国家，联欧抗美。如今，这一幻想已经破灭，中共已经实实在在地陷入了四面楚歌的境地。
-
-参考阅读：
-
-1. [China made a ‘huge strategic blunder’ in retaliating against Europe, former U.S. negotiator says](https://www.cnbc.com/2021/06/08/eu-china-tensions-and-its-impact-on-europe-investment-deal.html)
-2. [EU imposes further sanctions over serious violations of human rights around the world](https://www.consilium.europa.eu/en/press/press-releases/2021/03/22/eu-imposes-further-sanctions-over-serious-violations-of-human-rights-around-the-world/)
-3. Foreign Ministry Spokesperson Announces Sanctions on Relevant EU Entities and Personnel\_https://www.fmprc.gov.cn/mfa\_eng/xwfw\_665399/s2510\_665401/t1863106.shtml
-4. [Germany’s Greens chancellor candidate vows to get tough on Russia and China](https://www.reuters.com/world/europe/germanys-greens-chancellor-candidate-vows-get-tough-russia-china-2021-04-24/)
-5. [香港BNO移民：签证申请远超预期，英国政府拨款助港人融入当地](https://www.bbc.com/zhongwen/simp/uk-56672193)
-6. [Ofcom revokes Chinese broadcaster CGTN’s UK licence](https://www.bbc.com/news/entertainment-arts-55931548)
-7. [UK expelled three Chinese spies posing as journalists in past year: The Telegraph](https://www.reuters.com/article/uk-china-britain-espionage/uk-expelled-three-chinese-spies-posing-as-journalists-in-past-year-the-telegraph-idUSKBN2A5066)
-8. [全文字版2021年5月30日郭文贵先生G-TV直播](https://gnews.org/zh-hans/1285961/)
-9. [【字幕】5/31/2021文贵盖特：以毒灭共已和共产党的垂死挣扎，会形成非常有趣的国际政治现象](https://gnews.org/zh-hans/1287035/)
-10. [Biden Seeks Allies’ Support in Confronting Putin, China](https://www.wsj.com/articles/biden-heads-to-europe-to-restore-alliances-and-counter-autocracys-rise-11623231001?mod=e2tw)
-11. [G7峰会：“多边主义抗衡中（共）国”能否奏效成焦点](https://www.bbc.com/zhongwen/simp/world-57424095)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
 
-编审：加拿大多伦多枫叶农场/经济小组 向往真理
 
-校对/发稿：Irene木木
+
+编者按：Kathy文艺战友，早年毕业于墙内著名学府——北京大学。她在那里度过了4年的时光。估计她是在那里完成的本科教育。在北大，有句流行的认知，就是只有本科是在北京大学度过的，才会被认为，真正具备了北大精神，骨子里接受过了北大文化的洗礼。什么是北大精神呢？北大人在追求自由、民主和法治的实践中，有什么样的心路历程呢？请阅读本文，了解Kathy文艺战友在新中国联邦一周年庆典期间，登上帝国大厦时的感悟。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14181313/%E5%B8%9D%E5%9B%BD%E5%A4%A7%E5%8E%A6-%E5%A4%9C%E6%99%AF.png)美国纽约帝国大厦在中国新年期间亮起红色的灯。图片来源：网络
+
+文章摘要：当经历了这一切来到了自由国度，才渐渐知道美国在我们中华民族的发展中，它的作用实际上远远超过了我们平时，尤其是我们在墙内时那种狭隘的理解。回溯１９１９年“五·四”那个年代，当时的那一批知识分子中，鲁迅代表了国内一股对儒学、理学和封建传统进行鞭辟入里的批判的思潮；而胡适先生则是代表了留美和留学西方的学者。尤其是，胡适先生还担任过当时的中华民国驻美国的大使。他在美国的经历，决定了他一定是试图借助于美国的民主自由来改善中华民族历史传统当中不足的部分。
+
+2021年6月5日，刚参加完新中国联邦庆典，我便借组委会安排的一日游与战友们参观了纽约各大景点，其中最难忘的就是登上曾是纽约最高楼的帝国大厦。
+
+身处纽约帝国大厦第８０层的观景台，刚才还是瓢泼大雨，此刻却阳光明媚，晴空万里。眺望窗外，纽约曼哈顿象一幅美丽硕大的鸟瞰图一并尽收眼底。放眼望去，对面是哈德逊河；那座高耸的的大楼就是新世贸中心，我们新中国联邦的庆典活动就是在那里的１０２层举办的。在远处海港那边是自由岛，岛上高高矗立着神圣的自由女神像。
+
+登上帝国大厦的电梯里，各层楼里面，有各种各样的模型及许许多多用高科技方式制成的照片或图片，以再现当时建筑帝国大厦时的艰难情景。帝国大厦竣工于1931年，年代久远，当时曾是世界上最高的商业大厦。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14184647/2021-06-14-17.10.21.jpg)帝国大厦模型。图片来源：网络
+这次我作为整个庆典活动的参与者，又和战友们一起游览帝国大厦，感慨万千。我在纽约居住近三十年，帝国大厦是唯一一个我没有去过的景点，它一直留在我的幻想之中。
+
+每年中国的新年，帝国大厦上面点亮红灯， 充满着中国新年的节日气氛。我每次都在思索，为什么在这样一个追求民主自由的国度，在一个有着与中国政府完全不同的治国理念的异国，会庆祝一个在它的国土里占人口比例不是很大的异族的新年。实际上，在最近几年，我也看到美国人民和美国政府不断地接纳新移民，包括中国新年时民间的各种游行庆祝；公立学校的学生也会在中国大年初一放假；学校以及每一位老师和同学的逐渐的包容，都令我非常感动。因为我也有孩子在学校上学，所以深有体会。每当中国新年来临，帝国大厦亮起红色的彩灯，都使我的心中有一种莫名的思绪在涌动，内心的感激之情油然而生，让我更真切地感到美国这个国家的包容和伟大。
+
+作为一个从中国而来的移民，我有很多的故事，其中有一段经历也和美国有关。
+
+我曾经的母校——北京大学校址燕园，就是用美国传教士司徒雷敦先生及美国教会创办的燕京大学校址。燕大号称是北大、清华和中国政法大学的前身的一部分。上大学时，每当我在母校未名湖畔散步，看到司徒雷登先生的墓冢时，并没有过多的思考。只知道有这么一位美国人，他很了不起，他亲手创办的燕大，为今天的北大——这所在中国的大学史上可以说数一数二的综合性大学的发展史中，留下了不可磨灭的丰功伟绩。我本人何其荣幸，在这所大学度过了四年的时光。当时因为太年轻，并不知道这意味着什么。后来经历了八九“６·４”，经历了天安门广场那一幕，我越来越多的去思考，在世界历史的长河中，我们的民族到底所缺少的是什么。我也开始了将追寻自由民主置为头等重要的人生旅程，并在93年以留学生身份来到美国，追寻自己的梦想。
+
+当经历了这一切来到了自由的国度，才渐渐知道美国在我们中华民族的发展中，它的作用实际上远远超过了我们平时，尤其是我们在墙内时那种狭隘的理解。回溯1919年“五·四”那个年代，当时的那一批知识分子中，鲁迅代表了国内一股对儒学、理学和封建传统进行鞭辟入里的批判的思潮；而胡适先生则是代表了留美和留学西方的学者。尤其是胡适先生还担任过当时的中华民国驻美国的大使。他在美国的经历决定了他一定是试图借助于美国的民主自由来改善中华民族历史传统当中不足的部分。
+
+时值今日，中共这个恶魔，不仅对中华民族，而且对全世界各族人民都造成威胁。人类历史的长河到了生死存亡、何去何从的关键节点。郭文贵先生所引领的伟大的爆料革命，在美国开启了以美灭共，以共灭共的征程。虽然我们身边还有不少人在沉睡，还在被蒙蔽之中，但我相信无论是墙内还是海外，象我这样经历的人很多，他们会不断地觉醒。我身边就有很多这样的战友，我们在线下以及在新中国联邦庆典上都见到和交谈过。从墙内跑出来的战友也越来越多。我坚信总有一天，没有了共产党之后的我们的民族，会象美国那样真正地走向民主、法制和信仰自由。
+
+在庆典现场，我终于亲眼见到了几位传说中的敬爱的美国朋友，如班农先生、弗林将军、比尔·格兹(Bill Gertz)先生夫妇、拉西姆先生、枕头哥迈克先生、老摩根及家族成员代表等等，他们都关注并参与着中国老百姓的民主自由事业，他们是我们真正的朋友，是我们爆料革命的真正合作者。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03200650/2021-06-03-19.59.27.jpg)斯蒂芬·K·班农 (Stephen K. Bannon)先生，亿万富翁企业家迈克·林德尔先生 (Mike Lindell), 以及前纽约市长鲁迪·朱利安尼 (Rudy Giuliani) 先生到场，并发表讲话。图片来源：Kathy文艺
+在这个历史的重要关头，我是何其有幸，得以参加到这场前无古人，也必定后无来者的伟大的革命之中。站在帝国大厦的观景台，思绪万千。感到作为中华儿女，我们义不容辞要站出来，跟上时代，跟上爆料革命的步伐，跟上新中国联邦发展的历史进程。我们每一位中华儿女都要参与其中，并要贡献我们的一份微薄的力量。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14183424/%E5%B8%9D%E5%9B%BD%E5%A4%A7%E5%8E%A6-%E7%99%BD%E5%A4%A9.png)图片来源：网络
+编辑/校对/发稿：Delilah小胖
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
 
 
 
-0
+
+
++1
