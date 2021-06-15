@@ -1,33 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】找寻在百年阅兵前的彩排中嗡嗡作响的中国隐形战斗机
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1323330/)
+## 【有声读物】罗马尼亚禁中共和华为参与5G开发
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1323453/)
 
-勒德登于2021 年 6 月 14 日发表文章描述中国战机排练阅兵的情景：
+配音：香草山录音组 蒙古鸿雁
 
-中国共产党成立100周年庆典即将于7月1日举行。自然，像任何政府主办的大型战争机器庆祝活动一样，需要做很多准备。上周末，有人看到中国人民解放军（PLA）在一次彩排活动中驾驶各种战机和直升机，但引起我们注意的是隐形战斗机和新型重型直升机的视频。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-据官方媒体《 环球时报》报道，北京天安门地区成千上万的人凝视着天空，战机和直升机正在练习飞行编队。《环球时报》补充说，此次活动包括“热身、盛会、进出以及紧急情况的准备”。
 
-周日上午白天，在彩排中可以看到几架解放军战机在天空中飞行，其中包括数十架直升机组成的“100”编队，歼10战斗机编队代表“71”或7月。北京杂志《航天知识》周日报道，1 月 1 日是中国共产党的生日，由 5 架歼20 隐形战斗机组成的编队。——环球时报
 
-随着美国和中国之间的紧张局势在拜登政府的领导下继续恶化，中国显然是在向西方发表声明。两国之间的大国博弈，正把两国越来越靠近修昔底德陷阱。
 
-上传到社交媒体上的视频令人印象深刻。我们很惊讶“战神”隐形轰炸机没有出现在即将到来的庆祝活动中，或者可能会出现
 
-小象：目前尚不知道是否有没有战神隐形轰炸机，据之前有网友扒出来，关于卫星发射，导弹发射，还有卫星登录，航母演练的等“令人印象深刻”的视频，很多都是通过编辑剪辑的假视频，希望这次所有的视频都是真实的。如果有网友恰好看到拍到，欢迎上传或者下方留言，发给我们分享。
 
-参考链接：
 
-[https://www.zerohedge.com/geopolitical/chinese-stealth-fighters-buzz-beijing-fly-over-rehearsal-ahead-centenary-parade](https://www.zerohedge.com/geopolitical/chinese-stealth-fighters-buzz-beijing-fly-over-rehearsal-ahead-centenary-parade)
+6月11日，罗马尼亚总统克劳斯-约翰尼斯（Klaus Lohannis）签署了一项得到华盛顿支持的法案。该法案出于安全担忧，禁止中共和华为参与该国5G电信网络的开发。这项法案源于2019年的一份美国-罗马尼亚备忘录，两国政府在备忘录中表示：“作为基于风险的安全措施的一部分，对5G供应商进行仔细和全面的评估是必要的”，应排除那些由外国政府控制并且缺乏透明所有权结构的供应商。
 
-图片来源：[https://www.zerohedge.com/](https://www.zerohedge.com/)
 
-整理撰稿：蓝精灵
 
-校对发布：Penny
+**文字版原文：[【独立观点】罗马尼亚禁中共和华为参与5G开发](https://gnews.org/zh-hans/1320772/)**
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+作者：纽约香草山健身部 Ivy001
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,91 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 霍利呼吁国会对冠状病毒进行全面调查
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1323103/)
+## 印度有意加入B3W计划
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1323209/)
 
-**字幕内容：**
+俄罗斯莫斯科喀秋莎农场   银河
 
-**听译**
-**Tucker Carlson:
-塔克 卡尔森：**
+编辑上传   水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14231929/I-3.jpg)timesofindia.indiatimes.com
+Exbulletin6月14日报道，印度表示，将研究美国总统拜登在七国集团峰会上倡议的“重建更好”（B3W）全球基础建设计划，作为中共“一带一路”的替代方案。
 
-So, it’s simple,
-所以，很简单
+该计划由主要民主国家牵头，将为主要因中共病毒疫情而经济恶化的发展中国家的基础设施需求提供40多万亿美元的资金和技术援助，且还将为当地创造就业机会。七国集团的这一B3W计划被视为对中共国家主席习近平最喜欢的“一带一路”项目的潜在冲击。
 
-I don’t think it’s an outrageous thing
-我不认为要求联邦政府进行
+印度表示，相关机构将研究该计划，并可能在稍后参与该项目。在一次记者招待会上，印度外交部高级官员哈里什说，“关于加入‘为世界建设更美好’的具体问题，我可以证实，印度有关政府机构将进行研究，并可能在稍后阶段与他们接触。”
 
-to ask for that there is some sort of organized effort , by the federal government,
-某种有组织的努力，进行调查
+中共国的“一带一路”倡议，因其不断增加的债务、缺乏地方就业及缺少透明度的一系列问题和危险信号，已经引起国际社会的广泛关注和批评。印度拒绝加入中共国“一带一路”倡议，认为这是对其领土完整的攻击，但邻国巴基斯坦、尼泊尔和斯里兰卡却都是“一带一路”的一部分。
 
-an investigation to get to the bottom of this,
-以查明真相是一件很过分的事情
+据印度多边环境部一名高级官员说，“总理强调，民主国家应表明，在项目执行方面，我们不仅可以在本国，而且可以在其他国家执行。总理谈到印度在邻国和非洲国家的经验，以及在发展伙伴关系框架内的经验。总理还表示，印度准备在这方面做出更多努力，铭记透明度和包容的道德准则。”
 
-why isn’t there one?
-为什么没有呢？
+在七国集团(G7)上，印度总理纳伦德拉·莫迪(Narendra Modi)敦促民主国家向世界证明，它们可以更有效、更透明地实施项目。莫迪还强调了民主社会共同努力、相互加强的必要性，以此捍卫各自的价值观并应对挑战。
 
-Josh Hawley:
-乔什·霍利：
+印度-南非放弃与贸易有关的知识产权协定的建议也得到七国集团的广泛支持。 多边环境部秘书哈里什说，“印度-南非放弃与贸易有关的知识产权协定提议的文本谈判在世贸组织得到了广泛的支持。关于有必要向世界各地的制造商提供财政援助，达成了一项一般性协议，以提高能力、区域生产极点、确保这些区域的资金、技术转让和技能发展。”
 
-Well I think because we’ve seen the media line,
-好吧，我认为因为我们已经看到了媒体路线
+这是印度第一次参与七国会议。这位多边环境部官员说，英国首相鲍里斯·约翰逊已经呼吁七国集团与另外四个国家——印度、澳大利亚、韩国和南非——组成民主11国。他说，许多国家赞赏印度对七国集团的承诺，“所以我可以说，我们的接触是富有成效的，我们希望在各种倡议中继续我们的接触。”
 
-which Dr. Fauci has unfortunately promoted over and over ,
-不幸的是，福奇博士一遍又一遍地宣传，
+参考链接：
 
-which is the idea that the Wuhan Lab was involved in Covid-19 in anyway, was false.
-即武汉实验室无论如何参与了 Covid-19 的想法是错误的
-
-That is what they have said over and over “You’re a conspiracy theorist”, they said.
-他们说，这就是他们反复说的“你是阴谋论者”
-
-Dr. Fauci has said, you know, this naturally originating virus,
-福奇博士说，你知道，这种自然起源的病毒
-
-we shouldn’t ask questions.
-我们不应该问问题
-
-Turns out, Tucker, there are a lot of really legitimate questions,
-事实证明，塔克，有很多真正合理的问题
-
-and I mean a lot of really legitimate questions about the involvement,
-我的意思是很多关于实验室的参与
-
-potential involvement, of a lab,
-潜在参与的真正合理的问题
-
-we need to get to the bottom of it.
-我们需要深入了解它
-
-Dr. Fauci, by the way, knew very well.
-顺便说一下，福奇博士非常了解
-
-His emails tell us he knew in January of 2020,
-他的电子邮件告诉我们，他在 2020 年 1 月
-
-that there was a possible lab connection there.
-就知道那里可能存在实验室联系
-
-Course, he also knew about his connection to gain of function research at that same lab,
-当然，他也知道他在同一个实验室的功能增强研究的联系
-
-and yet he was dishonest about it, and continues to be dishonest about it. That’s a big problem.
-但他对此不诚实，并且继续不诚实
-这是一个大问题
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接**:[https://twitter.com/abigailmarone/status/1402791170657431552](https://twitter.com/abigailmarone/status/1402791170657431552)
-英听校： 康州盘古农场 -Freeearth
-翻译： 康州盘古农场–Freeearth
-翻译终校： 康州盘古农场-Mike Li
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://exbulletin.com/politics/989089/?wpmeteordisable=1](https://exbulletin.com/politics/989089/?wpmeteordisable=1)
 
 0

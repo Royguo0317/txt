@@ -1,45 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国在建党100周年前夕用共产党宣传淹没教会
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1323234/)
+## 【香草诗词汇】端午幻生缘
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1323394/)
 
-翻译：康州盘古农场 – Layka
-校对：康州盘古农场 – 心照
-编辑；康州盘古农场 – 明子
-发布：康州盘古农场 – 彩虹 Rainbow
-**据《www.breitbart.com》加布里埃尔·雷耶斯（Gabrielle Reyes）2021年6月10日报道：**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14231353/picc20210614.png)
-据香港《苹果日报》周四报道，中共当局已下令全国少数合法教会在 7 月 1 日前学习和庆祝中国共产党建党 100 周年。
+作者： 纽约香草山医疗部 云豹
 
-该报称：“中共国的官方天主教堂是最活跃的，一些教区在举行感恩节弥撒时歌颂中共[原文如此]。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
-“在上个月发表的一份声明中，中共国天主教爱国会副主席、中国人民政治协商会议全国委员会委员刘元龙写道：‘上帝选择了中国共产党’”苹果日报透露。
 
-中共国的宗教事务局成立了中国天主教爱国会(CPCA)，负责监督中共国天主教徒的活动。虽然中国共产党是正式的无神论者，但中共国政府声称允许在中共国境内信仰少数宗教。被容忍的信仰包括基督教的严重改变版本，例如与罗马天主教不同的“天主教”的迭代和一种称为“三自爱国教会”的新教形式。佛教、道教和伊斯兰教在中共国表面上也是被允许的，但只能在共产党的完全控制之下。
 
-“我们要坚决拥护以习近平为核心的中国共产党。我们听党的话，跟党走。” 为纪念即将到来的共产党周年纪念日，中国天主教爱国会刘元龙副主席在上个月的官方声明中写道。
+端午中日焰
+浴花圃园间
+灰影叶间动
+惊喜野雀缘
 
-中国天主教爱国会主席房兴耀(John Fang)在5月发布的另一份声明中强调该组织将继续“深化天主教中共国化”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15003427/P_20210614_115757-scaled.jpg)
 
-“我们与党保持高度一致，坚定不移地走爱国爱教之路。”同时担任中共国东部省份山东教区主教的房兴耀写道。
+雀巢柏叶掩
+意为繁衍建
+一卧巢中憩
+偶立旁枝喧
 
-“中共国化”是指共产党通常使用共产主义价值观篡夺宗教实际价值观的术语，它认为共产主义价值观比宗教更“中共化”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15003522/P_20210614_115817-scaled.jpg)
 
-在中国国家宗教事务总局发布的新规定于 5 月生效后不久，中共国基督教领袖上个月发表了效忠共产党的公开声明。
+高吭声急劝
+警客勿近前
+雌雄轮值巢
+心期雏羽现
 
-据苹果日报报道，“宗教人员管理办法规定，宗教领袖和教师必须维护国家安全和民族团结，并加强对他们在海外的收入和培训的审查”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15003630/P_20210614_115429-scaled.jpg)
 
-该报回忆道，“在二月份的一次会议上，全国政协主席汪洋告诉宗教领袖，要以建党纪念为契机，让宗教教义与社会主义接轨” 。 全国政协是中国政府内部由共产党控制的政治咨询机构。
+昔蝶沦雀餐
+今幻双雀惦
+速脱妄想苦
+无佛无大千
 
-中共中央办公厅于5月下令“要求社会各界开展中共历史宣传教育”，以期在7月1日全国庆祝中共成立100周年。 “与（中共政府的）社会主义研究所合作举办课程，并安排追随者到历史遗迹致敬。”据苹果日报报道。
+校对/发稿：飞虹
 
-中共国执政的共产党至少从 4 月开始就鼓励公民参与所谓“红色旅游”。 红色旅游包括参观中共国各地被认为对中国共产党具有历史意义的遗址和纪念碑等。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
 
-**原文链接**：[https://www.breitbart.com/asia/2021/06/10/china-floods-churches-with-communist-propaganda-ahead-of-partys-100th-anniversary/](https://www.breitbart.com/asia/2021/06/10/china-floods-churches-with-communist-propaganda-ahead-of-partys-100th-anniversary/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

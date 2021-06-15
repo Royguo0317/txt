@@ -1,31 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】台山核电站最新：亨特拜登投资数百万美元投资运营核电站的中国共产党公司
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1323193/)
+## 亚利桑那州总检察长发信函警告联邦政府不要干预本州对大选公正性的调查
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1323296/)
 
-2021 年 6 月 14 日娜塔莉·温特斯发表文章：一家被认为正在发生泄漏并构成“迫在眉睫的放射性威胁”的核电站由中国广核集团公司经营：这是一家国有企业，从乔·拜登总统的儿子亨特那里获得了数百万美元的投资。
+翻译：Rosa
 
-根据这家法国公司给美国国务院的一封信，该警告包括一项指控，即中国安全部门正在提高广东省台山核电站外辐射检测的可接受限值，以避免不得不将其关闭。其中一位消息人士称，尽管法国公司法马通发出了令人震惊的通知，但拜登政府认为该设施尚未处于“危机水平”。
+以下是信函翻译
 
-拜登团队对此并不担心，因为这家中国工厂的主要运营商中国广核集团公司（CGN）从亨特拜登那里获得了数百万美元的投资。BHR Partners，Hunter Biden 自 2013 年起担任董事的私募股权公司，这是中广核首次公开​​募股的1000 万美元基石投资者。IPO发生在2014年是全年第二大IPO，价值超过30亿美元。该公司主要亨特·拜登，据说保留了相当大的股份，仍列出了GCN作为其组成部分的投资组合在其网站上。
+总检察长办公室
 
-中广核是一家国有独资能源公司，其中一名顾问被美国司法部 (DOJ) 定罪，罪名是公司范围内的计划“聘请美国核工程师协助设计和制造核反应堆的某些部件”，近二十年来，据美国司法部称，被盗的机密 “对我们的国家安全造成了重大损害”。
+亚利桑那州
 
-参考链接：
+2021年6月14日
+
+总检察长梅里克-B-加兰
+
+美国司法部
+
+宾夕法尼亚大道950号，西北
+
+Washington, DC 20530-0001
+
+亲爱的司法部长加兰。
+
+上周末，你对各州进行的确保选举公正性不懈努力的时候发表了令人不安的评论。你的言论显示了对美国宪法第10条修正案和第1条和第2条中的选举规定所定义的国家主权的蔑视，这令人震惊。
+
+你的评论是在司法部民权司的Pamela Karlan于5月5日就亚利桑那州参议院对马里科帕县审计的监督问题发出的信函之后发表的。这封信似乎更想支持有线电视上左派专家歇斯底里的叫嚣，而不是支持法治。
+
+我的办公室对司法部的姿态并不感到欣喜，也不会容忍任何破坏或干扰我们州参议院审计的努力，以保证亚利桑那州人对我们选举的公正性感到放心。我们随时准备捍卫联邦主义和州的主权，反对任何党派的攻击或联邦的过度扩张。
+
+重要的是要记住，州政府创造了联邦政府，而不是反过来。美国的建国者有意限制联邦政府的宪法边界，以确保每个州都能以独特的方式蓬勃发展。今天，我们的联邦政府在很大程度上忘记了建国者的意图，但我的办公室却没有。
+
+对于各州来说，没有什么问题比我们选举的公正性更重要。这是我们共和国的基石，将人民对整个政府的信任联系在一起。今天，我们看到美国人在政治领域的所有方面都对我们的选举有不信任。这不应该是一个党派的问题。各州可以而且应该利用一切机会向所有公民保证，他们的投票是重要的。
+
+我的办公室寻求与联邦政府一起工作的方法，在第十修正案和第1条和第2条的选举规定的限制下维护我们的法律。然而，正如我多次表明的那样，亚利桑那州不会坐视拜登政府滥用其权力，拒绝维护法律，或试图征用我们各州的主权。
+
+敬上，
+
+马克-布尔诺维奇
+
+总检察长
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14235050/unnamed-file.jpg)图片来源: https://www.washingtonexaminer.com/washington-secrets/arizona-ag-defends-maricopa-vote-audit-against-hysterical-justice-criticism
 
 
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-> [Hunter Biden Invested Millions In Chinese Communist Party Firm Operating Nuclear Plant Reportedly Experiencing Leak.](https://thenationalpulse.com/breaking/hunter-biden-invested-in-nuclear-firm-experiencing-leak/)
-
-
-
-图片来源：[https://thenationalpulse.com/](https://thenationalpulse.com/)
-
-整理撰稿：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![This image has an empty alt attribute; its file name is 1-%E6%BE%B3%E5%96%9CLogo.jpeg]()![This image has an empty alt attribute; its file name is 1-%E6%BE%B3%E5%96%9CLogo.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0

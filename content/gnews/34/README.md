@@ -1,62 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彼得·达萨克继续为中共背书
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1322972/)
+## 霍利呼吁国会对冠状病毒进行全面调查
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1323103/)
 
-新闻来源：《国家脉动》| 作者：娜塔莉·温特斯| 发布时间：2021年6月12日
+**字幕内容：**
 
-翻译/简评：Claire|校对：clau|审核：Beicy-数学老师|Page：小雨
+**听译**
+**Tucker Carlson:
+塔克 卡尔森：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lkIJ5sCSCcszR/images/d25c79a1-3c34-47d7-baa1-8a78b8350db4.jpg?asset_id=7e4a2b3e-cd36-468f-b345-df76b84342ff&amp;img_etag=%222bf305ac215150c7ab824a8cb29b21b6%22&amp;size=2560)](https://spark.adobe.com/page/lkIJ5sCSCcszR/images/d25c79a1-3c34-47d7-baa1-8a78b8350db4.jpg?asset_id=7e4a2b3e-cd36-468f-b345-df76b84342ff&amp;img_etag=%222bf305ac215150c7ab824a8cb29b21b6%22&amp;size=1024)
+So, it’s simple,
+所以，很简单
 
-**简评：**
+I don’t think it’s an outrageous thing
+我不认为要求联邦政府进行
 
-担任世界卫生组织新冠病毒调查员的彼得·达萨克在最近的一次采访中，继续为中共背书，强调人们误解了中共政府，中共成为新冠病毒“实验室泄漏”阴谋论的受害者。
+to ask for that there is some sort of organized effort , by the federal government,
+某种有组织的努力，进行调查
 
-关注爆料革命的战友都知道，达萨克与武汉病毒研究所有着密切的财务和人事关系。达萨克管理的生态健康联盟，则是由福奇资助的，该联盟因向武汉病毒研究所提供资金而受到审查。福奇在美国疫情爆发期间，阻挠川普政府对病毒真相的调查。前一段时间，福奇突然改口，声称病毒的来源充满各种可能，不排除实验室泄漏。上周爆出的他与达萨克的“邮件门”更是表明福奇和达萨克在疫情爆发之前就已经知道很多病毒的真相，但他们选择维护中共，隐瞒真相。
+an investigation to get to the bottom of this,
+以查明真相是一件很过分的事情
 
-另一边，彭佩奥在今年5月份的采访中表示，即使中共一直竭力掩盖病毒来源真相，转移视线，但知道真相的他们，没有阻止这一切的发生。有重要证据指向武汉病毒研究所；朱利安尼也在今年发表推文称，闫丽梦博士冒着巨大的风险说出武汉病毒研究所的真相；那些被消失的“吹哨人”不也是中共掩盖真相的证人吗？这次的武汉病毒，使全球陷入危机，郭先生说武汉病毒危机是唤醒中共国老百姓的最后一次机会。希望更多的战友醒过来，推翻中共这个幕后黑手。只有灭共，才能真正度过这个危机；只有灭共，才有未来！爆料革命，没你不行！
+why isn’t there one?
+为什么没有呢？
 
-**原文翻译：**
+Josh Hawley:
+乔什·霍利：
 
-## **彼得·**达萨克**为武汉实验室辩护：“人们误解了中共政府”**
+Well I think because we’ve seen the media line,
+好吧，我认为因为我们已经看到了媒体路线
 
+which Dr. Fauci has unfortunately promoted over and over ,
+不幸的是，福奇博士一遍又一遍地宣传，
 
+which is the idea that the Wuhan Lab was involved in Covid-19 in anyway, was false.
+即武汉实验室无论如何参与了 Covid-19 的想法是错误的
 
+That is what they have said over and over “You’re a conspiracy theorist”, they said.
+他们说，这就是他们反复说的“你是阴谋论者”
 
+Dr. Fauci has said, you know, this naturally originating virus,
+福奇博士说，你知道，这种自然起源的病毒
 
+we shouldn’t ask questions.
+我们不应该问问题
 
-![]()![](https://spark.adobe.com/page/lkIJ5sCSCcszR/images/aa8ec27c-4550-4890-a51f-b8ac71c7be02.png?asset_id=a422a54d-6847-4c0d-a54b-600b3e23ba0c&amp;img_etag=%222b1c4fde2f3e3d6475dd9b9d339c293e%22&amp;size=1024)
+Turns out, Tucker, there are a lot of really legitimate questions,
+事实证明，塔克，有很多真正合理的问题
 
+and I mean a lot of really legitimate questions about the involvement,
+我的意思是很多关于实验室的参与
 
+potential involvement, of a lab,
+潜在参与的真正合理的问题
 
+we need to get to the bottom of it.
+我们需要深入了解它
 
+Dr. Fauci, by the way, knew very well.
+顺便说一下，福奇博士非常了解
 
+His emails tell us he knew in January of 2020,
+他的电子邮件告诉我们，他在 2020 年 1 月
 
-**尽管与武汉病毒研究所有密切的财务和人事关系，但担任世界卫生组织新冠病毒调查员的彼得·达萨克在最近的一次采访中，似乎在为中共辩护，使其不必为“实验室泄密”论辩护。**
+that there was a possible lab connection there.
+就知道那里可能存在实验室联系
 
-5月份达萨克在播客节目《本周病毒学》（This Week In Virology）节目中发表讲话时，似乎为中共的所谓“阴谋论”辩护——这些理论得到了前疾病控制和预防中心主任罗伯特·雷德菲尔德的支持。
+Course, he also knew about his connection to gain of function research at that same lab,
+当然，他也知道他在同一个实验室的功能增强研究的联系
 
-“你的第四种理论是实验室事故，这已经持续了一年。我们从故意制造开始，我认为我们已经摆脱了这一点。现在我们进入了意外释放的理论，我很想听听你们对此的看法。”采访中，达萨克和世界卫生组织新冠病毒的两位研究员马里恩·库普曼斯和西娅·科尔森·费舍尔被问道。
+and yet he was dishonest about it, and continues to be dishonest about it. That’s a big problem.
+但他对此不诚实，并且继续不诚实
+这是一个大问题
 
-“我从实验室主任那里听到的一件事我觉得很有趣，他说，他的英语说得很好，”达萨克首先补充说，“我们问了他所有这些问题，他们在那边称它们为谣言，我们称之为阴谋论，他说基本上，基于他的英语版本，我们没有回应这些谣言，因为如果你这样做，你就滋养了谣言。”
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-达萨克经营着安东尼·福奇资助的生态健康联盟，该联盟因向武汉病毒研究所提供资金而受到审查，他还暗示人们“误解了中共国政府”，同时透露一名中共“高级”官员“掌管”该实验室：
+**原视频链接**:[https://twitter.com/abigailmarone/status/1402791170657431552](https://twitter.com/abigailmarone/status/1402791170657431552)
+英听校： 康州盘古农场 -Freeearth
+翻译： 康州盘古农场–Freeearth
+翻译终校： 康州盘古农场-Mike Li
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-*“所以我认为人们误解了中共政府，他是中共政府的一名高级工作人员，负责管理实验室，当他们被指控时，他没有说出来。原因是，他说得很清楚，他们不想滋养这些阴谋论。它们是没有根据的。而每隔一段时间，他们就会表声明：这根本不是真的。你做了什么呢？”*
-
-另一位受访者西娅·科尔森·费舍尔还透露，世卫组织的调查不是“实验室审计”，而只是与武汉实验室人员的问答练习。“这只是基于询问，而不是我们带着拭子、测试、血清学、跟进或调查实验室锁（译者注：进入实验室调查），因为这不是实验室审计。我们在那里是为了询问和采访，”她透露道。
-
-🔗[原文链接](https://thenationalpulse.com/breaking/daszak-defends-ccp-from-lab-leak-conspiracy/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/lkIJ5sCSCcszR/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/lkIJ5sCSCcszR/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
