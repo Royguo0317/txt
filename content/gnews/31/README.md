@@ -1,196 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 是时候拆分大型科技公司了，这一次是真的
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1322392/)
+## 【世纪大案】41：江苏路285弄——傅聪、张爱玲、江泽民和吴征
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1322509/)
 
-**字幕内容:**
+作者：香草山文艺部 Tiffany的早餐
 
-Tucker Carlson
-塔克 卡尔森
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
-So today, Republicans in the House of Representatives
-所以今天，在众议院的共和党人
 
-proposed bipartisan antitrust legislation
-拟议的两党合作的反垄断立法
 
-that could split up the tech monopolies
-这可能会分拆科技垄断公司
+2020年12月28日，享有“钢琴诗人”称号的著名钢琴家傅聪因感染CCP-Covid病毒在英国逝世，享年86岁。1955年，在第五届肖邦国际钢琴比赛上，傅聪得到第三名以及马祖卡奖。肖邦钢琴赛是世界上最高水平的钢琴大赛，每五年一次在肖邦的故乡波兰举办，傅聪成为首位获奖的中国钢琴家，一时轰动世界。傅雷随后留学波兰，当时波兰属于东欧社会主义阵营。毕业后因中国政治斗争残酷，脱离“组织”逃往自由世界英国定居。
 
-Congressman Ken Buck is the top Republican on the antitrust subcommittee.
-国会议员肯·巴克是反垄断小组委员会的最高共和党人
+傅聪的父亲是著名翻译家傅雷，在文艺和学术圈同样享有盛名。1966年文革，在上海江苏路284弄5号(今安定坊)的寓所，在傅雷写出《傅雷家书》，译出《约翰·克利斯多夫》《高老头》《欧也妮·葛朗台》等名著的地方，傅雷夫妇不忍凌辱双双自尽。
 
-And he joins us tonight.
-他今晚加入我们的节目
+傅家的经历是许多旧上海人物的写照。这里从繁荣的租界时代，到大革命的风气云涌，全国的精英聚集于此，又在二战时期成为沦陷区。战争结束，这些人经过了共军进驻前是走是留的抉择，没有意识到建设理想的国家过于天真，最终全家性命和家产——所谓的老钱(old money)——都变成了赤色革命的牺牲品。傅聪终其一生被共产党的黑云笼罩，老年又经常回中国活动，以为所谓改革开放后的中共可以合作，谁知命运弄人，最终还是死在中共的生物武器之手。
 
-Congressman, thanks so much for coming up,
-国会议员，非常感谢你的到来
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14140849/W020180622343513060471.jpg)文革前傅雷傅聪父子在江苏路284弄寓所
 
-what would it take to break I mean
-需要什么才能打破，我的意思
+昨日的上海远超新加坡、香港、东京，是远东第一大都市。中共占据数十年后，上海在内的整个大陆民不聊生，香港崛起为东方之珠。如同大革命时代各地的精英逃亡上海，中共占据时期勇敢的人们逃亡香港([香港风云 10: 从小学游泳，长大去香港](https://gnews.org/zh-hans/601687/))。直到最近几年，香港又覆蹈了上海的命运。
 
-Google is clearly monopoly by any definition,
-从任何定义来看，谷歌显然是科技垄断企业
+傅家两代人都对共产党还有幻想，最终以悲剧收场。但也有人能够一眼看穿共产党的本质，那就是傅家马路对面街坊，江苏路285弄28号一楼的张爱玲。1950年1月，著名作家张爱玲参加了上海第一次文学艺术界代表大会。进入会场后她只见：“不论男男女女，都着灰蓝中山装，只有自己穿了一身旗袍，外面还罩了一件网眼白绒线衫。”张爱玲回去后就决定离开上海，投奔香港：“连人的思想都要统一，这个环境就没有文化和艺术的生存之地。”
 
-what would it take to break up Google
-要怎样才能拆分谷歌？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14140750/CmQUOV2gOLeEfJELAAAAACs5abc166424736.jpg)
 
-is that possible at this point？
-在这一点上，有可能吗？
+张爱玲的眼力何等犀利，虽然她也有看错人的时候。抗日战争时期，江泽民生父江世俊在汪精卫政权任宣传部副部长兼社论委员会主任委员，他的顶头上司就是著名汉奸、张爱玲的前夫、宣传部次长胡兰成。多年后，张爱玲的小说《色·戒》被李安拍成名噪一时的电影，主角易先生的原型就是汪精卫政权的特务头子、侵华日军陆军大将土肥原贤二的小弟丁默村。
 
-Ken Buck (Congressman)
-肯·巴克（国会议员）
+日占时期，土肥原贤二在上海基斯菲尔路(今万航渡路)76号成立特工总部，丁默村、李士群分任正、副主任。江世俊力荐其子江泽民参加了第四期培训，这不难解释为何《色·戒》很快成为禁片([盘古相聚 13: 中共情报世家](https://gnews.org/zh-hans/580941/) )。
 
-Well, Tucker, I think the key is
-好的，塔克，我认为关键的是
+在傅雷带着一家信心满满准备建设“新中国”时，张爱玲不愿被时代裹挟，毅然离开了这块是非之地。她在江苏路285弄28号一楼的寓所留给了她笔下的“脓包弟弟”张子静。1966年文革开始数月后傅雷夫妇自尽，当年底，在这栋花园洋房的三楼，一个小名东东的男孩出生。
 
-that we introduce competition into the marketplace,
-我们将竞争引入市场
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14141055/nimg.ws_.126.net_-5.jpeg)吴凯声
 
-there’s, there’s no way I guess there is a way
-那没有方法，我想那是有个办法
+东东的祖父吴凯声是民国时期上海著名大律师，创办了上海规模最大的私人律所，他在北洋军阀、国共两党、汪伪、日本、法国、瑞士各政商要间八面玲珑，和周恩来、王若飞等人交好。吴律师迎娶上海名医、十九路军(淞沪会战主力)少将军医处长杨妙成的前妻，苏州美女爱伦为妻，也就是东东的奶奶。
 
-but I think it’d be an incredible disruption to our economy
-但我认为，如果进入并拆散像谷歌这样的公司
+张爱玲父张廷重，祖父清末名臣张佩纶，曾外祖父李鸿章。追溯到民国豪门盛宣怀、袁世凯、孙宝琦、乃至日后的宋家王朝，都是沾亲带故的。吴凯声和爱伦育有三子，老二吴立岚娶上海新月派名诗人邵洵美(李鸿章外孙、盛宣怀外孙)之女邵阳为妻，即是东东的母亲。
 
-to go in and break up a company like Google,
-将对我们的经济造成难以置信的破坏
+吴凯声得到汪精卫欣赏，任汪伪政权的外交次长。二战后吴凯声因此败落，终究因为和周恩来的不可描述的关系，几次入狱还是保住了性命，活到了文革之后。爱伦则带着孩子分家，住到了张爱玲家楼上。文革开始东东出生，东东的奶奶也不堪凌辱自杀了。
 
-But we can certainly make sure
-但我们当然可以确保
+多年后，东东从文革风云诡异时的乖小孩，摇身变成八字胡油腻胖子归国华侨。20世纪90年代他带着女朋友回到江苏路285弄，路人纷纷侧目，她就是出生于外交世家，因《正大综艺》红遍全国的杨澜。不明就里的群众只感到鲜花插到了牛粪上，却不知这对鲜花牛粪也不过是一对棋子。
 
-that Google doesn’t grow unfairly
-谷歌不会不公平地增长
+东东就是胖子吴征。吴征一直吹的“爷爷救了很多犹太人”指的就是吴凯声。江苏路一带是1949年前上海精英所在之地，共军来了没有来得及走的家庭，留下了许多悲惨的故事。吴征从生下来的那一天开始，就是在没完没了的名人街坊邻居自杀、被杀的故事中长大的。如果说傅家是太天真，还幻想中共可以改邪归正，那么吴征却是内心膨胀，不顾国恨家仇，和中共一起走向了无底深渊。
 
-that Google doesn’t cheat and that Google has competitors in the marketplace
-谷歌不作弊，谷歌在市场上有竞争对手
+吴征的背景是中共在国际上渗透所需要的。吴征很早就成为美国公民，并且有一位名人夫人，这对夫妇成为许多年来的交际花。最近几年，吴征最主要的任务，便是动用他的国际资源，谋害郭文贵先生和打击爆料革命。
 
-so those that want to get their, their version of a fact out there,
-所以那些想要得到他们的事实看法的人
+所有共产党的杀手，无论是孟宏伟([世纪大案 5：红色通缉令](https://gnews.org/zh-hans/351469/))、孙立军([世纪大案 7：中美执法合作](https://gnews.org/zh-hans/364009/) )、孟建柱([世纪大案 9：南普陀计划](https://gnews.org/zh-hans/377802/) )，还是马云，最后的下场都是从刀俎变成绞肉机里的鱼肉。
 
-their views out they have that opportunity,
-他们有机会发表意见
+马云和吴征虽然性命尚在，但也被绞肉机绞过多次了。2021年6月14日郭文贵先生爆料，谈到马云在被审讯期间，透露了关于吴征的信息。尽管全球灭共的形势越来越明朗，江习两派仍然为了2022年的二十大人事布局激烈斗争，江派力推韩正出任总理，吴征代理了江家巨大的海外利益，江派的韩正、江绵恒一直出面保吴征。
 
-We have it in cable news,
-我们在有线电视新闻中可以播放
+“其实是吴征掌握了韩正的太多资料，韩正的基因地图在吴征手里，吴征的儿子、弟弟在美国纽约。他怕吴征被抓后供出他。
 
-we have it with newspapers
-我们在报纸上可以刊登
+“共产党很奇怪，钥匙党活得都很好。中国的文化背景铸就了今天的笑贫不笑娼，现在的共产党都希望杨澜来找钥匙。正大、吴征、杨澜、韩正、江绵恒、江志诚和几个不能说的上海哥们，都连在一起，共产党的世界里杨澜一腚赢天下，三口澜，一腚赢天下。
 
-and we should have it online,
-我们应该把它放在网上
+“说到对共产党的伤害，杨澜某种程度上是我们的好姐们。”
 
-and it’s because the antitrust laws haven’t been updated in years,
-这是因为反垄断法多年没有更新
+([郭先生6月14日直播精要文字版](https://gnews.org/zh-hans/1322138/) )
 
-Congress hasn’t done its article one job
-国会还没有完成它的第一条的工作
+傅雷去世前，会不会后悔，共产党改邪归正这种想法，是否太过于天真了？
 
-that we need to update these laws now.
-我们现在需要更新这些法律
+张爱玲在美国洛杉矶去世，她在上海的文艺界旧知，那些大名鼎鼎的人物，那些上海西区精英荟萃的名人街坊邻居们，一半都没有活过文革。
 
-Tucker Carlson
-塔克 卡尔森
+江泽民硬撑着续命，生死无法看淡，因为他一倒台，下面的虾兵蟹将就要立即进入绞肉机。
 
-What do you think it was wise for the US government
-你认为这对美国政府来说是明智的吗
+吴征还在死撑，他和郭文贵先生过招多次了，他知道自己终究难逃罗网。或许，在美国坐牢，至少还能多活几年。
 
-to break up Standard Oil 100 years ago that the sugar trust.
-100年前拆分标准石油公司的糖业信托
+历史过去了几十年，无情地摆布着各种人物的命运。如今的江苏路285弄，人们还能记得的，只有那位逃离命运追杀，得到了自由的张爱玲，以及那部著名的禁片《色·戒》。
 
-Many other monopolies,
-许多其他垄断企业
+(待续)
 
-I mean that that seemed to spawn,
-我的意思是那似乎产生了
+相关链接：
 
-sort of the best time in American history
-这是美国历史上最好的时光
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/26123748/image0-2-1-2.png)](https://gnews.org/zh-hans/624473/)
 
-when we did that.
-当时我们做到了
+校对/发稿：飞虹
 
-Ken Buck
-肯·巴克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
 
-Absolutely. and, and republicans played a large role in that
-绝对的，共和党人在这方面发挥了重要作用
+**更多资讯，更多关注**
 
-and so I think now what we’re looking at is something
-所以我想现在我们正在看的是什么
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-that’s more akin to the telecommunications situation
-这更类似于电信的情况
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-where we’re able to take your cell phone number
-我们可以拿你的电话号码
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-and go from one carrier to a different carrier
-而且从一个运营商转到另一个运营商
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-what we want to make sure is
-我们要确定的是
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-that you can take your search history from Google,
-你可以从谷歌获取你的搜索历史记录
-
-and take it from that company to a different company.
-并将其从该公司带到另一家公司
-
-They know where you are right now.
-他们知道你现在在哪里
-
-Tucker, they know what you have purchased,
-塔克，他们知道你买过什么
-
-they know your medical history they know everything about you.
-他们了解你的病史，他们了解你的一切
-
-And if you aren’t in control of that data
-如果你无法控制这些数据
-
-and some monopoly is it’s very dangerous,
-而且有些垄断是很危险的
-
-not just to our speech rights,
-不仅是为了我们的言论权利
-
-but to our personal safety.
-也是为了我们的人身安全
-
-Tucker Carlson
-塔克 卡尔森
-
-Yeah, I mean, they control the elections
-是的，我的意思是，他们控制了选举
-
-they control speech they control what you think.
-他们控制了言论，他们控制了你的想法。
-
-Yeah, I would say it’s getting out of hand
-是的，我说它已经失控了
-
-Congressman, I appreciate coming on. Thank you.
-议员先生，我很高兴你能来。 谢谢你。
-
-Ken Buck
-肯·巴克
-
-Thank you.
-谢谢你
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接 [https://twitter.com/repkenbuck/status/1403552096201367554?s=24](https://twitter.com/repkenbuck/status/1403552096201367554?s=24)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1

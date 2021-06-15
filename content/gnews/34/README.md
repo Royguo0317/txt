@@ -1,121 +1,196 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港快讯】 6月14日 轰北京打压香港民主运动　北约秘书长：成员国应加强共同政策应对中共国
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1322429/)
+## 是时候拆分大型科技公司了，这一次是真的
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1322392/)
 
-搜集/整理：【喜马拉雅-粤语组】卡西欧 / 封面合成：文粤
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14131741/image001-29.png)
-**反外国制裁法︱谭耀宗暗驳田飞龙：中央已有权撤签证逼离港**
+**字幕内容:**
 
-全国人大常委会日前通过《反外国制裁法》，曾炮轰香港建制派有「忠诚废物」的全国港澳研究会理事田飞龙同日提倡，将《反外国制裁法》列入《基本法》附件三。不过本身是民建联的人大常委谭耀宗反指，香港即使未有《反外国制裁法》，中央已有权禁止指定人士入境香港、注销签证和勒令他们离开香港，该法是否适用于香港都无分别。
+Tucker Carlson
+塔克 卡尔森
 
-谭耀宗在商台节目指，人大常委会未决定会否将《反外国制裁法》纳入《基本法》附件三，香港外交属国家事务，中央已有权处理。他重申，以美国为首的西方国家多次制裁中共国，国家必应有反制，《反外国制裁法》是「保护公民」，但他不希望动用法例，认为制裁及反制都不应该。
+So today, Republicans in the House of Representatives
+所以今天，在众议院的共和党人
 
-对于中联办主任骆惠宁日前批评，叫嚣「结束一党专政」的人是破坏香港繁荣稳定的真正大敌，谭耀宗认为，中共国《宪法》已表明共产党的领导地位，尤其今年是共产党成立100周年，完全不容许有人有计划、有组织地试图推翻中共，与其「对着干」。
+proposed bipartisan antitrust legislation
+拟议的两党合作的反垄断立法
 
-一直传承平反六四诉求的支联会，其纲领包括「结束一党专政」。被问到中央是否有意取缔支联会，谭耀宗称，中央已表明不希望相关组织再做不利一国两制的事，但是否取缔则要谨慎衡量，审视政治气氛及法律要求。他又指，单凭高叫「结束一党专政」口号未必违反《国安法》，要同时具备意图及行动，但有关口号本身俱煽惑性，并不恰当。
+that could split up the tech monopolies
+这可能会分拆科技垄断公司
 
-支联会副主席邹幸彤则表示，「结束一党专政」一直是支联会的纲领之一，无可能修改，支联会早已预料可能被取缔。对于骆惠宁批评，高叫「结束一党专政」的人企图令香港成为遏制中共国的工具，毁坏一国两制根基，是香港繁荣稳定的真正大敌，邹幸彤认为这是恐吓，反斥骆惠宁针对追求民主的人，支联会毋须变「惊弓之鸟」。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14131833/image002-14.png)
-**轰北京打压香港民主运动　北约秘书长：成员国应加强共同政策应对中共国**
+Congressman Ken Buck is the top Republican on the antitrust subcommittee.
+国会议员肯·巴克是反垄断小组委员会的最高共和党人
 
-美国总统拜登在结束七国集团峰会后，周日（13 日）晚抵达布鲁塞尔，准备参加周一（14 日）举行的北约峰会。北约秘书长斯托尔滕贝格（Jens Stoltenberg）在北约峰会前夕表示，北约成员国领导人必须加强采取共同政策，应对中共国。
+And he joins us tonight.
+他今晚加入我们的节目
 
-斯托尔滕贝格接受加拿大CBC 采访表示，中共国拥有世界第二大国防预算和最大规模的海军，中共国并还在大力投资新的军事装备，「对我们的安全构成影响。」斯托尔滕贝格又提到，中共国与北约成员国价值相异，北京打压香港的民主抗议运动、压迫维吾尔人等少数族群，利用科技及社交媒体监控人民。他提到，因应上述情况，北约强化针对中共国的政策变得非常重要。
+Congressman, thanks so much for coming up,
+国会议员，非常感谢你的到来
 
-斯托尔滕贝格又强调，与中共国就气候变化或控制军备等问题进行对话，相当重要。他表示，加拿大前驻华外交官康明凯及加拿大商人迈克尔（Michael Spavor）在中共国被拘留，是绝对不能接受。
+what would it take to break I mean
+需要什么才能打破，我的意思
 
-斯托尔滕贝格说，「当一个国家做了(中共）不喜欢的事情时，（中共）就会做出挑衅反应。」
+Google is clearly monopoly by any definition,
+从任何定义来看，谷歌显然是科技垄断企业
 
-斯托尔滕贝格承认，特朗普时期北约盟国之间曾「对话艰难」，但他表示北约仍然「稳固而强大」。他认为，现任美国总统拜登，致力于北约和美国的安全。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14131928/image003-15.png)
-**黎智英获共产主义受害者基金会颁年度最高荣誉自由奖 「因撑港民主陷狱」**
+what would it take to break up Google
+要怎样才能拆分谷歌？
 
-美国「共产主义受害者纪念基金会」上周五（11日）在国会山庄举行民主女神纪念碑建碑14周年各国献花纪念仪式，并宣布将该会年度最高荣誉「杜鲁门──列根自由奖」（Truman -Reagan Medal of Freedom）颁发给壹传媒创办人黎智英，表扬他毕生致力于香港自由民主，顽强反对共产主义及其他任何形式的暴政，以及不计代价、坚决为反抗中共独裁统治而奋斗。该基金会主席呼吁，国际社会必须继续合作，用各种方式确保香港这个「自由的灯塔」，以及如黎智英般的英雄，不会成为共产主义的俘虏。
+is that possible at this point？
+在这一点上，有可能吗？
 
-共产主义受害者纪念基金会（Victims of Communism Memorial Foundation, VOCMF）周五在美国国会山庄「共产主义受害者纪念碑」前举行纪念仪式，共有16国外交官及数十个人权组织代表参加。基金会在声明中宣布，将年度最高荣誉「杜鲁门—列根自由奖」颁发给黎智英，是因为黎「为香港和民主奉献了一生，坚决反对共产主义和其他形式的暴政，以及不惜代价地决心反对中共的极权行为」。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14133124/image004-13.png)
-**英人权人士促褫夺郑若骅院士衔 伦敦国王学院维持保留 被批「可耻虚伪」：表扬打压香港的人**
+Ken Buck (Congressman)
+肯·巴克（国会议员）
 
-英国剑桥大学沃尔森学院（Wolfson College）去年8月15日，表达对特首林郑月娥承诺保障香港人权与言论自由的关注后，林郑即主动退回名誉院士名衔作回应。
+Well, Tucker, I think the key is
+好的，塔克，我认为关键的是
 
-英国《泰晤士报》（The Times）和《每日邮报》（Daily Mail）今日报道，英国保守党议员Bob Seely去年已去信伦敦国王学院，要求该校取消郑若骅的院士名衔，但郑若骅去年8月被指有份破坏香港自治并限制香港公民的言论及集会自由，遭到美国财政部制裁后，至今仍获该校保留院士名衔。
+that we introduce competition into the marketplace,
+我们将竞争引入市场
 
-该报道引述身兼英国下议院外交事务专责委员会（The Foreign Affairs Select Committee）成员的Bob Seely质疑，伦敦国王学院竟然给予一个镇压香港民主权利，而遭美国制裁的人士荣誉，并说：「我不知道应该笑还是哭，如果我是一个外国学生，为何想要进入一间不尊重自身政治文化、言论自由和自由民主的大学？」
+there’s, there’s no way I guess there is a way
+那没有方法，我想那是有个办法
 
-一直声援香港抗争者的英国保守党人权委员会委员Luke de Pulford，批评该校有关做法是「虚伪」，「伦敦国王学院未有与香港站在一起，而是选择去表扬打压香港的人，是极为可耻的」
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14132026/image005-15.png)
-**政府内部招AO补新血 聂德权称劲踊跃 刘慧卿轰报喜不报忧**
+but I think it’d be an incredible disruption to our economy
+但我认为，如果进入并拆散像谷歌这样的公司
 
-特区政府上年度有多达1,860名公务员辞职，创23年新高，当中包括21位政务官辞职，总流失率约5.21%，比率属10年间的高水平。公务员事务局局长聂德权今（14日）在Facebook撰文并上载短片，指该局上周就政务主任的内部招聘，举行两场简介会，有近700人参加。他形容反应「相当踊跃」，并说：「我对于在这个充满挑战的环境下，仍有数百名来自不同部门、不同职系的同事出席内部招聘简介会感到欣喜。」
+to go in and break up a company like Google,
+将对我们的经济造成难以置信的破坏
 
-聂德权又指，香港从回归、落实「一国两制」，到港版国安法及「完善」选举制度出台，指作为政府骨干的公务员队伍，如何在香港「开启新章」的关键时刻，协力构建更好的香港，值得整个公务员团队思考。他又指，希望出席内部招聘会的公务员，在了解政务主任工作性质的同时，亦要明了大家身处的「大环境、大格局」，以便对政务主任的要求、责任和承担，有更全面的认识。
+But we can certainly make sure
+但我们当然可以确保
 
-民主党前主席刘慧卿接受《苹果》查询时认为，社会对公务员人才流失等有不同揣测，批评聂德权在Facebook帖文中，未有清晰交代内部招聘政务主任的细节，仅指反应「相当踊跃」是「报喜不报忧」，认为聂德权尽交代内部招聘的实质程序，及向公众交代今次内部招聘的背后原因，释除大众疑虑。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14132116/image006-13.png)
-**逾60%受访港青无意做公务员 「不想宣誓帮林郑政府」**
+that Google doesn’t grow unfairly
+谷歌不会不公平地增长
 
-香港青年协会「青年创研库」今（14日）公布有关「促进公务员队伍的人才发展」研究报告。研究显示，约63%青年受访者对投身公务员不感兴趣，当中原因包括「政治压力大」、「不想作宣誓或签署声明」及「不想加入现届政府」。青年创研库成员分析指出，研究结果反映受访青年对加入公务员没兴趣，公务员队伍人才流失问题浮现，亦反映社会对政府缺乏信任，公务员队伍士气低落。
+that Google doesn’t cheat and that Google has competitors in the marketplace
+谷歌不作弊，谷歌在市场上有竞争对手
 
-青协在4月22日至26日期间，访问527名18至34岁的青年，当中有14位是现职公务员。在513位非公务员的受访者中，62.8%表示不想做公务员，只有23%表示想做公务员。
+so those that want to get their, their version of a fact out there,
+所以那些想要得到他们的事实看法的人
 
-惟对比2016年青协的同项调查中，当时只有50.2%受访者表示不想投身公务员，但想投身的则有45.3%，当时的数据差距较为接近。
+their views out they have that opportunity,
+他们有机会发表意见
 
-在今次调查中，92.3%受访者认同公务员人才培育对香港重要。调查亦显示，52.3%受访者认同公务员体系是培育人才的有效平台，分别有过半数认为公务员需要具备体察民情、协作沟通等能力。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14132210/image007-15.png)
-**【国安教育】教育局增设临时副秘书长　职责包括落实国安法　资深校长斥政治表忠**
+We have it in cable news,
+我们在有线电视新闻中可以播放
 
-中小学「国安教育」及「公社科」等新课程将于今年9 月开始，教育局网页显示，该局增设了一个名为「教育局副秘书长（特别职务）」的编外首长级职位，职责包括「落实国安法及相关事宜，统筹提升学校行政和管治的特别支援措施」，由前首席助理秘书长陈慕颜升任。 《立场》已向教育局查询，尚待回覆。
+we have it with newspapers
+我们在报纸上可以刊登
 
-新职位属于有时限首长级编外职位，为期 6 个月，由 4 月 1 日起至 9 月底为止，薪级为首长级薪级第 3 点，即月薪介乎 20.85 万元至 22.76 万元。根据教育局网页，教育局副秘书长（特别职务）职责包括「落实国安法及相关事宜，统筹提升学校行政和管治的特别支援措施」。
+and we should have it online,
+我们应该把它放在网上
 
-《立场》已向教育局查询「特别支援措施」是否包括处理专业失德、涉犯《国安法》的教师之投诉，或检查校本教学材料有否违反《国安法》，以及增设有关职位所经程序为何，尚待回覆。
+and it’s because the antitrust laws haven’t been updated in years,
+这是因为反垄断法多年没有更新
 
-教协副会长、前教育界立法会议员叶建源指，以往立法会的人事编制小组也曾数次审批政府部门新增首长级职位的建议，但今次增设的副秘书长属于非常高级的职位，加上预计其属下也将增设一队人员，他认为当局有必要向立法会详细解释增设职位的原因，以回应各界对《国安法》职位的关注。
+Congress hasn’t done its article one job
+国会还没有完成它的第一条的工作
 
-不愿具名的资深校长认为，教育局增设了一名副秘书长，在架构上相信会增设一个由该副秘书长统筹专责小组，估计专门负责国安工作，批评当局做法是「政治表忠」，再次把政治带入校园，他称不担心新增职位将令学校自由受限，因为「香港失去言论自由一早已经成为事实」。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14132259/image008-13.png)
-**爱国再教育︱大学蓝师著书《速读香港史》 抹黑反修例示威者获外国势力支援**
+that we need to update these laws now.
+我们现在需要更新这些法律
 
-疑经常转载帮港出声及《HKG报》等建制派传媒报道、树仁大学历史系助理教授周子峰，以中学生为对像出版《速读香港史》，该书由中华书局出版，虽并非教科书，但简介指明对象为中学生。但行文立场相当偏颇。
+Tucker Carlson
+塔克 卡尔森
 
-该书分为上下两册，分别讲述远古时期至1949年，以及1949至2020年的历史。下册提到，六七暴动源于香港左派长期受港英政府的压迫，又指有未得到北京支持的激进左派人士到处放置炸弹，后来烧死「极力挖苦左派」的商台播音员林彬。又指事后港英政府「加紧实行宣传与歧视政策，彻底妖魔化左派，使左派形象进一步受损」。
+What do you think it was wise for the US government
+你认为这对美国政府来说是明智的吗
 
-至于八九民运，该书仅指当年部份激进学生在天安门广场绝食，企图迫使政府接受学生所有要求，后来局势失控，故「政府动用武力驱赶天安门广场上的学生」，未有提及解放军派出坦克车血腥镇压。该书又指，事后「港府一改过去的做法，容许反共人士在港公开活动」。
+to break up Standard Oil 100 years ago that the sugar trust.
+100年前拆分标准石油公司的糖业信托
 
-该书又提到，2003年时任保安局局长叶刘淑仪多次解释23条立法，「其言论被亲泛民传媒多番夸大报道」，激起市民情绪，又指传媒有意鼓动，导致七一当日有50万人上街游行。
+Many other monopolies,
+许多其他垄断企业
 
-该书将2019年反修例运动称为「修例事件」，仅占全书3页，当中提到2019年6月9日的反修例游行后，少数示威者拒绝散去，到凌晨逾百人两度尝试冲入立法会，与警方冲突。又指6.12当日，大量示威者清晨到金钟堵路，下午再冲击警方防线，指「有示威者以铁枝刺向警员」，但只字不提警方开枪、发射催泪弹等驱散行动。
+I mean that that seemed to spawn,
+我的意思是那似乎产生了
 
-该书亦提及去年订立的「港版国安法」，指中央政府目睹香港形势日渐失控，「部份示威者幕后亦涉嫌得到境外势力财政与物资的支援」，故立法维持对香港的治权。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14132354/image009-15.png)
-**BioNTech降至12岁开打首日 多名少年被父母带往打针 却茫然不知原因及副作用**
+sort of the best time in American history
+这是美国历史上最好的时光
 
-早前政府批准降低德国BioNTech复必泰mRNA COVID-19疫苗的接种年龄下限，12至15岁青少年今（14日）起可到疫苗接种中心接种BioNTech，其中未满18岁的接种人士仍须携带家长同意书。在中山纪念公园体育馆和观塘晓光街体育馆疫苗接种中心，不少出国的少年经父母陪同到场接种。但亦有多名少年被父母带往现场接种，却茫然不知接种原因及潜在的副作用。
+when we did that.
+当时我们做到了
 
-早前政府批准降低BioNTech复必泰接种年龄下限，并为青少年和学生提供多种接种疫苗途径，包括在社区疫苗接种中心为学校提供特别预约及接送服务，以及为学校提供外展接种服务。
+Ken Buck
+肯·巴克
 
-15岁的关同学在家人陪伴下前来接种疫苗，他表示由于要去外国读书，需要乘搭飞机想再安全一点，所以选择接种疫苗。对于副作用之问题，关同学指有少许担心，更担心因不舒服而不能乘搭飞机。
+Absolutely. and, and republicans played a large role in that
+绝对的，共和党人在这方面发挥了重要作用
 
-13岁的温同学表示，接种完疫苗后表示没有太大感觉，虽然一开始有担心，但目前身体没有问题。温同学认为尽早接种疫苗较安全，而且可以去更多地方。他更表示想去外国，接种后亦可缩短在酒店隔离的时间。
+and so I think now what we’re looking at is something
+所以我想现在我们正在看的是什么
 
-政府公布，截至昨（13日）晚上8时的过去24小时，共有约4.25万人接种疫苗和2.08万人预约接种，当中5,800人预约接种科兴，以及1.5万人预约接种BioNTech复必泰。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14132444/image010-12.png)
-**梁子超：要长者长期病人针前评估不科学 风险通报惹虚惊**
+that’s more akin to the telecommunications situation
+这更类似于电信的情况
 
-医管局辖下的普通科门诊，将评估病人是否适合接种COVID-19疫苗。呼吸系统专科医生梁子超指出，目前大部份检查不能排除身体的突发情况，加上绝大部份国家都毋须长者和长期病患者针前验身或评估，批评香港有人无科学根据地建议长者和长期病患者针前要先评估，又认为本港初期风险通报机制有问题，才令不少长者和长期病患者虚惊不敢打针。
+where we’re able to take your cell phone number
+我们可以拿你的电话号码
 
-梁子超在电台节目时强调，全球已接种数以亿计的疫苗，很多地方的院舍接种率更逾90%；除非长期病患者病情控制欠佳，否则只有极少情况之下才不适宜打针。他又指，单靠医管局向病人提供针前咨询，亦难改变市民对疫苗缺乏信心的问题，认为最重要是港府应正面向公众澄清不宜接种的原则，重建市民对疫苗的信心。
+and go from one carrier to a different carrier
+而且从一个运营商转到另一个运营商
 
-出席同一节目的社区组织协会干事连玮翘指，调查显示仅少数长者有家庭医生或做身体检查，认为新安排是好事，但他担心医管局或因增设有关服务，影响本身的恒常服务，建议政府提供更多评估途径，包括卫生署的健康中心和邀请私家医生合作等，减轻医管局的服务压力。
+what we want to make sure is
+我们要确定的是
 
-【以上观点仅代表笔者本人 并不代表GNEWS立场】
+that you can take your search history from Google,
+你可以从谷歌获取你的搜索历史记录
 
-资料来源：[苹果日报（1）](https://hk.appledaily.com/local/20210614/RTYENUNHGZAYFKV7LSQDKGWF2Q/)、[立场新闻（2）](https://beta.thestandnews.com/international/%E8%BD%9F%E5%8C%97%E4%BA%AC%E6%89%93%E5%A3%93%E9%A6%99%E6%B8%AF%E6%B0%91%E4%B8%BB%E9%81%8B%E5%8B%95-%E5%8C%97%E7%B4%84%E7%A7%98%E6%9B%B8%E9%95%B7-%E6%88%90%E5%93%A1%E5%9C%8B%E6%87%89%E5%8A%A0%E5%BC%B7%E5%85%B1%E5%90%8C%E6%94%BF%E7%AD%96%E6%87%89%E5%B0%8D%E4%B8%AD%E5%9C%8B)、[苹果日报（3）](https://hk.appledaily.com/local/20210614/BHW4CSTQUVBDFPMO4TGV5YD7UA/)、[苹果日报（4）](https://hk.appledaily.com/local/20210614/GD3AC2U2M5AZTMSS2PVD64GI3A/)、[苹果日报（5）](https://hk.appledaily.com/local/20210614/WDENJ22RLBHPXHGGUF46TLZLZU/)、[苹果日报（6）](https://hk.appledaily.com/local/20210614/KM4FAPPOYJG2HEQALAGWX3CE6A/)、[立场新闻（7）](https://beta.thestandnews.com/politics/%E5%9C%8B%E5%AE%89%E6%95%99%E8%82%B2-%E6%95%99%E8%82%B2%E5%B1%80%E5%A2%9E%E8%A8%AD%E8%87%A8%E6%99%82%E5%89%AF%E7%A7%98%E6%9B%B8%E9%95%B7-%E8%81%B7%E8%B2%AC%E5%8C%85%E6%8B%AC%E8%90%BD%E5%AF%A6%E5%9C%8B%E5%AE%89%E6%B3%95-%E8%B3%87%E6%B7%B1%E6%A0%A1%E9%95%B7%E6%96%A5%E6%94%BF%E6%B2%BB%E8%A1%A8%E5%BF%A0)、[苹果日报（8）](https://hk.appledaily.com/local/20210614/3BDTLX2D6BA45CVYKATZBZR3DA/)、[苹果日报（9）](https://hk.appledaily.com/local/20210614/UW3CZ52CZBGMNIBNHKDIJA3VHU/)、[苹果日报（10）](https://hk.appledaily.com/local/20210614/ZRVYQOETI5ECHK7WZZZKC46I3U/)
+and take it from that company to a different company.
+并将其从该公司带到另一家公司
 
-封面素材：Telegram: 反送中 文宣谷 Channel
+They know where you are right now.
+他们知道你现在在哪里
 
-审核 / 校对：文粤 / 上传：流光飞舞
+Tucker, they know what you have purchased,
+塔克，他们知道你买过什么
+
+they know your medical history they know everything about you.
+他们了解你的病史，他们了解你的一切
+
+And if you aren’t in control of that data
+如果你无法控制这些数据
+
+and some monopoly is it’s very dangerous,
+而且有些垄断是很危险的
+
+not just to our speech rights,
+不仅是为了我们的言论权利
+
+but to our personal safety.
+也是为了我们的人身安全
+
+Tucker Carlson
+塔克 卡尔森
+
+Yeah, I mean, they control the elections
+是的，我的意思是，他们控制了选举
+
+they control speech they control what you think.
+他们控制了言论，他们控制了你的想法。
+
+Yeah, I would say it’s getting out of hand
+是的，我说它已经失控了
+
+Congressman, I appreciate coming on. Thank you.
+议员先生，我很高兴你能来。 谢谢你。
+
+Ken Buck
+肯·巴克
+
+Thank you.
+谢谢你
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 [https://twitter.com/repkenbuck/status/1403552096201367554?s=24](https://twitter.com/repkenbuck/status/1403552096201367554?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
