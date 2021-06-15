@@ -1,55 +1,196 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生6月14日直播精要文字版
-` 喜联盟七哥直播组` [轉載自GNews](https://gnews.org/zh-hans/1322138/)
+## 是时候拆分大型科技公司了，这一次是真的
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1322392/)
 
-纽约香草山农场 Dolores
-纽约香草山农场 Karen（海啸）
-罗马达芬奇农场 Shuizhuyu
-纽约香草山农场 兰草(文泉)
-加拿大枫叶农场 Aviva
+**字幕内容:**
 
-校对整合：
-纽约香草山农场 369文驹
+Tucker Carlson
+塔克 卡尔森
 
-封面制作/发布：
-纽约香草山农场 369文驹
+So today, Republicans in the House of Representatives
+所以今天，在众议院的共和党人
 
+proposed bipartisan antitrust legislation
+拟议的两党合作的反垄断立法
 
+that could split up the tech monopolies
+这可能会分拆科技垄断公司
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14105324/2021.6.14fm1.jpg)
+Congressman Ken Buck is the top Republican on the antitrust subcommittee.
+国会议员肯·巴克是反垄断小组委员会的最高共和党人
 
+And he joins us tonight.
+他今晚加入我们的节目
 
+Congressman, thanks so much for coming up,
+国会议员，非常感谢你的到来
 
-1.端午安康! 今天我吃七嫂包的粽子了，我很少吃。 上周太多大事情，还有特别重要的是：国内时局变化太快，国际形势、近期欧洲变化太快！ 上周很忙作息不规律，吃了很多增重3公斤。国内战友与我联系得比较多，关于后边六个月的战略部署都已就绪，这和我们的爆料革命灭息息相关。
+what would it take to break I mean
+需要什么才能打破，我的意思
 
-2.没有无名战友的付出和贡献是不可能到今天的。他们以为我们爆料革命不行了，他们胜利了，各种黑我们， 结果这几天又有多人被抓；对我员工最狠的孙宏，也被抓了，河南可能要抓上千人。他们以为裕达是块肥肉， 为所欲为。 所谓的专案组就是专门为领导办案的组织， 这几年公安局等都抓了好几波了。在里面虐待马云是他们专案组最大的快乐， 侮辱马云让他演讲直接到吐， 专案组和武警都让马云讲玩女人和吸毒的经历，马云老婆和孩子都是癌症。大家那种仇富心理，你在外边有多牛，在里面就有多惨，很夸张的是马云真的睡过杨澜；孙立军、江志诚出面，希望马云投资吴征。马云睡完杨澜，才给吴征投的资。
+Google is clearly monopoly by any definition,
+从任何定义来看，谷歌显然是科技垄断企业
 
-3.令我惊讶的是韩正、江绵恒保吴征。 韩正是典型的政客，他的私生子女在澳洲都被保护，还能进常委，原因有三：第一，吴征是美国人， 适合作为海外联络人；第二， 经济和情报上还需要他在可控的情况下 继续工作； 第三，吴征是欧洲特别是东欧的有影响力，让吴征立功赎罪，所以保住了吴征。而事实不是这样，吴征和杨澜是帮助韩正在澳洲掩护韩正家的白手套。共产党计划明年韩正当总理，栗战书下台， 江家的赵乐际下台， 中纪委将由李强负责， 汪洋已废。 其实是吴征掌握了韩正的太多资料，韩正的基因地图在吴征手里，吴征的儿子、弟弟在美国纽约。他怕吴征被抓后供出他。
+what would it take to break up Google
+要怎样才能拆分谷歌？
 
-4.农场主不可以兼职、必须全职革命，兼职不允许参与铁血组和成为农场主。我们都有3000到5000或1万不等的补助。朴昌海吃了一年方便面，哈恩还要晚上打工，这让我很不舒服。 只要七哥有饭吃，都不能亏待战友。 我就是要改变中国人的生活方式和思维方式，干掉共产党让所有战友过上体面的生活。改变我家里人的生活状况，我做到了。 我这么多年从未欠过一分工资， 专案组说在审案过程中，我们的员工没有一个下跪，没有一个背叛。 中南坑吃胎盘，一瓶酒几十万，所以它必须灭亡，我们爆料革命不能让战友处于困顿中。没有绝对的公平、平等、正义， 要靠自己的双手获得。像哈恩、朴昌海、木兰他们是真做到了。一些农场主天天为义工争取，先问自己做了什么，这都是居心不良。 VOG的义工我们不会忘记，但也不要太过分，一个战友发我那么多条信息，我是没法回复的。 有的农场主，没啥贡献光喊话，应该干点正事。阿炳、玛莎等做了事情，为义工呼吁很正常，有的人没做事光呼吁，这样不行。 我们的联盟在做什么，为什么只有告哈恩、朴昌海的状，却没有人告诉我他俩的生活状况呢，我们必须要对待战友像家人一样。 不管你是什么人物，谁也不欠谁的，战友们一定要有起码的公正公平。有些关心的信息就不要发了，我是没有时间的，甚至跟七嫂都说不了几句话。还有战友关于自己情绪的信息也不要发了， 有些信息我是没法通过短信来评判的，如果每天做这个，哪有时间灭共呢？
+is that possible at this point？
+在这一点上，有可能吗？
 
-5.GTV会是以直播为主，盖特是独立运营马上会推出，Getome只是过渡。韩正、丁薛祥、赵乐际、郭声琨上去以后都是江、曾的兵，王歧山完蛋了，听说许其亮也要下台。 共产党很奇怪，“钥匙党”活得都很好， 中国的古书讲的都是官家的事儿，没有人讲老百姓，讲床上的事儿占多大部分。 中国的文化背景铸就了今天的笑贫不笑娼，现在的共产党都希望杨澜来找钥匙。吴征竟然跟班农说习近平彭丽媛都要找他两口子“疗伤”。正大、吴征、杨澜、韩正、江绵恒、江志诚和几个不能说的上海哥们，都连在一起，共产党的世界里杨澜一腚赢天下，三口澜，一腚赢天下。泰国正大集团是平安的股东，也是辉瑞的股东，也是疫苗的最大受益者之一。周来正是负责所有航空公司的财务， 周来正和张少春被抓以后供出了很多的腐败信息，卷宗里竟然都被删除了，吴征有多牛啊！ 最近跟很多专案组的战友聊天，我认为我知道的已经很多了，事实上比我知道的还要黑。中国民航局的周来正跟杨澜有多次关系，张少春和周来正与吴增杨澜喝酒，中间吴增消失，其他三个人玩3P，玩完吴征又回来。张少春和周来正被抓，供出吴征杨澜，中纪委查完档案居然被删。 听到这些消息对我触动很大。杨澜在某种意义上是好姐们。杨澜的闺蜜在听了。杨澜是天下第一大妈咪！杨澜介绍的人都火了，还有一个给了吴征了！川普的生日不重要，新中国联邦的生日重要！
+Ken Buck (Congressman)
+肯·巴克（国会议员）
 
-6.说到对共产党的伤害，杨澜某种程度上是我们的好姐们，别把她抓起来继续弄，每天找上一两次钥匙。凯莉唱的歌真好听。盖特很快推出来了。杨澜吴征两口子是性开放、性自由。正大是曾家的、科兴疫苗的股东。我们的战友刚跟川普总统开过会。追加对账的是如水，大文柱，巾帼小妹。日本樱花团的二把手是勇气。
+Well, Tucker, I think the key is
+好的，塔克，我认为关键的是
 
-7.这个帽子我超级喜欢，是磨砂面的。GFashion的定价是低非常低，但是高了战友买不起，我们要最好的质量，最低的价格，特别特别难。过两天再说核电站的事情， 会有大事情发生，7月17日大家就明白了。 《闲聊澳洲》的节目做得很好， 是我们学习的榜样， 做得好不好不是自己夸的， 爆料革命要务实，不要弄那些假大空的摇摆机、设备、大空间。 Gfashion的所有成本都是公开的，几千万已经花出去了，赔大发了，之后一定会有大的并购，这两个月要做一个新的系列，但是遇到了麻烦，我想用15%的丝和85%的棉， 我们的产品定价是原材料的三倍保本，那些大牌一般都是15到20倍， 但这是必经的过程，他是具有战略意义的。 战友们要动脑子、善用智慧，好好使用喜美元账户。 Gclub会员卡会有大好消息。 没有收到保密协议的战友，请尽快与各农场联系。
+that we introduce competition into the marketplace,
+我们将竞争引入市场
 
-8.火炬是点燃人类的希望火炬，是奥林匹克精神，还有从历史到今天，阳光、水和盐，这是一切生命的根本。驱除邪恶、驱除黑暗、照亮人类方向的就是阳光，所以自由女神举着一把火炬。民主、法治、自由的灯塔照亮黑暗，所以咱们自由女神像盖特的T是自由的象征，盖特就是人类在黑暗中唯一走向自由的，永远不会灭掉的火炬，是人类的希望之火、自由之火、法律之火。把T加上自由女神的火，是希望之火。曲线是自然的才是美，像水一样流动。天圆地方，鸟巢、水立方、世贸中心下边最早的美国财富中心、美国的国会山自由广场，林肯纪念堂，林肯纪念中心，还有国家纪念馆全是天圆地方。人类所有的图腾是天圆地方，是圆和方的关系。
+there’s, there’s no way I guess there is a way
+那没有方法，我想那是有个办法
 
-9.罗伊一个人加半个工程师干出了翻译字幕，从4月17号开始干出的活非常漂亮，这个孩子非常谦卑，个人素质非常好，没有什么恶好，这是非常好的，小伙子未来前途无量。盖特会震惊天下走着看。在gtv直播的同时用OBS链接Youtube，或者Instagram，不要自私，我们的目的是灭共。只有川普入住盖特不行，我想的比这个大。如果我想的事情你们都能猜到，那我就没有价值了。台湾农场政清小伙子非常非常好。广州疫情相当严重。
+but I think it’d be an incredible disruption to our economy
+但我认为，如果进入并拆散像谷歌这样的公司
 
-10.核电站、G7等等的都不重要，关键的是灭共产党，最关键的就是中共病毒，绝对是他们的潘多拉盒子，以毒灭共的事情，我们已经完成， 剩下的就是锦上添花了，物无美恶，过则为灾。 现在就是要走国家程序，或各国之间的较量，无非就是一枪毙命、还是脱钩、还是多次勾兑， 我们就不要自以为伟大再掺和了。做善事之前想的是回报，那一定是灾难， 我们爆料革命不做这样的事情。全世界死那么多人，不是只有我们着急， 我们的伟大和善良不需要证明和认可，我们的实力和智慧不需要任何人认可和否定。
+to go in and break up a company like Google,
+将对我们的经济造成难以置信的破坏
 
-11.共产党想回到以前是不可能了。香港的大屠杀，新疆的大屠杀，都不能掩盖了。中国的经济能好吗！让生三胎，生的起吗？灾难大小的问题！我们要强大我们的G系列，帮助更多的战友， 消灭共产党以后，七哥只跟战友在一起，隐居山林，那时候除了哭就是笑，除了闹就是玩。
+But we can certainly make sure
+但我们当然可以确保
 
+that Google doesn’t grow unfairly
+谷歌不会不公平地增长
 
+that Google doesn’t cheat and that Google has competitors in the marketplace
+谷歌不作弊，谷歌在市场上有竞争对手
 
-（直播链接：[6月14日文贵先生直播](https://gtv.org/video/id=60c76068b96c69573d7ec62c)）
+so those that want to get their, their version of a fact out there,
+所以那些想要得到他们的事实看法的人
 
+their views out they have that opportunity,
+他们有机会发表意见
 
+We have it in cable news,
+我们在有线电视新闻中可以播放
 
+we have it with newspapers
+我们在报纸上可以刊登
 
+and we should have it online,
+我们应该把它放在网上
 
-+2
+and it’s because the antitrust laws haven’t been updated in years,
+这是因为反垄断法多年没有更新
+
+Congress hasn’t done its article one job
+国会还没有完成它的第一条的工作
+
+that we need to update these laws now.
+我们现在需要更新这些法律
+
+Tucker Carlson
+塔克 卡尔森
+
+What do you think it was wise for the US government
+你认为这对美国政府来说是明智的吗
+
+to break up Standard Oil 100 years ago that the sugar trust.
+100年前拆分标准石油公司的糖业信托
+
+Many other monopolies,
+许多其他垄断企业
+
+I mean that that seemed to spawn,
+我的意思是那似乎产生了
+
+sort of the best time in American history
+这是美国历史上最好的时光
+
+when we did that.
+当时我们做到了
+
+Ken Buck
+肯·巴克
+
+Absolutely. and, and republicans played a large role in that
+绝对的，共和党人在这方面发挥了重要作用
+
+and so I think now what we’re looking at is something
+所以我想现在我们正在看的是什么
+
+that’s more akin to the telecommunications situation
+这更类似于电信的情况
+
+where we’re able to take your cell phone number
+我们可以拿你的电话号码
+
+and go from one carrier to a different carrier
+而且从一个运营商转到另一个运营商
+
+what we want to make sure is
+我们要确定的是
+
+that you can take your search history from Google,
+你可以从谷歌获取你的搜索历史记录
+
+and take it from that company to a different company.
+并将其从该公司带到另一家公司
+
+They know where you are right now.
+他们知道你现在在哪里
+
+Tucker, they know what you have purchased,
+塔克，他们知道你买过什么
+
+they know your medical history they know everything about you.
+他们了解你的病史，他们了解你的一切
+
+And if you aren’t in control of that data
+如果你无法控制这些数据
+
+and some monopoly is it’s very dangerous,
+而且有些垄断是很危险的
+
+not just to our speech rights,
+不仅是为了我们的言论权利
+
+but to our personal safety.
+也是为了我们的人身安全
+
+Tucker Carlson
+塔克 卡尔森
+
+Yeah, I mean, they control the elections
+是的，我的意思是，他们控制了选举
+
+they control speech they control what you think.
+他们控制了言论，他们控制了你的想法。
+
+Yeah, I would say it’s getting out of hand
+是的，我说它已经失控了
+
+Congressman, I appreciate coming on. Thank you.
+议员先生，我很高兴你能来。 谢谢你。
+
+Ken Buck
+肯·巴克
+
+Thank you.
+谢谢你
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接 [https://twitter.com/repkenbuck/status/1403552096201367554?s=24](https://twitter.com/repkenbuck/status/1403552096201367554?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

@@ -1,21 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象白话】新闻联播呼吁大家买保险 过值得向往的生活
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1322777/)
+## 6月14日美国政要推特精选：七国集团呼吁世卫组织开展新冠肺炎源头调查
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1322927/)
 
-今日央视新闻联播头条：大象逛吃肇事，买单有它，这样的生活值得象往。前段时间流浪的象群，沿路破坏了一些农作物和居民财物，央视说有野生动物肇事险，还是全球首款。由政府给与赔付。“对当地政府来说，也有效分散了风险，实现了政府补偿向商业赔偿的转变”“金融服务服务实体经济，类似的产品是不是可以多安排一点？一句话，有保障，更安康，这样的生活值得象往。”
+众议员迈克·加拉格尔： 我们已经看到CCP将如何操纵世卫组织对冠状病毒来源的调查。是时候由自由世界进行一次真正独立的国际调查了。 （转雅虎新闻：七国集团国家呼吁世卫组织开展新冠肺炎源头调查）
 
-这个保险险种是由太平洋保险公司推出。这个画风转变的很突兀，这里还在跟踪象群，现在还不知道象群去了哪里，在哪里落脚，那里里直接就打上广告了。谁会愿意过象群这种令人象往的流浪生活，象群肯定是不乐意的。有人说这是智慧抓住了商机，一个媒体关爱野生动物正常，如此机灵的媒体还是很“出类拔萃”的。
 
-野生动物肇事险由政府给与赔付，政府补偿向商业补偿转变，意思就是将老百姓的税收注入到保险公司里面去，除了政府支配分流的这一部分，老百姓还要另外掏钱去买这个保险。中共算过的地盘，真的是寸草不生啊。前几天看到可爱的象群，还以为终于可以看看动物世界，看一看真实的新闻了。看到这条新闻，又想到了镰刀和斧头，哪里都有他们的影子，果真是验证绿水青山就是金山银山，这片土地上的所有都是朕的江山。
 
-参考链接：央视新闻
+> We've already seen how the CCP will manipulate a WHO investigation into COVID origins. It's time for a genuinely independent international investigation conducted by the free world. [https://t.co/s4F0coj1Va](https://t.co/s4F0coj1Va)
+> — Rep. Mike Gallagher (@RepGallagher) [June 14, 2021](https://twitter.com/RepGallagher/status/1404477075046780939?ref_src=twsrc%5Etfw)
 
-整理撰稿：蓝精灵
 
-校对发布：Penny
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+众议员迈克·加拉格尔： 尽管彼得·达扎克断言，新的信息表明武毒所饲养了活蝙蝠。这只是另一个支持实验室泄漏假说的证据，更有理由支持对武毒所进行全面、独立的调查。 （转国家评论的报道：是的，武汉病毒学研究所把活蝙蝠关在围墙内）
+
+
+
+> Despite assertions by Peter Daszak, new information suggests the WIV housed live bats. This is just another piece of evidence supporting the lab-leak hypothesis and all the more reason to support a full, independent investigation into the WIV.[https://t.co/UYpQGwtq6w](https://t.co/UYpQGwtq6w)
+> — Rep. Mike Gallagher (@RepGallagher) [June 14, 2021](https://twitter.com/RepGallagher/status/1404505192733843456?ref_src=twsrc%5Etfw)
+
+
+
+美国总统拜登： 我们的北约联盟比以往任何时候都更加强大。今天，我将与我们的29个盟国一起，讨论我们的集体防御——包括防范俄罗斯的侵略、来自中国的战略挑战、恶意网络活动、恐怖主义和气候变化。
+
+
+
+> Our NATO Alliance is stronger than ever. Today I’m joining our 29 allies to discuss our collective defense — including from Russian aggression, strategic challenges from China, malicious cyber activity, terrorism, and climate change.
+> — President Biden (@POTUS) [June 14, 2021](https://twitter.com/POTUS/status/1404431080569049094?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬配奥： 我们必须让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 领导人付出实际代价，让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 相信他们必须改变这种给世界制造风险的做法。 【附华盛顿时报文章：蓬配奥“有很大把握确信”武汉实验室与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军方有关】
+
+
+
+> We have to impose real costs on the Chinese leadership to convince them that they’ve got to change the way they’re creating risk to the world.[https://t.co/1ggRSGWSwS](https://t.co/1ggRSGWSwS)
+> — Mike Pompeo (@mikepompeo) [June 14, 2021](https://twitter.com/mikepompeo/status/1404577224167145482?ref_src=twsrc%5Etfw)
+
+
 
 0

@@ -1,76 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】中欧关系的终结与中共的四面楚歌
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1322654/)
+## 法国公司承认中共国核电站存在问题
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1322765/)
 
-作者：纽约香草山金融部/经济小组 ilovezhanshen
+其中一家公司说，在一个反应堆的中心有气体积聚。他们说核电站仍然是安全的。
 
+翻译：烟波浩淼 |校对：雨山溪桥客|审核：黎明的光芒
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14195810/Picture1-19.png)2013 年，广东省正在建设中法合作项目台山核电站。该工厂周日表示，没有发现任何泄漏。图片来源: 彼得帕克斯(Peter Parks)|法新社 — 盖蒂图片社
+北京——中共国一座核反应堆的异常活动引起了国际社会的关注，两个参与核电站的法国公司周一承认存在问题，但表示可以安全处理。
 
+美国有线电视新闻网（CNN）周一报道称，两家公司之一的法马通（Framatome）以广东台山核电站“迫在眉睫的放射性威胁”为由，寻求美国的帮助。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+法国主要电力公司和该发电厂的部分所有者法国电力公司（EDF）在一份声明中说，反应堆核心的铀燃料棒周围的水和蒸汽中积聚了某些气体。但该公司表示，反应堆有处理此类气体积聚的程序，并称之为“已知现象”
 
+法国电力公司（EDF）的一家分支机构，也是反应堆的制造者法马通（Framatome）表示，存在“性能问题”，但该核电站在其安全参数范围内运行。在中共国，这家发电厂在周日晚上的一份声明中说，没有发现泄漏到环境中。
 
+国营的中广核集团（俗称中广核）拥有台山核电站70%的股份，而法国电力公司拥有其余的股份。法国公司和中共国工厂没有立即回应采访请求。中共国外交部周一因国定假日关闭。一名接电话的官员说，没有人对台山核电站发表评论。
 
-6月8日，据CNBC消息称，前白宫高级贸易官员Clete Willems表示，中共制裁欧盟官员的做法是一个“巨大的战略错误”，这种做法终结了欧盟和中国之间的一项重大投资协议，并且已经无法挽回[1]。
+该核电站在中共国东南沿海有两座按照法国设计建造的核反应堆。反应堆之一2018年开始商业运营，另一个在2019开始商业运营，位于香港西南约80英里，台山以南30英里处，台山是一个50万人口的城镇。
 
-![The Chinese and European Union flags hang during a speech by Herman Van Rompuy, president of the European Union, unseen, at the Central Party School of the Communist Party of China, in Beijing, China, on Tuesday, May 17, 2011. Van Rompuy said the euro is ]()![The Chinese and European Union flags hang during a speech by Herman Van Rompuy, president of the European Union, unseen, at the Central Party School of the Communist Party of China, in Beijing, China, on Tuesday, May 17, 2011. Van Rompuy said the euro is ](https://image.cnbcfm.com/api/v1/image/103061290-GettyImages-114255829.jpg?v=1616475816&amp;w=900&amp;h=506)图片来源：CNBC (*Nelson Ching | Bloomberg | Getty Images*)
+法国电力公司在声明中称，已召集运营该发电厂的合资企业董事会召开特别会议，“介绍所有数据和必要的决定”
 
-此前，欧盟于3月22日因中共对新疆维吾尔人的监禁而制裁了数名中共官员以及相关实体[2]。随后，中共外交部迅速回击，制裁了10名欧盟官员和4家实体机构[3]。5月20日，欧盟以599票支持，30票反对和58票弃权通过决议，冻结了《欧中全面投资协议》（EU-China Comprehensive Agreement on Investment）。
+英国国家物理实验室和萨里大学的核科学家帕特里克·H·里根（Patrick H. Regan）说：“法国电力公司所描述的困难似乎是从一个或多个燃料棒进入反应堆的中心周围的水和蒸汽中泄漏的气体。他说，最有可能被探测到的气体是氙的放射性同位素。
 
-欧中全面投资协议的谈判历时7年，双方谈判人员于2020年12月达成一致。该协议要求中（共）国给与欧盟国家的公司更加公平的地位，并使中共国成为欧盟更加信任的贸易伙伴，双方都将获得对方更为开放的市场。
+这种同位素的问题在于，它的存在可能会促使反应堆操作人员取消对反应堆运行速度的限制。雷根说，这会使反应堆更容易过热。
 
-欧中关系与《欧中全面投资协议》的最大主导者毫无疑问是德国以及德国总理默克尔。中共国是德国的第一大贸易伙伴，而且中（共）国市场对德国的汽车产业有着决定性的影响。《欧中全面投资协议》一旦签署，将允许德国企业对其在中共国的分支机构控股，而不是通过之前的合资模式进入中共国并且按中共的要求强制转让技术。2020年下半年，正值德国担任欧盟轮值主席国，默克尔把通过《欧中全面投资协议》作为她的一大工作重点。
+他说，在汽车上“几乎是在踩油门”。
 
-如今，默克尔作为德国总理的16年任期即将结束，这为德中关系与欧中关系添加了更多的不确定性。2021年9月，德国联邦议院将进行新一轮选举，其中绿党成为新一届执政党的可能性更大。绿党总理候选人安娜莱娜·贝尔博克（Annalena Baerbock）最近曾公开表示，要对中共国不尊重人权的行为采取强硬的立场[4]。
+这在核反应堆中并不是一个新问题，有时如果燃料棒有裂纹就会发生。通常处理方法是从反应堆中取出燃料棒，让氙同位素通过放射性衰变在几天内逐渐消散。
 
-自美国川普政府对中共开启了一系列经济制裁后，欧洲一直与中共保持着暧昧的关系——因为欧洲国家对于中（共）国市场的依赖远远大于美国。但随着中共在全世界一系列倒行逆施的流氓行径被暴露出来，尤其是世界对病毒真相溯源的推进，欧洲对中共国的立场也开始发生重大的转变。
+另一种选择是继续运行反应堆，并将微量氙气从反应堆排放到大气中。世界各地的监管机构每年都会给每个反应堆少量的放射性排放量。排气可以让反应堆继续运行，但可能引发监管审查。
 
-欧洲的另一大支柱，英国，已经禁止华为加入其5G网络，并从香港事件中认清了中共的本质。英国不仅为香港人提供签证，还拨款4300万英镑援助香港人移民英国[5]。除此之外，英国还废除了中共国电视台CGTN在英国的播出执照[6]，并驱逐了三名假扮成记者的中（共）国间谍[7]。
+美国有线电视新闻网（CNN）的报道援引了一些不具名的消息来源，其中的一些细节无法核实。CNN还报道说，法马通曾表示，中共国当局提高了核电站周围辐射释放的可接受限值，以避免不得不关闭核电站。该省已经遭遇电力短缺。
 
-根据郭文贵先生最近的爆料，闫丽梦博士以及到达欧洲的某位中（共）国高级科学家为病毒真相提供的实锤证据，还有中共之前通过曾任国际刑警组织主席的孟宏伟对位于欧洲的国际刑警组织进行控制的证据事实、再加上中共国过去几年的其他所作所为，让欧盟委员会认清了中共的流氓本质，最终促成了欧中协议的终结[8]。除此之外，美国也一直在背后施加压力，迫使主要的欧洲国家在对抗中共的问题上与美国站在一起[9]。
+美国三座核电站的前运营商迈克尔·弗里德兰德（Michael Friedlander）说，世界上许多核设施过去都是在燃料棒泄漏和偶尔排放氙气的情况下继续运营。但 1990 年代在西方已经结束了，因为公用事业公司试图将辐射的微量释放降至最低，部分原因是为了保护自己的工人。
 
-6月11日至6月13日，美国总统拜登赴英参加G7峰会。拜登将进一步采取与川普不同的方式，大力团结欧洲的盟友，一起对抗中共的独裁政府[10]。美国国家安全委员会高级官员早前透露，这次峰会的主题主要包括新冠肺炎疫情、气候变化和中（共）国。前国防官员帕维尔（Barry Pavel）更是形容，拜登在峰会期间出席的每一个会议“都会有中（共）国议题渗透其中”。美国媒体引述消息人士指出，G7峰会期间，各国会提出一个抗衡中（共）国“一带一路”的计划，让发展中国家可以用更环保的方式发展基建。另外，该峰会还会讨论台湾、香港议题以及对病毒真相展开透明调查的呼吁 [11]。
+他说：“全球最佳做法是尽快关闭并更换泄漏的燃料棒。”这通常会在你接近监管限制之前发生。”
 
-在美中脱钩不断推进的大背景下，中共曾经幻想着，可以依靠“蓝金黄”欧洲国家，联欧抗美。如今，这一幻想已经破灭，中共已经实实在在地陷入了四面楚歌的境地。
+看来反应堆过去曾释放过气体。与反应堆附近管理部门保持密切联系的香港政府于 4 月 8 日表示，三天前同一反应堆的废气系统发生了事故。事件导致少量气体泄漏，但具体是哪一种气体的细节并未披露。
 
-参考阅读：
+不过，香港政府表示，这一排放量仅相当于发电厂释放该气体年限度的0.00044%。
 
-1. [China made a ‘huge strategic blunder’ in retaliating against Europe, former U.S. negotiator says](https://www.cnbc.com/2021/06/08/eu-china-tensions-and-its-impact-on-europe-investment-deal.html)
-2. [EU imposes further sanctions over serious violations of human rights around the world](https://www.consilium.europa.eu/en/press/press-releases/2021/03/22/eu-imposes-further-sanctions-over-serious-violations-of-human-rights-around-the-world/)
-3. Foreign Ministry Spokesperson Announces Sanctions on Relevant EU Entities and Personnel\_https://www.fmprc.gov.cn/mfa\_eng/xwfw\_665399/s2510\_665401/t1863106.shtml
-4. [Germany’s Greens chancellor candidate vows to get tough on Russia and China](https://www.reuters.com/world/europe/germanys-greens-chancellor-candidate-vows-get-tough-russia-china-2021-04-24/)
-5. [香港BNO移民：签证申请远超预期，英国政府拨款助港人融入当地](https://www.bbc.com/zhongwen/simp/uk-56672193)
-6. [Ofcom revokes Chinese broadcaster CGTN’s UK licence](https://www.bbc.com/news/entertainment-arts-55931548)
-7. [UK expelled three Chinese spies posing as journalists in past year: The Telegraph](https://www.reuters.com/article/uk-china-britain-espionage/uk-expelled-three-chinese-spies-posing-as-journalists-in-past-year-the-telegraph-idUSKBN2A5066)
-8. [全文字版2021年5月30日郭文贵先生G-TV直播](https://gnews.org/zh-hans/1285961/)
-9. [【字幕】5/31/2021文贵盖特：以毒灭共已和共产党的垂死挣扎，会形成非常有趣的国际政治现象](https://gnews.org/zh-hans/1287035/)
-10. [Biden Seeks Allies’ Support in Confronting Putin, China](https://www.wsj.com/articles/biden-heads-to-europe-to-restore-alliances-and-counter-autocracys-rise-11623231001?mod=e2tw)
-11. [G7峰会：“多边主义抗衡中（共）国”能否奏效成焦点](https://www.bbc.com/zhongwen/simp/world-57424095)
+据CNN报道，法马通已与美国政府联系，寻求在电厂运营方面的帮助。中共国核电公司中广核被列入美国商务部所谓的外国企业实体名单，禁止美国公司与之开展业务。
 
+报道称，作为咨询请求的一部分，法马通要求美国放弃对中共国核援助的限制，理由是中共国通过了“直接放射性威胁”的法律测试。美国在管理从反应堆中排放微量气体并继续运行反应堆的权衡方面有很多早期经验。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
+目前尚不清楚该公司如何定义威胁的。一些最敏感的辐射检测设备往往安装在核电站，以便对任何泄漏发出预警。中电是一家总部位于香港的跨国电力公司，在香港附近的深圳拥有一座核电站的部分股份，该公司周一在一封电子邮件中回应称，它没有观察到任何异常辐射。
 
-编审：加拿大多伦多枫叶农场/经济小组 向往真理
+美国驻北京大使馆没有立即发表评论。
 
-校对/发稿：Irene木木
+奥斯汀·拉姆齐（Austin Ramzy）、艾米张健（Amy Chang Chien） 和 奥瑞琳·布里登（Aurelien Breeden） 对本文有报道贡献。
 
-**更多资讯，更多关注**
+【译者评论】中广核因为军民融合性质，被美国商务部列为实体清单而无法使用美国技术。从这篇文章报道的事件不得不让人怀疑，中共国是不是为了获取美国的核技术，使用不断加大核气体的排放，不惜造成环境危害和损害人民健康来逼迫美国作出让步，恢复提供核技术给中广核用于军事目的？凭中共的无底线思维，他们什么手段不敢用？中国人民和国际社会只有尽快铲除中共体制才能从根本上杜绝中共的各种超限战，保障中国人民和全世界人民生活在和平与安全的环境中。
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+【评论仅代表译者个人的观点】
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
-
-
+原文作者：基思·布拉德舍（Keith Bradsher）
+发布时间：2021 年6月14日
+原文链接：[https://www.nytimes.com/2021/06/14/business/china-nuclear-power-problem.html?smid=tw-share](https://www.nytimes.com/2021/06/14/business/china-nuclear-power-problem.html?smid=tw-share)
 
 0

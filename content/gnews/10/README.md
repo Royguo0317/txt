@@ -1,51 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】三星进军欧洲，与英国达成5G网络交易
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1322626/)
+## 【小象快讯】拜登和土耳其总统会谈后表示乐观
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1322890/)
 
-作者：纽约香草山农场 四季
+小象：作为中共的好朋友土耳其，在中东局扮演重要的角色。此次北约峰会，美国和土耳其是否在某些方面达成了协议，其中提到大部分会议是一对一的会议颇有意思。以下是路透社的这部分新闻摘要：
 
+美国总统乔拜登和土耳其总统塔伊普埃尔多安在周一的首次面对面会谈后听起来很乐观，尽管他们没有宣布两个盟友之间的关系取得重大突破。拜登在布鲁塞尔会晤后的新闻发布会上说：“我们举行了一次积极而富有成效的会议，其中大部分是一对一的。”埃尔多安将他在北约峰会期间与拜登的会谈描述为“富有成效和真诚的”。“我们认为美国和土耳其之间的关系没有无法解决的问题，我们的合作领域比问题更丰富、更大，”他说。尽管他们公开表示乐观，但双方都没有提供任何关于他们将如何修复关系的细节，也没有提供有助于缓解北约盟国之间紧张关系的步骤。
 
+作为总统，拜登对埃尔多安采取了比前任唐纳德特朗普更冷静的语气。拜登很快承认 1915 年对亚美尼亚人的大屠杀是种族灭绝并加大了对土耳其人权记录的批评。华盛顿已经将安卡拉从 F-35 战斗机计划中移除，并对土耳其购买俄罗斯 S-400 地对空导弹实施制裁。埃尔多安希望展示土耳其在北约中的核心作用的一个领域是阿富汗，在美国和北约部队在未来几周内撤出后，安卡拉已提出在那里保卫和运营喀布尔机场。北约主席延斯斯托尔滕贝格表示，土耳其将发挥关键作用，但周一的峰会没有做出任何决定。在北约主要领导人会议开始时，拜登在他们入座之前与埃尔多安进行了长时间的交谈。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+当天晚些时候，两位领导人和他们的高级助手大多沉默地坐在会议桌的对面，无视被短暂邀请进入房间的记者向他们提出的问题。埃尔多安还会见了法国总统马克龙。安卡拉和巴黎在叙利亚、利比亚和土耳其批评反对马克龙所说的伊斯兰分裂主义等问题上存在分歧。“埃尔多安总统在我们的会晤中证实，他希望在利比亚领土上活动的外国雇佣军和外国民兵尽快离开，”马克龙随后在新闻发布会上说。
 
+参考链接：
 
+[https://www.reuters.com/world/no-breakthroughs-expected-first-biden-erdogan-meeting-2021-06-14/](https://www.reuters.com/world/no-breakthroughs-expected-first-biden-erdogan-meeting-2021-06-14/)
 
-英国电信集团沃达丰（Vodafone）周一表示，已经选择三星电子为英国供应其5G网络设备，这是这家韩国公司在欧洲电信设备市场的一个突破。
+图片来源：[https://www.reuters.com/](https://www.reuters.com/)
 
-![]()![](https://dzm0ugdauank9.cloudfront.net/wp-content/uploads/2021/06/2021-06-14T070846Z_1_LYNXNPEH5D07G_RTROPTP_0_SAMSUNG-ELEC-NETWORK_1.jpg)图片来源： 路透社（Kim Hong-Ji）
+整理撰稿：蓝精灵
 
-英国在2020年早些时候宣布了对华为的限制：英国移动供应商被禁止在2020年12月31日之后购买新的华为5G设备，他们还必须在2027年年底前将所有华为设备从其5G网络中移除。英国认为，不论是从目前还是从长远来看，虽然供应禁令将使英国的5G推广工作推迟一年，但这不是一个简单的决定，这对于英国的电信网络、国家安全和经济来说，是一个正确的决定。
+校对发布：Penny
 
-欧洲电信设备市场由诺基亚、爱立信和华为主导，但三星在9月意外地与美国巨头Verizon达成了60亿美元的交易后，已经进入了这个市场。欧洲移动运营商正越来越多地考虑用三星取代中共国的华为作为供应商，西班牙电信（Telefónica）、法国的主要电信公司Orange的高管都已经与三星进行了谈判。
-
-随着5G推广的扩大，三星正依靠欧洲市场保持其网络设备业务的增长。CCS Insight分析师理查德-韦伯说：“三星要赶上爱立信和诺基亚还有很长的路要走，但它在移动宽带、固定无线接入和私有5G网络方面拥有全面的5G RAN产品组合，因此它应该被视为真正的竞争者”。
-
-参考阅读：
-
-[Samsung Enters Europe With Vodafone 5G Network Deal In Britain](https://www.oann.com/vodafone-opts-for-samsungs-5g-network-solutions-in-britain/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0
