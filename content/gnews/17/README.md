@@ -1,52 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】CDC关联跟踪网站VAERS报告显示疫苗死亡人数惊人跳升
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1323576/)
+## 【墙文推荐】习总加速师的“丰功伟绩”
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1323741/)
 
-作者： 纽约香草山媒体部 7bends
+推荐人：香草山媒体部 **CloudSky**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
 
 
-Gateway Pundit 6月12日报道，与美国疾病防治与控制预防中心CDC关联的跟踪网站——VAERS——报告本周死亡人数与上一周相比，大幅增加了700人。
+推荐者语：这两天七国峰会结束了，发出的联合公报有关抵制中共的声音空前一致，说明全世界共同抵抗CCP的联合战线已初步成型。现在摆在习近平面前的国内外局势急剧恶化。面对这样的惊涛骇浪，CCP正在向灭亡的深渊疾跑。这样的速度与习总加速师的“英明决策”是分不开的。广大网民的眼睛雪亮，今日流传在网上的一贴极有见地，把习一尊的“丰功伟绩”总结如下，请大家欣赏。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15020859/image0-74.jpg)
+* * *
 
-VAERS网站是与CDC相关联的疫苗不良反应跟踪系统。该系统的数据库包含有关使用美国许可的疫苗进行免疫接种后未经证实的不良事件报告的信息。系统接受任何人以电子方式向 [www.vaers.hhs.gov](https://www.vaers.hhs.gov/) 提交报告。VAERS数据库中包含的信息涵盖从1990年至今收到的报告。可以按照年龄、事件类别、性别、制造商、发病间隔、恢复状态，严重/非严重类别，报告年份/月份，接种年份/月份等方式搜索数据。
+* * *
 
-在不到五个月的时间里，2021年美国与疫苗相关的死亡人数比过去整个十年都多。根据CDC自己的数据，2021年前三个月VAERS网站在美国记录了1750多人死于疫苗，这个数字现在是5997人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15033929/image0-82.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15015903/vaers-deaths-2.jpg)图片来源：Gateway Pundit
+搞砸一个两个外交关系
+没什么奇怪
+但搞砸几乎所有主流大国关系
+是一种能耐
 
-截至2021年6月4日的329,021份报告疫苗不良反应的数据分布如下：
+偶尔把外援给了白眼狼国家
+不足为奇
+但几乎所有金援都给的是白眼狼
+是一种神奇
 
-死亡人数 5,888
-住院人数 19,597
-紧急护理 43,891
-门诊访问 58,800
-过敏反应 1,459
-贝尔氏麻痹 1,737
-危及生命 5,885
-心脏病发作 2,190
-心肌炎/心包炎 1,087
-血小板减少症/低血小板 1,564
-流产 652
-严重过敏反应 15,052
-致残4,583
+偶尔招致一两个国家抗议指责
+并不落寞
+但被一百多个国家同时指责
+是一种气魄
 
-参考阅读：
+偶尔拜祭精神祖宗 
+权当疯犬食矢
+但不忘初心孝敬遭文明世界唾弃的
+是一种寡廉少耻 
 
-https://www.thegatewaypundit.com/2021/06/shocking-jump-vaccine-deaths-reported-week-cdc-linked-vaers-tracking-website/
+偶尔误判国际形势
+可谓寻常
+但上台以来几乎从未对过
+是一种神智商
 
-https://wonder.cdc.gov/vaers.html
+运筹帷幄中的事一两件办不成
+无可厚非
+但主导的大事几乎没有成功案例
+足以垂范千辈
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15040118/image0-83.jpg)
+
+* * *
+
+习总这样的作为我们爆料革命是欢迎的，带来的影响极大地加剧了中南坑老杂毛之间残酷的政治内斗，所以郭先生说“以美灭共”和“以共灭共”的顺序可能要调换一下了。虽然如此，我们全体战友绝不能掉以轻心，仍然要脚踏实地，从每一件小事做起，坚持日拱一卒 ，直至实现我们心中的喜马拉雅!
+
+
 
 校对/发稿：飞虹
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
-
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
 
 **更多资讯，更多关注**
 

@@ -1,159 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（四十二）
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1323186/)
+## 郭先生0614I国内战友完成六个月战略部署七哥专案组全被抓
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1323454/)
 
-作者：纽约香草山信息部 6zero4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15010932/%E4%BB%A5%E5%85%B1%E6%BB%85%E5%85%B1-1-400x225-1_%E5%89%AF%E6%9C%AC.png)
+据[2021年6月14日 文贵直播：马云投资吴征的秘密；韩正力保吴征的原因；新盖特Logo的涵义；7.17看文贵大招](https://gtv.org/video/id=60c76068b96c69573d7ec62c)时间点07：54——
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+来啦，来啦，声音怎么样？声音怎么样？哎哟，我的娘勒，你给我说，声音怎么样？兄弟姐妹们，声音怎么样？哎呀，哎呀，六月，六月十几号十四号吧？声音好不好？六月十四号，哎呀，欸，累死七哥啦，哎哟我的娘勒，哎呀，真有点受不了，哎呦，这个直播应该在外面直播，哎呀，我的妈呀，哎呀，六月十四号，兄弟姐妹们好，六月十四号，兄弟姐妹们好。
 
+有问：七哥包粽子吗？七哥没包，你嫂子忙活包啦，还包两种粽子。我都吃了，非常好吃，非常好吃。我很少吃粽子，端午安康，抱歉兄弟姐妹们，昨天我发了一个这个盖特叫端午平安。这是不应该的，无知、没文化，应该端午安康，冇文化嘛，冇文化嘛~~~对不对啊？
 
+哎呀，我这几天啊，说心里话，真的把我累蒙了。刚才谁我看看，火星人，君正一，冰冰和我来双修必在，那真的是啊。桑雅，生华。端午节安康战友们，叫做funny。
 
-6月13日塞林博士的9连推：
+对了，我突然想打一个电话，有个急事我要打个电话啊。哎呀这咋给忘了呀，我的老天爷。（郭先生起身离去打电话）
 
-第1推，贴上无名战友整理的闫博士参加路德社6月10日晚间节目时，谈到隐藏在香港同胞和闫博士身边的CCP大卧底李钰的来历和背景，以及在闫博士成功逃出香港后非常积极地配合CCP当局进行紧急应对工作的文字描述。
+哎，哎呀，哎呦我的娘嘞。兄弟姐妹好啊，我给大家抱歉。这几天、我上一周太多太多事情，再一个就是大事儿。还有一个就是特别特别重要的兄弟姐妹们，就是国内这个事情、时局变化太快了，国际形势变化太快了，还有G7欧洲。
 
-在这一片段，闫博士描述了CCP国安和国保部门如何利用微信监控所有中国人，微信不仅仅是CCP内部的情报工具，也是在一些拥有美国公民身份之叛徒的热切参与下，在美国境内组织信息战的工具。
+原来我是美国时间、亚洲时间，它累呢它是有规律性的，但是突然间从12点以前没有时间睡觉，因为欧洲的时间，欧洲的时间必须是就是这里的下午6点以前把欧洲事处理完，然后再接着晚上又处理亚洲的事儿。坏了，就是一点时间都没有了。这就导致我睡觉睡着睡着就不行了，所以战友们一定要记住你想睡的少，你必须12点以前要睡一觉，要睡得好。再一个就晚上没有打坐时间那就完了，没有打坐时间也不行。
 
+再一个就是上一周忙，我呢就是中午也吃晚上也吃，吃馒头、吃米饭、吃面食，坏了，体重一下子增长了两公斤，一下子变成了，从77直接不是两公斤是三公斤，80公斤去了，就到80了，一下子把我吓坏了，不是73到77了，一下子上去了，我说这怎么可能，我说这几个将近四五公斤。但是一停这几天一下子下来了，下来了现在还剩两公斤。你说这也没见长肉啊，几公斤几公斤的长啊，都是水份。
 
+然后咱们国内最近跟国内战友联系得比较多，国内战友联系就相当的紧张。但是终于在昨天有一个很大的事情算完毕了。特别是国内关系到咱们下一步的6个月的战略部署，这汗洼洼的，这个战略部署都完了。那么这跟我们的爆料革命和新中国联邦的下一步的事业极为重要，为啥说要极为重要？兄弟姐妹们，没有这些无名的背后的战友们的付出和工作，它是不可能有进步的。
 
-> In this segment, Dr. Li-Meng Yan describes how CCP security uses WeChat to monitor all in China. WeChat is not just a CCP internal intelligence tool, but also to organize information warfare inside the U.S. with the eager participation of some traitors who hold U.S. citizenship. [pic.twitter.com/c3C2C8WMjt](https://t.co/c3C2C8WMjt)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 13, 2021](https://twitter.com/LawrenceSellin/status/1403956840648613889?ref_src=twsrc%5Etfw)
+就像辽宁省专案组专门弄七哥的专案组这些人，三波了都抓完了是吧？都抓完了。为什么呀？他们以为七哥完蛋了是吧、我们爆料革命不会成功、共产党也不会灭，就使劲黑。王岐山、孟建柱、孙力军、吴征、傅政华轮着黑咱的钱、黑咱的人。结果一波一波的什么西城区呀、什么什么这区那区、副省长、政法委、市长都想捞一把，现在这帮孙子全被抓了。
 
+包括就是经侦的所谓的那个孙宏全家也被抄了，他家也轮到自杀了，叫孙宏的是对咱们员工最狠的，就咱们同事骂人打人的，头两天也被抓了。就这小子到河南裕达去，去了以后对待女的男的就骂，到了咱们裕达那个咖啡厅一坐一天不走，然后在那块儿瞎吃猛喝啊耍流氓，然后专案组人一起离开，他找个理由又回来了，回来以后又拿酒是又拿烟，好东西都拿走，还约女服务员要出去说要谈案子，就这个流氓折腾几年了，这孙子。
 
+咱们同事们是有苦不能言呐，所以河南省政法委书记也抓了，河南省的政法委书记也抓了，这公安厅长也抓了，是吧。公安局长听说现在开封还有河南的要抓，从黄保卫案之后抓了将近2000人，说所有的这个案子给政法委书记，河南肯定要抓，真的是要上千人啊，这都是你看看共产党它以为裕达就是一块肥肉，想怎么弄怎么弄。
 
-第2推，一个仍在为CCP背水一战的人，威胁一个正在努力保卫自己的国家而与CCP对抗的前“绿色贝雷帽”成员，实在不是一个非常明智的举动，我们以坚韧不拔的精神追求我们的使命而著称！并贴上了“绿色贝雷帽”特种部队的徽章及一张标有“LORELAY”背景为河边有一条公路和一座石头山的图片。
+这就像当年共匪呀，这还是曾庆红的妈妈说的话，“说当年什么长征啊，说我们这是跟着长征的慰安妇，不够他们玩的，走到哪个村子，哪个村子的寡妇轮流睡，沿路之上全是革命的种子。”这是曾庆红的亲娘告诉我的，当着她的曾庆生、曾庆淮都在，是吧。就是革命之路上留下了无数种子，都是强奸寡妇，各村里面的女人全玩完，所有路过之处。为什么？她们懦弱，她们没有反抗的能力。
 
+那么所谓的办案，就是把这些被办案的人的员工、家人能强奸的强奸、能轮奸的轮奸，这就是所谓的专案组。用王岐山的秘书董宏的说的，什么叫专案组啊？专门为领导办案的组就叫专案组——没有法律、没有纪律、没原则。说中纪委就是服务于政治权力武器的，一再地跟专案组说你们跟我一样，你们有一天也会到我这儿来，是吧，董宏说的也是实话呀。他说我家人上吊自杀，你家人也得上吊自杀，王岐山都保不了我，你们有王岐山吗？给国家做贡献、给党做贡献还有比王岐山和我做的贡献多吗？
 
+欸，这说的有道理是吧。就像大连省长什么刘建国，什么大连副市长、辽宁副省长、政法委书记抓几波了过去四年。公安局局长是吧，抓多少了？这几个人都曾经要接触过文贵是吧？都给拿过李友的钱对吧？都跟李友的什么什么女人都睡过觉，对吧？
 
-> It was really not a very wise move for an individual carrying water for the Chinese Communist Party to threaten a former Green Beret while he attempts to defend his country against the CCP. We have the reputation for tenacity in the pursuit of our mission. [pic.twitter.com/Wm5viUQFjI](https://t.co/Wm5viUQFjI)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 13, 2021](https://twitter.com/LawrenceSellin/status/1404001286283014147?ref_src=twsrc%5Etfw)
+接上文——
 
+[郭先生0614直播前播放视频文字记录汇总](https://gnews.org/zh-hans/1323433/)
 
+编辑整理——
 
-第3推，转发22r0n战友的推文，刚刚挖出了马利克通过赵金存与PLA保持关联的线索，而赵金存又与AMMS军事兽医研究所的夏咸柱密切合作，相信赵金存PLA与港大李嘉诚医学院对接的一条重要纽带，并贴上了赵金存与他们之间合作的证据：
+伦敦喜庄园：杯酒渐浓
 
-1. 2019年12月20日，赵金存与港大的马利克、中共国CDC病毒病预防控制所病毒应急技术中心主任谭文杰等CCP科学家联合发表在Biosafe Health的一篇文章“一种新型荧光素酶免疫吸附试验在检测人和动物MEAS-CoV特异性IgG方面优于市场上的酶联免疫吸附试验”。（与港大的联系）
-2. 2018年5月29日，赵金存与AMMS军事兽医研究所的夏咸柱、杨松涛、曹增国、王化磊和Stanley Perlman等CCP科学家联合发表在Front Microbiology上的一篇文章“一种快速的特异性检测MERS-CoV的方法“。（与PLA-AMMS的联系）
-3. 2018年3月5日，赵金存与港大的马利克和潘烈文等中外科学家联合发表在 Proc Natl Acad Sci USA的一篇文章“来自非洲骆驼的MEAS冠状病毒表现出区域依赖性的遗传多样性”。（与港大和CCP的联系）
-4. 2018年由中共国国家自然科学基金资助的合作开发项目“不同人类冠状病毒之间免疫交叉保护的研究”，项目编号：N\_HKU737/18，马利克和赵金存是项目联合负责人。（与港大的联系）
-5. 2017年3月14日，赵金存与AMMS军事兽医研究所的夏咸柱、杨松涛、王化磊和Stanley Perlman等CCP科学家联合发表在Vaccine上的一篇文章“编码MERS冠状病毒S1蛋白的DNA疫苗在小鼠中的诱导保护性免疫应答”。（与PLA-AMMS的联系）
-6. 2016年12月18日，赵金存与AMMS军事兽医研究所的夏咸柱、杨松涛、曹增国、王化磊和Stanley Perlman等CCP科学家联合发表在Viruses上的一篇文章“马免疫球蛋白和马中和F(ab’)2可保护小鼠免受西尼罗河病毒感染”。（与PLA-AMMS的联系）
-7. 2016年11月24日，赵金存及其同事钟南山与AMMS军事兽医研究所所长夏咸柱和王化磊等联合发表在Antiviral Res.上的一篇文章“在小鼠模型中使用马免疫球蛋白或免疫球蛋白片段对MERS冠状病毒感染的被动免疫治疗”。（与PLA-AMMS的联系）
+纽约香草山农场：西林1
 
+校对整合——
 
-COVID-19侦探22r0n的出色信息挖掘将马利克与PLA关联起来，夏咸柱被认为是CCP生物战计划的一个领导人，马利克曾经与纽约西奈山伊坎医学院 (Icahn Shool of Medicine at Mount Sinai)的微生物学系主任兼教授Peter Palese，于2013年2月1日在Science上联合发表了一篇文章“禽流感传播研究摘要”，并贴上这篇文章的网页链接。（赵金存的真容、钟南山和Peter Palese的线索浮出水面）
+伦敦喜庄园：胖丁
 
-**赵金存**：教授，博导，现任广州医科大学附属第一医院旗下广州呼吸健康研究院的呼吸疾病国家重点实验室副主任，是钟南山的副手。2002年本科毕业于北京大学基础医学系，2007年博士毕业于北京大学免疫学，随后赴美国爱荷华大学生物学与免疫学系进行博士后研究。
+发布——
 
+喜马拉雅银河系农场：山川异域
 
-
-> Excellent work by [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@NeverSettledCCP](https://twitter.com/NeverSettledCCP?ref_src=twsrc%5Etfw) connecting Malik Peiris with the Chinese People's Liberation Army. Xianzhu Xia is presumed to be a leader in the CCP's biowarfare program. Malik Peiris also publishes on avian flu with Peter Palese.[https://t.co/IjPOivixPt](https://t.co/IjPOivixPt) [https://t.co/FKHaqRV2YA](https://t.co/FKHaqRV2YA)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 13, 2021](https://twitter.com/LawrenceSellin/status/1404022346067947520?ref_src=twsrc%5Etfw)
-
-
-
-第4推，确信闫博士丈夫就在那个研究中心（西奈山伊坎医学院）工作，该研究中心的白人男子老板(Peter Palese)应该公开声明闫博士丈夫没有受雇于此，或者解释为什么他在这里工作，以及为什么他们不相信闫博士说他丈夫对她是一个威胁，他们是不是不喜欢亚裔女性？并贴出了闫博士丈夫和在自由女神像背景下之闫博士的照片。
-
-
-
-> The white men running the research center where Dr. Li-Meng Yan's husband is believed to be working should publicly state that he is not employed there or explain why he is and why they do not believe Dr. Yan when she says that he is a threat to her. Do they dislike Asian women? [pic.twitter.com/pyyY3RgkdN](https://t.co/pyyY3RgkdN)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 13, 2021](https://twitter.com/LawrenceSellin/status/1404063259255246854?ref_src=twsrc%5Etfw)
-
-
-
-第5推，据称是那个被研究中心白人男子老板(Peter Palese)雇佣的保安这个卑鄙小人聘用了闫博士丈夫，并威胁我试图保护闫博士免受身体伤害，但他并没有说或解释“闭嘴，他（闫博士丈夫）没有在此工作”，他仅仅说“闭嘴”！并贴出了一张福尔摩斯在《银火焰》中的经典台词“不会叫的狗”。
-
-
-
-> The security scumbag hired by the white men-run research center allegedly employing Dr. Li-Meng Yan's husband, who threatened me for trying to protect Dr. Yan from physical harm, didn't say (paraphrasing) "Shut up, he doesn't work at the center," he just said "Shut up." [pic.twitter.com/nDK7xdIST8](https://t.co/nDK7xdIST8)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 13, 2021](https://twitter.com/LawrenceSellin/status/1404073333663096834?ref_src=twsrc%5Etfw)
-
-
-
-第6推，暂时忘记一些美国公民对CCP的地缘政治影响和合作倾向，这从根本上来说是一个保护女性免受有虐待倾向的男人侵害的问题！并再次贴出了闫博士丈夫和在自由女神像背景下之闫博士的那张照片。
-
-
-
-> Forget for a moment the geopolitical implications and the cooperative inclinations of some U.S. citizens towards the Chinese Communist Party, 
-> THIS IS FUNDAMENTALLY AN ISSUE OF PROTECTING WOMEN FROM POTENTIALLY ABUSIVE MEN. [pic.twitter.com/jY3Fkvn4nE](https://t.co/jY3Fkvn4nE)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 13, 2021](https://twitter.com/LawrenceSellin/status/1404078352210829316?ref_src=twsrc%5Etfw)
-
-
-
-第7推，这就是将要埋葬一个享有盛誉的研究中心的那座小山吗？为一个没有被宪法赋予权利并被指控试图杀害其妻子的外国人辩护，显然他是被CCP送到美国的！并今天第3次贴出了闫博士丈夫和在自由女神像背景下之闫博士的那张照片。
-
-
-
-> Is this the hill a reputable research center wants to die on?
-> Defending a foreigner with no constitutional rights, who is accused of trying to kill his wife and who was obviously sent to the United States by the Chinese Communist Party. [pic.twitter.com/Ih5q7vWZ9T](https://t.co/Ih5q7vWZ9T)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 13, 2021](https://twitter.com/LawrenceSellin/status/1404092988763131909?ref_src=twsrc%5Etfw)
-
-
-
-第8推，贴上了打杂客与Peter Palese等28位CCP外籍科学家，在2020年2月19日联合发表在《柳叶刀》上的那篇臭名昭著的文章“支持中国抗击COVID-19的科学家、公共卫生工作者和医务工作者的声明”，阐明了他们的态度和立场：我们联名以坚决谴责有关COVID-19非自然起源的阴谋论！现在许多人认为这篇文章是蓄意的，也许是为了配合CCP，通过压制公开的科学调查，将现在广泛接受的实验室起源标记成阴谋论，来掩盖COVID-19的真实起源！
-
-
-
-> This article is now believed by many to be a deliberate attempt, perhaps coordinated with the Chinese Communist Party, to cover-up the true origin of COVID-19 by suppressing open scientific inquiry, labelling the now widely-accepted laboratory origin as a conspiracy theory. [pic.twitter.com/S6kifgOFfz](https://t.co/S6kifgOFfz)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 14, 2021](https://twitter.com/LawrenceSellin/status/1404268939857780738?ref_src=twsrc%5Etfw)
-
-
-
-第9推，转发闫博士的推文，闫博士对塞林上校在COVID-19真相的全面调查，以及在保护自己免受生命威胁方面所做的巨大付出深表感谢，CCP一直对说出其不可告人之秘密的人进行封口甚至消灭，我们绝不让CCP赢！
-
-感谢闫博士！我们将与勇敢的中国老百姓并肩作战，打败CCP，解放中国人民，揭露那些在美国与CCP勾结的人！
-
-
-
-> Thank you Dr. Li-Meng YAN [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) 
-> Together with the courageous lao bai xing, we will defeat the Chinese Communist Party, free the Chinese people and expose those in the United States collaborating with the CCP. [https://t.co/39Ywx2KPaH](https://t.co/39Ywx2KPaH)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 14, 2021](https://twitter.com/LawrenceSellin/status/1404275156067946499?ref_src=twsrc%5Etfw)
-
-
-
-触目惊心，原来港大李嘉诚医学院P3实验室研究员闫博士丈夫的老板“世界毒王“马利克，以及闫博士自己的老板潘烈文等人，与PLA-AMMS的生物战计划领导人之一的夏咸柱等人的合作，是通过广州医科大学附属第一医院旗下广州呼吸健康研究院的呼吸疾病国家重点实验室副主任、钟南山的副手赵金存这个桥梁实现的。同时，马利克与纽约西奈山伊坎医学院的微生物学系主任Peter Palese又是多年精诚合作的铁杆朋友，他们俩毋庸置疑就是CCP在中美之间运作过程中安排闫博士丈夫赴美，并将其安顿在西奈山伊坎医学院以伺机谋害闫博士的背后直接操刀人！
-
-塞林上校是前“绿色贝雷帽”成员，是美国陆军第一特种部队司令部的最高指挥官之一。 “绿色贝雷帽”就是美国第一特种部队司令部（空降部队）的誉称，其英文缩写为1SFC(A)，是美国陆军赫赫有名的Tier2级别之半公开行动的精锐部队，仅次于名震天下的Tier1级别之绝密行动的美国陆军王牌  “三角洲”特种部队，和美国海军王牌“海豹突击队” ，隶属于美国陆军特种作战司令部(USASOC)，成立于1989年并于2014年重组，师级建制，该司令部麾下涵盖7个特种部队大队、2个心理作战大队、1个民政旅和1个保障旅。其中7个特种部队大队包括5个现役特种部队大队：
-
-1. 1特种部队大队1SFG（USINDOPACOM，印太司令部）；
-2. 第3特种部队大队3SFG（USAFRICOM，非洲司令部）；
-3. 第5特种部队大队5SFG（USCENTCOM，中央司令部）；
-4. 第7特种部队大队7SFG（USSOUTHCOM，南方司令部）；
-5. 第10特种部队大队10SFG（USEUCOM，欧洲司令部）。
-
-
-以及2个陆军国民警卫队特种部队大队：
-
-1. 第19特种部队大队19SFG（USINDOPACOM & USCENTCOM, ARNG，印太司令部与中央司令部，国民警卫队）；
-2. 第20特种部队大队20SFG（USSOUTHCOM, ARNG，南方司令部，国民警卫队）。
-
-
-“绿色贝雷帽”第一特种部队司令部（空降部队）运作于美国陆军特种作战司令部(USASOC)的总部北卡布拉格堡基地，专注于反恐战争的特别侦查和游击战，是应对超限战的精锐部队，专门处理制定责任区内的任何非常规问题，通常有责任区内的常规作战部队的配合执行紧急任务。
-
-据称，就是纽约西奈山伊坎医学院的微生物学系主任Peter Palese雇佣的保安聘用了闫博士的丈夫。由于塞林上校揭露了他们收留了闫博士丈夫的真相，该保安奉命顶包，并威胁正在保卫自己的国家免受CCP进一步破坏的塞林上校，试图在塞林上校即将与美国国会众议院情报委员会开会前夕，让塞林上校闭嘴，却不解释他们有没有收留闫博士的丈夫和收留的理由，实在是一只叫都不会叫的狗，还试图为一个不受美国宪法保护并被指控试图杀害其妻子的外国人辩护，这实在是一个非常狂妄而愚蠢的举动！这个卑鄙无耻的保安决不可能有这个权利，做主聘用闫博士的丈夫。傻瓜都知道闫博士的丈夫是被纽约西奈山伊坎医学院的Peter Palese等核心人物收留的。只是东窗事发却黔驴技穷，这可是小则收留谋杀嫌犯，大则叛国罪的不能承受之重，求生欲望让西奈山伊坎医学院当事人想弃卒保车，以图瞒天过海等待蒙混过关的机会，岂料你们都已经被天罗地网罩地严严实实，你们已经成为瓮中之鳖、插翅难飞，唯一的出路就是束手就擒！
-
-诚然，纽约西奈山伊坎医学院因为收留CCP派来灭口闫博士的刽子手，现在连同闫博士的丈夫俨然都成为了全世界COVID-19病毒溯源之聚光灯的焦点，都被放在烧得旺盛的火炭上扑哧扑哧地烧烤，被烤得焦头烂耳却无处可逃。他们现在唯一理智而可行的求生路径是，诚恳解释他们收留闫博士丈夫在此工作的正当理由，以争取法律上的坦白从宽，而不是将谎言和顽抗进行到底！
-
-面对纽约西奈山伊坎医学院当事人的荒诞和妄为，塞林上校还是给出了最大的诚意和善意，没有将他们的无耻而恶劣的行为往叛国方向揭示，而是将他们收留对闫博士有潜在虐待和谋害意图的人，描述成他们是因为不喜欢亚裔女性闫博士而为之，以撇开他们与CCP勾结的政治犯罪嫌疑，把这件事归结于一个可大可小、不伦不类的种族歧视问题，给他们台阶下，让他们迷途知返，善莫大焉！并善意提醒他们不要继续执迷不悟、一意孤行地朝着埋葬他们的那座小山“LORELAY”裸奔、狂奔！
-
-闫博士代表自己和爆料革命战友，对塞林上校在保护闫博士自己免受伤害、COVID-19真相调查，以及对万劫不复的中国老百姓之同情和厚爱都深表感谢。塞林上校等美军将与勇敢的中国老百姓并肩作战，彻底揭露那些在美国与CCP勾结串联的人，最终消灭穷凶极恶、恶贯满盈的CCP，解放善良而穷苦的中国老百姓！
-
-校对/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0
