@@ -1,10 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国防部长发布对抗中国的内部指令具体举措细节不详（玫瑰看新闻六月十日）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1322153/)
+## 中共国对G7国家的批评作出强烈反应
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1322220/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14105834/Page_00001-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14105907/Page_00002-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14105945/Page_00003-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110021/Page_00004-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110058/Page_00005-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110136/Page_00006-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110221/Page_00007-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110300/Page_00008-scaled.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14110330/Page_00009-scaled.jpg)
+- 作者: 里奇
 
 
-0
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+
+**西班牙2021年6月14日电/西喜社——**
+
+中共国周一谴责七国集团领导人的联合声明，强烈批评中共国政府。
+
+北京政府称G7国家的批评是“粗暴干涉中国内政”，中方呼吁G7停止“诽谤中国”。
+
+中共国驻伦敦大使馆表示，对有关新疆、香港和台湾的言论表示强烈不满和强烈反对，认为“歪曲事实”。
+
+中共国表示，该声明暴露了美国等少数国家的“险恶用心”。
+
+据人权组织和独立观察人士称，在周末峰会的一份声明中，G7 国家期望了解在中国新疆地区侵犯人权状况，在那里穆斯林维吾尔人受到大规模压迫。
+
+据联合国和人权组织称，多达 100 万维吾尔族人被关在所谓的再教育营中。美国将中共国对待少数民族的行为描述为种族灭绝。
+
+与此同时，七国集团对“香港民主规范的恶化”表示担忧。主要工业化国家也强调台湾海峡 “和平与稳定” 的必要性。
+
+中共国在冠状病毒大流行期间的行为也受到批评，因为国际社会必须“团结合作，而不是奉行帮派式的权力政策”。
+
+大使馆的回应称，“中共国是一个爱好和平的国家，希望促进合作，但也有边界”。
+
+在华盛顿，美国国家安全顾问杰克·沙利文 (Jake Sullivan) 表示，周日的 G7 声明““是在应对中共国挑战和与中共国竞争方面向前迈出的重要一步，例如如何在技术竞赛期间确保民主。”
+
+**点评: 这回中共日子不太好过了，蓝金黄的效力大为缩减。各国政客们无论真心或假意，他们无法再无视民意与邪共勾搭。执意同流合污的话，未来的不确定性，不但会使其政途夭折，或许还会搭上卿卿性命。希望各国此次坚定合作，毫不留情铲除人类公敌。同时，这场病毒危机也应该成为世界政坛做一次大扫除的清理良机，做到真正还政于民，不再愚弄大众。**
+
+素材: 里奇； 审核： Jenny Ball； 校对：阿伯塔； 发稿：Nuevo唐人
+
+**新闻来源** : [路透社](https://jyllands-posten.dk/international/asien/ECE13054950/kina-reagerer-skarpt-paa-kritik-fra-g7landene/)
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
+
+
++1
