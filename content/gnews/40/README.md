@@ -1,33 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七国集团峰会对抗中共的新兴领域
-` Jimsolomon` [轉載自GNews](https://gnews.org/zh-hans/1322603/)
+## 【热点播报】三星进军欧洲，与英国达成5G网络交易
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1322626/)
 
-作者：CPA Jim 所属农场：[喜马拉雅-华盛顿DC农场](https://gnews.org/zh-hans/author/himalayadcgnews/)
-![Technology requires the human touch]()![Technology requires the human touch](https://www.executivegrapevine.com/uploads/articles/story-frontier-technology-human-touch.jpg)
-七国集团峰会的重要性不言而喻，[G7峰会公报](https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/13/carbis-bay-g7-summit-communique/)提到了若干新兴领域。
+作者：纽约香草山农场 四季
 
-第31条指出全球经济与社会的前沿阵地决定人类的未来繁荣与福祉。我们正在目睹人类社会模式日益多样化，这种变革就影响到经济机会、安全、道德与人权的相互关系，影响到国家、企业与个人之间角色的平衡问题。
 
-中共把经济机会给其想腐化的人和关系人，以国家安全为借口侵犯人权，通过侵犯人权让其治下的专业人士、企业主等违反职业道德去编造虚假报表、披露错误信息、生产假冒伪劣产品、劣质工程，误导国际金融市场，用沉重债务捆绑中共国的地方政府、房奴、一带一路参与国，使得其所谓党大于国家、企业和个人并将这种模式扩大到全世界。
 
-第33条提出了一个新的概念“未来技术论坛”（Future Tech Forum），在经济合作与发展组织（The Organisation for Economic Co-operation and Development，OECD）的帮助下将于2021年9月发起。目的是将相同理念的民主伙伴召集起来讨论技术在支持开放社会中和解决全球挑战中的作用。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-第33条提到了开放政府伙伴关系（Open Government Partnership），其成员包括美国、英国、巴基斯坦、肯尼亚、尼日尼亚、韩国、德国、塞尔维亚、摩洛哥、意大利、加纳等国，没有中共国，可见中共国对自己政府是否开放方面的自信不如巴基斯坦、肯尼亚、摩洛哥、尼日尼亚等国，四个自信怎么就没有了呢。七国集团将在开放政府伙伴关系的技术基础上建立更多的透明度。
 
-透明度越高，意味着中共在上述开发政府伙伴关系中的非洲成员国以及巴基斯坦的腐化行径越容易曝光，可耻的债务捆绑行径越容易曝光。
 
-第33条最后提到支持七国集团数字技术标准合作框架（Framework for G7 Collaboration on Digital Technical Standards），用于开发新的标准。
+英国电信集团沃达丰（Vodafone）周一表示，已经选择三星电子为英国供应其5G网络设备，这是这家韩国公司在欧洲电信设备市场的一个突破。
 
-由于中共国不民主，而台湾民主，因此中共国将被排斥在该论坛之外，而台湾有资格参加。中共独裁统治作为落后生产关系、落后的上层建筑在阻碍中国大陆的生产力发展，建立于中华民国宪法上的台湾民主制度作为先进生产关系和上层建筑在促进台湾生产力以至全球生产力的发展。
+![]()![](https://dzm0ugdauank9.cloudfront.net/wp-content/uploads/2021/06/2021-06-14T070846Z_1_LYNXNPEH5D07G_RTROPTP_0_SAMSUNG-ELEC-NETWORK_1.jpg)图片来源： 路透社（Kim Hong-Ji）
 
-第34条支持“数字部长关于可信数据自由流动合作的路线图”（Digital Ministers’ Roadmap for Cooperation on Data Free Flow with Trust）、七国集团电子可转移记录合作框架（Framework for G7 Collaboration on Electronic Transferable Records）、数字部长网络安全原则（Digital Ministers’ Internet Safety Principles）。
+英国在2020年早些时候宣布了对华为的限制：英国移动供应商被禁止在2020年12月31日之后购买新的华为5G设备，他们还必须在2027年年底前将所有华为设备从其5G网络中移除。英国认为，不论是从目前还是从长远来看，虽然供应禁令将使英国的5G推广工作推迟一年，但这不是一个简单的决定，这对于英国的电信网络、国家安全和经济来说，是一个正确的决定。
 
-这里的网络安全不是中共国所说的网络安全，不是中共以保护孩子为名搞全面网络防火墙，而是保护妇女、孩子、弱势群体，反对仇恨演说，同时又保护人权和言论自由。中共在英国安装的华为5G设备侵蚀英国网络安全，导致七国集团峰会在讨论中共话题时不得不先断网，不知道中共国有关断网的报道的信息来源是华为，还是中共国家安全部，还是解放军，还是外媒报道。
+欧洲电信设备市场由诺基亚、爱立信和华为主导，但三星在9月意外地与美国巨头Verizon达成了60亿美元的交易后，已经进入了这个市场。欧洲移动运营商正越来越多地考虑用三星取代中共国的华为作为供应商，西班牙电信（Telefónica）、法国的主要电信公司Orange的高管都已经与三星进行了谈判。
 
-第35条意识到建立共同太空运营标准的重要性。
+随着5G推广的扩大，三星正依靠欧洲市场保持其网络设备业务的增长。CCS Insight分析师理查德-韦伯说：“三星要赶上爱立信和诺基亚还有很长的路要走，但它在移动宽带、固定无线接入和私有5G网络方面拥有全面的5G RAN产品组合，因此它应该被视为真正的竞争者”。
 
-第35条对应的是中共最近发射航天器，但是对回收失去控制。另一方面这个标准也会有效预防中共以维护网络安全为名击落马斯克发射的星链，因为落后的生产关系总是会采取各种方法阻碍先进生产力的发展，负隅顽抗，太空运营标准的建立和执行将会粉碎这种落后生产关系的图谋。
+参考阅读：
+
+[Samsung Enters Europe With Vodafone 5G Network Deal In Britain](https://www.oann.com/vodafone-opts-for-samsungs-5g-network-solutions-in-britain/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 0

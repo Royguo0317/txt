@@ -1,25 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象白话】什么时候才能正常地说话
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1322758/)
+## 6月14日美国政要推特精选：七国集团呼吁世卫组织开展新冠肺炎源头调查
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1322927/)
 
-加拿大使馆在澎湃新闻发表了一篇文章“中使馆发言人批驳加方涉华错误言论，天涯尽头的政治哀鸣”文中说了一句，看完觉得很好笑，他说，“康沃尔当地有一处景点——天涯尽头，加方等在G7峰会上的表演，意味着他们的政治哀鸣正在走向穷途末路，注定会被历史和世界人民所唾弃。”
+众议员迈克·加拉格尔： 我们已经看到CCP将如何操纵世卫组织对冠状病毒来源的调查。是时候由自由世界进行一次真正独立的国际调查了。 （转雅虎新闻：七国集团国家呼吁世卫组织开展新冠肺炎源头调查）
 
-发现中共的媒体一直说话很气势磅礴，真实的意思就是很粗鲁。这个时候不知道平时灌输的国学礼仪都去哪里了。在这篇文章中，比方说政治喧嚣，大肆炒作，大放阙词，说三道四。等等很多具有强烈感情色彩的词汇，当然，还有无数辣眼睛的感叹号。对于特鲁多，其实用中文这样刻薄的说他， 哪怕再难听一点的词汇，他也看不到，还是应该用英文写成文章发到海外版加拿大本地媒体才会有效果，不会浪费了表情。
 
-这次G7峰会，没有邀请中共参与，清楚表明了一个态度，就是老圈子经过近几十年的评估，发现中共不遵守群规，暂时给踢出群外了。踢就踢好了，反正现在也提倡内卷，中国人口众多，市场巨大，不知道中共政府着急什么，昨天批日本，今天批加拿大，明天批英国，反正每次都要捎带上美国。批驳完全靠吼和感叹号，心平气和摆出邮件，视频，报纸摘要，网络记录，这样不是更好吗？动不动就是哀鸣，唾弃，历史的垃圾堆这些虚无缥缈的词汇，其实老外对这些词汇是没有感觉的，国内的90后，00后基本只要有这样的词汇直接跳过，剩下的只有中共的忠实的党员同志会看看了， 不知道是不是一遍看一遍骂，就很难说了。
 
-纵看中文语言的发展史，古代封建时期读书人文质彬彬，市井虽有俚语，但是鲜有登上政府大堂或者正式场合，民国时期也以含蓄为美，简单朴实的文字大行其道，出个鲁迅先生，开始用上尖锐刻薄的词语。自简化字发展以来，准确的说是中共开始文化宣传以来，不断在发明新词汇，尤其是取得政府权力之后，通过一场又一场的运动，才形成了今日这样的文风，这和我们所推崇的中文之美是大相径庭的。几十年的广播电视学校的轮番轰炸，大多数人已经习惯了这种粗暴，不觉得了。
+> We've already seen how the CCP will manipulate a WHO investigation into COVID origins. It's time for a genuinely independent international investigation conducted by the free world. [https://t.co/s4F0coj1Va](https://t.co/s4F0coj1Va)
+> — Rep. Mike Gallagher (@RepGallagher) [June 14, 2021](https://twitter.com/RepGallagher/status/1404477075046780939?ref_src=twsrc%5Etfw)
 
-参考链接：无
 
-图片来源：网络
 
-整理撰稿：蓝精灵
+众议员迈克·加拉格尔： 尽管彼得·达扎克断言，新的信息表明武毒所饲养了活蝙蝠。这只是另一个支持实验室泄漏假说的证据，更有理由支持对武毒所进行全面、独立的调查。 （转国家评论的报道：是的，武汉病毒学研究所把活蝙蝠关在围墙内）
 
-校对发布：Penny
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+
+> Despite assertions by Peter Daszak, new information suggests the WIV housed live bats. This is just another piece of evidence supporting the lab-leak hypothesis and all the more reason to support a full, independent investigation into the WIV.[https://t.co/UYpQGwtq6w](https://t.co/UYpQGwtq6w)
+> — Rep. Mike Gallagher (@RepGallagher) [June 14, 2021](https://twitter.com/RepGallagher/status/1404505192733843456?ref_src=twsrc%5Etfw)
+
+
+
+美国总统拜登： 我们的北约联盟比以往任何时候都更加强大。今天，我将与我们的29个盟国一起，讨论我们的集体防御——包括防范俄罗斯的侵略、来自中国的战略挑战、恶意网络活动、恐怖主义和气候变化。
+
+
+
+> Our NATO Alliance is stronger than ever. Today I’m joining our 29 allies to discuss our collective defense — including from Russian aggression, strategic challenges from China, malicious cyber activity, terrorism, and climate change.
+> — President Biden (@POTUS) [June 14, 2021](https://twitter.com/POTUS/status/1404431080569049094?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬配奥： 我们必须让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 领导人付出实际代价，让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 相信他们必须改变这种给世界制造风险的做法。 【附华盛顿时报文章：蓬配奥“有很大把握确信”武汉实验室与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军方有关】
+
+
+
+> We have to impose real costs on the Chinese leadership to convince them that they’ve got to change the way they’re creating risk to the world.[https://t.co/1ggRSGWSwS](https://t.co/1ggRSGWSwS)
+> — Mike Pompeo (@mikepompeo) [June 14, 2021](https://twitter.com/mikepompeo/status/1404577224167145482?ref_src=twsrc%5Etfw)
+
+
 
 0

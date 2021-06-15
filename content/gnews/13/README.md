@@ -1,43 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月14日美国政要推特精选：七国集团呼吁世卫组织开展新冠肺炎源头调查
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1322927/)
+## 【战友心声】灭共的基石和力量到底来自哪里？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1323102/)
 
-众议员迈克·加拉格尔： 我们已经看到CCP将如何操纵世卫组织对冠状病毒来源的调查。是时候由自由世界进行一次真正独立的国际调查了。 （转雅虎新闻：七国集团国家呼吁世卫组织开展新冠肺炎源头调查）
-
-
-
-> We've already seen how the CCP will manipulate a WHO investigation into COVID origins. It's time for a genuinely independent international investigation conducted by the free world. [https://t.co/s4F0coj1Va](https://t.co/s4F0coj1Va)
-> — Rep. Mike Gallagher (@RepGallagher) [June 14, 2021](https://twitter.com/RepGallagher/status/1404477075046780939?ref_src=twsrc%5Etfw)
+香草山教育部：XU
 
 
 
-众议员迈克·加拉格尔： 尽管彼得·达扎克断言，新的信息表明武毒所饲养了活蝙蝠。这只是另一个支持实验室泄漏假说的证据，更有理由支持对武毒所进行全面、独立的调查。 （转国家评论的报道：是的，武汉病毒学研究所把活蝙蝠关在围墙内）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
 
-> Despite assertions by Peter Daszak, new information suggests the WIV housed live bats. This is just another piece of evidence supporting the lab-leak hypothesis and all the more reason to support a full, independent investigation into the WIV.[https://t.co/UYpQGwtq6w](https://t.co/UYpQGwtq6w)
-> — Rep. Mike Gallagher (@RepGallagher) [June 14, 2021](https://twitter.com/RepGallagher/status/1404505192733843456?ref_src=twsrc%5Etfw)
+作为一个墙内最底层的人，没有背景，没有资本，被共产党邪恶政权的九层妖塔和十面埋伏的内外宣洗脑了近三十年，我很幸运自己彻底看清了真相并且看到了未来。参加新中国联邦成立一周年庆典的嘉宾讲述了自己被共产党迫害的遭遇，勇敢参与爆料革命和无私捐款法治基金法治社会的经历，让战友都能感同身受，我想在此文中谈谈自己的心路历程。
 
+如果问我为何加入爆料革命，我认为这一定不是机缘巧合。一是，我心中早已对共产党生恨。刊登在Gnews的文章《三岁的我曾亲手埋葬了自己的弟弟》中我讲述了自己因共产党的灭绝人权的计划生育失去了弟弟，那件悲惨的事深深地刻在了一个三岁孩子的脑海里，慢慢变成一种仇恨，最后变成一种力量。七十年来，大饥荒、计划生育、文化大革命、新冠病毒等等，共产党残害几千万中国人民的罪恶行径罄竹难书。因果报应，共产党每做一件恶，都会成为埋葬它的一把土。
 
+二是，我心中早已有了自由的种子。我在上初中的时候才有英语课程，因为特别喜欢有活力且不同于其他学科的英语老师，喜欢上了英语，并且努力学习英语，一直到大学毕业从事的工作也与英语息息相关。在学习英语的过程中，我并不喜欢死记硬背，我喜欢看英文电影听英文歌曲，渐渐地培养了自己的英语思维，慢慢地了解到西方的文化和价值观，在潜移默化中，我已经变得与周围的环境格格不入，我反感中共国的社交关系，痛恨中共的腐败体制，我内心很孤独，却没有言论自由。墙内的新闻无法直视，我因对网络技术感兴趣，就研究出了如何翻墙，通过Youtube看到了路德社和郭文贵先生的视频，感到无比震撼，一发不可收拾，尤其是病毒大爆发，让我彻底觉醒，打破了对中共的恐惧，一路跟随爆料革命和新中国联邦至今，捐款法治基金法治社会，加入喜马拉雅农场，参与G系列。 爆料革命使我再次重生。
 
-美国总统拜登： 我们的北约联盟比以往任何时候都更加强大。今天，我将与我们的29个盟国一起，讨论我们的集体防御——包括防范俄罗斯的侵略、来自中国的战略挑战、恶意网络活动、恐怖主义和气候变化。
+天助自助者，要灭掉共产党，真正解放十四亿中国人，首先要从内心深处实现自救，必须认识到共产党的邪恶，必须追求自由平等人权的世界价值观。我们要团结，用自己的行动去灭共，当每个战友的点滴汇聚一起的时候就形成了爆料革命的洪流。不要在乎时间的长短和局势的变化，要有耐心和信心，因为在共产党统治下的我们和我们的孩子不会有未来，因为只有消灭共产党，才能打开十四亿中国人的眼和心，才能看到真相，才能享受最基本的自由平等人权，才能创造真正属于中国人的财富和文明。
 
+八九六四之后，我们有了郭文贵先生引领的爆料革命，有了法治基金和法治社会，有了喜马拉雅农场，有了新中国联邦，这一切都不是机缘巧合，而是由全球亿万战友参与付出的结果，这些才是真正灭共的基石和力量！
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
 
-> Our NATO Alliance is stronger than ever. Today I’m joining our 29 allies to discuss our collective defense — including from Russian aggression, strategic challenges from China, malicious cyber activity, terrorism, and climate change.
-> — President Biden (@POTUS) [June 14, 2021](https://twitter.com/POTUS/status/1404431080569049094?ref_src=twsrc%5Etfw)
+校对/发稿：正义的小新
 
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-前国务卿蓬配奥： 我们必须让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 领导人付出实际代价，让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 相信他们必须改变这种给世界制造风险的做法。 【附华盛顿时报文章：蓬配奥“有很大把握确信”武汉实验室与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军方有关】
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
 
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
 
-> We have to impose real costs on the Chinese leadership to convince them that they’ve got to change the way they’re creating risk to the world.[https://t.co/1ggRSGWSwS](https://t.co/1ggRSGWSwS)
-> — Mike Pompeo (@mikepompeo) [June 14, 2021](https://twitter.com/mikepompeo/status/1404577224167145482?ref_src=twsrc%5Etfw)
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 0

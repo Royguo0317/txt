@@ -1,53 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【G时评】核电大跃进埋下的“定时炸弹”
-` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1322952/)
+## 霍利呼吁国会对冠状病毒进行全面调查
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1323103/)
 
-**作者/图片：Giselle**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14214656/%E9%BB%91%E8%89%B2%E6%9C%BA%E5%99%A8%E4%BA%BA%E4%BC%9A%E5%B1%95%E4%BA%92%E5%8A%A8%E5%90%A7%E6%B5%B7%E6%8A%A5.jpg)
-据美国CNN报道，中共国广东台山核电站可能已经发生泄漏。目前，第二大股东法国电力EDF已经向美国能源部求助，而第一大股东中核仍在试图掩盖消息。
+**字幕内容：**
 
-台山核电站位于广东省江门市台山市赤溪镇，2018年投入使用。规划装机容量为4台175万千瓦级压水堆核电机组，分两期建造，是中法合作的大型核电站。
+**听译**
+**Tucker Carlson:
+塔克 卡尔森：**
 
-台山核电站一期工程建设两台单机容量为1,750MW的欧洲压水反应堆（EPR）核电机组，由中广核集团与法国电力公司共同投资设立，负责建设和运营。台山核电站是台山核电合营有限公司合资公司拥有，其中中广核（CGNPC）占70%，法国电力（EDF）占30%，由后者旗下公司法马通（Framatome）提供EPR技术支援。
+So, it’s simple,
+所以，很简单
 
-**对安全隐患讳莫如深**
+I don’t think it’s an outrageous thing
+我不认为要求联邦政府进行
 
-中共核电大跃进，号称5年超法，14年赶美，核电站遍地开花，然而却完全不考虑安全问题，所以出事是迟早的事。
+to ask for that there is some sort of organized effort , by the federal government,
+某种有组织的努力，进行调查
 
-核电专家王永庆曾在接受媒体的采访时说，核电站选址比较苛刻，一般选择人少的地方，周围15公里为无人区，同时还要划定50平方公里的安全区，另外还有其他很多要求，包括必须满足相关的地质条件，不能在地质松软地区或地震带上建设核电站等等。
+an investigation to get to the bottom of this,
+以查明真相是一件很过分的事情
 
-日本福岛县核电出事，就是因为福岛第一和第二核电站的地震安全设计水平，最高只有7.9级，然而却遇到了9级大地震。在我国重庆、山东等地规划的核电项目，也有类似的风险。
+why isn’t there one?
+为什么没有呢？
 
-比如，重庆市政府联手中电投公司，计划投资千亿建设核电站，但是，重庆处于蓥山、长寿到贵州遵义、彭水等几条较大的断裂带之上，有中强地震的构造背景。重庆历史上最大的一次地震发生在1856年的黔江，距今仅150多年，震级为6.25级。与重庆项目一样，山东乳山县核电项目也因地质和环境问题，遭受广泛质疑。
+Josh Hawley:
+乔什·霍利：
 
-圈内人都知道，核电站的抗震级别要达到8级甚至9级，但那样的话，成本就是一个天文数字，所以，在巨大的利益链面前，中共核电专家对这些数字从来都是讳莫如深。
+Well I think because we’ve seen the media line,
+好吧，我认为因为我们已经看到了媒体路线
 
-**高度垄断带来的隐患**
+which Dr. Fauci has unfortunately promoted over and over ,
+不幸的是，福奇博士一遍又一遍地宣传，
 
-据网易财经2011年3月15日报道，中国核电开发长期以来由中核、中广核和中电投三家公司控制，华能、大唐、华电、国电等大型电力集团只能通过参股投资核电项目、开发核电厂址。核电建设蛋糕已经被上述垄断企业把持，比如有望成为内陆首批核电的湖北咸宁项目、湖南益阳项目和江西彭泽项目，分别由中广核、中核和中电投主导投资建设。
+which is the idea that the Wuhan Lab was involved in Covid-19 in anyway, was false.
+即武汉实验室无论如何参与了 Covid-19 的想法是错误的
 
-另据媒体报道，目前我国的核电战略是在沿海试验，再向内陆（主要是长江流域）推行。不过在没有取得国家正式批文的前提下，地处长江流域的江西、湖北和湖南当地地方政府正在积极争抢成为“内陆首批核电站”，重庆、四川、安徽几个省也紧随其后，争取成为第二梯队。专家分析，地方政府热衷核电除了打算解决能源短缺的问题外，对核电投资所产生的经济辐射作用也寄予厚望。
+That is what they have said over and over “You’re a conspiracy theorist”, they said.
+他们说，这就是他们反复说的“你是阴谋论者”
 
-2020年9月2日，国务院总理李克强主持召开国务院常务会议，核准了海南昌江核电二期工程和浙江三澳核电一期工程。两大项目有效总投资超过700亿元，将带动大量就业。
+Dr. Fauci has said, you know, this naturally originating virus,
+福奇博士说，你知道，这种自然起源的病毒
 
-巨大的利益蛋糕也容易产生工程层层转包、质量控制漏洞、安全隐患等问题。
+we shouldn’t ask questions.
+我们不应该问问题
 
-目前，中共国运行的核电机组共49台，分布在浙江、广东、江苏、辽宁、福建、山东、海南、广西等地，在北京也有高温气冷实验堆、中国实验快堆。这些区域大部分都是经济发达、人口稠密区。
+Turns out, Tucker, there are a lot of really legitimate questions,
+事实证明，塔克，有很多真正合理的问题
 
-核事故一旦发生，不是死多少人的问题，而是影响多少代人的问题。核废料中那些高放射性物质半衰期超长，典型的例如铀-238，半衰期长达44.5亿年，钚-239，半衰期长达2.4万年，而10毫克的钚就能使人致命。
+and I mean a lot of really legitimate questions about the involvement,
+我的意思是很多关于实验室的参与
 
-当年切尔诺贝利事故造成的无人区、畸形生物，影响深远。核电站，不是光有技术就能做好的，还考验着一个国家的道德良心。因为核电站不但需要严格的技术，还需要工程建设、运行维护、环境安全等一系列严苛的支持，才能做到尽量安全。
+potential involvement, of a lab,
+潜在参与的真正合理的问题
 
-（**文章内容仅代表作者个人观点**）
+we need to get to the bottom of it.
+我们需要深入了解它
 
-【参考资料】
+Dr. Fauci, by the way, knew very well.
+顺便说一下，福奇博士非常了解
 
-[https://www.163.com/money/article/6V6VRP2100254L4P.html](https://www.163.com/money/article/6V6VRP2100254L4P.html)
+His emails tell us he knew in January of 2020,
+他的电子邮件告诉我们，他在 2020 年 1 月
 
-[https://www.rfi.fr/cn/中国/20210614-中国台山-担心-epr-核电站发生放射性泄漏](https://www.rfi.fr/cn/中国/20210614-中国台山-担心-epr-核电站发生放射性泄漏)
+that there was a possible lab connection there.
+就知道那里可能存在实验室联系
 
-[https://zh.wikipedia.org/wiki/中华人民共和国核电站列表](https://zh.wikipedia.org/wiki/中华人民共和国核电站列表)
+Course, he also knew about his connection to gain of function research at that same lab,
+当然，他也知道他在同一个实验室的功能增强研究的联系
 
-+1
+and yet he was dishonest about it, and continues to be dishonest about it. That’s a big problem.
+但他对此不诚实，并且继续不诚实
+这是一个大问题
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接**:[https://twitter.com/abigailmarone/status/1402791170657431552](https://twitter.com/abigailmarone/status/1402791170657431552)
+英听校： 康州盘古农场 -Freeearth
+翻译： 康州盘古农场–Freeearth
+翻译终校： 康州盘古农场-Mike Li
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0
