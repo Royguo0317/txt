@@ -1,50 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报 — 病毒合作者篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1324104/)
+## 郭先生0614XI我们的目的是灭共,战友们要在多平台广泛传播
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1324164/)
 
-- 作者：wenwu
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15061756/image0-2-28_%E5%89%AF%E6%9C%AC.jpg)
+据[2021年6月14日 文贵直播：马云投资吴征的秘密；韩正力保吴征的原因；新盖特Logo的涵义；7.17看文贵大招](https://gtv.org/video/id=60c76068b96c69573d7ec62c)时间点1：21：17——
 
+（郭先生念战友名字）大姑则擀面杖、大姑则擀面杖，喜马拉雅小蚂蚁号，罗伊 gettr gettr gettr, 罗伊这孩子不简单啊，这个罗伊是我们的工程师，罗伊一个人加半个工程师，干出了一个就是那个翻译的字幕，就是他干的。从4月17号开始干出来的活非常漂亮啊，罗伊这孩子很谦卑很谦卑，个人素质非常好，没有什么恶好，这是非常棒的小伙子啊，未来前途无量。文末、马努吉诺比利，念过了啊，雅云啊、洛夫斯基。
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+小Sarah最近也不搞节目啦，小福利这两天节目也不搞啦，这300年的飞飞也不搞啦，这次参加完64以后全回去度假去了，都度假去了，你看到没有？S Miles S Miles，七哥念我，跟着4年了，七哥，S Miles，郭叔已建国，S Miles还有一个，七哥念我，S Miles、Kaiser、喜马拉雅圣。盖掉推特，盖特当然要盖掉推特啦，盖特绝对会震惊天下，走着看！正义的力量，等到7月17号咱们再说。青烟袅袅，青烟袅袅，七哥念我，中南坑青烟袅袅、小苹果丽丽。香蕉啊，大家去那个闲聊澳洲的YouTube上，去点赞去。
 
-**西班牙2021年6月15日电/西喜社——**
+我再说一下，战友们，在G-TV直播的每一个人都应该同时在OBS上链接你的YouTube，或者是Instagram，就是不要说自私的只在G-TV直播，一定在G-TV，但一定尽可能在更多媒体上。我们的目的是灭共，不要在乎其它的，我们的目的是灭共啊，广泛传播。
 
-您若想了解全文报导内容，请点击标题链接
+LB77777777，我的天呐。依靠农民，有人说，文柯Miles说，717川普入驻盖特。你太小看你七哥了啊，那能行吗？那能行吗？光川普能行吗？七哥想得比这大，比这大！七哥干事如果是你们能想明白的、能想透的，楚歌汉界还有百鸟朝凤战友，七哥如果想干的事你们能猜对了，那七哥就没价值了，对吧？七白石啊，七哥一念名字，大家就疯了！七白石，雄鹰翱翔、雄鹰翱翔，还有G7TV啊，不停二，七哥好！七哥铁杆儿，哇塞，七哥铁杆儿！
 
-**1.[福奇资助的研究人员描述了，福奇的NIH”非常支持”与武汉实验室的功能增强”合作](https://thenationalpulse.com/breaking/fauci-researcher-describes-gof-collaboration-with-wuhan/)**
+冰冰和我来双修，七哥我没说啊，刚刚肯定是冒牌名字说那段话啊，那你这还有冒牌的，那是什么意思啊这是？俄罗斯首富，我来接了。期待717、飘扬，大舅念我、大舅念我，这咋还大舅了啊，飘扬、Frient、Kiki、霓裳雨衣、回望旅程、金池大鹏、正清，我们正清，台湾农场小伙子很棒啊，形象很好，非常非常好啊，战友端午啊，你练习的刀枪不入的、明峰啊。行了，我这时间是又过了又过了，自由光、江南春雨，中吗？
 
-据《国家脉动》6月13日电，2015年NIH资助巴里克和石正丽合著名为《一组类似SARS的循环蝙蝠冠状病毒显示了人类出现的潜力》的论文。该论文涉及的功能增强研究并不是在2017年奥巴马解禁时完成的，并且NIH审查了该篇论文，表示“非常支持”。他们认为该项研究永远不会被允许。
+接上文——
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15055158/unknown-39.png)
+[郭先生0614直播前播放视频文字记录汇总](https://gnews.org/zh-hans/1323433/)
 
-**2.[七国领导人对COVID-19起源的实验室泄漏理论进行了催问](https://www.skynews.com.au/details/_6258693805001)**
+[郭先生0614I国内战友完成六个月战略部署七哥专案组全被抓](https://gnews.org/zh-hans/1323454/)
 
-据《天空新闻》6月14日电，在G7峰会上的领导人被问及了COVID-19从武汉实验室泄漏的可能性。拜登表示：他在等调查部门的结果。他认为中共国必须在人权和在所有方面的透明度采取更负责任的行动。其他领导人表示不清楚。但中共参与掩盖病毒真相是磨灭不掉的。
+[郭先生0614II仇富心态的武警和专案组以虐待和戏弄马云为乐](https://gnews.org/zh-hans/1323491/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15055607/unknown-1-7.png)
+[郭先生0614III马云爆内幕韩正力保吴征因其掌握韩正基因地图](https://gnews.org/zh-hans/1323507/)
 
-**3.[中共国实验室泄密事件调查人员要求调查科学杂志在大流行期间发挥的作用](https://www.voanews.com/covid-19-pandemic/chinese-lab-leak-investigators-demand-inquiry-role-science-journals-played-during)**
+[郭先生0614IV20大江派韩正赵乐际丁薛祥李强卡位克强滚蛋](https://gnews.org/zh-hans/1323543/)
 
-据《美国之音》6月14日电，包括《自然》和《柳叶刀》等科学和医学周刊在疫情期间拒绝了反驳自然起源的文章。彼得罗夫斯基、埃布赖特和所谓的巴黎科学家小组起草了COVID-19起源的公开信，并表示要调查《自然》、《柳叶刀》、《科学》和《科学美国人》这些科学期刊的作用，还有是否受到利益影响。
+[郭先生0614V G系列和法治基金将给铁血组农场主生活补助](https://gnews.org/zh-hans/1323575/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15055827/unknown-2-6.png)
+[郭先生0614VI战友们要以诚待人正确认识自己懂得尊重别人](https://gnews.org/zh-hans/1324021/)
 
-**4.[蝙蝠女无法证实病毒非实验室起源和员工没有被感染，她只说自己是无辜的科学家](https://www.dailymail.co.uk/news/article-9684891/Chinas-bat-woman-says-lab-leak-suspicions-constantly-pouring-filth-innocent-scientist.html)**
+[郭先生0614VII吴征杨澜靠三口澜一腚赢天下在党内屹立不倒](https://gnews.org/zh-hans/1324048/)
 
-据《每日邮报》6月14日电，石正丽表示实验室起源理论是对科学家的诽谤，还有她的三名同事感染了新冠病毒是不真实的。在2017年，石正丽和她的同事发表了功能增强研究的论文，让病毒几乎可传染到人类。石正丽回复这是不信任而不是科学。
+[郭先生0614VIII七哥过去两周的工作成果到717大家就知道了](https://gnews.org/zh-hans/1324092/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15055944/unknown-3-6.png)
+[郭先生0614IX农场和战友们在油管的视频和闲聊澳洲比比高下](https://gnews.org/zh-hans/1324121/)
 
-**5.[扎克伯格集团向武汉实验室的合作者提供了六位数的资金](https://thenationalpulse.com/exclusive/facebook-czi-funds-controversial-wuhan-researcher/)**
+[郭先生0614X G系列的意义和前景，盖特LOGO喻意着火炬](https://gnews.org/zh-hans/1324145/)
 
-据《国家脉动》6月14日电，美国UNC教授于2020年7月获得了扎克伯格的资助，她是石正丽的“长期合作者”，并参与了武汉实验室的会议。福奇博士在《MSNBC》的采访中试图掩盖他与扎克伯格的关系，但下图揭露了所有合作者。巴里克博士视生物武器为赚钱的“关键工具”，脸书表示支持巴里克博士的说法。
+编辑整理——
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15060149/unknown-4-6.png)
+纽约香草山农场：文官
 
-审核：蚂蚁兄弟；校对：信心满满；发稿：信心的选择
+校对整合——
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+喜马拉雅日本银河系农场：黎明之前
 
-+2
+分段归纳——
+
+波士顿五月花农场：背靠背（frankie）
+
+发布——
+
+喜马拉雅银河系农场：山川异域
+
++1

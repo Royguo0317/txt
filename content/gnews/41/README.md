@@ -1,63 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北约启动北大西洋公约 逐案处理网路攻击行动
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1323844/)
+## 德克萨斯州医护人员被迫选择接种中共疫苗或失业的诉讼被法官驳回
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1323831/)
 
-台湾宝岛农场
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15040818/%E6%93%B7%E5%8F%96615-8.jpg)
-**北大西洋公约首次针对中共**
+- 作者：**wenwu**
 
-6月14日，北大西洋公约组织（NATO）峰会发表公报，强调要面对俄罗斯「威胁」和中共的「挑战」。这是北约首次把中共列为「系统性挑战」，在公报中提到中共达十次之多。
 
-北大西洋公约组织（NATO）于布鲁塞尔召开峰会前夕，秘书长斯托腾柏格（Jens Stoltenberg）表示，北约各国领袖应制定更强有力的共同政策，以应对日益进逼的中共政权。
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**北大西洋公约峰会决议将「网路攻击」纳入北约章程中**
+**西班牙2021年6月15日电/西喜社——**
 
-在布鲁塞尔举行的北约峰会的一部分，美国和其它北大西洋公约组织国家周一（6月14日）通过了一项新的网路防御政策。北约决定，在发生北约成员国遭到网路攻击的情况下，将援引《北大西洋公约》（North Atlantic Treaty）的第5条进行「逐案处理」。 《北大西洋公约》是北约的创始章程。
+德克萨斯州一名联邦法官周六[驳回了](https://abcnews.go.com/US/judge-tosses-lawsuit-houston-hospital-staff-vaccine-mandate/story?id=78254499)医护人员的诉讼，他们指控雇主“非法强迫员工”接受中共疫苗。
 
-**北大西洋公约第五条**
+詹妮弗·布里奇斯和其他116名原告[表示](https://childrenshealthdefense.org/defender/employees-sue-texas-hospital-covid-vaccine-mandate/)，休斯顿卫理公会医院正在强迫员工接种“[实验性](https://www.fda.gov/drugs/types-applications/investigational-new-drug-ind-application#Introduction)和[危险的](https://childrenshealthdefense.org/defender/vaers-data-injuries-deaths-vaccinating-5-year-olds/)”中共疫苗。原告们说，解雇拒绝接种疫苗的员工是“错误的解雇”。
 
-北大西洋公约第5条规定：「一旦确认成员国受到攻击，其他成员国将作出即时反应。该条款被理解为各国部队将自动参战，并不再需要各国政府的参战授权」。
+医院上周[停职了](https://www.cbsnews.com/news/covid-vaccine-houston-methodist-hospital-system-employee-suspensions/)近200名拒绝接种疫苗的员工。
 
-依照北大西洋公约第5条的估定，我们可以知道国际团结灭共，正在逐步的将中共的各种威胁形式纳入法规当中，以法灭共，指日可待。
+美国地区法官林恩·休斯裁定，德克萨斯州法律仅在要求员工实施可判处刑事处罚的非法行为时，才保护他们免受解雇。根据[法官的裁决](https://childrenshealthdefense.org/wp-content/uploads/dismissal_methodist_suit_covid_vaccine_mandate.pdf)，“接受新冠疫苗接种不是非法行为，也不受到刑事处罚。”
 
-**中共制造生物病毒武器攻击全世界病毒溯源才刚开始**
+原告认称，要求员工接种中共疫苗[违反了联邦法律](https://childrenshealthdefense.org/defender/under-federal-law-can-your-employer-make-you-get-covid-vaccine/)，因为疫苗尚未获得美国食品和药品监督管理局（FDA）批准。其仍然是[紧急使用授权](https://www.fda.gov/emergency-preparedness-and-response/mcm-legal-regulatory-and-policy-framework/emergency-use-authorization#abouteuas)（EUA）产品。
 
-中国共产党在和平时期，利用非常规性武器(中共病毒、新冠肺炎)攻击全世界。利用中共病毒(新冠肺炎)的投放、恶意散播等方式为前锋，破坏各国经济、公卫、行政及医疗体系。
+休斯驳回了这一说法，称法律授权卫生与公众服务部长推出“用于紧急情况的医疗产品”。
 
-此外，中共长期的渗透、勾结WHO、科学界、医疗界、媒体新闻界等，并且培养所谓的「专家、权威或具有影响力的人、单位」协助中共散播虚假消息，让世界人民及政府对中共病毒(新冠肺炎)的认知、及来源调查拖延时间，并且打压病毒有早期治疗方案及预防药物(HCQ)等言论。使普罗大众在疫情蔓延之初便认为「疫苗是唯一解药」，忽略了预防、早期治疗的重要性。除此之外，疫苗经济、官商勾结或是政要的渗透等等，都在本次病毒武器的施放过程中一一的曝光。
+休斯说：“[法律]在紧急情况下赋予卫生与公众服务部长某些权力和责任。它既没有扩大也不限制私人雇主的责任；事实上，在这种情况下，它根本不适用于医院等私人雇主。它不给私人机会起诉政府、雇主或工人。”
 
-中共病毒(新冠肺炎)和新冠疫苗的结合，将使注射新冠疫苗的人们，变成超级无症状传播者与中共病毒(新冠肺炎)的变异，引发更大的新冠疫苗次生灾害。
+休斯在裁决中[说，](https://www.cbsnews.com/news/covid-vaccine-lawsuit-dismissed-houston-methodist-hospital-system/)声称疫苗是危险的，这是“错误的，它也是不相关的”。
 
-北约战略的转变及加速，是由于全世界战友的努力，无面人大量的付出，新中国联邦的信仰，才达到今天。消灭中共体制是正义的必须，一切在你的选择。
+该裁决意味着德克萨斯州医院的员工必须提供接种中共疫苗的证明，否则将失去工作。
 
-中共病毒(新冠肺炎)的核心ZC45和ZXC21，舟山蝙蝠骨架，永远无法抹灭的源头与事实，在世界的追责之下，中共必然灭亡。
+[儿童健康保护协会](https://childrenshealthdefense.org/)主席兼总法律顾问玛丽·霍兰德表示，这项裁决“令人失望”，“有理由提出上诉”。
 
-传播真相，缺你不可，你的一小步，将是灭共的一大步。
+霍兰德说：“我认为法官误解了联邦法律，没有完全理解紧急使用授权状态的真正含义。因为EUA意味着该产品是实验性的，所以你不能强迫别人接受它。在中共疫苗仍处于EUA期间，任何雇主都不能强制别人使用该疫苗。”
 
-资料来源:
+代表布里奇斯和其他原告的律师贾里德·伍德菲尔[表示](https://www.foxnews.com/us/texas-judge-tosses-hospital-workers-covid-19-vaccine-requirement-lawsuit)，他的客户“致力于对抗这一不公正的政策”。
 
-[北约成员国通过一项新的网络防御政策-大纪元](https://www.epochtimes.com/b5/21/6/15/n13022233.htm)
+伍德菲尔告诉福克斯新闻，休斯顿卫理公会正在利用中共[疫苗授权](https://childrenshealthdefense.org/defender/vaccine-mandates-an-erosion-of-civil-rights-chd-e-book-available-now/)来促进利润。伍德菲尔说，这家医院正试图说服患者离开他们的医疗保健提供机构，转来休斯顿卫理公会。因为所有员工都接种了疫苗.
 
-[北约秘书长：需强化共同政策对抗中共-大纪元](https://www.epochtimes.com/b5/21/6/14/n13020371.htm)
+伍德菲尔说：“这种思路的问题在于你告诉医院的员工，他们将成为人类的小白鼠。”
 
-[扩大防御北约公告首指中共构成系统性挑战-大纪元](https://www.epochtimes.com/b5/21/6/14/n13021758.htm)
+伍德菲尔说，对原告来说，“这是一个能否支付房贷、支付车贷、养家糊口和避免破产的问题。”“发生成为这样是完全错的。”
 
-[北大西洋公约组织](https://zh.wikipedia.org/wiki/%E5%8C%97%E5%A4%A7%E8%A5%BF%E6%B4%8B%E5%85%AC%E7%BA%A6%E7%BB%84%E7%BB%87)
+休斯顿卫理公会首席执行官兼总裁马克·布姆博士在一份声明中[说](https://www.khou.com/article/news/health/coronavirus/vaccination-deadline-houston-methodist-employees/285-16c0285c-a55b-44b8-8232-5d92d5c122ea)：“……休斯顿卫理公会的26,000名员工中有99%完成疫苗接种要求。不幸的是，剩下的少数人拒绝接种疫苗，医护人员将患者放在首位就应该接受中共疫苗接种。”
 
-着：文旦
+**简评：**
 
-审编：早不稻仁
+**疫情下，美国法律的极权和自我化已经让人感觉得非常清晰，最终导致通过法庭允许剥夺人权的重大滑稽事件发生。法律和民意不代表实验性疫苗实际数据表现，该法官完全没有理由莽撞驳回医护人员的诉讼，所以这裁决是出于法官自己的恐惧而不是来自法律。**
 
-校对：主翅膀下
+**休斯顿卫理公会医院的马克·布姆博士给出合理注册的理由是，医院的中共疫苗接种率为99%，百人中只有1个人不愿接受强制注射实验性疫苗。对于医院来说就是不想在那1%的人身上浪费精力，毕竟开门是为了赚钱的，而注射疫苗则可以拉更多病人来这家医院。真可谓是显出同中共一模一样的嘴脸。**
 
-发布：little liu
+**福奇带出来的兵真是烂透了，美国的医疗保险制度的问题也越来越显现！**
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+素材：wenwu； 审核：文乐； 校对：阿伯塔； 发稿：Nuevo唐人
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+**新闻来源：**[《捍卫者》](https://childrenshealthdefense.org/defender/texas-healthcare-workers-forced-get-covid-vaccine-lose-jobs/)
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0

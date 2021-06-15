@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】6/14/2021晚：北约称中（共）国及其野心构成系统性挑战
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1323945/)
+## 七国集团聚焦应对中共国日益增长的威胁和侵害人权问题
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1324056/)
 
-编辑：华盛顿DC农场 路德简报项目组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15042708/20210614-2-scaled.jpg)
+06/12/2021 路透社：七国集团峰会重点讨论了应对中国日益的威胁和侵害人权问题的努力，向发展中国家提供了一项与“一带一路”相匹敌的基础设施计划。同时，G7领导人达成共识，需要对中国以不公平的低价销售出口产品及其对人权的侵害提出一致做法。
+
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+
 0

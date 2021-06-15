@@ -1,11 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七国集团聚焦应对中共国日益增长的威胁和侵害人权问题
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1324056/)
+## 【西媒头条】第1期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1324062/)
 
-06/12/2021 路透社：七国集团峰会重点讨论了应对中国日益的威胁和侵害人权问题的努力，向发展中国家提供了一项与“一带一路”相匹敌的基础设施计划。同时，G7领导人达成共识，需要对中国以不公平的低价销售出口产品及其对人权的侵害提出一致做法。
+- 作者：蚂蚁兄弟
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-0
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+
+**西班牙2021年6月15日电/西喜社——**
+
+关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15053522/Captura_de_pantalla_2021-06-15_a_las_10.46.55.png)
+
+发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
++2
