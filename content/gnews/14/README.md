@@ -1,73 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】苹果价格持续走低，东南亚疫情成主因？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1323332/)
+## 【香草诗词汇】端午幻生缘
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1323394/)
 
-作者：香草山农场  鹰(文言)
+作者： 纽约香草山医疗部 云豹
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
 
 
-澎湃网6月14日转载新华每日电讯消息，今年以来苹果价格持续走低，东南亚各国疫情因素造成苹果出口骤减，再有原本库存压力，供大于求，苹果销售成为亏本买卖。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15001559/Untitled-design-2021-06-14T221131.093.png)
-2018年国内苹果产量3923万吨，19年增至4242.5万吨（同比增长12.6%），入库量超过1000万吨；2020年产量虽有下降仍超4000万吨，但在国内疫情区域爆发的影响下，上半年长时间的隔离防疫造成苹果“去库存”进度缓慢，而下半年苹果上市高峰期也“爆冷”，2020年10-12月批发总量36.45万吨（同比19年下降29.17%）。2021年春节期间苹果销量更比往年下降50%，2021年上半年去库存压力继续加大，截至2021年4月底，国内苹果库存量约400万吨，比常年偏高10%，伴随着5月份时令水果的上市，苹果需求更加减少，所以价格走低趋势越演越烈。
+端午中日焰
+浴花圃园间
+灰影叶间动
+惊喜野雀缘
 
-2020年鲜苹果出口105.8万吨，同比19年增长16%，出口到孟加拉、菲律宾等东南亚五国的苹果总量占总出口量的73.6%；2021年1-4月鲜苹果出口总量达31.67万吨，同比增长7.51%，出口金额同比增长20.34%。从数据上看，2021年的苹果出口同比2020年无论是总量还是价格上都有上涨，而非媒体所称的“东南亚疫情造成出口量下降”。再结合2020年的苹果出口量占总产量占比约为2.6%，苹果销量下降造成库存积压的决定因素因就在于国内消费的疲软。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15001632/Untitled-design-2021-06-14T221347.877.png)
-虽然2021年苹果的出口形势未有减弱，但海运成本的加大依旧造成出口难度的提升，如进出口货柜运费从以往的7000元涨至1.7万元，高品质鲜苹果的出口量虽然上涨，但成本的提高依旧严重削弱了企业和果农的利益。2019年红富士产量占苹果总产量的75.98%，品种的单一、产能过剩再有2021年来各种柑橘类产品低价优势，苹果销售遇冷，低质果价格下跌幅度上涨并严重滞销。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15003427/P_20210614_115757-scaled.jpg)
 
-从苹果的供销失衡，也能侧面反映出中共鼓吹的直播带货、线上销售农产品“成绩”的虚假。再有，虽然苹果价格走低，但由于2020年大量中小企业破产倒闭造成失业人口增加，再有中共各种巧立名目的“征税”或缴费，底层民众的收入整体缩水，虽然苹果价格走低，但由于粮食短缺危机加剧，民众的日常开支逐渐集中于果腹温饱，所以抢购低价苹果的现象并未上演。
+雀巢柏叶掩
+意为繁衍建
+一卧巢中憩
+偶立旁枝喧
 
-进入2021年后，中共通过扩大消费的方式将民众手中的“散钱”集中于基建、房地产等维系经济泡沫的领域，而民生、平安、招行等银行也相继呈现“爆雷”风险，社会资本的集中化也将削弱民众对水果类的购买热度，苹果低价潮还将持续上演。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15003522/P_20210614_115817-scaled.jpg)
 
-新闻来源：
+高吭声急劝
+警客勿近前
+雌雄轮值巢
+心期雏羽现
 
-新华社聚焦：今年苹果价低还不好卖？难题怎么破https://www.thepaper.cn/newsDetail\_forward\_13133984
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15003630/P_20210614_115429-scaled.jpg)
 
-苹果价格竞争激烈，降价是大势所趋，春节后苹果各主要产区库存情况https://new.qq.com/omn/20210314/20210314A09OE000.html
+昔蝶沦雀餐
+今幻双雀惦
+速脱妄想苦
+无佛无大千
 
-荔枝、苹果、梨……纷纷降价，水果价格为何走低？https://news.sina.com.cn/o/2021-06-04/doc-ikqciyzi7683789.shtml
+校对/发稿：飞虹
 
-库存太大不易售 今年苹果价格持续走低https://new.qq.com/omn/20210511/20210511A01RWF00.html
-
-卖1斤亏1元，苹果价格大跌滞销，为何便宜这么多？https://www.sohu.com/a/470153454\_120850141
-
-2020产季苹果产销形势分析报告 https://www.china-fruit.com.cn/site/content/14187.html
-
-2020年我国苹果市场与产业调查分析报告https://new.qq.com/rain/a/20201028a06qqi
-
-苹果销售去库存，路在何方？ http://www.xinhuanet.com/food/2021-05/12/c\_1127435307.htm
-
-2020年我国苹果种植业生产情况及市场行情分析，国内苹果品种多元化或将成为市场开拓的关键「图」 https://m.huaon.com/detail/694354.html
-
-2020年中国苹果出口增长9%,重回100万吨https://www.sohu.com/a/450466133\_617283
-
-2021年1-2月份鲜苹果进出口情况https://new.qq.com/omn/20210323/20210323A04BZW00.html
-
-数据|2021年4月份鲜苹果进出口情况http://news.foodmate.net/2021/05/594220.html
-
-校对/发稿：火内
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
 
 
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

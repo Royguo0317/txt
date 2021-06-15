@@ -1,64 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 尼日利亚停止从中共国融资建设本国铁路
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1323097/)
+## 霍利呼吁国会对冠状病毒进行全面调查
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1323103/)
 
-新闻来源：《布赖特巴特新闻网》Breitbart| 作者：John Hayward| 发布时间：2021年6月11日
+**字幕内容：**
 
-翻译/简评：原乡人|校对：clau|审核：Beicy-数学老师|Page：小雨
+**听译**
+**Tucker Carlson:
+塔克 卡尔森：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/63batPsTaYjAe/images/7ba95ee7-5d44-40e2-93b1-66978daa3a18.jpg?asset_id=fe20af0a-86e7-402c-9ee2-ae58d93b11ad&amp;img_etag=%225ffbd82204b37c9139242d5cb2422410%22&amp;size=2560)](https://spark.adobe.com/page/63batPsTaYjAe/images/7ba95ee7-5d44-40e2-93b1-66978daa3a18.jpg?asset_id=fe20af0a-86e7-402c-9ee2-ae58d93b11ad&amp;img_etag=%225ffbd82204b37c9139242d5cb2422410%22&amp;size=1024)图片：来源网络
+So, it’s simple,
+所以，很简单
 
-**简评：**
+I don’t think it’s an outrageous thing
+我不认为要求联邦政府进行
 
-尼日利亚《高级时报》2021年6月11日报道，尼日利亚政府目前已经提高国债发行额度，用以偿还中共国34亿美元的铁路贷款，将不再继续从中共国融资144亿美元完成大型铁路建设项目，英国渣打银行将为此基建项目提供融资。
+to ask for that there is some sort of organized effort , by the federal government,
+某种有组织的努力，进行调查
 
-尼日利亚担心的是中共国的“债务陷阱外交”，有2亿人口的非洲大国其国民收入一大部分来源于石油出口，收入来源极易受到石油价格波动等外部因素的影响，政府有可能很快发现自己没有钱来偿还债务，到时候中共国可以按贷款协议明确地合法拥有尼日利亚的主权资产如油田和港口。最后报道提到，中共国的拖网渔船正在尼日利亚的近海，过度捕捞导致渔场耗竭，并从尼日利亚渔民那里掠夺了约7000万美元的收入。
+an investigation to get to the bottom of this,
+以查明真相是一件很过分的事情
 
-中共的非洲策略，改革开放前主要集中在施加政治影响上，派出医疗队，修建坦赞铁路，为的是赢得非洲在联合国重要事项上与中共国的站队，为中共统治合法在国际上获得话语权。近20年当“一切以钱为挂帅”的中共再次走进非洲时，在政治上依旧标榜自己是非洲发展中国家的国际代言人，挑拨离间非洲同欧美发达国家的关系，推销所谓“中国方案”的发展模式，用集权威权体制挑战建立在法治基础上的西方自由民主体制；在经济上锁定非洲资源储备及产出大的几个国家，“蓝、金、黄”独裁者家族或是民主体制下的少数精英，打出“一带一路”“合作共赢”的口号，派出中共盗国贼家族控制的一个个所谓国企央企，输出国内经济畸形发展所导致的过剩基建产能、廉价山寨物品和廉价“韭菜”劳工，以换取非洲的石油矿产鱼类等等资源。
+why isn’t there one?
+为什么没有呢？
 
-更何况尼日利亚曾是英国殖民地，财务风险体系与国际公认的英美体系接轨，中共承建大型基建工程项目，往往以中共国的财政预算或国企财务会计为基础以人民币为计价评估风险、组织融资和人力。不愿意过度依赖中共国的供应链及人民币，估计也是尼日利亚政府停止从中共国融资的原因之一。
+Josh Hawley:
+乔什·霍利：
 
-据“铁路技术商务网”发布的消息：“2021年1月尼日利亚交通部长Rotimi Amaechi与葡萄牙Mota-Engil公司签订价值18亿美元的合同，建造连接尼日利亚北部城市卡诺和尼日尔马拉迪的283公里铁路线，这是该地区第一个不是由中共国建筑公司和银行执行的铁路项目，它将依赖于欧洲的融资。据Mota-Engil公司称，瑞士信贷集团、非洲金融公司和德国复兴信贷银行将从商业银行、出口信贷机构和多边机构中组织融资贷款。
+Well I think because we’ve seen the media line,
+好吧，我认为因为我们已经看到了媒体路线
 
-中共对其在非洲策略至今没有任何反思，在官方中文媒体读不到任何质疑文章，6月10日荷兰“全球之声”网站的一篇非洲实名记者(撒哈拉南部非洲)文章在墙内各大官网专发，题目是“外媒：中国在非洲的投资是双赢的”，仔细在网上查查注册在荷兰的“全球之声”的建立和报道风格，都与CNN有脱不开的联系，而CNN与中共大外宣的关系是世人皆知的。
+which Dr. Fauci has unfortunately promoted over and over ,
+不幸的是，福奇博士一遍又一遍地宣传，
 
-中共压制异议和质疑的做派早已走出国门，遍布海内外，习近平6月初不满大外宣系统没有提高中国话语说服力的讲话，实质上是给海外布局的中资外宣部门一个剪彩仪式，一旦“战狼外交”不管用，这些说着各国语言的记者就会来“客观中立地”说好“中国故事”。
+which is the idea that the Wuhan Lab was involved in Covid-19 in anyway, was false.
+即武汉实验室无论如何参与了 Covid-19 的想法是错误的
 
-**原文翻译：**
+That is what they have said over and over “You’re a conspiracy theorist”, they said.
+他们说，这就是他们反复说的“你是阴谋论者”
 
-## **尼日利亚放弃中共国对铁路项目的融资**
+Dr. Fauci has said, you know, this naturally originating virus,
+福奇博士说，你知道，这种自然起源的病毒
 
-[!\[\]()!\[\](https://spark.adobe.com/page/63batPsTaYjAe/images/e807dcb4-03af-4165-8c45-2fb5a5805c6b.jpg?asset_id=7feed934-be52-42c2-b7e5-9a9a0ead2a3b&amp;img_etag=%22320b0b6b43951989218287066bb96c89%22&amp;size=2560)](https://spark.adobe.com/page/63batPsTaYjAe/images/e807dcb4-03af-4165-8c45-2fb5a5805c6b.jpg?asset_id=7feed934-be52-42c2-b7e5-9a9a0ead2a3b&amp;img_etag=%22320b0b6b43951989218287066bb96c89%22&amp;size=1024)法新社, 盖蒂图片社
+we shouldn’t ask questions.
+我们不应该问问题
 
-**尼日利亚《高级时报》周五报道，尼日利亚政府已决定不再从中共国借钱修建铁路，这显然是因为尼日利亚人对他们欠中共国的银行34亿美元债务越来越紧张，不愿意再增加144亿美元来完成几个大型铁路项目。**
+Turns out, Tucker, there are a lot of really legitimate questions,
+事实证明，塔克，有很多真正合理的问题
 
-尼日利亚交通部长Rotimi Amaechi上周说，“我们在一些项目上已经与中共国分道扬镳。”并补充说财政部正在寻求与渣打银行的替代融资安排，这是一家总部设在英国的跨国金融公司，在尼日利亚经营业务已有22年。
+and I mean a lot of really legitimate questions about the involvement,
+我的意思是很多关于实验室的参与
 
-据《高级时报》报道，尼日利亚政府仍然打算让国有的中国土木工程集团有限公司（CCECC）按照之前的协议完成铁路的施工。
+potential involvement, of a lab,
+潜在参与的真正合理的问题
 
-中共国“债务陷阱外交”的观察者认为尼日利亚是其最大的受害者之一。一些尼日利亚立法者表示担心，如果他们的国家拖欠中共国的巨额债务，可能会失去主权——这种危机已经明白地写在中共国的贷款协议中。
+we need to get to the bottom of it.
+我们需要深入了解它
 
-当议员们要求对中共国贷款进行更深入的调查时，Amaechi告诉他们，任何此类调查都可能使中共国资助的建设项目停滞不前，使尼日利亚的财政状况更加糟糕。违约而还不起债是可能的，因为中共国在尼日利亚和其他发展中国家资助的项目往往没有机会产生足够的利润回报来偿还项目贷款。
+Dr. Fauci, by the way, knew very well.
+顺便说一下，福奇博士非常了解
 
-最近政府扩大了国债额度，从2月份占国内生产总值的25%提高到40%，尼日利亚政府发现，即使这样，依然低于世界银行和国际货币基金组织（IMF）对尼日利亚等“同类”国家建议的国债额度。
+His emails tell us he knew in January of 2020,
+他的电子邮件告诉我们，他在 2020 年 1 月
 
-谨慎的经济学家警告说，尼日利亚的收入来源极易受到石油价格波动等外部因素的影响，而且有许多看似合理的情况，政府可能很快发现自己没有钱来偿还债务，或被迫牺牲重要的经济增长目标来支付贷款。
+that there was a possible lab connection there.
+就知道那里可能存在实验室联系
 
-印度电视频道World Is One News（WION）在2月份指出，按照最乐观的还款预测，尼日利亚不仅欠了中共国至少20年的债，如果尼日利亚人拖欠贷款，其油田和港口将面临风险，而且中共国的影响也对该国的生态环境造成了巨大的破坏。
+Course, he also knew about his connection to gain of function research at that same lab,
+当然，他也知道他在同一个实验室的功能增强研究的联系
 
-就在北京当局把尼日利亚人埋在债务山下的时候，中共国的拖网渔船正在侵袭尼日利亚的近海，过度捕捞导致渔场耗竭，并从尼日利亚渔民那里掠夺了约7000万美元的收入。
+and yet he was dishonest about it, and continues to be dishonest about it. That’s a big problem.
+但他对此不诚实，并且继续不诚实
+这是一个大问题
 
-🔗[原文链接](https://www.breitbart.com/national-security/2021/06/11/nigeria-abandons-chinese-financing-for-railroad-project/)
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+**原视频链接**:[https://twitter.com/abigailmarone/status/1402791170657431552](https://twitter.com/abigailmarone/status/1402791170657431552)
+英听校： 康州盘古农场 -Freeearth
+翻译： 康州盘古农场–Freeearth
+翻译终校： 康州盘古农场-Mike Li
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/63batPsTaYjAe/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/63batPsTaYjAe/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

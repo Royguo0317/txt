@@ -1,91 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 霍利呼吁国会对冠状病毒进行全面调查
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1323103/)
+## 通过重建历史病因学方法对新冠病毒刺突蛋白进行分析，证明病毒非自然进化
+` 中共病毒真相` [轉載自GNews](https://gnews.org/zh-hans/1323163/)
 
-**字幕内容：**
+#### 作者：伯杰-索伦森（Birger Sørensen），安格斯-达尔格利什（Angus Dalgleish）和安德烈-苏斯鲁德（Andres Susrud）
+伊姆诺尔公司（Immunor）和伦敦圣乔治大学 （St Georges University of London）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14230321/photo_2021-06-15_11-02-36.jpg)
+论文摘要：
 
-**听译**
-**Tucker Carlson:
-塔克 卡尔森：**
+为了发现如何安全有效地对抗 SARS-CoV-2 病毒 [译者注：CCP冠状病毒]，我们在设计 Biovacc-19 这个候选疫苗时，首先仔细分析了刺突（Spike）蛋白的生物化学特性，确定它在几个方面与同族中的任何其它冠状病毒（CoV）都不相同。
 
-So, it’s simple,
-所以，很简单
+SARS-CoV-2 的一般作用方式是刺突蛋白和吞噬细胞的协同受体结合，但数据显示，刺突蛋白同时又能在其受体结合域（RBD）中与ACE2受体相结合。简而言之，SARS-CoV-2拥有双重结合能力。
 
-I don’t think it’s an outrageous thing
-我不认为要求联邦政府进行
+我们认为由自然进化过程造成这种特性的可能性极小。
 
-to ask for that there is some sort of organized effort , by the federal government,
-某种有组织的努力，进行调查
+刺突蛋白的六个插入点有五个显著特征，表明这是有目的人工干预结果，如同指纹一样独特。
 
-an investigation to get to the bottom of this,
-以查明真相是一件很过分的事情
+对于发表的四个相互关联的研究项目，我们在进行生化特征分析时增加了一个时间维度的分析。分析方法推导了SARS-CoV-2病毒刺突是怎样、在何处、在何时、由谁获得这些特殊特征的。
 
-why isn’t there one?
-为什么没有呢？
+这种重建历史病因学的研究方法符合手段、时间、媒介和部位等四个准则，足以逆转举证责任。因此，那些坚持认为COVID-19大流行病是由人畜共患传染病引起的人，在断言他们的证据具有说服力之前，特别是他们在举证方面也存在错误的时候，更需要准确地论证我们这种分析方法错在何处。
 
-Josh Hawley:
-乔什·霍利：
+论文链接：[https://www.minervanett.no/files/2020/07/13/TheEvidenceNoNaturalEvol.pdf](https://www.minervanett.no/files/2020/07/13/TheEvidenceNoNaturalEvol.pdf)
 
-Well I think because we’ve seen the media line,
-好吧，我认为因为我们已经看到了媒体路线
+论文简介：
 
-which Dr. Fauci has unfortunately promoted over and over ,
-不幸的是，福奇博士一遍又一遍地宣传，
+该长达22页的新论文，将发表在《生物物理学发现季刊》上。
 
-which is the idea that the Wuhan Lab was involved in Covid-19 in anyway, was false.
-即武汉实验室无论如何参与了 Covid-19 的想法是错误的
+本论文作者安格斯·达尔格利什（Angus Dalgleish）是英国伦敦圣乔治大学的肿瘤学教授，他因突破性地创造了第一个有效的 “HIV疫苗” 而闻名，用于治疗已诊断的病人，并使他们能够停药数月。
 
-That is what they have said over and over “You’re a conspiracy theorist”, they said.
-他们说，这就是他们反复说的“你是阴谋论者”
+挪威病毒学家伯杰-索伦森（Birger Sørensen）博士是制药公司 Immunor 的主席。
 
-Dr. Fauci has said, you know, this naturally originating virus,
-福奇博士说，你知道，这种自然起源的病毒
+论文中指出，研究人员在SARS-CoV-2样本中发现了 “独特的指纹”，说明这只可能是在实验室中进行的操作。新冠病毒SARS-CoV-2 “没有可信的自然祖先”，是由中国科学家创造的，然后他们试图用 “逆向工程” 来掩盖他们的痕迹，使其看起来像是自然产生于蝙蝠。
 
-we shouldn’t ask questions.
-我们不应该问问题
+该研究表明，有证据表明中国科学家在武汉实验室进行功能增益项目时创造了这种病毒。功能增益研究涉及改变自然发生的病毒，使其更具感染性，以研究其对人类的潜在影响。该研究在美国被暂停。
 
-Turns out, Tucker, there are a lot of really legitimate questions,
-事实证明，塔克，有很多真正合理的问题
+根据该论文，中国科学家利用在中国洞穴蝙蝠中发现的天然冠状病毒 “骨架”，在其上拼接了一个新的 “功能基团”，使其成为致命的、高度传播的COVID-19。
 
-and I mean a lot of really legitimate questions about the involvement,
-我的意思是很多关于实验室的参与
+研究人员得出结论，SARS-CoV-2 “没有可信的自然祖先”，他们还认为科学家对该病毒进行了逆向工程，改变了病毒，试图使它出现在几年前的发布的序列中，以掩盖他们的踪迹。
 
-potential involvement, of a lab,
-潜在参与的真正合理的问题
+该研究还指出中国实验室 “故意破坏、隐瞒或修改数据”，并指出 “希望分享其研究结果的科学家或者无法工作，或者已经被消失。”
 
-we need to get to the bottom of it.
-我们需要深入了解它
+在2020年分析SARS-CoV-2样本以研发病毒疫苗时，达尔格利什和索伦森在该病毒中发现了 “独特的指纹”，他们认为这些特征只可能是在实验室中进行操作而产生的。但当时主要的科学杂志都拒绝发表他们的研究结果。
 
-Dr. Fauci, by the way, knew very well.
-顺便说一下，福奇博士非常了解
+原文链接：[https://berlinerbericht.de/2021/05/29/10545/](https://berlinerbericht.de/2021/05/29/10545/)
 
-His emails tell us he knew in January of 2020,
-他的电子邮件告诉我们，他在 2020 年 1 月
+* * *
 
-that there was a possible lab connection there.
-就知道那里可能存在实验室联系
+***翻译：**謐雪兒郭
+**校对：**MyWay
+**整理：**云起时
+**发布：**孤独的小生（文留）*
 
-Course, he also knew about his connection to gain of function research at that same lab,
-当然，他也知道他在同一个实验室的功能增强研究的联系
-
-and yet he was dishonest about it, and continues to be dishonest about it. That’s a big problem.
-但他对此不诚实，并且继续不诚实
-这是一个大问题
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接**:[https://twitter.com/abigailmarone/status/1402791170657431552](https://twitter.com/abigailmarone/status/1402791170657431552)
-英听校： 康州盘古农场 -Freeearth
-翻译： 康州盘古农场–Freeearth
-翻译终校： 康州盘古农场-Mike Li
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1
