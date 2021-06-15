@@ -1,50 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G7峰会：中共国混淆概念辩称不能由“小集团”统治世界
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1323072/)
+## 霍利呼吁国会对冠状病毒进行全面调查
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1323103/)
 
-翻译简评：文虓Bobby
+**字幕内容：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14222718/061404-1.jpg)
+**听译**
+**Tucker Carlson:
+塔克 卡尔森：**
 
-七国集团领导人在康沃尔举行会议，寻求对中共国崛起的统一立场
+So, it’s simple,
+所以，很简单
 
-中共国警告七国集团领导人，由“少数”国家决定世界命运的日子已经一去不复返了。
+I don’t think it’s an outrageous thing
+我不认为要求联邦政府进行
 
-中共国驻伦敦大使馆发言人发表上述言论之际，正在英国会晤的各国领导人正寻求在中共国问题上达成统一立场。
+to ask for that there is some sort of organized effort , by the federal government,
+某种有组织的努力，进行调查
 
-他们采取了一项支出计划来应对中共国的大规模计划。
+an investigation to get to the bottom of this,
+以查明真相是一件很过分的事情
 
-分析人士表示，美国总统乔·拜登(Joe Biden)决心让西方大国现在就采取行动，对抗复兴的中共国。
+why isn’t there one?
+为什么没有呢？
 
-预计周日，七国集团(G7)领导人将发表闭幕声明，承诺为受气候危机打击的发展中国家提供更多资金支持，并为发展中国家的基础设施项目提供资金，这是中共国项目的替代方案。
+Josh Hawley:
+乔什·霍利：
 
-拜登总统表示，他希望美国支持的“重建更美好世界”(B3W)计划成为北京“一带一路”倡议(BRI)的高质量替代方案。该计划为许多国家的火车、公路和港口提供了资金，但也因使一些国家背上了债务而受到批评。
+Well I think because we’ve seen the media line,
+好吧，我认为因为我们已经看到了媒体路线
 
-为什么世界各国领导人都来到英国海滨?
+which Dr. Fauci has unfortunately promoted over and over ,
+不幸的是，福奇博士一遍又一遍地宣传，
 
-路透社(Reuters)援引中共国驻伦敦大使馆一位发言人的话说:“由少数国家主宰全球决策的时代已经一去不复返了。”
+which is the idea that the Wuhan Lab was involved in Covid-19 in anyway, was false.
+即武汉实验室无论如何参与了 Covid-19 的想法是错误的
 
-我们始终主张国家不分大小、强弱、贫富一律平等，国际上的事情应该由各国共同商量来办。
+That is what they have said over and over “You’re a conspiracy theorist”, they said.
+他们说，这就是他们反复说的“你是阴谋论者”
 
-在上周六的一份声明中，七国集团(世界上最富有的七个民主国家)表示，他们的基础设施计划将提供“以价值观为导向、高标准和透明”的伙伴关系。（但是）如何筹措资金的细节仍不清楚。
+Dr. Fauci has said, you know, this naturally originating virus,
+福奇博士说，你知道，这种自然起源的病毒
 
-BBC政治记者罗布·沃森在峰会上说，拜登总统试图将大流行后的世界框定为民主和专制之间的斗争。
+we shouldn’t ask questions.
+我们不应该问问题
 
-但我们的记者补充说，对于中共国是伙伴、竞争对手还是安全威胁，G7国家似乎还没有达成共识。
+Turns out, Tucker, there are a lot of really legitimate questions,
+事实证明，塔克，有很多真正合理的问题
 
-简评：
+and I mean a lot of really legitimate questions about the involvement,
+我的意思是很多关于实验室的参与
 
-七大工业国(Group of Seven, 简称G7)领导人呼吁中共国尊重人权，但没有直接谴责北京方面。目前美国总统拜登(Joe Biden)正寻求建立一个国际联盟，以抗衡中共国在全球的影响力。
+potential involvement, of a lab,
+潜在参与的真正合理的问题
 
-G7国家周日发表了一份25页的联合声明，涉及从疫情恢复到全球经济、税收、贸易和女童教育等一系列问题。声明要求中共国尊重人权和基本自由，特别是在新疆问题上，还要求中共国尊重香港的人权、自由和高度自治。声明还称，G7将继续就如何在全球经济中挑战中共国的行为进行磋商。
+we need to get to the bottom of it.
+我们需要深入了解它
 
-从G7峰会结果来看，至少七国集团已经统一战线对抗中共国。中共国再也回不到以前了，现在全球的灭共趋势下，尤其前几天是中欧投资协定的合作失败，中共国已经失去了最后一次“抓住救命稻草”的机会！现在中共已经成为砧板上的鱼–听宰！
+Dr. Fauci, by the way, knew very well.
+顺便说一下，福奇博士非常了解
 
-[援引原文](https://www.bbc.com/news/world-asia-china-57458822.amp)
+His emails tell us he knew in January of 2020,
+他的电子邮件告诉我们，他在 2020 年 1 月
 
-审核校对：Barry Jack
-上传排版：糖果儿
+that there was a possible lab connection there.
+就知道那里可能存在实验室联系
+
+Course, he also knew about his connection to gain of function research at that same lab,
+当然，他也知道他在同一个实验室的功能增强研究的联系
+
+and yet he was dishonest about it, and continues to be dishonest about it. That’s a big problem.
+但他对此不诚实，并且继续不诚实
+这是一个大问题
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接**:[https://twitter.com/abigailmarone/status/1402791170657431552](https://twitter.com/abigailmarone/status/1402791170657431552)
+英听校： 康州盘古农场 -Freeearth
+翻译： 康州盘古农场–Freeearth
+翻译终校： 康州盘古农场-Mike Li
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
