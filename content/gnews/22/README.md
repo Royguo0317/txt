@@ -1,50 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报 — 病毒合作者篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1324104/)
+## 法电力企业有意淡化台山核电站事故
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1324147/)
 
-- 作者：wenwu
+#### 文章撰写:【默凡】
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15061513/E3561gNHVXEAefqMIoUq.jpg)
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+法国世界报周一报道广东台山核电站可能发生核辐射泄漏的消息，随后该报网站在周一傍晚刊出的文章指出，法国电力公司（EDF）淡化台山核电站发生的事故。
 
-**西班牙2021年6月15日电/西喜社——**
+法国电力公司的一位发言人周一有意淡化了台山核电站问题的严重性，他表示，即使中共国运营商不得不“在中共国安全部门规定的监范围内”将稀有气体“进行了大气排放”，但“事故不是属于核心部分融化的事故”。这名发言人还补充说，导致反应堆主要加压水回路中逸出氙和氪的，是燃料组件的护套。
 
-您若想了解全文报导内容，请点击标题链接
+密封问题出现在2020年10月，当时台山一号反应堆在更换了嵌入金属护套的铀芯片燃料后，重新启动。法国电力公司表示，在现阶段，根据其中共国合作伙伴提供的信息，判定“是否须要关闭反应堆来解决发现的问题，还为时过早”。
 
-**1.[福奇资助的研究人员描述了，福奇的NIH”非常支持”与武汉实验室的功能增强”合作](https://thenationalpulse.com/breaking/fauci-researcher-describes-gof-collaboration-with-wuhan/)**
+这样的事故是怎么形成的呢？法国辐射防护和核安全研究院(IRSN)副主任卡里娜·埃尔维（Karine Herviou表示，“这可能是护套有制造缺陷，或者是有“移动体”（螺钉松动了……）。显然，由于台山一号反应堆是系列产品中的第一个，（它甚至是世界上第一个投入使用的EPR反应堆），我们将密切追踪情况的发展。”
 
-据《国家脉动》6月13日电，2015年NIH资助巴里克和石正丽合著名为《一组类似SARS的循环蝙蝠冠状病毒显示了人类出现的潜力》的论文。该论文涉及的功能增强研究并不是在2017年奥巴马解禁时完成的，并且NIH审查了该篇论文，表示“非常支持”。他们认为该项研究永远不会被允许。
+直到6月12日星期六，法国电力公司才得知情况恶化了。法国电力公司是台山核电合资公司（TNPJVC）的股东，占30%的股份，台山核电站的燃料组件是由法国电力公司的子公司法马通（Framatome）在其位于法国德龙省的工厂中制造的。法国电力公司的管理层立即要求台山核电合资公司召集特别董事会，以便将所有已知的信息放在桌面上讨论并做出必要的决定。6月14日星期一下午，它的中共国合作伙伴还没有回复。但是在巴黎，法国政府和核工业在尽一切努力以便不冒犯高度敏感、不接受任何公开质疑的中共国当局。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15055158/unknown-39.png)
+世界报还表示，这一事件从政治角度来看，要比从工业或环境方面来看，更为复杂。
 
-**2.[七国领导人对COVID-19起源的实验室泄漏理论进行了催问](https://www.skynews.com.au/details/_6258693805001)**
+参考文章：[法国电力公司淡化台山核电站发生的事故](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E6%B3%95%E5%9B%BD%E4%B8%96%E7%95%8C%E6%8A%A5/20210614-%E6%B3%95%E5%9B%BD%E7%94%B5%E5%8A%9B%E5%85%AC%E5%8F%B8%E6%B7%A1%E5%8C%96%E5%8F%B0%E5%B1%B1%E6%A0%B8%E7%94%B5%E7%AB%99%E5%8F%91%E7%94%9F%E7%9A%84%E4%BA%8B%E6%95%85)
 
-据《天空新闻》6月14日电，在G7峰会上的领导人被问及了COVID-19从武汉实验室泄漏的可能性。拜登表示：他在等调查部门的结果。他认为中共国必须在人权和在所有方面的透明度采取更负责任的行动。其他领导人表示不清楚。但中共参与掩盖病毒真相是磨灭不掉的。
+本文仅代表作者本人观点，不代表Gnews平台
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15055607/unknown-1-7.png)
+* * *
 
-**3.[中共国实验室泄密事件调查人员要求调查科学杂志在大流行期间发挥的作用](https://www.voanews.com/covid-19-pandemic/chinese-lab-leak-investigators-demand-inquiry-role-science-journals-played-during)**
+排版发布：日本东京方舟农场 文柯Miles
 
-据《美国之音》6月14日电，包括《自然》和《柳叶刀》等科学和医学周刊在疫情期间拒绝了反驳自然起源的文章。彼得罗夫斯基、埃布赖特和所谓的巴黎科学家小组起草了COVID-19起源的公开信，并表示要调查《自然》、《柳叶刀》、《科学》和《科学美国人》这些科学期刊的作用，还有是否受到利益影响。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15055827/unknown-2-6.png)
-
-**4.[蝙蝠女无法证实病毒非实验室起源和员工没有被感染，她只说自己是无辜的科学家](https://www.dailymail.co.uk/news/article-9684891/Chinas-bat-woman-says-lab-leak-suspicions-constantly-pouring-filth-innocent-scientist.html)**
-
-据《每日邮报》6月14日电，石正丽表示实验室起源理论是对科学家的诽谤，还有她的三名同事感染了新冠病毒是不真实的。在2017年，石正丽和她的同事发表了功能增强研究的论文，让病毒几乎可传染到人类。石正丽回复这是不信任而不是科学。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15055944/unknown-3-6.png)
-
-**5.[扎克伯格集团向武汉实验室的合作者提供了六位数的资金](https://thenationalpulse.com/exclusive/facebook-czi-funds-controversial-wuhan-researcher/)**
-
-据《国家脉动》6月14日电，美国UNC教授于2020年7月获得了扎克伯格的资助，她是石正丽的“长期合作者”，并参与了武汉实验室的会议。福奇博士在《MSNBC》的采访中试图掩盖他与扎克伯格的关系，但下图揭露了所有合作者。巴里克博士视生物武器为赚钱的“关键工具”，脸书表示支持巴里克博士的说法。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15060149/unknown-4-6.png)
-
-审核：蚂蚁兄弟；校对：信心满满；发稿：信心的选择
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-+2
+0

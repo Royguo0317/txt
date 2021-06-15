@@ -1,11 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 劲爆视频显示武汉实验室养活蝙蝠
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1324076/)
+## 【西媒头条】第1期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1324062/)
 
-06/13/2021 根据天空新闻的莎莉·马克森报导，彼得·达扎克声称武汉病毒所没有蝙蝠是在撒谎。劲爆视频显示武汉实验室不止饲养活蝙蝠，而且还使用人源化的小鼠增强病毒感染人的毒性。
+- 作者：蚂蚁兄弟
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
-0
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+
+**西班牙2021年6月15日电/西喜社——**
+
+关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15053522/Captura_de_pantalla_2021-06-15_a_las_10.46.55.png)
+
+发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
++2
