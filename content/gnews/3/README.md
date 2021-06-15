@@ -1,9 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】6/14/2021晚：北约称中（共）国及其野心构成系统性挑战
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1323945/)
+## 【西媒头条】第1期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1324062/)
 
-编辑：华盛顿DC农场 路德简报项目组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15042708/20210614-2-scaled.jpg)
-0
+- 作者：蚂蚁兄弟
+
+
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+
+**西班牙2021年6月15日电/西喜社——**
+
+关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15053522/Captura_de_pantalla_2021-06-15_a_las_10.46.55.png)
+
+发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
++2

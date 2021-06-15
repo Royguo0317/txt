@@ -1,60 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德克萨斯州医护人员被迫选择接种中共疫苗或失业的诉讼被法官驳回
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1323831/)
+## 灭共是保护世界免受下一场大流行病侵袭的唯一方法
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1324038/)
 
-- 作者：**wenwu**
+#### 翻译报道：James zhen
+
+#### 责编：胡天
+
+《每日邮报在线（Daily Mail Online）》上有一篇来自ROB CRILLY的报道：去年，前川普总统前官员大卫·阿舍尔 (David Asher) 领导国务院调查了新冠病毒 的起源。
+
+调查团成员：
+
+- 托马斯·迪南诺 (Thomas DiNanno) 军备控制、核查局
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+- 大卫·费思 (David Feith) 东亚太平洋事务局 区域与安全政策及多边事务局 副助理局长
 
-**西班牙2021年6月15日电/西喜社——**
 
-德克萨斯州一名联邦法官周六[驳回了](https://abcnews.go.com/US/judge-tosses-lawsuit-houston-hospital-staff-vaccine-mandate/story?id=78254499)医护人员的诉讼，他们指控雇主“非法强迫员工”接受中共疫苗。
+- 于茂春（Miles Yu）时任国务卿迈克庞培的首席中共国顾问
 
-詹妮弗·布里奇斯和其他116名原告[表示](https://childrenshealthdefense.org/defender/employees-sue-texas-hospital-covid-vaccine-mandate/)，休斯顿卫理公会医院正在强迫员工接种“[实验性](https://www.fda.gov/drugs/types-applications/investigational-new-drug-ind-application#Introduction)和[危险的](https://childrenshealthdefense.org/defender/vaers-data-injuries-deaths-vaccinating-5-year-olds/)”中共疫苗。原告们说，解雇拒绝接种疫苗的员工是“错误的解雇”。
 
-医院上周[停职了](https://www.cbsnews.com/news/covid-vaccine-houston-methodist-hospital-system-employee-suspensions/)近200名拒绝接种疫苗的员工。
+- 马修·茨威格（Matthew Zweig）捍卫民主基金会（FDD）高级研究员
 
-美国地区法官林恩·休斯裁定，德克萨斯州法律仅在要求员工实施可判处刑事处罚的非法行为时，才保护他们免受解雇。根据[法官的裁决](https://childrenshealthdefense.org/wp-content/uploads/dismissal_methodist_suit_covid_vaccine_mandate.pdf)，“接受新冠疫苗接种不是非法行为，也不受到刑事处罚。”
 
-原告认称，要求员工接种中共疫苗[违反了联邦法律](https://childrenshealthdefense.org/defender/under-federal-law-can-your-employer-make-you-get-covid-vaccine/)，因为疫苗尚未获得美国食品和药品监督管理局（FDA）批准。其仍然是[紧急使用授权](https://www.fda.gov/emergency-preparedness-and-response/mcm-legal-regulatory-and-policy-framework/emergency-use-authorization#abouteuas)（EUA）产品。
+他们使用了劳伦斯利弗莫尔国家实验室（Lawrence Livermore National Laboratory）的结果，没有证据表明 新冠病毒 在自然界中自发出现，实验室泄漏可能是大流行的起源。
 
-休斯驳回了这一说法，称法律授权卫生与公众服务部长推出“用于紧急情况的医疗产品”。
+他们提出了保护世界免受另一场大流行病侵袭的一系列方法：
 
-休斯说：“[法律]在紧急情况下赋予卫生与公众服务部长某些权力和责任。它既没有扩大也不限制私人雇主的责任；事实上，在这种情况下，它根本不适用于医院等私人雇主。它不给私人机会起诉政府、雇主或工人。”
+**1.中共国只有在面临巨大惩罚的压力下才会老实坦白真相**
 
-休斯在裁决中[说，](https://www.cbsnews.com/news/covid-vaccine-lawsuit-dismissed-houston-methodist-hospital-system/)声称疫苗是危险的，这是“错误的，它也是不相关的”。
+**2.对科学家和信息审查****的****230条款使世界损失了数万亿美元**
 
-该裁决意味着德克萨斯州医院的员工必须提供接种中共疫苗的证明，否则将失去工作。
+**3.呼吁拜登总统彻查武汉实验室是否进行了未申报的生物武器研究 **
 
-[儿童健康保护协会](https://childrenshealthdefense.org/)主席兼总法律顾问玛丽·霍兰德表示，这项裁决“令人失望”，“有理由提出上诉”。
+**5.立即停止对有争议的“功能增强”研究的资助**
 
-霍兰德说：“我认为法官误解了联邦法律，没有完全理解紧急使用授权状态的真正含义。因为EUA意味着该产品是实验性的，所以你不能强迫别人接受它。在中共疫苗仍处于EUA期间，任何雇主都不能强制别人使用该疫苗。”
+**6.调查中共国在新冠病毒传播中的作用**
 
-代表布里奇斯和其他原告的律师贾里德·伍德菲尔[表示](https://www.foxnews.com/us/texas-judge-tosses-hospital-workers-covid-19-vaccine-requirement-lawsuit)，他的客户“致力于对抗这一不公正的政策”。
+**7.华盛顿采取紧急措施追究北京的责任，包括制裁、冻结研究资金和支持个人提起对CCP的新冠病毒损害赔偿诉讼。**
 
-伍德菲尔告诉福克斯新闻，休斯顿卫理公会正在利用中共[疫苗授权](https://childrenshealthdefense.org/defender/vaccine-mandates-an-erosion-of-civil-rights-chd-e-book-available-now/)来促进利润。伍德菲尔说，这家医院正试图说服患者离开他们的医疗保健提供机构，转来休斯顿卫理公会。因为所有员工都接种了疫苗.
+中共国最初对大陆医生和科学家进行禁言和审查，随后WHO谭德赛书记关于新冠病毒 危险的错误信息——尤其是否认人传人和无症状传播——导致世界损失了数万亿美元和数百万的生命死亡。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15052327/1.jpg-9.png)[图片来源](https://www.bbc.com/zhongwen/trad/chinese-news-51403740)
+在展开调查工作时，他们遇到了层层障碍，很多官员警告他们不要深入研究。而且他们的工作被所谓的科学家、其他政府机构和媒体迅速地驳回了，被称为阴谋论。问题在于美国政府资助了在中共国的工作，不希望它被暴露为冠状病毒的可能来源。随着福奇(Anthony Stephen Fauci)邮件门的持续发酵，到底是谁签署了与中共国的所有这些合作？
 
-伍德菲尔说：“这种思路的问题在于你告诉医院的员工，他们将成为人类的小白鼠。”
+调查团呼吁乔·拜登立即停止为“功能增强”研究提供资金，强制中共国遵守条约，包括共享武毒所数据，并建立一个新的大流行防范网络。调查中共国军队到底有没有进行未申报的机密生物武器研发。
 
-伍德菲尔说，对原告来说，“这是一个能否支付房贷、支付车贷、养家糊口和避免破产的问题。”“发生成为这样是完全错的。”
+无论它是否来自实验室，中共国都必须为大流行提供答案。不管新冠病毒起源于人畜共患病毒、蝙蝠矿洞、冷冻食品运输，还是武汉病毒实验室支持未申报的生物武器计划研究，世界都需要中国共产党的答案。
 
-休斯顿卫理公会首席执行官兼总裁马克·布姆博士在一份声明中[说](https://www.khou.com/article/news/health/coronavirus/vaccination-deadline-houston-methodist-employees/285-16c0285c-a55b-44b8-8232-5d92d5c122ea)：“……休斯顿卫理公会的26,000名员工中有99%完成疫苗接种要求。不幸的是，剩下的少数人拒绝接种疫苗，医护人员将患者放在首位就应该接受中共疫苗接种。”
+他们希望看到一个独立的，两党联合委员会来调查大流行的起源。加强对可用于军事用途的技术的限制；对误导或隐瞒信息的个人和政府机构实施制裁；并支持民事诉讼。
 
-**简评：**
+这就需要国会摘掉中共《外国主权豁免法》的防护罩，以确保美国联邦法院对诉讼对象持有的美国资产的责任索赔和执行拥有管辖权。
 
-**疫情下，美国法律的极权和自我化已经让人感觉得非常清晰，最终导致通过法庭允许剥夺人权的重大滑稽事件发生。法律和民意不代表实验性疫苗实际数据表现，该法官完全没有理由莽撞驳回医护人员的诉讼，所以这裁决是出于法官自己的恐惧而不是来自法律。**
+#### 评论：
 
-**休斯顿卫理公会医院的马克·布姆博士给出合理注册的理由是，医院的中共疫苗接种率为99%，百人中只有1个人不愿接受强制注射实验性疫苗。对于医院来说就是不想在那1%的人身上浪费精力，毕竟开门是为了赚钱的，而注射疫苗则可以拉更多病人来这家医院。真可谓是显出同中共一模一样的嘴脸。**
+爆料革命，唯真不破。从闫博士在【路德社】119揭露病毒是中共军方的超限生物武器以来，已经过去了将近15个月，西方媒体越来越接近真相。可怜那些被超限武器杀死的无辜几百万冤魂，灭掉共产党，继续努力。
 
-**福奇带出来的兵真是烂透了，美国的医疗保险制度的问题也越来越显现！**
-
-素材：wenwu； 审核：文乐； 校对：阿伯塔； 发稿：Nuevo唐人
-
-**新闻来源：**[《捍卫者》](https://childrenshealthdefense.org/defender/texas-healthcare-workers-forced-get-covid-vaccine-lose-jobs/)
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+原文链接：Trump officials who raised lab leak concerns demand punishment for China for COVID ‘abuses’ with a ban on research funding and an international effort to release all their military lab data in scathing report
 
 0
