@@ -1,63 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】郑州5岁女孩在幼儿园被砸身亡
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1322542/)
+## 2021/05/29《云湾说未来》世界数字货币成地缘政治新战场
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1322633/)
 
-**作者**：香草山美食部 新世界的一员
+主持人：云影，弯弯 | 嘉宾：政清，忠勇无双 | 校对/审核：Julia Win | Page：我是球大哥
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
+[!\[\]()!\[\](https://spark.adobe.com/page/aTTq2sq4b8BEK/images/f113c686-f673-42b1-837b-a8415f31c0b8.png?asset_id=f5a863b9-121e-4829-9d7a-edac4e9b1411&amp;img_etag=%22d06d6aa2ab5d65f1d61ea6936608797c%22&amp;size=1024)](https://spark.adobe.com/page/aTTq2sq4b8BEK/images/f113c686-f673-42b1-837b-a8415f31c0b8.png?asset_id=f5a863b9-121e-4829-9d7a-edac4e9b1411&amp;img_etag=%22d06d6aa2ab5d65f1d61ea6936608797c%22&amp;size=1024)
 
+GTV视频链接：[“云湾说未来” GTV节目第26期：论数字货币王国—世界数字货币成地缘政治新战场](https://gtv.org/video/id=60b257e4f6ff4b33fb947f6e)
 
+**躺平**——墙内年轻人的九九六、内卷、看不到机会，不得不躺平。躺平并非消极，而是一种生活态度，一种对社会的抗议。为了避免囚徒困境，躺平不啻是明智的出路，是中国版非暴力不合作运动。
 
+**躺平币**——唤醒更多的平民百姓，前景潜力无限。
 
+**数字货币**——部分国家已经在探讨数字货币作为储备货币，以及发行国家主权加密货币的可能。区块链让加密货币市场公开化、透明化变得可能。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14151533/image0-46-1.jpg)
+喜币，躺平币，就是地缘政治的产物，但区块链本身突破了地域的限制，数字货币也将挑战央行发行的传统货币的权威。
 
-翻到朋友发的视频，又是一起痛心的事故、人为的灾难，特记录此事件，祈祷佳佳天堂安好。
+**ESG运动**，将环境、社会和公司治理因素纳入投资的评估决策中的投资活动或趋势。伦理投资、责任投资、绿色金融、可持续金融都被用来指代ESG投资理念。随着越来越多的生产企业开始关注绿色生产、绿色制造，加之环境、法律法规的完善，投资者也慢慢意识到企业环境绩效可能会影响到企业财务绩效。于是，绿色金融就开始进入投资者的视线范围。
 
-5月28日17:20左右，5岁女孩佳佳（化名）在爱贝尔幼儿园准备六一表演，没想到突发事故，意外身亡。
+**Uniswap**：Uniswap是基于以太坊的代币交换协议，是基于兑换池，而不是订单簿的去中心化交易协议。
 
-据孩子大姨时女士说：当时接到园区电话，说孩子摇晃教室内的暖气片被砸到。家长赶到现场，发现孩子躺在血泊中，头部受伤严重，昏迷不醒。随后被120送往医院，抢救了两个多小时，还是没有挽回孩子的生命。
+而所谓的兑换池，指的则是一个资金池，用户在Uniswap中交易的价格则由这个资金池中的代币比例和算法来决定。Uniswap是去中心化的，不仅跟传统的加密货币交易所不同，也跟普通的去中心化代币交易所不同。Uniswap是一组部署到以太坊网络的合约，所有的交易都在链上进行。Uniswap的交易对手并不是其它交易用户，而是跟代币池进行交易，且有自动做市的模型来计算交易价格，代币兑换价格与代币兑换池中代币的比例有关。在Uniswap中，使用最多的功能是代币之间的币币兑换交易。
 
-在共匪邪教的治理之下，视频又选择性地出现障碍了。
+*文章仅代表作者观点*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14151916/image2-4.jpg)
-
-据家长了解：幼儿园的监控在事发前几天坏掉了。没有监控录像，孩子到底在园区内发生了什么无人知晓。事发几天了，依旧没有结果。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14152129/image1-1-3.jpg)
-
-一个稚嫩的孩子就这样无声无息地消失在本应无忧快乐的六一儿童节里。学堂本该是孩子们健康成长的地方，却因为学校的不安全隐患，出现了如此痛心的事故。
-
-据知情人士说，幼儿园是等家长到了才将孩子送到医院的，他们并没有第一时间将孩子送医院，是故意延误治疗了……
-
-如果说暖气片的倒掉只是环境不安全，那么延误救治就纯粹是人为的灾难。
-
-信息来源·；河南在线粉丝群
-
-视频来源：时利欣）#河南在线@河南在线
-
-编辑：飞虹 校对/发稿：遍地开花
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041307/7_july.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042102/WhatsApp_Image_2020-10-24_at_04.33.05-8-768x103-1.jpeg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-
+[!\[\]()!\[\](https://spark.adobe.com/page/aTTq2sq4b8BEK/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/aTTq2sq4b8BEK/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
