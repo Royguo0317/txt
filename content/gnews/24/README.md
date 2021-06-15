@@ -1,41 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共三胎政策被百姓打脸
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1323239/)
+## 【有声读物】复旦事件折射中国学术界割韭菜
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1323405/)
 
-撰稿人：信心满满
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14231837/152-2.png)图片来自网络截图
-中共国[允许夫妇生育三个孩子](https://cn.nytimes.com/china/20210531/china-three-child-policy/)，新闻媒体大肆宣传此举是有助于刺激经济增长的重大变化。但是，这个宣布引发了人们的愤慨。
+配音：香草山录音组 蒙古鸿雁
 
-年轻人感到愤怒，他们已经很难找到工作和城市高房价，工薪阶层难以承受生育更多孩子带来的经济负担。从孩子出生到大学毕业，养一个孩子成本非常高。做为父母从孩子出生就要准备学区房，为了让孩子有良好教育，父母要准备130万左右人民币，才能应付孩子出生到大学毕业。女性会被歧视，会面临雇主不愿支付产假。如果在告知老板她们想要生育孩子后，会遭到解雇或降职。一些女性[被迫签下](https://cn.nytimes.com/china/20190717/china-women-discrimination/)承诺在新工作开始的一定期限内不怀孕的合同！
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-“作为女性，在职场上本身就是一个劣势” ，而且，中国的社会保障网络和法律保护严重匮乏，中国缺乏托儿服务，这迫使许多年轻父母依靠自己的父母来照顾孩子无法让他们生育更多孩子。
 
-中共国是一个没有人权和自由的集权国家。从1980年国家强力推行一孩政策，使好多家庭失去生第二、第三个孩子机会，因为这些家庭被政府强行堕胎，如果超生被高额罚款。这次推行三胎政策是对一孩政策的打脸，因为好多家庭不愿生三胎就是基于上面种种原因。
 
-十年一次的普查显示，以2020年11月1日为标准时间点，中国总人口为14亿1178万人。此前英国《金融时报》援引知情人士称中国总人口已低于14亿人，出现了“自1949年来的首次下降”。
 
-官方数据称，相比上一次人口普查（2010年）结果，中国人口增加了7206万人，十年间增长5.38%，年均增长率为0.53%。相比2000年至2010年，增长率下降了0.04个百分点，普查数据也反映出人口的一些结构性矛盾，如劳动年龄人口和育龄妇女规模下降，老龄化程度加深，总和生育率下降，出生人口数量走低等。老龄化已经成为事实，中国人口可能在2025年达到峰值后开始下降，也将影响经济潜在增长率。
 
-共产党已经奴役中国百姓百年了，抢夺人民财产和不断割百姓的韭菜去维护红色集权。人口出生率低和老龄化，使共产党推出三胎政策，为的就是能持续地割韭菜。由于爆料革命传播，现在更多百姓开始觉醒，不愿再做被割的韭菜了。共产党的末日即将来临！
 
-(本文纯属个人观点)
 
-*编辑：**MG1*
+2021年6月7日，复旦大学数学学院青年研究员姜文华，用一把刀结束了数学学院书记王永珍的生命。此前，王永珍宣布姜文华 6 年工作考核不通过，解聘。对于杀人动机，姜文华给出的解释是“受到了很多陷害，受到了很多恶劣的待遇”。
 
-资料来源：
+姜文华所谓的恶劣待遇为何呢？复旦大学和中（共）国很多顶级高校实行青年研究员制度，实际是一段长达 6 年时间的试用期，即海外或国内优秀的青年科学家招聘进入高校后，在 6 年时间内，要从事教学，科研，申请基金等繁重的工作，但是并没有永久的岗位。6 年后对青年科学家考评，如果考评通过即担任永久岗位的教授或副教授，如果考评不通过就辞退。形象的描述是“非升即走”。
 
-文贵先生直播
 
-[https://cn.nytimes.com/china/20210602/china-three-child/](https://cn.nytimes.com/china/20210602/china-three-child/)
 
-[https://new.qq.com/omn/20201209/20201209A049UM00.html](https://new.qq.com/omn/20201209/20201209A049UM00.html)
+**文字版原文：[【世事解评】复旦事件折射中国学术界割韭菜](https://gnews.org/zh-hans/1322376/)**
 
-[https://www.bbc.com/zhongwen/simp/chinese](https://www.bbc.com/zhongwen/simp/chinese)
+作者：纽约香草山写作组 巡海夜叉
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0

@@ -1,41 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳媒观点：中共国停购铁矿石，澳洲房地产会崩盘吗？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1322843/)
+## 美国的汹涌民意已震慑美国高层与中共勾兑者&nbsp; 以毒灭共不可逆转
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1323162/)
 
-撰稿：喜妈
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14221518/151.jpg)（图片来自网络截图）
-澳洲媒体提出对澳洲来说特别敏感的一个经济问题：如果中共国停止购买澳洲的铁矿石，澳洲房地产会垮塌吗？我们都知道澳洲在很长时间中经济对房地产的依赖都是比较大的，它也成为很多行业人士的一个关注点。文章指出，中共国停购澳洲铁矿石是几个方面确定无疑的理由：第一，世界已经分为“自由和不自由经济集团”，澳洲属于前者，中共国想依赖澳洲的铁矿石“变得不可行”。第二，刺激中共国经济发展的方式“已尽”：“城市化几乎已经完成”。第三，“经济放缓”，“中共的合法性将失败”，它只能靠“刻意煽动的民族主义”来制造存在性。而澳洲对其侵略性可以“因为中共如果依赖其铁矿石而予以否决”。
+**摘要：在2021年5月30日的GTV直播中，郭先生说最近美国要求查清病毒真相的民意汹涌，使美中关系、媒体、情报和军方的风向迅速转变，曾经和中共勾兑的美国高层官员受到极大震撼。**
 
-文章于是分析，在这样的背景下，中共必须“打破”原有经济模式需求，它“将通过钢铁产量的结构性下降、向更高比例的废钢产量转变以及在全球范围内开始新的铁矿石开发相结合来实现这一目标”。
+**美国的汹涌民意已震慑美国高层与中共勾兑者****  ****以毒灭共不可逆转**
 
-文章预测，中共与澳洲铁矿石贸易中断也许“截止的时间表”会是“这个十年，极有可能是在这个十年中的“后半部分”。文章继续认为，中共国为了缓解自己对澳洲铁矿石依赖的风险，会“放缓城市化进程和投资规模”；可是报道指出：“澳大利亚会发生什么呢”？
+**US Public Opinion Has Deterred the Top US officials and Those in Collusion with the CCP**
 
-报道讨论，有可能的趋势是“随着难以想象的大量澳大利亚铁矿石涌入中共国以外的市场，全球铁矿石价格将崩溃”。按照目前的数据，中共国消费了“超过 10 亿吨”的铁矿石；澳大利亚每年“约 700 公吨”，“很大一部分将逐步倾销到其他市场”。文章指出，虽然这个转变是逐步完成的，可是“随着铁矿石数量的下降”，澳洲的GDP将“不断受到冲击”，由此将影响大约“ 20 万个直接和间接工作”机会。
+所以说美中关系这一段的这种改变，包括社交媒体，还有所谓的严肃媒体以及美国情报军方，对整个美国现在在美国最高层官员和中共勾兑的这些官员造成的震慑。就是美国人要知道真相、美国人要中共要负责任的呼声，已经大大地震慑了美国高层和中共勾兑的这些人——叫卖美的“美奸”，包括华尔街、好莱坞还有这些太空大佬们、高科技大佬们，极大地震撼了他们。因为共产党的邪恶已经远远地超出他们所能承受的能力。
 
-文章进一步指出，其实在铁矿石出口上的趋势变化，澳洲所受到的“更大的打击将是国民收入”。预计，澳大利亚本年度“将从铁矿石中获得约1500亿美元的出口收入”可是，“几乎所有这一切都将被（铁矿石出口的）数量和价格的压力所抵消”。这可是会对澳大利亚出口“虽然可控”却仍是“打击很大”。
+So we have seen the recent changes in the US-China relationship, in the social media, in the so-called mainstream media, and in the US intelligence and military community. The top US officials and those who were in bed with the Chinese Communist Party have really been shocked. It was the American people demanding for the truth of the virus and asking to hold the CCP accountable that greatly rocked the US high level officials and those who have colluded with the CCP. These people are called traitors for they have sold American people’s interests to others, including Wall Street, Hollywood, and those space tycoons and high-tech moguls. These people were greatly shocked. Because the evilness of the CCP has far exceeded what they can bear.
 
-文章预测，对于澳洲而言，有可能会发生的事情，也许就是因为经济“增长将受到限制”，导致“通货膨胀和工资”方面的浮动，“预算”全面飘红，“矿业股将下跌”，“债券收益率将暴跌” ，最后就是“澳元会崩盘”。文章指，现在对未来的预测，“无法解析所有情况”；但是“随着整个时期的利率保持为零（或变为负值）”，“澳元将大幅下跌”，这是“可以肯定的”。
+美国人民的力量，美国这个国家绝对是民意决定、最终决定一切。民意汹涌地到来，以及民意要求这个病毒的真相，以及民意迅速的改变，从百分之35%到75%现在可以消灭共产党、中国共产党不等同于中国人民、中国共产党不等同于中国、中国人民是好的、共产党是邪恶的、共产党的这个主义是邪恶的，这是不可思议的。
 
-那么，文章指出，这将会给澳洲带来何种的“危机”呢？尽管政府和金融机构都会给出积极的干预措施，可是当然肯定会有一定的从货币贬值到利率的相关影响。由此最终会导致“抵押贷款利率可能会被压低至 1% 以下”的结果。最终呢，“从长远来看，房价上涨将变得更加困难”。从这里，文章指出，其实就是为什么澳洲之间铁矿石的贸易导致澳洲房市起伏的一个基本背景状况。当然文章称，在铁矿石上的危机意识讨论，是必要；可是中共不再购买铁矿石“并不是澳大利亚的终结”，货币受到一定贸易影响后，仍在“重新平衡经济”。
+Everything in the US is ultimately determined by the strength and public opinion of the American people. The public opinion is now demanding to find the truth about the virus and it is so strong and rapidly going from 35% to the current 75% for supporting the elimination of the CCP and supporting the notion such as the CCP is not equivalent to the Chinese people, the CCP is not equivalent to China, the Chinese people are great, the CCP is evil, and communism is wicked. These changes are so incredible.
 
-综合以上的主要信息，笔者认为，作为一个没有经济学专业知识的平民百姓，很多经济环节之间的联系仍是无法理解到位。可是，这篇文章让我认识到，原来铁矿石贸易背后还有可能牵涉到整个澳洲国民经济甚至房地产价格。参加爆料革命之前，我们想来以为政治就是政治，和我们的生活无关。现在看起来，谨以此篇为例，就很好地说明：政治其实就是生活的一部分，生活也离不开政治。不关心政治的人，最后政治引发的很多动荡和起伏，都会影响百姓的日常，并让你措手不及。对于一般民众，谁能想到中共国买不买铁矿石跟我的房产会有关系呢？
+在一年前是35%的人这么认为，甚至还二十几，现在达到75%。过去是95%的媒体绝不正面谈共产党的邪恶，也不挑战共产党的权威。现在绝大数媒体已经开始认为共产党是邪恶的，这个世界的这种所有的灾难，最后的追根究底是共产党。
 
-有时，世界就是这样一种牵一发动全身的关系。此处与彼处看似不相关，可是那种相关不是内行你看不到也摸不着。当然，从这篇文章中，我们可以了解到，铁矿石贸易由于与澳洲经济、澳洲国民生活的关系内在的链条式反应，澳洲政府一直在与中共贸易上冲突尽量地温和处理还是有一定的原因。反过来说，我们还可以看到，中共应该也知道自己的铁矿石采购上对澳洲有举足轻重的影响，因此就更是显得从来都是特别地强硬和战狼姿态。
+A year ago, only 35% of people thought so, or even only about 20%, but now it has reached 75%. In the past, 95% of the media would never talk publicly about the immorality of the CCP, nor would they challenge the authority of the CCP, but now the vast majority of the media has started to believe that the CCP is vicious and that the CCP is the ultimate reason for all the world’s calamities.
 
-第三点，笔者认为，可喜的是，澳洲已经明确意识到中共国的经济调整和未来方向都已经令人堪忧，因此，自己也要做好及时的应对和及早的调整适应。这是一个政府对国家和人民负责的态度和必须的立场。澳洲所考虑的不是当下，而是未来，这种将国家置于一个世界的网络体系和地区的网络框架中动态地去思考和规划，才是最好的预防和积极的改善。尽管文章也提到，这些由铁矿石引起的危机是可能的，可是并不一定就按照预测的发生。还是那句老话，人无远虑必有近忧，每个人是如此，国家也是如此，都需要有前瞻性考虑。
+所以兄弟姐妹们，这个时刻需要我们有耐心、需要我们搂住，我们大概还要等到今年九月份以后，到年底才能达到高潮。9月份以前，不管发生什么，都会有变数、都会有起伏。
 
-第四点，笔者认为，中共国的经济发展已经到了其活力和增长的尽头，这是世界上比较统一的认识。而这点对于墙国的老百姓来说，是无比的危急。从这里，我们看到的不仅是一个落后颓败的政权走向灭亡，还看到无数善良的百姓在其中浑浑噩噩不知不觉地被这个政党拖入深渊，死无葬身之地。这几年参与爆料革命，跟随真相，锁定事实。也由于我们看到太多的人间悲剧，所以能够拯救我们同胞于水火的，就在于爆料革命的真相分享，也能够明白何时取得全面的胜利。中共国不仅是买不起也不会买铁矿石那么简单，还有太多的全面经济衰退的效应出来。为了减少我们的同胞伤亡和冲击，我们要抓紧分享真相，传递各种中共的邪恶，中共病毒的事实。一起努力吧！
+So brothers and sisters, it is the time to hold your horses and be patient. We probably have to wait until after September this year, or to the end of the year to reach the peak [of our movement]. Before September, no matter what happens, there will still be variables and plenty of ebb and flow.
 
-本文纯属个人观点
+今年不要忘了去年的庚子年、霹雳年，今年是辛丑年，今年是真正的共产党结束的关键一年。但是即使这样，我认为共产党的结束还要在2024年、2025年之间。2024、2025年之间，它的变数就在于中国绝大多数老百姓被洗脑太严重、无知。最终的以共灭共还受到这种挑战。它还有这么些年的经济体，中国老百姓还有饭吃，只有没饭吃的时候，这些家底全花完的时候，这些90%的人，还有那10%的人的一小部分人才能醒过来。
 
-参考资料：
+Let’s not forget that last year is the *Gengzi year*, the year of the “thunderbolt”. This year is the year of the *Xinchou*, which is the truly crucial year for the extermination of the CCP. But even so, I expect the end of CCP will be between the year 2024 and 2025.  The variables lie in the fact that the vast majority of the Chinese people are too ignorant due to the on-going brainwash by the CCP, which will make the final battle, that uses the internal strife of the CCP to destroy the CCP itself, become challenging. Besides, the CCP’s economy is quite established after so many years’ growth, and the Chinese people still have food to eat. Only when there is no food to eat, no money to spend, the 90% of the people, and a small percentage of the 10% of the people would wake up.
 
-[Will Aussie property crash when China cuts off iron ore?](https://www.macrobusiness.com.au/2021/05/will-aussie-property-crash-when-china-cuts-off-iron-ore/)
+第二个，美国被中共渗透的太厉害，这一届政府当中很多人，并不一定敢来真正动手灭中共。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+Second, the United States has deeply been infiltrated by the CCP, and many people in this administration don’t have the guts to take real actions to eliminate the CCP.
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
-0
+所以说这两个原因，我们很可能到2024、2025，但有10%的可能，在这个中间擦枪走火，美国这届的军队还是很了不起的，这届军方的人会很果敢，欧洲是很坚决的，那么欧洲和美国军队一旦合作起来，也有可能就是斩首，有10%的可能。但是90%的可能我认为在2024、2025共产党彻底结束。
+
+Due to those two reasons, we’re very likely to win by 2024 or 2025, but there is also a 10% chance of an unexpected incident between the two countries occurring. The US military of this administration is still extraordinary, the leaders of the military are resolute and courageous; Europe is also very determined.  Once the Europeans cooperate with the US military, there will be a 10% chance to launch the operation of decapitation. But I think there is a 90% chance that the CCP will come to a complete end in 2024 or 2025.
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=60b38ee8f6ff4b33fb95c2fa](https://gtv.org/video/id=60b38ee8f6ff4b33fb95c2fa) (1:23:03-1:26:22)
+鸣谢：感谢[喜联盟七哥直播组](https://gnews.org/zh-hans/author/miles-broadcast/) 提供中文文本于 [https://gnews.org/zh-hans/1285961/](https://gnews.org/zh-hans/1285961/)
+
+* * *
+
+翻译：【鹦鹉（纽约香草山农场）】
+字幕：【Rock小哥】
+校对：【BrumhM】
+视频解码：【恒久忍耐】
+自媒体推广：【V%】【TINALS】
+校对 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Getome: [https://getome.com/user/himalayargt](https://getome.com/user/himalayargt)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Twitter: [https://twitter.com/HimalayaRose](https://twitter.com/HimalayaRose)
+
++1

@@ -1,47 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 扎克伯格操控美国大选的手段
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1323057/)
+## G7峰会公报淡化中共侵权行为，美国的影响力急待提升
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1323152/)
 
-新闻来源：《国家脉动》| 作者：CATHERINE SALGADO| 发布时间：2021年6月11日
+新闻来源：《零对冲》ZeroHedge| 作者：TYLER DURDEN| 发布时间：2021年6月13日
 
-翻译/简评：新街口|校对：clau|审核：Beicy-数学老师|Page：小雨
+翻译/简评：叶知秋（文义）|校对：随波逐流|审核：Beicy-数学老师|Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JpzgwbteXFbJO/images/cf7d53ea-92f2-4bba-95a1-f9426929162a.jpg?asset_id=596464e1-be56-4089-84e1-db97d86a9e18&amp;img_etag=%223c81c2ca1587b3eee0e14aada45658e0%22&amp;size=2560)](https://spark.adobe.com/page/JpzgwbteXFbJO/images/cf7d53ea-92f2-4bba-95a1-f9426929162a.jpg?asset_id=596464e1-be56-4089-84e1-db97d86a9e18&amp;img_etag=%223c81c2ca1587b3eee0e14aada45658e0%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/7TV3tLVrCrJTv/images/6c6806f1-52c7-48b6-9e4a-737b6fe8e845.jpg?asset_id=f165dce9-21bd-43b8-9cf5-5011e9c1f9ea&amp;img_etag=%2219c8bcb6743bf399bdaef5e6c872b501%22&amp;size=2560)](https://spark.adobe.com/page/7TV3tLVrCrJTv/images/6c6806f1-52c7-48b6-9e4a-737b6fe8e845.jpg?asset_id=f165dce9-21bd-43b8-9cf5-5011e9c1f9ea&amp;img_etag=%2219c8bcb6743bf399bdaef5e6c872b501%22&amp;size=1024)
 
 **简评：**
 
-科技巨头脸书干预美国大选的行为在这次总统选举中可以说达到了疯狂的地步。为了支持民主党总统候选人拜登当选，脸书不仅仅关停了共和党竞选团队重要人物班农先生的账号、彻底封杀了亨特·拜登硬盘丑闻的所有信息、还于1月，对时任美国总统川普进行了封杀。
+不知道白宫在七国集团峰会公报发表之前抢先发表的“单独声明”是不是作秀，以便让美国国内的反对派看看，我拜登政府还是有自己的坚守，还是做了一些事情的。
 
-而最近披露的信息显示，扎克伯格为了影响大选，除在网络上采取行动，也在线下投入了高达5亿美元的资金。科技与公民生活中心 (CTCL) 是位于伊利诺伊州芝加哥的左翼选举改革倡导组织，成立于 2012 年。该中心的资金主要来自脸书总裁扎克伯格。据《哨兵日报》报道，威斯康星州五个最大的城市从该组织获得了约630万美元的选举赞助，而该组织还向全州约200个城市提供了资金。
+如果说拜登政府提出对抗中共“一带一路”的“重建更美好世界”的基建倡议是表面文章，那么在与七国集团领导人会谈的时候，涉及到中共病毒问题、台海问题、新疆侵犯人权问题、以及香港自由及自治议题上，拜登政府就应该表现出领袖的主导作用。但是，从峰会最终给出的不痛不痒的公报内容来看，美国对其盟国的影响力似乎正在减弱。
 
-扎克伯格通过CTCL对威斯康星州注入的大量资金，导致了在该地区选举资金分配不均，使其支持的民主党的支持者获得了更多的资源。一个最明显的案例就是在民主党控制的宾州特拉华县，每4平方英里就有一个选票投递箱，相当于选民步行就可以过去投票。而川普总统2016年获胜的59个县，每1100平方英里才有一个投票箱。这种投票箱分布严重的不合理，无疑导致了更多的民主党选民会走出家门参与投票。这也是威斯康星州参议院认定扎克伯格利用资金影响本州大选的一个重要证据。
+回头看看今年3月份中美阿拉斯加会谈时，美国代表团的表现，让中共政府着实牛了一把，在国内也是大肆宣传，尤其是杨洁篪的那句“中国人是不吃这一套的”更是在中共国互联网上广泛流传。
 
-此次威斯康星州参议院通过法案禁止非本州的私人资助选举，不仅仅证实了扎克伯格利用金钱影响了大选，也说明了美国的民主体制已经认识到，当今科技巨头利用科技和资金的优势严重破坏了美国的大选制度，并开始采取行动来应对这种威胁。
+中共国的代表团敢说出这样强硬的话，这在川普政府时期，是绝对不可能的。我们依然记得川普执政时期中共政府在中美对话中出尔反尔、节节败退的丑态。如今换了拜登，不仅是对中共态度暧昧，在外交上也是弱势尽显，就连在与西方盟友的谈判中，竟然也表现得如此狼狈。原因到底在哪里？
+
+中共国相对于美国的实力，我们爆料革命的战友是最清楚的，军事、经济、科技各个领域，都差得太远，中共国更不会在一夜之间，因为美国换了总统实力就突然提升了。美国在国际博弈中面临如今的局面，说明拜登政府深陷中共政权的“蓝、金、黄”泥潭无法自拔，受制于人，一次次妥协就是在维护自己的私利。
+
+即便如此，自拜登政府上台后，美国社会对中共病毒真相的追索并没有停止，至今为止，新冠病毒是中共人为制造的生物武器一说几乎做实，这说明美国三权分立的国家体制依然在国家治理中发挥着重要作用。郭文贵先生在6月13日的直播中提到来年要关注美国的中期选举，意指以川普总统为代表的美国保守派势力有可能强势回归。若真如此，美国必将重现川普执政时期的影响力。而中共国，随着其国内经济的崩溃，政治内斗的加剧，中共政权也将在世界各国对病毒追责的讨伐声中走向覆灭。
 
 **原文翻译：**
 
-## **威斯康星州参议院通过法案，禁止扎克伯格式的选举干预行为**
+## **七国集团公报淡化了中共国的侵权行为，白宫提前发表单独声明进行反**击
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JpzgwbteXFbJO/images/4e630a08-6a37-459f-afdf-fa696b661655.jpg?asset_id=22a76db1-c9a6-452b-b5e4-e5742b36fdca&amp;img_etag=%226df9ae3fc5c8eb7f590b9d4acd06d664%22&amp;size=2560)](https://spark.adobe.com/page/JpzgwbteXFbJO/images/4e630a08-6a37-459f-afdf-fa696b661655.jpg?asset_id=22a76db1-c9a6-452b-b5e4-e5742b36fdca&amp;img_etag=%226df9ae3fc5c8eb7f590b9d4acd06d664%22&amp;size=1024)
+在拜登政府明确希望康沃尔峰会的焦点集中在中共国之后，七国集团关于中共国的最终公报，似乎有一点淡化了华盛顿的意思……，而依然存在的令人不安且具有讽刺意味的事是，七国集团谈判桌上最依赖中共国贸易（欧洲）的国家已经**证明他们是最不愿意打击中共影响力的**。
 
-**威斯康星州参议院通过了一项法案，禁止非本州的私人资助选举。这是继脸书首席执行官马克·扎克伯格 对 2020 年大选进行大规模干预之后采取的举措。**
+七国集团周日峰会闭幕时发表的官方公报明显软化（与美国最近的言论相比），内容如下：“在涉及中共国和全球经济竞争议题上，我们将继续协商以集体的方式，挑战损害全球经济公平及透明操作的非市场政策及做法。”
 
-正如《国家脉动》在2020年大选前最初报道的那样，扎克伯格将现金投入到大量民主党选区，以私下推动更多左翼选民到投票箱进行选举。
+公报继续以非常枯燥的官僚语调指出：“鉴于我们各自在多边体系中承担的责任，我们将在符合我们共同利益的地方合作应对共同的全球挑战，特别是要在第26届联合国气候变化大会(COP26)和其它多边讨论中，应对气候变化和生物多样性的丧失问题。”
 
-现在，威斯康星州参议院法案SB207，尝试禁止私人资助选举的做法，但预计将被民主党州长托尼·埃弗斯否决。
+[!\[\]()!\[\](https://spark.adobe.com/page/7TV3tLVrCrJTv/images/44131365-46de-4f69-8ecf-be0d20fa4758.jpg?asset_id=d0e33ffe-72d2-4f75-b659-ca94eeb396c2&amp;img_etag=%22fe93ced83110ad2b53bb37fb5bb785b3%22&amp;size=2560)](https://spark.adobe.com/page/7TV3tLVrCrJTv/images/44131365-46de-4f69-8ecf-be0d20fa4758.jpg?asset_id=d0e33ffe-72d2-4f75-b659-ca94eeb396c2&amp;img_etag=%22fe93ced83110ad2b53bb37fb5bb785b3%22&amp;size=1024)
 
-据当地新闻网站报道，获批的法案包括：
+……所有这些都引向了**七国集团关于中共国侵犯人权的高度“缓冲”结论**：
 
-- SB207——禁止地方政府申请和接受私人资金来支付管理选举的费用；
-- SB208——要求选举委员会在会议或听证会后48小时内公布会议记录草稿；
-- SB213——允许地方检察官调查与其相邻县的一些违反选举法的行为。
+*与此同时，在此过程中，我们将推广我们的价值观，包括呼吁中共国**尊重人权及基本自由**，特别是涉及新疆，以及中英联合声明和基本法确保的香港的人权、自由以及高度自治。*
 
+正如“政客”网站本周末指出的那样，法国的马克龙是欧洲领导人中最重要的，他无意迎合华盛顿提出的采取更强有力的战略来对抗北京的紧急呼吁：
 
-威斯康星州法律与自由研究所的研究主管威尔·弗兰德斯，在发布一份关于选举诚信的新报告后表示：“这项分析提供了令人信服的证据，表明科技与公民生活中心（CTCL）的拨款，在2020年增加乔·拜登的投票率方面发挥了作用。威斯康星州立法者应该采取行动，确保地方选举管理不会被寻求党派优势的私人资金所俘获。”
+*马克龙对中共国军事威胁的驳斥将有助于峰会定下基调：**“就我而言，中共国不是大西洋地理的一部分，或者说我的地图上没有它。”**但法国国防部长弗洛朗斯·帕尔丽在5月份告诉我，法国也反对中共国在印太地区的既成事实政策。*
 
-🔗[原文链接](https://thenationalpulse.com/breaking/wisconsin-senate-passes-bill-banning-zuckerberg-style-election-interference/)
+为了回应七国集团对中共国人权的沉默反应，**白宫实际上**在公报正式达成前**发表了自己的单独声明**。
+
+还是他？……不。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7TV3tLVrCrJTv/images/69f57f82-b63a-49eb-bb29-59a9082c130a.png?asset_id=2ef79f08-4048-47fe-b55f-dc54d468ffee&amp;img_etag=%2294c0155638dcede1424bf4eecd3aeecb%22&amp;size=2850)](https://spark.adobe.com/page/7TV3tLVrCrJTv/images/69f57f82-b63a-49eb-bb29-59a9082c130a.png?asset_id=2ef79f08-4048-47fe-b55f-dc54d468ffee&amp;img_etag=%2294c0155638dcede1424bf4eecd3aeecb%22&amp;size=1024)
+
+推特部分翻译：
+
+美国总统拜登劝说七国集团对中共国应更具竞争意识。
+
+美国带头努力为中共国的新丝绸之路项目建立一个西方的替代方案，但欧盟对建立反华联盟持谨慎态度。（援引《德国之声》）
+
+白宫声明说：
+
+*“美国和我们的七国集团伙伴仍然深切关注在全球供应链中使用任何形式的强迫劳动，包括国家资助的农业、太阳能和服装等行业对弱势群体和少数民族的强迫劳动，即在新疆受关注的主要供应链。”——一份显然更直接的声明中包含了一系列的中共国具体的违规行为。*
+
+布林肯早些时候曾声称，康沃尔七国集团领导人在中共国问题上**“基本达成一致”**……但周日发表的相互竞争的声明却讲述了一个不同的故事。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7TV3tLVrCrJTv/images/e83dc775-bb53-4921-b9ed-d4851a420b46.png?asset_id=3eed30de-8749-4cbf-946b-6dba0f4363e5&amp;img_etag=%22e5c023d014bcb8b92be32a248ba27628%22&amp;size=2583)](https://spark.adobe.com/page/7TV3tLVrCrJTv/images/e83dc775-bb53-4921-b9ed-d4851a420b46.png?asset_id=3eed30de-8749-4cbf-946b-6dba0f4363e5&amp;img_etag=%22e5c023d014bcb8b92be32a248ba27628%22&amp;size=1024)
+
+ABC的《本周》推特部分翻译：
+
+据报道，拜登总统在应对中共国的全球基础设施替代项目倡议问题上，与七国集团峰会的各国领导人关系紧张。安东尼·布林肯对Martha Raddatz说：“我们得到的是基本同意。”
+
+关于那个**“竞争对手一带一路”基础设施计划……**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/7TV3tLVrCrJTv/images/b929326f-3cf4-4eb3-bcc4-acc501722780.png?asset_id=6189494a-b184-4ad7-9b6f-311b91912404&amp;img_etag=%22ab6a51d10bf4028fd417fcb22c15d63e%22&amp;size=2908)](https://spark.adobe.com/page/7TV3tLVrCrJTv/images/b929326f-3cf4-4eb3-bcc4-acc501722780.png?asset_id=6189494a-b184-4ad7-9b6f-311b91912404&amp;img_etag=%22ab6a51d10bf4028fd417fcb22c15d63e%22&amp;size=1024)
+
+推特部分翻译：
+
+经过7年的忽视、嘲笑和妖魔化中共国的新丝绸之路之后，西方现在提出了他们自己的基础设施项目。但它看起来要由私人公司提供资助。祝你好运——这一基础设施项目将是寻求短期利益的小型项目。一带一路。
+
+七国集团支持全球基础设施计划来与中共国的一带一路竞争。（援引《日经新闻-亚洲》）
+
+🔗[原文链接](https://www.zerohedge.com/geopolitical/g7-communique-waters-down-china-abuses-white-house-preempts-separate-statement?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -50,6 +87,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JpzgwbteXFbJO/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/JpzgwbteXFbJO/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/7TV3tLVrCrJTv/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/7TV3tLVrCrJTv/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-+1
+0

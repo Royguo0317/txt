@@ -1,31 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度有意加入B3W计划
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1323209/)
+## 【香草诗词汇】端午幻生缘
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1323394/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者： 纽约香草山医疗部 云豹
 
-编辑上传   水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14231929/I-3.jpg)timesofindia.indiatimes.com
-Exbulletin6月14日报道，印度表示，将研究美国总统拜登在七国集团峰会上倡议的“重建更好”（B3W）全球基础建设计划，作为中共“一带一路”的替代方案。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-8.jpeg)
 
-该计划由主要民主国家牵头，将为主要因中共病毒疫情而经济恶化的发展中国家的基础设施需求提供40多万亿美元的资金和技术援助，且还将为当地创造就业机会。七国集团的这一B3W计划被视为对中共国家主席习近平最喜欢的“一带一路”项目的潜在冲击。
 
-印度表示，相关机构将研究该计划，并可能在稍后参与该项目。在一次记者招待会上，印度外交部高级官员哈里什说，“关于加入‘为世界建设更美好’的具体问题，我可以证实，印度有关政府机构将进行研究，并可能在稍后阶段与他们接触。”
 
-中共国的“一带一路”倡议，因其不断增加的债务、缺乏地方就业及缺少透明度的一系列问题和危险信号，已经引起国际社会的广泛关注和批评。印度拒绝加入中共国“一带一路”倡议，认为这是对其领土完整的攻击，但邻国巴基斯坦、尼泊尔和斯里兰卡却都是“一带一路”的一部分。
+端午中日焰
+浴花圃园间
+灰影叶间动
+惊喜野雀缘
 
-据印度多边环境部一名高级官员说，“总理强调，民主国家应表明，在项目执行方面，我们不仅可以在本国，而且可以在其他国家执行。总理谈到印度在邻国和非洲国家的经验，以及在发展伙伴关系框架内的经验。总理还表示，印度准备在这方面做出更多努力，铭记透明度和包容的道德准则。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15003427/P_20210614_115757-scaled.jpg)
 
-在七国集团(G7)上，印度总理纳伦德拉·莫迪(Narendra Modi)敦促民主国家向世界证明，它们可以更有效、更透明地实施项目。莫迪还强调了民主社会共同努力、相互加强的必要性，以此捍卫各自的价值观并应对挑战。
+雀巢柏叶掩
+意为繁衍建
+一卧巢中憩
+偶立旁枝喧
 
-印度-南非放弃与贸易有关的知识产权协定的建议也得到七国集团的广泛支持。 多边环境部秘书哈里什说，“印度-南非放弃与贸易有关的知识产权协定提议的文本谈判在世贸组织得到了广泛的支持。关于有必要向世界各地的制造商提供财政援助，达成了一项一般性协议，以提高能力、区域生产极点、确保这些区域的资金、技术转让和技能发展。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15003522/P_20210614_115817-scaled.jpg)
 
-这是印度第一次参与七国会议。这位多边环境部官员说，英国首相鲍里斯·约翰逊已经呼吁七国集团与另外四个国家——印度、澳大利亚、韩国和南非——组成民主11国。他说，许多国家赞赏印度对七国集团的承诺，“所以我可以说，我们的接触是富有成效的，我们希望在各种倡议中继续我们的接触。”
+高吭声急劝
+警客勿近前
+雌雄轮值巢
+心期雏羽现
 
-参考链接：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15003630/P_20210614_115429-scaled.jpg)
 
-[https://exbulletin.com/politics/989089/?wpmeteordisable=1](https://exbulletin.com/politics/989089/?wpmeteordisable=1)
+昔蝶沦雀餐
+今幻双雀惦
+速脱妄想苦
+无佛无大千
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,88 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 霍利呼吁国会对冠状病毒进行全面调查
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1323103/)
+## 中共国在建党100周年前夕用共产党宣传淹没教会
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1323234/)
 
-**字幕内容：**
-
-**听译**
-**Tucker Carlson:
-塔克 卡尔森：**
-
-So, it’s simple,
-所以，很简单
-
-I don’t think it’s an outrageous thing
-我不认为要求联邦政府进行
-
-to ask for that there is some sort of organized effort , by the federal government,
-某种有组织的努力，进行调查
-
-an investigation to get to the bottom of this,
-以查明真相是一件很过分的事情
-
-why isn’t there one?
-为什么没有呢？
-
-Josh Hawley:
-乔什·霍利：
-
-Well I think because we’ve seen the media line,
-好吧，我认为因为我们已经看到了媒体路线
-
-which Dr. Fauci has unfortunately promoted over and over ,
-不幸的是，福奇博士一遍又一遍地宣传，
-
-which is the idea that the Wuhan Lab was involved in Covid-19 in anyway, was false.
-即武汉实验室无论如何参与了 Covid-19 的想法是错误的
-
-That is what they have said over and over “You’re a conspiracy theorist”, they said.
-他们说，这就是他们反复说的“你是阴谋论者”
-
-Dr. Fauci has said, you know, this naturally originating virus,
-福奇博士说，你知道，这种自然起源的病毒
-
-we shouldn’t ask questions.
-我们不应该问问题
-
-Turns out, Tucker, there are a lot of really legitimate questions,
-事实证明，塔克，有很多真正合理的问题
-
-and I mean a lot of really legitimate questions about the involvement,
-我的意思是很多关于实验室的参与
-
-potential involvement, of a lab,
-潜在参与的真正合理的问题
-
-we need to get to the bottom of it.
-我们需要深入了解它
-
-Dr. Fauci, by the way, knew very well.
-顺便说一下，福奇博士非常了解
-
-His emails tell us he knew in January of 2020,
-他的电子邮件告诉我们，他在 2020 年 1 月
-
-that there was a possible lab connection there.
-就知道那里可能存在实验室联系
-
-Course, he also knew about his connection to gain of function research at that same lab,
-当然，他也知道他在同一个实验室的功能增强研究的联系
-
-and yet he was dishonest about it, and continues to be dishonest about it. That’s a big problem.
-但他对此不诚实，并且继续不诚实
-这是一个大问题
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接**:[https://twitter.com/abigailmarone/status/1402791170657431552](https://twitter.com/abigailmarone/status/1402791170657431552)
-英听校： 康州盘古农场 -Freeearth
-翻译： 康州盘古农场–Freeearth
-翻译终校： 康州盘古农场-Mike Li
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
+翻译：康州盘古农场 – Layka
+校对：康州盘古农场 – 心照
+编辑；康州盘古农场 – 明子
 发布：康州盘古农场 – 彩虹 Rainbow
+**据《www.breitbart.com》加布里埃尔·雷耶斯（Gabrielle Reyes）2021年6月10日报道：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14231353/picc20210614.png)
+据香港《苹果日报》周四报道，中共当局已下令全国少数合法教会在 7 月 1 日前学习和庆祝中国共产党建党 100 周年。
+
+该报称：“中共国的官方天主教堂是最活跃的，一些教区在举行感恩节弥撒时歌颂中共[原文如此]。”
+
+“在上个月发表的一份声明中，中共国天主教爱国会副主席、中国人民政治协商会议全国委员会委员刘元龙写道：‘上帝选择了中国共产党’”苹果日报透露。
+
+中共国的宗教事务局成立了中国天主教爱国会(CPCA)，负责监督中共国天主教徒的活动。虽然中国共产党是正式的无神论者，但中共国政府声称允许在中共国境内信仰少数宗教。被容忍的信仰包括基督教的严重改变版本，例如与罗马天主教不同的“天主教”的迭代和一种称为“三自爱国教会”的新教形式。佛教、道教和伊斯兰教在中共国表面上也是被允许的，但只能在共产党的完全控制之下。
+
+“我们要坚决拥护以习近平为核心的中国共产党。我们听党的话，跟党走。” 为纪念即将到来的共产党周年纪念日，中国天主教爱国会刘元龙副主席在上个月的官方声明中写道。
+
+中国天主教爱国会主席房兴耀(John Fang)在5月发布的另一份声明中强调该组织将继续“深化天主教中共国化”。
+
+“我们与党保持高度一致，坚定不移地走爱国爱教之路。”同时担任中共国东部省份山东教区主教的房兴耀写道。
+
+“中共国化”是指共产党通常使用共产主义价值观篡夺宗教实际价值观的术语，它认为共产主义价值观比宗教更“中共化”。
+
+在中国国家宗教事务总局发布的新规定于 5 月生效后不久，中共国基督教领袖上个月发表了效忠共产党的公开声明。
+
+据苹果日报报道，“宗教人员管理办法规定，宗教领袖和教师必须维护国家安全和民族团结，并加强对他们在海外的收入和培训的审查”。
+
+该报回忆道，“在二月份的一次会议上，全国政协主席汪洋告诉宗教领袖，要以建党纪念为契机，让宗教教义与社会主义接轨” 。 全国政协是中国政府内部由共产党控制的政治咨询机构。
+
+中共中央办公厅于5月下令“要求社会各界开展中共历史宣传教育”，以期在7月1日全国庆祝中共成立100周年。 “与（中共政府的）社会主义研究所合作举办课程，并安排追随者到历史遗迹致敬。”据苹果日报报道。
+
+中共国执政的共产党至少从 4 月开始就鼓励公民参与所谓“红色旅游”。 红色旅游包括参观中共国各地被认为对中国共产党具有历史意义的遗址和纪念碑等。
+
+**原文链接**：[https://www.breitbart.com/asia/2021/06/10/china-floods-churches-with-communist-propaganda-ahead-of-partys-100th-anniversary/](https://www.breitbart.com/asia/2021/06/10/china-floods-churches-with-communist-propaganda-ahead-of-partys-100th-anniversary/)
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
 康州盘古农场欢迎您加入:(或点击上方图片）
 
