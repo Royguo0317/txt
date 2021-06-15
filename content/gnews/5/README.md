@@ -1,37 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳媒报道：中共国努力控制资金流动中金融泡沫
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1323560/)
+## 中共蓝金黄渗透&#8211;媒体界
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1323551/)
 
-撰稿：喜妈
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15021125/153-2.png)（图片来自网络截图）
-澳媒报道，中共国现实下，“资金涌入从大宗商品到住房和股票的所有领域”，这样的情况使得“中共国维护金融市场秩序的斗争变得越来越艰巨”。文章称，中共国政府5月份做了一系列的表态，包括“誓言要解决金融投机问题”、“提出征收房产税的想法”、“监督一些城市的抵押贷款利率上调”、“禁止开采加密货币”和“淡化央行内部要求人民币升值的呼声”。文章指出，中共当局努力“维持相对宽松的货币政策以支持经济从大流行中复苏”，他们正在“密切关注资产过热的风险”。
+撰稿：自由战士
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15021253/IMG_9725.jpg)网络截图
+新中国联邦自2020年6月4号成立后，经过一年的努力发展，在上周迎来了我们一岁的生日，在经过一年的时间里，我们对正义和真相的传播得到了社会各界人士的认同。同时也让西方社会，政界，经济界，新闻界，媒体界，科技界等都在逐渐的被唤醒。在病毒肆虐的一年多时间里，大家认清了这个邪恶中共的真正面孔，郭先生说过，我们新中国联邦认定朋友的方法很简单，就是只要你灭共就是朋友，只要你揭露中共的邪恶就是战友。没错，但是我们也要警惕各种十面埋伏和九层妖塔。下面我给大家介绍一个新的“朋友”——亚瑟·亚当·豪斯利（Arthur Adam Housley）。
 
-文章指出，行业内估计“有针对性的干预可能会给中共国金融市场带来压力”，而这样的形势就是为了“避免在其（中共）成立7月1日一百周年之际出现动荡”。文章引用相关国际金融人士分析，中共的金融“政策趋势现在集中在确保金融稳定上”；中共政府 “希望一开始就以有力的措辞和对政策的微小调整有针对性地解决泡沫风险”，“目前看来已经足够了”。
+首先，我们可以看看豪斯利的个人履历：亚瑟·亚当·豪斯利（Arthur Adam Housley，1971 年 8 月 13 日出生）[\[1\]](https://en.wikipedia.org/wiki/Adam_Housley%23cite_note-farrell-1)[\[2\]](https://en.wikipedia.org/wiki/Adam_Housley%23cite_note-2)是获得艾美奖、美联社和 RTNDA 奖的美国记者，前职业棒球运动员，现任酒厂老板。他于 2001年加入[福克斯新闻频道](https://en.wikipedia.org/wiki/Fox_News_Channel)(FNC)，担任驻[洛杉矶](https://en.wikipedia.org/wiki/Los_Angeles)的高级记者。显著的战绩如下：
 
-文章指出，当下世界大部分地区都“面临通胀压力”。美国和欧洲的中央银行都明确表示“在可预见的未来，超低利率仍将存在”。专家分析，中共国债券市场“短期内不会消化更高的借贷”。中共国短期的经济回暖吸引了全球投资者，可是“由此产生的资金流入增加被资本管制困住的庞大国内资金池”。因而产生“热钱推高资产价格”现象。
+1.在加入 FNC 之前，Housley于 1999 年至 2001 年在[加利福尼亚州萨克拉门托的](https://en.wikipedia.org/wiki/Sacramento,_California)[KTXL-TV](https://en.wikipedia.org/wiki/KTXL-TV) ( [Fox](https://en.wikipedia.org/wiki/Fox_Broadcasting_Company) )担任记者，在那里他获得了一系列奖项，包括 2001 年地区美联社报道奖和地区艾美奖。
 
-同时，文章内容指，可以观察到一些中共新近政策所造成的经济调整，比如“股市上涨可能会消除大宗商品市场的热度，而人民币升值将降低进口原材料的成本”等。报道认为，这些都是中共调整顺利的市场反映，是其“大战略的一部分”。这样的中共国经济走向“将缓解通货膨胀压力，并使中央银行保持宽松立场”。
+2.1998 年，他因抓获一名占地 50,000 英亩的[纵火犯而](https://en.wikipedia.org/wiki/Arsonist)获得[加州林业部](https://en.wikipedia.org/wiki/California_Department_of_Forestry)奖。
 
-报道指出，中共“一百周年纪念日的临近”，需要一个显得“‘强大的’金融市场”，这是对中共这个党派和习本人都会产生“积极”的影响方面。报道同时指出，中共所要面临的风险是“如果价格上涨受到北京无法控制的力量持续和推动”，有可能会“迫使中国人民银行采取更积极的行动，例如抽干流动性或提高利率”。
+3.豪斯利在[伊拉克战争期间](https://en.wikipedia.org/wiki/Iraq_War)从科威特、伊拉克、巴林、约旦和波斯湾报道，并花时间报道了来自巴基斯坦和以色列、约旦河西岸和加沙地带的[反恐战争](https://en.wikipedia.org/wiki/War_on_Terror)。2003 年 3 月 20 日，第一批导弹和警报器开始发射时，他正在科威特播出。
 
-报道称，中共国人民银行已承诺“以缓慢而可衡量的步伐退出大流行时代的刺激措施”。其中信贷明显“放缓”就是很好的表现，并视为“已经在发生”的事情。据报道，中共国“削减了今年通常为基础设施提供资金的债务销售配额”、“软化了对固定资产投资的推动”，即使“信贷违约加剧”，中共国的中央银行也已“向贷方提供了最低的流动性”。
+4.豪斯利还是 FNC 2003 年[阿诺德施瓦辛格](https://en.wikipedia.org/wiki/Arnold_Schwarzenegger)竞选活动的首席记者，报道了六场飓风，包括[卡特里娜飓风](https://en.wikipedia.org/wiki/Hurricane_Katrina)和[丽塔](https://en.wikipedia.org/wiki/Hurricane_Rita)飓风，对自然灾害的实时报道。
 
-报道认为，中共的官员们看起来“更愿意在微观层面采取越来越激进的措施，而不是在宏观层面”。报道引用摩根大通分析师的话，“当您拥有像中共国这样的封闭资本账户，并通过信贷渠道放宽政策时，这些钱将留在国内”； “然后它需要找到一个地方。它可以是住房，也可以是股票-它遍及整个金融体系”。从此可以看到，这就是中共国政策上一个的“最大限制之一”，它同时也是中共国“今年迅速取消刺激措施的原因”。
+5.2005 年 12 月，豪斯利是少数被选中目睹凶手[斯坦利“图基”威廉姆斯](https://en.wikipedia.org/wiki/Tookie_Williams)在圣昆廷被处决的记者之一。
 
-综上所述，笔者还是从普通百姓视野来理解：中共国的经济大势不好，只能光靠政策来玩点花样续命了。我们不懂那些经济上的调控手段和各种数据背后的深刻经济学道理，可是我们从这个关于中共国金融市场方面的政策调整报道看到两点：一个是墙国经济没啥可以作为坚实支撑，另外也就是它要靠经济上的政策和货币手段来化解现实风险，努力维持在其建党一百周年前后的繁荣光鲜景象。可惜，这是中共一厢情愿的想法，如果金融上存在广泛的泡影，其他行业不是一样的吗？
+6.2013 年 4 月，他获得了关于2012 年 9 月 11[日班加西袭击事件](https://en.wikipedia.org/wiki/Benghazi_attack)的特别行动举报人的独家采访。
 
-而且，我们还想问，这样的手法，过得了初一还能过得去十五吗？这样的操作，不就是明摆着捏着鼻子哄眼睛吗？还能继续多久呢，还能维持多长时间呢？经济除了政策、手段、技术，不需要真金白银，不需要靠实力和实在的各行业有序健康发展吗？那么，从爆料革命中了解到的真相，我们所能看到的墙国经济衰退景象和版本难道不能让我们触目惊心吗？墙国非强国，墙国不是建立在踏实基础上的，一切真相很快就会大白于世界。到那个时候如梦幻泡影般的所谓强国存在，是一个怎样的笑话呢？了解中共国的这些背景后的花招，人民才能做好相应的准备。时刻准备着，世界的变化也许就在此间。
+7.报道了“[毒品战争](https://en.wikipedia.org/wiki/War_on_drugs)”并采访了[桑地诺](https://en.wikipedia.org/wiki/Sandinista)党领袖[丹尼尔奥尔特加](https://en.wikipedia.org/wiki/Daniel_Ortega)。
 
-本文纯属个人观点
+8.豪斯利是首批前往海地的记者之一，报道了 2010 年 1 月 12 日地震后留下的破坏
 
-参考资料：
+9.豪斯利是第一批在[东南亚海啸](https://en.wikipedia.org/wiki/2004_Indian_Ocean_Earthquake_and_Tsunami)之后提供广泛现场报道的西方记者之一
 
-[https://www.smh.com.au/business/markets/china-struggling-to-control-financial-bubbles-as-money-flows-20210527-p57vhn.html](https://www.smh.com.au/business/markets/china-struggling-to-control-financial-bubbles-as-money-flows-20210527-p57vhn.html)
+10.豪斯利是第一批在日本现场报道 9.0 级地震和随后海啸后的破坏的美国记者之一
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+11.豪斯利精通西班牙语，为福克斯报道了[2010 年的科皮亚波矿难](https://en.wikipedia.org/wiki/2010_Copiap%2525C3%2525B3_mining_accident)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+12.2014 年 8 月和 11 月关于[Trayvon Martin](https://en.wikipedia.org/wiki/Trayvon_Martin)之死的[抗议活动](https://en.wikipedia.org/wiki/2014_Ferguson_Unrest)中，豪斯利是福克斯在[密苏里州弗格森](https://en.wikipedia.org/wiki/Ferguson,_Missouri)现场的记者之一
+
+13.豪斯利是[2015 年 12 月](https://en.wikipedia.org/wiki/2015_San_Bernardino_attack)圣贝纳迪诺[恐怖袭击](https://en.wikipedia.org/wiki/2015_San_Bernardino_attack)现场的世界上首批记者之一
+
+我们可以看到，豪斯利在新闻领域是一个超级出色的记者，从战区到海啸，从矿难到种族歧视，从毒品到恐袭，无论在那个领域都有他的报道的身影，而且都是首批记者之一，首先他是对新闻的嗅觉是超级的灵敏，另外一个就是对真相和正义的揭露是坚守的基本原则。整体看他的新闻履历是一个完美的经历，让人膜拜，也是在新闻行业具有相当的话语权的人物。
+
+
+
+> Our international folks…and I’m being generic for a reason…are concerned about India and China. India clearly got hurt by this virus massively and they are already upset…rightfully…with other actions by the Communist Chinese government.
+> — Adam Housley (@adamhousley) [June 5, 2021](https://twitter.com/adamhousley/status/1401233531699810306?ref_src=twsrc%5Etfw)
+
+
+
+但是针对亚当·豪斯利 (Adam Housley)针对中国叛逃者的这个故事的站台情况来分析，就感觉有些蹊跷了。因为根据路德社的7号的报道和深入的分析情况来看，这一波操作不能不说是中共九层妖塔和十面埋伏的力量。综合判断前面亚当·豪斯利 (Adam Housley)的出色表现，肯定会在中共BGY涉猎计划范围内的人士。针对在西方这么优秀的记者，肯定是锁定拿下的目标，而到关键时刻出来跟中共进行洗地站台，迷惑观众，带风向。我们不能不对亚当·豪斯利 (Adam Housley)的前面的正义所感动，但是即使这么优秀和正义的人士，也会被中共最终拿下，可想中共对西方的新闻界腐蚀的程度之深，面之广，是我们常人无法想象的，这也是为什么他突然出来站台来确认这个外逃信息后有如此之多的西方人士和我们自己的战友被迷惑。
+
+因此，我们战友们必须要在最近的真相传播过程种，务必要擦亮眼睛，辨别真伪，学会独立思考和逻辑思维能力，不要被任何假象所迷惑，另外就是需要我们时刻跟进郭先生，路德社，闫博士和西方各界被证明的正义力量的观点。辅助自己做出正确的判断和决策。灭共路上不仅仅是清楚毒瘤的过程，也是我们自己升华的过程，希望我们每个战友能够在灭共后成为真正的独立思考的个体。为新中国联邦的未来建设贡献自己的力量。
+
+（文中观点只代表个人观点）
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0

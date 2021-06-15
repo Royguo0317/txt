@@ -1,56 +1,111 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共蓝金黄渗透&#8211;媒体界
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1323551/)
+## 中共超限战灭港行动（卅四）雨伞革命之最后一个占领区沦陷
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1323602/)
 
-撰稿：自由战士
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15021253/IMG_9725.jpg)网络截图
-新中国联邦自2020年6月4号成立后，经过一年的努力发展，在上周迎来了我们一岁的生日，在经过一年的时间里，我们对正义和真相的传播得到了社会各界人士的认同。同时也让西方社会，政界，经济界，新闻界，媒体界，科技界等都在逐渐的被唤醒。在病毒肆虐的一年多时间里，大家认清了这个邪恶中共的真正面孔，郭先生说过，我们新中国联邦认定朋友的方法很简单，就是只要你灭共就是朋友，只要你揭露中共的邪恶就是战友。没错，但是我们也要警惕各种十面埋伏和九层妖塔。下面我给大家介绍一个新的“朋友”——亚瑟·亚当·豪斯利（Arthur Adam Housley）。
-
-首先，我们可以看看豪斯利的个人履历：亚瑟·亚当·豪斯利（Arthur Adam Housley，1971 年 8 月 13 日出生）[\[1\]](https://en.wikipedia.org/wiki/Adam_Housley%23cite_note-farrell-1)[\[2\]](https://en.wikipedia.org/wiki/Adam_Housley%23cite_note-2)是获得艾美奖、美联社和 RTNDA 奖的美国记者，前职业棒球运动员，现任酒厂老板。他于 2001年加入[福克斯新闻频道](https://en.wikipedia.org/wiki/Fox_News_Channel)(FNC)，担任驻[洛杉矶](https://en.wikipedia.org/wiki/Los_Angeles)的高级记者。显著的战绩如下：
-
-1.在加入 FNC 之前，Housley于 1999 年至 2001 年在[加利福尼亚州萨克拉门托的](https://en.wikipedia.org/wiki/Sacramento,_California)[KTXL-TV](https://en.wikipedia.org/wiki/KTXL-TV) ( [Fox](https://en.wikipedia.org/wiki/Fox_Broadcasting_Company) )担任记者，在那里他获得了一系列奖项，包括 2001 年地区美联社报道奖和地区艾美奖。
-
-2.1998 年，他因抓获一名占地 50,000 英亩的[纵火犯而](https://en.wikipedia.org/wiki/Arsonist)获得[加州林业部](https://en.wikipedia.org/wiki/California_Department_of_Forestry)奖。
-
-3.豪斯利在[伊拉克战争期间](https://en.wikipedia.org/wiki/Iraq_War)从科威特、伊拉克、巴林、约旦和波斯湾报道，并花时间报道了来自巴基斯坦和以色列、约旦河西岸和加沙地带的[反恐战争](https://en.wikipedia.org/wiki/War_on_Terror)。2003 年 3 月 20 日，第一批导弹和警报器开始发射时，他正在科威特播出。
-
-4.豪斯利还是 FNC 2003 年[阿诺德施瓦辛格](https://en.wikipedia.org/wiki/Arnold_Schwarzenegger)竞选活动的首席记者，报道了六场飓风，包括[卡特里娜飓风](https://en.wikipedia.org/wiki/Hurricane_Katrina)和[丽塔](https://en.wikipedia.org/wiki/Hurricane_Rita)飓风，对自然灾害的实时报道。
-
-5.2005 年 12 月，豪斯利是少数被选中目睹凶手[斯坦利“图基”威廉姆斯](https://en.wikipedia.org/wiki/Tookie_Williams)在圣昆廷被处决的记者之一。
-
-6.2013 年 4 月，他获得了关于2012 年 9 月 11[日班加西袭击事件](https://en.wikipedia.org/wiki/Benghazi_attack)的特别行动举报人的独家采访。
-
-7.报道了“[毒品战争](https://en.wikipedia.org/wiki/War_on_drugs)”并采访了[桑地诺](https://en.wikipedia.org/wiki/Sandinista)党领袖[丹尼尔奥尔特加](https://en.wikipedia.org/wiki/Daniel_Ortega)。
-
-8.豪斯利是首批前往海地的记者之一，报道了 2010 年 1 月 12 日地震后留下的破坏
-
-9.豪斯利是第一批在[东南亚海啸](https://en.wikipedia.org/wiki/2004_Indian_Ocean_Earthquake_and_Tsunami)之后提供广泛现场报道的西方记者之一
-
-10.豪斯利是第一批在日本现场报道 9.0 级地震和随后海啸后的破坏的美国记者之一
-
-11.豪斯利精通西班牙语，为福克斯报道了[2010 年的科皮亚波矿难](https://en.wikipedia.org/wiki/2010_Copiap%2525C3%2525B3_mining_accident)
-
-12.2014 年 8 月和 11 月关于[Trayvon Martin](https://en.wikipedia.org/wiki/Trayvon_Martin)之死的[抗议活动](https://en.wikipedia.org/wiki/2014_Ferguson_Unrest)中，豪斯利是福克斯在[密苏里州弗格森](https://en.wikipedia.org/wiki/Ferguson,_Missouri)现场的记者之一
-
-13.豪斯利是[2015 年 12 月](https://en.wikipedia.org/wiki/2015_San_Bernardino_attack)圣贝纳迪诺[恐怖袭击](https://en.wikipedia.org/wiki/2015_San_Bernardino_attack)现场的世界上首批记者之一
-
-我们可以看到，豪斯利在新闻领域是一个超级出色的记者，从战区到海啸，从矿难到种族歧视，从毒品到恐袭，无论在那个领域都有他的报道的身影，而且都是首批记者之一，首先他是对新闻的嗅觉是超级的灵敏，另外一个就是对真相和正义的揭露是坚守的基本原则。整体看他的新闻履历是一个完美的经历，让人膜拜，也是在新闻行业具有相当的话语权的人物。
+#### 搜集/撰文：岁月如歌 / 封面合成：文粤
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15015712/6151.jpg)
+由双学发起的「对准政权，包围政总」行动，最终被速龙小队收拾得很惨，但是，虽败犹荣，这是学界人士、年青人与市民用自己的身体、鲜血，顽强的斗志与独裁肉搏，战场上他们个个是英雄，是可敬可爱的人。他们努力了，拼搏了，呐喊了，表达了。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15015729/6152.jpg)图片来源：大纪元
+香港政府在速龙小队凶残收拾完双学发起挑战后发表强硬的声明，强烈谴责占领人士“有预谋、有组织”的冲击警方防线，是暴徒行为。地下党员、三低特首梁振英更是三度撒谎强调“士可忍，属不可忍”来形容市民要求清场的呼声。港府把责任完全推卸给示威人士，都是示威者的错，港府和中共一样，从来不会错，是神。市民就不应该要什么普选，就该好好的听话，像大陆猪圈里的老百姓一样逆来顺受，做个好奴隶。香港人不该拥有真普选。从历次港人的上街发声、诉求和运动来看，只要对政府有要求，就是错的，你就成了政府打击的对象，你上街说出诉求，表达诉求是错的。警方对你暴力是理所当然的，是对的，他可以用警棍打你，打伤打死几乎不用负责任，用催泪弹对付你是维护治安的必要，但是你反抗，你说的话会变成犯罪的证据、你不可以还手打你的警察、不可以强光照警察、不可以碰一下警察，否则你被定罪袭警，你也不可以阻拦警察打你，打别人、你不可以阻止警察做任何事，否则妨碍警察办公……必须像《圣经》里说的，打你左脸了，要把右脸凑过去。被强奸了也不可以反抗要配合还要叫高潮。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15015743/6153.jpg)图片来源：大纪元
+包围政总行动备受批评，12月2日双学发起人就包围政总导致许多市民和学生受伤和被捕鞠躬道歉，并向走在最前线的示威者致敬。黄之锋等三名成员宣布将进行无限期绝食，要求全国人大常委会撤回831政改决定，并要求港府重启对话。学联秘书长周永康表示，围堵政总计划失败，没有达到瘫痪政总、迫使政府回应的目标，警方非常暴力清场行动也在意料之外。泛民主派要求双学停止升级行动。 「对准政权，包围政总」行动给警方进一步清场拘捕行动提供借口。
 
-> Our international folks…and I’m being generic for a reason…are concerned about India and China. India clearly got hurt by this virus massively and they are already upset…rightfully…with other actions by the Communist Chinese government.
-> — Adam Housley (@adamhousley) [June 5, 2021](https://twitter.com/adamhousley/status/1401233531699810306?ref_src=twsrc%5Etfw)
+此时占中运动已进入第75日，12月10～11日警方陆续在多个区域上门拘捕4名占中人士“行动派”核心成员，有社民连副主席黄浩铭、人民力量执委苏浩、学生前线成员郑锦满和热血公民创办人黄洋达。 12日金钟清场全面开始，早上9点左右，禁制令范围内的清场行动便开始了，10点左右200名示威者留守夏悫道，不怕被捕。下午1点半警方发出最后通牒，占领区人士必须在半小时内离开，否则再离开时要登记身份证备日后追究用。但仍有上千名无惧被捕不离开并高呼「警察可耻」。下午4点，警方开始处理静坐在夏悫道组成人链高呼着口号「我要真普选」，「无畏无惧」相互鼓励打气的示威者。晚上数十名市民举着黄雨伞队被捕者大呼「加油」为他们打气。整个清场历时13小时多，一共拘捕247名人士，包括学联秘书长周永康和15名泛民主派立法会议员，罪名非法集结，阻碍警察办公等。有909名市民被登记身份证后离开，有被追究风险。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15015754/6154.jpg)图片来源：维基百科
+12月15日，警方清理占中人士占领的最后一个地方——铜锣湾占领区，800名警察一齐动手，将由糖街至波斯富街一段怡和街及轩尼诗道将全线封闭。警方在早上10点多设立封锁线，任何人不得入封锁线内，整个过程历时两个多钟，颇为顺利，并未遇到反抗。有大批市民在封锁线范围外围观或高叫口号。至此，历时79天的争取民主普选的＂占领运动＂告一段落。
+
+香港人对真普选的追求，可谓拼命力争，无畏无惧。发起一场又一场的上街游行，展开一轮又一轮的占领，对抗，体现出香港人顽强拼搏的精神，和为自己的权利而努力。是香港回归后港人逐渐看穿中共举着「一国两制，港人治港，高度自治」的幌子，实则独裁的统治和谎言，而奋起争取，对抗和独裁者撕裂必然结果，占中人士最后一个占领区被警方清场，叫得最欢的是中共，大陆所有媒体一片欢腾。这是香港历史上第二大的运动， 是香港人用鲜血，泪水与汗水谱写的历史，是为了自由，民主，真普选，前赴后继与中共展开永不退缩的战斗。
+
+（未完待续）
+
+
+【本文仅代表作者个人观点】
+
+
+参考链接：
+[维基百科-金钟清场行动](https://zh.m.wikipedia.org/wiki/%E9%87%91%E9%90%98%E6%B8%85%E5%A0%B4%E8%A1%8C%E5%8B%95)
+
+[维基百科-「对准政权，誓争民主」包围政府总部行动](https://zh.m.wikipedia.org/wiki/%E3%80%8C%E5%B0%8D%E6%BA%96%E6%94%BF%E6%AC%8A%EF%BC%8C%E8%AA%93%E7%88%AD%E6%B0%91%E4%B8%BB%E3%80%8D%E5%8C%85%E5%9C%8D%E6%94%BF%E5%BA%9C%E7%B8%BD%E9%83%A8%E8%A1%8C%E5%8B%95)
+
+[美国之音-香港占中运动新发展双学为围堵港府行动失败鞠躬致歉](https://www.voachinese.com/a/student-leaders-admite-faliure-20141202/2542117.html)
+
+[路透社-香港警方对最后占领区铜锣湾清场](https://www.reuters.com/article/hk-clear-site-picture-idCNKBS0JT09120141215)
+
+导读：
+中共超限战灭港行动
+
+[中共超限战灭港行动（一）临时立法会成立](https://gnews.org/zh-hans/1163020/)
+
+[中共超限战灭港行动（二）是谁为临时立法会摇旗呐喊？](https://gnews.org/zh-hans/1170091/)
+
+[中共超限战灭港行动（三）临立会主席范徐丽泰与特首董建华的父辈们](https://gnews.org/zh-hans/1178528/)
+
+[中共超限战灭港行动（四）变色龙范徐丽泰](https://gnews.org/zh-hans/1183152/)
+
+[中共超限战灭港行动（五）公安恶法匆促落实](https://gnews.org/zh-hans/1187269/)
+
+[中共超限战灭港行动（六）英解密档案](https://gnews.org/zh-hans/1200256/)
+
+[中共超限战灭港行动（七）基本法](https://gnews.org/zh-hans/1217241/)[23](https://gnews.org/zh-hans/1217241/)[条如何产生](https://gnews.org/zh-hans/1217241/)
+
+[中共超限战灭港行动（八）基本法](https://gnews.org/zh-hans/1230623/)[23](https://gnews.org/zh-hans/1230623/)[条与港版国安法有什么关系](https://gnews.org/zh-hans/1230623/)
+
+[中共超限战灭港行动（九）](https://gnews.org/zh-hans/1236409/)[0708](https://gnews.org/zh-hans/1236409/)[双普选政改梦想与曾宪梓](https://gnews.org/zh-hans/1236409/)
+
+[中共超限战灭港行动（十）](https://gnews.org/zh-hans/1241573/)[0708](https://gnews.org/zh-hans/1241573/)[双普选梦想破灭](https://gnews.org/zh-hans/1241573/)
+
+[中共超限战灭港行动（十一）](https://gnews.org/zh-hans/1247459/)[0708](https://gnews.org/zh-hans/1247459/)[双普选第五份报告遭民意否决](https://gnews.org/zh-hans/1247459/)
+
+[中共超限战灭港行动（十二）双普选政改被否后的“爱国者论”](https://gnews.org/zh-hans/1250435/)
+
+[*中*共超限战灭港行动（十三）](https://gnews.org/zh-hans/1252992/)[2012](https://gnews.org/zh-hans/1252992/)[双普选被否和遁序渐进民主政制的骗局](https://gnews.org/zh-hans/1252992/)
+
+[中共超限战灭港行动（十四）](https://gnews.org/zh-hans/1255969/)[2010](https://gnews.org/zh-hans/1255969/)[年元旦还我普选大游行和](https://gnews.org/zh-hans/1255969/)[零八宪章](https://gnews.org/zh-hans/1255969/)
+
+[中共超限战灭港行动（十五）](https://gnews.org/zh-hans/1258853/)[2017](https://gnews.org/zh-hans/1258853/)[年双普选咨询给中共带来的恐惧](https://gnews.org/zh-hans/1258853/)
+
+[中共超限战灭港行动（十六）让爱与和平占领中环前夕](https://gnews.org/zh-hans/1261582/)
+
+[中共超限战灭港行动（十七）特首梁振英警告恫吓占领中环运动](https://gnews.org/zh-hans/1263765/)
+
+[中共超限战灭港行动（十八）占中运动尚未开始 中共已吓尿了](https://gnews.org/zh-hans/1265816/)
+
+[中共超限战灭港行动（十九）占中运动筹备如火如荼](https://gnews.org/zh-hans/1268414/)
+
+[中共超限战灭港行动（二十）](https://gnews.org/zh-hans/1270792/)[622公投](https://gnews.org/zh-hans/1270792/)
+
+[中共超限战灭港行动（廿一）中共卑鄙手段：反占中](https://gnews.org/zh-hans/1272990/)
+
+[中共超限战灭港行动（廿二）占中运动开始](https://gnews.org/zh-hans/1275025/)
+
+[中共超限战灭港行动（廿三）占中运动之](https://gnews.org/zh-hans/1277771/)[922罢课](https://gnews.org/zh-hans/1277771/)
+
+[中共超限战灭港行动（廿四）占中运动之移师添马公园](https://gnews.org/zh-hans/1280070/)
+
+[中共超限战灭港行动（廿五）占中运动之缉拿梁振英](https://gnews.org/zh-hans/1285000/)
+
+[中共超限战灭港行动（廿六）雨伞运动之重夺公民广场](https://gnews.org/zh-hans/1299424/)
+
+[中共超限战灭港行动（廿七）雨伞运动 之 正式占中](https://gnews.org/zh-hans/1301977/)
+
+[中共超限战灭港行动（廿八）雨伞运动 之](https://gnews.org/zh-hans/1304855/)[928催泪弹驱散行动](https://gnews.org/zh-hans/1304855/)
+
+[中共超限战灭港行动（廿九）雨伞运动 之 旺角铜锣湾事件](https://gnews.org/zh-hans/1311759/)
+
+[中共超限战灭港行动（三十）雨伞革命 之 七警案](https://gnews.org/zh-hans/1314145/)
+
+[中共超限战灭港行动（卅一） 雨伞革命之旺角亚皆老街清场行动](https://gnews.org/zh-hans/1316531/)
+
+[中共超限战灭港行动（卅二）雨伞革命 之 弥敦道清场对峙流动占领](https://gnews.org/zh-hans/1318903/)
+
+[中共超限战灭港行动（卅三）雨伞革命 之 金钟清场冲突](https://gnews.org/zh-hans/1321190/)
 
 
 
-但是针对亚当·豪斯利 (Adam Housley)针对中国叛逃者的这个故事的站台情况来分析，就感觉有些蹊跷了。因为根据路德社的7号的报道和深入的分析情况来看，这一波操作不能不说是中共九层妖塔和十面埋伏的力量。综合判断前面亚当·豪斯利 (Adam Housley)的出色表现，肯定会在中共BGY涉猎计划范围内的人士。针对在西方这么优秀的记者，肯定是锁定拿下的目标，而到关键时刻出来跟中共进行洗地站台，迷惑观众，带风向。我们不能不对亚当·豪斯利 (Adam Housley)的前面的正义所感动，但是即使这么优秀和正义的人士，也会被中共最终拿下，可想中共对西方的新闻界腐蚀的程度之深，面之广，是我们常人无法想象的，这也是为什么他突然出来站台来确认这个外逃信息后有如此之多的西方人士和我们自己的战友被迷惑。
+*审稿：卡西欧 / 校对：文粤 / 上传：天网灰灰*
 
-因此，我们战友们必须要在最近的真相传播过程种，务必要擦亮眼睛，辨别真伪，学会独立思考和逻辑思维能力，不要被任何假象所迷惑，另外就是需要我们时刻跟进郭先生，路德社，闫博士和西方各界被证明的正义力量的观点。辅助自己做出正确的判断和决策。灭共路上不仅仅是清楚毒瘤的过程，也是我们自己升华的过程，希望我们每个战友能够在灭共后成为真正的独立思考的个体。为新中国联邦的未来建设贡献自己的力量。
-
-（文中观点只代表个人观点）
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0

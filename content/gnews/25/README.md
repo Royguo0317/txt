@@ -1,61 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】原材料价格涨价潮猛烈，光伏产业夹处残存
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1323363/)
+## 【有声读物】三星进军欧洲，与英国达成5G网络交易
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1323437/)
 
-作者：香草山农场  鹰(文言)
+配音：香草山录音组 蒙古鸿雁
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-澎湃网6月13日报道，自2020年下半年全球硅料价格上涨以来，不但所谓拐点从未出现，反而硅料价格上涨趋势愈演愈烈。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15004108/Untitled-design-2021-06-14T223729.103.png)
-根据光伏行业协会的《关于促进光伏行业健康可持续发展的呼吁》，2021年一季度多晶硅价格已经达到2020年底的2.5倍以上，且上涨趋势仍未得到缓解，参见有色金属工业协会6月9日数据，当周国内单晶复投料价格周环比涨幅达2.31%。
-
-中共在16年提出《太阳能发展“十三五”规划》，逐步提升太阳能发电在能源系统的占比，到2020年底，太阳能发电量达1.1亿千瓦以上。虽然2020年CCP病毒疫情造成经济萎靡，但在政策的号召以及各种扶持下，国内光伏发电依旧快速增长，2020年光伏新增装机4820万千瓦（同比涨幅达60.1%），截至12月底，光伏并网装机2.53亿千瓦（同比上涨23.9%），同时风电、太阳能累计发电量在全国总发电量的占比提高至9.5%，其中光伏项目发电2605亿千瓦时，占比约3.4%。
-
-然而虽然2020年光伏产业在国内经济惨淡下实现“逆增长”，但由于光伏玻璃等原材料价格的上涨（如3.2mm光伏玻璃从年初的29元/平方米涨至11月中旬的42元，同比涨幅44.8%），在玻璃涨价的同时，却是产能的供应脱节，以致2020年11月，东方日升、晶澳科技等六大光伏巨头发出上游玻璃产业提高产能的倡议。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15004142/Untitled-design-2021-06-14T223942.776.png)
-2020年国内硅料产量39万吨，进口10万吨，进口依存度约为20%，再者由于2021年后一方面是由于新冠疫情导致全球经济衰退，线上经济“抬头”，对硅料等需求增大，硅料等原材料价格上涨（2021年一季度硅料上涨51%、硅片涨34%、电池片涨20%、组件涨4%、玻璃降37%）；另一方面则是依照中共近年来不断提高光伏发电的比重，国家政策方面对光伏产业的推动导致国内需求量继续加大，供求的不平衡造成硅料涨价潮愈演愈烈，再加上国际航运成本的上涨，光伏产业的成本被极具拉大。
-
-虽然2020年光伏产业较快增长，但一方面是疫情防控下各种生产生活被放缓，国内外市场惨淡，另一方面则是运营开支、供销运输等环节的成本加大，2020年大量光伏企业处于盈利锐减的状态。而2021年不但原料的涨价幅度提高，铁矿石、钢材等大宗商品价格的价格上涨也带动了光伏产业整体生产成本的加大。而中共却依旧按照原定的计划推进光伏产业的覆盖面以及占比，行政干预下市场需求未减，但供货上游却接连出现停产线、停工、裁员现象。即便光伏企业各种号召，但由于国际整体硅料及其他原材料价格上涨趋势不变，再有20%的进口依存度不减，所以光伏行业的亏本经营仍将难以改善。
-
-新闻来源：
-
-观察︱硅料“滚烫”，光伏“内耗”，谁在助推价格暴涨？https://www.thepaper.cn/newsDetail\_forward\_13131015
-
-“疯狂”的光伏价格：硅料破140元/kg，硅片再涨6.8％ https://new.qq.com/omn/20210416/20210416A04VSB00.html
-
-光伏玻璃涨价，巨头“抱团叫苦”http://www.eeo.com.cn/2020/1121/436559.shtml
-
-2020年中国光伏发电行业产业链现状及发展前景分析 2025年总装机规模有望突破500GWhttps://bg.qianzhan.com/report/detail/300/201019-7139dd76.html
-
-2020年全国各省光伏、风电装机、发电量详情一览http://escn.com.cn/news/show-1176658.html
-
-硅业分会专家解读硅料供需 https://www.sohu.com/a/449386821\_135357
-
-校对/发稿：火内
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/06061038/6_june-2.jpeg)
+
+英国电信集团沃达丰（Vodafone）周一表示，已经选择三星电子为英国供应其5G网络设备，这是这家韩国公司在欧洲电信设备市场的一个突破。
+
+英国在2020年早些时候宣布了对华为的限制：英国移动供应商被禁止在2020年12月31日之后购买新的华为5G设备，他们还必须在2027年年底前将所有华为设备从其5G网络中移除。英国认为，不论是从目前还是从长远来看，虽然供应禁令将使英国的5G推广工作推迟一年，但这不是一个简单的决定，这对于英国的电信网络、国家安全和经济来说，是一个正确的决定。
 
 
+
+**文字版原文：[【热点播报】三星进军欧洲，与英国达成5G网络交易](https://gnews.org/zh-hans/1322626/)**
+
+作者：纽约香草山写作组 四季
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-+2
+0

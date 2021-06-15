@@ -1,33 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】找寻在百年阅兵前的彩排中嗡嗡作响的中国隐形战斗机
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1323330/)
+## 【有声读物】白话（五）救赎，基督信仰的独特性
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1323364/)
 
-勒德登于2021 年 6 月 14 日发表文章描述中国战机排练阅兵的情景：
+配音：香草山福音部 Daxia
 
-中国共产党成立100周年庆典即将于7月1日举行。自然，像任何政府主办的大型战争机器庆祝活动一样，需要做很多准备。上周末，有人看到中国人民解放军（PLA）在一次彩排活动中驾驶各种战机和直升机，但引起我们注意的是隐形战斗机和新型重型直升机的视频。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-据官方媒体《 环球时报》报道，北京天安门地区成千上万的人凝视着天空，战机和直升机正在练习飞行编队。《环球时报》补充说，此次活动包括“热身、盛会、进出以及紧急情况的准备”。
 
-周日上午白天，在彩排中可以看到几架解放军战机在天空中飞行，其中包括数十架直升机组成的“100”编队，歼10战斗机编队代表“71”或7月。北京杂志《航天知识》周日报道，1 月 1 日是中国共产党的生日，由 5 架歼20 隐形战斗机组成的编队。——环球时报
 
-随着美国和中国之间的紧张局势在拜登政府的领导下继续恶化，中国显然是在向西方发表声明。两国之间的大国博弈，正把两国越来越靠近修昔底德陷阱。
 
-上传到社交媒体上的视频令人印象深刻。我们很惊讶“战神”隐形轰炸机没有出现在即将到来的庆祝活动中，或者可能会出现
 
-小象：目前尚不知道是否有没有战神隐形轰炸机，据之前有网友扒出来，关于卫星发射，导弹发射，还有卫星登录，航母演练的等“令人印象深刻”的视频，很多都是通过编辑剪辑的假视频，希望这次所有的视频都是真实的。如果有网友恰好看到拍到，欢迎上传或者下方留言，发给我们分享。
 
-参考链接：
 
-[https://www.zerohedge.com/geopolitical/chinese-stealth-fighters-buzz-beijing-fly-over-rehearsal-ahead-centenary-parade](https://www.zerohedge.com/geopolitical/chinese-stealth-fighters-buzz-beijing-fly-over-rehearsal-ahead-centenary-parade)
+三位一体的上帝创造了宇宙万物和人类。当人犯罪堕落后，圣子耶稣基督道成肉身，来到世上生活、传道、受死、复活，完成了救赎大功，使我们可以藉着耶稣基督因信称义，罪得赦免，恢复与神的关系，救赎得以成就在我们身上。这就是基督信仰的核心。
 
-图片来源：[https://www.zerohedge.com/](https://www.zerohedge.com/)
+有一个问题常常困扰人，就是在“使救赎得以成就在我们身上”这件事上，我用自由意志做出的决定、我用信心迈出的一步、甚至于我对神的信心，算不算我的付出，算不算我的主动付出？换句话讲，我能得救赎是不是也有我的一点功劳或一丝苦劳？上帝的救赎到底要不要我们帮忙才能完成？
 
-整理撰稿：蓝精灵
 
-校对发布：Penny
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+**文字版原文：[【信仰之声】白话（五）救赎，基督信仰的独特性](https://gnews.org/zh-hans/1318847/)**
+
+作者：纽约香草山福音部  Jinglechenge
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
