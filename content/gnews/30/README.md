@@ -1,76 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒杀人新冠疫苗接着捅刀
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1323774/)
+## 德克萨斯州医护人员被迫选择接种中共疫苗或失业的诉讼被法官驳回
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1323831/)
 
-台湾宝岛农场 斗阵来拼
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15034818/%E6%93%B7%E5%8F%96615-5.jpg)图片来源:取自蔡英文总统脸书
+- 作者：**wenwu**
 
-根据台湾中央疫情指挥中心表示，全民免费接种中共疫苗开打日为6月15日，分为十大类对象及依照优先顺序施打，目前已确定开放到第六类对象（75岁以上）长者皆可免费接种中共病毒疫苗的趋势看来实在令人忧心。
 
-**台湾公布十大类对象及优先顺序：**
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-1、医疗院所执业医事人员（50.6万人）
+**西班牙2021年6月15日电/西喜社——**
 
-2、中央及地方政府防疫人员（13.9万人）
+德克萨斯州一名联邦法官周六[驳回了](https://abcnews.go.com/US/judge-tosses-lawsuit-houston-hospital-staff-vaccine-mandate/story?id=78254499)医护人员的诉讼，他们指控雇主“非法强迫员工”接受中共疫苗。
 
-3、高接触风险第一线工作人员（6.1万人）
+詹妮弗·布里奇斯和其他116名原告[表示](https://childrenshealthdefense.org/defender/employees-sue-texas-hospital-covid-vaccine-mandate/)，休斯顿卫理公会医院正在强迫员工接种“[实验性](https://www.fda.gov/drugs/types-applications/investigational-new-drug-ind-application#Introduction)和[危险的](https://childrenshealthdefense.org/defender/vaers-data-injuries-deaths-vaccinating-5-year-olds/)”中共疫苗。原告们说，解雇拒绝接种疫苗的员工是“错误的解雇”。
 
-4、因特殊情形必须出国者（0.2万人）
+医院上周[停职了](https://www.cbsnews.com/news/covid-vaccine-houston-methodist-hospital-system-employee-suspensions/)近200名拒绝接种疫苗的员工。
 
-5、机构及社福照护照顾者与受照顾者（46.7万人）
+美国地区法官林恩·休斯裁定，德克萨斯州法律仅在要求员工实施可判处刑事处罚的非法行为时，才保护他们免受解雇。根据[法官的裁决](https://childrenshealthdefense.org/wp-content/uploads/dismissal_methodist_suit_covid_vaccine_mandate.pdf)，“接受新冠疫苗接种不是非法行为，也不受到刑事处罚。”
 
-6、75岁以上长者（150万人）
+原告认称，要求员工接种中共疫苗[违反了联邦法律](https://childrenshealthdefense.org/defender/under-federal-law-can-your-employer-make-you-get-covid-vaccine/)，因为疫苗尚未获得美国食品和药品监督管理局（FDA）批准。其仍然是[紧急使用授权](https://www.fda.gov/emergency-preparedness-and-response/mcm-legal-regulatory-and-policy-framework/emergency-use-authorization#abouteuas)（EUA）产品。
 
-7、维持国家安全及社会机能正常运作人员（86万人）
+休斯驳回了这一说法，称法律授权卫生与公众服务部长推出“用于紧急情况的医疗产品”。
 
-8、65-74岁长者（198.5万人）
+休斯说：“[法律]在紧急情况下赋予卫生与公众服务部长某些权力和责任。它既没有扩大也不限制私人雇主的责任；事实上，在这种情况下，它根本不适用于医院等私人雇主。它不给私人机会起诉政府、雇主或工人。”
 
-9、19-64岁具易导致严重疾病之高风险疾病者、罕见疾病及重大伤病（387.5万人）
+休斯在裁决中[说，](https://www.cbsnews.com/news/covid-vaccine-lawsuit-dismissed-houston-methodist-hospital-system/)声称疫苗是危险的，这是“错误的，它也是不相关的”。
 
-10、50 -64岁以上成人（530万人）
+该裁决意味着德克萨斯州医院的员工必须提供接种中共疫苗的证明，否则将失去工作。
 
-台湾受中共病毒疫情蔓延的影响，大多数民众因不了解病毒来源真相，在恐慌心态作祟下，无不想尽办法以求抢先施打中共病毒疫苗。由台湾近日新闻报导有关「好心肝诊所」被爆出私打疫苗名单释出可知，这些人无不是达官显要就是政商名流，他们透过特权优先施打，殊不知连中共病毒来源真相都未被调查清楚的前提下，怎可能会有可靠的疫苗来救命?是祸，不是福啊，实在可悲!
+[儿童健康保护协会](https://childrenshealthdefense.org/)主席兼总法律顾问玛丽·霍兰德表示，这项裁决“令人失望”，“有理由提出上诉”。
 
-各款中共病毒疫苗的研发程序多不符合正常标准规范、临床报告数据也仍不足，并且必须动用国家机器以使用紧急授权方法所推出的疫苗，众多民众在接种后的副作用及发生不良反应后遗症个案，也随着时间的推进而逐渐攀升，此是显著警讯。
+霍兰德说：“我认为法官误解了联邦法律，没有完全理解紧急使用授权状态的真正含义。因为EUA意味着该产品是实验性的，所以你不能强迫别人接受它。在中共疫苗仍处于EUA期间，任何雇主都不能强制别人使用该疫苗。”
 
-众所瞩目在英格兰西南部的康沃尔郡( Cornwall)举行的**G7峰会**，各国领袖虽有针对中共病毒对全球造成的伤害进行谴责，并要求**世界卫生组织重新调查新冠肺炎病毒(中共病毒)的起源**，但多国领导者仍旧不断地宣扬，唯有加速全球全面普遍施打疫苗才能解除中共病毒威胁的论述，并以草案决议七大工业国集团(G7)未来一年内将供应10亿剂中共病毒COVID-19疫苗，今后几个月就会跟民间部门、20国集团（G20）和其他国家合作提升中共病毒疫苗捐助量的态势看来，政客们纵使早已掌握疫苗无效的相关情报讯息，但依然泯灭良知，只为少数利益集团牟利及服务，牺牲全人类健康也在所不惜。
+代表布里奇斯和其他原告的律师贾里德·伍德菲尔[表示](https://www.foxnews.com/us/texas-judge-tosses-hospital-workers-covid-19-vaccine-requirement-lawsuit)，他的客户“致力于对抗这一不公正的政策”。
 
-其中，**英国首相鲍里斯·约翰逊（Boris Johnson）**的声量极大并提出: **『敦促各国领袖致力让全世界在2022年年底前接种2019冠状病毒疾病（COVID-19）疫苗，将是医疗史上最大的单一功绩』**，由此也不难看出中共国在英国这个国度，蓝金黄的力道之大及渗透程度之深。
+伍德菲尔告诉福克斯新闻，休斯顿卫理公会正在利用中共[疫苗授权](https://childrenshealthdefense.org/defender/vaccine-mandates-an-erosion-of-civil-rights-chd-e-book-available-now/)来促进利润。伍德菲尔说，这家医院正试图说服患者离开他们的医疗保健提供机构，转来休斯顿卫理公会。因为所有员工都接种了疫苗.
 
-**疫苗不是解药是千真万确的论调，所有的真相都被邪恶的中共国所掩盖: **
+伍德菲尔说：“这种思路的问题在于你告诉医院的员工，他们将成为人类的小白鼠。”
 
-病毒科学家阎丽梦博士提出的早期预防治疗方案羟氯喹(HCQ)加锌，现已被多位医学专家用于治疗感染中共病毒的病患并提升存活率的个案不断增加，但这些成功的病例及数据，却被主流媒体刻意掩盖不报导。药物羟氯喹也可从中共国解放军专利申请的文件中可得知，中共国早已知情羟氯喹之预防效用，但邪恶的中国共产党及其同伙集团，反而推倡必须施打诸多副作用未知的疫苗，让疫苗荼害人类的速度加快。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09150839/1-42.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09151343/2-16.jpg)
-中共病毒杀人，接踵而来的灾难是全民接种COVID-19中共病毒疫苗，接种疫苗后所产生的种种不可逆之伤害，将为人类的未来埋下诸多未知的不定时炸弹？在攸关自身生死存亡之际，台湾人们，你们还要当白老鼠抢先去接种免费疫苗吗?
+伍德菲尔说，对原告来说，“这是一个能否支付房贷、支付车贷、养家糊口和避免破产的问题。”“发生成为这样是完全错的。”
 
-(本文只是笔者观点，不代表GNEWS立场)
+休斯顿卫理公会首席执行官兼总裁马克·布姆博士在一份声明中[说](https://www.khou.com/article/news/health/coronavirus/vaccination-deadline-houston-methodist-employees/285-16c0285c-a55b-44b8-8232-5d92d5c122ea)：“……休斯顿卫理公会的26,000名员工中有99%完成疫苗接种要求。不幸的是，剩下的少数人拒绝接种疫苗，医护人员将患者放在首位就应该接受中共疫苗接种。”
 
-(羟氯喹为药物，应考量自身健康状况是否适合，本文仅转传阎丽梦博士对于羟氯喹有效预防病毒的看法)
+**简评：**
 
-参考资料:
+**疫情下，美国法律的极权和自我化已经让人感觉得非常清晰，最终导致通过法庭允许剥夺人权的重大滑稽事件发生。法律和民意不代表实验性疫苗实际数据表现，该法官完全没有理由莽撞驳回医护人员的诉讼，所以这裁决是出于法官自己的恐惧而不是来自法律。**
 
-[211万剂疫苗来了！全民免费接种顺序、时程、预定方式一次看-生活](https://news.ltn.com.tw/news/life/breakingnews/3562550)
+**休斯顿卫理公会医院的马克·布姆博士给出合理注册的理由是，医院的中共疫苗接种率为99%，百人中只有1个人不愿接受强制注射实验性疫苗。对于医院来说就是不想在那1%的人身上浪费精力，毕竟开门是为了赚钱的，而注射疫苗则可以拉更多病人来这家医院。真可谓是显出同中共一模一样的嘴脸。**
 
-[新冠疫苗的危害刚开始– GNEWS](https://gnews.org/zh-hant/1319389/)
+**福奇带出来的兵真是烂透了，美国的医疗保险制度的问题也越来越显现！**
 
-[独家｜好心肝特权疫苗25人名单曝光永丰余何奕佳、詹宏志都去「人山人海诊间」打疫苗｜苹果新闻网｜苹果日报](https://tw.appledaily.com/life/20210611/OS3GCWGX6ZBDHGRP72JO4EUKT4/)
+素材：wenwu； 审核：文乐； 校对：阿伯塔； 发稿：Nuevo唐人
 
-[G7要捐出10亿剂新冠疫苗助全球尽速走出疫情|联合新闻网：最懂你的新闻网站](https://udn.com/news/story/121707/5525119)
+**新闻来源：**[《捍卫者》](https://childrenshealthdefense.org/defender/texas-healthcare-workers-forced-get-covid-vaccine-lose-jobs/)
 
-[疫苗分配不均英首相促G7助全球2022年底前接种|国际](https://www.cna.com.tw/news/aopl/202106060022.aspx)
-
-[Study shows hydroxychloroquine treatments increased coronavirus survival rate by almost three times](https://www.washingtonexaminer.com/news/study-hydroxychloroquine-increase-survival-rate-200-percent)
-
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-
-文章审核：zhong
-
-文章发布：Little Liu
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0
