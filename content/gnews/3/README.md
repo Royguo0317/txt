@@ -1,11 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评】闫博士不知道他的前夫来到美国
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1323927/)
+## 【路德简报】6/14/2021晚：北约称中（共）国及其野心构成系统性挑战
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1323945/)
 
-6/10/2021 闫丽梦博士对她的前夫马亨德拉三个月前出现在美国一无所知。根据马亨德拉在实验室所扮演的角色，闫博士推测，他是由与中共合作的裴伟士所派前来美国，诽谤她的爆料。
-
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
-
+编辑：华盛顿DC农场 路德简报项目组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15042708/20210614-2-scaled.jpg)
 0
