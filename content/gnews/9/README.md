@@ -1,91 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 霍利呼吁国会对冠状病毒进行全面调查
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1323103/)
+## 【小象搬运】台山核电站最新：亨特拜登投资数百万美元投资运营核电站的中国共产党公司
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1323193/)
 
-**字幕内容：**
+2021 年 6 月 14 日娜塔莉·温特斯发表文章：一家被认为正在发生泄漏并构成“迫在眉睫的放射性威胁”的核电站由中国广核集团公司经营：这是一家国有企业，从乔·拜登总统的儿子亨特那里获得了数百万美元的投资。
 
-**听译**
-**Tucker Carlson:
-塔克 卡尔森：**
+根据这家法国公司给美国国务院的一封信，该警告包括一项指控，即中国安全部门正在提高广东省台山核电站外辐射检测的可接受限值，以避免不得不将其关闭。其中一位消息人士称，尽管法国公司法马通发出了令人震惊的通知，但拜登政府认为该设施尚未处于“危机水平”。
 
-So, it’s simple,
-所以，很简单
+拜登团队对此并不担心，因为这家中国工厂的主要运营商中国广核集团公司（CGN）从亨特拜登那里获得了数百万美元的投资。BHR Partners，Hunter Biden 自 2013 年起担任董事的私募股权公司，这是中广核首次公开​​募股的1000 万美元基石投资者。IPO发生在2014年是全年第二大IPO，价值超过30亿美元。该公司主要亨特·拜登，据说保留了相当大的股份，仍列出了GCN作为其组成部分的投资组合在其网站上。
 
-I don’t think it’s an outrageous thing
-我不认为要求联邦政府进行
+中广核是一家国有独资能源公司，其中一名顾问被美国司法部 (DOJ) 定罪，罪名是公司范围内的计划“聘请美国核工程师协助设计和制造核反应堆的某些部件”，近二十年来，据美国司法部称，被盗的机密 “对我们的国家安全造成了重大损害”。
 
-to ask for that there is some sort of organized effort , by the federal government,
-某种有组织的努力，进行调查
+参考链接：
 
-an investigation to get to the bottom of this,
-以查明真相是一件很过分的事情
 
-why isn’t there one?
-为什么没有呢？
 
-Josh Hawley:
-乔什·霍利：
+> [Hunter Biden Invested Millions In Chinese Communist Party Firm Operating Nuclear Plant Reportedly Experiencing Leak.](https://thenationalpulse.com/breaking/hunter-biden-invested-in-nuclear-firm-experiencing-leak/)
 
-Well I think because we’ve seen the media line,
-好吧，我认为因为我们已经看到了媒体路线
 
-which Dr. Fauci has unfortunately promoted over and over ,
-不幸的是，福奇博士一遍又一遍地宣传，
 
-which is the idea that the Wuhan Lab was involved in Covid-19 in anyway, was false.
-即武汉实验室无论如何参与了 Covid-19 的想法是错误的
+图片来源：[https://thenationalpulse.com/](https://thenationalpulse.com/)
 
-That is what they have said over and over “You’re a conspiracy theorist”, they said.
-他们说，这就是他们反复说的“你是阴谋论者”
+整理撰稿：蓝精灵
 
-Dr. Fauci has said, you know, this naturally originating virus,
-福奇博士说，你知道，这种自然起源的病毒
+校对发布：Penny
 
-we shouldn’t ask questions.
-我们不应该问问题
-
-Turns out, Tucker, there are a lot of really legitimate questions,
-事实证明，塔克，有很多真正合理的问题
-
-and I mean a lot of really legitimate questions about the involvement,
-我的意思是很多关于实验室的参与
-
-potential involvement, of a lab,
-潜在参与的真正合理的问题
-
-we need to get to the bottom of it.
-我们需要深入了解它
-
-Dr. Fauci, by the way, knew very well.
-顺便说一下，福奇博士非常了解
-
-His emails tell us he knew in January of 2020,
-他的电子邮件告诉我们，他在 2020 年 1 月
-
-that there was a possible lab connection there.
-就知道那里可能存在实验室联系
-
-Course, he also knew about his connection to gain of function research at that same lab,
-当然，他也知道他在同一个实验室的功能增强研究的联系
-
-and yet he was dishonest about it, and continues to be dishonest about it. That’s a big problem.
-但他对此不诚实，并且继续不诚实
-这是一个大问题
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接**:[https://twitter.com/abigailmarone/status/1402791170657431552](https://twitter.com/abigailmarone/status/1402791170657431552)
-英听校： 康州盘古农场 -Freeearth
-翻译： 康州盘古农场–Freeearth
-翻译终校： 康州盘古农场-Mike Li
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

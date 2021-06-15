@@ -1,116 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】锅言灶语（二季三）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1323096/)
+## 中共国在建党100周年前夕用共产党宣传淹没教会
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1323161/)
 
-***– 真视角之＂画＂外音***
+翻译：康州盘古农场 –  Layka
 
-作者：纽约香草山健身部 澄道
+校对：康州盘古农场 –  心照
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+编辑；康州盘古农场 –  明子
 
+据《www.breitbart.com》加布里埃尔·雷耶斯（Gabrielle Reyes）2021年6月10日报道：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14224953/%E5%9B%BE%E7%89%871-3.jpg)
+据香港《苹果日报》周四报道，中共当局已下令全国少数合法教会在 7 月 1 日前学习和庆祝中国共产党建党 100 周年。
 
+该报称：“中共国的官方天主教堂是最活跃的，一些教区在举行感恩节弥撒时歌颂中共[原文如此]。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14223122/13-%E9%8D%8B%E8%A8%80%E7%81%B6%E8%AA%9E%EF%BC%88%E4%BA%8C%E5%AD%A3%E4%B8%89%EF%BC%89.jpg)
+“在上个月发表的一份声明中，中共国天主教爱国会副主席、中国人民政治协商会议全国委员会委员刘元龙写道：‘上帝选择了中国共产党’”苹果日报透露。
 
-加盟小馆
-招募中
-店长
-里外忙不停
+中共国的宗教事务局成立了中国天主教爱国会(CPCA)，负责监督中共国天主教徒的活动。虽然中国共产党是正式的无神论者，但中共国政府声称允许在中共国境内信仰少数宗教。被容忍的信仰包括基督教的严重改变版本，例如与罗马天主教不同的“天主教”的迭代和一种称为“三自爱国教会”的新教形式。佛教、道教和伊斯兰教在中共国表面上也是被允许的，但只能在共产党的完全控制之下。
 
-先是
-引蝶啪啪兔
-厨二
-试勺
-没几日
-Recall 竟招回
+“我们要坚决拥护以习近平为核心的中国共产党。我们听党的话，跟党走。” 为纪念即将到来的共产党周年纪念日，中国天主教爱国会刘元龙副主席在上个月的官方声明中写道。
 
-再者灵魂
-＂茶花女＂
-不忍卒读
-其实是＂夜读＂
-转身退＂服＂
+中国天主教爱国会主席房興耀(John Fang)在5月发布的另一份声明中强调该组织将继续“深化天主教中共国化”。
 
-传来袅袅
-＂般若波罗蜜＂
-音吆喝
-＂真视角＂
-味正浓
+“我们与党保持高度一致，坚定不移地走爱国爱教之路。”同时担任中共国东部省份山东教区主教的房興耀写道。
 
-新双拼
-＂KK熊＂
-前台站
-似翠花
-腾翠绿
+“中共国化”是指共产党通常使用共产主义价值观篡夺宗教实际价值观的术语，它认为共产主义价值观比宗教更“中共化”。
 
-老三样
-＂般尕康＂
-且磨
-且珍惜
+在中国国家宗教事务总局发布的新规定于 5 月生效后不久，中共国基督教领袖上个月发表了效忠共产党的公开声明。
 
-我从田间来
-带着泥土气息
-脸上有太阳的印记
-只为追逐自由的风
+据苹果日报报道，“宗教人员管理办法规定，宗教领袖和教师必须维护国家安全和民族团结，并加强对他们在海外的收入和培训的审查”。
 
-我自黑暗中
-带着飞天冲劲
-习气上有光的灼望
-只为绽放最璀灿烟花之裳
+该报回忆道，“在二月份的一次会议上，全国政协主席汪洋告诉宗教领袖，要以建党纪念为契机，让宗教教义与社会主义接轨” 。 全国政协是中国政府内部由共产党控制的政治咨询机构。
 
-茶花女前服
-厨二招回者
+中共中央办公厅于5月下令“要求社会各界开展中共历史宣传教育”，以期在7月1日全国庆祝中共成立100周年。 “与（中共政府的）社会主义研究所合作举办课程，并安排追随者到历史遗迹致敬。”据苹果日报报道。
 
-兮语自墙内
-想往正道灭共行
-锅言应墙外
-必得爆料铲毒同
+中共国执政的共产党至少从 4 月开始就鼓励公民参与所谓“红色旅游”。 红色旅游包括参观中共国各地被认为对中国共产党具有历史意义的遗址和纪念碑等。
 
-往事越千载
-未必不是
-心系挣脱
-独裁
+原文链接：[https://www.breitbart.com/asia/2021/06/10/china-floods-churches-with-communist-propaganda-ahead-of-partys-100th-anniversary/](https://www.breitbart.com/asia/2021/06/10/china-floods-churches-with-communist-propaganda-ahead-of-partys-100th-anniversary/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-述说石头记
-岂止拓宽
-满纸荒唐
-丑恶
-
-咒力神圣经
-健身健心
-无我信仰
-执着
-
-慢工出细活
-不吹拉吟唱
-只剩下＂谈＂
-唯真
-
-唉呀玛呀
-这不是
-名服
-＂翠花＂吗？
-….
-
-@爱动爱议码06142
-@酒天＂吠＂共闲白文直播
-@澄道来了
-
-校对/发稿：雪梨
-
-![This image has an empty alt attribute; its file name is 6_june-1.jpg]()![This image has an empty alt attribute; its file name is 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

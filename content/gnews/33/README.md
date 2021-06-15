@@ -1,28 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】一家法国公司警告中共广东台山核电站存在 &#8220;直接的放射性威胁&#8221;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1322832/)
+## 6月14日美国政要推特精选：七国集团呼吁世卫组织开展新冠肺炎源头调查
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1322927/)
 
-作者: Grace 【秘翻Gnews原创组】
-责编：Shifter
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14193452/Screen-Shot-2021-06-14-at-6.33.57-PM.png)图片来源：新闻周刊
-《新闻周刊》6月14日报，在一家部分拥有并帮助运营中共国核电站的法国公司警告说中共国的核电站存在 “直接的放射性威胁”之后，美国政府在上周花了很多时间评估关于中国核电站泄漏的指控。但是该核电站否认了这些指控，并表示其发电机运转正常。
+众议员迈克·加拉格尔： 我们已经看到CCP将如何操纵世卫组织对冠状病毒来源的调查。是时候由自由世界进行一次真正独立的国际调查了。 （转雅虎新闻：七国集团国家呼吁世卫组织开展新冠肺炎源头调查）
 
-据《新闻周刊》的报道，CNN在星期天有报道过，总部位于法国的Framatome公司给美国能源部的一封信警告说，中共国安全当局一直在提高广东省台山核电站外检测到的辐射的可接受限度，以尽可能的不关闭它。Framatome公司的一位发言人在给《新闻周刊》的一份电子邮件声明中说：”Framatome公司正在支持解决中国广东省台山核电站的性能问题。” 并且这位发言人说：”我们的团队正在与相关专家合作，评估情况并提出解决任何潜在问题的方案。”
 
-《新闻周刊》这篇报道还指出一位匿名的美国官员告诉CNN，拜登政府还不认为情况已经到了 “危机级别”。然而，CNN看到的一份6月8日由该公司主题专家发给美国能源部的备忘录称这种情况是 “迫在眉睫的放射性威胁”。备忘录说：”这种情况对现场和公众来说是一种迫在眉睫的放射性威胁，Framatome公司紧急请求允许转移技术数据和协助，因为这可能是使工厂恢复正常运行的必要条件。”
 
-该报道称，美国官员们告诉CNN，国家安全委员会上周就该事件举行了多次会议，拜登政府和能源部曾与法国政府讨论过这一情况。官员们说，华盛顿方面也已就所谓的泄漏事件与北京方面进行了联系。
+> We've already seen how the CCP will manipulate a WHO investigation into COVID origins. It's time for a genuinely independent international investigation conducted by the free world. [https://t.co/s4F0coj1Va](https://t.co/s4F0coj1Va)
+> — Rep. Mike Gallagher (@RepGallagher) [June 14, 2021](https://twitter.com/RepGallagher/status/1404477075046780939?ref_src=twsrc%5Etfw)
 
-但台山核电站周日却表示，关于辐射泄漏达到危险水平的指责是不真实的，这两个反应堆符合安全要求，运行正常。
 
-《新闻周刊》也注意到，关于该厂泄漏的指控在中共国几乎没有受到关注，没有国家媒体报道这个问题，社交媒体平台上几乎没有讨论。
 
-懂得中共邪恶本质的人都明白，中共永远不会允许中国人民说出他们社会的真相。每天，中共都在用它的权力来压制人民的声音。明白的中国人已经知道官媒反着听的道理。如果中共的国家媒体机构不报道某件事情，那肯定意味着它就是真的。中共的国家媒体机构从来都不敢说中共坏话的意识形态洗脑机器。
+众议员迈克·加拉格尔： 尽管彼得·达扎克断言，新的信息表明武毒所饲养了活蝙蝠。这只是另一个支持实验室泄漏假说的证据，更有理由支持对武毒所进行全面、独立的调查。 （转国家评论的报道：是的，武汉病毒学研究所把活蝙蝠关在围墙内）
 
-参考资料： [China Nuclear Plant Leak Response Evokes Chernobyl as Taishan Facility Insists It’s Safe](https://www.newsweek.com/china-nuclear-plant-leak-response-evokes-chernobyl-taishan-facility-insists-safe-1600236)
 
-(本文仅代表作者个人观点)
+
+> Despite assertions by Peter Daszak, new information suggests the WIV housed live bats. This is just another piece of evidence supporting the lab-leak hypothesis and all the more reason to support a full, independent investigation into the WIV.[https://t.co/UYpQGwtq6w](https://t.co/UYpQGwtq6w)
+> — Rep. Mike Gallagher (@RepGallagher) [June 14, 2021](https://twitter.com/RepGallagher/status/1404505192733843456?ref_src=twsrc%5Etfw)
+
+
+
+美国总统拜登： 我们的北约联盟比以往任何时候都更加强大。今天，我将与我们的29个盟国一起，讨论我们的集体防御——包括防范俄罗斯的侵略、来自中国的战略挑战、恶意网络活动、恐怖主义和气候变化。
+
+
+
+> Our NATO Alliance is stronger than ever. Today I’m joining our 29 allies to discuss our collective defense — including from Russian aggression, strategic challenges from China, malicious cyber activity, terrorism, and climate change.
+> — President Biden (@POTUS) [June 14, 2021](https://twitter.com/POTUS/status/1404431080569049094?ref_src=twsrc%5Etfw)
+
+
+
+前国务卿蓬配奥： 我们必须让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 领导人付出实际代价，让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 相信他们必须改变这种给世界制造风险的做法。 【附华盛顿时报文章：蓬配奥“有很大把握确信”武汉实验室与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军方有关】
+
+
+
+> We have to impose real costs on the Chinese leadership to convince them that they’ve got to change the way they’re creating risk to the world.[https://t.co/1ggRSGWSwS](https://t.co/1ggRSGWSwS)
+> — Mike Pompeo (@mikepompeo) [June 14, 2021](https://twitter.com/mikepompeo/status/1404577224167145482?ref_src=twsrc%5Etfw)
+
+
 
 0

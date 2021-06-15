@@ -1,42 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月14日美国政要推特精选：七国集团呼吁世卫组织开展新冠肺炎源头调查
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1322927/)
+## 【世事解评】一年抗疫为中共创收67万亿元；某地接种疫苗两人死亡，仅赔3万元——中共疫苗谎言（三）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1322991/)
 
-众议员迈克·加拉格尔： 我们已经看到CCP将如何操纵世卫组织对冠状病毒来源的调查。是时候由自由世界进行一次真正独立的国际调查了。 （转雅虎新闻：七国集团国家呼吁世卫组织开展新冠肺炎源头调查）
+**作者：经济小组/纽约香草山农场 乱谈秦**
 
-
-
-> We've already seen how the CCP will manipulate a WHO investigation into COVID origins. It's time for a genuinely independent international investigation conducted by the free world. [https://t.co/s4F0coj1Va](https://t.co/s4F0coj1Va)
-> — Rep. Mike Gallagher (@RepGallagher) [June 14, 2021](https://twitter.com/RepGallagher/status/1404477075046780939?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
 
-众议员迈克·加拉格尔： 尽管彼得·达扎克断言，新的信息表明武毒所饲养了活蝙蝠。这只是另一个支持实验室泄漏假说的证据，更有理由支持对武毒所进行全面、独立的调查。 （转国家评论的报道：是的，武汉病毒学研究所把活蝙蝠关在围墙内）
+
+
+接上文《[民众对中共疫苗的质疑与中共的狡辩——中共疫苗谎言（二）](https://gnews.org/zh-hans/1322932/)》
+
+其实，真正了解新冠病毒和爆料革命人都知道，闫丽梦博士早在2020年1月19日通过路德社告诉全世界，中共新冠病毒是中共军方研制的生物武器，病毒变异快，将引起全球大爆发。这已经被现实数据所验证。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14220914/195-0-1.jpg)来源： Shutterstock
+
+中共历史上并没有成功研发疫苗的历史，中共新冠疫苗数据亦不透明。其自称的保护率数据也是全球最低，实际效果更是引发质疑。墙内官方没有公布数据，看看塞舌尔，东非岛国，人口只有约10万，容易统计，很有代表性。
+
+塞舌尔61% 的人口接种了新冠疫苗，接种两剂疫苗的人群中，57%打的是国药疫苗，43%打的是阿斯利康(AstraZeneca)疫苗。根据媒体5月中的报道，近一个月塞舌尔新冠疫情大幅反弹，根据该国卫生部信息，新确诊病例有37%接种了两剂疫苗。
+
+澳大利亚墨尔本默多克儿童研究所儿科医生金姆·马尔霍兰参加过新冠疫苗的临床试验。他称这令人震惊，来自塞舌尔的初步报告显示，国药疫苗的有效率为50%，而不是国药集团宣称的78.1%。——中共疫苗就这样被打脸，更揭示了其宣称的并不高的疫苗保护率也是有很大水分的。
+
+塞舌尔的经历与以色列形成了鲜明对比，以色列的新冠疫苗接种率在世界上排名第二，[已有效地遏制了该病毒](https://www.nytimes.com/2021/04/05/world/israel-offers-a-hint-of-what-post-pandemic-life-may-look-like.html)。一项研究表明，以色列使用的辉瑞疫苗在预防病毒传播上的有效率为94%。据“用数据看世界”项目的统计，5月12日，塞舌尔每百万人中的日新增新冠病毒确诊病例为2613.38例，而以色列只有5.55例。
+
+与疫苗保护率相比，另一项重要指标是安全性。墙内网络上经常有由于接种中共新冠疫苗导致心脏衰竭、面瘫等严重副作用甚至死亡的信息，中共并没有对此进行研究和统计，或者有也从不详细公布，反而屏蔽封杀此类信息。
+
+据媒体报道，截至4月底，香港累计有27例接种疫苗后死亡的个案，其中21例接种科兴疫苗，3例接种复必泰（BioNTech）疫苗。截至4月18日，有29例面瘫个案曾接种疫苗，其中22例涉及科兴疫苗。根据香港政府新闻网数据，5月3日到30日，有34例面瘫，其中10例接种科兴疫苗，24例接种复必泰疫苗。
+
+其实，爆料革命和闫博士已经通过科学证据和分析进一步向世界揭示，中共新冠疫苗就是中共安装在人体的定时炸弹。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14220925/195-2.jpg)来源：RFA.ORG
+
+同时，中共新冠疫苗也是中共欲通过疫苗经济、疫苗外交进一步控制世界的工具。北京大学国家发展研究院教授、中国健康发展研究中心主任李玲，2020年11月21日在广州“读懂中国”论坛透过简报披露，中国仰赖对抗新冠肺炎，创造价值约人民币67万亿元人民币收益，其中11万亿元为经济收益。
+
+看了收益，再看看中共疫苗死亡病例的赔偿。今日笔者同中共国中部某地的朋友聊了下新冠疫情，当地两名男子接种疫苗后死亡，分别为50余岁和70余岁。而朋友对第一个比较了解，据称政府仅赔偿了3万元人民币，且明确告知死者家属，就这么多，没得谈。
+
+所以说，中共新冠病毒是中共的超限生物武器（闫博士语），中共新冠疫苗则是进一步谋财害命的工具。接不接种，你自己看着办。
+
+(文章仅代表作者本人观点)
+
+参考来源：
+
+[接种比例全球最高， 塞舌尔为何疫情反弹？](https://www.voachinese.com/a/seychelles-vaccines-20210518/5895146.html)
+
+[接种科兴疫苗后面瘫多为男性　常于48小时内发生](https://today.line.me/hk/v2/article/oBEQP6)
+
+[北大学者美化疫情 反称产生67万亿元收益](https://www.rfa.org/mandarin/yataibaodao/huanjing/ql1-12032020111551.html)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
+
+校对/发稿：小鹿
 
 
 
-> Despite assertions by Peter Daszak, new information suggests the WIV housed live bats. This is just another piece of evidence supporting the lab-leak hypothesis and all the more reason to support a full, independent investigation into the WIV.[https://t.co/UYpQGwtq6w](https://t.co/UYpQGwtq6w)
-> — Rep. Mike Gallagher (@RepGallagher) [June 14, 2021](https://twitter.com/RepGallagher/status/1404505192733843456?ref_src=twsrc%5Etfw)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
 
-
-美国总统拜登： 我们的北约联盟比以往任何时候都更加强大。今天，我将与我们的29个盟国一起，讨论我们的集体防御——包括防范俄罗斯的侵略、来自中国的战略挑战、恶意网络活动、恐怖主义和气候变化。
-
-
-
-> Our NATO Alliance is stronger than ever. Today I’m joining our 29 allies to discuss our collective defense — including from Russian aggression, strategic challenges from China, malicious cyber activity, terrorism, and climate change.
-> — President Biden (@POTUS) [June 14, 2021](https://twitter.com/POTUS/status/1404431080569049094?ref_src=twsrc%5Etfw)
-
-
-
-前国务卿蓬配奥： 我们必须让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 领导人付出实际代价，让 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 相信他们必须改变这种给世界制造风险的做法。 【附华盛顿时报文章：蓬配奥“有很大把握确信”武汉实验室与 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 军方有关】
-
-
-
-> We have to impose real costs on the Chinese leadership to convince them that they’ve got to change the way they’re creating risk to the world.[https://t.co/1ggRSGWSwS](https://t.co/1ggRSGWSwS)
-> — Mike Pompeo (@mikepompeo) [June 14, 2021](https://twitter.com/mikepompeo/status/1404577224167145482?ref_src=twsrc%5Etfw)
 
 
 
