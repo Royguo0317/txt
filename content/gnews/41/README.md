@@ -1,14 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 塞林博士对病毒起源的最新消息
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1324990/)
+## 2021年6月15日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1325055/)
 
-- 制作：视频组
+編輯整理：** 西班牙巴塞羅那喜悅農場 **（文惜）
 
+😭😭😭
 
-发稿：信心的选择
+[【2021年6月15日】文贵先生盖特原文](https://getome.com/post/pwngz)
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+**喜联盟Gnews编辑部**
 
-+2
++1

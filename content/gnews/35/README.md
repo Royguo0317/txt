@@ -1,39 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：司法部长梅里克•加兰宣布他的司法部将严查任何旨在寻找违反投票法的证据的选举后审计！
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1325080/)
+## 【世事解评】聊聊中共国信访的那些事
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1325125/)
 
-翻译：Elsie｜校对：JS709｜审核：断播
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15140040/election-fraud-2020-ballots-ga-tcf.jpg)
-**腐败的司法部**** (DOJ) ****及其联邦调查局**** (FBI) ****完全无视**** 2020 ****年大选中的泛滥的选举犯罪。 因此，现在腐败的司法部长决定威胁任何参与选举审计的人，以防止他们调查选举中的犯罪和欺诈行为也就不足为奇了。**
+作者：香草山福音部 Williams
 
-司法部完全无视 2020 年选举中的选举犯罪。我们转向的每个地方都有各个层面的犯罪和腐败，但我们的主流媒体、司法部及其联邦调查局都视而不见，大型科技公司禁止提及任何选举犯罪。 让所有这些机构跳上同一艘腐败的船，这可不是一件小事。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
-我们发现了这一点并对此进行了报道，不是司法部 – 他们忽略了它。在 2020 年大选后的清晨，数千张选票送到了底特律 (Detroit) 的投票地点，这些选票全都投给了乔·拜登：
 
-[**独家：****TCF ****中心选举舞弊**** – ****新发现的视频显示，在截止期限****8 ****小时后的深夜，交付了数万张非法选票**](https://www.thegatewaypundit.com/2021/02/exclusive-tcf-center-election-fraud-newly-recovered-video-shows-late-night-deliveries-tens-thousands-illegal-ballots-michigan-arena/)
 
-已[确认：法官推迟佐治亚州 (Georgia) 选举工作人员鲁比·弗里曼（ Ruby Freeman） 和她的女儿雪伊·莫斯（ Shae Moss） 的证词](https://www.thegatewaypundit.com/2021/06/confirmed-judge-delays-depositions-georgia-election-workers-ruby-freeman-daughter-shae-moss/)
+再次打开中共国某地的12345官网，那些楼盘、那些有诉求的公民的投诉依然在！到底他们反映不公的事有人解决吗？这类事件为什么一直持续发生？
 
-我们拍摄了这段视频，并确定该团伙将所有人踢出亚特兰大 (Atlanta) 投票站，然后从桌子底下拉出选票，在无人看管的情况下将选票扔进制表机两三遍。 对他们来说，不幸的是，摄像头是开着的。 但到目前为止，这并不重要，因为 DOJ 和 FBI 已经忽略了所有这些证据：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15143158/1920px-Reception_office_of_State_Bureau_for_Letters_and_Calls_20170823154536.jpg)
 
-[难以置信：佐治亚州的“手提箱丑闻”-反川普民主党人在制表机上运行相同批次的选票三次！ （视频）](https://docs.google.com/document/u/0/d/137RD_sc281-rjcHLWGiLdeMtZHpjyeeZWwil-SOzNo0/edit)
+中共国的信访部门是最具中共国特色的部门，自我标榜是人民自愿平等协商、各方互谅互让解决问題的所谓的一个调解委员会，自称非常强调民主、自愿、依法调解。当然说到这里，各位战友一定会有相反的意见，这么多年来，战友眼见的各地的截访访民、非法禁锢访民、用所谓的黑力量“解决”访民的影像时刻都会在脑海出现。何来民主、自愿？因为听不见访民的声音时，中共国可以说，他们民主解决了访民反映的诉求，“依法”解决了，他们没有意见了。
 
-监管链法在多个州被忽视，但 DOJ 和 FBI 并不关心：
+在中共国发达地区的信访部门，人们最多的投诉大致分为住房类、社保类、环境类和教育类！住房类大致反映：1）新房的质量问題；2）房屋的销售出现乱收费问題；3）楼盘规划随意变更问題；4）农民建房受到各种层出不穷的条例制约不能建房问題；5）自己的房屋违章遭到拆毁，而人家同样的房屋没有拆毁的问題；6）物业服务与业委会筹建问題。社保类大致反映：1）保险没有任何条款，由社保部门单方面自己定理赔范围标准问題；2）保险无法购买问题；3）保险计算年限存在争议问題。环境类大致反映：1）垃圾掩埋场、垃圾站建立不公开、不合理问題和污染问題；2）公路噪音超标，无人负责处理降噪的问題。教育类问題大致反映：1）学位长期不足问題；2）食堂食物问題。
 
-[必读：民主党人只有在 2020 年打破每个摇摆州的监管链，才能“获胜”](https://www.thegatewaypundit.com/2021/02/must-read-democrats-able-win-2020-breaking-chain-custody-laws-every-swing-state/)
+在中共国里，如果人们遇到这些问題，他们都会极端无奈与无语。我曾经见过一个楼盘的业主们，遇到了垃圾站处理垃圾不合理造成污染的问题，但无人解决他们的诉求。于是他们就顶着烈日在广场叫口号，当然也不敢做任何违法的事，最后当地的信访部门接待了他们，然后安排了一个协调会。也谨此而已，而问题依然如故……。这真是一群仓廪实而知礼节、衣食足而知荣辱的人遇见一群流氓，真的只能认命。
 
-但现在，随着美国爱国者们花时间自愿参与并帮助在审计中揭露欺诈和腐败，美国司法部终于承认存在选举（欺诈）。 司法部长表示，他和他的律师和调查团伙将仔细审查在审计期间采取的每一个行动，以恐吓和阻止审计的进行。
+我并不是特意要贬低中共的信访制度落后，也许人在信访事件中，会遇见有良知的人，用公平、用规则处理问題。但这是一项人治的制度，要取决于处理问題的人是否有良知，那个地区是否有相对的公平，还有那里的风俗习惯。共产党用约谈、隐性威权处理这些社会问题，不得不说在它70年的历史中是解决了一些问题的，至于人们是否真的心服口服，这是存疑的。可是共产党将要彻底离开神州大地了，在没有共产党的日子里，是没有这种威权的环境的，这种信访制度是不可能存在的。只有建立各种NGO组织谦卑地在信仰与法治下，才能代替这种匪夷所思的制度。
 
-[恐慌模式！！ 当司法部长梅里克·加兰（Merrick Garland）宣布美国司法部将严查任何旨在寻找违反投票法的证据的选举后审计时，你知道你已经结束了！！](https://twitter.com/Cam_Music/status/1403427202184613888?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1403427202184613888%7Ctwgr%5E%7Ctwcon%5Es1_c10&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2021%2F06%2Fbreaking-ag-merrick-garland-announces-doj-will-scrutinize-post-election-audits-evidence-voting-law-violations%2F)
+校对/发稿：飞虹
 
-我们知道他们会做些什么。现在，深层政府终于采取了这一行动，并威胁任何敢于相信自己直觉并想协助撤销 2020 年选举的欺诈性选票的人。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
 
-**我们终于可以说美国是一个由一群骗子经营的香蕉共和国了吗？**
 
-原文作者：乔·霍夫特（Joe Hoft)
-发布时间：2021年6月11日 15:03
-原文链接：https://www.thegatewaypundit.com/2021/06/breaking-ag-merrick-garland-announces-doj-will-scrutinize-post-election-audits-evidence-voting-law-violations/
 
-+2
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

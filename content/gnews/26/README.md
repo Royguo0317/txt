@@ -1,77 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉生物实验室当病毒浮出水面时，有超过15000个实验文件“消失”了
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1325134/)
+## 福克斯发文称拜登与G7不敢让中共对病毒负责
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1325215/)
 
-**字幕内容:**
-national intelligence agencies examining whether an accidental leak may have started the global pandemic.
-国家情报机构正在审查是否是一次实验室意外泄漏引发了全球大流行病
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-tonight we have new information that will be of great interest to the probe announced by US. president Joe Biden.
-今晚我们得到新的信息，这将与美国总统乔·拜登宣布的调查有很大的关系
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15162202/L-1.jpg)westsiderepublicanclub.org
+《福克斯新闻》发表文章，“利兹·皮克（Liz Peek）：拜登、七国集团在中共国的测试中不及格——让北京为中共病毒负责？不可能。这就是原因。” 副标题，七国集团领导人同意通过投资第三世界的基础设施来惩罚中共国。
 
-we can show you footage from inside the Wuhan Institute of Virology
-我们可以向您展示武汉病毒研究所内部的录像
+全文如下：
 
-and interviews with the very scientists
-以及对科学家的采访
+你认为拜登总统会说服自由世界对中共国采取强硬态度吗？不可能。
 
-at the heart of one of the greatest cover up the world has ever seen.
-他们是这场全世界前所未有的掩盖行为的核心
+最近几天，拜登会见了美国最重要的盟友、七国集团的领导人，这次会议是在世界上有史以来最严重的一次恶行之后召开的——中共国在全球肆意释放致命病毒，造成数百万可预防的死亡和数万亿的经济损失。
 
-how did the COVID-19 global pandemic start?
-COVID-19全球大流行病是如何开始的？
+中共国必须付出代价，这是拜登的简报。
 
-Did the virus derive from bats end up in the wuhan lab causing an inadvertent leak?
-是否来自蝙蝠的病毒最终进入了武汉的实验室，造成了无意中的泄漏？
+结束会谈后，七国集团领导人同意通过……投资第三世界基础设施来惩罚中共国。
 
-or was there an infected worker?
-或者是因为有一个被感染的研究人员？
+是的，这就是计划，这是北京将要承受的惩罚，因为北京在病毒问题上撒了谎，否认了病毒在人与人之间的易传播性，压制了警告其危险性的告密者，以及——可能——在武汉病毒研究所制造了病毒。
 
-evidence from this footage will shed more light on some of these questions.
-这段录像中的证据将为其中一些问题带来更多的启示
+拜登已经说服他的国家元首同行，不仅美国可以“重建得更好”，而且这个集体组织应该推动一场旨在缩小发展中国家40万亿美元基础设施需求的“重建更美好世界”（B3W，Build Back Better World）运动。
 
-The Wuhan Institute of Virology was built by the Chinese and French governments in a deal designed to promote international scientific research.
-武汉病毒学研究所是由中国和法国政府
-在一项旨在促进国际科学研究的交易中建立的
+猜猜谁最终会承担大部分？据《南华邮报》（the South China Post）报道，“美国将与美国国会合作，补充现有的发展融资。”
 
-As you can see,French and Chinese leaders attend a ceremony marking the signing of the agreement
-正如你所看到的，法国和中国领导人出席了协议签署的仪式
-and china’s president Xi Jinping visits a level four lab in France.
-并且中共总书记习近平访问了法国的一个P4实验室
+换句话说， 美国纳税人，要不然，法国总统马克龙、德国总理默克尔等人为什么会采用拜登“重建得更好”的话来奉承拜登？
 
-For the first time we hear there were intense clashes behind the scenes.
-我们第一次听说，原来幕后发生了激烈的冲突
+你可以在一英里外看到这一切，拜登，高兴得像蛤蜊一样地“回来了”，没有。
 
-That admission from the deputy director of the Wuhan National Biosafety Level Four Lab, Song dongling,
-这段坦白来自于武汉国家生物安全四级实验室副主任宋冬林
-in this extraordinary video produced by the Chinese Academy of Sciences back in may 2017.
-该视频由中国科学院于2017年5月制作
+这种“价值驱动的高标准、透明的基础设施伙伴关系”的意义在于对抗北京臭名昭著的“一带一路”倡议，自2013年以来，中共国政府通过大量贷款建设这些脆弱国家的基础设施，将100个不发达国家纳入其发展轨道，使巴基斯坦等国负债累累，并与中共国建立了物流联系。
 
-The video marks the launch of the laboratory,
-下面的视频标志着该实验室的启动
-it’s called persistence unyielding the construction and research team of the Wuhan National Biosafety Level Four Laboratory.
-标题是“坚持不屈的武汉国家生物安全四级实验室的建设和研究团队”
+中共的“一带一路”建设导致数个国家几近破产，完全屈从，因此受到了不好的评价，习近平主席，考虑到了（世界的）警惕，他不再吹嘘这项计划，但仍然在进行中。
 
-In this video Song also admits they had no prior experience in the area of biosafety,
-在这段视频中，宋也承认，
-他们之前在生物安全领域没有任何经验
+虽然美国人可能希望七国集团领导人对北京官员实施制裁，对中共国科技公司设置壁垒，或将中共国逐出世界贸易组织，但他们现在将看到我国政府向其他国家提供数十亿美元的援助，以启动基础设施的修复。
 
-yet they were dealing with some of the world’s most dangerous pathogens.
-但他们却在处理一些世界上最危险的病原体
+这将教会习近平！
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+拜登白宫和七国集团（尤其是德国）都不愿意放弃中共国的资金火车，哪怕是一刻也不愿意。
 
-原视频链接: [https://twitter.com/disclosetv/status/1404077511710068736?s=24](https://twitter.com/disclosetv/status/1404077511710068736?s=24)
-英听校： 康州盘古农场 – Mike Li
-翻译： 康州盘古农场 – Mike Li
-翻译终校：康州盘古农场 – 柯镇恶
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+公平地说，七国集团在其公报中还呼吁世卫组织支持对中共病毒的起源进行调查，包括“在中共国”，这是整个50页文件中唯一提及中共国的地方，在其他地方，对强迫劳动的“关注”并没有提到维吾尔族或新疆。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+为什么对北京的犯罪行为反应冷淡？引用明尼苏达州众议员伊尔汉·奥马尔（Ilhan Omar）的话，“这都是关于本杰明的孩子（Benjamin’s baby，指崇拜金钱）。”
 
-0
+支持拜登竞选总统的美国大公司及其外国竞争对手依赖中共国的资源，渴望中共国的客户，这是为谁制定的政策？
+
+值得称道的是，拜登似乎真心相信，美国和其他民主国家能够在发展中国家的青睐和支持方面超越中共国，他认为，向贫穷国家提供不附带任何条件的资金会引起共鸣，因为中共国不仅用条件，而且用钢筋来约束发展援助。
+
+拜登经常断言自由世界将战胜专制，他认为我们会赢，因为我们将强调性别平等和环境，这两个问题都是七国集团联合声明的核心。
+
+不幸的是，在美国，拜登对我们自己的基础设施缺陷感到震惊，这种经历并不乐观。
+
+拜登非常努力地推动斥资数万亿美元在美国“建设得更好”，但随着他继续取消川普总统遗留下来的所有遗产，他正在使这一努力复杂化。
+
+例如，拜登最近恢复了对无意中杀死候鸟的刑事处罚，为什么？因为川普总统减轻了处罚，不要笑，正如拜登所说，“这是真的。”
+
+这项愚蠢的决定旨在惩罚那些历来因鸟类意外死亡而被《候鸟条约法》（the Migratory Bird Treaty Act）指控的石油和天然气公司，其结果是，作为实现拜登在2035年前将排放量减半承诺的关键能源的风塔运营商可能面临严厉处罚。
+
+据估计，风塔每年可杀死多达50万只鸟类，随着拜登推动更多的涡轮机，尤其是近海涡轮机，这个数字将会飙升。
+
+尽管政府不会倾向于起诉风力发电运营商，但你可以打赌，这不会阻止环保人士代表他们的羽毛朋友发动法律战。
+
+与此同时，出于同样的原因，拜登正计划重修川普的美国统治水域，这也将使他的基础设施建设工作复杂化。有关水规则的争论始于奥巴马执政期间，当时环保署声称对通航水域附近的每一条沟渠和小溪都拥有管辖权，这一规定也主要针对石油和天然气生产商，但最终导致了与农民和乡镇之间的摩擦，而这些农民和乡镇突然被联邦许可规定所阻止。
+
+尽管环保署可能不会介入政治上支持的绿色能源项目，但增加法规，为修缮隧道和机场制造更多减速带，这实在是太愚蠢了。别搞错了，无论是在美国还是在拉丁美洲，都会有同样的动力，因为那里可能会有一些国际投资，我们“以价值观为基础”的进展将非常缓慢。
+
+与此同时，就在七国集团致力于阻碍本国经济以防止全球变暖之际，作为全球最大排放源的中共国却放松了推动力度，尽管力度微乎其微。
+
+没有人比习近平更高兴“美国回来了”，这就是为什么中共国支持拜登当总统，七国集团的结果证明，这是一个正确的选择。
+
+（全文完）
+
+显然，利兹·皮克女士对邪魔中共有清醒的认知，中共犯下了“世界上有史以来最严重的一次恶行，中共在全球肆意释放致命病毒，造成数百万可预防的死亡和数万亿的经济损失。中共国必须付出代价”。这样的背景下，她认定拜登及G7的作为是软弱的，没有对邪恶的中共进行惩罚的措施，只是依靠加大基础设施的投入惩罚中共，这些资金大部分来自美国纳税人。
+
+这就是美国监督的作用，当你对邪恶显得不够强时，就有一股力量在发声，指责你“在利益驱使下，你不敢对邪恶强硬”，更怀疑“这就是为什么中共国支持拜登当总统”。
+
+拜登若想证明自己不是亲共分子，那就展示出勇气来灭共！
+
+原文链接：
+
+[https://www.foxnews.com/opinion/biden-g7-china-pass-covid-accountable-liz-peek](https://www.foxnews.com/opinion/biden-g7-china-pass-covid-accountable-liz-peek)
+
++2
