@@ -1,51 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】佛罗里达州法官判决阿拉楚阿县的口罩强制令违宪
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1325156/)
+## 6月15日墙内债市资讯:少计坏账准备，税务与债务负担加重
+` Jimsolomon` [轉載自GNews](https://gnews.org/zh-hans/1325170/)
 
-作者：纽约香草山农场 四季
+作者：CPA Jim 所属农场：[喜马拉雅-华盛顿DC农场](https://gnews.org/zh-hans/author/himalayadcgnews/)
 
+1.浙江舟山旅游集团有限公司发布[2020年报更正公告](http://www.chinamoney.com.cn/dqs/cm-s-notice-query/fileDownLoad.do?mode=open&amp;contentId=1984352&amp;priority=0)。根据更正公告，该公司将8.66亿元其他应收款从按组合计提坏账准备移到单项金额重大并单项计提坏账准备的其他应收款，按组合计提坏账准备减少到0.05亿元，从而在坏账准备计提金额不变的前提下将的坏账准备计提比率从0.31%提高到50.14%，而单项金额重大并单项计提坏账准备的其他应收款的坏账准备计提比率从32.77%降低到4.23%。值得注意的是，占全部其他应收款95%以上的应收中共地方国企和政府的款项10.19亿元没有计提一分钱坏账准备。2020年财务费用达1.67亿元，利息资本化金额1.26亿元，在建工程增加5.01亿元，舟山港群岛国际邮轮有限公司已经申请破产重整。
 
+2.重庆三峡融资担保集团股份有限公司发布[2020年度审计报告](http://www.chinamoney.com.cn/chinese/cwbg/20210615/1984139.html#cp=cwbg)。根据审计报告后附财务报表，2020年和2019年经营活动现金流量净额均为负数，担保业务收到的现金同比减少14.59%，支付给职工以及为职工支付的现金（支付给职工以及为职工支付的现金包括企业和个人承担的社会保险费，而这部分缴费由于中共邪恶本质能够最后到职工个人手上的可能性很小，下同）减少15.69%，现金净减少8.54亿元，其发放的贷款中附担保物的不到50%。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+3 江苏张家港农村商业银行股份有限公司发布[2020年度审计报告](http://www.chinamoney.com.cn/chinese/cwbg/20210615/1983709.html#cp=cwbg)，审计报告后附财务报表显示贷款和垫款本金余额763.48亿元，贷款损失准备占贷款本金的比率为4%，个人按揭贷款增长21.8亿元，信用卡贷款增长186%。综合收益从上年9.6亿元下降到2020年的7.97亿元，支付的各项税费增长0.53亿元或14.6%到4.16亿元。
 
+4.[邯郸市建设投资集团有限公司发布2020年度经审计的合并财务报告](http://www.chinamoney.com.cn/chinese/cwbg/20210615/1983978.html#cp=cwbg)，由于中共政府的无偿划转，导致净资产中的资本公积净减少17.93亿元，合并范围发生了变更，经营活动产生的现金流量净额从2019年2.33亿下降到2020年负9.32亿，总负债增加60.97亿元，财务费用从2019年2.28亿元增加到2020年的4.8亿元。
 
+5.[山东山水水泥集团有限公司2014年度第一期中期票据在2017年违约后，将举行2021年度第一次持有人会议，表决是否将该中期票据10亿元注销。](http://www.chinamoney.com.cn/chinese/zqzdsx/20210615/1984702.html?cp=zdsx)第二期中期票据12亿元也于2017年违约，[将表决是否注销第二期中期票据](http://www.chinamoney.com.cn/dqs/cm-s-notice-query/fileDownLoad.do?mode=open&amp;contentId=1984701&amp;priority=0)。
 
-2020年5初，佛罗里达州阿拉楚阿（Alachua）县通过一项命令，要求该县所有的员工和顾客在企业场所佩戴口罩。5月21，第八司法巡回法庭法官唐娜-基姆拒绝了紧急禁令的请求。
+(本文仅代表作者个人观点)
 
-![]()![](http://image.nbd.com.cn/uploads/articles/images/818371/____501210116_banner.jpg)图片来源：摄图网
-
-杰夫-柴尔德斯律师代表一家植物苗圃公司的老板贾斯汀-格林于去年3月对阿拉楚阿县的命令提起诉讼。格林最初在法庭上败诉，但他提出上诉。
-
-6月13日，第一区上诉法院（1st DCA）法官对企业主格林对阿拉楚阿县提起的诉讼做出裁决，判决佛罗里达州第一区32个县的政府口罩强制令违宪。
-
-这似乎是美国第一个判决口罩强制令违宪的案例。美国是典型的实行判例法的国家，这一判决会不会对以后类似的案件形成影响，会不会对这类以防疫为名剥夺人们自由的行为起到任何约束，让我们拭目以待。
-
-参考阅读：
-
-[Florida Judges Declare Mask Mandate Unconstitutional](https://www.thegatewaypundit.com/2021/06/florida-judges-declare-mask-mandate-unconstitutional/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-+1
+0

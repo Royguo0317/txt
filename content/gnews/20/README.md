@@ -1,77 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉生物实验室当病毒浮出水面时，有超过15000个实验文件“消失”了
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1325134/)
+## 拍案惊奇短评系列之二十五——高考奇观，特警保驾
+` 左媛专栏` [轉載自GNews](https://gnews.org/zh-hans/1323508/)
 
-**字幕内容:**
-national intelligence agencies examining whether an accidental leak may have started the global pandemic.
-国家情报机构正在审查是否是一次实验室意外泄漏引发了全球大流行病
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15014506/0FBB8741-29B3-409D-98BD-31B3DC3D52E7.jpeg)
+作者：左媛
 
-tonight we have new information that will be of great interest to the probe announced by US. president Joe Biden.
-今晚我们得到新的信息，这将与美国总统乔·拜登宣布的调查有很大的关系
+编辑：萨日
 
-we can show you footage from inside the Wuhan Institute of Virology
-我们可以向您展示武汉病毒研究所内部的录像
+40年来，高考年年有，风景越来越有中共特色，今年达到极致。
+如图所示，“平安天津”报道：公安特警加强巡逻防控，保障考点安全。你看，特警荷枪实弹，配备齐全，站立在考场门口，学生陆续入场考试。
 
-and interviews with the very scientists
-以及对科学家的采访
+笔者见证过多年高考，除了正常的考场保安之外，从未见过公安尤其是特警特别是持枪特警为考场“保驾护航”的。
 
-at the heart of one of the greatest cover up the world has ever seen.
-他们是这场全世界前所未有的掩盖行为的核心
+高考安保升级到无以复加的地步，为什么？中共一直吹嘘：中国是全世界最安全的地方。与之对比的一定是猛批美国，滚动式报道今天这里枪杀案袭击案，明天那里龙卷风森林大火……在中共的宣传里，好像中共国是天堂而美国是地狱。可偏偏中共的权贵们以拥有美国护照绿卡为荣，以子孙妻妾移民美国为傲。世界各国都有考试，却只有中共国千军万马挤独木桥式的高考，这还是相对比较公平的方式。为什么会在考场设置持枪特警来保驾护航？因为社会恶性事件太多！中共国是一个连买菜刀火柴都要实名制，民间连弹弓都要被收缴的特色国，而美国是一个在法律允许下民众可以自由持枪的国家。
 
-how did the COVID-19 global pandemic start?
-COVID-19全球大流行病是如何开始的？
+中共国的恶性事件为什么那么多？病人从医院跳楼，官员从办公室跳楼，大学老师割喉党委书记，男子持刀行凶校园幼儿园，人贩子拐卖妇女儿童，工厂爆炸，街道爆炸，居民楼垮塌，百姓死于病毒死于疫苗而不被报道，跑马拉松也会死20多人……无处不死人，无时不死人，没完没了。中共几十年的独裁专制统治和仇恨教育愚民洗脑，使得每个人都生活在极度恐怖和自我保护中。得益者拼命保住手中利益不敢吭声，失意者没有希望没有奔头不是自杀就是报复，这就是中共罔顾事实极力吹嘘的“最安全国家”！
 
-Did the virus derive from bats end up in the wuhan lab causing an inadvertent leak?
-是否来自蝙蝠的病毒最终进入了武汉的实验室，造成了无意中的泄漏？
+报道称给学生营造“安全、安静、良好”的考试环境，我看未必！特警校门口两边站立，谁知道哪个特警不是那失意者呢？或许父母在医院没钱付医疗费而被停止治疗，孩子在学校被老师歧视同学打骂，妻子被领导双修自己被阻断升迁之路……各种可能都会有，他会不会把枪口对准学生？特警持枪是否会给学生造成紧张甚至害怕的心理也很难说，毕竟不是每个学生都能接受枪杆子就在自己面前！
 
-or was there an infected worker?
-或者是因为有一个被感染的研究人员？
+江泽民的孙子出生在美国，薄熙来的儿子读英国伊顿公学，习近平的公主读哈佛，杨洁篪的女儿在美国读高中和耶鲁……老百姓的儿女在国内挤一座独木桥，不得不承受“保驾护航”的特警持枪带来的心理压力；没有保护，又可能承担“精神病患者”持刀砍杀。呜呼！中共治下，百姓何其悲哀！
 
-evidence from this footage will shed more light on some of these questions.
-这段录像中的证据将为其中一些问题带来更多的启示
+2021.6.14于纽约
 
-The Wuhan Institute of Virology was built by the Chinese and French governments in a deal designed to promote international scientific research.
-武汉病毒学研究所是由中国和法国政府
-在一项旨在促进国际科学研究的交易中建立的
-
-As you can see,French and Chinese leaders attend a ceremony marking the signing of the agreement
-正如你所看到的，法国和中国领导人出席了协议签署的仪式
-and china’s president Xi Jinping visits a level four lab in France.
-并且中共总书记习近平访问了法国的一个P4实验室
-
-For the first time we hear there were intense clashes behind the scenes.
-我们第一次听说，原来幕后发生了激烈的冲突
-
-That admission from the deputy director of the Wuhan National Biosafety Level Four Lab, Song dongling,
-这段坦白来自于武汉国家生物安全四级实验室副主任宋冬林
-in this extraordinary video produced by the Chinese Academy of Sciences back in may 2017.
-该视频由中国科学院于2017年5月制作
-
-The video marks the launch of the laboratory,
-下面的视频标志着该实验室的启动
-it’s called persistence unyielding the construction and research team of the Wuhan National Biosafety Level Four Laboratory.
-标题是“坚持不屈的武汉国家生物安全四级实验室的建设和研究团队”
-
-In this video Song also admits they had no prior experience in the area of biosafety,
-在这段视频中，宋也承认，
-他们之前在生物安全领域没有任何经验
-
-yet they were dealing with some of the world’s most dangerous pathogens.
-但他们却在处理一些世界上最危险的病原体
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接: [https://twitter.com/disclosetv/status/1404077511710068736?s=24](https://twitter.com/disclosetv/status/1404077511710068736?s=24)
-英听校： 康州盘古农场 – Mike Li
-翻译： 康州盘古农场 – Mike Li
-翻译终校：康州盘古农场 – 柯镇恶
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+（本文章仅代表作者个人观点）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15164313/69DCC874-AF8D-4D4C-9CE7-09E0E1092509.jpeg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09145612/AA14366B-ED66-47BA-9C5A-5E1E66FAE009.jpeg)
 0

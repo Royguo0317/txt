@@ -1,39 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：司法部长梅里克•加兰宣布他的司法部将严查任何旨在寻找违反投票法的证据的选举后审计！
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1325080/)
+## 【路德时评摘要】2021.6.9 早间：阿富汗问题的根本就是中共在背后
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1325104/)
 
-翻译：Elsie｜校对：JS709｜审核：断播
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15140040/election-fraud-2020-ballots-ga-tcf.jpg)
-**腐败的司法部**** (DOJ) ****及其联邦调查局**** (FBI) ****完全无视**** 2020 ****年大选中的泛滥的选举犯罪。 因此，现在腐败的司法部长决定威胁任何参与选举审计的人，以防止他们调查选举中的犯罪和欺诈行为也就不足为奇了。**
+视频剪辑 : 洛杉矶天使农场–小腾腾说
+中听校：洛杉矶天使农场–雨山溪桥客
+英翻译：洛杉矶天使农场–Arthur
+英校对：洛杉矶天使农场–烟波浩淼
+字幕+视频制作：洛杉矶天使农场– 压箱底儿の希望
 
-司法部完全无视 2020 年选举中的选举犯罪。我们转向的每个地方都有各个层面的犯罪和腐败，但我们的主流媒体、司法部及其联邦调查局都视而不见，大型科技公司禁止提及任何选举犯罪。 让所有这些机构跳上同一艘腐败的船，这可不是一件小事。
+**路德：**
 
-我们发现了这一点并对此进行了报道，不是司法部 – 他们忽略了它。在 2020 年大选后的清晨，数千张选票送到了底特律 (Detroit) 的投票地点，这些选票全都投给了乔·拜登：
+阿富汗撤军的一个最重要原因我觉得是美国真正看清楚了，阿富汗问题的根源性的问题，就是中共在背后，中共只要一垮台，伊朗问题，阿富汗问题，巴基斯坦问题，哈萨克斯坦，全部解决是不是，就这么简单，没必要自己给自己设一个圈套，中共最擅长在抗日的时候，是不是，打入敌后根据地，玩这东西，是不是，跟日本人合作来搞国民党，然后又跟国民党合作搞日本人，经常就是左右来回搞，然后跟苏联合作搞美国，又跟美国合作搞苏联，阿富汗这里一定就是这个结局，也是这样的，这样的结果，所以美国通过的是无尽在，就是没有边界的接下来全方位的，没必要在这里就是，中共叫做围点打援啊，把美国的力量投放在阿富汗，然后在这个基础上吸引了
 
-[**独家：****TCF ****中心选举舞弊**** – ****新发现的视频显示，在截止期限****8 ****小时后的深夜，交付了数万张非法选票**](https://www.thegatewaypundit.com/2021/02/exclusive-tcf-center-election-fraud-newly-recovered-video-shows-late-night-deliveries-tens-thousands-illegal-ballots-michigan-arena/)
+美国所有的注意力，包括军事，包括情报，包括人才，更重要的是人才，所有的吸引在阿富汗中东和恐怖组织，撤回来，现在美国一系列的这些举动，外交的举动，无论是在台湾，到台湾，还是在南海，对中共传递的各种强硬信号，是吧，包括美国的参议院参众两院一系列，包括竞争法案，能传到习的耳朵里吗，是否传到了最核心圈子，他说，他的圈子很小，基本上传不到，杨洁篪和王毅现在在外交层次编织一个，顺天时报，顺天时报是他俩编制出来的，然后呢，让习觉得现在习的一带一路，习的四个自信，新时代习的社么建设中国特色思想，这个广受欢迎，美国现在也对你很欢迎，俄罗斯也没问题是吧，这个日本也没问题。
 
-已[确认：法官推迟佐治亚州 (Georgia) 选举工作人员鲁比·弗里曼（ Ruby Freeman） 和她的女儿雪伊·莫斯（ Shae Moss） 的证词](https://www.thegatewaypundit.com/2021/06/confirmed-judge-delays-depositions-georgia-election-workers-ruby-freeman-daughter-shae-moss/)
-
-我们拍摄了这段视频，并确定该团伙将所有人踢出亚特兰大 (Atlanta) 投票站，然后从桌子底下拉出选票，在无人看管的情况下将选票扔进制表机两三遍。 对他们来说，不幸的是，摄像头是开着的。 但到目前为止，这并不重要，因为 DOJ 和 FBI 已经忽略了所有这些证据：
-
-[难以置信：佐治亚州的“手提箱丑闻”-反川普民主党人在制表机上运行相同批次的选票三次！ （视频）](https://docs.google.com/document/u/0/d/137RD_sc281-rjcHLWGiLdeMtZHpjyeeZWwil-SOzNo0/edit)
-
-监管链法在多个州被忽视，但 DOJ 和 FBI 并不关心：
-
-[必读：民主党人只有在 2020 年打破每个摇摆州的监管链，才能“获胜”](https://www.thegatewaypundit.com/2021/02/must-read-democrats-able-win-2020-breaking-chain-custody-laws-every-swing-state/)
-
-但现在，随着美国爱国者们花时间自愿参与并帮助在审计中揭露欺诈和腐败，美国司法部终于承认存在选举（欺诈）。 司法部长表示，他和他的律师和调查团伙将仔细审查在审计期间采取的每一个行动，以恐吓和阻止审计的进行。
-
-[恐慌模式！！ 当司法部长梅里克·加兰（Merrick Garland）宣布美国司法部将严查任何旨在寻找违反投票法的证据的选举后审计时，你知道你已经结束了！！](https://twitter.com/Cam_Music/status/1403427202184613888?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1403427202184613888%7Ctwgr%5E%7Ctwcon%5Es1_c10&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2021%2F06%2Fbreaking-ag-merrick-garland-announces-doj-will-scrutinize-post-election-audits-evidence-voting-law-violations%2F)
-
-我们知道他们会做些什么。现在，深层政府终于采取了这一行动，并威胁任何敢于相信自己直觉并想协助撤销 2020 年选举的欺诈性选票的人。
-
-**我们终于可以说美国是一个由一群骗子经营的香蕉共和国了吗？**
-
-原文作者：乔·霍夫特（Joe Hoft)
-发布时间：2021年6月11日 15:03
-原文链接：https://www.thegatewaypundit.com/2021/06/breaking-ag-merrick-garland-announces-doj-will-scrutinize-post-election-audits-evidence-voting-law-violations/
-
-+2
+0
