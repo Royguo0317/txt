@@ -1,51 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月15日美国政要推特精选：“解雇福奇法案”已立项
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1325773/)
+## 郭先生0615I三位曾被杨澜放倒的战友的爹已经被抓起来了
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1325820/)
 
-众议员玛乔丽·泰勒·格林： 是时候解雇安东尼·福奇了。 我的《解雇福奇法案》正是这样做的。 感谢我的共和党同事支持这项立法。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15231635/unnamed_%E5%89%AF%E6%9C%AC-1.jpg)
+据[20210615的视频三品澜．吴征夫妻俩．性贿赂中国．国际多名高官……骗钱害命多人……黑幕被多个专案组掩盖．为什么？](https://gtv.org/video/id=60c8c163b96c69573d7f9433) 时间点00：00——
 
+（直播前播放音乐）
 
+哎呀！战友们，战友们你好啊！战友们好，今天15号了是吧兄弟姐妹们，6月15号，你看到马场，那边是马场啊，哎呀，森林中对话，你看看太大了。哎呀，乖乖嘞，哎呀，这树够大吧兄弟姐妹们，累死我了。哎呀，我的娘勒，哎呀，运动真好啊，运动真好。
 
-> It's time to fire Anthony Fauci.
-> 
-> My "Fire Fauci Act" does exactly that.
-> 
-> Thank you to my Republican colleagues for supporting this legislation.[#FireFauci](https://twitter.com/hashtag/FireFauci?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/z2UenvrBjM](https://t.co/z2UenvrBjM)
-> — Rep. Marjorie Taylor Greene (@RepMTG) [June 15, 2021](https://twitter.com/RepMTG/status/1404855856403988480?ref_src=twsrc%5Etfw)
+兄弟姐妹们大家好，6月15号，哎呀我的妈呀，哎呀，昨天直播完以后很多战友给我发信息说七哥接着聊，结果是接着聊的时候很多战友给我发信息，七哥，很多都是专案组的人，七哥接着聊吧，我说怕把你们给暴露了，这些战友们说没事七哥，很多人都知道，他说到处都是，他说其实就是老百姓不知道，大家都知道。
 
+其中一个战友他爹也被抓起来了，不是一个战友，三个战友他爹都被抓起来了，看完以后给我发信息，七哥你说的100%是真实的，当时一个战友一个人说当时他爹在天津，说跟家里边正在聚会呢，秘书跑到耳朵旁边嘀咕几句，他爹说，好咱马上走，他这个儿子比较在家说了算，就问他爹你见谁去啊？他爹说见吴征。
 
+他儿子说见吴征是假你见杨澜是真，当着他妈的面还有当着他媳妇的面，他爹说，哎呀，你这胡说什么呢，他儿子就不让他认识吴征，后来他儿子说你不能去见吴征，你肯定见的是杨澜，就没让他爹去。
 
-众议员保罗·戈萨尔： 是时候让福奇上路了。很荣幸成为“解雇福奇法案”的共同发起人。感谢来自乔治亚州的同事玛乔丽·泰勒·格林[@RepMTG](https://twitter.com/RepMTG)领导这项工作。 【附[http://newsweek.com](https://t.co/lWKmYlfK74?amp=1)的文章链接：玛乔丽·泰勒·格林以及其他共和党人再次呼吁蝠奇下台，并称福奇“控制了美国人的生活”】
+但是过了一段时间，他爹还是跟杨澜搞上了，见的就是杨澜不是吴征，他儿子是对的，挡了几年没挡住，最后还是杨澜见了，杨澜一见那就肯定找钥匙了呗，那就把他爹给找下来了吧，那就肯定的，没有拿不下来的嘛，对吧？结果他爹也被抓了，他在里边关了三年才出来。人都快残废了。
 
+他说七哥就是这个吴征和杨澜把他家给毁了，当然我不承认这个，这你冤枉吴征杨澜，那你爹要是好人的话怎么能把你拿出来呢？对吧？对不对啊？这也是个政治局委员呢，给拿下来了，是吧，所以说他是感同身受，他说吴征那个王八蛋就是拿着老婆到处弄。
 
+还有一个咱们的战友，她爹也是政治局委员，某省的省委书记。今天早上给我发信息，她说七哥你说得绝对对，她说这些事儿她都亲身经历。但是我要跟你说，我说你知道吗，你爹也跟杨澜睡了。她说是、可能。她说当时赵本山要见她爹，她不让，她天天跟着她爹，怕她爹跟人家接触，不让她爹去见。最后呢，她爹最后偷偷摸摸地去了，躲过她，因为她怀孕了。
 
-> It’s time for Fauci to hit the road. Proud to be a cosponsor of the Fire Fauci act. Thank you to my colleague from Georgia, [@RepMTG](https://twitter.com/RepMTG?ref_src=twsrc%5Etfw) for leading this effort. [https://t.co/Q8m9WmEf5Y](https://t.co/Q8m9WmEf5Y)
-> — Rep. Paul Gosar, DDS (@RepGosar) [June 15, 2021](https://twitter.com/RepGosar/status/1404935545755639817?ref_src=twsrc%5Etfw)
+（她爹）就见了赵本山，谁安排的呢？杨澜安排的。她爹一见杨澜，那就酥了。那就这么个东西，你这杨澜你知道吧。赵本山这个人，我相信你现在看直播，你都知道，谁安排当时的书记见你的？——杨澜嘛。
 
+我也去过那地方，哇塞，赵本山基地，在沈阳西边儿。哇塞，赵本山基地里边儿都是，都记不清楚了，都是当时很火的什么二人转呐什么小舞台呀，最后就给拿下了，就这么简单，是吧。杨澜太厉害，太厉害。
 
+就我说的那个周来振——民航局的那个副局长、原来财政部部长的助理，他给杨澜批下的项目，还有那个张少春，上百亿，上百亿。这上百亿的项目，杨澜怎么也得弄个十来亿的好处。
 
-参议员罗恩·约翰逊： 这些机构在处理 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 方面有很多需要解释的地方。 这就是为什么我们写信给[@NIHDirector](https://twitter.com/NIHDirector)和[@SecBecerra](https://twitter.com/SecBecerra)，追查他们电子邮件中篡改的部分背后到底隐藏了什么内容。 【附信函全文，视频中罗恩·约翰逊质疑蝠奇邮件门关联方是否掩盖了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的起源】
+你说这吴征，人家娶媳妇都赔钱，那吴征娶个媳妇，那家伙十亿百亿的挣，那谁不干呢？是吧，他都干了吧。所以大家都挺感兴趣。
 
+编辑整理——
 
+华盛顿DC农场：YIMING（文鸣）
 
-> These agencies have a lot of explaining to do about their handling of COVID-19. 
-> 
-> That's why we've written to [@NIHDirector](https://twitter.com/NIHDirector?ref_src=twsrc%5Etfw) [@SecBecerra](https://twitter.com/SecBecerra?ref_src=twsrc%5Etfw) to see what's behind the redactions in their emails.[https://t.co/2cysIcfGsd](https://t.co/2cysIcfGsd) [pic.twitter.com/Vgoe91whKw](https://t.co/Vgoe91whKw)
-> — Senator Ron Johnson (@SenRonJohnson) [June 16, 2021](https://twitter.com/SenRonJohnson/status/1404955632361381892?ref_src=twsrc%5Etfw)
+纽约香草山农场：清泉石上流
 
+校对整合——
 
+伦敦喜庄园：万物归一
 
-众议员埃莉斯·斯特凡尼克: 作为自由世界的领袖，美国必须因 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 官员自己的行为对他们追责。 我将与Wittman议员一起提出立法，在对 COVID-19 起源进行调查之前，制裁中国卫生机构官员。 【附斯特凡尼克议员声明全文】
+发布——
 
-
-
-> As the leader of the free world, the U.S. must hold Chinese Communist Party officials accountable for their actions.
-> 
-> I'm joining [@RobWittman](https://twitter.com/RobWittman?ref_src=twsrc%5Etfw) in introducing legislation that will sanction Chinese Health Agency Officials until there is an investigation into COVID-19 origins. [pic.twitter.com/Lukhc92SHc](https://t.co/Lukhc92SHc)
-> — Rep. Elise Stefanik (@RepStefanik) [June 15, 2021](https://twitter.com/RepStefanik/status/1404877011508731910?ref_src=twsrc%5Etfw)
-
-
+喜马拉雅日本银河系农场：山川异域
 
 0

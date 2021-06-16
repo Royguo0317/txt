@@ -1,29 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫苗又一副作用 &#8211; 毛细血管渗漏综合症
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1325717/)
+## 【香草诗词汇】端午一醉不起
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1325711/)
 
-撰稿: Hong
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15222814/602-4.png)图片来自GNEWS
-6月11日, 欧洲药品管理局 (EMA) 安全委员会确认在人们接种阿斯利康 (AstraZeneca)疫苗后出现另一种罕见的血液病, 并表示正在调查接种疫苗后出现的心脏炎症病例。据路透社报道，欧洲药品管理局 (EMA)安全委员会周五表示, 毛细血管渗漏综合症 (CLS）是接种阿斯利康疫苗后出现的一种新的副作用。
+导语作者：纽约香草山农场 诗诗文文
+作者：唐云
 
-尽管欧洲药品管理局认为阿斯利康疫苗对所有年龄段的人来说都是安全的，但由于接种后出现血液凝固的副作用，一些欧盟成员国已经停止为55至65岁的人群注射阿斯利康疫苗。
 
-几个月前，一名意大利女性在接种阿斯利疫苗几周后死于血栓，她的家人起诉了阿斯利康公司。上周五，意大利卫生监管机构官员表示，在一名青少年被注射疫苗并死于血栓后，阿斯利康疫苗将仅限制在60岁以上的人群中使用；鉴于阿斯利康疫苗接连出现“不寻常”血栓病例，相关监管机构于 4 月对阿斯利康疫苗实验的数据进行了审核，目前建议避免为60 岁以上的人群注射阿斯利康疫苗。
 
-中共病毒是中共军方研制的生物武器，中共病毒全球病毒大爆发源于武汉生物病毒实验室，是中共蓄意向全球发动的生物武器战。没有一种疫苗对中共病毒有效，单靠注射疫苗无法抵御中共生物武器病毒的袭击。另外，中共病毒疫苗会引起严重的副作用，甚至导致死亡几率的增加。郭文贵先生已多次警告世界，“共产党的病毒！毋庸置疑是共产党的生物武器。中共在研制生化病毒的同时就制造了解药。” 现在，世界各国已经认识到，中共政权是头号病毒根源，只有迅速彻查中共病毒起源，确定病毒释放地点，向中共要解药，才是唯一抵抗中共病毒的有效方法。以毒灭共，一招制胜，世界平安！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
 
-文章仅代表作者本人观点,与GNews无关）
 
-*发布：Runaway*
 
-新闻参考来源：
+**导语：**
 
-[AstraZeneca’s COVID Jab Should Be Halted For People Over 60: EMA](https://www.zerohedge.com/markets/astrazenecas-covid-jab-should-be-halted-people-over-60)
+传统节日到了！端午节的粽子赶不走墙内诗人的惆怅！也赶不走他们对统治阶级的鄙视！更赶不走他们对当权者的讽刺！
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+屈原每天鲜花美人的生活，享受着晨饮朝露，晚食落生。然而，他也是动不动就宣誓自己的高贵血统，称其为“帝高阳之苗裔兮”。
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+可见，粽子不能多吃！端午一醉不起！
+
+* * *
+
+* * *
+
+今天我不再理睬任何人
+就这么醉着
+你们和屈原一起醒着吧
+怪球难受的——
+但我认为屈原
+他的睡或者醒都不重要
+正如大国是分还是合：
+秦王要的是浆糊一桶
+屈原说必须要楚
+
+大历史就这样被写乱球了
+
+![]()![](https://media.discordapp.net/attachments/801458362239156274/854503685543297034/image0.jpg?width=719&amp;height=609)
+
+屈原每天鲜花美人地生活
+晨饮朝露 晚食落英
+动不动就宣示自己的高贵血统：
+帝高阳之苗裔兮——
+你以为他哀民生之多艰
+他回头斜你一眼：
+朕皇考曰伯庸——
+也就是说你这头豚有多土
+大楚的白菜就有多优秀
+够得您一辈子上下求索
+满地去拱
+
+粽子不能多吃啊
+
+我醉着不说话
+一说话就要漏风
+就像没有盖子的汨罗江
+在它岸边走啊
+哪有不失足
+何况你披头散发 光脚走路
+保持着从墙里出来的样子
+完全失去辨识度
+醒着也是迷糊
+江水清澈
+郑袖的美貌倒映其中
+
+![]()![](https://media.discordapp.net/attachments/801458362239156274/854503809241972746/image0.jpg)
+
+所以我宁愿醉着
+就把屈原的故事想成一段情史
+这样就浪漫主义了
+他身体没那么好
+负不起你们给他的重
+醉着
+顺水漂流
+这才是三闾大夫
+
+* * *
+
+**编者按：**本篇为墙内战友投稿。感谢农场战友的帮助，才不至让好文埋没、呐喊消音。
+
+（本文仅代表作观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+
+编辑/校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
+
+
+
 0
