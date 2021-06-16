@@ -1,107 +1,139 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】端午一醉不起
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1325711/)
+## 【香草诗词汇】与战友书（二）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1325785/)
 
-导语作者：纽约香草山农场 诗诗文文
-作者：唐云
+***– 就是与家人书 –***
 
+作者：纽约香草山健身部 澄道
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/03045249/LOGO3_1-1.jpg)
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
-**导语：**
 
-传统节日到了！端午节的粽子赶不走墙内诗人的惆怅！也赶不走他们对统治阶级的鄙视！更赶不走他们对当权者的讽刺！
+正道家人息息关
+铲毒生活事事联
 
-屈原每天鲜花美人的生活，享受着晨饮朝露，晚食落生。然而，他也是动不动就宣誓自己的高贵血统，称其为“帝高阳之苗裔兮”。
+园战友：
+您好！
+见字见面
+末学有点诚惶
+不知所错
+觉得应
+再求正斧
 
-可见，粽子不能多吃！端午一醉不起！
+还有点诚悦
+心之慰寄
+愿行悦往
+于您愿
+即于吾悦
 
-* * *
+正斧：
+1.＂….之名＂
+＂….子＂
+什么的！
+末学
+承不住
+更担不起啊！
 
-* * *
+1. 略
+2. ＂无居数＂
+三字没看懂？
+3. 略
+4. 略
+5. ＂目仔啊！＂
+是句俚语吗？
+也没懂！
 
-今天我不再理睬任何人
-就这么醉着
-你们和屈原一起醒着吧
-怪球难受的——
-但我认为屈原
-他的睡或者醒都不重要
-正如大国是分还是合：
-秦王要的是浆糊一桶
-屈原说必须要楚
 
-大历史就这样被写乱球了
+虽乱
+扣帽子
+起名字
+属非体面
+但一句
+＂这家伙＂
+不简单！
 
-![]()![](https://media.discordapp.net/attachments/801458362239156274/854503685543297034/image0.jpg?width=719&amp;height=609)
+哈哈
+晨挠中的畅
+透过
+照进的晨光
+尽显
+快之意！
 
-屈原每天鲜花美人地生活
-晨饮朝露 晚食落英
-动不动就宣示自己的高贵血统：
-帝高阳之苗裔兮——
-你以为他哀民生之多艰
-他回头斜你一眼：
-朕皇考曰伯庸——
-也就是说你这头豚有多土
-大楚的白菜就有多优秀
-够得您一辈子上下求索
-满地去拱
+缘启
+爆革长生天
+承蒙
+正道重塑人
 
-粽子不能多吃啊
+道礼
+＂挠字＂毕
 
-我醉着不说话
-一说话就要漏风
-就像没有盖子的汨罗江
-在它岸边走啊
-哪有不失足
-何况你披头散发 光脚走路
-保持着从墙里出来的样子
-完全失去辨识度
-醒着也是迷糊
-江水清澈
-郑袖的美貌倒映其中
+园战友
+回复大段：略
+只留：
+您
+书生味重
+但仍需知世俗
+….
+通语吧！
+学府！
 
-![]()![](https://media.discordapp.net/attachments/801458362239156274/854503809241972746/image0.jpg)
+道应：
 
-所以我宁愿醉着
-就把屈原的故事想成一段情史
-这样就浪漫主义了
-他身体没那么好
-负不起你们给他的重
-醉着
-顺水漂流
-这才是三闾大夫
+要的
+就是这个味
+对极了
+您！
+＂这个家伙＂
 
-* * *
+受我一拜
+容我一盖
 
-**编者按：**本篇为墙内战友投稿。感谢农场战友的帮助，才不至让好文埋没、呐喊消音。
+谁能说
+一字师不是师
+常言道
+三人行必是师
 
-（本文仅代表作观点）
+更何况
+现师者文贵者
+岂不止
+同行者亡共者
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+玫刺手真战友
+爆料紧跟七哥走
+红毒恶人情薄
+百年侵染几世难索
+错 错 错
 
-编辑/校对/发稿：Irene木木
+夏又旧世空楼
+以毒灭共势正头
+热选落拜宫哥
+八十国在罄书难托
+莫 莫 莫
+
+通语吗？
+＂园＂战友
+
+@澄道来了
+@爱动爱议码06152
+@工作间 休息厅 餐厅
+
+校对/发稿：雪梨
+
+![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg]()![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/logo-4.jpg)
-
-
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

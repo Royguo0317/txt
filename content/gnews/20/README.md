@@ -1,37 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉实验室的合作伙伴达扎克承认他在“使用美国纳税人的钱”做研究时在海鲜市场上“并没有看到很多蝙蝠”
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1326041/)
+## 中共媒体报道2019年12月CCP病毒已在美国传播，企图将隐瞒早期疫情的责任转嫁给美国
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1326034/)
 
-翻译：飞利普 |校对：烟波浩淼 |审核：V
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16005829/dzk_adobespark.png)
-**尽管主流媒体和中共的说法是中共病毒起源于中共国海鲜市场，但在《国家脉搏》披露的播客上，生态健康联盟主席、武汉病毒研究所合作者彼得·达扎克坚持说，他在这些市场上“并没有看到很多蝙蝠”。**
+【日本东京方舟农场】 作者：小李在大阪　校对：小笨熊
 
-武毒所的[“长期合作者”](https://thenationalpulse.com/breaking/wuhan-bat-lady-thanks-nih-and-daszak/)达扎克在2020年6月3日“本周病毒学”[一集](https://www.youtube.com/watch?v=Et3CHcteWNw)的节目中露面时也承认，美国纳税人的钱资助了他在中共控制的[实验室](https://gnews.org/zh-hans/1263642/)的研究。
+中共媒体报道了美国国立卫生研究院（NIH）名为“All of Us”的研究项目的分析结果。在2020年初采集的美国各地共24000份血液样本中，至少有9人的血液样本中出现了CCP病毒抗体，因从感染到出现抗体大约需要两周时间，所以中共媒体称早在美国疫情正式爆发（2020年）前，CCP病毒已在美国本土以低速率进行传播。
 
-这一披露言论是在安东尼·福奇领导的国家过敏和传染病研究所370 万美元的[资助](https://reporter.nih.gov/search/c4ZGYsDvKEys1oIYs66iwA/projects)下，对达扎克的生态健康联盟向武毒所提供资金的审查越来越严格的情况下发表的。
+从武汉病毒疫情最早期的关键时间点来看，据《南华早报》获得的中共内部文件，首名CCP病毒患者可能在2019年11月17日就已进入了中共医疗系统的视线，但直至12月31日武汉卫健委才首次公开通报了疫情，且通报指出未发现明显人传人的证据，也未发现医务人员感染。而至2020年1月23日武汉封城时，据官方估计，已有500万人离开武汉，但根本无法统计从武汉离境至其他国家的感染者人数。
 
-达扎克在播客上承认：“在中共国，我们用美国纳税人的钱在一个冰箱里收集了16000个蝙蝠样本。” 达扎克重申“我们是联邦政府资助的最后一个与武毒所合作的组织”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16011646/4A2769BE-D82A-4BC4-98C1-27C91C6B6171.jpeg)
 
-尽管福奇试图将他的国家卫生研究院机构与有[军方背景](https://thenationalpulse.com/breaking/wuhan-lab-erased-military-researchers-from-site/)的武汉实验室[拉开距离](https://www.mediaite.com/tv/you-are-entirely-and-completely-incorrect-watch-faucis-epic-throwdown-with-rand-paul-on-wuhan-lab-covid-theory/)，但达扎克在播客上承认，至少从2013年起，他与该机构及其[“蝙蝠女侠”石正丽](https://thenationalpulse.com/exclusive/fauci-headlined-conference-with-shi-and-daszak/)的合作得到了国家卫生研究院的资助：
+美国此项研究证明了CCP病毒传入美国的最早时间点，也证明了中共早期隐瞒疫情的事实。正是由于中共在最早期隐瞒疫情而使病毒扩撒，从武汉及中共国的其他地区出境的感染者将病毒带到了世界各地。美国此项研究的结果与病毒从中共国传至他国的时间基本吻合。
 
+另外，如果中共国也通过与美国此项研究类似的方法，对中共国境内的CCP病毒进行溯源调查，那么是否就能够确定CCP病毒最早出现的时间点及具体的扩散方式呢?
 
-> “*那时我们已经开始在中共国进行反复的实地考察。我们有一个野战队。当时我们和正丽一起做了更多的工作，真正磨合了，因为我们有资金从国家卫生研究院出去做这项工作。”*
+目前，世界各国纷纷要求重新调查病毒起源并追究中共的责任。中共媒体对中共国早期隐瞒疫情的事实避而不谈，反倒企图将隐瞒疫情的责任转嫁给美国，这种欲盖弥彰的行为又能骗得了谁呢。以毒灭共已经是无法阻挡的潮流，希望能够尽早查清病毒真相，让全世界认清中共的邪恶。
 
+注：本文仅代表作者
 
-当被问及“恢复传染性非典型肺炎的分离株”时，达扎克还承认“我没有做那项工作”，然后补充说“这正是正丽所做的，是的，从我所知道的情况来看，培养病毒确实很难。”
-
-在长达一个小时的采访中，达扎克还透露，在中共国市场上他“并没有看到很多蝙蝠”，这对中共病毒起源于武汉一个海鲜市场的理论又是一个打击：
-
-
-> “*所以我们在野生动物交易方面也做了大量的工作，我们发现那时它已经发生了变化。在大市场里，你并没有看到很多蝙蝠，但我们确实知道人们在猎食蝙蝠。他们直接将它们卖给餐馆，所以这更是一个本地化的问题。我们认为风险已经转移到中共国的农村地区。”*
-
-
-达扎克还在播客中攻击了纳德·川普，指出时任总统“处于真正可怕的困境，并且有能力进行猛烈抨击”，然后采访者补充说“希望在我们政府换届之后，你可以重新申请一些国家卫生研究院拨款。” 采访是在川普政府终止了国家卫生研究院拨款之后进行的，该拨款[允许](https://thenationalpulse.com/exclusive/who-investigators-ccp-covid-ties/)达扎克的生态健康联盟与武毒所合作。
-
-原文作者：娜塔莉·温特斯([NATALIE WINTERS](https://thenationalpulse.com/author/natalie-winters/))
-发布时间：2021年6月14日
-原文链接：[https://thenationalpulse.com/breaking/watch-wuhan-lab-partner-daszak-admits-he-didnt-really-see-many-bats-in-wet-market-while-describing-studies-using-u-s-taxpayer-money/](https://thenationalpulse.com/breaking/watch-wuhan-lab-partner-daszak-admits-he-didnt-really-see-many-bats-in-wet-market-while-describing-studies-using-u-s-taxpayer-money/)
+参考链接：[https://www.nih.gov/news-events/news-releases/nih-study-offers-new-evidence-early-sars-cov-2-infections-us](https://www.nih.gov/news-events/news-releases/nih-study-offers-new-evidence-early-sars-cov-2-infections-us)
 
 0
