@@ -1,51 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】周年庆的幕后战友
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1326444/)
+## 拜登将中国军事科技公司移出黑名单
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1326439/)
 
-作者：纽约香草山健身部 anina
+【日本东京方舟农场】原作者：杰克·贝勒（Jack Beyrer）；翻译：葡萄干；校对：青山依旧
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp_Image_2020-10-24_at_04.33.05-9.jpeg)
+总统拜登发布的一个行政令中解除了对一家因和中国军方合作以及对维吾尔穆斯林监控而知名的中国技术公司的禁令。
 
+在本月白宫发布的黑名单更新中没有出现中科曙光（Sugon）。中科曙光是一家在2020年11月被川普政府列入黑名单的中国公司。美国之前因其出售给中国军方超级计算机作为核武器研发而禁止美国人投资中科曙光这家公司。这家公司的云计算、脸部识别技术被多次报道用来监控维吾尔穆斯林。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16054815/6A9ED7EF-3B77-4572-8D51-0CCFB62439F3.jpeg)（中科的口号充分显示了其在政治上的狼子野心。图片来源：chinalandu.com）
 
-新中国联邦的一周年庆典活动成功举办，向世界展现了新中国联邦人的格局和风貌，诚然有赖台前战友们的精彩表现，也离不开一群幕后战友的默默付出。以下为大家介绍一位摄影战友的工作花絮。
+迈克尔·索伯利克（音译）（Michael Sobolik）作为一位美国对外关系委员会就中国问题研究员告诉华盛顿自由灯塔（The Washington Free Beacon），尽管拜登（发布的）行政令通过扩大对其他中国科技巨头例如华为和海康威视的制裁是在迈出正确的一步，但其中对中科曙光的缺失却是“不同寻常的”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16053216/%E5%9B%BE%E7%89%8720-1.png)
+迈克尔·索伯利克指出，“拜登政府将中科曙光从禁令中移除这一举措不可理解”。“这家公司的资源资助了中共在新疆严苛的监控，具体点说就是奥威尔式的‘预测性警力监管’。一些国会成员也曾警告过中科曙光曾参与过中共军队的核能以及超高音速滑翔机的测试项目。中科曙光似乎适用于禁令中应被制裁的全部的两条先决条件，这也引出了为什么中科曙光在禁令中除名的质疑。拜登政府也许对此有一个完美的解释；如果真是如此官员们应该澄清他们的决定。”
 
-庆典活动中，有幸与“煤油灯”一组，我们的任务是去机场接战友。驱车7个多小时才到达机场的“煤油灯”战友，连休息都没有，拿起相机就开始工作。为了抓拍好的镜头，跑前跑后，楼上楼下，一直到晚上11点多才收工。整个活动大概拍了一万多张照片。
+这个决定发生在愈渐激烈的中美科技战中。在本周二（6/9/2021）参议院通过了一项巨额支出草案，旨在提高美国科技和科学研究经费，以及其他竞争领域的资助。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16053250/%E5%9B%BE%E7%89%8721-1.png)
+一些拜登政府的盟友和中国科技公司有联系。拜登提名的国家情报总监总法律顾问在五月份承认曾在中国科技巨头旗下顶级华盛顿游说情报部门工作时曾为华为工作。一位拜登政府贸易过渡团队的成员管理着一家专为中国公司筹集资金的中国企业，而这些中国公司位于拜登政府行政令被禁止名单。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16053601/image9.jpeg)
+白宫对置评请求没有做出回应。
 
-“煤油灯”战友年龄比我们大，体力还那么好，所以我就开始注意他了。休息的时候，聊起来才知道，大家都是一个部门的战友。后来的几天在方便的情况下，我有意识地给他偷拍了一些工作照。因为他的镜头始终都是给战友的，所以希望我的记录能给“煤油灯”战友带来有意义的纪念，也给大家展示一位新中国联邦的摄影师。
+译者评论：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16053357/%E5%9B%BE%E7%89%8722-2.png)
+译者查到此次拜登政府发布的行政令是基于2020年11月12日政府行政令修改而来。而这次行政令的令人疑惑之处在于中科曙光(Dawning Information Industry Co.)不在此列。克里斯托弗·丰泽（Christopher Fonzone）作为被拜登提名的国家情报总监总法律顾问曾给华为提供过法律咨询。而华为却在此次被制裁之列。因此译者认为这件事情的后续发展进程值得关注。此次拜登政府修改的行政令也在某种程度上代表了美国给中共施加压力的大势，而参议院通过的草案也展示出美国正在准备逐渐增加灭共的筹码。值得一提的是，迈克尔·索伯利克使用了CCP这个词汇指出了中国共产党，而华盛顿自由灯塔使用的却是Chinese一词，表明中国人和中国共产党正在逐渐被分开，但中共不等同于中国，不等同于中国人民这个概念还需要更加清晰地传递给世界人民。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16053521/image7.jpeg)
+注：本评论仅代表译者观点
 
+正文链接： [https://freebeacon.com/national-security/biden-removes-chinese-military-tech-company-from-blacklist/](https://freebeacon.com/national-security/biden-removes-chinese-military-tech-company-from-blacklist/)
 
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-
-
-+5
++2

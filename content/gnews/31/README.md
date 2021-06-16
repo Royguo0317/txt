@@ -1,30 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】拜登政府宣布对美国国家卫生研究院的拨款进行调查
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1326172/)
+## 【热点播报】G7峰会收获巨大，为世界重整河山绘蓝图
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1326196/)
 
-#### 撰稿：Grace
-责编：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16014253/fauci-2.jpg)图片来源：basin435
-根据《每日邮报》6月15日发表的一篇报道，一个联邦监督机构周二宣布，开始审查美国国家卫生研究院（NIH）如何管理其拨款项目，这项调查可能包括给予中共的一个实验室的资金，而该实验室是中共病毒问题的中心。这次审查是在越来越多的质问声中进行的，这些质问涉及大流行病是否可能从该实验室的开始，以及那里的科学家是否利用美国的钱对病毒进行 “增强功能”实验。
+作者：香草山健身部 Jack Li文阳
 
-据《每日邮报》报道，共和党人已经仔细审查了美国国家卫生研究院对生态健康联盟（EcoHealth Alliance）的拨款，该联盟是一个科学非营利组织，曾帮助武汉病毒研究所的研究提供资金。 保守派指责联邦官员如安东尼·福奇博士掩盖与武汉的联系。当福奇证实几十万美元通过该非营利组织用于研究蝙蝠的冠状病毒时，这些指责变得更加激烈。
-
-根据5月26日Basin435发表的一份报告，在参议院拨款小组委员会会议期间，Fauci说，“大约拨款80万美元，在五年内花费了大约60万美元，不会超过这个数目”。福奇解释说。“这意味着每年有125,000到150,000美元用于与武汉的合作。”
-
-卫生与公众服务部（HHS）监察长办公室的通讯主任Tesia Williams说，“我们和利益相关者一样，对NIH拨款资金的合规性和监督感到担忧。我们已经监测这个问题有一段时间了，并认为这是一个高度优先事项，可能对NIH赠款项目的完整性构成威胁。”
-
-据《每日邮报》报道，HHS监察长办公室公布的新调查细节表明，像EcoHealth这样向海外汇款的团体将受到审查。“作为转手实体的受资助者必须监督次级受资助者的活动，包括外国次级受资助者，以确保次级资助用于授权目的，遵守相关法律和次级资助的条款和条件”，工作计划说，“我们将审查NIH对选定赠款的监督，以及受赠人按照联邦要求对NIH赠款的使用和管理。”
-
-毫无疑问，福奇和他的同谋们应该因允许中共实验室制造生物武器而受到惩罚。然而了解中共邪恶本质的人也明白，消灭中共是防止另一次大流行病发生的唯一途径。
-
-参考资料：
-
-1. [Biden administration announces probe into NIH grants – including the funding Dr. Fauci approved for the Wuhan lab at center of COVID leak theories](https://www.dailymail.co.uk/news/article-9689515/Biden-administration-announces-investigation-NIH-grants-including-Wuhan-lab.html)
-2. [Dr. Fauci admits to funding bat virus research at Wuhan lab, says NIH funneled $600K over 5 years](https://www.basin435.com/2021/05/26/dr-fauci-admits-to-funding-bat-virus-research-at-wuhan-lab-says-nih-funneled-600k-over-5-years/)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
-(本文仅代表作者个人观点)
+
+全球瞩目的七大工业国（G7）峰会已于6月13日落下帷幕，会后七国发表联合公报，内容包括台湾海峡和平与稳定的重要性，共同谴责中共在香港、新疆人权、强制劳动等问题，一致同意遏制中共日益增长的影响力，在重查中共病毒起源等问题上达成一致共识，并为世界摆脱中共和病毒疫情导致的危机，描绘了发展的蓝图。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16024139/%E5%9B%BE%E7%89%8718-1.png)
+
+在英国举行的七国峰会于6月13日结束3天的议程。联合公报提到了“正值我们人民和地球的关键时刻”， 在共同的民主、自由、平等、法治和尊重人权价值观的指导下，致力于战胜中共病毒，并为更好地重建世界指明了方向。
+
+“中共问题”成为本次峰会最主要的焦点话题，公报承诺通过可用的手段来保护个人免受强迫劳动，确保全球供应链不使用强迫劳动。并推进WTO全球贸易规则的现代化，防止不公平的做法，例如强制技术转让、知识产权盗窃、降低劳工和环境标准以获得竞争优势、国有企业扭曲市场的行为以及有害的工业补贴等，促进公平竞争，很明显这部分也是针对中共国的不公平贸易竞争。七国致力于建设和维护一个开放、可互操作、可靠和安全的互联网，建立一个值得信赖的、价值驱动的数字生态系统，主要也是防止以中共为首的互联网信息偷盗活动。
+
+另外，公报更重申维持一个自由开放的印太地区的重要性，并强调台湾海峡和平与稳定，鼓励两岸问题和平解决。并表示继续对东中国海及南中国海的局势严重关注，强烈反对任何单方面改变现状和增加地区紧张局势的企图。公报还表示，七国将继续促进民主价值观，包括呼吁中共国尊重人权及基本自由，特别是涉及新疆，以及中英联合声明及香港基本法确保的香港的人权、基本自由和高度自治。
+
+G7集团还计划建立一个帮助发展中国家的全球基础设施计划，与中共国的“一带一路 ”相抗衡。G7领导人希望利用这次会议向世界展示，除了中共国以外，富裕的民主国家还可以提供另一种选择。本次峰会宣布的一个雄心勃勃的全球基础设施新倡议，旨在帮助落后国家摆脱中共国的经济和地缘政治的控制。
+
+七国集团峰会公报表现了七国集团领导人一致认为一个愈发咄咄逼人的中共国是世界真正的威胁，美英两国在这次七国峰会上起到了积极的作用。英国女王、约翰逊首相和拜登总统都表现出作为负责任的大国领袖，愿意站在世界的前列，引领各国应对危机，共渡难关。这次G7峰会，也表现了美英两国雄心勃勃的效仿二战时合作机制的决心，重新制定世界新秩序，为世界走出困境指出方向。英国首相鲍里斯·约翰逊在推特上说：这是我们所有人都感到自豪的历史性时刻。
+
+参考阅读：
+
+https://www.voachinese.com/a/white-house-g-7-announces-joint-actions-on-forced-labor-in-global-supply-chains-anticorruption-and-rans-20210613-/5927164.html
+
+https://www.voachinese.com/a/g7-taiwan-reaction-20210614/5927793.html
+
+https://www.dw.com/zh/%E4%B8%83%E5%9B%BD%E9%9B%86%E5%9B%A2%E5%B3%B0%E4%BC%9A%E9%97%AD%E5%B9%95-%E5%A3%B0%E6%98%8E%E7%8C%9B%E6%89%B9%E4%B8%AD%E5%9B%BD/a-57873822
+
+https://www.bbc.com/zhongwen/simp/world-57467131
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
