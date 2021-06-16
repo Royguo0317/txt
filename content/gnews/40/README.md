@@ -1,45 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】匈牙利接种中共国疫苗抗体检测呈阴性
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1325812/)
+## 【澳洲热点】澳大利亚引领七国问责中共病毒来源
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1325791/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+听写/翻译：Lish
+校对/编辑：枳实
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15233031/image001-32.png)图片来源：网络图片
+天空新闻主持人保罗-默里(Paul Murray)日前对今年七国集团峰会的各个方面进行了评论。他说澳大利亚现在已经 “说服了世界其他国家”，有必要让中国对冠状病毒负责。  “默里先生说：”这绝对是一件大事。  “由所有这些现代国家组成的七国峰会现在基本上都已经完全确认和追随了澳大利亚一年多来对病毒真相的立场。那就是他们必须对中共病毒所造成的危害进行问责。这个病毒已经摧毁了西方世界。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+但非常有趣的是，世界卫生组织领导层当初对中共国百般妥协，现在连他们也公开谈论“我需要中共国配合调查，对COVID- 19进行全新的溯源工作，澳大利亚是正确的”。
 
+所有那些人以前曾经假装澳大利亚在做的事情是世界其他国家都不想做的， 但现在澳大利亚已经说服世界其他国家，让他们相信有必要让中共国承担责任，这绝对是一件大事。这对任何总理都是一个警告：我们喜欢的也好，不喜欢的也罢，不管谁是这个国际舞台上的大玩家，游戏就在这里，就在本地。政治一向肮脏，有时候他们会在高层勾兑而有点分心，但是有一个非常实际的原因，为什么世界需要面对中共国？你知道，我知道，实情就是如此，因为它（疫情）每天都在我们国家的市镇，市中心，郊区和乡村上演。
 
+原文链接：[‘Australia has convinced the rest of the world’ about the need to ‘hold China to account’](https://www.skynews.com.au/details/_6258643746001)
 
-
-
-
-
-据[报道](https://www.msn.com/hu-hu/hirek/other/negat%c3%adv-ellenanyagtesztet-produk%c3%a1ltak-a-sinopharmosok-merkely-tesztje-sem-seg%c3%adt/ar-AAL11rI?ocid=mailsignout&amp;li=BBOMZdz)，数百名接种了中共国国药疫苗的匈牙利人抗体检测呈阴性。其中，大部分年龄在60岁以上。抗体检测结果显示，他们接种的中共国疫苗并没有对他们产生保护。
-
-退休的风湿病学家哈伊纳尔卡·博多（Hajnalka Bodó）称，虽然接种了两计中共国疫苗，但是做了三次抗体检测，结果都为阴性。她丈夫也接种了中共国疫苗，检测结果也是阴性。
-
-
-
-**文字版原文：[【热点播报】匈牙利接种中共国疫苗抗体检测呈阴性](https://gnews.org/zh-hans/1324475/)**
-
-作者：纽约香草山写作组 simida
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1
