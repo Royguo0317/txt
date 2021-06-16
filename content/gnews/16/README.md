@@ -1,51 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月15日美国政要推特精选：“解雇福奇法案”已立项
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1325773/)
+## 中国共产党不会永远存在下去
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1325745/)
 
-众议员玛乔丽·泰勒·格林： 是时候解雇安东尼·福奇了。 我的《解雇福奇法案》正是这样做的。 感谢我的共和党同事支持这项立法。
+翻译：Nick｜校对：JS709｜审核：黎明的光芒
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15225243/Picture1-22.png)图片来自网络
+接近100岁的人通常会考虑死亡问题。 但是，像将于7月1日庆祝其百年诞辰的中国共产党的一些政党却沉迷于使自己不朽。 对于独裁统治的政党来说，这种乐观似乎有些奇怪，因为通常他们的寿命并不是很长。现代，没有一个其他这样的政党存活一个世纪的纪录，这应该让中共的领导人担心，而不是庆祝。
 
+共产党或独裁政党寿命相对较短的一个主要原因是其以某党为主导的现代独裁统治-与民主国家不同-只在20世纪才出现。 苏联是第一个这样的独裁政权，成立于1922年。中国国民党是一个准列宁主义的党派，在1927年获得了名义上的国家控制权。纳粹直到1933年才在德国掌权。几乎世界上所有的共产党独裁政权都是在第二次世界大战后建立的。
 
+但有一个比历史巧合更基本的解释。 独裁政党运作的政治环境是一种远比民主体制更加霍布斯式的存在——“肮脏、野蛮和短暂”。
 
-> It's time to fire Anthony Fauci.
-> 
-> My "Fire Fauci Act" does exactly that.
-> 
-> Thank you to my Republican colleagues for supporting this legislation.[#FireFauci](https://twitter.com/hashtag/FireFauci?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/z2UenvrBjM](https://t.co/z2UenvrBjM)
-> — Rep. Marjorie Taylor Greene (@RepMTG) [June 15, 2021](https://twitter.com/RepMTG/status/1404855856403988480?ref_src=twsrc%5Etfw)
+独裁政党死亡的一种确定方式是发动战争并失败，这种命运发生在意大利的纳粹和墨索里尼的法西斯分子身上。 但大多数失去权力的方式远没有那么戏剧化（或具有破坏性）。
 
+在非共产主义政权中，长期存在和有前瞻性的执政党，如台湾国民党和墨西哥革命制度党，在失去所有合法性之前看到了人民的意愿并发起了民主化改革。 尽管这些政党最终被选下台，但它们在政治上仍然具有生存能力，并随后通过赢得竞争性选举重新掌权。（2008 年在台湾和 2012 年在墨西哥）
 
+相比之下，试图通过有限的民主改革来安抚民众的共产主义政权最终都崩溃了。在前苏联集团，1980 年代的自由化措施迅速引发了革命，将共产党人和苏联本身扫入了历史垃圾箱。
 
-众议员保罗·戈萨尔： 是时候让福奇上路了。很荣幸成为“解雇福奇法案”的共同发起人。感谢来自乔治亚州的同事玛乔丽·泰勒·格林[@RepMTG](https://twitter.com/RepMTG)领导这项工作。 【附[http://newsweek.com](https://t.co/lWKmYlfK74?amp=1)的文章链接：玛乔丽·泰勒·格林以及其他共和党人再次呼吁蝠奇下台，并称福奇“控制了美国人的生活”】
+中共不想在即将到来的百年庆典期间纠缠于这段历史。中共国国家主席习近平和他的同事们明显要展示出一种自信和乐观的形象。但政治上的虚张声势不能代替生存策略，一旦中共因为担心太危险而排除改革，可供其选择的选项就极其有限了。
 
+在习近平 2012 年上台之前，一些中共国领导人想借鉴新加坡模式。自 1959 年以来一直统治这个国家的人民行动党 (PAP) 似乎拥有一切：几乎完全垄断的权力、称职的治理、卓越的经济表现和可靠的民众支持。 但中共越看下去—它派了数万名官员到新加坡研究这种体制—它就越不想成为人民行动党的大号翻版。中国共产党人当然希望获得和人民行动党一样巩固的权力，但他们不想采用有助于维持人民行动党至高无上权力的方法和制度。
 
+在使人民行动党的统治地位如此特别的所有因素中，中共最不喜欢的是新加坡合法化的反对党、相对透明的选举和法治。中共领导人明白，这些对人民行动党的成功至关重要的机构如果引入中国，将致命地削弱中共的政治垄断。
 
-> It’s time for Fauci to hit the road. Proud to be a cosponsor of the Fire Fauci act. Thank you to my colleague from Georgia, [@RepMTG](https://twitter.com/RepMTG?ref_src=twsrc%5Etfw) for leading this effort. [https://t.co/Q8m9WmEf5Y](https://t.co/Q8m9WmEf5Y)
-> — Rep. Paul Gosar, DDS (@RepGosar) [June 15, 2021](https://twitter.com/RepGosar/status/1404935545755639817?ref_src=twsrc%5Etfw)
+这也许就是为什么新加坡模式在习近平时代失去了光彩，而朝鲜模式——极权政治镇压、对最高领导人和主体思想（经济自力更生）的崇拜——变得更具吸引力。 诚然，中共国还没有成为大号朝鲜，但过去八年的一些趋势已经将这个国家推向了这个方向。
 
+在政治上，恐惧统治又回来了，不仅对普通民众如此，对中共的精英来说也是如此，因为习近平打着反腐运动的幌子恢复了清洗。审查制度达到了后毛时代最高水平，习近平政权几乎消除了公民社会的空间，包括非政府组织。当局甚至通过监管打压、刑事起诉和没收财产来控制中共国自由的私营企业家。
 
+习近平还孜孜不倦地建立了个人崇拜。这些天，人民日报的头版充斥着习近平的活动和个人法令的报道。最近为庆祝党的百年诞辰而发布的《中共简史》将其四分之一的内容用于记录习近平执政的八年，而仅将一半的篇幅留给了中共真正的救世主邓小平。
 
-参议员罗恩·约翰逊： 这些机构在处理 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 方面有很多需要解释的地方。 这就是为什么我们写信给[@NIHDirector](https://twitter.com/NIHDirector)和[@SecBecerra](https://twitter.com/SecBecerra)，追查他们电子邮件中篡改的部分背后到底隐藏了什么内容。 【附信函全文，视频中罗恩·约翰逊质疑蝠奇邮件门关联方是否掩盖了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的起源】
+经济上，中共国还没有完全实现主体思想。但中共新的五年计划提出了以国内增长为中心的技术自给自足和经济安全的愿景。尽管该党有一个合理的借口—美国的经济和技术脱钩战略让它别无选择—但很少有西方民主国家愿意与一个将朝鲜视为未来政治模式的国家保持经济联系。
 
+当中共领导人为中共百年诞辰干杯时，他们应该问问党是否走在正确的轨道上。 如果不是，中共即将到来的里程碑可能就是它的最后一个。
 
+作者简介：裴敏欣是克莱蒙特麦肯纳学院政府学教授，美国德国马歇尔基金非常驻高级研究员。 本文与 Project Syndicate © 2021 合作发布。图片：Wang Xin/VCG/Getty Images。
 
-> These agencies have a lot of explaining to do about their handling of COVID-19. 
-> 
-> That's why we've written to [@NIHDirector](https://twitter.com/NIHDirector?ref_src=twsrc%5Etfw) [@SecBecerra](https://twitter.com/SecBecerra?ref_src=twsrc%5Etfw) to see what's behind the redactions in their emails.[https://t.co/2cysIcfGsd](https://t.co/2cysIcfGsd) [pic.twitter.com/Vgoe91whKw](https://t.co/Vgoe91whKw)
-> — Senator Ron Johnson (@SenRonJohnson) [June 16, 2021](https://twitter.com/SenRonJohnson/status/1404955632361381892?ref_src=twsrc%5Etfw)
-
-
-
-众议员埃莉斯·斯特凡尼克: 作为自由世界的领袖，美国必须因 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 官员自己的行为对他们追责。 我将与Wittman议员一起提出立法，在对 COVID-19 起源进行调查之前，制裁中国卫生机构官员。 【附斯特凡尼克议员声明全文】
-
-
-
-> As the leader of the free world, the U.S. must hold Chinese Communist Party officials accountable for their actions.
-> 
-> I'm joining [@RobWittman](https://twitter.com/RobWittman?ref_src=twsrc%5Etfw) in introducing legislation that will sanction Chinese Health Agency Officials until there is an investigation into COVID-19 origins. [pic.twitter.com/Lukhc92SHc](https://t.co/Lukhc92SHc)
-> — Rep. Elise Stefanik (@RepStefanik) [June 15, 2021](https://twitter.com/RepStefanik/status/1404877011508731910?ref_src=twsrc%5Etfw)
-
-
+原文作者：裴敏欣（Minxin Pei）
+发布时间：2021年6月15日
+原文链接：https://www.aspistrategist.org.au/the-chinese-communist-party-wont-last-forever/
 
 0

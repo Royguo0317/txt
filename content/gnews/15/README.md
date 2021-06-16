@@ -1,46 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以巴以战争为例谈什么是恐怖主义
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1325768/)
+## 【有声读物】匈牙利接种中共国疫苗抗体检测呈阴性
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1325812/)
 
-责任编辑：新西兰伊甸农场伊甸战斗室节目组
-文字版
-文字编辑：135790abc
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15221005/%E5%9B%BE%E7%89%87-1-6-400x225.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-关于巴以战争谁对谁错，双方打架为了啥？这个已经说不清楚了。现代战争的高科技对老百姓是一大幸事，再不用死大量的人，让很多家庭妻离子散、流离失所，让整个社会都受到很大的冲击.
 
-另一方面，CCP不要再妄想了，你现在把整个西方世界惹恼了，就这种打法我估计你可能还不如哈马斯跟以色列呢。因为以色列的高科技武器不是最好。要是西方，整个美国把真东西拿出来了，你有核武器都扔不出去，你想引爆都爆不了。航母在海上漂着的时候，干扰稳定器，你连动都动不了了。
 
-豹警官：巴以冲突的背后是恐怖主义。什么是恐怖主义？就是为了达成宗教、政治或其他意识形态上的目的，而故意攻击非战斗人员、括号平民或将他们的安危置之不理，有意制造恐慌的暴力行为的这种思想，我们把它称之为恐怖主义。恐怖分子就是躲在平民当中，总让平民给他做挡箭牌。
 
-高频：我十几年前认识一个客户是从台湾来的，老兵，他是黄埔军校最后一期。他说跟共产党打仗的时候，共产党让妇女穿很少，甚至脱光了冲在最前面。我当时心说话至于那样吗？我不太相信，但是现在看来不是假的，他说的是真的。
 
-盘古：国共内战的时候，CCP的作为本质就是恐怖主义。无论如何不可以让平民在危险当中，战争的目的是什么？如果说为了政治利益或者宗教，或者意识形态上的目的，让平民甚至妇孺处在危险中，那就是恐怖主义!
 
-武装冲突都要有正义性的，得道多助，失道寡助。
 
-哈马斯宣称，要代表巴勒斯坦人民的利益，为巴勒斯坦百姓的福祉，他在努力战斗。结果他把巴勒斯坦的妇孺当挡箭牌，甚至在婴儿身上捆炸药。那他的这种行为，就失去了正当性，就像CCP把老百姓当猪狗，欺负九十岁还在上街卖菜的百姓；断了一条腿只有一只脚的快递员，一天要跑一千多趟的快递来维持生活的时候，CCP还要去欺负他们。警察对怀孕的妇女用攻击手段，后脑勺着地摔到地上。
+据[报道](https://www.msn.com/hu-hu/hirek/other/negat%c3%adv-ellenanyagtesztet-produk%c3%a1ltak-a-sinopharmosok-merkely-tesztje-sem-seg%c3%adt/ar-AAL11rI?ocid=mailsignout&amp;li=BBOMZdz)，数百名接种了中共国国药疫苗的匈牙利人抗体检测呈阴性。其中，大部分年龄在60岁以上。抗体检测结果显示，他们接种的中共国疫苗并没有对他们产生保护。
 
-八九六四，人民解放军的坦克车、机枪扫射平民、小孩子、妇女的时候，它就永远失去了它的合法性。它就是恐怖主义。
+退休的风湿病学家哈伊纳尔卡·博多（Hajnalka Bodó）称，虽然接种了两计中共国疫苗，但是做了三次抗体检测，结果都为阴性。她丈夫也接种了中共国疫苗，检测结果也是阴性。
 
-我想借巴以冲突这个事情聊一聊什么是恐怖主义，CCP你是不是恐怖主义？不要说得好听，为人民服务，把枪口对准普通的老百姓的时候，你就是恐怖主义，你没有合法性，你就是反人类罪！
 
-——————-
 
-伊甸灭共行，利他兴联邦
+**文字版原文：[【热点播报】匈牙利接种中共国疫苗抗体检测呈阴性](https://gnews.org/zh-hans/1324475/)**
 
-——————-
+作者：纽约香草山写作组 simida
 
-策    划：TS2020相聚盘古
-责任编辑：新西兰伊甸农场伊甸战斗室节目组
-档案保管：Leo文字编辑：135790abc
 
-【文章仅代表作者个人观点】
 
-审核校对：Barry Jack
-上传排版：F
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
