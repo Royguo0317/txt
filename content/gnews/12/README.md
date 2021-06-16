@@ -1,48 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草山水墨堂】G7女王剑出鞘 ——有感英女王拔剑切蛋糕
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1326007/)
+## 拜登将中国军事科技公司移出黑名单
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1326439/)
 
-**书法**：香草山美食部 文百合
+【日本东京方舟农场】原作者：杰克·贝勒（Jack Beyrer）；翻译：葡萄干；校对：青山依旧
 
-**诗句**：香草山美食部 蓝天大海
+总统拜登发布的一个行政令中解除了对一家因和中国军方合作以及对维吾尔穆斯林监控而知名的中国技术公司的禁令。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
+在本月白宫发布的黑名单更新中没有出现中科曙光（Sugon）。中科曙光是一家在2020年11月被川普政府列入黑名单的中国公司。美国之前因其出售给中国军方超级计算机作为核武器研发而禁止美国人投资中科曙光这家公司。这家公司的云计算、脸部识别技术被多次报道用来监控维吾尔穆斯林。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16054815/6A9ED7EF-3B77-4572-8D51-0CCFB62439F3.jpeg)（中科的口号充分显示了其在政治上的狼子野心。图片来源：chinalandu.com）
 
+迈克尔·索伯利克（音译）（Michael Sobolik）作为一位美国对外关系委员会就中国问题研究员告诉华盛顿自由灯塔（The Washington Free Beacon），尽管拜登（发布的）行政令通过扩大对其他中国科技巨头例如华为和海康威视的制裁是在迈出正确的一步，但其中对中科曙光的缺失却是“不同寻常的”。
 
+迈克尔·索伯利克指出，“拜登政府将中科曙光从禁令中移除这一举措不可理解”。“这家公司的资源资助了中共在新疆严苛的监控，具体点说就是奥威尔式的‘预测性警力监管’。一些国会成员也曾警告过中科曙光曾参与过中共军队的核能以及超高音速滑翔机的测试项目。中科曙光似乎适用于禁令中应被制裁的全部的两条先决条件，这也引出了为什么中科曙光在禁令中除名的质疑。拜登政府也许对此有一个完美的解释；如果真是如此官员们应该澄清他们的决定。”
 
+这个决定发生在愈渐激烈的中美科技战中。在本周二（6/9/2021）参议院通过了一项巨额支出草案，旨在提高美国科技和科学研究经费，以及其他竞争领域的资助。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16003302/image0-48-1.jpg)
+一些拜登政府的盟友和中国科技公司有联系。拜登提名的国家情报总监总法律顾问在五月份承认曾在中国科技巨头旗下顶级华盛顿游说情报部门工作时曾为华为工作。一位拜登政府贸易过渡团队的成员管理着一家专为中国公司筹集资金的中国企业，而这些中国公司位于拜登政府行政令被禁止名单。
 
-女王佩剑切蛋糕
-骑士威武显英豪
-苍生涂炭染瘟疫
-万神共愤斩红妖
+白宫对置评请求没有做出回应。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16003517/image0-47-1.jpg)
+译者评论：
 
-编辑/上传：遍地开花 审核/发布：飞虹
+译者查到此次拜登政府发布的行政令是基于2020年11月12日政府行政令修改而来。而这次行政令的令人疑惑之处在于中科曙光(Dawning Information Industry Co.)不在此列。克里斯托弗·丰泽（Christopher Fonzone）作为被拜登提名的国家情报总监总法律顾问曾给华为提供过法律咨询。而华为却在此次被制裁之列。因此译者认为这件事情的后续发展进程值得关注。此次拜登政府修改的行政令也在某种程度上代表了美国给中共施加压力的大势，而参议院通过的草案也展示出美国正在准备逐渐增加灭共的筹码。值得一提的是，迈克尔·索伯利克使用了CCP这个词汇指出了中国共产党，而华盛顿自由灯塔使用的却是Chinese一词，表明中国人和中国共产党正在逐渐被分开，但中共不等同于中国，不等同于中国人民这个概念还需要更加清晰地传递给世界人民。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+注：本评论仅代表译者观点
 
-**更多资讯，更多关注**
+正文链接： [https://freebeacon.com/national-security/biden-removes-chinese-military-tech-company-from-blacklist/](https://freebeacon.com/national-security/biden-removes-chinese-military-tech-company-from-blacklist/)
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
-
-
-
-
-
-0
++2

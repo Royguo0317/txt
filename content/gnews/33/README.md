@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 马云跪了马云退了,马云不再担任口碑大股东
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1326192/)
+## 【每日快讯】06/14/2021：G7联合声明36年来首次提保护台海和平并对新冠起源迳行调查
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1326251/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16024726/001NoFholy1grk13bsdtzj60m90l43zr02_%E5%89%AF%E6%9C%AC.jpg)
-据[**新京报贝壳财经**](https://weibo.com/1646051850?refer_flag=1001030103_) [2021年6月16日 13:10](https://weibo.com/1646051850/KkqWG5YVy?from=page_1002061646051850_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
+**制作：Cantonese工作室**
 
-【[#*马云*退出口碑#](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E4%BA%91%E9%80%80%E5%87%BA%E5%8F%A3%E7%A2%91%23) 不再担任该公司大股东】企查查APP显示，杭州口口相传网络技术有限公司于6月16日发生工商变更，原最大股东*马云*、主要成员陈盛、周剑锋退出，股东变更为有口皆碑（杭州）企业管理有限公司。[#*马云*不再担任口碑最大股东#](https://s.weibo.com/weibo?q=%23%E9%A9%AC%E4%BA%91%E4%B8%8D%E5%86%8D%E6%8B%85%E4%BB%BB%E5%8F%A3%E7%A2%91%E6%9C%80%E5%A4%A7%E8%82%A1%E4%B8%9C%23) ​
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16024743/001NoFholy1grk13bsdtzj60m90l43zr02.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16024753/001NoFholy1grk13bryv2j60pm0io75i02.jpg)
-马云的钱是谁的钱？郭文贵先生在[6月12号文贵直播：新盖特，盖特Pay将是全球的领导者；爆料革命不要急功近利，任何时候都要无我；爆料革命，新中国联邦，法治基金，将永远在我们的生命之上，成为我们的信仰！](https://gtv.org/video/id=60c372d08ce6da73c4192a2d)直播中提到：
 
-［就跟马云谈话，里边说马云，先给你澄清几个问题，你能发展到今天，是谁让你发展的呀？马云说是我们的员工——掌嘴！！！没有共产党的改革开放，怎么有你马云？你早回100年前大清早把你弄死了，未来100年也没你活的地方！掌嘴！！！先认识清楚！没党没有马云。你问问马云有这事儿没有？审判的人告诉我说马云最后是傻了，是~是~是~一切都是没有党不行。
 
-第二个就告诉他，马云，你的钱是哪来的？都是党的、都是党的。——放他妈屁，你的钱都是人民的，人民的钱放在你那儿去，怎么就成你马云的了呢？怎么成你阿里巴巴了呢？掌嘴，马云又傻了，原来这钱是人民的，是人民的是人民的。
+**播报：【文依】资料整理：【Annie 喜马拉雅】【sunny64】【闪电】海报制作：【侬民】视频制作:【ken】发布：【向阳6768】**
 
-第三，你到处全世界演讲，代表中国人民，党和国家领导人在哪儿呢？你有野心吗？是不是想从政啊？还搞什么大学啊？马云说，没有、没有、没有。还没有？你想搞大学干什么？你不是要改变民心吗？你跟外国领导人一见面就谈中国领导人的普遍教育水平很低。是不是就因为你当过老师啊？——你看共产党都给记着呢。
+摘要：
 
-这大嘴巴给扇的，最后马云是磕头也不行，是站着也不行，跪着也不行，这马云是真惨。现在老百姓还能选择躺平，这马云在里边呆着是站着——挨揍！跪着——你跪的姿势不对，躺平——不行。哇塞，这就是共产主义。］
-
-马云磕头了，马云跪下了，马云退出股东了，其实看着马云的一幕幕遭遇我一点也笑不起来，哪怕连半点幸灾乐祸的心情也没有，因为马云都可以被糟蹋成这样，又有哪个人能幸免呢？此时此刻的马云想必和我们有着同样的心情——干灭共产党！因为不管贫穷也好富贵也好，我们每个人与生俱来的一样东西都是不可剥夺的——那就是我们的尊严！
-
-（文章内容仅代表作者个人观点）
-
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门
-
-+1
+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16032853/12_page-0002-2.jpg)
+2
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16032935/12_page-0003-2.jpg)
+3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033039/12_page-0004-2.jpg)
+4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033134/12_page-0005-2.jpg)
+5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033208/12_page-0006-2.jpg)
+6
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033257/12_page-0007-2.jpg)
+7
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033327/12_page-0008.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12114228/200608_8_of_8-1.png)
+0

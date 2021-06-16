@@ -1,43 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 解析美国科学界中共正在玩的提线木偶游戏
-` tongwandou` [轉載自GNews](https://gnews.org/zh-hans/1326339/)
+## 6/16/2021 财经快讯：联邦法官阻止政府暂停出租新石油天然气用地；数字广告业被指控存在巨大数据泄露
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1326477/)
 
-1975年10月1卡罗林斯卡学院、即瑞典卡罗林斯卡医学院（瑞典语：Karolinska Institutet）将诺贝尔生理学和医学奖颁发给了**David Baltimore（戴维·巴尔的摩）**、Renato Dulbecco（罗纳托·杜尔贝科）以及Howard Temin（霍华德·特明），因为他们三人发现了肿瘤病毒和细胞中的基因材料之间的交互作用（the interaction between tumour viruses and the genetic material of the cell）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16065146/%E5%9B%BE%E7%89%871-46.png)[图片来源](https://www.reuters.com/)
+**1.****联邦法官阻止拜登政府暂停出租新的石油天然气用地**
 
-2021年6月14日中共国参考消息网登出了一条消息2，让1975年诺贝尔生理学和医学获奖者之一的戴维·巴尔的摩又一次站在了世界的风口浪尖上。中共参考消息网援引美国《洛杉矶时报》（*Los Angeles Times*）网站6月8日的一篇文章3，宣称戴维·巴尔的摩就中共病毒起源改口，从起初支持中共病毒实验室泄漏理论改口说实验室泄漏理论没有确凿证据。事实果真如此吗？发生了什么？
+[川普任命的路易斯安那州西区联邦法官周二发布了一项初步禁令，停止拜登政府暂停在公共土地上进行新的石油和天然气租赁的做法。美国地区法官Terry Doughty的禁令是在共和党控制的几个州提起诉讼后发出的，据说包括拜登在2020年赢得的州和乌特印第安部落都出来抨击拜登的联邦能源禁令。](https://www.thegatewaypundit.com/2021/06/just-trump-appointed-judge-halts-bidens-pause-new-oil-gas-leasing-public-lands/)
 
-《洛杉矶时报》的这篇报道援引了一篇2021年5月5日《原子科学家公报》4（*Bulletin of the Atomic Scientists*）网站发表的**Nicholas Wade（尼古拉斯·韦德**5）的一篇文章6。他写的这篇文章，专门分析了中共病毒的来源，讨论了中共病毒的自然来源假说、自然进化假说、实验室泄漏假说、以及人畜共患病的来源于RaTG13的假说。最终把中共病毒来源的可能性、看似科学的、很含蓄的、指向了实验室泄漏说，并且非常隐蔽的把这个**实验室泄漏说**跟川普总统绑在了一起。
+[根据国会议员凯文-布雷迪（Kevin Brady）的说法，如果拜登对天然气和石油的战争是永久性的，德克萨斯州将失去12万个工作岗位。尤特印第安部落商业委员会主席Luke Duncan邓肯先生指责拜登政府违反了美国对尤特印第安部落的条约和信托责任，并违反了 “部落主权和自决权的重要原则”。](https://www.thegatewaypundit.com/2021/06/just-trump-appointed-judge-halts-bidens-pause-new-oil-gas-leasing-public-lands/)
 
-尼古拉斯·韦德在他的这篇文章中，没有一句话提到闫丽梦博士对于中共病毒起源的爆料内容，也只字未提闫博士的论文。但是他提到了戴维·巴尔的摩所说的支持中共病毒实验室泄漏的理论，是“**冒着烟的枪**”。
+**2.****数字广告业被指控存在巨大的数据泄露**
 
-尼古拉斯·韦德在文中写道：不同有机生物体对于遗传编码是有偏好的。人类细胞在标记精氨酸时喜欢CGT、CGC、或者CGG这三种序列，但是CGG这种序列是蝙蝠冠状病毒标记精氨酸时最少被采用的方式。中共病毒在它的突触蛋白（Spike Protein，即S Protein）的S1位置和S2位置相连接的地方，被插入了一个**12位的核苷酸**，序列是：**T-CCT-CGG-CGG-GC**。其中，两个CGG编码都是为了精氨酸的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16045059/Furin.png)
-他接着说，这两个并列的CGG的遗传序列非常奇怪。这种CGG-CGG的双结构没有在任何β类冠状病毒中被发现过，而且这种结构会急剧增加病毒的感染能力。任何人想要在病毒基因中插入一个**弗林酶切位点（弗林蛋白酶裂解位点）**，都会在实验室这么做：合成四个胺基酸PRRA组成的序列，很可能使用**CGG**的遗传编码来达到这个目的。因此会出现诡异的**CGG-CGG双结构**。
+[爱尔兰公民自由委员会正在起诉互动广告局（IAB）的一个分支及下辖机构，称它为 “世界上最大的数据泄露”。IAB成员包括Facebook、谷歌和亚马逊，设在纽约的IAB技术实验室负责制定数字广告行业标准。案件由约翰尼-莱恩提出，焦点在广告经纪人和其他公司之间共享的数据；广告空间是在网站加载时被拍卖的，这就是所谓的实时竞价。](https://www.bbc.com/news/technology-57232253)
 
-尼古拉斯·韦德在文章中引述了**戴维·巴尔的摩**对于中共病毒所表现出来的这一特征的评价：“当我第一次看到这个病毒序列中的弗林酶切位点时，包括它的精氨酸遗传编码，我对我的妻子说，对于病毒来源这个问题来说，这就相当于是**冒着烟的枪**（比喻证据确凿）。”……“这些特征对于中共病毒自然起源说是个强有力的挑战。”7
+[对于为了投放数字广告而收集的人们的数据存在争议，尽管这种形式的收入是目前大多数互联网服务免费使用的原因。但莱恩先生认为，大多数使用在线服务的人并不知道有多少关于他们的数据被共享，以及与谁共享。IAB技术实验室提供了行业标准的两位数和三位数的代码，代表众多类别，包括性行为、宗教观点等主题领域，以及该设备是否属于有债务的人等，并被附在个人档案上，这种公开的代码被称为受众分类法。](https://www.bbc.com/news/technology-57232253)
 
-**尼古拉斯·韦德**的这篇文章被很多支持**实验室泄漏说**的人所引用，因此《洛杉矶时报》记者Michael Hiltzik（迈克尔·希尔茨克）就此事询问了戴维·巴尔的摩。戴维·巴尔的摩告诉这位记者，他确实授权给了尼古拉斯·韦德，允许他在发表文章中使用他的论断。但是他补充道：他在使用“冒着烟的枪”的时候，语气应当和缓些，他说他不相信这证明了弗林酶切位点的来源，**但是这听起来确实是那样的**。他相信这个序列到底是自然产生的还是分子层面的人为操控，这个问题难以决定，**但是他不会把两种可能的起源否定掉的**。
+[莱恩先生现在已经向汉堡的一家法院提起诉讼，理由是没有人主动同意收集或分享这些数据。他说，在2018年5月欧洲数据隐私法GDPR启动时，他向爱尔兰数据保护专员办公室提出了类似的投诉，但三年后调查仍在继续。他表示，已经向其他欧盟国家的信息专员提出了重复的投诉。苹果公司也在越来越多地打击广告追踪，对设备上的应用程序追踪实施 “选择进入 “同意–其大部分客户都选择不启用。Facebook认为，苹果此举可能对小企业的打击最大。](https://www.bbc.com/news/technology-57232253)
 
-戴维·巴尔的摩的这句话，非常清楚的表达了**他并没有排除弗林酶切位点被人为操纵的可能性**。中共国参考消息网宣称的戴维·巴尔的摩就中共病毒起源改口，从起初支持中共病毒实验室泄漏理论改口说实验室泄漏理论没有确凿证据，这完全是无稽之谈。荒谬可笑。是中共的写手文人没读懂原文吗？当然不是。**中共是在故意欺骗和愚弄不知所以然的中国老百姓！**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16045451/CCP%E7%97%85%E6%AF%92.png)
-**克里斯蒂安·安德森（Kristian Anderson）**是一位支持中共病毒自然进化理论、**为中共**制毒放毒恶行**洗地**的美国科学家。他来自加州（California）拉霍亚（La Jolla）市的斯克里普斯研究所（The Scripps Research Institute，简称：TSRI），这个非盈利性质的美国医学研究中心。这个中心在濒临死亡之时，被中共重金收买，其中像安德森这样的科学家从此开始为中共卖命。
+**3.****美国IPO半年内创下年度纪录**
 
-**克里斯蒂安·安德森**对**戴维·巴尔的摩**关于“冒着烟的枪”的表述出来以后，立刻实施了反扑。而巴尔的摩在被反扑的情况下，认怂了一半儿：在写给自然杂志的一封邮件中8，巴尔的摩说安德森对于中共病毒的自然进化说可能是对的，但是也补充说，存在其他的可能性**，**并且需要认真仔细的考虑。
+[华尔街创纪录的股市筹资活动没有显示出经济放缓的迹象。根据Dealogic的数据显示，距离年底还有6个多月的时间，美国IPO总额已经达到1710亿美元，超过了2020年的1680亿美元的记录。推动IPO热潮的背后原因是企业的高估值，由美联储的低利率和中共病毒大流行后的货币刺激而导致。这不但助长了一波投机狂潮，而且有利于传统公司上市，更有利于特殊目的收购公司（SPACs）。](https://wtvbam.com/2021/06/15/u-s-ipos-hit-annual-record-in-less-than-six-months/)
 
-可以从中看到什么呢？克里斯蒂安**·**安德森和戴维·巴尔的摩的较量，是美国科学界里的左手打右手的**“左右互博术”**。在新中国联邦成立一周年庆典上，Bill Gertz（比尔·格茨）先生提到了美国军情部门中存在的所谓的“[两个理论并立](https://gnews.org/zh-hans/1316535/)”。实际上，在科学界中同样存在。**中共站在背后正在玩提线木偶的游戏**。
+[根据Dealogic的数据，截至目前，今年美国IPO的平均单日收益为40.5%，而2020年同期为28.2%，2019年为21.7%。2021年的平均单周收益为35.7%，高于2020年的32.2%和2019年的25.5%，截至6月15日的第二季度，IPO收益已经触及241亿美元。消息人士此前告诉路透社，仅滴滴出行的发行就能筹集到近100亿美元。据投资银行家称，到今年年底，美国的IPO可能会筹集2500亿至3000亿美元或更多。](https://wtvbam.com/2021/06/15/u-s-ipos-hit-annual-record-in-less-than-six-months/)
 
-参考的消息来源：
+[创纪录的数字主要是由SPAC的上市热潮推动的。根据SPAC研究公司的数据，仅在第一季度，SPAC上市就筹集了近1000亿美元，远高于2020年全年的830亿美元。尽管最近SPAC交易有所放缓，但今年已经有339家SPAC成立，筹集了大约1050亿美元，占IPO总量的近三分之二。在2020年，SPAC的交易量占到了IPO总收益的一半以下。](https://wtvbam.com/2021/06/15/u-s-ipos-hit-annual-record-in-less-than-six-months/)
 
-1. [1975年诺贝尔生理学与医学奖获奖者记录](https://www.nobelprize.org/prizes/medicine/1975/press-release/)
-2. 中共国参考消息网：[诺奖得主就新冠病毒起源改口 实验室泄漏论没有“确凿证据”](http://www.cankaoxiaoxi.com/science/20210614/2445975.shtml)
-3. 《洛杉矶时报》（*Los Angeles Times*）：专栏：诺贝尔奖获得者从支持COVID-19实验室泄漏理论的“冒着烟的枪”的宣称中退了回去（[Column: A Nobel laureate backs off from claiming a ‘smoking gun’ for the COVID-19 lab-leak theory](https://www.latimes.com/business/story/2021-06-08/nobel-laureate-baltimore-smoking-gun-for-the-covid-lab-leak-theory)）
-4. 《原子科学家公报》，原名《芝加哥原子科学家公报》（*Bulletin of the Atomic Scientists of Chicago*），是一群参与了曼哈顿计划（Manhattan Project）的、制造原子弹核武器的科学家们，在二次世界大战期间、在美国军方刚刚在日本广岛和长崎两地投下了两枚原子弹后、紧接着就建立的一个非盈利组织的报刊。他们宣扬世界末日。
-5. 尼古拉斯·韦德是个英国科学科普作家和编辑，长期为自然（*Science*）杂志、科学（*Nature*）杂志工作，并为美国纽约时报（*The New York Times*）工作多年。
-6. 《原子科学家公报》（*Bulletin of the Atomic Scientists*）：COVID起源：是人还是自然打开了武汉的潘多拉盒子？（[The origin of COVID: Did people or nature open Pandora’s box at Wuhan?](https://thebulletin.org/2021/05/the-origin-of-covid-did-people-or-nature-open-pandoras-box-at-wuhan/)）
-7. 英文原文如下：“When I first saw the furin cleavage site in the viral sequence, with its arginine codons, I said to my wife it was the smoking gun for the origin of the virus.”……“These features make a powerful challenge to the idea of a natural origin for SARS2.”
-8. 自然（*Science*）杂志：COVID实验室泄漏假说：科学家们知道或者不知道的东西（[The COVID lab-leak hypothesis: what scientists do and don’t know](https://www.nature.com/articles/d41586-021-01529-3) ）
+**4.****期铜暴跌至七周低点**
 
+[由于对美联储货币紧缩和中共国需求回落的担忧，铜价周二暴跌至七周以来的最低水平。从铝到铜到铅到镍到锡到锌等基本跌幅在2-4%之间。以铜为例，伦敦金属交易所的期货价格下跌4%，达到七周以来的最低水平。三个月的伦敦金属交易所铜期货交易量约为每吨6,563美元，自5月初达到10,747美元的最高价以来，在25个交易日内下跌了11%。德国商业银行的分析师Daniel Briesemann表示，市场参与者担心美国联邦储备委员会将在本周发出信号，表示打算收紧其超宽松的货币政策； 此外，高涨的金属价格似乎正在使中共国的需求放缓。](https://www.zerohedge.com/commodities/copper-futures-plunge-seven-week-low-base-metals-slip-fed-china-demand-woes)
+
+[随着生产者通胀率飙升至12年高点，国家决策者一直在遏制商品市场的投机行为。此外，中共国信贷的放缓首先影响到了主要由中共国经济驱动的资产，如债券收益率和工业金属价格，接下来受到影响的是西方经济体的通胀盈亏平衡点和主权债券收益率。](https://www.zerohedge.com/commodities/copper-futures-plunge-seven-week-low-base-metals-slip-fed-china-demand-woes)
+
+**5.****朝鲜金正恩表示粮食“紧张”**
+
+[朝鲜领导人金正恩表示，由于去年台风摧毁了农作物，该国的粮食状况 “越来越紧张”，而他关闭边界，以防止中共病毒的决定使情况变得更糟。根据朝鲜中央通讯社星期三报道，金正恩在其执政的朝鲜劳动党中央委员会全体会议上表示，农业部门未能完成其粮食生产计划。此前，金正恩已经罕见地承认，去年夏天他更换了负责经济的指定人选，政策出现了偏差。](https://www.bloomberg.com/news/articles/2021-06-16/kim-jong-un-says-north-korea-s-food-situation-getting-tense)
+
+[惠誉解决方案公司在4月表示，朝鲜的经济在经历了几十年来最严重的萎缩之后，2021年将几乎没有增长，因为该国继续与大流行病、惩罚其核试验和导弹试验的国际制裁以及与中共国的贸易下滑作斗争。朝鲜长期与粮食短缺作斗争，金正恩一年多前决定关闭边境，这使朝鲜与中共国的贸易陷入困境。](https://www.bloomberg.com/news/articles/2021-06-16/kim-jong-un-says-north-korea-s-food-situation-getting-tense)
+
+**6.****加拿大与欧盟签署原材料战略伙伴协议**
+
+[加拿大总理贾斯汀-特鲁多结束与欧洲理事会主席查尔斯-米歇尔和欧盟委员会主席乌苏拉-冯德莱恩欧盟领导人峰会，宣布了一项新的原材料战略伙伴关系，以帮助确保关键矿物和金属的供应链安全，这些矿物和金属对于向更清洁和数字化的经济过渡至关重要，包括用于电动汽车和先进的电池储存。新的伙伴关系还将推进原材料开采和加工方面的研究和创新合作，并为企业创造新的贸易机会以及私人和公共投资。两位领导人还重申了加拿大和欧盟在《加拿大-欧盟全面经济贸易协定》（CETA）下的强大贸易关系，该协定正在为大西洋两岸的企业和工人创造良好的中产阶级就业机会。](https://pm.gc.ca/en/news/news-releases/2021/06/15/prime-minister-concludes-productive-canada-european-union-summit)
+
+**7. ****欧盟暂停10家银行债券销售一级交易商资格**
+
+[由于违反垄断法，欧盟暂时冻结10家银行的一系列债券销售资格；目前正在对这些银行之前违反反垄断规则的行为进行评估。包括摩根大通(JPMorgan Chase & Co.)、花旗集团(Citigroup Inc.)、美国银行(Bank of America Corp.)和巴克莱(Barclays Plc)在内的银行已被欧盟委员会阻止为欧元复苏基金NextGenerationEU安排银团交易。欧盟委员会在一份声明中说，”将仔细评估被认定违反反垄断规则的主要交易商，是否已采取必要的补救措施来终止这些做法，并准备采取措施避免其再次发生。其他受影响的银行包括德意志银行、野村控股有限公司、意大利联合信贷银行、NatWest Group Plc、Natixis SA和Credit Agricole SA。](https://www.business-standard.com/article/international/eu-blocks-citi-9-other-banks-from-some-bond-sales-over-antitrust-breaches-121061501315_1.html)
+
+[周二开始，欧盟将发行创纪录的200亿欧元（240亿美元）的10年期债券，投资者的订单达到约1420亿欧元，丹斯克银行(Danske Bank A/S)和桑坦德银行(Banco Santander SA)被任命为联合牵头经办人，法国巴黎银行(BNP Paribas SA)、德意志银行(DZ Bank AG)、汇丰控股有限公司(HSBC Holdings Plc)、IMI Plc和摩根斯坦利为簿记管理人。](https://www.business-standard.com/article/international/eu-blocks-citi-9-other-banks-from-some-bond-sales-over-antitrust-breaches-121061501315_1.html)
+
+**8.中共国港口疫情影响全球供应链**
+
+[继与中共病毒有关的港口航运中断和苏伊士运河被封锁之后，中共国的一个主要航运中心实施限制，以防止中共病毒更强毒株的传播。在5月下旬检测到病毒变体后，中共当局关闭了广东省的繁忙地区和企业。CNBC报道，港口码头被迫在现场工人有限的情况下运作。据路透社报道，广东省的港口，包括蛇口、南沙、赤湾和盐田，已经发出通知，有效地禁止没有事先预订的船只到港。这些港口将要求在船舶抵达前三至七天前预订出口集装箱。在中共国南部港口出现拥堵后，预计交易时间表将重新被推迟，航运成本将上升。广东省占中共国出口总额的24%左右，该省是深圳和广州这两个港口城市的所在地，就集装箱吞吐量而言，是世界第三和第五大港口。供应链整合平台Chain.io的创始人兼首席执行官Brian Glick告诉CNBC，中共国的航运危机以及全球供应链面临的挑战，使航运业处于 “绝对未知的水域”。](https://www.ibtimes.com/massive-delays-china-ports-after-covid-19-outbreak-global-supply-chains-take-hit-3226286)
+
+评论：主流媒体CNBC总能第一时间报道中共国制造的“全球恐慌“事件。
+
+By 【秘密翻译组-金融组】
+作者：Apple
 
 0

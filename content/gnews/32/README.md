@@ -1,43 +1,139 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳洲热点】七国集团支持澳大利亚对抗中共国挑战
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1326203/)
+## 2021/06/16 英喜时事速递
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1326229/)
 
-#### 翻译：文扬
+收集：Alicia，Cindy，Daniel，Filon，Kangen，飞翔的鹰，文大石
+*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
 
-#### 校对/编辑:文泓
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16025139/Picture1-23.png)
-图片来源：9News
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16040242/ae9d781365085314.jpg)
 
-在启程前往英国康沃尔之前，斯科特·莫里森 (Scott Morrison)便呼吁七国集团提供后援，最终他获得了支持。
+## 美国政要推文
 
-2019年于法国举行的最近一次七国集团会议上，中共国话题几乎没有被提及。两年过去了，围绕中共的侵略行为，西方自由民主国家已经采取行动，开始与之划清界限。
 
-峰会公报特别指出维持一个自由和开放的印度洋-太平洋地区以及维护台湾海峡两岸和平与稳定的重要性，并对中共国在东海和南海的军事化扩张表示关切。
 
-**七国集团呼吁全世界关注中共对新疆维吾尔人的人权侵犯和在香港实施的专制暴行；它承诺通过世界贸易组织解决中共国扭曲市场的贸易和经济行为；它还承诺制定一个竞争对手的基础设施计划来挑战北京的****“****一带一路****”****倡**议。
+> 众议员埃莉斯·斯特凡尼克:
+> 作为自由世界的领袖，美国必须因 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) 官员自己的行为对他们追责。
+> 
+> 我将与Wittman议员一起提出立法，在对 COVID-19 起源进行调查之前，制裁中国卫生机构官员。
+> 【附斯特凡尼克议员声明全文】 [https://t.co/37qHUaqJ4W](https://t.co/37qHUaqJ4W)
+> — 美国政要等…直译推 (@zhiyitw33) [June 15, 2021](https://twitter.com/zhiyitw33/status/1404915252072906757?ref_src=twsrc%5Etfw)
 
-**进而支持对中共病毒的起源进行调查**——一年前，莫里森先生单方面呼吁进行国际调查，引发了中共国疯狂的贸易报复。
 
-莫里森政府多次被媒体批评，在指责中共的战略自信、贸易胁迫和领土争端方面走在西方前列，这次澳大利亚的立场得到了七国集团的强烈支持。
 
-他还强调了欧洲国家在印太地区参与制衡中共国的重要性。尽管英国海军已加强在印太地区的事实存在，但预计法国、意大利和德国等欧洲国家不会马上跟上。
 
-**七国集团从维护自由和开放社会的民主价值的角度出发，对专制国家进行反击。**
+> 评论：美国的立法将是对中共一层层制裁的开始，一旦立法，将是决定下一个世纪的开始
 
-同样值得欢迎的是，七国集团进一步标志着美国在乔.拜登总统的领导下恢复了其全球角色，并愿意与盟友合作参与多边倡议。拜登先生与莫里森先生和约翰逊先生举行的三方会议和团结的表现，突出了这一点的象征意义。
 
-中共国的轻蔑地认为，七国峰会是一场少数西方国家开历史倒车，自以为掌控世界的一幕戏剧。
+## Gnews [索尼克：美国海军称航母群在南海作业已称常态](https://gnews.org/zh-hans/1323717/)
 
-七国集团对中共国的反击定位于维护自由和开放社会的民主价值，以及“基于规则的世界秩序”。这种对自由民主的重申得到了澳大利亚和其他峰会嘉宾的支持，包括南非、印度和韩国，后两者与中共国有着尖锐的矛盾。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15033850/3KXELk4XIfjYZMYLGCELLEO64EGJGTQ.jpg)
 
-正如本文评论员所坚持的那样，鼓励我们的主要贸易伙伴回到基于规则的国际贸易体系，才最符合澳大利亚的国家利益，而中共国已经从中获得了巨大的利益。
 
-因此，作为让中共国遵守贸易规则并结束针对澳大利亚出口的贸易地缘政治武器，莫里森先生还鼓励七国集团修复多边贸易体制。峰会承诺世贸组织争端解决系统需要“正常运作”，并“解决长期存在的问题”。
+> 评论：美国海军用实际行动打脸了中共对南海的主权声张。
 
-在英国康沃尔七国集团峰会上，澳大利亚的请求已经得到了响应和承诺，但在全面应对中共国挑战方面还有很长的路要走，十分考验各方的决心。
 
-原文链接：[PM calls for back-up and gets it at G7](https://www.afr.com/policy/foreign-affairs/pm-calls-for-back-up-and-gets-it-at-g7-20210614-p580qv)
+## Gnews Shuizhuyu: [北约将中共国列为“系统性挑战”](https://gnews.org/zh-hans/1324042/)
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15052908/nato-bundeswehr-soldaten-1001280x720-1.jpg)
+
+
+> 评论：这是把中共排除出北约成员国范围以及把中共列为文明世界威胁的一个重大信号
+
+
+## 意大利达芬奇农场Gnews：[苏俄专制与中共专制下精英的选择](https://gnews.org/zh-hans/1321889/)
+
+![文革何以在大陆成为禁区？ - 文革五十周年]()![文革何以在大陆成为禁区？ - 文革五十周年](https://s.rfi.fr/media/display/c23e29e2-165a-11ea-9909-005056a99247/w:1280/p:16x9/20160224101606270.jpg)
+
+
+> 评论：苏俄专制下的精英选择逃离乱邦，而中共专制下的精英却分不清家与国、政府与政权的区别，被中共一再忽悠。这其中的差别就是信仰的有无，缺失了信仰的引领选择了错误的方向。
+
+
+## 康州盘古农场Gnews：[2020欧洲足球锦标赛场上奇怪的中文广告](https://gnews.org/zh-hans/1324866/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15125552/83.jpg)
+
+
+> 评论：文章认为欧洲赛场上的中文广告主要受众是生活在海外的华人。奇怪的中文广告让我们看到了中共魔爪在世界上渗透的范围，并不是离开了中共国，海外华人就可以远离中共的。
+
+
+## 澳喜农场Gnews：[红魔之手已伸向我们的下一代——解读校外教育培训监管司的成立](https://gnews.org/zh-hans/1324858/)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15124700/%E6%A0%A1%E5%A4%96%E6%95%99%E8%82%B2%E5%9F%B9%E8%AE%AD.jpg)
+
+
+> 评论：政治建设优于一切是中共治理国家的根本宗旨。统一思想，杜绝差异化和个性化，完全违背教育的本性。中共对教育的所有动作越发直白的呈现其愚民的手段。
+
+
+## 德国之声：[病毒起源八卦满天飞 石正丽:我没做错](https://www.dw.com/zh/%E7%97%85%E6%AF%92%E8%B5%B7%E6%BA%90%E5%85%AB%E5%8D%A6%E6%BB%A1%E5%A4%A9%E9%A3%9E-%E7%9F%B3%E6%AD%A3%E4%B8%BD%E6%88%91%E6%B2%A1%E5%81%9A%E9%94%99/a-57893830)
+
+![China I Virologin Shi Zhengli in Wuhan]( "China I Virologin Shi Zhengli in Wuhan")![China I Virologin Shi Zhengli in Wuhan](https://static.dw.com/image/56129417_303.jpg "China I Virologin Shi Zhengli in Wuhan")
+
+
+> 评论：难道石正丽教授要为中共背黑锅吗？
+
+
+## BBC：[从安徽安庆到复旦大学 中国恶性伤人事件频发背后的社会焦虑和挫折](https://www.bbc.com/zhongwen/simp/chinese-news-57468159)
+
+![1]()![1](https://ichef.bbci.co.uk/news/640/cpsprodpb/13485/production/_118918987_gettyimages-1233298803.jpg)
+
+
+> 评论：中共国最近频繁的恶性伤人事件反映出普遍的社会挫折感和焦虑状态，在中共的统治下完全没有表达的自由和空间，个体困难难以通过正常渠道纾解，老百姓被逼上绝路。
+
+
+## BBC：[中国台山核电站出现“放射性威胁”：我们目前所知多少](https://www.bbc.com/zhongwen/simp/chinese-news-57478000)
+
+![俯瞰中国广东台山核电站（中新社资料图片）]()![俯瞰中国广东台山核电站（中新社资料图片）](https://ichef.bbci.co.uk/news/640/cpsprodpb/5E1C/production/_118929042_1218532.jpg)
+
+
+> 评论：中共又在说谎欺瞒世界，希望切尔诺贝利核事故不要重演。
+
+
+## BBC：[北约峰会召开，公报列中国为“系统性威胁”](https://www.bbc.com/zhongwen/simp/world-57475949)
+
+![Nato Secretary General Jens Stoltenberg holds a news conference ahead of the summit]()![Nato Secretary General Jens Stoltenberg holds a news conference ahead of the summit](https://ichef.bbci.co.uk/news/640/cpsprodpb/14AB/production/_118919250_067999458-1.jpg)
+
+
+> 评论：北约成员国在公报中首次把中共国列为安全威胁，提到中共国“公开的野心与过分自信的行为，对以规则为基础的国际秩序与联盟安全相关领域构成了系统性的挑战。”
+
+
+## 德国之声：[联合国专家称中国强摘被关押人器官 北京驳斥](https://www.dw.com/zh/%E8%81%94%E5%90%88%E5%9B%BD%E4%B8%93%E5%AE%B6%E7%A7%B0%E4%B8%AD%E5%9B%BD%E5%BC%BA%E6%91%98%E8%A2%AB%E5%85%B3%E6%8A%BC%E4%BA%BA%E5%99%A8%E5%AE%98-%E5%8C%97%E4%BA%AC%E9%A9%B3%E6%96%A5/a-57893944)
+
+![Hongkong Falun Gong Heilpraktiker]( "Hongkong Falun Gong Heilpraktiker")![Hongkong Falun Gong Heilpraktiker](https://static.dw.com/image/49647025_303.jpg "Hongkong Falun Gong Heilpraktiker")
+
+
+> 评论：中共的邪恶行径世人皆知。
+
+
+## 法广：[杨洁篪的战狼语言，李阳的霰弹枪](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E7%BE%8E%E5%9B%BD%E4%B8%93%E6%A0%8F/20210614-%E6%9D%A8%E6%B4%81%E7%AF%AA%E7%9A%84%E6%88%98%E7%8B%BC%E8%AF%AD%E8%A8%80%EF%BC%8C%E6%9D%8E%E9%98%B3%E7%9A%84%E9%9C%B0%E5%BC%B9%E6%9E%AA)
+
+![美中阿拉斯加对话3月19日结束，图为对话场上的中方负责人杨洁篪与王毅。](https://s.rfi.fr/media/display/ab73a33a-8900-11eb-a9a6-005056bf87d6/w:980/p:16x9/2021-03-18T224857Z_1355377247_RC2YDM9ZOCYI_RTRMADP_3_USA-CHINA-ALASKA-BLINKEN.webp)
+
+
+> 评论：中共国的外交战狼，已经在世界上横行十几年，惹人厌恶，要他们可信、可爱、可敬起来，不是容易的事。即使习近平发话了，狼要装扮成羊，装扮成羊的狼还是狼。
+
+
+## 新唐人推文
+
+
+
+> 「武毒所」洩漏病毒新論據 蓬佩奧：中共要擔責
+> 
+> 前美國疾控中心主任雷德菲爾德再次公開表示，他支持 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 是從武漢病毒所洩漏的觀點，並給出了病毒學家的專業分析。前美國國務卿蓬佩奧表示，[#美國](https://twitter.com/hashtag/%E7%BE%8E%E5%9C%8B?src=hash&amp;ref_src=twsrc%5Etfw) 已經掌握了足夠證據，應該要 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) 承擔責任了。[https://t.co/bVcXdLnizU](https://t.co/bVcXdLnizU)
+> — 新唐人電視台 (@NTDChinese) [June 15, 2021](https://twitter.com/NTDChinese/status/1404932507062185985?ref_src=twsrc%5Etfw)
+
+
+
+
+> 评论：中共插翅难飞了，历史的审判即将来临
+
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
