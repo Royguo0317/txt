@@ -1,35 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以战友的军事知识或经验印证哈马斯火箭技术来自CCP
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1325989/)
+## 武汉实验室的合作伙伴达扎克承认他在“使用美国纳税人的钱”做研究时在海鲜市场上“并没有看到很多蝙蝠”
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1326041/)
 
-责任编辑：新西兰伊甸农场伊甸战斗室节目组
-文字版
-文字编辑：135790abc
+翻译：飞利普 |校对：烟波浩淼 |审核：V
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16005829/dzk_adobespark.png)
+**尽管主流媒体和中共的说法是中共病毒起源于中共国海鲜市场，但在《国家脉搏》披露的播客上，生态健康联盟主席、武汉病毒研究所合作者彼得·达扎克坚持说，他在这些市场上“并没有看到很多蝙蝠”。**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16000532/Hamas-calls-for-serious-measures-and-threatens-to-withdraw-recognition-of-Israel-400x225.jpeg)
+武毒所的[“长期合作者”](https://thenationalpulse.com/breaking/wuhan-bat-lady-thanks-nih-and-daszak/)达扎克在2020年6月3日“本周病毒学”[一集](https://www.youtube.com/watch?v=Et3CHcteWNw)的节目中露面时也承认，美国纳税人的钱资助了他在中共控制的[实验室](https://gnews.org/zh-hans/1263642/)的研究。
 
-给大家几个参数，现在远程火箭技术，射程能达到七十公里以上的火箭，只有中国。中导协议就是限制三百公里以上的导弹出口。CCP的火箭可以达到三百公里以上，而且能够实现火箭精确制导化。我曾经在新闻上看到过一个记者采访CCP火箭专家，问他：火箭和导弹的区别是什么？那个专家回答：我说它是火箭它就是火箭，我说它是导弹它就是导弹。
+这一披露言论是在安东尼·福奇领导的国家过敏和传染病研究所370 万美元的[资助](https://reporter.nih.gov/search/c4ZGYsDvKEys1oIYs66iwA/projects)下，对达扎克的生态健康联盟向武毒所提供资金的审查越来越严格的情况下发表的。
 
-CCP第一代火箭技术，“卫士1”火箭技术就给了伊朗。伊朗能生产，但达不到完全自主生产。你看一下巴勒斯坦发射火箭的相关的技术特征，和“卫士一”几乎就是一个模子里头刻出来的。发射器是六发，连结构尺寸都是一样的，只不过他是拼凑出来的，因为设备零件是分拆运过来的，再加上以色列一直控制他们。常规的火箭炮是打不到以色列的，只有这种超长程的火箭炮能打到以色列。而这种武器技术只有CCP有。
+达扎克在播客上承认：“在中共国，我们用美国纳税人的钱在一个冰箱里收集了16000个蝙蝠样本。” 达扎克重申“我们是联邦政府资助的最后一个与武毒所合作的组织”。
 
-高频：我不是一个军事爱好者，但是我曾经的专业是火炸药研究，毕业以后分到火炸药研究所。出国之前，我们所从苏联买进重型反坦克导弹，那个就是三十多公里。我们研究的是第三级续航药部分，还有就是长三甲的三级火箭的点火药也是我们在搞。十几公斤硝化甘油整天提来提去的，我说这简直属于二杆子，这哪是搞研究，每天携带危险物品是一种什么感觉？十八公斤硝化甘油生产出来，生产厂家他们不敢留存，他们也害怕挨炸，曾经炸过，八六年炸过，死过两个人。后来他们一生产出来就让我们提走。冬天不能生产，只能夏天生产，结果生产出来十八公斤一大塑料桶。我那时候的工作是打着小旗子在前面，我只要小旗子一摇，所有动的东西全部停下，人、车所有动的东西都停，然后硝化甘油过来了。其实生产车间和实验室只差大概三四十米的距离，过一个马路，那小伙子提十八公斤，一提一晃悠还换手呢。我的天，我后脖子都发凉。后来我就出国了，九九年我那实验室炸了，受害的就是接替我工作岗位的那个人。
+尽管福奇试图将他的国家卫生研究院机构与有[军方背景](https://thenationalpulse.com/breaking/wuhan-lab-erased-military-researchers-from-site/)的武汉实验室[拉开距离](https://www.mediaite.com/tv/you-are-entirely-and-completely-incorrect-watch-faucis-epic-throwdown-with-rand-paul-on-wuhan-lab-covid-theory/)，但达扎克在播客上承认，至少从2013年起，他与该机构及其[“蝙蝠女侠”石正丽](https://thenationalpulse.com/exclusive/fauci-headlined-conference-with-shi-and-daszak/)的合作得到了国家卫生研究院的资助：
 
-——————-
 
-伊甸灭共行，利他兴联邦
+> “*那时我们已经开始在中共国进行反复的实地考察。我们有一个野战队。当时我们和正丽一起做了更多的工作，真正磨合了，因为我们有资金从国家卫生研究院出去做这项工作。”*
 
-——————-
 
-主    持：@高频
-策    划：TS2020相聚盘古
-责任编辑：新西兰伊甸农场伊甸战斗室节目组
-档案保管：Leo文字编辑：135790abc
+当被问及“恢复传染性非典型肺炎的分离株”时，达扎克还承认“我没有做那项工作”，然后补充说“这正是正丽所做的，是的，从我所知道的情况来看，培养病毒确实很难。”
 
-【文章仅代表作者个人观点】
+在长达一个小时的采访中，达扎克还透露，在中共国市场上他“并没有看到很多蝙蝠”，这对中共病毒起源于武汉一个海鲜市场的理论又是一个打击：
 
-审核校对：Barry Jack
-上传排版：F
+
+> “*所以我们在野生动物交易方面也做了大量的工作，我们发现那时它已经发生了变化。在大市场里，你并没有看到很多蝙蝠，但我们确实知道人们在猎食蝙蝠。他们直接将它们卖给餐馆，所以这更是一个本地化的问题。我们认为风险已经转移到中共国的农村地区。”*
+
+
+达扎克还在播客中攻击了纳德·川普，指出时任总统“处于真正可怕的困境，并且有能力进行猛烈抨击”，然后采访者补充说“希望在我们政府换届之后，你可以重新申请一些国家卫生研究院拨款。” 采访是在川普政府终止了国家卫生研究院拨款之后进行的，该拨款[允许](https://thenationalpulse.com/exclusive/who-investigators-ccp-covid-ties/)达扎克的生态健康联盟与武毒所合作。
+
+原文作者：娜塔莉·温特斯([NATALIE WINTERS](https://thenationalpulse.com/author/natalie-winters/))
+发布时间：2021年6月14日
+原文链接：[https://thenationalpulse.com/breaking/watch-wuhan-lab-partner-daszak-admits-he-didnt-really-see-many-bats-in-wet-market-while-describing-studies-using-u-s-taxpayer-money/](https://thenationalpulse.com/breaking/watch-wuhan-lab-partner-daszak-admits-he-didnt-really-see-many-bats-in-wet-market-while-describing-studies-using-u-s-taxpayer-money/)
 
 0
