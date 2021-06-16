@@ -1,50 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【翻译】紧急：英国紧急报告呼吁完全停止对人类使用CCP病毒疫苗
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1325447/)
+## 回归中华
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1325674/)
 
-翻译：赵圣欢
+作者：墙内战友|校对：仙女儿-文善|审核：SilverSpurs7|Page：小雨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15202635/061601.jpg)
-
-“英国循证医学咨询有限公司提交药品给和保健产品监管局 （MHRA） 的一份”数据数据初期报告”指出，”基于全国人系统的MHRA 现在拥有关于足够证据宣布使用COVID-19 疫苗对人类不安全。 ”
-
-与美国疫苗不良事件报告系统 (VAERS) 类似，MHRA 将其黄牌系统的目的描述为提供“药物或医疗设备的安全性可能需要进一步调查的早期预警”
-
-这份由循证医学咨询有限公司主任，内外全科医学士， Tess Lawrie 博士签署的报告说：”我们已经使用特定的病理学检索了报告，并根据以下内容（依据原文）对数据进行了分组，共有五个泛化的相关临床类别：
-
-1.出血、血栓和贫血性药物过敏及不良反应 
-2.免疫、疼痛及不良反应 
-4.神经性药物过敏及不良反应 
-5.涉及视力、听力、言语或嗅觉丧失的药物过敏及不良反应 
-6.妊娠类药物过敏及不良反应
-
-报告随后描述道：”我们意识到药物警戒数据的局限性，并理解药物不良反应信息报告不应被解释为所讨论的药物通常观察到的效果或使用不安全。 我们分享这份初期报告是因为迫切需要传达信息，以便在进行全面调查的同时停止接种疫苗。 根据 Seneff 和 Nigh 最近的论文， 潜在的急性和长期病理包括 ：
-
-1.触发致病、多系统炎症疾病和自身免疫病
-2.过敏症状及相关反应
-3.抗体依赖性增强
-4.潜在病毒感染
-5.激活神经变性和朊病毒疾病
-6.SARSCoV2新变种的出现
-7.（新冠表面）刺突蛋白基因整合到人类 DNA 中
-
-“现在很明显，注射入血液的这些产品对人类有毒。 需要立即停止疫苗接种计划，同时进行全面和独立的安全分析以调查全局危害程度，英国数据数据表明，这些危害包括：血栓栓塞、多系统炎症疾病、免疫抑制、自身免疫和过敏反应，以及抗体依赖性增强（ADE）。
-
-该报告总结道：”MHRA 现在在日系统上拥有足够多的证据来宣布 COVID-19 疫苗对人类使用不安全。 应并认为以扩大的尽力，以帮助那些受到COVID-19疫苗伤害的人，并预测和改善影响。 由于疫苗造成伤害的机制似乎与COVID-19本身相似，这包括与众多具有成功治疗COVID-19专业知识的知识和科学家合作。
-
-“至少有 3 个十万火急的问题亟待 MHRA 解答：
-
-1.接种疫苗后 28 天内有多少人死亡？ 
-2.有多少人在接种疫苗后的 28 天内住院？ 
-3.有多少人因接种疫苗而致残？”
-
-[援引原文](https://americasfrontlinedoctors.org/frontlinenews/urgent-british-report-calls-for-complete-cessation-of-covid-vaccines-in-humans/)
-
-审核校对：Barry Jack
-上传排版：糖果儿
+[!\[\]()!\[\](https://spark.adobe.com/page/KRyXUXfmfwBho/images/19732b12-f158-4454-94f0-795aecf4ae16.jpg?asset_id=f9861566-2813-4eb8-bf05-b5feae44dce9&amp;img_etag=%2298ada584356817e43241a2991bca6a81%22&amp;size=1024)](https://spark.adobe.com/page/KRyXUXfmfwBho/images/19732b12-f158-4454-94f0-795aecf4ae16.jpg?asset_id=f9861566-2813-4eb8-bf05-b5feae44dce9&amp;img_etag=%2298ada584356817e43241a2991bca6a81%22&amp;size=1024)
 
 
+```
+我爱我美丽的家
+ 我生长的地方中华
+ 虽然您历尽沧桑但仍然把自由的种子撒下
+ 纵然我们的民族屡经蹂躏
+ 但永远不会倒下
+ 我们一代代屡经战火的创伤和刀枪的洗礼
+ 但枪炮下和金戈中练就了
+ 我们强硬的身躯
+ 虽然恶鬼引来了吃人红魔
+ 祸害了我们的家
+ 但我们在正道主义的旗帜和唯真不破的理念下
+ 我们爆料革命的正义力量
+ 一定会把CCP打垮
+ 新中国联邦一定会重整我们破碎的山河
+ 让我们拥抱新的中华
+ 拥抱我们崭新的家
+ 来吧
+ 我的兄弟姐妹
+ 来吧
+ 我亲爱的战友
+ 重整山河
+ 恢复中华
+```
+
+
+*文章仅代表作者观点*
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/KRyXUXfmfwBho/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/KRyXUXfmfwBho/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

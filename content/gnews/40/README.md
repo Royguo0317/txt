@@ -1,39 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：司法部长梅里克•加兰宣布他的司法部将严查任何旨在寻找违反投票法的证据的选举后审计！
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1325080/)
+## 联邦调查局调查疑似中共国间谍在 COVID 旅行禁令前返回美国
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1325276/)
 
-翻译：Elsie｜校对：JS709｜审核：断播
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15140040/election-fraud-2020-ballots-ga-tcf.jpg)
-**腐败的司法部**** (DOJ) ****及其联邦调查局**** (FBI) ****完全无视**** 2020 ****年大选中的泛滥的选举犯罪。 因此，现在腐败的司法部长决定威胁任何参与选举审计的人，以防止他们调查选举中的犯罪和欺诈行为也就不足为奇了。**
+#### 编译：文复
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15173103/Screenshot-2021-06-15-2.30.42-PM.png) 图片截自网络
+根据华盛顿自由灯塔审查的政府内部文件，情报官员正在调查为何在 COVID-19 大流行开始时疑似中共国间谍持学生和工作签证返回美国。
 
-司法部完全无视 2020 年选举中的选举犯罪。我们转向的每个地方都有各个层面的犯罪和腐败，但我们的主流媒体、司法部及其联邦调查局都视而不见，大型科技公司禁止提及任何选举犯罪。 让所有这些机构跳上同一艘腐败的船，这可不是一件小事。
+在执法官员在 COVID-19 大流行并开始时标注了他们的旅行行踪后，数百名中共国公民成为联邦调查的对象。这些中共国公民在 2020 年 1 月通常修改了旅行计划，比预期的计划更早地返回美国。时任总统唐纳德特朗普于 2020 年 1 月 31 日签署了一项行政命令，限制从中共国来的非美国公民和居民入境。
 
-我们发现了这一点并对此进行了报道，不是司法部 – 他们忽略了它。在 2020 年大选后的清晨，数千张选票送到了底特律 (Detroit) 的投票地点，这些选票全都投给了乔·拜登：
+这一事件在 6 月 3 日在各个国家安全和执法机构之间分发的内部报告中有所叙述。该报告推测，中共国学生比预期更早地返回美国，以避免未来因 COVID-19 造成的旅行限制大流行病。美国于 1 月 21 日记录了首例 COVID-19 病例，同一天，一名中国科学家表示该病毒可以在人与人之间传播。
 
-[**独家：****TCF ****中心选举舞弊**** – ****新发现的视频显示，在截止期限****8 ****小时后的深夜，交付了数万张非法选票**](https://www.thegatewaypundit.com/2021/02/exclusive-tcf-center-election-fraud-newly-recovered-video-shows-late-night-deliveries-tens-thousands-illegal-ballots-michigan-arena/)
+报告中写道：“该团队检查了[乘客姓名记录]数据库中的 58,000 名中共国 F/J 签证持​​有人，并确定了 396 人的回程时间原计划于 2020 年 1 月之后，但却于 2020 年 1 月返回美国。”
 
-已[确认：法官推迟佐治亚州 (Georgia) 选举工作人员鲁比·弗里曼（ Ruby Freeman） 和她的女儿雪伊·莫斯（ Shae Moss） 的证词](https://www.thegatewaypundit.com/2021/06/confirmed-judge-delays-depositions-georgia-election-workers-ruby-freeman-daughter-shae-moss/)
+尽管情报官员尚未断定数百名受到监视的学生是否被确认为间谍，但学生修改后的旅行表明，许多中共国国民显然都知道 COVID-19 的严重性，尽管他们的政府和美国的卫生官员都做出了相反的保证。尽管中共国在八天前下令对整个武汉市进行隔离，但世界卫生组织直到 2020 年 1 月 31 日才宣布全球卫生紧急情况。
 
-我们拍摄了这段视频，并确定该团伙将所有人踢出亚特兰大 (Atlanta) 投票站，然后从桌子底下拉出选票，在无人看管的情况下将选票扔进制表机两三遍。 对他们来说，不幸的是，摄像头是开着的。 但到目前为止，这并不重要，因为 DOJ 和 FBI 已经忽略了所有这些证据：
+教育监管机构表示，备忘录强调了美国宽松的学生签证制度对国家安全构成的风险。
 
-[难以置信：佐治亚州的“手提箱丑闻”-反川普民主党人在制表机上运行相同批次的选票三次！ （视频）](https://docs.google.com/document/u/0/d/137RD_sc281-rjcHLWGiLdeMtZHpjyeeZWwil-SOzNo0/edit)
+“中共国政府依赖非传统的信息收集者作为其间谍活动的重要组成部分。学术界也不能幸免，”美国国家学者研究院高级研究员雷切尔彼得森说。 “尖端研究、技术发明和其他形式的知识产权是中共国政府的主要目标，中共政府一直试图在其有外国公民身份的国民中营造一种责任感，为中共带回一些有用的东西。 ”
 
-监管链法在多个州被忽视，但 DOJ 和 FBI 并不关心：
+美国情报机构长期以来一直警告大学和研究机构注意中共国间谍活动的威胁。该国大约 30% 的外国学生来自中共国，总计约 34 万人。 2020 年 9 月，美国取消了 1000 多个中共国学生的学生和研究签证，声称这些签证与中共军方有联系。
 
-[必读：民主党人只有在 2020 年打破每个摇摆州的监管链，才能“获胜”](https://www.thegatewaypundit.com/2021/02/must-read-democrats-able-win-2020-breaking-chain-custody-laws-every-swing-state/)
+特朗普政府将对抗中共国的军事和间谍活动作为其议程的基石，特朗普时期间谍负责人约翰拉特克利夫称中共国是“当今美国面临的最大威胁，也是二战以来对全球民主和自由的最大威胁”。特朗普于 2020 年 5 月签署了一项行政命令，禁止“与中共国实体有关联的某些研究生及以上学历的中共国国民”进入该国。
 
-但现在，随着美国爱国者们花时间自愿参与并帮助在审计中揭露欺诈和腐败，美国司法部终于承认存在选举（欺诈）。 司法部长表示，他和他的律师和调查团伙将仔细审查在审计期间采取的每一个行动，以恐吓和阻止审计的进行。
+美国国立卫生研究院在 2019 年开始对其研究资助的接受者进行持续调查。 自由灯塔在 2020 年 6 月 14 日报道，至少有 54 名获得美国国立卫生研究院资助的科学家因未能披露他们与外国的关系而被解雇，其中尤其是与中共国。
 
-[恐慌模式！！ 当司法部长梅里克·加兰（Merrick Garland）宣布美国司法部将严查任何旨在寻找违反投票法的证据的选举后审计时，你知道你已经结束了！！](https://twitter.com/Cam_Music/status/1403427202184613888?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1403427202184613888%7Ctwgr%5E%7Ctwcon%5Es1_c10&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2021%2F06%2Fbreaking-ag-merrick-garland-announces-doj-will-scrutinize-post-election-audits-evidence-voting-law-violations%2F)
+对中共国公民的行动和目的的调查仍在进行中，但该报告再次表明中共官员在暗中为自己采取预防措施的同时，故意掩盖了 COVID-19 的起源和严重程度。
 
-我们知道他们会做些什么。现在，深层政府终于采取了这一行动，并威胁任何敢于相信自己直觉并想协助撤销 2020 年选举的欺诈性选票的人。
+5 月 26 日，众议院能源和商务监督小组委员会主席、众议员戴安娜·德杰特 (Diana Degette) 支持共和党领导的一项调查，要求查清 COVID-19 是否从中共国的研究实验室流出，这是继一些民主党人以及媒体人士在将该问题视为右翼阴谋论的一部分而驳回后，呼吁对病毒的起源进行的更为严格的审查。
 
-**我们终于可以说美国是一个由一群骗子经营的香蕉共和国了吗？**
+**文章来源：**[点击进入](https://www.zerohedge.com/covid-19/feds-investigating-suspected-chinese-spies-return-us-ahead-covid-travel-ban?%20%20utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
-原文作者：乔·霍夫特（Joe Hoft)
-发布时间：2021年6月11日 15:03
-原文链接：https://www.thegatewaypundit.com/2021/06/breaking-ag-merrick-garland-announces-doj-will-scrutinize-post-election-audits-evidence-voting-law-violations/
+文章仅代表作者个人观点，与 Gnews平台无关。
 
-+2
+**校对发布：**紫橄榄
+
++4

@@ -1,77 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉生物实验室当病毒浮出水面时，有超过15000个实验文件“消失”了
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1325134/)
+## 【拆台新闻】中共百年诛心史
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1325374/)
 
-**字幕内容:**
-national intelligence agencies examining whether an accidental leak may have started the global pandemic.
-国家情报机构正在审查是否是一次实验室意外泄漏引发了全球大流行病
+#### 作者：紫橄榄
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15191505/Screenshot-2021-06-15-2.20.06-PM.png)中共百年诛心，图片截自网络
+【媒体】央视网消息（新闻联播）：6月16日出版的第12期《求是》杂志将发表中共中央总书记、国家主席、中央军委主席习近平的重要文章《以史为镜、以史明志，知史爱党、知史爱国》……..
 
-tonight we have new information that will be of great interest to the probe announced by US. president Joe Biden.
-今晚我们得到新的信息，这将与美国总统乔·拜登宣布的调查有很大的关系
+文章指出，要广泛开展爱国主义教育，让人们深入理解为什么历史和人民选择了中国共产党，为什么必须坚持走中国特色社会主义道路、实现中华民族伟大复兴。广大党员、干部和人民群众要很好学习了解党史、新中国史，守住党领导人民创立的社会主义伟大事业，世世代代传承下去。
 
-we can show you footage from inside the Wuhan Institute of Virology
-我们可以向您展示武汉病毒研究所内部的录像
+**【评论】**上述是中共中央网的2021年6月15号的报道，笔者认为，中共之所以用一种偷换概念对中国大众强行洗脑宣传中，这是他们掩盖自己非法的统治政权对人类的屠杀史，中共知其政权即将倒塌，用每天强势的洗脑宣传弥补其百年诛心罪行的最后的方式之一，笔首从以下三点归纳如下。
 
-and interviews with the very scientists
-以及对科学家的采访
+**一，任何党派都是民间组织**
 
-at the heart of one of the greatest cover up the world has ever seen.
-他们是这场全世界前所未有的掩盖行为的核心
+任何党派都是民间组织，而 非中国人民通过一人一表选举而出的党派组建“政府”是非法政府，故不能代表国家。
 
-how did the COVID-19 global pandemic start?
-COVID-19全球大流行病是如何开始的？
+中共用中国共产党的文化来替换中国的文化，用中国共产党的替换中国。中共强制用洗脑的形式把中国共产党的党史强加给所有与中共无关的非党员群体。
 
-Did the virus derive from bats end up in the wuhan lab causing an inadvertent leak?
-是否来自蝙蝠的病毒最终进入了武汉的实验室，造成了无意中的泄漏？
+国家是由个体组成，不是由政党组成的，人若是中共党员才有可能爱上中共这个党派，对于其他党派与无党派的中国人就是一个旁观群体，无需对中共的任何党史党文化做任何回应，任何党派无权来指挥与命令中国人，更没有资格对有父母为监护人的孩子们灌输党史党文化来影响，让政治远离18岁以下的思想还不成熟的未成年人。
 
-or was there an infected worker?
-或者是因为有一个被感染的研究人员？
+**二，是公民个体通过劳动创造财富，纳税给政府而成为国家财富。**
 
-evidence from this footage will shed more light on some of these questions.
-这段录像中的证据将为其中一些问题带来更多的启示
+每一个人民个体通过劳动创造的财富，纳税给政府。政府服务于所有的人民，返回红利让人民去共享社会的资源。
 
-The Wuhan Institute of Virology was built by the Chinese and French governments in a deal designed to promote international scientific research.
-武汉病毒学研究所是由中国和法国政府
-在一项旨在促进国际科学研究的交易中建立的
+中共国已经知道，因为其军民融合的实验室研发制造的生化武器，用其释放偷袭全世界，造成上亿人感染，全球各国已经兵临城下，对他们围堵追责，兵临城下。故此，中共必需火速地用这个党史党思想快速洗脑百姓，用所谓向党表忠诚忠心，强迫百姓养接受是中国共产党给了中国人一切。百姓被中共洗脑了7代人，他们已经已经麻木，没有自由，没有思想，没有鉴别的能力去思想了。
 
-As you can see,French and Chinese leaders attend a ceremony marking the signing of the agreement
-正如你所看到的，法国和中国领导人出席了协议签署的仪式
-and china’s president Xi Jinping visits a level four lab in France.
-并且中共总书记习近平访问了法国的一个P4实验室
+因为去年投放的生化武器而使一亿多人感染，几百万人夹生。现在被全球各国追堵到城门之下，所以总共要有一种 邪恶的理念控制中国人民的自由思想，囚中国人民世代为奴隶。
 
-For the first time we hear there were intense clashes behind the scenes.
-我们第一次听说，原来幕后发生了激烈的冲突
+中国共产党的邪恶计划是对世界大重启“命运共同体”，若你是中国共产党党员，你也只是普通一员，你所创造的财富也是缴纳的税都是给中国政府，而你要交纳的党费是给中共党的。各有收入，各有支出，这是个人的自由意志。
 
-That admission from the deputy director of the Wuhan National Biosafety Level Four Lab, Song dongling,
-这段坦白来自于武汉国家生物安全四级实验室副主任宋冬林
-in this extraordinary video produced by the Chinese Academy of Sciences back in may 2017.
-该视频由中国科学院于2017年5月制作
+**三，中国人民从来没有一次自由的选举**
 
-The video marks the launch of the laboratory,
-下面的视频标志着该实验室的启动
-it’s called persistence unyielding the construction and research team of the Wuhan National Biosafety Level Four Laboratory.
-标题是“坚持不屈的武汉国家生物安全四级实验室的建设和研究团队”
+人民一人一票选出一个票数超过51%的政党来组建政府，让这个政府代理管理国家。中共用武装力量从国民政府抢来的政府。 毛泽东也宣布成立的是“中央临时政府”，由中国共产党暂时管理的过度政府，但是 中共没有在中国进行过任何的一人一票的选出一个党派成立中国政府，而进行强制夺取了中国政府，并且继续垄断独裁中国人民，直到今天。
 
-In this video Song also admits they had no prior experience in the area of biosafety,
-在这段视频中，宋也承认，
-他们之前在生物安全领域没有任何经验
+中共从1949年10月1日开始绑架了中国人民，用党替代中国。用中共党的政权强夺与替代中国。更是用一种强行的洗脑教育体制。 给中国人民彻底洗白了其污点而用半张被子，半条皮带，半篮鸡蛋夺走中国人民的自由思想，要中国人民效忠中共百年。
 
-yet they were dealing with some of the world’s most dangerous pathogens.
-但他们却在处理一些世界上最危险的病原体
+中共控制的媒体美化中共，看中共的百年历史，就是一个乱伦与污溃百年史，百年前，是中国共产党从欧洲引进马克思列宁主义邪恶势力到中国，把中共把华夏子民沦为现代的高科技奴隶，与境外的共产国际联盟邪恶势力奴役中国人民几十年。
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+**总之，**中国人是时候站起反击中共了，个体的自由与思想要靠自已的行动去争回来，人人有自由选择的机会，或与红魔共舞，或付出行动把我们的自由思想与生命平等权夺回来，不再被中共世代霸占与控制。由中国人民一人一票选举而出的党派才能组建中国政府，中共不是中国人民选举而出，故中共是非法政府，不能代表中国人民，更不能代表中国。回顾中共的百年屠杀几亿中国人民与外国人民的百年诛心史，中共是邪恶的种族灭绝与反人类犯罪组织。
 
-原视频链接: [https://twitter.com/disclosetv/status/1404077511710068736?s=24](https://twitter.com/disclosetv/status/1404077511710068736?s=24)
-英听校： 康州盘古农场 – Mike Li
-翻译： 康州盘古农场 – Mike Li
-翻译终校：康州盘古农场 – 柯镇恶
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+信息源：[央视新闻](https://tv.cctv.com/2021/06/15/VIDEZ0MBdwL7Z2ZTlV24XeCd210615.shtml?spm=C31267.PFsKSaKh6QQC.S71105.20)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+文章仅代表作者个人观点，与 Gnews平台无关。
 
 0
