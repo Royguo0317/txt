@@ -1,67 +1,139 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社即时简报】拜登政府宣布调查福奇拨款去向
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1325749/)
+## 【香草诗词汇】与战友书（二）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1325785/)
 
-香草山翻译部：GBW
+***– 就是与家人书 –***
+
+作者：纽约香草山健身部 澄道
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+正道家人息息关
+铲毒生活事事联
+
+园战友：
+您好！
+见字见面
+末学有点诚惶
+不知所错
+觉得应
+再求正斧
+
+还有点诚悦
+心之慰寄
+愿行悦往
+于您愿
+即于吾悦
+
+正斧：
+1.＂….之名＂
+＂….子＂
+什么的！
+末学
+承不住
+更担不起啊！
+
+1. 略
+2. ＂无居数＂
+三字没看懂？
+3. 略
+4. 略
+5. ＂目仔啊！＂
+是句俚语吗？
+也没懂！
 
 
+虽乱
+扣帽子
+起名字
+属非体面
+但一句
+＂这家伙＂
+不简单！
 
-路德社, 2021年6月15日晚，路博冠
+哈哈
+晨挠中的畅
+透过
+照进的晨光
+尽显
+快之意！
 
-**1. 每日邮报：拜登政府宣布对美国国立卫生研究院（NIH）的拨款进行调查—包括福奇批准用于武汉实验室的资金。打扎克的EcoHealth Alliance预计也会被调查。**
+缘启
+爆革长生天
+承蒙
+正道重塑人
 
-a. 路德：如果拨款被用于 “功能增强 “研究，科学家将被指控。 美国首先调查美国科学家，下来就是中共。
+道礼
+＂挠字＂毕
 
-**2. 美国考虑设立永久性特遣舰队以在太平洋对抗中（共）国。**
+园战友
+回复大段：略
+只留：
+您
+书生味重
+但仍需知世俗
+….
+通语吧！
+学府！
 
-a. 博博士：特遣部队将为中（共）国量身定制，能快速反应。历史上，美国对日本和苏联也成立过这样的舰队。
+道应：
 
-**3. 中共向台湾防空识别区派出了创纪录数量的飞机骚扰。博博士：中共要保持紧张局势的热度，但不构成实质性威胁。**
+要的
+就是这个味
+对极了
+您！
+＂这个家伙＂
 
-**4. 赵立坚：北约搞小圈子不得人心，他还提到联合国、南斯拉夫和伊拉克。**
+受我一拜
+容我一盖
 
-a. 冠博士：中共从来没有提到过它破坏了世界秩序。
+谁能说
+一字师不是师
+常言道
+三人行必是师
 
-b. 博博士：中共把美国携带机密情报的F117的残骸藏在南斯拉夫大使馆，所以美国要轰炸掉F117残骸。
+更何况
+现师者文贵者
+岂不止
+同行者亡共者
 
-c. 博博士：隐形战机F117在南斯拉夫有规律地执行任务，所以它的微弱信号被敌人发现。后来美军就把打法改了。
+玫刺手真战友
+爆料紧跟七哥走
+红毒恶人情薄
+百年侵染几世难索
+错 错 错
 
-**5. 凯尔-巴斯：姆努钦帮助中共操纵美国股市，威胁川普不要与中（共）国脱钩。**
+夏又旧世空楼
+以毒灭共势正头
+热选落拜宫哥
+八十国在罄书难托
+莫 莫 莫
 
-**6. 法国将在7月4日前向美国赠送第二座自由女神像。**
+通语吗？
+＂园＂战友
 
-a. 博博士：关键时刻的宣誓。
+@澄道来了
+@爱动爱议码06152
+@工作间 休息厅 餐厅
 
-b. 路德：敢于举起自由的火炬才能挣脱脚上的枷锁。
+校对/发稿：雪梨
 
-c. 路德：在任何时候，都不能剥夺自由。
-
-d. 博博士：习近平的“我将无我”就是叫中国人“你将无你”、一切献给党。
-
-视频链接：[https://gtv.org/video/id=60c945e3b96c69573d7fde07](https://gtv.org/video/id=60c945e3b96c69573d7fde07)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-编辑/校对/发稿：正义的小新
+![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg]()![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,41 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 格林众议员称中共病毒是生物武器要解雇福奇
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1325730/)
+## 【有声读物】匈牙利接种中共国疫苗抗体检测呈阴性
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1325812/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+配音：香草山录音组 Gtv abeilles（蜜蜂）
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15223019/L-2.jpg)newsweek.com
-敢说、敢当、更敢为的众议员马乔里·泰勒·格林（Marjorie Taylor Greene）认为，中共病毒（COVID-19）是“生物武器”，要求福奇承担责任。《福克斯新闻》说，格林已经起草过一项法律要求“解雇福奇”。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-文章全文如下：
 
-美国众议员马乔里·泰勒·格林周二（6月15日）称，中共病毒是中共国实验室制造的人造病毒，并暗示美国人民是生物武器攻击的受害者。
 
-这位备受争议的佐治亚州共和党人是在与共和党同僚举行的记者招待会上提出上述主张的，她还主张她的立法要解雇福奇，他一直是美国政府应对中共病毒疫情的主要的科学声音。
 
-“作为人类试验的一部分，你对中共病毒有什么感觉？这就是我们过去一年的表现。”格林6月15日在国会对记者说。
 
-“为什么会有病毒被制造出来——从自然界中取出，可以在蝙蝠或其他生物之间共享和传播，然后被利用并转变成某种病毒，可以在人与人之间传播？有个词可以形容，我们都是生物武器的受害者吗？我们需要答案，福奇应该给出答案，所有相关人员都需要为此负责。”
 
-截至6月15日，已经造成60万美国人死亡的中共病毒疫情的起源尚无确切答案。在疫情的早期，科学家们基本上否定了一种理论，即病毒是从武汉的一个实验室泄漏出来的，福奇仍然声称最有可能的来源是动物对人类的自然传播，但随着拜登政府呼吁情报部门调查其来源并寻求结论，实验室泄漏理论在最近几周得到了更多的关注。
 
-格林说，中共应该为中共病毒疫情向美国支付“赔偿”，她还声称，中共和福奇都对疫情撒谎，结果“人都死了”。
+据[报道](https://www.msn.com/hu-hu/hirek/other/negat%c3%adv-ellenanyagtesztet-produk%c3%a1ltak-a-sinopharmosok-merkely-tesztje-sem-seg%c3%adt/ar-AAL11rI?ocid=mailsignout&amp;li=BBOMZdz)，数百名接种了中共国国药疫苗的匈牙利人抗体检测呈阴性。其中，大部分年龄在60岁以上。抗体检测结果显示，他们接种的中共国疫苗并没有对他们产生保护。
 
-长期担任美国国家过敏与传染病研究所（NIAID）所长的福奇成为政坛的避雷针，在川普执政期间，他基本上被左派誉为英雄，是科学界清醒的声音；另一方面，共和党人则在揭露他，并通过最近发布的他的电子邮件找到了新的证据。
+退休的风湿病学家哈伊纳尔卡·博多（Hajnalka Bodó）称，虽然接种了两计中共国疫苗，但是做了三次抗体检测，结果都为阴性。她丈夫也接种了中共国疫苗，检测结果也是阴性。
 
-格林的立法将把福奇的工资从434,312美元降到零，并要求参议院确认一名替代者。
 
-无知的国会民主党极左小队成员之一的亚历山德里亚·奥卡西奥·科尔特斯（Alexandria Ocasio Cortez）回应格林议员，否认中共病毒是一种生物武器的事实，理由是，上帝永远不会制造出伤害人类的致命疾病。
 
-（原文完）
+**文字版原文：[【热点播报】匈牙利接种中共国疫苗抗体检测呈阴性](https://gnews.org/zh-hans/1324475/)**
 
-文贵先生说过，5月份以后，中共病毒的真相不可能“翻盘”了。这一方面说明大势不可逆转，另一方面让普通人接受真相还需要一个过程。民主党人士还普遍没有发声，就说明真相在美国推进的难度，欧洲大部分政客对中共的邪恶更是缺乏认知。所以，还需坚持不懈，揭露中共的罪恶，直到将其铲除。
+作者：纽约香草山写作组 simida
 
-原文链接：
 
-[https://www.foxnews.com/politics/marjorie-taylor-greene-covid-bioweapon-fauci](https://www.foxnews.com/politics/marjorie-taylor-greene-covid-bioweapon-fauci)
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

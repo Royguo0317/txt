@@ -1,39 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 回归中华
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1325674/)
+## 七古（端午）
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1325709/)
 
 作者：墙内战友|校对：仙女儿-文善|审核：SilverSpurs7|Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/KRyXUXfmfwBho/images/19732b12-f158-4454-94f0-795aecf4ae16.jpg?asset_id=f9861566-2813-4eb8-bf05-b5feae44dce9&amp;img_etag=%2298ada584356817e43241a2991bca6a81%22&amp;size=1024)](https://spark.adobe.com/page/KRyXUXfmfwBho/images/19732b12-f158-4454-94f0-795aecf4ae16.jpg?asset_id=f9861566-2813-4eb8-bf05-b5feae44dce9&amp;img_etag=%2298ada584356817e43241a2991bca6a81%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/Rai4iqBsazzPW/images/1c9bb66e-9065-48d2-9ef4-aba4bbf9fbf5.jpg?asset_id=89f6082c-9aa1-499d-9b74-6578f8e483fc&amp;img_etag=%22e67dbed52eda2c9530e56cecb43f02f5%22&amp;size=2560)](https://spark.adobe.com/page/Rai4iqBsazzPW/images/1c9bb66e-9065-48d2-9ef4-aba4bbf9fbf5.jpg?asset_id=89f6082c-9aa1-499d-9b74-6578f8e483fc&amp;img_etag=%22e67dbed52eda2c9530e56cecb43f02f5%22&amp;size=1024)
 
 
 ```
-我爱我美丽的家
- 我生长的地方中华
- 虽然您历尽沧桑但仍然把自由的种子撒下
- 纵然我们的民族屡经蹂躏
- 但永远不会倒下
- 我们一代代屡经战火的创伤和刀枪的洗礼
- 但枪炮下和金戈中练就了
- 我们强硬的身躯
- 虽然恶鬼引来了吃人红魔
- 祸害了我们的家
- 但我们在正道主义的旗帜和唯真不破的理念下
- 我们爆料革命的正义力量
- 一定会把CCP打垮
- 新中国联邦一定会重整我们破碎的山河
- 让我们拥抱新的中华
- 拥抱我们崭新的家
- 来吧
- 我的兄弟姐妹
- 来吧
- 我亲爱的战友
- 重整山河
- 恢复中华
+又逢端午忆春秋，
+一曲离骚几多愁？
+昔日屈原今仍在，
+叹息难遇众诸侯！
 ```
 
+
+**注解：**
+
+（又逢端午忆春秋）今天又是端午节。
+
+（一曲离骚几多愁）在屈原的一曲《离骚》中道出了多少惆怅？
+
+（昔日屈原今仍在）在如此高度文明的今天，墙国仍然存在很多对世道不满而自杀者，让人感觉不知对自杀者该悯还是该恨。
+
+（叹息难遇众诸侯）古时的春秋时期相当于现在的联邦，留恋或盼望着联邦的时期……
 
 *文章仅代表作者观点*
 
@@ -45,6 +37,6 @@
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/KRyXUXfmfwBho/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/KRyXUXfmfwBho/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/Rai4iqBsazzPW/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/Rai4iqBsazzPW/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
