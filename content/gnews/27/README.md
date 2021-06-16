@@ -1,34 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 黑石接近完成SOHO中国收购
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1326209/)
+## 【每日快讯】06/14/2021：G7联合声明36年来首次提保护台海和平并对新冠起源迳行调查
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1326251/)
 
-#### 撰稿：yyshere
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16030015/panpan.jpeg)图片来源：第一财经
-据知情人透露，黑石集团正在达成一项收购SOHO中国有限公司的交易，这将是黑石集团在亚洲国家的最大一笔房地产投资。据悉，在香港上市的SOHO中国的估值可能在30亿美元左右，这项交易最快可能在本周宣布。
+**制作：Cantonese工作室**
 
-这篇报道发布前一天，SOHO中国的股票应公司要求停止交易，等待根据香港的收购和兼并守则进行公告。根据Refinitiv的数据，截至其股票最后收盘时，该公司的市值为197.6亿港元。
 
-SOHO中国由潘石屹和张欣夫妇于1995年创立，2007年在香港上市，63.93%的股份由董事长潘石屹和首席执行官张欣共同持有。
 
-报道透露，潘石屹和张欣决定出售SOHO中国是基于希望将注意力转移到海外市场。
+**播报：【文依】资料整理：【Annie 喜马拉雅】【sunny64】【闪电】海报制作：【侬民】视频制作:【ken】发布：【向阳6768】**
 
-而引述中共国国内财经网站的消息，早在2020年3月10号，黑石集团已经展开与SOHO中国的私有化谈判，交易价值40亿美元。当时，黑石集团向SOHO中国提出的私有化报价为每股6港元，这比现时股价高出约一倍，预计交易事宜能在数周内宣布，且潘张二人计划在与黑石达成交易后仍保留少量股份。
+摘要：
 
-根据当时的报道，SOHO中国考虑出售中共国内地的办公楼资产，包括SOHO中国在北京的光华路SOHO、望京SOHO塔3、上海的SOHO复兴广场、上海的古北SOHO、SOHO天山广场、外滩SOHO，以及北京的前门项目和丽泽SOHO，八个项目总价值500-600亿人民币。SOHO中国计划以分批打包的方式寻求出售，计划所有交易在未来两年内完成。
-
-随后在2020年5月4号港股收盘时，SOHO中国股价报2.75港元，跌幅达25.68%，最新市值约143亿港元。当时分析人士称，这与市场上传言黑石集团与SOHO中国的收购谈判陷入停滞的消息有关。而同天彭博社援引知情人士的话报道显示，由于新冠肺炎疫情影响导致公司前景充满不确定性，黑石集团关于SOHO中国私有化的洽谈陷入停滞状态。
-
-而在之后的2020年8月14号，SOHO中国终止了与黑石集团的谈判，私有化搁浅。
-
-根据爆料革命发起人郭文贵先生揭露的信息，无论黑石集团还是SOHO中国，都与中共有着深层次的关联，SOHO中国和潘石屹和张欣也只是中共权力集团诸多白手套中的一份子，而被称为华尔街之王的黑石集团，及其创始人之一的苏世民，与中共的权钱交易更是过从甚密。
-
-这次的交易到底隐藏着怎样的谋划仍有待继续观察。
-
-消息来源：彭博社 网络公开消息
-
-（本文系作者个人观点）
-
+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16032853/12_page-0002-2.jpg)
+2
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16032935/12_page-0003-2.jpg)
+3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033039/12_page-0004-2.jpg)
+4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033134/12_page-0005-2.jpg)
+5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033208/12_page-0006-2.jpg)
+6
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033257/12_page-0007-2.jpg)
+7
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033327/12_page-0008.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12114228/200608_8_of_8-1.png)
 0
