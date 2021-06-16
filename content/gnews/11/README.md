@@ -1,69 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】医保账单“显”实情，医疗基金“存”亏空
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1325578/)
+## 收获的季节已经来临
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1325726/)
 
-作者：香草山农场  鹰(文言)
+作者：墙内战友| 校对：仙女儿-文善 |审核：SilverSpurs7 |Page：小雨
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01210522/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
+[!\[\]()!\[\](https://spark.adobe.com/page/dItmF6TDFKbFp/images/9de8d526-53e6-45fe-8bec-dfee7880fe42.jpg?asset_id=1005d794-9f44-4a10-8961-d6d46a109dff&amp;img_etag=%228a6c0c7359c1d9dff0d8f2d9be2ffb49%22&amp;size=2560)](https://spark.adobe.com/page/dItmF6TDFKbFp/images/9de8d526-53e6-45fe-8bec-dfee7880fe42.jpg?asset_id=1005d794-9f44-4a10-8961-d6d46a109dff&amp;img_etag=%228a6c0c7359c1d9dff0d8f2d9be2ffb49%22&amp;size=1024)
 
 
-
-环球网6月15日转载工人日报消息，中共医保局公布《2020年全国医疗保障事业发展统计公报》，2020年国内基本医保基金（含生育保险）收入达24846亿元（同比增长1.7%），支出21032亿元（同比增长0.9%），累积结余31500亿元。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15213402/Untitled-design-2021-06-15T193324.282.png)
-此前2015年中共新华社曾报道，从2013年开始国内医保基金的增长速度开始低于开支的增速，而《中国医疗卫生事业发展报告2014》曾预测，2017年城职职工基本医疗保险基金将收不抵支，2024年基金结余将出现亏损7353亿元的赤字。中共为了应对可能出现的“收不抵支”迹象，于2017年5月份上调居民医保人均医保缴费标准，从16年的150元提高到180元/人/年，上调幅度达两成。
-
-根据中共卫健委公布的2020年1-11月全国医疗服务情况，其中三级公立医院次均门诊费用为373.6元，二级对应为235.0元；三级公立医院人均住院费用为14815.7元，二级对应为6750.7元，再参考1-11月三级医院诊疗人次为15.67472亿人次，二级为10.7318亿人次，三级出院人数达8084.1万人，二级对应为6523.6万人。
-
-根据以上数据，总计为（15.67472-0.80841）×373.6+（10.7318-0.65236）×235+0.80841×14815.7+0.65236×6750.7为24303.76851亿元，而这一数字不但超出2020年医疗开支21032的15%，更达到总收入的97.8%。然而全国医疗保险报销比例中三级医院报销比例约为70%，二级医院约为80%，即二级以上医院的医疗消费中至少20%仍需要自行垫付。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15213432/Untitled-design-2021-06-15T193239.870.png)
-而以上数据中还未计入一级及以下医院的3.3亿人次诊疗和2000多万出院人数相关数据，全国居民医疗开支的规模只会更为庞大，但在公立医院诊疗人次下滑13%的前提下，人均医疗费用不降反增（如三级公立医院次均门诊费用涨幅13.1%，二级对应上涨14.5%；三级均次住院费用涨幅12.2%，二级对应上涨9.3%）。在2020年全年疫情蔓延的现状下，非但没有降费抗疫的“社会自觉性”，反而中共利用独揽的医疗资源继续对民众的医疗剥削。
-
-再结合2020年中共出台《关于建立健全职工基本医疗保险门诊共济保障机制的指导意见（征求意见稿）》，将单位缴纳的医疗保险费全部划入“专项账户”，此举更将个人账户中的医保大头（2019年医保基金个人账户中的单位缴纳部分4300亿元，占个人账户基金的73%）变相收为国有。而医疗基金收入和开支从13年依次17.4%、19.6%的增速降至如今的1.7%和0.9%的趋势，不但表明医疗基金对人民的搜刮力度已经难以为继，也反映出中共对医疗保障的有意截留，以遮掩医疗基金的烂账坏账。
-
-新闻来源：
-
-全国“医保账单”释放多重信号 https://china.huanqiu.com/article/43XjUUNj6Uw
-
-国家卫健委：公立医院诊疗人次下滑13%！http://news.pharmnet.com.cn/news/2021/03/05/551766.html
-
-去年新冠救治花了多少钱，医保基金还有多少？国家医保局给答案了https://new.qq.com/omn/20210309/20210309A0DHUE00.html
-
-医保基金支出增幅大于收入增幅 2020年或现基金缺口http://www.xinhuanet.com/politics/2015-06/05/c\_127880367.htm
-
-2020年医疗保障事业发展统计快报 http://www.gov.cn/xinwen/2021-03/08/content\_5591551.htm
-
-职工医保基金支出提高1.6% 39万家药店受影响 https://news.yjton.com/show-4828.html
-
-财政部：2017年全国社保基金总收入58437.57亿http://www.cs.com.cn/jg/07/201810/t20181031\_5887528.html
-
-人社部:2017年居民医保人均个人缴费标准提高30元http://politics.people.com.cn/n1/2017/0502/c1001-29246879.html
-
-医疗保险的报销比例，全国是一样的吗？https://new.qq.com/omn/20210426/20210426A04YFO00.html
-
-职工医保新政为何要动个人账户的“钱袋子”？ https://news.sina.com.cn/c/2020-09-07/doc-iivhuipp2889692.shtml
-
-校对/发稿：火内
+```
+自由
+ 如果你只是在集权下生存
+ 你根本就不会了解真正的自由的滋味
+ 那么
+ 时至今日爆料革命已经把集权的黑暗撕裂
+ 是爆料革命的正道主义在整个世界开花
+ 让自由的阳光给我们照亮了未来之路
+ 是自由的阳光给我们带来了春天的信息
+ 使我们沉默的心萌发出向往自由的新芽
+ 让自由的芳香布满了整个曾经黑暗的华夏
+ 让自由的累累硕果建立起
+ 新中国联邦的大厦
+ 行动吧
+ 我亲爱的战友
+ 行动吧
+ 我墙内墙外的亲人
+ 因为我们早已经为自由付出了昂贵的代价
+ 而今天
+ 是我们收获的时候了
+```
 
 
+*文章仅代表作者观点*
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
+[!\[\]()!\[\](https://spark.adobe.com/page/dItmF6TDFKbFp/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/dItmF6TDFKbFp/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

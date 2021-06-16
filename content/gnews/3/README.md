@@ -1,41 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳媒报道：拜登政府推出2500亿美元计划挫败中共国
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1325551/)
+## 6月15日美国政要推特精选：“解雇福奇法案”已立项
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1325773/)
 
-撰稿：喜妈
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15221309/1622.png)（图片来自网络截图）
-澳媒报道美国拜登政府新近推出“一项耗资 2,500 亿美元的庞大立法”，目的是在用以“增强美国与中共国竞争能力”，以及“一系列反华措施”。
+众议员玛乔丽·泰勒·格林： 是时候解雇安东尼·福奇了。 我的《解雇福奇法案》正是这样做的。 感谢我的共和党同事支持这项立法。
 
-该法案包括“六个不同的提案”，“以1000亿美元，长达150页的提案开头”，被称为“美国创新与竞争法”。它被作为“在美国参议院的谈判中”是“针对中共国”一个计划。在该计划中，参议院将提出“从打击国际技术转让到倡导外交抵制 2022 年北京冬奥会等方方面面”。
 
-报道称，该项立法核心是“刺激（美国）国内半导体制造和研发的战略性领域的支出，这些领域包括人工智能，5G无线，量子计算，生物技术和机器人等”。据报道内容，这些行业被中共国“确定为其计划的核心全球技术领导者，并在其中注入国家资金”。此法案“将与外交事务相关的支出和外交重新定向到印度太平洋”用以“对抗中共国在全球范围内影响”。
 
-报道指，该法案涉及：台湾问题、中共病毒问题、国开行对中共国援助的问题、对抗中共“一带一路”的问题、维吾尔族问题、对美国网络攻击制裁问题、孔子学院问题等。此法案据说是“新政府前所未有的挥霍开支”体系里的“另一个非常昂贵的计划”。
+> It's time to fire Anthony Fauci.
+> 
+> My "Fire Fauci Act" does exactly that.
+> 
+> Thank you to my Republican colleagues for supporting this legislation.[#FireFauci](https://twitter.com/hashtag/FireFauci?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/z2UenvrBjM](https://t.co/z2UenvrBjM)
+> — Rep. Marjorie Taylor Greene (@RepMTG) [June 15, 2021](https://twitter.com/RepMTG/status/1404855856403988480?ref_src=twsrc%5Etfw)
 
-报道认为，该立法反映了美国“两党对中共国的敌对态度”，以便在“压制中共国挑战中共国”同时“保护和改善”美国在“关键经济战场上的地位”。文章指出，实际上“美国并不是抵抗中共国野心的唯一战线”。欧盟已经“冻结”一些与中共国的贸易协定；同时它“正在起草立法”针对中共国的其他措施。
 
-报道称，“美国和欧盟一直在举行会谈”，“尽管欧盟的行动远不及美国那样公开或明显地敌对，但西方的两个主要经济集团正在采取的措施可能会对中共国实现其愿望的能力产生不利影响”。
 
-综合上述信息，笔者认为，这篇报道信息量很大。除了拜登政府顺应美国内外反共灭共浪潮兴起的需求而推出大手笔的法案，让我们很为震惊之外，我们还清楚地看到美国和欧盟正在积极统一在制约和抗衡中共国的方向上。
+众议员保罗·戈萨尔： 是时候让福奇上路了。很荣幸成为“解雇福奇法案”的共同发起人。感谢来自乔治亚州的同事玛乔丽·泰勒·格林[@RepMTG](https://twitter.com/RepMTG)领导这项工作。 【附[http://newsweek.com](https://t.co/lWKmYlfK74?amp=1)的文章链接：玛乔丽·泰勒·格林以及其他共和党人再次呼吁蝠奇下台，并称福奇“控制了美国人的生活”】
 
-首先，本次最新推出的提交参议院讨论的法案，金额巨大、力度强大、范围广泛。这个提案如果顺利通过，可以有效地反击中共在美国为首的西方世界的渗透、技术偷窃等。资金的支持肯定可以推进美国相关的机构迅速进行相关的对抗中共的活动。
 
-其次，就是提案涉及的内容，我们可以看到都是大家非常关心的与中共比较触及美国核心利益的敏感问题。这个说明，美国政界高层已经深刻体会到，这些问题必须到进入到更加广泛的讨论和具体的措施执行阶段。当然，可以同时说明，这些问题已经在一个新的发展态势下无法再被忽略了。
 
-第三，美国作为西方民主体系的领军力量，已经在启动和中共国的对立对抗和积极的反击状态中。当美国更加明确地站出来，更加鲜明地表达出自己与中共国的分割脱离立场，也鼓励了欧盟紧随其后，更加积极地投入到和美国合作反共制共的潮流中。
+> It’s time for Fauci to hit the road. Proud to be a cosponsor of the Fire Fauci act. Thank you to my colleague from Georgia, [@RepMTG](https://twitter.com/RepMTG?ref_src=twsrc%5Etfw) for leading this effort. [https://t.co/Q8m9WmEf5Y](https://t.co/Q8m9WmEf5Y)
+> — Rep. Paul Gosar, DDS (@RepGosar) [June 15, 2021](https://twitter.com/RepGosar/status/1404935545755639817?ref_src=twsrc%5Etfw)
 
-综合这些方面的动态，对于处于爆料革命的战友来说，是极为欣喜和积极的。我们四年多以来，一直传播中共的邪恶真相，我们很高兴看到西方正在不断调整，不断和爆料革命有着很多的重叠与共享。我们需要继续坚持真相宣传，更快地推进这些已经浮现出来的转变成为确定的灭共力量！
 
-本文纯属个人观点
 
-参考资料：
+参议员罗恩·约翰逊： 这些机构在处理 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 方面有很多需要解释的地方。 这就是为什么我们写信给[@NIHDirector](https://twitter.com/NIHDirector)和[@SecBecerra](https://twitter.com/SecBecerra)，追查他们电子邮件中篡改的部分背后到底隐藏了什么内容。 【附信函全文，视频中罗恩·约翰逊质疑蝠奇邮件门关联方是否掩盖了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的起源】
 
-[https://www.smh.com.au/business/the-economy/biden-s-us250-billion-plan-to-frustrate-china-20210531-p57wo0.html](https://www.smh.com.au/business/the-economy/biden-s-us250-billion-plan-to-frustrate-china-20210531-p57wo0.html)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+> These agencies have a lot of explaining to do about their handling of COVID-19. 
+> 
+> That's why we've written to [@NIHDirector](https://twitter.com/NIHDirector?ref_src=twsrc%5Etfw) [@SecBecerra](https://twitter.com/SecBecerra?ref_src=twsrc%5Etfw) to see what's behind the redactions in their emails.[https://t.co/2cysIcfGsd](https://t.co/2cysIcfGsd) [pic.twitter.com/Vgoe91whKw](https://t.co/Vgoe91whKw)
+> — Senator Ron Johnson (@SenRonJohnson) [June 16, 2021](https://twitter.com/SenRonJohnson/status/1404955632361381892?ref_src=twsrc%5Etfw)
+
+
+
+众议员埃莉斯·斯特凡尼克: 作为自由世界的领袖，美国必须因 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 官员自己的行为对他们追责。 我将与Wittman议员一起提出立法，在对 COVID-19 起源进行调查之前，制裁中国卫生机构官员。 【附斯特凡尼克议员声明全文】
+
+
+
+> As the leader of the free world, the U.S. must hold Chinese Communist Party officials accountable for their actions.
+> 
+> I'm joining [@RobWittman](https://twitter.com/RobWittman?ref_src=twsrc%5Etfw) in introducing legislation that will sanction Chinese Health Agency Officials until there is an investigation into COVID-19 origins. [pic.twitter.com/Lukhc92SHc](https://t.co/Lukhc92SHc)
+> — Rep. Elise Stefanik (@RepStefanik) [June 15, 2021](https://twitter.com/RepStefanik/status/1404877011508731910?ref_src=twsrc%5Etfw)
+
+
+
 0
