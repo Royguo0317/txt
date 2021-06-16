@@ -1,50 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】 见证生命的医治
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1326102/)
+## 【灭共头条】拜登政府宣布对美国国家卫生研究院的拨款进行调查
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1326172/)
 
-作者：香草山福音部  英子
+#### 撰稿：Grace
+责编：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16014253/fauci-2.jpg)图片来源：basin435
+根据《每日邮报》6月15日发表的一篇报道，一个联邦监督机构周二宣布，开始审查美国国家卫生研究院（NIH）如何管理其拨款项目，这项调查可能包括给予中共的一个实验室的资金，而该实验室是中共病毒问题的中心。这次审查是在越来越多的质问声中进行的，这些质问涉及大流行病是否可能从该实验室的开始，以及那里的科学家是否利用美国的钱对病毒进行 “增强功能”实验。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+据《每日邮报》报道，共和党人已经仔细审查了美国国家卫生研究院对生态健康联盟（EcoHealth Alliance）的拨款，该联盟是一个科学非营利组织，曾帮助武汉病毒研究所的研究提供资金。 保守派指责联邦官员如安东尼·福奇博士掩盖与武汉的联系。当福奇证实几十万美元通过该非营利组织用于研究蝙蝠的冠状病毒时，这些指责变得更加激烈。
+
+根据5月26日Basin435发表的一份报告，在参议院拨款小组委员会会议期间，Fauci说，“大约拨款80万美元，在五年内花费了大约60万美元，不会超过这个数目”。福奇解释说。“这意味着每年有125,000到150,000美元用于与武汉的合作。”
+
+卫生与公众服务部（HHS）监察长办公室的通讯主任Tesia Williams说，“我们和利益相关者一样，对NIH拨款资金的合规性和监督感到担忧。我们已经监测这个问题有一段时间了，并认为这是一个高度优先事项，可能对NIH赠款项目的完整性构成威胁。”
+
+据《每日邮报》报道，HHS监察长办公室公布的新调查细节表明，像EcoHealth这样向海外汇款的团体将受到审查。“作为转手实体的受资助者必须监督次级受资助者的活动，包括外国次级受资助者，以确保次级资助用于授权目的，遵守相关法律和次级资助的条款和条件”，工作计划说，“我们将审查NIH对选定赠款的监督，以及受赠人按照联邦要求对NIH赠款的使用和管理。”
+
+毫无疑问，福奇和他的同谋们应该因允许中共实验室制造生物武器而受到惩罚。然而了解中共邪恶本质的人也明白，消灭中共是防止另一次大流行病发生的唯一途径。
+
+参考资料：
+
+1. [Biden administration announces probe into NIH grants – including the funding Dr. Fauci approved for the Wuhan lab at center of COVID leak theories](https://www.dailymail.co.uk/news/article-9689515/Biden-administration-announces-investigation-NIH-grants-including-Wuhan-lab.html)
+2. [Dr. Fauci admits to funding bat virus research at Wuhan lab, says NIH funneled $600K over 5 years](https://www.basin435.com/2021/05/26/dr-fauci-admits-to-funding-bat-virus-research-at-wuhan-lab-says-nih-funneled-600k-over-5-years/)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16015442/21-%E3%80%90%E4%BF%A1%E4%BB%B0%E4%B9%8B%E5%A3%B0%E3%80%91-%E8%A7%81%E8%AF%81%E7%94%9F%E5%91%BD%E7%9A%84%E5%8C%BB%E6%B2%BB.jpg)
-
-> **“耶稣听见，就说：‘康健的人用不着医生，有病的人才用得着**’”
-> –**《马 太 福 音 9：12 》**
-
-
-妈妈很不幸，正值生命健壮的时候，疾病夺去了她双眼的视力，她的生命陷入了黑暗之中。 从那时起，求神拜佛成了她唯一的希望。
-
-我多年前回国时向妈妈传福音，因着神的怜悯并在他的主宰安排之下， 妈妈接受了真正的神救主-耶稣基督。喜乐再次回到她的生活，阳光再次照进她的内心。 她人生的盼望从此便全心寄望于这位活神。 然而有一件事却一直令我不安，那就是妈妈对这位救主还不是很认识，甚至有点迷信，她认为不管什么事情，只要借着祷告，神都会答应她。对妈妈来说，就是她的健康问题。
-
-她一直拒绝吃药，去医院，看医生。有什么病痛， 她都告诉神，这些年来神也真是保守看顾她，所以要她去医院可真是比登天还难。父母亲也曾经为此发生过很多次矛盾。自从父亲去世后，我把妈妈接到国外与我同住。 在过去的6年中，她也未曾看过一次病，吃过一次药。
-
-不久前，妈妈的脚不小心被桶子砸伤，起了大血泡。她因为不想去看医生一直对我隐瞒，告诉我没事，不疼。直到前几天我才发现，她的脚已经严重感染，不得不去急诊室。
-
-经过这次事件，妈妈终于认识到，我们对神的信仰不是迷信。不是什么事，神都要听我们的安排，按照我们的意愿，答应我们的要求。 神是藉着外面各样的环境和事件，变化我们里面的生命，这才是我们所信之救恩的真正意义和目的！妈妈承认，她以前的确很固执，一直听不进别人的意见，求主赦免她的过错。 感谢主！
-
-我们每个人又何尝不是内心有病，需要主耶稣这位真正的医生呢？他来医治的是我们那看不见的顽梗，骄傲，嫉妒，争竞，贪婪，欺诈，说谎…..
-
-主啊，怜悯我们这些罪人！我的妈妈需要你，我更需要你！
-
-（文章仅代表作者个人观点）
-
-编辑/校对/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+(本文仅代表作者个人观点)
 
 0
