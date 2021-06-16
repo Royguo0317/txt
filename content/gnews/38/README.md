@@ -1,9 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德简报】6/14/2021晚：北约称中（共）国及其野心构成系统性挑战
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1323945/)
+## 2021年6月14日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1324956/)
 
-编辑：华盛顿DC农场 路德简报项目组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15042708/20210614-2-scaled.jpg)
-0
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+
+6月14日：……
+
+【2021年6月8日】文贵先生盖特原文
+
+**喜联盟Gnews编辑部**
+
++1

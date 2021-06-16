@@ -1,22 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【西媒头条】第1期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1324062/)
+## 2021年6月15日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1325081/)
 
-- 作者：蚂蚁兄弟
+编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
+All things and behaviors in the human world are based on goodness, and all the laws of the world must follow reincarnation and cause and effect.
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+[【2021年6月15日】文贵先生盖特原文](https://getome.com/post/py0bb)
 
-**西班牙2021年6月15日电/西喜社——**
-
-关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15053522/Captura_de_pantalla_2021-06-15_a_las_10.46.55.png)
-
-发稿：信心的选择
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+**喜联盟Gnews编辑部**
 
 +2

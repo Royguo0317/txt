@@ -1,54 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0614VIII七哥过去两周的工作成果到717大家就知道了
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1324092/)
+## 突发：司法部长梅里克•加兰宣布他的司法部将严查任何旨在寻找违反投票法的证据的选举后审计！
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1325080/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15054343/maxresdefault-6.jpg)
-据[2021年6月14日 文贵直播：马云投资吴征的秘密；韩正力保吴征的原因；新盖特Logo的涵义；7.17看文贵大招](https://gtv.org/video/id=60c76068b96c69573d7ec62c)时间点1：03：20——
+翻译：Elsie｜校对：JS709｜审核：断播
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15140040/election-fraud-2020-ballots-ga-tcf.jpg)
+**腐败的司法部**** (DOJ) ****及其联邦调查局**** (FBI) ****完全无视**** 2020 ****年大选中的泛滥的选举犯罪。 因此，现在腐败的司法部长决定威胁任何参与选举审计的人，以防止他们调查选举中的犯罪和欺诈行为也就不足为奇了。**
 
-（战友留言）今天是川普生日，他的生日真不重要，他老人家生日不重要。哎呀，我们的战友们刚跟川普总统开过会。现在是新中国联邦的生日比较重要。天呐，天呐，这个亚吉娜简直是，要都像亚吉娜一样战友七哥的日子好过了。
+司法部完全无视 2020 年选举中的选举犯罪。我们转向的每个地方都有各个层面的犯罪和腐败，但我们的主流媒体、司法部及其联邦调查局都视而不见，大型科技公司禁止提及任何选举犯罪。 让所有这些机构跳上同一艘腐败的船，这可不是一件小事。
 
-追加，借款对账的是如水、大文柱，还有巾帼小妹，巾帼小妹。我记住如水，如水，如水是咱们休斯顿的如水是付出特别多特别多的啊，还有大文柱、巾帼小妹特别多特别多，谢谢Masha的提醒。如水、大文柱和巾帼小妹啊，特别特别感谢。日本的樱花团的二把手是勇气啊，是勇气，这啥名字这都是？叫勇气，嗯，挺好，这勇气反正这样的，七哥老记不住。
+我们发现了这一点并对此进行了报道，不是司法部 – 他们忽略了它。在 2020 年大选后的清晨，数千张选票送到了底特律 (Detroit) 的投票地点，这些选票全都投给了乔·拜登：
 
-（郭先生对着电话说话）可以的，可以的，我开完以后再跟他开好吧不好？没问题的。这一个会接着一个会，咱们在国内的战友给我发信息，七哥，你今天不直播不行。我说，为啥不行？一说我明白，我得直播。所以说刚才在直播前的，几分钟前还没准备直播呢，我这赶快运动。只要是正着，没有皱褶啊，战友说有皱褶，没有啊？咱们的那个白帽子有问题——掉颜色。我超喜欢这个，我要的就是这种磨砂面，你看这个，我超喜欢这个，好多人都喜欢这个磨砂面这个。
+[**独家：****TCF ****中心选举舞弊**** – ****新发现的视频显示，在截止期限****8 ****小时后的深夜，交付了数万张非法选票**](https://www.thegatewaypundit.com/2021/02/exclusive-tcf-center-election-fraud-newly-recovered-video-shows-late-night-deliveries-tens-thousands-illegal-ballots-michigan-arena/)
 
-新中国联邦这次发的那个帽子黑的特别好，白的那个有问题。我们G-Fashion的定价不是低，是太低啊，低到了很多人觉得不可思议。但是你高了，战友又买不起它真是个问题。我们还想要最好的质量、最最低的价格，特别特别难。
+已[确认：法官推迟佐治亚州 (Georgia) 选举工作人员鲁比·弗里曼（ Ruby Freeman） 和她的女儿雪伊·莫斯（ Shae Moss） 的证词](https://www.thegatewaypundit.com/2021/06/confirmed-judge-delays-depositions-georgia-election-workers-ruby-freeman-daughter-shae-moss/)
 
-（郭先生念战友留言）天亮了，哈哈哈。核电站的事儿先不要说，过两天说核电站的事儿。我过去两周的工作的成绩，到7月17号你们仔看，7月17号再看。你都知道，啥明白了？七哥累垮了。
+我们拍摄了这段视频，并确定该团伙将所有人踢出亚特兰大 (Atlanta) 投票站，然后从桌子底下拉出选票，在无人看管的情况下将选票扔进制表机两三遍。 对他们来说，不幸的是，摄像头是开着的。 但到目前为止，这并不重要，因为 DOJ 和 FBI 已经忽略了所有这些证据：
 
-接上文——
+[难以置信：佐治亚州的“手提箱丑闻”-反川普民主党人在制表机上运行相同批次的选票三次！ （视频）](https://docs.google.com/document/u/0/d/137RD_sc281-rjcHLWGiLdeMtZHpjyeeZWwil-SOzNo0/edit)
 
-[郭先生0614直播前播放视频文字记录汇总](https://gnews.org/zh-hans/1323433/)
+监管链法在多个州被忽视，但 DOJ 和 FBI 并不关心：
 
-[郭先生0614I国内战友完成六个月战略部署七哥专案组全被抓](https://gnews.org/zh-hans/1323454/)
+[必读：民主党人只有在 2020 年打破每个摇摆州的监管链，才能“获胜”](https://www.thegatewaypundit.com/2021/02/must-read-democrats-able-win-2020-breaking-chain-custody-laws-every-swing-state/)
 
-[郭先生0614II仇富心态的武警和专案组以虐待和戏弄马云为乐](https://gnews.org/zh-hans/1323491/)
+但现在，随着美国爱国者们花时间自愿参与并帮助在审计中揭露欺诈和腐败，美国司法部终于承认存在选举（欺诈）。 司法部长表示，他和他的律师和调查团伙将仔细审查在审计期间采取的每一个行动，以恐吓和阻止审计的进行。
 
-[郭先生0614III马云爆内幕韩正力保吴征因其掌握韩正基因地图](https://gnews.org/zh-hans/1323507/)
+[恐慌模式！！ 当司法部长梅里克·加兰（Merrick Garland）宣布美国司法部将严查任何旨在寻找违反投票法的证据的选举后审计时，你知道你已经结束了！！](https://twitter.com/Cam_Music/status/1403427202184613888?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1403427202184613888%7Ctwgr%5E%7Ctwcon%5Es1_c10&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2021%2F06%2Fbreaking-ag-merrick-garland-announces-doj-will-scrutinize-post-election-audits-evidence-voting-law-violations%2F)
 
-[郭先生0614IV20大江派韩正赵乐际丁薛祥李强卡位克强滚蛋](https://gnews.org/zh-hans/1323543/)
+我们知道他们会做些什么。现在，深层政府终于采取了这一行动，并威胁任何敢于相信自己直觉并想协助撤销 2020 年选举的欺诈性选票的人。
 
-[郭先生0614V G系列和法治基金将给铁血组农场主生活补助](https://gnews.org/zh-hans/1323575/)
+**我们终于可以说美国是一个由一群骗子经营的香蕉共和国了吗？**
 
-[郭先生0614VI战友们要以诚待人正确认识自己懂得尊重别人](https://gnews.org/zh-hans/1324021/)
+原文作者：乔·霍夫特（Joe Hoft)
+发布时间：2021年6月11日 15:03
+原文链接：https://www.thegatewaypundit.com/2021/06/breaking-ag-merrick-garland-announces-doj-will-scrutinize-post-election-audits-evidence-voting-law-violations/
 
-[郭先生0614VII吴征杨澜靠三口澜一腚赢天下在党内屹立不倒](https://gnews.org/zh-hans/1324048/)
-
-编辑整理——
-
-纽约香草山农场：文兮（我❤战友）
-
-校对整合——
-
-喜马拉雅日本银河系农场：黎明之前
-
-分段归纳——
-
-波士顿五月花农场：背靠背（frankie）
-
-发布——
-
-喜马拉雅银河系农场：山川异域
-
-0
++2

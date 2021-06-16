@@ -1,60 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0614XI我们的目的是灭共,战友们要在多平台广泛传播
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1324164/)
+## 武汉生物实验室当病毒浮出水面时，有超过15000个实验文件“消失”了
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1325134/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15061756/image0-2-28_%E5%89%AF%E6%9C%AC.jpg)
-据[2021年6月14日 文贵直播：马云投资吴征的秘密；韩正力保吴征的原因；新盖特Logo的涵义；7.17看文贵大招](https://gtv.org/video/id=60c76068b96c69573d7ec62c)时间点1：21：17——
+**字幕内容:**
+national intelligence agencies examining whether an accidental leak may have started the global pandemic.
+国家情报机构正在审查是否是一次实验室意外泄漏引发了全球大流行病
 
-（郭先生念战友名字）大姑则擀面杖、大姑则擀面杖，喜马拉雅小蚂蚁号，罗伊 gettr gettr gettr, 罗伊这孩子不简单啊，这个罗伊是我们的工程师，罗伊一个人加半个工程师，干出了一个就是那个翻译的字幕，就是他干的。从4月17号开始干出来的活非常漂亮啊，罗伊这孩子很谦卑很谦卑，个人素质非常好，没有什么恶好，这是非常棒的小伙子啊，未来前途无量。文末、马努吉诺比利，念过了啊，雅云啊、洛夫斯基。
+tonight we have new information that will be of great interest to the probe announced by US. president Joe Biden.
+今晚我们得到新的信息，这将与美国总统乔·拜登宣布的调查有很大的关系
 
-小Sarah最近也不搞节目啦，小福利这两天节目也不搞啦，这300年的飞飞也不搞啦，这次参加完64以后全回去度假去了，都度假去了，你看到没有？S Miles S Miles，七哥念我，跟着4年了，七哥，S Miles，郭叔已建国，S Miles还有一个，七哥念我，S Miles、Kaiser、喜马拉雅圣。盖掉推特，盖特当然要盖掉推特啦，盖特绝对会震惊天下，走着看！正义的力量，等到7月17号咱们再说。青烟袅袅，青烟袅袅，七哥念我，中南坑青烟袅袅、小苹果丽丽。香蕉啊，大家去那个闲聊澳洲的YouTube上，去点赞去。
+we can show you footage from inside the Wuhan Institute of Virology
+我们可以向您展示武汉病毒研究所内部的录像
 
-我再说一下，战友们，在G-TV直播的每一个人都应该同时在OBS上链接你的YouTube，或者是Instagram，就是不要说自私的只在G-TV直播，一定在G-TV，但一定尽可能在更多媒体上。我们的目的是灭共，不要在乎其它的，我们的目的是灭共啊，广泛传播。
+and interviews with the very scientists
+以及对科学家的采访
 
-LB77777777，我的天呐。依靠农民，有人说，文柯Miles说，717川普入驻盖特。你太小看你七哥了啊，那能行吗？那能行吗？光川普能行吗？七哥想得比这大，比这大！七哥干事如果是你们能想明白的、能想透的，楚歌汉界还有百鸟朝凤战友，七哥如果想干的事你们能猜对了，那七哥就没价值了，对吧？七白石啊，七哥一念名字，大家就疯了！七白石，雄鹰翱翔、雄鹰翱翔，还有G7TV啊，不停二，七哥好！七哥铁杆儿，哇塞，七哥铁杆儿！
+at the heart of one of the greatest cover up the world has ever seen.
+他们是这场全世界前所未有的掩盖行为的核心
 
-冰冰和我来双修，七哥我没说啊，刚刚肯定是冒牌名字说那段话啊，那你这还有冒牌的，那是什么意思啊这是？俄罗斯首富，我来接了。期待717、飘扬，大舅念我、大舅念我，这咋还大舅了啊，飘扬、Frient、Kiki、霓裳雨衣、回望旅程、金池大鹏、正清，我们正清，台湾农场小伙子很棒啊，形象很好，非常非常好啊，战友端午啊，你练习的刀枪不入的、明峰啊。行了，我这时间是又过了又过了，自由光、江南春雨，中吗？
+how did the COVID-19 global pandemic start?
+COVID-19全球大流行病是如何开始的？
 
-接上文——
+Did the virus derive from bats end up in the wuhan lab causing an inadvertent leak?
+是否来自蝙蝠的病毒最终进入了武汉的实验室，造成了无意中的泄漏？
 
-[郭先生0614直播前播放视频文字记录汇总](https://gnews.org/zh-hans/1323433/)
+or was there an infected worker?
+或者是因为有一个被感染的研究人员？
 
-[郭先生0614I国内战友完成六个月战略部署七哥专案组全被抓](https://gnews.org/zh-hans/1323454/)
+evidence from this footage will shed more light on some of these questions.
+这段录像中的证据将为其中一些问题带来更多的启示
 
-[郭先生0614II仇富心态的武警和专案组以虐待和戏弄马云为乐](https://gnews.org/zh-hans/1323491/)
+The Wuhan Institute of Virology was built by the Chinese and French governments in a deal designed to promote international scientific research.
+武汉病毒学研究所是由中国和法国政府
+在一项旨在促进国际科学研究的交易中建立的
 
-[郭先生0614III马云爆内幕韩正力保吴征因其掌握韩正基因地图](https://gnews.org/zh-hans/1323507/)
+As you can see,French and Chinese leaders attend a ceremony marking the signing of the agreement
+正如你所看到的，法国和中国领导人出席了协议签署的仪式
+and china’s president Xi Jinping visits a level four lab in France.
+并且中共总书记习近平访问了法国的一个P4实验室
 
-[郭先生0614IV20大江派韩正赵乐际丁薛祥李强卡位克强滚蛋](https://gnews.org/zh-hans/1323543/)
+For the first time we hear there were intense clashes behind the scenes.
+我们第一次听说，原来幕后发生了激烈的冲突
 
-[郭先生0614V G系列和法治基金将给铁血组农场主生活补助](https://gnews.org/zh-hans/1323575/)
+That admission from the deputy director of the Wuhan National Biosafety Level Four Lab, Song dongling,
+这段坦白来自于武汉国家生物安全四级实验室副主任宋冬林
+in this extraordinary video produced by the Chinese Academy of Sciences back in may 2017.
+该视频由中国科学院于2017年5月制作
 
-[郭先生0614VI战友们要以诚待人正确认识自己懂得尊重别人](https://gnews.org/zh-hans/1324021/)
+The video marks the launch of the laboratory,
+下面的视频标志着该实验室的启动
+it’s called persistence unyielding the construction and research team of the Wuhan National Biosafety Level Four Laboratory.
+标题是“坚持不屈的武汉国家生物安全四级实验室的建设和研究团队”
 
-[郭先生0614VII吴征杨澜靠三口澜一腚赢天下在党内屹立不倒](https://gnews.org/zh-hans/1324048/)
+In this video Song also admits they had no prior experience in the area of biosafety,
+在这段视频中，宋也承认，
+他们之前在生物安全领域没有任何经验
 
-[郭先生0614VIII七哥过去两周的工作成果到717大家就知道了](https://gnews.org/zh-hans/1324092/)
+yet they were dealing with some of the world’s most dangerous pathogens.
+但他们却在处理一些世界上最危险的病原体
 
-[郭先生0614IX农场和战友们在油管的视频和闲聊澳洲比比高下](https://gnews.org/zh-hans/1324121/)
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-[郭先生0614X G系列的意义和前景，盖特LOGO喻意着火炬](https://gnews.org/zh-hans/1324145/)
+原视频链接: [https://twitter.com/disclosetv/status/1404077511710068736?s=24](https://twitter.com/disclosetv/status/1404077511710068736?s=24)
+英听校： 康州盘古农场 – Mike Li
+翻译： 康州盘古农场 – Mike Li
+翻译终校：康州盘古农场 – 柯镇恶
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-编辑整理——
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-纽约香草山农场：文官
-
-校对整合——
-
-喜马拉雅日本银河系农场：黎明之前
-
-分段归纳——
-
-波士顿五月花农场：背靠背（frankie）
-
-发布——
-
-喜马拉雅银河系农场：山川异域
-
-+1
+0
