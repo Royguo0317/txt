@@ -1,40 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/13 巴里克博士告诉你如何在瘟疫流行时趁火打劫
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1326565/)
+## 【香草诗词汇】美丽刺剑
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1326669/)
 
-视频字幕/听写：云岭| 翻译：Roberts| 校对：Clau|简评/文字整理/编辑：胖丁| Page：小六月
-[!\[\]()!\[\](https://spark.adobe.com/page/mqAsPdbgp6IOC/images/2b92a9b9-5462-4284-b6c8-f558cd3a63a2.png?asset_id=66b3d114-a3a0-48ab-95f2-1ea4ec390d51&amp;img_etag=%22a429137c3fc98b69d50c2d6ae9658a55%22&amp;size=1024)](https://spark.adobe.com/page/mqAsPdbgp6IOC/images/2b92a9b9-5462-4284-b6c8-f558cd3a63a2.png?asset_id=66b3d114-a3a0-48ab-95f2-1ea4ec390d51&amp;img_etag=%22a429137c3fc98b69d50c2d6ae9658a55%22&amp;size=1024)
-**简评：**
+**– 玫瑰花开富贵美刺丽剑 –**
 
-在2018年的一次会议上，武汉病毒研究所合作者兼功能增强宣导者巴里克博士分析市场形势，如何利用瘟疫、寻找商机赚钱。强调瘟疫是机会，在社会动荡期，有机会获得政治利益、经济利益和个人利益。甚至可以把疫苗当作生意。
+作者：纽约香草山健身部 澄道
 
-YouTube视频链接：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
 
-[GTV视频链接](https://gtv.org/video/id=60c70ed63d6f40323c1ca5ba)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16083355/22-%E7%BE%8E%E9%BA%97%E5%88%BA%E5%8A%8D.png)
 
-**视频字幕：**
+玫瑰花
+属蔷薇目
+原产地中国
+别名
+徘徊花
+刺玫花
+狗玫花
+穿心玫瑰
+篱笆玫瑰
+…..
+这些名字中
+独尊
+刺玫花
+– -刺客
 
-在埃博拉病毒爆发期间，市场下跌约8%-10%，然后很快恢复。我想给你们一个好消息。任何情況下总有贏家。如果你准备在下一次瘟疫中大赚一把，如果你想这么做的话。
+三品＂烂＂样
+一腚天下
+一定是
+蓝金黄之刺客
+且是＂毒刺＂
 
-买防护服制造商，或者为瘟疫生产抗病毒药物的公司的股票，你也许可以赚不少钱。实际上有预防流行病的共同基金。这个国家你可以押注任何东西。有些产品是不错的。比如，1918年的口罩。如今也一样。
+九指妖
+＂伪休猪＂
+顶天算是
+被窝里放庇
+＂毒＂吞
+刺痛的
+只能是
+自己个
 
-瘟疫真的是机会。我喜欢乔治·R·R·马丁的一句话，“混乱是阶梯”。在社会动荡时期，人们有机会获得政治利益、经济利益和个人利益。这很可能发生。社交媒体上会有很多误导的信息，奇迹般的治疗方法会说成是阴谋论。
+图穷匕首见
+刺独夫
+虽死犹生
+荆轲
+真刺客
 
-有一件事也许是新的。现在花大概200美金就可以在网上订购疫苗。所以你可以买疫苗自己给自己接种。如果你有一点知识，也许会想出一个安全合法出售（疫苗）的方法。
+只为真实人生
+投爆料革命
+叶女侠
+壮如篱笆
+真刺客
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+灭共混不吝
+安红
+哦呀爱死您
+醉如玫瑰
+真刺客
 
+白天是
+老邓天下
+夜晚是
+小邓世界
+现在是
+＂云上星空＂
 
-编辑：【英国伦敦喜庄园编辑部】
+– -大孝凯莉点歌台
+丽似徘徊
+真刺客
 
-[!\[\]()!\[\](https://spark.adobe.com/page/mqAsPdbgp6IOC/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/mqAsPdbgp6IOC/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+人间正道
+👍灭共
+美丽刺剑
+👍人生
 
+@澄道来了
+@床边晨光中
+@爱动爱议码06162
 
+校对/发稿：雪梨
 
-+1
+![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg]()![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

@@ -1,25 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共神舟12号17号的发射会是怎样一个结果？
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1326312/)
+## 【香草山水墨堂】G7女王剑出鞘 ——有感英女王拔剑切蛋糕
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1326007/)
 
-撰稿：自由战士
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16043121/168-2.png)（图片来自网络）
-根据中共国载人航天工程办公室发布的消息，航天员聂海胜、刘伯明、汤洪波将于6月17日9时22分，乘神舟十二号载人飞船前往空间站天和核心舱。按计划，他们将天上驻留长达三个月。在受到西方科技制裁的中共能把这次发射试验成功吗？我感觉要打一个大大的问号。
+**书法**：香草山美食部 文百合
 
-首先，自从被制裁后，在发射中心附近居住的居民就经常被不明落体骚扰，有的甚至威胁到生命。因为在中共国，目前的发射卫星或者宇宙飞船都是以窜天猴模式进行的，只管点火，不管去向。而且如果能够点火成功，能发出去，都是一个很不错的成绩了。前几天的火星的哪个抄袭nasa的动画，被揭穿。就知道目前中共没有西方技术支持后的囧境。
+**诗句**：香草山美食部 蓝天大海
 
-再者，刚刚也研究了一下神舟12发布的新闻发布会，在里面居然有一段吹牛皮的事情让我百思不得其解。天和核心舱提供了3倍于天宫二号空间实验室的航天员活动空间，配备了3个独立卧室和1个卫生间，保证航天员日常生活起居，而且还有用餐的餐桌啥的，感觉就跟墙内一线城市的海景房一样配置，瞬间高大上。我同步又研究了一下《太空飞行课》这个本书籍，这本书是汤姆.琼斯写的一本宇航员关于太空飞行的百科问答书。里面对宇航员的日常起居的描述跟人们正常在地球的生活是天壤之别。但是中共的发布会居然写成了吃饭可以促膝而坐，睡觉可以大三房等等。这个最基本的常识都不了解的一个体制怎么可以正常的把宇航员送入预定轨道？而且还要在太空生活180天！想想都后怕。但愿这次飞行也是提前做好的动画和视频来播放，给百姓和小粉红打打鸡血就行了，否则劳民伤财来换取的虚假繁荣，只能苦了百姓。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
 
-最后，撒谎成性的中共，无论在哪个行业都是假大空，从来不静下心来潜心研究，这次的神舟12号我想也是为了给党的生日献礼吧。前面的屡次失败，证明中共的技术和零部件在逐渐消耗，然后，后面的发射会越来越难控制。这次献礼的“窜天猴”，希望直接落到中南坑把领导接着，一起去太空旅游，还百姓一个安全的生活环境。
 
-（文中观点只代表个人观点）
 
-*发稿：MG1*
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
-+2
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16003302/image0-48-1.jpg)
+
+女王佩剑切蛋糕
+骑士威武显英豪
+苍生涂炭染瘟疫
+万神共愤斩红妖
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16003517/image0-47-1.jpg)
+
+编辑/上传：遍地开花 审核/发布：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
+
+
+
+
+
+0
