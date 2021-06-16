@@ -1,22 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 韩国纪念韩朝625战争中牺牲的哥伦比亚勇士
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1326118/)
+## 【每日快讯】06/14/2021：G7联合声明36年来首次提保护台海和平并对新冠起源迳行调查
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1326251/)
 
-现场记者/作者：新西兰伊甸农场 白素贞
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16021608/1-120.jpg)
-2021年6月16日，韩国仁川市市政府，韩国海兵队，邀请哥伦比亚驻韩大使和韩国6.25战争参战老兵，在仁川哥伦比亚纪念碑前纪念70年前纪念韩朝6.25战争（也称朝鲜战争）中牺牲的哥伦比亚勇士们。此纪念碑是韩国人民为纪念6.25战争中牺牲的611名哥伦比亚勇士们而建立的。
+**制作：Cantonese工作室**
 
-韩国仁川市市长发表讲话:“纪念这些为了民主与自由，克服种种困难来到韩国参战的哥伦比亚勇士们。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16021734/2-30.jpg)
 
-纪念勇士，铭记战争，感恩和平，韩国人民永远感恩韩朝6.25战争中牺牲和浴血奋战的联合国军勇士们，是他们用生命捍卫了韩国，才有了今天自由民主繁荣的韩国。 值得反思的是韩朝6.25战争已经过去70年了，同样是参战方的中共国依旧活在中共毛泽东的“抗美援朝，保家卫国”的谎言骗局里，尤其是6.25战争中战亡的中共志愿军至死都以为付出生命是在“保家卫国”。真相是他们保卫的北朝鲜就是发动战争的侵略者。中共的邪恶谎言骗局，赤裸裸的把中国人民心目中“最可爱的人”变成了“最可悲的人”
+**播报：【文依】资料整理：【Annie 喜马拉雅】【sunny64】【闪电】海报制作：【侬民】视频制作:【ken】发布：【向阳6768】**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16021315/Cover-6.jpg)
+摘要：
 
-*责任编辑/校对：纽约香草山农场 七哩香*
-*发布: Hong*
-
+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16032853/12_page-0002-2.jpg)
+2
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16032935/12_page-0003-2.jpg)
+3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033039/12_page-0004-2.jpg)
+4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033134/12_page-0005-2.jpg)
+5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033208/12_page-0006-2.jpg)
+6
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033257/12_page-0007-2.jpg)
+7
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033327/12_page-0008.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12114228/200608_8_of_8-1.png)
 0
