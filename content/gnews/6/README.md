@@ -1,139 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/16 英喜时事速递
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1326229/)
+## 新西兰前总理约翰·基的豪宅空置无人看管
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1326374/)
 
-收集：Alicia，Cindy，Daniel，Filon，Kangen，飞翔的鹰，文大石
-*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
+翻译再创作：明心见性2017
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16040242/ae9d781365085314.jpg)
+奥克兰的一套富有魅力的房子曾经属于新西兰前总理约翰·基先生，现在沦为无人看管杳无人迹的房子。邻居担心这会把这个城市中最美街区之一拉低感觉。前总理约翰·基和他的妻子布罗娜以2350万纽币的价格在2017年成功出售了他们位于Parnell的豪宅。据报道买家是中国人，但邻居们说自从售出后从来没有人搬进来过。
 
-## 美国政要推文
+现在尘垢凸显，乱七八糟，秋天的落叶堆积的到处都是几乎都堵在大门口。邻居诧异为什么买家花大价钱买了新西兰最著名的房子但从来不出现也不维护房子呢？
 
+一位附近的邻居表示她都想派她的儿子去修剪树的边缘和整理围栏线。另一个邻居说他很担心这里变成鬼屋。我们不想让这条街最好的房子倒退，这是一个不好的例子！他们连前边的一点点草坪都不剪。这栋豪宅在约翰·基先生在位时期是新西兰最知名的房子之一，它不仅成为了政治聚会场所，也是社交媒体的背景。这闪闪发光的游泳池屡屡成为他儿子马克思众多视频，博客，音乐视频中的背景图。
 
+约翰·基辞职之后，他表示他会把这个五个房间的豪宅卖掉。后来这套763平米室内面积，1752平米土地的豪宅在2017年以2350万纽币的价格成功售出。尽管在2017年就买了，但交接手续在2019年才办好。几个月后，新西兰因为新冠疫情边境关闭，除了新西兰的公民和居民之外边境处于关闭状态。
 
-> 众议员埃莉斯·斯特凡尼克:
-> 作为自由世界的领袖，美国必须因 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) 官员自己的行为对他们追责。
-> 
-> 我将与Wittman议员一起提出立法，在对 COVID-19 起源进行调查之前，制裁中国卫生机构官员。
-> 【附斯特凡尼克议员声明全文】 [https://t.co/37qHUaqJ4W](https://t.co/37qHUaqJ4W)
-> — 美国政要等…直译推 (@zhiyitw33) [June 15, 2021](https://twitter.com/zhiyitw33/status/1404915252072906757?ref_src=twsrc%5Etfw)
+周日接受先驱报采访的邻居们无一人见过这个买家。其中一个邻居说我每天要从他家门口路过三次，但我经常往里看一下，以前总能看到约翰先生我们互相打招呼。所以现在我很担心不知道这是怎么回事。这套房当时卖出就引起了整条街上的居民注意，该邻居还表示当我们知道出售的价格之后每个人都很好奇。我还在想会发生什么呢？ 但是现在看来什么都没发生。
 
+这边有一些房子是很多都是海外买家买走的。很多都是有钱人，她们每年来两到三周再回去。觉得这样的假期太棒了，然后再回去。另一个邻居表示房屋的花园和外部状况完全被忽视了。她是位园丁，看到这个豪宅的花园变成现在这个样子她很难过。尤其是现在的状况和约翰·基夫妇住的时候相比完全是天壤之别。
 
+其他一些邻居说看到任何财产被忽视是一件很不幸的事情，不管是在这里还是任何一个社区。如果没有人照看房子的内部，也一定积另外一些邻居说他们没有注意到房子的状况，还有人说他不觉得有问题，任何买家都可以自由处置自己的房产。
 
+评论：回忆起几年前约翰·基先生突然辞职理由是花时间多陪家人，这让很多人都感到惊讶其中的原因绝对不会像公布的那么简单。现在看到先驱报报道了前总理约翰先生的豪宅以比市场价高出很多的价格卖给了中国人，让人充满遐想-是哪个中国富豪花上亿人民币买房子却又不出现，不住，任由房子尘垢满满，花园杂草丛生呢？这是某中国买家为这位前总理先生通过合法手段输送利益吗？这让媒体想一探究竟，也让邻居们无限遐想。
 
-> 评论：美国的立法将是对中共一层层制裁的开始，一旦立法，将是决定下一个世纪的开始
+原文来自：https://www.nzherald.co.nz/nz/sir-john-keys-former-parnell-mega-mansion-sits-empty-and-neglected/JILMLPHL2BGZJTBD5CQ7NHAG5E/
 
-
-## Gnews [索尼克：美国海军称航母群在南海作业已称常态](https://gnews.org/zh-hans/1323717/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15033850/3KXELk4XIfjYZMYLGCELLEO64EGJGTQ.jpg)
-
-
-> 评论：美国海军用实际行动打脸了中共对南海的主权声张。
-
-
-## Gnews Shuizhuyu: [北约将中共国列为“系统性挑战”](https://gnews.org/zh-hans/1324042/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15052908/nato-bundeswehr-soldaten-1001280x720-1.jpg)
-
-
-> 评论：这是把中共排除出北约成员国范围以及把中共列为文明世界威胁的一个重大信号
-
-
-## 意大利达芬奇农场Gnews：[苏俄专制与中共专制下精英的选择](https://gnews.org/zh-hans/1321889/)
-
-![文革何以在大陆成为禁区？ - 文革五十周年]()![文革何以在大陆成为禁区？ - 文革五十周年](https://s.rfi.fr/media/display/c23e29e2-165a-11ea-9909-005056a99247/w:1280/p:16x9/20160224101606270.jpg)
-
-
-> 评论：苏俄专制下的精英选择逃离乱邦，而中共专制下的精英却分不清家与国、政府与政权的区别，被中共一再忽悠。这其中的差别就是信仰的有无，缺失了信仰的引领选择了错误的方向。
-
-
-## 康州盘古农场Gnews：[2020欧洲足球锦标赛场上奇怪的中文广告](https://gnews.org/zh-hans/1324866/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15125552/83.jpg)
-
-
-> 评论：文章认为欧洲赛场上的中文广告主要受众是生活在海外的华人。奇怪的中文广告让我们看到了中共魔爪在世界上渗透的范围，并不是离开了中共国，海外华人就可以远离中共的。
-
-
-## 澳喜农场Gnews：[红魔之手已伸向我们的下一代——解读校外教育培训监管司的成立](https://gnews.org/zh-hans/1324858/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15124700/%E6%A0%A1%E5%A4%96%E6%95%99%E8%82%B2%E5%9F%B9%E8%AE%AD.jpg)
-
-
-> 评论：政治建设优于一切是中共治理国家的根本宗旨。统一思想，杜绝差异化和个性化，完全违背教育的本性。中共对教育的所有动作越发直白的呈现其愚民的手段。
-
-
-## 德国之声：[病毒起源八卦满天飞 石正丽:我没做错](https://www.dw.com/zh/%E7%97%85%E6%AF%92%E8%B5%B7%E6%BA%90%E5%85%AB%E5%8D%A6%E6%BB%A1%E5%A4%A9%E9%A3%9E-%E7%9F%B3%E6%AD%A3%E4%B8%BD%E6%88%91%E6%B2%A1%E5%81%9A%E9%94%99/a-57893830)
-
-![China I Virologin Shi Zhengli in Wuhan]( "China I Virologin Shi Zhengli in Wuhan")![China I Virologin Shi Zhengli in Wuhan](https://static.dw.com/image/56129417_303.jpg "China I Virologin Shi Zhengli in Wuhan")
-
-
-> 评论：难道石正丽教授要为中共背黑锅吗？
-
-
-## BBC：[从安徽安庆到复旦大学 中国恶性伤人事件频发背后的社会焦虑和挫折](https://www.bbc.com/zhongwen/simp/chinese-news-57468159)
-
-![1]()![1](https://ichef.bbci.co.uk/news/640/cpsprodpb/13485/production/_118918987_gettyimages-1233298803.jpg)
-
-
-> 评论：中共国最近频繁的恶性伤人事件反映出普遍的社会挫折感和焦虑状态，在中共的统治下完全没有表达的自由和空间，个体困难难以通过正常渠道纾解，老百姓被逼上绝路。
-
-
-## BBC：[中国台山核电站出现“放射性威胁”：我们目前所知多少](https://www.bbc.com/zhongwen/simp/chinese-news-57478000)
-
-![俯瞰中国广东台山核电站（中新社资料图片）]()![俯瞰中国广东台山核电站（中新社资料图片）](https://ichef.bbci.co.uk/news/640/cpsprodpb/5E1C/production/_118929042_1218532.jpg)
-
-
-> 评论：中共又在说谎欺瞒世界，希望切尔诺贝利核事故不要重演。
-
-
-## BBC：[北约峰会召开，公报列中国为“系统性威胁”](https://www.bbc.com/zhongwen/simp/world-57475949)
-
-![Nato Secretary General Jens Stoltenberg holds a news conference ahead of the summit]()![Nato Secretary General Jens Stoltenberg holds a news conference ahead of the summit](https://ichef.bbci.co.uk/news/640/cpsprodpb/14AB/production/_118919250_067999458-1.jpg)
-
-
-> 评论：北约成员国在公报中首次把中共国列为安全威胁，提到中共国“公开的野心与过分自信的行为，对以规则为基础的国际秩序与联盟安全相关领域构成了系统性的挑战。”
-
-
-## 德国之声：[联合国专家称中国强摘被关押人器官 北京驳斥](https://www.dw.com/zh/%E8%81%94%E5%90%88%E5%9B%BD%E4%B8%93%E5%AE%B6%E7%A7%B0%E4%B8%AD%E5%9B%BD%E5%BC%BA%E6%91%98%E8%A2%AB%E5%85%B3%E6%8A%BC%E4%BA%BA%E5%99%A8%E5%AE%98-%E5%8C%97%E4%BA%AC%E9%A9%B3%E6%96%A5/a-57893944)
-
-![Hongkong Falun Gong Heilpraktiker]( "Hongkong Falun Gong Heilpraktiker")![Hongkong Falun Gong Heilpraktiker](https://static.dw.com/image/49647025_303.jpg "Hongkong Falun Gong Heilpraktiker")
-
-
-> 评论：中共的邪恶行径世人皆知。
-
-
-## 法广：[杨洁篪的战狼语言，李阳的霰弹枪](https://www.rfi.fr/cn/%E4%B8%93%E6%A0%8F%E6%A3%80%E7%B4%A2/%E7%BE%8E%E5%9B%BD%E4%B8%93%E6%A0%8F/20210614-%E6%9D%A8%E6%B4%81%E7%AF%AA%E7%9A%84%E6%88%98%E7%8B%BC%E8%AF%AD%E8%A8%80%EF%BC%8C%E6%9D%8E%E9%98%B3%E7%9A%84%E9%9C%B0%E5%BC%B9%E6%9E%AA)
-
-![美中阿拉斯加对话3月19日结束，图为对话场上的中方负责人杨洁篪与王毅。](https://s.rfi.fr/media/display/ab73a33a-8900-11eb-a9a6-005056bf87d6/w:980/p:16x9/2021-03-18T224857Z_1355377247_RC2YDM9ZOCYI_RTRMADP_3_USA-CHINA-ALASKA-BLINKEN.webp)
-
-
-> 评论：中共国的外交战狼，已经在世界上横行十几年，惹人厌恶，要他们可信、可爱、可敬起来，不是容易的事。即使习近平发话了，狼要装扮成羊，装扮成羊的狼还是狼。
-
-
-## 新唐人推文
-
-
-
-> 「武毒所」洩漏病毒新論據 蓬佩奧：中共要擔責
-> 
-> 前美國疾控中心主任雷德菲爾德再次公開表示，他支持 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hash&amp;ref_src=twsrc%5Etfw) 是從武漢病毒所洩漏的觀點，並給出了病毒學家的專業分析。前美國國務卿蓬佩奧表示，[#美國](https://twitter.com/hashtag/%E7%BE%8E%E5%9C%8B?src=hash&amp;ref_src=twsrc%5Etfw) 已經掌握了足夠證據，應該要 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hash&amp;ref_src=twsrc%5Etfw) 承擔責任了。[https://t.co/bVcXdLnizU](https://t.co/bVcXdLnizU)
-> — 新唐人電視台 (@NTDChinese) [June 15, 2021](https://twitter.com/NTDChinese/status/1404932507062185985?ref_src=twsrc%5Etfw)
-
-
-
-
-> 评论：中共插翅难飞了，历史的审判即将来临
-
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

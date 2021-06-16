@@ -1,29 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】06/14/2021：G7联合声明36年来首次提保护台海和平并对新冠起源迳行调查
-` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1326251/)
+## 【澳喜公民记者】火爆视频集锦
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1326331/)
 
-**制作：Cantonese工作室**
+视频：恭池投石
+
+清华学者一言道破，中石化等中共国企垄断企业，去美国开加油站无法成功。因为中石化等中共国有企业受中共政府政策保护，一家独大，可以自己随意定价。在中共国内的销售价格一直以来比欧美发达国家还高，品质也比欧美差，所以到了真正自由市场就被淘汰。其实这是所有中共国有企业的通病，这是一党专政的腐败所造成的。
+
+素材：我爱和平一路有你 *视频 ：恭池投石 发稿：Runaway*
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 
 
-
-**播报：【文依】资料整理：【Annie 喜马拉雅】【sunny64】【闪电】海报制作：【侬民】视频制作:【ken】发布：【向阳6768】**
-
-摘要：
-
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16032853/12_page-0002-2.jpg)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16032935/12_page-0003-2.jpg)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033039/12_page-0004-2.jpg)
-4
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033134/12_page-0005-2.jpg)
-5
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033208/12_page-0006-2.jpg)
-6
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033257/12_page-0007-2.jpg)
-7
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033327/12_page-0008.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12114228/200608_8_of_8-1.png)
 0

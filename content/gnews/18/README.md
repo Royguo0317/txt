@@ -1,31 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 联邦纾困，纾到谁那去了？
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1326146/)
+## 【每日快讯】06/14/2021：G7联合声明36年来首次提保护台海和平并对新冠起源迳行调查
+` CANTONESE工作室` [轉載自GNews](https://gnews.org/zh-hans/1326251/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16021320/id12847522-148043.jpeg)
-据美国之音报道，因被控欺诈联邦政府疫情纾困小企业贷款的中国公民在纽约认罪，最高可能被判处32年监禁。
+**制作：Cantonese工作室**
 
-这名中国公民名叫马穆戈（MUGE MA 译音，也叫Hummer Mars）。纽约南区美国检察官施特劳斯（Audrey Strauss）办公室15日宣布，马穆戈承认以欺诈手段企图获得联邦政府在疫情期间为小商业提供的总额两千万美元的贷款，并在15日认罪。
 
-在疫情期间，联邦政府为了保持经济、民生和就业，纷纷向小企业提供了纾困贷款，当时就有许多新闻爆出，这些贷款中，有大量资金流向了中共在美的企业，但之后也没有深度的报道。
 
-马穆阁为了获得这批贷款，于2020年3月到5月间在向美国小型企业管理局（U.S. Small Business Administration）和至少五家金融机构提供的申请文件中谎称他所拥有的纽约国际资本公司（NYIC）与赫尔利人力资源公司（Hurley Human Resources）拥有几百名雇员，并为此支付了几百万美元的薪资。而经核实，马穆戈至少从2019年开始似乎是纽约国际资本的唯一雇员，赫尔利人力资源公司则一个雇员也没有。
+**播报：【文依】资料整理：【Annie 喜马拉雅】【sunny64】【闪电】海报制作：【侬民】视频制作:【ken】发布：【向阳6768】**
 
-办公室表示，马为了骗取贷款，编造了许多虚假和伪造的银行记录、报税记录、保险记录和工资单等，而马用于贷款的主体也都是包装出来的。另外，马还声称自己是美国公民，但事实上，他却是一名中国公民，只是拥有永久居民的身份。
+摘要：
 
-马穆戈今年37岁，2020年5月21日被捕，以后一直被监禁。他15日向美国地区法官伯曼（Berman）承认犯有一项银行欺诈罪和一项身份欺骗重罪，前者最高可被判30年监禁，后者最低的强制监禁是两年。
-
-马的案例只是之前查清贷款流向是否有问题的延续，其实联邦政府从来没有停止对贷款合规性的审查，只是没有取得重大的进展。马穆戈案例，可谓是开启该类案件的先河。接着有多少中国的企业用不正当的途径拿到了联邦政府给与的纾困贷款，其中有没有中共的人，金额又涉及多少，我想这些要素一定会成为接下去要查清的工作重点，而这背后究竟是个人行为还是组织安排，也一定会有所交待。
-
-（本文只代表作者观点，与Gnews平台无关。）
-
-**新闻来源：**
-
-[纽约一中国公民承认犯有疫情纾困贷款欺诈罪 (voachinese.com)](https://www.voachinese.com/a/ma-pleads-guilty-to-fraud-charges-20210615/5930141.html)
-
-***校对发布**：文顾*
-
+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16032853/12_page-0002-2.jpg)
+2
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16032935/12_page-0003-2.jpg)
+3
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033039/12_page-0004-2.jpg)
+4
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033134/12_page-0005-2.jpg)
+5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033208/12_page-0006-2.jpg)
+6
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033257/12_page-0007-2.jpg)
+7
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16033327/12_page-0008.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12114228/200608_8_of_8-1.png)
 0
