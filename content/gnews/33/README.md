@@ -1,51 +1,139 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 土耳其的选择：挺共还是灭共
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1325746/)
+## 【香草诗词汇】与战友书（二）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1325785/)
 
-作者：Gokuabuela|校对：仙女儿-文善|审核：SilverSpurs7|Page：小雨
+***– 就是与家人书 –***
 
-[!\[\]()!\[\](https://spark.adobe.com/page/29pM9IEJrHnFM/images/90837601-2af1-4a34-bbf5-dc484328f8a3.jpg?asset_id=7ffbcb87-6377-41f5-9f63-934016756c3d&amp;img_etag=%22818b3da31aa1b0b27db182b08938c326%22&amp;size=1024)](https://spark.adobe.com/page/29pM9IEJrHnFM/images/90837601-2af1-4a34-bbf5-dc484328f8a3.jpg?asset_id=7ffbcb87-6377-41f5-9f63-934016756c3d&amp;img_etag=%22818b3da31aa1b0b27db182b08938c326%22&amp;size=1024)
+作者：纽约香草山健身部 澄道
 
-土耳其可能是这次北约峰会上双边活动最多的国家。总统埃尔多安（Erdogan）已经与美国总统拜登(Biden)、法国总统马克龙(Macron)、德国总理默克尔(Merkel)和西班牙首相桑切斯(Sanchez)分别会面。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-作为北约成员国，其被寄予的最大希望就是：利用其特殊的地理位置，挡住俄罗斯的黑海出入口，这也是欧盟武装土耳其的原因。
 
-其次，欧盟也向土耳其投入大量资金，在当地建立难民营，收容来自叙利亚、利比亚等地的北非难民，阻止他们进入欧盟。
 
-但显然，埃尔多安不是一个乖乖听话的人，他领导的独裁国家有着更大的野心。他与中共国保持着良好的关系，购买了大量中共的军事装备。对同宗同属的维吾尔人被中共屠杀，保持缄默。他坚持购买俄罗斯产的防空导弹（之前准备采购的是中共国的红旗-9防空导弹），如果接入北约防空网，将给北约的防空系统带来巨大的泄密风险。他还在叙利亚和利比亚进行反对欧洲利益的活动，在希腊和塞浦路斯附近水域进行支持投机的活动。
+正道家人息息关
+铲毒生活事事联
 
-但国际形势的变化，特别是北约峰会将俄罗斯和中共定为“威胁”，给了埃尔多安改善与北约关系、从两边捞好处的机会。
+园战友：
+您好！
+见字见面
+末学有点诚惶
+不知所错
+觉得应
+再求正斧
 
-[!\[\]()!\[\](https://spark.adobe.com/page/29pM9IEJrHnFM/images/b38121be-56ae-42d2-a88f-5b74cdc012d7.jpg?asset_id=9367ed79-d4d6-45a7-b254-9ab8e92fcc65&amp;img_etag=%22b01c5e4865d621dc2cfc9331ee836be5%22&amp;size=1024)](https://spark.adobe.com/page/29pM9IEJrHnFM/images/b38121be-56ae-42d2-a88f-5b74cdc012d7.jpg?asset_id=9367ed79-d4d6-45a7-b254-9ab8e92fcc65&amp;img_etag=%22b01c5e4865d621dc2cfc9331ee836be5%22&amp;size=1024)
+还有点诚悦
+心之慰寄
+愿行悦往
+于您愿
+即于吾悦
 
-埃尔多安承认，与拜登的会面“对未来是积极的，我们看到有一种改善关系的强烈意愿”。
+正斧：
+1.＂….之名＂
+＂….子＂
+什么的！
+末学
+承不住
+更担不起啊！
 
-马克龙也明确表示，他希望与土耳其一起“向前迈进”，建立一种要求严格、相互尊重的关系。埃尔多安曾指责马克龙试图将法国的穆斯林社区纳入官方世俗主义的计划是对伊斯兰教的侮辱。
+1. 略
+2. ＂无居数＂
+三字没看懂？
+3. 略
+4. 略
+5. ＂目仔啊！＂
+是句俚语吗？
+也没懂！
 
-在叙利亚和利比亚，土耳其准备对欧盟妥协，放弃一部分利益。埃尔多安还会见了英国首相约翰逊和德国总理默克尔。
 
-埃尔多安与匈牙利总理维克多•欧尔班(Viktor Orban)、立陶宛总统吉塔纳斯•瑙伊萨(Gitanas Nauseda)和拉脱维亚总统埃吉尔•莱维茨(Egils Levits)分别举行了双边会谈。并表示将改善与希腊的关系。
+虽乱
+扣帽子
+起名字
+属非体面
+但一句
+＂这家伙＂
+不简单！
 
-土耳其的转向，说明北约对中共的斗争已经不可避免，它已经无法保持骑墙，必须在挺共或灭共之间做一个选择。
+哈哈
+晨挠中的畅
+透过
+照进的晨光
+尽显
+快之意！
 
-鉴于土耳其的地理位置和军事潜力，一旦选择灭共，它在联盟中的作用可能会变得越来越有价值，这对埃尔多安本人也是一个千载难逢的机会。
+缘启
+爆革长生天
+承蒙
+正道重塑人
 
-**参考文献：**
+道礼
+＂挠字＂毕
 
-[Turquía logra restaurar sus relaciones con los aliados gracias a su valor estratégico](https://www.abc.es/internacional/abci-turquia-logra-restaurar-relaciones-aliados-gracias-valor-estrategico-202106142135_noticia.html)
+园战友
+回复大段：略
+只留：
+您
+书生味重
+但仍需知世俗
+….
+通语吧！
+学府！
 
-*文章仅代表作者观点*
+道应：
 
-编辑：【英国伦敦喜庄园编辑部】
+要的
+就是这个味
+对极了
+您！
+＂这个家伙＂
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+受我一拜
+容我一盖
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+谁能说
+一字师不是师
+常言道
+三人行必是师
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+更何况
+现师者文贵者
+岂不止
+同行者亡共者
 
-[!\[\]()!\[\](https://spark.adobe.com/page/29pM9IEJrHnFM/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/29pM9IEJrHnFM/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+玫刺手真战友
+爆料紧跟七哥走
+红毒恶人情薄
+百年侵染几世难索
+错 错 错
+
+夏又旧世空楼
+以毒灭共势正头
+热选落拜宫哥
+八十国在罄书难托
+莫 莫 莫
+
+通语吗？
+＂园＂战友
+
+@澄道来了
+@爱动爱议码06152
+@工作间 休息厅 餐厅
+
+校对/发稿：雪梨
+
+![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg]()![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
