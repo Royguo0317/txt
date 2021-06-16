@@ -1,46 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0615V迷恋黑森林的孟建柱祸害深眉蒙古西藏人无数
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1325970/)
+## 武汉实验室的合作伙伴达扎克承认他在“使用美国纳税人的钱”做研究时在海鲜市场上“并没有看到很多蝙蝠”
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1326041/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16000211/1-86-800x450-1589186764972_%E5%89%AF%E6%9C%AC.jpg)
-据[20210615的视频三品澜．吴征夫妻俩．性贿赂中国．国际多名高官……骗钱害命多人……黑幕被多个专案组掩盖．为什么？](https://gtv.org/video/id=60c8c163b96c69573d7f9433) 时间点36：09——
+翻译：飞利普 |校对：烟波浩淼 |审核：V
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16005829/dzk_adobespark.png)
+**尽管主流媒体和中共的说法是中共病毒起源于中共国海鲜市场，但在《国家脉搏》披露的播客上，生态健康联盟主席、武汉病毒研究所合作者彼得·达扎克坚持说，他在这些市场上“并没有看到很多蝙蝠”。**
 
-孟建柱就是喜欢黑森林，这个哥们儿，孟建柱一见到眉毛重的、重眉毛的，孟建柱就痴迷。孟建柱一见这个女的眉毛深的他就痴迷，这个王八蛋，那就倒霉了，他要想尽办法得到手，他相信眉毛深重者，就是黑森林。
+武毒所的[“长期合作者”](https://thenationalpulse.com/breaking/wuhan-bat-lady-thanks-nih-and-daszak/)达扎克在2020年6月3日“本周病毒学”[一集](https://www.youtube.com/watch?v=Et3CHcteWNw)的节目中露面时也承认，美国纳税人的钱资助了他在中共控制的[实验室](https://gnews.org/zh-hans/1263642/)的研究。
 
-所以他祸害了很多蒙古人和西藏人，人家都眉毛重，你知道吗，真的是这样，很夸张的。所以说你说共产党有多坏，你说这帮王八蛋，有多坏多变态啊，多变态。
+这一披露言论是在安东尼·福奇领导的国家过敏和传染病研究所370 万美元的[资助](https://reporter.nih.gov/search/c4ZGYsDvKEys1oIYs66iwA/projects)下，对达扎克的生态健康联盟向武毒所提供资金的审查越来越严格的情况下发表的。
 
-你说那吴征，带着媳妇老东家串西家串，从东北到南方，从福建到广西，从新疆到西藏，你说她咋受得了啊这玩意，你说杨澜她也得锻炼嘛，她要不锻炼她咋受得了呢。
+达扎克在播客上承认：“在中共国，我们用美国纳税人的钱在一个冰箱里收集了16000个蝙蝠样本。” 达扎克重申“我们是联邦政府资助的最后一个与武毒所合作的组织”。
 
-（郭先生与战友互动）[三品澜就是个公厕，Kikim(战友名)，公厕也受不了啊，公厕也受不了，那么多人光临，还不给你弄爆了啊。三品澜就是个公厕。我爱李安达，李安姑，我爱李安姑。什么时候开放？俺唔知啊，不知道，我相信下个月吧。西延：只有累死的牛没有耕坏的地。真的，哇噻，好像你这不是好人呐，西延呐西延呐。]
+尽管福奇试图将他的国家卫生研究院机构与有[军方背景](https://thenationalpulse.com/breaking/wuhan-lab-erased-military-researchers-from-site/)的武汉实验室[拉开距离](https://www.mediaite.com/tv/you-are-entirely-and-completely-incorrect-watch-faucis-epic-throwdown-with-rand-paul-on-wuhan-lab-covid-theory/)，但达扎克在播客上承认，至少从2013年起，他与该机构及其[“蝙蝠女侠”石正丽](https://thenationalpulse.com/exclusive/fauci-headlined-conference-with-shi-and-daszak/)的合作得到了国家卫生研究院的资助：
 
-［刘村长：里面加了钢盔，加了钢盔哇噻。三品澜是公交车，公交车早就开黄了，几十年那么干哇噻，早完了。爱自由、爱自由战友：七哥念我。天宇国：七哥七哥。明俊、长颈鹿、我的未来不是梦、天道酬勤叫文勤、西林互粉，啊，我把西林加上，加上了，互粉了。自由中华：是不是有替身。哇噻那不会吧，我把自由中华加上。］
 
-［七哥在野炊吗？不是啊，这我住的地方啊，不是我野炊啊。灭共夸克64、无岱当峰，高作行，战友啊，大声说话，战友，红百合：永爱七哥。行了战友们，今天这乱聊咱就这儿吧，民主法制公司：七哥我给你戴钢盔一起去黑深林，呵呵呵，我天，我可不敢去，哇噻，这这，这个受不了啊，受不了受不了，想想都害怕，这就是郭三秒绝对不敢去的地方啊］。
+> “*那时我们已经开始在中共国进行反复的实地考察。我们有一个野战队。当时我们和正丽一起做了更多的工作，真正磨合了，因为我们有资金从国家卫生研究院出去做这项工作。”*
 
-我发了一顿邀请没人搭理我啊，算了，也罢！唉。咱要祈祷、祈祷、祈祷、祈祷，好，祈祷，祈祷、祈祷，你看看这狗了吗？看到了吗？是吧。
 
-尊敬的战友们好，现在为75亿全世界人民、14亿新中国联邦人、爆料革命的战友和家人、香港同胞、台湾同胞、新疆同胞、西藏同胞，祈福！
+当被问及“恢复传染性非典型肺炎的分离株”时，达扎克还承认“我没有做那项工作”，然后补充说“这正是正丽所做的，是的，从我所知道的情况来看，培养病毒确实很难。”
 
-（郭先生合什&双手抚心动作三次）——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16000221/%E6%8D%95%E8%8E%B72_%E5%89%AF%E6%9C%AC%E7%A5%88%E7%A5%B7.png)
-啪啪啪（击掌三次）！黑~森~林~中的直播，唔盖噻。
+在长达一个小时的采访中，达扎克还透露，在中共国市场上他“并没有看到很多蝙蝠”，这对中共病毒起源于武汉一个海鲜市场的理论又是一个打击：
 
-\*\*\*\*\*\*\*全文完，下次直播再见\*\*\*\*\*\*\*
 
-编辑整理——
+> “*所以我们在野生动物交易方面也做了大量的工作，我们发现那时它已经发生了变化。在大市场里，你并没有看到很多蝙蝠，但我们确实知道人们在猎食蝙蝠。他们直接将它们卖给餐馆，所以这更是一个本地化的问题。我们认为风险已经转移到中共国的农村地区。”*
 
-纽约香草山农场：月野兔
 
-巴塞罗那喜悦农场：笑笑
+达扎克还在播客中攻击了纳德·川普，指出时任总统“处于真正可怕的困境，并且有能力进行猛烈抨击”，然后采访者补充说“希望在我们政府换届之后，你可以重新申请一些国家卫生研究院拨款。” 采访是在川普政府终止了国家卫生研究院拨款之后进行的，该拨款[允许](https://thenationalpulse.com/exclusive/who-investigators-ccp-covid-ties/)达扎克的生态健康联盟与武毒所合作。
 
-校对整合——
-
-伦敦喜庄园：杯酒渐浓
-
-发布——
-
-喜马拉雅日本银河系农场：山川异域
+原文作者：娜塔莉·温特斯([NATALIE WINTERS](https://thenationalpulse.com/author/natalie-winters/))
+发布时间：2021年6月14日
+原文链接：[https://thenationalpulse.com/breaking/watch-wuhan-lab-partner-daszak-admits-he-didnt-really-see-many-bats-in-wet-market-while-describing-studies-using-u-s-taxpayer-money/](https://thenationalpulse.com/breaking/watch-wuhan-lab-partner-daszak-admits-he-didnt-really-see-many-bats-in-wet-market-while-describing-studies-using-u-s-taxpayer-money/)
 
 0

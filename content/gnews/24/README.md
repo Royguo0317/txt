@@ -1,51 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月15日美国政要推特精选：“解雇福奇法案”已立项
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1325773/)
+## 英媒观点：中共靠30亿美元交易主导太平洋采矿、伐木和渔业
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1325801/)
 
-众议员玛乔丽·泰勒·格林： 是时候解雇安东尼·福奇了。 我的《解雇福奇法案》正是这样做的。 感谢我的共和党同事支持这项立法。
+撰稿：喜妈
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15231001/163-1.jpg)（图片来自网络截图）
+英国卫报报道，中共国“一个国家主导着太平洋的资源开采”。报道通过对贸易数据的分析得到：以2019年为例，中共国从太平洋地区“出口的海鲜，木材和矿物质的总量占总吨数的一半以上，总价值33亿美元”，专家描述为“数量惊人”。
 
+报道还指出，随着中共国“大规模开采（太平洋）资源”，中共国还“加深了与该地区各国政府的联系”。中共国在太平洋地区的影响力已经可以与美国和澳大利亚在同一地区的影响力“相媲美”。中共国不仅在资源的总量上惊人，专家们认为中共国在“采掘业对环境的总体影响”方面，也是非常容易“超过”包括澳大利亚在内的其他国家。文章分析表示中共国对于太平洋自然资源的“胃口很大”。
 
+文章引用行内分析人士称“中共国是太平洋资源的主要客户”，“它靠近该地区，并且需要为其经济提供动力”。除了直接进口资源外，报道引用相关数据显示，过去二十年间中共国公司“在太平洋矿业的投资超过20亿美元”；中共国政府“还向该地区提供了数十亿美元的官方资金”。报道还指出“无论是按重量还是按美元计算，中共国都是太平洋地区的最大客户”。可是，“按价值计算，澳大利亚紧随其后：2019年为28亿美元，而中共国为33亿美元”。
 
-> It's time to fire Anthony Fauci.
-> 
-> My "Fire Fauci Act" does exactly that.
-> 
-> Thank you to my Republican colleagues for supporting this legislation.[#FireFauci](https://twitter.com/hashtag/FireFauci?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/z2UenvrBjM](https://t.co/z2UenvrBjM)
-> — Rep. Marjorie Taylor Greene (@RepMTG) [June 15, 2021](https://twitter.com/RepMTG/status/1404855856403988480?ref_src=twsrc%5Etfw)
+报道称，中共国“从太平洋岛国进口的矿产，木材，化石燃料，食品和其他进口商品数量惊人”；因此，这种势头对“该地区的可持续发展带来了巨大挑战”。中共国是“太平洋出口产品的自然客户”，可是来自专家意见表示，中共国“缺乏禁止进口非法木材的法律以及对环境或社会影响的问责不力”造成该地区自然环境破坏严重。
 
+捕鱼业也是同样的问题，仅在2016年对太平洋航行的船只调查发现“悬挂中共国国旗的船只远远超过任何其他国家的船只”；仅在当时，中共国“拥有290艘获许可在该地区运营的工业船，占总数的四分之一以上”。报道引用海洋专家的观点，太平洋水域“有非常有价值的物种”，可是沿海渔业由于“过度捕捞”形成“商业灭绝”。
 
+报道同时指出，中共国消费了太平洋地区非常多的矿产资源。仅以中共国和澳大利亚做比较，两者之间的一个显著差异“在于公司如何对环境和社会问题负责”。中共国在海外经营公司“不像西方国家的公司那样受到本国市场的审查”。在中共国上市/投资的公司虽然“确实面临压力和审查”，但是“表现出来的方式是不透明和看不见的”。
 
-众议员保罗·戈萨尔： 是时候让福奇上路了。很荣幸成为“解雇福奇法案”的共同发起人。感谢来自乔治亚州的同事玛乔丽·泰勒·格林[@RepMTG](https://twitter.com/RepMTG)领导这项工作。 【附[http://newsweek.com](https://t.co/lWKmYlfK74?amp=1)的文章链接：玛乔丽·泰勒·格林以及其他共和党人再次呼吁蝠奇下台，并称福奇“控制了美国人的生活”】
+综上所述，笔者认为，西方社会已经很清楚地看到中共国各种不守规矩、不按指令、不遵守国际惯例在太平洋地区掠夺资源，造成地区环境极大破坏和遭受巨大压力的现实。从这里，我们可以了解到，中共不仅作恶在华夏，还到处招摇过市，散播影响中国人形象的恶行，这是非常令人不齿和愤怒的。中共用“买买买”的策略也许暂时还有效，等到太平洋地区的国家都苏醒过来，那也行不通了。
 
+中共不仅乱了华夏的自然环境，那种破坏性采伐、非法走私各种自然资源的做法居然被中共玩到了国际上。中共向来都不重视可持续发展的需求，不重视对大自然的尊重和爱护，极为短视的做法被更加普遍地扩大到太平洋地区。中共从太平洋地区得到的是大量的自然资源，留下的是难以修复的环境伤害。
 
+这篇报道有价值的地方除了提供一般读者了解中共在太平洋地区的各种资源上恶意开发和非法掠夺之外，还让大家充分认识到中共这个体制对于市场、经营和经济管理的无能、无效和无所作为。那些代表着中共国在国际商业环境中出现的公司，有着并不被中共法律监管到位和缺乏公开透明的现实。当我们站在爆料革命中来看这样的报道，我们常常可以在这些事件的背后看到，中共就是一个落后、陈腐和无能的政府。
 
-> It’s time for Fauci to hit the road. Proud to be a cosponsor of the Fire Fauci act. Thank you to my colleague from Georgia, [@RepMTG](https://twitter.com/RepMTG?ref_src=twsrc%5Etfw) for leading this effort. [https://t.co/Q8m9WmEf5Y](https://t.co/Q8m9WmEf5Y)
-> — Rep. Paul Gosar, DDS (@RepGosar) [June 15, 2021](https://twitter.com/RepGosar/status/1404935545755639817?ref_src=twsrc%5Etfw)
+同时，这篇文章还指出来，同样在太平洋地区，可以和中共国模式对照的澳洲体制，所表现的就完全不同。澳洲无论是自己消费的产品类型、对资源开采的效应和对相关公司的监管都比中共国要好得多。从这里，就可以看出一个民主体制的澳洲和一个独裁体制的中共国之间的差异是根本的。任何发生在中共国身上的事情，之所以能够如此发生，只能说明一点：中共体制必须灭。只有灭掉体制才能杜绝这些中共在国际贸易中的消费乱象。因此即使想要恢复国际市场秩序，我们也要让国际社会认识到，take down CCP 是符合世界利益的事情。
 
+本文纯属个人观点
 
+参考资料：
 
-参议员罗恩·约翰逊： 这些机构在处理 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 方面有很多需要解释的地方。 这就是为什么我们写信给[@NIHDirector](https://twitter.com/NIHDirector)和[@SecBecerra](https://twitter.com/SecBecerra)，追查他们电子邮件中篡改的部分背后到底隐藏了什么内容。 【附信函全文，视频中罗恩·约翰逊质疑蝠奇邮件门关联方是否掩盖了 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 的起源】
+[https://www.theguardian.com/world/2021/may/31/the-3bn-bargain-how-china-dominates-pacific-mining-logging-and-fishing](https://www.theguardian.com/world/2021/may/31/the-3bn-bargain-how-china-dominates-pacific-mining-logging-and-fishing)
 
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-
-> These agencies have a lot of explaining to do about their handling of COVID-19. 
-> 
-> That's why we've written to [@NIHDirector](https://twitter.com/NIHDirector?ref_src=twsrc%5Etfw) [@SecBecerra](https://twitter.com/SecBecerra?ref_src=twsrc%5Etfw) to see what's behind the redactions in their emails.[https://t.co/2cysIcfGsd](https://t.co/2cysIcfGsd) [pic.twitter.com/Vgoe91whKw](https://t.co/Vgoe91whKw)
-> — Senator Ron Johnson (@SenRonJohnson) [June 16, 2021](https://twitter.com/SenRonJohnson/status/1404955632361381892?ref_src=twsrc%5Etfw)
-
-
-
-众议员埃莉斯·斯特凡尼克: 作为自由世界的领袖，美国必须因 [#中共](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1?src=hashtag_click) 官员自己的行为对他们追责。 我将与Wittman议员一起提出立法，在对 COVID-19 起源进行调查之前，制裁中国卫生机构官员。 【附斯特凡尼克议员声明全文】
-
-
-
-> As the leader of the free world, the U.S. must hold Chinese Communist Party officials accountable for their actions.
-> 
-> I'm joining [@RobWittman](https://twitter.com/RobWittman?ref_src=twsrc%5Etfw) in introducing legislation that will sanction Chinese Health Agency Officials until there is an investigation into COVID-19 origins. [pic.twitter.com/Lukhc92SHc](https://t.co/Lukhc92SHc)
-> — Rep. Elise Stefanik (@RepStefanik) [June 15, 2021](https://twitter.com/RepStefanik/status/1404877011508731910?ref_src=twsrc%5Etfw)
-
-
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0

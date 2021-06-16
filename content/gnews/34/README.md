@@ -1,42 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 七古（端午）
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1325709/)
+## 格林众议员称中共病毒是生物武器要解雇福奇
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1325730/)
 
-作者：墙内战友|校对：仙女儿-文善|审核：SilverSpurs7|Page：小雨
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Rai4iqBsazzPW/images/1c9bb66e-9065-48d2-9ef4-aba4bbf9fbf5.jpg?asset_id=89f6082c-9aa1-499d-9b74-6578f8e483fc&amp;img_etag=%22e67dbed52eda2c9530e56cecb43f02f5%22&amp;size=2560)](https://spark.adobe.com/page/Rai4iqBsazzPW/images/1c9bb66e-9065-48d2-9ef4-aba4bbf9fbf5.jpg?asset_id=89f6082c-9aa1-499d-9b74-6578f8e483fc&amp;img_etag=%22e67dbed52eda2c9530e56cecb43f02f5%22&amp;size=1024)
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15223019/L-2.jpg)newsweek.com
+敢说、敢当、更敢为的众议员马乔里·泰勒·格林（Marjorie Taylor Greene）认为，中共病毒（COVID-19）是“生物武器”，要求福奇承担责任。《福克斯新闻》说，格林已经起草过一项法律要求“解雇福奇”。
 
+文章全文如下：
 
-```
-又逢端午忆春秋，
-一曲离骚几多愁？
-昔日屈原今仍在，
-叹息难遇众诸侯！
-```
+美国众议员马乔里·泰勒·格林周二（6月15日）称，中共病毒是中共国实验室制造的人造病毒，并暗示美国人民是生物武器攻击的受害者。
 
+这位备受争议的佐治亚州共和党人是在与共和党同僚举行的记者招待会上提出上述主张的，她还主张她的立法要解雇福奇，他一直是美国政府应对中共病毒疫情的主要的科学声音。
 
-**注解：**
+“作为人类试验的一部分，你对中共病毒有什么感觉？这就是我们过去一年的表现。”格林6月15日在国会对记者说。
 
-（又逢端午忆春秋）今天又是端午节。
+“为什么会有病毒被制造出来——从自然界中取出，可以在蝙蝠或其他生物之间共享和传播，然后被利用并转变成某种病毒，可以在人与人之间传播？有个词可以形容，我们都是生物武器的受害者吗？我们需要答案，福奇应该给出答案，所有相关人员都需要为此负责。”
 
-（一曲离骚几多愁）在屈原的一曲《离骚》中道出了多少惆怅？
+截至6月15日，已经造成60万美国人死亡的中共病毒疫情的起源尚无确切答案。在疫情的早期，科学家们基本上否定了一种理论，即病毒是从武汉的一个实验室泄漏出来的，福奇仍然声称最有可能的来源是动物对人类的自然传播，但随着拜登政府呼吁情报部门调查其来源并寻求结论，实验室泄漏理论在最近几周得到了更多的关注。
 
-（昔日屈原今仍在）在如此高度文明的今天，墙国仍然存在很多对世道不满而自杀者，让人感觉不知对自杀者该悯还是该恨。
+格林说，中共应该为中共病毒疫情向美国支付“赔偿”，她还声称，中共和福奇都对疫情撒谎，结果“人都死了”。
 
-（叹息难遇众诸侯）古时的春秋时期相当于现在的联邦，留恋或盼望着联邦的时期……
+长期担任美国国家过敏与传染病研究所（NIAID）所长的福奇成为政坛的避雷针，在川普执政期间，他基本上被左派誉为英雄，是科学界清醒的声音；另一方面，共和党人则在揭露他，并通过最近发布的他的电子邮件找到了新的证据。
 
-*文章仅代表作者观点*
+格林的立法将把福奇的工资从434,312美元降到零，并要求参议院确认一名替代者。
 
-编辑：【英国伦敦喜庄园编辑部】
+无知的国会民主党极左小队成员之一的亚历山德里亚·奥卡西奥·科尔特斯（Alexandria Ocasio Cortez）回应格林议员，否认中共病毒是一种生物武器的事实，理由是，上帝永远不会制造出伤害人类的致命疾病。
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+（原文完）
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+文贵先生说过，5月份以后，中共病毒的真相不可能“翻盘”了。这一方面说明大势不可逆转，另一方面让普通人接受真相还需要一个过程。民主党人士还普遍没有发声，就说明真相在美国推进的难度，欧洲大部分政客对中共的邪恶更是缺乏认知。所以，还需坚持不懈，揭露中共的罪恶，直到将其铲除。
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+原文链接：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Rai4iqBsazzPW/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/Rai4iqBsazzPW/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[https://www.foxnews.com/politics/marjorie-taylor-greene-covid-bioweapon-fauci](https://www.foxnews.com/politics/marjorie-taylor-greene-covid-bioweapon-fauci)
 
 0

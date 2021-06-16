@@ -1,45 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】匈牙利接种中共国疫苗抗体检测呈阴性
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1325812/)
+## 郭先生0615III Gettr新版上线只要点击一下盖特原数据全移过来
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1325882/)
 
-配音：香草山录音组 Gtv abeilles（蜜蜂）
+据[20210615的视频三品澜．吴征夫妻俩．性贿赂中国．国际多名高官……骗钱害命多人……黑幕被多个专案组掩盖．为什么？](https://gtv.org/video/id=60c8c163b96c69573d7f9433) 时间点24：17——
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+今天我临时直播啥原因呢？咱们那个盖特G-TV上盖特啊还不能用，咱们移转的新盖特大家还找不着。大家一定记住去找这个盖特去，大家去找这个盖特——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/15233749/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC%E7%9B%96%E7%89%B9.png)
+过去那Getome全部删除了，你们所有在Getome还有G-TV盖特上所有的数据点击一下，你下载这个新的盖特以后，你只要点击一下，你过去的数据全部移过来，马上都移过来，好吧？全部都移过来。
 
+千万别爆他爹，坚决不爆你爹，坚决不爆。爆你爹那爆啥呢？咱战友的爹咋能爆呢？所以我今天赶快临时直播一下，很多战友们跟我说继续聊聊，我说别聊了，很多正事。找时间直播再聊吧，今天就完全是瞎扯的。就大家发不了盖特难受，我在这直播一下。
 
+编辑整理——
 
+伦敦喜庄园：胖丁
 
+校对整合——
 
+伦敦喜庄园：杯酒渐浓
 
+发布——
 
-据[报道](https://www.msn.com/hu-hu/hirek/other/negat%c3%adv-ellenanyagtesztet-produk%c3%a1ltak-a-sinopharmosok-merkely-tesztje-sem-seg%c3%adt/ar-AAL11rI?ocid=mailsignout&amp;li=BBOMZdz)，数百名接种了中共国国药疫苗的匈牙利人抗体检测呈阴性。其中，大部分年龄在60岁以上。抗体检测结果显示，他们接种的中共国疫苗并没有对他们产生保护。
-
-退休的风湿病学家哈伊纳尔卡·博多（Hajnalka Bodó）称，虽然接种了两计中共国疫苗，但是做了三次抗体检测，结果都为阴性。她丈夫也接种了中共国疫苗，检测结果也是阴性。
-
-
-
-**文字版原文：[【热点播报】匈牙利接种中共国疫苗抗体检测呈阴性](https://gnews.org/zh-hans/1324475/)**
-
-作者：纽约香草山写作组 simida
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+喜马拉雅日本银河系农场：山川异域
 
 0
