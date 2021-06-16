@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国民间医疗机构呼吁立即停止使用中共病毒的疫苗
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1326662/)
+## 中共国设立最高可判死刑的投降罪这次有无实施的可能
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1326786/)
 
-#### 翻译：William
-校对：人间四月
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16084145/%E8%8B%B1%E5%9B%BD%E6%B0%91%E9%97%B4.jpg)图片来源：globalpossibilities.org
-根据由美国前线医生（America’s Frontline Doctors）网站的报道，英国循证医学咨询有限公司（Evidence-Based Medicine Consultancy Ltd s）提交给英国药品与保健品管理局（MHRA,Medicines and Healthcare Products Regulatory Agency ） 的一份黄卡数据紧急初步报告（urgent preliminary report of Yellow Card data）中指出，英国药品与保健品管理局早就应该根据在黄卡系统（Yellow Card system）上数量众多的证据来宣布 COVID-19 疫苗对人类使用并不安全。
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16093410/v2-a91c0c25d64d26a4d4e692922cef609a_1440w_%E5%89%AF%E6%9C%AC.jpg)
+据[大表哥看世界@GMJZdachengzi](https://twitter.com/GMJZdachengzi)于[下午2:10 · 2021年6月16日](https://twitter.com/GMJZdachengzi/status/1405045166990413829)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-这份由英国循证医学咨询有限公司和 EbMC Squared CiC 主任德斯-劳瑞（Tess Lawrie）博士签署的报告表示，他们已经使用病理学特定关键词搜索了黄卡报告，并根据以下内容对数据进行了五个广泛使用疫苗后的临床相关类别分组,包含了（1）出血、凝血和缺血性的药物不良反应（ADR）、（2）免疫系统的药物不良反应（ADR）、（3）痛苦相关的药物不良反应（ADR）、（4）神经性相关的药物不良反应（ADR）、（5）涉及视力、听力、言语或嗅觉丧失的药物不良反应（ADR） 以及（6）妊娠的药物不良反应（ADR）。
+中国不尊重人权的刑法：投降罪。 最高可判死刑。
 
-报告内容表示他们已意识到药物警戒数据的局限性，并强调所提出的药物不良反应信息不应只被认知为一般药物会导致的效果或使用不安全。他们迫切地分享这份初步报告是因为必须要传达一个重要信息，就是希望英国药品与保健品管理局能够进行全面调查并同时停止接种疫苗。
 
-根据塞内夫（Seneff）和尼格（Nigh） 最近发表的论文，疫苗潜在的急性和长期病理包括致病性启动、多系统炎症性疾病和自身免疫、过敏反应和过敏反应、抗体依赖性增强、潜在病毒感染的激活、神经变性和朊病毒疾病、SARSCoV2新变种的出现以及刺突蛋白基因整合到人类 DNA 中。报道中表示，输入到血液中的这些成分很明显地对人类有毒，需要立即停止疫苗接种计划，同时进行全面和独立的安全分析以调查危害的全部程度。英国黄卡数据表明，这些危害包括血栓栓塞、多系统炎症疾病、免疫抑制、自身免疫和过敏反应，以及作为抗体依赖性增强（ADE,Antibody-dependent enhancement）。
 
-最后报告总结英国药品与保健品管理局现在在黄卡系统上已拥有足够多的证据来宣布 COVID-19 疫苗对人类使用不安全。应做好准备以扩大人道主义努力，以帮助那些受到 COVID-19 疫苗伤害的人，并预测和改善中长期影响。由于疫苗造成伤害的机制似乎与 COVID-19 本身相似，这包括与众多具有成功治疗 COVID-19 专业知识的国际医生和科学家合作。
+> 中国不尊重人权的刑法：投降罪。
+> 最高可判死刑。 [pic.twitter.com/J5FmvY5b4s](https://t.co/J5FmvY5b4s)
+> — 大表哥看世界 (@GMJZdachengzi) [June 16, 2021](https://twitter.com/GMJZdachengzi/status/1405045166990413829?ref_src=twsrc%5Etfw)
 
-英国药品与保健品管理局的黄卡系统的目的是为药物或医疗设备的安全性提早期预警调查。但是，目前该机构尚未提供有多少人在接种疫苗后 28 天内有死亡、住院或者致残的数据。
 
-译评:
-疫苗无效甚至有害的事实终将大白于天下，原本服用羟氯喹和锌,并且带好口罩，少去人多场所就可以预防中共病毒，却因为跟着政府以及舆论指示接种疫苗反而增加自身感染风险以及产生尚未公开的副作用。在这场中共冠状病毒疫情中，那群泯灭良心而不敢说出真相的所谓国际级生化病毒科学家以及政府医疗官员，都应该被列出和中共一起接受审判。
 
-原文链接：[‘Urgent’ British report calls for complete cessation of COVID vaccines in humans](https://americasfrontlinedoctors.org/frontlinenews/urgent-british-report-calls-for-complete-cessation-of-covid-vaccines-in-humans/)
+据[百度百科——投降罪](https://baike.baidu.com/item/%E6%8A%95%E9%99%8D%E7%BD%AA/8652445?fr=aladdin)：［根据《中华人民共和国刑法》第四百二十三条规定，投降罪，是指军人在战场上，因贪生怕死、畏惧战斗，而自动放下武器，投降敌人的行为。触犯本罪的，处三年以上十年以下有期徒刑；情节严重的，处十年以上有期徒刑、[无期徒刑](https://baike.baidu.com/item/%E6%97%A0%E6%9C%9F%E5%BE%92%E5%88%91/1388771)。投降后为敌人效劳的，处十年以上有期徒刑、无期徒刑或者死刑。］
 
-0
+中共设立的投降罪可以实施的前提可以是交战双方的交换俘虏或者是中共国以战胜方对投降战败方的党卫军官兵进行清算，可是在目前的情况下，实在看不出投降罪在未来有任何可以实施的可能。
+
+但是这不意味着投降对于每个在战场上的党卫军官兵是轻而易举的事情，因为在战场上党卫军官兵除了要面对敌方的正面攻击之外，还要提防身后的督战队，但是无论如何，这一次党卫军官兵只要能够成功投降就可以成为人生的最大赢家，因为它意味着弃暗投明，这样的弃暗投明不需要舍生取义，而是取义得永生，这可是既可得鱼又可得熊掌的好事，那还等什么呢？
+
+（文章内容仅代表作者个人观点）
+
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门
+
++1

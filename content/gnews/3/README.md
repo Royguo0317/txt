@@ -1,42 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台山核电站怎么了？请勿忘切尔诺贝利！
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1326661/)
+## 【字幕视频】河南濮阳市区强降雨引发内涝，大量汽车和人被困水中
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1326774/)
 
-#### 翻译：James zhen
-校对：人间四月
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16084031/%E6%A0%B8%E7%94%B5%E7%AB%99.jpg)图片来源：BBC
-近期《华尔街日报》就这几天大家都十分关切的广东核电站泄漏事件进行了详细报道。
+制作：纽约香草山视频部
 
-**新闻背景：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-台山核电站是中共国吸引外商投资者（即法国电力公司Electricité de France SA，缩写: EDF)，与其签署的第一份核发电协议的成果。该工厂于 2009 年 11 月开始建设，第一台机组于 2018 年开始发电。
 
-2020 年 4 月，法国电力公司的子公司法马通（Framatome）称该工厂的两个装置是“当时世界上最强大的反应堆”。根据中共国核能协会的数据，2020 年核能占中共国发电量的 5%。目前在运的 49 座核反应堆的总容量为 510亿瓦特。
 
-合资组建的台山核电合资公司由中共国有的中国广核集团（持有 51% 股权）和法国电力公司（持有 30% 股权,广东能源集团有限公司持股19%。
+发稿：雪梨
 
-台山核电站的股权结构如下图所示：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16084016/%E6%A0%B8%E7%94%B51.jpg)图表制作：James Zhen
-美国川普政府在 2019 年曾将中共国广核集团和其他三个中共国实体列入其出口黑名单，称它们是“参与或促成努力获得美国先进核技术和材料以用于中共国军事用途的实体”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-**各方表态：**
+**更多资讯，更多关注**
 
-大股东中共方：根据现有数据，该厂在安全参数范围内运行，该厂及周边地区的环境指标正常。据城市气象台称，距核电站 40 英里的香港或澳门均未报告有异常辐射。
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-一直“严格按照经营许可证文件和技术程序控制机组运行。两台机组各项运行指标均满足核安全法规和电厂技术规范要求。”
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-*评：鉴于**中共一贯报喜不报忧，习惯于撒谎，深陷于塔西佗陷阱， 实在没有可信度***
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-二股东法国电力巨头：在收到台山核电站管理人员的数据后，获知该核电站的一个反应堆冷却系统主回路中的惰性气体浓度有所增加。法国电力公司要求举行一次特别董事会会议，以获取有关该工厂反应堆内气体积聚的更多信息。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16084100/%E6%A0%B8%E7%94%B52.jpg)图片来源：谷歌地图截图
-法国电力公司工程师告诉记者，这种化学反应性低的气体积聚被认为是少量的危险气体。其中一位工程师表示，某些控制燃料棒上的涂层已经退化。现在说该工厂是否需要停机下线才能解决问题还为时过早。氙气和氪气溶解在初级回路中的水中，并且它们的浓度受到严格控制，以确保进行维护操作的工人安全。初级回路中气体的存在是“已知现象，在反应堆操作程序中进行了研究和规定”。法马通表示，它正在“支持解决台山核电站的性能问题”。根据现有数据，该工厂正在安全参数范围内运行。该公司表示：“我们的团队正在与相关专家合作，评估情况并提出解决任何潜在问题的解决方案。”
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-另据美国有线电视新闻网报道，美国官员在评估法马通向中共国工厂转移技术数据和援助后，对该工厂的现状况进行了权衡，希望这家法国公司能够应对“迫在眉睫的放射性威胁”。
-
-*评：1986年4月26日切尔诺贝利核电站事故，前共产苏联官员的撒谎和隐瞒，留给人类的伤痛尚未抚平。但愿尽早处理，以免灾难重演。*
-
-新闻来源：[China nuclear plant facing ‘performance issue’, says operator](https://www.thehindu.com/news/international/china-nuclear-plant-facing-performance-issue-says-operator/article34818067.ece)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
