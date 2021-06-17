@@ -1,51 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草山水墨堂】剑出鞘——
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1328338/)
+## 美共和党议员们提出罢免福奇的议案
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1328494/)
 
-**作者**：香草山美食部 文百合
+#### 翻译报道：罗马骑士
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042102/WhatsApp_Image_2020-10-24_at_04.33.05-8-768x103-1.jpeg)
+#### 责编：胡天
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17013016/1-123.jpg)
+[图片链接](https://cdnph-upi-com.cdn.ampproject.org/ii/w820/s/cdnph.upi.com/svc/sv/upi/8271623797953/2021/1/a1f30be49227371ba1911afddf5166b8/Republicans-introduce-bill-calling-for-Dr-Anthony-Faucis-firing.jpg)
 
+据国际联合报社6月15日报道，美国国会众议员马乔里·泰勒·格林 (Marjorie Taylor Greene) 与其他8位共和党议员们，于本周二提出一项紧急议案，要求解除安东尼·福奇 (Anthony Fauci) 国家疾病控制和预防中心主任的职务。
 
+在联合议案小组的新闻发布会上，对于福奇在中共病毒疫情爆发期间的严重过失行为，格林议员表示议案要求将福奇的薪水降至零，并同时要求参议院确认其他合适人选来填补他的职位。
 
+格林议员本月初给拜登写信，要求彻查福奇本人和他在隐瞒病毒真相中所扮演的角色。
 
+格林议员阐述道，在疫情爆发初期，根据福奇的通信邮件内容来看，他故意不强调病毒来自中共的武汉实验这一事实，不强调口罩对防止病毒扩散的有效性，坚持中共病毒来自于自然的说法。福奇这种扭曲的渎职行为，几乎控制着过去一年美国整个国家的经济，以及家长和孩子们对教育的诉求。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003116/image0-50-1-scaled.jpg)
+在刚刚过去的七国首脑会议上，对于中共过去一贯的不合作态度，首脑们一致要求国际卫生组织再次查明中共病毒来源的真相。
 
-蓝天大海拔剑
-斩红妖
-尽显英雄本色
+原文链接：[Republicans introduce bill calling for Dr. Anthony Fauci’s firing](https://www.upi.com/Top_News/US/2021/06/15/Republicans-bill-Anthony-Fauci-firing/8271623797953/)
 
-文百合亮剑
-诸恶魔
-英姿飒爽水墨木兰
-
-同道人相见正当时
-侠士联手战魔头
-灭共路上没你不行
-
-校对/发稿：遍地开花
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042102/WhatsApp_Image_2020-10-24_at_04.33.05-8-768x103-1.jpeg)
-
-
-
-
-
-+1
+0

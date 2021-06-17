@@ -1,57 +1,349 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美俄峰会落幕 就战略稳定发表联合声明 中共寄望联俄之梦破碎
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1328363/)
+## 【深度科普】文医谈病毒防护、治疗与疫苗的合辑
+` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1328249/)
 
-【日本东京方舟农场】撰稿：青衣      校对：小笨熊
-
-据《德国之声》中文网6月17日报道，美国总统拜登和俄罗斯总统普京16日在日内瓦举行峰会。这是自拜登上台后双方的首次面对面会晤。双方在会后针对核扩散发表了联合声明。会后的记者会上，两人各自表达了立场和对彼此的看法。
-
-会谈用时不到五小时，拜登也在会后对着镜头竖起了大拇指。美国团队表示，这次会议“相当成功”。会后，双方就讨论的主要议题之一——核扩散发表了一份联合声明，声明写道：“核战争不可能获胜，也决不能打。”
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003855/101012DA-845B-438C-A3F1-DBB132CB61A9.jpeg)
-
-美俄在联合声明中表示，即使在紧张时期，两国也能在共同目标上取得进展。声明同时透露，美国和俄罗斯将在不久的将来，共同开始一个综合的双边战略稳定对话。两国强调，该对话将是深思熟虑且强而有力的。声明还称，两国寻求为未来的军备控制和减少风险措施打下基础。
-
-俄罗斯总统普京在会后称拜登是一位“立场平衡”且“经验丰富的政治人物”，并表示这是一次有建设性的会谈。他宣称：“这次会议非常有效率，既具有实质性，也非常具体。这场会议的目的是为了取得成果，而其中一个是增加信任感。”
-
-普京在谈到拜登对军备控制的判断时说：“我认为大家都很清楚，拜登总统做出了负责任的决定，而且在我们看来，这是非常及时的决定。他们将新的削减战略武器条约延长5年，这意味着条约的有效期是到2024年。 当然，这也引出了一个问题，那就是接下来会发生什么。”
-
-接下来会发生什么？普金的话意味浓厚。中共喉舌《环球网》主编胡锡进曾多次叫嚣，中共国需迅速大规模增加核弹数量，以威胁美国和世界。“胡叼盘”胡锡进作为中共的一条狂吠的犬，没有主子的授意，是无论如何不敢发出这样反人类的言论的。显然这就是代表了以习近平为代表的中共最高领导层的邪恶意图。笔者认为，美俄此次削减战略核武和军备控制的声明，在某种程度上，也可视作是向大力发展核武及大肆强军的中共发出了一个严厉警告。
-
-据普京透露，美俄双方将启动军备控制的相关讨论，并透过相关机构来进行协商。白宫与克里姆林宫也在会后的联合声明中提到了相关消息。两国在2010年签署的《新削减战略武器条约》将俄罗斯和美国可以部署的战略核弹头、导弹和轰炸机的数量，限制在各自不超过1550枚战略核弹头。
-
-美国总统拜登后来在一个单独的记者发布会上表示，整个会议大约用时4个小时，并称气氛是积极的。他表示，双方没有采取任何激烈的行动，两人也在意见不同之处表达了各自的立场。他说：“我告诉普京总统，我们需要有一些双方都能遵守的基本规则。”
-
-拜登试图自始至终强调对俄罗斯的善意，并指出：“在一些领域，我们有共同的利益，为了我们的人民，也为了世界的利益和世界的安全而合作。其中一个问题是战略稳定。我们今天同意启动双边战略稳定对话，外交上的说法是让我们的军事专家和我们的外交官一起努力建立一个机制，以控制现在正在出现的新的和危险的复杂武器。”
-
-此外，拜登还总结了他整个欧洲之行的意义，强调说：“在过去的这一周里，我相信，我希望，美国已经向世界表明，我们回来了，且我们与盟友站在一起。我们召集民主国家伙伴做出协调一致的承诺，以应对全世界面临的最大挑战。而现在，我们已经为我们打算如何处理美俄关系建立了一个明确的基础，今后还有很多工作要做。我并不是说这些都已经完成了，但我们此行完成了很多工作。”
-
-美国外交关系委员会高级研究员库普坎(Chris Kupchan)对《德国之声》表示，两位领导人“不是来寻找像川普和普京那样的‘兄弟’关系”，但拜登可尝试于与普京建立某种合作关系。
-
-此前《德国之声》引述分析人士的话报道称，在美俄关系降到冰点之后，拜登邀请普京在日内瓦举行面对面的会谈，美国是希望平息和俄罗斯之间的矛盾，从而专心对付中共国。拜登见普京，中共国是关键议题。
-
-克里姆林宫成立的“俄罗斯国际事务委员会”（RIAC）总干事库尔图诺夫 (Andrey Kortunov) 则认为，普京明白俄罗斯和美国之间的关系将继续以对抗性的基调运行。但与此同时，双方也有一些潜在的合作机会。而且，普京认为即使是对抗，双方也应该试图降低风险。
-
-前欧盟驻美国大使奥沙利文 (David O’Sullivan) 则表示，拜登的目标是要在对他来说很重要的问题上采取开放但坚定的立场。他说：“他（拜登）将向普京伸出援手，并说，‘听着，我们不是什么都认同，但让我们找到一种共存的方式，不要给对方造成过度的紧张。’”
-
-毫无疑问，拜登所提到的与俄罗斯的“共同利益”，“召集民主国家伙伴做出协调一致的承诺，以应对全世界面临的最大挑战”，以及“控制现在正在出现的新的和危险的复杂武器”等，目标主要是直指中共。因为中共肆意妄为，不遵守国际规则；大肆军事扩张，危害全球安全；叫嚣武统台湾，破坏台海及区域稳定；尤其是用超限生物武器——中共病毒残害全世界等一系列罪恶行径，就是全世界所面临的最大挑战。
-
-拜登在此次美俄峰会前，基本已和除俄罗斯之外的世界主要大国达成了共识，加强盟友关系，共同对抗中共。如今如果俄罗斯再选择站在美国一边，那中共在政治上唯一寄望可依靠和拉拢的“最后一根稻草”，也将彻底失去。
-
-值得一提的是，在记者会上有记者向拜登提问说：“您多次提到您与习主席在一起的时间比任何其他世界领导人都多。那么，您是否将在某个时候打电话给他，老朋友对老朋友，要求他开放中（共）国，允许世卫调查人员查明 COVID-19（中共病毒） 真相？”
-
-拜登回复说：“我首先要澄清，我们彼此虽然很了解，但我们并不是老朋友，我们仅仅是工作关系。这个事情的后果…… 世界对中（共）国的态度已经转变了。其实有些事情也不必向世界人民解释，他们都能看到结果——中方真的有查清（病毒）真相的姿态吗？”
-
-注：本文仅代表作者观点
-
-参考链接：
-
-1. [https://twitter.com/dw\_chinese/status/1405336810746564608](https://twitter.com/dw_chinese/status/1405336810746564608)
-2. [https://twitter.com/SoundofHopeSOH/status/1405331024507281412](https://twitter.com/SoundofHopeSOH/status/1405331024507281412)
+Gnews病毒真相小组 整理
 
 
 
 
-0
+
+## mRNA疫苗可能产生的灾难后果(二)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010656/db053f2425daead87e1b56a16573264e.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=60c2758b8ce6da73c41878a2)
+
+
+
+
+
+
+
+## mRNA疫苗可能产生的灾难后果(一)（主讲：文 医 嘉宾：千叶草大姐 北京人）
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010550/495c2e00ce1563cde4dff38d31c996b2.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=60b0001eb7dff64ac985223b)
+
+
+
+
+
+
+
+## 公众对CCP病毒抗体的认知误区 (主讲：文 医 嘉宾：千叶草大姐 北京人)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010441/b041bba1a36dc28383f885cb54f9e326.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60a6c6a1db13300ca55cc364)
+
+
+
+
+
+
+
+## “解毒”功能增强的CCP病毒——多重方式绞杀细胞（主讲：文 医 嘉宾：千叶草大姐 北京人） 第二部分
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010253/dc8e290d54744547f6aab74f6199995c.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=609dae95db13300ca5538508)
+
+
+
+
+
+
+
+## “解毒”功能增强的CCP病毒——多重方式绞杀细胞（主讲：文 医 嘉宾：千叶草大姐 北京人） 第一部分
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010127/abe5687d2b874d84a9b1ac73b18ed0cb.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=609d9b3bdb13300ca5537a08)
+
+
+
+
+
+
+
+## 2021-04-28 “醫E” 語中的 第19期, CCPVirus”功能增强 “长驱直入核心器官·搞弱搞残细胞功能”
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005857/da1fee9c0f4ccc9df06c0e1436cacfb1.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6089da7e6c00a14130e1c3a5)
+
+
+
+
+
+
+
+## 2021-04-21 医生视角解读“CCPVirus”神经毒性功能的增强
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005759/d7e15d55985b0adda4a01e0b084d973e.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6080a1577e083973a72e226f)
+
+
+
+
+
+
+
+## 2021-04-14 ”醫E“語中的第17期 閻博士報導 醫生視角解讀CCP病毒功能增強
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005441/a45ed5a1f07feb9fac3efd4ca67b0258.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60776a5662d629309ee40528)
+
+
+
+
+
+
+
+## 2021-04-07 ”醫E“語中的第16期 閻博士報導 醫生視角解讀CCP病毒功能增強
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005546/604841836655d9be0e2a615f20683b46.png)
+
+
+GTV视频链接 [Part1](https://gtv.org/video/id=606e2c846e11a756eddb5713) [Part2](https://gtv.org/video/id=606e30dd6e11a756eddb5a44)
+
+
+
+
+
+
+
+## 2021-03-31 “醫E”語中的第15期 美國一線醫師covid19白皮書
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005107/df34cbf677b69dc9a1d6c1ba26bb4c21.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6064f784a54f827240bd50f9)
+
+
+
+
+
+
+
+## 2021-03-24 “醫E”語中的第14期 話疫苗 5
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004804/b092848f3a28d3c5be359fcdfafad02d.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=605bb68ba26ac57138e444b6)
+
+
+
+
+
+
+
+## 2021-03-17 “醫E”語中的第13期 話疫苗 4
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004432/a71f6f9239cf353aacbf28c01db3fa09.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60527ab5e9cdd43098eaef26)
+
+
+
+
+
+
+
+## 2021-03-10 “醫E” 語中的 第12期 話疫苗（3）
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004531/e1454c0da647616049c4245080d9090b.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60494efa75e88a51e6e9ef77)
+
+
+
+
+
+
+
+## 2021-03-03 “醫E”語中的第11期 話疫苗 2
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003742/b5ed6f56523ed967ff5be3e606c99b50.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6040150794761a708f1999a3)
+
+
+
+
+
+
+
+## 2021-02-24 【“醫E”語中的】（10） 話疫苗 （1）
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003432/8048e874797d7c41cc4c5a34081f2b20.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6036da22047c4c3086dd5052)
+
+
+
+
+
+
+
+## 2021-02-17【“醫E”語中的】（9）邪恶“CCP病毒” 二元武器 第二元
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003311/79e7f3a28786b885373e7dde97abf088.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=602daeb7be64150df85b1d7f)
+
+
+
+
+
+
+
+## 2021-02-10【“醫E”語中的】（8）邪惡CCP病毒 二元武器效應 第一元
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003125/adf72ace6bc5474f08b15ac3ae971856.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=602468e5be64150df8501dd4)
+
+
+
+
+
+
+
+## 2021-02-03【“醫E”語中的】（7）邪恶“CCP病毒” （二）认识CCP病毒最诡异邪恶之处
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003013/af6ff7f3beb9405d8dc8611fa77230ea.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=601b2c383f8a013ab47b7c7a)
+
+
+
+
+
+
+
+## 2021-01-27 “醫E”語中的 （6）邪恶“CCP病毒” （一）认识病毒，保护自己
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17002454/1ac4ff3009ac8104d9e188f0365f7ff0.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6011f0c3b819717e79b3d6e3)
+
+
+
+
+
+
+
+## 2021-01-13 “醫E”語中的（5）神奇的羟氯喹（四） 服用羟氯喹应该注意的事项
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17002057/52e7bbfb99de6a6093c13139499bd1ff.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5fff7b14f579a75e0bd668a1)
+
+
+
+
+
+
+
+## 2021-01-06 “醫E”語中的（4）神奇的羟氯喹（三） 不可思议的广谱抗微生物效应
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001816/84636763ba87ba09966f4561a407740b.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5ff64107f579a75e0bc837b1)
+
+
+
+
+
+
+
+## 2020-12-29 “醫E”語中的（3） 神奇羟氯喹（二） 老药羟氯喹焕发神奇“青春”
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001639/9e03978d2547594f0fb1bca0809bcb0e.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5febb4f3f579a75e0bbb9700)
+
+
+
+
+
+
+
+## 2020-12-22“醫E”語中的 （2） 神奇羟氯喹(一) 认识羟氯喹
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001455/2020-12-22%E9%86%ABE%E8%AA%9E%E4%B8%AD%E7%9A%84-%EF%BC%882%EF%BC%89-%E7%A5%9E%E5%A5%87%E7%BE%9F%E6%B0%AF%E5%96%B9%E4%B8%80-%E8%AE%A4%E8%AF%86%E7%BE%9F%E6%B0%AF%E5%96%B9.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5fe27ac1c0544c3d973305b9)
+
+
+
+
+
+
+
+## 2020-12-15“醫E”語中的（1）光鮮的新冠疫苗背後可能的致命風險
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001220/43a19b816546183367c4e09d01299243.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=5fd943c509267020eb52df80)
+
+
+
+
+
+
+
++1

@@ -1,52 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】响鼓秀场（七）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1328284/)
+## 扎克伯格集团为武汉实验室、功能倡导提供六位数资金支持
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1328208/)
 
-配音：香草山录音组 Swr拥抱太阳
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 – 明子
+发布：康州盘古农场 – 彩虹 Rainbow
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**据《国家脉动》作者：RAHEEM KASSAM AND NATALIE WINTERS，2021年6月14日报道：**
 
+扎克伯格倡议组织——2020年大部分非法的选举变化背后的资助团体。给北卡罗来纳大学教堂山分校提供了近50万美元**。**该大学将武汉实验室的合作者和功能增强的支持者拉尔夫-巴里奇博士列为首席研究员。
+拉尔夫-巴里奇博士是北卡罗来纳大学教堂山分校（UNC）的教授——他也参加过武汉病毒研究所的会议，并被该实验室的“蝙蝠女”描述为她的“长期合作者”。在2020年7月收到了Facebook创始人马克-扎克伯格的慈善团体提供的资助。
+“扎克伯格倡议组织（CZI**）**最近向联合国大学授予了一笔43.3万美元的拨款，用于购买实验室设备，这将加速解决COVID-19大流行病的研究”一份新闻稿指出，“这笔赠款代表了西海岸慈善组织CZI和UNC之间的新合作，以寻求该大流行病的全球解决方案”，一份摘要在详细说明赠款如何使用之前补充道。
+**这笔赠款包括购买一个“液体处理机”— 一个能够比人工更快、更准确地吸取液体的机械臂和配套的仪器，以及包括另一个检测样品中活性病毒颗粒的机器人和一台对RNA进行排序的机器。这些工具加在一起，将测试化合物的速度提高了20倍。**
+据称，这笔拨款帮助产生了一项研究——目前正在等待同行评审，题为SARS-CoV-2传染性病毒、鼻咽拭子中的病毒RNA和美国有症状的COVID-19门诊病人的血清状态。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001818/ccp_virus-2.png)
+摘要指出，“在这里，我们提供了对人口学、免疫学、病毒学和临床疾病因素的全面分析，这些因素与感染性病毒分离和鼻咽拭子样品中的病毒**RNA**水平有关，这是迄今为止对患有COVID-19的无症状门诊成人的最大研究。”
+巴里奇关于此事的一份幻灯片还列出了来自吉利德科学公司，国家卫生研究院和福奇博士的国家过敏和传染病研究所的支持。
+福奇博士最近试图掩盖他与扎克伯格的关系，他告诉MSNBC主持人Chuck Todd，他“不知道”参议员Marsha Blackburn在讨论两人被泄露的电子邮件时的意思。
+巴里奇实验室的研究说，它旨在“更深入地了解**”COVID-19**，以便“准确地识别和隔离有传染性的人”。
+**“更深入地了解与传染性病毒检测有关的病毒和宿主因素，对于准确识别和隔离传染性个体至关重要。一些研究报告了SARS-CoV-2病毒分离与病毒RNA水平或症状发生时间之间的关联。然而，对于哪些宿主因素（即人口统计学、合并症、SARS-CoV-2血清阳性、症状学等）与传染性病毒检测有关，我们知之甚少。”**
+巴里奇和与脸书有联系的慈善机构之间的财务关系是在该社交媒体平台大量审查用户和宣传COVID-19的起源可以追溯到武汉实验室的理论之后发生的。
+脸书与完全由民主党人经营的**“**Lead Stories”集团签订合同，该集团的工作人员大多是CNN的离职人员，目的是审查不方便的信息。Lead Stories也与TikTok签订了合同，而TikTok则由ByteDance拥有，ByteDance（字节跳动）是一家被中国共产党及中国人民解放军用来推进共产主义宣传的公司。
+巴里奇博士——他为有争议的功能增强研究辩护，认为这是一个“重要的工具”，是脸书认可的COVID-19自然起源理论的早期支持者，他参与了《柳叶刀》杂志的声明，过早地断言该病毒具有自然起源。
+CZI因其在2020年总统选举中的作用而受到越来越多的审查，它向民主党地区输送了数百万的资金，为乔-拜登拉票。
 
+**原文连接**：[https://thenationalpulse.com/exclusive/facebook-czi-funds-controversial-wuhan-researcher/](https://thenationalpulse.com/exclusive/facebook-czi-funds-controversial-wuhan-researcher/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-
-才下＂Freedom Tower＂
-仍然忙碌的
-场记
-又应邀
-来到＂休斯顿星光＂
-的艺术主场
-
-好吗
-这顿赶
-还没
-稳当妥定
-又被问三围
-
-
-
-**文字版原文：[【香草诗词汇】响鼓秀场（七）](https://gnews.org/zh-hans/1318101/)**
-
-作者：纽约香草山健身部 澄道
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++2

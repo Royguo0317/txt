@@ -1,23 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象快讯】意大利破获废金属诈骗案捣毁中国洗钱渠道
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1328350/)
+## 【有声读物】加拿大研究者警告：疫苗刺突蛋白正在杀人…“我们犯下大错”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1328411/)
 
-小象：意大利作为中国最重要的商业贸易国家，是欧洲第一个和中共政府签订一带一路的国家，也是欧洲最大的和中国货币互换的国家，也是中共派遣警察在其本土维持秩序的国家，也是中国非法移民最多的国家，也是历史上二战时期屡战屡败的国家。最近的一次时新冠病毒欧洲国家的突破口，是西方第一个爆发Covid-19的国家。意大利是被中共红色权贵腐蚀的最为严重的国家，这次案件的破获和公开，里面提到了中国银行，文贵先生很早就提过，中国银行是中共跨国犯罪集团洗钱的机构，由此案件，我们可以看到这仅仅是一个开端。
+配音：香草山录音组 蒙古鸿雁
 
-据路透社（Reuters）报导，意大利警方透露，针对该案的调查历时三年，由东北部城市的里雅斯特（Trieste）的反黑手党检察官办公室协调。调查显示，黑帮团伙为了处理其获得的不义之财付出了巨大的努力。该案件揭露出在2013年至2021年期间，由一批公司组成的犯罪网络，出售了约15万吨废金属，包括铜、黄铜和铝等。这些废金属的来源不同，规避了环境法规，并逃避了大约3亿欧元（3.63亿美元）的交易税。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-为了使这种金属对最终用户来说看起来是合法的，捷克共和国和斯洛文尼亚的公司制作了伪造的文件，表明这些废金属材料是在中国获得的。为了使文件更加真实，他们向中国的银行存入了大约1.5亿欧元的存款，作为付款的幌子。
 
-警方表示，他们的监控行动显示，当这些钱出现在中国的银行账户上时，这些意大利的商人在意大利收到了巨额现金。有一次，20万欧元的现金被装在一个塑料购物袋里被送出。意大利东北部城市波尔代诺内（Pordenone）的金融警察负责人斯特凡诺·科门图奇（Stefano Commentucci）上校对此透露说：“如果没有窃听、监视，尤其是微型摄像头，我们永远也不可能发现他们运作的机制。”警方表示，他们已经对53人进行了正式调查，逮捕了5人，缴获了6600万欧元。然而，调查仍在继续，尤其是针对与中国相关的业务的调查。意大利警方表示，由于黑色经济和其他犯罪活动，当地中国人拥有“相当可观的现金资源”。但在试图将这些钱安全地运回国内时，他们面临着具体运作和法律方面的障碍。一份警方声明称：“这种联盟使得各自独立从事非法活动的对手们，找到了一个共同点，从而使双方都能实现各自的目标。”
 
-参考链接：大纪元新闻
 
-整理撰稿：蓝精灵
 
-校对发布：Penny
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+
+[Natural News](https://www.naturalnews.com/2021-06-03-canadian-researcher-covid-vaccine-spike-proteins-death.html) 最近报导了加拿大病毒免疫学家[Dr. Byram W. Bridle](https://theconversation.com/profiles/byram-w-bridle-1077412) 的关于CCP病毒疫苗中所含或制造的刺突蛋白可直接导致心血管损伤和死亡的观点。
+
+Bridle博士是加拿大Guelph 大学的病理生物学系副教授和病毒免疫学家。他和一群科学家去年从政府获得了23万美元的资助，用于研究（评估）CCP病毒疫苗。这使得他们能够获得疫苗注射的数据。这些数据表明，注射所包含或产生的刺突蛋白几乎是患者接受注射后所观察到的所有心血管损伤的唯一原因。
+
+
+
+**文字版原文：[【热点播报】加拿大研究者警告：疫苗刺突蛋白正在杀人…“我们犯下大错”](https://gnews.org/zh-hans/1327743/)**
+
+作者：纽约香草山媒体部  7bends
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
