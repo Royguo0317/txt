@@ -1,22 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【西媒头条】第3期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1329476/)
+## 欧盟和美国共同呼吁第二阶段新冠溯源调查并向中共追责
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1329527/)
 
-- 作者：蚂蚁兄弟
+06/15/2021 里奇埃德森：美国和欧盟呼吁世卫组织发起的COVID-19病毒起源第二阶段调查能够在透明、基于证据并且由专家主导，不受任何因素干扰的情况下取得进展。国务卿安东尼·布林肯称世界卫生组织的第一次调查漏洞百出，并且重申要向中共国追责。
 
-
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
-
-**西班牙2021年6月17日电/西喜社——**
-
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17100159/Captura_de_pantalla_2021-06-17_a_las_15.00.40.png)
-
-发稿：信心的选择
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0

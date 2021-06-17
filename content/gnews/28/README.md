@@ -1,49 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北约峰会将中共列为国际社会的头号危险
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1329565/)
+## 2021年6月17日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1329624/)
 
-#### 撰稿:海瑟
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-#### 责编:牛小妹      
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17105825/16239420011.png)图片来源:Getty Images
+Bureaucratic governments all over the world. It is a balanced diplomacy when the people pay the price, even their lives. This is irresponsible under the circumstances where the virus is extremely threatening to humans! The Communist Party must immediately and unconditionally accept the governments of the world. In cooperation with the investigation of the virus, this is the person killed by the coronavirus. with family. The most responsible approach to those who are threatened by viruses, everything is time. effectiveness. The continued bureaucratic operation will kill more people… the truth. action. It is lifted. solve. The necessary foundation for virus threats.
 
+[【2021年6月17日】文贵先生盖特原文](https://getome.com/post/pwh64)
 
-##### 北约声明中共就是世界的祸源
-
-在1949年成立的北约，主要是要因应苏联和后来的俄罗斯。当时中共对北约而言，并不是很严重的安全考量问题。除了在2019年简要提到中共为西方联盟成员带来的际遇和挑战，川普总统在位期间的北约峰会宣言从未提到中共。
-
-据卫报(the Guardian) 报道，6月14日布鲁塞尔的年度峰会上，一向针对苏联的北约军事联合组织破天荒地宣称，中共是北约成员国严重的安全威胁。由于拜登政府的游说与施压，北约对于中共的批判的措辞，明显比G7会议的声明强烈许多，以寻求民主国家的制衡力量，因应中共日益增长的经济和军事实力。30个成员国共同签署了联合公报，指出“中共明目张胆的的野心和霸道的行为，对国际秩序构成了系统的挑战。” 北约成员国的领袖们对于中共在新疆维吾尔族明显的种族灭绝行为及强制政策感到关切，另外对于中共快速扩张核军备，在军事现代化进程中信息的「不透明」，及恣意散布假消息感到担忧。G7国家领导人批评中共在新疆的人权问题，呼吁保持香港高度自治，并要求对中共病毒的起源进行全面调查。
-
-##### 中共国战狼哀号不断
-
-中共国驻伦敦大使馆表示，关于新疆、香港及台湾的言论，事实暴露出美国等少数国家的险恶用心，他补充说中共国的声誉绝不能受到毁谤。
-
-##### 北约依然关注俄罗斯问题
-
-在拜登首度参加为期一天的北约峰会之初，北约秘书长延斯•史托腾伯格即表示，北约现在与俄罗斯的关系正处于冷战结束之后的最低点，他将关系恶化的原因归咎于俄罗斯的侵略行为。
-
-针对乌克兰呼吁北约及其主要成员国加速批准加入北约，以因应俄罗斯在乌克兰边境集结部队造成的紧张局势。拜登认为，苏俄攻佔乌克兰领土的克里米亚并非乌克兰加入北约的一个障碍。他说，事实上是乌克兰还需要清除国内的腐败现象，乌克兰是否成为北约会员国，端赖乌克兰是否符合这些标准。
-
-北约谴责莫斯科对北约成员国的”多方面破坏行动”，其中包括广泛的虚假宣传活动、恶意网路活动和选举干预。声明中说，除非俄罗斯表现出遵守国际法及国际义务和责任，否则不可能恢复旧有的关系。北约将持续通过加强威慑和防御的方式来应对不断恶化的安全领域。
-
-##### 部分北约成员国对中共的态度并不坚定
-
-北约秘书长延斯•史托腾伯格(Jens Stoltenberg)坚称中共并非敌人。相反地，他认为中共国很快将成为世界最大的经济体，并且已经成为第二大国防预算，世界最大的海军。北约的新兴战略是为了因应中共国带来的挑战。其他成员国也发言强调国际关系平衡的重要性，英国首相包里斯･强生(Boris Johnson)抵达会场时说，”我认为当我们谈到中共时，今天在座的各位都不想陷入新的冷战。”
-
-##### 美国与北约合作，共同打击侵略霸权
-
-2018年川普主导北约时，曾威胁要退出北约，并在2019年”走自己的路”。因此北约的成员国特别希望拜登能够发表支持北约的强烈声明。相对于川普视北约为「过时的组织」的敌意，拜登努力缓解北约紧张气氛。在峰会开始之际，拜登提到人们越来越认识到北约面临新的挑战，”北约面临举止言行跟民主国家期盼的不相一致的俄罗斯，另外还存在中共的问题。”
-
-在峰会结束之后，拜登强调，美国”有神圣的使命”以遵守北约的成立协定，并帮助成员国抵御外来袭击。他认为，北约的夥伴们在此次峰会上非常清楚，美国是一个推崇民主、有高度荣誉感的国家。美国国家安全顾问杰克･沙利文(Jake Sullivan)承诺北约将更加关注中共，称中共将以”前所未有的方式”出现在公报中。
-
-拜登在会见秘书史托腾伯格说，北约对美国的利益至关重要。拜登诠释北约第五条公约为一项神圣的义务。根据该条公约，对北约任何一个成员的武装攻击，将被视为对所有成员国的攻击。拜登强调:”我希望北约知道美国一直支持他们。”
-
-#### 点评:
-
-北约前所未有地将对抗焦点由之前的俄罗斯转向中共国，拜登在高峰会上更承诺与北约共同对抗，北约已形成铜墙铁壁的正义联盟。世界正义待时机成熟之际，即是灭掉万恶的中共国之时。
-
-文章链接 : [Nato summit: leaders declare China presents security risk](https://www.theguardian.com/world/2021/jun/14/nato-summit-china-russia-biden-cyber-attacks)
+**喜联盟Gnews编辑部**
 
 0
