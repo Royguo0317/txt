@@ -1,11 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前美疾控中心主任支持中共病毒实验室来源说
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1329611/)
+## 2021年6月17日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1329624/)
 
-06/15/2021 前疾病预防和控制中心主任罗伯特⋅雷德菲尔德博士支持中共病毒来源于蝙蝠并在实验室经过编辑改造得以进化的假说，并称2020年1月首次发现病毒时，由于世卫组织向中共高度妥协，疾病预防和控制中心团队未被允许进行武汉实验室，这是个巨大的错误。
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+Bureaucratic governments all over the world. It is a balanced diplomacy when the people pay the price, even their lives. This is irresponsible under the circumstances where the virus is extremely threatening to humans! The Communist Party must immediately and unconditionally accept the governments of the world. In cooperation with the investigation of the virus, this is the person killed by the coronavirus. with family. The most responsible approach to those who are threatened by viruses, everything is time. effectiveness. The continued bureaucratic operation will kill more people… the truth. action. It is lifted. solve. The necessary foundation for virus threats.
+
+[【2021年6月17日】文贵先生盖特原文](https://getome.com/post/pwh64)
+
+**喜联盟Gnews编辑部**
 
 0
