@@ -1,22 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【西媒头条】第3期
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1329476/)
+## 参议员呼吁排斥中共并调查病毒来源
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1329546/)
 
-- 作者：蚂蚁兄弟
+06/15/2021 参议员兰德·保罗认为全世界都应排斥中共以确保自身利益以及WHO必须调查病毒来源。
 
-
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
-
-**西班牙2021年6月17日电/西喜社——**
-
-**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17100159/Captura_de_pantalla_2021-06-17_a_las_15.00.40.png)
-
-发稿：信心的选择
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
 0
