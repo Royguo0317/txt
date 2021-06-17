@@ -1,26 +1,145 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻简评】从近期中俄关系的变化看美俄首脑会谈
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1329510/)
+## 【热点播报】塞林博士循序渐进的推文显示，中共病毒真相收网呼之欲出！（四十五）
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1329517/)
 
-作者：喜马拉雅东京樱花团 / 文小白
+作者：纽约香草山信息部 6zero4
 
-6月16日下午，美国总统拜登和俄罗斯总统普京在瑞士日内瓦举行会面。会面结束后，双方发表了共同声明。共同声明重点提到，美国与俄罗斯不久后就会展开综合性双边战略稳定对话，寻求未来的军备控制与降低风险。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17103527/%E7%BE%8E%E4%BF%84%E9%A6%96%E8%84%91%E4%BC%9A%E8%B0%88.png)[图片来源](http://sunnews.cc/military/67315.html)
 
-美俄总统会面让中共非常紧张不安。在美俄中三角关系中，中共最担心的就是俄罗斯在战略上向美国倾斜。其实与俄罗斯的战略伙伴关系，是中共最看重的，也是目前仅剩的可能用来对抗美国和西方国家围堵的战略关系。为此中共在美俄日内瓦会谈前几天就开始连续发文，强调中俄关系如何牢固紧密，但俄罗斯似乎不与中共同腔同调，它只是强调与中共的经济关系，从而淡化或忽略与中共的战略伙伴关系。
 
-中俄两国早在2019年6月初就签署了关于两国全面战略协作伙伴关系的联合声明。但最近俄方很少提及此关系。2021年6月4日，在圣彼得堡举行的国际经济论坛的媒体提问视像会议上，世界各国媒体都围绕经济问题提问。而中共国新华社社长兼总编辑何平则问普京“如何看待中俄两国的关系”，普京表示，两国关系非常好，并紧接着说，去年中俄双边贸易额达到了1,000亿美元，是有史以来最好的。得到这个回答后，中共官媒如获至宝，马上被新华社等中共官媒广泛报导为普京说“中俄关系史上最好”。同一天，中共外长王毅在贵阳同俄罗斯外长拉夫罗夫通电话，王毅强调“全方位的”中俄关系合作，但俄外长谈的主要在于“加强抗疫合作”和“促进经济复苏”，避开了战略关系和“盟友”关系。
+6月16日塞林博士的9连推：
 
-6月11日俄罗斯驻中共国大使安德烈·杰尼索夫（Andrey Denisov）在中共党媒《环球时报》发表的专访中，明确地否认了两国存在“结盟”关系。在环球网微信公众号采访原文中，杰尼索夫说“众所周知，尽管俄罗斯和中国没有结盟…”，可此说法并没有出现在其它中共官媒的报道中，也没有任何相关引述。相反，中国媒体在引述该报导时说，重点强调杰尼索夫表示不会期待俄美首脑会晤会产生任何“不切实际的结果”；并称中俄关系不会因美国对俄政策改变而改变等等。这篇断章取义的报导同样也让中共官媒如获至宝，并广泛转载。
+第1推，在闫博士抵达美国后，我们才刚刚开始揭露这些所谓的个人行动。他们与Mahen在美国的出现并与其联系等这些举动有什么关联？以及这些行动与CCP的部署有怎样的关联？塞林博士揭示了以下6人在闫博士及其丈夫分别抵达美国后陆续出现的诡异行动，并抛砖引玉列出疑点和线索供战友们深挖和跟踪：
 
-从以上俄罗斯的变化可以看出，俄罗斯与中共国的全面战略协作伙伴关系已经渐行渐远。全球灭共浪潮已经掀起。6月13日闭幕的G7峰会和15日结束的北约组织峰会，都把中共列为主要威胁。中共的“一带一路”及在东海、黄海和南中国海、乃至印度洋地区的全面扩张，已经引起了西方各国在政治上和军事上的严重关注。此前的美日印澳四方安全对话，也对中共扩张造成阻遏之势。6月16日的美俄总统会面后发表的共同声明指出，即便在紧张时期，两国都能在共同目标上取得进展，包括确保战略领域的可预测性、降低武装冲突和核武战争威胁的风险。美俄双方还重申了“核子战争打不赢也不能打”的原则。综上所述，文贵先生的“以美灭共，以毒灭共”已渐入佳境。全世界正义力量的集结，形成了对邪恶中共国的围剿态势，中共的倒台已经进入了倒计时！
+1. **Ranawaka APM Perera(Mahen)**，闫博士丈夫，被闫博士指控试图杀害她，于2021年3月份持H1B签证入境美国，目前尚不清楚他赴美的目的，以及是谁在美国负责与其的对接。
+2. **Maryna Eichelberger**，美国FDA生物制品评估和研究中心成员，是马利克与Mahen的长期合作伙伴，据说就是她故意泄露了闫博士秘密入住的酒店地址，并在该酒店大堂等待了闫博士2个多小时，这是为什么呢？
+3. **马利克(Malik Peiris)**，Mahen的老板，港大P3实验室主任，在CCP的指示下，Mahen的HIB签证申请中与美国对接的科学家和官员间的沟通很可能就是他发起的。
+4. **李宗华**，居住在明尼苏达（后面纠正为佛州的杰克逊维尔），据说在闫博士抵达美国后，他就试图联系闫博士以获取她的各种信息，并将闫博士的家庭信息发送给有关部门，这极可能是CCP直接介入的行动。
+5. **Hentrik Santo**，居住在加州圣何塞，Mahen的密友，据说在闫博士抵达美国后，他也试图以Mahen的名义联系闫博士。
+6. **修大成**，居住在芝加哥，据说在闫博士抵达美国后，他也试图联系闫博士，是谁让他这么做，且其目的是什么？
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-*校对：喜马拉雅东京樱花团 / 煙火1095*
-*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
-*发布：喜马拉雅东京樱花团 / 野猫*
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03114736/IMG_2778.jpg)
+
+（Maryna Eichelberger 、李宗华、Hentrik Santo和修大成真容浮出水面）
+
+
+
+> We are just beginning to uncover the alleged activities of individuals after the arrival of Dr. Li-Meng Yan in the U.S. What is the nature of their links to Dr. Yan's husband, his presence in the U.S. & how those activities might be linked to Chinese Communist Party operations? [pic.twitter.com/5wERuLqD3Y](https://t.co/5wERuLqD3Y)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 16, 2021](https://twitter.com/LawrenceSellin/status/1405043883004858370?ref_src=twsrc%5Etfw)
+
+
+
+第2推，转发战友22r0n回应塞林博士昨天第8推的推文，有证据表明，纽约西奈山伊坎医学院 与CCP驻纽约总领事馆有直接关联，可能是中共国外交官帮助了Mahen入境美国。贴上了证据：CCP驻纽约总领事馆官网2019年9月24日报道，总领事黄屏访问纽约西奈山伊坎医学院。
+
+COVID-19 侦探22r0n提供了CCP与西奈山伊坎医学院之间关系紧密的证据，这可以解释为什么当我问Mahen是否在他们那里时，他们如此迅速地聘请了安保公司来威胁我！
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@NeverSettledCCP](https://twitter.com/NeverSettledCCP?ref_src=twsrc%5Etfw) provides evidence of the close relationship of the Chinese Communist Party & the Icahn School of Medicine at Mt Sinai, which could explain why they were so quick to hire a security firm to threaten me when I asked if Dr. Yan's husband is there. [https://t.co/XHVZbQyQ1K](https://t.co/XHVZbQyQ1K)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 16, 2021](https://twitter.com/LawrenceSellin/status/1405089329500807178?ref_src=twsrc%5Etfw)
+
+
+
+第3推，转发战友Anna回应塞林博士上一推的推文，西奈山伊坎医学院与AMMS是COVID-19疫苗研发的盟友，PLA是否有可能对您及您的家人构成威胁？证据：在2021年5月16日和17日于上海举行的“2021全球COVID-19疫苗研发峰会”上，西奈山伊坎医学院微生物学习教授兼全球卫生和新兴病原体研究所所长、美国微生物科学院院士Adolfo Garcia-Sastre，与AMMS微生物流行病研究所研究员、病毒学研究室主任秦成峰等同台演讲。
+
+COVID-19 侦探们请加入Anna战队，以密切关注西奈山伊坎医学院的研究网络，尤其是那些与PLA关联的机构，如这里提到的秦成峰和秦川等。（Adolfo Garcia-Sastre真容浮出水面）
+
+
+
+> I think it is time for [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detectives to join with [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) and take a closer look at the research associations of the Icahn school of Medicine at Mt Sinai, especially those related to the Chinese People's Liberation Army, like Cheng-Feng Qin and Chuan Qin, noted here. [https://t.co/9iEJmsWC46](https://t.co/9iEJmsWC46)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 16, 2021](https://twitter.com/LawrenceSellin/status/1405110905885577218?ref_src=twsrc%5Etfw)
+
+
+
+第4推，转发伪类人渣“短腿郭老鸭公害对策本部”回应塞林博士今天第一推的中文推：这个闫丽梦的学弟、脸书好友，第一个在闫丽梦的时间线上热情留言邀请她去玩的李宗华（贴上了当时李宗华在脸书上邀请闫博士的帖子之截图），已经被闫丽梦打成特务，并公布其照片，粘闫必倒霉似乎也已成铁律。莫非闫丽梦真如她家人所说，有精神病？有必要和所有亲人朋友翻脸吗，没人要杀你啊能不能正常点。
+
+感谢CCP控制的推特账号如此迅速向我确认了李宗华正在与他们合作，同时感谢一位警觉的COVID-19侦探对我的信息之更正：CCP科学家李宗华是在佛州的杰克逊维尔（而不是明尼苏达州）。
+
+
+
+> I thank the Chinese Communist Party-controlled Twitter account for confirming to me that Zonghua Li "Pencil Neck" is working with them. That was quick. 
+> I also thank an alert [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective for the correction. The CCP scientist Zonghua Li is in Jacksonville, Florida. [https://t.co/gt3aGZ20hE](https://t.co/gt3aGZ20hE)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 16, 2021](https://twitter.com/LawrenceSellin/status/1405209010299625472?ref_src=twsrc%5Etfw)
+
+
+
+第5推，贴上了李宗华及其老板卜国军的照片。CCP控制的推特账号“短腿郭老鸭公害对策本部”暴露了李宗华正在与他们合作，李宗华的老板卜国军至少在2017年之前一直在中共国厦门大学工作。伪类人渣“短腿郭老鸭公害对策本部”是否也让我们了解了解卜国军？（卜国军真容浮出水面）
+
+**卜国军**，现任美国梅奥医学中心神经科学系教授，是美国NIH的CDIN基金评审委员会固定成员，曾经任门大学医学院教授、博导、国家级特聘专家，1985年本科毕业于北京师范大学生物学理学专业，随后以CUSBEA学者在弗吉尼亚理工大学生物化学系学习生物化学和分子生物学，并于1990年取得博士学位，然后去到华盛顿大学做博士后研究，自1994年起历任该校讲师、助理教授、副教授，2007年升任教授兼病理生物学研究组主任，2009年起兼任厦门大学生物医学研究院客座教授。
+
+
+
+> The Chinese Communist Party-controlled Twitter feed [@balitieta1234](https://twitter.com/balitieta1234?ref_src=twsrc%5Etfw) indicates that Zonghua Li "Pencil Neck" is working with them. His boss Guojun Bu was with Xiamen University in the People's Republic of China at least until 2017. Could [@balitieta1234](https://twitter.com/balitieta1234?ref_src=twsrc%5Etfw) let us know about him also? [pic.twitter.com/jZdyIKqn5x](https://t.co/jZdyIKqn5x)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 16, 2021](https://twitter.com/LawrenceSellin/status/1405214307797905418?ref_src=twsrc%5Etfw)
+
+
+
+第6推，转发战友ann回应塞林博士今天第3推的中文推：2017年5月4日-5日，在北京市自然科学基金对外合作交流活动基金项目的资助下，举办了“2017北京癌症研究国际研讨会”，会议学术报告由美国哥伦比亚大学顾伟教授、西奈山伊坎医学院Ramon Parsons教授分段主持。他们与来自AMMS等单位的相关专家学者进行了充分的交流与讨论。贴上了该研讨会的官方报道之网页截图。
+
+COVID-19侦探ann发现了PLA与西奈山伊坎医学院之间的重大关联：“他们与来自AMMS等单位的相关专家学者进行了全面的交流与讨论”。
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@ann95657173](https://twitter.com/ann95657173?ref_src=twsrc%5Etfw) has found major links between the People's Liberation Army & the Icahn School of Medicine at Mount Sinai. 
+> "They had full exchanges and discussions with relevant experts and scholars from the Academy of Military Medical Sciences and other units." [https://t.co/QBMWWeczVo](https://t.co/QBMWWeczVo)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 16, 2021](https://twitter.com/LawrenceSellin/status/1405222874462445576?ref_src=twsrc%5Etfw)
+
+
+
+第7推，转发战友Anna回应塞林博士今天第3推的中英混合推：是的，有许多信息等待去挖掘，但从以下这些搜索关键词开始相对容易一些：西奈山伊坎医学院 军事医学科学院；西奈山伊坎医学院 南方医科大学；西奈山伊坎医学院 第二军医大学/海军军医大学；西奈山伊坎医学院 第三军医大学/陆军军医大学；西奈山伊坎医学院 第四军医大学/空军军医大学。
+
+COVID-19侦探Anna显然发现了PLA与西奈山伊坎医学院之间合作或互动的多个案例，我们应该将这些案例记录下来。
+
+
+
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) detective [@2020Gladiator](https://twitter.com/2020Gladiator?ref_src=twsrc%5Etfw) has apparently found multiple cases of collaboration or interaction between the Icahn School of Medicine at Mount Sinai and the Chinese People's Liberation Army. We should document those cases. [https://t.co/vgIZpjgn3D](https://t.co/vgIZpjgn3D)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 16, 2021](https://twitter.com/LawrenceSellin/status/1405227918175973381?ref_src=twsrc%5Etfw)
+
+
+
+第8推，我们必须联合保护闫博士！首要任务是确认Mahen的下落，将其驱逐出境并查明那些在美国帮助他的人。再次贴上了Mahen的照片。
+
+
+
+> We must work together to protect Dr. Li-Meng Yan.
+> The highest priority is to confirm the location of her husband Ranawaka Arachchige Prasad Mahendra Perera, have him deported from the U.S. and identify all those in the U.S. who assisted him. [pic.twitter.com/AQyVYgz9Hc](https://t.co/AQyVYgz9Hc)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 16, 2021](https://twitter.com/LawrenceSellin/status/1405243418809356289?ref_src=twsrc%5Etfw)
+
+
+
+第9推，CCP-PLA科学家的另一个集中地是林德赛金博尔研究所(The Lindsley F. Kimball Research Institute) ，地址：纽约第67街东310号，靠近西奈山 ！逃亡中的CCP科学家Mahen也许与此有关，PLA高级军官周育森的遗孀杜兰英就在此地，值得核查。并贴上Mahen和杜兰英的照片。
+
+
+
+> Another traditional location for CCP/PLA scientists is the Lindsley F. Kimball Research Institute, 310 E 67th St, New York, near Mount Sinai. The fugitive CCP scientist Perera may be connected to it. Lanying Du, widow of high-ranking PLA Yusen Zhou is there. Worth checking. [pic.twitter.com/G9x0QWakJa](https://t.co/G9x0QWakJa)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 17, 2021](https://twitter.com/LawrenceSellin/status/1405358113096613896?ref_src=twsrc%5Etfw)
+
+
+
+一石激起千层浪，对CCP病毒及其超限生物战完全知情的天使科学家闫博士，突破CCP布下的天罗地网并成功抵达美国境内这件事情，对于CCP来说，不亚于在他们的心脏地带中南坑投下了一个巨型核弹，因为他们戕害全世界的证据和妄图弄死并取代美国的阴谋即将彻底曝光！CCP五雷轰顶，深感末日即将来临，歇斯底里，不择手段发动自己在世界上精心打造了几十年的间谍情报网络，试图阻止闫博士的进一步行动，甚至让闫博士肉身消失，以试图挽回CCP的败局。因此，平时与闫博士没有什么联系的在美国乃至全世界的亲朋好友、同事领导都倾巢而出，都试图在第一时间跟闫博士联系上，并执行CCP安排的封口乃至灭口任务。
+
+根据战友们挖掘到的信息，窝藏Mahen的西奈山伊坎医学院和林德赛金博尔研究所都是CCP在美国科学界的重要据点，这两家科研机构都位于美国，而且距离很近。林德赛金博尔研究所是纽约血液中心旗下的一个研究机构，是CCP在美国培养病毒产业相关人才的摇篮，是CCP对美国进行科技超限战的超级掩体。而西奈山伊坎医学院却是直接与CCP-PLA-AMMS合作的急先锋，是CCP攻占美国科学界的桥头堡，它不但与敏感的政府机构CCP驻纽约总领事馆等关系密切，还与中共国境内的各种民间机构、组织、大学和公司密切合作，并毫不避讳地直接与AMMS合作研发COVID-19疫苗，与PLA各大军事院校的互动也即将浮出水面，可见西奈山伊坎医学院的肆无忌惮，为所欲为！
+
+显然，CCP驻纽约总领事馆深度参与甚至主导了Mahen入境美国的事情，极可能是奉旨处理闫博士抵达美国的善后事情之现场总指挥，是CCP试图在纽约乃至美国让闫博士肉身彻底消失的主凶。CCP驻纽约总领事馆不但完成了CCP安排的帮助Mahen入境美国之重大任务，还将CCP黑帮精髓移植到西奈山伊坎医学院，出谋划策帮助它聘用流氓安保公司，一方面威胁塞林博士对他们的揭发，一方面为窝藏Mahen的罪行接盘！
+
+为众人抱薪者，不可使其冻毙于风雪！相信同样义薄云天的灭共战神文贵先生，以及爆料革命战友、新中国联邦人、美国军方、美国人民乃至全世界所有的正义力量，已经为拯救我们人类的天使闫博士铸就了一层层铜墙铁壁，确保闫博士的安全问题万无一失！
+
+校对/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0

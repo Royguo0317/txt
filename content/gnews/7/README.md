@@ -1,27 +1,111 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港警方突擊搜查民主報紙的新聞編輯室並逮捕高管
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1329802/)
+## 【香草诗词汇】锅言灶语（二季四）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1329871/)
 
-#### 編譯：Boxinglady ( 文拳）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17120557/Screenshot-2021-06-17-9.03.10-AM.png) 圖片截自網絡
-在當地警方動員 500 多名警察突襲當地報紙《蘋果日報》的總部後，國際人權組織周四猛烈抨擊香港當局。
+**– 真视角之＂画＂外音**
 
-根據北京嚴苛的國家安全法，此次突襲導致該報的五名董事被捕。他們被指控違反該法第 29 條，該條禁止“勾結外國或外部因素危害國家安全”。勾結指控最高可判處無期徒刑。
+作者：纽约香草山健身部 澄道来了
 
-被捕者包括該報的主編羅恩（Ryan Law）和副出版商陳佩文（Chan Pui-man）。報紙出版公司 Next Digital 的首席執行官兼首席運營官張金雄和 Royston Chow 也被捕。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-這是在不到一年的時間裏對該報總部進行的第二次突襲，去年 8 月，在國安法生效一個月後，200 名香港警察衝進了新聞編輯室。
 
-該報的創始人賴智光？目前因在 2019 年的反北京、民主抗議活動中扮演的角色而入獄，他也面臨著違反國家安全法的指控。
 
-總部位于華盛頓的非營利組織香港民主委員會 (HKDC) 發表聲明，批評中共國政權和親北京的香港政府。
+连锁加盟
+小馆忙
+匠人匠心
+细品尝
 
-新聞來源: [點擊進入](https://www.zerohedge.com/geopolitical/hong-kong-police-raid-newsroom-pro-democracy-paper-arrests-executives?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+订单增了
+厨二狼烟起
+点餐多了
+外送腰包鼓
 
-本文僅代表個人觀點，不代表 Gnews 平台
+蜂鸟
+＂心血手绘＂
+美图片
+空部
+＂私人定制＂
+很下单
 
-校對發布：紫橄榄
+1.伉俪新盟
+2.以毒灭共
+3.新的一天
+4.最强饭局
+5.非常认知
+6.义工无敌
+7.音乐子弹
+8.传播正道
+9.点赞分享
+10.我爱天使
+11.心向往之
+12.今天你健身了吗？
+13.紧紧跟随
+14.登录未来！
+
+灭共蜂鸟绘平日
+铲毒厨二吟天常
+
+锅言笑不停
+灶语连连连
+
+这个算是
+命题作文
+也就是说小馆
+开始进入了作店
+最高境界
+＂私人定制＂
+环节
+
+二厨瞠目状
+主厨讲讲讲
+
+小馆认为是挑战
+更是机遇
+故这个单
+接了
+
+＂接接接一天
+就知道个接
+接你个头
+哥啥接啊＂
+
+听着
+像是
+＂翠花＂
+
+首批首道
+小馆那敢小视
+
+翠花
+上菜是
+＂厨二＂
+的声音
+
+七哥又直播了
+蜂鸟的手
+又要绘
+了吗….
+
+@爱动爱议码06172
+@工作室 老婆厨房 客厅
+@澄道来了
+
+校对/发稿：雪梨
+
+![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg]()![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
