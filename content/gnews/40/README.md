@@ -1,73 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【五月花析】阻止中共病毒疫苗的灾难——羟氯喹和伊维菌素将再立新功（二）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1329475/)
+## 6月17日文贵先生直播同步精要文字版
+` 喜联盟七哥直播组` [轉載自GNews](https://gnews.org/zh-hans/1329523/)
 
-五月花写作组 ｜ 作者：北美教练陪练 ｜ 编辑、封面、发布：灭共小宇宙
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16103413/%E4%BA%94%E6%9C%88%E8%8A%B1%E6%9E%90v%E4%B8%AD%E5%85%B1%E7%96%AB%E8%8B%972.jpg)
-### 往期链接：
+听写：
+纽约香草山农场 Dolores
+纽约香草山农场 GForever(文紫)
+波士顿五月花农场 郭先生家的Snow
+纽约香草山农场 369文驹
+罗马达芬奇农场 Shuizhuyu
+纽约香草山农场 Karen（海啸）
+纽约香草山农场 兰草（文泉）
 
-[【五月花析】阻止中共病毒疫苗的灾难——羟氯喹和伊维菌素将再立新功（一）](https://gnews.org/zh-hans/1326810/)
+校对整合：
+纽约香草山农场 GForever(文紫)
 
-* * *
+封面制作/发布：
+纽约香草山农场 369文驹
 
-（接上文）
-
-## **冠状病毒疫苗**
-
-据世界卫生组织(WHO) 的报告，全球目前至少80多家制药公司在研发CCP病毒疫苗。所有的疫苗都是以刺激人体产生CCP病毒的S蛋白（spike protein, 刺突蛋白）抗体为目的，期望当CCP病毒侵入人体后，S蛋白抗体可以作为中和抗体与病毒S蛋白结合，从而阻止病毒入侵人体细胞，预防病毒感染。按疫苗的制造原理，所有的CCP病毒疫苗可以分为以下几类：
-
-1. **mRNA疫苗**：mRNA是蛋白质合成的模板。mRNA疫苗是病毒S蛋白的（或蛋白质片段）基因。mRNA注射到人体后，在细胞内扩增繁殖，并以其mRNA为模板生产S蛋白。S蛋白刺激人体免疫系统，产生S蛋白抗体。提供mRNA疫苗的厂家包括，美国辉瑞（Pfizer-BioNTech）、美国莫德纳（Moderna）（1、2）。
-
-2. **病毒载体疫苗（Viral vector）**：用腺病毒作为载体，导入CCP病毒S蛋白基因片段。导入CCP病毒基因的腺病毒在体外培养的一种猴子肾脏上皮细胞（Vero Cell）中扩增繁殖，大规模生产。所以，病毒载体疫苗是一种活病毒。导入S蛋白基因片段的腺病毒不致病，但S蛋白基因片段却可以生产出S蛋白。S蛋白刺激人体免疫系统，产生S蛋白抗体。提供病毒载体疫苗的厂家包括，美国强生 Johnson & Johnson、英国Oxford–AstraZeneca、中共国天津康希诺公司（CanSinoBio)。
-
-3. **灭活疫苗**：这是一种经典的疫苗形式，既将CCP病毒在体外培养（在一种非洲绿猴肾上皮细胞中繁殖扩增，生产出大量活CCP病毒）。通过物理和化学（如福尔马林）的方法杀灭CCP病毒或使其失去致病性，经过系列纯化技术制备出疫苗。所以，灭活疫苗是死病毒，没有致病能力，但注射到人体后，病毒的S蛋白刺激人体免疫系统，产生S蛋白抗体。提供病毒载体疫苗的厂家包括中共国北京科兴中维公司、中共国国药中生北京公司、中共国国药中生武汉公司。
-
-4. **重组蛋白疫苗**：用基因工程的方法（CHO细胞），生产出S蛋白的受体结合区（RBD）。RBD是S蛋白的重要功能部分。将此部分串联重复设计成二聚体（RBD-dimer），用基因工程的方法（CHO细胞），生产出S蛋白的受体结合区（RBD）。注射后，刺激人体产生S蛋白抗体。这类疫苗只有中国科学院微生物研究所、安徽智飞龙科马生物制药有限公司生产（3）。
-
-## **S蛋白本身就是一种毒素**
-
-CCP冠状病毒为有包膜的RNA病毒，蛋白组成包括棘突蛋白（Spike protein，S蛋白）、囊膜蛋白（envelope protein，E蛋白）、包膜蛋白（Membrane protein，M蛋白）和核壳蛋白（Nucleocapsid protein，N蛋白）。S蛋白是感染细胞的关键蛋白，决定种属特异性和组织亲嗜性，换句话说S蛋白是迅速人传人的关键。中共科学家正是通过基因工程方法改变棘突蛋白的受体结合基序（RBM），增加棘突蛋白S1/S2之间的福林（Furin）酶切位点，使得不能感染人的野生型舟山蝙蝠病毒可以感染人（4、5）。
-
-一般认为，病毒通过在细胞内大量复制从而损伤宿主细胞。CDC、FDA及疫苗公司都认为S蛋白是无毒的，所以，所有的疫苗都是以S蛋白为抗原。或设法让人体产生S蛋白（mRNA疫苗、病毒载体疫苗），或直接注射含有S蛋白的病毒（灭活疫苗、重组蛋白疫苗），以此刺激人体产生抗体。
-
-然而，大量的研究表明S蛋白本身就是一种毒素。Byram W Bridle是加拿大安圭尔夫大学（University of Guelph）的病毒免疫教授。2020年，他获得了加拿大政府的资助，研发冠状病毒疫苗。出乎意料的是，这位疫苗教授公开反对疫苗。在一个当地的电视采访中，他说“我们以为S蛋白是很好的疫苗抗原，不会进入到血液中。但我们从来没有意识到，S蛋白本身就是一种毒素和致病蛋白，接种疫苗实则是注射了‘毒素’”。疫苗学界的一个巨大的错误是：曾经认为S蛋白不会进入血液循环。但他的研究表明，S蛋白不但进入血液，而且在多种器官和组织中积聚，包括心、脑、脾脏、骨髓、肝脏和肾上腺，尤其在卵巢中“浓度高”。动物实验表明，将纯化的S蛋白注射到动物体内，可导致动物心脏损伤和脑损伤。他强调说这是一个“巨大的错误”，并称S蛋白是一种危险的“毒素”（6）。
-
-S蛋白与ACE2（Angiotensin-converting enzyme 2，血管紧张素转换酶2）结合进入人体细胞。这是CCP病毒入侵人体细胞的关键。ACE2是一种跨膜蛋白，广泛存在于人体各种细胞，其表达具有高度的组织特异性，主要表达于心脏和肾脏的内皮细胞、肾小管上皮细胞、睾丸、胃肠道、肺脏和中枢神经系统中。ACE2催化血管紧张素I（Angiotensin I, Ang I）和血管紧张素II（Angiotensin II, Ang II）转换成Ang-(1-7)（Angiotensin-(1-7)）。Ang II 有极强的血管收缩功能，Ang-(1-7)则有极强的血管舒张功能。所以，ACE2是肾素-血管紧张素系统的调节酶，对维持心血管系统生理功能至关重要。近年来，甚至有报道用重组ACE2治疗肺动脉高压（7、8）。故此S蛋白与ACE2结合会妨碍ACE2酶催化功能，人体各个重要器官，包括心、肺、脑、肾等都会出现功能异常（9）。
-
-Salk研究院的研究人员发现S蛋白损害血管内皮细胞的线粒体，从而妨碍血管内皮细胞的功能，继而影响凝血功能，使得血液容易形成血栓。 这就解释了CCP病毒可以引起中风、猝死等一系列的心脑血管的疾病。他们用S蛋白做成类似病毒的颗粒，注射到动物体内后，可导致类似CCP病毒感染病理变化，既血管内皮的损伤尤其是肺部（10）。
-
-几乎所有CCP病毒的主要症状都与血管内皮的损伤和血液容易形成血栓有关。除了肺部病变外，心肌炎是CCP病毒感染的常见严重并发症，这可能也与病毒S蛋白结合ACE2有关，因为心肌细胞膜有大量ACE2 （11、12、13）。美国疾病控制中心疫苗安全办公室副主任Tom Shimabukuro博士最近承认疫苗导致了226个30岁以下的年轻人罹患心肌炎或心包炎（14）。
-
-（待续）
-
-* * *
-
-## 参考资料：
-
-1. [https://www.cdc.gov/coronavirus/2019-ncov/vaccines/different-vaccines/mrna.html](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/different-vaccines/mrna.html)
-2. [https://www.fairfaxcounty.gov/covid19/sites/covid19/files/assets/documents/mrna-blog-final\_chn.pdf](https://www.fairfaxcounty.gov/covid19/sites/covid19/files/assets/documents/mrna-blog-final_chn.pdf)
-3. [https://www.thelancet.com/journals/laninf/article/PIIS1473-3099(21)00127-4/fulltext](https://www.thelancet.com/journals/laninf/article/PIIS1473-3099%2821%2900127-4/fulltext)
-4. Limeng Yan et al.Unusual Features of the SARS-CoV-2 Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolution and Delineation of Its Probable Synthetic Route. Zonodo September 2020
-5. Limeng Yan et al SARS-CoV-2 Is an Unrestricted Bioweapon: A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud. Zonodo October 2020
-6. [https://www.lifesitenews.com/news/vaccine-researcher-admits-big-mistake-says-spike-protein-is-dangerous-toxin](https://www.lifesitenews.com/news/vaccine-researcher-admits-big-mistake-says-spike-protein-is-dangerous-toxin)
-7. [https://erj.ersjournals.com/content/erj/51/6/1800848.full.pdf](https://erj.ersjournals.com/content/erj/51/6/1800848.full.pdf)
-8. [https://science.sciencemag.org/content/sci/369/6508/1261.full.pdf](https://science.sciencemag.org/content/sci/369/6508/1261.full.pdf)
-9. [https://pubmed.ncbi.nlm.nih.gov/32155444](https://pubmed.ncbi.nlm.nih.gov/32155444)
-10. [https://www.ahajournals.org/doi/10.1161/CIRCRESAHA.121.318902](https://www.ahajournals.org/doi/10.1161/CIRCRESAHA.121.318902)
-11. [https:// 1/02/05/19/37/covid-19-as-a-possible-cause-of-myocarditis-and-pericarditis）https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7199677](https://www.acc.org/latest-in-cardiology/articles/2021/02/05/19/37/covid-19-as-a-possible-cause-of-myocarditis-and-pericarditis%25EF%25BC%2589https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7199677)
-12. [https://www.ncbi.nlm.nih.gov/pmc/articles/PMC425604](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC425604)
-13. [https://www.nbcnews.com/health/health-news/evidence-grows-stronger-covid-vaccine-link-heart-issue-cdc-says-n1270339](https://www.nbcnews.com/health/health-news/evidence-grows-stronger-covid-vaccine-link-heart-issue-cdc-says-n1270339)
-14. [https://www.nbcnews.com/health/health-news/evidence-grows-stronger-covid-vaccine-link-heart-issue-cdc-says-n1270339](https://www.nbcnews.com/health/health-news/evidence-grows-stronger-covid-vaccine-link-heart-issue-cdc-says-n1270339)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17105026/2021.6.17fm-1.jpg)
 
 
-* * *
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+1.今天直播18岁以下的请不要观看，主要聊成人故事, 因为有一系列的部署，我们要严肃地谈成人故事。战友们一定要记住我们是爆料革命，爆料爆料有料才能爆料，没有料没法爆。2017年419让战友们开始关注七哥、关注爆料革命，王建、海航、范冰冰1808，我们有很多料，可是战友们就对范冰冰的小视频感兴趣。
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+2.在中共洗手间发生的故事一百年都讲不完，盘古地下室有个国家安全中心的监控，全国3星级以上的监控就在这里，从最低级的摄像机开始就在偷拍监控。弗洛伊德说过人与人之间的关系就是性，不是公平不是上帝，就是性和金钱。 任何社会不谈这个是不可能的，共产党把人体最美好的东西给控制了，管天管地管还管着你的生殖器。 共产党的宣传让你忘掉了你的本能，他们谈的最多的就是不让你说的成人故事，病毒死人那么多都没有发一个黄色小视频的关注量高。
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+3.以毒灭共，以腐败灭共已经由G7帮我们完成了，再过度解释已经毫无意义。昨天拜登与普京见面是革命性的，我在两年前说过普京一定会跟美国站在一起，拜登会比川普更加灭共。G7集团我去年就说过，我说了全球会进入联合灭共、自动灭共，现在都已经形成。因为我见过的情报比你们多，否则不会有新中国联邦。政治家不能用道德来评判，政治家只谈输赢不谈道德，用道德评论政治家的都是外行。 我最初去日本，跟人家谈道德，人家非常不舒服。
 
-0
+4.一个日本基金合伙人家里收藏了很多南京大屠杀的东西，就是想见证历史。战争是很残忍的，他曾经问我如果中国人来侵略日本就能控制的住吗？二战时被强奸、被轮奸的妇女多达200多万人。日本人说，我想让你看看共产党是如何玩弄老百姓的。共产党折磨老百姓是兽性，那些小脚女人根本没有反抗能力，共产党干的事儿比日本人更残酷。长征路上发生的那些事，曾庆红的亲妈曾亲口说过，这些东西是不让看的，日本人录下来的肯定是真的。1988年湖北樊城的老人家跟我聊，说了共产党9分9灭国民党，根本不打日本。老人家给我讲中共掏窝国民党的家人，杀老人，强奸女人，抄家产，比当年的皇军都可怕，美国也提供了这些情报。沈阳和平区每年冬天在冰上踢死孩子当娱乐玩，这是西方无法理解的，周恩来、林彪都知道沈阳困死了几十万人，除了人吃人，还专门吃女性乳房，当年在沈阳困死几十万人跟日本有关系吗？这些都在日本、西方的博物馆有记载。回民马家军的头儿睡自己家的女人，共产党把马家军的妻女全部变成了军妓，就是性工具。
+
+5.有个意大利的战友叫老马，一直以来支持爆料革命，但是没有一个农场跟老马联系过，我说了以后，两个农场才找到了他。魔女是事儿多，但是她的能力无人能比，樱花团改变了爆料革命在日本的形象，这是我日本的一个官员朋友说的。日本有一个战友几年来天天发推特，我每一个都点赞，但是没有一个人联系过，说明整个欧洲和日本没有能力。战友中懂得历史的能人太多了，一定要主动去找到这些战友，农场要做的事情很多。
+
+6.老马和爱郭婶是做节目的天才，现在GTV农场的很多节目又臭又长。战友们，如果在GTV直播节目当中不能专业化、标准化、国际化，就没有未来。《年代向前看》的节目是最早在大陆非常火，911当时大陆防火墙关闭，大陆人都看台湾的不看美国的。做节目有料时不怕慢，没料要快，内容要升级。新西兰、澳喜、樱花团没有几个节目做出来。做直播，15%的讲出来，85%要做准备。 GTV所有做的节目要标准化、国际化。
+
+7.爆料革命把以毒灭共的关键工作都移交给G7集团了，我们要把精力分配一下，三分以毒灭共、三分以钱灭共、三分以黄灭共，从三口组组长杨澜、吴征的故事开始。中共历史上杀过一个人大委员长成克杰，他的女人李萍撬动了灭共的第一块砖。朱镕基说江泽民是要被人民审判的，李萍几乎睡掉了上百个部级干部，江泽民如果不杀成克杰，能多干一年。李薇睡掉了半个情报部门，几乎睡掉了中南坑，当时一个李薇灭掉了整个石油帮。周永康第一个睡的就是杨澜，第一个查周永康的就是董宏。杨澜黑森林的故事多了，她第一个爆了周永康。第二个是汤灿，也叫军中妖姬，通过她查掉了徐才厚和郭伯雄。查徐才厚武警01车牌、假03、甲A002的车牌都是谁给的，最后都查到了杨澜。当时张少春和周来正和某歌星有一腿，周来正和今天某个首长夫人是长期的关系，曾经一抱升了副局长，周来正也是通过杨澜和央视的两个主持人，介绍了首长夫人。军纪委的人说十个汤灿不如一个杨澜，杨澜的裙带关系足够绕地球一圈。战友们把汤灿、黑森林、王芳、孟建柱等这些人的裙带关系挖掘做做节目，把背后的故事挖一挖。以黄灭共可以拉动国内一半人关注，我们要提升节目品质、揭发共产党、打通买料渠道，这样可以吸引更多的人，让老百姓都知道共产党的罪恶！
+
+8.共产党的家里脏透了，大家把历史好好扒一扒，我都参加你们的节目。某公安部副部长的老婆、某军队里将军的老婆女儿都骚扰过我。这些人都很自卑，她们老公在外面乱搞心里不平衡。中共的家人都是牺牲品，徐才厚的老婆和我的故事，你们要知道了会很震惊。我们要自爆讲给中南坑听，讲给国内的人听，各农场要积极组织节目。陈峰的双休、王健的双休、特别是孟建柱的，战友们多找找，并聊聊看到的故事。各农场要分配一下时间，每个小时为一段，尽可能把直播放到各个平台，并截出短视频快速传播。要通过八卦启蒙国内民众，灭共上没有高低，只有合不合法，我们只要结果。国内的老百姓爱看八卦，让他们2分钟开始关注我们。只要让老百姓知道共产党的邪恶，他们保护家人的本能高于一切。过一阵子讲杨澜、汤灿和宋祖英的故事。
+
+
+
+（直播链接：[6月17日文贵先生直播](https://gtv.org/video/id=60cb4afbb96c69573d80efc2)）
+
+
+
+
+
++5

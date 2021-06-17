@@ -1,66 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共派出侵犯台湾领空的军机数量创纪录
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1329714/)
+## 【世事解评】用五星红旗包围台湾总统府的周庆峻因新冠去世，参与贿选的张秀叶也感染新冠
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1329750/)
 
-新闻来源：《零对冲（Zerohedge）》| 作者：TYLER DURDEN 泰勒·德顿 | 发布时间：2021年6月15日
-翻译/简评：铜豌豆 | 校对：clau | 审核：小小妹 | Page：Daoiii
-
-[!\[\]()!\[\](https://spark.adobe.com/page/OGvbFHaTxOvhw/images/7bc2ed07-2861-4140-ac09-165ba885c526.jpg?asset_id=033c670c-b857-4b53-aa69-4d2020d8d3ad&amp;img_etag=%227ba29d515a49354a51bd47324b8922fc%22&amp;size=1024)](https://spark.adobe.com/page/OGvbFHaTxOvhw/images/7bc2ed07-2861-4140-ac09-165ba885c526.jpg?asset_id=033c670c-b857-4b53-aa69-4d2020d8d3ad&amp;img_etag=%227ba29d515a49354a51bd47324b8922fc%22&amp;size=1024)
-
-**简评：**
-
-**美国总统拜登参加在英国伦敦举行的七国首脑会面的主要目的已经达成，联合了北约和欧盟的力量，无论是从七国首脑峰会达成共识来看，还是从北约发表的公告来看，欧洲会跟从拜登，把矛头指向中共国。而中共国对拜登联军，也表现出来了宁死不屈的姿态，并没有后退的迹象，高调应对。**
-
-**那中共国在台湾问题上真的要跟拜登盟军玩真刀真枪了？台湾是中共在政治上、军事上和控制全球芯片产业链上的一个重要筹码，并且中共对于台湾志在必得之心也从未掩饰过。然而，中共并没有真正的军事实力，没有抵挡联盟军队的能力。我个人认为，中共对台的强硬态度主要还是演给中国老百姓看的，中共目前面临着严重的经济溃败，这种打肿脸充胖子的行为，是在向中国老百姓证明自己还强悍。**
-
-**即使中共要对世界发起新的进攻，也会选择使用中共病毒这样的生物武器的，不会真的去硬碰硬。现在聚集在台湾海峡的各国战舰都是密密麻麻的，无论是英国还是北约，手底下的军人都有事情做了，航空母舰和各类巡洋舰天天耗费的高昂花销，当然，会毫无疑问的落到石油大亨和军工企业的腰包里，他们自然高兴。**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/OGvbFHaTxOvhw/images/56b2ba23-0c80-4fb0-bdd3-da3d97f33933.jpg?asset_id=ae0e1a75-7656-4b42-9fc5-4a2a92ebd70d&amp;img_etag=%2246aa35b47aa1395bf3ee847d51310860%22&amp;size=1024)](https://spark.adobe.com/page/OGvbFHaTxOvhw/images/56b2ba23-0c80-4fb0-bdd3-da3d97f33933.jpg?asset_id=ae0e1a75-7656-4b42-9fc5-4a2a92ebd70d&amp;img_etag=%2246aa35b47aa1395bf3ee847d51310860%22&amp;size=1024)
-
-**这种气势汹汹的台湾海峡中的舰船对峙，除了吓唬台湾，让台湾人胆战心惊以外，对于各方来说都是有百利而无一害的。如果哪一天美国拜登政府真正要彻查中共病毒了，如果哪一天欧洲派一群病毒学家进到中共武汉病毒实验室和其他的P2、P3实验室要调查中共病毒来源了，如果哪一天没有人再揪着中共病毒自然起源假说、自然进化假说、实验室泄漏假说，不再揪着RaTG13这个假序列大做文章的时候，才是中共末日真正到来的时候。**
-
-**原文翻译：**
-
-## 中共国告知北约：“我们不会袖手旁观”后，向台湾派出创纪录的28架战机
-
-**中共选择在周一北约刚刚发表公报、将中共国首次列为美欧军事同盟及全球秩序稳定的核心安全“挑战”之后这个时间节点，发出了这个明确无误的信息，看来是对西方的警告。中共国人民解放军周二创纪录的派出了28架战斗机，飞入了台湾防空识别区。**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/OGvbFHaTxOvhw/images/dc1c8792-b222-40b4-bb17-35c3743055e0.jpg?asset_id=f90fac00-e07f-428d-bb52-62be6103bb10&amp;img_etag=%2245c473819c466cd24165114d1e64d5db%22&amp;size=1024)](https://spark.adobe.com/page/OGvbFHaTxOvhw/images/dc1c8792-b222-40b4-bb17-35c3743055e0.jpg?asset_id=f90fac00-e07f-428d-bb52-62be6103bb10&amp;img_etag=%2245c473819c466cd24165114d1e64d5db%22&amp;size=1024)
-
-拜登上任以来的几个月时间里，中共国几乎每天都有飞机及轰炸机群飞近或飞入台湾有争议的空域。而最近的这次，就发生在拜登在欧洲、为反北京政权、形成更强硬的统一战线和争取盟友支持的时候。今年3月，中共军方派出了创纪录的20架飞机，其中包括4架具有核打击能力的轰炸机。但这周二出动的28架次飞机，是自台湾国防部开始公开统计入侵状况以来，数量最多的一次。
-
-据美联社报道，“台湾国防部部长称，这些飞机中包括了各种类型的战斗机，有14架歼—16和6架歼—11的战机，以及轰炸机。”该报道进一步指出，“中共国这次展示武力，是紧接着七大工业国集团首脑在周日发表了呼吁和平解决台湾海峡问题以及强调和平与稳定重要性的声明之后。”
-
-作为回应，中共国外交部发言人赵立坚星期二抨击七国集团故意“干涉中国内政”。他还说：“中国维护国家主权、安全和发展利益的决心是坚定不移的。”
-
-北约在稍晚些时候发出的公报中表现出了更加强硬的态度，指出中共国这种“板上钉钉的挑衅行为，对基于规则的国际秩序、对与同盟安全相关的地区，显示出了系统性的挑战。”
+香草山教育部 桃花水母
 
 
 
-> BREAKING: Taiwan Defense Ministry says 28 Chinese PLA warplanes entered its ADIZ this morning. Largest known recent incursion. [https://t.co/h0ngSh3RVf](https://t.co/h0ngSh3RVf)
-> — Jesse Johnson (@jljzen) [June 15, 2021](https://twitter.com/jljzen/status/1404747186701668352?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16121240/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
 
 
 
-推特翻译：爆炸性新闻：台湾国防部称28架中共国人民解放军战机今天上午进入台湾非军事区。这是最近已知的规模最大的一次入侵事件。https://t.co/h0ngSh3RVf—— Jesse Johnson (@jljzen) June 15, 2021
+《环球时报》记者范凌志报道，台湾知名统派人士78岁的周庆峻因新冠于6月16日下午13时左右因感染新冠成大白肺缺氧，在台北市中兴医院去世。记者直接采访了张秀叶，该新闻被中共各大媒体转载。
 
-中共解放军这次创纪录的入侵，无疑是对西方大国的进一步“回应”，而这些大国越来越多的将新的全球安全优先事项定义为“对抗”崛起的中共国。
+新冠去世者很多，中共何以青睐周庆峻？搜索了一下，有关报道还真不少。
 
-这一事件，同时也是在周二美国航母编队刚刚进入南中国海之后发生的。该打击群中的罗纳德·里根号航空母舰，由夏洛号导弹巡洋舰和哈尔西号导弹驱逐舰陪同。该舰艇群于周二进入了争议严重的南中国海水域以开展海上安全行动。
+1. 周庆峻是中华爱国同心会（后改组为中华爱国同心党）会长，知名的统派。多次组织反台独活动。2005年10月1日，台“总统府”前升起五星红旗进行反制。自2014年10月开始，每月在台湾“总统府”前举行一次升五星红旗的仪式，到现在已有28次。图为在台湾“总统府”前凯达格兰大道上升起的五星红旗。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17115725/WhatsApp-Image-2021-06-16-at-2.49.24-PM.jpeg)
+2.周庆峻于2018年10月1日以庆祝中共“69周年国庆日”的名义，在台北市中山区某日本料理餐厅举办餐会，而当时身为台北市议员候选人的张秀叶却亲自上台拜票恳求支持。因涉嫌于2018年九合一大选期间举办餐会贿赂选民，于5月18日被台北地院依违反《选罢法》分别判处有期徒刑3年6个月和3年5个月，并褫夺公权3年。
 
-🔗[原文链接](https://www.zerohedge.com/geopolitical/china-sends-record-28-fighter-jets-toward-taiwan-after-telling-nato-we-wont-sit-back?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+3.周庆峻未经检察院许可，在网页开设政治献金账户进行募款，其中来自中国大陆中资捐款达189万8,820元。负责管理爱国同心会及中国民主进步党账务的张秀叶将这笔金额入册。两人因违法收受中资政治献金，被分别追加判处5个月和6个月刑期。判决结果出来后，他们均已提出上诉。不料当日周庆峻就发现自己已经染上新冠肺炎，“第四天医生就告诉我，他的肺已经白了。”
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+4. 据大纪元新闻报道，2015年 台湾媒体《中国时报》及《联合报》的四分之一版面上，刊登了周庆峻队法轮功团体及前理事长张清溪的道歉启事。
 
+中共报道中，也提到了二人被判刑，认为是对反台独立场的疯狂打压。就在最后还不忘宣传中共疫苗。在周庆峻去世的早上，还叮嘱张秀叶说，”等身体好一点，就赶紧带大家到大陆打疫苗！因为台湾根本没有疫苗可以打。”  “周会长的不幸，完全是被民进党当局错误的疫情防控措施耽误了！”自己因为“病症较轻”，民进党当局并没有做更多的措施，只是让她住进防疫旅馆“自生自灭”，“没有医生，也没有药，呼吸不到新鲜空气，要看病还得提前两天预约，预约过后也不会来看你，只是电话问下症状，然后配药给你。所以岛内很多人说住进防疫旅馆就等于住进殡仪馆！”
 
-编辑：【英国伦敦喜庄园编辑部】
+张秀叶目前已被允许回到家中隔离，她告诉记者，目前有朋友在联署向民进党当局提告，由于自己无法出门，只能在身体允许的情况下再一起向民进党当局提告：“好端端的人，就因为民进党当局烂到底的防疫措施而遭遇不幸，我们要告民进党当局谋财害命，置人民生死于不顾！同时申请赔偿，必要的时候，我们还会发起抗议活动。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/OGvbFHaTxOvhw/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/OGvbFHaTxOvhw/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+在台海关系微妙之际，张秀叶所言与中共媒体如出一辙，拿了中共的钱，把五星红旗插到总统府，拿了中共的钱，去贿赂选民，感染中共病毒，却说是因为防疫的错。
 
+参考资料：《环球时报》https://taiwan.huanqiu.com/article/43Z1aUBXWzO
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0
