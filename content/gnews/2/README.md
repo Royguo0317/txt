@@ -1,15 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年6月17日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1329624/)
+## 美俄峰会重塑稳定关系，对消灭中共达成共识
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1329734/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+台湾宝岛农场 Amitofu
 
-Bureaucratic governments all over the world. It is a balanced diplomacy when the people pay the price, even their lives. This is irresponsible under the circumstances where the virus is extremely threatening to humans! The Communist Party must immediately and unconditionally accept the governments of the world. In cooperation with the investigation of the virus, this is the person killed by the coronavirus. with family. The most responsible approach to those who are threatened by viruses, everything is time. effectiveness. The continued bureaucratic operation will kill more people… the truth. action. It is lifted. solve. The necessary foundation for virus threats.
+美国总统拜登和俄罗斯总统普京6月16日在瑞士日内瓦湖的拉格兰奇别墅会谈3小时。拜登和普京以及美国国务卿布林肯、美国国安顾问苏利文和俄罗斯外长拉夫罗夫、克里姆林宫发言人培斯科夫、俄国的乌克兰与叙利亚特使，和双方的五名官员出席会议。根据文贵先生表示普京和拜登随行的两三位都是支持新中国联邦的人，**透露出拜登总统不论是G7、北约和欧盟峰会、美俄总统会谈主要目标，就是共同面对中共生物病毒超限战后，一系列消灭中共的行动中达成共识**，表明在全球消灭中共威胁的紧张时刻，美俄双方将建立双边战略稳定对话，双方有能力在灭共目标上取得进展，以确保战略层面的可预期性，更说明**俄罗斯的行动将会与美国、欧盟、北约和日澳印达成一致，来面对中共将发动的核战争威胁和军事冲突。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17114602/UR-346x225.jpg)消灭中共达成共识(Mikhail METZEL/SPUTNIK/AFP)
+笔者认为孤立中共政权、消灭中共是世界国家的重大责任， 5月20 日美国国务卿布林肯与俄罗斯外交部长拉夫罗夫，在冰岛雷克雅未克召开北极理事会的机会就进行美俄双边外长会谈，双方在疫情、气候变化、伊朗北韩核问题、阿富汗上有建设性共同合作的利益，**但主要动机是双方为了牵制中共的合作力量**。中共希望俄国一起推动去美元化，以逐步摆脱西方控制的国际支付体系，降低制裁带来的风险，但中共释放新冠状病毒，对各国的经济冲击和危害，却促使美俄欧北约联合灭共，北约秘书长斯托尔滕贝格曾提及，北约对俄罗斯的政策属于双轨做法，一方面威慑和防御，另一方面进行有意义的对话。此次美国对俄罗斯的政策采取类似的作法，**先由布林肯与拉夫罗夫视双方议题****，****采共同合作利益和对抗中共的策略****，特别在乌克兰与白俄事件后，还能重塑美俄关系的可预测性与稳定性。同时也能看到文贵先生和支持新中国联邦的隐形战友****，****在消灭中共力量的团结上做出巨大的贡献****。**本文仅代表个人立场
 
-[【2021年6月17日】文贵先生盖特原文](https://getome.com/post/pwh64)
+祈祷万佛万神加持文贵先生与新中国联邦战友灭共事业顺利
 
-**喜联盟Gnews编辑部**
+資料來源:文贵先生、新中国联邦
+
+审核:Athena雅典娜 发布:Amitofu
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
 0
