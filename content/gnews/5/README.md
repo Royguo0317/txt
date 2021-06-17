@@ -1,20 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共网约车巨头滴滴出行正接受反垄断调查
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1329152/)
+## 美国众议院议员提出支持台湾法案
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1329220/)
 
 #### 文章撰写:【默凡】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17075001/324dg4E4JZMW5erg54623KXTKK7IHE3Y.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17081601/dfg43atic436.reuters.com_.jpg)
 
-路透香港6月17日报道：据三名知情人士称，中共国市场监管机构已开始对滴滴出行展开反垄断调查。
+路透社6月17日报道：美国众议院外交事务委员会亚洲小组委员会的民主党和共和党领导人代表Ami Bera和Steve Chabot将提出《台湾和平与稳定法案》，以增加美国对台湾的支持。
 
-这三位消息人士中有两位表示，中共国市场监管机构国家市场监督管理总局（SAMR）正在调查滴滴是否使用不公平手段挤压弱小的竞争对手的行为。这三位消息人士表示，中共监管机构还在审查滴滴核心网约车业务所使用的定价机制是否足够透明。
+Bera议员接受采访时说：“希望我们能够在众议院以两党协作的方式通过一些事情，我认为这是我们可以共同表态的领域。”
 
-截至目前，滴滴出行公司拒绝就此事进行回应，市场监管总局也没有任何回应。
+台湾外交部对此表示感谢，并表示将密切关注该法案的进展。
 
-参考文章：[EXCLUSIVE China’s IPO-bound Didi probed for antitrust violations – sources](https://www.reuters.com/business/autos-transportation/exclusive-chinas-ipo-bound-didi-probed-antitrust-violations-sources-2021-06-17/)
+参议院于6月8日以68比32的投票结果通过了《美国创新和竞争法案》，这是一项价值约2500亿美元的法案，旨在提高美国与中共国的竞争能力，包括对半导体和电信设备的大规模支持.
+
+该法案还呼吁美国机构分析如何在经济上帮助台湾，该法案还承认台湾是国际社会的重要贡献者，并呼吁拜登政府提交一项促进台湾“有意义地参与”国际组织的战略。
+
+参考文章：[Pushing against China, U.S. lawmakers plan pro-Taiwan bill](https://www.reuters.com/article/us-usa-china-taiwan-congress/pushing-against-china-u-s-lawmakers-plan-pro-taiwan-bill-idUSKCN2DS2BP)
 
 本文仅代表作者本人观点，不代表Gnews平台
 
