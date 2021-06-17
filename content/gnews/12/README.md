@@ -1,111 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】锅言灶语（二季四）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1329871/)
+## 拜登、奥巴马认为中共国崛起，美国衰落是“不可避免的”
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1329852/)
 
-**– 真视角之＂画＂外音**
+#### 编译：Boxinglady ( 文拳）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17132021/Screenshot-2021-06-17-10.19.59-AM.png) 图片截自网络
+前国务院发言人谈拜登为何不承认与习近平的友谊。
 
-作者：纽约香草山健身部 澄道来了
+前国务院发言人摩根奥尔塔格斯（MORGAN ORTAGUS） 在“福克斯与朋友”节目中抨击拜登总统和前总统奥巴马对中共国的处理方式。拜登在周三的新闻发布会上反驳了他和中共国国家主席习近平是“老朋友”的说法。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
+摩根奥尔塔格斯 （MORGAN ORTAGUS）：承认他在中共国问题上存在战略误判。直到五年前，我们还在谈论反恐战争，以及其他在国际舞台上具有重要意义的事情。但在特朗普总统真正开始打击中国共产党的威胁之前，世界上大部分地区，美国大部分地区，两个政党都对这种威胁睡着了。所以你在巴拉克奥巴马总统和拜登副总统的八年里看到了对中共国非常温和的[政策]。
 
+他们的政策是转向亚洲，默许中共国必然崛起，美国必然衰落的事实。当我们上任时，我们拒绝了这个理论。我们说我们不相信我们必须亲吻中国。我们不相信他们会不可避免地崛起以接管世界，而我们只会悄悄地衰落。
 
+所以我们拒绝了这个前提，所以当你承认你们是老朋友，当你承认对中共国失策了，就说明川普对中共国政策是正确的。
 
-连锁加盟
-小馆忙
-匠人匠心
-细品尝
+观看下面的完整采访
 
-订单增了
-厨二狼烟起
-点餐多了
-外送腰包鼓
+视屏链接：[FOXNEWS](https://www.foxnews.com/media/biden-obama-chinas-rise-inevitable-ortagus)
 
-蜂鸟
-＂心血手绘＂
-美图片
-空部
-＂私人定制＂
-很下单
+新闻来源:[点击进入](https://www.foxnews.com/media/biden-obama-chinas-rise-inevitable-ortagus)
 
-1.伉俪新盟
-2.以毒灭共
-3.新的一天
-4.最强饭局
-5.非常认知
-6.义工无敌
-7.音乐子弹
-8.传播正道
-9.点赞分享
-10.我爱天使
-11.心向往之
-12.今天你健身了吗？
-13.紧紧跟随
-14.登录未来！
+本文仅代表个人观点，不代表 Gnews 平台
 
-灭共蜂鸟绘平日
-铲毒厨二吟天常
-
-锅言笑不停
-灶语连连连
-
-这个算是
-命题作文
-也就是说小馆
-开始进入了作店
-最高境界
-＂私人定制＂
-环节
-
-二厨瞠目状
-主厨讲讲讲
-
-小馆认为是挑战
-更是机遇
-故这个单
-接了
-
-＂接接接一天
-就知道个接
-接你个头
-哥啥接啊＂
-
-听着
-像是
-＂翠花＂
-
-首批首道
-小馆那敢小视
-
-翠花
-上菜是
-＂厨二＂
-的声音
-
-七哥又直播了
-蜂鸟的手
-又要绘
-了吗….
-
-@爱动爱议码06172
-@工作室 老婆厨房 客厅
-@澄道来了
-
-校对/发稿：雪梨
-
-![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg]()![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+校对发布：紫橄榄
 
 0
