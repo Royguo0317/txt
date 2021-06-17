@@ -1,47 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 且看中共如何粉饰中俄、中美关系
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1329210/)
+## 【香草诗词汇】登录未来
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1329397/)
 
-撰稿：天鵝
+**–财富就在弹指之间–
+–登录者笃跟随拥未来–**
+
+手绘图：纽约香草山设计部 蜂鸟
+诗作者：纽约香草山健身部 澄道来了
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17081011/4FB7C7CA-0B1C-4ED6-ABD8-86D085FCB54D.png)
-（图片来源 unsplash）
 
-2021年6月16日美国总统拜登和俄罗斯总统普京在日内瓦进行了首次面对面会晤。虽然会议时长只有寥寥数小时，但是效率却远远高于中（共）国的会议，这充分展现了西方国家的务实主义。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17091524/27-%E7%99%BB%E5%BD%95%E6%9C%AA%E4%BE%86.jpg)
 
-**美俄达成合作**
+未来必来
+不是请不请
+一根筋
+绝无开断
 
-会晤结束后，双方表示将恢复向对方国家首都派驻大使，普京表示，俄罗斯和美国对核稳定负有共同责任。拜登表示，“美、俄领导人共同承担着管理两个强大而自豪国家之间关系的独特责任，这种关系必须稳定和可预测”。双方的联合声明[1]表示“即使在紧张时期，他们也能够在我们的共同目标上取得进展，即确保战略领域的可预测性，减少武装冲突的风险和核战争的威胁。美国和俄罗斯将在不久的将来共同开始一个综合的双边战略稳定对话，该对话将是深思熟虑的和强有力的”。
+登录必录
+不是做不做
+一钥匙
+登录开启
 
-自此次会晤开始，美俄双方其实已经达成了合作，双方同意面对面会晤已经充分说明了一切。两国都充分考虑到了各自国家的利益，稳定对话机制的建立，预示着美俄双方不再需要依靠什么中间人、情报、猜想等来作为主要的决策依据。双方的官方沟通机制已经恢复。可见美俄两大世界级的军事集团，在近几年发生冲突的可能性已经几乎没有，合作共存已经成为了必然。
+财富在哪里
+银行
+贪官
+富二
+在也不在
 
-**中俄关系何去何从**
+财富是什么
+钞票
+美元
+黄金
+是也不是
 
-外交部发言人赵立坚在2021年6月15日例行记者会上[2]回应深圳卫视记者提问时说到，“中俄团结如山，友谊牢不可破；双方共同抵制“政治病毒”；两国在涉及彼此核心利益问题上坚定相互支持，政治互信和战略协作水平持续巩固和提升“。
+财富
+时代钢需
+灭共时代钢需
+Himalaya.exchange
 
-中共在美俄会晤之前高调吹风中俄关系，不惜抛出“世代友好“、”缔约初心“、”牢不可破“等肉麻的词语。但是如今美俄两国会晤已经结束，双方的合作机制已经达成，中共挑拨俄美关系的企图已经失败。中共国大庆的日子越来越近，但是在国际上的盟友却是越来越少了。
+财富
+科技附产
+数字科技附产
+H coin H dollar
 
-**从来不是老朋友**
+值遇他
+靠缘份
+是运
+笃定登录
 
-会晤结束后，拜登在一个单独的记者发布会上，被问及，“您多次提到您与习主席在一起的时间比任何其他世界领导人都多。那么，您是否会在某个时候打电话给他，老朋友对老朋友，要求他开放中（共）国，允许世卫调查人员查明 COVID-19（中共病毒） 真相？”。拜登回答到：“我首先要澄清，我们彼此虽然很了解，但我们并不是老朋友，我们仅仅是工作关系。这个事情的后果…… 世界对中（共）国的态度已经转变了。其实有些事情也不必向世界人民解释，他们都能看到结果——中方真的有查清（病毒）真相的姿态吗？”
+拥有他
+靠智慧
+是命
+财富未来
 
-拜登这段采访印证了郭先生一直和我们说的，全世界的国家政府、领导人早已经知道了中共病毒的真相；以毒灭共谁也挡不住，什么时候灭共只是时间问题，形式如何的问题。战友们，让我们且看中共如何粉饰中俄、中美关系，共产党你完了！
+@爱动爱议码06171
+@懒床边挠不停
+@澄道来了
 
-(文章内容仅代表作者观点)
+校对/发稿：雪梨
 
-*编辑：cindy*
+![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg]()![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-参考消息：
+**更多资讯，更多关注**
 
-[1]U.S.-Russia Presidential Joint Statement on Strategic Stability
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/16/u-s-russia-presidential-joint-statement-on-strategic-stability/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/16/u-s-russia-presidential-joint-statement-on-strategic-stability/)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-[2] 2021年6月15日外交部发言人赵立坚主持例行记者会
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-[http://ke.china-embassy.org/chn/fyrth/t1883951.htm](http://ke.china-embassy.org/chn/fyrth/t1883951.htm)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
 0

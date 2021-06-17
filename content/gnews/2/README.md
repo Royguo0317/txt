@@ -1,45 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美俄联合声明，中共国成弃子
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1329502/)
+## 2021年6月17日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1329624/)
 
-【日本东京方舟农场】撰稿：MIMI    校对：青山依旧
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-据《大纪元》6月16日报道，美国总统拜登和俄罗斯总统普京周三（6月16日）在瑞士日内瓦进行首次会晤，交换了约三个半小时的意见。强调紧张时期、双方也要保持战略领域的可预测性，并减少武装冲突风险和核战争威胁。
+Bureaucratic governments all over the world. It is a balanced diplomacy when the people pay the price, even their lives. This is irresponsible under the circumstances where the virus is extremely threatening to humans! The Communist Party must immediately and unconditionally accept the governments of the world. In cooperation with the investigation of the virus, this is the person killed by the coronavirus. with family. The most responsible approach to those who are threatened by viruses, everything is time. effectiveness. The continued bureaucratic operation will kill more people… the truth. action. It is lifted. solve. The necessary foundation for virus threats.
 
-这是拜登上任以来的首次美、俄首脑面对面会谈，在会谈结束后，双方发表联合声明。
+[【2021年6月17日】文贵先生盖特原文](https://getome.com/post/pwh64)
 
-白宫发出的联合声明说，“我们注意到美国和俄罗斯均已表明，即使在紧张时期，也能在我们的共同目标上取得进展，共同目标包括确保战略领域的可预测性、减少武装冲突风险和核战争威胁。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17102702/46BC3687-050C-4B16-A960-9B540AA8C381.jpeg)
-
-“最近《新削减战略武器条约》（New START）延期体现了我们对核军控的承诺。今天，我们重申核战争不可能赢，也决不能打的原则。
-
-“根据这些目标，美国和俄罗斯将在不久的将来共同开始一项综合的双边战略稳定对话，该对话将是经过深思熟虑的、强有力的。通过这次对话，我们寻求为未来的军备控制和减少风险措施奠定基础。”
-
-美俄两国拥有世界90%以上核弹头，此次美俄会晤两国领导人旨在降低武装冲突和核战争风险，为未来抑制核战争奠定基础，实现战略稳定。
-
-此次会晤，美俄联合声明中俄罗斯已经释放出信号，武装冲突风险和核战争威胁方面是和美国站在一起的。众所周知全球武装组织背后的金主是中共，核武器方面除了美国和俄罗斯，接下去可能中共国拥有的数量是最多的。中共原本是想联俄抗美，但经过这次的美俄会晤后，很显然中共的老大哥俄罗斯已经抛弃中共，和美国牵手。
-
-再看看中共国关于美俄会晤新闻的标题：
-
-“美俄首脑会晤未取得任何重大突破,深层次矛盾难解”
-
-“美俄首脑会晤!拜登挑拨中俄关系,普京:俄罗斯不认为中国是… ”
-
-“俄罗斯传来三个消息,普京为首脑会晤做准备,称不抱有期待…”
-
-都是类似暗示美日会谈失败的文章，一方面像一个怨妇不停地在抒发其负面情绪，另一方面忽悠墙内的老百姓或者一些不了解真相体制内的人。
-
-笔者还注意到一个现象，就是在美俄会晤之前以及会晤期间，出现了大量关于拜登年老答非所问、被某某媒体问急了、闹出国际笑话之类的文章、推文及视频。感觉和当时川普总统在位、黑川普总统的手法如出一辙。正如文贵先生所说，中共要对付一个人就要先把他搞臭，他们现阶段就一直在抨击拜登总统年纪大、脑子不清楚之类的。目的就是在舆论上带风向、对拜登总统产生负面影响。
-
-他们越是使用这种舆论战的方式黑拜登总统，越是体现出这次的事件对他们的伤害有多大，恰恰证明了这就是他们的弱点、正是他们所害怕的地方。
-
-中共能有今天的地位，最主要是因为钱和国际政治地位。“中欧协定”的叫停，表明后续补充“弹药”的钱袋子没有了。如今再加上“美俄会晤”，现在连政治后盾也没有了。郭先生一直说7月17日是一个重要的日子，笔者查了下事件，2001年7月16日是中俄元首签署《中俄睦邻友好合作条约》，此条约有效期为20年，正好是今年7月到期。到时候会不会续签呢？让我们在下个月拭目以待吧！
-
-注：本文仅代表作者观点
-
-参考链接：[https://www.epochtimes.com/gb/21/6/16/n13026817.htm](https://www.epochtimes.com/gb/21/6/16/n13026817.htm)
+**喜联盟Gnews编辑部**
 
 0

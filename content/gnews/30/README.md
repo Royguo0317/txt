@@ -1,37 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳洲热点】抛弃中共国，澳洲英国签订自贸协议
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1329146/)
+## 保罗议员：福奇要代替人们思考，剥夺人们自主决定的权利
+` 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1329262/)
 
-####  **了解澳洲时事动态，尽在雅典娜【澳洲热点】**
+原视频链接：
+[https://rumble.com/vieay7-sen.-rand-paul-raises-new-questions-about-faucis-advice-to-follow-the-scien.html](https://rumble.com/vieay7-sen.-rand-paul-raises-new-questions-about-faucis-advice-to-follow-the-scien.html)
 
-#### 素材：小红帽
-
-#### 作者/编辑：文泓
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17074823/Picture1-26.png)
-图片来源：News.com.au
-
-G7峰会刚落下帷幕，美俄总统日内瓦会谈成为媒体焦点。然而，盘点G7峰会，澳大利亚才是最大的受益方。前有七国集团为澳洲对抗中共国背书[【澳洲热点】七国集团支持澳大利亚对抗中共国挑战 – GNEWS](https://gnews.org/zh-hans/1326203/)，后有法国总统公开为澳洲发声[【澳洲热点】法国总统支持澳洲，中共急出招 – GNEWS](https://gnews.org/zh-hans/1326767/)。在6月15日，澳洲与英国又签署了自由贸易协议。
-
-本地媒体评价，现在澳洲与中共国的双边贸易每况愈下，以前过度依赖中国市场，现在澳洲需要在世界范围内寻找新的市场。澳洲拥有优质的葡萄酒、大麦、牛羊肉和农产品，这次签署协议方便澳洲产品进入英国市场，受惠于两国传统而深厚的历史渊源，此时签署协议绝对双赢。
-
-时间翻回到2014年，11月17日，总加速师在澳洲信誓旦旦宣布“实质性结束中澳自贸协定谈判”，次年6月17日，两国正式签署《中澳自贸区协定》，承诺未来五年两国给予对方最惠国待遇，双方主要出口产品零关税。中共国在澳洲买买买，成为澳洲第一大贸易伙伴，两国度过了一段蜜月期。期间因华为5G、香港反送中、人权话题，两国陆续发生一些摩擦。进入2020年，当中共病毒大爆发之际，澳洲在西方国家中首先站出来，要求对中共病毒起源进行彻底调查，最终让中共彻底翻脸出招。
-
-澳洲出口到中共国的优质煤炭，在中国海关质量检测中多次不达标，满载800万吨澳煤的货船滞留在中国港口不能卸货；澳洲龙虾遇到繁琐的清关程序，数吨的龙虾死在清关途中；澳洲进口奶粉，海关认为不符合中共国标准（含铁量过低），九千多罐澳洲奶粉被中国海关退货；澳洲进口木材中检查出大量有害生物，作销毁处理；澳洲大麦、牛肉、红酒低价倾销构成不正当竞争，加惩罚性关税等。
-
-澳洲社会各界也在深刻反省，与一个没有共同价值观、不遵循国际秩序的流氓国家签订的协议根本得不到任何保障，去世贸组织打官司也是徒劳。本次七国峰会强调“维护自由和开放社会的民主价值”，以及“基于规则的世界秩序”，本质上就是针对中共国。
-
-而澳洲与英国的自由贸易协定，澳洲农业部门将极大受益，低关税向英国出售葡萄酒（零关税）、肉类、乳制品和大米；而对澳洲而言，包括苏格兰威士忌和迷你库珀、捷豹汽车在内的一系列英国商品也将更加便宜；英国公司将可以不受限制地进入澳洲的政府采购市场，澳洲公司能够竞标近 50 亿英国政府服务项目。
-
-遵守国际秩序是每一个加入成员国的义务，中共国既不遵守又千方百计寻找规则漏洞，最终将被文明世界抛弃，回到闭关锁国时代。本次澳洲与英国签订自贸协定是文明世界对独裁国家的一次反击，未来世界各国联合起来“以毒灭共”，中共必将穷途末路走向灭亡。
-
-（本文仅代表作者本人观点，于Gnews平台无关）
-
-参考链接：
-
-1、[UK free trade deal expected to curb Australia’s overdependency on China](https://www.skynews.com.au/details/_6259091242001?gclid=CjwKCAjwwqaGBhBKEiwAMk-FtOysbM__MVwEZ82hpESFNlMNMWexjwVPhcFFlFSbbB0n_pcH4iwc-hoCYAgQAvD_BwE)
-
-2、[These are the big winners from the British free trade deal](https://www.afr.com/politics/federal/these-are-the-big-winners-from-the-british-free-trade-deal-20210616-p581f1)
-
-+3
+0

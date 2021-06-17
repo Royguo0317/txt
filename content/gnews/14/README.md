@@ -1,10 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 面对议员马特∙盖茨关于闫博士的质询，联邦调查局局长克里斯托弗∙雷以不确定是否为保密信息为借口，拒绝回答
-` 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1329331/)
+## 【西媒头条】第3期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1329476/)
 
-原视频链接：
-[https://www.c-span.org/video/?512336-1/fbi-director-wray-testifies-oversight-bureau](https://www.c-span.org/video/?512336-1/fbi-director-wray-testifies-oversight-bureau)
+- 作者：蚂蚁兄弟
+
+
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+
+**西班牙2021年6月17日电/西喜社——**
+
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17100159/Captura_de_pantalla_2021-06-17_a_las_15.00.40.png)
+
+发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 0
