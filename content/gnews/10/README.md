@@ -1,27 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港警方突擊搜查民主報紙的新聞編輯室並逮捕高管
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1329802/)
+## 【热点播报】美国将采取措施阻止中共渗透联合国
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1329818/)
 
-#### 編譯：Boxinglady ( 文拳）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17120557/Screenshot-2021-06-17-9.03.10-AM.png) 圖片截自網絡
-在當地警方動員 500 多名警察突襲當地報紙《蘋果日報》的總部後，國際人權組織周四猛烈抨擊香港當局。
+作者：香草山美食部 蓝天大海
 
-根據北京嚴苛的國家安全法，此次突襲導致該報的五名董事被捕。他們被指控違反該法第 29 條，該條禁止“勾結外國或外部因素危害國家安全”。勾結指控最高可判處無期徒刑。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-被捕者包括該報的主編羅恩（Ryan Law）和副出版商陳佩文（Chan Pui-man）。報紙出版公司 Next Digital 的首席執行官兼首席運營官張金雄和 Royston Chow 也被捕。
 
-這是在不到一年的時間裏對該報總部進行的第二次突襲，去年 8 月，在國安法生效一個月後，200 名香港警察衝進了新聞編輯室。
 
-該報的創始人賴智光？目前因在 2019 年的反北京、民主抗議活動中扮演的角色而入獄，他也面臨著違反國家安全法的指控。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17123001/30-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E7%BE%8E%E5%9B%BD%E5%B0%86%E9%87%87%E5%8F%96%E6%8E%AA%E6%96%BD%E9%98%BB%E6%AD%A2%E4%B8%AD%E5%85%B1%E6%B8%97%E9%80%8F%E8%81%94%E5%90%88%E5%9B%BD.jpg)
 
-總部位于華盛頓的非營利組織香港民主委員會 (HKDC) 發表聲明，批評中共國政權和親北京的香港政府。
+据[大纪元](https://www.epochtimes.com/gb/21/6/17/n13028049.htm)6月17日报道：6月16日，美国驻联合国大使琳达‧托马斯-格林菲尔德（Linda Thomas-Greenfield）出席了美国国会举行的一场有关中共国渗透联合国情况的听证会。托马斯-格林菲尔德大使在听证会上作证时表示，美国政府将发挥其在联合国的影响力，对抗中共国的“恶意影响”，以阻止北京对联合国的进一步渗透。同时，美国也将在联合国内连同盟友，一起呼吁调查新冠病毒的起源，并追责中共侵犯人权的问题。
 
-新聞來源: [點擊進入](https://www.zerohedge.com/geopolitical/hong-kong-police-raid-newsroom-pro-democracy-paper-arrests-executives?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+托马斯-格林菲尔德指出，中共采取了一系列行动，让其代表人物担任了经济和社会事务部、国际电信联盟、粮农组织等三个联合国机构的最高职位，并在联合国秘书处内获得了初级职位。同时她还批评中共发动疫苗外交，利用疫苗向一些比较贫穷的国家施压。
 
-本文僅代表個人觀點，不代表 Gnews 平台
+为了有效对抗中共国对联合国的影响，托马斯-格林菲尔德进一步表示，美国需要支付联合国会费，这是对抗中共国的第一步，否则无法与其竞争。其次，美国需要招聘更多的年轻人才担任联合国的初级职位，并填补更多高级职位的空缺。
 
-校對發布：紫橄榄
+听证会持续了四个多小时。托马斯-格林菲尔德回答了四十多名议员提出的许多问题。其中最多关切的问题是，中共迫害新疆少数民族的行为和“有力而透明”的调查病毒来源。
+
+由此可见，美国当下正在积极采取一系列步骤，强化其在联合国的话语权和领导地位，努力改变目前中共国对联合国下属组织和机构腐蚀和渗透的现状。早在今年三月，佛州共和党众议员古斯‧比利拉基斯（Gus Bilirakis）就曾提出一项动议，敦促联合国采取必要和适当的行动，将中共国从联合国安理会中除名。文贵先生也不止一次提到，联合国在未来一定会将中共国除名，而让真正代表十四亿中国人民的民选政府进驻。文贵先生以及千千万万背后的战友们正在积极推动此项进程。新中国联邦人都将是这一伟大进程的参与者和见证人。
+
+校对/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
