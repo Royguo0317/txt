@@ -1,78 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【圣城传声筒】七哥纪念6·16，盖文谈香港（视频）
-` MOShongkong` [轉載自GNews](https://gnews.org/zh-hans/1327442/)
+## 【各抒己见】美俄首脑会谈“中共”被特别重视!
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1328774/)
 
-中文整理/撰稿：紐約香草山香港部 文恩
-英文翻譯：紐約香草山香港部 MILI
+作者：喜马拉雅东京樱花团 / 待命（文晓）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17041932/pasted-image-0-13.png)
+[图片来源](https://news.yahoo.co.jp/articles/cf20a52b3d92662584c5ab27f645901b6f1bb200/images/000)
 
+16日，美俄两国首脑率团在瑞士的日内瓦举行了首次会谈。这是拜登就任美国总统后的第一次美俄首脑会谈，也是普京就任俄罗斯总统后第五次与别国首脑会谈。
 
+会谈后，两位总统分别在新闻发布会上强调了本次会谈的成就。普京总统表示：俄罗斯不希望发生新的冷战。拜登先生是一位经验丰富的国家领导人，我们彼此使用 “相同的语言”。拜登总统表示：领导人之间面对面会谈的意义重大，是不可替代的，我们用于会谈的时间是充分的。我认为有一个真正的前景，我们可以大大改善我们两国之间的关系，而不放弃我们的任何价值观和原则。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01205717/s2.jpg)
+双方都坦诚了两国关系已处于最低状态，并就人权等问题上的理解差异做了意见交换。特别值得一提的是，拜登在谈到俄罗斯的情况时说：正在受到中共的施压，中共不惜一切代价急于保证自己的大国地位。对此，普京总统重申，俄罗斯是一个核大国和一个重要的国家。
 
+英国广播公司驻莫斯科记者萨拉•雷恩斯福德在谈到普京总统时说，他的意图是表明，虽然俄罗斯的经济规模比美国小，但俄罗斯仍然是一个重要的大国，这就是拜登总统来与他交谈的原因。
 
-視頻製作：紐約香草山香港部義工；視頻字幕：紐約香草山香港部 彩虹橋
-直播中文記錄（Chineses Version）：
+综合以上信息，可见拜登总统是希望俄罗斯能成为灭共的力量。文贵先生在直播中也提到，参加会谈的成员当中有我们的战友。俄罗斯代表团包括外长拉夫罗夫、普京的外交事务顾问尤里•乌沙科夫、拉夫罗夫的副手谢尔盖•里亚布科夫、俄军总参谋长格拉西莫夫•瓦列里•瓦西里耶维奇将军、俄罗斯驻美国大使阿纳托利•安东诺夫等。美国方面，除拜登外，国务卿布林肯、国家安全顾问杰克•沙利文、负责政治事务的副国务卿维卢岚、美国驻俄罗斯大使约翰•沙利文以及国家安全委员会俄罗斯问题专家埃里克•格林和斯特戈斯•卡卢迪斯陪同拜登参会。其中哪位是我们的战友不重要，重要的是我们的战友已遍天下。爆料革命队伍正在以迅猛之势发展壮大。
 
-六月十六號
+本次美俄首脑会谈，中共成了隐形重点，双方心照不宣，“中共”被特别重视！世界规模的灭共同盟已日趋形成，共产党你完了！
 
-尊敬的兄弟姐妹好，戰友們好啊！
-
-六月十六號是兩年前香港運動最關鍵的一天啊。
-
-想起來時間真快，但是香港聖城的這種戰鬥精神和這些手足們、英雄們的這種事蹟，那是永遠不會（被）忘記。這也是為什麼香港人贏得了世界的尊重。
-
-現在還在香港的人大概未來會到英國倫敦，會有一百萬人吧，（他們）會移居到倫敦。我們會在倫敦有一個香港人的組織，我們要把所有香港人組在一起。
-
-在英國，我們的關聯公司，還有我們的基金（也在）聘用香港人，單其中一家就有三十幾個（香港）人，加上其他幾家（公司），（共有）上百個人。而且（公司里的）每個人對香港人的評價都是非常非常得高，這就是香港人贏得了世界的尊重。
-
-香港是中國人的聖城，香港人是中國人走向法治、民主、文明的一個最重要的參考標準和標誌，確實了不起！
-
-那麼，香港人的奮鬥對人類的影響、對中國人未來追求法治民主、信仰自由的影響，都是意義深遠、意義重大的！
-
-英文翻譯版（English Version）：
-
-June 16th, 2021.
-
-Dear brothers and sisters, fellow fighters,
-
-Two years ago, today, June 16, was the most critical day of Hong Kong movements.
-
-Time goes really fast. But the fighting spirit of Holy Hong Kong and the heroic deeds of our Hong Kong brothers and sisters will never be forgotten. This is why the people of Hong Kong have earned the respect from the world.
-
-There will be one million Hong Kong people moving to London in the future. We will also have an organization for Hong Kong people in London.
-
-There are over 30 Hong Kong employees in our affiliated companies and quite a few hundred in our fund companies in Britain. Everyone in our companies speaks very very highly of Hong Kong employees. That’s how they have earned the respect of the world.
-
-Hong Kong is the holy city of our Chinese people. Hong Kong people are the most important reference standards and marks for the Chinese people to move towards the Rule of Law, Democracy, and Civilization. They are really extraordinary.
-
-The impact of Hong Kong people’s strives on human beings and the implications for our future pursuit of Rule of Law, Democracy, and Freedom of Beliefs are profound and significant.
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/09115247/M6.jpg)
-
-視頻製作：紐約香草山香港部義工
-
-視頻字幕：紐約香草山香港部 彩虹橋
-
-編輯/校對/發稿：Irene木木
-
-**更多資訊，更多關註**
-
-[**紐約香草山農場GTV****–****香草山之聲**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[紐約香草山農場GTV-MOS TALK香草山訪談](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[紐約香草山農場Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[紐約香草山農場Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**紐約香草山農場 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
-
-
-
-+1
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+*校对：喜马拉雅东京樱花团 / 文小白*
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
+*发布：喜马拉雅东京樱花团 /老黑*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/04060740/IMG_2779.jpg)
+0

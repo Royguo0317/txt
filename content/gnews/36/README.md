@@ -1,21 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年6月16日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1327068/)
+## 【小象搬运】美俄会谈期间，俄国前经济顾问开始直接点名舟山蝙蝠病毒
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1328266/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 （**文惜）
+小象：就在昨天美俄会谈之时，克里姆林宫前经济顾问Andrey Illarionov，个人LiveJournal专栏里俄文全文转载印度媒体对闫博士的采访。直接点出舟山蝙蝠病毒，标题直接写出“真正的病毒来自舟山”并且贴出了闫丽梦博士的照片。除了全文装载之外，也写下评论和总结：
 
-The American people and the Japanese people, I hope the Communist Party can wake up soon, and it will be true sooner or later. Carry out an inhuman and despicable and devastating attack on two countries
+看起来闫博士的报告和其他材料，特别是她的第三份报告，发起了当前的冠状病毒浪潮——对COVID19及其起源的新调查公开讨论，已经包括：
 
+– 来自美国情报部门的新报告；
 
+– 共和党向美国国会提交的报告；
 
+– 拜登命令特殊服务部门和科学界在 90 天内进行新的调查；
 
+– 对 Fauci 的数千封电子邮件的分析，表明他从 NIH 预算中资助了 UIV 的冠状病毒研究；
 
+– 确定美国国家预算通过 Dazak 领导的生态健康联盟公司发送的金额，用于研究加强冠状病毒在 UIV 中的功能（生态健康联盟总共从美国国家预算中收到 1.23 亿美元，包括6500 万美元来自美国国际开发署，3900 万美元来自五角大楼，1900 万美元来自福奇领导的美国国立卫生研究院）；
 
+– 取消 Facebook 对放置允许冠状病毒实验室来源的材料的审查；
 
-[【2021年6月16日】文贵先生盖特原文](https://getome.com/post/pw61e)
+小资料：安德烈·尼古拉耶维奇·伊拉里奥诺夫（俄罗斯：АндрейНиколаевичИлларионов，1961年出生9月16日）是俄罗斯的经济学家，前经济政策顾问，俄罗斯总统普京从2000年4月至2005年1月，他担任该中心的全球高级研究员2006 年至2021 年在华盛顿特区卡托研究所的自由与繁荣。
 
-**喜联盟Gnews编辑部**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001133/8-6.png)
 
-+2
+参考链接：
+
+[https://aillarionov.livejournal.com/1231985.html](https://aillarionov.livejournal.com/1231985.html)
+
+图片来源：网络
+
+整理撰稿：蓝精灵
+
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
+
+0

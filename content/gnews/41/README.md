@@ -1,156 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 看武汉实验室及其伙伴如何 策划从全球大灾难中浑水摸鱼
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1327012/)
+## 看不见的炸弹 台山核电厂事故频出
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1328260/)
 
-新闻来源：《 国家脉动（The National Pulse）》| 作者：Natalie Winters | 发布时间：2021年6月13日
-翻译/简评：Future | 校对：clau | 审核：小小妹 | Page：Daoiii
+**台湾宝岛农场 ** 天灭中共
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Xy3HjHCiy0Mfu/images/406c40d5-661c-4afa-99ea-969564b71527.jpg?asset_id=cda02ab8-29d2-4bc8-95f8-13ce36a1bdcb&amp;img_etag=%22adf0294d453774fe66752bf194399c24%22&amp;size=1024)](https://spark.adobe.com/page/Xy3HjHCiy0Mfu/images/406c40d5-661c-4afa-99ea-969564b71527.jpg?asset_id=cda02ab8-29d2-4bc8-95f8-13ce36a1bdcb&amp;img_etag=%22adf0294d453774fe66752bf194399c24%22&amp;size=1024)
+相信大部分香港人在看到，美国CNN关于台山核电厂可能发生核泄漏事故的报导时，第一反应不是惊讶，而是哀叹：「又出事了。」这座距离香港约130公里的核电厂，自兴建之初就不断被爆光各种严重的安全隐患和机件故障。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16234517/%E6%93%B7%E5%8F%96617.jpg)（图片来源；众新闻）
+**一旦爆发泄漏，或成史上最严重核灾**
 
-**简评：**
+法国核安全机构在2015年4月揭发一座兴建中的核电厂，其核反应堆压力容器顶盖和底部坚韧度存疑，有突然碎裂的风险，并且其钢铁碳含量超标36%，要求承建商作进一步检测。承建商其后表示，起初以为只是钢铁表层有问题，后来发现情况或者比想像中更严重，因此对采用相同设计的台山核电厂发出警示。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16234525/%E6%93%B7%E5%8F%96617-0.jpg)（图片来源：网络）
 
-**早在2018年4月，武汉病毒研究所与其合作者以及“功能增强”的倡导者拉尔夫•巴里克博士就在会议中向与会者建议如何在下一场大流行病中“赚钱”。**
+环保组织「绿色和平」驻港办负责人联合德国核议题专家布尼尔立即向港府去信查询，唯港府坚称核电厂距离香港较远，即使泄漏，香港的风险甚低。
 
-**巴里克是“蝙蝠女”石正丽的“长期合作者”之一，他支持有争议的功能增强研究并积极游说，此外，还向武汉实验室提供了人源化小鼠。**
+由于事态严重，绿色和平决定召开记者会。布尼尔指出，台山核电厂正兴建两座欧洲压水式核反应堆，每座装机容量高达1,750兆瓦，是全球最大核反应堆，一旦爆发严重幅射泄漏，可能酿成史上最严重核灾。
 
-**可见，这些打着科学研究幌子的研究人员背后有着不同的动机和邪恶的目的，为了赚钱，不择手段，他们的灵魂早已出卖给了魔鬼。无论他们选择哪一个行业，也许都不会为人类社会的进步作出贡献。爆料革命揭露的关于这次超限生物武器战争的种种内幕，唤起了越来越多民众和国家对于真相的追寻，在解决疫情和拯救人类的过程中，现有的社会系统架构和运作机制需要重新审视和查漏补缺。**
+另外，针对港府的回应，布尼尔反驳到，当年切尔诺贝利核灾发生后，放射性物质扩散范围超过100公里，福岛核灾期间，当局预计的最恶劣情况，是要疏散距离福岛第一核电厂160公里以外的居民。因此，如台山核电厂的压力容器确认有问题，距离仅130公里的香港，势必无路可走。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Xy3HjHCiy0Mfu/images/2b772209-f817-43cc-b766-8a5eae9b5d2e.jpg?asset_id=fcd27e1a-f241-4d13-bd1b-5b1ceae26306&amp;img_etag=%22629e6659f55c77a630ddaabd8a57049f%22&amp;size=1024)](https://spark.adobe.com/page/Xy3HjHCiy0Mfu/images/2b772209-f817-43cc-b766-8a5eae9b5d2e.jpg?asset_id=fcd27e1a-f241-4d13-bd1b-5b1ceae26306&amp;img_etag=%22629e6659f55c77a630ddaabd8a57049f%22&amp;size=1024)
+**中广核承认核电厂使用涉假零件**
 
-**原文翻译：**
+法国方面继续就此事进行调查，最后发现生产核电厂组件的Areva公司有约400件组件涉嫌安全测试造假，而其中大部分组件的流向就是中国。
 
-## 观看：2018年视频显示，武汉实验室的合作伙伴正在策划如何从一场大流行病中赚钱
+中广核随后在澳门就事件作出回应，承认台山核电厂有使用Areva生产的涉假零件，但仍坚持无安全问题，一切符合标准。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Xy3HjHCiy0Mfu/images/ffae3327-1ff7-4f6c-9517-0ffb21d1d4c3.png?asset_id=69323e7f-815f-46b4-bbf3-9fcc61c4a276&amp;img_etag=%22fe6480d8d499941a19692a2cef4ed83b%22&amp;size=1024)](https://spark.adobe.com/page/Xy3HjHCiy0Mfu/images/ffae3327-1ff7-4f6c-9517-0ffb21d1d4c3.png?asset_id=69323e7f-815f-46b4-bbf3-9fcc61c4a276&amp;img_etag=%22fe6480d8d499941a19692a2cef4ed83b%22&amp;size=1024)
+当时，民主派阵营的立法会议员梁继昌、莫乃光都相继去信要求中广核提供具体资料，甚至接触法国领事馆，希望寻求法国介入规管的途径。
 
-在2018年的一次会议上发言时，武汉病毒研究所与其合作者以及“功能增强”的倡导者拉尔夫•巴里克博士向与会者建议如何在下一场大流行病中“赚钱”。
+彼时，中共只手遮天的能力无远弗届，社会各界一切的努力都得不到配合。可惜，掩盖了问题，危机却仍在。
 
-巴里克——他参加过武汉病毒研究所的会议，并被武汉的“蝙蝠女”石正丽称为其“长期合作者”之一——在2018年4月于北卡罗来纳大学教堂山分校举办的一次活动中发表了上述言论。巴里克——他将解除对功能增强研究的禁令描述为“关键的”——还向武汉实验室提供了人源化小鼠，以便可能用类似SARS的冠状病毒进行有争议的研究。
+**机件破裂+机组故障+人为失误=监管机构批准**
 
-巴里克在2014年游说反对暂停功能增强研究时宣称：“功能增强代表了作为公共卫生准备和响应重要工具的一种方法。”
+2018年5月，中共国家核安全局为台山核电厂1号机组进行首次临界前的核安全检查，发生至少6项机件故障及多处人为失误。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Xy3HjHCiy0Mfu/images/1b22f966-a442-43e2-88fd-7b7d9e9e99d8.png?asset_id=be905312-0f03-48d2-90b5-2fb0f3cd1ee6&amp;img_etag=%22dfea98b3e17744e56bd00edbc9c97b30%22&amp;size=1024)](https://spark.adobe.com/page/Xy3HjHCiy0Mfu/images/1b22f966-a442-43e2-88fd-7b7d9e9e99d8.png?asset_id=be905312-0f03-48d2-90b5-2fb0f3cd1ee6&amp;img_etag=%22dfea98b3e17744e56bd00edbc9c97b30%22&amp;size=1024)
+而在上年（2017年）12月，1号机组曾被揭露除氧器在测试时破裂，核岛内部的蒸汽发生器顶盖被验出碳含量超标，亦有可能因未能承受高压而破裂，导致核泄漏。中广核承认存在「局部缺陷」，但在1月仍然照常进行预备检查测试，期间又发现了至少20项问题，其中竟然连机组装入核燃料前的职责和分工都未有厘清。
 
-[【点击查看视频】](https://rumble.com/vihi61-wuhan-lab-partner-defends-gain-of-function-research..html)
+对此，台山核电厂给出回覆是，已经全部完成监管机构提出的要求和措施，并经监管机构批准，1号机组完成了首次临界活动，我们坚持「安全第一、质量第一」。
 
-**图片内容翻译：**
+2019年8月，1号机组的通风系统在运行状态时，安全厂房两个送风风门，不能进行远端控制，当局称只是0级事故，对公众无构成任何影响。
 
-总结
+2019年9月，1号机组出现电网短路，反应堆自动停运。官方又称是「0级」事件，对公众无构成任何影响。
 
-- 危险的时期
+**看不见的炸弹**
 
+这几年，环保组织都有保持对该事件的关注，甚至建议学校推荐学生去阅读一本叫《看不见的炸弹》的日本绘本，希望公众不要忘记这个重大的安全隐忧。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16234533/%E6%93%B7%E5%8F%96617-1.jpg)
+作者在序章中这样写道：「当福岛第一核电厂发生事故后，在灾情根本无法掌握的情况下，为何政治人物、官员跟学者都异口同声宣称『没有立即的危险』？用空言假话掩饰将来可能发生的最严重后果，对世人来说真的公平吗？如果可能的话，我希望能够书写一个任何地方都可能发生的核电厂灾变的故事，让大家意识到：无论在日本或世界上任何地方，核电厂灾变随时都可能再度发生，绝非事不关己的遥远新闻……」
 
-1. 用四种高致病性病毒对人群进行取样
-2. H5N1、H7N9、MERS-CoV、埃博拉病毒
+绘本描述，「既得利益者总是以『生活便利性』来哄骗民众，去接受核能这看不见的炸弹，而当灾变发生时，却提不出对策，任由灾害失控。」
 
+日本尚且如此，何况在兴建之初就毫无保障的中共核电厂。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16234542/%E6%93%B7%E5%8F%96617-2.jpg)（图片来源；苹果日报）
+最可怕的是，这样看不见的炸弹还有很多，仅就香港来讲，50公里以内的地方就有大亚湾及岭澳两所核电厂，200公里范围内，还有6座核电厂、至少26组核电机组，其中，即将落成的惠州核电厂预计发电量将高达6,000兆瓦，其6个一号机组还是中共自主研发，想想就令人不寒而栗。
 
-- 国际旅行：
+以上观点仅代表笔者
 
+**「资料来源」**
 
-1. 允许新出现的病毒立即在全世界传播
-2. 只会变得更快——更频繁
+1、[【距港仅90km】惠州获准建核电厂广东6大「计时炸弹」围港｜苹果日报](https://hk.appledaily.com/china/20190114/IP4TZ3RE6WY5APHN456EYSYUAM/)
 
+2、[环团警告台山核电厂有碎裂危机批港府罔顾市民安危｜苹果日报](https://hk.appledaily.com/local/20160419/5T5EHII62EY4IQIWUNOLSR4PYU/)
 
-- 响应时间：压缩了
+3、[台山核电厂承认机组完成「首次临界」称获监管机构批准｜苹果日报](https://hk.appledaily.com/local/20180619/VLSRQV4PLGMH2RXTA2ODZKANDY/)
 
+4、[台山核电厂外电网前日故障反应堆曾停运厂方：对公众无影响｜苹果日报](https://hk.appledaily.com/local/20190919/RB6QPSNK72M6D2SXZ7KOZMAT2Q/)
 
-1. 在未来的疾病爆发之前，存在制定广泛有效的干预措施的策略
-2. GOF（功能增强）是公共卫生准备的一个重要工具
+审核：早不稻仁
 
+校对：主翅膀下
 
-在他2018年的演讲“想象下一次流感大流行——并预防它！”中，他展示了一张题为“全球大灾难：存在的机会。”的幻灯片。这张幻灯片概述了什么类型的股票和行业在埃博拉病毒爆发期间飙升，他用它来推测关于如何“在下一次大流行病中赚钱”的投资建议。
+发布：little liu
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-他指出，“我想告诉你们好消息。总会有赢家，对吗？因此，如果你们想做好准备并在下一次大流行病中赚钱，如果这是你们想要做的，那就购买危险品套装和防护服制造商的股票，或者那些为该特定大流行病制造抗病毒药物公司的股票。”
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-巴里克补充说，上述行业和股票“很可能会表现得相当好”，然后强调说，“实际上有共同基金为大流行病做准备。”
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-“有些产品做得很好。比如1918年的口罩，如今也是如此。”他建议说。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Xy3HjHCiy0Mfu/images/77f98851-aa33-45bd-aaba-f5ee17115810.png?asset_id=78cec00c-7646-448f-b285-e29f1d187b25&amp;img_etag=%2226cd507da633177a94cfd5132d2f2886%22&amp;size=1024)](https://spark.adobe.com/page/Xy3HjHCiy0Mfu/images/77f98851-aa33-45bd-aaba-f5ee17115810.png?asset_id=78cec00c-7646-448f-b285-e29f1d187b25&amp;img_etag=%2226cd507da633177a94cfd5132d2f2886%22&amp;size=1024)
-
-**幻灯片翻译：**
-
-全球大灾难：机会是存在的
-
-埃博拉疫情爆发：市场下跌8-10%（已恢复）
-
-**赢家：**
-
-Lakeland industries (LAKE) 上涨76%： 危险品防护服制造商
-
-NewLink Genetics (NLNK) 上涨75%： EBoV疫苗
-
-Alpha Pro Tech (APT) 上涨5% 防护服
-
-Tekmira Pharmaceuticals (TKMR) 上涨200% (埃博拉病毒药物)
-
-**输家**
-
-Royal Caribbean Cruises (RCL)和Carnival (CCL) 下跌20%
-
-航空公司（UAL, AAL）：下跌15-20％
-
-标准普尔500指数（1918-1919年大爆发）：1918年下跌24.7%，1919年上涨8.9%\*
-
-英国股票市场（1918-19年大爆发）：1918年上涨25.4%，1919年上涨27.0%\*
-
-\*一战结束后，情况变得复杂了
-
-1918年大流行病
-
-在谈到下面的幻灯片（“大流行病：机会”）时，巴里克认为，“大流行病确实会带来机会。”
-
-“在社会动荡时期，人们有机会获得政治利益、经济利益和个人利益，这很可能会发生。”他补充说。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Xy3HjHCiy0Mfu/images/4dfac434-8ffd-4ee4-b732-c0b2e78e6c0d.png?asset_id=6207ff5d-0e49-4f4c-9ef9-6425a3429d36&amp;img_etag=%225df888048156fbc50e344351274e915b%22&amp;size=2560)](https://spark.adobe.com/page/Xy3HjHCiy0Mfu/images/4dfac434-8ffd-4ee4-b732-c0b2e78e6c0d.png?asset_id=6207ff5d-0e49-4f4c-9ef9-6425a3429d36&amp;img_etag=%225df888048156fbc50e344351274e915b%22&amp;size=1024)
-
-**幻灯片翻译：**
-
-**大流行病：机会**
-
-- **互联网：**
-
-
-1. 误导性的故事
-2. 神奇的治疗方法
-3. 阴谋论
-4. 购买或订购自己的DNA疫苗和递送系统（200美元）。
-
-
-- **政治利益**
-
-
-1. 混乱是一个阶梯 经济利益
-
-
-- **人事利益**
-
-
-1. 科学界（伦理学）
-2. 广泛的技术：几十种实验性疫苗/可用（数周）。
-3. 在细胞培养中起作用的ID实验药物（数周）（再利用）
-4. 未经FDA批准，缺乏真正的安全测试
-5. 为了保护你所爱的人，你会怎么做？
-6. 大学被指责为囤积可以拯救生命的药物和疫苗？
-
-
-#### 观看视频：
-[!\[\]()!\[\](https://spark.adobe.com/page/Xy3HjHCiy0Mfu/images/301ea1c9-0785-4b5c-a580-5a9fbac9a4a3.png?asset_id=fdd4857e-b34c-4970-870d-14a4adfaf308&amp;img_etag=%22d006cd16315da731e671aa6cb6067b54%22&amp;size=1024)](https://rumble.com/vih9x3-2018-wuhan-lab-partner-scheming-on-how-to-profit-from-a-pandemic..html)
-[【点击查看】](https://rumble.com/vih9x3-2018-wuhan-lab-partner-scheming-on-how-to-profit-from-a-pandemic..html)
-
-🔗[原文链接](https://thenationalpulse.com/breaking/wuhan-lab-partner-scheming-on-pandemic-profits/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Xy3HjHCiy0Mfu/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/Xy3HjHCiy0Mfu/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
-
-
-
-0
++1

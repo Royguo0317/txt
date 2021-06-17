@@ -1,11 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫丽梦博士质疑谁给英国官员提供病毒起源的错误信息？
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1327043/)
+## 【有声读物】响鼓秀场（七）
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1328284/)
 
-06/13/2021 闫丽梦博士质疑：是谁给英国官员提供信息，说COVID-19最可能的起源不是实验室？那是中共的信息误导战的一部分吗，还是说他就是为中共工作的一份子？
+配音：香草山录音组 Swr拥抱太阳
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
+
+
+才下＂Freedom Tower＂
+仍然忙碌的
+场记
+又应邀
+来到＂休斯顿星光＂
+的艺术主场
+
+好吗
+这顿赶
+还没
+稳当妥定
+又被问三围
+
+
+
+**文字版原文：[【香草诗词汇】响鼓秀场（七）](https://gnews.org/zh-hans/1318101/)**
+
+作者：纽约香草山健身部 澄道
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

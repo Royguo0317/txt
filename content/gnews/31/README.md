@@ -1,61 +1,349 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】技术“迭新”，骚扰电话乱象难清
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1327093/)
+## 【深度科普】文医谈病毒防护、治疗与疫苗的合辑
+` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1328249/)
 
-香草山写作组  鹰(文言)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16121240/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+Gnews病毒真相小组 整理
 
 
 
-环球网6月16日转载浙江在线报道，11日中共工信部要求以阿里巴巴、京东、拼多多等主流电商平台规范其营销短信的发送行为。
 
-2018年7月，中共工信部等3部门联合印发《综合整治骚扰电话专项行动方案》，开展为期一年半的骚扰电话整治工作。然而，2019年一季度用户共举报骚扰电话达7528.37万次（同比增长25.59%），一季度骚扰电话投诉举报量超20万，是18年一季度的3倍。虽然2019年全国识别和拦截各类骚扰电话次数从18年的449.3亿次降至260.9亿次，2020年更有14%的降幅，但根据360出具的《2020年中国手机安全状况报告》，2020年360截获移动端新增恶意程序样本约454.6万个，是2019年180.9万的2.5倍。移动端各种盗取用户信息APP的不降反增，从侧面反映出“骚扰电话产业”的势头不减。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16121317/Screen-Shot-2021-06-16-at-12.06.30-PM.png)
-2021年5月中共工信部发布一季度垃圾信息投诉情况报告，其中平安银行、广大银行、人寿保险、平安保险因投诉量过多被通报（平安保险和平安银行连续多个季度大量被投诉）。报告中的骚扰电话主要来源中未提及上述主流电商平台，而垃圾短信来源主要来自京东、橙心优选，除此以外还有金融理财（中国平安、还呗居前）、社交APP、网游、网贷（有钱花、360借条）、保险推销（中国人保、360保险）等条目。也就是说，虽然中共工信部在“严打”垃圾短信乱象，但力度依旧较弱。作为骚扰电话和垃圾短信主力的平安银行和保险仅是“点名”通报，却对电商平台的“短信扰民”高度监管。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16121300/Screen-Shot-2021-06-16-at-12.06.35-PM.png)
-与骚扰电话“迸发”相对应的是2018年和2019年国内呼叫中心行业的快速发展。截至2019年底，7904家企业进驻呼叫中心行业。呼叫中心业务收入也从2018年的439亿元，增至2019年的687亿元，2020年呼叫中心行业市场规模更接近700亿元，并仍处于增长状态。同时，2019年的呼叫中心行业累计投资规模继续以15%增速达到2432亿余元。呼叫中心市场的逐渐发展壮大成为了骚扰电话的重要基石。智能语音的普及和电话推销机器人的“问世”极大的降低了骚扰成本；而电话推销机器人的随意更改呼入号码归属地以及每月固定去除（电话）标记优势更增大了骚扰电话的拦截难度。简而言之，虽然骚扰拦截电话数量有所降低，但民众被推销电话“全覆盖”的现状依旧未得到改善。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16121242/Screen-Shot-2021-06-16-at-12.06.39-PM.png)
-熟知用户手机号码是骚扰电话的前提。虽然近年来中共工信部都在加大整治力度，但违规窃取用户信息的手机APP却屡禁不止。2021年来，中共互联网信息办发布多轮超限收集用户信息的APP名单，名单不但很长，连腾讯、搜狗、淘宝等多家大型企业都纷纷上榜。“窃取用户信息”行为的泛滥也助涨了骚扰电话产业的壮大。对于个人用户而言，虽然《民法典》中提及民众可追诉骚扰者的民事责任，但由于骚扰电话取证难（包括录音、公证等方式），定责和所求赔偿更是费时费力，所以依旧普通民众只能停留在举报这一环。呼叫行业的壮大，使窃取用户信息和推销电话等黑产依旧“有利可图”，骚扰乱象依旧难以根除。
 
-新闻来源：
+## mRNA疫苗可能产生的灾难后果(二)
 
-工信部出手！这些电商短信不能再骚扰你https://china.huanqiu.com/article/43YaoBOFJTh
 
-疯狂的电话推销机器人：一天拨号上千次，未婚被推销孩子辅导班https://cj.sina.com.cn/articles/view/5993531560/1653e08a801900yzx9?from=finance
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010656/db053f2425daead87e1b56a16573264e.jpg)
 
-骚扰电话下降14% ，2020中国手机安全状况报告出炉https://3g.163.com/dy/article/G1R6U4P10511A6IR.html
 
-骚扰电话频繁，我们怎么办？个人信息是如何被泄露出去的？https://new.qq.com/omn/20210318/20210318A0AJEZ00.html
+[GTV视频链接](https://gtv.org/video/id=60c2758b8ce6da73c41878a2)
 
-骚扰电话越拦越多！数据显示运营商整改效果“差评”https://tech.sina.com.cn/t/2019-07-11/doc-ihytcitm1241198.shtml
 
-谁在给我们拨打骚扰电话、发送垃圾短信？平安、广发、民生等多机构被点名http://finance.sina.com.cn/jinrong/yh/2021-05-31/doc-ikmyaawc8631927.shtml
 
-2020年中国呼叫中心行业市场分析：市场规模将近700亿元 投资规模将超2400亿元https://bg.qianzhan.com/trends/detail/506/200422-38d1c50d.html
 
-117款APP违规收集个人信息被通报http://finance.ce.cn/stock/gsgdbd/202105/20/t20210520\_36573897.shtml
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-编辑/校对/发稿：正义的小新
 
-**更多资讯，更多关注**
+## mRNA疫苗可能产生的灾难后果(一)（主讲：文 医 嘉宾：千叶草大姐 北京人）
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010550/495c2e00ce1563cde4dff38d31c996b2.jpg)
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[GTV视频链接](https://gtv.org/video/id=60b0001eb7dff64ac985223b)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-0
+
+
+
+
+## 公众对CCP病毒抗体的认知误区 (主讲：文 医 嘉宾：千叶草大姐 北京人)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010441/b041bba1a36dc28383f885cb54f9e326.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60a6c6a1db13300ca55cc364)
+
+
+
+
+
+
+
+## “解毒”功能增强的CCP病毒——多重方式绞杀细胞（主讲：文 医 嘉宾：千叶草大姐 北京人） 第二部分
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010253/dc8e290d54744547f6aab74f6199995c.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=609dae95db13300ca5538508)
+
+
+
+
+
+
+
+## “解毒”功能增强的CCP病毒——多重方式绞杀细胞（主讲：文 医 嘉宾：千叶草大姐 北京人） 第一部分
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010127/abe5687d2b874d84a9b1ac73b18ed0cb.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=609d9b3bdb13300ca5537a08)
+
+
+
+
+
+
+
+## 2021-04-28 “醫E” 語中的 第19期, CCPVirus”功能增强 “长驱直入核心器官·搞弱搞残细胞功能”
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005857/da1fee9c0f4ccc9df06c0e1436cacfb1.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6089da7e6c00a14130e1c3a5)
+
+
+
+
+
+
+
+## 2021-04-21 医生视角解读“CCPVirus”神经毒性功能的增强
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005759/d7e15d55985b0adda4a01e0b084d973e.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6080a1577e083973a72e226f)
+
+
+
+
+
+
+
+## 2021-04-14 ”醫E“語中的第17期 閻博士報導 醫生視角解讀CCP病毒功能增強
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005441/a45ed5a1f07feb9fac3efd4ca67b0258.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60776a5662d629309ee40528)
+
+
+
+
+
+
+
+## 2021-04-07 ”醫E“語中的第16期 閻博士報導 醫生視角解讀CCP病毒功能增強
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005546/604841836655d9be0e2a615f20683b46.png)
+
+
+GTV视频链接 [Part1](https://gtv.org/video/id=606e2c846e11a756eddb5713) [Part2](https://gtv.org/video/id=606e30dd6e11a756eddb5a44)
+
+
+
+
+
+
+
+## 2021-03-31 “醫E”語中的第15期 美國一線醫師covid19白皮書
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005107/df34cbf677b69dc9a1d6c1ba26bb4c21.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6064f784a54f827240bd50f9)
+
+
+
+
+
+
+
+## 2021-03-24 “醫E”語中的第14期 話疫苗 5
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004804/b092848f3a28d3c5be359fcdfafad02d.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=605bb68ba26ac57138e444b6)
+
+
+
+
+
+
+
+## 2021-03-17 “醫E”語中的第13期 話疫苗 4
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004432/a71f6f9239cf353aacbf28c01db3fa09.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60527ab5e9cdd43098eaef26)
+
+
+
+
+
+
+
+## 2021-03-10 “醫E” 語中的 第12期 話疫苗（3）
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004531/e1454c0da647616049c4245080d9090b.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60494efa75e88a51e6e9ef77)
+
+
+
+
+
+
+
+## 2021-03-03 “醫E”語中的第11期 話疫苗 2
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003742/b5ed6f56523ed967ff5be3e606c99b50.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6040150794761a708f1999a3)
+
+
+
+
+
+
+
+## 2021-02-24 【“醫E”語中的】（10） 話疫苗 （1）
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003432/8048e874797d7c41cc4c5a34081f2b20.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6036da22047c4c3086dd5052)
+
+
+
+
+
+
+
+## 2021-02-17【“醫E”語中的】（9）邪恶“CCP病毒” 二元武器 第二元
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003311/79e7f3a28786b885373e7dde97abf088.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=602daeb7be64150df85b1d7f)
+
+
+
+
+
+
+
+## 2021-02-10【“醫E”語中的】（8）邪惡CCP病毒 二元武器效應 第一元
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003125/adf72ace6bc5474f08b15ac3ae971856.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=602468e5be64150df8501dd4)
+
+
+
+
+
+
+
+## 2021-02-03【“醫E”語中的】（7）邪恶“CCP病毒” （二）认识CCP病毒最诡异邪恶之处
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003013/af6ff7f3beb9405d8dc8611fa77230ea.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=601b2c383f8a013ab47b7c7a)
+
+
+
+
+
+
+
+## 2021-01-27 “醫E”語中的 （6）邪恶“CCP病毒” （一）认识病毒，保护自己
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17002454/1ac4ff3009ac8104d9e188f0365f7ff0.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6011f0c3b819717e79b3d6e3)
+
+
+
+
+
+
+
+## 2021-01-13 “醫E”語中的（5）神奇的羟氯喹（四） 服用羟氯喹应该注意的事项
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17002057/52e7bbfb99de6a6093c13139499bd1ff.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5fff7b14f579a75e0bd668a1)
+
+
+
+
+
+
+
+## 2021-01-06 “醫E”語中的（4）神奇的羟氯喹（三） 不可思议的广谱抗微生物效应
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001816/84636763ba87ba09966f4561a407740b.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5ff64107f579a75e0bc837b1)
+
+
+
+
+
+
+
+## 2020-12-29 “醫E”語中的（3） 神奇羟氯喹（二） 老药羟氯喹焕发神奇“青春”
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001639/9e03978d2547594f0fb1bca0809bcb0e.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5febb4f3f579a75e0bbb9700)
+
+
+
+
+
+
+
+## 2020-12-22“醫E”語中的 （2） 神奇羟氯喹(一) 认识羟氯喹
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001455/2020-12-22%E9%86%ABE%E8%AA%9E%E4%B8%AD%E7%9A%84-%EF%BC%882%EF%BC%89-%E7%A5%9E%E5%A5%87%E7%BE%9F%E6%B0%AF%E5%96%B9%E4%B8%80-%E8%AE%A4%E8%AF%86%E7%BE%9F%E6%B0%AF%E5%96%B9.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5fe27ac1c0544c3d973305b9)
+
+
+
+
+
+
+
+## 2020-12-15“醫E”語中的（1）光鮮的新冠疫苗背後可能的致命風險
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001220/43a19b816546183367c4e09d01299243.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=5fd943c509267020eb52df80)
+
+
+
+
+
+
+
++1

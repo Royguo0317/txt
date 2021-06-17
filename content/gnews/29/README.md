@@ -1,57 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】“公共户”政策出台，北京二手房交易迎“转机”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1327171/)
+## 【香草山水墨堂】剑出鞘——
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1328338/)
 
-香草山写作组  鹰(文言)
+**作者**：香草山美食部 文百合
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16121240/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042102/WhatsApp_Image_2020-10-24_at_04.33.05-8-768x103-1.jpeg)
 
 
 
-新浪网6月15日转载新京报消息，7日中共北京公安部发布《北京市公安局关于印发户籍派出所设立公共户工作规定（试行）的通知 》，批准全市每个户籍派出所设立一个非农业“公共户”。
 
-在二手房交易中，房子过户但卖家由于各种原因没有将户口迁出，而买家无法嵌入户口的情形屡屡发生。“公共户”政策的出台则完全可解决上述购房的“后顾之忧”。北京发布的“公共户”政策中明确，房屋产权交易中户口必须迁出，但本人、配偶或其他直系亲属在北京市无合法产权住房者可申请“公共户”落户，而原户主拒不迁出成“老赖”情形可申请强制迁出成“公共户”。鉴于北京现行购房政策中均无“公共户”限购条件，而迁入“公共户”的又均为京籍人士，所以北京购房资格不受影响。这一政策的便利性更刺激了二手房市场。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16121227/Screen-Shot-2021-06-16-at-12.06.47-PM.png)
-根据乐居二手房数据，北京2021年一季度二手房网签数量52585套，不但同比2020年一季度上涨166.7%，更是2019年一季度二手房网签数量32621套的1.6倍。根据中共统计局数据，北京2020年前11个月二手房住宅成交价格为56864元/平方米（同比增长0.93%），而2021年4月份二手房住宅销售价格又相较2020年同期上涨10.1%。房价的涨势依旧未得到遏制。
 
-今年以来，中共为了促进资本流通和提高消费带动经济运转以保证假擀面杖经济的“稳固”，中共银监会不但大力罚款遏制银行贷款流入房地产领域，全国各地连番出台房价管控措施，各种限地、限购、限炒政策出现，更有法拍房、学区房等各种“补漏”规定的“补充”，可以说中共政府为“房住不炒”遏制房价可为煞费苦心。然而，事实上，就算2020年国内CCP病毒大爆发，各种经济生活全面受阻，经济运转遭受重创，房价却不降反增，还创下全国均价破万的“好数据”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16121212/Screen-Shot-2021-06-16-at-12.06.50-PM.png)
-而进入2021年后，无论是集中供地堆高土地成本，学区房“限制”政策所带动的稀缺效应，还是各种约谈房产中介和房价上涨舆论的控制，这些都潜在地鼓励民众对房地产领域的追捧。同时中共为了盘活经济，需要房地产的各种数据做背书，房价下跌直接关联政府信用，因而房价上涨成了必然的结局。北京的二手房交易创新高，也反映出国内房价越管控越上涨的“怪相”。“公共户”政策没有出现在2010年房地产迅速发展期，也没有出现在2017年后的“房住不炒”管控期，偏偏在实体经济受挫，中共需要扩大消费拉动内需的经济维稳阶段。这不但反映出中共各种房价政策的背离实际、徒有其表，更揭示了其通过加高房价剥削个人财产的实质。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003116/image0-50-1-scaled.jpg)
 
-新闻来源：
+蓝天大海拔剑
+斩红妖
+尽显英雄本色
 
-北京“公共户”政策来了，对二手房交易有何影响？https://news.sina.com.cn/c/2021-06-15/doc-ikqcfnca1176743.shtml
+文百合亮剑
+诸恶魔
+英姿飒爽水墨木兰
 
-2021年北京楼市的“金三银四”来了 一季度成交量全面上涨https://new.qq.com/omn/20210401/20210401A09FP500.html
+同道人相见正当时
+侠士联手战魔头
+灭共路上没你不行
 
-北京二手房去年网签量破14万套 机构预计今年价格平稳https://xw.qq.com/cmsid/20200101A0D9ME00
+校对/发稿：遍地开花
 
-北京二手房市场回暖 11月网签量同比增长逾四成http://travel.china.com.cn/txt/2020-12/07/content\_76985164.html
-
-第一！北京二手房144㎡以上户型价格同比上涨11.7%https://www.163.com/dy/article/GA94K4DO0515QRNF.html
-
-管控二手房价格或成新趋势http://house.people.com.cn/n1/2021/0305/c164220-32043311.html
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-编辑/校对/发稿：正义的小新
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042102/WhatsApp_Image_2020-10-24_at_04.33.05-8-768x103-1.jpeg)
 
-0
+
+
+
+
++1
