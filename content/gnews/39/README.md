@@ -1,76 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】病毒侦探揭秘纽约西奈山医院
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1328387/)
+## Zelenko博士称COVID-19是生化武器疫苗是毒药
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1328681/)
 
-小象：病毒侦探最近非常繁忙，塞林博士点名了一家美国的医院纽约西奈山医院，此前塞林博士一直在发推文告知闫博士的前夫可能躲藏在这家医院中，并要求医院回复后，该单位不否认并雇佣安保公司对塞林博士及家人进行了威胁。病毒侦探火来2号在网上放出了纽约西奈山医院的资料，资料显示这家医疗机构不但与中国军方军事院校长期互动关联，而且与中共红色权贵家族企业泰康人寿有着密切的合作关系，以下是病毒侦探们贡献的宝贵资料：
+台湾宝岛农场 马克强
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17030258/%E6%93%B7%E5%8F%96617-8.jpg)
+Vladimir Zelenko博士在一封名为”写给全人类（to all humanity）”的信中，称COVID-19病毒是”生化武器” ，而将还在试验阶段的生化制剂也就是病毒疫苗称为”有毒的死亡针”。
 
-安娜侦探：
+Zelenko博士因发现有效的COVID-19治疗方案（Zelenko protocol）而被提名诺贝尔和平奖。他指出：『如果现知道了一切有关于施打COVID-19疫苗的所有危险信息，而你仍然选择去打这毒针，那所有的负面结果完全由你自己承担。 』
 
-美国西奈山伊坎医学院房刚教授在上海举行的2018年7月第三届人体微生物组创新未来者大会上做讲座。在这个会上解放军总医院（301医院）健康管理研究院主任曾强教授，空军军医大学的聂勇战教授，陆军军医大学附属大坪医院魏艳玲教授也做了讲座。
+他列举下列的一些事实：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005633/11-10.png)
-
-秦钧教授是美国贝勒医学院教授，“千人计划”引进学者，军事医学科学院放射与辐射医学研究所研究员。他跟军事医学科学院院长贺福初（中将）一起研究蛋白质组。Kasarskis 博士是西奈山伊坎医学院遗传和基因学部的代理主任。他们都是赛默飞世尔科技（中国）有限公司的演讲嘉宾。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010152/12-7.png)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010909/13-5.png)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17011027/14-5.png)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17011333/15-3.png)
-
-西奈山伊坎医学院韩明虎参加了2019年10月在苏州国际博览中心G馆举办的中国神经科学学会第十三届全国学术会议暨第七次会员代表大会。与会者约19名来自中国PLA的研究人员，如宋楠, 军事认知与脑科学研究所，吴海涛, 军事医学研究院，张令强, 军事医学研究院生命组学研究所等。
-
-下面这个表格中显示了这家医院和军方武器计划研究人员共同参与科研大会的情形：
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17011619/16-2.png)
-
-Peter Palese 和 Ralph Baric 以及 George F. Gao、Zhengli Shi、Deyin Guo、Wenjie Tan、Wuchun Cao 和 Yigang Tong（均为 CCP-PLA生物武器计划），该计划始于 2015 年。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17011729/17-2.png)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17011924/18.png)
-
-火来2号侦探发表了西奈山医院和泰康人寿之间的关联：
-
-纽约西奈山医院不仅和泰康人寿合作在中共国内创办医院，并且还经营跨境医疗业务，中共国内也有代理，还有器官移植服务。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17013255/19.png)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17013408/20-1.png)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17013514/21.png)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17013628/22-3.png)
-
-网友贡献泰康人寿资料，可看到这家万亿的资本巨无霸，承载着中国红色基因集团的使命，打造着所谓的“人类命运共同体，“在从简单的抢夺资源物资和金钱之后，彻底的开始抢夺地球大众的生命和未来了。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17013748/24-1.png)
-
-小象补充泰康人寿资料，（维基百科）
-
-泰康人寿保险股份有限公司 是一家总部位于北京的中国最大的人寿保险公司之一2011年4月，高盛集团（Goldman Sachs）是该公司的第二大股东。由毛泽东外孙女婿陈东升执掌的泰康人寿，是苏富比最大股东。
-
-资产管理方面，泰康资产管理有限责任公司成立于2006年，泰康资产是资本市场上规模最大的机构投资者之一，受托管理资产总规模超9000亿元。2007年11月，泰康资产全资子公司泰康资产管理（香港）有限公司在香港注册成立，已获得QFII（合格境外机构投资者）资格、RQFII（人民币境外合格机构投资者）资格，同时获准开展公募业务。
-
-数据显示，到目前为止，泰康资产股权投资的规模超过550亿元。其中，基础设施和不动产领域投资超过330亿元，先后投资了中石油西气东输管线项目、京沪高铁项目、招商公路股权项目等基础设施领域的股权项目。2019年11月8日安联以10亿美元（折合约78亿港元），向高盛集团收购泰康人寿的3.9662%股权。完成交易后，安联将持有3.9662%股权（1.0824亿股），而高盛的股权则降至8.5960%（2.3460亿股）
-
-参考链接：
+1. 如果你年轻且健康，或者是在一出现症状后马上进行治疗，那么COVID-19是一个极为简单克服的传染病。
+2. COVID-19病毒是一种由反社会性格者所设计和支付的生化武器，其目的是在制造全球性恐慌并透过操作使人们变愚蠢而去打有毒的死亡针。
+3. 而这有毒的死亡针会造成急性、亚急性或长期的死亡结果。
 
 
+急性死亡：
 
-> 纽约西奈山医院不仅和泰康人寿合作在中共国内创办医院，并且还经营跨境医疗业务，中共国内也有代理。想一想，什么样的医院才有资格经营这样的业务？西奈山医院恐怕早已经是中共蓝金黄计划拿下的阵地之一。另外，泰康人寿背后大老板是谁？ [pic.twitter.com/tBNPeH8CwT](https://t.co/tBNPeH8CwT)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [June 17, 2021](https://twitter.com/jsdfposjpqyuee1/status/1405366002125197319?ref_src=twsrc%5Etfw)
+- S蛋白造成血栓进而引发心脏病、中风、肺梗塞
+- 怀孕期的前20周流产与自然流产的风险增加8─24倍
+- 极度危险的心脏发炎称心肌炎，它比COVID-19病毒杀死更多的年轻人
 
 
+亚急性死亡：
 
-整理撰稿：蓝精灵
+- 抗体依赖性增强（ADE）或致病性的诱发能够在3年内杀死大量的人类。这个评估是基于动物模型与故意缺乏长期的人体试验。
 
-校对发布：Penny
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+长期死亡：
 
-+3
+- 因精子数量的减少与卵巢功能障碍而导致不孕
+- 自体免疫疾病发生率增加
+- 癌症发病率增加
+
+
+最后，Zelenko博士列了几个解决的方法：
+
+- 不要去打有毒的死亡针（疫苗）
+- 如果已经打了有毒的死亡针，请不要再去打这些针或者是其他的增强剂
+- 采取所有可能的措施来预防ADE
+- 忽略来自于NIH, CDC, FDA, WHO这些像谋杀般的建议
+- 忽略主流与社交媒体所制造的恐慌
+- 拒绝反社会敌人形成病态或偶像崇拜的恐惧
+- 向上帝跪求祂的保护与救助
+- 我们救赎的时间到来了
+- 多做善行善事
+- 准备好为了你的孩子和人类未来的自由做一切牺牲
+
+
+评论：
+
+目前这场世纪大瘟疫所看到的一切现象就呈如ZelenKo博士所言，似乎是一场正在进行的天大阴谋！配合上中共的放毒与长年布局的超限战争，让全世界的经济、政治、医疗、社会秩序等陷入混乱，使人与人之间产生隔阂、不准人们群聚、学生不能进学校上课，在心理上形成巨大的打击；原本在预防与治疗COVID-19病毒上其实并不困难，但在伪科学加上媒体与网路的刻意扭曲，打压了既有的老药新用，并在大量重症死亡恐惧的心理下去打这有毒的死亡针。如果这些属实，那是何等的罪孽与邪恶呀！
+
+以下是Zelenko治疗方案（注2）
+
+（本文仅代表个人立场）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17025915/%E6%93%B7%E5%8F%96617-0-1.jpg)
+资料来源（注）：
+
+1. [Zelenko Protocol discoverer calls COVID-19 ‘bioweapon’, vaccine ‘poison’](https://americasfrontlinedoctors.org/frontlinenews/zelenko-protocol-discoverer-calls-covid-19-bioweapon-vaccine-poison/)
+2. [Quercetin and Zinc: Zelenko Treatment Protocol](https://www.aestheticsadvisor.com/2021/01/quercetin-and-zinc-zelenko-treatment.html)
+
+
+- 有关于病毒预防方案及其他详细内幕
+
+
+[HCQ与锌治疗与预防CCP病毒真相及脉络整理](https://coggle.it/diagram/YMH78MP8uzJAQHqI/t/hcq%E8%88%87%E9%8B%85%E6%B2%BB%E7%99%82%E8%88%87%E9%A0%90%E9%98%B2ccp%E7%97%85%E6%AF%92%E8%B3%87%E6%96%99%E5%8F%8A%E8%84%88%E7%B5%A1%E6%95%B4%E7%90%86/feed8cbd4c922d5c3af459595edd036f6a7c845cc276bcb2d3a838748de83103)
+
+- 羟氯喹+锌作为预防方案的原理：[请点击观看详细介绍影片](https://www.youtube.com/watch?v=hFHibbINihs)
+
+
+审核/早不稻仁
+
+校对/铃铃卷
+
+发布/little liu
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
++5

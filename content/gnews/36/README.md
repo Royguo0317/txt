@@ -1,26 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年6月15日灭共要闻
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1328567/)
+## 拜登总统明确与习神不是老朋友，只有工作关系
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1328694/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17020308/%E7%81%AD%E4%B8%80%E7%BB%84%E5%B0%81%E9%9D%A2-8.jpg)
-[播放视频](https://gtv.org/video/id=60caaebab96c69573d808d74)
+#### 文章撰写:【默凡】
 
-主要内容：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17032340/265yin43dfgdfsg546dex.jpg)Photo by BRENDAN SMIALOWSKI/AFP via Getty Images
 
-里根号航母打击群进入南中国海；
+6月16日，美国总统拜登与俄罗斯总统普京会谈结束手，拜登总统在记者会上表示，美俄已在双边战略稳定上达成共识，会谈进行得非常顺利。过去一周里，我们集结盟友，目的是为了对付我们面临的最大挑战！
 
-美国政府评估台山核电站的泄漏报告；
+拜登还特别澄清，他和习近平并不是老朋友，只是纯粹工作关系，大家可千万不要误会了！世界都看到了后果，对中国的态度已经转变。
 
-广州疫情再恶化，定点医院两名医护确诊；
+[Tweets by Lhotse\_luozi](https://twitter.com/Lhotse_luozi?ref_src=twsrc%5Etfw)
 
-广州被封闭小区住户的求助：没吃的了！
+本文仅代表作者本人观点，不代表Gnews平台
 
-湖北省十堰市市场发生天燃气爆炸，民间批官方隐瞒；
+* * *
 
-前武警教官总结带兵经验—坑蒙拐骗。
-
-**By**：【秘翻组**–**上天造灭疫组】
+排版发布：日本东京方舟农场 文柯Miles
 
 0
