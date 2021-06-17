@@ -1,123 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙文推荐】请站在正义这边
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1328873/)
+## 中共网约车巨头滴滴出行正接受反垄断调查
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1329152/)
 
-推荐者：香草山美食部 新世界的一员
+#### 文章撰写:【默凡】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17075001/324dg4E4JZMW5erg54623KXTKK7IHE3Y.jpg)
 
+路透香港6月17日报道：据三名知情人士称，中共国市场监管机构已开始对滴滴出行展开反垄断调查。
 
+这三位消息人士中有两位表示，中共国市场监管机构国家市场监督管理总局（SAMR）正在调查滴滴是否使用不公平手段挤压弱小的竞争对手的行为。这三位消息人士表示，中共监管机构还在审查滴滴核心网约车业务所使用的定价机制是否足够透明。
 
+截至目前，滴滴出行公司拒绝就此事进行回应，市场监管总局也没有任何回应。
 
+参考文章：[EXCLUSIVE China’s IPO-bound Didi probed for antitrust violations – sources](https://www.reuters.com/business/autos-transportation/exclusive-chinas-ipo-bound-didi-probed-antitrust-violations-sources-2021-06-17/)
 
-推荐者语：墙内战友对正义的呼唤、对现实的控诉、对自由的向往，读来令人荡气回肠。正义的声音，又如号角，催我们行动、行动、再行动。
+本文仅代表作者本人观点，不代表Gnews平台
 
 * * *
 
-* * *
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17073509/%E5%9B%BE%E7%89%872-18.png)
-
-六月二十八日
-又一大限之期
-微信即将沦陷
-引发一片哀嚎
-朋友，别哭
-我们经历的太多
-我们正在见证一切
-你自以为的大限
-究竟是谁的大限？
-
-从新浪、天涯到凯迪
-从博客中国到网易
-谁都无法逃脱
-厉害了，他的国
-他们不仅要堵死我们
-所有上升的途径
-还要斩断所有
-勇于发声的渠道
-让我们变成聋哑瞎
-引颈待戮的盛世囚徒
-然而，就算他们
-封禁整个局域网
-该来的依然在路上
-
-当历史的浪潮来袭
-请务必站在正义这边
-不要让历史的悲剧重演
-不要让悲伤逆流成河
-身处民族的转型节点和
-历史的十字路口
-请不要再做尘封的看客
-而要做积极的参与者
-有时候你只需要动动手指
-就能挽救成千上万人
-不至白白流血牺牲
-
-如果不是恐惧到了极点
-怎会自断筋脉自废武功
-关闭最后一扇透气窗？
-如果不是末日来临
-又何须同室操戈双手互搏？
-大错已铸成，证据已实锤
-铁穹已合围，大限已将至
-所有回光返照的滥招
-都已经树倒猢狲散地用尽
-所有机关算尽的垂死挣扎
-都将成为历史的鲜明注脚
-如果这个时候你被关进牢房
-你就会成为末法时代的英豪
-
-朋友，努力做点什么吧
-否则你必将被历史淘汰出局
-国家的前途，民族的命运
-或许就掌握在
-你不经意的一个举动之间
-是成为民族的英雄
-让子孙后代回归正常人类
-还是成为民族的罪人
-被推上从未迟到的审判席
-一切都掌握在你自己手中
-而我，很可能会倒在黎明之前
-但是我仍坚持声嘶力竭地呐喊
-与民族的幸运相比
-个人的不幸实在渺小
-一个人的努力可能微不足道
-但是，当所有人都付出努力
-就会形成气贯长虹的强大气场
-面对后世子孙，让我们每个人
-都能发自内心地道一声：
-我努力过，此生已无怨无悔！
-我从未像今天这样开心敞亮
-因为我知道上帝眷顾我们：
-天，快亮了！
-
-——如果不是被他们逼至失去生活来源，谁愿放弃自尊附上卖艺求生的赞赏吗？
-
-（出于安全原因，本文隐去原作者及文章来源信息）
-
-编辑/上传：遍地开花 审核/发布：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
-
-
-
-
+排版发布：日本东京方舟农场 文柯Miles
 
 0

@@ -1,25 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共网约车巨头滴滴出行正接受反垄断调查
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1329152/)
+## 曲终人散 拜登拒认习近平是朋友
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1329172/)
 
-#### 文章撰写:【默凡】
+**台湾宝岛农场 **天灭中共
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17075001/324dg4E4JZMW5erg54623KXTKK7IHE3Y.jpg)
+美国总统拜登周三在瑞士日内瓦与俄罗斯总统普京进行会晤，霍士（FOX）新闻台记者杜西（Peter Doocy）在会后的记者会上向拜登提问：「如今你会不会再致电给中共党魁习近平，以老朋友的身份，要求他开放中（共）国予世卫专家，以追查疫情源头？」
 
-路透香港6月17日报道：据三名知情人士称，中共国市场监管机构已开始对滴滴出行展开反垄断调查。
+拜登立即回应称：「首先，我必须讲，我和习近平是彼此了解，但不是老朋友，纯粹公务往来。」
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17075356/%E6%93%B7%E5%8F%96617-11.jpg)（图片来源：美联社）
 
-这三位消息人士中有两位表示，中共国市场监管机构国家市场监督管理总局（SAMR）正在调查滴滴是否使用不公平手段挤压弱小的竞争对手的行为。这三位消息人士表示，中共监管机构还在审查滴滴核心网约车业务所使用的定价机制是否足够透明。
+拜登续指，他对中共当局是否真心诚意同世卫合作感到怀疑： 「中共努力塑造自己是负责任，非常有远见，又不断诉说自己如何在抗疫及疫苗上帮助世界。」「但有些事情，你不用向世人解释，世人自然会看到结果是什么。问题是中共当局真的要查个水落石出吗？」
 
-截至目前，滴滴出行公司拒绝就此事进行回应，市场监管总局也没有任何回应。
+**昔日情不在……曲终人会散**
 
-参考文章：[EXCLUSIVE China’s IPO-bound Didi probed for antitrust violations – sources](https://www.reuters.com/business/autos-transportation/exclusive-chinas-ipo-bound-didi-probed-antitrust-violations-sources-2021-06-17/)
+2013年，当时还是美国副总统的拜登多次访问北京，与习近平见面。习近平曾形容和拜登是「老朋友」，拜登亦笑容满面的回应自己和习总书记之间深刻的友谊。
 
-本文仅代表作者本人观点，不代表Gnews平台
+可惜，时过境迁，笔者衷心希望习主席能坦然面对情伤，毕竟一个动不动就指鹿为马、恶言相向、放毒杀人的朋友，再重的口味也承认不起这份友情。
 
-* * *
+最后，听闻习主席钟爱音乐，在这样众叛亲离的伤心时刻，笔者就送上一首歌，聊表心意。
 
-排版发布：日本东京方舟农场 文柯Miles
+我跟着所有人向妳祝贺的时候
+
+只有妳知道我多喝了几杯酒
+
+我不能再看妳多一眼都是痛
+
+即使知道暗地里妳又回头
+
+我终于知道曲终人散的寂寞只有伤心人才有
+
+你最后一身红残留在我眼中我没有再依恋的借口
+
+原来这就是曲终人散的寂寞我还想等妳什么
+
+妳紧紧拉住我衣袖又放开让我走这一次跟我彻底分手
+
+——张宇《曲终人散》
+
+以上观点仅代表笔者
+
+**「资料来源」**
+
+1、[Biden queries China’s desire to find origin of coronavirus](https://www.reuters.com/world/china/biden-queries-chinas-desire-find-origin-coronavirus-2021-06-16/)
+
+审核、校对早不稻仁
+
+发布little liu
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
 0
