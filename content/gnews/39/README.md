@@ -1,52 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】响鼓秀场（七）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1328284/)
+## 【香草山水墨堂】剑出鞘——
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1328338/)
 
-配音：香草山录音组 Swr拥抱太阳
+**作者**：香草山美食部 文百合
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042102/WhatsApp_Image_2020-10-24_at_04.33.05-8-768x103-1.jpeg)
 
 
 
-才下＂Freedom Tower＂
-仍然忙碌的
-场记
-又应邀
-来到＂休斯顿星光＂
-的艺术主场
-
-好吗
-这顿赶
-还没
-稳当妥定
-又被问三围
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003116/image0-50-1-scaled.jpg)
 
-**文字版原文：[【香草诗词汇】响鼓秀场（七）](https://gnews.org/zh-hans/1318101/)**
+蓝天大海拔剑
+斩红妖
+尽显英雄本色
 
-作者：纽约香草山健身部 澄道
+文百合亮剑
+诸恶魔
+英姿飒爽水墨木兰
 
+同道人相见正当时
+侠士联手战魔头
+灭共路上没你不行
 
+校对/发稿：遍地开花
 
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042102/WhatsApp_Image_2020-10-24_at_04.33.05-8-768x103-1.jpeg)
+
+
+
+
+
++1

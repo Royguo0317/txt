@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】战场归来（一）
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1328264/)
+## 【有声读物】加拿大研究者警告：疫苗刺突蛋白正在杀人…“我们犯下大错”
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1328411/)
 
-配音：香草山录音组Swr拥抱太阳
+配音：香草山录音组 蒙古鸿雁
 
 ![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
@@ -12,31 +12,24 @@
 
 
 
-战场上的
-敌我双方
-一个最重要的
-就是要时时刻刻
-注意安全自己
 
-疫情下（终又是一种战役）
-接机的战友
-要想达成任务
-即要勇敢
-更要智慧
-顺利能完成集结
-就是直击对手
+
+[Natural News](https://www.naturalnews.com/2021-06-03-canadian-researcher-covid-vaccine-spike-proteins-death.html) 最近报导了加拿大病毒免疫学家[Dr. Byram W. Bridle](https://theconversation.com/profiles/byram-w-bridle-1077412) 的关于CCP病毒疫苗中所含或制造的刺突蛋白可直接导致心血管损伤和死亡的观点。
+
+Bridle博士是加拿大Guelph 大学的病理生物学系副教授和病毒免疫学家。他和一群科学家去年从政府获得了23万美元的资助，用于研究（评估）CCP病毒疫苗。这使得他们能够获得疫苗注射的数据。这些数据表明，注射所包含或产生的刺突蛋白几乎是患者接受注射后所观察到的所有心血管损伤的唯一原因。
 
 
 
-**文字版原文：[【香草诗词汇】战场归来（一）](https://gnews.org/zh-hans/1319787/)**
+**文字版原文：[【热点播报】加拿大研究者警告：疫苗刺突蛋白正在杀人…“我们犯下大错”](https://gnews.org/zh-hans/1327743/)**
 
-作者：纽约香草山健身部 澄道
+作者：纽约香草山媒体部  7bends
 
 
 
-音频处理/发稿：雪梨
+音频处理：喜山必胜Maverick
+发稿：雪梨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
 **更多资讯，更多关注**
 
@@ -48,6 +41,6 @@
 
 [**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

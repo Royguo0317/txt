@@ -1,36 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 扎克伯格集团为武汉实验室、功能倡导提供六位数资金支持
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1328208/)
+## 美共和党议员们提出罢免福奇的议案
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1328494/)
 
-翻译：康州盘古农场 – TrueSky
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 – 明子
-发布：康州盘古农场 – 彩虹 Rainbow
+#### 翻译报道：罗马骑士
 
-**据《国家脉动》作者：RAHEEM KASSAM AND NATALIE WINTERS，2021年6月14日报道：**
+#### 责编：胡天
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17013016/1-123.jpg)
+[图片链接](https://cdnph-upi-com.cdn.ampproject.org/ii/w820/s/cdnph.upi.com/svc/sv/upi/8271623797953/2021/1/a1f30be49227371ba1911afddf5166b8/Republicans-introduce-bill-calling-for-Dr-Anthony-Faucis-firing.jpg)
 
-扎克伯格倡议组织——2020年大部分非法的选举变化背后的资助团体。给北卡罗来纳大学教堂山分校提供了近50万美元**。**该大学将武汉实验室的合作者和功能增强的支持者拉尔夫-巴里奇博士列为首席研究员。
-拉尔夫-巴里奇博士是北卡罗来纳大学教堂山分校（UNC）的教授——他也参加过武汉病毒研究所的会议，并被该实验室的“蝙蝠女”描述为她的“长期合作者”。在2020年7月收到了Facebook创始人马克-扎克伯格的慈善团体提供的资助。
-“扎克伯格倡议组织（CZI**）**最近向联合国大学授予了一笔43.3万美元的拨款，用于购买实验室设备，这将加速解决COVID-19大流行病的研究”一份新闻稿指出，“这笔赠款代表了西海岸慈善组织CZI和UNC之间的新合作，以寻求该大流行病的全球解决方案”，一份摘要在详细说明赠款如何使用之前补充道。
-**这笔赠款包括购买一个“液体处理机”— 一个能够比人工更快、更准确地吸取液体的机械臂和配套的仪器，以及包括另一个检测样品中活性病毒颗粒的机器人和一台对RNA进行排序的机器。这些工具加在一起，将测试化合物的速度提高了20倍。**
-据称，这笔拨款帮助产生了一项研究——目前正在等待同行评审，题为SARS-CoV-2传染性病毒、鼻咽拭子中的病毒RNA和美国有症状的COVID-19门诊病人的血清状态。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001818/ccp_virus-2.png)
-摘要指出，“在这里，我们提供了对人口学、免疫学、病毒学和临床疾病因素的全面分析，这些因素与感染性病毒分离和鼻咽拭子样品中的病毒**RNA**水平有关，这是迄今为止对患有COVID-19的无症状门诊成人的最大研究。”
-巴里奇关于此事的一份幻灯片还列出了来自吉利德科学公司，国家卫生研究院和福奇博士的国家过敏和传染病研究所的支持。
-福奇博士最近试图掩盖他与扎克伯格的关系，他告诉MSNBC主持人Chuck Todd，他“不知道”参议员Marsha Blackburn在讨论两人被泄露的电子邮件时的意思。
-巴里奇实验室的研究说，它旨在“更深入地了解**”COVID-19**，以便“准确地识别和隔离有传染性的人”。
-**“更深入地了解与传染性病毒检测有关的病毒和宿主因素，对于准确识别和隔离传染性个体至关重要。一些研究报告了SARS-CoV-2病毒分离与病毒RNA水平或症状发生时间之间的关联。然而，对于哪些宿主因素（即人口统计学、合并症、SARS-CoV-2血清阳性、症状学等）与传染性病毒检测有关，我们知之甚少。”**
-巴里奇和与脸书有联系的慈善机构之间的财务关系是在该社交媒体平台大量审查用户和宣传COVID-19的起源可以追溯到武汉实验室的理论之后发生的。
-脸书与完全由民主党人经营的**“**Lead Stories”集团签订合同，该集团的工作人员大多是CNN的离职人员，目的是审查不方便的信息。Lead Stories也与TikTok签订了合同，而TikTok则由ByteDance拥有，ByteDance（字节跳动）是一家被中国共产党及中国人民解放军用来推进共产主义宣传的公司。
-巴里奇博士——他为有争议的功能增强研究辩护，认为这是一个“重要的工具”，是脸书认可的COVID-19自然起源理论的早期支持者，他参与了《柳叶刀》杂志的声明，过早地断言该病毒具有自然起源。
-CZI因其在2020年总统选举中的作用而受到越来越多的审查，它向民主党地区输送了数百万的资金，为乔-拜登拉票。
+据国际联合报社6月15日报道，美国国会众议员马乔里·泰勒·格林 (Marjorie Taylor Greene) 与其他8位共和党议员们，于本周二提出一项紧急议案，要求解除安东尼·福奇 (Anthony Fauci) 国家疾病控制和预防中心主任的职务。
 
-**原文连接**：[https://thenationalpulse.com/exclusive/facebook-czi-funds-controversial-wuhan-researcher/](https://thenationalpulse.com/exclusive/facebook-czi-funds-controversial-wuhan-researcher/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+在联合议案小组的新闻发布会上，对于福奇在中共病毒疫情爆发期间的严重过失行为，格林议员表示议案要求将福奇的薪水降至零，并同时要求参议院确认其他合适人选来填补他的职位。
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+格林议员本月初给拜登写信，要求彻查福奇本人和他在隐瞒病毒真相中所扮演的角色。
 
-+2
+格林议员阐述道，在疫情爆发初期，根据福奇的通信邮件内容来看，他故意不强调病毒来自中共的武汉实验这一事实，不强调口罩对防止病毒扩散的有效性，坚持中共病毒来自于自然的说法。福奇这种扭曲的渎职行为，几乎控制着过去一年美国整个国家的经济，以及家长和孩子们对教育的诉求。
+
+在刚刚过去的七国首脑会议上，对于中共过去一贯的不合作态度，首脑们一致要求国际卫生组织再次查明中共病毒来源的真相。
+
+原文链接：[Republicans introduce bill calling for Dr. Anthony Fauci’s firing](https://www.upi.com/Top_News/US/2021/06/15/Republicans-bill-Anthony-Fauci-firing/8271623797953/)
+
+0
