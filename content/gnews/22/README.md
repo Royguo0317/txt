@@ -1,34 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的低粮价还能持续下去吗？
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1332110/)
+## 科学家承认实验室泄漏假说去年是有效的——但因为川普而保持沉默
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1332157/)
 
-发布时间：2021年06月18日
-作者：外卖老李
-喜马拉雅意大利罗马达芬奇农场
+翻译：烟波浩淼｜校对：雨山溪桥客｜审核：断播
 
-改革开放四十年，国内物价飞涨。1980年，普通职工的月平均工资是63.5元，如果按照目前多数人的工资6000元计算，上涨94倍。四十年中，小麦粉由0.115每斤涨到现在的1.9每斤，上涨16.5倍。
-为何中共国的粮食价格一直这么低？
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18110448/45856426_303.jpg)（德国之声中文网）
-在网上看了些资料，一般解释为，欧美等国家的土地多，都是机械种植，政府又有补贴，因此粮食成本很低。我国自从加入了WTO组织之后，粮食价格需要与国际市场接轨。
-这种说法显然靠不住，中共完全可以提高关税保护粮食价格。
-与同样地少人多的韩国相比，2015年，中共与韩国签署了FTA贸易协议，其中规定韩国的农产品出口包括518个项目，但是大米、白菜、调味料、猪肉、牛肉等主要农产品排除在外。去年韩国白菜62元人民币一颗时，北京白菜只有2元一斤，按道理，韩国政府为平抑物价，完全有理由像中共一样大量进口白菜，但是韩国农民很厉害，因为他们有农协中央会这样的农民组织，不容许政府这样做。
-如果提高粮食价格，需要政府大量补贴，这是中共无力承担的。
-1994—1996年，由于市场粮价持续高于国家定购价，农民向国家交售粮食的意愿并不强烈，为此，政府三年内两次提高粮食收购价格，增幅分别达到45%和40%，但是，仅1993—1997年，国有粮食部门亏损总额便超过1200亿。
-中共一看不行，从2000年开始大量进口粮食，低价进口粮源直接拉低了国内的粮价。比如说玉米价格，2020年国内的玉米收购价1.3元/斤，而进口玉米的平均价格只有0.76元/斤。
-低粮价正是中共希望看到的结果，政府不花一分钱减低了通货膨胀，另一方面还提供了大量农民工，何乐而不为。
-在疫情之下，中共的低粮价还能持续吗？
-中共长期保持低粮价的前提是：国际粮价低于国内粮价。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18110610/48617207_401.jpg)一号文件提出实施农产品进口多元化战略
-相关数据显示，食品价格指数5月份平均上涨了127.1点，环比上涨了4.8%，同比大涨近40%之多，并且这个数字创下了2011年9月以来的最高水平。
-笔者认为，如果国际粮价持续上涨，再加上美国提高利率，墙内粮食价格将会有较大上涨。
-基辛格曾说过：“如果你控制了石油，你就控制了所有的国家。如果你控制了粮食，你就控制了所有的人”。大疫之下，这句话更是振聋发聩。
+上个月，一组18名科学家发表了[一封信](https://science.sciencemag.org/content/372/6543/694.1)，**呼吁对中共病毒的起源进行更深入的调查，将认真考虑实验室泄漏假说**——该假说假设病毒是从武汉病毒研究所泄漏出来的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18111918/wuhan-institute_0.png)
+据[《NBC新闻》](https://www.nbcnews.com/science/science-news/lab-leak-theory-science-scientists-rcna1191)报道，现在，**包括麻省理工学院和哈佛遗传学家阿丽娜·陈在内的几位科学家承认，科学家们回避了实验室泄漏假说，因为他们不想与时任总统川普有联系**。
 
-（本文只代表译者观点，与Gnews无关）
+陈说，**一些科学家对公开讨论实验室泄漏假说感到不安**，因为他们担心自己的话可能被误解，或者被用来支持冠状病毒如何出现的种族主义言论。川普进一步指责武汉病毒学研究所是报告第一例中共病毒病例的城市的研究实验室，与疫情有关，他多次将病原体称为**“武汉病毒”**或**“功夫流感”**
 
-[媒体链接](https://m.sohu.com/a/423766942_120674783)
+。。。
 
-[媒体链接](https://baijiahao.baidu.com/s?id=1701889442970479335&amp;wfr=spider&amp;for=pc&amp;searchword=国际粮价最新消息&amp;ivk_sa=1024320u)
+*这一转变反映了一些以前回避这一话题或迅速否定它的科学家*
+
+*正在努力解决有关该病毒起源的持久不确定性。而不像川普政府期间那样，科学家将此类讨论政治化了。*
+
+所以，当美国被告知要遵循科学的时候，科学家们选择了玩政治。
+
+陈说：**“当时与川普联系起来并成为种族主义者的工具更可怕，所以人们不想公开呼吁对实验室起源进行调查。”**
+
+近几个月来“回过头来”的人也指出中共国缺乏透明度。
+
+报告称，目前**主要有三种理论**在传播：
+
+- 病毒在从受感染的动物身上传播到人类之前自然进化而来。
+- 病毒自然进化，但实验室的一名员工从样本中感染，无意中“泄露”到社区。
+- 实验室的科学家们正在操纵病毒样本，无意或故意释放了病原体。
+
+
+宾夕法尼亚州大学生物学教授，传染病进化遗传学专家安德鲁·里德（AndrewReed）说：“如果我们有一场来自美国BSL-4实验室附近的大流行，你首先要问的是，他们是否在实验室里与这种病原体合作。”他提醒说，尽管实验室泄漏是合理的，这并不一定意味着这是最可能的解释（这是）。
+
+正如[《每日电讯报》](https://www.dailywire.com/news/scientist-backing-probe-into-wuhan-lab-we-waited-because-we-didnt-want-to-be-associated-with-trump?%3Futm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dwtwitter)所指出的，“领导川普政府对中共病毒大流行起源调查的大卫·阿瑟（David Asher）上月接受采访时[说](https://www.dailywire.com/news/biostatisticians-calculated-odds-of-coronavirus-evolving-naturally-to-be-1-in-13-billion-top-ex-pandemic-investigator-says)，他有来自美国政府的生物统计学家计算出冠状病毒从自然界进化的几率，他们估计大约是13亿分之一。”
+
+如果“科学”对事实比政治更感兴趣的话，我们就会在问责的道路上走得更远：
+
+
+
+> Right now: Jon Stewart on the Covid Lab Leak “theory” is solid laughs [pic.twitter.com/WlRX35p9WK](https://t.co/WlRX35p9WK)
+> — siskin.eth (@mns) [June 15, 2021](https://twitter.com/mns/status/1404665481886195717?ref_src=twsrc%5Etfw)
+
+
+***现在：乔恩·斯图尔特（Jon Stewart）把中共病毒实验室泄漏的“理论”当成可靠的笑料。***
+原文作者：泰勒·杜登（TylerDurden）
+发布时间：2021年6月17日星期四
+原文链接：[https://www.zerohedge.com/covid-19/scientist-backing-wuhan-probe-admits-lab-leak-hypothesis-was-valid-last-year-kept-quiet](https://www.zerohedge.com/covid-19/scientist-backing-wuhan-probe-admits-lab-leak-hypothesis-was-valid-last-year-kept-quiet)
 
 0

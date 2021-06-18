@@ -1,50 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报—美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1331969/)
+## 中共再次将中共病毒起源甩锅给美国
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1332114/)
 
-- 作者：此生灭共
+#### 撰稿: William
 
+#### 责编:牛小妹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18110930/1.jpg-12.png)[图面来源](https://www.followcn.com/the-origin-of-the-ccp-virus-and-the-great-reset/)
+据《路透社》上海报导，中共官方媒体环球时报 《Global Times》于6月17日宣称，中共流行病学家的一项研究认为，中共冠状病毒可能早在 2019 年 12 月就已经在美国传播，因此美国应该成为中共冠状病毒起源调查下一波重点。
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+美国国家卫生研究院 (NIH) 本周发表的研究显示，在报告第一个官方案例之前的几周，美国五个州至少有七人感染了中共冠状病毒的病毒 Sars-CoV-2。中共与世界卫生组织 (WHO) 3 月联合发表的一项共同研究表示，中共冠状病毒很可能起源于中共国的野生动物贸易，该病毒通过中间宿主从蝙蝠传染给人类。同时，中共的大外宣强力宣传中共冠状病毒可能是通过受污染的冷冻食品从海外进入中共国的歪理。
 
-**西班牙2021年6月18日电/西喜社——**
+中共国疾控中心流行病学首席科学家曾光教授对党媒《环球时报》表示，调查病毒来源的焦点应该转移到美国，因为美国在疫情爆发初期对人们进行的检测很慢，美国同时也是许多生物实验室的所在地。他宣称美国所有与生物武器相关的项目都应该受到审查。据报导，中共外交部发言人赵立坚更于6月16日评论美国研究时表示，现在中共冠状病毒的爆发具有多重起源，其他国家应与世卫组织合作。
 
-您若想了解全文报导内容，请点击标题链接
+中共冠状病毒的起源已形成中美之间政治紧张局势，最近的大部分焦点都集中在武汉病毒研究所 (WIV)，该研究所于 2019 年底首次发现疫情。中共因在披露早期病例和武汉病毒研究所的病毒数据方面缺乏透明度而饱受批评。于此同时，许多外国官员大声疾呼对病毒从实验室泄漏的可能性进行更多调查。
 
-**1.[参议院确认首位白宫网络主管](https://www.foxnews.com/politics/senate-confirms-first-white-house-cyber-director)**
+据华尔街日报本月稍早时候报导，美国政府国家实验室的一份报告已得出结论，很多证据显示该病毒非常有可能就是从武汉实验室泄漏的。虽然之前的一项研究提出了 Sars-CoV-2 最早可能在 9 月份在欧洲传播的可能性。但专家表示，这并不一定意味着它不是起源于中共，科学家们早已经在中共国发现了许多类似 Sars 的冠状病毒。
 
-福克斯6月17日电，美国[参议院](https://www.foxnews.com/category/politics/senate)于周四确认克里斯英格利斯为首任白宫网络安全主任，并对最近对美国基础设施进行的网络攻击表示强烈担忧。 英格利斯曾担任国家安全局（NSA）副局长。 参议院通过一致同意投票确认了英格利斯，没有立法者反对。
+#### 译评:
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103001/unknown-4-7.png)
+“以毒灭共”促使“全球联合灭共”倒数计时。目前全球因中共病毒死亡人数已达383万人，美国的死亡人数高达60万人，远远超过美国在二战的死亡人数41万8千人。这不仅仅是数字，更是代表着无数家庭的崩溃以及悲剧。如此罪恶重大，邪恶程度已经超过人类所可以使用的形容词汇。中共邪恶集团还妄想用大外宣、蓝金黄来扭转、来脱罪，真是痴心说梦！审判台早已为这些罪大恶极的人准备好了！
 
-**2.[根据拜登的命令，中国应用程序可能面临传票或禁令](https://www.foxbusiness.com/technology/chinese-apps-could-face-subpoenas-or-bans-under-biden-order)**
+[原文出处](https://www.todayonline.com/world/china-disease-expert-says-covid-19-origins-probe-should-shift-us-global-times-0?utm_source=dlvr.it&amp;utm_medium=twitter)
 
-福克斯6月17日电，为了防止中国和俄罗斯等外国对手获得大量个人和专有商业信息，商务部可能会发出传票以收集有关某些智能手机、平板电脑和台式计算机软件应用程序的信息。据知情人士透露，该机构可能会就它们在美国的使用条件进行谈判，或者禁止这些应用程序。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103115/unknown-5-3.png)
-
-** 3.[朝鲜领导人金正恩为与拜登对话敞开大门](https://www.bloomberg.com/news/articles/2021-06-18/north-korea-s-kim-jong-un-opens-door-for-dialogue-with-biden?srnd=premium)**
-
-彭博社6月18日电，朝鲜领导人金正恩表示，他已准备好“对话和对抗”，并在美国总统乔·拜登的新核特使前往该地区以建立对平壤战略的支持之际为会谈提供了机会。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103310/unknown-6-3.png)
-
-**4.**[在普京的支持下，拜登的注意力转移到了习近平身上](https://www.bloomberg.com/news/articles/2021-06-17/with-putin-behind-him-biden-s-focus-shifts-to-china-s-xi)
-
-彭博社6月17日电，拜登表示，中国将成为其政府外交政策的核心，然而，由于普京政府被指控干涉美国选举并窝藏针对美国关键基础设施的黑客，他需要在与俄罗斯的关系中建立一些“道路规则”和可预测性。现在北京成为焦点。对美国经济而言，美中关系远比与俄罗斯的关系复杂和重要，拜登在未来几年与习近平会面并建立富有成效的关系的窗口正在关闭。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103817/unknown-7-4.png)
-
-**5.[民主党在扩大基础设施交易谈判中浮动 6 万亿美元计划](https://www.nytimes.com/2021/06/17/us/politics/democrats-infrastructure-deal-congress.html)**
-
-纽约时报6月17日电，参议院民主党人已经开始私下权衡一项庞大的经济计划，该计划可能高达 6 万亿美元，尽管两党参议员小组正在努力争取支持一个范围更窄的基础设施计划，该计划将投入 5,790 亿美元的新资金来资助实体公共工程项目。目前，这两项计划的细节仍在不断变化，两党中间派参议员都在推进他们的妥协提案，民主党准备使用称为和解的快速预算程序，以避免共和党阻挠他们更大的计划。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18104014/unknown-8-3.png)
-
-审核：蚂蚁兄弟；校对：信心满满；发稿：信心的选择
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-+1
+0
