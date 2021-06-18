@@ -1,43 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6/18/2021 财经快讯：欧盟禁止10家银行出售债券；摩根大通收购投资平台Nutmeg
-` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1331631/)
+## 西喜时事新闻简报 — 实验室起源后续篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1331611/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18080104/%E5%9B%BE%E7%89%871-52.png)[图片来源](https://www.fxeye.com.cn/)
-**1.欧盟禁止10家银行出售债券将如何影响市场和银行？**
+- 作者：**wenwu**
 
-[伦敦，6月17日（路透社）- 十家银行因过去违反反垄断规则而被排除在欧盟银团债务销售之外，这些银行支持布鲁塞尔高达8000亿欧元（9690亿美元）的COVID-19复苏基金。来自世界各地的银行都受到了影响：美国银行摩根大通 (JPM.N)、花旗集团 (C.N) 和美国银行 (BAC.N) 以及英国同行巴克莱银行 (BARC.L) 和 NatWest Group Plc (NWG.L) 都在名单上。在欧洲大陆，德意志银行 (DBKGn.DE)、Natixis SA (CNAT.PA) 和 Credit Agricole SA (CAGR.PA) 和 UniCredit SpA (CRDI.MI) 受到影响；加上日本的野村控股公司（8604.T）；所有银行均拒绝置评。](https://www.reuters.com/business/finance/how-will-eu-ban-10-banks-bond-sales-impact-markets-banks-2021-06-17/)
 
-**2.摩根大通在英国零售业务中收购投资平台Nutmeg**
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-[路透伦敦6月17日 – 摩根大通 (JPM.N) 已收购英国数字财富管理公司Nutmeg，作为这家美国银行进军英国零售银行和投资市场的一部分。这家美国银行正在寻求与成熟的英国零售银行竞争对手和越来越多的金融科技公司竞争，并计划成为其Chase品牌下的全方位服务零售银行。它将与高盛 (GS.N) 的消费品牌Marcus竞争，后者于2018年在英国推出。Nutmeg在一份声明中表示，拥有超过140,000名客户和超过35亿英镑（48.9亿美元）的管理资产的Nutmeg将构成摩根大通国际零售数字财富管理产品的基础。](https://www.reuters.com/technology/jpmorgan-chase-buys-uk-robo-adviser-nutmeg-2021-06-17/)
+**西班牙2021年6月18日电/西喜社——**
 
-**3.澳大利亚住宅总价值超过8万亿美元**
+您若想了解全文报导内容，请点击标题链接
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18081654/11-15.jpg)
+1. [反感川普，顶级病毒学家承认在病毒实验室泄密的理论上向美国公众撒谎数月](https://www.thegatewaypundit.com/2021/06/top-virologists-admit-lying-american-public-months-likely-wuhan-lab-leak-theory-didnt-want-associated-president-trump/)
 
-[根据realestate.com.au的约翰·希利 (John Healy) 的说法，本周发布的新数据“确实强调”了今年年初市场上明显的强劲销售状况和竞争性购买状况。“本周公布的ABS数据发现，澳大利亚1060万套住宅的总价值在3月季度首次达到8.2万亿美元，”他告诉天空新闻。“澳大利亚统计局发现，本季度全国的房地产价格上涨了5.4%，这是自2009年12月季度以来最强劲的价格增长。”](https://www.skynews.com.au/details/_6259392169001)
 
-**4.限制四大会计所的计划可能需要重新制定**
+据《门扉网》**2021**年**6**月**17**日电，阿利娜**·**陈参与了上个月在《科学》杂志上呼吁启动对新冠病毒**“**实验室泄漏假说**”**的调查，参与此次呼吁的共**18**名科学家。陈表示，由于川普把病毒名字政治化助长了对亚洲人的种族主义言论，所以一些科学家害怕公开讨论病毒真相会被川普利用。当然，最终证明川普的实验室泄漏理论是正确的，那**18**名科学家只是想搭顺风车
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18075407/2-35.jpg)
+2. [武汉实验室删除了有关蝙蝠咬伤研究人员的报告](https://thenationalpulse.com/breaking/wuhan-lab-erased-reports-of-bat-bites/)
 
-[伦敦，6月16日（路透社）- 行业监管机构周三表示，迫使英国公司在“四大”和小型会计所之间共享审计的计划受到广泛挑战，可能需要改变。负责监管审计师和公司治理的财务报告委员会首席执行官乔恩·汤普森 (Jon Thompson) 表示，政府已在7月之前向公众咨询了许多变化，其中一些变化引起了强烈反响。一项提议是，四大会计所，无论是安永、毕马威、德勤还是普华永道，必须将审计的大部分分配给玛泽、致同或BDO等“挑战者”，以增加竞争。](https://www.reuters.com/world/uk/plans-rein-big-four-accountants-may-need-rework-watchdog-says-2021-06-16/)
+据《国家脉动》**2021**年**6**月**16**日电，在对野生蝙蝠进行**SARS **研究（可能由美国纳税人[资助）](https://thenationalpulse.com/breaking/watch-wuhan-lab-partner-daszak-admits-he-didnt-really-see-many-bats-in-wet-market-while-describing-studies-using-u-s-taxpayer-money/)互动时，武汉病毒研究所的一名科学家在**2017 **年**12 **月**14 **日的一篇[现已删除的](http://www.whiov.cas.cn/xwdt_105286/kydt/201712/t20171214_4916301.html)文章中透露，他被“蝙蝠咬伤**”**。文章还详细介绍了，武汉实验室如何“分离出第一种“能够感染人体细胞**”**的蝙蝠类**SARS**冠状病毒的活病毒
 
-**5.随着美联储唤醒沉睡的美元，震荡的空头可能会提振收益**
+3. [在武汉实验室问题不断增加的情况下，卫生监督机构正在调查**NIH **的拨款](https://www.washingtonexaminer.com/news/health-watchdog-investigates-nih-grants-wuhan-lab)
 
-[（路透社） – 美联储的强硬转变唤醒了沉睡的美元，将美元推高至数月来的最高水平，并引发了对平仓可能推动更多收益的预期。美元兑一篮子主要货币周四有望创下15个月以来最大的两天百分比涨幅，并处于4月中旬以来的最高水平，此前一天央行将其首次加息预期推迟至2023年。几个月来，做空美元一直是热门交易，因为美联储坚持在通胀上升的情况下仍将维持其超鸽派立场，推动该货币在今年早些时候跌至近3年低点。](https://www.oann.com/analysis-as-fed-wakes-sleeping-dollar-jolted-bears-may-bolster-gains/)
+据《华盛顿审查员》**2021**年**6**月**16**日电，罗格斯大学化学和化学生物学教授理查德**·**埃布赖特**(Richard Ebright)**在**5 **月告诉《华盛顿审查员》，“武汉实验室利用**NIH **的资金构建了新型嵌合**SARS **相关冠状病毒，具有感染人类细胞和实验室动物的能力**”**，并且“研究无疑是功能增强。**”**而最近的**“**福奇邮件门**”**，揭开了他推广病毒自然起源论背后的故事。去年**8**月，福奇的**NIAID**为**“**打杂客**”**恢复了给予武汉实验室的资金
 
-**6.中****共****科学家卷入美国签证欺诈官司**
+4. [拜登政府宣布对**NIH**拨款进行调查，也包括了**“**打杂客**”**这笔](https://www.dailymail.co.uk/news/article-9689515/Biden-administration-announces-investigation-NIH-grants-including-Wuhan-lab.html)
 
-[路透旧金山6月17日 – 斯坦福大学访问学者、中共国脑部研究员陈松去年 7 月因签证欺诈指控被捕，上个月在旧金山举行的法庭听证会带来了一些希望。美国地区法官威廉·阿尔苏普 (William Alsup) 对联邦调查局在首次审讯时未能告知她的权利表示怀疑，称其策略是“噱头”。他此前拒绝了检方提出的以国家安全为由对她案件中的证据保密的要求，美国政府正在上诉这一决定。在北京西钓鱼台医院工作的陈松对指控不认罪，并否认自己是中共军队的现役军人，她目前已获得保释。](https://www.reuters.com/business/finance/chinese-scientists-ensnared-us-visa-fraud-legal-battle-2021-06-17/)
+据《每日邮报》**2021**年**6**月**16**日电，[共和党人](https://www.dailymail.co.uk/news/republicans/index.html)审查了**NIH **对生态健康联盟的资助，其主席**“**打杂客**”**资助了武汉病毒研究所的研究。许多科学家看出新冠病毒的传播速度是无法自然进化出来，拜登政府必然对**“**打杂客**”**向海外汇款的团体进行审查。**“**打杂客**”**对武汉实验室负有监督责任，以确保受赠人是否遵守相关法律和条件
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18075754/3-26.jpg)
+5.[“打杂客**”**作为**WHO**病毒起源调查团队成员，于动身前两月主持了武汉实验室会议](https://thenationalpulse.com/breaking/daszak-headlined-wuhan-conference-before-serving-as-who-investigator/)
 
-**7.高盛上调美国加息预期但并不完全信服**
+据《国家脉动》**2021**年**6**月**15**日电，在福奇的**NIAID**给予生态健康联盟美国纳税人的资金后，武汉病毒研究所得到了生态健康联盟的数十万美元，以合作开展**“**杀手级**”**蝙蝠冠状病毒研究。**2020**年**11**月**26**日，**“**打杂客**”**参与了由武汉病毒研究所**/**共产党主办的[《第九届新发病毒性疾病国际研讨会》](http://www.whiov.cas.cn/xwdt_160278/xsdt2019/202012/t20201202_5806582.html)，石正丽将**“**打杂客**”**描述为她的**“**长期合作者**”**；另外，**NIAID**的病毒生态学负责人文森特**·**蒙斯特**(Vincent Munster)**也在会议中发表讲话。而后**“**打杂客**”**于**2**月以世卫组织起源调查组成员身份回头再次访问了该设施
 
-[路透6月17日 – 高盛已根据央行决策者的最新预测，调整了对美联储在病毒大流行后首次加息时间至2023年的预测。然而，高盛在周三晚些时候的每日简报中表示，美联储在2023年底前加息的可能性“仅略高于50%，因为升息很容易因低于预期的通胀或更大幅度的减速而脱轨。” 这家投资银行表示，将其对2023年第三季度的初始加息预测从先前预测的2024年第一季度修正为2023年第三季度，理由是美联储为加息设定的通胀门槛较低。](https://www.reuters.com/business/goldman-moves-up-forecast-us-rate-hike-not-fully-convinced-2021-06-17/)
+审核：蚂蚁兄弟； 校对：信心满满； 发稿：Nuevo唐人
 
-**8.英国零售销售下滑，消费者摆脱封锁外出就餐**
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-[伦敦（路透社）- 根据官方数据，英国上个月零售额意外下降，因为解除封锁限制鼓励在餐馆而不是商店消费。国家统计局表示，4月至5月的零售额下降了1.4%。路透社对经济学家的一项调查显示，5月份零售额环比增长1.6%。19个预测中只有三个显示下降。食品店遭受的打击最大，销售额下降了5.7%。另外，周五英国最大的零售商连锁超市乐购 (Tesco) 报告称，其第一季度英国基本销售额增长急剧放缓。英国国家统计局表示：“坊间证据表明，随着人们重返餐厅和酒吧等场所的饮食，放松招待限制对销售产生了影响。”](https://www.oann.com/uk-retail-sales-dip-as-consumers-freed-from-locked-down-dine-out/)
 
-By 【秘密翻译组-金融组】
-作者：小海星
 
-0
+
+
+
+
+
+
++1
