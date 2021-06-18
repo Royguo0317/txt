@@ -1,175 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Myway专栏】病毒和疫苗合辑
-` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1331620/)
+## 美财长耶伦：美国可能在某些领域与中共国脱钩以保护安全
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1331867/)
 
-Gnews病毒真相小组 整理
+【日本东京方舟农场】撰稿：青衣         校对：MIMI
 
+据《法国国际广播电台》6月17日报道，美国财政部长耶伦6月16日在出席国会听证会时表示，她预计美国将在某些领域与中共国脱钩，以保护国家安全。她同时还表达出对两国在技术方面完全断绝关系的担忧。
 
+耶伦周三出席了美国国会参议院金融委员会的听证会。她在发表开场白时表示，她上任初始，美国经济所面临的第一个最紧迫的问题显然是新冠（中共病毒）疫情。但同时也必须清楚地认识到，大流行病不是美国唯一的经济问题。早在疫情爆发之前，美国就有数百万人面临着一系列长期的、结构性的经济挑战。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18095231/55D5EDD0-6A36-42F9-A10B-E4A3C9923E8D.jpeg)
 
+在问答环节中，耶伦向参议院金融委员会的参议员们表示，“我们正在研究我们拥有的全部工具，以回击和纠正损害我们国家安全和我们更广泛经济利益的做法”。她在发言中引用了对中共国在美国的潜在有害投资的遏制。不过耶伦说，“我对（美国与中国之间）完全的技术脱钩有些担心。” 她指出，许多美国盟友不愿意大幅减少他们在中共国的商业活动。
 
-## 新冠病毒预防和治疗方案总结
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18084203/h141480-1.jpg)](https://gnews.org/zh-hans/1327734/)
-[新型冠状病毒肺炎大多数感染者表现为无症状或轻度或中度症状，但其中约有15-20%的患者会发展为重症肺炎，约5%的患者发展为急性呼吸窘迫综合征。本篇文章收录了一些新冠的治疗方法。](https://gnews.org/zh-hans/1327734/)
+此外，有关月初的七国集团财政会议，就全球最低企业税达成协议，同意对跨国公司征收至少15%的税的问题，耶伦表示，美国不会同意给予中共国或其他国家任何类型的特殊待遇，从而削弱全球最低税制。她说，美国和其他国家正在继续努力，以说服中共国支持七国集团在上周日认可的计划。耶伦表示，她希望中共国政府能支持这些计划，因为这也符合中方利益。
 
+耶伦被认为是亲共的拜登政府官员。从她嘴里说出“脱钩”二字，说明中美之间的脱钩已势在必行。不过，耶伦强调的是“在某些领域”或 “一定程度上的”脱钩，并且借用了他人之名说“许多美国盟友不愿意大幅减少在中共国的商业活动”。或许在她眼中利益还是非常重要的。然而在利益与安全之间究竟该如何选择，并不是一个难选题。耶伦本人可能并不希望中美全面脱钩，但大势所趋，耶伦左右不了最终结局。
 
+注：本文仅代表作者观点
 
+参考链接：
 
+1. [https://twitter.com/RFI\_Cn/status/1405514847106650114](https://twitter.com/RFI_Cn/status/1405514847106650114)
+2. [https://www.usnews.com/news/us/articles/2021-06-16/yellen-says-us-may-decouple-to-some-extent-from-china-to-protect-security](https://www.usnews.com/news/us/articles/2021-06-16/yellen-says-us-may-decouple-to-some-extent-from-china-to-protect-security)
 
-## 疫苗的副作用收集与分析
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18085123/B506E3EC-2657-4669-921A-6482E1151431-768x451-1.jpeg)
 
-
-## [COVID-19疫苗隐藏的不良事件](https://gnews.org/zh-hans/1320579/)
-
-
-
-
-
-## [多名妇女在接种新冠疫苗后流产](https://gnews.org/zh-hans/1289458/)
-
-
-
-
-
-## [英国新冠疫苗不良事件汇总](https://gnews.org/zh-hans/1280610/)
-
-
-
-
-
-## [欧洲中共病毒疫苗接种不良事件统计](https://gnews.org/zh-hans/1269142/)
-
-
-
-
-
-## [以色列发现辉瑞公司中共病毒疫苗对人体的灾难性副作用](https://gnews.org/zh-hans/1220160/)
-
-
-
-
-
-## [印度为何在大规模中共病毒疫苗接种后疫情爆发](https://gnews.org/zh-hans/1177409/)
-
-
-
-
-
-## [关于中共病毒和疫苗现状的思考](https://gnews.org/zh-hans/1048176/)
-
-
-
-
-
-
-
-
-
-## 疫苗和病毒的毒性分析
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13091107/4ECA3C58-0FE5-416E-A76D-1823671F5116-1.jpeg)
-
-
-## [mRNA疫苗中的纳米颗粒和磁珠](https://gnews.org/zh-hans/1291643/)
-
-
-
-
-
-## [纳米磁珠粒子的前世今生](https://gnews.org/zh-hans/1316219/)
-
-
-
-
-
-## [有毒的S蛋白](https://gnews.org/zh-hans/1288957/)
-
-
-
-
-
-## [新冠疫苗为何引起血栓和其它不良反应](https://gnews.org/zh-hans/1281702/)
-
-
-
-
-
-## [mRNA疫苗的本质](https://gnews.org/zh-hans/1273173/)
-
-
-
-
-
-## [中共病毒疫苗及其次生灾难](https://gnews.org/zh-hans/1264684/)
-
-
-
-
-
-
-
-## 病毒超限战解析合辑
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13070018/75bc97c842ab9ae8_mh1615015673612.jpg)](https://gnews.org/zh-hans/1319372/)随着对中共病毒来源调查的步步深入，参与此邪恶计划的各方力量都已浮出水面。本文对已有的中共病毒超限战情报进行了梳理与汇总
-
-
-
-
-## 中共制毒体系挖掘
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18093859/image1-4-1.png)
-
-
-## [中共病毒超限战到底准备了多久](https://gnews.org/zh-hans/1150251/)
-
-
-
-
-
-## [由陈薇少将的公子简历看中共造假](https://gnews.org/zh-hans/1139455/)
-
-
-
-
-
-## [浅谈中共动物病毒奠基人殷震](https://gnews.org/zh-hans/1134856/)
-
-
-
-
-
-## [中共官方删除武汉病毒所石正丽所有研究资料](https://gnews.org/zh-hans/739468/)
-
-
-
-
-
-
-
-
-
-## 其他文章
-
-
-
-福奇资助将流产胎儿头皮移植到活体大鼠上的邪恶实验
-
-
-
-> [福奇资助将流产胎儿头皮移植到活体大鼠上的邪恶实验](https://gnews.org/zh-hans/1193866/)
-
-
-
-
-
-如何劝说身边的人不去打中共病毒疫苗
-
-
-
-> [如何劝说身边的人不去打中共病毒疫苗](https://gnews.org/zh-hans/1175791/)
-
-
-
-
-
-+1
+0

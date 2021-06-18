@@ -1,29 +1,175 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国外交事务委员会称中共为“多边主义风险”；列出阻止的步骤
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1331846/)
+## 【Myway专栏】病毒和疫苗合辑
+` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1331620/)
 
-翻译：康州盘古农场 – B7
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 – 傻小子
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18093757/1036.jpg)
-**据republicworld作者：苏奇特拉·卡蒂克扬 (Suchitra Karthikeyan)2021 年 6 月 17 日发布**
+Gnews病毒真相小组 整理
 
-在康沃尔七国集团会议几天后，英国外交事务委员会周四将中共因其扩张主义政策而称为对多边主义的威胁。 在一份长达 75 页的题为“英国在多边外交中的作用”的报告中，该委员会列出了中共的侵略性外交、试图夺取战略重要组织的控制权、经济影响力，并指出如果不加以阻止，“民主国家将有可能将多边组织输给专制国家”。 报告详细描述了中共在世卫组织、世贸组织、联合国人权事务高级专员办事处和人权委员会上的滑稽动作，称“中共有能力破坏多边机构的有利地位”。
 
-**英国委员会：“中共对多边主义构成威胁”**
-“英国外交事务委员会在其报告中指出，“我们看到中共国等国家试图夺取对具有重要战略意义的组织的控制权，并从根本上重新定义它们所依据的曾经普遍认同的原则。这使得多边组织可以被武器化而对抗建立它们的基本原则。如果不加以制止，这一趋势将使中共处于日益强大的地位，它可能会利用这种地位来破坏多边组织的基本原则和任务”。
 
-该小组列出了中共利用经济杠杆获得多边支持的“一带一路”倡议，同时谴责中共的侵略性外交，称其“欺负”世卫组织、联合国人权事务高级专员办事处和人权委员会。 这有助于中共国制定议程，使俄罗斯等志同道合的国家支持它，将支持其团体整合到此类组织中。 英国专家组还将全球卫生列为中共国对其资金和代表的影响不成比例的领域，并敦促英国与其他国家合作，取消中共国在世贸组织中的发展中国家分类。
 
-**G7承诺与中共国“对抗和竞争”**
-在七国集团会议上，美国、英国、德国、法国、意大利、加拿大和日本这七大经济强国誓言要与中共国就新出现的挑战“对抗和竞争”，包括对民主的威胁和全球技术竞赛。 领导人同意在解决中共问题时需要一个共同的议程，包括他们“站起来，对抗和竞争”的内容。 据报道，中共对 G7 会议的反应是警告一些最富裕国家的领导人，“一小撮”国家决定世界命运的日子已经一去不复返了。印度与七国集团已联手，用自己的力量对抗中共国的“一带一路”倡议。
 
-原文连接：[https://www.republicworld.com/world-news/uk-news/uk-foreign-affairs-committee-terms-china-a-risk-to-multilateralism-lists-steps-to-deter.html](https://www.republicworld.com/world-news/uk-news/uk-foreign-affairs-committee-terms-china-a-risk-to-multilateralism-lists-steps-to-deter.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+## 新冠病毒预防和治疗方案总结
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18084203/h141480-1.jpg)](https://gnews.org/zh-hans/1327734/)
+[新型冠状病毒肺炎大多数感染者表现为无症状或轻度或中度症状，但其中约有15-20%的患者会发展为重症肺炎，约5%的患者发展为急性呼吸窘迫综合征。本篇文章收录了一些新冠的治疗方法。](https://gnews.org/zh-hans/1327734/)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-0
+
+
+
+## 疫苗的副作用收集与分析
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18085123/B506E3EC-2657-4669-921A-6482E1151431-768x451-1.jpeg)
+
+
+## [COVID-19疫苗隐藏的不良事件](https://gnews.org/zh-hans/1320579/)
+
+
+
+
+
+## [多名妇女在接种新冠疫苗后流产](https://gnews.org/zh-hans/1289458/)
+
+
+
+
+
+## [英国新冠疫苗不良事件汇总](https://gnews.org/zh-hans/1280610/)
+
+
+
+
+
+## [欧洲中共病毒疫苗接种不良事件统计](https://gnews.org/zh-hans/1269142/)
+
+
+
+
+
+## [以色列发现辉瑞公司中共病毒疫苗对人体的灾难性副作用](https://gnews.org/zh-hans/1220160/)
+
+
+
+
+
+## [印度为何在大规模中共病毒疫苗接种后疫情爆发](https://gnews.org/zh-hans/1177409/)
+
+
+
+
+
+## [关于中共病毒和疫苗现状的思考](https://gnews.org/zh-hans/1048176/)
+
+
+
+
+
+
+
+
+
+## 疫苗和病毒的毒性分析
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13091107/4ECA3C58-0FE5-416E-A76D-1823671F5116-1.jpeg)
+
+
+## [mRNA疫苗中的纳米颗粒和磁珠](https://gnews.org/zh-hans/1291643/)
+
+
+
+
+
+## [纳米磁珠粒子的前世今生](https://gnews.org/zh-hans/1316219/)
+
+
+
+
+
+## [有毒的S蛋白](https://gnews.org/zh-hans/1288957/)
+
+
+
+
+
+## [新冠疫苗为何引起血栓和其它不良反应](https://gnews.org/zh-hans/1281702/)
+
+
+
+
+
+## [mRNA疫苗的本质](https://gnews.org/zh-hans/1273173/)
+
+
+
+
+
+## [中共病毒疫苗及其次生灾难](https://gnews.org/zh-hans/1264684/)
+
+
+
+
+
+
+
+## 病毒超限战解析合辑
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13070018/75bc97c842ab9ae8_mh1615015673612.jpg)](https://gnews.org/zh-hans/1319372/)随着对中共病毒来源调查的步步深入，参与此邪恶计划的各方力量都已浮出水面。本文对已有的中共病毒超限战情报进行了梳理与汇总
+
+
+
+
+## 中共制毒体系挖掘
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18093859/image1-4-1.png)
+
+
+## [中共病毒超限战到底准备了多久](https://gnews.org/zh-hans/1150251/)
+
+
+
+
+
+## [由陈薇少将的公子简历看中共造假](https://gnews.org/zh-hans/1139455/)
+
+
+
+
+
+## [浅谈中共动物病毒奠基人殷震](https://gnews.org/zh-hans/1134856/)
+
+
+
+
+
+## [中共官方删除武汉病毒所石正丽所有研究资料](https://gnews.org/zh-hans/739468/)
+
+
+
+
+
+
+
+
+
+## 其他文章
+
+
+
+福奇资助将流产胎儿头皮移植到活体大鼠上的邪恶实验
+
+
+
+> [福奇资助将流产胎儿头皮移植到活体大鼠上的邪恶实验](https://gnews.org/zh-hans/1193866/)
+
+
+
+
+
+如何劝说身边的人不去打中共病毒疫苗
+
+
+
+> [如何劝说身边的人不去打中共病毒疫苗](https://gnews.org/zh-hans/1175791/)
+
+
+
+
+
++1
