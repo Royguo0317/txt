@@ -1,42 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/16 班农专访(1) 联邦法院第一次对中共提起诉讼
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1330287/)
+## 2021/06/16 班农专访(4) 闫博士是人类的英雄，必须受到保护
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1330333/)
 
-视频字幕：雨中漫步 | 听写：云岭| 翻译：Wade | 校对：Roberts |简评/文字整理/编辑：胖丁|Page：小雨
+视频字幕：free20200604 |听写：云岭|翻译：Wade|校对：云岭|简评/文字整理/编辑：胖丁|Page：小雨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17201808/1-23-35.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17202218/1-25-8.jpg)
 
 **简评：**
 
-麦克•林戴尔于6月4日在联邦法院，把中共作为联合被告，提起了对多米尼的诉讼。中共“五毛”大军进行网络攻击的证据和119网络小组，都会包括在卷宗中。这是联邦法院第一次对中共提起诉讼，因为中共干预2020年美国大选。
+闫博士的先生悄悄潜入美国，伺机杀害闫博士和其他重要的反共人士。闫博士的安全是重中之重，因为她是全人类的英雄，必须得到保护。
 
-麦克•林戴尔和班农先生邀请GNews和GTV作为主要媒体，对在七月份举行的、持续一天的座谈会进行实况直播和访谈。然后，直接向最高法院提起诉讼，反转选举结果。
+马特•盖茨（弗罗里达众议员）全面炮轰FBI，指责FBI忽视了闫博士提供的信息，这本来可以挽救很多人的生命。美国正在调查，细节不便透露。闫博士确定受到保护。
 
-**GTV视频链接**：[英喜班农专访Q1：谈麦克•林戴尔在6月4日对中共提起的诉讼](https://gtv.org/video/id=60cb50913d6f40323c1dd1a6)
+**GTV视频链接**：[英喜每周班农专访Q4：谈美国安全部门对闫博士丈夫发出威胁的应对（2021年6月16日）](https://gtv.org/video/id=60cb54563d6f40323c1dd221)
 
 
 
 **视频字幕：**
 
-**主持人Mike**：我们知道麦克•林戴尔在6月4号提起了一项对中共的诉讼，这对灭共有怎样的加速作用？
+**主持人Winston**：让我们谈谈闫博士的先生，他现在就在美国。闫博士说，她的丈夫威胁要杀害她，还有其他包括班农先生你在内的重要人士。美国安全部门正在严肃应对这件事情吗？
 
-**班农先生**：第一，他在联邦法院对多米尼的诉讼，把中共作为联合被告。这是在联邦法院第一次对中共的诉讼，因为干预美国大选。
+**班农**：这么说吧，因为塞林上校还有其他人…闫博士的安全是第一位的，不仅为了中国百姓。因为她的勇气，她已经成了美国人的大英雄。所以她的安全是第一位的。
 
-第二，你们还没看到。最高法院的诉讼直到七月才会提交。他正在发出邀请，我也在这里对GNEWS、GTV，还有你们的节目组发出邀请。他将举行一个持续一整天的座谈会，让人们反驳他的证据。他邀请GNEWS和GTV作为主要媒体进行独家专访。因为你们节目，和GNEWS、GTV的力量。然后，他会直接向最高法院提起诉讼。
+我们正在调查她的先生。她的先生不是好人，而且在为一帮坏人做事。我不能透漏更多，但我们正在调查。
 
-所以有两条轨道。一条是直接上诉最高法院，反转选举结果。另外一条是在联邦法院诉讼多米尼公司，并将中共作为被告之一。
+观众们应该理解，对于文贵、我自己还有所有人来说，闫博士的安全是绝对的重中之重。
 
-中共五毛大军进行网络攻击的证据和119的网络小组，所有这些都会被包括在卷宗之中。所以中共非常不安。
+记住，马特•盖茨（弗罗里达众议员）已经对FBI全面开火了，FBI对闫博士的做法非常糟糕。他们一年前就知道这些事情，本应该帮她把消息传递出去。但这一切都会水落石出，盖茨是一个层面，还有其他人在其他层面努力。
 
-我们知道中共因为这些诉讼坐立不安。但林戴尔就是美国版的文贵。他下定了决心就绝对不会松手，这将非常重磅。我想说的是，林戴尔刚刚宣布了持续一天的座谈会。他将展示所有的证据，允许全世界网络专家进行检验。他邀请GNEWS、GTV还有你们的节目进行实况直播和访谈。
+我不能透漏更多，但观众们应该理解，闫博士的安全是我们所有人最在乎的事情。因为她不止是中国人的英雄，不止是美国人的英雄，她是全人类的英雄，真正的英雄。我们将确保她受到保护。
 
-**完整访谈视频：[班农专访（2021年6月16日）](https://gtv.org/video/id=60c9fcc2b96c69573d803a00)**
+[!\[\]()!\[\](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/83c750f0-a9a1-4da9-aeb7-adaee4adec42.jpg?asset_id=082bd2a3-815e-4504-971a-7c8fb8dbf97b&amp;img_etag=%22c25b69ab22b328444599c91fcf48afe6%22&amp;size=2560)](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/83c750f0-a9a1-4da9-aeb7-adaee4adec42.jpg?asset_id=082bd2a3-815e-4504-971a-7c8fb8dbf97b&amp;img_etag=%22c25b69ab22b328444599c91fcf48afe6%22&amp;size=1024)
+
+**完整访谈视频：**[每周班农采访 （2021年6月16日）](https://gtv.org/video/id=60c9fcc2b96c69573d803a00)
 
 🎤**主播：**Winston，Mike，Dr. TCC
 
-[!\[\]()!\[\](https://spark.adobe.com/page/R0lfMEYurLBqL/images/86859167-50fd-4ead-8115-1a96839105ff.png?asset_id=834ea3c5-3d4c-4a19-b5ac-7ea43f4329fe&amp;img_etag=%22362a452a71eeae3c55949955c234b11a%22&amp;size=1024)](https://spark.adobe.com/page/R0lfMEYurLBqL/images/86859167-50fd-4ead-8115-1a96839105ff.png?asset_id=834ea3c5-3d4c-4a19-b5ac-7ea43f4329fe&amp;img_etag=%22362a452a71eeae3c55949955c234b11a%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/b3c3ee5b-1655-470d-931e-ef059bbf7648.png?asset_id=2e36b7d8-e1df-4df0-a669-d80387ab5f62&amp;img_etag=%2243bcdfb210a7ba737c6abe83329a5be5%22&amp;size=2560)](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/b3c3ee5b-1655-470d-931e-ef059bbf7648.png?asset_id=2e36b7d8-e1df-4df0-a669-d80387ab5f62&amp;img_etag=%2243bcdfb210a7ba737c6abe83329a5be5%22&amp;size=1024)
 
 - [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
 - [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
@@ -51,6 +53,6 @@
 - [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/R0lfMEYurLBqL/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/R0lfMEYurLBqL/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

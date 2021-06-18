@@ -1,58 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/16 班农专访(4) 闫博士是人类的英雄，必须受到保护
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1330333/)
+## 赤裸裸的杀人,长春生物再次出现在疫苗名录
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1330403/)
 
-视频字幕：free20200604 |听写：云岭|翻译：Wade|校对：云岭|简评/文字整理/编辑：胖丁|Page：小雨
+撰稿：最后的救赎
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17202218/1-25-8.jpg)
+昨天，中共国墙内一则新闻被刷屏，北方地区很多注射CCP疫苗的民众发问，称：“自己第一针打的北京生物疫苗，为什么第二针变成了长春生物疫苗？”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17212007/16239788551.png)
+长春长生这个名字一定另无数人记忆犹新，甚至是恨之入骨，2019年6月份，由于造假狂犬病疫苗和百白破疫苗，长春长生被法院破产清算。今天，它的名字赫然出现在第二剂疫苗的名单上，令大众非常吃惊并疑虑重重。
 
-**简评：**
+疫苗造假是中共传统的产业链造假的重灾区，今天再次出现在公众的视野。众所周知，因为疫苗背后隐藏的巨大利益，疫苗的生产和销售被某些中南海的利益集团所掌控，他们不会把民众的安全放在第一位，他们考虑的是想尽一切手段，压榨和盘剥老百姓，盗取医保体系的资金并据为己有。在很多发达国家，对新生儿和儿童的疫苗接种实施是可供选择的，由家长自主选择是否接受疫苗的接种。而在中共国，疫苗是强制性的，是所谓的政治任务，是牟利工具。
 
-闫博士的先生悄悄潜入美国，伺机杀害闫博士和其他重要的反共人士。闫博士的安全是重中之重，因为她是全人类的英雄，必须得到保护。
+爆料革命一直在揭露病毒真相和疫苗真相，同时，国内外众多的生物科技专家都发出警告：不要接种疫苗！在没有被完全证实有效的情况下，疫苗隐藏的伤害性极大，而在中共国，疫苗本身的危害性被隐瞒，共匪采取各种隐性的手段，胁迫民众强制注射，成为共匪执政免责的政治工具。
 
-马特•盖茨（弗罗里达众议员）全面炮轰FBI，指责FBI忽视了闫博士提供的信息，这本来可以挽救很多人的生命。美国正在调查，细节不便透露。闫博士确定受到保护。
+你会相信一个信用完全破产的生物医药公司吗？我不会，我们希望更多的墙内民众能够意识到这一点，不要相信他们。CCP的信用在国际上已经完全破产，在墙内，他们不断依靠隐瞒、欺骗、说谎、洗脑来维系这个岌岌可危的伪政权，眼前发生的一桩桩一件件事情，会让更多的人觉悟，共匪的信用已经不可避免地走向崩塌。
 
-**GTV视频链接**：[英喜每周班农专访Q4：谈美国安全部门对闫博士丈夫发出威胁的应对（2021年6月16日）](https://gtv.org/video/id=60cb54563d6f40323c1dd221)
+在CCP灭亡的最后阶段，他们已经完全不在乎民众的想法，不加掩饰地开始作恶，三鹿奶粉因为假奶粉事件倒闭后，至少还换个名字（君乐宝）重新包装上市，而今天的长春生物已经完全不顾吃相，在众目睽睽之下，青面獠牙卷土重来。他们不是为民众的健康和福祉，而是为了利益，赤裸裸的杀人！
 
+(本文章仅代表作者个人观点)
 
+编辑：五饼二鱼
 
-**视频字幕：**
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-**主持人Winston**：让我们谈谈闫博士的先生，他现在就在美国。闫博士说，她的丈夫威胁要杀害她，还有其他包括班农先生你在内的重要人士。美国安全部门正在严肃应对这件事情吗？
-
-**班农**：这么说吧，因为塞林上校还有其他人…闫博士的安全是第一位的，不仅为了中国百姓。因为她的勇气，她已经成了美国人的大英雄。所以她的安全是第一位的。
-
-我们正在调查她的先生。她的先生不是好人，而且在为一帮坏人做事。我不能透漏更多，但我们正在调查。
-
-观众们应该理解，对于文贵、我自己还有所有人来说，闫博士的安全是绝对的重中之重。
-
-记住，马特•盖茨（弗罗里达众议员）已经对FBI全面开火了，FBI对闫博士的做法非常糟糕。他们一年前就知道这些事情，本应该帮她把消息传递出去。但这一切都会水落石出，盖茨是一个层面，还有其他人在其他层面努力。
-
-我不能透漏更多，但观众们应该理解，闫博士的安全是我们所有人最在乎的事情。因为她不止是中国人的英雄，不止是美国人的英雄，她是全人类的英雄，真正的英雄。我们将确保她受到保护。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/83c750f0-a9a1-4da9-aeb7-adaee4adec42.jpg?asset_id=082bd2a3-815e-4504-971a-7c8fb8dbf97b&amp;img_etag=%22c25b69ab22b328444599c91fcf48afe6%22&amp;size=2560)](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/83c750f0-a9a1-4da9-aeb7-adaee4adec42.jpg?asset_id=082bd2a3-815e-4504-971a-7c8fb8dbf97b&amp;img_etag=%22c25b69ab22b328444599c91fcf48afe6%22&amp;size=1024)
-
-**完整访谈视频：**[每周班农采访 （2021年6月16日）](https://gtv.org/video/id=60c9fcc2b96c69573d803a00)
-
-🎤**主播：**Winston，Mike，Dr. TCC
-
-[!\[\]()!\[\](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/b3c3ee5b-1655-470d-931e-ef059bbf7648.png?asset_id=2e36b7d8-e1df-4df0-a669-d80387ab5f62&amp;img_etag=%2243bcdfb210a7ba737c6abe83329a5be5%22&amp;size=2560)](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/b3c3ee5b-1655-470d-931e-ef059bbf7648.png?asset_id=2e36b7d8-e1df-4df0-a669-d80387ab5f62&amp;img_etag=%2243bcdfb210a7ba737c6abe83329a5be5%22&amp;size=1024)
-
-- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
-- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
-
-
-***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:00 （美东时间09：00）直播***
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
-
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 0
