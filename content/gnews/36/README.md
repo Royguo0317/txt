@@ -1,65 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社即时简报】拜习十月会晤？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1330523/)
+## 【热点播报】中共出动最高数量战机扰台，示威北约
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1330532/)
 
-香草山翻译部：GBW
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16121240/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+作者：纽约香草山健身部 Jack Li文阳
 
 
 
-路德社, 2021年6月17日晚，路博艾
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
 
-**1. 耶伦称美国可能在某种程度上与中国脱钩以保护其国家安全。她对美中全面科技脱钩表示关注。**
 
-a. 博博士：耶伦对中国的态度相对鸽派。脱钩短期内会有痛苦，但长期来说是好事。
 
-b. 艾丽：脱钩的方向是正确的，但问题是如何尽量减少对美国的不利影响。
+G7和北约组织峰会后，6月15日，中国作出高调对抗的行动，派出28架军机进入台湾西南空域。台湾国防部指出，这是中共国军机数量最高的一次扰台行动，这28架军机包括14架歼16、6架歼11、2架空中预警、1架运8反潜机、1架运8干扰机以及4架可携带核武器的轰6军机，向西方宣示对抗姿态。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17221636/Untitled-design-2021-06-17T201418.073.png)图片来源：台湾国防部
+七国集团发布公报呼吁中共国尊重人权和基本自由，尤其是在新疆以及《中英联合声明》中所赋予香港的权利、自由和高度自治，首次表示七国关注台海和平与稳定。公报呼吁由WHO牵头，就新冠病毒作透明的溯源调查。
 
-**2. 白宫将考虑安排拜登和习近平十月会谈。**
+另外，北大西洋公约组织峰会于6月14日在比利时召开，30个成员国发表联合公报，将中共国列为北约面临的系统性安全威胁。
 
-a. 博博士：拜登刚说了不是好朋友，现在安慰一下习近平。时间点很敏感，病毒报告已经出来。
+在美欧领袖共商谋划围堵中共的国际环境下，中共派出最高数量的战机扰台，就是要向西方展现中共将继续顽抗到底的姿态，另外，大有为墙内韭菜壮胆打气，表示中共决不退缩，军警更不能认怂的信息。
 
-b. 艾丽：习近平将出席20国集团峰会，所以这不是一个特别安排的一对一的会议。
+中共共产邪教在习神的引领下，已经开启了它的末日疯狂模式。中共不但靠“蓝金黄”和“假骗偷”欺骗偷盗全球，还发动超限病毒战，祸害全世界。
 
-c. 路德：美国布局已经完成。十月才和习近平见面，中共要挽回局面已经太晚了。
+当世界全面意识到中共霸权，开始集结应对时，中共仍不知天高地厚，继续疯狂以武力威胁世界。虽然中共会继续施放病毒，世界还会有更多的人伤亡。但世界不会因此屈服于中共邪魔。无论中共如何疯狂，以其一国之力，就算纠集一帮丐帮国家，妄图挑战欧美先进国家，真不知习神凭啥有如此的胆气？
 
-**3. Gateway Pundit:麻省理工学院和哈佛大学的博士后Alina Chan承认，为了避免成为川普的 “工具”，她对武汉病毒研究所可能发生的实验室泄密事件撒谎。**
+参考阅读：https://www.dw.com/zh/%E6%9C%80%E5%A4%A7%E8%A7%84%E6%A8%A128%E6%9E%B6%E4%B8%AD%E5%9B%BD%E5%86%9B%E6%9C%BA%E8%BF%9B%E5%85%A5%E5%8F%B0%E6%B9%BE%E7%A9%BA%E5%9F%9F/a-57905647
 
-a. 艾丽：科学家现在开始反水，承认之前将病毒政治化。
+https://www.ntdtv.com/b5/2021/06/16/a103143642.html
 
-**4. 华尔街日报：因为新疆人权问题，北京冬奥会应该换地点。**
+https://www.rfa.org/mandarin/yataibaodao/gangtai/hx2-06152021084558.html
 
-a. 路德：谷歌翻译成“应该举行。”
+校对/发稿：火内
 
-b. 路德：左派通过《华尔街日报》对抵制冬奥会做个铺垫。
 
-**5. 环球时报：普拜会本身就是成果，但不容更多幻想。**
-
-a. 路德：配图是清朝的海水江崖图，代表一统江山。
-
-视频链接：[https://www.youtube.com/watch?v=j6BN77t6NFE](https://www.youtube.com/watch?v=j6BN77t6NFE)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-编辑/校对/发稿：正义的小新
+
 
 **更多资讯，更多关注**
 
 [**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

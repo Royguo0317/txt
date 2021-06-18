@@ -1,82 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读美财长称中美将在一定程度上脱钩，及美左媒开始抵制北京冬奥会
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1330724/)
+## 量子时代悄然来临
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1330805/)
 
-直播视频：
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18000519/b100-ikcacer3508964.jpeg)
+量子力学被认为是当前支配宇宙中所有物理现象的最基本的力学系统，它兴起于20世纪初期的前30年，此后便改变了世界的运作模式。其影响包括无线电技术、激光技术、医学成像技术、创建并支撑着电子互联网、促成了20世纪数字电子革命的晶体管技术和半导体技术的发展，直到电子计算机的广泛应用至今，这个时期习惯上称为电子时代，或量子1.0 时代。随着这些技术的发展已经达到其物理几何极限，经过一百年的理论探索和基础实验，第二波革命性的量子科技正趋于成熟，终于从晦涩难懂的理论步入切实可行的工程技术实践，由人类对世间万物的好奇之心转变为现实的具体行动。科技工作者已经证明了量子物理学所具有的革命性概念的正确性，验证了包括精密量子传感器、量子计算机和安全的量子通信网络的可行性，并开始将这些技术正成功地商业化，以此推动整个新型产业——量子工业、这个可以支撑未来几十年的产业发展。而量子科技在其它行业和众多领域的推广应用，将彻底改变游戏规则，对我们人类的生活、经济活动甚至人们的观念意识和思维模式都将引发彻底颠覆性的革命。在静悄悄地不知不觉中，人类已经跨入量子2.0时代。
+
+在最近几年全球对量子技术的投资迅猛增长，不管是私人投资家、商业团体，还是各国政府都对量子科技的商业潜力持有坚定的信心和激情，都意识到了它的重要性。全球至少52个量子科技公司在2012~2018年间的投资额就增长了4倍（如图一）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18000734/%E5%9B%BE%E7%89%87-1-7.jpg)
+在2019年私人投资还继续增长，而且这些数据还不包括那些科技巨头如IBM、GOOGLE、MICROSOFT的投资。许多国家的政府也实施了量子战略投资规划，促进本国量子工业的开发进程（如表一）。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18000802/%E5%9B%BE%E7%89%87-2-2.png)
+由于量子技术在安全通信和国防领域中的应用具有巨大的潜力，这些国家都认识到发展量子科技不仅仅是长期的价值投资，更重要的是关乎国家主权安全。
+
+美国在2018年12月21日发布了“国家量子倡议法案”（ NATIONAL QUANTUM INITIATIVE ACT, PUBLIC LAW 115–368—DEC. 21, 2018），该法案设立一个“联邦计划，为美国的经济和国家安全加速量子研究和开发”。该法案允许拨款超过10亿美元，以支持量子技术的研究和开发（R&D），包括量子计算。2019年3月，白宫科技政策办公室设立了国家量子协调办公室，以 “与联邦机构合作制定和维护量子计划，与利益攸关方联系，[并]使研发基础设施的获取和使用成为可能”。而在2019年8月，特朗普总统通过了一项行政命令，成立了国家量子计划咨询委员会。
+
+而美国民间早在上个世纪70年代就已经开始了量子计算的基础研究，比如美国IBM公司量子技术积累已有50年。更具有历史意义的是在1981年5月，在波士顿郊外一座城堡式的豪宅中的一个会议中心，几十名物理学家和计算机科学家聚集在一起，进行为期三天的会议。集合的脑力是强大的。其中一位与会者，加州理工学院的理查德-费曼(Richard Feynman)已经是诺贝尔奖获得者，其他许多人，如保罗-贝尼奥夫、阿瑟-伯克斯、弗里曼-戴森、爱德华-弗雷德金、罗尔夫-兰道尔、约翰-惠勒和康拉德-祖思，都是各自研究领域中最有成就的人物。
+
+他们参加的会议是 “计算的物理学”，由IBM和麻省理工学院的计算机科学实验室共同主办。它将被视为量子计算历史上的一个开创性时刻–尽管当时在场的任何人都没有意识到这一点。就是这一次会议开启了今天的量子计算时代。
+
+为什么这次会议如此重要？根据许多后来的说法，费曼通过呼吁创建量子计算机而使这次会议充满了活力。但 “我不认为他是这样说的。”贝内特争辩说，他认为费曼的评论与其说是对行动的呼吁，不如说是一种挑衅性观察。”他只是说世界是量子化的，”贝内特回忆说。”因此，如果你真的想建立一台计算机来模拟物理学，那可能应该是一台量子计算机。”目前至少有17个国家都对量子科技及产业制定了短、长期兼顾的规划。澳大利亚的国家科学机构在2020年5月公布了《壮大澳大利亚的量子技术技术产业报告》 （“Growing Australia’s Quantum Technology Industry”）。报告指出在未来20年，澳洲量子工业产值将达到40亿澳元，并提供1600个工作岗位。在量子科技方面，澳洲耕耘二十载，已经处于全球领先地位，报告还阐述了量子科技的教育、人才培养、产业转化和商业化、广泛开展各个领域间和国际间的合作、资源利用等等规划。下面的图片展示了澳洲量子技术研发机构的分布情况。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18000847/%E5%9B%BE%E7%89%87-3-1.jpg)
+而这张图片展示了当前澳洲量子产业的分布状态
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18001030/%E5%9B%BE%E7%89%87-4-1.jpg)
+澳洲在后量子密码学、量子传感器、常温量子处理器技术、百万量子比特位硅基半导体量子处理器技术等领域处于世界领先地位。具有澳洲自主知识产权的量子传感器在资源勘察方面的应用已经具有近二十年的历史，更有望在引力场检测方面一展身手。澳洲本土一家公司研发的常温量子处理器将在2025年商业化，不远将来的处理器其体积仅有普通视频卡的大小，但具有50多量子比特位的计算能力，这家公司现正与南美洲一家大型洲际货运公司合作，探讨量子计算在仓储物流项目上的应用。而澳洲另一家公司研制的半导体量子处理器可以拥有多达上百万的量子比特位，预计在今后五年内实现常规商业运算。经过50多年的辛勤耕耘，如今到了IBM开始收获的年景。在量子争先（Quantum supremacy）的竞赛中，IBM一直处于领跑的位置。2020年9月，IBM发表了量子科技规模发展里程到，如下图所示，从2019年的27量子比特位的量子计算机到2023年推出1121量子比特位的量子计算机，4年间实现41倍的飞跃。而1000量子比特位以上的量子计算机已经能够胜任多个行业的商业任务，尤其在金融领域。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18001119/%E5%9B%BE%E7%89%87-5.jpg)
+预计到了2026年，IBM的量子优先将达到百万量子比尤特位的级别，见下图。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18001158/%E5%9B%BE%E7%89%87-6.jpg)
+量子计算被广泛认为是计算领域的下一个重大进展，允许复杂问题的解决速度远远超过标准超级电子计算机所能达到的速度。这有可能改变网络安全、人工智能和基于大数据研究等领域的可能性。
+
+如果你认为量子计算机是一个飞跃，那么量子互联网把量子计算机相互连接，则创造更加强大的超高速计算能力。 这一愿景现即将成为现实。代尔夫特大学的衍生公司QphoX正在研发量子调制解调器，该设备可以让各种类型的量子计算机相互通信。 电子互联网链接了众多的电子计算机，它仅仅是把这些计算机的计算能力简单地代数和相加；而由量子调制解调器链接起来的量子网络的计算能力是这些量子计算机的量子比特位的总和，与超级电子计算机相比是2的量子比特位指数倍的超强能力，更安全、更可靠。
+
+QphoX 计划成为第一个将量子互联网带出研究实验室并转化为商业项目的公司，目前已经筹集了200万欧元的种子资金，努力实现量子调制解调器的商业化。量子调制解调器开发成商业产品，将量子计算和量子通信领域相结合，可以将量子计算机连接到超高速网络中，释放”量子互联网 “的惊人潜力，此举将对这种超高速计算技术所能实现的目标产生重大影响。
+
+即将兴起的量子产业也受到金融资本的高度重视，因为他们意识到量子计算在金融领域是超级强大的工具，如风险评估、组合投资收益分析、最佳套利时机预测、金融数据加密等等。而量子产业对未来人类的影响则更加深远广大。摩根家族很早就开始布局量子工业，早在2017年就重金投资IBM在量子计算和量子互联网方面的研究和相关设备的制造。2020年，摩根大通挖走一位拥有26项量子计算专利的IBM“发明大师”来领导一个研究包括量子计算在内的新兴技术的小组。马可•皮斯托亚在IBM工作了24年，管理着一个负责量子计算算法的团队，他将加入位于纽约的摩根大通，担任应用研究和工程主管。他将是该银行应用研究与工程的未来实验室的首席研究员，该团队于前年年底创建，旨在帮助其开发量子计算、边缘计算、5G无线和物联网等先进技术的金融用途。摩根斯坦利更是大胆的设问——计算机能如同人类一样思维吗？为什么量子和神经形态处理系统正在为下一代人工智能铺平道路，有可能在未来几十年内重塑商业。
+
+而就连埃隆•马斯克也没有闲着，据摩根士丹利(Morgan Stanley)分析师亚当-乔纳斯(Adam Jonas)说，SpaceX(SPACE)可能处于利用量子物理学进行通信彻底变革的最前沿。基于空间的量子通信网络比基于地面光纤的网络覆盖范围更广，可配置性更强。乔纳斯解读道。”从SpaceX的角度来看，量子通信网络的商业潜力及其快速部署的空间通信架构的潜在优势可能会给这个故事及其估值提供重要的可选择性。”
+
+“虽然据我们所知，SpaceX公司没有对使用技术（即粒子纠缠发生器、量子中继器、随机数发生器、先进的低温技术等）或量子通信的经济潜力进行详细评论，但我们认为该公司在太空、卫星通信和国防部、政府工作中日益占据主导地位，这使他们的能力得到自然延伸。SpaceX继续巩固其作为新兴太空经济的 “任务控制 “的地位。Starlink、Starship和政府合同的重要里程碑对接，支持了强劲的商业势头。我们注意到，我们最近修订的EV估值超过1000亿美元（牛市情况下超过2000亿美元），不包括与量子通信网络、基于量子的计量学或密码学有关的任何直接估值属性。”
+
+作为量子互联网的领导者，有什么样的上升空间？摩根士丹利亚洲技术分析师Shawn Kim说，量子网络技术看起来很像1969年互联网的早期。
+
+我们新中国联邦正处在量子互联网的初期，考虑到郭先生与摩根家族、埃隆•马斯克的资本合作关系，本人预感到新中国联邦的G系高速列车正驶向量子时代，带领广大爆料革命战友们进入人类新纪元，开创无限光明、美好的未来。
+
+信息来源：
+
+[https://www.congress.gov/bill/115th-congress/house-bill/6227/text#toc-H86E1ECB453CE49E3A945B1EECF2DC974](https://www.congress.gov/bill/115th-congress/house-bill/6227/text#toc-H86E1ECB453CE49E3A945B1EECF2DC974)
+
+[https://www.fastcompany.com/90633843/1981-quantum-computing-conference-ibm-roadmap-mit](https://www.fastcompany.com/90633843/1981-quantum-computing-conference-ibm-roadmap-mit)
+
+Growing Australia’s Quantum Technology Industry Positioning Australia for a four billion-dollar opportunity， May 2020， CSIRO Futures (2020) Growing Australia’s Quantum Technology Industry. CSIRO, Australia.
+
+[https://www.ibm.com/blogs/research/2020/09/ibm-quantum-roadmap/](https://www.ibm.com/blogs/research/2020/09/ibm-quantum-roadmap/)
+
+[https://www.ibm.com/blogs/research/2021/02/quantum-development-roadmap/](https://www.ibm.com/blogs/research/2021/02/quantum-development-roadmap/)
 
 
 
-《路德时评》2021年6月17日晚间节目主要内容：
-
-一、美财长称中美将在一定程度上脱钩
-
-法新社6月17日报道[\[1\]](https://www.rfi.fr/cn/%E7%BB%8F%E8%B4%B8/20210617-%E8%80%B6%E4%BC%A6-%E7%BE%8E%E5%9B%BD%E5%8F%AF%E8%83%BD%E5%9C%A8%E4%B8%80%E5%AE%9A%E7%A8%8B%E5%BA%A6%E4%B8%8A%E4%B8%8E%E4%B8%AD%E5%9B%BD%E8%84%B1%E9%92%A9%E4%BB%A5%E4%BF%9D%E6%8A%A4%E5%AE%89%E5%85%A8)：美国财政部长耶伦（Janet Yellen）6月16日在出席国会听证会时表示，她预计美国将在某些领域与中共国脱钩，以保护国家安全。她同时表达出对两国在技术方面完全断绝关系的担忧。她说，“我们的经济所面临的第一个，也是最紧迫的问题显然是中共病毒疫情。”耶伦还表示，“我们正在研究如何回击和纠正损害我们国家安全和我们更广泛的经济利益的做法”。她在发言中引用了对中共国在美国的潜在有害投资的遏制。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17231411/%E7%BE%8E%E4%BF%84%E7%85%A7%E7%89%87-1.jpg)[图片地址](https://lh3.googleusercontent.com/proxy/-E7uEanIVqRtnaRbvdd36rgM3w9CFkGdZnXemxr4CGMCRNHm7ZHZBvEV90EzDW4W22ofUXZtF8h3wvtyrlrpC6anov6fzdrmYPyH6wZC6GI1roLi5G28rmnj8lS7V6vvv7DXaK0yJNchRCMP4g)
-
-路德社评论：
-
-1、耶伦作为美国财政部长，首先就得考虑美国经济稳定性问题，虽然中美脱钩将给美国经济带来冲击，但是耶伦也不得不承认中美将脱钩。美国现在不仅在高科技领域与中共国脱钩，还要在制造业领域与中共国脱钩。
-
-2、参议院此前已经通过《美国科技与创新法案》，该法案就是要彻底与中共国脱钩，耶伦作为财政部长自然要考虑经济问题，她向来对中共国比较温和，拥有14亿韭菜的中共国在全球产业链中的确扮演非常重要的角色，中美脱钩将对全球经济带来巨大影响。虽然中美脱钩对美国会造成短期影响，但是从长远角度来看，美国如何再容忍中共国的假骗偷，这将给美国带来一场更大的灾难。
-
-3、美国现在推动让西方国家都将产业链撤出中共国，耶伦本意是希望中共国能配合，但是按照中共国以往的作风，中共绝对不可能配合，甚至还会阻挠，这给西方国家造成一定程度上的技术困难。
-
-二、拜登或在今年10月与习神见面
-
-Dailymail新闻网6月17日报道[\[2\]](https://www.dailymail.co.uk/news/article-9698355/Biden-committed-holding-one-one-meeting-Chinese-President.html)：就在拜登总统表态他和习神不是“老朋友”一天后，美国家安全顾问说，拜登总统“承诺”将与中共国家领导人举行一对一会谈。今年10月，G20峰会将在意大利举办，拜登和习神“都有可能参加”，两国领导人到时很有可能进行一对一会谈。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17231325/%E6%8B%9C%E4%B9%A0%E4%BC%9A%E9%9D%A2.jpg)[图片地址](https://www.dailymail.co.uk/news/article-9698355/Biden-committed-holding-one-one-meeting-Chinese-President.html)
-
-路德社评论：
-
-1、拜登总统昨天公开说他和习神不是老朋友，国家安全顾问今天公开说两国领导人将在十月份见面，这就是为安抚中共和习神。今年十月，美国早已经发布中共病毒调查报告，所以到时的中美局势将更加紧张，由此可以看出拜登这位老政客使用政治手腕的高明。
-
-2、拜登昨天已经明确要求中共开放实验室接受调查，今天就说可能将在十月与习神在G20峰会上会面，这也是在给习神下通牒，一旦美国所有流程都走完就将对中共下手。
-
-三、美病毒学家承认川普对病毒的看法是对的
-
-GATEWAY PUNDIT新闻网6月17日报道[\[3\]](https://www.thegatewaypundit.com/2021/06/top-virologists-admit-lying-american-public-months-likely-wuhan-lab-leak-theory-didnt-want-associated-president-trump/)：哈佛医学院Silver实验室的生物学家Alina Chan说，自由派科学家就他们对病毒起源的看法已经向美国公众撒谎了数月之久。他们这样做是因为不想与川普总统扯上关系，因为川普总统对中共病毒的看法是对的。Alina Chan也是上个月在《科学》杂志上承认中共病毒可能来源于中共国武汉病毒学实验室的18位科学家之一。
+> [The highly anticipated quantum internet breakthrough is finally here. Is this the end of 5G?](https://techstartups.com/2021/05/11/highly-anticipated-quantum-internet-breakthrough-finally-end-5g/)
 
 
 
-> [Top Virologists Admit Lying to American Public for Months on Likely Wuhan Lab Leak Theory Because They Didn’t Want to be Associated with President Trump](https://www.thegatewaypundit.com/2021/06/top-virologists-admit-lying-american-public-months-likely-wuhan-lab-leak-theory-didnt-want-associated-president-trump/)
+[https://www.efinancialcareers.co.uk/news/2020/12/quantum-computing-at-goldman-sachs-and-jpmorgan](https://www.efinancialcareers.co.uk/news/2020/12/quantum-computing-at-goldman-sachs-and-jpmorgan)
 
+[https://www.morganstanley.com/ideas/quantum-neuromorphic-computer-processing](https://www.morganstanley.com/ideas/quantum-neuromorphic-computer-processing)
 
+[https://www.cnbc.com/2020/01/21/jpmorgan-hires-ibm-master-inventor-marco-pistoia.html](https://www.cnbc.com/2020/01/21/jpmorgan-hires-ibm-master-inventor-marco-pistoia.html)
 
-路德社评论：
+[https://seekingalpha.com/news/3645454-spacex-aiming-for-quantum-computing-breakthrough-morgan-stanley](https://seekingalpha.com/news/3645454-spacex-aiming-for-quantum-computing-breakthrough-morgan-stanley)
 
-1、美国大多数科研单位都是左派人士，一旦参入政治因素就妨碍了科学的客观性。拜登政府上台后已经达成两党联合灭共的协议，左右两党在病毒真相问题上的争论已成过去时，双方开始合作。现在，美国越来越多的病毒学家都公开转向承认中共病毒来自于实验室。
+作者：毛虫虫\_NZ
 
-2、福奇邮件门事件曝光后，福奇也开始反转要求彻查中共病毒实验室，其他美国病毒学家也想在中共病毒真相被彻底揭露前洗刷自己此前的错误言论，所以也纷纷站队，这就是大方向的转变。
+【文章仅代表作者个人观点】
 
-四、美左媒开始抵制北京冬奥会
-
-华尔街日报6月16日称[\[4\]](https://www.wsj.com/articles/if-uyghur-lives-matter-the-olympics-should-move-11623881691)：如果维吾尔族人的生命也是命，那2020年冬奥会就不应该在中共国举办。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17231254/%E6%8A%B5%E5%88%B6%E8%8B%B1%E6%96%87.jpg)[英文原文](https://www.wsj.com/articles/if-uyghur-lives-matter-the-olympics-should-move-11623881691)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17231236/%E6%8A%B5%E5%88%B6%E4%B8%AD%E6%96%87.jpg)[谷歌翻译版](https://www.wsj.com/articles/if-uyghur-lives-matter-the-olympics-should-move-11623881691)
-
-1、从谷歌翻译的前后对比图来看，中共对谷歌翻译团队的渗透非常严重，居然能够彻底翻转英文原意。
-
-2、左媒《华尔街日报》不仅公开抵制北京冬奥会，甚至还要求奥委会更换2022年冬奥会的举办国，这也是在为美国接下来公开抵制北京冬奥会做舆论铺垫。如果国际奥委会不采取行动将2020年北京冬奥会移出北京，那所有西方国家都将公开抵制北京冬奥会。奥运会代表了人类的普世价值，一个集权且迫害人权的政府根本没有资格举办冬奥会。
-
-3、左媒《华尔街日报》报道此事其实就代表拜登政府的意思，除此美国，G7国家、北约成员国和俄罗斯未来肯定都会跟进，那2020年冬奥会一定会搬出北京。
-
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
-
-参考文章：
-
-[1][https://www.rfi.fr/cn/%E7%BB%8F%E8%B4%B8/20210617-%E8%80%B6%E4%BC%A6-%E7%BE%8E%E5%9B%BD%E5%8F%AF%E8%83%BD%E5%9C%A8%E4%B8%80%E5%AE%9A%E7%A8%8B%E5%BA%A6%E4%B8%8A%E4%B8%8E%E4%B8%AD%E5%9B%BD%E8%84%B1%E9%92%A9%E4%BB%A5%E4%BF%9D%E6%8A%A4%E5%AE%89%E5%85%A8](https://www.rfi.fr/cn/%E7%BB%8F%E8%B4%B8/20210617-%E8%80%B6%E4%BC%A6-%E7%BE%8E%E5%9B%BD%E5%8F%AF%E8%83%BD%E5%9C%A8%E4%B8%80%E5%AE%9A%E7%A8%8B%E5%BA%A6%E4%B8%8A%E4%B8%8E%E4%B8%AD%E5%9B%BD%E8%84%B1%E9%92%A9%E4%BB%A5%E4%BF%9D%E6%8A%A4%E5%AE%89%E5%85%A8)
-[2][https://www.dailymail.co.uk/news/article-9698355/Biden-committed-holding-one-one-meeting-Chinese-President.html](https://www.dailymail.co.uk/news/article-9698355/Biden-committed-holding-one-one-meeting-Chinese-President.html)
-[3][https://www.thegatewaypundit.com/2021/06/top-virologists-admit-lying-american-public-months-likely-wuhan-lab-leak-theory-didnt-want-associated-president-trump/](https://www.thegatewaypundit.com/2021/06/top-virologists-admit-lying-american-public-months-likely-wuhan-lab-leak-theory-didnt-want-associated-president-trump/)
-[4][https://www.wsj.com/articles/if-uyghur-lives-matter-the-olympics-should-move-11623881691](https://www.wsj.com/articles/if-uyghur-lives-matter-the-olympics-should-move-11623881691)
-
-文章撰写：【重生】  编辑：【香柏树】
-
-本文仅代表作者个人观点
+审核校对：Barry Jack
+上传排版：F
 
 0
