@@ -1,175 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Myway专栏】病毒和疫苗合辑
-` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1331620/)
+## 【热点播报】受到关注的新变种中共病毒LAMBDA
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1331901/)
 
-Gnews病毒真相小组 整理
+作者： 纽约香草山医疗部 云豹
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18095426/5695921-scaled.jpg)Photo by Roberto Tuero
 
-## 新冠病毒预防和治疗方案总结
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18084203/h141480-1.jpg)](https://gnews.org/zh-hans/1327734/)
-[新型冠状病毒肺炎大多数感染者表现为无症状或轻度或中度症状，但其中约有15-20%的患者会发展为重症肺炎，约5%的患者发展为急性呼吸窘迫综合征。本篇文章收录了一些新冠的治疗方法。](https://gnews.org/zh-hans/1327734/)
+WHO宣布将一种命名为LAMBDA的新型中共病毒变种列入感兴趣的变种病毒清单中。此变种病毒从去年8月就在秘鲁被发现。此变种病毒快速传播，现在已经扩散到29个国家，目前此病毒流行的国家大部分在南美洲。由于被影响的层面扩大，WHO才在本周正式将此变种病毒列入感兴趣的病毒名单中。有研究人员观察到这个变种病毒在棘蛋白处出现多个变异点，这可能导致此病毒有更强大的感染力及对中和性抗体有更大的抵抗力。这是令专家们最担忧的问题。
 
+中共病毒自从去年出现后，已经陆续出现英国、南非、巴西、印度、美国、秘鲁等几株比较特别的变种病毒。目前是以印度变种病毒的传染力及致病力最强。这些变种有可能是中共陆续再释放出来危害人类的，当然也有人认为是病毒在复制过程中自然形成的变种。不论是哪一种原因，这些陆续出现的变种病毒传染性越来越强，对中和性抗体也越来越有抗拒性。这对才刚上市不久的疫苗来说，不是好消息。因为大部分的人都把控制疫情的希望寄託在疫苗的防护效力上。如果变种病毒对疫苗的防护效力有穿透性，那么疫苗就无法达成原来预期的效果。
 
+其实早在去年一月时，闫丽梦博士就已经透过路德直播节目告诉世人，此病毒是中共制造的生化武器，具有人传人、大爆发、强变异的特性，并且预告依赖疫苗是无法控制疫情的，因为中共手上有许多病毒可再陆续释放出来，疫苗研发无法跟上中共放毒的速度 (或是说疫苗研发无法跟上病毒变异的速度)。目前看来这些预告都已经实现。
 
+较好的讯息是，目前欧美日等国已经开始朝向中共病毒是由中共实验室所制造的方向在追察。现在终于找对了方向，再需要的就是加紧追查的速度，公布所有搜集到的证据，让世人终于能知道中共制造了病毒，并积极行动灭掉中共，才能解决此次的中共病毒疫情大患。
 
+(本文为作者个人观点，不代表G NEWS的立场)
 
-## 疫苗的副作用收集与分析
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18085123/B506E3EC-2657-4669-921A-6482E1151431-768x451-1.jpeg)
+参考资料：
 
+https://www.timesnownews.com/international/article/new-covid-19-variant-lambda-identified-in-29-countries-who/771629
 
-## [COVID-19疫苗隐藏的不良事件](https://gnews.org/zh-hans/1320579/)
+校对/发稿：飞虹
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
 
 
+**更多资讯，更多关注**
 
-## [多名妇女在接种新冠疫苗后流产](https://gnews.org/zh-hans/1289458/)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-## [英国新冠疫苗不良事件汇总](https://gnews.org/zh-hans/1280610/)
-
-
-
-
-
-## [欧洲中共病毒疫苗接种不良事件统计](https://gnews.org/zh-hans/1269142/)
-
-
-
-
-
-## [以色列发现辉瑞公司中共病毒疫苗对人体的灾难性副作用](https://gnews.org/zh-hans/1220160/)
-
-
-
-
-
-## [印度为何在大规模中共病毒疫苗接种后疫情爆发](https://gnews.org/zh-hans/1177409/)
-
-
-
-
-
-## [关于中共病毒和疫苗现状的思考](https://gnews.org/zh-hans/1048176/)
-
-
-
-
-
-
-
-
-
-## 疫苗和病毒的毒性分析
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13091107/4ECA3C58-0FE5-416E-A76D-1823671F5116-1.jpeg)
-
-
-## [mRNA疫苗中的纳米颗粒和磁珠](https://gnews.org/zh-hans/1291643/)
-
-
-
-
-
-## [纳米磁珠粒子的前世今生](https://gnews.org/zh-hans/1316219/)
-
-
-
-
-
-## [有毒的S蛋白](https://gnews.org/zh-hans/1288957/)
-
-
-
-
-
-## [新冠疫苗为何引起血栓和其它不良反应](https://gnews.org/zh-hans/1281702/)
-
-
-
-
-
-## [mRNA疫苗的本质](https://gnews.org/zh-hans/1273173/)
-
-
-
-
-
-## [中共病毒疫苗及其次生灾难](https://gnews.org/zh-hans/1264684/)
-
-
-
-
-
-
-
-## 病毒超限战解析合辑
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13070018/75bc97c842ab9ae8_mh1615015673612.jpg)](https://gnews.org/zh-hans/1319372/)随着对中共病毒来源调查的步步深入，参与此邪恶计划的各方力量都已浮出水面。本文对已有的中共病毒超限战情报进行了梳理与汇总
-
-
-
-
-## 中共制毒体系挖掘
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18093859/image1-4-1.png)
-
-
-## [中共病毒超限战到底准备了多久](https://gnews.org/zh-hans/1150251/)
-
-
-
-
-
-## [由陈薇少将的公子简历看中共造假](https://gnews.org/zh-hans/1139455/)
-
-
-
-
-
-## [浅谈中共动物病毒奠基人殷震](https://gnews.org/zh-hans/1134856/)
-
-
-
-
-
-## [中共官方删除武汉病毒所石正丽所有研究资料](https://gnews.org/zh-hans/739468/)
-
-
-
-
-
-
-
-
-
-## 其他文章
-
-
-
-福奇资助将流产胎儿头皮移植到活体大鼠上的邪恶实验
-
-
-
-> [福奇资助将流产胎儿头皮移植到活体大鼠上的邪恶实验](https://gnews.org/zh-hans/1193866/)
-
-
-
-
-
-如何劝说身边的人不去打中共病毒疫苗
-
-
-
-> [如何劝说身边的人不去打中共病毒疫苗](https://gnews.org/zh-hans/1175791/)
-
-
-
-
-
-+1
+0
