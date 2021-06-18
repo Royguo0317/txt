@@ -1,49 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报 — 实验室起源后续篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1331611/)
+## 潘石屹夫妇抛售SOHO中国
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1331811/)
 
-- 作者：**wenwu**
+加拿大多伦多枫叶农场 作者：向真
 
-
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
-
-**西班牙2021年6月18日电/西喜社——**
-
-您若想了解全文报导内容，请点击标题链接
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18081654/11-15.jpg)
-1. [反感川普，顶级病毒学家承认在病毒实验室泄密的理论上向美国公众撒谎数月](https://www.thegatewaypundit.com/2021/06/top-virologists-admit-lying-american-public-months-likely-wuhan-lab-leak-theory-didnt-want-associated-president-trump/)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18092414/psy-edited.jpg)图片来源：NYTIMES
 
 
-据《门扉网》**2021**年**6**月**17**日电，阿利娜**·**陈参与了上个月在《科学》杂志上呼吁启动对新冠病毒**“**实验室泄漏假说**”**的调查，参与此次呼吁的共**18**名科学家。陈表示，由于川普把病毒名字政治化助长了对亚洲人的种族主义言论，所以一些科学家害怕公开讨论病毒真相会被川普利用。当然，最终证明川普的实验室泄漏理论是正确的，那**18**名科学家只是想搭顺风车
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18075407/2-35.jpg)
-2. [武汉实验室删除了有关蝙蝠咬伤研究人员的报告](https://thenationalpulse.com/breaking/wuhan-lab-erased-reports-of-bat-bites/)
+据《金融时报》6月17日报道，黑石目前已同意以约30亿美元收购在香港上市的地产开发商SOHO中国(SOHO China)的控股权。据悉，潘石屹及其妻子张欣拥有该公司64%的股权，作为交易的一部分，夫妇两人将保留9%的股权。
 
-据《国家脉动》**2021**年**6**月**16**日电，在对野生蝙蝠进行**SARS **研究（可能由美国纳税人[资助）](https://thenationalpulse.com/breaking/watch-wuhan-lab-partner-daszak-admits-he-didnt-really-see-many-bats-in-wet-market-while-describing-studies-using-u-s-taxpayer-money/)互动时，武汉病毒研究所的一名科学家在**2017 **年**12 **月**14 **日的一篇[现已删除的](http://www.whiov.cas.cn/xwdt_105286/kydt/201712/t20171214_4916301.html)文章中透露，他被“蝙蝠咬伤**”**。文章还详细介绍了，武汉实验室如何“分离出第一种“能够感染人体细胞**”**的蝙蝠类**SARS**冠状病毒的活病毒
+早在2019年，潘石屹就逐渐清空了其名下的核心资产。传言是因为他被中共当局请进去交代问题后心性大变，回家在微博上留下一句“我打开灯的开关，一瞬间黑暗消失了”后，从此就彻底在微博上消失。而他的这条莫名其妙的微博流传至今，明眼人都能由此看出潘石屹心里有苦难言。
 
-3. [在武汉实验室问题不断增加的情况下，卫生监督机构正在调查**NIH **的拨款](https://www.washingtonexaminer.com/news/health-watchdog-investigates-nih-grants-wuhan-lab)
+在去年传出黑石（BlackStone）将以40亿美元收购SOHO中国(SOHO China)的消息之后，中共国内的粉红们立即骂声一片，称“潘石屹是想跑路”，“门都没有，这才是真正的灯下黑”。
 
-据《华盛顿审查员》**2021**年**6**月**16**日电，罗格斯大学化学和化学生物学教授理查德**·**埃布赖特**(Richard Ebright)**在**5 **月告诉《华盛顿审查员》，“武汉实验室利用**NIH **的资金构建了新型嵌合**SARS **相关冠状病毒，具有感染人类细胞和实验室动物的能力**”**，并且“研究无疑是功能增强。**”**而最近的**“**福奇邮件门**”**，揭开了他推广病毒自然起源论背后的故事。去年**8**月，福奇的**NIAID**为**“**打杂客**”**恢复了给予武汉实验室的资金
+黑石作为全球著名的[私募股权](https://zh.m.wikipedia.org/wiki/%E7%A7%81%E5%8B%9F%E8%82%A1%E6%AC%8A)与[管理咨询](https://zh.m.wikipedia.org/wiki/%E6%8A%95%E8%B5%84%E9%93%B6%E8%A1%8C)公司，其老板史蒂芬·艾伦·施瓦茨曼（Stephen A. Schwarzman，中文名苏世民）是典型的华尔街大佬，多年来一直充当中共的白手套，并在和中共的合作中赚得盆满钵满。
 
-4. [拜登政府宣布对**NIH**拨款进行调查，也包括了**“**打杂客**”**这笔](https://www.dailymail.co.uk/news/article-9689515/Biden-administration-announces-investigation-NIH-grants-including-Wuhan-lab.html)
+值得关注的是，黑石作为全球最大的房地产投资管理公司之一，对中共发动超限生物战，中共国经济即将崩溃，以及中共即将灭亡这三件事不会不知道。但黑石依然宣称，收购SOHO是因为“我们对中国的长期潜力和经济复苏很有信心，特别是正在顺利复苏的北京和上海写字楼市场”。
 
-据《每日邮报》**2021**年**6**月**16**日电，[共和党人](https://www.dailymail.co.uk/news/republicans/index.html)审查了**NIH **对生态健康联盟的资助，其主席**“**打杂客**”**资助了武汉病毒研究所的研究。许多科学家看出新冠病毒的传播速度是无法自然进化出来，拜登政府必然对**“**打杂客**”**向海外汇款的团体进行审查。**“**打杂客**”**对武汉实验室负有监督责任，以确保受赠人是否遵守相关法律和条件
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18075754/3-26.jpg)
-5.[“打杂客**”**作为**WHO**病毒起源调查团队成员，于动身前两月主持了武汉实验室会议](https://thenationalpulse.com/breaking/daszak-headlined-wuhan-conference-before-serving-as-who-investigator/)
+今年1月，黑石就以11亿美元收购了广州附近的一个大型城市物流园区，此举为参与中共试图取代香港国际金融地位的“大湾区建设战略”起到了带头作用。
 
-据《国家脉动》**2021**年**6**月**15**日电，在福奇的**NIAID**给予生态健康联盟美国纳税人的资金后，武汉病毒研究所得到了生态健康联盟的数十万美元，以合作开展**“**杀手级**”**蝙蝠冠状病毒研究。**2020**年**11**月**26**日，**“**打杂客**”**参与了由武汉病毒研究所**/**共产党主办的[《第九届新发病毒性疾病国际研讨会》](http://www.whiov.cas.cn/xwdt_160278/xsdt2019/202012/t20201202_5806582.html)，石正丽将**“**打杂客**”**描述为她的**“**长期合作者**”**；另外，**NIAID**的病毒生态学负责人文森特**·**蒙斯特**(Vincent Munster)**也在会议中发表讲话。而后**“**打杂客**”**于**2**月以世卫组织起源调查组成员身份回头再次访问了该设施
+很显然，在当前时局动荡的情况下，黑石绝对不会轻易拿出真金白银在中共国投资。唯一合理的解释是，该公司只不过是中共的提线木偶，收购实质上是为中共代持而已。此外，黑石本次装模作样的收购，也是为了欺骗更多的外国企业来中共国投资。潘石屹出卖股权所获得的30亿美元及其未出让的9%股权，都和潘张夫妇没有半毛钱关系，相信其背后的真相不久将会大白于天下。
 
-审核：蚂蚁兄弟； 校对：信心满满； 发稿：Nuevo唐人
+[相关链接：](http://www.ftchinese.com/story/001092879?full=y)
 
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+本文仅代表作者个人观点。
 
+* * *
 
+编辑发稿：硫酸羟氯喹64
 
-
-
-
-
-
-
-+1
+0

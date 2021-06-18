@@ -1,61 +1,175 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】印度毒株Delta 正在全球肆虐，且更趋向于感染更年轻的人群
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1331823/)
+## 【Myway专栏】病毒和疫苗合辑
+` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1331620/)
 
-香草山写作组 繁星
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
+Gnews病毒真相小组 整理
 
 
 
-更具有传染性的Covid-19 Delta 变异病毒正在加拿大Saskatchewan 省肆虐，在过去的一周里，感染Delta变异病毒的病例已由45例上升到68例。专家认为，在印度流行的Delta变异病毒比其它毒株更具传染性。
 
-加拿大CBC 新闻在6月13日报道，在Foothills hospital ,两个病房的16位患者和6名卫生保健工作者Delta 变体检测呈阳性。其中六位患者和5位卫生保健人员已接种2剂 mRNA 疫苗。Alberta Health Services 表示，即使接种疫苗，仍有可能感染病毒。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18092909/Screen-Shot-2021-06-18-at-9.22.13-AM.png)
-美国已发现具有高度传染性的的Alpha 和Delta 变体已激增，而Gamma 变体在几个州的传播正在增长。美国CDC 将Delta标记为“关注变体”，这是科学家对更易传播或导致严重疾病的病毒株的一个命名。
 
-澳大利亚新南威尔士洲，这周五恢复在悉尼公共交通工具上强制戴口罩，因为感染更具有高度传染性的delta 变异毒株的病例已扩大到4例。
+## 新冠病毒预防和治疗方案总结
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18084203/h141480-1.jpg)](https://gnews.org/zh-hans/1327734/)
+[新型冠状病毒肺炎大多数感染者表现为无症状或轻度或中度症状，但其中约有15-20%的患者会发展为重症肺炎，约5%的患者发展为急性呼吸窘迫综合征。本篇文章收录了一些新冠的治疗方法。](https://gnews.org/zh-hans/1327734/)
 
-柳叶刀杂志上的一篇文章表示，从5月19 日开始，Delta 变异毒株已成为苏格兰Covid-19的主要流行毒株，而且感染对象趋向于更年轻的人群中。
 
-中共病毒库里的病毒不停被释放出来，而且毒性逐渐变强，威力更大。人们已在警醒，追究病毒源头已是不可辩驳的事实。
 
-参考来源：
 
-[https://www.cbc.ca/news/canada/saskatchewan/sask-delta-variant-1.6069986](https://www.cbc.ca/news/canada/saskatchewan/sask-delta-variant-1.6069986)
 
-[https://www.cbc.ca/news/canada/calgary/foothills-delta-variant-outbreak-calgary-covid-1.6063802](https://www.cbc.ca/news/canada/calgary/foothills-delta-variant-outbreak-calgary-covid-1.6063802)
+## 疫苗的副作用收集与分析
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18085123/B506E3EC-2657-4669-921A-6482E1151431-768x451-1.jpeg)
 
-[https://www.cnn.com/2021/06/18/health/us-coronavirus-friday/index.html](https://www.cnn.com/2021/06/18/health/us-coronavirus-friday/index.html)
 
-[https://www.breitbart.com/news/vaccine-effort-turns-into-slog-as-infectious-variant-spreads/amp/](https://www.breitbart.com/news/vaccine-effort-turns-into-slog-as-infectious-variant-spreads/amp/)
+## [COVID-19疫苗隐藏的不良事件](https://gnews.org/zh-hans/1320579/)
 
-[https://www.reuters.com/world/asia-pacific/sydney-reinstates-masks-contain-delta-covid-19-variant-2021-06-18/](https://www.reuters.com/world/asia-pacific/sydney-reinstates-masks-contain-delta-covid-19-variant-2021-06-18/)
 
-[https://www.thelancet.com/journals/lancet/article/PIIS0140-6736(21)01358-1/fulltext](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2821%2901358-1/fulltext)
 
-[https://gtv.org/video/id=60cbb0b4b96c69573d8139af](https://gtv.org/video/id=60cbb0b4b96c69573d8139af)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-编辑/校对/发稿：正义的小新
+## [多名妇女在接种新冠疫苗后流产](https://gnews.org/zh-hans/1289458/)
 
-**更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+## [英国新冠疫苗不良事件汇总](https://gnews.org/zh-hans/1280610/)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-0
+
+
+## [欧洲中共病毒疫苗接种不良事件统计](https://gnews.org/zh-hans/1269142/)
+
+
+
+
+
+## [以色列发现辉瑞公司中共病毒疫苗对人体的灾难性副作用](https://gnews.org/zh-hans/1220160/)
+
+
+
+
+
+## [印度为何在大规模中共病毒疫苗接种后疫情爆发](https://gnews.org/zh-hans/1177409/)
+
+
+
+
+
+## [关于中共病毒和疫苗现状的思考](https://gnews.org/zh-hans/1048176/)
+
+
+
+
+
+
+
+
+
+## 疫苗和病毒的毒性分析
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13091107/4ECA3C58-0FE5-416E-A76D-1823671F5116-1.jpeg)
+
+
+## [mRNA疫苗中的纳米颗粒和磁珠](https://gnews.org/zh-hans/1291643/)
+
+
+
+
+
+## [纳米磁珠粒子的前世今生](https://gnews.org/zh-hans/1316219/)
+
+
+
+
+
+## [有毒的S蛋白](https://gnews.org/zh-hans/1288957/)
+
+
+
+
+
+## [新冠疫苗为何引起血栓和其它不良反应](https://gnews.org/zh-hans/1281702/)
+
+
+
+
+
+## [mRNA疫苗的本质](https://gnews.org/zh-hans/1273173/)
+
+
+
+
+
+## [中共病毒疫苗及其次生灾难](https://gnews.org/zh-hans/1264684/)
+
+
+
+
+
+
+
+## 病毒超限战解析合辑
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13070018/75bc97c842ab9ae8_mh1615015673612.jpg)](https://gnews.org/zh-hans/1319372/)随着对中共病毒来源调查的步步深入，参与此邪恶计划的各方力量都已浮出水面。本文对已有的中共病毒超限战情报进行了梳理与汇总
+
+
+
+
+## 中共制毒体系挖掘
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18093859/image1-4-1.png)
+
+
+## [中共病毒超限战到底准备了多久](https://gnews.org/zh-hans/1150251/)
+
+
+
+
+
+## [由陈薇少将的公子简历看中共造假](https://gnews.org/zh-hans/1139455/)
+
+
+
+
+
+## [浅谈中共动物病毒奠基人殷震](https://gnews.org/zh-hans/1134856/)
+
+
+
+
+
+## [中共官方删除武汉病毒所石正丽所有研究资料](https://gnews.org/zh-hans/739468/)
+
+
+
+
+
+
+
+
+
+## 其他文章
+
+
+
+福奇资助将流产胎儿头皮移植到活体大鼠上的邪恶实验
+
+
+
+> [福奇资助将流产胎儿头皮移植到活体大鼠上的邪恶实验](https://gnews.org/zh-hans/1193866/)
+
+
+
+
+
+如何劝说身边的人不去打中共病毒疫苗
+
+
+
+> [如何劝说身边的人不去打中共病毒疫苗](https://gnews.org/zh-hans/1175791/)
+
+
+
+
+
++1
