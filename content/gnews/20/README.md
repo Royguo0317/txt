@@ -1,51 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 段子：上班下班歌
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1330750/)
+## 你相信刘鹤欲扭转中共芯片落后的局面吗？
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1330803/)
 
-作者：纽约香草山写作组  木白
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18002827/w020210129385638810635.jpg)
+据彭博社17日报道，中国副总理刘鹤将领导一项旨在帮助国内芯片制造商克服美国制裁的项目。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+消息人士透露，刘鹤受委牵头​进行所谓第三代芯片开发与能力发展工作，也正领导制定针对该技术的一系列金融和政策支持项目。
 
+虽然彭博社称，这对背景来说，是提供一次避开美国及其盟友针对中共芯片制造领域设置的障碍的机会，因为芯片行业涉及新兴领域，依靠并非传统硅材料的更新材料和设备，而纵观目前，并没有任何公司或国家占有主导地位。但这样牵强的解释，也无法改变中共希望落空的实质。
 
+正应为芯片行业是一个新兴领域，所以目前在全世界具有话语权的都是各国的高科技企业，因为创新能力与研发能力的迸发一定是从企业的活跃度开始的。反观中共执政以来，对民营企业的掌控都是当企业做强做大的时候，中共就会将无形的手伸进来，表面上看，让资本进入，帮助企业快速成长，但实际背后的目的不仅是绑架企业的未来，更是在潜移默化中，将企业的归属权和话语权悄悄转移，至于在做强做大中，如何利用军民融合战略，让企业出去偷骗抢，则是决定你能否获得党国器重，成为行业领头羊的关键因素。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18000044/33-%E6%AE%B5%E5%AD%90%EF%BC%9A%E4%B8%8A%E7%8F%AD%E4%B8%8B%E7%8F%AD%E6%AD%8C-%E5%B0%81%E9%9D%A2.png)
+因此中共的企业就算在刚开始，成立初心是好的，但注定逃不开中共肮脏的染缸，多少企业家最后混在了高层社交的圈子中，企图用这种捷径获得比同行更多的优势，但能增强企业的竞争力吗？能取得国际高精尖领域的领先水平吗？
 
+因此，无论中共砸多少钱在芯片行业上，在全世界开始与之脱钩的趋势中，都无法改变最终希望破灭的结局。去年大规模的芯片烂尾还近在眼前，现在又要斥巨资重新开始大跃进，中共用来挥霍的资本都是老百姓的血汗钱，而转移到权贵口袋，才是他们的终极目的罢了。
 
+（本文只代表作者观点，与Gnews平台无关。）
 
-躺平族：上班是平躺，下班是躺平
+**新闻来源：**
 
-公务员：上班是公共养老，下班是私人养老
+[彭博：刘鹤将领导助芯片企业应对美制裁项目 | 早报 (zaobao.com.sg)](https://www.zaobao.com.sg/realtime/china/story20210617-1157481)
 
-杨澜：上班是公共厕所，下班是私人厕所
+***校对发布**：文顾*
 
-吴征：上班是戴一叠绿帽子，下班是戴一顶绿帽子
-
-领导秘书（材料狗）：上班是搞材料，下班是被材料搞
-
-领导：上班是搞女人，下班是集体搞女人
-
-天线宝宝：上班是钻洞，下班是拼命钻洞
-
-七哥：上班是灭共，下班是边挣钱边使劲灭共
-
-
-
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0

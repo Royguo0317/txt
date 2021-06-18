@@ -1,65 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社即时简报】拜习十月会晤？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1330523/)
+## 美财政部长表示美国需要某些领域与中（共）国脱钩维护国家安全
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1330538/)
 
-香草山翻译部：GBW
+翻译：康州盘古农场 – 柯镇恶
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 – 格格巫
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**据《路透社》作者：Andrea Shalal 2021年6月16日报道：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17220727/20210617p.png)
+华盛顿（路透社）报道：美国财政部长珍妮特·耶伦周三表示，她预计美国将在某些领域与中（共）国脱钩，以保护国家安全，但她担心在技术方面会完全断绝关系。
 
+她引用可能对中（共）国在美国的投资有伤害的限制措施，耶伦对参议院财政委员会说：“我们正在查看各种各样的工具，我们必须抵制和纠正那些损害我们，我们国家安全，以及我们更广泛经济利益的做法。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/16121240/GNEW-GTV-MOS-LOGO-2-2-1-1.jpeg)
+“我会有点担心完全的技术脱钩，”她说，并补充说许多美国盟友不愿意大幅减少在中（共）国的商业活动。
 
+**原文链接：**[https://www.usnews.com/news/us/articles/2021-06-16/yellen-says-us-may-decouple-to-some-extent-from-china-to-protect-security](https://www.usnews.com/news/us/articles/2021-06-16/yellen-says-us-may-decouple-to-some-extent-from-china-to-protect-security)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-
-路德社, 2021年6月17日晚，路博艾
-
-**1. 耶伦称美国可能在某种程度上与中国脱钩以保护其国家安全。她对美中全面科技脱钩表示关注。**
-
-a. 博博士：耶伦对中国的态度相对鸽派。脱钩短期内会有痛苦，但长期来说是好事。
-
-b. 艾丽：脱钩的方向是正确的，但问题是如何尽量减少对美国的不利影响。
-
-**2. 白宫将考虑安排拜登和习近平十月会谈。**
-
-a. 博博士：拜登刚说了不是好朋友，现在安慰一下习近平。时间点很敏感，病毒报告已经出来。
-
-b. 艾丽：习近平将出席20国集团峰会，所以这不是一个特别安排的一对一的会议。
-
-c. 路德：美国布局已经完成。十月才和习近平见面，中共要挽回局面已经太晚了。
-
-**3. Gateway Pundit:麻省理工学院和哈佛大学的博士后Alina Chan承认，为了避免成为川普的 “工具”，她对武汉病毒研究所可能发生的实验室泄密事件撒谎。**
-
-a. 艾丽：科学家现在开始反水，承认之前将病毒政治化。
-
-**4. 华尔街日报：因为新疆人权问题，北京冬奥会应该换地点。**
-
-a. 路德：谷歌翻译成“应该举行。”
-
-b. 路德：左派通过《华尔街日报》对抵制冬奥会做个铺垫。
-
-**5. 环球时报：普拜会本身就是成果，但不容更多幻想。**
-
-a. 路德：配图是清朝的海水江崖图，代表一统江山。
-
-视频链接：[https://www.youtube.com/watch?v=j6BN77t6NFE](https://www.youtube.com/watch?v=j6BN77t6NFE)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

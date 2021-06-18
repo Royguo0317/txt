@@ -1,102 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 反映中共国年轻一代沮丧情绪的流行语
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1330638/)
+## 《路德时评》重磅解读美财长称中美将在一定程度上脱钩，及美左媒开始抵制北京冬奥会
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1330724/)
 
-翻译：飞利普｜校对：烟波浩淼｜审核：断播
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17224938/image002-10.jpg)**中共国的许多年轻人发现，实现他们追求的目标越来越困难伊夫•迪恩(YVES DEAN)|盖蒂图片社**
-**在中共国，激烈的竞争几乎从你出生的那一刻就开始了——从进入一所好学校到获得那份有声望的工作。但现在数百万人想要摆脱这种循环，用两个词来说明年轻一代的挫败感。**
-
-孙科（译音）于2017年大学毕业，他来到上海，去追寻同辈人共同的梦想——一份好工作、一辆车、甚至一套房子。
-
-27岁的他没想到会很困难。他的父母设法自己白手起家，现在在他们临近上海小镇的家乡拥有了几处房产。
-
-然而，当他在 2018 年开始自己的餐厅业务时，孙科很快意识到，大的特许经营和外卖平台已经主导了市场。他参加竞争为时已晚。
-
-“为了在送货应用程序上与其他人竞争，我和我的生意伙伴不得不从自己口袋里掏钱来免除送货费并为客户提供折扣。而真正赚钱者仍然是那些大的特许经营商。”
-
-两年后，他最终损失了超过 100 万元人民币（156,907 美元，110,169 英镑）。 去年底，他永久关闭了这家公司。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17225318/image004-3.jpg)中共国大约有 6 亿人月收入仅 1,000 元（154 美元）。盖蒂图片社
-他说他的经历是当今中共国“内卷化”的典型。
-
-**内卷的一代**
-
-最初是一个人类学术语，中文中的“内卷”——字面意思为向内卷曲——指的是人口增长不会导致生产力或创新改进的社会概念。
-
-今天，这个词被广泛用来表达一种精疲力尽的感觉。
-
-这一趋势始于该国最优秀的大学校园，去年，学生努力学习到极致的照片在互联网上疯传。其中一张照片是一名清华大学学生骑着自行车时在操作笔记本电脑。
-
-这名学生被加冕为“清华内卷之王”，内卷的理念开始在中共国年轻一代中流行，尤其是在上世纪90年代后出生的千禧一代和 Z 一代（出生于1996-2010）中引起了共鸣。
-
-在该国的社交媒体平台微博上，与内卷相关的话题已被浏览超过 10 亿次。它还被列入去年中共国十大流行语排行榜中。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17225809/image006-2.jpg)其中一张照片中，清华大学的一名学生骑自行车时在操作笔记本电脑。新浪微博照片
-来自牛津大学的飚翔（译音）教授说：“年轻人总觉得不努力，不参加竞争就会被社会淘汰，但经过不断努力，他们自己还是看不到突破性改变。”
-
-孙科说：“我们父辈有他们的[挑战]，但也有他们的机会。一切都是新的。只要你有想法和有勇气，就有很大的成功机会。”
-
-这个概念并不是中共国独有的。可以说，世界上大多数发达国家都有一代人经历过这段繁荣时期。
-
-但关键的不同在于，在中共国，这些“黄金时代”过去得如此之快，以至于人们对它的记忆还历历在目。
-
-这意味着像孙科这样的年轻一代见证了他们父辈的成功——亲眼见证他们白手起家创造自己的财富。
-
-在加州大学伯克利分校的讲师方旭（译音）博士说：“他们的父母或一些只比他们大 10 岁的邻居可以通过做这个生意获得这么多利润，但现在这道窗门已经关闭，他们再也没有这种可能了”。
-
-**对富人的不满**
-
-中共国现在拥有世界上第二多的亿万富翁。但它也是约 6 亿月收入只有 1,000 元人民币（154 美元）人民的家园。
-
-巨大的悬殊导致年轻人对雇主的怨恨与日俱增。年轻人中越来越多的人认为，他们的挣扎不被领导所理解。
-
-女商人、前《时尚芭莎》中国版主编苏芒（SuMang译音）说内卷是“欲望与懒惰之间的鸿沟”后遭到强烈反对。
-
-她后来道歉了，但伤害已经造成了。
-
-- [**为什么在中国疯狂致富不再是酷**](https://www.bbc.com/news/world-asia-china-57380367)
+直播视频：
 
 
-一位用户评论道，“如果老板能与为他们工作的人产生共鸣，那么 996 就不会存在，也不会有内卷，”996指的是中共国商界的一种文化，即每周 6 天，每天从早上 9 点工作到晚上 9 点。
 
-其他人写道，“资本家应该闭嘴”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17225922/image008-2.jpg)马云是这种996文化的倡导者盖蒂图片社
-亿万富翁马云此前倡导这种996文化，称其为“福”。这一点，再加上他的公司阿里巴巴正在经历的调查，导致他的声誉从榜样沦落为“吸血的资本家”，正如一些人在网上描述的那样。
+《路德时评》2021年6月17日晚间节目主要内容：
 
-**“躺平”——一个不允许的选项**
+一、美财长称中美将在一定程度上脱钩
 
-但现在出现了另一个概念——“躺平”或普通话中的“躺平”。
+法新社6月17日报道[\[1\]](https://www.rfi.fr/cn/%E7%BB%8F%E8%B4%B8/20210617-%E8%80%B6%E4%BC%A6-%E7%BE%8E%E5%9B%BD%E5%8F%AF%E8%83%BD%E5%9C%A8%E4%B8%80%E5%AE%9A%E7%A8%8B%E5%BA%A6%E4%B8%8A%E4%B8%8E%E4%B8%AD%E5%9B%BD%E8%84%B1%E9%92%A9%E4%BB%A5%E4%BF%9D%E6%8A%A4%E5%AE%89%E5%85%A8)：美国财政部长耶伦（Janet Yellen）6月16日在出席国会听证会时表示，她预计美国将在某些领域与中共国脱钩，以保护国家安全。她同时表达出对两国在技术方面完全断绝关系的担忧。她说，“我们的经济所面临的第一个，也是最紧迫的问题显然是中共病毒疫情。”耶伦还表示，“我们正在研究如何回击和纠正损害我们国家安全和我们更广泛的经济利益的做法”。她在发言中引用了对中共国在美国的潜在有害投资的遏制。
 
-它始于一位论坛用户，尽管他过去两年没有工作，但他并不认为这是一个问题——这与中共国对成功的传统定义完全背道而驰。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17231411/%E7%BE%8E%E4%BF%84%E7%85%A7%E7%89%87-1.jpg)[图片地址](https://lh3.googleusercontent.com/proxy/-E7uEanIVqRtnaRbvdd36rgM3w9CFkGdZnXemxr4CGMCRNHm7ZHZBvEV90EzDW4W22ofUXZtF8h3wvtyrlrpC6anov6fzdrmYPyH6wZC6GI1roLi5G28rmnj8lS7V6vvv7DXaK0yJNchRCMP4g)
 
-他认为没有必要遵循社会的理想。
+路德社评论：
 
-他写道，“只有躺平才能成为衡量万物的尺度，”——于是“躺平”的概念诞生了。
+1、耶伦作为美国财政部长，首先就得考虑美国经济稳定性问题，虽然中美脱钩将给美国经济带来冲击，但是耶伦也不得不承认中美将脱钩。美国现在不仅在高科技领域与中共国脱钩，还要在制造业领域与中共国脱钩。
 
-**•**[**为什么中国的年轻人在工作中“躺平”**](https://www.bbc.com/news/world-asia-china-57348406)
+2、参议院此前已经通过《美国科技与创新法案》，该法案就是要彻底与中共国脱钩，耶伦作为财政部长自然要考虑经济问题，她向来对中共国比较温和，拥有14亿韭菜的中共国在全球产业链中的确扮演非常重要的角色，中美脱钩将对全球经济带来巨大影响。虽然中美脱钩对美国会造成短期影响，但是从长远角度来看，美国如何再容忍中共国的假骗偷，这将给美国带来一场更大的灾难。
 
-“躺平”背后的理念——不过度劳累，满足于更可实现的成就，让时间放松——受到了许多人的称赞，并激发了无数的模因。它被描述为一种精神运动。
+3、美国现在推动让西方国家都将产业链撤出中共国，耶伦本意是希望中共国能配合，但是按照中共国以往的作风，中共绝对不可能配合，甚至还会阻挠，这给西方国家造成一定程度上的技术困难。
 
-牛津大学项教授认为，这些趋势表明年轻一代渴望“放弃毫无意义的竞争”，需要重新思考旧的成功模式。
+二、拜登或在今年10月与习神见面
 
-许多中共国年轻人都赞同退出激烈竞争的想法，但专家表示，这一概念可能难以被广泛采纳——因为当局可能发现这违背了社会主义价值观。
+Dailymail新闻网6月17日报道[\[2\]](https://www.dailymail.co.uk/news/article-9698355/Biden-committed-holding-one-one-meeting-Chinese-President.html)：就在拜登总统表态他和习神不是“老朋友”一天后，美国家安全顾问说，拜登总统“承诺”将与中共国家领导人举行一对一会谈。今年10月，G20峰会将在意大利举办，拜登和习神“都有可能参加”，两国领导人到时很有可能进行一对一会谈。
 
-中共国主席习近平在 2018 年的一次讲话中说，新时代“属于那些努力工作的人”，而“只有艰苦奋斗才能获得幸福”。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17230023/image010-3.jpg)沿着上海一条街上，戴着防护口罩的摩托车送货员正在等待订单盖蒂图片社
-官媒也对“躺平”的概念表示不满。在专门从事文化事务的报纸《光明日报》上发表的一篇文章中，作者批评“平庸主义者”可能对整个国家经济和社会造成危害。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17231325/%E6%8B%9C%E4%B9%A0%E4%BC%9A%E9%9D%A2.jpg)[图片地址](https://www.dailymail.co.uk/news/article-9698355/Biden-committed-holding-one-one-meeting-Chinese-President.html)
 
-在《南方日报》的另一篇评论中，作者称这个最新的趋势是“不公正和可耻的”。
+路德社评论：
 
-然而，徐博士补充说，她并不认为这些趋势会消失。
+1、拜登总统昨天公开说他和习神不是老朋友，国家安全顾问今天公开说两国领导人将在十月份见面，这就是为安抚中共和习神。今年十月，美国早已经发布中共病毒调查报告，所以到时的中美局势将更加紧张，由此可以看出拜登这位老政客使用政治手腕的高明。
 
-徐博士补充道，“可悲的是，我想说未来五到十年仍将是这样，因为从产业角度看，没有技术上的大变革，所以没有新的领域可供他们探索和发展，“其结果是内卷将继续。”
+2、拜登昨天已经明确要求中共开放实验室接受调查，今天就说可能将在十月与习神在G20峰会上会面，这也是在给习神下通牒，一旦美国所有流程都走完就将对中共下手。
 
-她补充说，在西方，年轻一代可能会选择远离现代设施或过着极简主义的生活方式，但在中共国，这些都不是选择。
+三、美病毒学家承认川普对病毒的看法是对的
 
-她说，“只有一条路，一种被认可的生活方式，这就使躺平成为问题的基本心态。”
+GATEWAY PUNDIT新闻网6月17日报道[\[3\]](https://www.thegatewaypundit.com/2021/06/top-virologists-admit-lying-american-public-months-likely-wuhan-lab-leak-theory-didnt-want-associated-president-trump/)：哈佛医学院Silver实验室的生物学家Alina Chan说，自由派科学家就他们对病毒起源的看法已经向美国公众撒谎了数月之久。他们这样做是因为不想与川普总统扯上关系，因为川普总统对中共病毒的看法是对的。Alina Chan也是上个月在《科学》杂志上承认中共病毒可能来源于中共国武汉病毒学实验室的18位科学家之一。
 
-原文作者：范王、王益青（姓名为译音）BBC
-发布时间：2021 年6月13日
-原文链接：[https://www.bbc.com/news/world-asia-china-57328508](https://www.bbc.com/news/world-asia-china-57328508)
+
+
+> [Top Virologists Admit Lying to American Public for Months on Likely Wuhan Lab Leak Theory Because They Didn’t Want to be Associated with President Trump](https://www.thegatewaypundit.com/2021/06/top-virologists-admit-lying-american-public-months-likely-wuhan-lab-leak-theory-didnt-want-associated-president-trump/)
+
+
+
+路德社评论：
+
+1、美国大多数科研单位都是左派人士，一旦参入政治因素就妨碍了科学的客观性。拜登政府上台后已经达成两党联合灭共的协议，左右两党在病毒真相问题上的争论已成过去时，双方开始合作。现在，美国越来越多的病毒学家都公开转向承认中共病毒来自于实验室。
+
+2、福奇邮件门事件曝光后，福奇也开始反转要求彻查中共病毒实验室，其他美国病毒学家也想在中共病毒真相被彻底揭露前洗刷自己此前的错误言论，所以也纷纷站队，这就是大方向的转变。
+
+四、美左媒开始抵制北京冬奥会
+
+华尔街日报6月16日称[\[4\]](https://www.wsj.com/articles/if-uyghur-lives-matter-the-olympics-should-move-11623881691)：如果维吾尔族人的生命也是命，那2020年冬奥会就不应该在中共国举办。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17231254/%E6%8A%B5%E5%88%B6%E8%8B%B1%E6%96%87.jpg)[英文原文](https://www.wsj.com/articles/if-uyghur-lives-matter-the-olympics-should-move-11623881691)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17231236/%E6%8A%B5%E5%88%B6%E4%B8%AD%E6%96%87.jpg)[谷歌翻译版](https://www.wsj.com/articles/if-uyghur-lives-matter-the-olympics-should-move-11623881691)
+
+1、从谷歌翻译的前后对比图来看，中共对谷歌翻译团队的渗透非常严重，居然能够彻底翻转英文原意。
+
+2、左媒《华尔街日报》不仅公开抵制北京冬奥会，甚至还要求奥委会更换2022年冬奥会的举办国，这也是在为美国接下来公开抵制北京冬奥会做舆论铺垫。如果国际奥委会不采取行动将2020年北京冬奥会移出北京，那所有西方国家都将公开抵制北京冬奥会。奥运会代表了人类的普世价值，一个集权且迫害人权的政府根本没有资格举办冬奥会。
+
+3、左媒《华尔街日报》报道此事其实就代表拜登政府的意思，除此美国，G7国家、北约成员国和俄罗斯未来肯定都会跟进，那2020年冬奥会一定会搬出北京。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+参考文章：
+
+[1][https://www.rfi.fr/cn/%E7%BB%8F%E8%B4%B8/20210617-%E8%80%B6%E4%BC%A6-%E7%BE%8E%E5%9B%BD%E5%8F%AF%E8%83%BD%E5%9C%A8%E4%B8%80%E5%AE%9A%E7%A8%8B%E5%BA%A6%E4%B8%8A%E4%B8%8E%E4%B8%AD%E5%9B%BD%E8%84%B1%E9%92%A9%E4%BB%A5%E4%BF%9D%E6%8A%A4%E5%AE%89%E5%85%A8](https://www.rfi.fr/cn/%E7%BB%8F%E8%B4%B8/20210617-%E8%80%B6%E4%BC%A6-%E7%BE%8E%E5%9B%BD%E5%8F%AF%E8%83%BD%E5%9C%A8%E4%B8%80%E5%AE%9A%E7%A8%8B%E5%BA%A6%E4%B8%8A%E4%B8%8E%E4%B8%AD%E5%9B%BD%E8%84%B1%E9%92%A9%E4%BB%A5%E4%BF%9D%E6%8A%A4%E5%AE%89%E5%85%A8)
+[2][https://www.dailymail.co.uk/news/article-9698355/Biden-committed-holding-one-one-meeting-Chinese-President.html](https://www.dailymail.co.uk/news/article-9698355/Biden-committed-holding-one-one-meeting-Chinese-President.html)
+[3][https://www.thegatewaypundit.com/2021/06/top-virologists-admit-lying-american-public-months-likely-wuhan-lab-leak-theory-didnt-want-associated-president-trump/](https://www.thegatewaypundit.com/2021/06/top-virologists-admit-lying-american-public-months-likely-wuhan-lab-leak-theory-didnt-want-associated-president-trump/)
+[4][https://www.wsj.com/articles/if-uyghur-lives-matter-the-olympics-should-move-11623881691](https://www.wsj.com/articles/if-uyghur-lives-matter-the-olympics-should-move-11623881691)
+
+文章撰写：【重生】  编辑：【香柏树】
+
+本文仅代表作者个人观点
 
 0
