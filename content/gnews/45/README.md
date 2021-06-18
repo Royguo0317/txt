@@ -1,52 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【西班牙视角】拜登给普京画下了红线
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1330497/)
+## 【热点播报】中共出动最高数量战机扰台，示威北约
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1330532/)
 
-作者：Gokuabuela|校对：文明明|审核：Beicy-数学老师|Page：小雨
-
-[!\[\]()!\[\](https://spark.adobe.com/page/fvNVJcTByTZO1/images/32e3df74-ccf4-4286-94b4-9b353a7d22ea.jpg?asset_id=3ce86525-3757-4683-9a90-a157b3527549&amp;img_etag=%224ceebeb8f9477c99a97dfa9e4c4a1f5a%22&amp;size=2560)](https://spark.adobe.com/page/fvNVJcTByTZO1/images/32e3df74-ccf4-4286-94b4-9b353a7d22ea.jpg?asset_id=3ce86525-3757-4683-9a90-a157b3527549&amp;img_etag=%224ceebeb8f9477c99a97dfa9e4c4a1f5a%22&amp;size=1024)
-
-全世界瞩目的拜登-普京会谈结束了。两位领导人在会议结束时没有按照双边峰会的惯例那样举行联合新闻发布会，而是单独露面，但我们还是认为此次会议意义重大，对拜登来说，基本达到了预期的目的。
-
-拜登宣称：需要使两国关系再次“可预测和稳定”，并向俄罗斯总统展示了“红线”——“我已经做了我来这里要做的事。首先，确定了我们可以在哪些领域以务实的方式开展工作，以促进我们的共同利益，也使世界受益。第二，美国将对损害我们和我们盟友重要利益的行动作出回应”。
-
-普京重复了他对西方的一贯抱怨，并引用了俄罗斯外交政策的惯常说辞：“我们没有做过被指控的事情，而且即使我们做了，那也是因为对手也这样做了”。不过，他还是赞扬了拜登的品格，并且像拜登一样，表示会谈是坦诚和务实的。
-
-作为一名从冷战中成长起来的政客，拜登继承了许多那个时期主导美国政府的思维模式：承认竞争，甚至是公开的敌意，但不轻易诉诸于武力。外交上礼貌与强硬并存，在道德和政治上赞扬与责备交相辉映。
-
-昨天的会议也达成了一些协议：恢复军备控制谈判，双方的大使返回在华盛顿和莫斯科的职位，甚至交换在对方国家被监禁的国民。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/fvNVJcTByTZO1/images/d5121295-87d7-4e0e-a089-09ebd938498b.jpg?asset_id=5c1cb005-de3e-45a7-99b6-c8678b3105d4&amp;img_etag=%2284cdca721afcb8902a74ed2d832a965e%22&amp;size=2560)](https://spark.adobe.com/page/fvNVJcTByTZO1/images/d5121295-87d7-4e0e-a089-09ebd938498b.jpg?asset_id=5c1cb005-de3e-45a7-99b6-c8678b3105d4&amp;img_etag=%2284cdca721afcb8902a74ed2d832a965e%22&amp;size=1024)
-
-俄罗斯还重申了其在北极航线军事存在的必要性，但欢迎与美国就此加强合作。北极航线目前处于俄罗斯的绝对控制下，有可能成为中共国“突破重围”的切入点。美俄峰会关于北极航线的会谈，说明至少俄罗斯还不会向中共单方面开放北极航线，但作为条件，美国必须在北极航线给予俄罗斯更大的利益并承认俄罗斯的主控权（我们之后的文章会专门深入探讨“北极航线”，感兴趣的小伙伴敬请关注）。
-
-尽管美俄峰会不能说取得了巨大的成功，但至少沟通渠道更加直接，美国给了俄罗斯一个选中共还是保持中立的选择，俄罗斯则宣告了自己的交换条件，起码他可以继续插手在前苏联国家中的事务（例如乌克兰、格鲁吉亚等）。双边关系的发展还和国际局势息息相关，俄罗斯需要获取最大的国家利益和普京个人的政治利益。美国和西方越强大，越团结，越强硬，俄罗斯就会越收敛。正如拜登总统认为的：“俄罗斯是一个正在衰落的国家，经济上很弱，在国外的影响能力比它吹嘘的要低很多。”
-
-西方媒体普遍认为美俄峰会“至少有了一些调节敌意的准则，这是件大事”。
-
-我们盘点一下拜登总统一周之内的欧洲之行：G7集团会议，北约峰会，美俄峰会。最终的结果就是：团结欧盟，清理内部，收拢国际寡头公司和华尔街的力量。加强短期和长期的军事斗争准备，明确树立敌人：俄罗斯和中共国。而之后的俄美峰会疏解了双方的敌意，礼貌和强硬并存，至少稳住了俄罗斯，剩下的敌人只有一个：中共国。
-
-**参考文献：**
-
-- [Biden mostró las líneas rojas a Putin](https://blogs.elconfidencial.com/mundo/tribuna-internacional/2021-06-17/eeuu-y-rusia-no-encuentran-la-manera-de-ser-amigos_3135740/)
-- [Rusia: nosotros no hemos hecho nada y vosotros también lo hacéis](https://blogs.elconfidencial.com/mundo/tribuna-internacional/2021-03-04/rusia-sanciones-ue-eeuu_2975836/)
-- [“Putin no se levanta cada mañana con la idea de conquistar un país de la OTAN”](https://www.elconfidencial.com/mundo/europa/2021-06-12/putin-no-se-levanta-cada-manana-con-la-idea-de-conquistar-un-pais-de-la-otan_3128427/)
+作者：纽约香草山健身部 Jack Li文阳
 
 
-*（本文仅代表个人观点）*
 
-**请在Gnews搜索“ gokuabuela ”，查看本文作者更多文章，谢谢！**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+G7和北约组织峰会后，6月15日，中国作出高调对抗的行动，派出28架军机进入台湾西南空域。台湾国防部指出，这是中共国军机数量最高的一次扰台行动，这28架军机包括14架歼16、6架歼11、2架空中预警、1架运8反潜机、1架运8干扰机以及4架可携带核武器的轰6军机，向西方宣示对抗姿态。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17221636/Untitled-design-2021-06-17T201418.073.png)图片来源：台湾国防部
+七国集团发布公报呼吁中共国尊重人权和基本自由，尤其是在新疆以及《中英联合声明》中所赋予香港的权利、自由和高度自治，首次表示七国关注台海和平与稳定。公报呼吁由WHO牵头，就新冠病毒作透明的溯源调查。
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+另外，北大西洋公约组织峰会于6月14日在比利时召开，30个成员国发表联合公报，将中共国列为北约面临的系统性安全威胁。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/fvNVJcTByTZO1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/fvNVJcTByTZO1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+在美欧领袖共商谋划围堵中共的国际环境下，中共派出最高数量的战机扰台，就是要向西方展现中共将继续顽抗到底的姿态，另外，大有为墙内韭菜壮胆打气，表示中共决不退缩，军警更不能认怂的信息。
+
+中共共产邪教在习神的引领下，已经开启了它的末日疯狂模式。中共不但靠“蓝金黄”和“假骗偷”欺骗偷盗全球，还发动超限病毒战，祸害全世界。
+
+当世界全面意识到中共霸权，开始集结应对时，中共仍不知天高地厚，继续疯狂以武力威胁世界。虽然中共会继续施放病毒，世界还会有更多的人伤亡。但世界不会因此屈服于中共邪魔。无论中共如何疯狂，以其一国之力，就算纠集一帮丐帮国家，妄图挑战欧美先进国家，真不知习神凭啥有如此的胆气？
+
+参考阅读：https://www.dw.com/zh/%E6%9C%80%E5%A4%A7%E8%A7%84%E6%A8%A128%E6%9E%B6%E4%B8%AD%E5%9B%BD%E5%86%9B%E6%9C%BA%E8%BF%9B%E5%85%A5%E5%8F%B0%E6%B9%BE%E7%A9%BA%E5%9F%9F/a-57905647
+
+https://www.ntdtv.com/b5/2021/06/16/a103143642.html
+
+https://www.rfa.org/mandarin/yataibaodao/gangtai/hx2-06152021084558.html
+
+校对/发稿：火内
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

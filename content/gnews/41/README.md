@@ -1,37 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大布里德博士警告新冠疫苗的刺突蛋白正在杀人
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1330552/)
+## 6月17日美国政要推特精选： 追究 中国共产党对 COVID-19 的责任并不等同于产生反亚裔的仇恨
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1330616/)
 
-蒙特利尔皇家山战友团 Spirit
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17220753/SAT_FOCUS_SEG_THREE_THUMB_200620.jpg)
-太可怕了”研究发现武新冠疫苗所包含和制造的刺突蛋白直接导致了心血管的损伤和死亡。
+众议员莫·布鲁克斯： 追究 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 对 COVID-19 的责任并不等同于产生反亚裔的仇恨。假新闻媒体有这种说法，表明了他们明显的自由主义偏见和错误的平等主张。我不会支持它。
 
-布里德（Byram W. Bridle）博士说，他和几位同事通过一项来自日本的首次”生物分布”的研究中得知，即使在手臂的肌肉组织中注射莫得纳（Moderna）和辉瑞（Pfizer-BioNTech）公司的mRNA疫苗，也会导致产生刺突蛋白，这些刺突蛋白往往会进入血液，导致致命的血凝块、心脏和大脑损伤以及不孕。
 
-“刺突蛋白本身几乎要对心血管系统的损害负全部责任”。布里德在最近的一次电台采访中警告说：”如果你将’纯化’的刺突蛋白注入血液……将有对心血管系统的各种损害，它可以穿过血脑屏障，对大脑造成损害。刺突蛋白进入血液，在接种疫苗后的几天内通过个人的血液循环，在一些组织中积累，如脾脏、骨髓、肝脏、肾上腺、卵巢”。
 
-在这项研究中，13名医护人员注射了莫得纳（Moderna）针对新冠病毒的疫苗针剂，结果其中11人的血液中可检测到刺突蛋白。布里德说，这进一步证实了一个事实，即疫苗的刺突蛋白是对身体有毒的致病蛋白。
+> Holding the Chinese Communist Party accountable for COVID-19 does not equate to generating anti-Asian hatred. For the fake news media to suggest that’s the case demonstrates their clear liberal bias and false equivalence. I will not stand for it. [pic.twitter.com/Ib8phdocei](https://t.co/Ib8phdocei)
+> — Mo Brooks (@RepMoBrooks) [June 17, 2021](https://twitter.com/RepMoBrooks/status/1405583416083501061?ref_src=twsrc%5Etfw)
 
-布里德进一步解释说”如果它进入血液循环，会对我们的身体造成损害“。他对疫苗刺突蛋白发出警告。”现在我们有明确的证据表明，使我们三角肌的细胞制造这种蛋白质的疫苗，疫苗本身加上这种蛋白质进入血液循环，刺突蛋白与我们血小板上的受体结合，以及与我们血管内的细胞结合。当这种情况发生时，它可以导致血小板凝结，从而导致血栓……也可以导致出血，并且涉及心脏”。
 
-更糟糕的是，在被注射到肌肉组织后，mRNA诱导的刺突蛋白也有可能穿过血脑屏障，造成神经系统的损伤。这就是为什么在许多血凝块的致命案例中，损害是在大脑中观察到的。
 
-当然，所有这些潜在的结果都比病毒本身要糟糕得多，这只是表明”治疗”比疾病更糟糕。世界什么时候才能醒悟过来，意识到这些所谓的”疫苗”是一个正在运作的优生学计划？
+众议员玛丽安内特·米勒-米克斯： 我同意斯卡利斯议员[@SteveScalise](https://twitter.com/SteveScalise)，众议院应立即开始考虑参议员霍利 和布莱恩的 COVID-19 起源法案，该法案于上个月在参议院一致通过。 国会需要在寻找#COVID19 的起源方面发挥更积极的作用。
 
-虽然可能有少数研究人员在提出将致命的刺突蛋白注射到体内的想法时是出于好意，但整个事情是”一个大错误，”布里德说。”我们现在才意识到这一点，”他对这个过程争辩说：”我们认为刺突蛋白是一个很好的目标抗原，我们从不知道刺突蛋白本身是一种毒素，是一种致病蛋白。因此，给人们接种疫苗，就等于接种了一种毒素”。
 
-布里德和几位科学家去年从政府获得了23万美元的资助，用于研究新冠病毒疫苗注射剂。通过这个，他们能够获得关于注射的数据，显示它们所包含或产生的刺突蛋白几乎是在病人接受注射后被观察到的所有心血管损伤的唯一原因。
 
-不仅美国和欧洲，现在加拿大也有科学家站住来呼吁停止疫苗，这是一个天大的错误，疫苗的灾难比病毒更严重，现在各国政府，媒体和大药厂正在强推疫苗无异于在执行杀人计划，世界快快醒悟吧。
+> I agree with [@SteveScalise](https://twitter.com/SteveScalise?ref_src=twsrc%5Etfw), the House should immediately start considering [@SenHawleyPress](https://twitter.com/SenHawleyPress?ref_src=twsrc%5Etfw) and [@SenatorBraun](https://twitter.com/SenatorBraun?ref_src=twsrc%5Etfw)'s COVID-19 Origin Act, which UNANIMOUSLY passed the Senate last month.
+> 
+> Congress needs to be playing a more active role in finding the origins of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/2uYlgpC4DT](https://t.co/2uYlgpC4DT)
+> — Rep. Mariannette Miller-Meeks, M.D. (@RepMMM) [June 17, 2021](https://twitter.com/RepMMM/status/1405554909521629188?ref_src=twsrc%5Etfw)
 
-原文链接：
 
-[https://www.naturalnews.com/2021-06-03-canadian-researcher-covid-vaccine-spike-proteins-death.html#](https://www.naturalnews.com/2021-06-03-canadian-researcher-covid-vaccine-spike-proteins-death.html#)
 
-* * *
+众议员保罗·哥萨尔： 可能导致了大流行的 [#武汉病毒所](https://twitter.com/hashtag/%E6%AD%A6%E6%B1%89%E7%97%85%E6%AF%92%E6%89%80?src=hashtag_click) 还有资格获得美国的资金是不可接受的。我很自豪地共同助力了“取消资助武汉病毒所法案”，确保美国纳税人的钱再也不会资助这个危险的实验室。【转推每日电讯，COVID起源辩论中心的危险的动物实验】
 
-发稿： Spirit
+
+
+> It is unacceptable that the Wuhan virus lab that may have caused the pandemic remains eligible to receive US funds. I’m proudly cosponsoring the Defund Wuhan Institute of Virology Act to ensure US taxpayer dollars never again fund this dangerous lab. [https://t.co/6LpzhXghQu](https://t.co/6LpzhXghQu)
+> — Rep. Paul Gosar, DDS (@RepGosar) [June 17, 2021](https://twitter.com/RepGosar/status/1405545773622730752?ref_src=twsrc%5Etfw)
+
+
+
+参议员约翰·肯尼迪： 拜登总统的“拜托啦，求求你们啦”式的要求，对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和世卫组织 [@WHO](https://twitter.com/WHO) 根本没用。 世卫组织的谭德塞沐浴的时候是哼着 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 国歌的，同时他还拿着美国人民给他的工资呢。
+
+
+
+> Pres. Biden’s “Pretty please, with sugar on top” isn’t going to work with China and [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw).
+> 
+> The WHO’s Dr. Tedros hums the Chinese national anthem in the shower while the American people pay his salary. [pic.twitter.com/NZ0hOQUvIT](https://t.co/NZ0hOQUvIT)
+> — John Kennedy (@SenJohnKennedy) [June 17, 2021](https://twitter.com/SenJohnKennedy/status/1405544403083612160?ref_src=twsrc%5Etfw)
+
+
+
+众议员埃莉斯·史蒂芬尼克： 我们必须让 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 为他们的偷窃知识产权和多种侵犯人权的行径负责，并对 [#新冠病毒](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92?src=hashtag_click) 的源头进行彻底的调查。【转推news10，史蒂芬尼克提出立法，推动制裁中共国高层卫生官员并确认新冠的起源】
+
+
+
+> We MUST hold the Chinese Communist Party accountable for their intellectual property theft, multiple human rights abuses and have a thorough investigation into the origins of COVID-19 [https://t.co/IEctLOsPA7](https://t.co/IEctLOsPA7)
+> — Rep. Elise Stefanik (@RepStefanik) [June 17, 2021](https://twitter.com/RepStefanik/status/1405518273177964546?ref_src=twsrc%5Etfw)
+
+
 
 0

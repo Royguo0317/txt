@@ -1,56 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月17日美国政要推特精选： 追究 中国共产党对 COVID-19 的责任并不等同于产生反亚裔的仇恨
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1330616/)
+## 【路德时评摘要】2021.6.12早间：中共继承的列宁搭建的特务体系就是个绞肉机
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1330332/)
 
-众议员莫·布鲁克斯： 追究 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 对 COVID-19 的责任并不等同于产生反亚裔的仇恨。假新闻媒体有这种说法，表明了他们明显的自由主义偏见和错误的平等主张。我不会支持它。
+视频剪辑 :  洛杉矶天使农场 – 小腾腾说
+中听校： 洛杉矶天使农场 – 烟波浩淼
+英翻译：洛杉矶天使农场 – Arthur
+英校对：洛杉矶天使农场 – 烟波浩淼
+字幕+视频制作：洛杉矶天使农场 – 小腾腾说
 
+**路德：**
 
+这个是毛提出来的新民主主义。这种方式一旦夺权了，就变成我这个新民主主义。我怎么解释，我这个新民主主义可是叫做人民民主专政，就跟说建设新时代有特中国特色的习近平思想，一个新字把所有东西随时可以变，随时可以给你转，知道吗？这就是它一旦控制了，就是暴力革命，就是用暴力的方式来那个。然后最核心是民主集中制，民主集中制的核心就是集中，民主你只是胡扯，就是一个表象，核心就是集中。这里头你看中国为什么说马克思列宁主义。后来还有斯大林，咱们之前说的，后来把斯大林扔掉了，讲毛贼东思想，然后后来又加了几个，到现在习近平建设新时代，就是这个理论的这个系列的延续，它都是，列宁本身就已经把马克思理论改了。马克思那本书，共产主义或者什么，那几本书并没有写民主集中制， 也没有写暴力革命，更没有写什么阶级斗争，无产阶级专政。
 
-> Holding the Chinese Communist Party accountable for COVID-19 does not equate to generating anti-Asian hatred. For the fake news media to suggest that’s the case demonstrates their clear liberal bias and false equivalence. I will not stand for it. [pic.twitter.com/Ib8phdocei](https://t.co/Ib8phdocei)
-> — Mo Brooks (@RepMoBrooks) [June 17, 2021](https://twitter.com/RepMoBrooks/status/1405583416083501061?ref_src=twsrc%5Etfw)
+他只是说是资本论这一个概念；但是列宁是把它具体落实化，在这个基础上，列宁主义还有一个最重要的一点，大家知道是什么？就是特务系统。你要知道整个全世界的所有的特务系统就是列宁建立的。中共延续的就是列宁建立的那个特务系统。列宁本身就是一个特务，他非常厉害，他厉害在哪里？因为他延续了德国的。当时因为德国的思维非常严密，纳粹德国又延续了之前魏玛德国共和国的这种严密性，就建立了一套非常严密的地下党的一套特务系统，这个特务系统里头说白了，就是单线联系，然后放在那里，随时可以灭你，是吧，完成任务，如何接头？
 
-
-
-众议员玛丽安内特·米勒-米克斯： 我同意斯卡利斯议员[@SteveScalise](https://twitter.com/SteveScalise)，众议院应立即开始考虑参议员霍利 和布莱恩的 COVID-19 起源法案，该法案于上个月在参议院一致通过。 国会需要在寻找#COVID19 的起源方面发挥更积极的作用。
-
-
-
-> I agree with [@SteveScalise](https://twitter.com/SteveScalise?ref_src=twsrc%5Etfw), the House should immediately start considering [@SenHawleyPress](https://twitter.com/SenHawleyPress?ref_src=twsrc%5Etfw) and [@SenatorBraun](https://twitter.com/SenatorBraun?ref_src=twsrc%5Etfw)'s COVID-19 Origin Act, which UNANIMOUSLY passed the Senate last month.
-> 
-> Congress needs to be playing a more active role in finding the origins of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/2uYlgpC4DT](https://t.co/2uYlgpC4DT)
-> — Rep. Mariannette Miller-Meeks, M.D. (@RepMMM) [June 17, 2021](https://twitter.com/RepMMM/status/1405554909521629188?ref_src=twsrc%5Etfw)
-
-
-
-众议员保罗·哥萨尔： 可能导致了大流行的 [#武汉病毒所](https://twitter.com/hashtag/%E6%AD%A6%E6%B1%89%E7%97%85%E6%AF%92%E6%89%80?src=hashtag_click) 还有资格获得美国的资金是不可接受的。我很自豪地共同助力了“取消资助武汉病毒所法案”，确保美国纳税人的钱再也不会资助这个危险的实验室。【转推每日电讯，COVID起源辩论中心的危险的动物实验】
-
-
-
-> It is unacceptable that the Wuhan virus lab that may have caused the pandemic remains eligible to receive US funds. I’m proudly cosponsoring the Defund Wuhan Institute of Virology Act to ensure US taxpayer dollars never again fund this dangerous lab. [https://t.co/6LpzhXghQu](https://t.co/6LpzhXghQu)
-> — Rep. Paul Gosar, DDS (@RepGosar) [June 17, 2021](https://twitter.com/RepGosar/status/1405545773622730752?ref_src=twsrc%5Etfw)
-
-
-
-参议员约翰·肯尼迪： 拜登总统的“拜托啦，求求你们啦”式的要求，对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和世卫组织 [@WHO](https://twitter.com/WHO) 根本没用。 世卫组织的谭德塞沐浴的时候是哼着 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 国歌的，同时他还拿着美国人民给他的工资呢。
-
-
-
-> Pres. Biden’s “Pretty please, with sugar on top” isn’t going to work with China and [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw).
-> 
-> The WHO’s Dr. Tedros hums the Chinese national anthem in the shower while the American people pay his salary. [pic.twitter.com/NZ0hOQUvIT](https://t.co/NZ0hOQUvIT)
-> — John Kennedy (@SenJohnKennedy) [June 17, 2021](https://twitter.com/SenJohnKennedy/status/1405544403083612160?ref_src=twsrc%5Etfw)
-
-
-
-众议员埃莉斯·史蒂芬尼克： 我们必须让 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 为他们的偷窃知识产权和多种侵犯人权的行径负责，并对 [#新冠病毒](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92?src=hashtag_click) 的源头进行彻底的调查。【转推news10，史蒂芬尼克提出立法，推动制裁中共国高层卫生官员并确认新冠的起源】
-
-
-
-> We MUST hold the Chinese Communist Party accountable for their intellectual property theft, multiple human rights abuses and have a thorough investigation into the origins of COVID-19 [https://t.co/IEctLOsPA7](https://t.co/IEctLOsPA7)
-> — Rep. Elise Stefanik (@RepStefanik) [June 17, 2021](https://twitter.com/RepStefanik/status/1405518273177964546?ref_src=twsrc%5Etfw)
-
-
+所有的东西，都是列宁给它搭建出来的这样的一个特务体系。后来管苏联，苏共苏共所谓的就是用特务体系管，现在继承到中共国，中共要在这个基础上发扬光大，说白了这个特务体系就是这个绞肉机。中共的这个绞肉机之所以能够建起来，最初的就是列宁建起来，然后在后来慢慢的不断完善，结合中国特色，然后建出一个这样的永远停不下来的一个绞肉机体系，这个绞肉机体系谁都是里面的一块肉。但是每一个人都认为自己是里面的一片刀。任何人就是能结束这个绞肉机体系的，当时前苏联就是戈尔巴乔夫，说白了他是操纵这个绞肉机的，但是他啪，他把它按了个暂停键，或者是死亡键，结束了。大家看明白没有？这里头列宁主义是最最邪恶的。
 
 0
