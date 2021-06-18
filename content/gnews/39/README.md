@@ -1,54 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/16 班农专访 新中国联邦周年庆典空前震撼影响力巨大
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1330324/)
+## 2021/06/16 班农专访(4) 闫博士是人类的英雄，必须受到保护
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1330333/)
 
-视频字幕：free20200604 |听写：云岭|翻译：Wade|校对：Roberts|简评/文字整理/编辑：胖丁|Page：小雨
+视频字幕：free20200604 |听写：云岭|翻译：Wade|校对：云岭|简评/文字整理/编辑：胖丁|Page：小雨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17201951/1-24-13.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17202218/1-25-8.jpg)
 
 **简评：**
 
-新中国联邦一周年庆典非常震撼，一批在美国最有声望、最有力量、最强硬的反共人士到场或连线表达了对新中国联邦、爆料革命、法治基金、法治社会、GTV、GNews和郭文贵先生的支持。每个人都做了精彩的演讲。
+闫博士的先生悄悄潜入美国，伺机杀害闫博士和其他重要的反共人士。闫博士的安全是重中之重，因为她是全人类的英雄，必须得到保护。
 
-麦克•林戴尔直接证明中共干预2020年美国大选。尽管由于选举违规，川普输掉了大选，但这些人未来会成为川普政府要员，有的可能成为副总统，甚至有望当选美国总统。
+马特•盖茨（弗罗里达众议员）全面炮轰FBI，指责FBI忽视了闫博士提供的信息，这本来可以挽救很多人的生命。美国正在调查，细节不便透露。闫博士确定受到保护。
 
-新中国联邦已经产生了巨大的影响，空前震撼，所有到场的中国人，还有GTV、GNews都展示得非常精彩。
-
-**GTV视频链接**：[班农专访：谈6月3日的新中国联邦周年庆典 （2021年6月16日）](https://gtv.org/video/id=60cb4d0a3d6f40323c1dd13c)
+**GTV视频链接**：[英喜每周班农专访Q4：谈美国安全部门对闫博士丈夫发出威胁的应对（2021年6月16日）](https://gtv.org/video/id=60cb54563d6f40323c1dd221)
 
 
 
 **视频字幕：**
 
-**班农先生：**首先我想说的是，因为一些新中国联邦周年庆典的后续工作，我没能参加上周的节目。如果大家还没观看那天的视频，没看过各位嘉宾的演讲。我知道GTV团队已经上传了这些视频。
+**主持人Winston**：让我们谈谈闫博士的先生，他现在就在美国。闫博士说，她的丈夫威胁要杀害她，还有其他包括班农先生你在内的重要人士。美国安全部门正在严肃应对这件事情吗？
 
-那天到场的美国嘉宾太震撼了！我们有麦克•林戴尔、弗林将军、比尔•格茨、拉希姆、娜塔莉、朱利安尼市长，还有目前在欧洲的塞林上校。除了川普总统的集会，我从没见过这样一群… 还有杰克•帕索比克。我从没见过这样一群强硬的反共人士齐聚一堂。
+**班农**：这么说吧，因为塞林上校还有其他人…闫博士的安全是第一位的，不仅为了中国百姓。因为她的勇气，她已经成了美国人的大英雄。所以她的安全是第一位的。
 
-我无法记得川普总统集会上的每个嘉宾，但那天就像一场川普集会，非常震撼！活动持续了一整天，我们有塞林上校、比尔•格茨、杰克•帕索比克和他来自白俄罗斯会说流利普通话的妻子。弗林将军做了精彩的演讲。麦克•林戴尔直接证明了中共干预2020大选。
+我们正在调查她的先生。她的先生不是好人，而且在为一帮坏人做事。我不能透漏更多，但我们正在调查。
 
-那天的庆典绝对震撼，空前震撼！不光展示了新中国联邦、爆料革命、法制基金、法治社会、GNEWS、GTV和文贵受到一批最有声望的美国人的支持，并肩作战！
+观众们应该理解，对于文贵、我自己还有所有人来说，闫博士的安全是绝对的重中之重。
 
-同时要记住，尽管之前由于选举违规行为我们没有获胜, 当我们在2022年夺回国会多数席位，2024年重回白宫时，这些人将会成为川普政府要员。弗林将军可能成为美国副总统。麦克•林戴尔…
+记住，马特•盖茨（弗罗里达众议员）已经对FBI全面开火了，FBI对闫博士的做法非常糟糕。他们一年前就知道这些事情，本应该帮她把消息传递出去。但这一切都会水落石出，盖茨是一个层面，还有其他人在其他层面努力。
 
-如果川普总统不参加2024大选的话，虽然我认为他的声望最高。但如果他不参选，我认为有两个尚未引起媒体关注的人选。弗林将军和麦克•林戴尔有望当选美国总统。如果川普总统赢得2024，林戴尔可以追随他的脚步赢得下一届大选。
+我不能透漏更多，但观众们应该理解，闫博士的安全是我们所有人最在乎的事情。因为她不止是中国人的英雄，不止是美国人的英雄，她是全人类的英雄，真正的英雄。我们将确保她受到保护。
 
-所以那天的嘉宾是一些最有力量的灭共人士。那是非常精彩的一天。当然，参加活动的所有中国人，闫博士、路德，所有的GTV、GNEWS工作人员，还有GTV和Gnews做的展示都很精彩。
+[!\[\]()!\[\](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/83c750f0-a9a1-4da9-aeb7-adaee4adec42.jpg?asset_id=082bd2a3-815e-4504-971a-7c8fb8dbf97b&amp;img_etag=%22c25b69ab22b328444599c91fcf48afe6%22&amp;size=2560)](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/83c750f0-a9a1-4da9-aeb7-adaee4adec42.jpg?asset_id=082bd2a3-815e-4504-971a-7c8fb8dbf97b&amp;img_etag=%22c25b69ab22b328444599c91fcf48afe6%22&amp;size=1024)
 
-我们在那里14个小时，之后有人对我说，那可能是最牛的一期战斗室，人们太爱它了。美国观众太爱它了，所以我有说不完的感谢。
-
-新中国联邦、爆料革命、法制基金、法治社会、文贵，还有GNEWS、GTV所有团队，你们的力量太震撼了！从来没有一个活动聚集了这么多有力量的声音，从娜塔莉、拉希姆到弗林将军，这是空前的。太震撼了！
-
-我希望今年秋天再组织一次小型的灭共集会。那天的庆典太震撼了，已经产生了巨大影响。
-
-大家还在谈论那一天，弗林将军跟我说了好几次，麦克•林戴尔也被震撼了。他知道新中国联邦，很显然，因为他的诉讼直接证明中共和多米尼公司有关联。但他还是被观众震撼到了，被观众的认真、能量还有紧迫。所以我说多少都不够，你们太棒了！
-
-[!\[\]()!\[\](https://spark.adobe.com/page/euCY78MvAPDQr/images/4246b1a4-62d2-4dce-938e-54b51a15476f.jpg?asset_id=f3dbf42d-c353-4712-98d9-f174fb87ac7d&amp;img_etag=%22817498e96b5908295b28595479ae8ee8%22&amp;size=1024)](https://spark.adobe.com/page/euCY78MvAPDQr/images/4246b1a4-62d2-4dce-938e-54b51a15476f.jpg?asset_id=f3dbf42d-c353-4712-98d9-f174fb87ac7d&amp;img_etag=%22817498e96b5908295b28595479ae8ee8%22&amp;size=1024)
-
-**完整访谈视频：[班农专访（2021年6月16日）](https://gtv.org/video/id=60c9fcc2b96c69573d803a00)**
+**完整访谈视频：**[每周班农采访 （2021年6月16日）](https://gtv.org/video/id=60c9fcc2b96c69573d803a00)
 
 🎤**主播：**Winston，Mike，Dr. TCC
+
+[!\[\]()!\[\](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/b3c3ee5b-1655-470d-931e-ef059bbf7648.png?asset_id=2e36b7d8-e1df-4df0-a669-d80387ab5f62&amp;img_etag=%2243bcdfb210a7ba737c6abe83329a5be5%22&amp;size=2560)](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/b3c3ee5b-1655-470d-931e-ef059bbf7648.png?asset_id=2e36b7d8-e1df-4df0-a669-d80387ab5f62&amp;img_etag=%2243bcdfb210a7ba737c6abe83329a5be5%22&amp;size=1024)
 
 - [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
 - [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
@@ -63,6 +53,6 @@
 - [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/euCY78MvAPDQr/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/euCY78MvAPDQr/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

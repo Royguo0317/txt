@@ -1,52 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【西班牙视角】拜登给普京画下了红线
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1330497/)
+## 10月的“习拜会”能成功吗？
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1330551/)
 
-作者：Gokuabuela|校对：文明明|审核：Beicy-数学老师|Page：小雨
+**撰稿：脐橙君**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17221033/56530566_303.jpg)
+据路透华盛顿6月17日报道，美国一位高级官员周四说，白宫将考虑安排美国总统拜登与中国国家主席习近平进行会谈。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/fvNVJcTByTZO1/images/32e3df74-ccf4-4286-94b4-9b353a7d22ea.jpg?asset_id=3ce86525-3757-4683-9a90-a157b3527549&amp;img_etag=%224ceebeb8f9477c99a97dfa9e4c4a1f5a%22&amp;size=2560)](https://spark.adobe.com/page/fvNVJcTByTZO1/images/32e3df74-ccf4-4286-94b4-9b353a7d22ea.jpg?asset_id=3ce86525-3757-4683-9a90-a157b3527549&amp;img_etag=%224ceebeb8f9477c99a97dfa9e4c4a1f5a%22&amp;size=1024)
+美国国家安全顾问沙利文(Jake Sullivan)确认，希望不久的将来，中美两国领导人能接触，并用合适的方式进行会谈，可能通过电话，也可能是某个国际峰会的间隙，也可能是其他方式。
 
-全世界瞩目的拜登-普京会谈结束了。两位领导人在会议结束时没有按照双边峰会的惯例那样举行联合新闻发布会，而是单独露面，但我们还是认为此次会议意义重大，对拜登来说，基本达到了预期的目的。
+目前据传，拜登和习近平预计都将出席10月份在意大利举行的20国集团(G20)会议，那么按照沙利文所说寻找某个国际峰会间隙，就可能指这个峰会。但是过去18个月，中共的高官没有任何一次出境访问，可能疫情是一方面原因，但随着疫情的常态化，各国领导都已经开启了正常的互访工作，因此，中共的领导人不出去访问的可能原因，是无法面对被国际孤立的局势，不想出丑，还有就是一尊害怕政权有变数，只有每天守着这个皇位，并限足各位常委，以防林彪事件第二。
 
-拜登宣称：需要使两国关系再次“可预测和稳定”，并向俄罗斯总统展示了“红线”——“我已经做了我来这里要做的事。首先，确定了我们可以在哪些领域以务实的方式开展工作，以促进我们的共同利益，也使世界受益。第二，美国将对损害我们和我们盟友重要利益的行动作出回应”。
+今天的路德社，也就这一新闻做了剖析，在普拜会成功召开之后，美俄两国已经就重要问题达成了一致，作为老牌政客的拜登，自然不会将一尊马上丢弃在一边，常规的安抚工作还是需要做的。但是从现在开始到今年十月份，变数实在是太大了，且不说关于病毒真相的报告将会公布，而且G7之后，欧洲各国对中共即将采取什么强硬措施，也是外界一直期待的。
 
-普京重复了他对西方的一贯抱怨，并引用了俄罗斯外交政策的惯常说辞：“我们没有做过被指控的事情，而且即使我们做了，那也是因为对手也这样做了”。不过，他还是赞扬了拜登的品格，并且像拜登一样，表示会谈是坦诚和务实的。
+但昨天拜登总统已与一尊划清了个人关系是不争的事实，拜登告诉记者：他与一尊彼此都很了解，但绝不是老朋友，只是纯粹的工作关系。这样的表态已经能说明一切问题了，至于现在话语上的安抚是作为老牌政客常用的手段，一方面在证据没有全面公布之前不想太过得罪竞争对手，另一方面也是再给中共自嗨的一次机会，至于会得到中共怎样的解读，我们持续追踪。
 
-作为一名从冷战中成长起来的政客，拜登继承了许多那个时期主导美国政府的思维模式：承认竞争，甚至是公开的敌意，但不轻易诉诸于武力。外交上礼貌与强硬并存，在道德和政治上赞扬与责备交相辉映。
+（本文只代表作者观点，与Gnews平台无关。）
 
-昨天的会议也达成了一些协议：恢复军备控制谈判，双方的大使返回在华盛顿和莫斯科的职位，甚至交换在对方国家被监禁的国民。
+**新闻来源：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/fvNVJcTByTZO1/images/d5121295-87d7-4e0e-a089-09ebd938498b.jpg?asset_id=5c1cb005-de3e-45a7-99b6-c8678b3105d4&amp;img_etag=%2284cdca721afcb8902a74ed2d832a965e%22&amp;size=2560)](https://spark.adobe.com/page/fvNVJcTByTZO1/images/d5121295-87d7-4e0e-a089-09ebd938498b.jpg?asset_id=5c1cb005-de3e-45a7-99b6-c8678b3105d4&amp;img_etag=%2284cdca721afcb8902a74ed2d832a965e%22&amp;size=1024)
+[白宫考虑安排“习拜会” 10月G20峰会间隙是可能选项 | 路透 (reuters.com)](https://cn.reuters.com/article/white-house-biden-xi-0617-thur-idCNKCS2DU01H?il=0)
 
-俄罗斯还重申了其在北极航线军事存在的必要性，但欢迎与美国就此加强合作。北极航线目前处于俄罗斯的绝对控制下，有可能成为中共国“突破重围”的切入点。美俄峰会关于北极航线的会谈，说明至少俄罗斯还不会向中共单方面开放北极航线，但作为条件，美国必须在北极航线给予俄罗斯更大的利益并承认俄罗斯的主控权（我们之后的文章会专门深入探讨“北极航线”，感兴趣的小伙伴敬请关注）。
-
-尽管美俄峰会不能说取得了巨大的成功，但至少沟通渠道更加直接，美国给了俄罗斯一个选中共还是保持中立的选择，俄罗斯则宣告了自己的交换条件，起码他可以继续插手在前苏联国家中的事务（例如乌克兰、格鲁吉亚等）。双边关系的发展还和国际局势息息相关，俄罗斯需要获取最大的国家利益和普京个人的政治利益。美国和西方越强大，越团结，越强硬，俄罗斯就会越收敛。正如拜登总统认为的：“俄罗斯是一个正在衰落的国家，经济上很弱，在国外的影响能力比它吹嘘的要低很多。”
-
-西方媒体普遍认为美俄峰会“至少有了一些调节敌意的准则，这是件大事”。
-
-我们盘点一下拜登总统一周之内的欧洲之行：G7集团会议，北约峰会，美俄峰会。最终的结果就是：团结欧盟，清理内部，收拢国际寡头公司和华尔街的力量。加强短期和长期的军事斗争准备，明确树立敌人：俄罗斯和中共国。而之后的俄美峰会疏解了双方的敌意，礼貌和强硬并存，至少稳住了俄罗斯，剩下的敌人只有一个：中共国。
-
-**参考文献：**
-
-- [Biden mostró las líneas rojas a Putin](https://blogs.elconfidencial.com/mundo/tribuna-internacional/2021-06-17/eeuu-y-rusia-no-encuentran-la-manera-de-ser-amigos_3135740/)
-- [Rusia: nosotros no hemos hecho nada y vosotros también lo hacéis](https://blogs.elconfidencial.com/mundo/tribuna-internacional/2021-03-04/rusia-sanciones-ue-eeuu_2975836/)
-- [“Putin no se levanta cada mañana con la idea de conquistar un país de la OTAN”](https://www.elconfidencial.com/mundo/europa/2021-06-12/putin-no-se-levanta-cada-manana-con-la-idea-de-conquistar-un-pais-de-la-otan_3128427/)
-
-
-*（本文仅代表个人观点）*
-
-**请在Gnews搜索“ gokuabuela ”，查看本文作者更多文章，谢谢！**
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/fvNVJcTByTZO1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/fvNVJcTByTZO1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+***校对发布**：文顾*
 
 0

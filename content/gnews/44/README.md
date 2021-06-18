@@ -1,66 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 联邦调查局调查中共间谍在新冠旅行禁令之前返美情况
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1330273/)
+## 2021/06/16 班农专访(1) 联邦法院第一次对中共提起诉讼
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1330287/)
 
-新闻来源：《华盛顿自由灯塔 （Washington Free Beacon）》| 作者：Joseph Simonson | 发布时间：2021年6月15日
+视频字幕：雨中漫步 | 听写：云岭| 翻译：Wade | 校对：Roberts |简评/文字整理/编辑：胖丁|Page：小雨
 
-翻译/简评：Ying2064 | 校对：SilverSpurs7 | 审核：Beicy-数学老师 | Page：Daoiii
-
-[!\[\]()!\[\](https://spark.adobe.com/page/T7qASrnp4O4fu/images/659db158-96cf-4bad-bc87-935ade8d0794.jpg?asset_id=258ca547-6591-4cd8-bf5e-ce5b3609210f&amp;img_etag=%2239ddd74519cb7739ac6e252748f12d3e%22&amp;size=1024)](https://spark.adobe.com/page/T7qASrnp4O4fu/images/659db158-96cf-4bad-bc87-935ade8d0794.jpg?asset_id=258ca547-6591-4cd8-bf5e-ce5b3609210f&amp;img_etag=%2239ddd74519cb7739ac6e252748f12d3e%22&amp;size=1024)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17201808/1-23-35.jpg)
 
 **简评：**
 
-根据《华盛顿自由灯塔》查阅的政府内部文件，情报官员正在调查为什么涉嫌中共国的间谍在新冠大流行病开始时持学生和工作签证返回美国。数据库显示，在5.8万名入境的中共国学生和工作签证持有者中，发现396人的回国旅行计划原在2020年1月之后，但提前在2020年1月返美。
+麦克•林戴尔于6月4日在联邦法院，把中共作为联合被告，提起了对多米尼的诉讼。中共“五毛”大军进行网络攻击的证据和119网络小组，都会包括在卷宗中。这是联邦法院第一次对中共提起诉讼，因为中共干预2020年美国大选。
 
-联想时任总统唐纳德·川普在2020年1月31日签署的旅行禁令，此调查无疑又一次证明爆料革命对新冠病毒大流行情报的准确性和及时性。另外，这项调查也证明中共国政府把学生作为其间谍活动的一个重要部分，以获得尖端研究、技术发明和其他形式的知识产权。中共通过其大外宣洗脑，试图在其驻外公民中建立一种为中国共产党带回有用东西的义务感。这让我们再次意识到区分中国人和中国共产党的重要性和迫切性。在美国的所有外国学生中，大约有30%来自中共国——总数约为34万人。试想如果所有中国学生都被视为中共国间谍而不得入境，这些学生如何在西方接受先进的教育，学习其先进经验从而建立中国的民主法制？
+麦克•林戴尔和班农先生邀请GNews和GTV作为主要媒体，对在七月份举行的、持续一天的座谈会进行实况直播和访谈。然后，直接向最高法院提起诉讼，反转选举结果。
 
-我们已经看到，病毒真相正在一步步被揭开。随着各国国家机构和媒体相继跟进和报道传播真相，我们坚信能够用真实可靠的情报和科学事实来唤醒民众的认知，揭开病毒真相，阻止中共这个邪恶组织继续通过释放病毒和蓝金黄达到其政治目的。
+**GTV视频链接**：[英喜班农专访Q1：谈麦克•林戴尔在6月4日对中共提起的诉讼](https://gtv.org/video/id=60cb50913d6f40323c1dd1a6)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/T7qASrnp4O4fu/images/982e0dba-2bf0-4a99-96b3-7ff4e12fed29.jpg?asset_id=ac6c2070-d0f6-4829-ba2f-d94abccf845a&amp;img_etag=%22c1326c30d5a78a81df26c5868f550c5a%22&amp;size=1024)](https://spark.adobe.com/page/T7qASrnp4O4fu/images/982e0dba-2bf0-4a99-96b3-7ff4e12fed29.jpg?asset_id=ac6c2070-d0f6-4829-ba2f-d94abccf845a&amp;img_etag=%22c1326c30d5a78a81df26c5868f550c5a%22&amp;size=1024)
 
-**原文翻译：**
 
-## **联邦调查局调查中共间谍在新冠旅行禁令之前返美情况**
+**视频字幕：**
 
-**中共国公民的旅行变化引起国家安全机构对间谍活动和大流行病的关注**
+**主持人Mike**：我们知道麦克•林戴尔在6月4号提起了一项对中共的诉讼，这对灭共有怎样的加速作用？
 
-[!\[\]()!\[\](https://spark.adobe.com/page/T7qASrnp4O4fu/images/bb43b92b-4a94-4203-93b1-e590ee6ce814.jpg?asset_id=b7c71901-b631-4fd6-925d-343013f00086&amp;img_etag=%22b3c22db6047e32cc2f80b1aad616a468%22&amp;size=1024)](https://spark.adobe.com/page/T7qASrnp4O4fu/images/bb43b92b-4a94-4203-93b1-e590ee6ce814.jpg?asset_id=b7c71901-b631-4fd6-925d-343013f00086&amp;img_etag=%22b3c22db6047e32cc2f80b1aad616a468%22&amp;size=1024)
+**班农先生**：第一，他在联邦法院对多米尼的诉讼，把中共作为联合被告。这是在联邦法院第一次对中共的诉讼，因为干预美国大选。
 
-根据《华盛顿自由灯塔》查阅的政府内部文件，情报官员正在调查为什么涉嫌中共国的间谍在新冠大流行病开始时持学生和工作签证返回美国。
+第二，你们还没看到。最高法院的诉讼直到七月才会提交。他正在发出邀请，我也在这里对GNEWS、GTV，还有你们的节目组发出邀请。他将举行一个持续一整天的座谈会，让人们反驳他的证据。他邀请GNEWS和GTV作为主要媒体进行独家专访。因为你们节目，和GNEWS、GTV的力量。然后，他会直接向最高法院提起诉讼。
 
-在执法官员于新冠大流行病开始时标记了他们的旅行后，数百名中共国公民成为联邦调查的对象。这些中共国公民往往修改了他们的旅行计划，在2020年1月比预期提前返回美国。时任总统唐纳德·川普在2020年1月31日签署了一项行政命令，限制来自中共国的非公民和居民入境。
+所以有两条轨道。一条是直接上诉最高法院，反转选举结果。另外一条是在联邦法院诉讼多米尼公司，并将中共作为被告之一。
 
-6月3日在各国家安全和执法机构中流传的一份内部报告中叙述了这一事件。该报告推测，这些中共国学生比预期提前返回美国，以躲过未来因新冠大流行病引起的旅行限制。美国在1月21日公布了第一例新冠病例，同一天，一位中共国科学家表示这种病毒可以在人与人之间传播。
+中共五毛大军进行网络攻击的证据和119的网络小组，所有这些都会被包括在卷宗之中。所以中共非常不安。
 
-“该小组检查了[旅客姓名记录]数据库中5.8万名入境的中共国F/J签证持有者，发现396人的回国旅行[计划]在2020年1月之后，但已在2020年1月返美，”报告写道。
+我们知道中共因为这些诉讼坐立不安。但林戴尔就是美国版的文贵。他下定了决心就绝对不会松手，这将非常重磅。我想说的是，林戴尔刚刚宣布了持续一天的座谈会。他将展示所有的证据，允许全世界网络专家进行检验。他邀请GNEWS、GTV还有你们的节目进行实况直播和访谈。
 
-尽管情报官员还没有得出这数百名被监测的学生是否被确认为间谍的结论，但这些学生修改后的行程表明，许多中共国国民知道新冠的严重性，尽管他们的政府和美国卫生官员对新冠作出了保证。世界卫生组织直到2020年1月31日才宣布全球卫生紧急状态，尽管中共国在八天前就下令对整个武汉市进行隔离。
+**完整访谈视频：[班农专访（2021年6月16日）](https://gtv.org/video/id=60c9fcc2b96c69573d803a00)**
 
-教育观察家们说，这份备忘录突出了美国宽松的学生签证制度对国家安全构成的风险。
+🎤**主播：**Winston，Mike，Dr. TCC
 
-“中共国政府把非传统的信息收集者作为其间谍活动的一个重要部分。学术界也不能幸免，”国家学者机构的高级研究员雷切尔·彼得森（Rachelle Peterson）说。“尖端研究、技术发明和其他形式的知识产权是中共国政府的关键目标，它试图在其驻外公民中建立一种为中国共产党带回有用东西的义务感。”
+[!\[\]()!\[\](https://spark.adobe.com/page/R0lfMEYurLBqL/images/86859167-50fd-4ead-8115-1a96839105ff.png?asset_id=834ea3c5-3d4c-4a19-b5ac-7ea43f4329fe&amp;img_etag=%22362a452a71eeae3c55949955c234b11a%22&amp;size=1024)](https://spark.adobe.com/page/R0lfMEYurLBqL/images/86859167-50fd-4ead-8115-1a96839105ff.png?asset_id=834ea3c5-3d4c-4a19-b5ac-7ea43f4329fe&amp;img_etag=%22362a452a71eeae3c55949955c234b11a%22&amp;size=1024)
 
-美国情报机构长期以来一直警告大学和研究机构注意中共国间谍活动的威胁。在美国的所有外国学生中，大约有30%来自中共国——总数约为34万人。2020年9月，美国取消了1000多个中共国的学生和研究签证，声称接受者与中共国军队有联系。
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
 
-川普政府将对抗中共国的军事和间谍行为作为其议程的基石，川普的情报总监约翰·拉特克利夫(John Ratcliffe)称中共国是“今天对美国最大的威胁，也是二战以来对全世界民主和自由的最大威胁”。川普在2020年5月签署了一项行政命令，禁止“某些与中共国境内实体有关的研究生及以上级别的中共国公民”进入美国。
 
-美国国家卫生研究院在2019年对其研究拨款的接受者展开了持续调查。《自由灯塔报》于2020年6月14日报道，至少有54名获得国家卫生研究院资助的科学家因未披露与外国政府，特别是与中共国的关系而被解雇。
-
-对中共国公民的行动和目的的调查仍在进行中，但该报告再次表明，中共官员故意掩盖新冠的来源和严重性，同时暗中为自己采取预防措施。
-
-5月26日，众议院能源和商业监督小组委员会主席Diana Degette戴安娜·德盖特（Dina Degette,科罗拉多州众议院）赞同由共和党领导的呼吁，要求调查新冠是否从中共国的一个研究实验室泄露。其他民主党人以及媒体成员在将问题视为右翼阴谋论的一部分后，呼吁对该病毒的来源进行更严格的审查。
-
-🔗[原文链接](https://freebeacon.com/coronavirus/feds-investigating-chinese-spies-return-to-us-ahead-of-covid-travel-ban/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:00 （美东时间09：00）直播***
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/T7qASrnp4O4fu/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/T7qASrnp4O4fu/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/R0lfMEYurLBqL/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/R0lfMEYurLBqL/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
