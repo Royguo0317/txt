@@ -1,52 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【西班牙视角】拜登给普京画下了红线
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1330497/)
+## 加拿大布里德博士警告新冠疫苗的刺突蛋白正在杀人
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1330552/)
 
-作者：Gokuabuela|校对：文明明|审核：Beicy-数学老师|Page：小雨
+蒙特利尔皇家山战友团 Spirit
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17220753/SAT_FOCUS_SEG_THREE_THUMB_200620.jpg)
+太可怕了”研究发现武新冠疫苗所包含和制造的刺突蛋白直接导致了心血管的损伤和死亡。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/fvNVJcTByTZO1/images/32e3df74-ccf4-4286-94b4-9b353a7d22ea.jpg?asset_id=3ce86525-3757-4683-9a90-a157b3527549&amp;img_etag=%224ceebeb8f9477c99a97dfa9e4c4a1f5a%22&amp;size=2560)](https://spark.adobe.com/page/fvNVJcTByTZO1/images/32e3df74-ccf4-4286-94b4-9b353a7d22ea.jpg?asset_id=3ce86525-3757-4683-9a90-a157b3527549&amp;img_etag=%224ceebeb8f9477c99a97dfa9e4c4a1f5a%22&amp;size=1024)
+布里德（Byram W. Bridle）博士说，他和几位同事通过一项来自日本的首次”生物分布”的研究中得知，即使在手臂的肌肉组织中注射莫得纳（Moderna）和辉瑞（Pfizer-BioNTech）公司的mRNA疫苗，也会导致产生刺突蛋白，这些刺突蛋白往往会进入血液，导致致命的血凝块、心脏和大脑损伤以及不孕。
 
-全世界瞩目的拜登-普京会谈结束了。两位领导人在会议结束时没有按照双边峰会的惯例那样举行联合新闻发布会，而是单独露面，但我们还是认为此次会议意义重大，对拜登来说，基本达到了预期的目的。
+“刺突蛋白本身几乎要对心血管系统的损害负全部责任”。布里德在最近的一次电台采访中警告说：”如果你将’纯化’的刺突蛋白注入血液……将有对心血管系统的各种损害，它可以穿过血脑屏障，对大脑造成损害。刺突蛋白进入血液，在接种疫苗后的几天内通过个人的血液循环，在一些组织中积累，如脾脏、骨髓、肝脏、肾上腺、卵巢”。
 
-拜登宣称：需要使两国关系再次“可预测和稳定”，并向俄罗斯总统展示了“红线”——“我已经做了我来这里要做的事。首先，确定了我们可以在哪些领域以务实的方式开展工作，以促进我们的共同利益，也使世界受益。第二，美国将对损害我们和我们盟友重要利益的行动作出回应”。
+在这项研究中，13名医护人员注射了莫得纳（Moderna）针对新冠病毒的疫苗针剂，结果其中11人的血液中可检测到刺突蛋白。布里德说，这进一步证实了一个事实，即疫苗的刺突蛋白是对身体有毒的致病蛋白。
 
-普京重复了他对西方的一贯抱怨，并引用了俄罗斯外交政策的惯常说辞：“我们没有做过被指控的事情，而且即使我们做了，那也是因为对手也这样做了”。不过，他还是赞扬了拜登的品格，并且像拜登一样，表示会谈是坦诚和务实的。
+布里德进一步解释说”如果它进入血液循环，会对我们的身体造成损害“。他对疫苗刺突蛋白发出警告。”现在我们有明确的证据表明，使我们三角肌的细胞制造这种蛋白质的疫苗，疫苗本身加上这种蛋白质进入血液循环，刺突蛋白与我们血小板上的受体结合，以及与我们血管内的细胞结合。当这种情况发生时，它可以导致血小板凝结，从而导致血栓……也可以导致出血，并且涉及心脏”。
 
-作为一名从冷战中成长起来的政客，拜登继承了许多那个时期主导美国政府的思维模式：承认竞争，甚至是公开的敌意，但不轻易诉诸于武力。外交上礼貌与强硬并存，在道德和政治上赞扬与责备交相辉映。
+更糟糕的是，在被注射到肌肉组织后，mRNA诱导的刺突蛋白也有可能穿过血脑屏障，造成神经系统的损伤。这就是为什么在许多血凝块的致命案例中，损害是在大脑中观察到的。
 
-昨天的会议也达成了一些协议：恢复军备控制谈判，双方的大使返回在华盛顿和莫斯科的职位，甚至交换在对方国家被监禁的国民。
+当然，所有这些潜在的结果都比病毒本身要糟糕得多，这只是表明”治疗”比疾病更糟糕。世界什么时候才能醒悟过来，意识到这些所谓的”疫苗”是一个正在运作的优生学计划？
 
-[!\[\]()!\[\](https://spark.adobe.com/page/fvNVJcTByTZO1/images/d5121295-87d7-4e0e-a089-09ebd938498b.jpg?asset_id=5c1cb005-de3e-45a7-99b6-c8678b3105d4&amp;img_etag=%2284cdca721afcb8902a74ed2d832a965e%22&amp;size=2560)](https://spark.adobe.com/page/fvNVJcTByTZO1/images/d5121295-87d7-4e0e-a089-09ebd938498b.jpg?asset_id=5c1cb005-de3e-45a7-99b6-c8678b3105d4&amp;img_etag=%2284cdca721afcb8902a74ed2d832a965e%22&amp;size=1024)
+虽然可能有少数研究人员在提出将致命的刺突蛋白注射到体内的想法时是出于好意，但整个事情是”一个大错误，”布里德说。”我们现在才意识到这一点，”他对这个过程争辩说：”我们认为刺突蛋白是一个很好的目标抗原，我们从不知道刺突蛋白本身是一种毒素，是一种致病蛋白。因此，给人们接种疫苗，就等于接种了一种毒素”。
 
-俄罗斯还重申了其在北极航线军事存在的必要性，但欢迎与美国就此加强合作。北极航线目前处于俄罗斯的绝对控制下，有可能成为中共国“突破重围”的切入点。美俄峰会关于北极航线的会谈，说明至少俄罗斯还不会向中共单方面开放北极航线，但作为条件，美国必须在北极航线给予俄罗斯更大的利益并承认俄罗斯的主控权（我们之后的文章会专门深入探讨“北极航线”，感兴趣的小伙伴敬请关注）。
+布里德和几位科学家去年从政府获得了23万美元的资助，用于研究新冠病毒疫苗注射剂。通过这个，他们能够获得关于注射的数据，显示它们所包含或产生的刺突蛋白几乎是在病人接受注射后被观察到的所有心血管损伤的唯一原因。
 
-尽管美俄峰会不能说取得了巨大的成功，但至少沟通渠道更加直接，美国给了俄罗斯一个选中共还是保持中立的选择，俄罗斯则宣告了自己的交换条件，起码他可以继续插手在前苏联国家中的事务（例如乌克兰、格鲁吉亚等）。双边关系的发展还和国际局势息息相关，俄罗斯需要获取最大的国家利益和普京个人的政治利益。美国和西方越强大，越团结，越强硬，俄罗斯就会越收敛。正如拜登总统认为的：“俄罗斯是一个正在衰落的国家，经济上很弱，在国外的影响能力比它吹嘘的要低很多。”
+不仅美国和欧洲，现在加拿大也有科学家站住来呼吁停止疫苗，这是一个天大的错误，疫苗的灾难比病毒更严重，现在各国政府，媒体和大药厂正在强推疫苗无异于在执行杀人计划，世界快快醒悟吧。
 
-西方媒体普遍认为美俄峰会“至少有了一些调节敌意的准则，这是件大事”。
+原文链接：
 
-我们盘点一下拜登总统一周之内的欧洲之行：G7集团会议，北约峰会，美俄峰会。最终的结果就是：团结欧盟，清理内部，收拢国际寡头公司和华尔街的力量。加强短期和长期的军事斗争准备，明确树立敌人：俄罗斯和中共国。而之后的俄美峰会疏解了双方的敌意，礼貌和强硬并存，至少稳住了俄罗斯，剩下的敌人只有一个：中共国。
+[https://www.naturalnews.com/2021-06-03-canadian-researcher-covid-vaccine-spike-proteins-death.html#](https://www.naturalnews.com/2021-06-03-canadian-researcher-covid-vaccine-spike-proteins-death.html#)
 
-**参考文献：**
+* * *
 
-- [Biden mostró las líneas rojas a Putin](https://blogs.elconfidencial.com/mundo/tribuna-internacional/2021-06-17/eeuu-y-rusia-no-encuentran-la-manera-de-ser-amigos_3135740/)
-- [Rusia: nosotros no hemos hecho nada y vosotros también lo hacéis](https://blogs.elconfidencial.com/mundo/tribuna-internacional/2021-03-04/rusia-sanciones-ue-eeuu_2975836/)
-- [“Putin no se levanta cada mañana con la idea de conquistar un país de la OTAN”](https://www.elconfidencial.com/mundo/europa/2021-06-12/putin-no-se-levanta-cada-manana-con-la-idea-de-conquistar-un-pais-de-la-otan_3128427/)
-
-
-*（本文仅代表个人观点）*
-
-**请在Gnews搜索“ gokuabuela ”，查看本文作者更多文章，谢谢！**
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/fvNVJcTByTZO1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/fvNVJcTByTZO1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+发稿： Spirit
 
 0
