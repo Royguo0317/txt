@@ -1,175 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Myway专栏】病毒和疫苗合辑
-` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1331620/)
+## 西喜时事新闻简报—美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1331969/)
 
-Gnews病毒真相小组 整理
+- 作者：此生灭共
 
 
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
+**西班牙2021年6月18日电/西喜社——**
 
+您若想了解全文报导内容，请点击标题链接
 
-## 新冠病毒预防和治疗方案总结
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18084203/h141480-1.jpg)](https://gnews.org/zh-hans/1327734/)
-[新型冠状病毒肺炎大多数感染者表现为无症状或轻度或中度症状，但其中约有15-20%的患者会发展为重症肺炎，约5%的患者发展为急性呼吸窘迫综合征。本篇文章收录了一些新冠的治疗方法。](https://gnews.org/zh-hans/1327734/)
+**1.[参议院确认首位白宫网络主管](https://www.foxnews.com/politics/senate-confirms-first-white-house-cyber-director)**
 
+福克斯6月17日电，美国[参议院](https://www.foxnews.com/category/politics/senate)于周四确认克里斯英格利斯为首任白宫网络安全主任，并对最近对美国基础设施进行的网络攻击表示强烈担忧。 英格利斯曾担任国家安全局（NSA）副局长。 参议院通过一致同意投票确认了英格利斯，没有立法者反对。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103001/unknown-4-7.png)
 
+**2.[根据拜登的命令，中国应用程序可能面临传票或禁令](https://www.foxbusiness.com/technology/chinese-apps-could-face-subpoenas-or-bans-under-biden-order)**
 
+福克斯6月17日电，为了防止中国和俄罗斯等外国对手获得大量个人和专有商业信息，商务部可能会发出传票以收集有关某些智能手机、平板电脑和台式计算机软件应用程序的信息。据知情人士透露，该机构可能会就它们在美国的使用条件进行谈判，或者禁止这些应用程序。
 
-## 疫苗的副作用收集与分析
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18085123/B506E3EC-2657-4669-921A-6482E1151431-768x451-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103115/unknown-5-3.png)
 
+** 3.[朝鲜领导人金正恩为与拜登对话敞开大门](https://www.bloomberg.com/news/articles/2021-06-18/north-korea-s-kim-jong-un-opens-door-for-dialogue-with-biden?srnd=premium)**
 
-## [COVID-19疫苗隐藏的不良事件](https://gnews.org/zh-hans/1320579/)
+彭博社6月18日电，朝鲜领导人金正恩表示，他已准备好“对话和对抗”，并在美国总统乔·拜登的新核特使前往该地区以建立对平壤战略的支持之际为会谈提供了机会。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103310/unknown-6-3.png)
 
+**4.**[在普京的支持下，拜登的注意力转移到了习近平身上](https://www.bloomberg.com/news/articles/2021-06-17/with-putin-behind-him-biden-s-focus-shifts-to-china-s-xi)
 
+彭博社6月17日电，拜登表示，中国将成为其政府外交政策的核心，然而，由于普京政府被指控干涉美国选举并窝藏针对美国关键基础设施的黑客，他需要在与俄罗斯的关系中建立一些“道路规则”和可预测性。现在北京成为焦点。对美国经济而言，美中关系远比与俄罗斯的关系复杂和重要，拜登在未来几年与习近平会面并建立富有成效的关系的窗口正在关闭。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103817/unknown-7-4.png)
 
-## [多名妇女在接种新冠疫苗后流产](https://gnews.org/zh-hans/1289458/)
+**5.[民主党在扩大基础设施交易谈判中浮动 6 万亿美元计划](https://www.nytimes.com/2021/06/17/us/politics/democrats-infrastructure-deal-congress.html)**
 
+纽约时报6月17日电，参议院民主党人已经开始私下权衡一项庞大的经济计划，该计划可能高达 6 万亿美元，尽管两党参议员小组正在努力争取支持一个范围更窄的基础设施计划，该计划将投入 5,790 亿美元的新资金来资助实体公共工程项目。目前，这两项计划的细节仍在不断变化，两党中间派参议员都在推进他们的妥协提案，民主党准备使用称为和解的快速预算程序，以避免共和党阻挠他们更大的计划。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18104014/unknown-8-3.png)
 
+审核：蚂蚁兄弟；校对：信心满满；发稿：信心的选择
 
-
-## [英国新冠疫苗不良事件汇总](https://gnews.org/zh-hans/1280610/)
-
-
-
-
-
-## [欧洲中共病毒疫苗接种不良事件统计](https://gnews.org/zh-hans/1269142/)
-
-
-
-
-
-## [以色列发现辉瑞公司中共病毒疫苗对人体的灾难性副作用](https://gnews.org/zh-hans/1220160/)
-
-
-
-
-
-## [印度为何在大规模中共病毒疫苗接种后疫情爆发](https://gnews.org/zh-hans/1177409/)
-
-
-
-
-
-## [关于中共病毒和疫苗现状的思考](https://gnews.org/zh-hans/1048176/)
-
-
-
-
-
-
-
-
-
-## 疫苗和病毒的毒性分析
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13091107/4ECA3C58-0FE5-416E-A76D-1823671F5116-1.jpeg)
-
-
-## [mRNA疫苗中的纳米颗粒和磁珠](https://gnews.org/zh-hans/1291643/)
-
-
-
-
-
-## [纳米磁珠粒子的前世今生](https://gnews.org/zh-hans/1316219/)
-
-
-
-
-
-## [有毒的S蛋白](https://gnews.org/zh-hans/1288957/)
-
-
-
-
-
-## [新冠疫苗为何引起血栓和其它不良反应](https://gnews.org/zh-hans/1281702/)
-
-
-
-
-
-## [mRNA疫苗的本质](https://gnews.org/zh-hans/1273173/)
-
-
-
-
-
-## [中共病毒疫苗及其次生灾难](https://gnews.org/zh-hans/1264684/)
-
-
-
-
-
-
-
-## 病毒超限战解析合辑
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13070018/75bc97c842ab9ae8_mh1615015673612.jpg)](https://gnews.org/zh-hans/1319372/)随着对中共病毒来源调查的步步深入，参与此邪恶计划的各方力量都已浮出水面。本文对已有的中共病毒超限战情报进行了梳理与汇总
-
-
-
-
-## 中共制毒体系挖掘
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18093859/image1-4-1.png)
-
-
-## [中共病毒超限战到底准备了多久](https://gnews.org/zh-hans/1150251/)
-
-
-
-
-
-## [由陈薇少将的公子简历看中共造假](https://gnews.org/zh-hans/1139455/)
-
-
-
-
-
-## [浅谈中共动物病毒奠基人殷震](https://gnews.org/zh-hans/1134856/)
-
-
-
-
-
-## [中共官方删除武汉病毒所石正丽所有研究资料](https://gnews.org/zh-hans/739468/)
-
-
-
-
-
-
-
-
-
-## 其他文章
-
-
-
-福奇资助将流产胎儿头皮移植到活体大鼠上的邪恶实验
-
-
-
-> [福奇资助将流产胎儿头皮移植到活体大鼠上的邪恶实验](https://gnews.org/zh-hans/1193866/)
-
-
-
-
-
-如何劝说身边的人不去打中共病毒疫苗
-
-
-
-> [如何劝说身边的人不去打中共病毒疫苗](https://gnews.org/zh-hans/1175791/)
-
-
-
-
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 +1

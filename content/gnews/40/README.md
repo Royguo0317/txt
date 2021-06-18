@@ -1,25 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美俄总统关于战略稳定的联合声明
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1331580/)
+## 【热点播报】印度毒株Delta 正在全球肆虐，且更趋向于感染更年轻的人群
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1331823/)
 
-翻译：康州盘古农场 – 柯镇恶
-校对：康州盘古农场 – Mike LI
-编辑：康州盘古农场 – 格格巫
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18073826/1031.jpg)图片来源网络
-**白宫网站 2021年6月16日发布共同声明：**
+香草山写作组 繁星
 
-我们‑‑美利坚合众国总统约瑟夫·R·拜登和俄罗斯联邦总统弗拉基米尔·普京，注意到美国和俄罗斯已经展示了，即使在紧张时期，他们也能够在实现我们共同的目标上取得进展，即确保战略领域的可预测性，减少武装冲突的风险和核战争的威胁。
 
-最近扩充的《新削减战略武器条约》体现了我们对核军备控制的承诺。今天，我们重申核战争打不赢、绝不能打的原则。
 
-根据这些目标，美国和俄罗斯将在不久的将来共同开展综合性的双边战略稳定对话，该对话将是深思熟虑的和强有力的。通过这次对话，我们寻求为未来的军备控制和降低风险措施奠定基础。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
 
-原文链接：[https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/16/u-s-russia-presidential-joint-statement-on-strategic-stability/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/16/u-s-russia-presidential-joint-statement-on-strategic-stability/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+更具有传染性的Covid-19 Delta 变异病毒正在加拿大Saskatchewan 省肆虐，在过去的一周里，感染Delta变异病毒的病例已由45例上升到68例。专家认为，在印度流行的Delta变异病毒比其它毒株更具传染性。
+
+加拿大CBC 新闻在6月13日报道，在Foothills hospital ,两个病房的16位患者和6名卫生保健工作者Delta 变体检测呈阳性。其中六位患者和5位卫生保健人员已接种2剂 mRNA 疫苗。Alberta Health Services 表示，即使接种疫苗，仍有可能感染病毒。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18092909/Screen-Shot-2021-06-18-at-9.22.13-AM.png)
+美国已发现具有高度传染性的的Alpha 和Delta 变体已激增，而Gamma 变体在几个州的传播正在增长。美国CDC 将Delta标记为“关注变体”，这是科学家对更易传播或导致严重疾病的病毒株的一个命名。
+
+澳大利亚新南威尔士洲，这周五恢复在悉尼公共交通工具上强制戴口罩，因为感染更具有高度传染性的delta 变异毒株的病例已扩大到4例。
+
+柳叶刀杂志上的一篇文章表示，从5月19 日开始，Delta 变异毒株已成为苏格兰Covid-19的主要流行毒株，而且感染对象趋向于更年轻的人群中。
+
+中共病毒库里的病毒不停被释放出来，而且毒性逐渐变强，威力更大。人们已在警醒，追究病毒源头已是不可辩驳的事实。
+
+参考来源：
+
+[https://www.cbc.ca/news/canada/saskatchewan/sask-delta-variant-1.6069986](https://www.cbc.ca/news/canada/saskatchewan/sask-delta-variant-1.6069986)
+
+[https://www.cbc.ca/news/canada/calgary/foothills-delta-variant-outbreak-calgary-covid-1.6063802](https://www.cbc.ca/news/canada/calgary/foothills-delta-variant-outbreak-calgary-covid-1.6063802)
+
+[https://www.cnn.com/2021/06/18/health/us-coronavirus-friday/index.html](https://www.cnn.com/2021/06/18/health/us-coronavirus-friday/index.html)
+
+[https://www.breitbart.com/news/vaccine-effort-turns-into-slog-as-infectious-variant-spreads/amp/](https://www.breitbart.com/news/vaccine-effort-turns-into-slog-as-infectious-variant-spreads/amp/)
+
+[https://www.reuters.com/world/asia-pacific/sydney-reinstates-masks-contain-delta-covid-19-variant-2021-06-18/](https://www.reuters.com/world/asia-pacific/sydney-reinstates-masks-contain-delta-covid-19-variant-2021-06-18/)
+
+[https://www.thelancet.com/journals/lancet/article/PIIS0140-6736(21)01358-1/fulltext](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2821%2901358-1/fulltext)
+
+[https://gtv.org/video/id=60cbb0b4b96c69573d8139af](https://gtv.org/video/id=60cbb0b4b96c69573d8139af)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0

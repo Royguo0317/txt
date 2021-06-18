@@ -1,31 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】06/17/2021:&#8221;以毒灭共&#8221;现在交给G7集团对付中共从今天开始我们进行&#8221;以黄灭共&#8221;
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1331968/)
+## 与普京会晤后，拜登希望与习近平有接触
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1332121/)
 
-**制作：Cantonese工作室**
+翻译：神奇四侠
 
+雅虎新闻6月18日消息：在与俄罗斯总统弗拉基米尔-普京结束会面后，拜登总统正在考虑与中共的习近平举行会谈。
 
+国家安全顾问杰克-沙利文星期四告诉记者，总统拜登所说的 “关于没有什么可以替代领导人级别的对话，这是他昨天与普京举行峰会的核心部分，也适用于中共和习近平。他将寻找机会促成拜登总统与习近平的会面。”
 
-**播报:【文依】资料整理:【陆柒陆捌】【Ruby三鑫】【michelle喜乐】视频制作:【KEN】发布：【陆柒陆捌】**
+现在没有任何计划，但沙利文说，“很快，我们将坐下来，为两位领导人的接触制定正确的模式。现在，它可能是一个电话，可能是在另一个国际峰会的间隙进行会晤，也可能是其他方式。” 拜登和习近平预计将出席10月举行的20国集团领导人会议。
 
-摘要：
+周日，七国集团领导人–在拜登的催促下–发表了一份公报，要求中国调查COVID-19的来源，并呼吁中国尊重维吾尔人的权利，维护香港的自由。
 
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18101635/6.17_page-0002.jpg)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18101717/6.17_page-0003.jpg)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18101823/6.17_page-0004.jpg)
-4
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18101856/6.17-converted_page-0005.jpg)
-5
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18101931/6.17_page-0006.jpg)
-6
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18102001/6.17_page-0007.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18102050/image0%E9%9D%A2-7.jpg)
+评论：
 
+文贵先生在直播中说 以毒灭共在9月以后才能达到高潮，现在美国已经联合了世界上绝大多数的力量，10月召开峰会是不是就是对中共的最后通牒呢？拭目以待
 
+新闻来源：[雅虎新闻](https://news.yahoo.com/putin-meeting-white-house-now-012558305.html)
 
+校对发稿：Ada（马德里）
 
 0

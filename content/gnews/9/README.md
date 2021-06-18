@@ -1,55 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【鹰眼墙国】进口翻倍、供大于求，花生价格继续走跌
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332165/)
+## 恒大许昌悦龙台项目民工讨薪被官媒报道究竟意味着啥
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1332206/)
 
-香草山写作组  鹰(文言)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18113613/3_%E5%89%AF%E6%9C%ACddd-.png)
+据[财经真相@caijingxiang](https://twitter.com/caijingxiang)于[下午10:26 · 2021年6月18日](https://twitter.com/caijingxiang/status/1405894766831673353)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+
+恒大今天在东北以6亿买了一块地，离岸美元债也开始涨，恒大危机似乎过去了，但是恒大全国各地商票逾期依旧没有解决，河南许昌恒大悦龙台项目烂尾，拖欠农民工资遭到河南广播电台曝光！
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
+> 恒大今天在东北以6亿买了一块地，离岸美元债也开始涨，恒大危机似乎过去了，但是恒大全国各地商票逾期依旧没有解决，河南许昌恒大悦龙台项目烂尾，拖欠农民工资遭到河南广播电台曝光！ [pic.twitter.com/fdNgZl4HzP](https://t.co/fdNgZl4HzP)
+> — 财经真相 (@caijingxiang) [June 18, 2021](https://twitter.com/caijingxiang/status/1405894766831673353?ref_src=twsrc%5Etfw)
 
 
 
-环球网6月18日转载中新经纬消息，从2021年一季度开始，花生现货交易价格下跌至2000元/吨，花生库存同比翻番，油料厂采购量下降，花生价格持续走跌。
+推文所附视频与[**豫楼市**](https://weibo.com/6496411540?refer_flag=1001030103_) [2021年6月18日20:35](https://weibo.com/6496411540/KkMIcosKc?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)新浪微博发布内容相同：
 
-根据天下粮仓数据，2020年国内花生种植面积7560万亩（同比19年上涨5.5%），产量超1750万吨（参考2019年花生产量1752万吨）。国内花生油消费主要集中于榨油（占比约47.3%）、食用和饲料。2019年国内花生出口量50.4万吨，进口量48.09万吨，进出口趋于持平；2020年由于疫情影响，1至7月花生出口量仅为24.86万吨，而同期进口量却高达84.16万吨。根据食品土畜进出口商会副会长的预估，2020年花生进口量约140万吨，近百万吨的花生“滞留”国内，造成了花生库存的堆积。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18110114/Screen-Shot-2021-06-18-at-10.45.54-AM-1.png)
-国内花生油成本的增加，造成2018年以来花生油进口量逐年上涨：2020年国内花生油进口量增至269.5万吨（同比2019年增长75.1万吨，涨幅38.6%）。国内的花生油年消费量基本稳定在300万吨，以花生出油率40-50%测算，75.1万吨花生油进口量的增长可“节省”国内约150-187万吨的花生消耗量。
+[#房产曝光台#](https://s.weibo.com/weibo?q=%23%E6%88%BF%E4%BA%A7%E6%9B%9D%E5%85%89%E5%8F%B0%23) 许昌*恒大*“悦龙台”项目停工，民工讨薪难，*中铁建设*:*恒大*欠我两千多万，没钱付工资！[#微博房产爆料#](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E5%8D%9A%E6%88%BF%E4%BA%A7%E7%88%86%E6%96%99%23) 来源/河南广播电视台许昌站 [L豫楼市的微博视频](http://t.cn/A6fPLimV) ​
 
-2020年下半年以来，海运集装箱价格猛涨并供不应求现状增加了花生出口的成本，导致花生出口量减少（2021年上半年出口量约为31万吨）；花生油进口量的增长导致国内榨油企业的销售惨淡。两者叠加造成国内花生库存量的翻番，而榨油企业原料收购需求的减弱更加剧了花生的市场价格下跌趋势。再加上2021年花生播种面积未有减少，单产略有增长，花生的供应远大于下游消费的需求，价格下跌趋势仍将长期存在。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18105957/Screen-Shot-2021-06-18-at-10.46.01-AM-1.png)
-花生的供大于求现状，虽然有种植户的个人因素，但中共的行政手段缺失依旧是重要因素。中共因为粮食缺口加大可以大肆进口粮食并号召全国范围内的节约，更可制定专门反食品浪费法节粮，村村宣传引导种粮产粮，为此更加大了对违规占地的处罚力度；然而，2020年花生种植面积仍增长，每月出口减弱下进口量仍激增。相比农户播种后不可更改，收获周期较长，进出口调节无疑是省时省力的操作。但正是中共的短视和对进口花生、花生油的“放任”才促成了如今的减价局面。
+墙内墙外印证之下我们可以得出什么结论呢？
 
-新闻来源：
+1、恒大的爆雷已经是不争的事实，这一点郭先生在此前已经在多次直播中提及，接下来的民生银行以及各大国有银行的爆雷也只是时间的问题；
 
-突然！反常！花生大量滞留卖不出！价格大降，“花生”了啥？https://china.huanqiu.com/article/43aF5rOX77A
+2、在此前农民工讨薪哪怕采取跳楼、喝药、跳塔吊等极端行为并因此付出生命的代价都很难产生一丝涟漪，而这一次农民工堂堂正正地被河南广播电视台许昌站公开报道，这不是中共国现在的新闻自由度高了，而是恒大背后的支持者与其政敌之间的位置或形势发生了变化，恒大的幕后老板现在已经控制不了形势了，所以农民工讨薪才能变得这么光明正大，也就是说这一切都是政治斗争的结果；那么这会带来的下一个问题是——
 
-2020年中国国际花生年会在山东文登召开http://www.xinhuanet.com/food/2020-09/17/c\_1126505577.htm
+谁是恒大的幕后老板呢？恒大此番真成了落魄的凤凰，哦，不对，用词不当，恒大此番成了落水狗了，作为恒大幕后老板的政敌会如何痛打落水狗呢？
 
-中国花生种植面积、产量及进口现状分析，2020年国内花生进口量破百万吨「图」https://m.huaon.com/detail/693923.html
+无论如何，这一次农民工的讨薪行为终于上了官媒，不管这一事件背后的真实原因是什么，在以共灭共的狗咬狗之下，希望这一次被欠薪的“悦龙台”项目的农民工们能够全额讨回欠薪，虽然我依然认为这样的希望非常渺茫。
 
-国贸投研 | 国内外供需情况—–花生系列专题https://www.sohu.com/a/445671958\_418129
+（文章内容仅代表作者个人观点）
 
-2020年我国花生油市场发展现状分析，地域性消费特征制约花生油市场进一步拓展「图」https://www.huaon.com/channel/trend/708388.html
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
 0

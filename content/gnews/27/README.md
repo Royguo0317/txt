@@ -1,29 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国外交事务委员会称中共为“多边主义风险”；列出阻止的步骤
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1331846/)
+## 【路德社即时简报】RedState关于董经纬的报道被证明是中共九层妖塔
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1331932/)
 
-翻译：康州盘古农场 – B7
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 – 傻小子
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18093757/1036.jpg)
-**据republicworld作者：苏奇特拉·卡蒂克扬 (Suchitra Karthikeyan)2021 年 6 月 17 日发布**
+作者：香草山翻译组 GBW
 
-在康沃尔七国集团会议几天后，英国外交事务委员会周四将中共因其扩张主义政策而称为对多边主义的威胁。 在一份长达 75 页的题为“英国在多边外交中的作用”的报告中，该委员会列出了中共的侵略性外交、试图夺取战略重要组织的控制权、经济影响力，并指出如果不加以阻止，“民主国家将有可能将多边组织输给专制国家”。 报告详细描述了中共在世卫组织、世贸组织、联合国人权事务高级专员办事处和人权委员会上的滑稽动作，称“中共有能力破坏多边机构的有利地位”。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
-**英国委员会：“中共对多边主义构成威胁”**
-“英国外交事务委员会在其报告中指出，“我们看到中共国等国家试图夺取对具有重要战略意义的组织的控制权，并从根本上重新定义它们所依据的曾经普遍认同的原则。这使得多边组织可以被武器化而对抗建立它们的基本原则。如果不加以制止，这一趋势将使中共处于日益强大的地位，它可能会利用这种地位来破坏多边组织的基本原则和任务”。
 
-该小组列出了中共利用经济杠杆获得多边支持的“一带一路”倡议，同时谴责中共的侵略性外交，称其“欺负”世卫组织、联合国人权事务高级专员办事处和人权委员会。 这有助于中共国制定议程，使俄罗斯等志同道合的国家支持它，将支持其团体整合到此类组织中。 英国专家组还将全球卫生列为中共国对其资金和代表的影响不成比例的领域，并敦促英国与其他国家合作，取消中共国在世贸组织中的发展中国家分类。
 
-**G7承诺与中共国“对抗和竞争”**
-在七国集团会议上，美国、英国、德国、法国、意大利、加拿大和日本这七大经济强国誓言要与中共国就新出现的挑战“对抗和竞争”，包括对民主的威胁和全球技术竞赛。 领导人同意在解决中共问题时需要一个共同的议程，包括他们“站起来，对抗和竞争”的内容。 据报道，中共对 G7 会议的反应是警告一些最富裕国家的领导人，“一小撮”国家决定世界命运的日子已经一去不复返了。印度与七国集团已联手，用自己的力量对抗中共国的“一带一路”倡议。
+（2021年6月18日早，路安娜）
 
-原文连接：[https://www.republicworld.com/world-news/uk-news/uk-foreign-affairs-committee-terms-china-a-risk-to-multilateralism-lists-steps-to-deter.html](https://www.republicworld.com/world-news/uk-news/uk-foreign-affairs-committee-terms-china-a-risk-to-multilateralism-lists-steps-to-deter.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103921/%E5%9B%BE%E7%89%876-3.png)
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+1. 布林肯说，世卫组织关于新冠大流行起源的第一阶段调查是 “漏洞百出”。
+
+2. 中共新闻显示公安部副部长董经纬主持召开座谈会，辟谣RedState关于董经纬叛逃的传闻。《福克斯新闻》《每日邮报》都上当了。
+
+a. 路德：中共所有的牛鬼蛇神都会在8月底新冠报告出来前搅混水。中共的目标是诋毁任何报告新冠真相的媒体的信誉。
+
+b. 路德：对福奇的指控是基于闫博士三篇论文和他的电子邮件，而不是来自董经纬。
+
+c. 路德：美国情报机构不吃这一套。科学是经得起质疑的。
+
+3. 中共媒体报道王岐山参加活动。这证明了王岐山没有叛变，关于王岐山的谣言是中共放的假消息。
+
+4. 路德：中共喜欢火烧连营、以弱胜强。1月19日的路德社节目是闫博士的防火墙。
+
+5. 路德：当西方媒体记者因报道中共故意制造的假消息而失业时，中共就把他们招揽过去了。
+
+6. 路德：中共宣传千锤百炼。当肉体受到虐待时，怎么能有自由的思想？
+
+（笔记仅作参考，内容以路德社节目为准）
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

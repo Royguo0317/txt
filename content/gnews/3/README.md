@@ -1,31 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳喜公民记者】火爆视频集锦
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1332186/)
+## 【有声读物】美国将采取措施阻止中共渗透联合国
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1332265/)
 
-视频&文章：恭池投石
+配音：香草山录音组 蒙古鸿雁
 
-视频素材：我爱和平 一路有你
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-这些与时代格格不入的丑陋舞蹈，不堪入耳的中共赞歌，台上这些丑陋人的表演，无一不让人作呕，中共祸害中华大地70年，杀死上亿中国人，打碎了中华民族的脊梁，压榨剥削中国人的血汗，甚至释放生化武器病毒祸害全世界，而这些脑满肠肥，油光满明的奴才为了一点蝇头小利，甘愿摇尾乞怜，跪舔赞颂，实在是丑陋至极。
 
-与他们形成鲜明对比的是，中共国有6到7亿人月收入不到1000元，山里的孩子甚至衣不蔽体，食不果腹，他们穿着破破烂烂的衣服，光着脚，实在很难想象在冬天他们是怎么过活的。要知道这是21世纪的文明时代，他们仍然跟文革以前那些穷苦人的生活一模一样。
 
-中共统治中华大地70年，中共国是世界上贫富差距最大的国家，也是贫困人口最多的国家，按世界标准，7亿人都是贫困人口，中共却对内外宣称中共国已经全面脱贫。
 
-中共不但让百姓贫困，而且用暴力欺压百姓，中共养了无数的打手，黑社会流氓，但是这些打手，黑社会流氓都穿着代表国家公权力的制服，他们化身为警察，武警，党卫军，城管。一个卖菜的老爷爷仅仅是路过，就被身着城管制服的流氓团团围住，要收缴他的菜摊。中共从来都没有把农村户口纳入基本的社会保障，请问凭什么不能让一个看起来年近70岁的老爷爷卖菜，他这么大年纪了还要为了自己的生计奔波，中共你们作为一个国家的管理者，你们根本就没有管过这些农村的人，你们让他们自生自灭，他们没有医保，没有养老（假医保假养老不算），他们没拿中共的钱，他们自己养活自己，他们种菜卖菜为人们提供了食物来源，为社会做出了贡献，为什么中共你们要这样对待他们？
 
-当然中共从来没把老百姓当人看，他们就是要让老百姓痛苦，他们用商鞅五术：“壹民、弱民、疲民、辱民、贫民” 。这样他们才能骑到老百姓的头上作威作福，才能收刮富可敌国的民脂民膏，才能他们的后代永远享受无尽的荣华。
 
-（本文仅代表作者个人观点）
 
-*发稿：光耀华夏*
+据[大纪元](https://www.epochtimes.com/gb/21/6/17/n13028049.htm)6月17日报道：6月16日，美国驻联合国大使琳达‧托马斯-格林菲尔德（Linda Thomas-Greenfield）出席了美国国会举行的一场有关中共国渗透联合国情况的听证会。托马斯-格林菲尔德大使在听证会上作证时表示，美国政府将发挥其在联合国的影响力，对抗中共国的“恶意影响”，以阻止北京对联合国的进一步渗透。同时，美国也将在联合国内连同盟友，一起呼吁调查新冠病毒的起源，并追责中共侵犯人权的问题。
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 
+**文字版原文：[【热点播报】美国将采取措施阻止中共渗透联合国](https://gnews.org/zh-hans/1329818/)**
+
+作者：纽约香草山美食部 蓝天大海
+
+
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
