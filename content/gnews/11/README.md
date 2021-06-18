@@ -1,61 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】印度毒株Delta 正在全球肆虐，且更趋向于感染更年轻的人群
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1331823/)
+## 美财长耶伦：美国可能在某些领域与中共国脱钩以保护安全
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1331867/)
 
-香草山写作组 繁星
+【日本东京方舟农场】撰稿：青衣         校对：MIMI
 
+据《法国国际广播电台》6月17日报道，美国财政部长耶伦6月16日在出席国会听证会时表示，她预计美国将在某些领域与中共国脱钩，以保护国家安全。她同时还表达出对两国在技术方面完全断绝关系的担忧。
 
+耶伦周三出席了美国国会参议院金融委员会的听证会。她在发表开场白时表示，她上任初始，美国经济所面临的第一个最紧迫的问题显然是新冠（中共病毒）疫情。但同时也必须清楚地认识到，大流行病不是美国唯一的经济问题。早在疫情爆发之前，美国就有数百万人面临着一系列长期的、结构性的经济挑战。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18095231/55D5EDD0-6A36-42F9-A10B-E4A3C9923E8D.jpeg)
 
+在问答环节中，耶伦向参议院金融委员会的参议员们表示，“我们正在研究我们拥有的全部工具，以回击和纠正损害我们国家安全和我们更广泛经济利益的做法”。她在发言中引用了对中共国在美国的潜在有害投资的遏制。不过耶伦说，“我对（美国与中国之间）完全的技术脱钩有些担心。” 她指出，许多美国盟友不愿意大幅减少他们在中共国的商业活动。
 
+此外，有关月初的七国集团财政会议，就全球最低企业税达成协议，同意对跨国公司征收至少15%的税的问题，耶伦表示，美国不会同意给予中共国或其他国家任何类型的特殊待遇，从而削弱全球最低税制。她说，美国和其他国家正在继续努力，以说服中共国支持七国集团在上周日认可的计划。耶伦表示，她希望中共国政府能支持这些计划，因为这也符合中方利益。
 
-更具有传染性的Covid-19 Delta 变异病毒正在加拿大Saskatchewan 省肆虐，在过去的一周里，感染Delta变异病毒的病例已由45例上升到68例。专家认为，在印度流行的Delta变异病毒比其它毒株更具传染性。
+耶伦被认为是亲共的拜登政府官员。从她嘴里说出“脱钩”二字，说明中美之间的脱钩已势在必行。不过，耶伦强调的是“在某些领域”或 “一定程度上的”脱钩，并且借用了他人之名说“许多美国盟友不愿意大幅减少在中共国的商业活动”。或许在她眼中利益还是非常重要的。然而在利益与安全之间究竟该如何选择，并不是一个难选题。耶伦本人可能并不希望中美全面脱钩，但大势所趋，耶伦左右不了最终结局。
 
-加拿大CBC 新闻在6月13日报道，在Foothills hospital ,两个病房的16位患者和6名卫生保健工作者Delta 变体检测呈阳性。其中六位患者和5位卫生保健人员已接种2剂 mRNA 疫苗。Alberta Health Services 表示，即使接种疫苗，仍有可能感染病毒。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18092909/Screen-Shot-2021-06-18-at-9.22.13-AM.png)
-美国已发现具有高度传染性的的Alpha 和Delta 变体已激增，而Gamma 变体在几个州的传播正在增长。美国CDC 将Delta标记为“关注变体”，这是科学家对更易传播或导致严重疾病的病毒株的一个命名。
+注：本文仅代表作者观点
 
-澳大利亚新南威尔士洲，这周五恢复在悉尼公共交通工具上强制戴口罩，因为感染更具有高度传染性的delta 变异毒株的病例已扩大到4例。
+参考链接：
 
-柳叶刀杂志上的一篇文章表示，从5月19 日开始，Delta 变异毒株已成为苏格兰Covid-19的主要流行毒株，而且感染对象趋向于更年轻的人群中。
+1. [https://twitter.com/RFI\_Cn/status/1405514847106650114](https://twitter.com/RFI_Cn/status/1405514847106650114)
+2. [https://www.usnews.com/news/us/articles/2021-06-16/yellen-says-us-may-decouple-to-some-extent-from-china-to-protect-security](https://www.usnews.com/news/us/articles/2021-06-16/yellen-says-us-may-decouple-to-some-extent-from-china-to-protect-security)
 
-中共病毒库里的病毒不停被释放出来，而且毒性逐渐变强，威力更大。人们已在警醒，追究病毒源头已是不可辩驳的事实。
-
-参考来源：
-
-[https://www.cbc.ca/news/canada/saskatchewan/sask-delta-variant-1.6069986](https://www.cbc.ca/news/canada/saskatchewan/sask-delta-variant-1.6069986)
-
-[https://www.cbc.ca/news/canada/calgary/foothills-delta-variant-outbreak-calgary-covid-1.6063802](https://www.cbc.ca/news/canada/calgary/foothills-delta-variant-outbreak-calgary-covid-1.6063802)
-
-[https://www.cnn.com/2021/06/18/health/us-coronavirus-friday/index.html](https://www.cnn.com/2021/06/18/health/us-coronavirus-friday/index.html)
-
-[https://www.breitbart.com/news/vaccine-effort-turns-into-slog-as-infectious-variant-spreads/amp/](https://www.breitbart.com/news/vaccine-effort-turns-into-slog-as-infectious-variant-spreads/amp/)
-
-[https://www.reuters.com/world/asia-pacific/sydney-reinstates-masks-contain-delta-covid-19-variant-2021-06-18/](https://www.reuters.com/world/asia-pacific/sydney-reinstates-masks-contain-delta-covid-19-variant-2021-06-18/)
-
-[https://www.thelancet.com/journals/lancet/article/PIIS0140-6736(21)01358-1/fulltext](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2821%2901358-1/fulltext)
-
-[https://gtv.org/video/id=60cbb0b4b96c69573d8139af](https://gtv.org/video/id=60cbb0b4b96c69573d8139af)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0

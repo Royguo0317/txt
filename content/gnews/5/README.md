@@ -1,175 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Myway专栏】病毒和疫苗合辑
-` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1331620/)
+## 【路德社即时简报】RedState关于董经纬的报道被证明是中共九层妖塔
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1331932/)
 
-Gnews病毒真相小组 整理
+作者：香草山翻译组 GBW
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
 
+（2021年6月18日早，路安娜）
 
-## 新冠病毒预防和治疗方案总结
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18084203/h141480-1.jpg)](https://gnews.org/zh-hans/1327734/)
-[新型冠状病毒肺炎大多数感染者表现为无症状或轻度或中度症状，但其中约有15-20%的患者会发展为重症肺炎，约5%的患者发展为急性呼吸窘迫综合征。本篇文章收录了一些新冠的治疗方法。](https://gnews.org/zh-hans/1327734/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103921/%E5%9B%BE%E7%89%876-3.png)
 
+1. 布林肯说，世卫组织关于新冠大流行起源的第一阶段调查是 “漏洞百出”。
 
+2. 中共新闻显示公安部副部长董经纬主持召开座谈会，辟谣RedState关于董经纬叛逃的传闻。《福克斯新闻》《每日邮报》都上当了。
 
+a. 路德：中共所有的牛鬼蛇神都会在8月底新冠报告出来前搅混水。中共的目标是诋毁任何报告新冠真相的媒体的信誉。
 
+b. 路德：对福奇的指控是基于闫博士三篇论文和他的电子邮件，而不是来自董经纬。
 
-## 疫苗的副作用收集与分析
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18085123/B506E3EC-2657-4669-921A-6482E1151431-768x451-1.jpeg)
+c. 路德：美国情报机构不吃这一套。科学是经得起质疑的。
 
+3. 中共媒体报道王岐山参加活动。这证明了王岐山没有叛变，关于王岐山的谣言是中共放的假消息。
 
-## [COVID-19疫苗隐藏的不良事件](https://gnews.org/zh-hans/1320579/)
+4. 路德：中共喜欢火烧连营、以弱胜强。1月19日的路德社节目是闫博士的防火墙。
 
+5. 路德：当西方媒体记者因报道中共故意制造的假消息而失业时，中共就把他们招揽过去了。
 
+6. 路德：中共宣传千锤百炼。当肉体受到虐待时，怎么能有自由的思想？
 
+（笔记仅作参考，内容以路德社节目为准）
 
+校对/发稿：飞虹
 
-## [多名妇女在接种新冠疫苗后流产](https://gnews.org/zh-hans/1289458/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
 
 
+**更多资讯，更多关注**
 
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-## [英国新冠疫苗不良事件汇总](https://gnews.org/zh-hans/1280610/)
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
 
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-
-## [欧洲中共病毒疫苗接种不良事件统计](https://gnews.org/zh-hans/1269142/)
-
-
-
-
-
-## [以色列发现辉瑞公司中共病毒疫苗对人体的灾难性副作用](https://gnews.org/zh-hans/1220160/)
-
-
-
-
-
-## [印度为何在大规模中共病毒疫苗接种后疫情爆发](https://gnews.org/zh-hans/1177409/)
-
-
-
-
-
-## [关于中共病毒和疫苗现状的思考](https://gnews.org/zh-hans/1048176/)
-
-
-
-
-
-
-
-
-
-## 疫苗和病毒的毒性分析
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13091107/4ECA3C58-0FE5-416E-A76D-1823671F5116-1.jpeg)
-
-
-## [mRNA疫苗中的纳米颗粒和磁珠](https://gnews.org/zh-hans/1291643/)
-
-
-
-
-
-## [纳米磁珠粒子的前世今生](https://gnews.org/zh-hans/1316219/)
-
-
-
-
-
-## [有毒的S蛋白](https://gnews.org/zh-hans/1288957/)
-
-
-
-
-
-## [新冠疫苗为何引起血栓和其它不良反应](https://gnews.org/zh-hans/1281702/)
-
-
-
-
-
-## [mRNA疫苗的本质](https://gnews.org/zh-hans/1273173/)
-
-
-
-
-
-## [中共病毒疫苗及其次生灾难](https://gnews.org/zh-hans/1264684/)
-
-
-
-
-
-
-
-## 病毒超限战解析合辑
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13070018/75bc97c842ab9ae8_mh1615015673612.jpg)](https://gnews.org/zh-hans/1319372/)随着对中共病毒来源调查的步步深入，参与此邪恶计划的各方力量都已浮出水面。本文对已有的中共病毒超限战情报进行了梳理与汇总
-
-
-
-
-## 中共制毒体系挖掘
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18093859/image1-4-1.png)
-
-
-## [中共病毒超限战到底准备了多久](https://gnews.org/zh-hans/1150251/)
-
-
-
-
-
-## [由陈薇少将的公子简历看中共造假](https://gnews.org/zh-hans/1139455/)
-
-
-
-
-
-## [浅谈中共动物病毒奠基人殷震](https://gnews.org/zh-hans/1134856/)
-
-
-
-
-
-## [中共官方删除武汉病毒所石正丽所有研究资料](https://gnews.org/zh-hans/739468/)
-
-
-
-
-
-
-
-
-
-## 其他文章
-
-
-
-福奇资助将流产胎儿头皮移植到活体大鼠上的邪恶实验
-
-
-
-> [福奇资助将流产胎儿头皮移植到活体大鼠上的邪恶实验](https://gnews.org/zh-hans/1193866/)
-
-
-
-
-
-如何劝说身边的人不去打中共病毒疫苗
-
-
-
-> [如何劝说身边的人不去打中共病毒疫苗](https://gnews.org/zh-hans/1175791/)
-
-
-
-
-
-+1
+0

@@ -1,29 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美财长耶伦：美国可能在某些领域与中共国脱钩以保护安全
-` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1331867/)
+## 西喜时事新闻简报—美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1331969/)
 
-【日本东京方舟农场】撰稿：青衣         校对：MIMI
-
-据《法国国际广播电台》6月17日报道，美国财政部长耶伦6月16日在出席国会听证会时表示，她预计美国将在某些领域与中共国脱钩，以保护国家安全。她同时还表达出对两国在技术方面完全断绝关系的担忧。
-
-耶伦周三出席了美国国会参议院金融委员会的听证会。她在发表开场白时表示，她上任初始，美国经济所面临的第一个最紧迫的问题显然是新冠（中共病毒）疫情。但同时也必须清楚地认识到，大流行病不是美国唯一的经济问题。早在疫情爆发之前，美国就有数百万人面临着一系列长期的、结构性的经济挑战。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18095231/55D5EDD0-6A36-42F9-A10B-E4A3C9923E8D.jpeg)
-
-在问答环节中，耶伦向参议院金融委员会的参议员们表示，“我们正在研究我们拥有的全部工具，以回击和纠正损害我们国家安全和我们更广泛经济利益的做法”。她在发言中引用了对中共国在美国的潜在有害投资的遏制。不过耶伦说，“我对（美国与中国之间）完全的技术脱钩有些担心。” 她指出，许多美国盟友不愿意大幅减少他们在中共国的商业活动。
-
-此外，有关月初的七国集团财政会议，就全球最低企业税达成协议，同意对跨国公司征收至少15%的税的问题，耶伦表示，美国不会同意给予中共国或其他国家任何类型的特殊待遇，从而削弱全球最低税制。她说，美国和其他国家正在继续努力，以说服中共国支持七国集团在上周日认可的计划。耶伦表示，她希望中共国政府能支持这些计划，因为这也符合中方利益。
-
-耶伦被认为是亲共的拜登政府官员。从她嘴里说出“脱钩”二字，说明中美之间的脱钩已势在必行。不过，耶伦强调的是“在某些领域”或 “一定程度上的”脱钩，并且借用了他人之名说“许多美国盟友不愿意大幅减少在中共国的商业活动”。或许在她眼中利益还是非常重要的。然而在利益与安全之间究竟该如何选择，并不是一个难选题。耶伦本人可能并不希望中美全面脱钩，但大势所趋，耶伦左右不了最终结局。
-
-注：本文仅代表作者观点
-
-参考链接：
-
-1. [https://twitter.com/RFI\_Cn/status/1405514847106650114](https://twitter.com/RFI_Cn/status/1405514847106650114)
-2. [https://www.usnews.com/news/us/articles/2021-06-16/yellen-says-us-may-decouple-to-some-extent-from-china-to-protect-security](https://www.usnews.com/news/us/articles/2021-06-16/yellen-says-us-may-decouple-to-some-extent-from-china-to-protect-security)
+- 作者：此生灭共
 
 
-0
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
+
+**西班牙2021年6月18日电/西喜社——**
+
+您若想了解全文报导内容，请点击标题链接
+
+**1.[参议院确认首位白宫网络主管](https://www.foxnews.com/politics/senate-confirms-first-white-house-cyber-director)**
+
+福克斯6月17日电，美国[参议院](https://www.foxnews.com/category/politics/senate)于周四确认克里斯英格利斯为首任白宫网络安全主任，并对最近对美国基础设施进行的网络攻击表示强烈担忧。 英格利斯曾担任国家安全局（NSA）副局长。 参议院通过一致同意投票确认了英格利斯，没有立法者反对。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103001/unknown-4-7.png)
+
+**2.[根据拜登的命令，中国应用程序可能面临传票或禁令](https://www.foxbusiness.com/technology/chinese-apps-could-face-subpoenas-or-bans-under-biden-order)**
+
+福克斯6月17日电，为了防止中国和俄罗斯等外国对手获得大量个人和专有商业信息，商务部可能会发出传票以收集有关某些智能手机、平板电脑和台式计算机软件应用程序的信息。据知情人士透露，该机构可能会就它们在美国的使用条件进行谈判，或者禁止这些应用程序。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103115/unknown-5-3.png)
+
+** 3.[朝鲜领导人金正恩为与拜登对话敞开大门](https://www.bloomberg.com/news/articles/2021-06-18/north-korea-s-kim-jong-un-opens-door-for-dialogue-with-biden?srnd=premium)**
+
+彭博社6月18日电，朝鲜领导人金正恩表示，他已准备好“对话和对抗”，并在美国总统乔·拜登的新核特使前往该地区以建立对平壤战略的支持之际为会谈提供了机会。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103310/unknown-6-3.png)
+
+**4.**[在普京的支持下，拜登的注意力转移到了习近平身上](https://www.bloomberg.com/news/articles/2021-06-17/with-putin-behind-him-biden-s-focus-shifts-to-china-s-xi)
+
+彭博社6月17日电，拜登表示，中国将成为其政府外交政策的核心，然而，由于普京政府被指控干涉美国选举并窝藏针对美国关键基础设施的黑客，他需要在与俄罗斯的关系中建立一些“道路规则”和可预测性。现在北京成为焦点。对美国经济而言，美中关系远比与俄罗斯的关系复杂和重要，拜登在未来几年与习近平会面并建立富有成效的关系的窗口正在关闭。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103817/unknown-7-4.png)
+
+**5.[民主党在扩大基础设施交易谈判中浮动 6 万亿美元计划](https://www.nytimes.com/2021/06/17/us/politics/democrats-infrastructure-deal-congress.html)**
+
+纽约时报6月17日电，参议院民主党人已经开始私下权衡一项庞大的经济计划，该计划可能高达 6 万亿美元，尽管两党参议员小组正在努力争取支持一个范围更窄的基础设施计划，该计划将投入 5,790 亿美元的新资金来资助实体公共工程项目。目前，这两项计划的细节仍在不断变化，两党中间派参议员都在推进他们的妥协提案，民主党准备使用称为和解的快速预算程序，以避免共和党阻挠他们更大的计划。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18104014/unknown-8-3.png)
+
+审核：蚂蚁兄弟；校对：信心满满；发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
++1
