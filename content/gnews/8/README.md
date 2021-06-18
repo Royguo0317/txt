@@ -1,36 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《文贵说》| 图片连载（八十九）
-` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1331875/)
+## 【澳喜公民记者】火爆视频集锦
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1332162/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18095823/G2101032_X_CN.jpg)
-**什么叫“运”呢？那就是你这个人品、你的人格魅力和你的长相，就是你的运气，你的行为决定了你的运气。**
+视频：恭池投石
 
-** —— 郭文贵先生 2017年5月4日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18095841/G2101033_X_CN.jpg)
-**没有监督，没有真相。**
+视频素材：我爱和平 一路有你
 
-**—— 郭文贵先生 2020年5月21日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18095858/G2101034_X_CN.jpg)
-**一灯能除千年暗，一智能除万年愚。**
+人就是人，不是猴子变的，进化论不能解释如果人是猴子变的，为什么现在的这些猴子和猩猩没变成人？为什么没有其他高度进化的智慧物种？而只有我们人是独一无二的，而且从考古学来看，关于人进化过程的化石根本就没曾出现，中间是一个个断层。既然不是进化的，那肯定是非自然产生的，唯一的解释就是神创造了人，神你也可以理解为高维度的外星人。
 
-**—— 郭文贵先生 2020年5月10日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18095915/G2101035_X_CN.jpg)
-**乘人之虚，然后乘人之弱，再恃强凌弱，那你必遭报应！这就是一个永远不变的真理。**
+（本文仅代表作者个人观点）
 
-**—— 郭文贵先生 2020年1月14日**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18095933/G2101036_X_CN.jpg)
-**得意就有忘形， 悲观就有失望， 这是一个Loser失败者的典型现象。**
+*发稿：光耀华夏*
 
-**—— 郭文贵先生 2018年5月10日**
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 
 
-
-- **更多精美海报请点击:**
-- ***[Gettr 文贵说｜Words From Miles](https://gettr.com/user/wordsfrommiles)***
-
-
-
-
-+1
+0

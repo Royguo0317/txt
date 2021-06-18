@@ -1,61 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】印度毒株Delta 正在全球肆虐，且更趋向于感染更年轻的人群
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1331823/)
+## 西喜时事新闻简报—美国时事篇
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1331969/)
 
-香草山写作组 繁星
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
+- 作者：此生灭共
 
 
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-更具有传染性的Covid-19 Delta 变异病毒正在加拿大Saskatchewan 省肆虐，在过去的一周里，感染Delta变异病毒的病例已由45例上升到68例。专家认为，在印度流行的Delta变异病毒比其它毒株更具传染性。
+**西班牙2021年6月18日电/西喜社——**
 
-加拿大CBC 新闻在6月13日报道，在Foothills hospital ,两个病房的16位患者和6名卫生保健工作者Delta 变体检测呈阳性。其中六位患者和5位卫生保健人员已接种2剂 mRNA 疫苗。Alberta Health Services 表示，即使接种疫苗，仍有可能感染病毒。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18092909/Screen-Shot-2021-06-18-at-9.22.13-AM.png)
-美国已发现具有高度传染性的的Alpha 和Delta 变体已激增，而Gamma 变体在几个州的传播正在增长。美国CDC 将Delta标记为“关注变体”，这是科学家对更易传播或导致严重疾病的病毒株的一个命名。
+您若想了解全文报导内容，请点击标题链接
 
-澳大利亚新南威尔士洲，这周五恢复在悉尼公共交通工具上强制戴口罩，因为感染更具有高度传染性的delta 变异毒株的病例已扩大到4例。
+**1.[参议院确认首位白宫网络主管](https://www.foxnews.com/politics/senate-confirms-first-white-house-cyber-director)**
 
-柳叶刀杂志上的一篇文章表示，从5月19 日开始，Delta 变异毒株已成为苏格兰Covid-19的主要流行毒株，而且感染对象趋向于更年轻的人群中。
+福克斯6月17日电，美国[参议院](https://www.foxnews.com/category/politics/senate)于周四确认克里斯英格利斯为首任白宫网络安全主任，并对最近对美国基础设施进行的网络攻击表示强烈担忧。 英格利斯曾担任国家安全局（NSA）副局长。 参议院通过一致同意投票确认了英格利斯，没有立法者反对。
 
-中共病毒库里的病毒不停被释放出来，而且毒性逐渐变强，威力更大。人们已在警醒，追究病毒源头已是不可辩驳的事实。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103001/unknown-4-7.png)
 
-参考来源：
+**2.[根据拜登的命令，中国应用程序可能面临传票或禁令](https://www.foxbusiness.com/technology/chinese-apps-could-face-subpoenas-or-bans-under-biden-order)**
 
-[https://www.cbc.ca/news/canada/saskatchewan/sask-delta-variant-1.6069986](https://www.cbc.ca/news/canada/saskatchewan/sask-delta-variant-1.6069986)
+福克斯6月17日电，为了防止中国和俄罗斯等外国对手获得大量个人和专有商业信息，商务部可能会发出传票以收集有关某些智能手机、平板电脑和台式计算机软件应用程序的信息。据知情人士透露，该机构可能会就它们在美国的使用条件进行谈判，或者禁止这些应用程序。
 
-[https://www.cbc.ca/news/canada/calgary/foothills-delta-variant-outbreak-calgary-covid-1.6063802](https://www.cbc.ca/news/canada/calgary/foothills-delta-variant-outbreak-calgary-covid-1.6063802)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103115/unknown-5-3.png)
 
-[https://www.cnn.com/2021/06/18/health/us-coronavirus-friday/index.html](https://www.cnn.com/2021/06/18/health/us-coronavirus-friday/index.html)
+** 3.[朝鲜领导人金正恩为与拜登对话敞开大门](https://www.bloomberg.com/news/articles/2021-06-18/north-korea-s-kim-jong-un-opens-door-for-dialogue-with-biden?srnd=premium)**
 
-[https://www.breitbart.com/news/vaccine-effort-turns-into-slog-as-infectious-variant-spreads/amp/](https://www.breitbart.com/news/vaccine-effort-turns-into-slog-as-infectious-variant-spreads/amp/)
+彭博社6月18日电，朝鲜领导人金正恩表示，他已准备好“对话和对抗”，并在美国总统乔·拜登的新核特使前往该地区以建立对平壤战略的支持之际为会谈提供了机会。
 
-[https://www.reuters.com/world/asia-pacific/sydney-reinstates-masks-contain-delta-covid-19-variant-2021-06-18/](https://www.reuters.com/world/asia-pacific/sydney-reinstates-masks-contain-delta-covid-19-variant-2021-06-18/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103310/unknown-6-3.png)
 
-[https://www.thelancet.com/journals/lancet/article/PIIS0140-6736(21)01358-1/fulltext](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2821%2901358-1/fulltext)
+**4.**[在普京的支持下，拜登的注意力转移到了习近平身上](https://www.bloomberg.com/news/articles/2021-06-17/with-putin-behind-him-biden-s-focus-shifts-to-china-s-xi)
 
-[https://gtv.org/video/id=60cbb0b4b96c69573d8139af](https://gtv.org/video/id=60cbb0b4b96c69573d8139af)
+彭博社6月17日电，拜登表示，中国将成为其政府外交政策的核心，然而，由于普京政府被指控干涉美国选举并窝藏针对美国关键基础设施的黑客，他需要在与俄罗斯的关系中建立一些“道路规则”和可预测性。现在北京成为焦点。对美国经济而言，美中关系远比与俄罗斯的关系复杂和重要，拜登在未来几年与习近平会面并建立富有成效的关系的窗口正在关闭。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103817/unknown-7-4.png)
 
-编辑/校对/发稿：正义的小新
+**5.[民主党在扩大基础设施交易谈判中浮动 6 万亿美元计划](https://www.nytimes.com/2021/06/17/us/politics/democrats-infrastructure-deal-congress.html)**
 
-**更多资讯，更多关注**
+纽约时报6月17日电，参议院民主党人已经开始私下权衡一项庞大的经济计划，该计划可能高达 6 万亿美元，尽管两党参议员小组正在努力争取支持一个范围更窄的基础设施计划，该计划将投入 5,790 亿美元的新资金来资助实体公共工程项目。目前，这两项计划的细节仍在不断变化，两党中间派参议员都在推进他们的妥协提案，民主党准备使用称为和解的快速预算程序，以避免共和党阻挠他们更大的计划。
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18104014/unknown-8-3.png)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+审核：蚂蚁兄弟；校对：信心满满；发稿：信心的选择
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-0
++1

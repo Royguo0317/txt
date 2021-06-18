@@ -1,10 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德温∙努涅斯(Devin Nunes)：武汉病毒所的秘密
-` 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1331585/)
+## 潘石屹夫妇抛售SOHO中国
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1331811/)
 
-原视频链接：
-[https://rumble.com/viggir-devin-nunes-comments-on-wuhan-institute-of-virology-secrecy.html](https://rumble.com/viggir-devin-nunes-comments-on-wuhan-institute-of-virology-secrecy.html)
+加拿大多伦多枫叶农场 作者：向真
+
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18092414/psy-edited.jpg)图片来源：NYTIMES
+
+
+据《金融时报》6月17日报道，黑石目前已同意以约30亿美元收购在香港上市的地产开发商SOHO中国(SOHO China)的控股权。据悉，潘石屹及其妻子张欣拥有该公司64%的股权，作为交易的一部分，夫妇两人将保留9%的股权。
+
+早在2019年，潘石屹就逐渐清空了其名下的核心资产。传言是因为他被中共当局请进去交代问题后心性大变，回家在微博上留下一句“我打开灯的开关，一瞬间黑暗消失了”后，从此就彻底在微博上消失。而他的这条莫名其妙的微博流传至今，明眼人都能由此看出潘石屹心里有苦难言。
+
+在去年传出黑石（BlackStone）将以40亿美元收购SOHO中国(SOHO China)的消息之后，中共国内的粉红们立即骂声一片，称“潘石屹是想跑路”，“门都没有，这才是真正的灯下黑”。
+
+黑石作为全球著名的[私募股权](https://zh.m.wikipedia.org/wiki/%E7%A7%81%E5%8B%9F%E8%82%A1%E6%AC%8A)与[管理咨询](https://zh.m.wikipedia.org/wiki/%E6%8A%95%E8%B5%84%E9%93%B6%E8%A1%8C)公司，其老板史蒂芬·艾伦·施瓦茨曼（Stephen A. Schwarzman，中文名苏世民）是典型的华尔街大佬，多年来一直充当中共的白手套，并在和中共的合作中赚得盆满钵满。
+
+值得关注的是，黑石作为全球最大的房地产投资管理公司之一，对中共发动超限生物战，中共国经济即将崩溃，以及中共即将灭亡这三件事不会不知道。但黑石依然宣称，收购SOHO是因为“我们对中国的长期潜力和经济复苏很有信心，特别是正在顺利复苏的北京和上海写字楼市场”。
+
+今年1月，黑石就以11亿美元收购了广州附近的一个大型城市物流园区，此举为参与中共试图取代香港国际金融地位的“大湾区建设战略”起到了带头作用。
+
+很显然，在当前时局动荡的情况下，黑石绝对不会轻易拿出真金白银在中共国投资。唯一合理的解释是，该公司只不过是中共的提线木偶，收购实质上是为中共代持而已。此外，黑石本次装模作样的收购，也是为了欺骗更多的外国企业来中共国投资。潘石屹出卖股权所获得的30亿美元及其未出让的9%股权，都和潘张夫妇没有半毛钱关系，相信其背后的真相不久将会大白于天下。
+
+[相关链接：](http://www.ftchinese.com/story/001092879?full=y)
+
+本文仅代表作者个人观点。
+
+* * *
+
+编辑发稿：硫酸羟氯喹64
 
 0

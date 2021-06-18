@@ -1,175 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【Myway专栏】病毒和疫苗合辑
-` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1331620/)
+## 【鹰眼墙国】新职业“高薪”，中共国就业形势利好？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332048/)
 
-Gnews病毒真相小组 整理
+香草山写作组  鹰(文言)
 
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
 
 
-## 新冠病毒预防和治疗方案总结
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18084203/h141480-1.jpg)](https://gnews.org/zh-hans/1327734/)
-[新型冠状病毒肺炎大多数感染者表现为无症状或轻度或中度症状，但其中约有15-20%的患者会发展为重症肺炎，约5%的患者发展为急性呼吸窘迫综合征。本篇文章收录了一些新冠的治疗方法。](https://gnews.org/zh-hans/1327734/)
 
+新浪网6月17日转载央视报道，根据中共教育部数据，2021年1至5月，应届生招聘规模同比增长52.5%。其中，云计算、二手车经纪人、食品质量安全员等“新”职业不仅薪酬高，且就业容易。
 
+2018年云计算人才占比互联网岗位总数5%，到2023年云计算面临150万人才缺口。云计算规模庞大：2020年云计算市场规模1781亿元，预计增速30%。云计算产业壮大伴随着岗位需求的急剧加大。虽然云计算岗位有150万人才缺口，但平均每年30万的就业“指标”对2020年874万高校毕业生以及2021年的909万而言，显然是微不足道。再者，虽然云计算领域的岗位薪酬较高，1万元月薪占比高达93%，3万元以上占比34%。但是，由于云计算岗位需求较高集中于一线城市（北上广深云计算人才缺口34万人），而上述城市房价等生活开支高昂（2021年5月北京二手房参考价格5.9万元/平方米）。因此，看似高薪的收入实际上却难以满足基本的“安家”需求。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18110216/Screen-Shot-2021-06-18-at-10.45.31-AM-1.png)
+国内的二手车销量集中于二三线城市。根据中共汽车流通协会数据，2020年一季度二线城市二手车销量占比43.51%，一线城市相应占比仅有9.45%。二手车经纪人培训中，“报名的500多个学员中400个是社会从业人员”，新就业比例还不及20%。虽然二手车经纪人作为18个新职业之一，但其重点仍在于已就业者的“回炉”，对于缓解当前紧张的就业形势而言助力十分有限。
 
+食品生产和经营单位必备相应级别的专职食品安全管理员，所以食品安全管理员成为经营食品行业的必备职业。2019年，国内从事食品行业的企业超过1500万家，仅广东省食品安全管理人员的缺口高达100万，未来5年相应需求将超过3000万。如此巨大的人才缺口，虽然有助于解决应届毕业生的就业压力，但无论是报考食品安全管理员所需的培训等缴费，还是每年至少一次教育培训（培训价格初级420元、中级620元、高级920元）对于应届生群体而言都是“额外”的开支。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18110147/Screen-Shot-2021-06-18-at-10.45.38-AM-1.png)
+央视报道营造了一种“工作容易找、月薪可观”的假象。但无论2020年美团外卖新增50万灵活就业，还是今年中共教育部连番发布促进就业措施，实体经济受挫下，失业人数增加，当前就业形势的巨大压力。即便提供的薪酬数额可观，但鉴于国内平均房价已从2020年的破万，到达如今的“百城新建住宅均价15952元/平方米”，再加上教育、社保、医疗等的日趋商业化，高收入背后对应的是更大程度的高开支和高“税收”。因而就业生活现状依旧是“惨不忍睹”。
 
+新闻来源：
 
-## 疫苗的副作用收集与分析
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18085123/B506E3EC-2657-4669-921A-6482E1151431-768x451-1.jpeg)
+买车买房都免息！月入5万元！这几类人才超吃香！https://news.sina.com.cn/c/2021-06-18/doc-ikqcfnca1638299.shtml
 
+新职业——云计算工程技术人员就业景气现状分析报告http://www.mohrss.gov.cn/SYrlzyhshbzb/dongtaixinwen/buneiyaowen/202004/t20200430\_367109.html
 
-## [COVID-19疫苗隐藏的不良事件](https://gnews.org/zh-hans/1320579/)
+食品安全管理员——经营食品行业的必备证书https://www.sohu.com/a/450708297\_100020100
 
+收入不稳定、标准难认定……新职业青年破解“成长的烦恼”https://job.eol.cn/job/zixun/202105/t20210510\_2107184.shtml
 
+2020年我国二手车市场规模与竞争格局分析：二线城市需求最大【组图】https://www.qianzhan.com/analyst/detail/220/200520-05801837.html
 
+1.66万套！5月北京二手房成交量排名近1年来第4，朝阳区领跑市场https://new.qq.com/omn/20210615/20210615A093QH00.html
 
+70城最新房价数据出炉：深圳二手房价回落 调控效果显现https://finance.sina.com.cn/jjxw/2021-06-17/doc-ikqcfnca1546576.shtml
 
-## [多名妇女在接种新冠疫苗后流产](https://gnews.org/zh-hans/1289458/)
+食品安全管理员工资收入https://www.jobui.com/salary/quanguo-shipinanquanguanliyuan/
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
+编辑/校对/发稿：正义的小新
 
+**更多资讯，更多关注**
 
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-## [英国新冠疫苗不良事件汇总](https://gnews.org/zh-hans/1280610/)
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-## [欧洲中共病毒疫苗接种不良事件统计](https://gnews.org/zh-hans/1269142/)
-
-
-
-
-
-## [以色列发现辉瑞公司中共病毒疫苗对人体的灾难性副作用](https://gnews.org/zh-hans/1220160/)
-
-
-
-
-
-## [印度为何在大规模中共病毒疫苗接种后疫情爆发](https://gnews.org/zh-hans/1177409/)
-
-
-
-
-
-## [关于中共病毒和疫苗现状的思考](https://gnews.org/zh-hans/1048176/)
-
-
-
-
-
-
-
-
-
-## 疫苗和病毒的毒性分析
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13091107/4ECA3C58-0FE5-416E-A76D-1823671F5116-1.jpeg)
-
-
-## [mRNA疫苗中的纳米颗粒和磁珠](https://gnews.org/zh-hans/1291643/)
-
-
-
-
-
-## [纳米磁珠粒子的前世今生](https://gnews.org/zh-hans/1316219/)
-
-
-
-
-
-## [有毒的S蛋白](https://gnews.org/zh-hans/1288957/)
-
-
-
-
-
-## [新冠疫苗为何引起血栓和其它不良反应](https://gnews.org/zh-hans/1281702/)
-
-
-
-
-
-## [mRNA疫苗的本质](https://gnews.org/zh-hans/1273173/)
-
-
-
-
-
-## [中共病毒疫苗及其次生灾难](https://gnews.org/zh-hans/1264684/)
-
-
-
-
-
-
-
-## 病毒超限战解析合辑
-[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/13070018/75bc97c842ab9ae8_mh1615015673612.jpg)](https://gnews.org/zh-hans/1319372/)随着对中共病毒来源调查的步步深入，参与此邪恶计划的各方力量都已浮出水面。本文对已有的中共病毒超限战情报进行了梳理与汇总
-
-
-
-
-## 中共制毒体系挖掘
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18093859/image1-4-1.png)
-
-
-## [中共病毒超限战到底准备了多久](https://gnews.org/zh-hans/1150251/)
-
-
-
-
-
-## [由陈薇少将的公子简历看中共造假](https://gnews.org/zh-hans/1139455/)
-
-
-
-
-
-## [浅谈中共动物病毒奠基人殷震](https://gnews.org/zh-hans/1134856/)
-
-
-
-
-
-## [中共官方删除武汉病毒所石正丽所有研究资料](https://gnews.org/zh-hans/739468/)
-
-
-
-
-
-
-
-
-
-## 其他文章
-
-
-
-福奇资助将流产胎儿头皮移植到活体大鼠上的邪恶实验
-
-
-
-> [福奇资助将流产胎儿头皮移植到活体大鼠上的邪恶实验](https://gnews.org/zh-hans/1193866/)
-
-
-
-
-
-如何劝说身边的人不去打中共病毒疫苗
-
-
-
-> [如何劝说身边的人不去打中共病毒疫苗](https://gnews.org/zh-hans/1175791/)
-
-
-
-
-
-+1
+0

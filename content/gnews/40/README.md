@@ -1,57 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共核科学家张志俭坠亡 警方现场勘验已排除他杀
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1331516/)
+## 美俄总统关于战略稳定的联合声明
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1331580/)
 
-作者：纽约香草山健身部 文鹰
+翻译：康州盘古农场 – 柯镇恶
+校对：康州盘古农场 – Mike LI
+编辑：康州盘古农场 – 格格巫
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18073826/1031.jpg)图片来源网络
+**白宫网站 2021年6月16日发布共同声明：**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+我们‑‑美利坚合众国总统约瑟夫·R·拜登和俄罗斯联邦总统弗拉基米尔·普京，注意到美国和俄罗斯已经展示了，即使在紧张时期，他们也能够在实现我们共同的目标上取得进展，即确保战略领域的可预测性，减少武装冲突的风险和核战争的威胁。
 
+最近扩充的《新削减战略武器条约》体现了我们对核军备控制的承诺。今天，我们重申核战争打不赢、绝不能打的原则。
 
+根据这些目标，美国和俄罗斯将在不久的将来共同开展综合性的双边战略稳定对话，该对话将是深思熟虑的和强有力的。通过这次对话，我们寻求为未来的军备控制和降低风险措施奠定基础。
 
-哈尔滨工程大学6月17日22:10分微博公告，党委常委、副校长张志俭教授于2021年6月17日上午9时34分不幸坠楼身亡。经公安部门现场勘验、调查，已排除他杀。学校对张志俭同志的离世深感哀痛，并对家属表示深切慰问！
+原文链接：[https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/16/u-s-russia-presidential-joint-statement-on-strategic-stability/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/16/u-s-russia-presidential-joint-statement-on-strategic-stability/)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18063114/%E5%9B%BE%E7%89%874-6.png)图片来源：163.com
-
-新浪网，6月18日11:14分的文章标题是《哈尔滨工程大学“钱三强科技奖”获得者张志俭教授坠楼身亡》。表述张志俭教授是哈尔滨工程大学核科学与技术学院教授、中国核工业安全与仿真技术研究院院长身份。
-
-据网络报道，张志俭教授，男，安徽涡阳县人，教授，博士生导师，现任哈尔滨工程大学副校长，核动力仿真研究中心主任，长期从事核安全与仿真方向的教学科研工作，先后获得国家科技进步二等奖一项，省部级科技进步一等奖三项、三等奖8项；除兼任中国核学会常务理事/副秘书长、核动力学会副理事长、核安全分会副理事长等地方职位外，还是中共国防科工委“511”人才、国防科技工业有突出贡献的中青年专家、新世纪百千万人才国家级人选、国务院特殊津贴享受者。2001年至今也是中共海军装备部预研专家组成员。相信他所做的研究项目，具有军民融合性质。
-
-张志俭教授，刚刚荣获2019年“钱三强科技奖”国家荣誉，所在国家实验室中心，还有科研项目在进行中，培养的博士人才，还在践行中。为什么会在“神舟十二号”发射12分钟后，自己从高楼坠落呢？！公告里边字数越少，越有文章。
-
-警方对教授匆忙结论，也太不尊重人了吧。怎么也得发现，现场“遗书”的纸条吧，办公设备的凌乱无序，人挣扎时碰倒的物品吧。如果是上班高峰时间，办公室应该人来人往吧。这么重要的科学教授级人物，总会无死角地摄像监控吧。没有贴身保镖吗？疑点重重，不合常理。
-
-如果都没有，那就是日本电影《追捕》中的情景：主人公被强迫吃了一片药。（张志俭）你看，你看多么蓝的天啊。一直走下去，你就会融化在蓝天里，走吧，一直向前走，别往两边看……。黎磊石不是跳下去了吗？张首晟也跳下去了，现在你也跳下去，跳呀，快跳啊……
-
-同一天，“神舟十二号”发射前，还举行了隆重的誓师动员大会，“启动东风革命烈士陵园英名墙建设”。你却静悄悄地“无症状”上了凌霄。多大的压力，多重的委屈，让你想不开呢？
-
-中共体制下，你再优秀，也是党的奴才。也许你良心发现了什么！你又带去多少的秘密呢？但愿你不是《追捕》中的情景再现。
-
-参考阅读：
-
-https://k.sina.com.cn/article\_7021208299\_1a27f22eb00100uydi.html
-
-https://www.x-mol.com/university/faculty/301009
-
-http://cnst.hrbeu.edu.cn/2018/0510/c10980a188442/page.htm
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

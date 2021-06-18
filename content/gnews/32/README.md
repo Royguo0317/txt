@@ -1,34 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 深陷中共“债务陷阱”的喀麦隆
-` 曹操` [轉載自GNews](https://gnews.org/zh-hans/1331485/)
+## 【热点播报】印度毒株Delta 正在全球肆虐，且更趋向于感染更年轻的人群
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1331823/)
 
-#### 撰稿：yyshere
-校对：萌萌的朋克
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18074503/sohu-2.jpeg)图片来源：搜狐
-总部位于美国华盛顿的英文政治刊物《外交家杂志》6月16号发表文章称，中共国在喀麦隆债务危机中的角色，或导致喀麦隆最终沦为像赞比亚在2020年发生的那样——拖欠债务，或者可能让出由外部债权人即中共国资助的项目设施的临时所有权。
+香草山写作组 繁星
 
-文章指出，长期借贷让喀麦隆陷入严重的公共债务危机，到2020年9月，共公债务占喀麦隆GDP的比例已经增加到45%以上。 虽然近期大部分注意力都集中在喀麦隆的欧洲债券持有量和多边债务上，但该国超过三分之二的债务是外债。而在喀麦隆的外债中，61%是欠中共国的，使北京成为该国最大的债权人。
 
-文章透露，喀麦隆政府2021年4月宣布正在与罗斯柴尔德公司谈判，以获得关于欧洲债券销售的建议，该债券将用于偿还其在2015年出售的7.5亿美元债务的一部分。在宣布喀麦隆将再次需要进入欧洲债券市场以获得信贷之前，国际货币基金组织（IMF）将这个中部非洲国家列为面临债务困境的高风险国家，无论是对内部还是外部贷款人。将喀麦隆列为面临债务困境的高风险国的决定是在2020年1月作出的，当时正值COVID-19（CCP病毒）疫情导致的经济衰退，这无疑使该国的财政和货币状况恶化。喀麦隆的信贷状况可能会进一步恶化，因为为该国提供货币援助的IMF扩展信贷机制ECF将于2021年夏季到期。虽然IMF已经和喀麦隆就延长ECF进行了会谈，但目前还不清楚是否会得以实施，特别是考虑到最近有消息称IMF针对疫情发放的3.35亿美元贷款被挪用的事实。
 
-不仅如此，截至目前，中共国已经向喀麦隆发放了超过62亿美元的贷款，其中大部分涉及重大基础设施和能源项目。在大多数情况下，中共国进出口银行通过贷款资助项目费用的大头，而喀麦隆政府负责预付项目大约15%的费用。而喀麦隆政府需要为项目提供的资金有时会减缓中国贷款的支付，这也部分解释了为什么喀麦隆所有未分散的外债中，有28%由中共国持有。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
 
-喀麦隆对中共国债务的最大来源是在喀麦隆南部地区的克里比深水港建设项目。喀麦隆先后在2011年，2017年，获得了近4亿和1.5亿美元的优惠贷款，其余5.3亿美元是优惠的买方信贷协议。港口85%的资金是由中共国提供，而其余部分则来自喀麦隆政府。中共国国有企业港湾工程公司（CHEC）正在监督该港口的建设。
 
-喀麦隆对中共国的第二大债务来源是旨在解决喀麦隆首都及周边地区的缺水问题的雅温得萨纳加河供水项目（PAEPYS），该项目85%的资金来自中国进出口银行价值超过6.78亿美元的贷款，其余15%的资金由喀麦隆政府提供。该项目由中共国国有企业机械工业集团监督施工。项目原定于2020年12月完成，但喀麦隆政府已宣布，由于COVID-19疫情的影响，项目将推迟到今年7月建成。
 
-喀麦隆对中国债务的第三大来源是位于喀麦隆南部地区Ntem河上的Memve’ele水电站大坝项目。依照设计大坝将可以产生211兆瓦的水电，喀麦隆政府希望这能解决该国的电力赤字问题，因为该国约62%的人口没有可靠的电力供应。这一项目由中国进出口银行提供5.41亿美元的贷款，此外还有非洲开发银行的1.9亿美元和喀麦隆政府的1.1亿美元。在中共国介入之前，项目最初由一家英国公司建设，但在2009年，中国国有水电公司Sinohydro接管了项目。大坝的建设于2013年开始，本应在2017年完成，至今寂静延误。截至2020年12月，喀麦隆政府声称，输电线路的建设将于今年3月完成，发电厂的商业调试将于9月开始。世界银行针对Memve’ele大坝项目指出，其成本比与喀麦隆发展水平相当的国家的类似项目高出6至8倍，不禁引发人们对腐败和对施工方过度支付担忧。
+更具有传染性的Covid-19 Delta 变异病毒正在加拿大Saskatchewan 省肆虐，在过去的一周里，感染Delta变异病毒的病例已由45例上升到68例。专家认为，在印度流行的Delta变异病毒比其它毒株更具传染性。
 
-暂且不谈文章中引述的工程建造中出现的人员及环境冲突和危害，我们只把焦点集中在喀麦隆政府将如何偿还欠中共国的巨额债务上。文章特别指出，虽然克里比深水港、桑加河供水项目和Memve’ele水电站大坝在喀麦隆对中国的债务中占了很大比例，但这些项目绝不是债务的全部。总的来说，喀麦隆欠中国以45笔贷款发放的至少52亿美元。其中与交通、能源、技术和水有关的项目占到10亿多美元，值得注意的是，其中还有至少3.33亿美元的贷款与喀麦隆军队有关，而军方在全喀麦隆国各地的冲突中扮演了镇压和侵犯人权的关键角色。
+加拿大CBC 新闻在6月13日报道，在Foothills hospital ,两个病房的16位患者和6名卫生保健工作者Delta 变体检测呈阳性。其中六位患者和5位卫生保健人员已接种2剂 mRNA 疫苗。Alberta Health Services 表示，即使接种疫苗，仍有可能感染病毒。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18092909/Screen-Shot-2021-06-18-at-9.22.13-AM.png)
+美国已发现具有高度传染性的的Alpha 和Delta 变体已激增，而Gamma 变体在几个州的传播正在增长。美国CDC 将Delta标记为“关注变体”，这是科学家对更易传播或导致严重疾病的病毒株的一个命名。
 
-更值得注意的是，作为最大债权人的中共国政府，对喀麦隆政府的债务减免相对于其他如法国、加拿大等西方国家来说，就等同于杯水车薪。虽然2020年5月，喀麦隆再次通过包括中国在内的20国集团成员同意的暂停偿债倡议（DSSI），推迟了对中国的债务支付。但债就是要还的。
+澳大利亚新南威尔士洲，这周五恢复在悉尼公共交通工具上强制戴口罩，因为感染更具有高度传染性的delta 变异毒株的病例已扩大到4例。
 
-文章最终指出，进入2020年代中期，喀麦隆在对中国的债务方面所面临的困难将有增无减，届时将有大量的债务需要偿还。而分析普遍严重怀疑喀麦隆对中共国的偿债能力。这不仅是由于债务的数量，也由于政治不稳定和疫情的影响。因此文章得出结论，如果喀麦隆达到无力偿还债务的程度，可能会发生什么？可能性包括，但不限于，像赞比亚在2020年发生的那样，拖欠债务，或可能让出由外部债权人即中共国资助项目设施的临时所有权。
+柳叶刀杂志上的一篇文章表示，从5月19 日开始，Delta 变异毒株已成为苏格兰Covid-19的主要流行毒株，而且感染对象趋向于更年轻的人群中。
 
-消息来源： 外交家杂志《China’s Role in Cameroon’s Risk of Debt Distress》 网络公开信息
+中共病毒库里的病毒不停被释放出来，而且毒性逐渐变强，威力更大。人们已在警醒，追究病毒源头已是不可辩驳的事实。
 
-（本文系作者个人观点）
+参考来源：
+
+[https://www.cbc.ca/news/canada/saskatchewan/sask-delta-variant-1.6069986](https://www.cbc.ca/news/canada/saskatchewan/sask-delta-variant-1.6069986)
+
+[https://www.cbc.ca/news/canada/calgary/foothills-delta-variant-outbreak-calgary-covid-1.6063802](https://www.cbc.ca/news/canada/calgary/foothills-delta-variant-outbreak-calgary-covid-1.6063802)
+
+[https://www.cnn.com/2021/06/18/health/us-coronavirus-friday/index.html](https://www.cnn.com/2021/06/18/health/us-coronavirus-friday/index.html)
+
+[https://www.breitbart.com/news/vaccine-effort-turns-into-slog-as-infectious-variant-spreads/amp/](https://www.breitbart.com/news/vaccine-effort-turns-into-slog-as-infectious-variant-spreads/amp/)
+
+[https://www.reuters.com/world/asia-pacific/sydney-reinstates-masks-contain-delta-covid-19-variant-2021-06-18/](https://www.reuters.com/world/asia-pacific/sydney-reinstates-masks-contain-delta-covid-19-variant-2021-06-18/)
+
+[https://www.thelancet.com/journals/lancet/article/PIIS0140-6736(21)01358-1/fulltext](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2821%2901358-1/fulltext)
+
+[https://gtv.org/video/id=60cbb0b4b96c69573d8139af](https://gtv.org/video/id=60cbb0b4b96c69573d8139af)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0

@@ -1,50 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西喜时事新闻简报—美国时事篇
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1331969/)
+## 英国 &#8220;紧急 &#8220;报告呼吁完全停止在人类中使用COVID疫苗
+` 慕尼黑感恩` [轉載自GNews](https://gnews.org/zh-hans/1332185/)
 
-- 作者：此生灭共
+编撰：PEACEMAN
+审核：WLQF
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18113105/6.18-1.jpg)图片来自链接内容
+总部设在英国的循证医学咨询有限公司(Evidence-Based Medicine Consultancy Ltd)向药品和保健品管理局（MHRA）提交的一份 “黄卡数据紧急初步报告 “指出:”MHRA现在有足够多的黄卡系统证据来宣布COVID-19疫苗在人类中的使用不安全”。
+
+与美国的疫苗不良事件报告系统（VAERS）类似，MHRA将其黄卡系统的目的描述为提供 “一种早期警告，即一种药品或医疗设备的安全性可能需要进一步调查”。
+
+这份由循证医学咨询有限公司(Evidence-Based Medicine Consultancy Ltd)和EbMC Squared CiC主任Tess Lawrie博士（MBBCh，博士）签署的报告说：”我们使用特定病理学关键词搜索了黄卡报告，根据以下五个广泛的、与临床相关的类别对数据进行分组。
+
+出血、凝血和缺血性ADRs
+
+免疫系统ADRs
+
+疼痛 “ADRs
+
+神经系统ADRs
+
+涉及视力、听力、语言或嗅觉丧失的ADRs
+
+妊娠期ADRs”
+
+该报告继续说: “我们意识到药物警戒数据的局限性，并理解关于报告的药品不良反应的信息不应该被解释为意味着有关药品一般会导致观察到的效果或使用不安全。我们之所以分享这份初步报告，是因为迫切需要沟通信息，在进行全面调查的同时，应该停止疫苗接种的推广。” 根据Seneff和Nigh最近发表的论文，潜在的急性和长期病症包括。
+
+病原体诱导、多系统炎症和自身免疫
+
+过敏反应和过敏性休克
+
+抗体依赖性增强(ADE)
+
+潜伏病毒感染的激活
+
+神经变性和朊病毒疾病
+
+SARSCoV2的新变体的出现
+
+刺突蛋白基因整合到人类DNA中
+
+“现在很明显，血流中的这些产品对人类是有毒的。需要立即停止疫苗接种计划，同时进行全面和独立的安全分析，以调查危害的全部程度。英国黄卡数据表明，这些危害包括血栓栓塞、多系统炎症、免疫抑制、自身免疫和过敏性休克，以及抗体依赖性增强（ADE）”。
+
+该报告总结说：”MHRA现在在黄卡系统上有足够的证据宣布COVID-19疫苗在人类中使用不安全。应准备扩大人道主义工作的规模，帮助那些受到COVID-19疫苗伤害的人，并预测和改善中长期的影响。由于疫苗的伤害机制似乎与COVID-19本身相似，还应包括与众多具有成功治疗COVID-19专业知识的国际医生和科学家进行接触。”
+
+“至少有3个迫切的问题需要MHRA来回答。
+
+有多少人在接种疫苗后28天内死亡？
+
+有多少人在接种疫苗后的28天内住院治疗？
+
+有多少人因接种疫苗而致残？”
+
+在人类面对CCP病毒戕害的世纪灾难中，疫苗成了惶恐下速成的人类急需抓住的救命稻草，也成了政客们和各国政府的政治工具，当然也是医药利益集团的大蛋糕，中共也滑稽地拿着自己低劣的疫苗开展疫苗外交来对付自己研制的超限生物武器，更是以次要挟疫情国。何其荒谬！
+
+警醒世界：中共有解药，找中共要解药来挽救被中共超限生物武器攻击的世界！
+
+**参考链接：**
 
 
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**西班牙2021年6月18日电/西喜社——**
+> [‘Urgent’ British report calls for complete cessation of COVID vaccines in humans](https://americasfrontlinedoctors.org/frontlinenews/urgent-british-report-calls-for-complete-cessation-of-covid-vaccines-in-humans/)
 
-您若想了解全文报导内容，请点击标题链接
 
-**1.[参议院确认首位白宫网络主管](https://www.foxnews.com/politics/senate-confirms-first-white-house-cyber-director)**
 
-福克斯6月17日电，美国[参议院](https://www.foxnews.com/category/politics/senate)于周四确认克里斯英格利斯为首任白宫网络安全主任，并对最近对美国基础设施进行的网络攻击表示强烈担忧。 英格利斯曾担任国家安全局（NSA）副局长。 参议院通过一致同意投票确认了英格利斯，没有立法者反对。
+（文章只代表编者观点，与GENEWS平台无关）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103001/unknown-4-7.png)
-
-**2.[根据拜登的命令，中国应用程序可能面临传票或禁令](https://www.foxbusiness.com/technology/chinese-apps-could-face-subpoenas-or-bans-under-biden-order)**
-
-福克斯6月17日电，为了防止中国和俄罗斯等外国对手获得大量个人和专有商业信息，商务部可能会发出传票以收集有关某些智能手机、平板电脑和台式计算机软件应用程序的信息。据知情人士透露，该机构可能会就它们在美国的使用条件进行谈判，或者禁止这些应用程序。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103115/unknown-5-3.png)
-
-** 3.[朝鲜领导人金正恩为与拜登对话敞开大门](https://www.bloomberg.com/news/articles/2021-06-18/north-korea-s-kim-jong-un-opens-door-for-dialogue-with-biden?srnd=premium)**
-
-彭博社6月18日电，朝鲜领导人金正恩表示，他已准备好“对话和对抗”，并在美国总统乔·拜登的新核特使前往该地区以建立对平壤战略的支持之际为会谈提供了机会。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103310/unknown-6-3.png)
-
-**4.**[在普京的支持下，拜登的注意力转移到了习近平身上](https://www.bloomberg.com/news/articles/2021-06-17/with-putin-behind-him-biden-s-focus-shifts-to-china-s-xi)
-
-彭博社6月17日电，拜登表示，中国将成为其政府外交政策的核心，然而，由于普京政府被指控干涉美国选举并窝藏针对美国关键基础设施的黑客，他需要在与俄罗斯的关系中建立一些“道路规则”和可预测性。现在北京成为焦点。对美国经济而言，美中关系远比与俄罗斯的关系复杂和重要，拜登在未来几年与习近平会面并建立富有成效的关系的窗口正在关闭。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18103817/unknown-7-4.png)
-
-**5.[民主党在扩大基础设施交易谈判中浮动 6 万亿美元计划](https://www.nytimes.com/2021/06/17/us/politics/democrats-infrastructure-deal-congress.html)**
-
-纽约时报6月17日电，参议院民主党人已经开始私下权衡一项庞大的经济计划，该计划可能高达 6 万亿美元，尽管两党参议员小组正在努力争取支持一个范围更窄的基础设施计划，该计划将投入 5,790 亿美元的新资金来资助实体公共工程项目。目前，这两项计划的细节仍在不断变化，两党中间派参议员都在推进他们的妥协提案，民主党准备使用称为和解的快速预算程序，以避免共和党阻挠他们更大的计划。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18104014/unknown-8-3.png)
-
-审核：蚂蚁兄弟；校对：信心满满；发稿：信心的选择
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
-
-+1
+0

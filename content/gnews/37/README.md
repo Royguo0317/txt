@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国会议员格林：新冠病毒是生化武器，美国应该追究福奇和中共的责任
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1331528/)
+## 川普谈重重围攻之下而取得的空前成就
+` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1331677/)
 
-06/15/2021 国会议员格林：新冠病毒是生化武器，福奇和中共掩盖了真相。我们应该解雇福奇，并追究福奇和中共的责任，让他们赔偿损失。
+唐纳德·川普6月16日连线肖恩·汉尼提，谈到一直遭受重重围攻而政府却取得空前成就。
 
 By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
 
