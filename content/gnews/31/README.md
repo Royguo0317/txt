@@ -1,27 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港警方突击搜查民主报纸的新闻编辑室并逮捕高管
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1329758/)
+## 【五月花评】真相封不住，自由终发声——新盖特横空出世
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1329883/)
 
-#### 编译：Boxinglady ( 文拳）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17120557/Screenshot-2021-06-17-9.03.10-AM.png) 图片截自网络
-在当地警方动员 500 多名警察突袭当地报纸《苹果日报》的总部后，国际人权组织周四猛烈抨击香港当局。
+五月花写作组 | 作者：hamrabi并 | 编辑：文芷 | 封面：灭共小宇宙 | 发布：吐纳
 
-根据北京严苛的国家安全法，此次突袭导致该报的五名董事被捕。他们被指控违反该法第 29 条，该条禁止“勾结外国或外部因素危害国家安全”。勾结指控最高可判处无期徒刑。
+21世纪的人们热衷于社交媒体，沉浸其中，享受着Twitter、Facebook 带来的无穷快乐。来自于不同世界、不同民族、不同信仰的人们互相交流情感和思想……
 
-被捕者包括该报的主编罗恩（Ryan Law）和副出版商陈佩文（Chan Pui-man）。报纸出版公司 Next Digital 的首席执行官兼首席运营官张金雄和 Royston Chow 也被捕。
+然而，不曾想到的是，CCP等邪恶势力为了奴役全世界，悄然通过资本的力量和蓝金黄等各种手段，试图控制所有的自由世界的媒体和大科技公司，妄图在悄无声息中控制人们的思想。在CCP所控制的媒体里普通大众被慢慢地剥夺了获取真相的权力和言论的自由却毫无察觉、浑然无知。
 
-这是在不到一年的时间里对该报总部进行的第二次突袭，去年 8 月，在国安法生效一个月后，200 名香港警察冲进了新闻编辑室。
+2017年，在网络上揭露CCP邪恶本质、拥有40多万粉丝的郭文贵先生Twitter账户在未给出任何理由的情况下被关闭了。同时，被关闭的还包括替郭先生发声的粉丝们的账户。据郭先生说，在他账户关闭前，就发生了Twitter擅自更改他粉丝数据的事情。当然关闭郭先生账号的不仅仅是Twitter，郭先生的YouTube账号不久也被取消直播功能，其他网站媒体更是抹黑打压郭先生，说他是骗子，罪犯。
 
-该报的创始人赖智光？目前因在 2019 年的反北京、民主抗议活动中扮演的角色而入狱，他也面临着违反国家安全法的指控。
+人们不禁想，在自由的美国也和中共国一样不能发声了吗？资本与CCP勾兑就可以控制一个法治民主自由的美国吗？不能！不可能控制全部，这些手段有可能控制一部分，且还是仅得逞一时。
 
-总部位于华盛顿的非营利组织香港民主委员会 (HKDC) 发表声明，批评中共国政权和亲北京的香港政府。
+2020年郭先生创建新中国联邦的同时，还策划推动G系列，为将来没有CCP的世界，创造一个可以自由、平等交易的系列商业平台。其中，Gettr（盖特）就是一个能让你展现真实的自己，表达真实情感、说真话、看真相的社交平台。Gettr的Logo，象征着自由女神的火炬，象征着人们勇敢地追求自由！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17130503/gettr-1.jpg)图片来源：gettr.com
+在2020年美国总统大选期间，Twitter压制挺川言论，屏蔽大选舞弊质疑声音，甚至关闭川普总统账号。在2020年初CCP病毒开始肆虐全世界，Twitter继续关闭质疑病毒来源的账户，打压羟氯喹的使用。Twitter、Facebook、YouTube等大型科技公司社交媒体所作所为，仿佛像黑夜降临大地，将正义与真相蒙蔽。
 
-新闻来源: [点击进入](https://www.zerohedge.com/geopolitical/hong-kong-police-raid-newsroom-pro-democracy-paper-arrests-executives?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+就在全世界的人们被瘟疫与死亡笼罩之际，GNews和GTV闪耀光芒，不惧各种围追堵截，不畏强权，勇敢发声。新Gettr将是继GNews、GTV之后，又一个爆料革命的重量级媒体，将继续传播病毒真相，揭露邪恶的CCP欲想统治全世界的野心，并让用户可以展现真实的自己、表达真实的情感，讲真话、看真相。
 
-本文仅代表个人观点，不代表 Gnews 平台
+就像黑夜永远代替不了光明，真相不可能永远埋没。2021年正义的力量终于集结，人们开始醒悟，各国政府开始转向，大科技公司，大媒体封杀言论自由的行为终于被质疑了。Twitter，Facebook等数次被国会传讯后，不得不纷纷转向，不再删除有关病毒真相的推文，闫丽梦博士可以继续自由发声，甚至没有封禁声讨CCP的言论。
 
-校对发布：紫橄榄
+爆料革命将继续在Twitter、Facebook、YouTube等平台上发声、传播真相。随着时局的进展，Gettr、Twitter、Facebook等各大社交媒体有可能会联合共同灭共。
 
-0
+“病毒来自武汉实验室”、“不消灭CCP，病毒就不可能消亡”……这些正义的声音已经传遍全世界，全世界正义的力量已经对CCP形成合围之势，人们仿佛听到CCP大厦即将倾覆的咯吱咯吱声音了。
+
+在这个正义与邪恶的较量中，新中国联邦已然成为一股新的正义力量！我们的Gettr必将快速成长壮大，可以预见不久的将来，它将象自由女神的火炬一样，引领世界所有的媒体，牵引世界舆论导向，推动人类追求自由、美好的未来！
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方Twitter账号](https://twitter.com/HimalayaMayflo1)和[官方YouTube账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+
++1

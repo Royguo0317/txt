@@ -1,63 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】盖特在手，自由跟我走——盖特Logo解读
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1329704/)
+## 【热点播报】中共国的经济还能恢复吗？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1329783/)
 
-作者：香草山农场写作组 木白
+作者：纽约香草山写作组 静水流深
 
-
-
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042102/WhatsApp_Image_2020-10-24_at_04.33.05-8-768x103-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17120613/29-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E4%B8%AD%E5%85%B1%E5%9B%BD%E7%BB%8F%E6%B5%8E%E5%B0%9A%E6%9C%AA100%E6%81%A2%E5%A4%8D%EF%BC%8C%E4%B8%AD%E5%85%B1%E5%9B%BD%E7%9A%84%E7%BB%8F%E6%B5%8E%E8%BF%98%E8%83%BD%E6%81%A2%E5%A4%8D%E5%90%97.png)
 
+[CNBC发展全球峰会虚拟会议](https://www.cnbc.com/2021/06/16/china-economy-not-100percent-recovered-from-covid-pandemic-ex-pboc-advisor.html)于2021年6月16如期举行。曾任中共国央行顾问、清华大学经济学教授李稻葵出席峰会称，中共国的决策者在控制债务水平方面“过于激进”，中共国的经济还没有100%恢复到“正常状态”，当局应该给予经济更多的恢复时间。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17114603/gettr.jpg)
+现如今，中共国消费者支出还没有恢复到病毒大流行前到水平，服务行业的一些企业仍在挣扎。过去一年，为应对COVID-19带来的挑战，中共当局试图让企业更容易获得贷款，因此，中共国经济的债务持续上升。在病毒大流行前，中共当局就试图遏制借贷的进一步增长，担心债务上升会威胁到中共经济体。此迹象表明，中共国已经开始控制债务。李教授在会议上又说，总的看来，他认为中共国经济90%恢复正常。
 
+中共国是新冠病毒的起源地，而中共国却是2020年唯一增长的主要经济体（同比增长2.3%，主要由出口驱动，而消费复苏滞后）。2021年4月，中共国[第一季度经济报告](http://www.gov.cn/xinwen/2021-04/16/content_5599950.htm)中，第一季度的国内生产总值同比增长18.3%。
 
+在不知道李稻葵哪里来的自信，哪里来的数据可以说明经济90%恢复了正常？单靠企业更容易获得的贷款就能应对COVID-19带来的挑战吗？在中共四面楚歌、八方树敌的国际形势下，在中共的牢牢控制的国内形势下，天怒人怨，民不聊生，哀声一片，中共经济的90%就能恢复正常吗？现如今又面临资金不断外逃，中共国还又可能靠出口来带动经济吗？
 
+李稻葵还警告称，美国经济的相对强势增加了资本从中共国和世界其他地区资本外逃的风险。当另一个国家提供更好的投资回报或机会时，必然发生资本外逃。不仅此前投资中共国的外国资金会出逃，大量的中共国国内资金也会离开，寻找更好的投资机会。美国的经济复苏提高了美联储货币政策正常化的可能性。这将吸引其他国家的资金进入美国。
 
-火炬，人类的文明之火，希望之光。尤其是在中共病毒肆虐全球的生死时刻，共产党的精神病毒侵蚀着人类自由、法治的此刻。盖特如火炬，点亮这个正在被黑暗吞噬的世界。
+美国经济的相对强势或许是其中一个原因。究其根本，还是中共体制的问题。在中共国，做生意得卑微小心、委曲求全、唯唯诺诺。中共朝令夕改，稍有不慎就会陷入泥潭。特斯拉的“刹车失灵”事件不就是一个典型的案例吗？在这样畸形的体制里，谁还愿意继续与中共共存亡呢？
 
-火炬，传递文明。其造型简洁，是科技与艺术的完美融合。象征着新中国联邦人，传承着人类的文明，必将用自己的勤奋、包容、正义、善良为世界文明的发展贡献重要力量。
+编辑/校对/发稿：雪梨
 
-火焰如翅膀，是自由的翱翔，是对明天热烈的拥抱，更是中国人民对自由无比之渴望。
-
-火焰点亮光明，驱除黑暗。红色是必胜的信心，是不达目的不罢休的坚决执行力。
-
-盖特在手，自由跟我走。
-盖特在手，正义跟我走。
-盖特在手，希望跟我走。
-
-
-
-（本文仅代表作者观点）
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
-
-编辑/校对/发稿：369文驹
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
 **[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
 
 0
