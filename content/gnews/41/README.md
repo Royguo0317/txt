@@ -1,56 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月17日美国政要推特精选： 追究 中国共产党对 COVID-19 的责任并不等同于产生反亚裔的仇恨
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1330616/)
+## 【独立观点】美国准亚太助理国务卿：美国应在各个领域发展与台湾的关系
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1330690/)
 
-众议员莫·布鲁克斯： 追究 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 对 COVID-19 的责任并不等同于产生反亚裔的仇恨。假新闻媒体有这种说法，表明了他们明显的自由主义偏见和错误的平等主张。我不会支持它。
-
-
-
-> Holding the Chinese Communist Party accountable for COVID-19 does not equate to generating anti-Asian hatred. For the fake news media to suggest that’s the case demonstrates their clear liberal bias and false equivalence. I will not stand for it. [pic.twitter.com/Ib8phdocei](https://t.co/Ib8phdocei)
-> — Mo Brooks (@RepMoBrooks) [June 17, 2021](https://twitter.com/RepMoBrooks/status/1405583416083501061?ref_src=twsrc%5Etfw)
+作者：美东香草山健身部 文真
 
 
 
-众议员玛丽安内特·米勒-米克斯： 我同意斯卡利斯议员[@SteveScalise](https://twitter.com/SteveScalise)，众议院应立即开始考虑参议员霍利 和布莱恩的 COVID-19 起源法案，该法案于上个月在参议院一致通过。 国会需要在寻找#COVID19 的起源方面发挥更积极的作用。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
 
 
 
-> I agree with [@SteveScalise](https://twitter.com/SteveScalise?ref_src=twsrc%5Etfw), the House should immediately start considering [@SenHawleyPress](https://twitter.com/SenHawleyPress?ref_src=twsrc%5Etfw) and [@SenatorBraun](https://twitter.com/SenatorBraun?ref_src=twsrc%5Etfw)'s COVID-19 Origin Act, which UNANIMOUSLY passed the Senate last month.
-> 
-> Congress needs to be playing a more active role in finding the origins of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/2uYlgpC4DT](https://t.co/2uYlgpC4DT)
-> — Rep. Mariannette Miller-Meeks, M.D. (@RepMMM) [June 17, 2021](https://twitter.com/RepMMM/status/1405554909521629188?ref_src=twsrc%5Etfw)
+6月15日，在参议院外交关系委员会听证会上，美国国务院东亚暨太平洋事务助理国务卿被提名人丹尼尔-克里顿布林克回应他上任后的工作重点是应对中共国的挑战，确保美国在与中共国的战略竞争中胜出。他将进一步发展美台关系并继续对侵犯人权的中共官员追责。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17232305/Untitled-design-2021-06-17T212144.780.png)
+克里顿布林克将中国描述为“美国目前面临的重大挑战”。他上任后的优先要务是重振盟友关系、确保美国在与中国的战略竞争中获胜、降低朝鲜核武威胁、支持美国包容性经济政策、促进民主与人权，以及应对新冠疫情和气候危机等。
+
+在对台外交关系方面，他表示拜登政府对台关系的新指引是“非常宽松的”，为台湾关系通过的新准则“大大放宽”双边交流的空间，并重申新准则是为了进一步发展美台双边关系。针对中共不断对台武力施压，他表示：“我确实认为，维持这种现状和安全是一种动态情况。随着来自中国的威胁增加，随着北京对台湾的侵略和欺凌行为的增加，我认为我们也必须调整我们做出的反应。” 此外，他认为美国应该继续采取措施，追究那些中国领导人在美国所说的针对新疆维吾尔族和其他少数民族穆斯林的种族灭绝行为方面的责任。
+
+克里顿布林克是亚太事务专家。自1994年踏入美国外交领域，曾派驻多个亚洲国家。在美国前总统奥巴马时期担任国安会亚太事务资深主任，随行奥巴马访问中国。特朗普政府时期，康达担任驻越南大使，曾参与筹划特朗普与金正恩在越南河内的会面。
+
+在美国明确新冠病毒调查和追责的立场后，拜登总统提名具有丰富亚太外交经验的克里顿布林克为助理国务卿，说明美国已经开始采取具体措施布局亚太外交事务应对中共。“战略模糊”的“一中”策略转向提升台湾的外交地位就是直击中共的痛点，逼中共出招。如果中共忍气吞声，那么习近平的“大一统”中国梦就会破灭，颜面无存。只要中共武力攻击台湾，必定是加速灭亡的结局。
+
+引用:
+
+https://cn.reuters.com/article/usa-taiwan-deputy-secretary-nominee-0615-idCNKCS2DS03A
+
+https://www.dw.com/zh/%E7%BE%8E%E5%87%86%E4%BA%9A%E5%A4%AA%E5%8A%A9%E5%8D%BF%E5%8D%8E%E5%BA%9C%E5%BA%94%E5%85%A8%E9%9D%A2%E6%8B%93%E5%B1%95%E4%B8%8E%E5%8F%B0%E5%85%B3%E7%B3%BB/a-57914493
+
+https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/jt-06152021100833.html
+
+校对/发稿：火内
 
 
 
-众议员保罗·哥萨尔： 可能导致了大流行的 [#武汉病毒所](https://twitter.com/hashtag/%E6%AD%A6%E6%B1%89%E7%97%85%E6%AF%92%E6%89%80?src=hashtag_click) 还有资格获得美国的资金是不可接受的。我很自豪地共同助力了“取消资助武汉病毒所法案”，确保美国纳税人的钱再也不会资助这个危险的实验室。【转推每日电讯，COVID起源辩论中心的危险的动物实验】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
 
 
 
-> It is unacceptable that the Wuhan virus lab that may have caused the pandemic remains eligible to receive US funds. I’m proudly cosponsoring the Defund Wuhan Institute of Virology Act to ensure US taxpayer dollars never again fund this dangerous lab. [https://t.co/6LpzhXghQu](https://t.co/6LpzhXghQu)
-> — Rep. Paul Gosar, DDS (@RepGosar) [June 17, 2021](https://twitter.com/RepGosar/status/1405545773622730752?ref_src=twsrc%5Etfw)
+**更多资讯，更多关注**
 
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-参议员约翰·肯尼迪： 拜登总统的“拜托啦，求求你们啦”式的要求，对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和世卫组织 [@WHO](https://twitter.com/WHO) 根本没用。 世卫组织的谭德塞沐浴的时候是哼着 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 国歌的，同时他还拿着美国人民给他的工资呢。
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
 
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-
-> Pres. Biden’s “Pretty please, with sugar on top” isn’t going to work with China and [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw).
-> 
-> The WHO’s Dr. Tedros hums the Chinese national anthem in the shower while the American people pay his salary. [pic.twitter.com/NZ0hOQUvIT](https://t.co/NZ0hOQUvIT)
-> — John Kennedy (@SenJohnKennedy) [June 17, 2021](https://twitter.com/SenJohnKennedy/status/1405544403083612160?ref_src=twsrc%5Etfw)
-
-
-
-众议员埃莉斯·史蒂芬尼克： 我们必须让 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 为他们的偷窃知识产权和多种侵犯人权的行径负责，并对 [#新冠病毒](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92?src=hashtag_click) 的源头进行彻底的调查。【转推news10，史蒂芬尼克提出立法，推动制裁中共国高层卫生官员并确认新冠的起源】
-
-
-
-> We MUST hold the Chinese Communist Party accountable for their intellectual property theft, multiple human rights abuses and have a thorough investigation into the origins of COVID-19 [https://t.co/IEctLOsPA7](https://t.co/IEctLOsPA7)
-> — Rep. Elise Stefanik (@RepStefanik) [June 17, 2021](https://twitter.com/RepStefanik/status/1405518273177964546?ref_src=twsrc%5Etfw)
-
-
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

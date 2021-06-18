@@ -1,51 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 段子：上班下班歌
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1330750/)
+## 郭先生0615II两年前就说过俄罗斯一定会跟美国站在一起
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1330849/)
 
-作者：纽约香草山写作组  木白
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18012237/S1-JB258_BIDENP_M_20210126141712_%E5%89%AF%E6%9C%AC.jpg)
+据[20210615的视频三品澜．吴征夫妻俩．性贿赂中国．国际多名高官……骗钱害命多人……黑幕被多个专案组掩盖．为什么？](https://gtv.org/video/id=60c8c163b96c69573d7f9433) 时间点17：45——
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+现在大家知道爆料革命进入到关键时刻，现在以毒灭共、以共产党的腐败灭共，G7集团替我们干了。我们已经把以毒灭共推给了G7集团去了，谁再过度解释都没意义了。你说G7集团能把这事儿给放下来吗？
 
+昨天普京总统和拜登的会谈是革命性的。谁说过？七哥最早说过：普京一定会跟美国站在一起！七哥在两年前说过，有帮王八蛋这些欺民贼说我。我说拜登当总统他更加灭共，从来我没改过。亨特拜登的视频咱还不移掉，是吧？还在G-TV，但是拜登总统他比川普总统还灭共，我深信不疑！
 
+因为什么？七哥掌握的情报比你们多，七哥的见识这些官员比你们多，否则我怎么能创造出爆料革命和新中国联邦呢？G7集团谁说过？七哥去年就说过，去年的G7七哥说了啥你们去把这个视频翻出来，我说明年的G7就不再是这样的G7了，明年的G7共产党就是到了末路的时候了。我在去年的G7的前一周告诉：全球联合灭共、全球自动灭共进入了关键时刻，没人可以阻止，这就是事实，发生了吗？
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18000044/33-%E6%AE%B5%E5%AD%90%EF%BC%9A%E4%B8%8A%E7%8F%AD%E4%B8%8B%E7%8F%AD%E6%AD%8C-%E5%B0%81%E9%9D%A2.png)
+现在普京总统说白了，俄罗斯跟美国站在一起。这就像普京总统，他是个超级政治家一样，这绝对是个超级政治家。政治家没有道德，大家千万，你看我们战友每个人在发帖都是用道德的标准评论政治家，你太low了。因为你不懂政治你才会这么说。所有政治家在一起从来不谈论道德，只谈论输赢。
 
+接上文——
 
+[郭先生0615直播前播放视频文字汇总](https://gnews.org/zh-hans/1330827/)
 
-躺平族：上班是平躺，下班是躺平
+[郭先生0615I对小视频的关注甚于对爆料贪腐的关注是本性](https://gnews.org/zh-hans/1330836/)
 
-公务员：上班是公共养老，下班是私人养老
+编辑整理——
 
-杨澜：上班是公共厕所，下班是私人厕所
+纽约香草山农场：文官
 
-吴征：上班是戴一叠绿帽子，下班是戴一顶绿帽子
+校对整合——
 
-领导秘书（材料狗）：上班是搞材料，下班是被材料搞
+纽约香草山农场：文兮（我❤战友）
 
-领导：上班是搞女人，下班是集体搞女人
+段落归纳——
 
-天线宝宝：上班是钻洞，下班是拼命钻洞
+波士顿五月花农场：背靠背（frankie）
 
-七哥：上班是灭共，下班是边挣钱边使劲灭共
+发布——
 
+喜马拉雅日本银河系农场：山川异域
 
-
-发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0
