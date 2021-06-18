@@ -1,11 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】纳塔莉·温特斯揭露彼得·打杂客2016年“致命病毒”视频
-` 秘密翻译组-精翻组 G-Translators/Elite Team` [轉載自GNews](https://gnews.org/zh-hans/1331043/)
+## 2021年6月17日秘翻快报【头条新闻】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1331192/)
 
-纳塔莉·温特斯6月8日在战斗室评打杂客“致命病毒”视频，说打杂客对来龙去脉心知肚明。彼得·打杂客在2016年2月纽约医药学会举办的大流行病论坛上亲述其在中国的同事们如何制造致命病毒。
+[!\[\]()!\[\](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18042425/IMAGE-2021-06-18-151646.jpg)](https://gtv.org/video/id=60cc4cfbb96c69573d81853c)
+**新闻总结：**
 
-By： 【秘密翻译组-精翻组 G-Translators/Elite Team】
+1.  中共国疫苗接种超9亿剂
+
+2.  深圳海关人员确诊 其所在小区管控
+
+3.  普京与拜登见面的六个重要看点
+
+4.  美国众议员推动《解雇福奇法案》
+
+5.  航空公司建议接种疫苗后别坐飞机
+
+**By:秘翻快报组**
+
+**GTV链接:**[https://gtv.org/video/id=60cc4cfbb96c69573d81853c](https://gtv.org/video/id=60cc4cfbb96c69573d81853c)
 
 0
