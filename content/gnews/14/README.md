@@ -1,56 +1,122 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月17日美国政要推特精选： 追究 中国共产党对 COVID-19 的责任并不等同于产生反亚裔的仇恨
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1330616/)
+## 卡廷森林惨案和专制统治的政治学原理
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1330629/)
 
-众议员莫·布鲁克斯： 追究 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 对 COVID-19 的责任并不等同于产生反亚裔的仇恨。假新闻媒体有这种说法，表明了他们明显的自由主义偏见和错误的平等主张。我不会支持它。
+作者：江南樵夫|校对：SilverSpurs7|审核：Beicy-数学老师|Page：小雨
 
+[!\[\]()!\[\](https://spark.adobe.com/page/0ng8Y3V3ZXwFD/images/ca755165-efcf-4475-9e29-41af1c689b61.jpg?asset_id=9085b11b-a3df-49fc-9282-d7a8e49d80db&amp;img_etag=%223fe93dbee1871e979b6b27501d09c9e9%22&amp;size=2560)](https://spark.adobe.com/page/0ng8Y3V3ZXwFD/images/ca755165-efcf-4475-9e29-41af1c689b61.jpg?asset_id=9085b11b-a3df-49fc-9282-d7a8e49d80db&amp;img_etag=%223fe93dbee1871e979b6b27501d09c9e9%22&amp;size=1024)
 
+**网友：**知道卡廷惨案吗？苏联人屠杀数万波兰人还赖在德国身上……
 
-> Holding the Chinese Communist Party accountable for COVID-19 does not equate to generating anti-Asian hatred. For the fake news media to suggest that’s the case demonstrates their clear liberal bias and false equivalence. I will not stand for it. [pic.twitter.com/Ib8phdocei](https://t.co/Ib8phdocei)
-> — Mo Brooks (@RepMoBrooks) [June 17, 2021](https://twitter.com/RepMoBrooks/status/1405583416083501061?ref_src=twsrc%5Etfw)
+**樵夫**：重点不是苏联人屠杀波兰“人”，而是苏联人杀尽了当时波兰的社会精英。
 
+1940年春，大约2.2万名波兰军人、知识分子、政界人士和公职人员在卡廷森林、加里宁……等地遭到苏联军队的集体杀害。其中在卡廷森林被害的就有4000余人。这些人是苏德瓜分波兰战争中数十万波军俘虏中的全部军官。
 
+苏联对波兰社会精英的斩尽杀绝，目的是使这个被征服的民族彻底失去重新崛起的能力和希望。卡廷森林惨案现场是德国人发现的，连杀人如麻的希特勒都感到震惊。但斯大林拒不承认屠杀罪行，反而诬陷德军。
 
-众议员玛丽安内特·米勒-米克斯： 我同意斯卡利斯议员[@SteveScalise](https://twitter.com/SteveScalise)，众议院应立即开始考虑参议员霍利 和布莱恩的 COVID-19 起源法案，该法案于上个月在参议院一致通过。 国会需要在寻找#COVID19 的起源方面发挥更积极的作用。
+有关这个秘密的资料文件就藏在克里姆林宫的档案室里，只有前苏联最高领导人有权知道真相，并作为最高绝密文件一代一代传下来。直到苏联解体，完成了民主化变革之后，前俄罗斯总统戈尔巴乔夫向俄罗斯新当选总统叶利钦办理政权移交手续，戈尔巴乔夫对叶利钦语重心长地说“鲍里斯，我们有责任把这一事件的真相公之于众……”时，卡廷森林惨案的真相才石破天惊。
 
+后来俄罗斯继任总统普京曾亲临卡廷森林向波兰人民致歉并隆重祭奠遇难者的亡魂。澄清历史，反思文化，忏悔罪过，这是文明进步的标志，也是文明进步的必然结果，普京此举值得点赞。
 
+但是，面对卡廷森林惨案，除了震惊于布尔什维克主义的残暴之外，很少有人深思过苏联人为什么要杀尽波兰社会精英，以及这种政治策略通过共产国际这个平台的传播，对整个世界共产主义运动所产生的恶劣影响究竟有多大！
 
-> I agree with [@SteveScalise](https://twitter.com/SteveScalise?ref_src=twsrc%5Etfw), the House should immediately start considering [@SenHawleyPress](https://twitter.com/SenHawleyPress?ref_src=twsrc%5Etfw) and [@SenatorBraun](https://twitter.com/SenatorBraun?ref_src=twsrc%5Etfw)'s COVID-19 Origin Act, which UNANIMOUSLY passed the Senate last month.
-> 
-> Congress needs to be playing a more active role in finding the origins of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/2uYlgpC4DT](https://t.co/2uYlgpC4DT)
-> — Rep. Mariannette Miller-Meeks, M.D. (@RepMMM) [June 17, 2021](https://twitter.com/RepMMM/status/1405554909521629188?ref_src=twsrc%5Etfw)
+消灭波兰社会精英事件几乎成为所有共产主义国家实现有效专制统治的政治样板。而消灭社会精英，对失去了精英的人民施行红色恐怖统治，正是苏联布尔什维克人所发明的红色专制统治的政治学原理。
 
+之所以把卡廷惨案上升到专制统治政治学原理的高度来看，是因为卡廷惨案并非苏联共产主义运动中的孤立个案。在这个政治原理的指导下，比这残暴千倍万倍的屠杀事件还曾发生在前苏联广袤疆域的很多地方，这包括俄罗斯社会本身以及曾经是中国领土的海参崴和鞑靼人领土的克里米亚。
 
+还记得《列宁在十月》里列宁“把地主撵走、撵走……”的疯狂咆哮吗？
 
-众议员保罗·哥萨尔： 可能导致了大流行的 [#武汉病毒所](https://twitter.com/hashtag/%E6%AD%A6%E6%B1%89%E7%97%85%E6%AF%92%E6%89%80?src=hashtag_click) 还有资格获得美国的资金是不可接受的。我很自豪地共同助力了“取消资助武汉病毒所法案”，确保美国纳税人的钱再也不会资助这个危险的实验室。【转推每日电讯，COVID起源辩论中心的危险的动物实验】
+实际上十月革命之后，列宁撵走的不光是俄罗斯基层的农村社会精英，更有大量俄罗斯社会各界中高层社会精英被屠杀，或被流放到西伯利亚，以及苏联境内无数个残酷的，被索尔仁尼琴先生称为“古拉格群岛”的地方。
 
+海参崴被屠杀流放的中国人就高达数十万之众，这个曾经全部是中国渔民的海湾城市，现在黄皮肤的中国人已经变成绝对的少数民族；而曾经住满鞑靼人的克里米亚现在也只剩下苏联时期被屠杀流放之后回迁的少数原住民了。
 
+由此可见，清除每一个被征服国家和地区社会精英以达到永久占领和奴役的办法，实际上已形成布尔什维克人实现红色专制统治的政治学原理。
 
-> It is unacceptable that the Wuhan virus lab that may have caused the pandemic remains eligible to receive US funds. I’m proudly cosponsoring the Defund Wuhan Institute of Virology Act to ensure US taxpayer dollars never again fund this dangerous lab. [https://t.co/6LpzhXghQu](https://t.co/6LpzhXghQu)
-> — Rep. Paul Gosar, DDS (@RepGosar) [June 17, 2021](https://twitter.com/RepGosar/status/1405545773622730752?ref_src=twsrc%5Etfw)
+有人说毛泽东雄才大略，文韬武略样样精通，其实夸大其词了。
 
+前苏联有从国家管理到机构设置再到政权运作的一整套设计好的成熟政治和军事理论，配发给他在全球各国的共产党支部（中国共产党就是第三国际在中国的支部），各支部领袖根本无须从经济学家、管理学家和军事指挥家中产生。一切组织结构、管理原则、军队建制、军事训练……甚至有些重要战役的军事指挥都由苏联人完全包办。
 
+在这种情况下，各国领袖只要服从共产国际的领导，培训掌握一门鼓动、宣传、洗脑的技术，和一门“与天斗”、“与地斗”、与阶级敌人斗、与革命战友斗的政治斗争技巧就一切ok了。
 
-参议员约翰·肯尼迪： 拜登总统的“拜托啦，求求你们啦”式的要求，对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 和世卫组织 [@WHO](https://twitter.com/WHO) 根本没用。 世卫组织的谭德塞沐浴的时候是哼着 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hashtag_click) 国歌的，同时他还拿着美国人民给他的工资呢。
+毛泽东的共产党中国就是这样依样画葫芦开始它半个多世纪的恐怖统治的。
 
+它的军队采取的是苏联建制，大的战役直接由苏联将军现场指挥，苏联军事顾问甚至一直深入到解放军连排以下的战斗单位直接参与对国军的战斗。
 
+它的党组织机构和运行机制是直接按照苏联模式全比例克隆出来的。国家行政机关的功能划分和机构配置和苏联完全一致，甚至工农业生产部门工具、设备和通用零部件的制式、技术标准以及管理模式都是完全与苏联相一致的。
 
-> Pres. Biden’s “Pretty please, with sugar on top” isn’t going to work with China and [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw).
-> 
-> The WHO’s Dr. Tedros hums the Chinese national anthem in the shower while the American people pay his salary. [pic.twitter.com/NZ0hOQUvIT](https://t.co/NZ0hOQUvIT)
-> — John Kennedy (@SenJohnKennedy) [June 17, 2021](https://twitter.com/SenJohnKennedy/status/1405544403083612160?ref_src=twsrc%5Etfw)
+但有一样比较例外，就是它的《药典》仍然沿用美国格式（其中原委另文再述）。
 
+毛泽东一生借以发动过五十多次整人运动的政治统御术，有些人说是来自于他精明的大脑和中南海游泳池边那些和毛泽东的女人一样重要的古老线装书，其实这是高估他了。
 
+毛泽东就像今天的党政要员必须进党校接受正统科学社会主义理论政治培训一样，他的政治统御术完全来自于共产国际斯大林一脉相传的专制统治政治学原理。
 
-众议员埃莉斯·史蒂芬尼克： 我们必须让 [#中国共产党](https://twitter.com/hashtag/%E4%B8%AD%E5%9B%BD%E5%85%B1%E4%BA%A7%E5%85%9A?src=hashtag_click) 为他们的偷窃知识产权和多种侵犯人权的行径负责，并对 [#新冠病毒](https://twitter.com/hashtag/%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92?src=hashtag_click) 的源头进行彻底的调查。【转推news10，史蒂芬尼克提出立法，推动制裁中共国高层卫生官员并确认新冠的起源】
+他的治国策略和《资治通鉴》、《三国演义》、《水浒传》、《红楼梦》以及所有那些被神话了的线装书没有半根毛的关系。
 
+在专制统治政治学原理这门课程上，古巴的卡斯特罗、蒙古的乔巴山、柬埔寨的波尔布特和朝鲜的金日成与毛泽东的学习成绩其实不相上下，只是舞台大小不一而已。
 
+专制统治政治学原理的理论精髓就是清除社会精英。
 
-> We MUST hold the Chinese Communist Party accountable for their intellectual property theft, multiple human rights abuses and have a thorough investigation into the origins of COVID-19 [https://t.co/IEctLOsPA7](https://t.co/IEctLOsPA7)
-> — Rep. Elise Stefanik (@RepStefanik) [June 17, 2021](https://twitter.com/RepStefanik/status/1405518273177964546?ref_src=twsrc%5Etfw)
+这一点在中国体现的相当充分，毛泽东以进行社会主义改造为名，对中国社会精英展开了长达半个多世纪的迫害和清除。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/0ng8Y3V3ZXwFD/images/0224860d-380c-4c0d-a075-c79e6ecfc6b1.jpg?asset_id=abcea52f-feba-4779-9d65-c281bad5ed5d&amp;img_etag=%22d4d3be6d0bae5bccd3eb5c54c3302659%22&amp;size=2560)](https://spark.adobe.com/page/0ng8Y3V3ZXwFD/images/0224860d-380c-4c0d-a075-c79e6ecfc6b1.jpg?asset_id=abcea52f-feba-4779-9d65-c281bad5ed5d&amp;img_etag=%22d4d3be6d0bae5bccd3eb5c54c3302659%22&amp;size=1024)
+
+中国共产党夺得政权之后，不仅通过镇压反革命运动，立即屠杀了几乎全部旧中国遗存下来的坚定的自由主义者，并通过一系列整人运动把在武力推翻民国之前通过欺骗利诱，留下来的一大批蒋介石企图拯救出去的民族和社会精英，有计划有步骤地一一予以清除。
+
+毛泽东曾经标榜自己是胡适的信徒，实际上也的确曾经是。他曾不停给胡适写过求教信，甚至按照胡适的自由主义哲学讲义回湖南组织过“自修大学”，他承认“自修”这个词是胡适的首创并为制订“自修大学的规章制度”事宜两次登门求教胡适，胡适认真批改了他的文字。
+
+但新中国成立之后，毛泽东得自胡适的自由主义思想便和来自共产国际的专制统制政治学原理狭路相逢，这个毕生以最大自我实现为信仰追求的权利逐鹿者，理所当然地选择了后者。他发动几千万人，组织了几百万字的材料批判胡适，彻底清除胡适五四以来千辛万苦播撒在中国社会各个角落的民主自由主义思想的种子，消除新文化运动对中国人奴才国民性解放的影响，从而为实现无产阶级专制统治扫清道路。如果您稍微了解一点苏联历史，就会发现这一切周密的计划和盘算其实都并非出自他的发明，而是来自于从巴黎公社以来所有共产主义运动实践中逐渐形成了政治理论体系的专制统治的政治学传统。
+
+**毛泽东对中国社会精英的清除步骤大体是这样的**：
+
+在对旧中国遗存下来的坚定的自由主义分子（比如旧官僚、旧军人和留在大陆的国民党自由主义抵抗分子）通过镇反迅速清除之后，他首先通过土地革命，大规模枪毙地主豪绅，从肉体上消灭了农村中产阶级精英;
+
+接下来，他通过软硬兼施，实行欺骗式的“公私合营”，对私有企业进行实际上没收私有财产的所谓的社会主义改造，从资本基础上消灭了城市资产阶级精英;
+
+[!\[\]()!\[\](https://spark.adobe.com/page/0ng8Y3V3ZXwFD/images/efce99c3-7971-4216-9c5d-914a7b76657a.jpg?asset_id=064efd5b-1157-44a9-825e-f8b9b40dfa92&amp;img_etag=%2203ed13986a083b22343466bbdd9dd448%22&amp;size=2560)](https://spark.adobe.com/page/0ng8Y3V3ZXwFD/images/efce99c3-7971-4216-9c5d-914a7b76657a.jpg?asset_id=064efd5b-1157-44a9-825e-f8b9b40dfa92&amp;img_etag=%2203ed13986a083b22343466bbdd9dd448%22&amp;size=1024)
+
+然后他通过劳改和反右从精神及肉体上消灭了中国的知识精英……
+
+最后通过发动无产阶级文化大革命，彻底消灭了统治阶级内部的所有政治精英。
+
+[![](https://spark.adobe.com/page/0ng8Y3V3ZXwFD/images/0d8dab39-aee5-44d5-891c-1d6c88095b1b?asset_id=bde81ef2-6fa7-4e98-8b01-8dba5cf9c22c&amp;img_etag=%22f80155181188af3c9d0e29b3c7391274%22&amp;size=2560)](https://spark.adobe.com/page/0ng8Y3V3ZXwFD/images/0d8dab39-aee5-44d5-891c-1d6c88095b1b?asset_id=bde81ef2-6fa7-4e98-8b01-8dba5cf9c22c&amp;img_etag=%22f80155181188af3c9d0e29b3c7391274%22&amp;size=1024)
+
+在这样一个彻底失去了精英的国家，万马齐喑，毛泽东当然便成为那个时代中国唯一的英雄。这正是至今都有人颂扬毛泽东是旷世奇才的本质原因。奇才不奇才容后再论，精英都被清空了，怎么可能不“旷世”呢？
+
+如此，一个无产特权阶级的专制制度也就根深蒂固地建立起来了，而中国社会里民族百姓的勇气与尊严也就从此彻底敛缩匍匐下去了。于是这个被屠尽民族精英的国家在整整六十四年的漫长岁月里，哪怕遭受再大的不公和苦难就都再也没有人可以站出来登高一呼了直至今日。这就是和卡廷森林事件一脉相承的共产主义专制统治的政治学原理以及红色恐怖及其政治后果。
+
+一旦理解了共产党专制统治的政治学原理，新中国近七十年以来一切的荒诞不经和所有的不可理喻就瞬间迎刃而解了，并据此还可以非常清楚地预测中国政治近期的走向和未来的命运。
+
+和苏联与中国同样的政治经验还被输出到柬埔寨和朝鲜。红色高棉屠杀了上百万民族精英和百姓， 而金氏三代在对民族精英的铲除行动中还把死刑文化发展到了“炮决”和“狗决”的高度。
+
+孟德斯鸠说专制体制的社会是靠制造恐惧为源动力而存在的。有良知、有实力尤其是独立的社会精英是不惧恐吓的，所以一个专制社会只要一出现独立的中产阶级和独立的知识精英阶级，那么这个社会的专制体制就该行将朽木了。盛产暴君的大英帝国因此而诞生了议会和《大宪章》，由社会精英主导的美国独立战争也因此没有使美国变成一个专制体制的王国而最终变成了这个世界有史以来最自由最伟大的公民国家。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/0ng8Y3V3ZXwFD/images/b762a4ad-0a39-4bf5-a5bd-2bb8e4aeac2a.jpg?asset_id=f7ed4132-156a-49b7-ac6b-cc3ff6d46fc9&amp;img_etag=%2283966e1a8fad6af36466dfc9501db6db%22&amp;size=2560)](https://spark.adobe.com/page/0ng8Y3V3ZXwFD/images/b762a4ad-0a39-4bf5-a5bd-2bb8e4aeac2a.jpg?asset_id=f7ed4132-156a-49b7-ac6b-cc3ff6d46fc9&amp;img_etag=%2283966e1a8fad6af36466dfc9501db6db%22&amp;size=1024)
+
+因此，任何有在专制体制不变的前提下要求统治者放弃暴力和恐吓，实行公平、公正、自由想法的人都是不切实际的异想天开。因为放弃暴力和恐吓，对信仰专制和极权的马列主义者来说是违背专制统治政治学原理的。只要一出现“公平”、“公正”、“民主”、“自由”的空气和土壤，中国就会首先从知识界迅速滋生民族的精英阶层，当这个阶层壮大成一个阶级并促使社会形成一个稳定的中产阶级社会时，专制制度的丧钟也就敲响了。
+
+当今中国没有独立的中产阶级，更没有成阶级的独立而有思想的知识精英，因为他们早已被有计划地迫害并清除了。如果他们能重新出现，中共国的极权专制制度就可以被彻底埋葬了。
+
+所以，为了培养这个没有了精英的民族的思想精英，我愿螳臂当车，鞠躬尽瘁，竭毕生之力！苟利国家生死以，岂因祸福避趋之！
+
+***文章仅代表个人观点***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/0ng8Y3V3ZXwFD/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/0ng8Y3V3ZXwFD/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
+**欢迎阅读江南樵夫其他文章：**
+
+- [爱国论——天下兴亡匹夫有责，国家兴亡关匹夫鸟事](https://gnews.org/zh-hans/1330438/)
+- [美国从未衰落，但美国强大的原因却并非极端个人主义](https://gnews.org/zh-hans/1330464/)
+- [稍有不慎就可能殃及整个民族](https://gnews.org/zh-hans/1315899/)
 
 
 0
