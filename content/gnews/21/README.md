@@ -1,58 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/16 班农专访(4) 闫博士是人类的英雄，必须受到保护
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1330333/)
+## 美国从未衰落，但美国强大的原因却并非极端个人主义
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1330464/)
 
-视频字幕：free20200604 |听写：云岭|翻译：Wade|校对：云岭|简评/文字整理/编辑：胖丁|Page：小雨
+作者：江南樵夫|校对：SilverSpurs7|审核：Beicy-数学老师|Page：小雨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17202218/1-25-8.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/k0o0RFxbZnV6P/images/7e3d2aa2-95b7-4884-ba9d-0d7e4bc60b14.jpg?asset_id=b0dae25e-fc95-4240-b6f4-8ebc1de55505&amp;img_etag=%227a7a71c6077c536f5d0a7949743c806c%22&amp;size=2560)](https://spark.adobe.com/page/k0o0RFxbZnV6P/images/7e3d2aa2-95b7-4884-ba9d-0d7e4bc60b14.jpg?asset_id=b0dae25e-fc95-4240-b6f4-8ebc1de55505&amp;img_etag=%227a7a71c6077c536f5d0a7949743c806c%22&amp;size=1024)
 
-**简评：**
+虽然人类个体人性的解放的确是人类历史发展的源动力，但实际上绝对的个人主义是不存在的。因为人是有三个互相约束的基本属性的，没有哪个属性可以真正独立存在。这就是**自然性、生物性和社会性**。
 
-闫博士的先生悄悄潜入美国，伺机杀害闫博士和其他重要的反共人士。闫博士的安全是重中之重，因为她是全人类的英雄，必须得到保护。
+就像现实与理想客观共存一样，纵观整个人类社会，个人主义和集体主义始终都是相依共存而从来都不是矛盾对立的。
 
-马特•盖茨（弗罗里达众议员）全面炮轰FBI，指责FBI忽视了闫博士提供的信息，这本来可以挽救很多人的生命。美国正在调查，细节不便透露。闫博士确定受到保护。
+共产党人和纳粹党人正是不承认集体主义和个人主义有机共存的客观性和规律性，主张个体服从集体，才使人类的集体主义和个体人权遭受有史以来最大的歪曲和伤害。
 
-**GTV视频链接**：[英喜每周班农专访Q4：谈美国安全部门对闫博士丈夫发出威胁的应对（2021年6月16日）](https://gtv.org/video/id=60cb54563d6f40323c1dd221)
+每当人类个体人格的独立性得到充分保证之后，集体主义就会自然滋生，因为社会性本身就是人类三大基本属性之一，而正是建立在个人主义要求得到充分满足基础上的正确的集体主义给民族和国家的生存与发展提供源源不断的强大动力。
 
+正是源于这一原理，才有了美国崇尚个人主义的共和党和追求集体主义的民主党两党共存的政治模式，才有了英联邦和北欧的福利社会主义，才有了美国发达的慈善事业和它最终从孤立主义走向国际主义的历史经历，也才有了一战之后的国际联盟和二战之后的联合国以及一切关照全体人类利益的各种国际组织的成立。
 
+可以说，没有个人主义就没有集体主义，而没有集体主义，就没有人道主义以及今天全球化发展趋势的国际秩序。
 
-**视频字幕：**
+其实美国从波士顿倾茶事件到独立战争再到二次大战，从建国后长期的孤立主义到一战后倡建国际联盟，到二战后主导成立联合国的历史一直都在证明：**完全的个人主义是不会产生强大的国家力量的**。
 
-**主持人Winston**：让我们谈谈闫博士的先生，他现在就在美国。闫博士说，她的丈夫威胁要杀害她，还有其他包括班农先生你在内的重要人士。美国安全部门正在严肃应对这件事情吗？
+推动国家强大的力量实际上是来自于个人主义得到充分尊重和满足之后激发出来的集体主义，也就是爱国主义。
 
-**班农**：这么说吧，因为塞林上校还有其他人…闫博士的安全是第一位的，不仅为了中国百姓。因为她的勇气，她已经成了美国人的大英雄。所以她的安全是第一位的。
+我在这里一说到爱国主义可能就要挨板砖了。恳请大家稍安勿躁，听我慢慢道来。
 
-我们正在调查她的先生。她的先生不是好人，而且在为一帮坏人做事。我不能透漏更多，但我们正在调查。
+实际上爱国主义和爱国主义是不一样的，最强调“个人主义”的美国的川普总统在联合国演讲时不也大谈爱国主义吗?
 
-观众们应该理解，对于文贵、我自己还有所有人来说，闫博士的安全是绝对的重中之重。
+入籍美国的誓词不也说“按照美国法律的要求，为了国家利益拿起武器”吗?
 
-记住，马特•盖茨（弗罗里达众议员）已经对FBI全面开火了，FBI对闫博士的做法非常糟糕。他们一年前就知道这些事情，本应该帮她把消息传递出去。但这一切都会水落石出，盖茨是一个层面，还有其他人在其他层面努力。
+孟德斯鸠把有史以来的所有政体划分为三类：君主制、民主制和专制制。在孟德斯鸠的描述里三种政体都有集体主义的表现，这就是爱国主义。但不同政体下爱国主义的主体和内容是不一样的：
 
-我不能透漏更多，但观众们应该理解，闫博士的安全是我们所有人最在乎的事情。因为她不止是中国人的英雄，不止是美国人的英雄，她是全人类的英雄，真正的英雄。我们将确保她受到保护。
+君主政体的爱国主义爱的是荣耀和分封，爱国主义的主体是君主和贵族。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/83c750f0-a9a1-4da9-aeb7-adaee4adec42.jpg?asset_id=082bd2a3-815e-4504-971a-7c8fb8dbf97b&amp;img_etag=%22c25b69ab22b328444599c91fcf48afe6%22&amp;size=2560)](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/83c750f0-a9a1-4da9-aeb7-adaee4adec42.jpg?asset_id=082bd2a3-815e-4504-971a-7c8fb8dbf97b&amp;img_etag=%22c25b69ab22b328444599c91fcf48afe6%22&amp;size=1024)
+专制政体的爱国主义爱的是权利和恐惧，爱国主义的主体是独裁者和特权集团。
 
-**完整访谈视频：**[每周班农采访 （2021年6月16日）](https://gtv.org/video/id=60c9fcc2b96c69573d803a00)
+而民主政治的爱国主义爱的就是人权、平等、民主和自由。民主政体下的爱国主体才是全体公民，它是一种真正的集体主义。
 
-🎤**主播：**Winston，Mike，Dr. TCC
+当得到充分保障并被充分满足的个人主义激发出强大的集体主义的时候，国家就自然强大了，人类也就发展了。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/b3c3ee5b-1655-470d-931e-ef059bbf7648.png?asset_id=2e36b7d8-e1df-4df0-a669-d80387ab5f62&amp;img_etag=%2243bcdfb210a7ba737c6abe83329a5be5%22&amp;size=2560)](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/b3c3ee5b-1655-470d-931e-ef059bbf7648.png?asset_id=2e36b7d8-e1df-4df0-a669-d80387ab5f62&amp;img_etag=%2243bcdfb210a7ba737c6abe83329a5be5%22&amp;size=1024)
+综上所述，在一个健康的民主社会，集体主义是不可以被污名化的。集体主义是个人主义得到极大满足和充分保障之后自然激发出来的社会性后果。但不同政体下个人主义被满足的主体、成分和内涵不同，其所产生的集体主义力量就不同。
 
-- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
-- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+[!\[\]()!\[\](https://spark.adobe.com/page/k0o0RFxbZnV6P/images/55d16ff9-f73b-40f1-b3e2-b331d30ffdaa.png?asset_id=cbba7bc5-2bf2-4fa4-abee-2e4cde013310&amp;img_etag=%224a4bfe696f59a977eaf6aa8c6d28d80f%22&amp;size=1024)](https://spark.adobe.com/page/k0o0RFxbZnV6P/images/55d16ff9-f73b-40f1-b3e2-b331d30ffdaa.png?asset_id=cbba7bc5-2bf2-4fa4-abee-2e4cde013310&amp;img_etag=%224a4bfe696f59a977eaf6aa8c6d28d80f%22&amp;size=1024)
 
+君主政体下的个人主义是君主和贵族的个人主义，其激发集体主义亦即爱国主义的主体仅仅是君主和贵族。
 
-***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三伦敦时间14:00 （美东时间09：00）直播***
+专制政体下的个人主义是独裁者和少数特权阶级的个人主义，其激发集体主义亦即爱国主义的主体不过是独裁者和少数特权阶级。
+
+只有民主政体下的个人主义才是全体公民的个人主义，它的集体主义或爱国主义的力量来自一个国家的全体公民。这样举国一致的力量从简单的算术上来看就是以上任何一种体制下的爱国主义所无法比拟的。
+
+事实上这才是美国强大的真正动力。所以，个人主义固然是美国的立国之本，但它却因为只是人类赖以存在的三个基本要素之一而不可能孤立存在。
+
+个人主义必须通过集体主义来达成国家的强大、发展和进步。这个能使国家强大和发展进步的集体主义必然是个人主义得到充分尊重与满足前提下的集体主义。任何孤立强调个人主义和孤立强调集体主义的主张都必定是人类社会的灾难。无论列宁、希特勒、斯大林还是毛泽东，都证明了这一点。
+
+*文章仅代表作者观点*
 
 编辑：【英国伦敦喜庄园编辑部】
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/eNWN8cpZ2L3d1/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/k0o0RFxbZnV6P/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/k0o0RFxbZnV6P/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
+**欢迎阅读江南樵夫其他文章：**
+
+- [爱国论——天下兴亡匹夫有责，国家兴亡关匹夫鸟事](https://gnews.org/zh-hans/1330438/)
+- [稍有不慎就可能殃及整个民族](https://gnews.org/zh-hans/1315899/)
+
 
 0
