@@ -1,51 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 科学家承认实验室泄漏假说去年是有效的——但因为川普而保持沉默
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1332157/)
+## 中共国承认核电站燃料棒受损，加剧全球担忧和质疑
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332038/)
 
-翻译：烟波浩淼｜校对：雨山溪桥客｜审核：断播
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – 心照
+编辑：康州盘古农场 – 明子
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18105543/1033.jpg)
+**据⟪thedrive⟫作者：BRETT TINGLEY，2021年6月16日报道：**
 
-上个月，一组18名科学家发表了[一封信](https://science.sciencemag.org/content/372/6543/694.1)，**呼吁对中共病毒的起源进行更深入的调查，将认真考虑实验室泄漏假说**——该假说假设病毒是从武汉病毒研究所泄漏出来的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18111918/wuhan-institute_0.png)
-据[《NBC新闻》](https://www.nbcnews.com/science/science-news/lab-leak-theory-science-scientists-rcna1191)报道，现在，**包括麻省理工学院和哈佛遗传学家阿丽娜·陈在内的几位科学家承认，科学家们回避了实验室泄漏假说，因为他们不想与时任总统川普有联系**。
+由于中共国终于承认台山核电站的一些核燃料棒被损坏，并且其一个反应堆内的放射性气体正在积聚，全球对一场可能的生态和地缘政治灾难的担忧迫在眉睫。然而，中共国政府本周宣布，在工厂外没有检测到异常的辐射，而一家帮助运营并共同拥有该设施的法国公司则声称，损坏带来了“紧迫的放射性威胁”。
 
-陈说，**一些科学家对公开讨论实验室泄漏假说感到不安**，因为他们担心自己的话可能被误解，或者被用来支持冠状病毒如何出现的种族主义言论。川普进一步指责武汉病毒学研究所是报告第一例中共病毒病例的城市的研究实验室，与疫情有关，他多次将病原体称为**“武汉病毒”**或**“功夫流感”**
+安全和健康威胁源于该厂一个反应堆的燃料棒周围的水和蒸汽中放射性气体的积聚。据报道，中共国已承认该反应堆中“大约五根”燃料棒受损，但据说该电厂能够在其600根燃料棒中最多四分之一受损的情况下安全运行。
 
-。。。
+法国电力公司（EDF）旗下的法国核能公司Framatome，持有该电厂的部分股份并帮助其运营，该公司表示这种情况是由反应堆内的燃料棒外壳退化引起的。EDF的一份声明说：“初级电路中存在某些惰性气体是一种已知的现象，在反应堆操作程序中进行了研究和规定。”
 
-*这一转变反映了一些以前回避这一话题或迅速否定它的科学家*
+然而，《纽约时报》报道说，专家们说这种放射性气体的堆积往往是由“不良的设计、制造或管理”造成的。基于这些矛盾的声明，目前还不清楚台山的情况可能有多危险。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18105826/10331.jpg)（2013年，官员们讨论台山核电站的建设）
+台山位于中国南部的广东省，靠近几个大都市，如澳门、香港、广州和主要工业中心深圳。显然，该地区的核事故将导致巨大的健康危机。周边的四个城市（东莞、香港、深圳、广州）是世界上人口最多的50个城市之一，它们之间有近4000万人口。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18105949/10332.jpg)（该电厂的位置，附近有几个主要的大都市中心）
+CNN报道说，接近拜登政府的消息来源已经确定台山的情况还没有达到“危机水平”，“目前没有对电厂的工人或中共国公众构成严重的安全威胁”。然而，CNN获得的文件还指责中共国安全官员提高了该厂周围地区的可接受辐射限度，以避免关闭该厂。
 
-*正在努力解决有关该病毒起源的持久不确定性。而不像川普政府期间那样，科学家将此类讨论政治化了。*
+当被要求发表评论时，中共国外交部发言人赵立坚告诉记者，“在工厂周围的辐射水平没有发现任何异常”。中共国的新闻机构已经报道了类似的标题。“核电站的运行安全是有保障的”，根据中共国日报，中共国的生态环境部说，“CNN报道中的前提是错误的。”
 
-所以，当美国被告知要遵循科学的时候，科学家们选择了玩政治。
+最近几周，白宫国家安全委员会在委员会中共国事务高级主任劳拉·罗森伯格和军备控制高级主任马洛里·斯图尔特的带领下，多次召开会议讨论这一情况。此外，白宫一直与中共国和法国政府保持密切沟通，并与能源部（DOE）的主题专家进行磋商。美国政府官员拒绝了CNN讨论其评估的要求，但根据目前的条约，美国将被要求公布潜在核事故对中共国公众造成的任何风险。
 
-陈说：**“当时与川普联系起来并成为种族主义者的工具更可怕，所以人们不想公开呼吁对实验室起源进行调查。”**
+CNN还报道说，Framatome公司与美国能源部联系，请求帮助评估台山放射性气体积聚所带来的危险。法国电力公司（Framatome的母公司）与国有的中共国核电集团（CGN）一起持有该电厂股份，前者拥有30%的股份，后者控制着另外70%的股份。然而，中广核被列入美国政府的制裁实体名单，这意味着政府认为他们的行为“违背了美国的国家安全或外交政策利益”，因此，美国或美国拥有的企业不能与他们进行交易。据报道，Framatome要求美国放弃这一限制，以寻求美国核专家的帮助。
 
-近几个月来“回过头来”的人也指出中共国缺乏透明度。
+据CNN报道，6月8日Framatome发给能源部的一份备忘录中写道：“这种情况对该厂和公众来说是迫在眉睫的放射性威胁，Framatome紧急请求允许转移技术数据和协助，以使该厂恢复正常运行。”
 
-报告称，目前**主要有三种理论**在传播：
+无论一些头条新闻报道的情况有多糟糕，其他专家对这些评估表示怀疑，声称一场核灾难可能迫在眉睫。据英国广播公司（BBC）报道，国际原子能机构（IAEA）表示，它没有收到任何迹象表明发生了放射性事件。南加州大学的核安全专家Najmedin Meshkati告诉《纽约时报》，燃料棒受损是一种常见现象，台山核电站的情况不太可能对公众安全构成严重威胁。
 
-- 病毒在从受感染的动物身上传播到人类之前自然进化而来。
-- 病毒自然进化，但实验室的一名员工从样本中感染，无意中“泄露”到社区。
-- 实验室的科学家们正在操纵病毒样本，无意或故意释放了病原体。
+同时，帮助建造并帮助运营该工厂的法国公司EDF能源公司的一位不愿透露姓名的发言人表示，情况可能看起来很糟糕，但在控制之中。该发言人说，“我们不在发生熔化核心的事故的情况中，我们不是在谈论污染，我们是在谈论受控的排放。”CNN发表的EDF的另一份声明呼应了这一保证。该声明称，“根据现有的数据，该工厂在安全参数范围内运行，我们的团队正在与相关专家合作，评估情况并提出解决任何潜在问题的方案”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18110129/10333.jpg)（位于台山核电站的一座办公大楼）
+虽然对台山核电站受损的燃料棒所带来的危险似乎还没有任何共识，但如果任何潜在的放射性污染发展到不安全的程度，那么，在如此多人口密集的城市地区附近发生的任何类型的放射性事故都会给中共国和香港公众带来巨大的伤害。在已经很紧张的南中国海沿线发生的重大核事故，无疑也会对公众健康产生远远超出中共国边界的影响。
 
+我们将继续监测台山的情况，并在有新消息出现时更新我们的报道。
 
-宾夕法尼亚州大学生物学教授，传染病进化遗传学专家安德鲁·里德（AndrewReed）说：“如果我们有一场来自美国BSL-4实验室附近的大流行，你首先要问的是，他们是否在实验室里与这种病原体合作。”他提醒说，尽管实验室泄漏是合理的，这并不一定意味着这是最可能的解释（这是）。
+原文连接：[https://www.thedrive.com/the-war-zone/41116/global-concerns-and-questions-grow-as-china-admits-fuel-rods-at-nuclear-plant-are-damaged](https://www.thedrive.com/the-war-zone/41116/global-concerns-and-questions-grow-as-china-admits-fuel-rods-at-nuclear-plant-are-damaged)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-正如[《每日电讯报》](https://www.dailywire.com/news/scientist-backing-probe-into-wuhan-lab-we-waited-because-we-didnt-want-to-be-associated-with-trump?%3Futm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dwtwitter)所指出的，“领导川普政府对中共病毒大流行起源调查的大卫·阿瑟（David Asher）上月接受采访时[说](https://www.dailywire.com/news/biostatisticians-calculated-odds-of-coronavirus-evolving-naturally-to-be-1-in-13-billion-top-ex-pandemic-investigator-says)，他有来自美国政府的生物统计学家计算出冠状病毒从自然界进化的几率，他们估计大约是13亿分之一。”
-
-如果“科学”对事实比政治更感兴趣的话，我们就会在问责的道路上走得更远：
-
-
-
-> Right now: Jon Stewart on the Covid Lab Leak “theory” is solid laughs [pic.twitter.com/WlRX35p9WK](https://t.co/WlRX35p9WK)
-> — siskin.eth (@mns) [June 15, 2021](https://twitter.com/mns/status/1404665481886195717?ref_src=twsrc%5Etfw)
-
-
-***现在：乔恩·斯图尔特（Jon Stewart）把中共病毒实验室泄漏的“理论”当成可靠的笑料。***
-原文作者：泰勒·杜登（TylerDurden）
-发布时间：2021年6月17日星期四
-原文链接：[https://www.zerohedge.com/covid-19/scientist-backing-wuhan-probe-admits-lab-leak-hypothesis-was-valid-last-year-kept-quiet](https://www.zerohedge.com/covid-19/scientist-backing-wuhan-probe-admits-lab-leak-hypothesis-was-valid-last-year-kept-quiet)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

@@ -1,15 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年6月18日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1332304/)
+## 意大利对英国旅客施行五天隔离政策
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1332459/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+翻译：神奇四侠
 
-Dear comrades-in-arms: the high-ranking officials of the Chinese Communist Party fled. It has already begun, and the end of this year will be a peak, followed by a large number of Chinese celebrities and wealthy people flocking overseas. This is a phenomenon that will definitely happen before the collapse of the Communist Party. The recent CCP’s big foreign propaganda. Crazy attacks broke the news about the revolution…comrades in arms must maintain a high degree of vigilance!
+根据美联社消息：从下周一开始，意大利政府要求从英国来的旅客进行为期5天的隔离，并要进行核酸检测。
 
-[【2021年6月18日】文贵先生盖特原文](https://app.gettr.com/post/pzm3m)
+意大利卫生部长罗伯托-斯佩兰扎周五签署了这一命令，因为意大利民众普遍对英国变种病毒感到担心，虽然现在中共病毒英国变种在意大利发现的较少，但是民众依然有担心。
 
-**喜联盟Gnews编辑部**
+根据该条例，符合欧盟绿色证书的美国、加拿大和日本人是可以入境的。条例包括是否全面接种中共病毒疫苗、如果被感染的要提供康复证明书，或者要在抵达意大利后48小时内要做核酸检测。
+
+笔者评：
+
+不仅仅是意大利，欧洲许多依靠旅游业的国家现在迫切希望能有游客进入，来缓解国内的经济形式。绝望的人会抓住每一根稻草，饮鸠止渴这个成语的意思不知道这些国家明白不？不消灭病毒源头，现在的开放就是为下一次病毒大流行埋下伏笔。
+
+新闻来源：[美联社](https://apnews.com/article/europe-coronavirus-pandemic-euro-2020-lifestyle-italy-6094082d2f4fdaa943e54fc983342a81)
+
+校对发稿：Ada （马德里）
+
+本人仅代表个人观点
 
 0
