@@ -1,101 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议员马特·盖茨: 美国不应该与中国共产党合作
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332786/)
+## 【战友心声】CCP下地狱
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1332836/)
 
-**字幕内容：**
-Rep. Matt Gaetz
-众议员马特·盖茨
+作者：纽约香草山健身部 Artemis
 
-In a world in which all of the science that we do of consequence with China,
-在这个世界上，我们与中共国合作的所有科学成果
 
-ends up in the hands of the Chinese Communist Party and the Chinese military,
-最终都落入中国共产党和中共军队的手中
 
-like why don’t we ask the broad question,
-就像我们为什么不问广泛的问题？
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-why is the US taxpayer funding any of this.
-为什么美国纳税人要资助其中任何一项？
 
-In what world is collaboration with the Chinese Communist Party,
-在什么样的世界与中国共产党合作
 
-somehow okay and Natalie set it up perfectly.
-不知何故，好的，娜塔莉把它设定得很完美
+霹雷一声震天响，震醒毛腊肉，质问习脑残：一百八十国联盟无人机，为何要斩首你？
 
-A lot of the elites in academics in science are trying
-很多科学界的精英都在尝试
+习脑残答：你个死腊肉懂个屁，我要称霸世界。如今我君临天下，必须要超越你！你毛腊肉也就只能统治中共国，我要当世界一尊，统治全世界。
 
-to create this veneer that like, oh, well
-创造这个假象，就像，哦，好吧
+毛腊肉又质问习脑残：你用什么手段把中共国的红旗插遍全世界？
 
-there’s a good CCP folks that we can work with
-我们可以与那些好的共产党人合作
+习脑残歇斯底里的叫喊到：我已经用假、骗、偷、蓝、金、黄占领美国和欧洲；我制造病毒超限战武器杀遍全世界。
 
-and they’re not truly tainted.
-他们并没有真正被污染
+就在这时，瞬间一道闪电——一百八十国联盟，兵临城下捉拿习脑残。天线习脑残，秒变青烟缈缈。
 
-That is nonsense,
-那是胡说八道
+![]()![](https://media.discordapp.net/attachments/721544615953432698/849859127411736576/1.2016-2017-cn.JPG?width=1083&amp;height=609)
 
-and now it’s not only that they control
-现在，他们不仅控制了
+爆料革命勇士们将自由女神像安放在北京天安门广场，安放在上海黄浦江畔，安放在香港时代广场。
 
-the full function and scope of research in China,
-中共国研究的全部功能和范围
+新中国联邦的旗帜飘扬在祖国的大江南北。
 
-they are metastasizing into these global corporations
-而且他们的控制正在转移到这些全球性公司
+新国际秩序让世界再次繁荣，新中国联邦人共享和平！
 
-like Google like Microsoft, that are setting up assets in China,
-就像谷歌，就像微软，正在中共国设立资产的
+（本文仅代表作者观点）
 
-subjecting these companies to those very protocols,
-让这些公司遵守那些协议
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
 
-and they’re buying our politicians.
-他们正在收买我们的政客
+校对/发稿：Irene木木
 
-In the meantime, and I think that’s the reason
-与此同时，我认为这就是
+**更多资讯，更多关注**
 
-why we’re having such a hard time,
-为什么我们过得这么艰难
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-you know, getting to the bottom of this,
-你知道，查清这个问题的真相
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-but once we do once we really expose
-但一旦我们做到了，我们就真的暴露
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-the origins of this virus of the Wuhan Institute of virology,
-武汉病毒学研究所是这种病毒的起源的真相
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-it’s really going to, you know slaughter a lot of sacred cows,
-它真的会让很多科学界的精英跌落神坛
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-because they’re not going to be able to defend
-因为他们将无法为全国各地
 
-the research and the research cash flowing
-的这些大学的研究和研究资金
 
-through a lot of these universities all over the country.
-的流向进行辩护
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
 
-**原视频链接**: [https://twitter.com/repmattgaetz/status/1404494616758468609?s=24](https://twitter.com/repmattgaetz/status/1404494616758468609?s=24)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

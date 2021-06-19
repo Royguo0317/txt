@@ -1,34 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/18-001 郭文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1332674/)
+## 【小象搬运】CGTN在英国公开招聘大学生“讲述可爱中国故事”
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1332772/)
 
-听写：樂禧禧 | Pr: 万物归一 | Page: Daoiii
+小象：CGTN在之前受到撤牌照和罚款之后，最近在推特和其他社交网路上却更加的活跃，而且还做了一系列宣传中国共产党的发展史的视频节目。它是中共信息核武器的其中之一队。我们可以看到，信息超限战现在已经进入了一个新的阶段。以下是这条新闻的摘要：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gFDMmTTXJEK0m/images/42083009-75fd-4096-a92b-8ebcaeef9644.png?asset_id=a971d915-6b2d-4709-900d-be2f8fa26ab6&amp;img_etag=%2231a3e5c36b03e88d128ac9a7c07ab230%22&amp;size=1024)](https://spark.adobe.com/page/gFDMmTTXJEK0m/images/42083009-75fd-4096-a92b-8ebcaeef9644.png?asset_id=a971d915-6b2d-4709-900d-be2f8fa26ab6&amp;img_etag=%2231a3e5c36b03e88d128ac9a7c07ab230%22&amp;size=1024)
+英国《泰晤士报》16日报导，中国环球电视网今年4月发起一项“媒体挑战者”活动，在全球范围内招募记者和有影响力的互联网博主，作为中共大外宣的一部分，成功的申请人可以得到高达10000美元的奖金，并在CGTN获得兼职或全职工作，“中国官媒正在努力招募更多外国人为中共代言，以增强讯息可信度”，《泰晤士报》披露，CGTN已经盯上英国大学生，英国目前至少有利兹大学（University of Leeds）的六名学生和曼彻斯特大学（University of Manchester）的一名学生报名参加了上述活动。
 
-**亲爱的战友们：中共高官们逃跑了。 它已经开始，今年年底将是一个高峰，随后将有大量中国名人和富豪涌向海外。 这是共产党垮台前肯定会发生的现象。 最近中共的大外宣。 疯狂袭击爆出革命新闻……战友们要保持高度警惕！**
+曼彻斯特大学的那名学生说，她参加这个活动是因为自己是两名亲共网红的粉丝。据悉，那两名网红在YouTube为中共做宣传，他们在中国居住，制作视频鼓吹共产主义，但也因此饱受批评。另一亲共网红承认，他多次航海旅行、参观太空发射站及华为研究中心，都“归功于中国环球电视网”。不过在接受采访时，他又声称经费全部是自筹资金。另据德国电台“今日德国”披露，一些居住在中国的外国网红声称，他们亲自去了新疆，那里不存在强迫劳动。
 
-[Gettr链接](https://gettr.com/post/pzm3m)
+今年2月，中国环球电视网被英国通讯管理局（Ofcom）发现在编辑上受到中共控制，播出执照被吊销，3月，CGTN被英国处以10万英镑的罚款。
 
-1. “以黄灭共”咱们全面开始了，千万别过火，尊重女性，主要以黃灭共，不要整成三级片，要把故事性真实性弄好，别弄成黄色的照片，咱跟共产党不一样，千万千万要记住。
-2. “黑森林”杨澜事情爆光之后，国内剧烈震撼，接下来的宋祖英、汤灿、李薇、李萍、还有现在的中央电视台的正在直播的几个、凤凰卫视的几个女主播的故事，都会爆。吴征和杨澜的事情，绝对是一腚贏天下，这夫妻两个绝对是魔鬼搭档，害了很多很多人…在邪恶面前，罪恶面前不分男女老少。
-3. 我们就是用事实说话，大家要广泛的挖出国内各个领域的共产党的“以黄治国”，“生殖器治国”，这个绝对是对世界影响震撼的。盖特里面发的照片、故事，一定不能有碍观感，不要自己给自己审查，给你关了。
-4. 最近的谣言很多，共产党的高官往外出逃，伊拉克、利比亞、罗马尼亚被灭之前，齐奥塞斯库，都是一个样，高官、有钱人、名人都跑，当高官跑的时候，基本就结束了，过去的两周，跑出来的中共高官，绝对不是一个“巴掌”，这是一个集权的政府，崩塌前的必然现象。
-5. 全世界大宗商品，价格到啥情况？石油现在到啥情况？某中东国家说，你让基金买的石油期货，第一单赚了一大笔，这位中东的公主问，这疫苗是共产党制造的吗？不是自然的？你说多傻！她打了两针疫苗。
-6. 最近共产党在海外的九层妖塔兴风作浪，对咱们的爆料革命加以诋毁，有潜伏的被渗透的战友，等待机会攻击七哥和战友。我说过，对女性让三招儿，对战友让你五招儿，甚至七招儿，我再出手。
-7. 比特币没有未来，火币、比特币一定倒闭，比特币是共产党和伊朗和俄罗斯最大的一个洗钱犯罪的工具，是和西方所谓蓝金黄，最大的罪恶工具。
-8. 昨天和某国家二号领导人深刻的交谈了两个半小时，相信他是未来的世界领导人，相信他一定支持爆料革命，新中国联邦。
+澳大利亚3月宣布，暂时停播CGTN和央视CCTV4的内容；挪威4月也停播CGTN，因其再次播出央视强迫“电视认罪”节目。
 
+目前，人权团体“保护卫士”已在美国、澳大利亚、加拿大、法国等多国投诉央视及CGTN。
 
-编辑：【英国伦敦喜庄园编辑部】
+《泰晤士报》的报导中引述英国保守党前党魁施志安（Sir Iain Duncan Smith）的呼吁表示，英国政府应该制裁CGTN，CGTN会给全英国带来危险，是潜在的共产主义者阴谋。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+参考链接：
 
+[https://www.soundofhope.org/post/516926?\_\_cf\_chl\_jschl\_tk\_\_=59b60f20ed8856684ad4d168b247abde34cecfef-1624063117-0-ASvfffuFTm2899nq9VhrZZGSJEcaSKR76GI8c-\_\_c6QOseRBqPdpfuJBg95y0-fsYWCFJOBV1lsJUFW5Ew14ha\_TKtQGUobQ2AOzBrMX4GQuop6-uH9QxgqFWi5xXBynGRo9YjNyCy1rKSAnlXR-wG590f5djZFDrfXwIE9mIE9Em5aJSPBwQ9EsI2vaN6xOeCUo8OSPmXfby04VRAi-ayD5lD7mi\_wp6wB50lvrCnLisvqptdmA24HQz3O0XiqczlEqbPSb8XNxgEPkMEakKBXM1wG3VhMrr-LTGfR6Ibj5ls0KRbQ\_-5C7nkTq\_wheth\_lm7aVn9BiKUhaV3IShoGGVbZF2bjCIaJIQ\_3\_ZMUM1ab0B6daywD-s3Gr2XJNnD\_QfWt7frigIg6cnEALneU](https://www.soundofhope.org/post/516926?__cf_chl_jschl_tk__=59b60f20ed8856684ad4d168b247abde34cecfef-1624063117-0-ASvfffuFTm2899nq9VhrZZGSJEcaSKR76GI8c-__c6QOseRBqPdpfuJBg95y0-fsYWCFJOBV1lsJUFW5Ew14ha_TKtQGUobQ2AOzBrMX4GQuop6-uH9QxgqFWi5xXBynGRo9YjNyCy1rKSAnlXR-wG590f5djZFDrfXwIE9mIE9Em5aJSPBwQ9EsI2vaN6xOeCUo8OSPmXfby04VRAi-ayD5lD7mi_wp6wB50lvrCnLisvqptdmA24HQz3O0XiqczlEqbPSb8XNxgEPkMEakKBXM1wG3VhMrr-LTGfR6Ibj5ls0KRbQ_-5C7nkTq_wheth_lm7aVn9BiKUhaV3IShoGGVbZF2bjCIaJIQ_3_ZMUM1ab0B6daywD-s3Gr2XJNnD_QfWt7frigIg6cnEALneU)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gFDMmTTXJEK0m/images/d7306ea6-5df6-4257-a7b7-841f161d2a24.jpg?asset_id=81dba361-d93b-4486-9404-e9abf1dc2d95&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/gFDMmTTXJEK0m/images/d7306ea6-5df6-4257-a7b7-841f161d2a24.jpg?asset_id=81dba361-d93b-4486-9404-e9abf1dc2d95&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
+图片来源：[https://news.have8.tv/](https://news.have8.tv/)
+
+整理撰稿：蓝精灵
+
+校对发布：Penny
+
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

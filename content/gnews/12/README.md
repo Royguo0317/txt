@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】四名英国航空公司飞行员一周内死亡，与CCP病毒疫苗无关吗？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332771/)
+## 【热点播报】反对为飞行员强制接种CCP病毒疫苗，美联航和工会达成协议
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332826/)
 
-作者： 纽约香草山媒体部  7bends
+作者： 纽约香草山媒体部  7bends
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
@@ -12,31 +12,15 @@
 
 
 
-[Gateway Pundit](https://www.thegatewaypundit.com/2021/06/four-healthy-british-airways-pilots-die-one-week-airline-says-no-link-covid-19-vaccine/) 6月17日报道，路透社记者向英国航空公司求证近期社交媒体流传甚广的关于四名正值壮年的英国航空公司飞行员（可能接种CCP病毒疫苗后）突然死亡一事。为此，英航目前正在与政府就是否允许接种CCP病毒疫苗的飞行员飞行进行危机谈判。据说大约80%-85%的人已被接种疫苗。英国航空公司在对路透社进行回应时证实了死亡人数，但否认与疫苗相关，也否认正在与政府进行谈判。
+[雅虎新闻](https://news.yahoo.com/news/united-airlines-union-agree-against-014516372.html#click=https://t.co/PKpRyzHrTB)近期援引路透社报道，美国联合航空公司（UA）和工会同意反对为飞行员强制接种CCP病毒疫苗。美国联合航空公司飞行员协会周一表示，联合航空公司及其飞行员公会已达成协议，禁止该航空公司为其飞行员强制接种CCP病毒疫苗。
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18214404/233-1.jpg)美国联合航空公司总裁斯科特·柯比在芝加哥奥黑尔国际机场发表演讲‎（图片来源：[yahoo news](https://news.yahoo.com/news/united-airlines-union-agree-against-014516372.html#click=https://t.co/PKpRyzHrTB)）
 
+该协议称，鉴于新冠疫苗接种是非强制性的，飞行员若选择不接种疫苗将不会受到任何纪律处分。航空公司与工会之间的协议还补充说，那些接种过疫苗的飞行员将有资格获得额外报酬。（笔者很疑惑，为什么接种过疫苗的飞行员将有资格获得额外报酬呢？是因为疫苗可能给已接种者带来额外的伤害因而令其有资格获得额外报酬作为隐性赔偿吗？）
 
-> I believe it was actually FOUR young pilots who died due to the Maxine [pic.twitter.com/LkahSVOTkN](https://t.co/LkahSVOTkN)
-> — The Thing (@TheThin59129130) [June 17, 2021](https://twitter.com/TheThin59129130/status/1405468219998150658?ref_src=twsrc%5Etfw)
+虽然美国的某些航空公司表示不会强制要求员工接种疫苗，如美国航空公司（AA）在一月份就表示，除非接种疫苗在所要进入的某些目的地是强制性的，否则AA不打算强制要求飞行员和其他员工接种疫苗，但仍有不少航空公司要求员工接种疫苗。美联航CEO在今年一月份的一次会议上告诉员工，公司可能会强制要求员工接种疫苗，他同时敦促其他公司也这样做。在本月早些时候，另一家航空公司达美也表示将要求所有在美国的新员工接种CCP病毒疫苗。
 
-
-
-英国航空公司6月17日在推特上例行公事般的发推文回应传闻：令人悲伤的是我们飞行员社区的四名成员最近去世了。我们的心与他们的家人和朋友同在，但社交媒体上关于这4起死亡事件相关联的传说毫无根据。
-
-
-
-> Sadly four members of our pilot community passed away recently. Our thoughts are with their family and friends. However, there is no truth whatsoever in the claims on social media speculating that the four deaths are linked. Julie
-> — British Airways (@British\_Airways) [June 17, 2021](https://twitter.com/British_Airways/status/1405606519631007748?ref_src=twsrc%5Etfw)
-
-
-
-英航的回应真的那么令人信服吗？让我们看几则英航这个推文下的跟帖：
-
-- 一则跟帖说，向所有受影响的人表示诚挚的哀悼。据我了解，飞行员会定期做身体测试，你们飞行员的死亡率是正常还是不正常？
-- 另一则跟帖说，飞行员每年接受体检。此项检查包括心脏、视力、听力、大脑等。超过一定年龄，必须每六个月进行一次体检。这些飞行员以前不太可能有任何疾病。
-
-
-英航四名飞行员的突然死亡，真的与CCP病毒疫苗无关吗？
+尽管美国私营公司可以要求员工接种CCP病毒疫苗，但有专家表示，如果这样做，他们可能会面临法律和文化反弹的风险。近日传的沸沸扬扬的关于英国航空公司四名飞行员一周内死亡的消息虽然已被英航否认与飞行员接种CCP病毒疫苗相关, 但有关死因的医学调查尚未被公布。此次美联航与工会达成协议，同意反对为飞行员强制接种CCP病毒疫苗，不知是否与英航飞行员死亡事件有内在联系。
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141843/6-june.jpg)
 
