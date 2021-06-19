@@ -1,349 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【深度科普】文医谈病毒防护、治疗与疫苗的合辑
-` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1328249/)
+## 【小象白话】婚前辅导来了，党要步入家庭生活了
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1332683/)
 
-Gnews病毒真相小组 整理
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18201801/Picture1-31.png)
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18202047/2-16.png)
 
+大红国今日发表文章：“婚前辅导，真的来了！”黄色发改委出了了一份事业规划，其中“明确要求加强婚前指导、婚前保健、婚姻家庭关系调适和离婚辅导，减少婚姻家庭纠纷。”
 
+婚前辅导确实很重要，但是由发改委来提出这个要求并形成国家文件，就好像政府开始管理夫妻生活一样， 让人非常的痛恨，非常的不舒服。之前据说一胎政策是由物理学家钱学森提出来的，理由是中国资源匮乏，不够分配，需要减少人口。这个计划生育政策已经被证明是彻底的失败，而且是违反伦理违反自然的做法。
 
+现在有很多人家里养宠物，养宠物的时候我们会给他们计划绝育，家里养猪的，会给猪计划多生小猪宝宝。那么对于他们来说，劳苦大众就和家里养的宠物和猪是一样的待遇了。他们自己呢，却在1990年到2008年期间，做了好几批试管婴儿，还拿了国家老百姓的钱专门请了人在海外养了一批，在国内又养了一批。好像是青蛙孵化一样，让人恶心。上帝告诉我们人生而平等，连动物都明白这个道理，到了这个东方最大的人间，人却活成了地狱的模样。
 
-## mRNA疫苗可能产生的灾难后果(二)
+因为一胎政策导致的目前劳动力紧缺，预计无法再为有红色基因的青蛙孩子们继续奴役了，红色集权者现在鼓励墙内年轻人多生孩子。历史上，在抗美援朝及解放初期，有过“英雄母亲”的阶段，现在劳动力短缺了，没有人去从事生产了，年轻人都躺下不干了，政府说不行，“认命可以，躺平不行”，年轻人要认什么命，为何要年轻人认命，是认一辈子和子孙后代世世代代为奴的命吗？
 
+文章中说”鼓励有条件的婚姻登记机关设置社会工作岗位，开展社会工作和志愿服务。推进婚前辅导教育服务平台建设，实现婚姻家庭辅导室（婚姻家庭纠纷调解室）在县级以上婚姻登记机关覆盖率达到80%。“街道和社会工作者，现在已经成为政府的基层基础组成细胞，最近的社会结构在慢慢的改变，我们看到一些新闻说高等院校的毕业生争着去应聘街道工作，街道的功能变成了政府机关的职能单位，享受政府补贴，党群在不断的扩大，深入到基层，以此项目增设了许多无效的岗位，增加了政府公务员的数量，一方面吸引年轻人加入组织，另一方面继续捆绑老百姓，并降低相关政策的推广难度。举个例子，要求党群成员第一时间按政策去做，每个人带头生两个孩子，比如说，去准夫妻家里指导别人如何生孩子。多么的荒诞。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010656/db053f2425daead87e1b56a16573264e.jpg)
+“据民政部社会事务司副司长张贞德介绍，婚姻登记机关至少设置一个独立的颁证大厅，探索将颁证仪式引入结婚登记流程，并实现颁证的常态化，通过引导婚姻当事人宣读结婚誓言、领取结婚证，在庄重神圣的仪式中宣告婚姻缔结，让当事人感悟铭记婚姻家庭蕴含的责任和担当。“内卷化的经济的不得已措施，大量的低端的智能设备，这些产能都要被消耗掉，这些单位是主要的消耗力量，通过更换设备，更换程序和流程，改变政府职能和架构，纳税人的钱会通过这种表面上看起来便民呀为人民服务之类的幌子，大部分纳入个人的钱袋。很怀疑，以后结婚仪式中会不会在党的红旗下，宣誓效忠党，不宣誓不能结婚，或者孩子以后不能上学，这听上去很魔幻，但是想一想计划生育都可以实施，还有什么是不可能发生的。
 
+文中提出“依托婚姻登记机关，联合相关部门，从推广体现优秀中华文化的传统婚礼，组织举办集体婚礼，倡导特色突出、文明节俭的现代婚俗礼仪入手，探索建立婚俗改革长效机制，培育文明向上的婚俗文化，传承良好家风家教。“不知道什么时候，连结婚都变成了集体婚礼，结婚时家庭的事情，是两个家族的事情，为何要集体结婚，什么时候见过中南海那些党的儿女们是办集体结婚的。这是在彻底的摧毁家庭为单位元的社会组成，也是中共一贯的做法， 无时无刻用集体主义进行绑架，无时无刻把手伸进你的口袋，你家的厨房里的锅里，你家卧室的床上。
 
-[GTV视频链接](https://gtv.org/video/id=60c2758b8ce6da73c41878a2)
+“推动各地把反对天价彩礼，抵制铺张浪费、大操大办等作为村规民约、居民公约的重要内容，充分发挥村（居）民议事会、人民调解委员会、道德评议会、红白理事会等群众自治组织的作用，强化村规民约、居民公约的遵守和落实。“道德评议会让人想起了纳粹党的道德警察。想起了中世纪改革前的宗教法庭。这些听上去所谓“自治组织”，其实都会是村里，乡里的党员干部组织，就像目前的一部分乡村一样，整个黑社会统治的区域。
 
+始终，把同类也就是人作为生产资料是中国共产党的本质。任何以国家名义，为人民好的名义实施的措施政策，究其根本就是为了对普罗大众敲骨吸髓，无论是表面上看上去是高尚的，还是滑稽的，还是荒唐的。他们活在自己的世界里，绑架着十四亿的中国老百姓。大家躺平吧，不要跟着他们走向万劫不复的深渊。加入新联邦，做一个人，做一个有个体自由，有选择自由的人。
 
+参考链接：新华网 人民网
 
+整理撰稿：蓝精灵
 
+校对发布：Penny
 
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-
-## mRNA疫苗可能产生的灾难后果(一)（主讲：文 医 嘉宾：千叶草大姐 北京人）
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010550/495c2e00ce1563cde4dff38d31c996b2.jpg)
-
-
-[GTV视频链接](https://gtv.org/video/id=60b0001eb7dff64ac985223b)
-
-
-
-
-
-
-
-## 公众对CCP病毒抗体的认知误区 (主讲：文 医 嘉宾：千叶草大姐 北京人)
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010441/b041bba1a36dc28383f885cb54f9e326.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=60a6c6a1db13300ca55cc364)
-
-
-
-
-
-
-
-## “解毒”功能增强的CCP病毒——多重方式绞杀细胞（主讲：文 医 嘉宾：千叶草大姐 北京人） 第二部分
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010253/dc8e290d54744547f6aab74f6199995c.jpg)
-
-
-[GTV视频链接](https://gtv.org/video/id=609dae95db13300ca5538508)
-
-
-
-
-
-
-
-## “解毒”功能增强的CCP病毒——多重方式绞杀细胞（主讲：文 医 嘉宾：千叶草大姐 北京人） 第一部分
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010127/abe5687d2b874d84a9b1ac73b18ed0cb.jpg)
-
-
-[GTV视频链接](https://gtv.org/video/id=609d9b3bdb13300ca5537a08)
-
-
-
-
-
-
-
-## 2021-04-28 “醫E” 語中的 第19期, CCPVirus”功能增强 “长驱直入核心器官·搞弱搞残细胞功能”
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005857/da1fee9c0f4ccc9df06c0e1436cacfb1.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=6089da7e6c00a14130e1c3a5)
-
-
-
-
-
-
-
-## 2021-04-21 医生视角解读“CCPVirus”神经毒性功能的增强
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005759/d7e15d55985b0adda4a01e0b084d973e.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=6080a1577e083973a72e226f)
-
-
-
-
-
-
-
-## 2021-04-14 ”醫E“語中的第17期 閻博士報導 醫生視角解讀CCP病毒功能增強
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005441/a45ed5a1f07feb9fac3efd4ca67b0258.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=60776a5662d629309ee40528)
-
-
-
-
-
-
-
-## 2021-04-07 ”醫E“語中的第16期 閻博士報導 醫生視角解讀CCP病毒功能增強
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005546/604841836655d9be0e2a615f20683b46.png)
-
-
-GTV视频链接 [Part1](https://gtv.org/video/id=606e2c846e11a756eddb5713) [Part2](https://gtv.org/video/id=606e30dd6e11a756eddb5a44)
-
-
-
-
-
-
-
-## 2021-03-31 “醫E”語中的第15期 美國一線醫師covid19白皮書
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005107/df34cbf677b69dc9a1d6c1ba26bb4c21.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=6064f784a54f827240bd50f9)
-
-
-
-
-
-
-
-## 2021-03-24 “醫E”語中的第14期 話疫苗 5
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004804/b092848f3a28d3c5be359fcdfafad02d.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=605bb68ba26ac57138e444b6)
-
-
-
-
-
-
-
-## 2021-03-17 “醫E”語中的第13期 話疫苗 4
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004432/a71f6f9239cf353aacbf28c01db3fa09.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=60527ab5e9cdd43098eaef26)
-
-
-
-
-
-
-
-## 2021-03-10 “醫E” 語中的 第12期 話疫苗（3）
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004531/e1454c0da647616049c4245080d9090b.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=60494efa75e88a51e6e9ef77)
-
-
-
-
-
-
-
-## 2021-03-03 “醫E”語中的第11期 話疫苗 2
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003742/b5ed6f56523ed967ff5be3e606c99b50.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=6040150794761a708f1999a3)
-
-
-
-
-
-
-
-## 2021-02-24 【“醫E”語中的】（10） 話疫苗 （1）
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003432/8048e874797d7c41cc4c5a34081f2b20.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=6036da22047c4c3086dd5052)
-
-
-
-
-
-
-
-## 2021-02-17【“醫E”語中的】（9）邪恶“CCP病毒” 二元武器 第二元
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003311/79e7f3a28786b885373e7dde97abf088.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=602daeb7be64150df85b1d7f)
-
-
-
-
-
-
-
-## 2021-02-10【“醫E”語中的】（8）邪惡CCP病毒 二元武器效應 第一元
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003125/adf72ace6bc5474f08b15ac3ae971856.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=602468e5be64150df8501dd4)
-
-
-
-
-
-
-
-## 2021-02-03【“醫E”語中的】（7）邪恶“CCP病毒” （二）认识CCP病毒最诡异邪恶之处
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003013/af6ff7f3beb9405d8dc8611fa77230ea.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=601b2c383f8a013ab47b7c7a)
-
-
-
-
-
-
-
-## 2021-01-27 “醫E”語中的 （6）邪恶“CCP病毒” （一）认识病毒，保护自己
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17002454/1ac4ff3009ac8104d9e188f0365f7ff0.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=6011f0c3b819717e79b3d6e3)
-
-
-
-
-
-
-
-## 2021-01-13 “醫E”語中的（5）神奇的羟氯喹（四） 服用羟氯喹应该注意的事项
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17002057/52e7bbfb99de6a6093c13139499bd1ff.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=5fff7b14f579a75e0bd668a1)
-
-
-
-
-
-
-
-## 2021-01-06 “醫E”語中的（4）神奇的羟氯喹（三） 不可思议的广谱抗微生物效应
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001816/84636763ba87ba09966f4561a407740b.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=5ff64107f579a75e0bc837b1)
-
-
-
-
-
-
-
-## 2020-12-29 “醫E”語中的（3） 神奇羟氯喹（二） 老药羟氯喹焕发神奇“青春”
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001639/9e03978d2547594f0fb1bca0809bcb0e.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=5febb4f3f579a75e0bbb9700)
-
-
-
-
-
-
-
-## 2020-12-22“醫E”語中的 （2） 神奇羟氯喹(一) 认识羟氯喹
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001455/2020-12-22%E9%86%ABE%E8%AA%9E%E4%B8%AD%E7%9A%84-%EF%BC%882%EF%BC%89-%E7%A5%9E%E5%A5%87%E7%BE%9F%E6%B0%AF%E5%96%B9%E4%B8%80-%E8%AE%A4%E8%AF%86%E7%BE%9F%E6%B0%AF%E5%96%B9.png)
-
-
-[GTV视频链接](https://gtv.org/video/id=5fe27ac1c0544c3d973305b9)
-
-
-
-
-
-
-
-## 2020-12-15“醫E”語中的（1）光鮮的新冠疫苗背後可能的致命風險
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001220/43a19b816546183367c4e09d01299243.jpg)
-
-
-[GTV视频链接](https://gtv.org/video/id=5fd943c509267020eb52df80)
-
-
-
-
-
-
-
-+1
+0

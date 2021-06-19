@@ -1,59 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社即时简报】习近平携中共领导人宣誓
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332942/)
+## 【热点播报】法国的 Covid-19：印度Delta 变种病毒仍“占少数”，但呈上升趋势
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332932/)
 
-香草山翻译部：GBW
+翻译: 香草山商业组——文锤
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
 
 
-2021年6月18日晚，路博艾
 
-**1. 赵立坚：探索浩瀚宇宙是全人类的梦想，中国也不例外。**
 
-博博士：中（共）国的太空计划是为军事目的服务的。
+根据法国公共卫生机构周五公布的监测数据，所谓的英国阿尔法变种病毒目前被证实了其在法国占有绝大多数的感染病例。
 
-**2. 习近平携中共领导人参观“不忘初心、牢记使命”党史展览**。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18221254/234-1.jpg)图为2021年6月17日周四的香榭丽舍大街（图片来源：MICHEL EULER / AP）
 
-a. 路德：习近平走在最前面。王岐山最后压阵，说明他第二重要。王毅这些炮灰也参加了。
+CCP冠状病毒的 Delta 变体最初在印度被发现，其是导致英国感染人数反弹的主要原因，在法国感染病例仍然非常少，但印度变种病毒的感染病例，在 6 月份里，上一个星期五通报的监测数据中“呈上升趋势” ，6月18 日，法国公共卫生在其每周更新中。在 5 月 25 日进行的测序“快速调查”期间，在 1% 的样本中发现了这种变异，而在 5 月 11 日进行的上一次调查中，这一比例为 0.2%。
 
-b. 博博士：走出黑帮的气势，像邪教宣誓。
+卫生机构表示，它正在密切关注Delta 变体的这种“不断增加的传播”，“鉴于其传播性增加，感染的严重程度可能会增加，并且这个初步的估计考虑到了疫苗效能轻微的减弱，尤其是在未能普及的疫苗接种计划期间”。
 
-c. 艾丽：外部压力大，党心不稳。
+“在国家领土上，疫情正在下降，正在得到控制”，本周四，户外不再强制带口罩的那一天，卫生部长奥利维尔·韦朗（Olivier Véran）表示满意。感染病例急剧下降：周四至周五新增病例 2,439 例，而一个月前每天新增病例超过 15,000 例。医院方面，疫情压力继续减轻：6 月 18 日星期五，有 10,700 名 Covid-19 患者住院，其中 1,740 人在重症监护室。
 
-**2. 塞林博士推特发了闫博士前夫Ranawaka照片和绿色贝雷帽，”在美国，他没有任何地方可以藏身，因为我们将一直追捕他。”**
+- **英国****Alpha ****变种病毒仍然占主要感染病例**
 
-a. 艾丽：整装待发，要行动了。有点最后通牒的意思。
 
-b. 博博士：”特种部队”、”游骑兵 “和 “空降兵 “臂章需要通过所有相关的严格训练和考试。
+根据法国公共卫生部 (SPF) 的说法，Alpha 变体（称为英国版）目前确认了其“感染主导地位”，在“快速调查”期间测序的 1,723 个样本中，有 86.3%，而 Beta 变体为 5.6% （称为南非），Gamma 变体（称为巴西）为 1.1%，Delta 变体为 1%。上周五发布的快速调查的初步结果显示 88% 的 Alpha 变体和 0.5% 的 Delta 变体。
 
-c. 博博士：塞林博士用“通缉犯”这个词是不是意味着立案了？
+另一种监测变异的手段，PCR检测阳性的筛选数据不再列出几天之内的变异，而是有三个“突变点”。这些数据表明，出现在 印度Delta 变体中的 L452R 突变在 4.6% 的结果中被发现。SPF 传染病科的 Sibylle Bernard-Stoecklin 强调说，其他变体也携带这种突变，但“绝大多数，可能至少三分之二是印度Delta 变体”。
 
-笔记仅作参考，内容以路德社节目为准。
+正是根据这一估计，卫生部长奥利维尔·韦兰 (Olivier Véran) 周二宣布，“目前，在法国，我们筛查的阳性检测中有 2% 到 4% 对应于印度变体”。“这些数据应该谨慎解释，因为自 5 月 31 日以来实施的新筛选策略的检测逐渐增加”，SPF指出。上周，只有 37.5% 的阳性检测得到了筛查，并非所有实验室都配备了必要的新试剂盒。
 
-视频链接：[https://www.youtube.com/watch?v=68sjIA4Pbog](https://www.youtube.com/watch?v=68sjIA4Pbog)
+在英国，印度Delta 变种迅速传播，几周内取代了 Alpha 变种，该变种于 2020 年底出现在英格兰东南部。Sibylle Bernard-Stoecklin 判断，考虑到表明它具有比 Alpha 变体有更强的传染力的因素，“人们可以预期，印度变种病毒在法国境内的流行将在未来几周和几个月内增加”。但是“目前对流行病动态的影响尚不可预测”。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+- **5****月初以来死亡人数下降**
 
-编辑/校对/发稿：正义的小新
+
+根据法国新冠肺炎疫情期间每周死亡人数的统计，法国每天观察到的平均死亡人数，加上所有原因，自 5 月初以来一直在下降，在 1 月份达到峰值之后，然后从 3 月中旬开始停滞不前。统计与经济研究所，周五公布的数据表明，虽然 1 月份平均每天有 2,150 人死亡，然后是 2 月份的 2,040 人，3 月和 4 月份的人数略低于 1,900 人，但这一数字在 5 月上半月下降到每天 1,740 人，然后在 5 月 16 日之后的时间段内降至略高于 1,600 人，直到 6 月 7 日。
+
+从 1 月1日到 6 月 7 日，法国记录了 301,263 人死亡，比 2019 年同期多 8%，2019 年没有 Covid，但有严重的季节性流感。与大流行爆发的 2020 年相比，该数字几乎稳定（+ 1%）。与 2019 年相比，普罗旺斯-阿尔卑斯-蓝色海岸 (+ 15%)、上法兰西 (+ 13%) 和法兰西岛 (+ 11%) 的死亡人数更多。
+
+如果我们将 2021 年的死亡人数与两年前的人数进行比较，我们会发现他们的人数仅在 65 岁及以上年龄组增加：65-74 岁增加 13%，75-84 岁同样增加，对于85岁以上的老人，与 2019 年相比，从 1 月1日至 6 月 7日这个时间段来看，同比增加死亡的人数仅为的7% ，这可以通过接种 Covid 疫苗产生了免疫效果来解释——因为其中年龄最大的老人是第一批接种者。
+
+**原文链接：**
+
+[Covid-19 en France : le variant Delta est toujours « minoritaire », mais en progression (lemonde.fr)](https://www.lemonde.fr/planete/article/2021/06/18/covid-19-en-france-le-variant-delta-est-toujours-minoritaire-mais-en-progression_6084728_3244.html)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141843/6-june.jpg)
+
+校对/发稿：小鹿
+
+
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+
+
+
+
 
 0

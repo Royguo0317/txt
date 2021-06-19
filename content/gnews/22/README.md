@@ -1,44 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读布林肯说WHO报告漏洞百出，及大批九层妖塔将在八月底前暴露
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1332766/)
+## 众议员马特·盖茨: 美国不应该与中国共产党合作
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332786/)
 
-直播视频：
+**字幕内容：**
+Rep. Matt Gaetz
+众议员马特·盖茨
 
+In a world in which all of the science that we do of consequence with China,
+在这个世界上，我们与中共国合作的所有科学成果
 
+ends up in the hands of the Chinese Communist Party and the Chinese military,
+最终都落入中国共产党和中共军队的手中
 
-《路德时评》2021年6月18日早间节目主要内容：
+like why don’t we ask the broad question,
+就像我们为什么不问广泛的问题？
 
-**· **布林肯说WHO报告漏洞百出，及大批九层妖塔将在八月底前暴露
+why is the US taxpayer funding any of this.
+为什么美国纳税人要资助其中任何一项？
 
-里奇埃德森：美国和欧盟呼吁世卫组织发起的COVID-19病毒起源第二阶段调查能够在透明、基于证据并且由专家主导，不受任何因素干扰的情况下取得进展。国务卿安东尼·布林肯称世界卫生组织的第一次调查漏洞百出，并且重申要向中共国追责。美国情报委员会正在对病毒来源真相展开独立调查，调查将于八月底截止。
+In what world is collaboration with the Chinese Communist Party,
+在什么样的世界与中国共产党合作
 
+somehow okay and Natalie set it up perfectly.
+不知何故，好的，娜塔莉把它设定得很完美
 
+A lot of the elites in academics in science are trying
+很多科学界的精英都在尝试
 
-> 里奇埃德森：美国和欧盟呼吁世卫组织发起的COVID-19病毒起源第二阶段调查能够在透明、基于证据并且由专家主导，不受任何因素干扰的情况下取得进展。国务卿安东尼·布林肯称世界卫生组织的第一次调查漏洞百出，并且重申要向中共国追责。 [pic.twitter.com/srmJb3nKmM](https://t.co/srmJb3nKmM)
-> — GT64 (@GT64\_1) [June 17, 2021](https://twitter.com/GT64_1/status/1405498373088550920?ref_src=twsrc%5Etfw)
+to create this veneer that like, oh, well
+创造这个假象，就像，哦，好吧
 
+there’s a good CCP folks that we can work with
+我们可以与那些好的共产党人合作
 
+and they’re not truly tainted.
+他们并没有真正被污染
 
-路德社评论：
+That is nonsense,
+那是胡说八道
 
-1、WHO发布病毒调查报告时，爆料革命路德社第一时间就指出该报告漏洞百出，布林肯现在也确认该调查报告漏洞百出，结论不具有可信度。八月底，美国情报部门即将公布病毒调查真相，中共九层妖塔到时都将暴露。中共近日对外放出王岐山叛逃的假消息之后，中共再次放出国安副部长董经纬叛逃的假消息，像Tucker、Dailymail、Zerohedge和大纪元这些外媒纷纷跟进报道这条假新闻，这将对海外媒体信誉产生巨大影响，如果中共党内未来确实发生大事，这海外媒体因害怕信用受损就不敢进行报道了。
+and now it’s not only that they control
+现在，他们不仅控制了
 
-2、中共一直动用大量水军在中文和英文世界搅混水，中共现在开始利用董经纬叛逃的假消息抹黑海外媒体，从而打击它们的信誉度，这样就可以彻底否认这些媒体对病毒真相的报道。如果爆料革命听信这些谣言，那就中了中共的诡计，中共未来就可以借此说爆料革命揭露的病毒真相纯是造谣抹黑。
+the full function and scope of research in China,
+中共国研究的全部功能和范围
 
-3、这些宣传王岐山和董经纬叛逃的假民运分子基本不宣传闫博士的三份病毒科学报告，他们早已经被中共收买，并且帮中共混淆视听。闫博士的三份报告就是揭露中共病毒最权威的报告，依据这三份报告可以直接给中共定罪。只要是事实和科学就必须经得起质疑，爆料革命路德社119节目揭露中共病毒真相就是最重要的证据之一，119节目揭露的病毒真相不仅经受住各方的质疑，最终也都被验证。
+they are metastasizing into these global corporations
+而且他们的控制正在转移到这些全球性公司
 
-4、闫博士报告揭露了福奇、打杂客和安德森等美国科学家与中共勾兑的丑事，美国媒体和FBI随即也跟进调查，这就为闫博士报告建立起影响力，Sellin上校发的推特也是如此，给美国媒体和调查部门提供了线索。闫博士报告已经得到美国最重要部门官员的认定，所有跳出来抨击闫博士的人都有可能被美国相关部门调查。
+like Google like Microsoft, that are setting up assets in China,
+就像谷歌，就像微软，正在中共国设立资产的
 
-5、事实不仅要经得起验证，还必须经得起质疑。中共虽然可以通过造假来验证此前的承诺，但是中共经不起质疑，任何经不起质疑的验证都是耍流氓。爆料革命宁要阳光下的瑕疵，不要阴暗下的完美，而中共就是那阴暗下的完美。
+subjecting these companies to those very protocols,
+让这些公司遵守那些协议
 
-6、当闫博士揭露中共病毒真相后，中共病毒如果不来自中共实验室，中共完全可以用科学的方式反驳闫博士，根本不用抓捕闫博士的家人，这恰恰说明中共做贼心虚，而爆料革命所揭露的真相就经得起所有质疑，不论中共如何搅混水也不可能动摇爆料革命认定事实真相的信心。
+and they’re buying our politicians.
+他们正在收买我们的政客
 
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+In the meantime, and I think that’s the reason
+与此同时，我认为这就是
 
-文章撰写：【重生】  编辑：【香柏树】
+why we’re having such a hard time,
+为什么我们过得这么艰难
 
-本文仅代表作者个人观点
+you know, getting to the bottom of this,
+你知道，查清这个问题的真相
 
-+3
+but once we do once we really expose
+但一旦我们做到了，我们就真的暴露
+
+the origins of this virus of the Wuhan Institute of virology,
+武汉病毒学研究所是这种病毒的起源的真相
+
+it’s really going to, you know slaughter a lot of sacred cows,
+它真的会让很多科学界的精英跌落神坛
+
+because they’re not going to be able to defend
+因为他们将无法为全国各地
+
+the research and the research cash flowing
+的这些大学的研究和研究资金
+
+through a lot of these universities all over the country.
+的流向进行辩护
+
+**原视频链接**: [https://twitter.com/repmattgaetz/status/1404494616758468609?s=24](https://twitter.com/repmattgaetz/status/1404494616758468609?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

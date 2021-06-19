@@ -1,65 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】四名英国航空公司飞行员一周内死亡，与CCP病毒疫苗无关吗？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332771/)
+## 【小象白话】警惕：中共新的掩盖病毒真相信息战已经开始
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1332818/)
 
-作者： 纽约香草山媒体部  7bends
+小象：在前几日中共报道了他们科学家发现了新的24种蝙蝠病毒，其中有4种可以传染人类。此报到也被媒体到处转发，时隔近一周，一名叫安查尔·尼加姆记者发表了下面的一篇报道称：瑞士的蝙蝠携带来自 39 个不同家族的病毒，有些可以传染给人类。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+文章说：“苏黎世大学的研究人员表示，瑞士的蝙蝠携带着来自至少 39 个不同病毒家族的病毒，其中包括能够从动物传染给人类的病毒。Isabelle Hardmeier 及其同事于 6 月 16 日在开放获取期刊 PLOS ONE 上发表了这些发现，指出该结论是在对生活在欧洲国家的 18 种静止和迁徙蝙蝠进行分析后确定的。 尽管只有少数致病病毒会传染给人类，但蝙蝠携带的一些病原体可能会传染给其他动物，然后传染给人类。SARS-CoV-2 也发生了同样的情况，它导致了 COVID-19，该病毒于 2019 年 12 月在中国首次发现，据信源自动物。”
 
+这篇文章和之前发布中国的信息几乎完全吻合，强调一点，在蝙蝠身上新发现了病毒可以传染人类。这一类的信息最新大量涌现，看似非常的零散，从世界各地散发出来， 而且和中共发出的信息还有一定的时间差，通常是在一周之内。大家仔细观察，不难发现其中的规律，重要的关键点是病毒骨架是舟山蝙蝠病毒和闫博士的三份报告，下面的链接是闫博士最新的视频。[https://twitter.com/DrLiMengYAN1/status/1406030295703359494?s=20](https://twitter.com/DrLiMengYAN1/status/1406030295703359494?s=20)。
 
+另外还有很多中共高官叛逃的消息，凑巧的是，这些叛逃的官员都携带着有关中共制造病毒的大量文件，其中的真假，以郭文贵先生最新消息为准。小象认为这是试图用一个热点，这个热点也许是真的也许是假的，但是热点孵化出来的病毒消息，一定是有问题的。从一个谎言走向另外一个谎言，这就是百年来共匪所谓的一个胜利走向另外一个胜利的不二法宝。
 
+参考链接：
 
+[https://www.republicworld.com/world-news/europe/bats-in-switzerland-harbour-virus-from-39-different-families-some-can-jump-to-humans.html](https://www.republicworld.com/world-news/europe/bats-in-switzerland-harbour-virus-from-39-different-families-some-can-jump-to-humans.html)
 
-[Gateway Pundit](https://www.thegatewaypundit.com/2021/06/four-healthy-british-airways-pilots-die-one-week-airline-says-no-link-covid-19-vaccine/) 6月17日报道，路透社记者向英国航空公司求证近期社交媒体流传甚广的关于四名正值壮年的英国航空公司飞行员（可能接种CCP病毒疫苗后）突然死亡一事。为此，英航目前正在与政府就是否允许接种CCP病毒疫苗的飞行员飞行进行危机谈判。据说大约80%-85%的人已被接种疫苗。英国航空公司在对路透社进行回应时证实了死亡人数，但否认与疫苗相关，也否认正在与政府进行谈判。
+图片来源：[https://www.republicworld.com/](https://www.republicworld.com/)
 
+整理撰稿：蓝精灵
 
+校对发布：Penny
 
-> I believe it was actually FOUR young pilots who died due to the Maxine [pic.twitter.com/LkahSVOTkN](https://t.co/LkahSVOTkN)
-> — The Thing (@TheThin59129130) [June 17, 2021](https://twitter.com/TheThin59129130/status/1405468219998150658?ref_src=twsrc%5Etfw)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
-
-
-英国航空公司6月17日在推特上例行公事般的发推文回应传闻：令人悲伤的是我们飞行员社区的四名成员最近去世了。我们的心与他们的家人和朋友同在，但社交媒体上关于这4起死亡事件相关联的传说毫无根据。
-
-
-
-> Sadly four members of our pilot community passed away recently. Our thoughts are with their family and friends. However, there is no truth whatsoever in the claims on social media speculating that the four deaths are linked. Julie
-> — British Airways (@British\_Airways) [June 17, 2021](https://twitter.com/British_Airways/status/1405606519631007748?ref_src=twsrc%5Etfw)
-
-
-
-英航的回应真的那么令人信服吗？让我们看几则英航这个推文下的跟帖：
-
-- 一则跟帖说，向所有受影响的人表示诚挚的哀悼。据我了解，飞行员会定期做身体测试，你们飞行员的死亡率是正常还是不正常？
-- 另一则跟帖说，飞行员每年接受体检。此项检查包括心脏、视力、听力、大脑等。超过一定年龄，必须每六个月进行一次体检。这些飞行员以前不太可能有任何疾病。
-
-
-英航四名飞行员的突然死亡，真的与CCP病毒疫苗无关吗？
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141843/6-june.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯****，****更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场****Twitter****（****中文****）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场****Twitter****（****英文****）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
-
-
-
-
-
-+1
+0

@@ -1,24 +1,170 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6.16文贵先生盖特要点
-` 左媛专栏` [轉載自GNews](https://gnews.org/zh-hans/1332558/)
+## 阴谋论…大流行病模拟推演
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332706/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18191522/92B49836-24CE-46F1-B531-CF304D2EC27E.jpeg)
-左媛整理
+**字幕内容：**
 
-6.16，两年前香港运动最重要的一天。时间过得真快，但香港圣城和手足们的英雄事迹永远不会忘记，这也是香港人赢得世界的尊重。未来香港移居伦敦大概有100万人，我们在伦敦会有一个香港人组织，要把香港人组织在一起。我们在英国的关联公司和基金聘用港人有100来人，而且大家对港人的评价非常高。香港是中国的圣城，香港人是中国人走向法治民主文明的最重要的参考和标志。香港人的奋斗对人类的影响和对中国人未来追求法治自由民主和信仰自由都意义深远。
+On behalf of our partners, the Bill and Melinda Gates Foundation
+代表我们的合作伙伴比尔和梅琳达·盖茨基金会
 
-现在在国内除了躺平，大街上一片怨气，生活艰难，家庭关系极度困难，社会关系复杂至极。黑龙江和河南的政法委书记，辽宁副省长，大连副市长，全抓了。这几个人都和吴征关系特别好，孙力军的部下，我相信他们都进过杨澜三品澜的“黑森林”。为什么我这几天要讲“三品澜”？我们要逐渐一层一层剥下来。爆料革命不要变成解释新闻预测新闻，否则不是爆料革命。我四年前就说，香港“遣返法”一定会通过，共产党一定会强推“国安法”，全都兑现了。这就是爆料。有足够的绝对真实的超级的数据和情报，并且最后对被爆料的当事人或机构或社会有帮助，达到我们消灭邪恶共产党的目的。这才叫爆料。
+event 201（Pandemic simulation exercise）took place five months before COVID-19 was declared a pandemic.
+“事件 201” （大流行病模拟推演）发生在 COVID-19 被宣布为大流行之前五个月
 
-为什么要讲吴征和杨澜？对“平爆小组”所有的信息来源和海外的伤害，对国内战友的抓捕，包括九指妖背后包括现在在亚欧美战友中潜伏的卧底的所有联络人和海外律师的伤害，包括孟韦参熊宪民这帮孙子们海外假民运们……全部支付的资金和律师联系80%左右都来自吴征。太平联盟官司的最重要律师是吴征在北京蒙古包里吃羊肉看蒙古舞的人，美国前FBI政府官员，他又是太平联盟官司的重要参与者。太平联盟官司的律师从未见过郭文贵，没说过一句话，100%判对方赢，判我们一方输。这叫法院吗？最后这些事情都会被揭开，就像DOJ的哈根波森、刘特佐、斯蒂芬文，所有这些人的前后都是吴征马云江志成孙力军孟建柱等人搞的，这里全都有吴征的影子，吴是美国公民。杨澜不仅睡中国官员，也睡了很多美国官员。所以，太平联盟的案子，马蕊案，还有许多建筑师案子，梁冠军案子……背后都有吴征这个重要参与人，他背后当然是共产党。
+The participants of the event are some of the same people
+活动的参与者是一些相同的人
 
-我们很多战友被喝茶被抓捕被判刑被杀害，包括老GTV在SEC的案子，全部都和吴征有关系。我们跟吴征杨澜的关系不会结束，还没开始呢。随着博讯孟韦参的案子，随着埃利波迪和斯蒂芬文的案子，太平联盟的案子逐渐被揭开，国内很多体制内战友的爆料……国内战友告诉我说，七哥，吴征杨澜的案子搞不清楚，所有跟西方“蓝金黄”的案子你都搞不明白，只有把为什么吴征杨澜抓了放放了抓，为什么中共这些领导去保吴征，为什么吴征是“平爆小组”的绝对干将，为什么我们那些喝茶的被抓的投资的战友都是吴征杨澜获得的情报，除了九指妖主动“献身”之外，基本都是吴征杨澜干的或者是他们背后干的。
+that are now deeply involved in the real pandemic
+现在深深卷入了真正的大流行病
 
-美国司法部重新起诉刘特佐，意义非凡。孙力军吴征天天活在同一个“黑森林”里，公安部一副部长被抓，孙力军和吴征还活着。吴征还有作用，还会被放出来咬爆料革命，杨澜的黑森林还有人进进出出，特别是美国一帮流氓律师和司法祸害者。吴征曾当面亲自对我说，他手里有美国几百个法官的黑材料。吴征的事情才刚刚开始，别忘了我们是“爆料革命”。昨天民生银行一个股东终于跑出来了，帮他跑的人被抓了。他开始跟我联系说，文贵，现在我所有对不住你的事我要加倍返还，我要和你一起爆料。我给他的原话是：我们爆料革命不看口头只看行动。相信民生会出来很多人，他们出来后的爆料也和吴征杨澜有关。查查吴征杨澜在太平联盟带走了几亿美元，在民生带走了多少钱，他们不仅是东北大树林项目骗了人，也不仅是牛奶项目骗了人，也不仅是海外害了爆料革命，他们害的人多了。听说最主动“贡献”孙力军孟建柱王岐山的就是“三品澜”。
+and profiting from it as well,
+并也从中获利的
 
-慢慢来。三品澜干坏事，我们不得不讲，她的作案工具就是“黑森林”，是害人的工具，咱不能回避也回避不了，没办法。
+an event of this complexity and magnitude
+如此复杂和规模的事件
 
-2021.6.17于纽约
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10160823/DA6F73BB-E1BE-4773-AE89-C17C54C95780.jpeg)
+will take months to write prep and produce.
+将需要几个月的时间来准备和制作
+
+Dr. Anthony Fauci
+安东尼·福奇博士
+
+“There is no question that there will be a surprise outbreak. ”
+“毫无疑问，会有突然的流行病爆发。 ”
+
+Even Bill Gates, a man with no medical training knew it was coming.
+甚至连比尔盖茨，一个没有受过医学训练的人也知道它会来
+
+Bill Gates
+比尔 盖茨
+
+“If we start now, we can be ready for the next epidemic.”
+“如果我们现在开始，我们就可以为下一个流行病做好准备。”
+
+Every single thing that you have seen play out in front of your eyes
+你所看到的每一件事都在你眼前上演了
+
+all of them laid out in their tabletop exercise,
+都在他们的桌面推演中铺开
+
+which by the way fact checkers have said,
+顺便说一下，事实核查员说过
+
+has nothing to do with the Coronavirus outbreak,
+这与冠状病毒爆发无关
+
+just happenstance, this is that wonderful universe of improbabilities
+只是偶然，这就是不可思议的奇妙宇宙
+
+where events just co emerge,
+事件刚刚出现的地方
+
+and the nature conveniently backs itself into our architecture.
+自然方便地将自己融入我们的建筑中
+
+Trees have banned travel from the worst affected areas,
+已经禁止在受影响最严重的地区旅行
+
+Vice President Mike Pence
+副总统迈克·彭斯
+
+“President has made a decision to suspend all travel to the United Kingdom and Ireland”
+“总统已决定暂停所有前往英国和爱尔兰的旅行”
+
+this and misinformation circulating over the internet
+这和在互联网上传播的错误信息
+
+across the world misinformation about the virus is being shared online,
+世界各地有关该病毒的错误信息正在网上共享
+
+a significant demand for N95 masks and gloves are on the rise,
+对 N95口罩和手套的大量需求正在上升
+
+the demand for N95 masks to prevent the deadly airborne virus has surged,
+为防止致命的空气传播病毒对 N95 口罩的需求激增
+
+we could eventually have 52 million treatment courses per year,
+我们最终可以每年有 5200 万个治疗疗程
+
+but it will take many months to get there,
+但要达到那个需要好几个月的时间
+
+we’re still many months out from having something
+我们还有很多个月才能拥有一些东西
+
+that we can really deploy to the public
+我们可以真正部署到公众
+
+and 65% of those fold are eager to take the vaccine,
+而且65% 的人渴望接种疫苗
+
+even if it’s experimental.
+即使它是实验性的
+
+The new poll finds that 49% of Americans say
+新的民意调查发现 49% 的美国人说
+
+they would get a COVID-19 vaccine
+他们会接种 COVID-19 疫苗
+
+shouldn’t effective one be discovered.
+不应该发现一个有效的
+
+I’m curious, who wrote the event 201 script.
+我很好奇，谁编写了“事件 201 ” 的脚本
+
+The visionaries of the event knew,
+事件的有远见的人已经知道
+
+at least one year in advance what was needed.
+至少提前一年需要什么
+
+Why didn’t they take care of those things.
+他们为什么不处理这些事情
+
+Considering the Bill Gates has donated half of his fortune to make the world safer.
+考虑到比尔盖茨已经捐赠了他一半的财富来让世界更安全
+
+Why didn’t you help to better prepare our hospitals and frontline workers.
+你为什么不帮助我们的医院和一线工作人员更好地做好准备
+
+Why didn’t any of the events wealthy sponsors do something.
+为什么有钱的赞助商没有做点什么
+
+Bill Gates
+比尔 盖茨
+
+“Now here we are in, we didn’t simulate this, we didn’t practice”
+“现在我们在这里，我们没有模拟这个，我们没有练习”
+
+Unknown female speaker
+不知名女演讲者
+
+on behalf of our partners in the Bill and Melinda Gates Foundation,
+代表我们在比尔和梅琳达·盖茨基金会的合作伙伴
+
+Bill Gates
+比尔 盖茨
+
+“so both the health policies and economic policies,
+“所以无论是卫生政策还是经济政策
+
+we find ourselves in unchartered territory.”
+我们都发现自己处于未知领域。”
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接**: [https://twitter.com/heidegger79/status/1404356483563851776?s=24](https://twitter.com/heidegger79/status/1404356483563851776?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
 0

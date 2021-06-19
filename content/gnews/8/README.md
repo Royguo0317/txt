@@ -1,45 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月18日美国政要推文精选: 福奇手上沾满了血,辞退福奇
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1332947/)
+## 【灭共头条】汤灿——一个被人民解放军解放的女人
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1333052/)
 
-众议员迈克·加拉格尔： 我们那些无视伦理道德的科学家在新型冠状病毒的起源上将我们自己的情报界耍的团团转，这一事实告诉我们，我们有一个巨大的问题。 如果我们要防止下一次疫情，我们必须追根究底，并要求本国政府做得更好。
+撰稿：Ermat【㊙️翻Gnews原创组】
 
+责编：Shifter
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18223356/e7cd7b899e510fb30f248609d07edf95d143ad4ba652.png)图片来源：baidu.com
+6月17日，郭文贵先生在GTV直播的最后，谈及了被称为“中国民歌天后”的内地女歌星汤灿如何被骗失身，献出了她的第一次的故事。这让这位“军中妖姬”再次成为关注热点。
 
+郭先生说，在一次酒后，一名解放军军官以”我是人民解放军，军民一家，我就是要解放你”为由，一步步诱骗涉世未深的汤灿，最后夺走了她的处女之身。多年以后，那个懵懂稚嫩、不谙世事的她已经不在。她曾多次像开玩笑一样谈及此事，竟然没有一丝难为情。看来，我们的人民解放军真的解放了她！当然，解放的远不止她一个，这本就是解放军的义务嘛。
 
-> The fact that we had ethically-conflicted scientists spinning our own intelligence community on the origins of COVID-19 tells us we have a huge problem. 
-> 
-> If we're going to prevent the next pandemic, we have to get to the bottom of this and demand better from our own government. [pic.twitter.com/f9ZRwtVu8h](https://t.co/f9ZRwtVu8h)
-> — Rep. Mike Gallagher (@RepGallagher) [June 18, 2021](https://twitter.com/RepGallagher/status/1405940115537604610?ref_src=twsrc%5Etfw)
+据悉，汤灿与中共党政军各界多位高官有染。在35岁时，经前军委副主席徐才厚运作，她破格入伍，进入了北京军区“战友文工团”，佩戴大校军衔，享受副师级待遇。而李东生出任中央电视台台长期间，为了能取悦周永康，以便日后官运亨通，将当时已大红大紫的汤灿献给了他。之后，周又将汤灿介绍给了薄熙来。
 
+汤灿被捕后，经中纪委查实，她与薄熙来、周永康、前中共公安部副部长李东生、前中共总后勤部副部长谷俊山、和前军委副主席徐才厚等十多名官员有染。汤灿不仅是这些高官的“公共情妇”，而且还为李东生和焦利结交薄熙来和周永康牵线搭桥。此外，她还通过出卖色相为薄熙来和周永康获取重要情报，并监视其他中共高官。
 
+据报道，汤灿现已出狱，并被指定安置于湖南株洲老家。现如今，经历了大起大落、也尝尽了人世间心酸坎坷的她，再也没有了往日的妖艳、倩丽。她曾游走于各色男人之间，纵欲于声色犬马之中，被哄骗、蹂躏、玩弄。在权斗、欺诈中，靠着权贵爬上了名利的巅峰，靠着肉体，写下了一部平民奋斗史，也享尽了荣华富贵。
 
-彼得·纳瓦罗： 福奇手上沾满了血。辞退福奇。
+可惜好景不长，她自认为绚丽的生命火焰，还未完全绽放，就瞬间被熄灭了。本篇只是一个小小的热身，更多、更精彩的且听郭先生下回分解。
 
+参考链接：
 
-
-> Blood on Fauci’s hands. Fire Fauci [https://t.co/VfXALIxvF3](https://t.co/VfXALIxvF3)
-> — Peter Navarro (@RealPNavarro) [June 18, 2021](https://twitter.com/RealPNavarro/status/1405939544244068357?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 你说什吗？ 【转推里福奇为自己开脱称：对于 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 泄漏说一直保持开放的心态并观察着，所以他认为说他们故意压制这一点有点曲解】
-
+1. [汤灿的更多细节被披露](https://www.epochtimes.com/gb/18/5/10/n10379881.htm)
+2. [李东生用央视美女色贿高层 汤灿成手中王牌](https://www.epochtimes.com/gb/13/12/21/n4039881.htm)
 
 
-> Say what? [https://t.co/o0gIqZUJE7](https://t.co/o0gIqZUJE7)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 18, 2021](https://twitter.com/MarshaBlackburn/status/1405683907396313089?ref_src=twsrc%5Etfw)
-
-
-
-众议员艾丽丝·斯特凡尼克： 说到底CNN（美国有线电视新闻网）是捍卫中国新闻网的。 （转推福克斯新闻：“CNN在鼓吹中共提供的新型冠状病毒疫苗接种率后被指控替中共鼓动宣传”）
-
-
-
-> So CNN does stand for China's News Network, after all. [https://t.co/TgegylGBLF](https://t.co/TgegylGBLF)
-> — Rep. Elise Stefanik (@RepStefanik) [June 18, 2021](https://twitter.com/RepStefanik/status/1405994071412383750?ref_src=twsrc%5Etfw)
-
-
+（本文仅代表作者个人观点）
 
 0

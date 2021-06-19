@@ -1,101 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议员马特·盖茨: 美国不应该与中国共产党合作
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332786/)
+## 【独立观点】欧盟与英国严格审核 致中共投资大幅缩减
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332785/)
 
-**字幕内容：**
-Rep. Matt Gaetz
-众议员马特·盖茨
+作者：纽约香草山健身部 Ivy001
 
-In a world in which all of the science that we do of consequence with China,
-在这个世界上，我们与中共国合作的所有科学成果
 
-ends up in the hands of the Chinese Communist Party and the Chinese military,
-最终都落入中国共产党和中共军队的手中
 
-like why don’t we ask the broad question,
-就像我们为什么不问广泛的问题？
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-why is the US taxpayer funding any of this.
-为什么美国纳税人要资助其中任何一项？
 
-In what world is collaboration with the Chinese Communist Party,
-在什么样的世界与中国共产党合作
 
-somehow okay and Natalie set it up perfectly.
-不知何故，好的，娜塔莉把它设定得很完美
+据统计数据显示，中共国去年对欧洲的直接投资大幅下降。根据美国荣鼎集团和柏林墨卡托中（共）国研究中心的联合报告，2020年，中共国对欧盟和英国的直接投资约为65亿欧元，与上一年相比下降了45%。这一数据是十年来的最低水平，其中，以中共对英国的投资减幅最为严重，去年流入英国的中共国直接投资减少了77%。
 
-A lot of the elites in academics in science are trying
-很多科学界的精英都在尝试
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18211000/100.jpg)图片来源：AFP
 
-to create this veneer that like, oh, well
-创造这个假象，就像，哦，好吧
+从中共投资资金的严重收缩上分析，似乎是中共通过减少投资，来表达对欧洲国家，尤其是英国的不满——因为他们都在指责中共的侵犯人权问题，以及因此对中共实施制裁。缩减投资规模，看起来像是中共以此作为对欧盟以及英国的反制裁。
 
-there’s a good CCP folks that we can work with
-我们可以与那些好的共产党人合作
+然而，实际情况却恰恰相反——是欧盟国家对来自中共国的企业并购进行了更为严格的审查，使得一些计划中的企业收购案没能实现。事实上，中共的投资一直以来都是着重于几大领域：重要的基础设施、能源行业、信息和通信行业，以及高科技行业。如果把中共的投资分开来看，似乎没有什么问题，但若把所有的数据汇总后就能明显地看出，中共在全球范围内的这几大领域都占有相当重的份额。例如：全球的媒体和自媒体背后都有着中共的影子。出于国家安全的角度考虑，各国对中共的投资真不能掉以轻心。
 
-and they’re not truly tainted.
-他们并没有真正被污染
+本年度，中共的投资还会持续下降，因为今年更多的欧盟成员国对中共或来自第三国的直接投资将施以更加严格的控制。在G7首脑峰会上，G7成员国加上欧盟已经达成共识，将一致应对来自中共的经济挑战。因此，欧洲市场更严格地审核和控制中共的投资，是必然的举措。中共将会在欧洲市场面临越来越多的限制。
 
-That is nonsense,
-那是胡说八道
+继美国之后，欧盟和英国也对中共的投资越来越审慎，其审核也越来越严格。这意味着，欧洲各国政府已经认识到中共假托投资、实质是经济侵略的真相，开始逐渐与中共经济脱钩。中共正在被逐离世界资本市场。
 
-and now it’s not only that they control
-现在，他们不仅控制了
+参考阅读：
 
-the full function and scope of research in China,
-中共国研究的全部功能和范围
+[中（共）国明显下调对欧对英投资](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210616-%E4%B8%AD%E5%9B%BD%E6%98%8E%E6%98%BE%E4%B8%8B%E8%B0%83%E5%AF%B9%E6%AC%A7%E5%AF%B9%E8%8B%B1%E6%8A%95%E8%B5%84)
 
-they are metastasizing into these global corporations
-而且他们的控制正在转移到这些全球性公司
+[紧张局势升级 中（共）国对欧投资创10年新低](https://www.voachinese.com/a/china-eu-investment-security-20210616/5931554.html)
 
-like Google like Microsoft, that are setting up assets in China,
-就像谷歌，就像微软，正在中共国设立资产的
+[美俄峰会：拜登普京会面4小时谈了什么？记者会为何提到习近平？](https://www.bbc.com/zhongwen/simp/world-57504865)
 
-subjecting these companies to those very protocols,
-让这些公司遵守那些协议
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-and they’re buying our politicians.
-他们正在收买我们的政客
+编辑/校对/发稿：Irene木木
 
-In the meantime, and I think that’s the reason
-与此同时，我认为这就是
+**更多资讯，更多关注**
 
-why we’re having such a hard time,
-为什么我们过得这么艰难
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-you know, getting to the bottom of this,
-你知道，查清这个问题的真相
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-but once we do once we really expose
-但一旦我们做到了，我们就真的暴露
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-the origins of this virus of the Wuhan Institute of virology,
-武汉病毒学研究所是这种病毒的起源的真相
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-it’s really going to, you know slaughter a lot of sacred cows,
-它真的会让很多科学界的精英跌落神坛
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-because they’re not going to be able to defend
-因为他们将无法为全国各地
 
-the research and the research cash flowing
-的这些大学的研究和研究资金
 
-through a lot of these universities all over the country.
-的流向进行辩护
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-**原视频链接**: [https://twitter.com/repmattgaetz/status/1404494616758468609?s=24](https://twitter.com/repmattgaetz/status/1404494616758468609?s=24)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

@@ -1,33 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】CGTN在英国公开招聘大学生“讲述可爱中国故事”
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1332772/)
+## 【热点播报】四名英国航空公司飞行员一周内死亡，与CCP病毒疫苗无关吗？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332771/)
 
-小象：CGTN在之前受到撤牌照和罚款之后，最近在推特和其他社交网路上却更加的活跃，而且还做了一系列宣传中国共产党的发展史的视频节目。它是中共信息核武器的其中之一队。我们可以看到，信息超限战现在已经进入了一个新的阶段。以下是这条新闻的摘要：
+作者： 纽约香草山媒体部  7bends
 
-英国《泰晤士报》16日报导，中国环球电视网今年4月发起一项“媒体挑战者”活动，在全球范围内招募记者和有影响力的互联网博主，作为中共大外宣的一部分，成功的申请人可以得到高达10000美元的奖金，并在CGTN获得兼职或全职工作，“中国官媒正在努力招募更多外国人为中共代言，以增强讯息可信度”，《泰晤士报》披露，CGTN已经盯上英国大学生，英国目前至少有利兹大学（University of Leeds）的六名学生和曼彻斯特大学（University of Manchester）的一名学生报名参加了上述活动。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
-曼彻斯特大学的那名学生说，她参加这个活动是因为自己是两名亲共网红的粉丝。据悉，那两名网红在YouTube为中共做宣传，他们在中国居住，制作视频鼓吹共产主义，但也因此饱受批评。另一亲共网红承认，他多次航海旅行、参观太空发射站及华为研究中心，都“归功于中国环球电视网”。不过在接受采访时，他又声称经费全部是自筹资金。另据德国电台“今日德国”披露，一些居住在中国的外国网红声称，他们亲自去了新疆，那里不存在强迫劳动。
 
-今年2月，中国环球电视网被英国通讯管理局（Ofcom）发现在编辑上受到中共控制，播出执照被吊销，3月，CGTN被英国处以10万英镑的罚款。
 
-澳大利亚3月宣布，暂时停播CGTN和央视CCTV4的内容；挪威4月也停播CGTN，因其再次播出央视强迫“电视认罪”节目。
 
-目前，人权团体“保护卫士”已在美国、澳大利亚、加拿大、法国等多国投诉央视及CGTN。
 
-《泰晤士报》的报导中引述英国保守党前党魁施志安（Sir Iain Duncan Smith）的呼吁表示，英国政府应该制裁CGTN，CGTN会给全英国带来危险，是潜在的共产主义者阴谋。
+[Gateway Pundit](https://www.thegatewaypundit.com/2021/06/four-healthy-british-airways-pilots-die-one-week-airline-says-no-link-covid-19-vaccine/) 6月17日报道，路透社记者向英国航空公司求证近期社交媒体流传甚广的关于四名正值壮年的英国航空公司飞行员（可能接种CCP病毒疫苗后）突然死亡一事。为此，英航目前正在与政府就是否允许接种CCP病毒疫苗的飞行员飞行进行危机谈判。据说大约80%-85%的人已被接种疫苗。英国航空公司在对路透社进行回应时证实了死亡人数，但否认与疫苗相关，也否认正在与政府进行谈判。
 
-参考链接：
 
-[https://www.soundofhope.org/post/516926?\_\_cf\_chl\_jschl\_tk\_\_=59b60f20ed8856684ad4d168b247abde34cecfef-1624063117-0-ASvfffuFTm2899nq9VhrZZGSJEcaSKR76GI8c-\_\_c6QOseRBqPdpfuJBg95y0-fsYWCFJOBV1lsJUFW5Ew14ha\_TKtQGUobQ2AOzBrMX4GQuop6-uH9QxgqFWi5xXBynGRo9YjNyCy1rKSAnlXR-wG590f5djZFDrfXwIE9mIE9Em5aJSPBwQ9EsI2vaN6xOeCUo8OSPmXfby04VRAi-ayD5lD7mi\_wp6wB50lvrCnLisvqptdmA24HQz3O0XiqczlEqbPSb8XNxgEPkMEakKBXM1wG3VhMrr-LTGfR6Ibj5ls0KRbQ\_-5C7nkTq\_wheth\_lm7aVn9BiKUhaV3IShoGGVbZF2bjCIaJIQ\_3\_ZMUM1ab0B6daywD-s3Gr2XJNnD\_QfWt7frigIg6cnEALneU](https://www.soundofhope.org/post/516926?__cf_chl_jschl_tk__=59b60f20ed8856684ad4d168b247abde34cecfef-1624063117-0-ASvfffuFTm2899nq9VhrZZGSJEcaSKR76GI8c-__c6QOseRBqPdpfuJBg95y0-fsYWCFJOBV1lsJUFW5Ew14ha_TKtQGUobQ2AOzBrMX4GQuop6-uH9QxgqFWi5xXBynGRo9YjNyCy1rKSAnlXR-wG590f5djZFDrfXwIE9mIE9Em5aJSPBwQ9EsI2vaN6xOeCUo8OSPmXfby04VRAi-ayD5lD7mi_wp6wB50lvrCnLisvqptdmA24HQz3O0XiqczlEqbPSb8XNxgEPkMEakKBXM1wG3VhMrr-LTGfR6Ibj5ls0KRbQ_-5C7nkTq_wheth_lm7aVn9BiKUhaV3IShoGGVbZF2bjCIaJIQ_3_ZMUM1ab0B6daywD-s3Gr2XJNnD_QfWt7frigIg6cnEALneU)
 
-图片来源：[https://news.have8.tv/](https://news.have8.tv/)
+> I believe it was actually FOUR young pilots who died due to the Maxine [pic.twitter.com/LkahSVOTkN](https://t.co/LkahSVOTkN)
+> — The Thing (@TheThin59129130) [June 17, 2021](https://twitter.com/TheThin59129130/status/1405468219998150658?ref_src=twsrc%5Etfw)
 
-整理撰稿：蓝精灵
 
-校对发布：Penny
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+英国航空公司6月17日在推特上例行公事般的发推文回应传闻：令人悲伤的是我们飞行员社区的四名成员最近去世了。我们的心与他们的家人和朋友同在，但社交媒体上关于这4起死亡事件相关联的传说毫无根据。
 
-0
+
+
+> Sadly four members of our pilot community passed away recently. Our thoughts are with their family and friends. However, there is no truth whatsoever in the claims on social media speculating that the four deaths are linked. Julie
+> — British Airways (@British\_Airways) [June 17, 2021](https://twitter.com/British_Airways/status/1405606519631007748?ref_src=twsrc%5Etfw)
+
+
+
+英航的回应真的那么令人信服吗？让我们看几则英航这个推文下的跟帖：
+
+- 一则跟帖说，向所有受影响的人表示诚挚的哀悼。据我了解，飞行员会定期做身体测试，你们飞行员的死亡率是正常还是不正常？
+- 另一则跟帖说，飞行员每年接受体检。此项检查包括心脏、视力、听力、大脑等。超过一定年龄，必须每六个月进行一次体检。这些飞行员以前不太可能有任何疾病。
+
+
+英航四名飞行员的突然死亡，真的与CCP病毒疫苗无关吗？
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141843/6-june.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯****，****更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场****Twitter****（****中文****）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场****Twitter****（****英文****）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+
+
+
+
+
++1
