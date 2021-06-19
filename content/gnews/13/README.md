@@ -1,15 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年6月18日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1332304/)
+## 福奇称科学家在去年2月认为中共病毒是一种人造病毒
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1332548/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+翻译：神奇四侠
 
-Dear comrades-in-arms: the high-ranking officials of the Chinese Communist Party fled. It has already begun, and the end of this year will be a peak, followed by a large number of Chinese celebrities and wealthy people flocking overseas. This is a phenomenon that will definitely happen before the collapse of the Communist Party. The recent CCP’s big foreign propaganda. Crazy attacks broke the news about the revolution…comrades in arms must maintain a high degree of vigilance!
+福奇承认，一群顶级科学家在2020年2月举行了一次秘密电话会议，他们说他们认为中共病毒可能是人工合成的病毒。本周他告诉《今日美国》，该小组在紧急电话中决定，围绕该病毒的起源情况真的需要仔细研究。
 
-[【2021年6月18日】文贵先生盖特原文](https://app.gettr.com/post/pzm3m)
+但在公开场合，福奇采取的立场是，中共该病毒在靠近中国武汉病毒研究所的华南海鲜市场中从动物自然跳到了人类。福奇现在正面临着越来越多的指责，因为他被认为在病毒的起源的问题上撒谎。
 
-**喜联盟Gnews编辑部**
+越来越多的理论认为，中共病毒并没有从动物自然跳到人类身上，而是在研究蝙蝠冠状病毒的过程中起源于武汉实验室，然后它被泄露无论是意外还是故意到这个世界上。这一理论长期以来被认为是阴谋论，但随着专家和拜登政府现在将其作为一种真实的可能性进行调查，这一理论的地位日益突出。
 
-0
+这个电话会议在此之前从未被披露过，会议是在2月1日进行的，就在世界卫生组织宣布因中共病毒进入全球卫生紧急状态和美国在1月30日将对中国的旅行警告提高到最高级别后的两天。
+
+虽然中共试图坚持认为该病毒源自其他地方，但学者、政治家和媒体已经开始考虑它从武毒所中逃脱的可能性，让人怀疑中共官员只是隐藏了早期传播的证据。因在2019年11月，即中共首次报告该病毒的几个月前，武汉实验室的三名工人因类似的症状而病重，此后实验室泄密理论得到了重视。
+
+新闻来源：[mailonline](https://www.dailymail.co.uk/news/article-9702125/Dr-Fauci-says-scientists-secret-February-2020-call-said-COVID-possibly-engineered-virus.html?ns_mchannel=rss&amp;ns_campaign=1490&amp;ito=1490)
+
+校对发稿：Ada （马德里）
+
+本文仅代表个人观点
+
++1
