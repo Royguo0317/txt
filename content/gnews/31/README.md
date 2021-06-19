@@ -1,59 +1,112 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社即时简报】习近平携中共领导人宣誓
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332942/)
+## 约翰肯尼迪参议员: 拜登总统“亲爱的，拜托，给加些糖”与中共国和世卫组织行不通
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332865/)
 
-香草山翻译部：GBW
+**字幕内容：**
 
+Brian Kilmeade (Fox News host)
+布赖恩·基尔米德（福克斯新闻主持人）
 
+Let’s see what republican senator
+让我们看看共和党参议员
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
+from Louisiana John Kennedy says
+来自路易斯安那州的约翰肯尼迪怎么说
 
+Senator, do you think China is going to allow this second investigation from the keystone cops that were unable to get the first time around？
+参议员，你认为中共会允许在第一次无法
+前往的关键调查员组织的第二次调查吗？
 
+Senator John Kennedy
+约翰肯尼迪参议员
 
-2021年6月18日晚，路博艾
+Not not under the current approach Brian uh
+不，目前不可能, 布赖恩
 
-**1. 赵立坚：探索浩瀚宇宙是全人类的梦想，中国也不例外。**
+With respect to the origin of the of the coronavirus
+关于冠状病毒的起源
 
-博博士：中（共）国的太空计划是为军事目的服务的。
+here’s what I heard President Biden do today
+这就是我今天听到拜登总统所做的事情
 
-**2. 习近平携中共领导人参观“不忘初心、牢记使命”党史展览**。
+I heard him politely ask the world health organization in China
+我听到他礼貌地向在中共国的世界卫生组织
 
-a. 路德：习近平走在最前面。王岐山最后压阵，说明他第二重要。王毅这些炮灰也参加了。
+to get to the bottom of it
+提出将事情弄清楚的要求
 
-b. 博博士：走出黑帮的气势，像邪教宣誓。
+Pretty please with sugar on top
+亲爱的，请在上面放些糖
 
-c. 艾丽：外部压力大，党心不稳。
+and that’s the typical Washington way
+这是典型的华盛顿方式
 
-**2. 塞林博士推特发了闫博士前夫Ranawaka照片和绿色贝雷帽，”在美国，他没有任何地方可以藏身，因为我们将一直追捕他。”**
+keep trying what uh doesn’t work
+继续尝试不起作用的方法
 
-a. 艾丽：整装待发，要行动了。有点最后通牒的意思。
+and when it doesn’t work again and do it some more
+当它再次不起作用时并再尝试
 
-b. 博博士：”特种部队”、”游骑兵 “和 “空降兵 “臂章需要通过所有相关的严格训练和考试。
+he’s going to have to change his approach
+他将不得不改变他的方法
 
-c. 博博士：塞林博士用“通缉犯”这个词是不是意味着立案了？
+let’s start with the world health organization
+让我们从世界卫生组织开始
 
-笔记仅作参考，内容以路德社节目为准。
+it’s president is Dr Tedros Adhanom Ghebreyesus from Ethiopia
+它的主席是来自埃塞俄比亚的谭德塞博士
 
-视频链接：[https://www.youtube.com/watch?v=68sjIA4Pbog](https://www.youtube.com/watch?v=68sjIA4Pbog)
+Dr. Tedros hums the Chinese national anthem in the shower uh
+谭德塞博士在洗澡时哼着中共国国歌
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+he loves President Xi Jinping like the devil loves sin
+他爱习近平主席就像魔鬼爱罪恶
 
-编辑/校对/发稿：正义的小新
+if president Xi told Dr. Tedros to join the Taliban
+如果习近平主席告诉谭德塞博士加入塔利班
 
-**更多资讯，更多关注**
+he would say where’s the line
+他会说：在哪里排队？
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+the only way to get him to do his job
+让谭德塞完成工作的唯一方法
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+is for President Biden to sit him down
+是拜登总统让他坐下来
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+and say look Dr. Tedros
+并说：听着，谭德塞博士
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+the American people pay your salary
+美国人民支付你的工资
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+the American taxpayer puts up 900 million dollars every two years
+美国纳税人每两年投入 9 亿美元
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+we’re your biggest financial contributor uh
+我们是你最大的资金贡献者
+
+either do your job or we’re going to withhold the money
+要么做你的工作，要么我们将扣留这笔钱
+
+and if that offends you
+如果这冒犯了你
+
+I will help you pack
+我会帮你打铺盖卷的
+
+原视频链接: [https://twitter.com/senjohnkennedy/status/1405544403083612160?s=24](https://twitter.com/senjohnkennedy/status/1405544403083612160?s=24)
+英听校：康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

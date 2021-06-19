@@ -1,57 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】CCP下地狱
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1332836/)
+## 2021年6月17日灭共要闻
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1332924/)
 
-作者：纽约香草山健身部 Artemis
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18215850/%E7%81%AD%E4%B8%80%E7%BB%84%E5%B0%81%E9%9D%A2-10.jpg)
 
 
+[播放视频](https://gtv.org/video/id=60cd45a3b96c69573d81e9d4)
 
-霹雷一声震天响，震醒毛腊肉，质问习脑残：一百八十国联盟无人机，为何要斩首你？
+主要内容：
 
-习脑残答：你个死腊肉懂个屁，我要称霸世界。如今我君临天下，必须要超越你！你毛腊肉也就只能统治中共国，我要当世界一尊，统治全世界。
+病毒来自自然的可能性仅为130亿分之一；
 
-毛腊肉又质问习脑残：你用什么手段把中共国的红旗插遍全世界？
+福奇以“科学”的名义打压羟氯喹究竟为何？
 
-习脑残歇斯底里的叫喊到：我已经用假、骗、偷、蓝、金、黄占领美国和欧洲；我制造病毒超限战武器杀遍全世界。
+拜登澄清：与习近平并不是老朋友；
 
-就在这时，瞬间一道闪电——一百八十国联盟，兵临城下捉拿习脑残。天线习脑残，秒变青烟缈缈。
+捷克议会谴责中国对维吾尔人犯下严重种族绝灭罪；
 
-![]()![](https://media.discordapp.net/attachments/721544615953432698/849859127411736576/1.2016-2017-cn.JPG?width=1083&amp;height=609)
+香港国安法：警方二度搜查《苹果日报》总编辑等五人涉嫌“勾结外国势力”被拘捕
 
-爆料革命勇士们将自由女神像安放在北京天安门广场，安放在上海黄浦江畔，安放在香港时代广场。
-
-新中国联邦的旗帜飘扬在祖国的大江南北。
-
-新国际秩序让世界再次繁荣，新中国联邦人共享和平！
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
-
-校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
-
-
+**By**：【秘翻组**–**上天造灭疫组】
 
 0

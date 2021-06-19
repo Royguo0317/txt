@@ -1,65 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】四名英国航空公司飞行员一周内死亡，与CCP病毒疫苗无关吗？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332771/)
+## 众议员马特·盖茨: 美国不应该与中国共产党合作
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332786/)
 
-作者： 纽约香草山媒体部  7bends
+**字幕内容：**
+Rep. Matt Gaetz
+众议员马特·盖茨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+In a world in which all of the science that we do of consequence with China,
+在这个世界上，我们与中共国合作的所有科学成果
 
+ends up in the hands of the Chinese Communist Party and the Chinese military,
+最终都落入中国共产党和中共军队的手中
 
+like why don’t we ask the broad question,
+就像我们为什么不问广泛的问题？
 
+why is the US taxpayer funding any of this.
+为什么美国纳税人要资助其中任何一项？
 
+In what world is collaboration with the Chinese Communist Party,
+在什么样的世界与中国共产党合作
 
-[Gateway Pundit](https://www.thegatewaypundit.com/2021/06/four-healthy-british-airways-pilots-die-one-week-airline-says-no-link-covid-19-vaccine/) 6月17日报道，路透社记者向英国航空公司求证近期社交媒体流传甚广的关于四名正值壮年的英国航空公司飞行员（可能接种CCP病毒疫苗后）突然死亡一事。为此，英航目前正在与政府就是否允许接种CCP病毒疫苗的飞行员飞行进行危机谈判。据说大约80%-85%的人已被接种疫苗。英国航空公司在对路透社进行回应时证实了死亡人数，但否认与疫苗相关，也否认正在与政府进行谈判。
+somehow okay and Natalie set it up perfectly.
+不知何故，好的，娜塔莉把它设定得很完美
 
+A lot of the elites in academics in science are trying
+很多科学界的精英都在尝试
 
+to create this veneer that like, oh, well
+创造这个假象，就像，哦，好吧
 
-> I believe it was actually FOUR young pilots who died due to the Maxine [pic.twitter.com/LkahSVOTkN](https://t.co/LkahSVOTkN)
-> — The Thing (@TheThin59129130) [June 17, 2021](https://twitter.com/TheThin59129130/status/1405468219998150658?ref_src=twsrc%5Etfw)
+there’s a good CCP folks that we can work with
+我们可以与那些好的共产党人合作
 
+and they’re not truly tainted.
+他们并没有真正被污染
 
+That is nonsense,
+那是胡说八道
 
-英国航空公司6月17日在推特上例行公事般的发推文回应传闻：令人悲伤的是我们飞行员社区的四名成员最近去世了。我们的心与他们的家人和朋友同在，但社交媒体上关于这4起死亡事件相关联的传说毫无根据。
+and now it’s not only that they control
+现在，他们不仅控制了
 
+the full function and scope of research in China,
+中共国研究的全部功能和范围
 
+they are metastasizing into these global corporations
+而且他们的控制正在转移到这些全球性公司
 
-> Sadly four members of our pilot community passed away recently. Our thoughts are with their family and friends. However, there is no truth whatsoever in the claims on social media speculating that the four deaths are linked. Julie
-> — British Airways (@British\_Airways) [June 17, 2021](https://twitter.com/British_Airways/status/1405606519631007748?ref_src=twsrc%5Etfw)
+like Google like Microsoft, that are setting up assets in China,
+就像谷歌，就像微软，正在中共国设立资产的
 
+subjecting these companies to those very protocols,
+让这些公司遵守那些协议
 
+and they’re buying our politicians.
+他们正在收买我们的政客
 
-英航的回应真的那么令人信服吗？让我们看几则英航这个推文下的跟帖：
+In the meantime, and I think that’s the reason
+与此同时，我认为这就是
 
-- 一则跟帖说，向所有受影响的人表示诚挚的哀悼。据我了解，飞行员会定期做身体测试，你们飞行员的死亡率是正常还是不正常？
-- 另一则跟帖说，飞行员每年接受体检。此项检查包括心脏、视力、听力、大脑等。超过一定年龄，必须每六个月进行一次体检。这些飞行员以前不太可能有任何疾病。
+why we’re having such a hard time,
+为什么我们过得这么艰难
 
+you know, getting to the bottom of this,
+你知道，查清这个问题的真相
 
-英航四名飞行员的突然死亡，真的与CCP病毒疫苗无关吗？
+but once we do once we really expose
+但一旦我们做到了，我们就真的暴露
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141843/6-june.jpg)
+the origins of this virus of the Wuhan Institute of virology,
+武汉病毒学研究所是这种病毒的起源的真相
 
-编辑/校对/发稿：小鹿
+it’s really going to, you know slaughter a lot of sacred cows,
+它真的会让很多科学界的精英跌落神坛
 
+because they’re not going to be able to defend
+因为他们将无法为全国各地
 
+the research and the research cash flowing
+的这些大学的研究和研究资金
 
-**更多资讯****，****更多关注**
+through a lot of these universities all over the country.
+的流向进行辩护
 
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+**原视频链接**: [https://twitter.com/repmattgaetz/status/1404494616758468609?s=24](https://twitter.com/repmattgaetz/status/1404494616758468609?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
 
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-[**纽约香草山农场****Twitter****（****中文****）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场****Twitter****（****英文****）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
-
-
-
-
-
-+1
+0

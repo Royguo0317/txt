@@ -1,44 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】端午幻生缘
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1333185/)
+## 《路德社》精选新闻简讯： 五名中共国科学家面临美国签证欺诈指控
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1333210/)
 
-配音：香草山录音组 Swr拥抱太阳
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19002518/image001-28.jpg)
+美国司法部发起了“中共国行动”，以阻止中共公司窃取美国商业机密。 五名中共国科学家因涉嫌隐瞒其中共军队背景而被控签证欺诈。 其中四人面临额外指控。 所有人均不认罪并获准保释； 其中三人审判日期已定。 这五名科学家在加利福尼亚和印第安纳州被捕。 “中共国行动”于 2018 年底启动，旨在阻止中国公司窃取商业机密。
 
 
 
-端午中日焰
-浴花圃园间
-灰影叶间动
-惊喜野雀缘
+[原文引用](https://www.reuters.com/world/china/five-chinese-scientists-face-us-visa-fraud-charges-2021-06-17/)
 
+本文作者：Rebecca (一切心皆不可得 ! )
 
+审核校对：sherryok (水云间)
 
-**文字版原文：[【香草诗词汇】端午幻生缘](https://gnews.org/zh-hans/1323394/)**
+上传排版：糊糊文婴
 
-作者：纽约香草山医疗部 云豹
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

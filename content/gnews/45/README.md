@@ -1,170 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 阴谋论…大流行病模拟推演
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332706/)
+## 【小象搬运】加拿大前官员认为是时候考虑进军国外谍报领域
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1332727/)
 
-**字幕内容：**
+小象：加拿大作为地理位置优越的温和派，依赖五眼联盟成员身份，一直在国际事物上占据重要的角色。据新兴媒体GTV和GNEWS报道，加拿大还是被中国共产党渗透的最为厉害的国家。前任和现任政府一直以来和中共保持暧昧关系，在扣留华为孟晚舟之后，孟被要求引渡到美国，部分因为她参与了与伊朗的敏感交易，加拿大在中共的两名前外交官和商人即被中共拘禁至今。以下是作者哈利法克斯发表的一篇文章，这篇文章今天在加拿大的大报上发表，以下是部分摘要：
 
-On behalf of our partners, the Bill and Melinda Gates Foundation
-代表我们的合作伙伴比尔和梅琳达·盖茨基金会
+加拿大情报界资深人士正公开倡议进军境外谍报活动。曾担任情报要职的三名退休政府官员本月在加拿大最著名的全国大报上发文表示，加拿大政府应该探索专门建立一个类似于美国中央情报局（CIA）或英国军情六处（MI6）这种机构的可能性。
 
-event 201（Pandemic simulation exercise）took place five months before COVID-19 was declared a pandemic.
-“事件 201” （大流行病模拟推演）发生在 COVID-19 被宣布为大流行之前五个月
+对加拿大来说，收集外国情报从来不是优先事项，因为加拿大东西两边都是广阔的海洋，南部是友好邻邦，地理位置安全。甚至连铲除加拿大境内外国间谍的工作，也在很长一段时间内都留给了华丽耀眼的加拿大皇家骑警（RCMP）—— 他们在国际上更出名的是他们的礼服式红色上衣和斯特森帽。加拿大皇家骑警于1984年卸下了这一反间谍职务，当时加拿大成立了加拿大安全情报局（CSIS）。但即使是该机构也在很大程度上仅限于反间谍角色，其立法授权是“在加拿大境内”运作。虽然加拿大安全情报局确实有一些驻扎海外的人员，但加拿大收集到的有关其他国家政府意图的大部分信息来自公共信源、“信号情报”（SIGINT）或电子监控（ELINT）以及来自其外交使团的报告。主要途径是它在“五眼联盟”（Five Eyes）中的成员国身份。“五眼联盟”是一个情报分享合作联盟，其他成员包括美国、英国、澳大利亚和新西兰。
 
-The participants of the event are some of the same people
-活动的参与者是一些相同的人
+这几位发起人认为加拿大建立起外国情报收集能力只会改善与盟友的关系。“当我们的盟友投入资源发展国安事务能力，美国也会受益，” 普拉斯特对美国之音说。“在加拿大新成立一个人力情报组织，与美国同行一同培训和协调工作，这将对两国都有战略上的好处。”
 
-that are now deeply involved in the real pandemic
-现在深深卷入了真正的大流行病
+琼斯和他两位同事共同撰写的这篇评论文章没有触及一个关键问题——如果加拿大从事境外谍报活动，他们刺探情报的对象是谁？琼斯承认，相比其盟友澳大利亚，加拿大在地理位置上没有专项优势。澳大利亚将亚洲作为其情报工作的主业务区，将此地区的情报分享给“五眼联盟”不过，当被问及一个想在情报界觅职的加拿大年轻人应该学些什么时，琼斯说，“我会学汉语、俄语或阿拉伯语。无论哪个政府掌权，世界上有些地区始终会是加拿大持久感兴趣的地方。”
 
-and profiting from it as well,
-并也从中获利的
+参考链接：
 
-an event of this complexity and magnitude
-如此复杂和规模的事件
+[https://www.voachinese.com/a/canada-ponders-entry-into-world-of-foreign-espionage/5934553.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/canada-ponders-entry-into-world-of-foreign-espionage/5934553.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
 
-will take months to write prep and produce.
-将需要几个月的时间来准备和制作
+整理撰稿：蓝精灵
 
-Dr. Anthony Fauci
-安东尼·福奇博士
+校对发布：Penny
 
-“There is no question that there will be a surprise outbreak. ”
-“毫无疑问，会有突然的流行病爆发。 ”
-
-Even Bill Gates, a man with no medical training knew it was coming.
-甚至连比尔盖茨，一个没有受过医学训练的人也知道它会来
-
-Bill Gates
-比尔 盖茨
-
-“If we start now, we can be ready for the next epidemic.”
-“如果我们现在开始，我们就可以为下一个流行病做好准备。”
-
-Every single thing that you have seen play out in front of your eyes
-你所看到的每一件事都在你眼前上演了
-
-all of them laid out in their tabletop exercise,
-都在他们的桌面推演中铺开
-
-which by the way fact checkers have said,
-顺便说一下，事实核查员说过
-
-has nothing to do with the Coronavirus outbreak,
-这与冠状病毒爆发无关
-
-just happenstance, this is that wonderful universe of improbabilities
-只是偶然，这就是不可思议的奇妙宇宙
-
-where events just co emerge,
-事件刚刚出现的地方
-
-and the nature conveniently backs itself into our architecture.
-自然方便地将自己融入我们的建筑中
-
-Trees have banned travel from the worst affected areas,
-已经禁止在受影响最严重的地区旅行
-
-Vice President Mike Pence
-副总统迈克·彭斯
-
-“President has made a decision to suspend all travel to the United Kingdom and Ireland”
-“总统已决定暂停所有前往英国和爱尔兰的旅行”
-
-this and misinformation circulating over the internet
-这和在互联网上传播的错误信息
-
-across the world misinformation about the virus is being shared online,
-世界各地有关该病毒的错误信息正在网上共享
-
-a significant demand for N95 masks and gloves are on the rise,
-对 N95口罩和手套的大量需求正在上升
-
-the demand for N95 masks to prevent the deadly airborne virus has surged,
-为防止致命的空气传播病毒对 N95 口罩的需求激增
-
-we could eventually have 52 million treatment courses per year,
-我们最终可以每年有 5200 万个治疗疗程
-
-but it will take many months to get there,
-但要达到那个需要好几个月的时间
-
-we’re still many months out from having something
-我们还有很多个月才能拥有一些东西
-
-that we can really deploy to the public
-我们可以真正部署到公众
-
-and 65% of those fold are eager to take the vaccine,
-而且65% 的人渴望接种疫苗
-
-even if it’s experimental.
-即使它是实验性的
-
-The new poll finds that 49% of Americans say
-新的民意调查发现 49% 的美国人说
-
-they would get a COVID-19 vaccine
-他们会接种 COVID-19 疫苗
-
-shouldn’t effective one be discovered.
-不应该发现一个有效的
-
-I’m curious, who wrote the event 201 script.
-我很好奇，谁编写了“事件 201 ” 的脚本
-
-The visionaries of the event knew,
-事件的有远见的人已经知道
-
-at least one year in advance what was needed.
-至少提前一年需要什么
-
-Why didn’t they take care of those things.
-他们为什么不处理这些事情
-
-Considering the Bill Gates has donated half of his fortune to make the world safer.
-考虑到比尔盖茨已经捐赠了他一半的财富来让世界更安全
-
-Why didn’t you help to better prepare our hospitals and frontline workers.
-你为什么不帮助我们的医院和一线工作人员更好地做好准备
-
-Why didn’t any of the events wealthy sponsors do something.
-为什么有钱的赞助商没有做点什么
-
-Bill Gates
-比尔 盖茨
-
-“Now here we are in, we didn’t simulate this, we didn’t practice”
-“现在我们在这里，我们没有模拟这个，我们没有练习”
-
-Unknown female speaker
-不知名女演讲者
-
-on behalf of our partners in the Bill and Melinda Gates Foundation,
-代表我们在比尔和梅琳达·盖茨基金会的合作伙伴
-
-Bill Gates
-比尔 盖茨
-
-“so both the health policies and economic policies,
-“所以无论是卫生政策还是经济政策
-
-we find ourselves in unchartered territory.”
-我们都发现自己处于未知领域。”
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接**: [https://twitter.com/heidegger79/status/1404356483563851776?s=24](https://twitter.com/heidegger79/status/1404356483563851776?s=24)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

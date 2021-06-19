@@ -1,54 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】美丽刺剑
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1333246/)
+## 【小象快讯】独家谷歌广告技术业务年底前将面临欧盟正式调查
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1333242/)
 
-配音：香草山录音组 Swr拥抱太阳
+小象：谷歌在赚足了眼球，树立了牌坊之后退出中国市场，但是之后的十几年仍旧一直有谷歌代理商的生意，这是中国红色共产主义者开出的交换条件：我们一起把墙盖起来，我代理你，利润我们一起分。这也是中共在加入WTO之后的最重要的运营模式。它用了一种表面上是一个开放的大水池，谁都可以来水池里舀水，实质上只开放了有个红色阀门的水龙头而已。西方的科技巨头一直迷信中共所描绘的巨大的市场，同时在开放这个大市场的同时，设置了各种的交换条件。谷歌在西方市场可是享受不到这个待遇的。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+路透社今天发出了一篇消息：其中一位知情人士表示，欧盟的调查将重点关注谷歌相对于广告商、出版商、中间商和竞争对手的立场，这表明其审查比法国反垄断机构上周结束的案件更深入。谷歌去年从在线广告中获得了 1470 亿美元的收入，超过世界上任何其他公司。其资产（包括搜索、YouTube 和 Gmail）上的广告占销售额和利润的大部分。大约 16% 的收入来自其展示或网络业务，其中其他媒体公司使用 Google 技术在其网站和应用程序上销售广告。
 
+去年，美国司法部与一些州一起起诉谷歌滥用其在搜索广告中的主导地位。德克萨斯州领导的一组州在后来的诉讼中重点关注房屋网络方面的反竞争行为。上周，法国以 2.68 亿美元和谷歌就与网络业务相关的类似指控和各种承诺达成和解，作为几天后达成的和解协议的一部分，该部门还必须与英国竞争监管机构就即将进行的软件变更密切合作。
 
+委员会拒绝置评。谷歌没有立即回应置评请求。
 
+一项新的欧盟调查最终可能会针对谷歌的所有广告帝国。市场研究机构 eMarketer 预计，今年谷歌将控制全球 27% 的在线广告支出，其中包括 57% 的搜索广告和 10% 的展示广告。
 
+虽然乍一看这些数字可能并不具有垄断性，但广告商和竞争对手争辩说，谷歌的各种软件在市场的许多方面都发挥着作用，该公司无法避免。他们表示，谷歌利用买家、卖家和中介对其的依赖，从各方收取高额费用，并阻止竞争对手与其公平竞争。在今年早些时候发送给谷歌竞争对手和第三方并由路透社看到的问卷中，欧盟监管机构询问广告商在使用谷歌中间商时是否会收到回扣，谷歌中间商允许广告商或媒体代理从多个来源购买广告库存。
 
-玫瑰花
-属蔷薇目
-原产地中国
-别名
-徘徊花
-刺玫花
-狗玫花
-穿心玫瑰
-篱笆玫瑰
-…..
-这些名字中
-独尊
-刺玫花
-– -刺客
+小象补充资料：
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19005211/4-9.png)
 
+谷歌中国营销渠道分为三个部分，一是谷歌在线，广告客户自己开户自己投放广告；二是谷歌中国内部设有大客户部，专门负责全球500强等大企业的网络广告投放；三是授权代理商渠道，也是谷歌的长尾经营模式的核心所在。目前谷歌在国内有26家授权代理商，其中北京、上海和广东的6家授权代理商的规模和收入都是最大的，这6家分别是中企动力、中资源、火速、天擎、天拓和时代赢客。其中天拓和时代赢客负责的广东区域大约有8000~9000个活跃客户，每个客户每年在谷歌上的广告投入在3万元左右。
 
-**文字版原文：[【香草诗词汇】美丽刺剑](https://gnews.org/zh-hans/1326669/)**
+参考链接：
 
-作者：纽约香草山健身部 澄道
+[https://www.reuters.com/technology/eu-antitrust-regulators-probe-googles-adtech-business-by-year-end-sources-2021-06-18/](https://www.reuters.com/technology/eu-antitrust-regulators-probe-googles-adtech-business-by-year-end-sources-2021-06-18/)
 
+整理撰稿：蓝精灵
 
+校对发布：Penny
 
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

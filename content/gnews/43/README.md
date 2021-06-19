@@ -1,33 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】CGTN在英国公开招聘大学生“讲述可爱中国故事”
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1332772/)
+## 《路德时评》重磅解读布林肯说WHO报告漏洞百出，及大批九层妖塔将在八月底前暴露
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1332766/)
 
-小象：CGTN在之前受到撤牌照和罚款之后，最近在推特和其他社交网路上却更加的活跃，而且还做了一系列宣传中国共产党的发展史的视频节目。它是中共信息核武器的其中之一队。我们可以看到，信息超限战现在已经进入了一个新的阶段。以下是这条新闻的摘要：
+直播视频：
 
-英国《泰晤士报》16日报导，中国环球电视网今年4月发起一项“媒体挑战者”活动，在全球范围内招募记者和有影响力的互联网博主，作为中共大外宣的一部分，成功的申请人可以得到高达10000美元的奖金，并在CGTN获得兼职或全职工作，“中国官媒正在努力招募更多外国人为中共代言，以增强讯息可信度”，《泰晤士报》披露，CGTN已经盯上英国大学生，英国目前至少有利兹大学（University of Leeds）的六名学生和曼彻斯特大学（University of Manchester）的一名学生报名参加了上述活动。
 
-曼彻斯特大学的那名学生说，她参加这个活动是因为自己是两名亲共网红的粉丝。据悉，那两名网红在YouTube为中共做宣传，他们在中国居住，制作视频鼓吹共产主义，但也因此饱受批评。另一亲共网红承认，他多次航海旅行、参观太空发射站及华为研究中心，都“归功于中国环球电视网”。不过在接受采访时，他又声称经费全部是自筹资金。另据德国电台“今日德国”披露，一些居住在中国的外国网红声称，他们亲自去了新疆，那里不存在强迫劳动。
 
-今年2月，中国环球电视网被英国通讯管理局（Ofcom）发现在编辑上受到中共控制，播出执照被吊销，3月，CGTN被英国处以10万英镑的罚款。
+《路德时评》2021年6月18日早间节目主要内容：
 
-澳大利亚3月宣布，暂时停播CGTN和央视CCTV4的内容；挪威4月也停播CGTN，因其再次播出央视强迫“电视认罪”节目。
+**· **布林肯说WHO报告漏洞百出，及大批九层妖塔将在八月底前暴露
 
-目前，人权团体“保护卫士”已在美国、澳大利亚、加拿大、法国等多国投诉央视及CGTN。
+里奇埃德森：美国和欧盟呼吁世卫组织发起的COVID-19病毒起源第二阶段调查能够在透明、基于证据并且由专家主导，不受任何因素干扰的情况下取得进展。国务卿安东尼·布林肯称世界卫生组织的第一次调查漏洞百出，并且重申要向中共国追责。美国情报委员会正在对病毒来源真相展开独立调查，调查将于八月底截止。
 
-《泰晤士报》的报导中引述英国保守党前党魁施志安（Sir Iain Duncan Smith）的呼吁表示，英国政府应该制裁CGTN，CGTN会给全英国带来危险，是潜在的共产主义者阴谋。
 
-参考链接：
 
-[https://www.soundofhope.org/post/516926?\_\_cf\_chl\_jschl\_tk\_\_=59b60f20ed8856684ad4d168b247abde34cecfef-1624063117-0-ASvfffuFTm2899nq9VhrZZGSJEcaSKR76GI8c-\_\_c6QOseRBqPdpfuJBg95y0-fsYWCFJOBV1lsJUFW5Ew14ha\_TKtQGUobQ2AOzBrMX4GQuop6-uH9QxgqFWi5xXBynGRo9YjNyCy1rKSAnlXR-wG590f5djZFDrfXwIE9mIE9Em5aJSPBwQ9EsI2vaN6xOeCUo8OSPmXfby04VRAi-ayD5lD7mi\_wp6wB50lvrCnLisvqptdmA24HQz3O0XiqczlEqbPSb8XNxgEPkMEakKBXM1wG3VhMrr-LTGfR6Ibj5ls0KRbQ\_-5C7nkTq\_wheth\_lm7aVn9BiKUhaV3IShoGGVbZF2bjCIaJIQ\_3\_ZMUM1ab0B6daywD-s3Gr2XJNnD\_QfWt7frigIg6cnEALneU](https://www.soundofhope.org/post/516926?__cf_chl_jschl_tk__=59b60f20ed8856684ad4d168b247abde34cecfef-1624063117-0-ASvfffuFTm2899nq9VhrZZGSJEcaSKR76GI8c-__c6QOseRBqPdpfuJBg95y0-fsYWCFJOBV1lsJUFW5Ew14ha_TKtQGUobQ2AOzBrMX4GQuop6-uH9QxgqFWi5xXBynGRo9YjNyCy1rKSAnlXR-wG590f5djZFDrfXwIE9mIE9Em5aJSPBwQ9EsI2vaN6xOeCUo8OSPmXfby04VRAi-ayD5lD7mi_wp6wB50lvrCnLisvqptdmA24HQz3O0XiqczlEqbPSb8XNxgEPkMEakKBXM1wG3VhMrr-LTGfR6Ibj5ls0KRbQ_-5C7nkTq_wheth_lm7aVn9BiKUhaV3IShoGGVbZF2bjCIaJIQ_3_ZMUM1ab0B6daywD-s3Gr2XJNnD_QfWt7frigIg6cnEALneU)
+> 里奇埃德森：美国和欧盟呼吁世卫组织发起的COVID-19病毒起源第二阶段调查能够在透明、基于证据并且由专家主导，不受任何因素干扰的情况下取得进展。国务卿安东尼·布林肯称世界卫生组织的第一次调查漏洞百出，并且重申要向中共国追责。 [pic.twitter.com/srmJb3nKmM](https://t.co/srmJb3nKmM)
+> — GT64 (@GT64\_1) [June 17, 2021](https://twitter.com/GT64_1/status/1405498373088550920?ref_src=twsrc%5Etfw)
 
-图片来源：[https://news.have8.tv/](https://news.have8.tv/)
 
-整理撰稿：蓝精灵
 
-校对发布：Penny
+路德社评论：
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+1、WHO发布病毒调查报告时，爆料革命路德社第一时间就指出该报告漏洞百出，布林肯现在也确认该调查报告漏洞百出，结论不具有可信度。八月底，美国情报部门即将公布病毒调查真相，中共九层妖塔到时都将暴露。中共近日对外放出王岐山叛逃的假消息之后，中共再次放出国安副部长董经纬叛逃的假消息，像Tucker、Dailymail、Zerohedge和大纪元这些外媒纷纷跟进报道这条假新闻，这将对海外媒体信誉产生巨大影响，如果中共党内未来确实发生大事，这海外媒体因害怕信用受损就不敢进行报道了。
 
-0
+2、中共一直动用大量水军在中文和英文世界搅混水，中共现在开始利用董经纬叛逃的假消息抹黑海外媒体，从而打击它们的信誉度，这样就可以彻底否认这些媒体对病毒真相的报道。如果爆料革命听信这些谣言，那就中了中共的诡计，中共未来就可以借此说爆料革命揭露的病毒真相纯是造谣抹黑。
+
+3、这些宣传王岐山和董经纬叛逃的假民运分子基本不宣传闫博士的三份病毒科学报告，他们早已经被中共收买，并且帮中共混淆视听。闫博士的三份报告就是揭露中共病毒最权威的报告，依据这三份报告可以直接给中共定罪。只要是事实和科学就必须经得起质疑，爆料革命路德社119节目揭露中共病毒真相就是最重要的证据之一，119节目揭露的病毒真相不仅经受住各方的质疑，最终也都被验证。
+
+4、闫博士报告揭露了福奇、打杂客和安德森等美国科学家与中共勾兑的丑事，美国媒体和FBI随即也跟进调查，这就为闫博士报告建立起影响力，Sellin上校发的推特也是如此，给美国媒体和调查部门提供了线索。闫博士报告已经得到美国最重要部门官员的认定，所有跳出来抨击闫博士的人都有可能被美国相关部门调查。
+
+5、事实不仅要经得起验证，还必须经得起质疑。中共虽然可以通过造假来验证此前的承诺，但是中共经不起质疑，任何经不起质疑的验证都是耍流氓。爆料革命宁要阳光下的瑕疵，不要阴暗下的完美，而中共就是那阴暗下的完美。
+
+6、当闫博士揭露中共病毒真相后，中共病毒如果不来自中共实验室，中共完全可以用科学的方式反驳闫博士，根本不用抓捕闫博士的家人，这恰恰说明中共做贼心虚，而爆料革命所揭露的真相就经得起所有质疑，不论中共如何搅混水也不可能动摇爆料革命认定事实真相的信心。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+文章撰写：【重生】  编辑：【香柏树】
+
+本文仅代表作者个人观点
+
++3

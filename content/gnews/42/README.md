@@ -1,44 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读布林肯说WHO报告漏洞百出，及大批九层妖塔将在八月底前暴露
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1332766/)
+## 【热点播报】四名英国航空公司飞行员一周内死亡，与CCP病毒疫苗无关吗？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332771/)
 
-直播视频：
+作者： 纽约香草山媒体部  7bends
 
-
-
-《路德时评》2021年6月18日早间节目主要内容：
-
-**· **布林肯说WHO报告漏洞百出，及大批九层妖塔将在八月底前暴露
-
-里奇埃德森：美国和欧盟呼吁世卫组织发起的COVID-19病毒起源第二阶段调查能够在透明、基于证据并且由专家主导，不受任何因素干扰的情况下取得进展。国务卿安东尼·布林肯称世界卫生组织的第一次调查漏洞百出，并且重申要向中共国追责。美国情报委员会正在对病毒来源真相展开独立调查，调查将于八月底截止。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
 
 
-> 里奇埃德森：美国和欧盟呼吁世卫组织发起的COVID-19病毒起源第二阶段调查能够在透明、基于证据并且由专家主导，不受任何因素干扰的情况下取得进展。国务卿安东尼·布林肯称世界卫生组织的第一次调查漏洞百出，并且重申要向中共国追责。 [pic.twitter.com/srmJb3nKmM](https://t.co/srmJb3nKmM)
-> — GT64 (@GT64\_1) [June 17, 2021](https://twitter.com/GT64_1/status/1405498373088550920?ref_src=twsrc%5Etfw)
+
+
+[Gateway Pundit](https://www.thegatewaypundit.com/2021/06/four-healthy-british-airways-pilots-die-one-week-airline-says-no-link-covid-19-vaccine/) 6月17日报道，路透社记者向英国航空公司求证近期社交媒体流传甚广的关于四名正值壮年的英国航空公司飞行员（可能接种CCP病毒疫苗后）突然死亡一事。为此，英航目前正在与政府就是否允许接种CCP病毒疫苗的飞行员飞行进行危机谈判。据说大约80%-85%的人已被接种疫苗。英国航空公司在对路透社进行回应时证实了死亡人数，但否认与疫苗相关，也否认正在与政府进行谈判。
 
 
 
-路德社评论：
+> I believe it was actually FOUR young pilots who died due to the Maxine [pic.twitter.com/LkahSVOTkN](https://t.co/LkahSVOTkN)
+> — The Thing (@TheThin59129130) [June 17, 2021](https://twitter.com/TheThin59129130/status/1405468219998150658?ref_src=twsrc%5Etfw)
 
-1、WHO发布病毒调查报告时，爆料革命路德社第一时间就指出该报告漏洞百出，布林肯现在也确认该调查报告漏洞百出，结论不具有可信度。八月底，美国情报部门即将公布病毒调查真相，中共九层妖塔到时都将暴露。中共近日对外放出王岐山叛逃的假消息之后，中共再次放出国安副部长董经纬叛逃的假消息，像Tucker、Dailymail、Zerohedge和大纪元这些外媒纷纷跟进报道这条假新闻，这将对海外媒体信誉产生巨大影响，如果中共党内未来确实发生大事，这海外媒体因害怕信用受损就不敢进行报道了。
 
-2、中共一直动用大量水军在中文和英文世界搅混水，中共现在开始利用董经纬叛逃的假消息抹黑海外媒体，从而打击它们的信誉度，这样就可以彻底否认这些媒体对病毒真相的报道。如果爆料革命听信这些谣言，那就中了中共的诡计，中共未来就可以借此说爆料革命揭露的病毒真相纯是造谣抹黑。
 
-3、这些宣传王岐山和董经纬叛逃的假民运分子基本不宣传闫博士的三份病毒科学报告，他们早已经被中共收买，并且帮中共混淆视听。闫博士的三份报告就是揭露中共病毒最权威的报告，依据这三份报告可以直接给中共定罪。只要是事实和科学就必须经得起质疑，爆料革命路德社119节目揭露中共病毒真相就是最重要的证据之一，119节目揭露的病毒真相不仅经受住各方的质疑，最终也都被验证。
+英国航空公司6月17日在推特上例行公事般的发推文回应传闻：令人悲伤的是我们飞行员社区的四名成员最近去世了。我们的心与他们的家人和朋友同在，但社交媒体上关于这4起死亡事件相关联的传说毫无根据。
 
-4、闫博士报告揭露了福奇、打杂客和安德森等美国科学家与中共勾兑的丑事，美国媒体和FBI随即也跟进调查，这就为闫博士报告建立起影响力，Sellin上校发的推特也是如此，给美国媒体和调查部门提供了线索。闫博士报告已经得到美国最重要部门官员的认定，所有跳出来抨击闫博士的人都有可能被美国相关部门调查。
 
-5、事实不仅要经得起验证，还必须经得起质疑。中共虽然可以通过造假来验证此前的承诺，但是中共经不起质疑，任何经不起质疑的验证都是耍流氓。爆料革命宁要阳光下的瑕疵，不要阴暗下的完美，而中共就是那阴暗下的完美。
 
-6、当闫博士揭露中共病毒真相后，中共病毒如果不来自中共实验室，中共完全可以用科学的方式反驳闫博士，根本不用抓捕闫博士的家人，这恰恰说明中共做贼心虚，而爆料革命所揭露的真相就经得起所有质疑，不论中共如何搅混水也不可能动摇爆料革命认定事实真相的信心。
+> Sadly four members of our pilot community passed away recently. Our thoughts are with their family and friends. However, there is no truth whatsoever in the claims on social media speculating that the four deaths are linked. Julie
+> — British Airways (@British\_Airways) [June 17, 2021](https://twitter.com/British_Airways/status/1405606519631007748?ref_src=twsrc%5Etfw)
 
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
 
-文章撰写：【重生】  编辑：【香柏树】
 
-本文仅代表作者个人观点
+英航的回应真的那么令人信服吗？让我们看几则英航这个推文下的跟帖：
 
-+3
+- 一则跟帖说，向所有受影响的人表示诚挚的哀悼。据我了解，飞行员会定期做身体测试，你们飞行员的死亡率是正常还是不正常？
+- 另一则跟帖说，飞行员每年接受体检。此项检查包括心脏、视力、听力、大脑等。超过一定年龄，必须每六个月进行一次体检。这些飞行员以前不太可能有任何疾病。
+
+
+英航四名飞行员的突然死亡，真的与CCP病毒疫苗无关吗？
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141843/6-june.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯****，****更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场****Twitter****（****中文****）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场****Twitter****（****英文****）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+
+
+
+
+
++1

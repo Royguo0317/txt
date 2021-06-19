@@ -1,23 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：深圳机场400余架次航班被取消
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1332849/)
+## 【热点播报】反对为飞行员强制接种CCP病毒疫苗，美联航和工会达成协议
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332826/)
 
-俄罗斯莫斯科喀秋莎农场 娜洁仕达
+作者： 纽约香草山媒体部  7bends
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18213907/F-7.jpg)lexority.com
-6月18日，有深圳旅客表示深圳机场飞机大面积延误。据飞常准APP显示，截至14：25，深圳宝安机场已取消进出港航班400余架次（含提前取消和今日取消数），进出港取消占比均在4成左右。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18213644/T1.jpg)
-而深圳机场18日下午官方给出的解释为：今日计划进出港航班780架次，截至16：30时，已执行进出港航班460架次，各航空公司在今日运行中动态取消进出港航班63架次，航班运行总体正常。请旅客关注航班信息和最新防疫政策，合理安排出行。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18213720/T3.png)
-截至目前，深圳机场大面积取消航班原因众说纷纭，有消息说取消原因是安全原因，还有消息说取消原因是一名机组人员核酸检测呈阳性。总之一天之内突然大面取消航班，再加上中共国的信息不透明，引发网友的猜疑。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
-参考链接：
 
-[https://news.china.com/social/1007/20210618/39683652.html](https://news.china.com/social/1007/20210618/39683652.html)
 
-[https://baijiahao.baidu.com/s?id=1702887877720324300&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1702887877720324300&amp;wfr=spider&amp;for=pc)
 
-0
+
+[雅虎新闻](https://news.yahoo.com/news/united-airlines-union-agree-against-014516372.html#click=https://t.co/PKpRyzHrTB)近期援引路透社报道，美国联合航空公司（UA）和工会同意反对为飞行员强制接种CCP病毒疫苗。美国联合航空公司飞行员协会周一表示，联合航空公司及其飞行员公会已达成协议，禁止该航空公司为其飞行员强制接种CCP病毒疫苗。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18214404/233-1.jpg)美国联合航空公司总裁斯科特·柯比在芝加哥奥黑尔国际机场发表演讲‎（图片来源：[yahoo news](https://news.yahoo.com/news/united-airlines-union-agree-against-014516372.html#click=https://t.co/PKpRyzHrTB)）
+
+该协议称，鉴于新冠疫苗接种是非强制性的，飞行员若选择不接种疫苗将不会受到任何纪律处分。航空公司与工会之间的协议还补充说，那些接种过疫苗的飞行员将有资格获得额外报酬。（笔者很疑惑，为什么接种过疫苗的飞行员将有资格获得额外报酬呢？是因为疫苗可能给已接种者带来额外的伤害因而令其有资格获得额外报酬作为隐性赔偿吗？）
+
+虽然美国的某些航空公司表示不会强制要求员工接种疫苗，如美国航空公司（AA）在一月份就表示，除非接种疫苗在所要进入的某些目的地是强制性的，否则AA不打算强制要求飞行员和其他员工接种疫苗，但仍有不少航空公司要求员工接种疫苗。美联航CEO在今年一月份的一次会议上告诉员工，公司可能会强制要求员工接种疫苗，他同时敦促其他公司也这样做。在本月早些时候，另一家航空公司达美也表示将要求所有在美国的新员工接种CCP病毒疫苗。
+
+尽管美国私营公司可以要求员工接种CCP病毒疫苗，但有专家表示，如果这样做，他们可能会面临法律和文化反弹的风险。近日传的沸沸扬扬的关于英国航空公司四名飞行员一周内死亡的消息虽然已被英航否认与飞行员接种CCP病毒疫苗相关, 但有关死因的医学调查尚未被公布。此次美联航与工会达成协议，同意反对为飞行员强制接种CCP病毒疫苗，不知是否与英航飞行员死亡事件有内在联系。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141843/6-june.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯****，****更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场****Twitter****（****中文****）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场****Twitter****（****英文****）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+
+
+
+
+
++1

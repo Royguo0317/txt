@@ -1,35 +1,119 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象快讯】独家谷歌广告技术业务年底前将面临欧盟正式调查
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1333242/)
+## 福奇博士利益冲突和达拉斯一样大，他有责任在第一天向美国人民申明这一点
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1333173/)
 
-小象：谷歌在赚足了眼球，树立了牌坊之后退出中国市场，但是之后的十几年仍旧一直有谷歌代理商的生意，这是中国红色共产主义者开出的交换条件：我们一起把墙盖起来，我代理你，利润我们一起分。这也是中共在加入WTO之后的最重要的运营模式。它用了一种表面上是一个开放的大水池，谁都可以来水池里舀水，实质上只开放了有个红色阀门的水龙头而已。西方的科技巨头一直迷信中共所描绘的巨大的市场，同时在开放这个大市场的同时，设置了各种的交换条件。谷歌在西方市场可是享受不到这个待遇的。
+**字幕内容**：
 
-路透社今天发出了一篇消息：其中一位知情人士表示，欧盟的调查将重点关注谷歌相对于广告商、出版商、中间商和竞争对手的立场，这表明其审查比法国反垄断机构上周结束的案件更深入。谷歌去年从在线广告中获得了 1470 亿美元的收入，超过世界上任何其他公司。其资产（包括搜索、YouTube 和 Gmail）上的广告占销售额和利润的大部分。大约 16% 的收入来自其展示或网络业务，其中其他媒体公司使用 Google 技术在其网站和应用程序上销售广告。
+Martha McCallum (Fox News host)
+玛莎·麦卡勒姆（福克斯新闻主持人）
 
-去年，美国司法部与一些州一起起诉谷歌滥用其在搜索广告中的主导地位。德克萨斯州领导的一组州在后来的诉讼中重点关注房屋网络方面的反竞争行为。上周，法国以 2.68 亿美元和谷歌就与网络业务相关的类似指控和各种承诺达成和解，作为几天后达成的和解协议的一部分，该部门还必须与英国竞争监管机构就即将进行的软件变更密切合作。
+I want to bring in senator John Kennedy
+我想请参议员约翰 肯尼迪来
 
-委员会拒绝置评。谷歌没有立即回应置评请求。
+who is requesting more investigation about
+他在要求对此事进行更多的调查
 
-一项新的欧盟调查最终可能会针对谷歌的所有广告帝国。市场研究机构 eMarketer 预计，今年谷歌将控制全球 27% 的在线广告支出，其中包括 57% 的搜索广告和 10% 的展示广告。
+where all of this money is going
+所有这些钱都去哪儿了
 
-虽然乍一看这些数字可能并不具有垄断性，但广告商和竞争对手争辩说，谷歌的各种软件在市场的许多方面都发挥着作用，该公司无法避免。他们表示，谷歌利用买家、卖家和中介对其的依赖，从各方收取高额费用，并阻止竞争对手与其公平竞争。在今年早些时候发送给谷歌竞争对手和第三方并由路透社看到的问卷中，欧盟监管机构询问广告商在使用谷歌中间商时是否会收到回扣，谷歌中间商允许广告商或媒体代理从多个来源购买广告库存。
+and I thought senator Kennedy
+而且我还认为肯尼迪参议员
 
-小象补充资料：
+that was the other really interesting moment in this interview
+这是这次采访中另一个非常有趣的时刻
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19005211/4-9.png)
+is when Dr Redfield says, well you know
+是当雷德菲尔德博士说， 好的，你知道
 
-谷歌中国营销渠道分为三个部分，一是谷歌在线，广告客户自己开户自己投放广告；二是谷歌中国内部设有大客户部，专门负责全球500强等大企业的网络广告投放；三是授权代理商渠道，也是谷歌的长尾经营模式的核心所在。目前谷歌在国内有26家授权代理商，其中北京、上海和广东的6家授权代理商的规模和收入都是最大的，这6家分别是中企动力、中资源、火速、天擎、天拓和时代赢客。其中天拓和时代赢客负责的广东区域大约有8000~9000个活跃客户，每个客户每年在谷歌上的广告投入在3万元左右。
+the U.S. funded this gain of function research too
+美国也资助了这项功能增强的研究
 
-参考链接：
+and so those people who are involved in that
+所以那些参与其中的人
 
-[https://www.reuters.com/technology/eu-antitrust-regulators-probe-googles-adtech-business-by-year-end-sources-2021-06-18/](https://www.reuters.com/technology/eu-antitrust-regulators-probe-googles-adtech-business-by-year-end-sources-2021-06-18/)
+didn’t necessarily want people looking in the lab
+不一定希望人们在实验室里寻找
 
-整理撰稿：蓝精灵
+your thoughts
+您的想法呢?
 
-校对发布：Penny
+Senator John Kennedy
+约翰 肯尼迪参议员
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+Well the more I hear Martha the more disgusted to my core I become
+好的，玛莎，我听的越多，我的内心越是厌恶
+
+it’s very clear Dr. Fauci has a conflict of interest
+很明显，福奇博士是有利益冲突的
+
+and he’s had one since day one
+他从第一天起就有了
+
+and he should have declared it
+并且他应该向人们申明
+
+Now Dr. Fauci through his friend Dr. Peter Daszak
+现在福奇博士通过他的朋友彼得·达萨克博士
+
+gave a lot of U. S. taxpayer money to the Wuhan lab
+给武汉实验室很多美国纳税人的钱
+
+to study bat coronaviruses
+来研究蝙蝠冠状病毒
+
+But Dr. Fauci didn’t monitor how that money was being spent uh
+但福奇博士并没有监控这笔钱是如何花掉的
+
+if it turns out uh that this virus came from that lab
+如果事实证明这个病毒来自那个实验室
+
+then a lot of questions are going to be asked from Dr Fauci
+那么会有很多问题需要福奇博士的回答
+
+they should be asked anyway
+无论如何他们都应该被问的
+
+so Dr. Fauci had a vested interest
+所以福奇博士有既得利益
+
+or at least the appearance of it of a vested interest from day one to be so adamant
+或至少他从第一天开始就有既得利益者的样子
+
+that it could not have come from a lab
+坚持认为它不可能来自实验室
+
+now I’m not saying Dr. Fauci lied
+现在我不是说福奇博士撒谎了
+
+I’m saying that he’s got a conflict of interest as big as Dallas
+我是说他的利益冲突和达拉斯一样大
+
+and on day one he owed it to the public health to the American people
+并且在第一天他就对公众健康和美国人民负有责任
+
+to stand up and say look
+应该站出来而且说，看
+
+I’m not the best person to ask on this
+我不是回答这个问题的最佳人选
+
+because I’ve got a conflict here
+因为我这里有冲突
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接:[https://twitter.com/senjohnkennedy/status/1404915108388773891?s=21](https://twitter.com/senjohnkennedy/status/1404915108388773891?s=21)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
