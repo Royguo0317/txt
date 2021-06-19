@@ -1,39 +1,119 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳洲热点】太平洋岛国开始摆脱中共控制
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1333184/)
+## 福奇博士利益冲突和达拉斯一样大，他有责任在第一天向美国人民申明这一点
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1333173/)
 
-#### 了解澳洲时事动态，尽在雅典娜【澳洲热点】
+**字幕内容**：
 
-#### 作者：小红帽
+Martha McCallum (Fox News host)
+玛莎·麦卡勒姆（福克斯新闻主持人）
 
-#### 编辑/导读：守望黎明
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19002921/Picture1-16-9-3.jpg)
-图片来源：piexels
+I want to bring in senator John Kennedy
+我想请参议员约翰 肯尼迪来
 
-【导读】南太平洋各岛国远离大陆人口又很少，然而中共却一直花大气力经略这些地方。为了能够登陆这些岛国，中共不惜巨资投入，以援建基础设施和设立投资项目为诱饵，力图搞定当地政府和政府官员，进而在当地扩大影响力并扎下根脚。为啥中共为啥要对遥远的南太平洋这块地方这么感兴趣呐？项庄舞剑，意在沛公。其实中共的最终目的是大力渗透并彻底拿下这些小国，最终在此地建立自己的军事基地。这样就可以在美军在太平洋最重要的军事基地——关岛的身后插上一支楔子，从而一举突破美军所有的封锁岛链，成为雄踞太平洋进而称霸全球的重要踏板。可惜不知道是天意还是人算，中共本来顺风顺水的推进计划开始出麻烦了……
+who is requesting more investigation about
+他在要求对此事进行更多的调查
 
-【正文】
+where all of this money is going
+所有这些钱都去哪儿了
 
-一直以来中共都热切希望借助“一路一带”，把自己的势力范围扩展到太平洋的一些岛国，如萨摩亚，基里巴斯，巴布亚新几内亚等，进而建立起在太平洋区域的军事势力。 中共病毒疫情爆发以来，中共更想借助疫苗这一利器，进一步牵制这些太平洋小国，以达到左右当地局势的目的。随着中共病毒真相的曝光，一些太平洋小国也开始了反抗，试图结束中共控制太平洋的梦想。
+and I thought senator Kennedy
+而且我还认为肯尼迪参议员
 
-[澳洲新闻](https://www.huaglad.com/aunews/20210405/426850.html)曾于2021年4月5日惊呼中共国正在赢得和澳洲的 “疫苗战争”。报道称，澳洲正处于一场帮助太平洋国家获得疫苗的竞争当中，如果中共国率先领导了当地疫苗的推广和地区的经济复苏，对在当地拥有传统影响力的澳洲将是一次重大打击。
+that was the other really interesting moment in this interview
+这是这次采访中另一个非常有趣的时刻
 
-然而，不久以后[自由亚洲电台](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/hx2-05202021073944.html)在2021年5月20日曝光，萨摩亚因担心债务庞大，正在叫停中共国一项重要的“一带一路”工程。随着南太平洋岛国萨摩亚政权的轮替，新总理以无法负担对中共国的一亿美元基建债务为由，宣布上任后将搁置中共国主持兴建的码头工程。这是萨摩亚第一个次站出来拒绝中共在太平洋的“一路一带”控制梦。
+is when Dr Redfield says, well you know
+是当雷德菲尔德博士说， 好的，你知道
 
-BBC于2021年5月27日一篇题为《[太平洋岛国因中资项目而政治震荡，萨摩亚和基里巴斯的两难选择](https://www.bbc.com/zhongwen/simp/world-57267149)》也提出类似的评论：太平洋岛国萨摩亚和基里巴斯距离北京超过7000公里，但有中共国资金参与的大型基建项目正日益两国政坛政治的撕裂。中国在萨摩亚和基里巴斯所在的太平洋岛国地区的开发活动近期才开始，但发展异常迅速。这一太平洋地区历来被被称为澳大利亚、新西兰的“后院”，中国的咄咄逼人，澳新两国感受到了巨大的压力。
+the U.S. funded this gain of function research too
+美国也资助了这项功能增强的研究
 
-鉴于萨摩亚隔壁就是美国未来海岸巡防队筹建的南太平洋中心，中共所主张的绝不是单纯“一带一路”。可以说，这已上升到中美之间在太平洋海上实力竞逐的范畴。 萨摩亚在南太平洋的角色也逐渐受到国际的关注，特别是澳大利亚更是格外重视。
+and so those people who are involved in that
+所以那些参与其中的人
 
-2021年5月23日[天空新闻](https://www.skynews.com.au/details/_6255592227001)主持人詹姆斯-莫罗表示，澳大利亚应该欢迎和鼓励萨摩亚即将出任的新总理放弃建设由中国支持的港口，以遏制中国拥有太平洋野心。
+didn’t necessarily want people looking in the lab
+不一定希望人们在实验室里寻找
 
-主持人表示，很高兴看到像萨摩亚这样的 “小国” 挺身而出反对中国的软实力侵占。澳大利亚绝对应该祝贺萨摩亚，我们希望看到更多这样的事情，因为这是真正阻止中共国控制所有南太平洋港口和周围一切的“中国梦”的唯一途径。
+your thoughts
+您的想法呢?
 
-看起来，中共太平洋版的“中国梦”也该到了梦醒时分了。
+Senator John Kennedy
+约翰 肯尼迪参议员
 
-（文章仅代表作者个人观点）
+Well the more I hear Martha the more disgusted to my core I become
+好的，玛莎，我听的越多，我的内心越是厌恶
 
-**参考链接：**[**Small island nation tries to put an end to ‘China’s glorious dream’ of Pacific control | Sky News Australia**](https://www.skynews.com.au/details/_6255592227001)
+it’s very clear Dr. Fauci has a conflict of interest
+很明显，福奇博士是有利益冲突的
 
-+2
+and he’s had one since day one
+他从第一天起就有了
+
+and he should have declared it
+并且他应该向人们申明
+
+Now Dr. Fauci through his friend Dr. Peter Daszak
+现在福奇博士通过他的朋友彼得·达萨克博士
+
+gave a lot of U. S. taxpayer money to the Wuhan lab
+给武汉实验室很多美国纳税人的钱
+
+to study bat coronaviruses
+来研究蝙蝠冠状病毒
+
+But Dr. Fauci didn’t monitor how that money was being spent uh
+但福奇博士并没有监控这笔钱是如何花掉的
+
+if it turns out uh that this virus came from that lab
+如果事实证明这个病毒来自那个实验室
+
+then a lot of questions are going to be asked from Dr Fauci
+那么会有很多问题需要福奇博士的回答
+
+they should be asked anyway
+无论如何他们都应该被问的
+
+so Dr. Fauci had a vested interest
+所以福奇博士有既得利益
+
+or at least the appearance of it of a vested interest from day one to be so adamant
+或至少他从第一天开始就有既得利益者的样子
+
+that it could not have come from a lab
+坚持认为它不可能来自实验室
+
+now I’m not saying Dr. Fauci lied
+现在我不是说福奇博士撒谎了
+
+I’m saying that he’s got a conflict of interest as big as Dallas
+我是说他的利益冲突和达拉斯一样大
+
+and on day one he owed it to the public health to the American people
+并且在第一天他就对公众健康和美国人民负有责任
+
+to stand up and say look
+应该站出来而且说，看
+
+I’m not the best person to ask on this
+我不是回答这个问题的最佳人选
+
+because I’ve got a conflict here
+因为我这里有冲突
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接:[https://twitter.com/senjohnkennedy/status/1404915108388773891?s=21](https://twitter.com/senjohnkennedy/status/1404915108388773891?s=21)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

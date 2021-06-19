@@ -1,45 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月18日美国政要推文精选: 福奇手上沾满了血,辞退福奇
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1332947/)
+## 【小象搬运】推特网友曝光布隆伯格和杨澜的亲密关系
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1333041/)
 
-众议员迈克·加拉格尔： 我们那些无视伦理道德的科学家在新型冠状病毒的起源上将我们自己的情报界耍的团团转，这一事实告诉我们，我们有一个巨大的问题。 如果我们要防止下一次疫情，我们必须追根究底，并要求本国政府做得更好。
+有网友在推特曝光了布隆伯格和杨澜的亲密关系，其中引用了一段郭文贵先生在几年前视频直播中的文字记录资料。资料显示，杨澜和吴征夫妇是通过文贵先生认识了布隆伯格，在此期间，杨澜与布隆伯格玩了一个找钥匙的游戏。这次亲密的接触之后，为布隆伯格和他代表的华尔街和中共合作勾结打开了一个新的方向。![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18222939/Picture1-33.png)
 
+杨澜是美国居民，她目前的的丈夫在一年前因为被揭发后在美国注册了外国代理人。
 
-
-> The fact that we had ethically-conflicted scientists spinning our own intelligence community on the origins of COVID-19 tells us we have a huge problem. 
-> 
-> If we're going to prevent the next pandemic, we have to get to the bottom of this and demand better from our own government. [pic.twitter.com/f9ZRwtVu8h](https://t.co/f9ZRwtVu8h)
-> — Rep. Mike Gallagher (@RepGallagher) [June 18, 2021](https://twitter.com/RepGallagher/status/1405940115537604610?ref_src=twsrc%5Etfw)
+参考链接：
 
 
 
-彼得·纳瓦罗： 福奇手上沾满了血。辞退福奇。
+> 布隆伯格也被找过钥匙！！！ [pic.twitter.com/icACg3ryii](https://t.co/icACg3ryii)
+> — 阮尚李（终共靠贵）【Fuck HK POPO】 (@1808\_W73) [June 18, 2021](https://twitter.com/1808_W73/status/1405984643849940992?ref_src=twsrc%5Etfw)
 
 
 
-> Blood on Fauci’s hands. Fire Fauci [https://t.co/VfXALIxvF3](https://t.co/VfXALIxvF3)
-> — Peter Navarro (@RealPNavarro) [June 18, 2021](https://twitter.com/RealPNavarro/status/1405939544244068357?ref_src=twsrc%5Etfw)
+整理撰稿：蓝精灵
 
+校对发布：Penny
 
-
-参议员玛莎·布莱克本： 你说什吗？ 【转推里福奇为自己开脱称：对于 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 泄漏说一直保持开放的心态并观察着，所以他认为说他们故意压制这一点有点曲解】
-
-
-
-> Say what? [https://t.co/o0gIqZUJE7](https://t.co/o0gIqZUJE7)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 18, 2021](https://twitter.com/MarshaBlackburn/status/1405683907396313089?ref_src=twsrc%5Etfw)
-
-
-
-众议员艾丽丝·斯特凡尼克： 说到底CNN（美国有线电视新闻网）是捍卫中国新闻网的。 （转推福克斯新闻：“CNN在鼓吹中共提供的新型冠状病毒疫苗接种率后被指控替中共鼓动宣传”）
-
-
-
-> So CNN does stand for China's News Network, after all. [https://t.co/TgegylGBLF](https://t.co/TgegylGBLF)
-> — Rep. Elise Stefanik (@RepStefanik) [June 18, 2021](https://twitter.com/RepStefanik/status/1405994071412383750?ref_src=twsrc%5Etfw)
-
-
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

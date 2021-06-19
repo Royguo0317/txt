@@ -1,112 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 约翰肯尼迪参议员: 拜登总统“亲爱的，拜托，给加些糖”与中共国和世卫组织行不通
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332865/)
+## 【灭共头条】汤灿——一个被人民解放军解放的女人
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1333052/)
 
-**字幕内容：**
+撰稿：Ermat【㊙️翻Gnews原创组】
 
-Brian Kilmeade (Fox News host)
-布赖恩·基尔米德（福克斯新闻主持人）
+责编：Shifter
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18223356/e7cd7b899e510fb30f248609d07edf95d143ad4ba652.png)图片来源：baidu.com
+6月17日，郭文贵先生在GTV直播的最后，谈及了被称为“中国民歌天后”的内地女歌星汤灿如何被骗失身，献出了她的第一次的故事。这让这位“军中妖姬”再次成为关注热点。
 
-Let’s see what republican senator
-让我们看看共和党参议员
+郭先生说，在一次酒后，一名解放军军官以”我是人民解放军，军民一家，我就是要解放你”为由，一步步诱骗涉世未深的汤灿，最后夺走了她的处女之身。多年以后，那个懵懂稚嫩、不谙世事的她已经不在。她曾多次像开玩笑一样谈及此事，竟然没有一丝难为情。看来，我们的人民解放军真的解放了她！当然，解放的远不止她一个，这本就是解放军的义务嘛。
 
-from Louisiana John Kennedy says
-来自路易斯安那州的约翰肯尼迪怎么说
+据悉，汤灿与中共党政军各界多位高官有染。在35岁时，经前军委副主席徐才厚运作，她破格入伍，进入了北京军区“战友文工团”，佩戴大校军衔，享受副师级待遇。而李东生出任中央电视台台长期间，为了能取悦周永康，以便日后官运亨通，将当时已大红大紫的汤灿献给了他。之后，周又将汤灿介绍给了薄熙来。
 
-Senator, do you think China is going to allow this second investigation from the keystone cops that were unable to get the first time around？
-参议员，你认为中共会允许在第一次无法
-前往的关键调查员组织的第二次调查吗？
+汤灿被捕后，经中纪委查实，她与薄熙来、周永康、前中共公安部副部长李东生、前中共总后勤部副部长谷俊山、和前军委副主席徐才厚等十多名官员有染。汤灿不仅是这些高官的“公共情妇”，而且还为李东生和焦利结交薄熙来和周永康牵线搭桥。此外，她还通过出卖色相为薄熙来和周永康获取重要情报，并监视其他中共高官。
 
-Senator John Kennedy
-约翰肯尼迪参议员
+据报道，汤灿现已出狱，并被指定安置于湖南株洲老家。现如今，经历了大起大落、也尝尽了人世间心酸坎坷的她，再也没有了往日的妖艳、倩丽。她曾游走于各色男人之间，纵欲于声色犬马之中，被哄骗、蹂躏、玩弄。在权斗、欺诈中，靠着权贵爬上了名利的巅峰，靠着肉体，写下了一部平民奋斗史，也享尽了荣华富贵。
 
-Not not under the current approach Brian uh
-不，目前不可能, 布赖恩
+可惜好景不长，她自认为绚丽的生命火焰，还未完全绽放，就瞬间被熄灭了。本篇只是一个小小的热身，更多、更精彩的且听郭先生下回分解。
 
-With respect to the origin of the of the coronavirus
-关于冠状病毒的起源
+参考链接：
 
-here’s what I heard President Biden do today
-这就是我今天听到拜登总统所做的事情
+1. [汤灿的更多细节被披露](https://www.epochtimes.com/gb/18/5/10/n10379881.htm)
+2. [李东生用央视美女色贿高层 汤灿成手中王牌](https://www.epochtimes.com/gb/13/12/21/n4039881.htm)
 
-I heard him politely ask the world health organization in China
-我听到他礼貌地向在中共国的世界卫生组织
 
-to get to the bottom of it
-提出将事情弄清楚的要求
-
-Pretty please with sugar on top
-亲爱的，请在上面放些糖
-
-and that’s the typical Washington way
-这是典型的华盛顿方式
-
-keep trying what uh doesn’t work
-继续尝试不起作用的方法
-
-and when it doesn’t work again and do it some more
-当它再次不起作用时并再尝试
-
-he’s going to have to change his approach
-他将不得不改变他的方法
-
-let’s start with the world health organization
-让我们从世界卫生组织开始
-
-it’s president is Dr Tedros Adhanom Ghebreyesus from Ethiopia
-它的主席是来自埃塞俄比亚的谭德塞博士
-
-Dr. Tedros hums the Chinese national anthem in the shower uh
-谭德塞博士在洗澡时哼着中共国国歌
-
-he loves President Xi Jinping like the devil loves sin
-他爱习近平主席就像魔鬼爱罪恶
-
-if president Xi told Dr. Tedros to join the Taliban
-如果习近平主席告诉谭德塞博士加入塔利班
-
-he would say where’s the line
-他会说：在哪里排队？
-
-the only way to get him to do his job
-让谭德塞完成工作的唯一方法
-
-is for President Biden to sit him down
-是拜登总统让他坐下来
-
-and say look Dr. Tedros
-并说：听着，谭德塞博士
-
-the American people pay your salary
-美国人民支付你的工资
-
-the American taxpayer puts up 900 million dollars every two years
-美国纳税人每两年投入 9 亿美元
-
-we’re your biggest financial contributor uh
-我们是你最大的资金贡献者
-
-either do your job or we’re going to withhold the money
-要么做你的工作，要么我们将扣留这笔钱
-
-and if that offends you
-如果这冒犯了你
-
-I will help you pack
-我会帮你打铺盖卷的
-
-原视频链接: [https://twitter.com/senjohnkennedy/status/1405544403083612160?s=24](https://twitter.com/senjohnkennedy/status/1405544403083612160?s=24)
-英听校：康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（本文仅代表作者个人观点）
 
 0

@@ -1,21 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：北约新公报称中共为系统性挑战
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1333140/)
+## 【有声读物】端午幻生缘
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1333185/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19000449/image001-27.jpg)
-在北大西洋公约组织 72 年的历史上，该军事联盟首次在一份包含多达 79 个部分的广泛公报中将中国称为“系统性挑战”。公报称：中共公开的野心和强硬的行为对基于规则的国际秩序和与联盟安全相关的领域构成了系统性挑战。我们对那些与《华盛顿公约》所载基本价值观背道而驰的强制政策感到关切。北约秘书长延斯·斯托尔滕贝格警告称，中共国“全球竞争加剧”，正迅速“从北极到网络空间向我们逼近” 。
+配音：香草山录音组 Swr拥抱太阳
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-[原文引用](https://www.zerohedge.com/geopolitical/systemic-challenges-natos-new-counter-china-focus-met-fierce-warning-beijing)
 
-本文作者：Rebecca (一切心皆不可得 ! )
 
-审核校对：sherryok (水云间)
+端午中日焰
+浴花圃园间
+灰影叶间动
+惊喜野雀缘
 
-上传排版：糊糊文婴
+
+
+**文字版原文：[【香草诗词汇】端午幻生缘](https://gnews.org/zh-hans/1323394/)**
+
+作者：纽约香草山医疗部 云豹
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

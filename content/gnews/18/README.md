@@ -1,27 +1,109 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象快讯】澳大利亚将与中国的葡萄酒争端提交世贸组织
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1333281/)
+## 【香草诗词汇】文明聊天室（首季-2）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1333332/)
 
-小象：这又是携最大市场需求绑架他国，然后获得党最大利益的又一个典型的例子。
+**– 灭共橡树之三分天下 –**
 
-路透社6月19日报道：澳大利亚政府周六表示，正就中国对澳大利亚葡萄酒出口征收反倾销税一事向世界贸易组织正式投诉，这进一步加剧了与北京的贸易僵局。
+作者：纽约香草山健身部 澄道来了
 
-贸易、旅游和投资部长丹·特汉（Dan Tehan）在与农业部长大卫·利特普劳德（David Littleproud）联合发布的新闻稿中说：“政府将继续大力捍卫澳大利亚葡萄酒制造商的利益，利用世贸组织的既定制度解决我们之间的分歧。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-在澳大利亚于 2018 年禁止华为参与其新生的 5G 宽带网络，堪培拉呼吁对冠状病毒的起源进行国际调查后，与中国的关系愈发恶化， 作为澳大利亚最大的贸易伙伴，中国对澳大利亚商品征收关税，包括葡萄酒和大麦，并限制进口澳大利亚牛肉、煤炭和葡萄，美国将其描述为“经济胁迫”。去年，澳大利亚正式向世贸组织提出上诉，要求审查中国对进口澳大利亚大麦征收高额关税的决定。澳大利亚政府早些时候曾表示，葡萄酒关税使其价格翻了一番或三倍，使出口商无法进入中国市场。行业数据显示，在去年 12 月至 3 月的四个月中，澳大利亚酿酒商仅向中国出口了 1200 万澳元（900 万美元）的葡萄酒，而去年同期为 3.25 亿澳元，证实高额的新关税几乎摧毁了他们最大的出口市场。
 
-6 月初，总理斯科特莫里森呼吁世贸组织解决两国之间的僵局，几天后赢得了七国集团国家的支持，对中国对全球贸易日益增长的影响采取更加强硬的立场。周六，政府表示，尽管有投诉，堪培拉仍准备与北京合作。“澳大利亚仍然愿意直接与中国接触以解决这个问题”，Tehan 和 Littleproud 在他们的新闻稿中说。
 
-参考链接：
+灭共十万
+三分天下
 
-[https://www.reuters.com/world/asia-pacific/australia-takes-wine-dispute-with-china-wto-2021-06-19/?taid=60cd70711025cd0001e2f373&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/world/asia-pacific/australia-takes-wine-dispute-with-china-wto-2021-06-19/?taid=60cd70711025cd0001e2f373&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+以毒灭共
+G 7认领
+以钱灭共
+G系归属
 
-整理撰稿：蓝精灵
+以毒灭共
+GTV直播
+各地战友
+尽显风骚
 
-校对发布：Penny
+说文明话
+做文明事
+重塑新中国联邦文明人
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+主题：
+以黄灭共
+付题：
+从抓小鸡鸡抓钱袋袋 看文明之人性回归
+美东：
+一 三 五 晚九时
+盘古：
+1 3 5 早9点
+地点：
+文明聊天室
+（G TV）
+
+文明诵述人：
+@拥抱太阳
+
+文明煮聊人：
+@晨兮
+@重生鸟
+@煤油灯
+
+文明海报工
+@文康
+
+文明推流工
+@煤油灯
+
+文明访述人：
+文明挠字工：
+@澄道来了
+
+撬开杀不上国家级的
+李萍李微们
+某种意义上
+是真战友
+
+十个汤灿
+不如一个
+＂中国三口组＂
+烂杨
+
+爆黄之
+只要合法之
+爆料之
+就是灭共之
+
+吹拉吟唱弹
+爆料艺口同声
+
+吞吐唅品咽
+醉卧黑色森林
+
+澄清目标 集中火力
+＂文明聊天室＂之以黄灭共黑森林
+…..娓娓道来
+了却宿愿 集结线上
+开黄枪 射黄炮
+
+@文明聊天室
+@帝王蟹路 姐夫村 福特车
+@爱动爱议码06181
+
+校对/发稿：雪梨
+
+![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg]()![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

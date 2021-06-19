@@ -1,69 +1,170 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】从“老我”到“无我”到“新我”的飞跃
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1333261/)
+## 众议员杰瑞卡尔表示，值得调查福奇博士是否有盈利动机
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1333307/)
 
-作者：纽约香草山福音部 Jinglechenge
+**字幕内容：**
+Rep. Jerry Carl (Congressman R-AL)
+众议员杰瑞 卡尔(共和党- 阿拉巴马州)
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+I’m not a attorney, I’m not a doctor, I’m just a businessman
+我不是律师，我不是医生，我只是一个商人
 
+so my brain works different than everybody
+所以我的大脑工作方式和每个人都不一样
 
+I’m wired different I’m okay I’m used to that
+我的思维不同，我很好，我已经习惯了
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19005448/38-%E4%BF%A1%E4%BB%B0%E4%B9%8B%E5%A3%B0%E3%80%91%E4%BB%8E%E8%80%81%E6%88%91%E5%88%B0%E6%97%A0%E6%88%91%E5%88%B0%E6%96%B0%E6%88%91%E7%9A%84%E9%A3%9E%E8%B7%83.png)
+I’m comfortable in that element
+我在那个状态很舒服
 
-最近拜读香草山福音部山城小哥的《[“无我”之后的你是谁？](https://gnews.org/zh-hans/1316579/)》一文，很受启发。该文从郭文贵先生倡议战友们要“无我”出发，引出唯有认识神的人才能做到“无我”，并得到一个耶稣基督里的“新我”。下面也表达一点自己的感触。
+so after reading his emails
+所以在阅读了他的电子邮件后
 
-首先，“无我”中的“我”，是谁？我认识吗？认识到什么程度？
+and I read about 700 of them
+我阅读了大约 700 封
 
-“我”，从圣经的角度来说，就是“己”、旧人、在罪中活着的人、罪的奴仆，也就是基督徒常常挂在嘴上的所谓“老我”、“旧造”、“肉体”。
+and they’re very easy to read
+而且这些邮件很容易理解
 
-“老我”出于亚当，代表了每个人与生俱来的天然生命、性情、喜好、追求、人生观、价值观等，以肉体和肉体的邪情私欲为价值取向，随从今世的风俗，顺服空中掌权的邪灵，喜欢做羞耻的事，如奸淫、污秽、邪荡、拜偶像、邪术、仇恨、争竞、忌恨、恼怒、结党、纷争、异端、嫉妒、凶杀、醉酒、荒宴等。
+because most of them are white it out
+因为它们中的大多数都被复盖了
 
-除此之外，“我”可了不得了，处处、时时都要坐 C 位，稍不顺意，就大发脾气、撒泼打滚、摔打抢砸，无所不用其极。是一座随处移动并有 AI 智能的活火山！(罗马书6:16，6:19)。
+But in reading those he is saying one thing to his colleagues
+但是阅读那些邮件，他对他的同事说的一件事
 
-有人可能会说，我哪有那么坏，我觉得自己挺不错的呢！可是耶利米书17:9 明明告诉我们，人心比万物都诡诈，坏到极处，谁能识透呢？
+and is saying something totally different in in public
+而在公共场合说的话则完全不同
 
-我还没有那么坏，是因为我没有机会那么坏。时机、条件许可，我照样无恶不作。每个人里面都住着一个 CCP。
+so my business brain keeps asking
+所以我的经商的大脑一直在问
 
-“老我”既然这么坏，所以必须治死。这个治死的过程，就是“无”我的过程。用圣经的话来说，就是舍己，就是脱去旧人。
+why would you do that why would you do that why would she do that
+你为什么要这么做？你为什么要这么做？你为什么要这么做？
 
-华夏文明为自己造了各种办法来“无”我，特别是佛教的去六根，绝红尘欲念，清灯伴古佛。但圣经告诉我们，这些在克制肉体的情欲上毫无功效，唯一的办法是将“老我”（肉体，连同肉体的邪情私欲）都钉死在十字架上(加5:24)，像脱衣服一样脱去旧人。
+and I keep coming up with profits, profits, profits
+我不断地出现利润、利润、利润
 
-这就是浸礼所表示的：我们浸入水中时，这旧人已经与基督同钉十字架，同死同埋葬了。当我们从水里出来，是一个与基督同复活的新我，这新我是照着神的形象造的，有真理的仁义和圣洁(以弗所书4:24)。
+so how do you make money off this
+那么你如何从中赚钱的?
 
-就像婚礼改变一位女子的身份一样，我们的身份也因浸礼而完全改变。从罪的奴仆变成义的奴仆，从旧人变成新人，脱离罪和死的律进入圣灵和生命的律，从撒旦的权势改嫁到基督的权势下。从此，靠着基督就能活出圣灵的新样(罗马书7:6)：
+Again, I’m a businessman, my focus is profits
+再次，我是一个商人，我的重点是利润
 
+I don’t back up from that
+我不会因此而退缩
 
-> “仁爱、喜乐、和平、忍耐、恩慈、良善、信实、温柔、节制”
+So I’m asking a letter to Pelosi that we signed off on it
+所以我要给佩洛西写一封我们在上面签字的信
 
+if she and the Congress would investigate that
+她和国会是否将对此进行调查
 
-那从此以后，我们是不是就像童话故事中的王子公主一样，行为完全得一点错都不违了呢？许多人的经验都告诉我们，不是的。就我自己来说，虽然信主多年，但常常感到那已经在十字架上与基督同钉的旧人，虽“死”犹“活”，仍然影响着我的基督徒生活。我立志为善，却行不出来。我所不愿意的恶，倒去作。我们一生都会活在这个拉锯战当中。当我们以为自己差不多了的时候，“我”又会跳出来作祟。
+I would like to know if he it made any money off of this covid-19
+我想知道他是否从这个 covid-19 中赚到了钱
 
-信心伟人亚伯拉罕，按理说不会出错吧，可是一到自以为有性命之忧时，就把妻子推出来挡箭。合神心意大卫王，按理说 一定很刚强吧，可是也过不了美人关。
+I think that’s a fair question
+我认为这是一个公平的问题
 
-我们是谁？比他们强吗？绝不可能！
+what most people don’t realize are true bureaucrats in Washington
+大多数人没有意识到的是华盛顿真正的官僚
 
-为什么会是这样？是圣灵借十字架治死旧人的工作不彻底吗？绝不是的。虽然我们的身份已经是圣徒；但我们里面的实际状况远非如此，仍要在每天的生活中，不断经历十字架治死旧人的能力，不断舍己，不断向罪死，直到见主面的日子。
+are in your state capitol on your local government
+在当地政府的州议会大厦里
 
-所以，我们不可小覷了这个“我”，很难“死”透，逮着机会就会表演一番。要警醒，靠着十字架，一点一点“无”这个我，实现从旧我到新我的飞跃。
+they controls so much of what’s going on
+他们控制了很多正在发生的事情
 
-（文章仅代表作者个人观点）
+when you when you’re like Fauci
+当你当你像福奇那样
 
-校对/发稿：雪梨
+and you can step out on the stage at any given day make a statement
+你可以在任何一天走上舞台发表声明
 
-![This image has an empty alt attribute; its file name is 6_june-768x994-1.jpeg]()![This image has an empty alt attribute; its file name is 6_june-768x994-1.jpeg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042846/6_june-768x994-1.jpeg)
+and turn the stock market, it’s easy to predict that
+并扭转股市，那是很容易预测的
 
-**更多资讯，更多关注**
+you know you can turn the stock market
+你知道你可以扭转股市
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+So you go in to invest your money in this and that
+所以你去讲你的钱投资在这个和那个
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+turn the stock market sell back in this and that
+扭转股市，卖回这个和那个
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+It’s easy process
+这个过程很简单
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+Do I have anything to base that on? no I do not
+我有什么依据吗？不，我没有
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+all I’m saying it’s a great time for us, the people to ask
+我只是说，这是这是一个很好的时机
+
+that are bureaucrats be held responsible for
+我们的人民可以要求官僚们为其负责
+
+what they do and how they, how they say it
+他们做什么以及他们怎么说
+
+Nicholas Ballasy (Real America’s Voice host)
+尼古拉斯·巴拉西（真正的美国声音的主持人）
+
+was there any particular email Fauci sent
+你知道有什么特别的电子邮件
+
+you know stuck out to you that made you think
+让你觉得可能有
+
+that there could be some profit motive
+什么利益动机吗？
+
+Rep. Jerry Carl
+众议员杰瑞 卡尔
+
+there’s one to uh Facebook that I’m very very curious about
+有一个发给脸书的是我是非常非常的好奇的
+
+and Facebook refers to an offer that they made
+和脸书指出他们提出的议案
+
+and then it was black and it was white it out
+而且它是用黑色的字体，而信息被抹去了
+
+Some I’m just curious what that offer was
+所以我很好奇那个议案是什么
+
+was it a financial offer
+是财务报价吗？
+
+was it I mean was it an offer to open up Facebook to
+我的意思那是给脸书的报价吗？
+
+and getting his messages out
+让脸书把他的主张传出去
+
+I don’t know but it is white it out but
+我不知道，但它被抹去了
+
+that one kind of stuck out to me
+那个特别对我很有吸引力
+
+but it when I saw on Facebook
+但是当我在 脸书上看到时
+
+原视频链接 :[https://twitter.com/realamvoice/status/1404467506971021316?s=24](https://twitter.com/realamvoice/status/1404467506971021316?s=24)
+英听校：康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场- -青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

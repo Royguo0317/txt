@@ -1,119 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇博士利益冲突和达拉斯一样大，他有责任在第一天向美国人民申明这一点
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1333173/)
+## 联大通过决议呼吁停止向缅甸输送武器 中共国投弃权票
+` 日本东京方舟农场` [轉載自GNews](https://gnews.org/zh-hans/1333290/)
 
-**字幕内容**：
+【日本东京方舟农场】撰稿：青衣        校对：小笨熊
 
-Martha McCallum (Fox News host)
-玛莎·麦卡勒姆（福克斯新闻主持人）
+据《美国之音》6月19日消息，《路透社》在纽约报道称，联合国大会周五（6月18日）呼吁停止向缅甸输送武器，并敦促缅甸军方尊重去年11月的选举结果，释放包括领导人昂山素季在内的政治犯。
 
-I want to bring in senator John Kennedy
-我想请参议员约翰 肯尼迪来
+联大是在119个国家的支持下通过了这项决议。白俄罗斯要求将决议文本付诸表决，并成为唯一投下反对票的国家。而包括中共国和俄罗斯在内的36个国家则投了弃权票。
 
-who is requesting more investigation about
-他在要求对此事进行更多的调查
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19010953/745C6F18-BE53-4329-94C7-A8482964C075.jpeg)
 
-where all of this money is going
-所有这些钱都去哪儿了
+“大规模内战的风险真实存在，” 在投票完成后，联合国缅甸事务特使布尔根纳（Christine Schraner Burgener）在联合国大会上表示：“时间至关重要。扭转军事接管局面的机会正在缩小。”
 
-and I thought senator Kennedy
-而且我还认为肯尼迪参议员
+在投弃权票的国家当中，有些认为这场危机是缅甸内部事务；有些则认为这项决议于事无补；还有一些国家则抱怨称，该决议没有充分解决罗兴亚穆斯林的困境。大约在四年前，缅甸军队的打压行动迫使近100万罗兴亚人逃离缅甸。
 
-that was the other really interesting moment in this interview
-这是这次采访中另一个非常有趣的时刻
+欧盟驻联合国大使斯科格（Olof Skoog）认为，联合国的这项决议发出了一个强有力的信息。他说：“它（决议）将军政府非法化，谴责军政府对本国人民的虐待和暴力，并表明军政府在世界面前是孤立的。”
 
-is when Dr Redfield says, well you know
-是当雷德菲尔德博士说， 好的，你知道
+周五早些时候，联合国秘书长古特雷斯（Antonio Guterres）敦促联合国大会采取行动。他对记者表示：“我们不能生活在一个军事政变成为常态的世界里，这完全不可接受。”
 
-the U.S. funded this gain of function research too
-美国也资助了这项功能增强的研究
+在今年2月1日，缅甸军方发动政变，推翻了昂山素季领导的民选政府。缅甸军方称，之所以接管政权，是因为昂山素季政府拒绝解决军方所称的11月选举中的舞弊问题。而国际观察人士却表示，投票是公平的。
 
-and so those people who are involved in that
-所以那些参与其中的人
+联合国这份决议的最初草案，使用了更强烈的措辞：呼吁对缅甸实施武器禁运。根据《路透社》上个月看到的一份提案，九个东南亚国家希望删除“武器禁运”这样的用语。妥协后文本的用词是：“呼吁所有成员国防止武器流入缅甸境内”。
 
-didn’t necessarily want people looking in the lab
-不一定希望人们在实验室里寻找
+联大的这份决议虽然不具法律约束力，但却有政治影响力。与安理会15个成员国不同的是，联大当中没有任何国家拥有否决权。
 
-your thoughts
-您的想法呢?
+根据“政治犯援助协会”（Assistance Association for Political Prisoners）的数据，自政变以来，军政府的部队已经打死了860多人。军政府却称实际数字要比这一数字低得多。不过根据其他人权组织或国家观察人士提供的数字，实际死亡人数可能比上述数字更高。
 
-Senator John Kennedy
-约翰 肯尼迪参议员
+联合国决议呼吁缅甸军方“立即停止一切针对和平抗议者的暴力行为”，并结束对互联网和社交媒体的限制。联大还呼吁缅甸迅速落实军政府今年4月与东盟达成的五点共识，停止暴力并与反对派人士开启对话。
 
-Well the more I hear Martha the more disgusted to my core I become
-好的，玛莎，我听的越多，我的内心越是厌恶
+东盟领导了此次寻求摆脱危机的主要外交努力，但东盟成员国之间却在周五的这项联合国行动中出现了分歧。印度尼西亚、马来西亚、新加坡、菲律宾、越南投了赞成票；代表被军队推翻的民选文官政府的缅甸驻联合国大使觉莫吞（Kyaw Moe Tun）也投了赞成票；而文莱、柬埔寨、老挝和泰国投了弃权票。
 
-it’s very clear Dr. Fauci has a conflict of interest
-很明显，福奇博士是有利益冲突的
+觉莫吞表示，联大在缅甸政变这么久之后才通过了一项“被淡化”的决议，他对此感到失望。他补充说：“任何国家都不应支持军政府，这一点至关重要。”
 
-and he’s had one since day one
-他从第一天起就有了
+中共国不出意外地投了弃权票，唯一意外的是没投反对票。众人皆知，缅甸军政府背后有中共支持的影子。在联合国大会一系列针对独裁政权暴政行为的投票中，中共国永远是站在邪恶的一方，因为中共本身就是邪恶的化身。
 
-and he should have declared it
-并且他应该向人们申明
+注：本文仅代表作者观点
 
-Now Dr. Fauci through his friend Dr. Peter Daszak
-现在福奇博士通过他的朋友彼得·达萨克博士
-
-gave a lot of U. S. taxpayer money to the Wuhan lab
-给武汉实验室很多美国纳税人的钱
-
-to study bat coronaviruses
-来研究蝙蝠冠状病毒
-
-But Dr. Fauci didn’t monitor how that money was being spent uh
-但福奇博士并没有监控这笔钱是如何花掉的
-
-if it turns out uh that this virus came from that lab
-如果事实证明这个病毒来自那个实验室
-
-then a lot of questions are going to be asked from Dr Fauci
-那么会有很多问题需要福奇博士的回答
-
-they should be asked anyway
-无论如何他们都应该被问的
-
-so Dr. Fauci had a vested interest
-所以福奇博士有既得利益
-
-or at least the appearance of it of a vested interest from day one to be so adamant
-或至少他从第一天开始就有既得利益者的样子
-
-that it could not have come from a lab
-坚持认为它不可能来自实验室
-
-now I’m not saying Dr. Fauci lied
-现在我不是说福奇博士撒谎了
-
-I’m saying that he’s got a conflict of interest as big as Dallas
-我是说他的利益冲突和达拉斯一样大
-
-and on day one he owed it to the public health to the American people
-并且在第一天他就对公众健康和美国人民负有责任
-
-to stand up and say look
-应该站出来而且说，看
-
-I’m not the best person to ask on this
-我不是回答这个问题的最佳人选
-
-because I’ve got a conflict here
-因为我这里有冲突
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接:[https://twitter.com/senjohnkennedy/status/1404915108388773891?s=21](https://twitter.com/senjohnkennedy/status/1404915108388773891?s=21)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+参考链接：[https://twitter.com/VOAChinese/status/1406067724552269826](https://twitter.com/VOAChinese/status/1406067724552269826)
 
 0
