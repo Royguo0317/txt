@@ -1,71 +1,170 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《我们的七芒星》 “星光灿烂” 第一场半决赛 &#8211; 美东6月19日周六晚8点
-` GMusic` [轉載自GNews](https://gnews.org/zh-hans/1332577/)
+## 阴谋论…大流行病模拟推演
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332706/)
 
-我们的七芒星文宣组 May，山上的城，Q大哥整理
+**字幕内容：**
 
-由GTV空中唱响团队和纽约香草山农场文艺部倾心打造的新中国联邦首档全民灭共大型知识竞猜节目《我们的七芒星》第十七期，暨 “星光灿烂” 第一场半决赛，将于美东时间6月19日周六晚8点，暨北京时间6月20日周日早8点，在GTV正式火热开播。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18190604/%E6%88%91%E4%BB%AC%E7%9A%84%E4%B8%83%E8%8A%92%E6%98%9F.jpg)
-届时8位挑战者将放手一搏。高手过招，为真不破，既同台对决，又携手相助。 紧张刺激，欢乐有趣！谁将入围七芒星终极之战？ 让我们拭目以待！
+On behalf of our partners, the Bill and Melinda Gates Foundation
+代表我们的合作伙伴比尔和梅琳达·盖茨基金会
 
-本期的主持人选手是来自美国华盛顿DC农场的飞飞！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185220/WhatsApp-Image-2021-06-16-at-6.05.41-PM.jpeg)
-参加本期半决赛的7位晋级“挑战者”分别是：
+event 201（Pandemic simulation exercise）took place five months before COVID-19 was declared a pandemic.
+“事件 201” （大流行病模拟推演）发生在 COVID-19 被宣布为大流行之前五个月
 
-**政清（台湾宝岛农场）**
+The participants of the event are some of the same people
+活动的参与者是一些相同的人
 
-他是台湾宝岛农场直播组的组长，台湾农场GTV节目《联邦进行时》的主持人。 他的睿智与口才以及对时政和财经的到位解析给战友们留下了深刻的印象。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185304/619-1-%E6%94%BF%E6%B8%85.jpg)
-**爱岛文诚（英国伦敦喜庄园）**
+that are now deeply involved in the real pandemic
+现在深深卷入了真正的大流行病
 
-他是英喜庄园GTV节目《晚安不列颠》的主播。凭借超强的逻辑分析能力，他越战越勇，期待他在半决赛的精彩表现。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185326/619-2-%E7%88%B1%E5%B2%9B%E6%96%87%E8%AF%9A.jpg)
-**Mildseven（英国伦敦喜庄园）**
+and profiting from it as well,
+并也从中获利的
 
-他2017年开始跟随爆料革命，他希望通过文字影响德语区的政客，媒体，和百姓。2020年12月20日，他的名字出现在了德国官方第二电视台的网络文章里。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185352/619-3-mildseven.jpg)
-**文依（美国华盛顿****DC农场）**
+an event of this complexity and magnitude
+如此复杂和规模的事件
 
-她是爆料革命的老戰友，也参加过《我是音雄》节目。目前担任粤语组听写，大使馆语音房，农场直播节目等工作。 看到全世界受CCP病毒残害，更坚定了她的灭共决心。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185422/619-4-%E6%96%87%E4%BE%9D.jpeg)
-**克莉亜 （日本东京银河农场）**
+will take months to write prep and produce.
+将需要几个月的时间来准备和制作
 
-自2017年接触到爆料革命，她明白了爱国不等于爱党，中国共产党不等于中国人民的概念。积极宣传爆料革命和病毒真相。 只有灭共才能还原真相，相信2021年灭共必胜！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185440/619-5-%E5%85%8B%E8%8E%89%E4%BA%9A.jpeg)
-**欲静（日本东京银河农场）**
+Dr. Anthony Fauci
+安东尼·福奇博士
 
-他坚信因果轮回善恶有报，随着每位战友的心力凝聚，使爆料革命的新老战友，聚集在《我们的七芒星》节目上。彼此相知，共同前行，向着灭共的终点一起发力。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185457/619-6-%E6%AC%B2%E9%9D%99.jpeg)
-**Ryan****（美国纽约香草山农场）**
+“There is no question that there will be a surprise outbreak. ”
+“毫无疑问，会有突然的流行病爆发。 ”
 
-作为一名职业音乐人，他希望通过自己的专业为爆料革命新中国联邦尽自己的一份力，与战友并肩一起“以乐灭共”！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185516/619-7-Ryan.jpeg)
-本期的第 8 位参赛者将由以下 4 位补位挑战者 PK 产生：
+Even Bill Gates, a man with no medical training knew it was coming.
+甚至连比尔盖茨，一个没有受过医学训练的人也知道它会来
 
-**臺灣大象（台湾宝岛农场）**
+Bill Gates
+比尔 盖茨
 
-他因为爆料革命了解到真相，选择相信并付诸行动。这位台湾战友与几个好朋友一起加入爆料革命，在台湾农场透过欢乐的方式与战友们一起并肩灭共！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185533/619-%E5%80%99%E8%A1%A51-%E5%8F%B0%E6%B9%BE%E5%A4%A7%E8%B1%A1.jpg)
-**約瑟（加拿大多伦多枫叶农场）**
+“If we start now, we can be ready for the next epidemic.”
+“如果我们现在开始，我们就可以为下一个流行病做好准备。”
 
-他曾亲眼目睹防火墙内的人如何被中共愚弄和蒙蔽，自己的旅游业务也因CCP病毒受到重创。 为了自己和下一代，他跟随爆料革命，和战友们一起工作更有效有力。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185550/619-%E5%80%99%E8%A1%A52-%E7%BA%A6%E7%91%9F.jpg)
-**重磅來了（義大利羅馬達芬奇農場）**
+Every single thing that you have seen play out in front of your eyes
+你所看到的每一件事都在你眼前上演了
 
-跟随七哥和爆料革命四年多了，消灭中共是正义的需要，我们新中国联邦人永不为奴。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185607/619-%E5%80%99%E8%A1%A53-%E9%87%8D%E7%A3%85%E6%9D%A5%E4%BA%86.jpg)
-**流浪的加菲（美国纽约香草山农场）**
+all of them laid out in their tabletop exercise,
+都在他们的桌面推演中铺开
 
-有幸这个时代七哥竖旗灭共。单纯的信，坚定的跟随，四载陪伴的日子，有袍泽之情，有灭共天理，或唱或答，小蚂蚁尽力添稻草，跟随爆料革命，盼无红魔之世。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185621/619-%E5%80%99%E8%A1%A54-%E6%B5%81%E6%B5%AA%E7%9A%84%E5%8A%A0%E8%8F%B2.jpeg)
+which by the way fact checkers have said,
+顺便说一下，事实核查员说过
 
+has nothing to do with the Coronavirus outbreak,
+这与冠状病毒爆发无关
 
-《我们的七芒星》第一场半决赛:  美东6月19日晚8点
+just happenstance, this is that wonderful universe of improbabilities
+只是偶然，这就是不可思议的奇妙宇宙
 
-《我们的七芒星》第二场半决赛:  美东6月26日晚8点
+where events just co emerge,
+事件刚刚出现的地方
 
-《我们的七芒星》年度总决赛：美东7月3日晚8点
+and the nature conveniently backs itself into our architecture.
+自然方便地将自己融入我们的建筑中
 
-+3
+Trees have banned travel from the worst affected areas,
+已经禁止在受影响最严重的地区旅行
+
+Vice President Mike Pence
+副总统迈克·彭斯
+
+“President has made a decision to suspend all travel to the United Kingdom and Ireland”
+“总统已决定暂停所有前往英国和爱尔兰的旅行”
+
+this and misinformation circulating over the internet
+这和在互联网上传播的错误信息
+
+across the world misinformation about the virus is being shared online,
+世界各地有关该病毒的错误信息正在网上共享
+
+a significant demand for N95 masks and gloves are on the rise,
+对 N95口罩和手套的大量需求正在上升
+
+the demand for N95 masks to prevent the deadly airborne virus has surged,
+为防止致命的空气传播病毒对 N95 口罩的需求激增
+
+we could eventually have 52 million treatment courses per year,
+我们最终可以每年有 5200 万个治疗疗程
+
+but it will take many months to get there,
+但要达到那个需要好几个月的时间
+
+we’re still many months out from having something
+我们还有很多个月才能拥有一些东西
+
+that we can really deploy to the public
+我们可以真正部署到公众
+
+and 65% of those fold are eager to take the vaccine,
+而且65% 的人渴望接种疫苗
+
+even if it’s experimental.
+即使它是实验性的
+
+The new poll finds that 49% of Americans say
+新的民意调查发现 49% 的美国人说
+
+they would get a COVID-19 vaccine
+他们会接种 COVID-19 疫苗
+
+shouldn’t effective one be discovered.
+不应该发现一个有效的
+
+I’m curious, who wrote the event 201 script.
+我很好奇，谁编写了“事件 201 ” 的脚本
+
+The visionaries of the event knew,
+事件的有远见的人已经知道
+
+at least one year in advance what was needed.
+至少提前一年需要什么
+
+Why didn’t they take care of those things.
+他们为什么不处理这些事情
+
+Considering the Bill Gates has donated half of his fortune to make the world safer.
+考虑到比尔盖茨已经捐赠了他一半的财富来让世界更安全
+
+Why didn’t you help to better prepare our hospitals and frontline workers.
+你为什么不帮助我们的医院和一线工作人员更好地做好准备
+
+Why didn’t any of the events wealthy sponsors do something.
+为什么有钱的赞助商没有做点什么
+
+Bill Gates
+比尔 盖茨
+
+“Now here we are in, we didn’t simulate this, we didn’t practice”
+“现在我们在这里，我们没有模拟这个，我们没有练习”
+
+Unknown female speaker
+不知名女演讲者
+
+on behalf of our partners in the Bill and Melinda Gates Foundation,
+代表我们在比尔和梅琳达·盖茨基金会的合作伙伴
+
+Bill Gates
+比尔 盖茨
+
+“so both the health policies and economic policies,
+“所以无论是卫生政策还是经济政策
+
+we find ourselves in unchartered territory.”
+我们都发现自己处于未知领域。”
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接**: [https://twitter.com/heidegger79/status/1404356483563851776?s=24](https://twitter.com/heidegger79/status/1404356483563851776?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

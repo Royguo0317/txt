@@ -1,31 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】汤灿——一个被人民解放军解放的女人
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1333052/)
+## 【有声读物】端午幻生缘
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1333185/)
 
-撰稿：Ermat【㊙️翻Gnews原创组】
+配音：香草山录音组 Swr拥抱太阳
 
-责编：Shifter
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18223356/e7cd7b899e510fb30f248609d07edf95d143ad4ba652.png)图片来源：baidu.com
-6月17日，郭文贵先生在GTV直播的最后，谈及了被称为“中国民歌天后”的内地女歌星汤灿如何被骗失身，献出了她的第一次的故事。这让这位“军中妖姬”再次成为关注热点。
-
-郭先生说，在一次酒后，一名解放军军官以”我是人民解放军，军民一家，我就是要解放你”为由，一步步诱骗涉世未深的汤灿，最后夺走了她的处女之身。多年以后，那个懵懂稚嫩、不谙世事的她已经不在。她曾多次像开玩笑一样谈及此事，竟然没有一丝难为情。看来，我们的人民解放军真的解放了她！当然，解放的远不止她一个，这本就是解放军的义务嘛。
-
-据悉，汤灿与中共党政军各界多位高官有染。在35岁时，经前军委副主席徐才厚运作，她破格入伍，进入了北京军区“战友文工团”，佩戴大校军衔，享受副师级待遇。而李东生出任中央电视台台长期间，为了能取悦周永康，以便日后官运亨通，将当时已大红大紫的汤灿献给了他。之后，周又将汤灿介绍给了薄熙来。
-
-汤灿被捕后，经中纪委查实，她与薄熙来、周永康、前中共公安部副部长李东生、前中共总后勤部副部长谷俊山、和前军委副主席徐才厚等十多名官员有染。汤灿不仅是这些高官的“公共情妇”，而且还为李东生和焦利结交薄熙来和周永康牵线搭桥。此外，她还通过出卖色相为薄熙来和周永康获取重要情报，并监视其他中共高官。
-
-据报道，汤灿现已出狱，并被指定安置于湖南株洲老家。现如今，经历了大起大落、也尝尽了人世间心酸坎坷的她，再也没有了往日的妖艳、倩丽。她曾游走于各色男人之间，纵欲于声色犬马之中，被哄骗、蹂躏、玩弄。在权斗、欺诈中，靠着权贵爬上了名利的巅峰，靠着肉体，写下了一部平民奋斗史，也享尽了荣华富贵。
-
-可惜好景不长，她自认为绚丽的生命火焰，还未完全绽放，就瞬间被熄灭了。本篇只是一个小小的热身，更多、更精彩的且听郭先生下回分解。
-
-参考链接：
-
-1. [汤灿的更多细节被披露](https://www.epochtimes.com/gb/18/5/10/n10379881.htm)
-2. [李东生用央视美女色贿高层 汤灿成手中王牌](https://www.epochtimes.com/gb/13/12/21/n4039881.htm)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
-（本文仅代表作者个人观点）
+
+
+
+端午中日焰
+浴花圃园间
+灰影叶间动
+惊喜野雀缘
+
+
+
+**文字版原文：[【香草诗词汇】端午幻生缘](https://gnews.org/zh-hans/1323394/)**
+
+作者：纽约香草山医疗部 云豹
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

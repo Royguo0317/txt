@@ -1,26 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】推特网友曝光布隆伯格和杨澜的亲密关系
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1333041/)
+## 【有声读物】登录未来
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1333226/)
 
-有网友在推特曝光了布隆伯格和杨澜的亲密关系，其中引用了一段郭文贵先生在几年前视频直播中的文字记录资料。资料显示，杨澜和吴征夫妇是通过文贵先生认识了布隆伯格，在此期间，杨澜与布隆伯格玩了一个找钥匙的游戏。这次亲密的接触之后，为布隆伯格和他代表的华尔街和中共合作勾结打开了一个新的方向。![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18222939/Picture1-33.png)
+配音：香草山录音组 Swr拥抱太阳
 
-杨澜是美国居民，她目前的的丈夫在一年前因为被揭发后在美国注册了外国代理人。
-
-参考链接：
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-> 布隆伯格也被找过钥匙！！！ [pic.twitter.com/icACg3ryii](https://t.co/icACg3ryii)
-> — 阮尚李（终共靠贵）【Fuck HK POPO】 (@1808\_W73) [June 18, 2021](https://twitter.com/1808_W73/status/1405984643849940992?ref_src=twsrc%5Etfw)
+
+
+未来必来
+不是请不请
+一根筋
+绝无开断
+
+登录必录
+不是做不做
+一钥匙
+登录开启
 
 
 
-整理撰稿：蓝精灵
+**文字版原文：[【笔录新生】登录未来](https://gnews.org/zh-hans/1329397/)**
 
-校对发布：Penny
+手绘图：纽约香草山设计部 蜂鸟
+诗作者：纽约香草山健身部 澄道来了
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

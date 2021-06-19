@@ -1,42 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 对《反外国制裁法》的困惑
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1332659/)
+## 【热点播报】四名英国航空公司飞行员一周内死亡，与CCP病毒疫苗无关吗？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332771/)
 
-作者：范海辛 | 校对：X-Wing | 审核：Beicy-数学老师 | Page：我是球大哥
+作者： 纽约香草山媒体部  7bends
 
-[!\[\]()!\[\](https://spark.adobe.com/page/F6bWuThCTKxyo/images/1702b38f-44b4-487b-b37c-d22b4d2114ea.jpg?asset_id=02fd125f-b238-46fd-80ab-7dbdd055a2f4&amp;img_etag=%224a1d37a252c3b55241d6cd047bb8133f%22&amp;size=1024)](https://spark.adobe.com/page/F6bWuThCTKxyo/images/1702b38f-44b4-487b-b37c-d22b4d2114ea.jpg?asset_id=02fd125f-b238-46fd-80ab-7dbdd055a2f4&amp;img_etag=%224a1d37a252c3b55241d6cd047bb8133f%22&amp;size=1024)
-
-2021年6月10日，中共国公布并开始实施《反外国制裁法》。观此法，令人感到困惑之处颇多。
-
-首先是该法出台的程序。按照《立法法》的规定，人大常委所立之法，一般应当通过“三读”（第二十九条列入常务委员会会议议程的法律案，一般应当经三次常务委员会会议审议后再交付表决），可惜此法只有“二读”便匆匆通过。这当然可以用“情况紧急”、“非一般”来辩解，但多少给人程序瑕疵的感觉。
-
-困惑之二是该法难免“稻草人法律”之嫌。法律本该非常严肃，不是逗你玩、搞忽悠的。但我国法律一向有“稻草人”的传统，这实际就是拿法律当儿戏，用来吓唬人、宣泄某种情绪的。《反外国制裁法》的稻草人嫌疑相当明显。譬如该法第六条列明的三条制裁措施（（一）不予签发签证、不准入境、注销签证或者驱逐出境；（二）查封、扣押、冻结在我国境内的动产、不动产和其他各类财产；（三）禁止或者限制我国境内的组织、个人与其进行有关交易、合作等活动；），可能会如稻草人一样，起不到什么实际作用。因为大家都知道的原因，只有我国成功人士需要到西方国家去（移民、旅游、看病、教育等），而西方国家的精英除了来骗钱割韭菜的，一般很少到中共国来，更不可能把钱存在中共国，或者在中共国买房炒股。这与中国人不会到朝鲜求学移民、把金银细软存在朝鲜是一个道理。
-
-困惑之三，这个制裁还有可能伤及自己，也就是说，该法除了稻草人的特性，还有“双刃性”，搞不好会伤及自身。譬如，美国国会制裁香港官员，导致这些官员没法用银行卡，所发工资只能是一堆纸币，非常不方便。因为香港的银行，哪怕是作为央企的中国银行、工商银行等都不敢给林郑等官员开立账户、提供金融服务。如果它们无视美国法律，一旦被美国发现，会被踢出美元结算体系。这些银行如果不得经手美元，还不等于破产倒闭？
-
-于是问题来了，这些参与制裁林郑等香港官员的银行，岂不也在《反外国制裁法》的反制清单里面？因为这些央企银行“对我国公民、组织采取歧视性限制措施”（见该法第三条）。难道国务院要将香港的中资银行也列入反制裁的清单吗？
-
-之四，该法的双刃性最强烈的表现，是会加速欧美日韩等企业撤离中工国，是为渊驱鱼，为丛驱雀的自戕行为。这是因为，该法的反制裁的对象范围很广（见该法第五条所列的四种制裁对象），而国外企业里的持股人的情况又非常复杂。那些已在中共国投资的企业，说不定会因为本国政府的某项制裁中共国的措施而被牵连，被该法列入反制清单里。
-
-美国对华策略有两种，以川普为首的共和党的是脱钩（政治、经贸、科技，金融、文化等所有领域的全面脱钩），以拜登为首的民主党是保持接触、联系的情况下的竞争和对抗。要说对中国打击严重的，当然是脱钩。而拜登的不脱钩的竞争、对抗就免不了制裁。人家一制裁你马上来个针锋相对，这样搞下去的结果只有脱钩。
-
-所以，这部匆忙出台的法案，正面作用几乎没有，而副作用倒是十分严重。给人感觉就像是相互吵架、宣泄情绪的产物，不知这是低级红还是高级黑？
-
-《圣经》里一段话语很贴切制定此法案的人：“平安的路，他们不知道；所行的事没有公平。他们为自己修弯曲的路，凡行此路的，都不知道平安。”（赛59:8）
-
-现在的中共国就是如此，夫复奈何？
-
-*文章仅代表作者观点*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/F6bWuThCTKxyo/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/F6bWuThCTKxyo/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-0
+
+[Gateway Pundit](https://www.thegatewaypundit.com/2021/06/four-healthy-british-airways-pilots-die-one-week-airline-says-no-link-covid-19-vaccine/) 6月17日报道，路透社记者向英国航空公司求证近期社交媒体流传甚广的关于四名正值壮年的英国航空公司飞行员（可能接种CCP病毒疫苗后）突然死亡一事。为此，英航目前正在与政府就是否允许接种CCP病毒疫苗的飞行员飞行进行危机谈判。据说大约80%-85%的人已被接种疫苗。英国航空公司在对路透社进行回应时证实了死亡人数，但否认与疫苗相关，也否认正在与政府进行谈判。
+
+
+
+> I believe it was actually FOUR young pilots who died due to the Maxine [pic.twitter.com/LkahSVOTkN](https://t.co/LkahSVOTkN)
+> — The Thing (@TheThin59129130) [June 17, 2021](https://twitter.com/TheThin59129130/status/1405468219998150658?ref_src=twsrc%5Etfw)
+
+
+
+英国航空公司6月17日在推特上例行公事般的发推文回应传闻：令人悲伤的是我们飞行员社区的四名成员最近去世了。我们的心与他们的家人和朋友同在，但社交媒体上关于这4起死亡事件相关联的传说毫无根据。
+
+
+
+> Sadly four members of our pilot community passed away recently. Our thoughts are with their family and friends. However, there is no truth whatsoever in the claims on social media speculating that the four deaths are linked. Julie
+> — British Airways (@British\_Airways) [June 17, 2021](https://twitter.com/British_Airways/status/1405606519631007748?ref_src=twsrc%5Etfw)
+
+
+
+英航的回应真的那么令人信服吗？让我们看几则英航这个推文下的跟帖：
+
+- 一则跟帖说，向所有受影响的人表示诚挚的哀悼。据我了解，飞行员会定期做身体测试，你们飞行员的死亡率是正常还是不正常？
+- 另一则跟帖说，飞行员每年接受体检。此项检查包括心脏、视力、听力、大脑等。超过一定年龄，必须每六个月进行一次体检。这些飞行员以前不太可能有任何疾病。
+
+
+英航四名飞行员的突然死亡，真的与CCP病毒疫苗无关吗？
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141843/6-june.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯****，****更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场****Twitter****（****中文****）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场****Twitter****（****英文****）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+
+
+
+
+
++1

@@ -1,36 +1,349 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的 “家国情怀”是塞壬女妖
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1332525/)
+## 【深度科普】文医谈病毒防护、治疗与疫苗的合辑
+` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1328249/)
 
-作者： 帕丁顿
+Gnews病毒真相小组 整理
 
-荷马史诗《奥德修记》中一个情节是塞壬女妖们居住在意大利西西里岛附近海域一座遍地是白骨的岛屿上，她们用自己天籁般的歌喉使得过往的水手们倾听、失神，航船触礁后沉没。两位塞壬的名字是：
 
-阿格劳斐墨（「华美」之意）
-忒尔克西厄珀亚（「魅惑」之意）。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18163544/88767e3bbe6dc564.png)
 
-上图描述一个被诱惑而溺水的航海者绝望地看着塞壬美丽的容颜，他不得不崇拜这神秘的海妖，而塞壬弯着身体弹着琴看着将要死去的被诱惑者。看着这幅画，我想到了毛泽东打AB团时写给上海中共中央的信 “是忠实的革命同志，纵令其一时受屈，总有洗冤的一天，为什么要乱供、陷害其他的同志呢？”
 
-也有古代学者认为女妖有三位，分别是：珀伊西诺厄（「动感」之意）；阿格劳珀（「华音」之意）；忒尔克西厄珀亚（「魅惑」之意。
+## mRNA疫苗可能产生的灾难后果(二)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18163750/9c97a237c1c31134.jpg)
 
-上图描写三个赤裸的海妖都是女人，一个拉着七弦琴，尽最大努力的把水手从奥德修斯的船拉到岸边，岸上躺着早期受害者的遗体。荷马史诗是最早的古希腊长诗。名著总能够给不同时期的人类带来启迪。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010656/db053f2425daead87e1b56a16573264e.jpg)
 
-中共建立100年，头30年，其打出的口号多以龚楚所说 “改造不平等的妨碍人类进步生存的旧社会，建立平等自由，人类和平共存的新社会”，靠这种崇高的口号吸引了众多追求乌托邦的社会精英，满腔激情加入了中共。很快他们就发现，这个社会主义乌托邦原来堆满了同类的尸骨，缺乏坚定自由意志的人绵延不断被 “人类大同” 之华美辞藻，恋爱自由，妇女解放，冲破封建礼教的 “魅惑” 拽到塞壬的海岛。张绒女士在《毛泽东，鲜为人知的故事》这样描述：从国统区投奔到解放区延安的青年有四万人，多是十几、二十岁，由中共地下党把他们介绍到这块 “革命圣地” 来的。到达延安时，他们无一不是兴奋万状。
 
-有个青年回忆道 “我们终于见到延安的城头了，我们这时兴奋得几乎要流出泪来，我们在车上向着延安城不停的欢呼，歌颂这座庄严的古城……歌声开始激荡，我们高唱起&lt;国际歌&gt;和俄国的&lt;祖国进行曲&gt;。” “青年们又慕煞干部们身上又臭又脏的烂军服，处处觉得新鲜、刺激和神秘，为之颠倒。 &lt;延安颂&gt; 的歌声响彻全城。” 他们很快就发现革命理想的核心价值 “平等” 在延安这些进步青年的圣地毫无踪迹，无论是衣食住行处处都是详细的分出了不同级别的待遇。对此不满的比如王实味，就被他在国统区喜欢听的《大刀向鬼子们的头上砍去》的大刀从其身后将他砍死。怕被人认出，乱刀百次，再将血肉模糊的尸体丢于一口枯井里。延安的抢救运动通过精神肉体的折磨把包括国统区投奔来的进步青年全部变成了绞肉机的各个部件和原料。
+[GTV视频链接](https://gtv.org/video/id=60c2758b8ce6da73c41878a2)
 
-1949-1950共产党暴力篡权后，大批留学海外的华人精英无法抵御女妖新歌 “建设新中国”，又是新一轮血泪史。这又一拨从海外归来的 “水手” 刚一发现新中国不对劲时，他们已经被押送到开往夹边沟劳改农场的死亡列车上了。这些前赴后继一代又一代中国人付出真实鲜血和性命，得到的是抽象的共产主义。尤以海外华人遭遇格外明显，如萧光琰、巫宁坤，被煽动的印尼华人等。他们悲惨经历被拍成电影《海外赤子》，实则是一大群海外痴子。在中共国的地铁车厢里，每当煽情的 “爱国” 镜头出现，背景音乐大多是当年叶佩英唱的电影主题歌《我爱你，中国》。
 
-很难找到英语中与 “家国情怀” 对应的词，家国情怀把家，个体的权利堂而皇之拿掉。家是具体的恒定的概念，国是抽象的变化的概念。把这两个绑定，结果是无尽的悲剧。家国情怀使得中国人离开中国无论到了哪里，都甘愿成为抽象的 “国” 的奴隶。远的有1740年红溪惨案清国政府对被荷兰殖民者杀害的早期印尼华侨的态度：“自弃王化”、“系彼地土生，实与番民无异”、是“彼地之汉种，自外圣化”，因此华人遭屠杀，“事属可伤​​，实则孽由自作”，“圣朝” 无须加以责备。近期1998年印尼的黑色五月暴动，导致印尼华人蒙受巨大人道灾难。中共国外交部长唐家璇于1998年4月访问印尼期间，曾表示愈发严重的社会动荡以及以当地华人为目标的种族暴力问题属于印尼内政，中共国不会干涉。惨案后，中共国认为印尼黑色五月暴动是他国内政，主要采取不干涉政策。
 
-国民党、共产党都把 “家国情怀” 作为政治手段相互厮杀。1910-1930年代在东南亚活动，一个主要依据就是传统的 “家天下” 观念。余光中的统战诗《乡愁》也是家国情怀的产物。家国情怀给你一个虚妄的目标，国共两党对待海外华人，只有利用，绝无保护。经常听到一种说法，“我不爱共产党，但是我还是要爱国”，在一党专制的国家，爱国就是爱党。家国情怀在集权体制里就是爹亲娘亲不如党亲。先有砖再有房，先有家才有国，中共通过无死角灌输 “国是家”，颠倒这个逻辑顺序，让几亿人、几代人甘愿交出个体权利。逻辑思维能破中共的所有宣传伎俩，坚定个人权利高于国家之上，你就不会成为被中共妖言能惑的众。
 
-校对/发布：阿娜
 
-0
+
+
+## mRNA疫苗可能产生的灾难后果(一)（主讲：文 医 嘉宾：千叶草大姐 北京人）
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010550/495c2e00ce1563cde4dff38d31c996b2.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=60b0001eb7dff64ac985223b)
+
+
+
+
+
+
+
+## 公众对CCP病毒抗体的认知误区 (主讲：文 医 嘉宾：千叶草大姐 北京人)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010441/b041bba1a36dc28383f885cb54f9e326.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60a6c6a1db13300ca55cc364)
+
+
+
+
+
+
+
+## “解毒”功能增强的CCP病毒——多重方式绞杀细胞（主讲：文 医 嘉宾：千叶草大姐 北京人） 第二部分
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010253/dc8e290d54744547f6aab74f6199995c.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=609dae95db13300ca5538508)
+
+
+
+
+
+
+
+## “解毒”功能增强的CCP病毒——多重方式绞杀细胞（主讲：文 医 嘉宾：千叶草大姐 北京人） 第一部分
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010127/abe5687d2b874d84a9b1ac73b18ed0cb.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=609d9b3bdb13300ca5537a08)
+
+
+
+
+
+
+
+## 2021-04-28 “醫E” 語中的 第19期, CCPVirus”功能增强 “长驱直入核心器官·搞弱搞残细胞功能”
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005857/da1fee9c0f4ccc9df06c0e1436cacfb1.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6089da7e6c00a14130e1c3a5)
+
+
+
+
+
+
+
+## 2021-04-21 医生视角解读“CCPVirus”神经毒性功能的增强
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005759/d7e15d55985b0adda4a01e0b084d973e.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6080a1577e083973a72e226f)
+
+
+
+
+
+
+
+## 2021-04-14 ”醫E“語中的第17期 閻博士報導 醫生視角解讀CCP病毒功能增強
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005441/a45ed5a1f07feb9fac3efd4ca67b0258.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60776a5662d629309ee40528)
+
+
+
+
+
+
+
+## 2021-04-07 ”醫E“語中的第16期 閻博士報導 醫生視角解讀CCP病毒功能增強
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005546/604841836655d9be0e2a615f20683b46.png)
+
+
+GTV视频链接 [Part1](https://gtv.org/video/id=606e2c846e11a756eddb5713) [Part2](https://gtv.org/video/id=606e30dd6e11a756eddb5a44)
+
+
+
+
+
+
+
+## 2021-03-31 “醫E”語中的第15期 美國一線醫師covid19白皮書
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005107/df34cbf677b69dc9a1d6c1ba26bb4c21.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6064f784a54f827240bd50f9)
+
+
+
+
+
+
+
+## 2021-03-24 “醫E”語中的第14期 話疫苗 5
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004804/b092848f3a28d3c5be359fcdfafad02d.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=605bb68ba26ac57138e444b6)
+
+
+
+
+
+
+
+## 2021-03-17 “醫E”語中的第13期 話疫苗 4
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004432/a71f6f9239cf353aacbf28c01db3fa09.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60527ab5e9cdd43098eaef26)
+
+
+
+
+
+
+
+## 2021-03-10 “醫E” 語中的 第12期 話疫苗（3）
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004531/e1454c0da647616049c4245080d9090b.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60494efa75e88a51e6e9ef77)
+
+
+
+
+
+
+
+## 2021-03-03 “醫E”語中的第11期 話疫苗 2
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003742/b5ed6f56523ed967ff5be3e606c99b50.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6040150794761a708f1999a3)
+
+
+
+
+
+
+
+## 2021-02-24 【“醫E”語中的】（10） 話疫苗 （1）
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003432/8048e874797d7c41cc4c5a34081f2b20.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6036da22047c4c3086dd5052)
+
+
+
+
+
+
+
+## 2021-02-17【“醫E”語中的】（9）邪恶“CCP病毒” 二元武器 第二元
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003311/79e7f3a28786b885373e7dde97abf088.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=602daeb7be64150df85b1d7f)
+
+
+
+
+
+
+
+## 2021-02-10【“醫E”語中的】（8）邪惡CCP病毒 二元武器效應 第一元
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003125/adf72ace6bc5474f08b15ac3ae971856.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=602468e5be64150df8501dd4)
+
+
+
+
+
+
+
+## 2021-02-03【“醫E”語中的】（7）邪恶“CCP病毒” （二）认识CCP病毒最诡异邪恶之处
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003013/af6ff7f3beb9405d8dc8611fa77230ea.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=601b2c383f8a013ab47b7c7a)
+
+
+
+
+
+
+
+## 2021-01-27 “醫E”語中的 （6）邪恶“CCP病毒” （一）认识病毒，保护自己
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17002454/1ac4ff3009ac8104d9e188f0365f7ff0.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6011f0c3b819717e79b3d6e3)
+
+
+
+
+
+
+
+## 2021-01-13 “醫E”語中的（5）神奇的羟氯喹（四） 服用羟氯喹应该注意的事项
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17002057/52e7bbfb99de6a6093c13139499bd1ff.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5fff7b14f579a75e0bd668a1)
+
+
+
+
+
+
+
+## 2021-01-06 “醫E”語中的（4）神奇的羟氯喹（三） 不可思议的广谱抗微生物效应
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001816/84636763ba87ba09966f4561a407740b.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5ff64107f579a75e0bc837b1)
+
+
+
+
+
+
+
+## 2020-12-29 “醫E”語中的（3） 神奇羟氯喹（二） 老药羟氯喹焕发神奇“青春”
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001639/9e03978d2547594f0fb1bca0809bcb0e.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5febb4f3f579a75e0bbb9700)
+
+
+
+
+
+
+
+## 2020-12-22“醫E”語中的 （2） 神奇羟氯喹(一) 认识羟氯喹
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001455/2020-12-22%E9%86%ABE%E8%AA%9E%E4%B8%AD%E7%9A%84-%EF%BC%882%EF%BC%89-%E7%A5%9E%E5%A5%87%E7%BE%9F%E6%B0%AF%E5%96%B9%E4%B8%80-%E8%AE%A4%E8%AF%86%E7%BE%9F%E6%B0%AF%E5%96%B9.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5fe27ac1c0544c3d973305b9)
+
+
+
+
+
+
+
+## 2020-12-15“醫E”語中的（1）光鮮的新冠疫苗背後可能的致命風險
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001220/43a19b816546183367c4e09d01299243.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=5fd943c509267020eb52df80)
+
+
+
+
+
+
+
++1

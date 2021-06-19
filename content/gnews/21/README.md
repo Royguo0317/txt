@@ -1,27 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象白话】警惕：中共新的掩盖病毒真相信息战已经开始
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1332818/)
+## 6月18日美国政要推文精选: 福奇手上沾满了血,辞退福奇
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1332947/)
 
-小象：在前几日中共报道了他们科学家发现了新的24种蝙蝠病毒，其中有4种可以传染人类。此报到也被媒体到处转发，时隔近一周，一名叫安查尔·尼加姆记者发表了下面的一篇报道称：瑞士的蝙蝠携带来自 39 个不同家族的病毒，有些可以传染给人类。
+众议员迈克·加拉格尔： 我们那些无视伦理道德的科学家在新型冠状病毒的起源上将我们自己的情报界耍的团团转，这一事实告诉我们，我们有一个巨大的问题。 如果我们要防止下一次疫情，我们必须追根究底，并要求本国政府做得更好。
 
-文章说：“苏黎世大学的研究人员表示，瑞士的蝙蝠携带着来自至少 39 个不同病毒家族的病毒，其中包括能够从动物传染给人类的病毒。Isabelle Hardmeier 及其同事于 6 月 16 日在开放获取期刊 PLOS ONE 上发表了这些发现，指出该结论是在对生活在欧洲国家的 18 种静止和迁徙蝙蝠进行分析后确定的。 尽管只有少数致病病毒会传染给人类，但蝙蝠携带的一些病原体可能会传染给其他动物，然后传染给人类。SARS-CoV-2 也发生了同样的情况，它导致了 COVID-19，该病毒于 2019 年 12 月在中国首次发现，据信源自动物。”
 
-这篇文章和之前发布中国的信息几乎完全吻合，强调一点，在蝙蝠身上新发现了病毒可以传染人类。这一类的信息最新大量涌现，看似非常的零散，从世界各地散发出来， 而且和中共发出的信息还有一定的时间差，通常是在一周之内。大家仔细观察，不难发现其中的规律，重要的关键点是病毒骨架是舟山蝙蝠病毒和闫博士的三份报告，下面的链接是闫博士最新的视频。[https://twitter.com/DrLiMengYAN1/status/1406030295703359494?s=20](https://twitter.com/DrLiMengYAN1/status/1406030295703359494?s=20)。
 
-另外还有很多中共高官叛逃的消息，凑巧的是，这些叛逃的官员都携带着有关中共制造病毒的大量文件，其中的真假，以郭文贵先生最新消息为准。小象认为这是试图用一个热点，这个热点也许是真的也许是假的，但是热点孵化出来的病毒消息，一定是有问题的。从一个谎言走向另外一个谎言，这就是百年来共匪所谓的一个胜利走向另外一个胜利的不二法宝。
+> The fact that we had ethically-conflicted scientists spinning our own intelligence community on the origins of COVID-19 tells us we have a huge problem. 
+> 
+> If we're going to prevent the next pandemic, we have to get to the bottom of this and demand better from our own government. [pic.twitter.com/f9ZRwtVu8h](https://t.co/f9ZRwtVu8h)
+> — Rep. Mike Gallagher (@RepGallagher) [June 18, 2021](https://twitter.com/RepGallagher/status/1405940115537604610?ref_src=twsrc%5Etfw)
 
-参考链接：
 
-[https://www.republicworld.com/world-news/europe/bats-in-switzerland-harbour-virus-from-39-different-families-some-can-jump-to-humans.html](https://www.republicworld.com/world-news/europe/bats-in-switzerland-harbour-virus-from-39-different-families-some-can-jump-to-humans.html)
 
-图片来源：[https://www.republicworld.com/](https://www.republicworld.com/)
+彼得·纳瓦罗： 福奇手上沾满了血。辞退福奇。
 
-整理撰稿：蓝精灵
 
-校对发布：Penny
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+> Blood on Fauci’s hands. Fire Fauci [https://t.co/VfXALIxvF3](https://t.co/VfXALIxvF3)
+> — Peter Navarro (@RealPNavarro) [June 18, 2021](https://twitter.com/RealPNavarro/status/1405939544244068357?ref_src=twsrc%5Etfw)
+
+
+
+参议员玛莎·布莱克本： 你说什吗？ 【转推里福奇为自己开脱称：对于 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 泄漏说一直保持开放的心态并观察着，所以他认为说他们故意压制这一点有点曲解】
+
+
+
+> Say what? [https://t.co/o0gIqZUJE7](https://t.co/o0gIqZUJE7)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 18, 2021](https://twitter.com/MarshaBlackburn/status/1405683907396313089?ref_src=twsrc%5Etfw)
+
+
+
+众议员艾丽丝·斯特凡尼克： 说到底CNN（美国有线电视新闻网）是捍卫中国新闻网的。 （转推福克斯新闻：“CNN在鼓吹中共提供的新型冠状病毒疫苗接种率后被指控替中共鼓动宣传”）
+
+
+
+> So CNN does stand for China's News Network, after all. [https://t.co/TgegylGBLF](https://t.co/TgegylGBLF)
+> — Rep. Elise Stefanik (@RepStefanik) [June 18, 2021](https://twitter.com/RepStefanik/status/1405994071412383750?ref_src=twsrc%5Etfw)
+
+
 
 0

@@ -1,59 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社即时简报】习近平携中共领导人宣誓
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332942/)
+## 亚利桑那州的国家审计预计还需八周出报告
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1333132/)
 
-香草山翻译部：GBW
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18233634/A-12.jpg)newswars.com
+《门道专家》报道了亚利桑那州“国家审计”的进展，“国际审计员：马里科帕郡（Maricopa）审计报告预计8周内不会提交——这是一个潜在的迹象，需要清查和报告的问题很多”。
 
+全文如下：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
+亚利桑那州参议院对马里科帕郡2020年选举结果的审计工作正在逐步结束，审计报告预计还要8个星期才能出来。
 
+以下是有关报道：
 
+一位参与这项工作的官员说，在亚利桑那州最大郡进行2020年选举审计的最终报告预计要到8月中旬才能出来，在亚利桑那州参议院聘请的《网络忍者》（Cyber Ninjas）的领导下，审计人员在完成选票重新计票后，正在对选票进行评估。
 
-2021年6月18日晚，路博艾
+选票评估应该在6月底结束，参议院预定在7月1日之前撤出退伍军人纪念体育馆，在这个体育馆进行了审计，但是在那之后还有几个星期的额外工作，前亚利桑那州共和党州务卿肯本内特（Ken Bennett）告诉记者。
 
-**1. 赵立坚：探索浩瀚宇宙是全人类的梦想，中国也不例外。**
+“我们还有6月剩下的时间来做我们在体育馆里要做的事情，接下来可能要花上几周的时间来检查信封上的签名，检查选民登记的异常情况，我们要做的这项重新建立的工作，所以可能要花掉7月份的一些或大部分时间，然后审计人员需要几周的时间来整理报告。”贝内特，这位亚利桑那州参议院负责审计的联络人说。
 
-博博士：中（共）国的太空计划是为军事目的服务的。
+马里科帕郡不仅是亚利桑那州人口最多的郡，而且据报道它也是美国人口最多的郡之一，马里科帕郡2020年选举的210万张选票约占该州选票的60%。
 
-**2. 习近平携中共领导人参观“不忘初心、牢记使命”党史展览**。
+审计报告可能需要8周才能完成的原因是，可能有许多问题需要解决，如果没有任何错误，并且审计结果与2020年选举中报告的结果相符，那么报告就可以在一天内完成，然后砰砰砰砰，就完成了，就可以出门了。
 
-a. 路德：习近平走在最前面。王岐山最后压阵，说明他第二重要。王毅这些炮灰也参加了。
+如果有很多问题，我们预计会有（即缺少选票、欺诈选票、缺少登记册文本等），审计报告和任何证据将需要一些时间来正式确定和审查，亚利桑那州的审计员可能需要很多时间来起草一份最终报告。
 
-b. 博博士：走出黑帮的气势，像邪教宣誓。
+马里科帕郡审计报告中很可能会发现很多问题，审计小组需要尽可能多的时间来完成最终审计，敬请期待。
 
-c. 艾丽：外部压力大，党心不稳。
+（全文完）
 
-**2. 塞林博士推特发了闫博士前夫Ranawaka照片和绿色贝雷帽，”在美国，他没有任何地方可以藏身，因为我们将一直追捕他。”**
+“如果没有任何错误，并且审计结果与2020年选举中报告的结果相符，那么报告就可以在一天内完成……”前州务卿的比喻调侃成分太大，倘若是这样，背后暗势力的索罗斯、奥巴马之流还需要千设卡、万阻拦，派上百人的律师团队企图叫停，唆使民主党人的司法部长恫吓这一标志着美国国本的“国家审计”吗？从11月3日福克斯记者第一个发出拜登获胜那一刻起，亚利桑那州的爱国人士就踏上了“秋菊打官司”之路，一定 “要个说法”！这叫正义的血性，不放弃，不纵容邪恶，直到胜利！
 
-a. 艾丽：整装待发，要行动了。有点最后通牒的意思。
+原文链接：
 
-b. 博博士：”特种部队”、”游骑兵 “和 “空降兵 “臂章需要通过所有相关的严格训练和考试。
-
-c. 博博士：塞林博士用“通缉犯”这个词是不是意味着立案了？
-
-笔记仅作参考，内容以路德社节目为准。
-
-视频链接：[https://www.youtube.com/watch?v=68sjIA4Pbog](https://www.youtube.com/watch?v=68sjIA4Pbog)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[https://www.thegatewaypundit.com/2021/06/arizona-maricopa-county-audit-report-not-expected-8-weeks-potential-sign-numerous-issues-inventory-report/](https://www.thegatewaypundit.com/2021/06/arizona-maricopa-county-audit-report-not-expected-8-weeks-potential-sign-numerous-issues-inventory-report/)
 
 0

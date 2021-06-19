@@ -1,45 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美防长当面指责中共国防部长，在南海问题行为违法
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332668/)
+## 【热点播报】反对为飞行员强制接种CCP病毒疫苗，美联航和工会达成协议
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332826/)
 
-作者：纽约香草山健身部 Jack Li文阳
+作者： 纽约香草山媒体部  7bends
 
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
 
 
-6月16日第八届东盟国防部长10+8扩大会议举行，会议聚焦在南中国海的和平稳定上，美国国防部长奥斯汀在会上当着中共国防部长魏凤和的面，指责中共在南海的违法行为，这次会议用视讯方式举行。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18195647/Untitled-design-2021-06-18T175521.269.png)
-除东盟十国外，澳大利亚、印度、日本、新西兰、韩国、俄罗斯、美国和中共国的国防部长也参加了此次会议。在美国国防部网站上发表的新闻中，奥斯汀国防部长阐明了美国政府对印太地区的愿景，强调了盟友与伙伴应对安全挑战的重要性。他还强调了中共国在南海的非法行为。 日本国防大臣岸信夫在会上说： 台湾海峡的和平与稳定对地区的重要性，呼吁在东海与南中国海，必须实行彻底的“法治”。他不点名的提到了中共国在海上日益升高的霸权行为。
-
-值得注意的是中共国的媒体在报道这次会议上，并没提到美国国防部长和日本国防大臣的针对中共国在南海台海的霸权行为的言论，更没见任何关于中共国国防部长对此表示反对的声音。很显然，美日防长的“突然袭击”大大出乎中共的意外，所以一时来不及请示习神，魏凤和顿时慌神，一时语塞，不敢随便应对，只能闭口不语。美日防长在此次东盟扩大会议上的表态，相信东盟各国都能看到美国和西方国家在南中国海和台海问题上支持各方根据国际法，和平解决争端的强硬立场。
-
-参考阅读：https://www.voachinese.com/a/us-china-south-china-sea-20210617/5932103.html
-
-http://www.xinhuanet.com/world/2021-06/15/c\_1127565369.htmhttps://www.ntdtv.com/gb/2021/06/17/a103144837.html
-
-校对/发稿：火内
 
 
+[雅虎新闻](https://news.yahoo.com/news/united-airlines-union-agree-against-014516372.html#click=https://t.co/PKpRyzHrTB)近期援引路透社报道，美国联合航空公司（UA）和工会同意反对为飞行员强制接种CCP病毒疫苗。美国联合航空公司飞行员协会周一表示，联合航空公司及其飞行员公会已达成协议，禁止该航空公司为其飞行员强制接种CCP病毒疫苗。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18214404/233-1.jpg)美国联合航空公司总裁斯科特·柯比在芝加哥奥黑尔国际机场发表演讲‎（图片来源：[yahoo news](https://news.yahoo.com/news/united-airlines-union-agree-against-014516372.html#click=https://t.co/PKpRyzHrTB)）
+
+该协议称，鉴于新冠疫苗接种是非强制性的，飞行员若选择不接种疫苗将不会受到任何纪律处分。航空公司与工会之间的协议还补充说，那些接种过疫苗的飞行员将有资格获得额外报酬。（笔者很疑惑，为什么接种过疫苗的飞行员将有资格获得额外报酬呢？是因为疫苗可能给已接种者带来额外的伤害因而令其有资格获得额外报酬作为隐性赔偿吗？）
+
+虽然美国的某些航空公司表示不会强制要求员工接种疫苗，如美国航空公司（AA）在一月份就表示，除非接种疫苗在所要进入的某些目的地是强制性的，否则AA不打算强制要求飞行员和其他员工接种疫苗，但仍有不少航空公司要求员工接种疫苗。美联航CEO在今年一月份的一次会议上告诉员工，公司可能会强制要求员工接种疫苗，他同时敦促其他公司也这样做。在本月早些时候，另一家航空公司达美也表示将要求所有在美国的新员工接种CCP病毒疫苗。
+
+尽管美国私营公司可以要求员工接种CCP病毒疫苗，但有专家表示，如果这样做，他们可能会面临法律和文化反弹的风险。近日传的沸沸扬扬的关于英国航空公司四名飞行员一周内死亡的消息虽然已被英航否认与飞行员接种CCP病毒疫苗相关, 但有关死因的医学调查尚未被公布。此次美联航与工会达成协议，同意反对为飞行员强制接种CCP病毒疫苗，不知是否与英航飞行员死亡事件有内在联系。
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141843/6-june.jpg)
+
+编辑/校对/发稿：小鹿
 
 
 
-**更多资讯，更多关注**
+**更多资讯****，****更多关注**
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+[**纽约香草山农场****Twitter****（****中文****）**](https://twitter.com/HIMALAYA_MOS)
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场****Twitter****（****英文****）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+
+
+
+
+
++1

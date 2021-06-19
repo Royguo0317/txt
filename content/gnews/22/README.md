@@ -1,101 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议员马特·盖茨: 美国不应该与中国共产党合作
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332786/)
+## 【热点播报】法国的 Covid-19：印度Delta 变种病毒仍“占少数”，但呈上升趋势
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332932/)
 
-**字幕内容：**
-Rep. Matt Gaetz
-众议员马特·盖茨
+翻译: 香草山商业组——文锤
 
-In a world in which all of the science that we do of consequence with China,
-在这个世界上，我们与中共国合作的所有科学成果
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
-ends up in the hands of the Chinese Communist Party and the Chinese military,
-最终都落入中国共产党和中共军队的手中
 
-like why don’t we ask the broad question,
-就像我们为什么不问广泛的问题？
 
-why is the US taxpayer funding any of this.
-为什么美国纳税人要资助其中任何一项？
 
-In what world is collaboration with the Chinese Communist Party,
-在什么样的世界与中国共产党合作
 
-somehow okay and Natalie set it up perfectly.
-不知何故，好的，娜塔莉把它设定得很完美
+根据法国公共卫生机构周五公布的监测数据，所谓的英国阿尔法变种病毒目前被证实了其在法国占有绝大多数的感染病例。
 
-A lot of the elites in academics in science are trying
-很多科学界的精英都在尝试
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18221254/234-1.jpg)图为2021年6月17日周四的香榭丽舍大街（图片来源：MICHEL EULER / AP）
 
-to create this veneer that like, oh, well
-创造这个假象，就像，哦，好吧
+CCP冠状病毒的 Delta 变体最初在印度被发现，其是导致英国感染人数反弹的主要原因，在法国感染病例仍然非常少，但印度变种病毒的感染病例，在 6 月份里，上一个星期五通报的监测数据中“呈上升趋势” ，6月18 日，法国公共卫生在其每周更新中。在 5 月 25 日进行的测序“快速调查”期间，在 1% 的样本中发现了这种变异，而在 5 月 11 日进行的上一次调查中，这一比例为 0.2%。
 
-there’s a good CCP folks that we can work with
-我们可以与那些好的共产党人合作
+卫生机构表示，它正在密切关注Delta 变体的这种“不断增加的传播”，“鉴于其传播性增加，感染的严重程度可能会增加，并且这个初步的估计考虑到了疫苗效能轻微的减弱，尤其是在未能普及的疫苗接种计划期间”。
 
-and they’re not truly tainted.
-他们并没有真正被污染
+“在国家领土上，疫情正在下降，正在得到控制”，本周四，户外不再强制带口罩的那一天，卫生部长奥利维尔·韦朗（Olivier Véran）表示满意。感染病例急剧下降：周四至周五新增病例 2,439 例，而一个月前每天新增病例超过 15,000 例。医院方面，疫情压力继续减轻：6 月 18 日星期五，有 10,700 名 Covid-19 患者住院，其中 1,740 人在重症监护室。
 
-That is nonsense,
-那是胡说八道
+- **英国****Alpha ****变种病毒仍然占主要感染病例**
 
-and now it’s not only that they control
-现在，他们不仅控制了
 
-the full function and scope of research in China,
-中共国研究的全部功能和范围
+根据法国公共卫生部 (SPF) 的说法，Alpha 变体（称为英国版）目前确认了其“感染主导地位”，在“快速调查”期间测序的 1,723 个样本中，有 86.3%，而 Beta 变体为 5.6% （称为南非），Gamma 变体（称为巴西）为 1.1%，Delta 变体为 1%。上周五发布的快速调查的初步结果显示 88% 的 Alpha 变体和 0.5% 的 Delta 变体。
 
-they are metastasizing into these global corporations
-而且他们的控制正在转移到这些全球性公司
+另一种监测变异的手段，PCR检测阳性的筛选数据不再列出几天之内的变异，而是有三个“突变点”。这些数据表明，出现在 印度Delta 变体中的 L452R 突变在 4.6% 的结果中被发现。SPF 传染病科的 Sibylle Bernard-Stoecklin 强调说，其他变体也携带这种突变，但“绝大多数，可能至少三分之二是印度Delta 变体”。
 
-like Google like Microsoft, that are setting up assets in China,
-就像谷歌，就像微软，正在中共国设立资产的
+正是根据这一估计，卫生部长奥利维尔·韦兰 (Olivier Véran) 周二宣布，“目前，在法国，我们筛查的阳性检测中有 2% 到 4% 对应于印度变体”。“这些数据应该谨慎解释，因为自 5 月 31 日以来实施的新筛选策略的检测逐渐增加”，SPF指出。上周，只有 37.5% 的阳性检测得到了筛查，并非所有实验室都配备了必要的新试剂盒。
 
-subjecting these companies to those very protocols,
-让这些公司遵守那些协议
+在英国，印度Delta 变种迅速传播，几周内取代了 Alpha 变种，该变种于 2020 年底出现在英格兰东南部。Sibylle Bernard-Stoecklin 判断，考虑到表明它具有比 Alpha 变体有更强的传染力的因素，“人们可以预期，印度变种病毒在法国境内的流行将在未来几周和几个月内增加”。但是“目前对流行病动态的影响尚不可预测”。
 
-and they’re buying our politicians.
-他们正在收买我们的政客
+- **5****月初以来死亡人数下降**
 
-In the meantime, and I think that’s the reason
-与此同时，我认为这就是
 
-why we’re having such a hard time,
-为什么我们过得这么艰难
+根据法国新冠肺炎疫情期间每周死亡人数的统计，法国每天观察到的平均死亡人数，加上所有原因，自 5 月初以来一直在下降，在 1 月份达到峰值之后，然后从 3 月中旬开始停滞不前。统计与经济研究所，周五公布的数据表明，虽然 1 月份平均每天有 2,150 人死亡，然后是 2 月份的 2,040 人，3 月和 4 月份的人数略低于 1,900 人，但这一数字在 5 月上半月下降到每天 1,740 人，然后在 5 月 16 日之后的时间段内降至略高于 1,600 人，直到 6 月 7 日。
 
-you know, getting to the bottom of this,
-你知道，查清这个问题的真相
+从 1 月1日到 6 月 7 日，法国记录了 301,263 人死亡，比 2019 年同期多 8%，2019 年没有 Covid，但有严重的季节性流感。与大流行爆发的 2020 年相比，该数字几乎稳定（+ 1%）。与 2019 年相比，普罗旺斯-阿尔卑斯-蓝色海岸 (+ 15%)、上法兰西 (+ 13%) 和法兰西岛 (+ 11%) 的死亡人数更多。
 
-but once we do once we really expose
-但一旦我们做到了，我们就真的暴露
+如果我们将 2021 年的死亡人数与两年前的人数进行比较，我们会发现他们的人数仅在 65 岁及以上年龄组增加：65-74 岁增加 13%，75-84 岁同样增加，对于85岁以上的老人，与 2019 年相比，从 1 月1日至 6 月 7日这个时间段来看，同比增加死亡的人数仅为的7% ，这可以通过接种 Covid 疫苗产生了免疫效果来解释——因为其中年龄最大的老人是第一批接种者。
 
-the origins of this virus of the Wuhan Institute of virology,
-武汉病毒学研究所是这种病毒的起源的真相
+**原文链接：**
 
-it’s really going to, you know slaughter a lot of sacred cows,
-它真的会让很多科学界的精英跌落神坛
+[Covid-19 en France : le variant Delta est toujours « minoritaire », mais en progression (lemonde.fr)](https://www.lemonde.fr/planete/article/2021/06/18/covid-19-en-france-le-variant-delta-est-toujours-minoritaire-mais-en-progression_6084728_3244.html)
 
-because they’re not going to be able to defend
-因为他们将无法为全国各地
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141843/6-june.jpg)
 
-the research and the research cash flowing
-的这些大学的研究和研究资金
+校对/发稿：小鹿
 
-through a lot of these universities all over the country.
-的流向进行辩护
 
-**原视频链接**: [https://twitter.com/repmattgaetz/status/1404494616758468609?s=24](https://twitter.com/repmattgaetz/status/1404494616758468609?s=24)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter****（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter****（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+
+
+
+
 
 0
