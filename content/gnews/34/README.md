@@ -1,15 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年6月18日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1332304/)
+## 加拿大领导国际联盟呼吁中共允许调查人员自由进入新疆
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1332504/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+翻译：神奇四侠
 
-Dear comrades-in-arms: the high-ranking officials of the Chinese Communist Party fled. It has already begun, and the end of this year will be a peak, followed by a large number of Chinese celebrities and wealthy people flocking overseas. This is a phenomenon that will definitely happen before the collapse of the Communist Party. The recent CCP’s big foreign propaganda. Crazy attacks broke the news about the revolution…comrades in arms must maintain a high degree of vigilance!
+加拿大广播公司新闻6月18日报道，加拿大正在联合国里联合20多个国家组成国际联盟（包括七国集团伙伴和瑞典、瑞士、荷兰、澳大利亚和新西兰）将会在周一象联合国人权理事会提交一份声明，要求中共允许国际调查员能自由进入新疆地区，以便获得新疆人权的真实报告。
 
-[【2021年6月18日】文贵先生盖特原文](https://app.gettr.com/post/pzm3m)
+该声明称：我们对新疆维吾尔自治区的人权状况表示严重关切，我们敦促中共允许包括高级专员在内的独立观察员立即、有意义和不受限制地进入新疆。同时停止任意拘留维吾尔人和其他穆斯林少数民族成员的行为。并对于香港和西藏的人权表示关切。
 
-**喜联盟Gnews编辑部**
+同一时间来自包括加拿大在内的各国议会中国问题跨国联盟的18个国家的60名议员计划单独发表公开信，要求联合国人权理事会成立一个独立调查委员会，调查中共在新疆犯下的反人类罪行和种族灭绝罪行。
 
-0
+这些外交行动是在媒体、学术界和联合国专家多年的报告之后采取的，这些报告指责中共在集中营监禁了100多万穆斯林少数民族维吾尔人，对他们进行强迫劳动、性暴力、人口控制方法和全面监视。
+
+2021年2月加拿大下议院根据1948年联合国《灭绝种族罪公约》规定的定义，就中共对新疆维吾尔人的迫害已经构成了种族灭绝，并呼吁加拿大政府正式采取这一立场。
+
+新闻来源：[CBC](https://www.cbc.ca/news/politics/china-canada-joint-statement-un-china-1.6071184)
+
+校对发稿：Ada （马德里）
+
+本文仅代表个人观点
+
++1

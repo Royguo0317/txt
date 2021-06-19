@@ -1,71 +1,349 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《我们的七芒星》 “星光灿烂” 第一场半决赛 &#8211; 美东6月19日周六晚8点
-` GMusic` [轉載自GNews](https://gnews.org/zh-hans/1332577/)
+## 【深度科普】文医谈病毒防护、治疗与疫苗的合辑
+` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1328249/)
 
-我们的七芒星文宣组 May，山上的城，Q大哥整理
-
-由GTV空中唱响团队和纽约香草山农场文艺部倾心打造的新中国联邦首档全民灭共大型知识竞猜节目《我们的七芒星》第十七期，暨 “星光灿烂” 第一场半决赛，将于美东时间6月19日周六晚8点，暨北京时间6月20日周日早8点，在GTV正式火热开播。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18190604/%E6%88%91%E4%BB%AC%E7%9A%84%E4%B8%83%E8%8A%92%E6%98%9F.jpg)
-届时8位挑战者将放手一搏。高手过招，为真不破，既同台对决，又携手相助。 紧张刺激，欢乐有趣！谁将入围七芒星终极之战？ 让我们拭目以待！
-
-本期的主持人选手是来自美国华盛顿DC农场的飞飞！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185220/WhatsApp-Image-2021-06-16-at-6.05.41-PM.jpeg)
-参加本期半决赛的7位晋级“挑战者”分别是：
-
-**政清（台湾宝岛农场）**
-
-他是台湾宝岛农场直播组的组长，台湾农场GTV节目《联邦进行时》的主持人。 他的睿智与口才以及对时政和财经的到位解析给战友们留下了深刻的印象。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185304/619-1-%E6%94%BF%E6%B8%85.jpg)
-**爱岛文诚（英国伦敦喜庄园）**
-
-他是英喜庄园GTV节目《晚安不列颠》的主播。凭借超强的逻辑分析能力，他越战越勇，期待他在半决赛的精彩表现。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185326/619-2-%E7%88%B1%E5%B2%9B%E6%96%87%E8%AF%9A.jpg)
-**Mildseven（英国伦敦喜庄园）**
-
-他2017年开始跟随爆料革命，他希望通过文字影响德语区的政客，媒体，和百姓。2020年12月20日，他的名字出现在了德国官方第二电视台的网络文章里。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185352/619-3-mildseven.jpg)
-**文依（美国华盛顿****DC农场）**
-
-她是爆料革命的老戰友，也参加过《我是音雄》节目。目前担任粤语组听写，大使馆语音房，农场直播节目等工作。 看到全世界受CCP病毒残害，更坚定了她的灭共决心。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185422/619-4-%E6%96%87%E4%BE%9D.jpeg)
-**克莉亜 （日本东京银河农场）**
-
-自2017年接触到爆料革命，她明白了爱国不等于爱党，中国共产党不等于中国人民的概念。积极宣传爆料革命和病毒真相。 只有灭共才能还原真相，相信2021年灭共必胜！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185440/619-5-%E5%85%8B%E8%8E%89%E4%BA%9A.jpeg)
-**欲静（日本东京银河农场）**
-
-他坚信因果轮回善恶有报，随着每位战友的心力凝聚，使爆料革命的新老战友，聚集在《我们的七芒星》节目上。彼此相知，共同前行，向着灭共的终点一起发力。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185457/619-6-%E6%AC%B2%E9%9D%99.jpeg)
-**Ryan****（美国纽约香草山农场）**
-
-作为一名职业音乐人，他希望通过自己的专业为爆料革命新中国联邦尽自己的一份力，与战友并肩一起“以乐灭共”！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185516/619-7-Ryan.jpeg)
-本期的第 8 位参赛者将由以下 4 位补位挑战者 PK 产生：
-
-**臺灣大象（台湾宝岛农场）**
-
-他因为爆料革命了解到真相，选择相信并付诸行动。这位台湾战友与几个好朋友一起加入爆料革命，在台湾农场透过欢乐的方式与战友们一起并肩灭共！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185533/619-%E5%80%99%E8%A1%A51-%E5%8F%B0%E6%B9%BE%E5%A4%A7%E8%B1%A1.jpg)
-**約瑟（加拿大多伦多枫叶农场）**
-
-他曾亲眼目睹防火墙内的人如何被中共愚弄和蒙蔽，自己的旅游业务也因CCP病毒受到重创。 为了自己和下一代，他跟随爆料革命，和战友们一起工作更有效有力。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185550/619-%E5%80%99%E8%A1%A52-%E7%BA%A6%E7%91%9F.jpg)
-**重磅來了（義大利羅馬達芬奇農場）**
-
-跟随七哥和爆料革命四年多了，消灭中共是正义的需要，我们新中国联邦人永不为奴。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185607/619-%E5%80%99%E8%A1%A53-%E9%87%8D%E7%A3%85%E6%9D%A5%E4%BA%86.jpg)
-**流浪的加菲（美国纽约香草山农场）**
-
-有幸这个时代七哥竖旗灭共。单纯的信，坚定的跟随，四载陪伴的日子，有袍泽之情，有灭共天理，或唱或答，小蚂蚁尽力添稻草，跟随爆料革命，盼无红魔之世。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18185621/619-%E5%80%99%E8%A1%A54-%E6%B5%81%E6%B5%AA%E7%9A%84%E5%8A%A0%E8%8F%B2.jpeg)
+Gnews病毒真相小组 整理
 
 
-《我们的七芒星》第一场半决赛:  美东6月19日晚8点
 
-《我们的七芒星》第二场半决赛:  美东6月26日晚8点
 
-《我们的七芒星》年度总决赛：美东7月3日晚8点
 
-+3
+## mRNA疫苗可能产生的灾难后果(二)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010656/db053f2425daead87e1b56a16573264e.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=60c2758b8ce6da73c41878a2)
+
+
+
+
+
+
+
+## mRNA疫苗可能产生的灾难后果(一)（主讲：文 医 嘉宾：千叶草大姐 北京人）
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010550/495c2e00ce1563cde4dff38d31c996b2.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=60b0001eb7dff64ac985223b)
+
+
+
+
+
+
+
+## 公众对CCP病毒抗体的认知误区 (主讲：文 医 嘉宾：千叶草大姐 北京人)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010441/b041bba1a36dc28383f885cb54f9e326.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60a6c6a1db13300ca55cc364)
+
+
+
+
+
+
+
+## “解毒”功能增强的CCP病毒——多重方式绞杀细胞（主讲：文 医 嘉宾：千叶草大姐 北京人） 第二部分
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010253/dc8e290d54744547f6aab74f6199995c.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=609dae95db13300ca5538508)
+
+
+
+
+
+
+
+## “解毒”功能增强的CCP病毒——多重方式绞杀细胞（主讲：文 医 嘉宾：千叶草大姐 北京人） 第一部分
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010127/abe5687d2b874d84a9b1ac73b18ed0cb.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=609d9b3bdb13300ca5537a08)
+
+
+
+
+
+
+
+## 2021-04-28 “醫E” 語中的 第19期, CCPVirus”功能增强 “长驱直入核心器官·搞弱搞残细胞功能”
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005857/da1fee9c0f4ccc9df06c0e1436cacfb1.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6089da7e6c00a14130e1c3a5)
+
+
+
+
+
+
+
+## 2021-04-21 医生视角解读“CCPVirus”神经毒性功能的增强
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005759/d7e15d55985b0adda4a01e0b084d973e.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6080a1577e083973a72e226f)
+
+
+
+
+
+
+
+## 2021-04-14 ”醫E“語中的第17期 閻博士報導 醫生視角解讀CCP病毒功能增強
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005441/a45ed5a1f07feb9fac3efd4ca67b0258.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60776a5662d629309ee40528)
+
+
+
+
+
+
+
+## 2021-04-07 ”醫E“語中的第16期 閻博士報導 醫生視角解讀CCP病毒功能增強
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005546/604841836655d9be0e2a615f20683b46.png)
+
+
+GTV视频链接 [Part1](https://gtv.org/video/id=606e2c846e11a756eddb5713) [Part2](https://gtv.org/video/id=606e30dd6e11a756eddb5a44)
+
+
+
+
+
+
+
+## 2021-03-31 “醫E”語中的第15期 美國一線醫師covid19白皮書
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005107/df34cbf677b69dc9a1d6c1ba26bb4c21.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6064f784a54f827240bd50f9)
+
+
+
+
+
+
+
+## 2021-03-24 “醫E”語中的第14期 話疫苗 5
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004804/b092848f3a28d3c5be359fcdfafad02d.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=605bb68ba26ac57138e444b6)
+
+
+
+
+
+
+
+## 2021-03-17 “醫E”語中的第13期 話疫苗 4
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004432/a71f6f9239cf353aacbf28c01db3fa09.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60527ab5e9cdd43098eaef26)
+
+
+
+
+
+
+
+## 2021-03-10 “醫E” 語中的 第12期 話疫苗（3）
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004531/e1454c0da647616049c4245080d9090b.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60494efa75e88a51e6e9ef77)
+
+
+
+
+
+
+
+## 2021-03-03 “醫E”語中的第11期 話疫苗 2
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003742/b5ed6f56523ed967ff5be3e606c99b50.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6040150794761a708f1999a3)
+
+
+
+
+
+
+
+## 2021-02-24 【“醫E”語中的】（10） 話疫苗 （1）
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003432/8048e874797d7c41cc4c5a34081f2b20.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6036da22047c4c3086dd5052)
+
+
+
+
+
+
+
+## 2021-02-17【“醫E”語中的】（9）邪恶“CCP病毒” 二元武器 第二元
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003311/79e7f3a28786b885373e7dde97abf088.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=602daeb7be64150df85b1d7f)
+
+
+
+
+
+
+
+## 2021-02-10【“醫E”語中的】（8）邪惡CCP病毒 二元武器效應 第一元
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003125/adf72ace6bc5474f08b15ac3ae971856.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=602468e5be64150df8501dd4)
+
+
+
+
+
+
+
+## 2021-02-03【“醫E”語中的】（7）邪恶“CCP病毒” （二）认识CCP病毒最诡异邪恶之处
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003013/af6ff7f3beb9405d8dc8611fa77230ea.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=601b2c383f8a013ab47b7c7a)
+
+
+
+
+
+
+
+## 2021-01-27 “醫E”語中的 （6）邪恶“CCP病毒” （一）认识病毒，保护自己
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17002454/1ac4ff3009ac8104d9e188f0365f7ff0.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6011f0c3b819717e79b3d6e3)
+
+
+
+
+
+
+
+## 2021-01-13 “醫E”語中的（5）神奇的羟氯喹（四） 服用羟氯喹应该注意的事项
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17002057/52e7bbfb99de6a6093c13139499bd1ff.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5fff7b14f579a75e0bd668a1)
+
+
+
+
+
+
+
+## 2021-01-06 “醫E”語中的（4）神奇的羟氯喹（三） 不可思议的广谱抗微生物效应
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001816/84636763ba87ba09966f4561a407740b.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5ff64107f579a75e0bc837b1)
+
+
+
+
+
+
+
+## 2020-12-29 “醫E”語中的（3） 神奇羟氯喹（二） 老药羟氯喹焕发神奇“青春”
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001639/9e03978d2547594f0fb1bca0809bcb0e.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5febb4f3f579a75e0bbb9700)
+
+
+
+
+
+
+
+## 2020-12-22“醫E”語中的 （2） 神奇羟氯喹(一) 认识羟氯喹
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001455/2020-12-22%E9%86%ABE%E8%AA%9E%E4%B8%AD%E7%9A%84-%EF%BC%882%EF%BC%89-%E7%A5%9E%E5%A5%87%E7%BE%9F%E6%B0%AF%E5%96%B9%E4%B8%80-%E8%AE%A4%E8%AF%86%E7%BE%9F%E6%B0%AF%E5%96%B9.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5fe27ac1c0544c3d973305b9)
+
+
+
+
+
+
+
+## 2020-12-15“醫E”語中的（1）光鮮的新冠疫苗背後可能的致命風險
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001220/43a19b816546183367c4e09d01299243.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=5fd943c509267020eb52df80)
+
+
+
+
+
+
+
++1

@@ -1,45 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美防长当面指责中共国防部长，在南海问题行为违法
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332668/)
+## 众议员马特·盖茨: 美国不应该与中国共产党合作
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332786/)
 
-作者：纽约香草山健身部 Jack Li文阳
+**字幕内容：**
+Rep. Matt Gaetz
+众议员马特·盖茨
 
+In a world in which all of the science that we do of consequence with China,
+在这个世界上，我们与中共国合作的所有科学成果
 
+ends up in the hands of the Chinese Communist Party and the Chinese military,
+最终都落入中国共产党和中共军队的手中
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
+like why don’t we ask the broad question,
+就像我们为什么不问广泛的问题？
 
+why is the US taxpayer funding any of this.
+为什么美国纳税人要资助其中任何一项？
 
+In what world is collaboration with the Chinese Communist Party,
+在什么样的世界与中国共产党合作
 
-6月16日第八届东盟国防部长10+8扩大会议举行，会议聚焦在南中国海的和平稳定上，美国国防部长奥斯汀在会上当着中共国防部长魏凤和的面，指责中共在南海的违法行为，这次会议用视讯方式举行。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18195647/Untitled-design-2021-06-18T175521.269.png)
-除东盟十国外，澳大利亚、印度、日本、新西兰、韩国、俄罗斯、美国和中共国的国防部长也参加了此次会议。在美国国防部网站上发表的新闻中，奥斯汀国防部长阐明了美国政府对印太地区的愿景，强调了盟友与伙伴应对安全挑战的重要性。他还强调了中共国在南海的非法行为。 日本国防大臣岸信夫在会上说： 台湾海峡的和平与稳定对地区的重要性，呼吁在东海与南中国海，必须实行彻底的“法治”。他不点名的提到了中共国在海上日益升高的霸权行为。
+somehow okay and Natalie set it up perfectly.
+不知何故，好的，娜塔莉把它设定得很完美
 
-值得注意的是中共国的媒体在报道这次会议上，并没提到美国国防部长和日本国防大臣的针对中共国在南海台海的霸权行为的言论，更没见任何关于中共国国防部长对此表示反对的声音。很显然，美日防长的“突然袭击”大大出乎中共的意外，所以一时来不及请示习神，魏凤和顿时慌神，一时语塞，不敢随便应对，只能闭口不语。美日防长在此次东盟扩大会议上的表态，相信东盟各国都能看到美国和西方国家在南中国海和台海问题上支持各方根据国际法，和平解决争端的强硬立场。
+A lot of the elites in academics in science are trying
+很多科学界的精英都在尝试
 
-参考阅读：https://www.voachinese.com/a/us-china-south-china-sea-20210617/5932103.html
+to create this veneer that like, oh, well
+创造这个假象，就像，哦，好吧
 
-http://www.xinhuanet.com/world/2021-06/15/c\_1127565369.htmhttps://www.ntdtv.com/gb/2021/06/17/a103144837.html
+there’s a good CCP folks that we can work with
+我们可以与那些好的共产党人合作
 
-校对/发稿：火内
+and they’re not truly tainted.
+他们并没有真正被污染
 
+That is nonsense,
+那是胡说八道
 
+and now it’s not only that they control
+现在，他们不仅控制了
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+the full function and scope of research in China,
+中共国研究的全部功能和范围
 
+they are metastasizing into these global corporations
+而且他们的控制正在转移到这些全球性公司
 
+like Google like Microsoft, that are setting up assets in China,
+就像谷歌，就像微软，正在中共国设立资产的
 
-**更多资讯，更多关注**
+subjecting these companies to those very protocols,
+让这些公司遵守那些协议
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+and they’re buying our politicians.
+他们正在收买我们的政客
 
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+In the meantime, and I think that’s the reason
+与此同时，我认为这就是
 
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+why we’re having such a hard time,
+为什么我们过得这么艰难
 
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+you know, getting to the bottom of this,
+你知道，查清这个问题的真相
 
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+but once we do once we really expose
+但一旦我们做到了，我们就真的暴露
+
+the origins of this virus of the Wuhan Institute of virology,
+武汉病毒学研究所是这种病毒的起源的真相
+
+it’s really going to, you know slaughter a lot of sacred cows,
+它真的会让很多科学界的精英跌落神坛
+
+because they’re not going to be able to defend
+因为他们将无法为全国各地
+
+the research and the research cash flowing
+的这些大学的研究和研究资金
+
+through a lot of these universities all over the country.
+的流向进行辩护
+
+**原视频链接**: [https://twitter.com/repmattgaetz/status/1404494616758468609?s=24](https://twitter.com/repmattgaetz/status/1404494616758468609?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
