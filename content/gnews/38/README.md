@@ -1,170 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 阴谋论…大流行病模拟推演
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332706/)
+## 【独立观点】欧盟与英国严格审核 致中共投资大幅缩减
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332785/)
 
-**字幕内容：**
+作者：纽约香草山健身部 Ivy001
 
-On behalf of our partners, the Bill and Melinda Gates Foundation
-代表我们的合作伙伴比尔和梅琳达·盖茨基金会
 
-event 201（Pandemic simulation exercise）took place five months before COVID-19 was declared a pandemic.
-“事件 201” （大流行病模拟推演）发生在 COVID-19 被宣布为大流行之前五个月
 
-The participants of the event are some of the same people
-活动的参与者是一些相同的人
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02105519/GNEW-GTV-MOS-LOGO-2-2-1.jpeg)
 
-that are now deeply involved in the real pandemic
-现在深深卷入了真正的大流行病
 
-and profiting from it as well,
-并也从中获利的
 
-an event of this complexity and magnitude
-如此复杂和规模的事件
+据统计数据显示，中共国去年对欧洲的直接投资大幅下降。根据美国荣鼎集团和柏林墨卡托中（共）国研究中心的联合报告，2020年，中共国对欧盟和英国的直接投资约为65亿欧元，与上一年相比下降了45%。这一数据是十年来的最低水平，其中，以中共对英国的投资减幅最为严重，去年流入英国的中共国直接投资减少了77%。
 
-will take months to write prep and produce.
-将需要几个月的时间来准备和制作
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18211000/100.jpg)图片来源：AFP
 
-Dr. Anthony Fauci
-安东尼·福奇博士
+从中共投资资金的严重收缩上分析，似乎是中共通过减少投资，来表达对欧洲国家，尤其是英国的不满——因为他们都在指责中共的侵犯人权问题，以及因此对中共实施制裁。缩减投资规模，看起来像是中共以此作为对欧盟以及英国的反制裁。
 
-“There is no question that there will be a surprise outbreak. ”
-“毫无疑问，会有突然的流行病爆发。 ”
+然而，实际情况却恰恰相反——是欧盟国家对来自中共国的企业并购进行了更为严格的审查，使得一些计划中的企业收购案没能实现。事实上，中共的投资一直以来都是着重于几大领域：重要的基础设施、能源行业、信息和通信行业，以及高科技行业。如果把中共的投资分开来看，似乎没有什么问题，但若把所有的数据汇总后就能明显地看出，中共在全球范围内的这几大领域都占有相当重的份额。例如：全球的媒体和自媒体背后都有着中共的影子。出于国家安全的角度考虑，各国对中共的投资真不能掉以轻心。
 
-Even Bill Gates, a man with no medical training knew it was coming.
-甚至连比尔盖茨，一个没有受过医学训练的人也知道它会来
+本年度，中共的投资还会持续下降，因为今年更多的欧盟成员国对中共或来自第三国的直接投资将施以更加严格的控制。在G7首脑峰会上，G7成员国加上欧盟已经达成共识，将一致应对来自中共的经济挑战。因此，欧洲市场更严格地审核和控制中共的投资，是必然的举措。中共将会在欧洲市场面临越来越多的限制。
 
-Bill Gates
-比尔 盖茨
+继美国之后，欧盟和英国也对中共的投资越来越审慎，其审核也越来越严格。这意味着，欧洲各国政府已经认识到中共假托投资、实质是经济侵略的真相，开始逐渐与中共经济脱钩。中共正在被逐离世界资本市场。
 
-“If we start now, we can be ready for the next epidemic.”
-“如果我们现在开始，我们就可以为下一个流行病做好准备。”
+参考阅读：
 
-Every single thing that you have seen play out in front of your eyes
-你所看到的每一件事都在你眼前上演了
+[中（共）国明显下调对欧对英投资](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210616-%E4%B8%AD%E5%9B%BD%E6%98%8E%E6%98%BE%E4%B8%8B%E8%B0%83%E5%AF%B9%E6%AC%A7%E5%AF%B9%E8%8B%B1%E6%8A%95%E8%B5%84)
 
-all of them laid out in their tabletop exercise,
-都在他们的桌面推演中铺开
+[紧张局势升级 中（共）国对欧投资创10年新低](https://www.voachinese.com/a/china-eu-investment-security-20210616/5931554.html)
 
-which by the way fact checkers have said,
-顺便说一下，事实核查员说过
+[美俄峰会：拜登普京会面4小时谈了什么？记者会为何提到习近平？](https://www.bbc.com/zhongwen/simp/world-57504865)
 
-has nothing to do with the Coronavirus outbreak,
-这与冠状病毒爆发无关
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-just happenstance, this is that wonderful universe of improbabilities
-只是偶然，这就是不可思议的奇妙宇宙
+编辑/校对/发稿：Irene木木
 
-where events just co emerge,
-事件刚刚出现的地方
+**更多资讯，更多关注**
 
-and the nature conveniently backs itself into our architecture.
-自然方便地将自己融入我们的建筑中
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-Trees have banned travel from the worst affected areas,
-已经禁止在受影响最严重的地区旅行
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-Vice President Mike Pence
-副总统迈克·彭斯
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
 
-“President has made a decision to suspend all travel to the United Kingdom and Ireland”
-“总统已决定暂停所有前往英国和爱尔兰的旅行”
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-this and misinformation circulating over the internet
-这和在互联网上传播的错误信息
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
-across the world misinformation about the virus is being shared online,
-世界各地有关该病毒的错误信息正在网上共享
 
-a significant demand for N95 masks and gloves are on the rise,
-对 N95口罩和手套的大量需求正在上升
 
-the demand for N95 masks to prevent the deadly airborne virus has surged,
-为防止致命的空气传播病毒对 N95 口罩的需求激增
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-we could eventually have 52 million treatment courses per year,
-我们最终可以每年有 5200 万个治疗疗程
 
-but it will take many months to get there,
-但要达到那个需要好几个月的时间
-
-we’re still many months out from having something
-我们还有很多个月才能拥有一些东西
-
-that we can really deploy to the public
-我们可以真正部署到公众
-
-and 65% of those fold are eager to take the vaccine,
-而且65% 的人渴望接种疫苗
-
-even if it’s experimental.
-即使它是实验性的
-
-The new poll finds that 49% of Americans say
-新的民意调查发现 49% 的美国人说
-
-they would get a COVID-19 vaccine
-他们会接种 COVID-19 疫苗
-
-shouldn’t effective one be discovered.
-不应该发现一个有效的
-
-I’m curious, who wrote the event 201 script.
-我很好奇，谁编写了“事件 201 ” 的脚本
-
-The visionaries of the event knew,
-事件的有远见的人已经知道
-
-at least one year in advance what was needed.
-至少提前一年需要什么
-
-Why didn’t they take care of those things.
-他们为什么不处理这些事情
-
-Considering the Bill Gates has donated half of his fortune to make the world safer.
-考虑到比尔盖茨已经捐赠了他一半的财富来让世界更安全
-
-Why didn’t you help to better prepare our hospitals and frontline workers.
-你为什么不帮助我们的医院和一线工作人员更好地做好准备
-
-Why didn’t any of the events wealthy sponsors do something.
-为什么有钱的赞助商没有做点什么
-
-Bill Gates
-比尔 盖茨
-
-“Now here we are in, we didn’t simulate this, we didn’t practice”
-“现在我们在这里，我们没有模拟这个，我们没有练习”
-
-Unknown female speaker
-不知名女演讲者
-
-on behalf of our partners in the Bill and Melinda Gates Foundation,
-代表我们在比尔和梅琳达·盖茨基金会的合作伙伴
-
-Bill Gates
-比尔 盖茨
-
-“so both the health policies and economic policies,
-“所以无论是卫生政策还是经济政策
-
-we find ourselves in unchartered territory.”
-我们都发现自己处于未知领域。”
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接**: [https://twitter.com/heidegger79/status/1404356483563851776?s=24](https://twitter.com/heidegger79/status/1404356483563851776?s=24)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

@@ -1,112 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 约翰肯尼迪参议员: 拜登总统“亲爱的，拜托，给加些糖”与中共国和世卫组织行不通
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332865/)
+## 福克斯批评CNN已变身“中共新闻网”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1333070/)
 
-**字幕内容：**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-Brian Kilmeade (Fox News host)
-布赖恩·基尔米德（福克斯新闻主持人）
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18225057/C-12.jpg)reclaimthenet.org
+《福克斯新闻》发表文章，“美国有线电视新闻网（CNN）在吹嘘中共国的疫苗接种率后，被指控是为中共做宣传”，副标题为：一位批评人士回应说，CNN已是中共新闻网（China News Network），为中共宣传。
 
-Let’s see what republican senator
-让我们看看共和党参议员
+全文如下：
 
-from Louisiana John Kennedy says
-来自路易斯安那州的约翰肯尼迪怎么说
+美国有线电视新闻网（CNN）因发表一篇根据中共国提供的数据，吹嘘中共国的疫苗接种率的报道而被称为“中共新闻网”。
 
-Senator, do you think China is going to allow this second investigation from the keystone cops that were unable to get the first time around？
-参议员，你认为中共会允许在第一次无法
-前往的关键调查员组织的第二次调查吗？
+周五（6月18日）发表的一篇标题为“中共国即将进行第10亿剂中共病毒疫苗注射”的文章，引起了人们的关注，“是的，你读对了。”
 
-Senator John Kennedy
-约翰肯尼迪参议员
+美国有线电视新闻网（CNN）开始报道说：“几天之内，中共国的疫苗接种量将达到惊人的10亿剂，其规模和速度将是世界上任何一个国家都无法匹敌的。截至周三（6月17日），中共国注射了超过9.45亿剂，是美国的3倍，占全球25亿剂注射量的近40%。”
 
-Not not under the current approach Brian uh
-不，目前不可能, 布赖恩
+CNN援引“中共国国家卫生委员会的数据”称，仅在5月份，就有超过“5亿剂的注射”。
 
-With respect to the origin of the of the coronavirus
-关于冠状病毒的起源
+CNN还赞扬中共国尽管是疫情的起源国，但仍有能力遏制中共病毒，并写道“虽然许多居民最初认为接种疫苗的紧迫性不大，中共国还是成功遏制了中共病毒。”
 
-here’s what I heard President Biden do today
-这就是我今天听到拜登总统所做的事情
+CNN写道：“对于那些仍然不情愿的人来说，中共国的专制体系有一个强大的工具，一个自上而下的一党制，它无所不包，行动有力，一个可以迅速调动的庞大官僚机构。这种自上而下的方法被官员们吹捧为中共系统的一种优势，有助于遏制病毒，并再次被用于加速接种疫苗。”
 
-I heard him politely ask the world health organization in China
-我听到他礼貌地向在中共国的世界卫生组织
+CNN没有提供任何有关中共国自主研发疫苗疗效的数据。
 
-to get to the bottom of it
-提出将事情弄清楚的要求
+CNN一名记者被指通过将香港抗议者与国会骚乱者相比较来推动中共国的宣传。
 
-Pretty please with sugar on top
-亲爱的，请在上面放些糖
+这份报告是由两名CNN记者在香港撰写的，显然是与CNN本月推出的一份时事通讯联系在一起的，这篇文章顶部的编者按中描述为“一周三次的更新，探讨你需要了解的关于国家崛起及其对世界的影响。”
 
-and that’s the typical Washington way
-这是典型的华盛顿方式
+批评者抨击这个自由派的新闻组织不顾中共对病毒溯源的不诚实而对中共关于疫苗的话深信不疑。
 
-keep trying what uh doesn’t work
-继续尝试不起作用的方法
+《新闻巴斯特》（NewsBusters）分析师尼古拉斯·丰达卡罗（Nicholas Fondacaro）回应说：“中共新闻网在为中共宣传。”
 
-and when it doesn’t work again and do it some more
-当它再次不起作用时并再尝试
+“鉴于数据来自中共国家卫生委员会，我完全相信，我真地很喜欢。”《华盛顿审查员》（Washington Examiner）T.贝克特·亚当斯（T. Becket Adams）讽刺地写道：“1）他们的疫苗不起作用；2）他们的数字就像汤姆·克鲁斯（Tom Cruise）自述的身高一样可信。除此之外，将中共的宣传作为新闻报道发表也是件好事。”
 
-he’s going to have to change his approach
-他将不得不改变他的方法
+《哈比比兄弟》（Habibi Bros）的共同主持人Siraj Hashmi写道：“是的，中共病毒来自那些在海鲜市场喝蝙蝠汤的人。”
 
-let’s start with the world health organization
-让我们从世界卫生组织开始
+国家安全顾问欧姆里·塞伦（Omri Ceren）问德克萨斯州参议员泰德·克鲁兹（Ted Cruz）：“记者们在干什么？他们就将中共宣传的要点当作新闻发表？”
 
-it’s president is Dr Tedros Adhanom Ghebreyesus from Ethiopia
-它的主席是来自埃塞俄比亚的谭德塞博士
+“CNN：向我们的中共上级领导鞠躬致敬！”《格拉比恩新闻》（Grabien Media）创始人兼新闻编辑汤姆·埃利奥特（Tom Elliott）嘲讽地说。
 
-Dr. Tedros hums the Chinese national anthem in the shower uh
-谭德塞博士在洗澡时哼着中共国国歌
+“这和宣传没什么区别，事实上，就连中共自己也承认，他们的疫苗存在巨大的效力问题，CNN却很乐意为他们粉饰。” 《华盛顿审查员》副主编格兰特·艾迪森（Grant Addison）说。
 
-he loves President Xi Jinping like the devil loves sin
-他爱习近平主席就像魔鬼爱罪恶
+这已经不是CNN第一次被指控为中共做宣传了，2020年4月，在中共病毒爆发疫情的最初几个月， CNN刊登了一篇文章，将中共解放军（PLA）的一个部队控制了中共病毒的传播作为头条，称“中共的海军正在控制病毒，航母的部署证明了这一点。”
 
-if president Xi told Dr. Tedros to join the Taliban
-如果习近平主席告诉谭德塞博士加入塔利班
+然而，这篇报道来自中共的官方小报《环球时报》。在遭到强烈的痛击之后，CNN更新了这篇文章的新标题，“中共官方媒体声称中共海军没有受到中共病毒的影响。”此外，文章还包括编者按：“这篇报道已经更新，包括五角大楼的反应和西太平洋的最新事态发展。”
 
-he would say where’s the line
-他会说：在哪里排队？
+（原文完）
 
-the only way to get him to do his job
-让谭德塞完成工作的唯一方法
+毋庸置疑，CNN存在众多的吃中共狗粮的无操守者，从高层到基层，高层掩护，基层出类似报道。第一时间组织了6个所谓专家反对天使闫博士，就是CNN干的，时至今日还替中共粉饰叫好的，一是反映了中共的渗透力度，二也说明美国执迷不悟者仍不可轻视，这些左派可能从心里还很推崇中共“集中力量办大事”的能力，完全不知道这背后的邪恶害了多少人。因此我们不能放松，要继续揭露中共，直到世人从中共的邪恶中唤醒过来。
 
-is for President Biden to sit him down
-是拜登总统让他坐下来
+原文链接：
 
-and say look Dr. Tedros
-并说：听着，谭德塞博士
-
-the American people pay your salary
-美国人民支付你的工资
-
-the American taxpayer puts up 900 million dollars every two years
-美国纳税人每两年投入 9 亿美元
-
-we’re your biggest financial contributor uh
-我们是你最大的资金贡献者
-
-either do your job or we’re going to withhold the money
-要么做你的工作，要么我们将扣留这笔钱
-
-and if that offends you
-如果这冒犯了你
-
-I will help you pack
-我会帮你打铺盖卷的
-
-原视频链接: [https://twitter.com/senjohnkennedy/status/1405544403083612160?s=24](https://twitter.com/senjohnkennedy/status/1405544403083612160?s=24)
-英听校：康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://www.foxnews.com/media/cnn-china-propaganda-covid-vaccination-data](https://www.foxnews.com/media/cnn-china-propaganda-covid-vaccination-data)
 
 0

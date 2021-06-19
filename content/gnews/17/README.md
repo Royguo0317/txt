@@ -1,26 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】推特网友曝光布隆伯格和杨澜的亲密关系
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1333041/)
+## 《路德社》精选新闻简讯：美前国务院调查员称，必须向中国施加经济压力，使其配合病毒调查
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1333202/)
 
-有网友在推特曝光了布隆伯格和杨澜的亲密关系，其中引用了一段郭文贵先生在几年前视频直播中的文字记录资料。资料显示，杨澜和吴征夫妇是通过文贵先生认识了布隆伯格，在此期间，杨澜与布隆伯格玩了一个找钥匙的游戏。这次亲密的接触之后，为布隆伯格和他代表的华尔街和中共合作勾结打开了一个新的方向。![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18222939/Picture1-33.png)
-
-杨澜是美国居民，她目前的的丈夫在一年前因为被揭发后在美国注册了外国代理人。
-
-参考链接：
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19001637/image002-12.jpg)
+戴维·阿舍尔说，中国必须在经济上承受压力，才能配合冠状病毒起源调查。 阿舍尔在特朗普政府期间在国务院工作，调查大流行的起源。 他说，施加压力可以迫使中共合作，尤其是通过金融体系。 这位前国务院高级调查员表示，如果受到压力，他预计中国会做出积极响应。
 
 
 
-> 布隆伯格也被找过钥匙！！！ [pic.twitter.com/icACg3ryii](https://t.co/icACg3ryii)
-> — 阮尚李（终共靠贵）【Fuck HK POPO】 (@1808\_W73) [June 18, 2021](https://twitter.com/1808_W73/status/1405984643849940992?ref_src=twsrc%5Etfw)
+[原文引用](https://www.foxnews.com/media/asher-biden-china-pressured-financially-cooperate-covid-origin-probe)
 
+本文作者：Rebecca (一切心皆不可得 ! )
 
+审核校对：sherryok (水云间)
 
-整理撰稿：蓝精灵
-
-校对发布：Penny
-
-\*以上仅代表作者观点，不代表Gnews平台\*
+上传排版：糊糊文婴
 
 0

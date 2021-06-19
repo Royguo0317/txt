@@ -1,42 +1,170 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 对《反外国制裁法》的困惑
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1332659/)
+## 阴谋论…大流行病模拟推演
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332706/)
 
-作者：范海辛 | 校对：X-Wing | 审核：Beicy-数学老师 | Page：我是球大哥
+**字幕内容：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/F6bWuThCTKxyo/images/1702b38f-44b4-487b-b37c-d22b4d2114ea.jpg?asset_id=02fd125f-b238-46fd-80ab-7dbdd055a2f4&amp;img_etag=%224a1d37a252c3b55241d6cd047bb8133f%22&amp;size=1024)](https://spark.adobe.com/page/F6bWuThCTKxyo/images/1702b38f-44b4-487b-b37c-d22b4d2114ea.jpg?asset_id=02fd125f-b238-46fd-80ab-7dbdd055a2f4&amp;img_etag=%224a1d37a252c3b55241d6cd047bb8133f%22&amp;size=1024)
+On behalf of our partners, the Bill and Melinda Gates Foundation
+代表我们的合作伙伴比尔和梅琳达·盖茨基金会
 
-2021年6月10日，中共国公布并开始实施《反外国制裁法》。观此法，令人感到困惑之处颇多。
+event 201（Pandemic simulation exercise）took place five months before COVID-19 was declared a pandemic.
+“事件 201” （大流行病模拟推演）发生在 COVID-19 被宣布为大流行之前五个月
 
-首先是该法出台的程序。按照《立法法》的规定，人大常委所立之法，一般应当通过“三读”（第二十九条列入常务委员会会议议程的法律案，一般应当经三次常务委员会会议审议后再交付表决），可惜此法只有“二读”便匆匆通过。这当然可以用“情况紧急”、“非一般”来辩解，但多少给人程序瑕疵的感觉。
+The participants of the event are some of the same people
+活动的参与者是一些相同的人
 
-困惑之二是该法难免“稻草人法律”之嫌。法律本该非常严肃，不是逗你玩、搞忽悠的。但我国法律一向有“稻草人”的传统，这实际就是拿法律当儿戏，用来吓唬人、宣泄某种情绪的。《反外国制裁法》的稻草人嫌疑相当明显。譬如该法第六条列明的三条制裁措施（（一）不予签发签证、不准入境、注销签证或者驱逐出境；（二）查封、扣押、冻结在我国境内的动产、不动产和其他各类财产；（三）禁止或者限制我国境内的组织、个人与其进行有关交易、合作等活动；），可能会如稻草人一样，起不到什么实际作用。因为大家都知道的原因，只有我国成功人士需要到西方国家去（移民、旅游、看病、教育等），而西方国家的精英除了来骗钱割韭菜的，一般很少到中共国来，更不可能把钱存在中共国，或者在中共国买房炒股。这与中国人不会到朝鲜求学移民、把金银细软存在朝鲜是一个道理。
+that are now deeply involved in the real pandemic
+现在深深卷入了真正的大流行病
 
-困惑之三，这个制裁还有可能伤及自己，也就是说，该法除了稻草人的特性，还有“双刃性”，搞不好会伤及自身。譬如，美国国会制裁香港官员，导致这些官员没法用银行卡，所发工资只能是一堆纸币，非常不方便。因为香港的银行，哪怕是作为央企的中国银行、工商银行等都不敢给林郑等官员开立账户、提供金融服务。如果它们无视美国法律，一旦被美国发现，会被踢出美元结算体系。这些银行如果不得经手美元，还不等于破产倒闭？
+and profiting from it as well,
+并也从中获利的
 
-于是问题来了，这些参与制裁林郑等香港官员的银行，岂不也在《反外国制裁法》的反制清单里面？因为这些央企银行“对我国公民、组织采取歧视性限制措施”（见该法第三条）。难道国务院要将香港的中资银行也列入反制裁的清单吗？
+an event of this complexity and magnitude
+如此复杂和规模的事件
 
-之四，该法的双刃性最强烈的表现，是会加速欧美日韩等企业撤离中工国，是为渊驱鱼，为丛驱雀的自戕行为。这是因为，该法的反制裁的对象范围很广（见该法第五条所列的四种制裁对象），而国外企业里的持股人的情况又非常复杂。那些已在中共国投资的企业，说不定会因为本国政府的某项制裁中共国的措施而被牵连，被该法列入反制清单里。
+will take months to write prep and produce.
+将需要几个月的时间来准备和制作
 
-美国对华策略有两种，以川普为首的共和党的是脱钩（政治、经贸、科技，金融、文化等所有领域的全面脱钩），以拜登为首的民主党是保持接触、联系的情况下的竞争和对抗。要说对中国打击严重的，当然是脱钩。而拜登的不脱钩的竞争、对抗就免不了制裁。人家一制裁你马上来个针锋相对，这样搞下去的结果只有脱钩。
+Dr. Anthony Fauci
+安东尼·福奇博士
 
-所以，这部匆忙出台的法案，正面作用几乎没有，而副作用倒是十分严重。给人感觉就像是相互吵架、宣泄情绪的产物，不知这是低级红还是高级黑？
+“There is no question that there will be a surprise outbreak. ”
+“毫无疑问，会有突然的流行病爆发。 ”
 
-《圣经》里一段话语很贴切制定此法案的人：“平安的路，他们不知道；所行的事没有公平。他们为自己修弯曲的路，凡行此路的，都不知道平安。”（赛59:8）
+Even Bill Gates, a man with no medical training knew it was coming.
+甚至连比尔盖茨，一个没有受过医学训练的人也知道它会来
 
-现在的中共国就是如此，夫复奈何？
+Bill Gates
+比尔 盖茨
 
-*文章仅代表作者观点*
+“If we start now, we can be ready for the next epidemic.”
+“如果我们现在开始，我们就可以为下一个流行病做好准备。”
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+Every single thing that you have seen play out in front of your eyes
+你所看到的每一件事都在你眼前上演了
 
+all of them laid out in their tabletop exercise,
+都在他们的桌面推演中铺开
 
-编辑：【英国伦敦喜庄园编辑部】
+which by the way fact checkers have said,
+顺便说一下，事实核查员说过
 
-[!\[\]()!\[\](https://spark.adobe.com/page/F6bWuThCTKxyo/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/F6bWuThCTKxyo/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+has nothing to do with the Coronavirus outbreak,
+这与冠状病毒爆发无关
+
+just happenstance, this is that wonderful universe of improbabilities
+只是偶然，这就是不可思议的奇妙宇宙
+
+where events just co emerge,
+事件刚刚出现的地方
+
+and the nature conveniently backs itself into our architecture.
+自然方便地将自己融入我们的建筑中
+
+Trees have banned travel from the worst affected areas,
+已经禁止在受影响最严重的地区旅行
+
+Vice President Mike Pence
+副总统迈克·彭斯
+
+“President has made a decision to suspend all travel to the United Kingdom and Ireland”
+“总统已决定暂停所有前往英国和爱尔兰的旅行”
+
+this and misinformation circulating over the internet
+这和在互联网上传播的错误信息
+
+across the world misinformation about the virus is being shared online,
+世界各地有关该病毒的错误信息正在网上共享
+
+a significant demand for N95 masks and gloves are on the rise,
+对 N95口罩和手套的大量需求正在上升
+
+the demand for N95 masks to prevent the deadly airborne virus has surged,
+为防止致命的空气传播病毒对 N95 口罩的需求激增
+
+we could eventually have 52 million treatment courses per year,
+我们最终可以每年有 5200 万个治疗疗程
+
+but it will take many months to get there,
+但要达到那个需要好几个月的时间
+
+we’re still many months out from having something
+我们还有很多个月才能拥有一些东西
+
+that we can really deploy to the public
+我们可以真正部署到公众
+
+and 65% of those fold are eager to take the vaccine,
+而且65% 的人渴望接种疫苗
+
+even if it’s experimental.
+即使它是实验性的
+
+The new poll finds that 49% of Americans say
+新的民意调查发现 49% 的美国人说
+
+they would get a COVID-19 vaccine
+他们会接种 COVID-19 疫苗
+
+shouldn’t effective one be discovered.
+不应该发现一个有效的
+
+I’m curious, who wrote the event 201 script.
+我很好奇，谁编写了“事件 201 ” 的脚本
+
+The visionaries of the event knew,
+事件的有远见的人已经知道
+
+at least one year in advance what was needed.
+至少提前一年需要什么
+
+Why didn’t they take care of those things.
+他们为什么不处理这些事情
+
+Considering the Bill Gates has donated half of his fortune to make the world safer.
+考虑到比尔盖茨已经捐赠了他一半的财富来让世界更安全
+
+Why didn’t you help to better prepare our hospitals and frontline workers.
+你为什么不帮助我们的医院和一线工作人员更好地做好准备
+
+Why didn’t any of the events wealthy sponsors do something.
+为什么有钱的赞助商没有做点什么
+
+Bill Gates
+比尔 盖茨
+
+“Now here we are in, we didn’t simulate this, we didn’t practice”
+“现在我们在这里，我们没有模拟这个，我们没有练习”
+
+Unknown female speaker
+不知名女演讲者
+
+on behalf of our partners in the Bill and Melinda Gates Foundation,
+代表我们在比尔和梅琳达·盖茨基金会的合作伙伴
+
+Bill Gates
+比尔 盖茨
+
+“so both the health policies and economic policies,
+“所以无论是卫生政策还是经济政策
+
+we find ourselves in unchartered territory.”
+我们都发现自己处于未知领域。”
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+**原视频链接**: [https://twitter.com/heidegger79/status/1404356483563851776?s=24](https://twitter.com/heidegger79/status/1404356483563851776?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-青梅煮酒
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

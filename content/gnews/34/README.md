@@ -1,65 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】四名英国航空公司飞行员一周内死亡，与CCP病毒疫苗无关吗？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332771/)
+## 【战友心声】CCP下地狱
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1332836/)
 
-作者： 纽约香草山媒体部  7bends
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+作者：纽约香草山健身部 Artemis
 
 
 
-
-
-[Gateway Pundit](https://www.thegatewaypundit.com/2021/06/four-healthy-british-airways-pilots-die-one-week-airline-says-no-link-covid-19-vaccine/) 6月17日报道，路透社记者向英国航空公司求证近期社交媒体流传甚广的关于四名正值壮年的英国航空公司飞行员（可能接种CCP病毒疫苗后）突然死亡一事。为此，英航目前正在与政府就是否允许接种CCP病毒疫苗的飞行员飞行进行危机谈判。据说大约80%-85%的人已被接种疫苗。英国航空公司在对路透社进行回应时证实了死亡人数，但否认与疫苗相关，也否认正在与政府进行谈判。
-
-
-
-> I believe it was actually FOUR young pilots who died due to the Maxine [pic.twitter.com/LkahSVOTkN](https://t.co/LkahSVOTkN)
-> — The Thing (@TheThin59129130) [June 17, 2021](https://twitter.com/TheThin59129130/status/1405468219998150658?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
-英国航空公司6月17日在推特上例行公事般的发推文回应传闻：令人悲伤的是我们飞行员社区的四名成员最近去世了。我们的心与他们的家人和朋友同在，但社交媒体上关于这4起死亡事件相关联的传说毫无根据。
+霹雷一声震天响，震醒毛腊肉，质问习脑残：一百八十国联盟无人机，为何要斩首你？
+
+习脑残答：你个死腊肉懂个屁，我要称霸世界。如今我君临天下，必须要超越你！你毛腊肉也就只能统治中共国，我要当世界一尊，统治全世界。
+
+毛腊肉又质问习脑残：你用什么手段把中共国的红旗插遍全世界？
+
+习脑残歇斯底里的叫喊到：我已经用假、骗、偷、蓝、金、黄占领美国和欧洲；我制造病毒超限战武器杀遍全世界。
+
+就在这时，瞬间一道闪电——一百八十国联盟，兵临城下捉拿习脑残。天线习脑残，秒变青烟缈缈。
+
+![]()![](https://media.discordapp.net/attachments/721544615953432698/849859127411736576/1.2016-2017-cn.JPG?width=1083&amp;height=609)
+
+爆料革命勇士们将自由女神像安放在北京天安门广场，安放在上海黄浦江畔，安放在香港时代广场。
+
+新中国联邦的旗帜飘扬在祖国的大江南北。
+
+新国际秩序让世界再次繁荣，新中国联邦人共享和平！
+
+（本文仅代表作者观点）
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
+
+校对/发稿：Irene木木
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+
+**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 
 
-> Sadly four members of our pilot community passed away recently. Our thoughts are with their family and friends. However, there is no truth whatsoever in the claims on social media speculating that the four deaths are linked. Julie
-> — British Airways (@British\_Airways) [June 17, 2021](https://twitter.com/British_Airways/status/1405606519631007748?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
 
 
 
-英航的回应真的那么令人信服吗？让我们看几则英航这个推文下的跟帖：
-
-- 一则跟帖说，向所有受影响的人表示诚挚的哀悼。据我了解，飞行员会定期做身体测试，你们飞行员的死亡率是正常还是不正常？
-- 另一则跟帖说，飞行员每年接受体检。此项检查包括心脏、视力、听力、大脑等。超过一定年龄，必须每六个月进行一次体检。这些飞行员以前不太可能有任何疾病。
-
-
-英航四名飞行员的突然死亡，真的与CCP病毒疫苗无关吗？
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141843/6-june.jpg)
-
-编辑/校对/发稿：小鹿
-
-
-
-**更多资讯****，****更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场****Twitter****（****中文****）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场****Twitter****（****英文****）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
-
-
-
-
-
-+1
+0

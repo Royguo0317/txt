@@ -1,49 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】反对为飞行员强制接种CCP病毒疫苗，美联航和工会达成协议
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332826/)
+## 6月18日美国政要推文精选: 福奇手上沾满了血,辞退福奇
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1332947/)
 
-作者： 纽约香草山媒体部  7bends
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+众议员迈克·加拉格尔： 我们那些无视伦理道德的科学家在新型冠状病毒的起源上将我们自己的情报界耍的团团转，这一事实告诉我们，我们有一个巨大的问题。 如果我们要防止下一次疫情，我们必须追根究底，并要求本国政府做得更好。
 
 
 
-
-
-[雅虎新闻](https://news.yahoo.com/news/united-airlines-union-agree-against-014516372.html#click=https://t.co/PKpRyzHrTB)近期援引路透社报道，美国联合航空公司（UA）和工会同意反对为飞行员强制接种CCP病毒疫苗。美国联合航空公司飞行员协会周一表示，联合航空公司及其飞行员公会已达成协议，禁止该航空公司为其飞行员强制接种CCP病毒疫苗。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18214404/233-1.jpg)美国联合航空公司总裁斯科特·柯比在芝加哥奥黑尔国际机场发表演讲‎（图片来源：[yahoo news](https://news.yahoo.com/news/united-airlines-union-agree-against-014516372.html#click=https://t.co/PKpRyzHrTB)）
-
-该协议称，鉴于新冠疫苗接种是非强制性的，飞行员若选择不接种疫苗将不会受到任何纪律处分。航空公司与工会之间的协议还补充说，那些接种过疫苗的飞行员将有资格获得额外报酬。（笔者很疑惑，为什么接种过疫苗的飞行员将有资格获得额外报酬呢？是因为疫苗可能给已接种者带来额外的伤害因而令其有资格获得额外报酬作为隐性赔偿吗？）
-
-虽然美国的某些航空公司表示不会强制要求员工接种疫苗，如美国航空公司（AA）在一月份就表示，除非接种疫苗在所要进入的某些目的地是强制性的，否则AA不打算强制要求飞行员和其他员工接种疫苗，但仍有不少航空公司要求员工接种疫苗。美联航CEO在今年一月份的一次会议上告诉员工，公司可能会强制要求员工接种疫苗，他同时敦促其他公司也这样做。在本月早些时候，另一家航空公司达美也表示将要求所有在美国的新员工接种CCP病毒疫苗。
-
-尽管美国私营公司可以要求员工接种CCP病毒疫苗，但有专家表示，如果这样做，他们可能会面临法律和文化反弹的风险。近日传的沸沸扬扬的关于英国航空公司四名飞行员一周内死亡的消息虽然已被英航否认与飞行员接种CCP病毒疫苗相关, 但有关死因的医学调查尚未被公布。此次美联航与工会达成协议，同意反对为飞行员强制接种CCP病毒疫苗，不知是否与英航飞行员死亡事件有内在联系。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141843/6-june.jpg)
-
-编辑/校对/发稿：小鹿
+> The fact that we had ethically-conflicted scientists spinning our own intelligence community on the origins of COVID-19 tells us we have a huge problem. 
+> 
+> If we're going to prevent the next pandemic, we have to get to the bottom of this and demand better from our own government. [pic.twitter.com/f9ZRwtVu8h](https://t.co/f9ZRwtVu8h)
+> — Rep. Mike Gallagher (@RepGallagher) [June 18, 2021](https://twitter.com/RepGallagher/status/1405940115537604610?ref_src=twsrc%5Etfw)
 
 
 
-**更多资讯****，****更多关注**
-
-[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
-
-[**纽约香草山农场****Twitter****（****中文****）**](https://twitter.com/HIMALAYA_MOS)
-
-[**纽约香草山农场****Twitter****（****英文****）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+彼得·纳瓦罗： 福奇手上沾满了血。辞退福奇。
 
 
 
+> Blood on Fauci’s hands. Fire Fauci [https://t.co/VfXALIxvF3](https://t.co/VfXALIxvF3)
+> — Peter Navarro (@RealPNavarro) [June 18, 2021](https://twitter.com/RealPNavarro/status/1405939544244068357?ref_src=twsrc%5Etfw)
 
 
-+1
+
+参议员玛莎·布莱克本： 你说什吗？ 【转推里福奇为自己开脱称：对于 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 泄漏说一直保持开放的心态并观察着，所以他认为说他们故意压制这一点有点曲解】
+
+
+
+> Say what? [https://t.co/o0gIqZUJE7](https://t.co/o0gIqZUJE7)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 18, 2021](https://twitter.com/MarshaBlackburn/status/1405683907396313089?ref_src=twsrc%5Etfw)
+
+
+
+众议员艾丽丝·斯特凡尼克： 说到底CNN（美国有线电视新闻网）是捍卫中国新闻网的。 （转推福克斯新闻：“CNN在鼓吹中共提供的新型冠状病毒疫苗接种率后被指控替中共鼓动宣传”）
+
+
+
+> So CNN does stand for China's News Network, after all. [https://t.co/TgegylGBLF](https://t.co/TgegylGBLF)
+> — Rep. Elise Stefanik (@RepStefanik) [June 18, 2021](https://twitter.com/RepStefanik/status/1405994071412383750?ref_src=twsrc%5Etfw)
+
+
+
+0

@@ -1,59 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社即时简报】习近平携中共领导人宣誓
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332942/)
+## 【小象搬运】推特网友曝光布隆伯格和杨澜的亲密关系
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1333041/)
 
-香草山翻译部：GBW
+有网友在推特曝光了布隆伯格和杨澜的亲密关系，其中引用了一段郭文贵先生在几年前视频直播中的文字记录资料。资料显示，杨澜和吴征夫妇是通过文贵先生认识了布隆伯格，在此期间，杨澜与布隆伯格玩了一个找钥匙的游戏。这次亲密的接触之后，为布隆伯格和他代表的华尔街和中共合作勾结打开了一个新的方向。![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18222939/Picture1-33.png)
+
+杨澜是美国居民，她目前的的丈夫在一年前因为被揭发后在美国注册了外国代理人。
+
+参考链接：
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
+> 布隆伯格也被找过钥匙！！！ [pic.twitter.com/icACg3ryii](https://t.co/icACg3ryii)
+> — 阮尚李（终共靠贵）【Fuck HK POPO】 (@1808\_W73) [June 18, 2021](https://twitter.com/1808_W73/status/1405984643849940992?ref_src=twsrc%5Etfw)
 
 
 
-2021年6月18日晚，路博艾
+整理撰稿：蓝精灵
 
-**1. 赵立坚：探索浩瀚宇宙是全人类的梦想，中国也不例外。**
+校对发布：Penny
 
-博博士：中（共）国的太空计划是为军事目的服务的。
-
-**2. 习近平携中共领导人参观“不忘初心、牢记使命”党史展览**。
-
-a. 路德：习近平走在最前面。王岐山最后压阵，说明他第二重要。王毅这些炮灰也参加了。
-
-b. 博博士：走出黑帮的气势，像邪教宣誓。
-
-c. 艾丽：外部压力大，党心不稳。
-
-**2. 塞林博士推特发了闫博士前夫Ranawaka照片和绿色贝雷帽，”在美国，他没有任何地方可以藏身，因为我们将一直追捕他。”**
-
-a. 艾丽：整装待发，要行动了。有点最后通牒的意思。
-
-b. 博博士：”特种部队”、”游骑兵 “和 “空降兵 “臂章需要通过所有相关的严格训练和考试。
-
-c. 博博士：塞林博士用“通缉犯”这个词是不是意味着立案了？
-
-笔记仅作参考，内容以路德社节目为准。
-
-视频链接：[https://www.youtube.com/watch?v=68sjIA4Pbog](https://www.youtube.com/watch?v=68sjIA4Pbog)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-编辑/校对/发稿：正义的小新
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0
