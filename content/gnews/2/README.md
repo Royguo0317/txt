@@ -1,27 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Sellin上校发推称要追捕闫博士前夫Perera
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1333522/)
+## 联大呼吁停止向缅军输送武器，而中共投弃权票
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1333629/)
 
 #### 文章撰写:【默凡】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19034354/452hgf4Lj782wLDWYAAUt3u.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19044506/43nsadgipaste_2021-06-19_16-44-40.png)
 
-6月19日，Sellin上校重磅发推称：“通缉犯中共科学家 Ranawaka Arachchige Prasad Mahendra Perera在美国不受欢迎。他在美国无处可藏，因为我们将一直在追捕他。”
+路透社6月18日报道：联合国大会本周五在119个国家的支持下通过了一项决议，呼吁停止向缅甸输送武器，并敦促缅甸军方尊重去年11月的选举结果，释放包括领导人昂山素季在内的政治犯，缅甸军方2月1日发动政变推翻了昂山素季领导的民选政府。
 
+白俄罗斯要求将决议文本付诸表决，并成为唯一投下反对票的国家，而包括中共国和俄罗斯在内的36个国家则投了弃权票。联合国缅甸事务特使布尔根纳（Christine Schraner Burgener）对联合国大会表示：“大规模内战的风险真实存在，时间至关重要，扭转军事接管局面的机会正在缩小。”
 
+欧盟驻联合国大使斯科格（Olof Skoog）认为，联合国的这项决议发出了一个强有力的信息，这将缅甸军政府非法化，谴责缅甸军政府对本国人民进行虐待和暴力，并表明军政府在世界面前是孤立的，”
 
-> Fugitive CCP scientist Ranawaka Arachchige Prasad Mahendra Perera is not welcome in the U.S. There is nowhere in the U.S. that he can hide because we will always be hunting for him. [pic.twitter.com/5NPvgXY9ov](https://t.co/5NPvgXY9ov)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [June 18, 2021](https://twitter.com/LawrenceSellin/status/1405936560466534401?ref_src=twsrc%5Etfw)
+联大这份决议没有法律约束力，但有政治影响力。与安理会15个成员国不同的是，联大当中没有任何国家拥有否决权。
 
-
-
-Sellin上校还在该推特中晒出了两张照片，左侧图片是美国陆军第75游骑兵臂章，右侧图片是闫博士前夫Perera。
-
-第75游骑兵团（英语：75th Ranger Regiment），又称游骑兵（Ranger），美国陆军的正式编制单位，受美国陆军特种作战司令部（USASOC）统筹。总部位于乔治亚州本宁堡（Fort Benning，GA），其下有三个营。在此编制单位内的成员，无论军官还是士兵，皆需要先通过游骑兵学校的训练，得到游骑兵臂章，方能加入此部队。是现代的唯一一支全由美国陆军游骑兵组成的编制部队。由于有不少游骑兵在服役一段时间后投考并加入陆军特种部队或三角洲部队，加上作为特种作战部队的支援角色与各单位的特战干员共同作战的机会甚多，有利于累积在特种作战等领域上的经验，故第75游骑兵团也被认为是“特种部队的入门部队”。
-
-参考文章：[第75游骑兵团](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%9C%8B%E9%99%B8%E8%BB%8D%E7%AC%AC75%E6%B8%B8%E9%A8%8E%E5%85%B5%E5%9C%98)
+参考文章：[联大通过决议 呼吁停止向缅甸输送武器 中国投弃权票](https://www.voachinese.com/a/un-calls-for-halt-of-weapons-to-myanmar-20210618/5934895.html)
 
 本文仅代表作者本人观点，不代表Gnews平台
 

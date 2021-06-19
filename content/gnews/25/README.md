@@ -1,119 +1,109 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇博士利益冲突和达拉斯一样大，他有责任在第一天向美国人民申明这一点
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1333173/)
+## 【香草诗词汇】文明聊天室（首季-2）
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1333332/)
 
-**字幕内容**：
+**– 灭共橡树之三分天下 –**
 
-Martha McCallum (Fox News host)
-玛莎·麦卡勒姆（福克斯新闻主持人）
+作者：纽约香草山健身部 澄道来了
 
-I want to bring in senator John Kennedy
-我想请参议员约翰 肯尼迪来
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/12172829/logo-3-1.jpeg)
 
-who is requesting more investigation about
-他在要求对此事进行更多的调查
 
-where all of this money is going
-所有这些钱都去哪儿了
 
-and I thought senator Kennedy
-而且我还认为肯尼迪参议员
+灭共十万
+三分天下
 
-that was the other really interesting moment in this interview
-这是这次采访中另一个非常有趣的时刻
+以毒灭共
+G 7认领
+以钱灭共
+G系归属
 
-is when Dr Redfield says, well you know
-是当雷德菲尔德博士说， 好的，你知道
+以毒灭共
+GTV直播
+各地战友
+尽显风骚
 
-the U.S. funded this gain of function research too
-美国也资助了这项功能增强的研究
+说文明话
+做文明事
+重塑新中国联邦文明人
 
-and so those people who are involved in that
-所以那些参与其中的人
+主题：
+以黄灭共
+付题：
+从抓小鸡鸡抓钱袋袋 看文明之人性回归
+美东：
+一 三 五 晚九时
+盘古：
+1 3 5 早9点
+地点：
+文明聊天室
+（G TV）
 
-didn’t necessarily want people looking in the lab
-不一定希望人们在实验室里寻找
+文明诵述人：
+@拥抱太阳
 
-your thoughts
-您的想法呢?
+文明煮聊人：
+@晨兮
+@重生鸟
+@煤油灯
 
-Senator John Kennedy
-约翰 肯尼迪参议员
+文明海报工
+@文康
 
-Well the more I hear Martha the more disgusted to my core I become
-好的，玛莎，我听的越多，我的内心越是厌恶
+文明推流工
+@煤油灯
 
-it’s very clear Dr. Fauci has a conflict of interest
-很明显，福奇博士是有利益冲突的
+文明访述人：
+文明挠字工：
+@澄道来了
 
-and he’s had one since day one
-他从第一天起就有了
+撬开杀不上国家级的
+李萍李微们
+某种意义上
+是真战友
 
-and he should have declared it
-并且他应该向人们申明
+十个汤灿
+不如一个
+＂中国三口组＂
+烂杨
 
-Now Dr. Fauci through his friend Dr. Peter Daszak
-现在福奇博士通过他的朋友彼得·达萨克博士
+爆黄之
+只要合法之
+爆料之
+就是灭共之
 
-gave a lot of U. S. taxpayer money to the Wuhan lab
-给武汉实验室很多美国纳税人的钱
+吹拉吟唱弹
+爆料艺口同声
 
-to study bat coronaviruses
-来研究蝙蝠冠状病毒
+吞吐唅品咽
+醉卧黑色森林
 
-But Dr. Fauci didn’t monitor how that money was being spent uh
-但福奇博士并没有监控这笔钱是如何花掉的
+澄清目标 集中火力
+＂文明聊天室＂之以黄灭共黑森林
+…..娓娓道来
+了却宿愿 集结线上
+开黄枪 射黄炮
 
-if it turns out uh that this virus came from that lab
-如果事实证明这个病毒来自那个实验室
+@文明聊天室
+@帝王蟹路 姐夫村 福特车
+@爱动爱议码06181
 
-then a lot of questions are going to be asked from Dr Fauci
-那么会有很多问题需要福奇博士的回答
+校对/发稿：雪梨
 
-they should be asked anyway
-无论如何他们都应该被问的
+![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg]()![该图像有一个空的 alt 属性； 它的文件名为 6_june-1.jpg](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-so Dr. Fauci had a vested interest
-所以福奇博士有既得利益
+**更多资讯，更多关注**
 
-or at least the appearance of it of a vested interest from day one to be so adamant
-或至少他从第一天开始就有既得利益者的样子
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-that it could not have come from a lab
-坚持认为它不可能来自实验室
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-now I’m not saying Dr. Fauci lied
-现在我不是说福奇博士撒谎了
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-I’m saying that he’s got a conflict of interest as big as Dallas
-我是说他的利益冲突和达拉斯一样大
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-and on day one he owed it to the public health to the American people
-并且在第一天他就对公众健康和美国人民负有责任
-
-to stand up and say look
-应该站出来而且说，看
-
-I’m not the best person to ask on this
-我不是回答这个问题的最佳人选
-
-because I’ve got a conflict here
-因为我这里有冲突
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接:[https://twitter.com/senjohnkennedy/status/1404915108388773891?s=21](https://twitter.com/senjohnkennedy/status/1404915108388773891?s=21)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
