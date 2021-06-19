@@ -1,119 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇博士利益冲突和达拉斯一样大，他有责任在第一天向美国人民申明这一点
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1333173/)
+## 美众议员格林发起对福奇(Fauci)医生的《解雇福奇法案》并追究其责任
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1333967/)
 
-**字幕内容**：
+翻译：康州盘古农场 – B7
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 – 心照
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19080444/1030.jpg)
+**据greatgameindia2021 年 6 月 16日发布:**
 
-Martha McCallum (Fox News host)
-玛莎·麦卡勒姆（福克斯新闻主持人）
+美国立法者出台了《解雇福奇法案》，目的是解雇安东尼·福奇 (Anthony Fauci) 医生，因为他在 COVID-19 方面提供了错误信息并掩盖了病毒的起源。解雇福奇法案将使福奇的工资降至零美元，并需要参议院确认才能由他人填补福奇的职位。
+众议员 Marjorie Taylor Greene 是该法案的发起人。 她周二表示，她很自豪能够发起⟪解雇福奇法案⟫，并解释说美国人对 2020 年政府因 COVID-19 大流行而大封锁“应该得到答案”。
 
-I want to bring in senator John Kennedy
-我想请参议员约翰 肯尼迪来
+格林 (Greene) 表示，该法案如果获得通过，将会使“福奇的工资降为零”，并要求美国参议院确认替代他职位的人。
+根据去年获得的联邦工资数据，安东尼·福奇是整个美国政府中薪酬最高的雇员。事实上，福奇医生的收入甚至超过了美国总统的薪水。
 
-who is requesting more investigation about
-他在要求对此事进行更多的调查
+“福奇医生不是由美国人民选出来的，他不是被选来指导我们经济的，他不是被选来统治父母和他们孩子教育的，但福奇医生在过去一年中很大限度的控制了我们的生活，”格林说。
+本月早些时候，福奇数以千计的电子邮件被公开，这激起了人们对他决定“不积极追求冠状病毒可能早些时候从中共国武汉病毒研究所（WIV）泄露的理论”的愤怒。
 
-where all of this money is going
-所有这些钱都去哪儿了
+去年，一组印度科学家发现冠状病毒有类似艾滋病的插入物的设计。 GreatGameIndia 公布了这项研究的结果后，引起了强烈的批评，以至于作者被迫撤回了他们的论文。
 
-and I thought senator Kennedy
-而且我还认为肯尼迪参议员
+福奇的邮件揭示，是安东尼·福奇医生本人威胁印度科学家并迫使他们撤回将 COVID-19 与艾滋病病毒联系起来的研究。
+格林在推文中写道：“美国人民应该得到武汉实验室的答案，福奇应该被追究责任！”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19080732/10302.jpg)
+2019年，由福奇医生领导的国家过敏和传染病研究所资助武汉病毒研究所等机构的科学家开展蝙蝠冠状病毒的功能增强研究。
+该项目的第二阶段从那年开始，包括额外的监测工作和功能增强研究，目的是了解蝙蝠冠状病毒如何变异以攻击人类。
 
-that was the other really interesting moment in this interview
-这是这次采访中另一个非常有趣的时刻
+荷兰病毒学家 Ron Fouchier 也进行了类似的有争议的研究，他是病毒科学领域的一位有争议的人物。
+Ron Fouchier 创造了世界上最致命的病毒株，他的研究引发了一场全球性的争论，被要求取消资助和停止此类实验。
+专家们在法律上提出了担忧，即此类实验不仅可能导致全球大流行，还可能导致生物恐怖主义。
 
-is when Dr Redfield says, well you know
-是当雷德菲尔德博士说， 好的，你知道
-
-the U.S. funded this gain of function research too
-美国也资助了这项功能增强的研究
-
-and so those people who are involved in that
-所以那些参与其中的人
-
-didn’t necessarily want people looking in the lab
-不一定希望人们在实验室里寻找
-
-your thoughts
-您的想法呢?
-
-Senator John Kennedy
-约翰 肯尼迪参议员
-
-Well the more I hear Martha the more disgusted to my core I become
-好的，玛莎，我听的越多，我的内心越是厌恶
-
-it’s very clear Dr. Fauci has a conflict of interest
-很明显，福奇博士是有利益冲突的
-
-and he’s had one since day one
-他从第一天起就有了
-
-and he should have declared it
-并且他应该向人们申明
-
-Now Dr. Fauci through his friend Dr. Peter Daszak
-现在福奇博士通过他的朋友彼得·达萨克博士
-
-gave a lot of U. S. taxpayer money to the Wuhan lab
-给武汉实验室很多美国纳税人的钱
-
-to study bat coronaviruses
-来研究蝙蝠冠状病毒
-
-But Dr. Fauci didn’t monitor how that money was being spent uh
-但福奇博士并没有监控这笔钱是如何花掉的
-
-if it turns out uh that this virus came from that lab
-如果事实证明这个病毒来自那个实验室
-
-then a lot of questions are going to be asked from Dr Fauci
-那么会有很多问题需要福奇博士的回答
-
-they should be asked anyway
-无论如何他们都应该被问的
-
-so Dr. Fauci had a vested interest
-所以福奇博士有既得利益
-
-or at least the appearance of it of a vested interest from day one to be so adamant
-或至少他从第一天开始就有既得利益者的样子
-
-that it could not have come from a lab
-坚持认为它不可能来自实验室
-
-now I’m not saying Dr. Fauci lied
-现在我不是说福奇博士撒谎了
-
-I’m saying that he’s got a conflict of interest as big as Dallas
-我是说他的利益冲突和达拉斯一样大
-
-and on day one he owed it to the public health to the American people
-并且在第一天他就对公众健康和美国人民负有责任
-
-to stand up and say look
-应该站出来而且说，看
-
-I’m not the best person to ask on this
-我不是回答这个问题的最佳人选
-
-because I’ve got a conflict here
-因为我这里有冲突
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接:[https://twitter.com/senjohnkennedy/status/1404915108388773891?s=21](https://twitter.com/senjohnkennedy/status/1404915108388773891?s=21)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
+原文连接：[https://greatgameindia.com/fire-fauci-act/](https://greatgameindia.com/fire-fauci-act/)
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
 康州盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-0
++4

@@ -12,138 +12,138 @@
 
 ---
 
-### [【新闻宅急便】Coinbase进入日本 成为加密（虚拟）货币兑换商](/content/gnews/1/README.md)
+### [【文贵视角】对“国际友人”有重要警告，秘翻及意德日等各语种准备向世界传达重要信息！](/content/gnews/1/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【新闻宅急便】Coinbase进入日本 成为加密（虚拟）货币兑换商](/content/gnews/2/README.md)
  ` 日本东京樱花团`
 
-### [联大呼吁停止向缅军输送武器，而中共投弃权票](/content/gnews/2/README.md)
- ` 索尼克`
+### [【五月花评】共产主义长辫和社会主义小脚](/content/gnews/3/README.md)
+ ` 波士顿五月花农场`
 
-### [《日本财经简讯》2021年6月5日](/content/gnews/3/README.md)
- ` 日本东京樱花团`
-
-### [【G时评】未来两年内，美国或将有5000万人因疫苗而死亡](/content/gnews/4/README.md)
- ` GISELLE`
-
-### [中共深度洗脑高速进行中](/content/gnews/5/README.md)
- ` 秘密翻译组G-Translators`
-
-### [科学家周育森在申请新冠疫苗专利后离奇死亡](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共如“武统”台湾，会加速其灭亡](/content/gnews/7/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【墙内新闻浅析】北京招聘508名高校毕业生支农 将与乡镇签5年劳动合同](/content/gnews/8/README.md)
- ` Ru Wei`
-
-### [Sellin上校发推称要追捕闫博士前夫Perera](/content/gnews/9/README.md)
- ` 索尼克`
-
-### [【路德简报】6/18/2021早：布林肯称世卫组织第一次病毒调查漏洞百出](/content/gnews/10/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [《路德社》精选新闻简讯：捷克和比利时议会通过议案谴责中共对维吾尔人的罪行](/content/gnews/11/README.md)
- ` 路德社精选`
-
-### [中共超限战灭港行动（卅七）雨伞革命后底层社会矛盾突出](/content/gnews/12/README.md)
- ` 喜馬拉雅-粵語組`
-
-### [《路德社》精选新闻简讯：拜登 &#8220;承诺 &#8220;与中共国家主席举行一对一会谈](/content/gnews/13/README.md)
- ` 路德社精选`
-
-### [【墙文推荐】墙内乱相（组诗）](/content/gnews/14/README.md)
- ` 纽约香草山MOS03`
-
-### [视频杰森·米勒：这将是独此一家的百家争鸣平台](/content/gnews/15/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [视频中共要控制病毒话语权&nbsp; 只需要控制福奇等一小撮人](/content/gnews/16/README.md)
- ` Himalaya Rose Garden Team`
-
-### [【中共国段子】顺天时报](/content/gnews/17/README.md)
- ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
-
-### [6/19/2021 日本银河快讯：日俄欲举行外长会谈；日央行企业支援措施延长半年](/content/gnews/18/README.md)
- ` 日本银河系农场-阿尔法星球`
-
-### [视频如果习要求谭德塞加入塔利班，谭德塞会问去哪儿排队](/content/gnews/19/README.md)
- ` 秘密翻译组-精翻组 G-Translators/Elite Team`
-
-### [拜登与普京616革命性会谈背后的俄罗斯与中共战略博弈回顾总结](/content/gnews/20/README.md)
- ` 喜马拉雅日本银河系农场`
-
-### [【文字版】路德时评2021.6.18早间（路安娜谈）:国务卿布林肯首次直接表明世卫第一次调查报告漏洞百出，重申要向中共国追责](/content/gnews/21/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [2021年6月18日灭共要闻](/content/gnews/22/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【雪梨杂谈】今天是个好日子](/content/gnews/23/README.md)
- ` 纽约香草山MOS03`
-
-### [【独立观点】美俄峰会：开展双边战略稳定对话 保留争议](/content/gnews/24/README.md)
+### [【独立观点】舍己救人与紧急避险之浅见](/content/gnews/4/README.md)
  ` 纽约香草山MOS02`
 
-### [【香草诗词汇】文明聊天室（首季-2）](/content/gnews/25/README.md)
- ` 纽约香草山MOS03`
+### [鲜花抗议者在缅庆祝昂山素季76岁生日](/content/gnews/5/README.md)
+ ` 索尼克`
 
-### [众议员杰瑞卡尔表示，值得调查福奇博士是否有盈利动机](/content/gnews/26/README.md)
+### [【鹰眼墙国】身体姿态问题加重，青少年体质健康逐年恶化](/content/gnews/6/README.md)
+ ` 纽约香草山MOS02`
+
+### [《独裁者无钱法案》，防止纳税人的钱流向独裁政权](/content/gnews/7/README.md)
  ` 康州盘古农场 Himalaya CT Pangu`
 
-### [【香草山水墨堂】雪山群鹰](/content/gnews/27/README.md)
+### [【信仰之声】郭文贵：挣脱中共淫穴的当代约瑟](/content/gnews/8/README.md)
  ` 纽约香草山MOS03`
 
-### [联大通过决议呼吁停止向缅甸输送武器 中共国投弃权票](/content/gnews/28/README.md)
+### [【世事解评】以电视剧《大宅门》为例浅谈中国的家族文化](/content/gnews/9/README.md)
+ ` 纽约香草山MOS02`
+
+### [【独立观点】“望子成龙” 莫成为家长无能的借口](/content/gnews/10/README.md)
+ ` 纽约香草山MOS02`
+
+### [【笔录新生】心向往之](/content/gnews/11/README.md)
+ ` 纽约香草山MOS03`
+
+### [数百名接种疫苗的印尼卫生工作者感染COVID-19，数十人住院](/content/gnews/12/README.md)
+ ` 康州盘古农场 Himalaya CT Pangu`
+
+### [【路德社即时简报】分析塞林博士提到的重要信息](/content/gnews/13/README.md)
+ ` 纽约香草山MOS02`
+
+### [视频塞林上校：参与给闫博士丈夫发放签证的人，正将她的生命置于险境](/content/gnews/14/README.md)
+ ` 秘密翻译组-精翻组 G-Translators/Elite Team`
+
+### [深圳病毒不讲武德，专攻中共疫苗软肋](/content/gnews/15/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [视频【有声读物】CCP下地狱](/content/gnews/16/README.md)
+ ` MOSREC`
+
+### [【拆台新闻】中共吹嘘新能源汽车约占全球总量一半](/content/gnews/17/README.md)
+ ` 索尼克`
+
+### [美驻联大使：对抗中共对联合国的恶意影响 连同盟友彻查病毒起源](/content/gnews/18/README.md)
  ` 日本东京方舟农场`
 
-### [【小象快讯】澳大利亚将与中国的葡萄酒争端提交世贸组织](/content/gnews/29/README.md)
- ` 闪电侠`
+### [Delta变异体快速扩散 成全球最主要变种病毒 令人担忧](/content/gnews/19/README.md)
+ ` 日本东京方舟农场`
 
-### [【信仰之声】从“老我”到“无我”到“新我”的飞跃](/content/gnews/30/README.md)
- ` 纽约香草山MOS03`
-
-### [视频6/17/2021 中共国天价特效药一支竟卖70万元人民币，澳洲仅需41澳元(205元人民币)](/content/gnews/31/README.md)
- ` 秘密翻译组-北美组`
-
-### [视频福奇博士利益冲突和达拉斯一样大，他有责任在第一天向美国人民申明这一点](/content/gnews/32/README.md)
- ` 康州盘古农场 Himalaya CT Pangu`
-
-### [【小象快讯】独家谷歌广告技术业务年底前将面临欧盟正式调查](/content/gnews/33/README.md)
- ` 闪电侠`
-
-### [视频【有声读物】美丽刺剑](/content/gnews/34/README.md)
- ` MOSREC`
-
-### [视频【有声读物】锅言灶语（ 十一） – 有话说之＂画＂外音-](/content/gnews/35/README.md)
- ` MOSREC`
-
-### [【澳洲热点】太平洋岛国开始摆脱中共控制](/content/gnews/36/README.md)
+### [【牆國觀察】粉紅青年舉報台獨反遭罰款](/content/gnews/20/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频【有声读物】登录未来](/content/gnews/37/README.md)
- ` MOSREC`
-
-### [《路德社》精选新闻简讯： 五名中共国科学家面临美国签证欺诈指控](/content/gnews/38/README.md)
- ` 路德社精选`
-
-### [视频【有声读物】端午幻生缘](/content/gnews/39/README.md)
- ` MOSREC`
-
-### [视频【澳洲热点】天空新闻台初步探讨中共病毒真相](/content/gnews/40/README.md)
+### [【墙国观察】粉红青年举报台独反遭罚款](/content/gnews/21/README.md)
  ` 墨尔本雅典娜农场`
 
-### [《路德社》精选新闻简讯：美前国务院调查员称，必须向中国施加经济压力，使其配合病毒调查](/content/gnews/41/README.md)
- ` 路德社精选`
+### [【热点播报】塞林博士日拱一卒，病毒真相呼之欲出！（四十七）](/content/gnews/22/README.md)
+ ` 纽约香草山MOS02`
 
-### [法国拒绝中国疫苗 中方扬言报复](/content/gnews/42/README.md)
+### [2021/06/19 英喜时事速递](/content/gnews/23/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [身在中共国——三代人呕心沥血求学路](/content/gnews/24/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【澳洲热点】变异毒株威胁逼近悉尼，新州新增3例社区传播病例](/content/gnews/25/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [视频【每日快讯】06/18/2021:爆料革命以黄灭共全面开火](/content/gnews/26/README.md)
  ` 澳喜农场`
 
-### [《路德社》精选新闻简讯：北约新公报称中共为系统性挑战](/content/gnews/43/README.md)
+### [“掀锅盖”系列：20210610今天国会山将询问FBI局长关于闫丽梦博士出逃的细节，闫博士丈夫秘密来美国企图抹黑闫博士](/content/gnews/27/README.md)
+ ` 《爆料贵语--掀郭盖》NZ`
+
+### [美军参联会主席称，中共国对美国地缘战略安全构成威胁](/content/gnews/28/README.md)
+ ` 索尼克`
+
+### [6/19/2021 国内经济状况周报：生猪价格下滑菜籽油价格持续高位；定期存款利率或下滑](/content/gnews/29/README.md)
+ ` 秘密翻译组金融团队`
+
+### [【路德简报】6/18/2021晚：习近平、王岐山、韩正等集体宣誓 再次验证王岐山等出逃都是假新闻](/content/gnews/30/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [《路德社》精选新闻简讯：美国联邦通信委员会投票推进对中共国电信设备的拟议禁令](/content/gnews/31/README.md)
  ` 路德社精选`
 
-### [亚利桑那州的国家审计预计还需八周出报告](/content/gnews/44/README.md)
- ` HimalayaRussia`
+### [美众议员格林发起对福奇(Fauci)医生的《解雇福奇法案》并追究其责任](/content/gnews/32/README.md)
+ ` 康州盘古农场 Himalaya CT Pangu`
 
-### [《路德时评》重磅解读习神、王岐山和韩正同时现身宣誓，及Sellin发推称要追捕闫博士前夫](/content/gnews/45/README.md)
- ` 香柏树`
+### [【笔录新生】传递火炬](/content/gnews/33/README.md)
+ ` 纽约香草山MOS03`
+
+### [湖南汝城619民房倒塌事故官媒要掩盖的三条事实是啥](/content/gnews/34/README.md)
+ ` 喜马拉雅日本银河系农场`
+
+### [【DC大中华时事】联合国人权事务发言人谴责港警抓捕《苹果日报》高层以进一步压制媒体自由 2021.06.19](/content/gnews/35/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [《路德社》精选新闻简讯：爆炸性新闻：中共叛逃者的身份得到确认，是中共反间谍部门的高级官员](/content/gnews/36/README.md)
+ ` 路德社精选`
+
+### [6/19/2021 财经快讯：SEC 宣布2021年不会对加密货币进行监管；马斯克讲话后，比特币飙升至4万美元以上](/content/gnews/37/README.md)
+ ` 秘密翻译组金融团队`
+
+### [视频英美再就新冠溯源调查向中共国施压（玫瑰看新闻2021/06/14 第103期）](/content/gnews/38/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [【每日快报】中共国宣传渠道利用匿名科学家来打击实验室泄漏理论 2021.06.19](/content/gnews/39/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [【币圈】-数字货币动态- 2021.06.19](/content/gnews/40/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [2021/06/18 英喜时评第三十三期](/content/gnews/41/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [布林肯将访问欧洲，会见马克龙及默克尔](/content/gnews/42/README.md)
+ ` 索尼克`
+
+### [【澳洲热点】澳洲就中共葡萄酒关税争端提交世贸组织裁决](/content/gnews/43/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [独家：武汉实验室在2017年发现了冠状病毒“流行毒株”的所有基因](/content/gnews/44/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [欧洲帮助黑山削减中共国债务](/content/gnews/45/README.md)
+ ` 索尼克`
 

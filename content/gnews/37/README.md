@@ -1,50 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】登录未来
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1333226/)
+## 6/19/2021 财经快讯：SEC 宣布2021年不会对加密货币进行监管；马斯克讲话后，比特币飙升至4万美元以上
+` 秘密翻译组金融团队` [轉載自GNews](https://gnews.org/zh-hans/1334008/)
 
-配音：香草山录音组 Swr拥抱太阳
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19081516/%E5%9B%BE%E7%89%871-54.png)[图片来源](https://www.marketwatch.com)
+**1.****美国证券交易委员会（SEC ）宣布2021年不会对加密货币进行监管**
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+[据路透社报道，尽管最近证券交易委员会（SEC）主席加里-詹斯勒（Gary Gensler）一直表示对加密货币缺乏 “强有力的监督 “，但根据其最近公布的规则制定清单，该委员会没有计划在2021年监管加密货币。对加密货币的遗漏意味着美国证券交易委员会正在有效地推迟对比特币交易所交易基金（ETF）的重要决定。总部位于纽约的ETF和共同基金管理公司VanEck提出了比特币ETF的申请，希望在2020年底获得SEC的批准，但该委员会一直没有做出决定。](https://www.breitbart.com/tech/2021/06/17/sec-announces-no-plans-to-regulate-cryptocurrency-in-2021/)
 
+**2.****在埃隆-马斯克的讲话后，比特币飙升至4万美元以上**
 
+[在特斯拉CEO埃隆-马斯克暗示他的公司可能再次恢复比特币交易后，比特币飙升至40000美元以上。之前马斯克曾让比特币和其他加密货币陷入困境，因为这位亿万富翁投资者宣布他的公司以环境问题为由，暂停使用比特币购买车辆。他提到了对开采比特币的环境代价的担忧，尤其是在中国这样使用燃煤能源的地方。马斯克透露了特斯拉再次开始接受比特币的条件，并表示当比特币开采变得更加环保时，就会出现这种情况。马斯克在回应Twitter上发表的一篇文章时表示：”当确认矿工合理（~50%）使用清洁能源并有积极的未来趋势时，特斯拉将恢复允许比特币交易。”](https://www.washingtonexaminer.com/news/bitcoin-soars-40k-elon-musk)
 
+**3.****苹果应用商店恐在欧洲失去垄断地位**
 
+[CNBC报道，本周在法国举行的VivaTech会议上，苹果公司首席执行官蒂姆-库克通过视频会议表示，他认为最近提出的被称为DMA的欧洲法律，允许用户在苹果公司的App Store之外安装软件，”不符合用户的最佳利益”。库克表示。”我看了正在讨论的科技法规，我认为其中有好的部分。而我认为其中也有不符合用户最佳利益的部分。” 欧盟今年早些时候提出了两项监管大型科技公司的法律，即《数字服务法》和《数字市场法》。](https://www.breitbart.com/tech/2021/06/18/tim-cook-really-hates-the-idea-of-losing-the-apple-app-store-monopoly/)
 
-未来必来
-不是请不请
-一根筋
-绝无开断
+[库克对DMA的一个问题是，它将迫使苹果公司允许iOS用户从苹果应用商店以外的地方侧载应用到他们的设备上。目前，苹果应用商店是在iPhone或iPad上安装应用的唯一途径。苹果公司声称，它对应用程序商店的控制确保了高质量的应用程序，并有助于防止恶意软件，但正如Breitbart News之前报道的那样，许多iOS开发人员不同意这种说法。](https://www.breitbart.com/tech/2021/06/18/tim-cook-really-hates-the-idea-of-losing-the-apple-app-store-monopoly/)
 
-登录必录
-不是做不做
-一钥匙
-登录开启
+**4.****国际货币基金组织表示碳价格下限有助于带来巨大的变革性投资机会**
 
+[国际货币基金组织发布的一份报告称，国际碳价格下限（ICPF）可以帮助为转型投资、经济增长和绿色就业带来巨大的机会。报告认为财政政策在保持财政空间的同时，将私人投资转向低碳技术的开发、采用和推广是非常重要的,碳定价实现了这两个目标，它同时提供了促进清洁技术的私人投资所需的基本价格信号，并调动了急需的收入，这在大流行病之后尤其宝贵。](https://www.forbes.com/sites/tedknutson/2021/06/18/imf-carbon-price-floor-could-help-bring-tremendous-transformative-investment-opportunities/?sh=2abc01b375e8)
 
+[国际货币基金组织总裁克里斯塔琳娜-格奥尔基耶娃在布鲁金斯学会的一次网络研讨会上公布了这项研究，只有改变经济政策才能在应对全球警报方面取得真正的成功。她声称ICPF将加速向低碳世界的过渡，部分是通过鼓励能源创新。](https://www.forbes.com/sites/tedknutson/2021/06/18/imf-carbon-price-floor-could-help-bring-tremendous-transformative-investment-opportunities/?sh=2abc01b375e8)
 
-**文字版原文：[【笔录新生】登录未来](https://gnews.org/zh-hans/1329397/)**
+**5.****道指、标普创下数月来最差一周业绩**
 
-手绘图：纽约香草山设计部 蜂鸟
-诗作者：纽约香草山健身部 澄道来了
+[美国股市周五大幅收跌，道指和标普500指数创下数月来最差的周度表现，此前美联储官员James Bullard关于美国央行可能比此前预期更早加息的言论令投资者感到震惊。蓝筹股道指和基准股标普500指数本周以创纪录的收盘水平开始，但最终分别以10月底和2月底以来任何一周的最大跌幅收盘。科技股重镇纳斯达克指数也收盘下跌，尽管在过去五天里创下了有史以来的两个最高收盘价。投资者对其现有头寸的信心最初受到美联储政策会议的打击，会议预计加息时间将早于预期，并表明它已达到可以开始讨论缩减其大规模刺激措施的程度。](https://www.oann.com/recovery-bets-keep-sp-nasdaq-futures-near-record-highs/)
 
+**6.****美国共和党国会委员会将接受加密货币捐款**
 
+[全国共和党国会委员会（NRCC）表示，它将使用Bit Pay，这是一个针对商家的流行加密货币支付处理服务。Bit Pay的模式与PayPal的模式类似，它允许第三方轻松地将加密货币处理器整合为其网站上的支付系统。NRCC主席汤姆-艾默(Tom Emmer)议员在一份声明中说，使用该技术将帮助共和党人取得成功。除了担任NRCC主席外，艾默议员还是国会区块链核心小组的联合主席。”我们专注于寻求一切可能的途径，以推进我们阻止南希-佩洛西的社会主义议程和夺回众议院多数席位的使命，这项创新技术将有助于为共和党人提供我们成功所需的资金。”](https://www.breitbart.com/tech/2021/06/17/national-republican-congressional-committee-will-accept-cryptocurrency-donations/)
 
-音频处理/发稿：雪梨
+**7****.****谷歌的广告技术业务将在年底前面临欧盟的正式调查**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
+[Alphabet旗下的谷歌可能面临最大的监管威胁，欧盟反垄断监管机构将在今年年底前对其利润丰厚的数字广告业务展开正式调查。这将标志着欧盟竞争执法者对谷歌的一个新战线。在过去的十年中，欧盟已经对该公司进行了超过80亿欧元（98亿美元）的罚款，原因是其在网上购物、安卓智能手机和在线广告方面阻挠竞争对手。其中一位人士说，欧盟的调查将侧重于谷歌对广告商、出版商、中介机构和竞争对手的立场，这表明比法国反垄断机构上周结束的案件审查更深入。谷歌去年从网络广告中获得了1,470亿美元的收入，超过了世界上任何其他公司。其属性上的广告，包括搜索、YouTube和Gmail，占了销售和利润的大部分。](https://www.oann.com/exclusive-googles-adtech-business-set-to-face-formal-eu-probe-by-year-end-sources/)
 
-**更多资讯，更多关注**
+**8.****中共国发起使奴隶式采摘的棉花成为 “时尚”的运动**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[《环球时报》周五声称，禁止新疆棉花出口的呼声越来越高，实际上增加了新疆棉在中共国公民和国内服装公司中的受欢迎程度，部分原因是对全球厌恶的 “爱国 “反应。“研究表明，通过高标准农田建设、土地流转和国家农机补贴，南疆棉花生产实现了规模化，”中共官方报纸《人民日报》 报道。“与其他职业相比，采棉的高收入使它成为一个非常有吸引力的工作。采棉工人的劳动报酬、职业安全卫生等权利也得到保障。”](https://www.breitbart.com/asia/2021/06/18/china-launches-campaign-slave-picked-cotton-vogue/#)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[一名不愿透露姓名的 “业内人士 “表示该计划将 “使中共国–世界上最大的棉花消费市场–在国际定价和标准制定方面拥有重要的话语权，更重要的是，给它提供一个工具，合理地捍卫自己，保护其利益免受西方政治打击。” 它的 “最终目标 “是减少 “对西方标准的依赖”。](https://www.breitbart.com/asia/2021/06/18/china-launches-campaign-slave-picked-cotton-vogue/#)
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+By 【秘密翻译组-金融组】
+作者：Totoro
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++1

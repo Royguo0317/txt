@@ -1,54 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】美丽刺剑
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1333246/)
+## 湖南汝城619民房倒塌事故官媒要掩盖的三条事实是啥
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1334135/)
 
-配音：香草山录音组 Swr拥抱太阳
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19082234/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-19.png)
+据[**正观视频**](https://weibo.com/7299136456?refer_flag=1001030103_) [2021年6月19日18:56](https://weibo.com/7299136456/KkVurvP1q?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+【[#*湖南汝城*民房*垮塌*已救出8人#](https://s.weibo.com/weibo?q=%23%E6%B9%96%E5%8D%97%E6%B1%9D%E5%9F%8E%E6%B0%91%E6%88%BF%E5%9E%AE%E5%A1%8C%E5%B7%B2%E6%95%91%E5%87%BA8%E4%BA%BA%23)并送医治疗】6月19日12时40分许，[#*湖南汝城一房屋垮塌*#](https://s.weibo.com/weibo?q=%23%E6%B9%96%E5%8D%97%E6%B1%9D%E5%9F%8E%E4%B8%80%E6%88%BF%E5%B1%8B%E5%9E%AE%E5%A1%8C%23)。据央视新闻消息，目前已成功救出8人，并全部送往当地医院救治，生命体征均正常。事故发生后当地县委县政府第*一*时间组织应急、消防、公安、武警、卫健、住建等相关部门赶赴现场紧急救援。*湖南*消防出动400多名救援人员展开救援，武警郴州支队120余人赶往现场增援。现场救援和人员核查工作正在紧张进行。 [L正观视频的微博视频](http://t.cn/A6fh0yun)
 
+对于中共国的新闻必须要有特别的分辨能力和直觉才能挖掘出真相，以这一则新闻为例，当我们看到民房的时候，我们通常会想到是平房，而如果是一座倒塌的民房里救出8人的话，那么这则民房里住的肯定是一大户人家，但是直觉会告诉我们，这则新闻在掩盖事实，它要掩盖的事实有三个：一是这栋倒塌的房子是什么样的房子？二是这栋房子是如何倒塌的？直觉会告诉我们这栋房子绝对不是天灾导致的倒塌，而十有八九是人祸导致的；三是这次民房倒塌将会有多少人死亡？
 
+以上问题的部分答案可以从[糊塗@EZqkzsCFrgcaoww于下午7:17 · 2021年6月19日·Twitter for Android发布的推文](https://twitter.com/EZqkzsCFrgcaoww)中找到——
 
-
-
-玫瑰花
-属蔷薇目
-原产地中国
-别名
-徘徊花
-刺玫花
-狗玫花
-穿心玫瑰
-篱笆玫瑰
-…..
-这些名字中
-独尊
-刺玫花
-– -刺客
+6月19日下午13时左右，湖南省郴州汝城县一栋七层楼整体垮塌。
 
 
 
-**文字版原文：[【香草诗词汇】美丽刺剑](https://gnews.org/zh-hans/1326669/)**
-
-作者：纽约香草山健身部 澄道
-
+> 6月19日下午13时左右，湖南省郴州汝城县一栋七层楼整体垮塌。 [pic.twitter.com/WPkQnYCbjb](https://t.co/WPkQnYCbjb)
+> — 糊塗 (@EZqkzsCFrgcaoww) [June 19, 2021](https://twitter.com/EZqkzsCFrgcaoww/status/1406209557337018369?ref_src=twsrc%5Etfw)
 
 
-音频处理/发稿：雪梨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/12222412/1-1.jpeg)
+根据推文视频内容，我们可以知道，这所谓倒塌的民房是一栋七层楼，按七层楼三个单元，每个单元两户，这栋倒塌的民房应该是42户，由于今天是周六，按倒塌时楼内70%的住户有人并且每户两人计算，那么这次倒塌可能导致29户59人被埋，至于楼房倒塌原因大家已经知道了，因为楼房旁边存在地基施工，可能是打夯机打夯时把这栋七层楼房震塌了，既然这栋七层楼可以震塌，那么与其相邻楼房的地基也必将受到影响，即使不倒塌，在未来也必然出现不均匀沉降而成为危房。
 
-**更多资讯，更多关注**
+那么官媒为什么语焉不详呢？因为正在施工的单位是当地政府要全力保护的单位，因为这家施工的单位大概率属于政府官员的白手套，还因为死人太多会影响官员的乌纱帽，你看懂了吗？
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+（文章内容仅代表作者个人观点）
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-0
++3
