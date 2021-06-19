@@ -1,45 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月18日美国政要推文精选: 福奇手上沾满了血,辞退福奇
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1332947/)
+## 【小象快讯】郭台铭放大招喊话总统府获洽购辉瑞疫苗
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1333108/)
 
-众议员迈克·加拉格尔： 我们那些无视伦理道德的科学家在新型冠状病毒的起源上将我们自己的情报界耍的团团转，这一事实告诉我们，我们有一个巨大的问题。 如果我们要防止下一次疫情，我们必须追根究底，并要求本国政府做得更好。
+小象：台湾的疫苗峰回路转，之前台湾一直直接洽谈海外疫苗，但是始终绕不开香港的一家叫做复兴集团的代理公司，早在疫情开始之前，复兴就取得德国辉瑞疫苗的大中华区代理，按合同约定，台湾购买辉瑞疫苗必须通过香港的复兴医药集团公司，台湾媒体早在几个月前曾经报道，台湾政府卫生院一直直接与德国辉瑞洽谈，但是一直未能有结果，复兴药业的代理地区涵盖了大陆，香港，台湾，澳门。在购买疫苗的这件事情上是很有意思的。台积电的参与，还有久违的郭台铭也横空出现了。
 
+以下是南华早报的摘要：
 
+郭台铭昨早突然“放大招”，在Facebook上提出八点意见直接向总统蔡英文喊话，包括要求与蔡英文会面。台湾总统府立即回应，乐意与郭台铭见面会谈。随后，台湾行政院宣布，同时授权郭台铭的永龄基金会与台积电，洽购辉瑞疫苗。
 
-> The fact that we had ethically-conflicted scientists spinning our own intelligence community on the origins of COVID-19 tells us we have a huge problem. 
-> 
-> If we're going to prevent the next pandemic, we have to get to the bottom of this and demand better from our own government. [pic.twitter.com/f9ZRwtVu8h](https://t.co/f9ZRwtVu8h)
-> — Rep. Mike Gallagher (@RepGallagher) [June 18, 2021](https://twitter.com/RepGallagher/status/1405940115537604610?ref_src=twsrc%5Etfw)
+台湾陷入“疫苗荒”，鸿海集团创办人郭台铭寻求捐献疫苗的想法昨天峰回路转，台湾政府终于宣布授权郭台铭方面代表洽购500万德国BNT疫苗（即辉瑞疫苗，香港称复必泰疫苗）供民众施打。同时，科技巨头台积电也突然进入画面，获得政府授权采购另外500万剂BNT疫苗，也会捐出来。
 
+台湾行政院昨午在临时记者会上宣布，政府将发函授权台积电与郭台铭成立的永龄基金会，代表政府洽谈购买各500万剂BNT德国原厂疫苗，直接送抵台湾捐赠给政府，合计是1000万剂BNT疫苗。
 
+行政院发言人罗秉成也首次透露，台积电是在本月10日提出申请，希望捐赠500万剂德国原厂BNT疫苗。他说，BNT公司表示，疫苗只会卖给政府，不会卖给私人或者企业，“为解决民间企业购买疫苗遭遇的问题”，因此政府将进行特殊采购安排。
 
-彼得·纳瓦罗： 福奇手上沾满了血。辞退福奇。
+小象补充资料：
 
+上海复星医药（集团）股份有限公司（简称：复星医药，上交所：600196、港交所：2196）是一家中国制药公司，主要业务是制药、药品分销及零售、医疗服务以及诊断产品与医疗器械。复星医药亦持有国药控股32.1%股权。
 
+美国东部时间2020年3月13日，复星医药的控股子公司复星医药产业与BioNTech签订许可协议，BioNTech授权复星医药产业在中国大陆及港澳台地区独家开发、商业化基于其专有的mRNA技术平台研发的2019冠状病毒病疫苗产品[9]，同年7月27日相关疫苗产品BNT162b2在全球进行大规模临床2/3期实验(另一款BNT162b1没有进入实验，被淘汰)[10]。疫苗中文名为复必泰(中国大陆、香港、澳门、台湾)[11]，上海复星医药（集团）股份有限公司在2020年7月14日公告其控股子公司获药品临床试验申请受理（此时为BNT162b1）[12]。但是在辉瑞于7月27日宣布放弃BNT162b1，继续BNT162b2实验之后，上海复星医药（集团）于2020年11月13日和BioNTech公宣布其新型冠状病毒mRNA候选疫苗BNT162b2获中国国家药品监督管理局临床试验批准[13]。
 
-> Blood on Fauci’s hands. Fire Fauci [https://t.co/VfXALIxvF3](https://t.co/VfXALIxvF3)
-> — Peter Navarro (@RealPNavarro) [June 18, 2021](https://twitter.com/RealPNavarro/status/1405939544244068357?ref_src=twsrc%5Etfw)
+参考链接：
 
+[https://www.zaobao.com.sg/news/china/story20210619-1158010](https://www.zaobao.com.sg/news/china/story20210619-1158010)
 
+整理撰稿：蓝精灵
 
-参议员玛莎·布莱克本： 你说什吗？ 【转推里福奇为自己开脱称：对于 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 泄漏说一直保持开放的心态并观察着，所以他认为说他们故意压制这一点有点曲解】
+校对发布：Penny
 
-
-
-> Say what? [https://t.co/o0gIqZUJE7](https://t.co/o0gIqZUJE7)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 18, 2021](https://twitter.com/MarshaBlackburn/status/1405683907396313089?ref_src=twsrc%5Etfw)
-
-
-
-众议员艾丽丝·斯特凡尼克： 说到底CNN（美国有线电视新闻网）是捍卫中国新闻网的。 （转推福克斯新闻：“CNN在鼓吹中共提供的新型冠状病毒疫苗接种率后被指控替中共鼓动宣传”）
-
-
-
-> So CNN does stand for China's News Network, after all. [https://t.co/TgegylGBLF](https://t.co/TgegylGBLF)
-> — Rep. Elise Stefanik (@RepStefanik) [June 18, 2021](https://twitter.com/RepStefanik/status/1405994071412383750?ref_src=twsrc%5Etfw)
-
-
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0
