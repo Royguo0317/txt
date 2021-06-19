@@ -1,23 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发：深圳机场400余架次航班被取消
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1332849/)
+## 2021年6月17日灭共要闻
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1332924/)
 
-俄罗斯莫斯科喀秋莎农场 娜洁仕达
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18215850/%E7%81%AD%E4%B8%80%E7%BB%84%E5%B0%81%E9%9D%A2-10.jpg)
 
-编辑上传 水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18213907/F-7.jpg)lexority.com
-6月18日，有深圳旅客表示深圳机场飞机大面积延误。据飞常准APP显示，截至14：25，深圳宝安机场已取消进出港航班400余架次（含提前取消和今日取消数），进出港取消占比均在4成左右。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18213644/T1.jpg)
-而深圳机场18日下午官方给出的解释为：今日计划进出港航班780架次，截至16：30时，已执行进出港航班460架次，各航空公司在今日运行中动态取消进出港航班63架次，航班运行总体正常。请旅客关注航班信息和最新防疫政策，合理安排出行。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18213720/T3.png)
-截至目前，深圳机场大面积取消航班原因众说纷纭，有消息说取消原因是安全原因，还有消息说取消原因是一名机组人员核酸检测呈阳性。总之一天之内突然大面取消航班，再加上中共国的信息不透明，引发网友的猜疑。
 
-参考链接：
+[播放视频](https://gtv.org/video/id=60cd45a3b96c69573d81e9d4)
 
-[https://news.china.com/social/1007/20210618/39683652.html](https://news.china.com/social/1007/20210618/39683652.html)
+主要内容：
 
-[https://baijiahao.baidu.com/s?id=1702887877720324300&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1702887877720324300&amp;wfr=spider&amp;for=pc)
+病毒来自自然的可能性仅为130亿分之一；
+
+福奇以“科学”的名义打压羟氯喹究竟为何？
+
+拜登澄清：与习近平并不是老朋友；
+
+捷克议会谴责中国对维吾尔人犯下严重种族绝灭罪；
+
+香港国安法：警方二度搜查《苹果日报》总编辑等五人涉嫌“勾结外国势力”被拘捕
+
+**By**：【秘翻组**–**上天造灭疫组】
 
 0

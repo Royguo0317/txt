@@ -1,27 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象搬运】加拿大前官员认为是时候考虑进军国外谍报领域
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1332727/)
+## 【热点播报】四名英国航空公司飞行员一周内死亡，与CCP病毒疫苗无关吗？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332771/)
 
-小象：加拿大作为地理位置优越的温和派，依赖五眼联盟成员身份，一直在国际事物上占据重要的角色。据新兴媒体GTV和GNEWS报道，加拿大还是被中国共产党渗透的最为厉害的国家。前任和现任政府一直以来和中共保持暧昧关系，在扣留华为孟晚舟之后，孟被要求引渡到美国，部分因为她参与了与伊朗的敏感交易，加拿大在中共的两名前外交官和商人即被中共拘禁至今。以下是作者哈利法克斯发表的一篇文章，这篇文章今天在加拿大的大报上发表，以下是部分摘要：
+作者： 纽约香草山媒体部  7bends
 
-加拿大情报界资深人士正公开倡议进军境外谍报活动。曾担任情报要职的三名退休政府官员本月在加拿大最著名的全国大报上发文表示，加拿大政府应该探索专门建立一个类似于美国中央情报局（CIA）或英国军情六处（MI6）这种机构的可能性。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
-对加拿大来说，收集外国情报从来不是优先事项，因为加拿大东西两边都是广阔的海洋，南部是友好邻邦，地理位置安全。甚至连铲除加拿大境内外国间谍的工作，也在很长一段时间内都留给了华丽耀眼的加拿大皇家骑警（RCMP）—— 他们在国际上更出名的是他们的礼服式红色上衣和斯特森帽。加拿大皇家骑警于1984年卸下了这一反间谍职务，当时加拿大成立了加拿大安全情报局（CSIS）。但即使是该机构也在很大程度上仅限于反间谍角色，其立法授权是“在加拿大境内”运作。虽然加拿大安全情报局确实有一些驻扎海外的人员，但加拿大收集到的有关其他国家政府意图的大部分信息来自公共信源、“信号情报”（SIGINT）或电子监控（ELINT）以及来自其外交使团的报告。主要途径是它在“五眼联盟”（Five Eyes）中的成员国身份。“五眼联盟”是一个情报分享合作联盟，其他成员包括美国、英国、澳大利亚和新西兰。
 
-这几位发起人认为加拿大建立起外国情报收集能力只会改善与盟友的关系。“当我们的盟友投入资源发展国安事务能力，美国也会受益，” 普拉斯特对美国之音说。“在加拿大新成立一个人力情报组织，与美国同行一同培训和协调工作，这将对两国都有战略上的好处。”
 
-琼斯和他两位同事共同撰写的这篇评论文章没有触及一个关键问题——如果加拿大从事境外谍报活动，他们刺探情报的对象是谁？琼斯承认，相比其盟友澳大利亚，加拿大在地理位置上没有专项优势。澳大利亚将亚洲作为其情报工作的主业务区，将此地区的情报分享给“五眼联盟”不过，当被问及一个想在情报界觅职的加拿大年轻人应该学些什么时，琼斯说，“我会学汉语、俄语或阿拉伯语。无论哪个政府掌权，世界上有些地区始终会是加拿大持久感兴趣的地方。”
 
-参考链接：
 
-[https://www.voachinese.com/a/canada-ponders-entry-into-world-of-foreign-espionage/5934553.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/canada-ponders-entry-into-world-of-foreign-espionage/5934553.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+[Gateway Pundit](https://www.thegatewaypundit.com/2021/06/four-healthy-british-airways-pilots-die-one-week-airline-says-no-link-covid-19-vaccine/) 6月17日报道，路透社记者向英国航空公司求证近期社交媒体流传甚广的关于四名正值壮年的英国航空公司飞行员（可能接种CCP病毒疫苗后）突然死亡一事。为此，英航目前正在与政府就是否允许接种CCP病毒疫苗的飞行员飞行进行危机谈判。据说大约80%-85%的人已被接种疫苗。英国航空公司在对路透社进行回应时证实了死亡人数，但否认与疫苗相关，也否认正在与政府进行谈判。
 
-整理撰稿：蓝精灵
 
-校对发布：Penny
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+> I believe it was actually FOUR young pilots who died due to the Maxine [pic.twitter.com/LkahSVOTkN](https://t.co/LkahSVOTkN)
+> — The Thing (@TheThin59129130) [June 17, 2021](https://twitter.com/TheThin59129130/status/1405468219998150658?ref_src=twsrc%5Etfw)
 
-0
+
+
+英国航空公司6月17日在推特上例行公事般的发推文回应传闻：令人悲伤的是我们飞行员社区的四名成员最近去世了。我们的心与他们的家人和朋友同在，但社交媒体上关于这4起死亡事件相关联的传说毫无根据。
+
+
+
+> Sadly four members of our pilot community passed away recently. Our thoughts are with their family and friends. However, there is no truth whatsoever in the claims on social media speculating that the four deaths are linked. Julie
+> — British Airways (@British\_Airways) [June 17, 2021](https://twitter.com/British_Airways/status/1405606519631007748?ref_src=twsrc%5Etfw)
+
+
+
+英航的回应真的那么令人信服吗？让我们看几则英航这个推文下的跟帖：
+
+- 一则跟帖说，向所有受影响的人表示诚挚的哀悼。据我了解，飞行员会定期做身体测试，你们飞行员的死亡率是正常还是不正常？
+- 另一则跟帖说，飞行员每年接受体检。此项检查包括心脏、视力、听力、大脑等。超过一定年龄，必须每六个月进行一次体检。这些飞行员以前不太可能有任何疾病。
+
+
+英航四名飞行员的突然死亡，真的与CCP病毒疫苗无关吗？
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141843/6-june.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯****，****更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场****Twitter****（****中文****）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场****Twitter****（****英文****）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+
+
+
+
+
++1

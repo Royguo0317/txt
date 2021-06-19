@@ -1,45 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美防长当面指责中共国防部长，在南海问题行为违法
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332668/)
+## 【小象搬运】CGTN在英国公开招聘大学生“讲述可爱中国故事”
+` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1332772/)
 
-作者：纽约香草山健身部 Jack Li文阳
+小象：CGTN在之前受到撤牌照和罚款之后，最近在推特和其他社交网路上却更加的活跃，而且还做了一系列宣传中国共产党的发展史的视频节目。它是中共信息核武器的其中之一队。我们可以看到，信息超限战现在已经进入了一个新的阶段。以下是这条新闻的摘要：
 
+英国《泰晤士报》16日报导，中国环球电视网今年4月发起一项“媒体挑战者”活动，在全球范围内招募记者和有影响力的互联网博主，作为中共大外宣的一部分，成功的申请人可以得到高达10000美元的奖金，并在CGTN获得兼职或全职工作，“中国官媒正在努力招募更多外国人为中共代言，以增强讯息可信度”，《泰晤士报》披露，CGTN已经盯上英国大学生，英国目前至少有利兹大学（University of Leeds）的六名学生和曼彻斯特大学（University of Manchester）的一名学生报名参加了上述活动。
 
+曼彻斯特大学的那名学生说，她参加这个活动是因为自己是两名亲共网红的粉丝。据悉，那两名网红在YouTube为中共做宣传，他们在中国居住，制作视频鼓吹共产主义，但也因此饱受批评。另一亲共网红承认，他多次航海旅行、参观太空发射站及华为研究中心，都“归功于中国环球电视网”。不过在接受采访时，他又声称经费全部是自筹资金。另据德国电台“今日德国”披露，一些居住在中国的外国网红声称，他们亲自去了新疆，那里不存在强迫劳动。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
+今年2月，中国环球电视网被英国通讯管理局（Ofcom）发现在编辑上受到中共控制，播出执照被吊销，3月，CGTN被英国处以10万英镑的罚款。
 
+澳大利亚3月宣布，暂时停播CGTN和央视CCTV4的内容；挪威4月也停播CGTN，因其再次播出央视强迫“电视认罪”节目。
 
+目前，人权团体“保护卫士”已在美国、澳大利亚、加拿大、法国等多国投诉央视及CGTN。
 
-6月16日第八届东盟国防部长10+8扩大会议举行，会议聚焦在南中国海的和平稳定上，美国国防部长奥斯汀在会上当着中共国防部长魏凤和的面，指责中共在南海的违法行为，这次会议用视讯方式举行。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18195647/Untitled-design-2021-06-18T175521.269.png)
-除东盟十国外，澳大利亚、印度、日本、新西兰、韩国、俄罗斯、美国和中共国的国防部长也参加了此次会议。在美国国防部网站上发表的新闻中，奥斯汀国防部长阐明了美国政府对印太地区的愿景，强调了盟友与伙伴应对安全挑战的重要性。他还强调了中共国在南海的非法行为。 日本国防大臣岸信夫在会上说： 台湾海峡的和平与稳定对地区的重要性，呼吁在东海与南中国海，必须实行彻底的“法治”。他不点名的提到了中共国在海上日益升高的霸权行为。
+《泰晤士报》的报导中引述英国保守党前党魁施志安（Sir Iain Duncan Smith）的呼吁表示，英国政府应该制裁CGTN，CGTN会给全英国带来危险，是潜在的共产主义者阴谋。
 
-值得注意的是中共国的媒体在报道这次会议上，并没提到美国国防部长和日本国防大臣的针对中共国在南海台海的霸权行为的言论，更没见任何关于中共国国防部长对此表示反对的声音。很显然，美日防长的“突然袭击”大大出乎中共的意外，所以一时来不及请示习神，魏凤和顿时慌神，一时语塞，不敢随便应对，只能闭口不语。美日防长在此次东盟扩大会议上的表态，相信东盟各国都能看到美国和西方国家在南中国海和台海问题上支持各方根据国际法，和平解决争端的强硬立场。
+参考链接：
 
-参考阅读：https://www.voachinese.com/a/us-china-south-china-sea-20210617/5932103.html
+[https://www.soundofhope.org/post/516926?\_\_cf\_chl\_jschl\_tk\_\_=59b60f20ed8856684ad4d168b247abde34cecfef-1624063117-0-ASvfffuFTm2899nq9VhrZZGSJEcaSKR76GI8c-\_\_c6QOseRBqPdpfuJBg95y0-fsYWCFJOBV1lsJUFW5Ew14ha\_TKtQGUobQ2AOzBrMX4GQuop6-uH9QxgqFWi5xXBynGRo9YjNyCy1rKSAnlXR-wG590f5djZFDrfXwIE9mIE9Em5aJSPBwQ9EsI2vaN6xOeCUo8OSPmXfby04VRAi-ayD5lD7mi\_wp6wB50lvrCnLisvqptdmA24HQz3O0XiqczlEqbPSb8XNxgEPkMEakKBXM1wG3VhMrr-LTGfR6Ibj5ls0KRbQ\_-5C7nkTq\_wheth\_lm7aVn9BiKUhaV3IShoGGVbZF2bjCIaJIQ\_3\_ZMUM1ab0B6daywD-s3Gr2XJNnD\_QfWt7frigIg6cnEALneU](https://www.soundofhope.org/post/516926?__cf_chl_jschl_tk__=59b60f20ed8856684ad4d168b247abde34cecfef-1624063117-0-ASvfffuFTm2899nq9VhrZZGSJEcaSKR76GI8c-__c6QOseRBqPdpfuJBg95y0-fsYWCFJOBV1lsJUFW5Ew14ha_TKtQGUobQ2AOzBrMX4GQuop6-uH9QxgqFWi5xXBynGRo9YjNyCy1rKSAnlXR-wG590f5djZFDrfXwIE9mIE9Em5aJSPBwQ9EsI2vaN6xOeCUo8OSPmXfby04VRAi-ayD5lD7mi_wp6wB50lvrCnLisvqptdmA24HQz3O0XiqczlEqbPSb8XNxgEPkMEakKBXM1wG3VhMrr-LTGfR6Ibj5ls0KRbQ_-5C7nkTq_wheth_lm7aVn9BiKUhaV3IShoGGVbZF2bjCIaJIQ_3_ZMUM1ab0B6daywD-s3Gr2XJNnD_QfWt7frigIg6cnEALneU)
 
-http://www.xinhuanet.com/world/2021-06/15/c\_1127565369.htmhttps://www.ntdtv.com/gb/2021/06/17/a103144837.html
+图片来源：[https://news.have8.tv/](https://news.have8.tv/)
 
-校对/发稿：火内
+整理撰稿：蓝精灵
 
+校对发布：Penny
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
-
-[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+\*以上仅代表作者观点，不代表Gnews平台\*
 
 0

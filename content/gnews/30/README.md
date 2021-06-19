@@ -1,31 +1,349 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中共国段子】生殖器治国
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1332637/)
+## 【深度科普】文医谈病毒防护、治疗与疫苗的合辑
+` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1328249/)
 
-搜集：xingfffooo 撰稿发表：Summer
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10162655/A32E3178-FD13-4B78-98A1-971F4426623E.gif)
-儿子对他当局长的爸爸说：“我很喜欢对门副局长家女儿!”
+Gnews病毒真相小组 整理
 
-局长偷偷跟他说：“那是你同父异母的妹妹，只能做朋友。”
 
-儿子又说：“我也喜欢隔壁科长家的女孩!”
 
-局长又说：“那是你另一个同父异母的妹妹，千万别对你妈说。”
 
-儿子哭着对妈妈说了这些遭遇。妈妈安慰儿子：“你喜欢谁就找谁，别怕，你是市长的儿子!
 
-【观点】
+## mRNA疫苗可能产生的灾难后果(二)
 
-生殖器治国是中共领导人在中国统治人民的常见策略之一。为了勾结和最大化互惠互利，中共领导人往往通过建立性关系来建立网络，并将其作为换取他们本来没有资格获得的利益的工具，或者在某些情况下作为对对方的勒索武器。这种策略在政府的各个层面得到了综合运用，上至最高领导人，下至地方警察局。其中一些活动包括派他自己的妻子与他的老板发生性关系，或出于特殊目的允许丈夫有许多性伴侣。这远远超出了外遇的范畴，因为这些都是有计划的、商定的、对配偶不隐瞒的。
 
-中共领导人喜欢制作自己的“基因图谱”，即精心策划、有意为之的婚外私生子，这是妻子可能知道甚至参与其中的。他们过着像皇帝般多妻多子的生活。唯一不同的是，“妃嫔和私生子”的信息都是秘密，只限于极少数人知道，以确保他们的安全，远离其他政敌的攻击和被大众了解。他们中的许多人居住在国外，以藏匿大量的财富和投资，而这些通常是从中国老百姓那里非法攫取的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010656/db053f2425daead87e1b56a16573264e.jpg)
 
-【参考来源】
 
-本段子转载自网络；【观点】部分的内容仅代表作者个人观点
+[GTV视频链接](https://gtv.org/video/id=60c2758b8ce6da73c41878a2)
 
-封面图片来源sohu.com
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10163238/0923D000-696C-4EAA-A068-736D14D6694D.jpeg)
+
+
+
+
+
+
+## mRNA疫苗可能产生的灾难后果(一)（主讲：文 医 嘉宾：千叶草大姐 北京人）
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010550/495c2e00ce1563cde4dff38d31c996b2.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=60b0001eb7dff64ac985223b)
+
+
+
+
+
+
+
+## 公众对CCP病毒抗体的认知误区 (主讲：文 医 嘉宾：千叶草大姐 北京人)
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010441/b041bba1a36dc28383f885cb54f9e326.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60a6c6a1db13300ca55cc364)
+
+
+
+
+
+
+
+## “解毒”功能增强的CCP病毒——多重方式绞杀细胞（主讲：文 医 嘉宾：千叶草大姐 北京人） 第二部分
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010253/dc8e290d54744547f6aab74f6199995c.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=609dae95db13300ca5538508)
+
+
+
+
+
+
+
+## “解毒”功能增强的CCP病毒——多重方式绞杀细胞（主讲：文 医 嘉宾：千叶草大姐 北京人） 第一部分
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17010127/abe5687d2b874d84a9b1ac73b18ed0cb.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=609d9b3bdb13300ca5537a08)
+
+
+
+
+
+
+
+## 2021-04-28 “醫E” 語中的 第19期, CCPVirus”功能增强 “长驱直入核心器官·搞弱搞残细胞功能”
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005857/da1fee9c0f4ccc9df06c0e1436cacfb1.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6089da7e6c00a14130e1c3a5)
+
+
+
+
+
+
+
+## 2021-04-21 医生视角解读“CCPVirus”神经毒性功能的增强
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005759/d7e15d55985b0adda4a01e0b084d973e.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6080a1577e083973a72e226f)
+
+
+
+
+
+
+
+## 2021-04-14 ”醫E“語中的第17期 閻博士報導 醫生視角解讀CCP病毒功能增強
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005441/a45ed5a1f07feb9fac3efd4ca67b0258.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60776a5662d629309ee40528)
+
+
+
+
+
+
+
+## 2021-04-07 ”醫E“語中的第16期 閻博士報導 醫生視角解讀CCP病毒功能增強
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005546/604841836655d9be0e2a615f20683b46.png)
+
+
+GTV视频链接 [Part1](https://gtv.org/video/id=606e2c846e11a756eddb5713) [Part2](https://gtv.org/video/id=606e30dd6e11a756eddb5a44)
+
+
+
+
+
+
+
+## 2021-03-31 “醫E”語中的第15期 美國一線醫師covid19白皮書
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17005107/df34cbf677b69dc9a1d6c1ba26bb4c21.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6064f784a54f827240bd50f9)
+
+
+
+
+
+
+
+## 2021-03-24 “醫E”語中的第14期 話疫苗 5
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004804/b092848f3a28d3c5be359fcdfafad02d.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=605bb68ba26ac57138e444b6)
+
+
+
+
+
+
+
+## 2021-03-17 “醫E”語中的第13期 話疫苗 4
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004432/a71f6f9239cf353aacbf28c01db3fa09.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60527ab5e9cdd43098eaef26)
+
+
+
+
+
+
+
+## 2021-03-10 “醫E” 語中的 第12期 話疫苗（3）
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17004531/e1454c0da647616049c4245080d9090b.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=60494efa75e88a51e6e9ef77)
+
+
+
+
+
+
+
+## 2021-03-03 “醫E”語中的第11期 話疫苗 2
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003742/b5ed6f56523ed967ff5be3e606c99b50.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6040150794761a708f1999a3)
+
+
+
+
+
+
+
+## 2021-02-24 【“醫E”語中的】（10） 話疫苗 （1）
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003432/8048e874797d7c41cc4c5a34081f2b20.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6036da22047c4c3086dd5052)
+
+
+
+
+
+
+
+## 2021-02-17【“醫E”語中的】（9）邪恶“CCP病毒” 二元武器 第二元
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003311/79e7f3a28786b885373e7dde97abf088.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=602daeb7be64150df85b1d7f)
+
+
+
+
+
+
+
+## 2021-02-10【“醫E”語中的】（8）邪惡CCP病毒 二元武器效應 第一元
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003125/adf72ace6bc5474f08b15ac3ae971856.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=602468e5be64150df8501dd4)
+
+
+
+
+
+
+
+## 2021-02-03【“醫E”語中的】（7）邪恶“CCP病毒” （二）认识CCP病毒最诡异邪恶之处
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17003013/af6ff7f3beb9405d8dc8611fa77230ea.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=601b2c383f8a013ab47b7c7a)
+
+
+
+
+
+
+
+## 2021-01-27 “醫E”語中的 （6）邪恶“CCP病毒” （一）认识病毒，保护自己
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17002454/1ac4ff3009ac8104d9e188f0365f7ff0.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=6011f0c3b819717e79b3d6e3)
+
+
+
+
+
+
+
+## 2021-01-13 “醫E”語中的（5）神奇的羟氯喹（四） 服用羟氯喹应该注意的事项
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17002057/52e7bbfb99de6a6093c13139499bd1ff.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5fff7b14f579a75e0bd668a1)
+
+
+
+
+
+
+
+## 2021-01-06 “醫E”語中的（4）神奇的羟氯喹（三） 不可思议的广谱抗微生物效应
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001816/84636763ba87ba09966f4561a407740b.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5ff64107f579a75e0bc837b1)
+
+
+
+
+
+
+
+## 2020-12-29 “醫E”語中的（3） 神奇羟氯喹（二） 老药羟氯喹焕发神奇“青春”
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001639/9e03978d2547594f0fb1bca0809bcb0e.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5febb4f3f579a75e0bbb9700)
+
+
+
+
+
+
+
+## 2020-12-22“醫E”語中的 （2） 神奇羟氯喹(一) 认识羟氯喹
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001455/2020-12-22%E9%86%ABE%E8%AA%9E%E4%B8%AD%E7%9A%84-%EF%BC%882%EF%BC%89-%E7%A5%9E%E5%A5%87%E7%BE%9F%E6%B0%AF%E5%96%B9%E4%B8%80-%E8%AE%A4%E8%AF%86%E7%BE%9F%E6%B0%AF%E5%96%B9.png)
+
+
+[GTV视频链接](https://gtv.org/video/id=5fe27ac1c0544c3d973305b9)
+
+
+
+
+
+
+
+## 2020-12-15“醫E”語中的（1）光鮮的新冠疫苗背後可能的致命風險
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17001220/43a19b816546183367c4e09d01299243.jpg)
+
+
+[GTV视频链接](https://gtv.org/video/id=5fd943c509267020eb52df80)
+
+
+
+
+
+
+
 +1

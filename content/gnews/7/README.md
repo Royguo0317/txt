@@ -1,112 +1,108 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 约翰肯尼迪参议员: 拜登总统“亲爱的，拜托，给加些糖”与中共国和世卫组织行不通
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332865/)
+## 对FDA关于伊维菌素陈述的疑问
+` 大废墙` [轉載自GNews](https://gnews.org/zh-hans/1332671/)
 
-**字幕内容：**
+##### 加拿大多伦多枫叶农场 大废墙
 
-Brian Kilmeade (Fox News host)
-布赖恩·基尔米德（福克斯新闻主持人）
+出于对FDA的信任，无论是医生还是普通百姓，日常生活中通常会参考FDA的建议。然而笔者认为，本着对大众和自身健康负责任的态度，我们可以参考其建议，但不应该无条件的盲从。
 
-Let’s see what republican senator
-让我们看看共和党参议员
+笔者虽然不是病毒专业人士，然而对于FDA网站上一篇题为《[为什么不应该使用伊维菌素治疗或预防2019新冠肺炎](https://www.fda.gov/consumers/consumer-updates/weishenmebuyinggaishiyongyiweijunsuzhiliaohuoyufang2019xinguanfeiyan)》的声明，依然抱有很多疑问。在本文中，笔者尝试挑选文中看似逻辑不能自洽之处进行发问，期待得到回复。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18201440/Do-Not-Use-Ivermectin-to-Treat-or-Prevent-COVID-19_030221_1600-x-900_Art_FINAL.png)
 
-from Louisiana John Kennedy says
-来自路易斯安那州的约翰肯尼迪怎么说
 
-Senator, do you think China is going to allow this second investigation from the keystone cops that were unable to get the first time around？
-参议员，你认为中共会允许在第一次无法
-前往的关键调查员组织的第二次调查吗？
 
-Senator John Kennedy
-约翰肯尼迪参议员
 
-Not not under the current approach Brian uh
-不，目前不可能, 布赖恩
 
-With respect to the origin of the of the coronavirus
-关于冠状病毒的起源
+> 人们似乎对用一种名为伊维菌素的药物来治疗2019新冠肺炎的兴趣与日俱增。伊维菌素在美国经常用于治疗或预防动物体内的寄生虫。美国食品和药物管理局已收到多份关于患者用为马使用的伊维菌素自我治疗后需要治疗和住院的报告。
+> 引自：《为什么不应该使用伊维菌素治疗或预防2019新冠肺炎》
 
-here’s what I heard President Biden do today
-这就是我今天听到拜登总统所做的事情
 
-I heard him politely ask the world health organization in China
-我听到他礼貌地向在中共国的世界卫生组织
+疑问一：笔者假设这一段描述是符合实际情况的。然而，既然人们对伊维菌素治疗新冠病毒的兴趣增加，那么FDA为什么不列举使用伊维菌素治愈新冠病毒的统计数据，以佐证伊维菌素对新冠病毒无效？
 
-to get to the bottom of it
-提出将事情弄清楚的要求
+疑问二：为了验证FDA的说法，笔者特意购买了一些兽用伊维菌素，通过阅读说明书，可以确认这种药物主要用于治疗寄生虫。然而伊维菌素是否可以治疗新冠病毒与其是否可以治疗寄生虫在逻辑上似乎没有关联。
 
-Pretty please with sugar on top
-亲爱的，请在上面放些糖
+疑问三：笔者相信FDA确实收到了多起使用伊维菌素后需要治疗的报告。然而，从文中可以看出，不经医生允许、不恰当的擅自使用兽用药是造成不良反应的原因，而与伊维菌素是否可以对抗新冠病毒没有关联。
 
-and that’s the typical Washington way
-这是典型的华盛顿方式
 
-keep trying what uh doesn’t work
-继续尝试不起作用的方法
 
-and when it doesn’t work again and do it some more
-当它再次不起作用时并再尝试
 
-he’s going to have to change his approach
-他将不得不改变他的方法
 
-let’s start with the world health organization
-让我们从世界卫生组织开始
 
-it’s president is Dr Tedros Adhanom Ghebreyesus from Ethiopia
-它的主席是来自埃塞俄比亚的谭德塞博士
+> 一些形式的伊维菌素用于动物，以预防心脏蠕虫病和某些内部和外部寄生虫。需要注意的是，这些产品不同于供人类使用的产品，仅当处方用于动物时才是安全的。
+> 引自：《为什么不应该使用伊维菌素治疗或预防2019新冠肺炎》
 
-Dr. Tedros hums the Chinese national anthem in the shower uh
-谭德塞博士在洗澡时哼着中共国国歌
 
-he loves President Xi Jinping like the devil loves sin
-他爱习近平主席就像魔鬼爱罪恶
+疑问一：如果伊维菌素被制成兽用药则不适用于人类，这个结论是不言自明的，笔者认为FDA无需特意声明。然而，笔者更关心制成人类使用的伊维菌素药物的安全性和有效性，但FDA回避了此问题，非常奇怪。
 
-if president Xi told Dr. Tedros to join the Taliban
-如果习近平主席告诉谭德塞博士加入塔利班
 
-he would say where’s the line
-他会说：在哪里排队？
 
-the only way to get him to do his job
-让谭德塞完成工作的唯一方法
 
-is for President Biden to sit him down
-是拜登总统让他坐下来
 
-and say look Dr. Tedros
-并说：听着，谭德塞博士
 
-the American people pay your salary
-美国人民支付你的工资
+> 美国食品和药物管理局尚未审查数据以支持伊维菌素在2019新冠肺炎患者中用于治疗或预防2019新冠肺炎。一些初步研究正在进行中，但美国食品和药物管理局尚未批准将该药物用于此用途。未经许可服用药物可能非常危险。伊维菌素也是如此。
+> 引自：《为什么不应该使用伊维菌素治疗或预防2019新冠肺炎》
 
-the American taxpayer puts up 900 million dollars every two years
-美国纳税人每两年投入 9 亿美元
 
-we’re your biggest financial contributor uh
-我们是你最大的资金贡献者
+疑问一：FDA不能确认伊维菌素对抗新冠病毒有效，但讽刺的是，从声明中看FDA似乎也无法确认伊维菌素对抗新冠病毒无效。那么，假设未来的研究证实了伊维菌素是有效的新冠病毒药物，那么FDA是否应该向无法获得伊维菌素的病毒的受害者提供赔偿？
 
-either do your job or we’re going to withhold the money
-要么做你的工作，要么我们将扣留这笔钱
+疑问二：据笔者了解，早在2020年，澳大利亚[蒙纳士大学](https://zh.wikipedia.org/wiki/%E8%92%99%E7%BA%B3%E5%A3%AB%E5%A4%A7%E5%AD%A6)研究团队即发现伊维菌素可在2日内杀死新冠病毒。而另一份《[关于在印度广泛使用伊维菌素进行预防和早期治疗的联合声明](https://covid19criticalcare.com/videos-and-press/flccc-releases/joint-statement-may-03-2021-joint-statement-on-widespread-use-of-ivermectin-in-india-for-prevention-and-early-treatment)》中，也列举了充分的证据证明伊维菌素的有效性。笔者认为FDA未审查这些数据并不能作为阻止人们使用伊维菌素的依据，相反这可能暗示了FDA的严重失职。
 
-and if that offends you
-如果这冒犯了你
 
-I will help you pack
-我会帮你打铺盖卷的
 
-原视频链接: [https://twitter.com/senjohnkennedy/status/1405544403083612160?s=24](https://twitter.com/senjohnkennedy/status/1405544403083612160?s=24)
-英听校：康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+
+> 周围有很多错误信息，你可能已经听说可以服用大剂量的伊维菌素了。那是错的。
+> 引自：《为什么不应该使用伊维菌素治疗或预防2019新冠肺炎》
+
+
+疑问一：很抱歉笔者并未听说可以“大剂量”服用伊维菌素，建议FDA指出可以“大剂量”服用伊维菌素的信息来源。注意，笔者关注的是哪些来源声称可以“大剂量”服用。
+
+疑问二：提到药物毒性有一句话非常有名：“抛开剂量谈毒性就是耍流氓”。笔者深以为然。然而，过量使用伊维菌素的临床数据并不能证明适量使用此药物是错的。如果伊维菌素真的没有效果，FDA的声明中为何不干脆直接阐明“按照医生的处方适量使用伊维菌素对抗新冠病毒也是错的”？
+
+
+
+
+
+
+> 甚至获准使用的伊维菌素水平也会与其他药物相互作用，比如血液稀释剂。你也可以过量服用伊维菌素，它会引起恶心、呕吐、腹泻、低血压(低血压)、过敏反应(瘙痒和荨麻疹)、头晕、共济失调(平衡问题)、痉挛、昏迷甚至死亡。
+> 引自：《为什么不应该使用伊维菌素治疗或预防2019新冠肺炎》
+
+
+疑问一：基本上所有药物都有副作用。笔者身边就有很多对青霉素严重过敏的朋友，注射青霉素几乎可以立即要了他的命。遗憾的是，自从新冠病毒疫情爆发以来，FDA几乎没有对不恰当使用其他药物的行为发出如此正式的警告。
+
+疑问二：在世界卫生组织基本药物标准清单（[维基百科链接](https://zh.wikipedia.org/wiki/世界卫生组织基本药物标准清单)）中，清晰的表明伊维菌素是一种非常安全的抗感染药物。换句话说，这种药物的不良反应仅发生在小范围的特定情况。笔者认为，FDA确实应该提醒符合这些情况的人群谨慎使用，但不应该利用不良反应阻止其他人群使用伊维菌素。
+
+疑问三：抛开部分不能使用伊维菌素的情况，在可以使用伊维菌素的情况下，新冠病毒能否有效的被抑制？再次，非常遗憾的，FDA的声明非常诡异的回避了此问题。
+
+
+
+
+
+
+> 一方面，动物药通常高度浓缩，因为它们被用于马，牛等大型动物，它们的重量比我们重得多，甚至超过一吨或更多。如此高的剂量在人体内可能是剧毒的。
+> 
+> 此外，美国食品和药物管理局不仅审查药物的活性成分的安全性和有效性，也会审查药物的非活性成分。动物产品中发现的许多非活性成分未经评估可用于人类。或许非活性成分所包含的数量比人们所使用的数量大得多。 在某些情况下，我们不知道这些非活性成分如何影响伊维菌素在人体中的吸收方式。
+> 引自：《为什么不应该使用伊维菌素治疗或预防2019新冠肺炎》
+
+
+疑问一：毋需FDA反复提醒，笔者深刻的理解过量服用兽用药物是非常不恰当的。然而，笔者更加关心的是，遵循医生的处方、按照人类的计量和配方服用伊维菌素是否可以有效对抗新冠病毒。同时，笔者也想了解为什么FDA的声明一而再，再而三的回避这个问题。
+
+
+
+
+
+
+> 《为什么不应该使用伊维菌素治疗或预防2019新冠肺炎》
+> FDA声明的标题
+
+
+最后的疑问：通读整篇声明后，笔者得到了的FDA建议是：“采用兽用伊维菌素、过量使用伊维菌素、以及在不适用人群使用伊维菌素是错误的”。恕笔者直言，这些建议根本就是不言自明的废话。然而，最让笔者无法理解的是，本篇声明的标题为什么是与其内容没有逻辑关联的另一个陈述：“为什么不应该使用伊维菌素治疗或预防2019新冠肺炎”？
+
+* * *
+
+免责声明：本文仅代表作者个人观点，与G-NEWS网站无关
 
 0

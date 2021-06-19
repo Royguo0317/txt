@@ -1,34 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/18-001 郭文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1332674/)
+## 【热点播报】美防长当面指责中共国防部长，在南海问题行为违法
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332668/)
 
-听写：樂禧禧 | Pr: 万物归一 | Page: Daoiii
-
-[!\[\]()!\[\](https://spark.adobe.com/page/gFDMmTTXJEK0m/images/42083009-75fd-4096-a92b-8ebcaeef9644.png?asset_id=a971d915-6b2d-4709-900d-be2f8fa26ab6&amp;img_etag=%2231a3e5c36b03e88d128ac9a7c07ab230%22&amp;size=1024)](https://spark.adobe.com/page/gFDMmTTXJEK0m/images/42083009-75fd-4096-a92b-8ebcaeef9644.png?asset_id=a971d915-6b2d-4709-900d-be2f8fa26ab6&amp;img_etag=%2231a3e5c36b03e88d128ac9a7c07ab230%22&amp;size=1024)
-
-**亲爱的战友们：中共高官们逃跑了。 它已经开始，今年年底将是一个高峰，随后将有大量中国名人和富豪涌向海外。 这是共产党垮台前肯定会发生的现象。 最近中共的大外宣。 疯狂袭击爆出革命新闻……战友们要保持高度警惕！**
-
-[Gettr链接](https://gettr.com/post/pzm3m)
-
-1. “以黄灭共”咱们全面开始了，千万别过火，尊重女性，主要以黃灭共，不要整成三级片，要把故事性真实性弄好，别弄成黄色的照片，咱跟共产党不一样，千万千万要记住。
-2. “黑森林”杨澜事情爆光之后，国内剧烈震撼，接下来的宋祖英、汤灿、李薇、李萍、还有现在的中央电视台的正在直播的几个、凤凰卫视的几个女主播的故事，都会爆。吴征和杨澜的事情，绝对是一腚贏天下，这夫妻两个绝对是魔鬼搭档，害了很多很多人…在邪恶面前，罪恶面前不分男女老少。
-3. 我们就是用事实说话，大家要广泛的挖出国内各个领域的共产党的“以黄治国”，“生殖器治国”，这个绝对是对世界影响震撼的。盖特里面发的照片、故事，一定不能有碍观感，不要自己给自己审查，给你关了。
-4. 最近的谣言很多，共产党的高官往外出逃，伊拉克、利比亞、罗马尼亚被灭之前，齐奥塞斯库，都是一个样，高官、有钱人、名人都跑，当高官跑的时候，基本就结束了，过去的两周，跑出来的中共高官，绝对不是一个“巴掌”，这是一个集权的政府，崩塌前的必然现象。
-5. 全世界大宗商品，价格到啥情况？石油现在到啥情况？某中东国家说，你让基金买的石油期货，第一单赚了一大笔，这位中东的公主问，这疫苗是共产党制造的吗？不是自然的？你说多傻！她打了两针疫苗。
-6. 最近共产党在海外的九层妖塔兴风作浪，对咱们的爆料革命加以诋毁，有潜伏的被渗透的战友，等待机会攻击七哥和战友。我说过，对女性让三招儿，对战友让你五招儿，甚至七招儿，我再出手。
-7. 比特币没有未来，火币、比特币一定倒闭，比特币是共产党和伊朗和俄罗斯最大的一个洗钱犯罪的工具，是和西方所谓蓝金黄，最大的罪恶工具。
-8. 昨天和某国家二号领导人深刻的交谈了两个半小时，相信他是未来的世界领导人，相信他一定支持爆料革命，新中国联邦。
+作者：纽约香草山健身部 Jack Li文阳
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gFDMmTTXJEK0m/images/d7306ea6-5df6-4257-a7b7-841f161d2a24.jpg?asset_id=81dba361-d93b-4486-9404-e9abf1dc2d95&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/gFDMmTTXJEK0m/images/d7306ea6-5df6-4257-a7b7-841f161d2a24.jpg?asset_id=81dba361-d93b-4486-9404-e9abf1dc2d95&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
+
+6月16日第八届东盟国防部长10+8扩大会议举行，会议聚焦在南中国海的和平稳定上，美国国防部长奥斯汀在会上当着中共国防部长魏凤和的面，指责中共在南海的违法行为，这次会议用视讯方式举行。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18195647/Untitled-design-2021-06-18T175521.269.png)
+除东盟十国外，澳大利亚、印度、日本、新西兰、韩国、俄罗斯、美国和中共国的国防部长也参加了此次会议。在美国国防部网站上发表的新闻中，奥斯汀国防部长阐明了美国政府对印太地区的愿景，强调了盟友与伙伴应对安全挑战的重要性。他还强调了中共国在南海的非法行为。 日本国防大臣岸信夫在会上说： 台湾海峡的和平与稳定对地区的重要性，呼吁在东海与南中国海，必须实行彻底的“法治”。他不点名的提到了中共国在海上日益升高的霸权行为。
+
+值得注意的是中共国的媒体在报道这次会议上，并没提到美国国防部长和日本国防大臣的针对中共国在南海台海的霸权行为的言论，更没见任何关于中共国国防部长对此表示反对的声音。很显然，美日防长的“突然袭击”大大出乎中共的意外，所以一时来不及请示习神，魏凤和顿时慌神，一时语塞，不敢随便应对，只能闭口不语。美日防长在此次东盟扩大会议上的表态，相信东盟各国都能看到美国和西方国家在南中国海和台海问题上支持各方根据国际法，和平解决争端的强硬立场。
+
+参考阅读：https://www.voachinese.com/a/us-china-south-china-sea-20210617/5932103.html
+
+http://www.xinhuanet.com/world/2021-06/15/c\_1127565369.htmhttps://www.ntdtv.com/gb/2021/06/17/a103144837.html
+
+校对/发稿：火内
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(中文)**
+
+[**纽约香草山农场****Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场**** YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

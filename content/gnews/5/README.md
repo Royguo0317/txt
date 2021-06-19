@@ -1,45 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 6月18日美国政要推文精选: 福奇手上沾满了血,辞退福奇
-` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1332947/)
+## 被蝙蝠咬伤的风险依然存在：武汉实验室删除了研究人员被蝙蝠咬伤的报告
+` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1333001/)
 
-众议员迈克·加拉格尔： 我们那些无视伦理道德的科学家在新型冠状病毒的起源上将我们自己的情报界耍的团团转，这一事实告诉我们，我们有一个巨大的问题。 如果我们要防止下一次疫情，我们必须追根究底，并要求本国政府做得更好。
+翻译：Nick | 校对：JS709 | 审核：黎明的光芒
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18222239/Picture1-32.png)武汉病毒研究所—许多人认为是中共病毒的潜在来源—其网站被删除的文章详细介绍了研究人员被野生蝙蝠“咬伤”的情况
+2020 年 5 月至 8 月期间，武汉实验室网站上删除了这篇文章——“蝙蝠女”团队找到了非典（SARS）病毒的来源。该文章的最后可用存档日期为 2020 年 5 月 5 日，详细介绍了由该实验室新发传染病中心主任石正丽领导的团队如何收集蝙蝠进行采样。
 
+武汉病毒学研究所的一名科学家在 2017 年 12 月 14 日的一篇现已删除的文章中透露，在对野生蝙蝠进行非典病毒研究（可能由美国纳税人资助）时，他“被蝙蝠咬了”：
 
+范毅说: “在野外采样之前，我们会提前注射狂犬病疫苗。 在蝙蝠携带的病毒中，这是最危险的。”
 
-> The fact that we had ethically-conflicted scientists spinning our own intelligence community on the origins of COVID-19 tells us we have a huge problem. 
-> 
-> If we're going to prevent the next pandemic, we have to get to the bottom of this and demand better from our own government. [pic.twitter.com/f9ZRwtVu8h](https://t.co/f9ZRwtVu8h)
-> — Rep. Mike Gallagher (@RepGallagher) [June 18, 2021](https://twitter.com/RepGallagher/status/1405940115537604610?ref_src=twsrc%5Etfw)
+中科院武汉病毒所研究员石正丽和时任中科院动物研究所研究员张树义踏上了非典冠状病毒的溯源之旅 ，”《中国青年报》文章在前言中对武汉实验室的野外工作流程进行了解释：
 
+“作为科研组领导，石正丽经常带领团队爬山、打洞。 采样工作通常是4人一组。 队员们佩戴N95口罩、手套、头灯、外套，傍晚在蝙蝠洞口架设捕鸟网。晚上他们从网中取出落入的蝙蝠，连夜在野外临时工作台上进行肛门拭子采样。 他们抓住蝙蝠，用浸有生理盐水的棉签擦拭它，然后将棉签插入蝙蝠的肛门进行采样。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18222832/Picture2-14.png)石正丽和其团队研究蝙蝠样本
+获得肛门拭子后，蝙蝠将被释放。“石女士一直坚持无创采样，尽量不杀死蝙蝠，采样时尽量减少对蝙蝠的物理伤害。” 罗东升说道。一些蝙蝠种群非常小，破坏性采样很可能对整个种群造成毁灭性的打击。蝙蝠在维持生态平衡方面发挥着重要作用。大量捕杀蝙蝠会对生态系统造成重大损失。”
 
+文章还详细介绍了武汉实验室如何分离出第一种“能够感染人体细胞”的“类非典蝙蝠冠状病毒的活性病毒”：
 
-彼得·纳瓦罗： 福奇手上沾满了血。辞退福奇。
+“2013年，中科院武汉病毒研究所实验室从粪便样本中分离出第一个类非典蝙蝠冠状病毒的活性病毒，命名为WIV（WIV是武汉病毒研究所的英文缩写）。它比之前发现的任何蝙蝠非典样冠状病毒都更接近非典冠状病毒。正是类似的 S 基因，让这种类非典蝙蝠冠状病毒能够利用与非典病毒相同的受体，并能够感染人类细胞。”
 
+娜塔莉·温特斯
 
+娜塔莉·温特斯是 《国家脉搏》National Pulse 的调查记者，也是《国家脉搏》播客的撰稿人。
 
-> Blood on Fauci’s hands. Fire Fauci [https://t.co/VfXALIxvF3](https://t.co/VfXALIxvF3)
-> — Peter Navarro (@RealPNavarro) [June 18, 2021](https://twitter.com/RealPNavarro/status/1405939544244068357?ref_src=twsrc%5Etfw)
-
-
-
-参议员玛莎·布莱克本： 你说什吗？ 【转推里福奇为自己开脱称：对于 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 泄漏说一直保持开放的心态并观察着，所以他认为说他们故意压制这一点有点曲解】
-
-
-
-> Say what? [https://t.co/o0gIqZUJE7](https://t.co/o0gIqZUJE7)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 18, 2021](https://twitter.com/MarshaBlackburn/status/1405683907396313089?ref_src=twsrc%5Etfw)
-
-
-
-众议员艾丽丝·斯特凡尼克： 说到底CNN（美国有线电视新闻网）是捍卫中国新闻网的。 （转推福克斯新闻：“CNN在鼓吹中共提供的新型冠状病毒疫苗接种率后被指控替中共鼓动宣传”）
-
-
-
-> So CNN does stand for China's News Network, after all. [https://t.co/TgegylGBLF](https://t.co/TgegylGBLF)
-> — Rep. Elise Stefanik (@RepStefanik) [June 18, 2021](https://twitter.com/RepStefanik/status/1405994071412383750?ref_src=twsrc%5Etfw)
-
-
+原文作者：娜塔莉·温特斯（NATALIE WINTERS）
+发布时间：2021年6月16日
+原文链接：[https://thenationalpulse.com/breaking/wuhan-lab-erased-reports-of-bat-bites/](https://thenationalpulse.com/breaking/wuhan-lab-erased-reports-of-bat-bites/)
 
 0

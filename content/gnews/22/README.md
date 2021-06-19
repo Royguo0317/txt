@@ -1,170 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 阴谋论…大流行病模拟推演
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332706/)
+## 《路德时评》重磅解读布林肯说WHO报告漏洞百出，及大批九层妖塔将在八月底前暴露
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1332766/)
 
-**字幕内容：**
+直播视频：
 
-On behalf of our partners, the Bill and Melinda Gates Foundation
-代表我们的合作伙伴比尔和梅琳达·盖茨基金会
 
-event 201（Pandemic simulation exercise）took place five months before COVID-19 was declared a pandemic.
-“事件 201” （大流行病模拟推演）发生在 COVID-19 被宣布为大流行之前五个月
 
-The participants of the event are some of the same people
-活动的参与者是一些相同的人
+《路德时评》2021年6月18日早间节目主要内容：
 
-that are now deeply involved in the real pandemic
-现在深深卷入了真正的大流行病
+**· **布林肯说WHO报告漏洞百出，及大批九层妖塔将在八月底前暴露
 
-and profiting from it as well,
-并也从中获利的
+里奇埃德森：美国和欧盟呼吁世卫组织发起的COVID-19病毒起源第二阶段调查能够在透明、基于证据并且由专家主导，不受任何因素干扰的情况下取得进展。国务卿安东尼·布林肯称世界卫生组织的第一次调查漏洞百出，并且重申要向中共国追责。美国情报委员会正在对病毒来源真相展开独立调查，调查将于八月底截止。
 
-an event of this complexity and magnitude
-如此复杂和规模的事件
 
-will take months to write prep and produce.
-将需要几个月的时间来准备和制作
 
-Dr. Anthony Fauci
-安东尼·福奇博士
+> 里奇埃德森：美国和欧盟呼吁世卫组织发起的COVID-19病毒起源第二阶段调查能够在透明、基于证据并且由专家主导，不受任何因素干扰的情况下取得进展。国务卿安东尼·布林肯称世界卫生组织的第一次调查漏洞百出，并且重申要向中共国追责。 [pic.twitter.com/srmJb3nKmM](https://t.co/srmJb3nKmM)
+> — GT64 (@GT64\_1) [June 17, 2021](https://twitter.com/GT64_1/status/1405498373088550920?ref_src=twsrc%5Etfw)
 
-“There is no question that there will be a surprise outbreak. ”
-“毫无疑问，会有突然的流行病爆发。 ”
 
-Even Bill Gates, a man with no medical training knew it was coming.
-甚至连比尔盖茨，一个没有受过医学训练的人也知道它会来
 
-Bill Gates
-比尔 盖茨
+路德社评论：
 
-“If we start now, we can be ready for the next epidemic.”
-“如果我们现在开始，我们就可以为下一个流行病做好准备。”
+1、WHO发布病毒调查报告时，爆料革命路德社第一时间就指出该报告漏洞百出，布林肯现在也确认该调查报告漏洞百出，结论不具有可信度。八月底，美国情报部门即将公布病毒调查真相，中共九层妖塔到时都将暴露。中共近日对外放出王岐山叛逃的假消息之后，中共再次放出国安副部长董经纬叛逃的假消息，像Tucker、Dailymail、Zerohedge和大纪元这些外媒纷纷跟进报道这条假新闻，这将对海外媒体信誉产生巨大影响，如果中共党内未来确实发生大事，这海外媒体因害怕信用受损就不敢进行报道了。
 
-Every single thing that you have seen play out in front of your eyes
-你所看到的每一件事都在你眼前上演了
+2、中共一直动用大量水军在中文和英文世界搅混水，中共现在开始利用董经纬叛逃的假消息抹黑海外媒体，从而打击它们的信誉度，这样就可以彻底否认这些媒体对病毒真相的报道。如果爆料革命听信这些谣言，那就中了中共的诡计，中共未来就可以借此说爆料革命揭露的病毒真相纯是造谣抹黑。
 
-all of them laid out in their tabletop exercise,
-都在他们的桌面推演中铺开
+3、这些宣传王岐山和董经纬叛逃的假民运分子基本不宣传闫博士的三份病毒科学报告，他们早已经被中共收买，并且帮中共混淆视听。闫博士的三份报告就是揭露中共病毒最权威的报告，依据这三份报告可以直接给中共定罪。只要是事实和科学就必须经得起质疑，爆料革命路德社119节目揭露中共病毒真相就是最重要的证据之一，119节目揭露的病毒真相不仅经受住各方的质疑，最终也都被验证。
 
-which by the way fact checkers have said,
-顺便说一下，事实核查员说过
+4、闫博士报告揭露了福奇、打杂客和安德森等美国科学家与中共勾兑的丑事，美国媒体和FBI随即也跟进调查，这就为闫博士报告建立起影响力，Sellin上校发的推特也是如此，给美国媒体和调查部门提供了线索。闫博士报告已经得到美国最重要部门官员的认定，所有跳出来抨击闫博士的人都有可能被美国相关部门调查。
 
-has nothing to do with the Coronavirus outbreak,
-这与冠状病毒爆发无关
+5、事实不仅要经得起验证，还必须经得起质疑。中共虽然可以通过造假来验证此前的承诺，但是中共经不起质疑，任何经不起质疑的验证都是耍流氓。爆料革命宁要阳光下的瑕疵，不要阴暗下的完美，而中共就是那阴暗下的完美。
 
-just happenstance, this is that wonderful universe of improbabilities
-只是偶然，这就是不可思议的奇妙宇宙
+6、当闫博士揭露中共病毒真相后，中共病毒如果不来自中共实验室，中共完全可以用科学的方式反驳闫博士，根本不用抓捕闫博士的家人，这恰恰说明中共做贼心虚，而爆料革命所揭露的真相就经得起所有质疑，不论中共如何搅混水也不可能动摇爆料革命认定事实真相的信心。
 
-where events just co emerge,
-事件刚刚出现的地方
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
 
-and the nature conveniently backs itself into our architecture.
-自然方便地将自己融入我们的建筑中
+文章撰写：【重生】  编辑：【香柏树】
 
-Trees have banned travel from the worst affected areas,
-已经禁止在受影响最严重的地区旅行
+本文仅代表作者个人观点
 
-Vice President Mike Pence
-副总统迈克·彭斯
-
-“President has made a decision to suspend all travel to the United Kingdom and Ireland”
-“总统已决定暂停所有前往英国和爱尔兰的旅行”
-
-this and misinformation circulating over the internet
-这和在互联网上传播的错误信息
-
-across the world misinformation about the virus is being shared online,
-世界各地有关该病毒的错误信息正在网上共享
-
-a significant demand for N95 masks and gloves are on the rise,
-对 N95口罩和手套的大量需求正在上升
-
-the demand for N95 masks to prevent the deadly airborne virus has surged,
-为防止致命的空气传播病毒对 N95 口罩的需求激增
-
-we could eventually have 52 million treatment courses per year,
-我们最终可以每年有 5200 万个治疗疗程
-
-but it will take many months to get there,
-但要达到那个需要好几个月的时间
-
-we’re still many months out from having something
-我们还有很多个月才能拥有一些东西
-
-that we can really deploy to the public
-我们可以真正部署到公众
-
-and 65% of those fold are eager to take the vaccine,
-而且65% 的人渴望接种疫苗
-
-even if it’s experimental.
-即使它是实验性的
-
-The new poll finds that 49% of Americans say
-新的民意调查发现 49% 的美国人说
-
-they would get a COVID-19 vaccine
-他们会接种 COVID-19 疫苗
-
-shouldn’t effective one be discovered.
-不应该发现一个有效的
-
-I’m curious, who wrote the event 201 script.
-我很好奇，谁编写了“事件 201 ” 的脚本
-
-The visionaries of the event knew,
-事件的有远见的人已经知道
-
-at least one year in advance what was needed.
-至少提前一年需要什么
-
-Why didn’t they take care of those things.
-他们为什么不处理这些事情
-
-Considering the Bill Gates has donated half of his fortune to make the world safer.
-考虑到比尔盖茨已经捐赠了他一半的财富来让世界更安全
-
-Why didn’t you help to better prepare our hospitals and frontline workers.
-你为什么不帮助我们的医院和一线工作人员更好地做好准备
-
-Why didn’t any of the events wealthy sponsors do something.
-为什么有钱的赞助商没有做点什么
-
-Bill Gates
-比尔 盖茨
-
-“Now here we are in, we didn’t simulate this, we didn’t practice”
-“现在我们在这里，我们没有模拟这个，我们没有练习”
-
-Unknown female speaker
-不知名女演讲者
-
-on behalf of our partners in the Bill and Melinda Gates Foundation,
-代表我们在比尔和梅琳达·盖茨基金会的合作伙伴
-
-Bill Gates
-比尔 盖茨
-
-“so both the health policies and economic policies,
-“所以无论是卫生政策还是经济政策
-
-we find ourselves in unchartered territory.”
-我们都发现自己处于未知领域。”
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-**原视频链接**: [https://twitter.com/heidegger79/status/1404356483563851776?s=24](https://twitter.com/heidegger79/status/1404356483563851776?s=24)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-青梅煮酒
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++3

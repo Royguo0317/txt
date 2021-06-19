@@ -1,59 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社即时简报】习近平携中共领导人宣誓
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332942/)
+## 6月18日美国政要推文精选: 福奇手上沾满了血,辞退福奇
+` 美国政要等...直译推` [轉載自GNews](https://gnews.org/zh-hans/1332947/)
 
-香草山翻译部：GBW
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
+众议员迈克·加拉格尔： 我们那些无视伦理道德的科学家在新型冠状病毒的起源上将我们自己的情报界耍的团团转，这一事实告诉我们，我们有一个巨大的问题。 如果我们要防止下一次疫情，我们必须追根究底，并要求本国政府做得更好。
 
 
 
-2021年6月18日晚，路博艾
+> The fact that we had ethically-conflicted scientists spinning our own intelligence community on the origins of COVID-19 tells us we have a huge problem. 
+> 
+> If we're going to prevent the next pandemic, we have to get to the bottom of this and demand better from our own government. [pic.twitter.com/f9ZRwtVu8h](https://t.co/f9ZRwtVu8h)
+> — Rep. Mike Gallagher (@RepGallagher) [June 18, 2021](https://twitter.com/RepGallagher/status/1405940115537604610?ref_src=twsrc%5Etfw)
 
-**1. 赵立坚：探索浩瀚宇宙是全人类的梦想，中国也不例外。**
 
-博博士：中（共）国的太空计划是为军事目的服务的。
 
-**2. 习近平携中共领导人参观“不忘初心、牢记使命”党史展览**。
+彼得·纳瓦罗： 福奇手上沾满了血。辞退福奇。
 
-a. 路德：习近平走在最前面。王岐山最后压阵，说明他第二重要。王毅这些炮灰也参加了。
 
-b. 博博士：走出黑帮的气势，像邪教宣誓。
 
-c. 艾丽：外部压力大，党心不稳。
+> Blood on Fauci’s hands. Fire Fauci [https://t.co/VfXALIxvF3](https://t.co/VfXALIxvF3)
+> — Peter Navarro (@RealPNavarro) [June 18, 2021](https://twitter.com/RealPNavarro/status/1405939544244068357?ref_src=twsrc%5Etfw)
 
-**2. 塞林博士推特发了闫博士前夫Ranawaka照片和绿色贝雷帽，”在美国，他没有任何地方可以藏身，因为我们将一直追捕他。”**
 
-a. 艾丽：整装待发，要行动了。有点最后通牒的意思。
 
-b. 博博士：”特种部队”、”游骑兵 “和 “空降兵 “臂章需要通过所有相关的严格训练和考试。
+参议员玛莎·布莱克本： 你说什吗？ 【转推里福奇为自己开脱称：对于 [#中共病毒](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92?src=hashtag_click) 泄漏说一直保持开放的心态并观察着，所以他认为说他们故意压制这一点有点曲解】
 
-c. 博博士：塞林博士用“通缉犯”这个词是不是意味着立案了？
 
-笔记仅作参考，内容以路德社节目为准。
 
-视频链接：[https://www.youtube.com/watch?v=68sjIA4Pbog](https://www.youtube.com/watch?v=68sjIA4Pbog)
+> Say what? [https://t.co/o0gIqZUJE7](https://t.co/o0gIqZUJE7)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [June 18, 2021](https://twitter.com/MarshaBlackburn/status/1405683907396313089?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
 
-编辑/校对/发稿：正义的小新
 
-**更多资讯，更多关注**
+众议员艾丽丝·斯特凡尼克： 说到底CNN（美国有线电视新闻网）是捍卫中国新闻网的。 （转推福克斯新闻：“CNN在鼓吹中共提供的新型冠状病毒疫苗接种率后被指控替中共鼓动宣传”）
 
-[**纽约香草山农场****GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+> So CNN does stand for China's News Network, after all. [https://t.co/TgegylGBLF](https://t.co/TgegylGBLF)
+> — Rep. Elise Stefanik (@RepStefanik) [June 18, 2021](https://twitter.com/RepStefanik/status/1405994071412383750?ref_src=twsrc%5Etfw)
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 0
