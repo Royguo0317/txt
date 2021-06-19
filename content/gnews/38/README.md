@@ -1,38 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 恒大许昌悦龙台项目民工讨薪被官媒报道究竟意味着啥
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1332206/)
+## 【有声读物】台山核电厂会重蹈切尔诺贝利惨剧之覆辙吗？
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1332260/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18113613/3_%E5%89%AF%E6%9C%ACddd-.png)
-据[财经真相@caijingxiang](https://twitter.com/caijingxiang)于[下午10:26 · 2021年6月18日](https://twitter.com/caijingxiang/status/1405894766831673353)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+配音：香草山录音组 蒙古鸿雁
 
-恒大今天在东北以6亿买了一块地，离岸美元债也开始涨，恒大危机似乎过去了，但是恒大全国各地商票逾期依旧没有解决，河南许昌恒大悦龙台项目烂尾，拖欠农民工资遭到河南广播电台曝光！
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-> 恒大今天在东北以6亿买了一块地，离岸美元债也开始涨，恒大危机似乎过去了，但是恒大全国各地商票逾期依旧没有解决，河南许昌恒大悦龙台项目烂尾，拖欠农民工资遭到河南广播电台曝光！ [pic.twitter.com/fdNgZl4HzP](https://t.co/fdNgZl4HzP)
-> — 财经真相 (@caijingxiang) [June 18, 2021](https://twitter.com/caijingxiang/status/1405894766831673353?ref_src=twsrc%5Etfw)
 
 
 
-推文所附视频与[**豫楼市**](https://weibo.com/6496411540?refer_flag=1001030103_) [2021年6月18日20:35](https://weibo.com/6496411540/KkMIcosKc?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)新浪微博发布内容相同：
 
-[#房产曝光台#](https://s.weibo.com/weibo?q=%23%E6%88%BF%E4%BA%A7%E6%9B%9D%E5%85%89%E5%8F%B0%23) 许昌*恒大*“悦龙台”项目停工，民工讨薪难，*中铁建设*:*恒大*欠我两千多万，没钱付工资！[#微博房产爆料#](https://s.weibo.com/weibo?q=%23%E5%BE%AE%E5%8D%9A%E6%88%BF%E4%BA%A7%E7%88%86%E6%96%99%23) 来源/河南广播电视台许昌站 [L豫楼市的微博视频](http://t.cn/A6fPLimV) ​
+最近，CNN有关台山核电厂核泄漏的报道引起了各界的广泛关注。对此，中共国生态环境部（国家核安全局）的相关负责人做出了些许轻描淡写的回应，试图大事化小，不了了之。
 
-墙内墙外印证之下我们可以得出什么结论呢？
+据该负责人的介绍，台山核电厂是中法合资企业。该厂“有两台EPR（欧洲先进压水堆）核电机组，由法国珐玛通公司设计。目前两台机组均已进入第二燃料循环。自投入商运以来，台山核电合营有限公司两台机组一直保持安全稳定运行，周边环境未见异常”。虽然他还称，“目前台山核电厂1号机组运行过程中监测到反应堆一回路冷却剂的放射性比活度（即单位体积或重量中所包含的放射性量）上升，但仍然在核电厂运行技术规格书规定的允许稳定运行的范围内，满足技术规范要求，核电厂运行安全是有保障的。” 他表示，“目前，台山核电厂周边辐射环境监测结果显示核电厂周边辐射环境水平未见异常，处于本底水平，也表明没有任何泄漏发生。”
 
-1、恒大的爆雷已经是不争的事实，这一点郭先生在此前已经在多次直播中提及，接下来的民生银行以及各大国有银行的爆雷也只是时间的问题；
 
-2、在此前农民工讨薪哪怕采取跳楼、喝药、跳塔吊等极端行为并因此付出生命的代价都很难产生一丝涟漪，而这一次农民工堂堂正正地被河南广播电视台许昌站公开报道，这不是中共国现在的新闻自由度高了，而是恒大背后的支持者与其政敌之间的位置或形势发生了变化，恒大的幕后老板现在已经控制不了形势了，所以农民工讨薪才能变得这么光明正大，也就是说这一切都是政治斗争的结果；那么这会带来的下一个问题是——
 
-谁是恒大的幕后老板呢？恒大此番真成了落魄的凤凰，哦，不对，用词不当，恒大此番成了落水狗了，作为恒大幕后老板的政敌会如何痛打落水狗呢？
+**文字版原文：[【热点播报】台山核电厂会重蹈切尔诺贝利惨剧之覆辙吗？](https://gnews.org/zh-hans/1330365/)**
 
-无论如何，这一次农民工的讨薪行为终于上了官媒，不管这一事件背后的真实原因是什么，在以共灭共的狗咬狗之下，希望这一次被欠薪的“悦龙台”项目的农民工们能够全额讨回欠薪，虽然我依然认为这样的希望非常渺茫。
+作者：纽约香草山健身部 幸福鸟
 
-（文章内容仅代表作者个人观点）
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
+音频处理：喜山必胜Maverick
+发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

@@ -1,51 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 科学家承认实验室泄漏假说去年是有效的——但因为川普而保持沉默
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1332157/)
+## 【澳喜公民记者】火爆视频集锦
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1332186/)
 
-翻译：烟波浩淼｜校对：雨山溪桥客｜审核：断播
+视频&文章：恭池投石
 
-上个月，一组18名科学家发表了[一封信](https://science.sciencemag.org/content/372/6543/694.1)，**呼吁对中共病毒的起源进行更深入的调查，将认真考虑实验室泄漏假说**——该假说假设病毒是从武汉病毒研究所泄漏出来的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18111918/wuhan-institute_0.png)
-据[《NBC新闻》](https://www.nbcnews.com/science/science-news/lab-leak-theory-science-scientists-rcna1191)报道，现在，**包括麻省理工学院和哈佛遗传学家阿丽娜·陈在内的几位科学家承认，科学家们回避了实验室泄漏假说，因为他们不想与时任总统川普有联系**。
+视频素材：我爱和平 一路有你
 
-陈说，**一些科学家对公开讨论实验室泄漏假说感到不安**，因为他们担心自己的话可能被误解，或者被用来支持冠状病毒如何出现的种族主义言论。川普进一步指责武汉病毒学研究所是报告第一例中共病毒病例的城市的研究实验室，与疫情有关，他多次将病原体称为**“武汉病毒”**或**“功夫流感”**
+这些与时代格格不入的丑陋舞蹈，不堪入耳的中共赞歌，台上这些丑陋人的表演，无一不让人作呕，中共祸害中华大地70年，杀死上亿中国人，打碎了中华民族的脊梁，压榨剥削中国人的血汗，甚至释放生化武器病毒祸害全世界，而这些脑满肠肥，油光满明的奴才为了一点蝇头小利，甘愿摇尾乞怜，跪舔赞颂，实在是丑陋至极。
 
-。。。
+与他们形成鲜明对比的是，中共国有6到7亿人月收入不到1000元，山里的孩子甚至衣不蔽体，食不果腹，他们穿着破破烂烂的衣服，光着脚，实在很难想象在冬天他们是怎么过活的。要知道这是21世纪的文明时代，他们仍然跟文革以前那些穷苦人的生活一模一样。
 
-*这一转变反映了一些以前回避这一话题或迅速否定它的科学家*
+中共统治中华大地70年，中共国是世界上贫富差距最大的国家，也是贫困人口最多的国家，按世界标准，7亿人都是贫困人口，中共却对内外宣称中共国已经全面脱贫。
 
-*正在努力解决有关该病毒起源的持久不确定性。而不像川普政府期间那样，科学家将此类讨论政治化了。*
+中共不但让百姓贫困，而且用暴力欺压百姓，中共养了无数的打手，黑社会流氓，但是这些打手，黑社会流氓都穿着代表国家公权力的制服，他们化身为警察，武警，党卫军，城管。一个卖菜的老爷爷仅仅是路过，就被身着城管制服的流氓团团围住，要收缴他的菜摊。中共从来都没有把农村户口纳入基本的社会保障，请问凭什么不能让一个看起来年近70岁的老爷爷卖菜，他这么大年纪了还要为了自己的生计奔波，中共你们作为一个国家的管理者，你们根本就没有管过这些农村的人，你们让他们自生自灭，他们没有医保，没有养老（假医保假养老不算），他们没拿中共的钱，他们自己养活自己，他们种菜卖菜为人们提供了食物来源，为社会做出了贡献，为什么中共你们要这样对待他们？
 
-所以，当美国被告知要遵循科学的时候，科学家们选择了玩政治。
+当然中共从来没把老百姓当人看，他们就是要让老百姓痛苦，他们用商鞅五术：“壹民、弱民、疲民、辱民、贫民” 。这样他们才能骑到老百姓的头上作威作福，才能收刮富可敌国的民脂民膏，才能他们的后代永远享受无尽的荣华。
 
-陈说：**“当时与川普联系起来并成为种族主义者的工具更可怕，所以人们不想公开呼吁对实验室起源进行调查。”**
+（本文仅代表作者个人观点）
 
-近几个月来“回过头来”的人也指出中共国缺乏透明度。
+*发稿：光耀华夏*
 
-报告称，目前**主要有三种理论**在传播：
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-- 病毒在从受感染的动物身上传播到人类之前自然进化而来。
-- 病毒自然进化，但实验室的一名员工从样本中感染，无意中“泄露”到社区。
-- 实验室的科学家们正在操纵病毒样本，无意或故意释放了病原体。
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 
-
-宾夕法尼亚州大学生物学教授，传染病进化遗传学专家安德鲁·里德（AndrewReed）说：“如果我们有一场来自美国BSL-4实验室附近的大流行，你首先要问的是，他们是否在实验室里与这种病原体合作。”他提醒说，尽管实验室泄漏是合理的，这并不一定意味着这是最可能的解释（这是）。
-
-正如[《每日电讯报》](https://www.dailywire.com/news/scientist-backing-probe-into-wuhan-lab-we-waited-because-we-didnt-want-to-be-associated-with-trump?%3Futm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dwtwitter)所指出的，“领导川普政府对中共病毒大流行起源调查的大卫·阿瑟（David Asher）上月接受采访时[说](https://www.dailywire.com/news/biostatisticians-calculated-odds-of-coronavirus-evolving-naturally-to-be-1-in-13-billion-top-ex-pandemic-investigator-says)，他有来自美国政府的生物统计学家计算出冠状病毒从自然界进化的几率，他们估计大约是13亿分之一。”
-
-如果“科学”对事实比政治更感兴趣的话，我们就会在问责的道路上走得更远：
-
-
-
-> Right now: Jon Stewart on the Covid Lab Leak “theory” is solid laughs [pic.twitter.com/WlRX35p9WK](https://t.co/WlRX35p9WK)
-> — siskin.eth (@mns) [June 15, 2021](https://twitter.com/mns/status/1404665481886195717?ref_src=twsrc%5Etfw)
-
-
-***现在：乔恩·斯图尔特（Jon Stewart）把中共病毒实验室泄漏的“理论”当成可靠的笑料。***
-原文作者：泰勒·杜登（TylerDurden）
-发布时间：2021年6月17日星期四
-原文链接：[https://www.zerohedge.com/covid-19/scientist-backing-wuhan-probe-admits-lab-leak-hypothesis-was-valid-last-year-kept-quiet](https://www.zerohedge.com/covid-19/scientist-backing-wuhan-probe-admits-lab-leak-hypothesis-was-valid-last-year-kept-quiet)
 
 0
