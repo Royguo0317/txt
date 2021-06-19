@@ -1,37 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小象白话】婚前辅导来了，党要步入家庭生活了
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1332683/)
+## 众议员马特·盖茨: 美国不应该与中国共产党合作
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1332786/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18201801/Picture1-31.png)
+**字幕内容：**
+Rep. Matt Gaetz
+众议员马特·盖茨
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18202047/2-16.png)
+In a world in which all of the science that we do of consequence with China,
+在这个世界上，我们与中共国合作的所有科学成果
 
-大红国今日发表文章：“婚前辅导，真的来了！”黄色发改委出了了一份事业规划，其中“明确要求加强婚前指导、婚前保健、婚姻家庭关系调适和离婚辅导，减少婚姻家庭纠纷。”
+ends up in the hands of the Chinese Communist Party and the Chinese military,
+最终都落入中国共产党和中共军队的手中
 
-婚前辅导确实很重要，但是由发改委来提出这个要求并形成国家文件，就好像政府开始管理夫妻生活一样， 让人非常的痛恨，非常的不舒服。之前据说一胎政策是由物理学家钱学森提出来的，理由是中国资源匮乏，不够分配，需要减少人口。这个计划生育政策已经被证明是彻底的失败，而且是违反伦理违反自然的做法。
+like why don’t we ask the broad question,
+就像我们为什么不问广泛的问题？
 
-现在有很多人家里养宠物，养宠物的时候我们会给他们计划绝育，家里养猪的，会给猪计划多生小猪宝宝。那么对于他们来说，劳苦大众就和家里养的宠物和猪是一样的待遇了。他们自己呢，却在1990年到2008年期间，做了好几批试管婴儿，还拿了国家老百姓的钱专门请了人在海外养了一批，在国内又养了一批。好像是青蛙孵化一样，让人恶心。上帝告诉我们人生而平等，连动物都明白这个道理，到了这个东方最大的人间，人却活成了地狱的模样。
+why is the US taxpayer funding any of this.
+为什么美国纳税人要资助其中任何一项？
 
-因为一胎政策导致的目前劳动力紧缺，预计无法再为有红色基因的青蛙孩子们继续奴役了，红色集权者现在鼓励墙内年轻人多生孩子。历史上，在抗美援朝及解放初期，有过“英雄母亲”的阶段，现在劳动力短缺了，没有人去从事生产了，年轻人都躺下不干了，政府说不行，“认命可以，躺平不行”，年轻人要认什么命，为何要年轻人认命，是认一辈子和子孙后代世世代代为奴的命吗？
+In what world is collaboration with the Chinese Communist Party,
+在什么样的世界与中国共产党合作
 
-文章中说”鼓励有条件的婚姻登记机关设置社会工作岗位，开展社会工作和志愿服务。推进婚前辅导教育服务平台建设，实现婚姻家庭辅导室（婚姻家庭纠纷调解室）在县级以上婚姻登记机关覆盖率达到80%。“街道和社会工作者，现在已经成为政府的基层基础组成细胞，最近的社会结构在慢慢的改变，我们看到一些新闻说高等院校的毕业生争着去应聘街道工作，街道的功能变成了政府机关的职能单位，享受政府补贴，党群在不断的扩大，深入到基层，以此项目增设了许多无效的岗位，增加了政府公务员的数量，一方面吸引年轻人加入组织，另一方面继续捆绑老百姓，并降低相关政策的推广难度。举个例子，要求党群成员第一时间按政策去做，每个人带头生两个孩子，比如说，去准夫妻家里指导别人如何生孩子。多么的荒诞。
+somehow okay and Natalie set it up perfectly.
+不知何故，好的，娜塔莉把它设定得很完美
 
-“据民政部社会事务司副司长张贞德介绍，婚姻登记机关至少设置一个独立的颁证大厅，探索将颁证仪式引入结婚登记流程，并实现颁证的常态化，通过引导婚姻当事人宣读结婚誓言、领取结婚证，在庄重神圣的仪式中宣告婚姻缔结，让当事人感悟铭记婚姻家庭蕴含的责任和担当。“内卷化的经济的不得已措施，大量的低端的智能设备，这些产能都要被消耗掉，这些单位是主要的消耗力量，通过更换设备，更换程序和流程，改变政府职能和架构，纳税人的钱会通过这种表面上看起来便民呀为人民服务之类的幌子，大部分纳入个人的钱袋。很怀疑，以后结婚仪式中会不会在党的红旗下，宣誓效忠党，不宣誓不能结婚，或者孩子以后不能上学，这听上去很魔幻，但是想一想计划生育都可以实施，还有什么是不可能发生的。
+A lot of the elites in academics in science are trying
+很多科学界的精英都在尝试
 
-文中提出“依托婚姻登记机关，联合相关部门，从推广体现优秀中华文化的传统婚礼，组织举办集体婚礼，倡导特色突出、文明节俭的现代婚俗礼仪入手，探索建立婚俗改革长效机制，培育文明向上的婚俗文化，传承良好家风家教。“不知道什么时候，连结婚都变成了集体婚礼，结婚时家庭的事情，是两个家族的事情，为何要集体结婚，什么时候见过中南海那些党的儿女们是办集体结婚的。这是在彻底的摧毁家庭为单位元的社会组成，也是中共一贯的做法， 无时无刻用集体主义进行绑架，无时无刻把手伸进你的口袋，你家的厨房里的锅里，你家卧室的床上。
+to create this veneer that like, oh, well
+创造这个假象，就像，哦，好吧
 
-“推动各地把反对天价彩礼，抵制铺张浪费、大操大办等作为村规民约、居民公约的重要内容，充分发挥村（居）民议事会、人民调解委员会、道德评议会、红白理事会等群众自治组织的作用，强化村规民约、居民公约的遵守和落实。“道德评议会让人想起了纳粹党的道德警察。想起了中世纪改革前的宗教法庭。这些听上去所谓“自治组织”，其实都会是村里，乡里的党员干部组织，就像目前的一部分乡村一样，整个黑社会统治的区域。
+there’s a good CCP folks that we can work with
+我们可以与那些好的共产党人合作
 
-始终，把同类也就是人作为生产资料是中国共产党的本质。任何以国家名义，为人民好的名义实施的措施政策，究其根本就是为了对普罗大众敲骨吸髓，无论是表面上看上去是高尚的，还是滑稽的，还是荒唐的。他们活在自己的世界里，绑架着十四亿的中国老百姓。大家躺平吧，不要跟着他们走向万劫不复的深渊。加入新联邦，做一个人，做一个有个体自由，有选择自由的人。
+and they’re not truly tainted.
+他们并没有真正被污染
 
-参考链接：新华网 人民网
+That is nonsense,
+那是胡说八道
 
-整理撰稿：蓝精灵
+and now it’s not only that they control
+现在，他们不仅控制了
 
-校对发布：Penny
+the full function and scope of research in China,
+中共国研究的全部功能和范围
 
-\*以上仅代表作者观点，不代表Gnews平台\*
+they are metastasizing into these global corporations
+而且他们的控制正在转移到这些全球性公司
+
+like Google like Microsoft, that are setting up assets in China,
+就像谷歌，就像微软，正在中共国设立资产的
+
+subjecting these companies to those very protocols,
+让这些公司遵守那些协议
+
+and they’re buying our politicians.
+他们正在收买我们的政客
+
+In the meantime, and I think that’s the reason
+与此同时，我认为这就是
+
+why we’re having such a hard time,
+为什么我们过得这么艰难
+
+you know, getting to the bottom of this,
+你知道，查清这个问题的真相
+
+but once we do once we really expose
+但一旦我们做到了，我们就真的暴露
+
+the origins of this virus of the Wuhan Institute of virology,
+武汉病毒学研究所是这种病毒的起源的真相
+
+it’s really going to, you know slaughter a lot of sacred cows,
+它真的会让很多科学界的精英跌落神坛
+
+because they’re not going to be able to defend
+因为他们将无法为全国各地
+
+the research and the research cash flowing
+的这些大学的研究和研究资金
+
+through a lot of these universities all over the country.
+的流向进行辩护
+
+**原视频链接**: [https://twitter.com/repmattgaetz/status/1404494616758468609?s=24](https://twitter.com/repmattgaetz/status/1404494616758468609?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

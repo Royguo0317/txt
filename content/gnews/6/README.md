@@ -1,34 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/06/18-001 郭文贵先生盖特精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1332674/)
+## 【热点播报】四名英国航空公司飞行员一周内死亡，与CCP病毒疫苗无关吗？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1332771/)
 
-听写：樂禧禧 | Pr: 万物归一 | Page: Daoiii
+作者： 纽约香草山媒体部  7bends
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gFDMmTTXJEK0m/images/42083009-75fd-4096-a92b-8ebcaeef9644.png?asset_id=a971d915-6b2d-4709-900d-be2f8fa26ab6&amp;img_etag=%2231a3e5c36b03e88d128ac9a7c07ab230%22&amp;size=1024)](https://spark.adobe.com/page/gFDMmTTXJEK0m/images/42083009-75fd-4096-a92b-8ebcaeef9644.png?asset_id=a971d915-6b2d-4709-900d-be2f8fa26ab6&amp;img_etag=%2231a3e5c36b03e88d128ac9a7c07ab230%22&amp;size=1024)
-
-**亲爱的战友们：中共高官们逃跑了。 它已经开始，今年年底将是一个高峰，随后将有大量中国名人和富豪涌向海外。 这是共产党垮台前肯定会发生的现象。 最近中共的大外宣。 疯狂袭击爆出革命新闻……战友们要保持高度警惕！**
-
-[Gettr链接](https://gettr.com/post/pzm3m)
-
-1. “以黄灭共”咱们全面开始了，千万别过火，尊重女性，主要以黃灭共，不要整成三级片，要把故事性真实性弄好，别弄成黄色的照片，咱跟共产党不一样，千万千万要记住。
-2. “黑森林”杨澜事情爆光之后，国内剧烈震撼，接下来的宋祖英、汤灿、李薇、李萍、还有现在的中央电视台的正在直播的几个、凤凰卫视的几个女主播的故事，都会爆。吴征和杨澜的事情，绝对是一腚贏天下，这夫妻两个绝对是魔鬼搭档，害了很多很多人…在邪恶面前，罪恶面前不分男女老少。
-3. 我们就是用事实说话，大家要广泛的挖出国内各个领域的共产党的“以黄治国”，“生殖器治国”，这个绝对是对世界影响震撼的。盖特里面发的照片、故事，一定不能有碍观感，不要自己给自己审查，给你关了。
-4. 最近的谣言很多，共产党的高官往外出逃，伊拉克、利比亞、罗马尼亚被灭之前，齐奥塞斯库，都是一个样，高官、有钱人、名人都跑，当高官跑的时候，基本就结束了，过去的两周，跑出来的中共高官，绝对不是一个“巴掌”，这是一个集权的政府，崩塌前的必然现象。
-5. 全世界大宗商品，价格到啥情况？石油现在到啥情况？某中东国家说，你让基金买的石油期货，第一单赚了一大笔，这位中东的公主问，这疫苗是共产党制造的吗？不是自然的？你说多傻！她打了两针疫苗。
-6. 最近共产党在海外的九层妖塔兴风作浪，对咱们的爆料革命加以诋毁，有潜伏的被渗透的战友，等待机会攻击七哥和战友。我说过，对女性让三招儿，对战友让你五招儿，甚至七招儿，我再出手。
-7. 比特币没有未来，火币、比特币一定倒闭，比特币是共产党和伊朗和俄罗斯最大的一个洗钱犯罪的工具，是和西方所谓蓝金黄，最大的罪恶工具。
-8. 昨天和某国家二号领导人深刻的交谈了两个半小时，相信他是未来的世界领导人，相信他一定支持爆料革命，新中国联邦。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gFDMmTTXJEK0m/images/d7306ea6-5df6-4257-a7b7-841f161d2a24.jpg?asset_id=81dba361-d93b-4486-9404-e9abf1dc2d95&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)](https://spark.adobe.com/page/gFDMmTTXJEK0m/images/d7306ea6-5df6-4257-a7b7-841f161d2a24.jpg?asset_id=81dba361-d93b-4486-9404-e9abf1dc2d95&amp;img_etag=%223494a0420f82b2ebe617b15c2a47cc5a%22&amp;size=1024)
 
-0
+[Gateway Pundit](https://www.thegatewaypundit.com/2021/06/four-healthy-british-airways-pilots-die-one-week-airline-says-no-link-covid-19-vaccine/) 6月17日报道，路透社记者向英国航空公司求证近期社交媒体流传甚广的关于四名正值壮年的英国航空公司飞行员（可能接种CCP病毒疫苗后）突然死亡一事。为此，英航目前正在与政府就是否允许接种CCP病毒疫苗的飞行员飞行进行危机谈判。据说大约80%-85%的人已被接种疫苗。英国航空公司在对路透社进行回应时证实了死亡人数，但否认与疫苗相关，也否认正在与政府进行谈判。
+
+
+
+> I believe it was actually FOUR young pilots who died due to the Maxine [pic.twitter.com/LkahSVOTkN](https://t.co/LkahSVOTkN)
+> — The Thing (@TheThin59129130) [June 17, 2021](https://twitter.com/TheThin59129130/status/1405468219998150658?ref_src=twsrc%5Etfw)
+
+
+
+英国航空公司6月17日在推特上例行公事般的发推文回应传闻：令人悲伤的是我们飞行员社区的四名成员最近去世了。我们的心与他们的家人和朋友同在，但社交媒体上关于这4起死亡事件相关联的传说毫无根据。
+
+
+
+> Sadly four members of our pilot community passed away recently. Our thoughts are with their family and friends. However, there is no truth whatsoever in the claims on social media speculating that the four deaths are linked. Julie
+> — British Airways (@British\_Airways) [June 17, 2021](https://twitter.com/British_Airways/status/1405606519631007748?ref_src=twsrc%5Etfw)
+
+
+
+英航的回应真的那么令人信服吗？让我们看几则英航这个推文下的跟帖：
+
+- 一则跟帖说，向所有受影响的人表示诚挚的哀悼。据我了解，飞行员会定期做身体测试，你们飞行员的死亡率是正常还是不正常？
+- 另一则跟帖说，飞行员每年接受体检。此项检查包括心脏、视力、听力、大脑等。超过一定年龄，必须每六个月进行一次体检。这些飞行员以前不太可能有任何疾病。
+
+
+英航四名飞行员的突然死亡，真的与CCP病毒疫苗无关吗？
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141843/6-june.jpg)
+
+编辑/校对/发稿：小鹿
+
+
+
+**更多资讯****，****更多关注**
+
+[**纽约香草山农场****GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK****香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场****Twitter****（****中文****）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场****Twitter****（****英文****）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+
+
+
+
+
++1
