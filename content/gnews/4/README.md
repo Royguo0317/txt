@@ -1,56 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【一线新闻】深圳下十围村疫情、广东省疫情管控实时报道
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1336474/)
+## 白宫称正在考虑拜登和习近平之间的会谈
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1336610/)
 
-前方记者：香草山记者站 悟空
-文字编写：香草山写作组 车水马龙
-指导：Kathy（文艺）
+新闻来源：《Zerohedge》| 作者：Tyler Durden | 发布时间：2021年6月18日
+翻译/简评：大和凯多 | 校对：SilverSpurs7 | 审核：小小妹 | Page：Daoiii
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
+[!\[\]()!\[\](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/5e24c1cf-7bef-4825-9121-d6e13a6bf457.jpg?asset_id=654b329c-d030-4fb6-88cd-a65e5323a4c1&amp;img_etag=%2227d143c209859fd66cbc113c997c322f%22&amp;size=1024)](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/5e24c1cf-7bef-4825-9121-d6e13a6bf457.jpg?asset_id=654b329c-d030-4fb6-88cd-a65e5323a4c1&amp;img_etag=%2227d143c209859fd66cbc113c997c322f%22&amp;size=1024)
 
+**简评：**
 
+**在这次普京拜登峰会结束之后，拜登表示没有什么可以替代领导人之间的会谈。国家安全顾问沙利文表示十月份意大利的G20峰会可能会是一个好机会。拜登被记者问及催促习近平对新冠病毒来源进行调查的时候，拜登回答：“我们互相都很了解；我们不是老朋友。只是纯粹谈事情。”**
 
+**不管对于拜登还是习近平，病毒来源问题都是一个很棘手的话题。这个问题该怎么解决，用什么方式解决以及什么时候解决，最终避免不了政治的权衡。但是，在全世界失去了无数生命的面前，在国家安全面前，这个问题一定会有个答案。随着西方世界逐渐的觉醒，美国民调已经显示大部分人相信病毒是来源于武汉病毒研究所，而武汉病毒研究所与中共军方有着无数的关联。这些不争的事实已经不可避免地判中共死罪了。**
 
+**原文翻译：**
 
-2021年6月19日，广东省深圳市宝安区福围路199号附近（鼓点音乐艺术中心）一群戴着口罩，戴着眼罩，戴着手套，穿着制服的人有序进入深圳下十围村，这是要进行封村的行动吗？
-（制服人员进村，视频来源：悟空） 
-居住在该地区一朱姓女士已确诊为新冠肺炎，该地区正在进行封村管理，只进不出。所有人员进行居家隔离7天，并于第1、4、7天开展核酸检测。
+## 白宫称正在考虑拜登和中共国习近平之间的会谈
 
-同时，微信朋友圈流传这样的管控措施：
+**根据国家安全顾问杰克·沙利文周四的一份声明，在本周拜登-普京峰会结束后，白宫表示正在考虑美国总统和中共国国家主席习近平之间的双边会谈。**
 
-1.6月11日以来有民治派出所活动史的，立即居家隔离7天，第1、4、7天开展核酸检测。
-2.6月11日以来有民治街道滢水山庄活动史的，立即居家隔离7天，第1、4、7天开展核酸检测。
-3.6月11日以来有龙华分局个单位（不含民治派出所）活动史的，立即开展核酸检测。
-4.6月11日以来有与龙华分局人员接触的，立即开展核酸检测。
-5.非必要不前往龙华分局各单位。
+沙利文在一次新闻简会上说：“作为这次举行峰会的一个核心原因，总统先生所说的没有什么能替代领导人级别的会谈同样适应于中国和习近平主席。他会寻找机会与习主席接触。”
 
-同时记者也了解到：
+强调当下没有“特殊的计划”的同时，沙利文表示十月份在意大利的G20峰会是一个机会，因为两位领导人都会在场。”
 
-目前，广州、深圳、东莞三个城市已经接近完全封闭的状态，大家基本不能往来。很多人家在东莞，人在深圳上班。前往深圳上班需要48小时内核酸检测报告。各地区已提前安排很多隔离酒店，且这种安排是在没有病例公布之前的情况下进行的。
+[!\[\]()!\[\](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/69219db5-4a76-42bb-aeaf-3a1b77498f2b.jpg?asset_id=181a0ae5-c71f-4da2-b737-ff10322c8f04&amp;img_etag=%22e0a55d191fd468e9013bb163bfae66a3%22&amp;size=1024)](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/69219db5-4a76-42bb-aeaf-3a1b77498f2b.jpg?asset_id=181a0ae5-c71f-4da2-b737-ff10322c8f04&amp;img_etag=%22e0a55d191fd468e9013bb163bfae66a3%22&amp;size=1024)
 
-疫情管理进一步措施：所有东莞某地区的人，48小时内不做核酸检测的话，绿码自动转为黄码。
+他补充道：“很快，我们会坐下来，为两国总统的接触制定出合适的方式。可能会是一次电话，可能会是一次国际峰会上的面谈，也可能是其它方式。”
 
-校对/发稿：小小安
+在他的总统任期内迄今为止最重要的外交政策时刻，也就是普京峰会，之后的周三新闻发布会上，拜登总统表态说：“没有什么可以替代领导人之间的面对面对话，正如你们这些长期报道我的人所知道的那样。”
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+之后他与媒体记者谈话的时候，拜登被问及催促中共国习近平对新冠病毒来源进行调查。拜登回答道：“我们互相都很了解；我们不是老朋友。只是纯粹的谈事情。”
 
-**更多资讯，更多关注**
+但回想一下三月份，由国务卿布林肯和沙利文率领的白宫团队与中共国高级外交官在安克雷奇举行的会议上，事情并不是很顺利，而是与“一切照常”恰恰相反-从美方指责北京威胁“基于规则的秩序”开始，遭到中方的严厉谴责，称美方“肆意攻击”，并且因美方不礼貌导致“外交礼仪”失态。
 
-[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+在安克雷奇，中共国代表团没有举行预期的新闻发布会，就气势汹汹地离开酒店。让我们看看今年秋天即将举行的拜登-习近平峰会是否会有一个好结果……但是，很有可能到那个时候，随着官方病毒大流行的起源报告逐渐显现，北京会承受更大的压力。
 
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+🔗[原文链接](https://www.zerohedge.com/political/white-house-mulls-setting-talks-between-biden-chinas-xi?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline,+the+survival+rate+for+everyone+drops+to+zero%29)
 
-[**纽约香草山农场Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文)**
-
-[**纽约香草山农场Twitter(****英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 
 
