@@ -1,81 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇主导的秘密会议后“病毒自然说”成为主流（3）
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1335839/)
+## 崔大屎和屎馆该如何抗议Kyle Bass的西台湾T恤
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1335929/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20014201/E4SLpe8XEAYEZ-j_%E5%89%AF%E6%9C%AC.jpg)
+据[Kyle Bass](https://twitter.com/Jkylebass)[@Jkylebass](https://twitter.com/Jkylebass) 于[上午8:04 · 2021年6月20日](https://twitter.com/Jkylebass/status/1406402531987701760)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20003924/T3.jpg)俄罗斯莫斯科喀秋莎农场原创
-[福奇主导的秘密会议后“病毒自然说”成为主流（1）](http://福奇主导的秘密会议后“病毒自然说”成为主流（1）)
+Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai)and the Chinese embassy USA ! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@HuXijin\_GT](https://twitter.com/HuXijin_GT)Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
 
-[福奇主导的秘密会议后“病毒自然说”成为主流（2）](http://福奇主导的秘密会议后“病毒自然说”成为主流（2）)
+中文大意：为[@崔天凯大屎](https://twitter.com/AmbCuiTiankai) 和中国驻美国大使馆制作的令人惊叹的新 T 恤！ [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@胡叼盘](https://twitter.com/HuXijin_GT)最有趣的标题赢得一件衬衫！ [#台湾](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
 
-**三天内立场改变**
 
-然而，就在2月1日的会议后三天，安德森对病毒潜在来源的立场发生了巨大变化，他已经从担心可能的基因工程改造转向告诉另一组科学家“数据确凿地表明”病毒不是被改造的，并称工程改造的假设是“边缘”和“疯子”理论。
 
-安德森在2020年2月4日给几位科学家的电子邮件中给出了这一反馈，这些科学家正在帮助美国国家科学院、工程院和医学院起草一封关于新病毒的信，并将信发送给白宫科技政策办公室，这封电子邮件是由非盈利组织“美国知情权”（U.S. Right to Know）去年通过公开记录请求获得的。
+> Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) and the Chinese embassy USA 🇺🇸! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA?ref_src=twsrc%5Etfw) [@PDChina](https://twitter.com/PDChina?ref_src=twsrc%5Etfw) [@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw) Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/cYryHcpPAA](https://t.co/cYryHcpPAA)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 20, 2021](https://twitter.com/Jkylebass/status/1406402531987701760?ref_src=twsrc%5Etfw)
 
-“读完这封信，我觉得很好。” 安德森在信中写道，“但我确实想知道我们是否需要在工程改造问题上更加坚定，目前流行的主流理论认为，这种病毒是故意改造的，但事实显然并非如此。工程可以意味着许多事情，可以做基础研究或邪恶的原因，但数据最终表明，这两个都没有做。”
 
-他补充道：“如果这份文件的主要目的之一是反驳那些边缘理论，我认为我们用简单明了的语言来强烈反对这些理论是非常重要的，（‘与自然进化相一致’是我在与科学家交谈时的最爱，但在与公众——特别是阴谋论者交谈时却不是这样。）”
 
-国家科学院的信最终没有包含这些相左的建议，相反，这封信的重点是需要更多的研究。他说：“专家们告诉我们，需要从地理和时间上不同的病毒样本中获得更多的基因组序列数据，以确定病毒的起源和进化，武汉疫情爆发时尽早采集的样本和野生动物样本将特别有价值。”
+推文所附图片为——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20013729/E4SLpe8XEAYEZ-j.jpg)
+中共暴政之下的西台湾人民苦秦久矣，这一次凯尔.巴斯先生直接@崔天凯大屎、@中国日报、@中共国驻美国大使馆、@胡叼盘等，把西台湾人民与独裁暴政集团区隔开来，作为西台湾人民的一员，在下甚感荣耀。只是不知道这些口口声声代表十四亿西台湾人民的怂货们该如何应对呢？
 
-几周之内，安德森和包括霍姆斯在内的一组备受尊敬的科学家，首先在一个“预印”网站（pre-print site）上发表了他们对SARS-CoV-2的分析，然后在2020年3月17日的《自然医学》（the journal Nature Medicine）杂志上发表了这篇文章。
+为避免这些怂货掩耳盗铃假装看不见特此广而告之，请中共国咬部、中共国驻美国大屎馆、中共国驻美国大屎崔天凯以及中共国胡叼盘开足马力、全力以赴回应凯尔.巴斯先生，别忘了十四亿西台湾人民在看着你们！
 
-这篇题为“SARS-CoV-2的近似起源”的文章具有巨大的影响力，也是任何与实验室相关的假设（涉及自然或人造病毒）被这么多人长期否定的关键原因之一。
+（文章内容仅代表作者个人观点）
 
-这篇文章在详细说明该小组的调查结果之前说，“我们的分析清楚地表明，SARS-CoV-2不是一种实验室构建的病毒，也不是一种故意操纵的病毒。”文章最后说，由于在自然界相关的冠状病毒中观察到了病毒的显著特征，“我们不认为任何基于实验室的假设是可信的。”
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-需要承担责任：川普和肆虐的疫情帮助中共逃避了对中共病毒的责任
-
-法拉和福奇一起帮助组织了2020年2月1日的会议，讨论了安德森最初的担忧。他的发言人在给我的一封电子邮件中说，他认为这篇文章中的分析是“迄今为止对这种病毒起源的基因组流行病学最重要的研究”。
-
-目前尚不清楚，在2020年2月初的这三天里，有什么新的证据被曝光而改变了安德森的观点，他不愿和我谈那件事。在推特上——他有一个多产的平台——他只谈到了从2020年1月31日与福奇的电子邮件到发表他的那篇“近似起源”的文章，他对病毒的看法在几周内发生了变化。
-
-安德森在本月早些时候与福奇的电子邮件首次公开时在推特上说：“电子邮件所显示的，是科学过程的一个明显例子。我已经说过很多次了，我们认真考虑了实验室泄漏的可能性，然而，重要的新数据、广泛的分析和许多讨论导致了本文的（自然说的）结论。”
-
-不久之后，他删除了自己的整个推特账户，他经常用这个账户来分享自己的坚定观点，即中共病毒来自大自然，而不是实验室。
-
-安德森后来表示，一些分析在几天内就完成了。
-
-长期以来，科学家们一直敦促对病毒所有可能的起源进行调查，包括对实验室发生自然病毒事故的可能性进行调查。他们指出，安德森论文中声明的确定性，是实验室泄漏假说被视为阴谋论而被驳回的关键原因之一，对记者和许多科学家来说，作者们的威望和言辞的确定性使这一科学问题似乎得到了肯定。
-
-实验室泄漏？拜登要求情报机构加紧调查中共病毒的来源
-
-有关实验室泄漏的问题与蓄意制造生物武器的概念混为一谈，这也无济于事，而这也与川普总统早期抨击中共国的言论有关。
-
-“一小群科学家和一个更大的科学记者群体，建立并实施了虚假的叙事，即科学证据支持自然的外溢，以及虚假的叙述，这是科学共识。” 新泽西罗格斯大学（Rutgers University）的分子生物学家和生物安全专家理查德·艾布赖特（Richard Ebright）说。
-
-还有其他的观点，只是没有太多的报道可信。
-
-“2月1日的电视会。” 艾布赖特说，“似乎在建立和实施这种错误的叙述方面发挥了重要的作用，可能是至关重要的。”
-
-**关于实验室泄漏的问题挥之不去**
-
-关于是否可以完全排除对病毒的基因操纵，仍存在一些合理的科学辩论，部分原因是并非所有的基因工程方法都留下了可供说明的标记，还因为病毒的基因组确实具有一些不寻常的特征。
-
-诺贝尔奖获得者病毒学家大卫·巴尔的摩（David Baltimore）虽然对在最近的一次高调采访中使用“确凿的证据”一词感到遗憾，但他仍然担心这种病毒的一个特征，即“福林酶切位点”，可能指向工程改造。
-
-“我相信这个序列是自然产生的还是通过分子操纵产生的这点很难确定，但我不排除任何一个来源。”  他告诉《洛杉矶时报》。
-
-但是，带有完全天然病毒的实验室事故——一种可能在武汉病毒研究所收集、储存或研究并感染了一名工作人员的病毒——也是呼吁调查的焦点。该研究所的首席中共病毒研究员石正丽和中共政府的代表一再表示，该实验室从未感染过任何此类病毒，与引发的疫情无关，他们对他们认为毫无根据和出于政治动机的问题表示愤慨和沮丧。
-
-实验室泄漏理论的真正问题是：美国不再像过去那样监视中共国了？
-
-福奇告诉我，他认为深入挖掘美国情报报告很重要，以确定事实上武汉病毒研究所的三名研究人员是否在2019年11月病重，寻求医院治疗？这个时间刚好在已知的第一例中共病毒出现之前，石正丽说没有生病的工作人员。
-
-“我的问题是这个情报有多可信？……如果真的可信，我们需要查看病历，我们真需要以外交的方式呼吁中共国政府允许科学专家调查那里的情况。”
-
-（原文完）
-
-文中有意无意地还将病毒追责不力的问题引导到川普总统身上。“福林酶切位点”肯定是人工改造过的，更重要的这个中共病毒的骨架用的是中共军方独有的舟山蝙蝠病毒。这些结论闫博士去年年初就提出来，后来又写进了她的闫博士三篇论文里，现在塞林博士也在公开采访中肯定了闫博士的这些结论。我们爆料革命的战友们作为前排观众早就了然于心，这些美国媒体还在喋喋不休地扯皮，给福奇、安德森们辩解的机会。哎，太扯了！
-
-原文链接：
-
-[https://www.usatoday.com/story/opinion/2021/06/17/covid-19-fauci-lab-leaks-wuhan-china-origins/7737494002/](https://www.usatoday.com/story/opinion/2021/06/17/covid-19-fauci-lab-leaks-wuhan-china-origins/7737494002/)
-
-0
++1

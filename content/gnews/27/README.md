@@ -1,32 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 崔大屎和屎馆该如何抗议Kyle Bass的西台湾T恤
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1335929/)
+## 6/20/2021 日本银河快讯：日本11个县中共病毒感染者感染途径不明；日本政府考虑在初中导入小班教学
+` 日本银河系农场-阿尔法星球` [轉載自GNews](https://gnews.org/zh-hans/1335995/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20014201/E4SLpe8XEAYEZ-j_%E5%89%AF%E6%9C%AC.jpg)
-据[Kyle Bass](https://twitter.com/Jkylebass)[@Jkylebass](https://twitter.com/Jkylebass) 于[上午8:04 · 2021年6月20日](https://twitter.com/Jkylebass/status/1406402531987701760)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20024332/%E5%9B%BE%E7%89%872-14.jpg)[图片来源](http://www.haiwainet.cn/)
+**1.****在日本的11个县有 “超过50%”的CCP病毒感染者的感染途径不明**
 
-Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai)and the Chinese embassy USA ! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@HuXijin\_GT](https://twitter.com/HuXijin_GT)Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
+[产经新闻报道，根据厚生劳动省18日公布的数据，在11个县，感染CCP病毒且感染途径不明的患者比例为50%或以上，相当于政府对策小组委员会指定的第四阶段（感染的爆炸性传播）。 随着9个县宣布紧急状态将于6月20日解除，日本需要对感染的反弹保持警惕。感染途径不明的病例比例很高，表明感染在城市中蔓延，可能是新的一次大流行的前兆。 在首都圈62.8%、埼玉52.4%、千叶58.9%和神奈川54.9%的病例处于第四阶段。 在关西地区，57.6%的大阪和52.3%的兵库都处于第四阶段。](https://news.yahoo.co.jp/articles/47754969a708c7900f104549186281d862d7486d)
 
-中文大意：为[@崔天凯大屎](https://twitter.com/AmbCuiTiankai) 和中国驻美国大使馆制作的令人惊叹的新 T 恤！ [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@胡叼盘](https://twitter.com/HuXijin_GT)最有趣的标题赢得一件衬衫！ [#台湾](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
+**2.****日本政府考虑在初中导入小班教学**
 
+[朝日新闻报道，6月18日，政府在一次内阁会议上批准了今年的 “经济财政运营与改革的基本方针”。 在本月初发布草案后，新政策包括考虑在公立初中实行小班化教学。 新政策反映了执政党的要求，并可能成为年底制定明年预算计划时的一个焦点。 去年，文部科学省的目标是在小学和初中实行小班教学，但财政部反对这一想法，并决定在2025年前分阶段只在小学引入新系统。 然而，执政党内部来自教育部门对在初中实行新制度的呼声很高，因此决定在草案发布后增加新制度。](https://news.yahoo.co.jp/articles/fc7b9dce29fad3661407786ae606b758332f8dd7)
 
+**3.****专家估计日本政府大学基金每年需要3000亿日元的投资收益**
 
-> Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) and the Chinese embassy USA 🇺🇸! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA?ref_src=twsrc%5Etfw) [@PDChina](https://twitter.com/PDChina?ref_src=twsrc%5Etfw) [@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw) Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/cYryHcpPAA](https://t.co/cYryHcpPAA)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 20, 2021](https://twitter.com/Jkylebass/status/1406402531987701760?ref_src=twsrc%5Etfw)
+[共同社6月19日报道，内阁办公室一个工作组的专家周三表示，政府的10万亿日元 “大学基金 “旨在帮助国内研究机构与世界各地的大学竞争，这将需要每年3000亿日元的投资收入。 为了向六所大学提供长期补贴，需要高于消费物价上涨率3%的高收益，以产生约3000亿日元的年利润。 与美国的大学捐赠相比，这个模式风险很大，政府官员表示，需要仔细讨论。大学基金将在本年度开始运作，目标是成为世界前50名。 工作组将在7月底前根据计算结果提出其基本政策。](https://news.yahoo.co.jp/articles/a461d85da1143a2d5dc5f124cfac7422e26ba9b7)
 
+**4.****每日新闻民调：64%的人认为东京奥运会无法做到安全无忧**
 
+[每日新闻和社会调查研究中心于6月19日进行了一项全国性的民意调查。 只有22%的受访者表示，政府正在考虑举办有国内观众参加的东京奥运会是 “合适的”。 31%的人说，奥运会应该在没有国内观众的情况下举行，而在5月22日进行的前一次调查中，这一比例为13%。 30%的人认为应该取消该活动，比上次调查（40%）下降了10个百分点，12%的人认为应该再次推迟，比上次调查（23%）下降了11个百分点。 取消 “和 “重新安排 “的总和超过了40%。 “不知道 “的比例为5%，高于上次调查的3%。](https://news.yahoo.co.jp/articles/11a06ec872d260c3d97ccb3d42726c9f4f920848)
 
-推文所附图片为——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20013729/E4SLpe8XEAYEZ-j.jpg)
-中共暴政之下的西台湾人民苦秦久矣，这一次凯尔.巴斯先生直接@崔天凯大屎、@中国日报、@中共国驻美国大使馆、@胡叼盘等，把西台湾人民与独裁暴政集团区隔开来，作为西台湾人民的一员，在下甚感荣耀。只是不知道这些口口声声代表十四亿西台湾人民的怂货们该如何应对呢？
+**5.****日本97%的大公司将为员工接种疫苗，目标是200万人，不良反应是被关注的问题**
 
-为避免这些怂货掩耳盗铃假装看不见特此广而告之，请中共国咬部、中共国驻美国大屎馆、中共国驻美国大屎崔天凯以及中共国胡叼盘开足马力、全力以赴回应凯尔.巴斯先生，别忘了十四亿西台湾人民在看着你们！
+[共同社6月19日进行的一项调查显示，112家公司，即116家大公司的97%，打算提供预防CCP病毒的疫苗， 总共将覆盖约200万人。59%的大公司（69家公司）已经推出或计划推出 “疫苗假期”，可在接种当天或第二天进行休息。 许多公司把处理不良反应和保证医务人员的安全作为问题和关切。从21日开始，许多地区将开始进行工作场所和大学的疫苗接种，而年轻人和工作年龄段的人的普通疫苗接种也将全面展开。 原则上工作场所员工超过1000人的公司将提供疫苗接种。 占日本公司总数99.7%的中小型企业恐怕难以实行。](https://news.yahoo.co.jp/articles/e63ab9cdf83556f2d9e6cedb8772676035d37238)
 
-（文章内容仅代表作者个人观点）
+**6.****6成以上的日本地方政府表示将在7月上旬前开始6****4****岁以下人群的疫苗接种**
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+[每日新闻报对69个县市和东京23个区的调查显示，64岁及以下的人开始接种CCP病毒疫苗的时间将集中在本月下半月和7月上半月。 在42个地方政府中，22个表示将在6月开始，18个在7月上半月开始，60%的城市在这期间开始了65岁以上老人的下一阶段接种。 老年人的疫苗接种率（第一剂，截至6月10日）根据不同的城市，从近70%到不到10%不等，导致进度差异很大。](https://news.yahoo.co.jp/articles/7ad395461979bdb3baf53e8ab4cf66fcdcf1a863)
 
-+1
+【日本银河系农场-阿尔法星球】
+作者：Totoro
+校对：Π＆Π
+
+0
