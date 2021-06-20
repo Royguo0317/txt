@@ -1,41 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G7峰会主旋律——专心灭共
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1335672/)
+## Covid-19起源、中国共产党知道以及世界卫生组织进行彻底认真调查
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1335697/)
 
-撰稿：Hong
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19225927/20210620_Task1_cover.jpg)图片来自网络
-今年的七国集团峰会(G7)与往年不同，峰会主旋律就是组建西方灭共联盟，专心灭共。无论是在英国举办的G7峰会还是在布鲁塞尔举行的北约峰会上，包括美日、美韩、美英澳首脑的会谈，加上拜登总统在日内瓦与俄罗斯总统普京的会晤都向全世界发出了一个强烈的灭共信号。
+**字幕内容：**
 
-G7峰会各国首脑纷纷响应拜登总统提出的民主国家要提供替代中共的高标准方案，不允许中共参与国际贸易和技术规则制定的呼吁，全球牢不可破的灭共联盟已形成，开启了对中共全方位、全领域的对抗。
+Rep. Mariannette Miller – Meeks (R-Iowa)
+众议员玛丽安内特米勒 – 米克斯(共和党-爱荷华州)
 
-G7峰会联合公报70多条内容，几乎条条戳中了中共要害。公报第16条，呼吁世卫组织对中共病毒起源进行及时丶透明丶基于证据为基础的第二阶段调查。自从中共释放病毒以来，全球已有超过380万人死于中共病毒，1.7亿多人饱受中共病毒的折磨。目前中共制造生物武器病毒的证据越来越多，病毒起源的真相越来越近，全球向中共政权问责，并要求索赔的意志和决心越来越坚定，这必定让中共政权赔到破产，赔到崩溃，赔到坐牢。公报第49条，重点指出中共政权在新疆、香港存在尊重人权和基本自由的问题。中共对新疆维吾尔族人犯下了种族灭绝罪，对香港人民实施武力镇压，遭到国际社会的一致声讨，G7峰会开启了把中共推向国际审判台关键的一步。公报第60条，首次强调台湾和平与稳定的重要性，并鼓励以和平方式解决两岸议题，同时强调欧盟密切关注东海和南海局势，这对中共来说将是致命的一击。
+I asked unanimous consent to address the house for one minute
+我要求一致同意在众议院发言一分钟
 
-北约联合公报反复抨击中共军事扩张，视中共为系统性安全威胁，北约组织誓言齐心协力对抗中共军事挑衅和威胁。美日、美韩、美英澳国家首脑分别会晤并发表联合声明，强调在中共威胁台湾之际，台湾海峡和平的重要性，并组建联盟，加强在东海、南海、台湾，印太地区的军事合作，将战略重心转向印太地区。拜登总统在日内瓦与俄罗斯总统普京会面后，发表美俄总统关于战略稳定的联合声明，对减少武装冲突和控制核战争达成共识，双方达成军事战略互信。所有这些军事战略都表明，西方灭共联盟军事战略的重锤砸直击中共的要害，使得中共睡觉都不得安稳。
+and to revise and extend my remarks.
+并修改和扩展我的评论
 
-G7峰会将推动重建美好世界（B3W）全球基础建设倡议，旨意在通过向发展中国家提供一项基础设施发展计划，以对抗中共“一带一路”在全球的战略扩张及潜在的经济和政治陷阱，这一倡议将打破中共“一带一路”殖民世界的美梦。
+Mr. Speaker
+议长先生
 
-今年的G7峰会真真正正印证了郭文贵先生四年来的爆料。郭先生一次又一次地警告全世界，病毒是中国共产党制造并故意释放的生物武器；郭先生也是全球第一位最早站出来揭露中共建造新疆集中营的人士,并呼吁全球关注、支持香港。郭先生早就警告过全世界，要看清中共“一带一路”中共人民币国际化、军事扩张、企图**控制全世界**的野心**。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19230029/20210620_Task1a.jpg)图片来自GNEWS
-G7峰会组建灭共联盟，重组不允许中共参与的国际战略秩序已被写进历史，郭文贵先生曾说过，美国的人反应可能是慢，但是美国人一旦反应过来，无人可以阻挡。真正来实行和实施我们的爆料革命的下一个目标是，以美灭共、以国际灭共、以法灭共。现在，真正灭共的时代已经到来，中共在世界上不顾天理、横行霸道的日子已经到头了！
+Without objection the gentlewoman from Iowa was recognized for one minute.
+无异议，来自爱荷华州的女士被给予一分钟
 
-（文章仅代表作者个人观点，与GNews无关）
+Rep. Mariannette Miller – Meeks
+众议员玛丽安内特米勒 – 米克斯
 
-新闻参考来源：
+Thank you Mr Chair, Mr Speaker.
+谢谢主席先生，议长先生
 
-1. [https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/16/u-s-russia-presidential-joint-statement-on-strategic-stability/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/16/u-s-russia-presidential-joint-statement-on-strategic-stability/)
-2. [https://www.whitehouse.gov/briefing-room/statements-releases/2021/04/16/u-s-japan-joint-leaders-statement-u-s-japan-global-partnership-for-a-new-era/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/04/16/u-s-japan-joint-leaders-statement-u-s-japan-global-partnership-for-a-new-era/)
-3. [https://www.taiwannews.com.tw/en/news/4178911](https://www.taiwannews.com.tw/en/news/4178911)
-4. [https://www.reuters.com/world/g7-counter-chinas-belt-road-with-infrastructure-project-senior-us-official-2021-06-12/](https://www.reuters.com/world/g7-counter-chinas-belt-road-with-infrastructure-project-senior-us-official-2021-06-12/)
+I rise today to address an incredibly important national security issue.
+我今天提起一个极其重要的国家安全问题
 
+We all know that Wuhan China,
+众所周知中国武汉
 
-* * *
+where the COVID-19 virus originated,
+COVID-19 病毒的爆发起源地
 
-*发布：光耀华夏*
+is the home to the Wuhan Institute of Virology
+它也是武汉病毒学研究所的所在地
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+The WIV is China’s only cellular level 4 biosafety super laboratory
+武汉病毒学研究所是中共国唯一的细胞4级生物安全超级实验室
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19230305/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
-+1
+that researches human infectious diseases
+研究人类传染病的
+
+This lab is in very close proximity to the wet market
+这个实验室非常靠近海鲜农贸市场
+
+that is reputed to be the origin of COVID-19
+该农贸市场曾被认为是 COVID-19 的起源地
+
+last year Senator Tom Cotton was thoroughly dismissed for questioning
+去年参议员汤姆·科顿因质疑这种病毒的
+
+the true origins of this virus
+真正来源而被彻底驳回
+
+signing the Chinese Communist Party’s duplicity and dishonesty from the very beginning.
+显示了中国共产党一开始的两面派和不诚实
+
+We all know that the Chinese Communist Party lied to the world
+众所周知，中共对世界撒谎
+
+about the severity of COVID-19
+关于 COVID-19 的严重性
+
+how it is transmitted, and the dangers associated,
+它是如何传播的，以及相关的危险
+
+there needs to be a thorough and serious investigation into the origins of COVID-19
+我们需要对 COVID-19 的起源进行彻底而认真的调查
+
+what the Chinese Communist Party knew and when,
+中国共产党知道什么？什么时候知道的？
+
+and what the World Health Organization knew and when
+以及世界卫生组织知道什么以及什么时候知道的
+
+uncovering the origins of COVID-19 will be incredibly helpful
+揭示 COVID-19 的起源将非常有帮助
+
+and helping us to prepare for the next pandemic,
+并帮助我们为下一次大流行病做好准备
+
+which I think is something we can all agree on.
+我认为这是我们都同意的事情
+
+Thank you Mr Speaker, I yield back my time.
+谢谢议长先生，现在把我的时间还给你。
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接:[https://twitter.com/repmmm/status/1405908913799647233?s=24](https://twitter.com/repmmm/status/1405908913799647233?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

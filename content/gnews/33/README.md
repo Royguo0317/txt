@@ -1,107 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Covid-19起源、中国共产党知道以及世界卫生组织进行彻底认真调查
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1335697/)
+## 【热点播报】深圳新冠肺炎案例详情
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1335740/)
 
-**字幕内容：**
+香草山写作组：静水流深
 
-Rep. Mariannette Miller – Meeks (R-Iowa)
-众议员玛丽安内特米勒 – 米克斯(共和党-爱荷华州)
 
-I asked unanimous consent to address the house for one minute
-我要求一致同意在众议院发言一分钟
 
-and to revise and extend my remarks.
-并修改和扩展我的评论
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
 
-Mr. Speaker
-议长先生
 
-Without objection the gentlewoman from Iowa was recognized for one minute.
-无异议，来自爱荷华州的女士被给予一分钟
 
-Rep. Mariannette Miller – Meeks
-众议员玛丽安内特米勒 – 米克斯
+根据广东卫健委6月19日消息，6月18日0至24时，全省新增6例本土确诊病例，广州报告2例，深圳报告2例，佛山报告1例，东莞报告1例。全省新增境外输入确诊病例8例，广州报告1例，来自利比亚；深圳报告1例，来自南非；珠海报告6例，均来自孟加拉国。
 
-Thank you Mr Chair, Mr Speaker.
-谢谢主席先生，议长先生
+新增境外输入无症状感染者18例，广州报告3例，分别来自法国、柬埔寨和布隆迪；深圳报告1例，来自南苏丹；珠海报告1例，来自贝宁；佛山报告1例，来自孟加拉国；中山报告11例，6例来自加蓬，其余5例来自贝宁；肇庆报告1例，来自马尔代夫。新增出院8例。截至6月18日24时，全省累计报告新冠肺炎确诊病例2608例（境外输入1117例）。目前在院222例。
 
-I rise today to address an incredibly important national security issue.
-我今天提起一个极其重要的国家安全问题
+对于中共发布的各种数据，其真实性是个迷。但是笔者了解到深圳两例详情：
 
-We all know that Wuhan China,
-众所周知中国武汉
+一例为一30岁的李女士，家庭住址在东莞。李女士已完成2剂新冠疫苗接种，6月8日核算检测报告为阴性。该女士6月17日16:00时，身体开始发热，体温38度，并伴有咽喉肿痛、咳嗽、流鼻涕。李女士否认过去14天内去过中高风险地区，也未曾接触过中高风险地区人员。6月18日检测结果：核算初筛双靶标阳性。
 
-where the COVID-19 virus originated,
-COVID-19 病毒的爆发起源地
+另一例为李女士的丈夫萧先生，居住在滢水山庄（深圳工作）。萧先生6月10日核算检测报告为阴性，6月12日开始出现发热，最高体温39度，并伴有畏寒、干咳症状。萧先生自行服用头孢后症状反复。萧先生于6月17日23时前往北大深圳医院就诊，诊断结果为“肺炎”，CT检查考虑肺部感染，核酸检测为阴性。第二次复核，诊断结果为强阳性。萧先生自述老婆和儿子均有发热症状。
 
-is the home to the Wuhan Institute of Virology
-它也是武汉病毒学研究所的所在地
+对于这两个具体案例，笔者有几个疑问：
 
-The WIV is China’s only cellular level 4 biosafety super laboratory
-武汉病毒学研究所是中共国唯一的细胞4级生物安全超级实验室
+1.李女士已经完成2剂新冠疫苗接种，14天内未去过中高风险地区，也未接触过中高风险地区人员，为什么还会感染新冠肺炎？这是否说明李女士接种的疫苗没有产生抗体？这是否能说明新冠疫苗不具备保护作用？这也是否说明这李女士检测之前是无症状感染者？
 
-that researches human infectious diseases
-研究人类传染病的
+2.李女士的丈夫萧先生在北大深圳医院检测，诊断结果为“肺炎”，那为什么当时的核酸检测为阴性？而再次核酸检测结果为强阳性。这是否说明“核酸检测”的有效性值得怀疑？
 
-This lab is in very close proximity to the wet market
-这个实验室非常靠近海鲜农贸市场
+3.萧先生自述老婆、儿子均有发热症状，那么儿子是否已经有检测结果，是否已经感染？家里是否还有其他人，其他人情况怎样？
 
-that is reputed to be the origin of COVID-19
-该农贸市场曾被认为是 COVID-19 的起源地
+4.李女士住在东莞，李女士丈夫萧先生在深圳工作，往返于深圳和东莞两地。他们的儿子也许是住在东莞。那么这三人的案例归属地到底是深圳还是东莞？
 
-last year Senator Tom Cotton was thoroughly dismissed for questioning
-去年参议员汤姆·科顿因质疑这种病毒的
+中共疫苗是否能有效防御中共病毒到目前为止都是未知。病毒真相正在被如火如荼地揭露。我们拭目以待。
 
-the true origins of this virus
-真正来源而被彻底驳回
+资料：悟空 指导：文艺
 
-signing the Chinese Communist Party’s duplicity and dishonesty from the very beginning.
-显示了中国共产党一开始的两面派和不诚实
+编辑/校对/发稿：正义的小新
 
-We all know that the Chinese Communist Party lied to the world
-众所周知，中共对世界撒谎
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
 
-about the severity of COVID-19
-关于 COVID-19 的严重性
+**更多资讯，更多关注**
 
-how it is transmitted, and the dangers associated,
-它是如何传播的，以及相关的危险
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-there needs to be a thorough and serious investigation into the origins of COVID-19
-我们需要对 COVID-19 的起源进行彻底而认真的调查
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
 
-what the Chinese Communist Party knew and when,
-中国共产党知道什么？什么时候知道的？
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
 
-and what the World Health Organization knew and when
-以及世界卫生组织知道什么以及什么时候知道的
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
 
-uncovering the origins of COVID-19 will be incredibly helpful
-揭示 COVID-19 的起源将非常有帮助
-
-and helping us to prepare for the next pandemic,
-并帮助我们为下一次大流行病做好准备
-
-which I think is something we can all agree on.
-我认为这是我们都同意的事情
-
-Thank you Mr Speaker, I yield back my time.
-谢谢议长先生，现在把我的时间还给你。
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接:[https://twitter.com/repmmm/status/1405908913799647233?s=24](https://twitter.com/repmmm/status/1405908913799647233?s=24)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

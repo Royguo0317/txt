@@ -1,43 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共绞肉机再次疯狂开动运转 政法系统全面倒查三十年
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1335874/)
+## 崔大屎和屎馆该如何抗议Kyle Bass的西台湾T恤
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1335929/)
 
-作者：台湾宝岛农场 快慢机｜素材：傅傅
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20012520/%E6%93%B7%E5%8F%96620.jpg)
-**政法系统倒查三十年，“假减暂”案浮出水面。**
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20014201/E4SLpe8XEAYEZ-j_%E5%89%AF%E6%9C%AC.jpg)
+据[Kyle Bass](https://twitter.com/Jkylebass)[@Jkylebass](https://twitter.com/Jkylebass) 于[上午8:04 · 2021年6月20日](https://twitter.com/Jkylebass/status/1406402531987701760)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-近日，中共中央政法委对外公布，对全境范围内公检法系统，展开的初步倒查三十年有关“假减暂”案件的筛查进度，目前已完成90%左右，一批重点案件正在进一步锁定侦办当中。
+Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai)and the Chinese embassy USA ! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@HuXijin\_GT](https://twitter.com/HuXijin_GT)Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
 
-司法腐败在中共国早已是人尽皆知、家喻户晓的“警风警戒”传统。中共的“以黑治国、以警治国“，在其早已腐败透底的政法系统内部，被演绎的可谓淋漓尽致。
+中文大意：为[@崔天凯大屎](https://twitter.com/AmbCuiTiankai) 和中国驻美国大使馆制作的令人惊叹的新 T 恤！ [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@胡叼盘](https://twitter.com/HuXijin_GT)最有趣的标题赢得一件衬衫！ [#台湾](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
 
-逼迁强拆、截访迫害、冤假错案、包庇涉黑等等无不被司法腐败及黑暗所笼罩。大陆民间流传的一句形容警民关系的话语，可谓精辟至极 —— 对于中共的警察，你是“交不透、得罪不起、又离不开”！
 
-中共的“以警治国”。警察几乎充斥着社会的每一处角落。每个人的从生到死，可以说几乎在其人生的各个阶段，都会不可避免的与警察产生交集。而司法系统的黑暗与腐败，便从始至终的影响着每一个，无法与之错峰而行的大陆同胞。
 
-“假减暂”相关案件的逐步筛查，仅仅是中共内部文革2.0的一个暖场环节而已。翻旧帐、人整人、互举报、表忠心等保留剧目，在如今高速信息化的互联网环境下，已然为中共的“绞肉机”，平添了更加便捷高效的运行条件。
+> Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) and the Chinese embassy USA 🇺🇸! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA?ref_src=twsrc%5Etfw) [@PDChina](https://twitter.com/PDChina?ref_src=twsrc%5Etfw) [@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw) Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/cYryHcpPAA](https://t.co/cYryHcpPAA)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 20, 2021](https://twitter.com/Jkylebass/status/1406402531987701760?ref_src=twsrc%5Etfw)
 
-**人人自危、人心惶惶。这笔陈年旧账，何时会算在自己的头上？**
 
-扫黑除恶是震慑民间。翻查旧帐是党内清洗翻脸。一朝君子一朝臣的道理自古有之，中共不仅完整的延续了这一规律，更把其包装演绎的愈加具有迷惑性。为了一己私欲，不惜血洗政敌，乃至连根拔起。宁可错杀一千，绝不能漏掉一个！是中共文革运动的核心所在。
 
-“兔死狗烹”！中共政法系统的这次所谓以倒查三十年为借口的反腐风暴，说白了就是中共高层内部激烈斗争结果的必然反应而已。自打进入到中共这个邪恶的魔鬼体制内，身不由己的站队拜码头便早已如命中注定。一旦派系山头失势之日，便是自己被株连九族之时。无一例外，只是时间早晚而已。
+推文所附图片为——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20013729/E4SLpe8XEAYEZ-j.jpg)
+中共暴政之下的西台湾人民苦秦久矣，这一次凯尔.巴斯先生直接@崔天凯大屎、@中国日报、@中共国驻美国大使馆、@胡叼盘等，把西台湾人民与独裁暴政集团区隔开来，作为西台湾人民的一员，在下甚感荣耀。只是不知道这些口口声声代表十四亿西台湾人民的怂货们该如何应对呢？
 
-如今中共的“绞肉机”又再次疯狂的开动运转，作为中共“刀把子”的政法系统竟被拿来首祭，这其中有多少要人头落地？又有几个能够独善其身？
+为避免这些怂货掩耳盗铃假装看不见特此广而告之，请中共国咬部、中共国驻美国大屎馆、中共国驻美国大屎崔天凯以及中共国胡叼盘开足马力、全力以赴回应凯尔.巴斯先生，别忘了十四亿西台湾人民在看着你们！
 
-此文仅代表笔者个人观点！
+（文章内容仅代表作者个人观点）
 
-[新闻链接](https://www.163.com/dy/article/GCJV10410514BF90.html)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-審核、校對╱早不稻仁｜發布╱little liu
-
-* * *
-
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-
-0
++1
