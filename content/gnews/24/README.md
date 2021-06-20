@@ -1,30 +1,94 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重庆自驾利川游客任性坠河所昭示的生和死之间的距离
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1336202/)
+## 【墙文推荐】丧钟为谁而鸣
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1336129/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20042312/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-22.png)
-据[lily \[email protected\]](https://twitter.com/lilyval15187063)于[下午1:11 · 2021年6月20日](https://twitter.com/lilyval15187063/status/1406479765419216896)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+**推荐者**：香草山美食部 新世界的一员
 
-良言难劝该死鬼，慈悲不度自绝人
+**推荐语**：微友是个传播真相的正义人士，总能一针见血的指出共产党的罪恶，他的文章像一把刀，刺向共匪，同时也能刺醒心智。
 
-
-
-> 良言难劝该死鬼，慈悲不度自绝人 [pic.twitter.com/uad1t0Bb79](https://t.co/uad1t0Bb79)
-> — lily valley (@lilyval15187063) [June 20, 2021](https://twitter.com/lilyval15187063/status/1406479765419216896?ref_src=twsrc%5Etfw)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
 
 
 
-生与死之间的距离是什么？它不是钱的距离，它与绳子的强度和村民的力量无关，生与死的距离只在一念之间，只要打开车门依次下车，哪怕鞋子和裤子会沾上泥巴，哪怕衣服会弄脏，可是在生死关头这些到底能算得了什么呢？在傲慢地等待中，本可以从容逃生的机会一分一秒地离去，最终，车上所有的人在傲慢和无知中走向不归路。
 
-在这一场全人类的命运和财富大重启面前，生与死之间的距离是你存不存粮的一念间，生与死的距离是你换不换美元的一念间，生与死的距离是你是否相信病毒是中共超限生物武器的一念间，生与死的距离是你能否听信劝告不去打中共疫苗的一念间。
 
-在正常的生老病死之外的生和死之间的距离是什么？它的距离就在一念之间，但是要跨越这一念之间的距离却不是轻而易举，因为这一念之间是信与不信的距离，横亘在这一念之间的不仅仅是防火墙，横亘在这一念之间的是认知的鸿沟。
+* * *
 
-（文章内容仅代表作者个人观点）
+* * *
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+如果一个人
+说出来的话
+连他自己都不信
+却总强迫别人去信
+你猜结果会怎样？
 
-+2
+如果一个部门
+说的全是好话
+做的全是坏事
+坚持说一套做一套
+你猜结果会怎样？
+
+大航海时代他们禁海
+大贸易时代他们禁商
+大数据时代他们禁网
+大民主时代他们禁言
+他们将你的肉身关进铁笼
+却无法锁住你自由的灵魂
+
+晚清百姓看上去傻傻的
+可是当八国联军教训清廷
+他们不但没有与之共克时艰
+反而争相带路扛梯
+每当清廷舰船被炮火击中
+围观群众就会爆发出雷鸣般欢呼
+
+天下苦秦久矣
+不要总责怪群众不信
+中国人再怎么勤劳也扛不起
+无数座血淋淋叠加的大山啊
+搜遍全世界再也找不到
+比他们更温驯的物种了
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20041600/image0-8-2.jpg)
+要怪就怪自己吧
+毫无人性的欺压
+毫无底线的掠夺
+过度收割是把双刃剑，当
+生长速度跟不上收割速度
+韭菜们只能无奈地乖乖躺平
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20041408/image0-34-1.jpg)
+
+丧钟为谁而鸣？
+围堵的号角已经吹响
+台上的演员还在吹拉弹唱
+台下的观众只剩一群傻子
+所有枉费心机的折腾
+不过是为了延长散场的时间
+
+（出于安全原因，本文暂时隐去原作者及原文来源信息）
+
+编辑/上传：遍地开花 审核/发布：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
+
+
+
+
+
+0
