@@ -1,38 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】数据说话：刺穿中共铁幕，GTV五月新闻媒体类排名第十
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1336484/)
+## 五角大楼采取行动对抗中共
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1336595/)
 
-撰稿：Skagen【㊙️翻Gnews原创组】
-责编：萌萌的朋克【㊙️翻Gnews原创组】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20074735/GTV5%E6%9C%88.jpg)
-图片素材来源/制作：Similarweb /Skagen
+新闻来源：《零对冲》| 作者：TYLER DURDEN | 发布时间：2021年6月17日
+翻译/简评：Victory | 校对：clau | 审核：小小妹 | Page：我是球大哥
 
-根据网站排名和竞争性数据分析平台SimilarWeb.com五月份的数据分析显示，GTV已经在中国“新闻媒体类”排名进入前10位，在“全球网站”排名中名列第780位， 在“国家排名”类中名列第58位，“国家排名”的意思是，Similarweb只列出在网站排名最好的国家，所以GTV排名是在中国最好。下图也说明了来自中国的IP地址访问GTV的量是最高的，占总访问量5576万的38.86%，占了近四成，而且达到了16%的增长。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20075054/202105GTV%E5%88%86%E6%9E%90country.jpg)
-这意味着，尽管有中共高高的防火墙，可是GTV依然穿越铁幕，战友们犹如亲身经历了一次二战宣传战，当独裁的共产政权封锁真相，用撒谎和宣传控制民众的时候，是GTV穿越地理边界，将真相传递给共产主义铁幕笼罩下的无数不知姓名、渴求真相的同胞。
+[!\[\]()!\[\](https://spark.adobe.com/page/q5QQfqfF2aA7R/images/eb4b756f-4a73-4fc5-89e4-e4dbf8802260.png?asset_id=0be41594-be07-41d8-9fef-31405efe3484&amp;img_etag=%226f4f65c134f4fc8b11bd445a8776864a%22&amp;size=1024)](https://spark.adobe.com/page/q5QQfqfF2aA7R/images/eb4b756f-4a73-4fc5-89e4-e4dbf8802260.png?asset_id=0be41594-be07-41d8-9fef-31405efe3484&amp;img_etag=%226f4f65c134f4fc8b11bd445a8776864a%22&amp;size=1024)
 
-没有对比就显不出实力，再看下面的数据告诉大家，什么是实力，吹牛的中共宣传媒体在数据面前原形毕露。
+美俄首脑在欧洲结束会谈，在一定程度上建立了战略互信，这等于在灭共道路上扫除了一个关键屏障，战略格局已经非常明郎。近期美国军方针对中共的部署在不断加强。本文报道的多国海军特遣队是强有力的措施，更重要的是，这是和美苏争霸时期的类似的部署。出台如此强力措施后，美国防部长依然表示现在做的还不够。
 
-《头条》很牛是吧？来看看与GTV的对比结果：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20075154/GTV-vs-Toutiao.jpg)
-再把胡锡进的《环球网》放出来，比划一下，这条狗今年怕是领不到狗粮了。养狗千日，就这样回报“党娘”吗？！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20075038/202105GTV-vs-huanqiu-.jpg)
-胡锡进都这样了，再看《中国日报》，由中共中央宣传部主办、直属国务院新闻办公室，成立于1981年、注册资金5000万的、双语的《中国日报》，在我们成立才1年的GTV面前又怎样呢？话不多说，上图：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20075137/GTV-vs-chinadaily.jpg)
-老胡领下半年狗粮时，可以拿《中国日报》作对比。
+话音未落，军方又有最新的行动：美国防部将从伊拉克、科威特、约旦和沙特阿拉伯等国撤出大约八套爱国者反导弹系统，还将从沙特撤出萨德(Terminal High-Altitude Area Defense, Thaad)反导系统，以及一个战斗机中队。这些军力将全部调遣到亚太地区。中共脖子上的绳子正在越勒越紧。
 
-最让人哭笑不得的是所谓的大外宣《博讯》，全球排名第2002767，出口转内销，中共国排名第129671名，媒体类排名第9466名，恭喜《博讯》总算进入第10000名以内！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20075623/202105GTV-vs-%E5%8D%9A%E8%AE%AF--1.jpg)
-吴征给《博讯》的钱都去哪了？习神您看看这数据。您怎么能相信韩正，说吴征此人多重要，党国离不开他，这真是天大的谎言，吴征把钱都装自己兜里，再帮着韩正养私生子藏钱，您真是被他们忽悠瘸了。
+**原文翻译：**
 
-战友们，喜欢看数据分析的，请点赞分享，最好把图贴到相关网站下面去！
+## 五角大楼考虑建立永久性海军特遣部队以对抗中共国
 
-参考链结：
+根据《政客》（Politico）的报道，五角大楼正在考虑为太平洋地区建立一支永久性的海军特遣部队，以对抗和反击中共国，中共国已被定为五角大楼的首要任务。
 
-[https://www.similarweb.com/](https://www.similarweb.com/)
+消息人士告诉《政客》，该计划将包括为太平洋地区创建一个命名的军事行动，使五角大楼能为海军在该地区的行动投入更多资金。
 
-（本文仅代表撰稿者个人观点）
+[!\[\]()!\[\](https://spark.adobe.com/page/q5QQfqfF2aA7R/images/f23ff932-d3f2-4d48-b0fa-17961a9496c2.jpg?asset_id=fdc8993e-faa0-4d5f-8bb8-a95878e5f04e&amp;img_etag=%228f065bca741742bfa41674b34cad2633%22&amp;size=2560)](https://spark.adobe.com/page/q5QQfqfF2aA7R/images/f23ff932-d3f2-4d48-b0fa-17961a9496c2.jpg?asset_id=fdc8993e-faa0-4d5f-8bb8-a95878e5f04e&amp;img_etag=%228f065bca741742bfa41674b34cad2633%22&amp;size=1024)
 
-+2
+《政客》的报道说，海军特遣部队将基于冷战时期北约的一种结构，即大西洋常设海军部队（SNFA），该部队成立于1968年，作为一种永久性的海军存在，可迅速应对大西洋的局势。SNFA通常由来自北约国家的大约6至10艘舰艇组成的轮换部队，在该地区航行。
+
+如果美国为太平洋地区建立这样一支海军部队，将很可能包括华盛顿的欧洲盟友以及日本和澳大利亚等区域盟友在内。
+
+这个想法来源于国防部长劳埃德•奥斯汀的特别顾问Ely Ratner领导的对五角大楼中共国政策的100天特别工作队的审查报告。
+
+拉特纳（Ratner）是一名中共国鹰派人士，来自干预主义的新美国安全中心智库。他被任命为该职位是为了安抚那些认为奥斯汀没有足够经验处理亚洲问题的中共鹰派人士。
+
+上周，奥斯汀命令五角大楼采纳中共国问题特别小组审查报告中建议的举措。大部分建议被保密，但奥斯汀的指令命令军方，要像中共国是美国面临的最大“威胁”一样，开始行动起来，而不是仅仅口头说说。
+
+一位美国官员告诉《国防一号》，该工作组发现五角大楼对中共国的说法和它正在采取的行动之间存在“说和做的差距”。
+
+[原文链接](https://www.zerohedge.com/geopolitical/pentagon-mulls-permanent-naval-task-force-counter-china?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/q5QQfqfF2aA7R/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/q5QQfqfF2aA7R/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+
+
+0

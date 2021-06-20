@@ -1,15 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年6月20日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1336808/)
+## 七日焦点新闻—儿童疫苗反人类，揭秘杨澜夫妇黑财富
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1336872/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+- 制作：视频组
 
-🙀🙀🙀
 
-[【2021年6月20日】文贵先生盖特原文](https://app.gettr.com/post/p143ly)
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-**喜联盟Gnews编辑部**
+**西班牙2021年6月20日电/西喜社——**
 
-0
+发稿：信心的选择
+
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+
++1

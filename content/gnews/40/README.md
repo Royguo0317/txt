@@ -1,12 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳洲热点】莫里森在中共国问题上得到七国集团领导人的 “强烈支持”
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1336390/)
+## 美前国家经济委员会副主任：中共国 &#8220;与国际规范脱节&#8221;
+` 澳喜农场多语组` [轉載自GNews](https://gnews.org/zh-hans/1336544/)
 
-听写翻译：小红帽
-校对：七彩光
-视频剪辑：Brave Heart
-字幕：七彩光
+原视频链接：
+[https://video.foxbusiness.com/v/6258799667001](https://video.foxbusiness.com/v/6258799667001)
 
 0
