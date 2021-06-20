@@ -1,50 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻速递】禁止主要竞争对手参选，拥有残酷人权记录的莱西当选伊朗新总统
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1334380/)
+## 福奇资助武汉实验室研究证据再曝光
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1336834/)
 
-作者：纽约香草山农场 | 写作4组 | Delilah小胖
+新闻来源：The National Pulse 《国家脉动》| 作者：NATALIE WINTERS| 发布时间： 2021年6月10日
+翻译/简评：suigintou| 校对：clau|审核：Beicy-数学老师 | Page：小六月
+
+[!\[\]()!\[\](https://spark.adobe.com/page/8wah6DFulMEdg/images/eb261b15-5a95-48e1-91cc-d365cfeaa339.jpg?asset_id=eee74d52-7855-4e7a-80f8-440f96235cdf&amp;img_etag=%229ddb613e4d44767984d0e98b6a9c4d76%22&amp;size=1024)](https://spark.adobe.com/page/8wah6DFulMEdg/images/eb261b15-5a95-48e1-91cc-d365cfeaa339.jpg?asset_id=eee74d52-7855-4e7a-80f8-440f96235cdf&amp;img_etag=%229ddb613e4d44767984d0e98b6a9c4d76%22&amp;size=1024)
+
+**简评：**
+
+2020年3月新冠病毒病毒爆发的初期，由生态健康联盟（EcoHealth Alliance）和中共控制的科学研究院和5所大学的“科学家们”撰写了一篇名为《中美生态学研究对全球新发传染病防范至关重要》的论文，内容自吹自擂，玩文字游戏，呼吁美国应与中共国合作预防下一次大流行病。
+
+如今在全球各国都逐渐认清中共的邪恶面目，福奇的“邮件门”被彻底曝光后，福奇及其科学界的马仔们试图撇清自己与资助过的武汉病毒研究所的关系，反而说明了他自身很清楚中共病毒的来源。互联网是有迹可循的，恶人们的罪行可不是一句“诋毁我就是诋毁科学”就能糊弄过去的，福奇必须下台，让我们持续关注以毒灭共的进展。
+
+**原文翻译：**
+
+## 独家: 当川普禁止中共国旅行时，福奇资助了武汉实验室的研究，呼吁“合作” 
+
+据《国家脉动》独家披露，华盛顿——在川普限制中共国赴美旅行时，安东尼·福奇博士的美国国家过敏和传染病研究所（NIAID）正在资助武汉病毒研究所研究人员的研习，推动美国政府和中国共产党之间更紧密的合作。
+
+2020年2月3日发表的题为《中美生态学研究对全球新发传染病防范至关重要》的论文，撰写自臭名昭著的生态健康联盟（EcoHealth Alliance）和几个由中共所管理的科学机构，包括武汉实验室在内的研究人员。
+
+生态健康联盟（EcoHealth Alliance）——由自称“杀手”病毒创造者彼得·达萨克（Peter Daszak）营运——和武汉实验室两者皆因作为创造新冠病毒的潜在角色以及对病毒真实来源的掩盖而受到越来越多的监视。
+
+这篇14页的论文是中共国和美国研究人员为期两年的合作项目的高潮，涉及2018年在中共国深圳和加州大学伯克利分校举办的两次“生态学及传染病的演变边疆”研讨会。
+
+“该研讨会有两个目标。”一份概要在解释之前指出：
+
+第一个目标是回顾生态学和传染病研究的最新的进展，并确认在数据、信息和知识方面的关键差距。第二个目标是确认研究的优先范围，并讨论在生态学和传染病的研究和教育活动中进行联合、国际合作的可能机制。
+
+这篇论文——发表在生态健康联盟的官方期刊《生态健康》（EcoHealth）上——宣称美国和中共国之间的合作是阻止未来大流行病的关键。
+
+文章中断定，“在国际合作中，特别是中共国与美国之间的合作，对于充分调动必要的资源和科学力量，在大流行病防备战略中增加这一生态重点是至关重要的”。
+
+“新发与再次爆发的传染病的全球性威胁表明了国际之间的合作至关重要。特别是由中共国与美国作为先锋的国际合作在新发传染病（Emerging Infectious Disease简称EID）预备中起着关键作用。”该论文在呼吁两国组成一个“研究的统一战线”前补充到：
+
+“如果中共国与美国在EID准备工作的研究和进展方面提供一个统一战线，那么世界将可以为遏制下一次大流行病有更好的预备。”
+
+该论文结论为：“鉴于中共国发达的科学基础设施、目前在基础科学上、病毒学以及生物技术方面的投资，中共国是未来全球卫生界进行疾病生态学培训方面重大投资的合理的目的地”。
+
+在现实中，许多科学家指出由纳税人资助的生态健康联盟及其武汉实验室合作伙伴之间的合作要为培育出新冠病毒而负责。该论文的几位作者是美国国立卫生研究院（National Institutes of Health简称NIH）的资助对象，包括一位是来自福奇博士的国家传染病过敏研究所的研究人员：
+
+- Heidi Brown 得到了美国国立卫生研究院国家过敏和传染病研究所的支持，奖项编号为K01AI101224；
+- Wayne M. Getz还得到了美国国立卫生研究院GM117617和美国国家科学基金会EEID 1617982的支持；
+- 以及Mike Boots还得到了美国国立卫生研究院GM122061和英国皇家科学院BB/1010879/1的支持。
+
+
+这篇由国家过敏和传染病研究所资助的论文还包括许多来自中国共产党控制下的机构的科学家。值得注意的是，石正丽——她因在武汉病毒研究所从事SARS类冠状病毒研究而被称为“蝙蝠女”——被列为共同作者。
+
+福奇博士最近在与参议员兰德·保罗的听证会上试图撇清自己曾经资助过她的实验。来自中共控制的中国科学院、中国疾病预防控制中心、教育部和五所大学的研究人员也是共同作者。
+
+[原文链接](https://thenationalpulse.com/exclusive/fauci-funded-paper-called-for-ccp-collaboration/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/8wah6DFulMEdg/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/8wah6DFulMEdg/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
-
-
-
-据美国有线新闻网CNN报道，拥有残酷人权记录的强硬司法主管易卜拉欣·莱希（Ebrahim Raisi ）赢得了伊朗有争议的总统选举。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19101420/merlin_189460158_ccc7044d-9249-420a-b7ad-ce255e8a63cc-jumbo.jpeg)易卜拉欣·莱希（Ebrahim Raisi）（中左）。图片来源：纽约时报
-莱西的当选，是在伊朗的选举监督机构禁止了他的所有主要竞争对手参加竞选后获得的。目前尚无报道禁止竞争对手参选的手段和依据是什么。
-
-这次伊朗大选，实质上并未得到伊朗民众的广泛参与和支持。据CNN报道称，其计票数达到90%后，选民投票率约为48%。即便与伊朗自身的2017年的投票率超过7成相比，参加本次选举的选民仍要少的很多。但是，选举结果已经成定局。新总统将在45天内正式上任。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19101957/210618155535-07-iran-election-day-0618-exlarge-169.jpeg)禁止了主要竞争对手参选后的投票场景。图片来源：CNN
-莱西目前因严重违反人权正受到来自美国和欧盟的制裁。据《纽约时报》今晨（2021年6月19日）报道，当选的莱西“被指控在1980年代将数千名政治犯送死，并在2009年和2019年对反政府抗议的致命镇压中发挥了作用”。莱西“自20岁起”“就一直在发布执行令和监禁判决”。
-
-尽管可以靠禁止主要竞争对手参选，但是在全球新冠病毒大流行病的前提下，莱西政府也躲不过如何抗击中共新冠病毒疫情，以及如何解决因Covid-19大流行而加剧的经济危机。同时，面对美国与伊朗的核谈判的挑战。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19101803/merlin_178938048_98ce110e-b806-4d7a-9b67-4e52e97ed2a6-jumbo.jpeg)2020年德黑兰的一家购物中心外。
-赖西的反对者担心他会逐渐加大社会压迫和限制。图片来源：纽约时报
-莱西不主张与西方民主社会接触。莱西的当选获得了俄罗斯和中共国的祝贺。但是，在中共国的祝贺当中，除了“正面报道”外，并没有提及其残酷的人权历史，以及其排斥主要竞争对手的当选手段，中共墙内媒体引用的外媒报道，也都把这些“负面”的细节屏蔽掉了。
-
-参考来源：
-
-[极端保守的司法部长易卜拉欣·赖西在伊朗总统选举中赢得历史低投票率](https://www.cnn.com/2021/06/19/middleeast/ebrahim-raisi-iran-election-intl-hnk/index.html)
-
-[伊朗总统选民的一块障碍：他在美国制裁清单上](https://www.nytimes.com/2021/06/19/world/ebrahim-raisi-iran-president.html)
-
-校对/发稿：火内
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-+1
+0

@@ -1,43 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全球电玩业崛起，开启中国特色盗版全产业链
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1336648/)
+## 【新闻速递】禁止主要竞争对手参选，拥有残酷人权记录的莱西当选伊朗新总统
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1334380/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20093816/0%E4%BA%91%E5%BC%AF.png)
-作者：文名｜校对/审核：Julia Win
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20094620/0-%E5%B0%81.jpg)
-
-GTV链接：[【🇬🇧英喜庄园】隆重推出GTV独家最新节目《游戏人生》第1期：全球电玩业崛起，开启中国特色盗版全产业链](https://gtv.org/broadcast/watch/60c1f0c18ce6da73c417fdf6)
-
-您还记得小时候玩的游戏吗？您还记得逃课钻游戏厅的经历吗？您还记得网吧包夜的感觉吗？
-
-游戏小哥作为专业的游戏业内人士，在本期节目中为我们详细讲解关于游戏的起源、发展和未来：
-
-- 1952年世界上第一个电子游戏诞生，之后发展出街机、FC红白机、PC到现在的VR。
-- 电子游戏发展的里程碑，包括吃豆人、坦克大战、超级玛丽、街头霸王、古墓丽影、半条命、红警、CS等游戏。
-- 游戏业巨头雅达利因游戏掩埋事件而一蹶不振。
-- 改革开放，游戏被引进中共国。但由于老百姓当时一年工资买不起一个游戏机，带动了盗版事业的发展。
-- 山寨事业中的王中王小霸王的兴衰史。
-- 游戏开发在中共国属于软件开发，而不是艺术、娱乐类。实际上游戏是跨行业，被称为第九艺术，涵盖音乐、美术、编剧、编程等领域。
-- 中国人才众多，游戏业却遭遇瓶颈。问题不在于人才和技术，而是中共体制的问题。
-- 中共社论批评游戏玩物丧志，是精神鸦片。建议引入欧美分级制度，家长正确引导，使游戏产生积极影响。
+作者：纽约香草山农场 | 写作4组 | Delilah小胖
 
 
-敬请收看系列节目，嘉宾游戏小哥、牆倒衆人踩，主持人雲影，每周四在GTV-UK-1号台与您不见不散！
 
-[更多内容敬请关注云弯说未来盖特](https://app.gettr.com/user/yunwanfuture)
-
-*文章仅代表作者观点*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+据美国有线新闻网CNN报道，拥有残酷人权记录的强硬司法主管易卜拉欣·莱希（Ebrahim Raisi ）赢得了伊朗有争议的总统选举。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19101420/merlin_189460158_ccc7044d-9249-420a-b7ad-ce255e8a63cc-jumbo.jpeg)易卜拉欣·莱希（Ebrahim Raisi）（中左）。图片来源：纽约时报
+莱西的当选，是在伊朗的选举监督机构禁止了他的所有主要竞争对手参加竞选后获得的。目前尚无报道禁止竞争对手参选的手段和依据是什么。
 
-0
+这次伊朗大选，实质上并未得到伊朗民众的广泛参与和支持。据CNN报道称，其计票数达到90%后，选民投票率约为48%。即便与伊朗自身的2017年的投票率超过7成相比，参加本次选举的选民仍要少的很多。但是，选举结果已经成定局。新总统将在45天内正式上任。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19101957/210618155535-07-iran-election-day-0618-exlarge-169.jpeg)禁止了主要竞争对手参选后的投票场景。图片来源：CNN
+莱西目前因严重违反人权正受到来自美国和欧盟的制裁。据《纽约时报》今晨（2021年6月19日）报道，当选的莱西“被指控在1980年代将数千名政治犯送死，并在2009年和2019年对反政府抗议的致命镇压中发挥了作用”。莱西“自20岁起”“就一直在发布执行令和监禁判决”。
+
+尽管可以靠禁止主要竞争对手参选，但是在全球新冠病毒大流行病的前提下，莱西政府也躲不过如何抗击中共新冠病毒疫情，以及如何解决因Covid-19大流行而加剧的经济危机。同时，面对美国与伊朗的核谈判的挑战。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19101803/merlin_178938048_98ce110e-b806-4d7a-9b67-4e52e97ed2a6-jumbo.jpeg)2020年德黑兰的一家购物中心外。
+赖西的反对者担心他会逐渐加大社会压迫和限制。图片来源：纽约时报
+莱西不主张与西方民主社会接触。莱西的当选获得了俄罗斯和中共国的祝贺。但是，在中共国的祝贺当中，除了“正面报道”外，并没有提及其残酷的人权历史，以及其排斥主要竞争对手的当选手段，中共墙内媒体引用的外媒报道，也都把这些“负面”的细节屏蔽掉了。
+
+参考来源：
+
+[极端保守的司法部长易卜拉欣·赖西在伊朗总统选举中赢得历史低投票率](https://www.cnn.com/2021/06/19/middleeast/ebrahim-raisi-iran-election-intl-hnk/index.html)
+
+[伊朗总统选民的一块障碍：他在美国制裁清单上](https://www.nytimes.com/2021/06/19/world/ebrahim-raisi-iran-president.html)
+
+校对/发稿：火内
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场****GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场****GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场****Twitter(****英文****)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
++1

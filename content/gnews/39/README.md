@@ -1,31 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 匈牙利总理奥尔班想推翻欧盟议会
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1336316/)
+## Delta变体在德国继续增加
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1336419/)
 
-信息来源：德国镜报网络版 
-发布时间：2021年6月19日
+信息来源：德国世界报网络版 
+发布时间：2021年6月18日
 翻译 /整理/ 简评： Shuizhuyu
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20063312/b7c7a4a7-83c2-4db6-b49a-221e5478e921_w948_r1.77_fpx30_fpy45.jpg)
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22142112/bermix-studio-yWYiNNK_tOI-unsplash-scaled.jpg)
 
 
-图片来源： 路透社
+病毒变种 Alpha 使冬季难以控制大流行。她更具传染性。 delta 变体的比例现在在德国略有增加。是否有第四波的威胁？一位免疫学家警告说“不要鲁莽解封”。
 
-匈牙利右翼民族主义总理奥尔班再次挑战欧盟。欧洲议会的权力应受到相当大的限制，其组成应由主要国家决定。
+在印度发现的冠状病毒变种 Delta 在一周内显着增加了其在德国新感染 Sars-CoV-2 的比例。根据罗伯特科赫研究所 (RKI) 的最新报告，在第 22 个日历周（5 月 31 日至 6 月 6 日）中，这一比例为 6.2%，但仍然相对罕见。
 
-反对同性恋的审查法，要求停止所有移民，现在是对欧盟机构的攻击：匈牙利右翼国家总理维克多·奥尔班在几天内再次加强了对欧洲的对抗路线。周六在布达佩斯的一次演讲中，奥尔班宣布他想限制欧盟议会的权力。
+在前一周（第 21 周），所检查样本中的 delta 变体比例为 3.7%。每周RKI 会评估，报告被归类为令人担忧的病毒变体的比例。
 
-奥尔班在讲话中要求，如果欧盟国家议会认为可能违反国家权限范围，则应赋予其停止欧盟议会立法程序的权利。
+“我们必须小心”，对于多特蒙德免疫学家 Carsten Watzl 来说，仅 delta 变体的显着增加并不能预示第四波即将到来。他在推特上写道：“但我们必须小心，不要因为鲁莽的开场而再次上升。” Watzl 根据较小的数据收集估计，目前德国的 delta 变体比例已经超过 10%。
 
-“在欧洲民主的标准方面，欧盟议会已被证明是一个死胡同，”奥尔班说。根据欧洲委员会议会大会的模式，他认为应该允许各国议会向欧盟议会派代表。
-
-简评： 匈牙利曾经是共产阵营的一名主要成员。 在欧盟对中共国的讨论中是唯一个 对欧盟冷藏对中共的投资协定的投反对票的国家。 也是唯一一个不顾欧盟反对采购中共疫苗的国家。 说到这里， 大家对匈牙利应该有自己的判断了。 现在匈牙利的总理再次挑战欧盟， 无疑是欧盟的一个大麻烦，欧盟如何应对奥尔班的这番言论， 相信后续会在欧盟议会进行讨论。
+简评： 不解决病毒的根源， 不追踪病毒真相， 不向中共追责， 病毒的扩散和变异可能永远不能遏制。 中共有解药， 灭掉中共就可以免除病毒的伤害。 全世界已经有3百多万人因为中共病毒丧生。 而病毒并没有缓解的迹象。 找中共追解药是唯一方式。
 
 免责声明， 本文只代表作者观点， 与 Gnews平台无关。
 发表： Shuizhuyu
 
-🔗[viktor-orban-ungarns-regierungschef-will-eu-parlament-entmachten](https://www.spiegel.de/ausland/viktor-orban-ungarns-regierungschef-will-eu-parlament-entmachten-a-a9d5a65d-84be-42d5-a4b1-ed9b8312e71f)
+🔗[Delta-Variante-Zunahme-in-Deutschland-Droht-damit-eine-vierte-Welle](https://www.welt.de/politik/deutschland/article231893385/Delta-Variante-Zunahme-in-Deutschland-Droht-damit-eine-vierte-Welle.html)
 
-+1
+0

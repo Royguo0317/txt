@@ -1,38 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】数据说话：刺穿中共铁幕，GTV五月新闻媒体类排名第十
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1336484/)
+## 中共用生物武器攻击了全球，美将军却说中共不会打台湾
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1336562/)
 
-撰稿：Skagen【㊙️翻Gnews原创组】
-责编：萌萌的朋克【㊙️翻Gnews原创组】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20074735/GTV5%E6%9C%88.jpg)
-图片素材来源/制作：Similarweb /Skagen
+新闻来源：《零对冲》| 作者：TYLER DURDEN | 发布时间：2021年6月18日
+翻译/简评：叶知秋（文义） | 校对：SilverSpurs7 | 审核：小小妹 | Page：我是球大哥
 
-根据网站排名和竞争性数据分析平台SimilarWeb.com五月份的数据分析显示，GTV已经在中国“新闻媒体类”排名进入前10位，在“全球网站”排名中名列第780位， 在“国家排名”类中名列第58位，“国家排名”的意思是，Similarweb只列出在网站排名最好的国家，所以GTV排名是在中国最好。下图也说明了来自中国的IP地址访问GTV的量是最高的，占总访问量5576万的38.86%，占了近四成，而且达到了16%的增长。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20075054/202105GTV%E5%88%86%E6%9E%90country.jpg)
-这意味着，尽管有中共高高的防火墙，可是GTV依然穿越铁幕，战友们犹如亲身经历了一次二战宣传战，当独裁的共产政权封锁真相，用撒谎和宣传控制民众的时候，是GTV穿越地理边界，将真相传递给共产主义铁幕笼罩下的无数不知姓名、渴求真相的同胞。
+[!\[\]()!\[\](https://spark.adobe.com/page/06eO7rnCQgKfJ/images/e0c34fac-ca33-4212-9d96-00d94a118f62.png?asset_id=6076529f-0182-4256-8e70-99b7380bafd1&amp;img_etag=%22e46252d132947ea0e43f4ac45d891766%22&amp;size=1024)](https://spark.adobe.com/page/06eO7rnCQgKfJ/images/e0c34fac-ca33-4212-9d96-00d94a118f62.png?asset_id=6076529f-0182-4256-8e70-99b7380bafd1&amp;img_etag=%22e46252d132947ea0e43f4ac45d891766%22&amp;size=1024)
 
-没有对比就显不出实力，再看下面的数据告诉大家，什么是实力，吹牛的中共宣传媒体在数据面前原形毕露。
+本篇报道提到的参谋长联席会议主席马克·米利将军的观点是“中共国具备攻打台湾的能力，但是，还没到打台湾的时候”。不过，今年3月份，新任美国印太司令部司令阿奎利诺曾在参议院提名听证会上表示，中共国入侵台湾的威胁是严重的，要比许多人所理解的更迫在眉睫。
 
-《头条》很牛是吧？来看看与GTV的对比结果：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20075154/GTV-vs-Toutiao.jpg)
-再把胡锡进的《环球网》放出来，比划一下，这条狗今年怕是领不到狗粮了。养狗千日，就这样回报“党娘”吗？！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20075038/202105GTV-vs-huanqiu-.jpg)
-胡锡进都这样了，再看《中国日报》，由中共中央宣传部主办、直属国务院新闻办公室，成立于1981年、注册资金5000万的、双语的《中国日报》，在我们成立才1年的GTV面前又怎样呢？话不多说，上图：
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20075137/GTV-vs-chinadaily.jpg)
-老胡领下半年狗粮时，可以拿《中国日报》作对比。
+同是美军高层，出现这种观点上的冲突，原因应该是多方面的。中共国与美国之间的军事实力相距很远，这是不争的事实，中共国要攻打台湾也势必会顾忌到日本和美国的动作。但是，中共就这样静悄悄地释放了新冠病毒超限生化武器攻击了全世界，到如今夺走了超过380万人的生命，这一举动会有哪个将军预料到了？中共在美国渗透多少年，如今都可以参与窃取美国总统大选的行动，这个事情，又有多少专家预料到了呢？
 
-最让人哭笑不得的是所谓的大外宣《博讯》，全球排名第2002767，出口转内销，中共国排名第129671名，媒体类排名第9466名，恭喜《博讯》总算进入第10000名以内！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20075623/202105GTV-vs-%E5%8D%9A%E8%AE%AF--1.jpg)
-吴征给《博讯》的钱都去哪了？习神您看看这数据。您怎么能相信韩正，说吴征此人多重要，党国离不开他，这真是天大的谎言，吴征把钱都装自己兜里，再帮着韩正养私生子藏钱，您真是被他们忽悠瘸了。
+中共政权的思维是邪恶的，他们能做出的举动也是反人性的。中共已经利用了新冠病毒生物武器攻击了全世界，世界已经处在战争中，为了把世界搞乱，缓解来自世界各国追究中共病毒真相的压力，以最快速度攻击并拿下台湾，做垂死挣扎必然是他们的一个选项，或者至少是独裁者习近平的一个选项。
 
-战友们，喜欢看数据分析的，请点赞分享，最好把图贴到相关网站下面去！
+美军高层如果因为军事拨款的问题或者因为军火工业利益的问题发出不同的声音可以理解，但是在实际行动上，不应该有丝毫懈怠。包括台湾自己，对中共这个邪恶政权，应该随时保持警惕性，因为中国共产党是一个没有人性、没有底线的犯罪集团。
 
-参考链结：
+**原文翻译：**
 
-[https://www.similarweb.com/](https://www.similarweb.com/)
+## 米利将军说中国在拿下台湾之前还有“路要走”
 
-（本文仅代表撰稿者个人观点）
+尽管围绕中共国可能入侵台湾的炒作不断，参谋长联席会议主席马克·米利将军认为，中共国在发展夺取台湾岛的能力方面有“路要走”。
 
-+2
+“我的评估是，就能力而言，我认为中共国有办法发展实际的、不开玩笑的能力，通过军事手段夺取整个台湾岛，如果他们想这样做的话，还有一段路要走。”米利周四告诉参议院拨款委员会。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/06eO7rnCQgKfJ/images/5f2350a6-6961-443d-89b1-f1544c00d91a.jpg?asset_id=7eed45b5-6188-4d97-a0a2-b576357c6205&amp;img_etag=%223e204373f1cec4504fd94fdd3449e0a3%22&amp;size=1024)](https://spark.adobe.com/page/06eO7rnCQgKfJ/images/5f2350a6-6961-443d-89b1-f1544c00d91a.jpg?asset_id=7eed45b5-6188-4d97-a0a2-b576357c6205&amp;img_etag=%223e204373f1cec4504fd94fdd3449e0a3%22&amp;size=1024)美国陆军上将马克·米利 盖蒂图片社
+
+米利说他不相信中共国会在短期内试图夺取台湾。“我认为现在没有什么意图或动机在军事上这样做。也没有理由在军事上这样做，而且他们知道这一点。所以，我认为在当下和短期的未来，这种可能性可能很低。”他说。
+
+同样在周四，一名国务院官员吹捧美国和台湾的“豪猪”战略。“豪猪”做法的想法是继续武装台湾，以使中共国通过武力夺取台湾的成本变得越来越大。这一战略对美国军火工业来说是个好兆头。
+
+台湾最近签署了价值17.5亿美元的合同，购买洛克希德·马丁公司制造的火箭系统和波音公司制造的导弹系统。去年10月，川普政府批准了这批武器销售。
+
+台湾政府和美国武器制造商在华盛顿资助了许多相同的智库。例如，鹰派的“新美国安全中心”(CNAS)智库从美国大多数主要武器制造商以及台湾驻华盛顿事实上的大使馆“台北经济文化代表处”获得资金。
+
+五角大楼最近完成了对其中共国政策的为期100天的特遣队(Task force)审查，该审查由前“新美国安全中心”(CNAS)雇员埃利·拉特纳(Ely Ratner)领导，他被任命为前雷神公司雇员国防部长劳埃德·奥斯汀(Lloyd Austin)的特别顾问。虽然特遣队(Task force)的大部分建议都保密，但可以肯定的是，它呼吁保持继续武装台湾的惯例。
+
+[原文链接](https://www.zerohedge.com/geopolitical/gen-milley-says-china-has-ways-go-it-can-take-taiwan?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/06eO7rnCQgKfJ/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/06eO7rnCQgKfJ/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+
+
+0
