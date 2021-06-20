@@ -1,31 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 乌干达代表团出现首个参加东京奥运会染疫者
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1335884/)
+## 崔大屎和屎馆该如何抗议Kyle Bass的西台湾T恤
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1335929/)
 
-俄罗斯莫斯科喀秋莎农场 奥法
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20014201/E4SLpe8XEAYEZ-j_%E5%89%AF%E6%9C%AC.jpg)
+据[Kyle Bass](https://twitter.com/Jkylebass)[@Jkylebass](https://twitter.com/Jkylebass) 于[上午8:04 · 2021年6月20日](https://twitter.com/Jkylebass/status/1406402531987701760)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20012953/J-5.jpg)excite.co.jp
-据日本FNN Prime Online新闻6月19日报道，当天抵达日本成田机场的参加东京奥运会的乌干达代表团的一名成员，被确认为CCP病毒阳性。
+Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai)and the Chinese embassy USA ! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@HuXijin\_GT](https://twitter.com/HuXijin_GT)Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
 
-这是第二支来日本参加比赛的海外团队，但这是第一次确认有CCP病毒感染者。
+中文大意：为[@崔天凯大屎](https://twitter.com/AmbCuiTiankai) 和中国驻美国大使馆制作的令人惊叹的新 T 恤！ [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@胡叼盘](https://twitter.com/HuXijin_GT)最有趣的标题赢得一件衬衫！ [#台湾](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
 
-据政府官员称，9名乌干达运动员在机场接受了抗原检测，其中一名未检测为阴性，之后的PCR检测证实为阳性。
 
-据知情人士透露，被确认为阳性的人未被确定是运动员还是工作人员，已在检疫站指定的酒店被隔离。
 
-20日凌晨1点前，一辆载有乌干达选手的大巴从成田机场出发。剩下的8名代表团员将前往他们参加比赛的主办城市大阪・泉佐野市，并将在中午前抵达。
+> Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) and the Chinese embassy USA 🇺🇸! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA?ref_src=twsrc%5Etfw) [@PDChina](https://twitter.com/PDChina?ref_src=twsrc%5Etfw) [@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw) Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/cYryHcpPAA](https://t.co/cYryHcpPAA)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 20, 2021](https://twitter.com/Jkylebass/status/1406402531987701760?ref_src=twsrc%5Etfw)
 
-评论：备受争议的日本奥运会还是在日本民众的焦虑中迎来了海外代表团，在仅第二个到达的9人团队中就发现了CCP病毒感染者，这不得不让人担心后续到来的团队中将出现更多的感染者登陆日本。即使这些感染者会被隔离，与他们同行的人员中是否有已被感染但测试尚不能被发现的感染者呢？这会不会导致东京奥运会举办之后的另一波疫情爆发呢？
 
-日本的疫情不像其他西方国家那么严重，其中一个原因是由于日本国民平时比较重视防护。然而，日本作为亚洲对抗中共的第一线国家，尤其是美日联防保护台湾的首要同盟国，必定被中共瞄准作为超限生物战的对象。随着奥运会的临近，各国代表团都将来到日本，这给了中共一个很好的投放病毒的机会。
 
-文贵先生之前说过，日本的经济在奥运前或者奥运会后将有大的动荡，想必这也和病毒有关。希望日本的文明程度和以人为本的制度能够经受住这一次考验，也希望所有在日华人和爆料革命的战友们远离病毒，平安度过这一关。
+推文所附图片为——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20013729/E4SLpe8XEAYEZ-j.jpg)
+中共暴政之下的西台湾人民苦秦久矣，这一次凯尔.巴斯先生直接@崔天凯大屎、@中国日报、@中共国驻美国大使馆、@胡叼盘等，把西台湾人民与独裁暴政集团区隔开来，作为西台湾人民的一员，在下甚感荣耀。只是不知道这些口口声声代表十四亿西台湾人民的怂货们该如何应对呢？
 
-原文链接：
+为避免这些怂货掩耳盗铃假装看不见特此广而告之，请中共国咬部、中共国驻美国大屎馆、中共国驻美国大屎崔天凯以及中共国胡叼盘开足马力、全力以赴回应凯尔.巴斯先生，别忘了十四亿西台湾人民在看着你们！
 
-[https://www.fnn.jp/articles/-/198706](https://www.fnn.jp/articles/-/198706)
+（文章内容仅代表作者个人观点）
 
-0
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+
++1

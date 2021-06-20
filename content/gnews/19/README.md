@@ -1,32 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 崔大屎和屎馆该如何抗议Kyle Bass的西台湾T恤
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1335929/)
+## 【G时评】叛逃有两种姿势：被迫害或者被觉醒
+` GISELLE` [轉載自GNews](https://gnews.org/zh-hans/1335937/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20014201/E4SLpe8XEAYEZ-j_%E5%89%AF%E6%9C%AC.jpg)
-据[Kyle Bass](https://twitter.com/Jkylebass)[@Jkylebass](https://twitter.com/Jkylebass) 于[上午8:04 · 2021年6月20日](https://twitter.com/Jkylebass/status/1406402531987701760)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+**作者：Giselle**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20015816/%E8%93%9D%E6%A9%99%E5%96%87%E5%8F%AD%E8%81%8C%E4%B8%9A%E6%95%99%E8%82%B2%E6%B4%BB%E5%8A%A8%E5%B0%81%E9%9D%A2.png)
+1，**根据凤凰网新闻，截至6月20日，全球新冠病毒疫苗接种累计已达21.3亿剂，其中中共国累计接种9.9亿剂。**
 
-Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai)and the Chinese embassy USA ! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@HuXijin\_GT](https://twitter.com/HuXijin_GT)Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
+——当我们还在为病毒是来源于自然，还是来源于实验室的时候，毒疫苗正在合法地、大面积地、加速地收割生命与健康。
 
-中文大意：为[@崔天凯大屎](https://twitter.com/AmbCuiTiankai) 和中国驻美国大使馆制作的令人惊叹的新 T 恤！ [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@胡叼盘](https://twitter.com/HuXijin_GT)最有趣的标题赢得一件衬衫！ [#台湾](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
+世界正在被黑暗侵蚀，传播真相，是我们每一个人都能做到的。
 
+不要停止，不要停止！
 
+2，**劳伦斯·塞林博士：当亚利桑那州、乔治亚州、宾夕法尼亚州、威斯康星州和密歇根州的选举审计完成后，川普将再次成为美国总统。它再也无法被阻挡。美国的爱国者们会看到的。**
 
-> Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) and the Chinese embassy USA 🇺🇸! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA?ref_src=twsrc%5Etfw) [@PDChina](https://twitter.com/PDChina?ref_src=twsrc%5Etfw) [@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw) Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/cYryHcpPAA](https://t.co/cYryHcpPAA)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 20, 2021](https://twitter.com/Jkylebass/status/1406402531987701760?ref_src=twsrc%5Etfw)
+——那是必须的！必然的！美国的法律不是一纸空文！
 
+川大侠，你必须赢！不只是为自己，更是为了自由、公平、正义，还有亿万个正在被病毒、疫苗谋杀的生命。
 
+3，**美国媒体爆料：中共国安副部长董经纬出逃美国，是最高级别的中共叛逃者，你怎么看？**
 
-推文所附图片为——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20013729/E4SLpe8XEAYEZ-j.jpg)
-中共暴政之下的西台湾人民苦秦久矣，这一次凯尔.巴斯先生直接@崔天凯大屎、@中国日报、@中共国驻美国大使馆、@胡叼盘等，把西台湾人民与独裁暴政集团区隔开来，作为西台湾人民的一员，在下甚感荣耀。只是不知道这些口口声声代表十四亿西台湾人民的怂货们该如何应对呢？
+——咱先不谈这事是否是真的，因为目前没有足够的证据证明。
 
-为避免这些怂货掩耳盗铃假装看不见特此广而告之，请中共国咬部、中共国驻美国大屎馆、中共国驻美国大屎崔天凯以及中共国胡叼盘开足马力、全力以赴回应凯尔.巴斯先生，别忘了十四亿西台湾人民在看着你们！
+叛逃有几种姿势：被迫害，或者被觉醒。董的职务，比较符合觉醒族。
 
-（文章内容仅代表作者个人观点）
+董的国安、反恐、情报经历，决定了他比一般政要更了解中共的黑暗，同时也知道出逃后如何保全自己。
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+闫博士的前夫，为何在得知妻子决定出逃美国前很恐慌，甚至起了杀妻之心？正是因为他深知中共很邪恶、很强大，以中共在美国的布局，闫博士就算逃出去了，也不一定能活下来。因为他没有董经纬的工作经历，没有保全自己的能力，所以他恐慌，最后沦为中共的棋子。
+
+4，**墙内媒体大肆宣传中共科学家完成“全球首例”公老鼠怀孕产子实验，被网友批评：能不能干点人事。**
+
+——生育率下降，韭菜不够割，这是想让男人来怀孕？
+
+5，**6月19日，深圳、广州、珠海、东莞均发布疫情通告，严控当地人员和车辆的流动。所有从深圳机场、火车站、汽车站、码头等交通站场离深出省的旅客，均须出具“健康码”绿码及48小时内核酸检测阴性证明。**
+
+——广东最富四城市“沦陷”，进入“半封省”状态。先把经济最发达、思想最开放的群体控制起来。
+
+“疫情蔓延”也是政治需要。中共国三大经济圈：珠三角、长三角、环渤海……接下来是哪里？
+
+（**文章内容仅代表作者个人观点）**
+
+【**相关链接】**
+
+[https://news.ifeng.com/c/special/85mhVvWS5i4](https://news.ifeng.com/c/special/85mhVvWS5i4)
 
 +1
