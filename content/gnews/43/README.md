@@ -1,45 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】中国共产党是一群淫荡、肮脏、无耻的流氓！
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1335602/)
+## Covid-19起源、中国共产党知道以及世界卫生组织进行彻底认真调查
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1335697/)
 
-作者：纽约香草山翻译部 文睿
+**字幕内容：**
 
+Rep. Mariannette Miller – Meeks (R-Iowa)
+众议员玛丽安内特米勒 – 米克斯(共和党-爱荷华州)
 
+I asked unanimous consent to address the house for one minute
+我要求一致同意在众议院发言一分钟
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+and to revise and extend my remarks.
+并修改和扩展我的评论
 
+Mr. Speaker
+议长先生
 
+Without objection the gentlewoman from Iowa was recognized for one minute.
+无异议，来自爱荷华州的女士被给予一分钟
 
-接下来要讲述的是我个人的亲身经历。80年代末，我在北京上大学的时候，我的一个同学的妹妹是北京舞蹈学校的学生。他妹妹和班上的女同学每个星期五晚上都被派来的车接到中南海，去跟中国共产党的最高领导人跳舞。他告诉我说，已故的副总理李先念最愿意和年轻漂亮的女孩儿跳舞，一跳就是一个通宵！他妹妹说，有时候不想去也不行，因为领导告诉她们，这是必须完成的任务。领导还提醒她们说，和党的最高领导人跳舞是光荣的，只有党的领导人高兴了、休息好了，才能为中国人民带来更多的幸福！
+Rep. Mariannette Miller – Meeks
+众议员玛丽安内特米勒 – 米克斯
 
-如果生长在中（共）国，从幼儿园起，你受到的教育就是中国共产党永远是伟大、光荣、正确的。他们告诉你，“爹亲娘亲不如党亲”。随着你的成长，你会被驯服为忠于党且为党自我牺牲的人。不幸的是，如今很多的国人都被彻底洗脑，而且完全相信了共产党的谎言。与此同时，他们并不知道共产党的官员们过着奢华的生活，有着自己的特供商店。相反的，国内的老百姓却过着连基本的食品、肉类和食油都有可能实行供给制的生活。你永远不会知道，“敬爱的”共产党领导们在周末奴役你的女儿们或者姐妹们，将她们作为舞伴，用来寻欢作乐。
+Thank you Mr Chair, Mr Speaker.
+谢谢主席先生，议长先生
 
-觉醒吧，中国同胞们！让我们一起奋战，推翻中国共产党，成为一名骄傲的新中国联邦人！
+I rise today to address an incredibly important national security issue.
+我今天提起一个极其重要的国家安全问题
 
-（本文仅代表作者观点）
+We all know that Wuhan China,
+众所周知中国武汉
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
+where the COVID-19 virus originated,
+COVID-19 病毒的爆发起源地
 
-编辑/校对/发稿：Irene木木
+is the home to the Wuhan Institute of Virology
+它也是武汉病毒学研究所的所在地
 
-**更多资讯，更多关注**
+The WIV is China’s only cellular level 4 biosafety super laboratory
+武汉病毒学研究所是中共国唯一的细胞4级生物安全超级实验室
 
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+that researches human infectious diseases
+研究人类传染病的
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+This lab is in very close proximity to the wet market
+这个实验室非常靠近海鲜农贸市场
 
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
+that is reputed to be the origin of COVID-19
+该农贸市场曾被认为是 COVID-19 的起源地
 
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
+last year Senator Tom Cotton was thoroughly dismissed for questioning
+去年参议员汤姆·科顿因质疑这种病毒的
 
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+the true origins of this virus
+真正来源而被彻底驳回
 
+signing the Chinese Communist Party’s duplicity and dishonesty from the very beginning.
+显示了中国共产党一开始的两面派和不诚实
 
+We all know that the Chinese Communist Party lied to the world
+众所周知，中共对世界撒谎
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
+about the severity of COVID-19
+关于 COVID-19 的严重性
 
+how it is transmitted, and the dangers associated,
+它是如何传播的，以及相关的危险
 
+there needs to be a thorough and serious investigation into the origins of COVID-19
+我们需要对 COVID-19 的起源进行彻底而认真的调查
 
-+1
+what the Chinese Communist Party knew and when,
+中国共产党知道什么？什么时候知道的？
+
+and what the World Health Organization knew and when
+以及世界卫生组织知道什么以及什么时候知道的
+
+uncovering the origins of COVID-19 will be incredibly helpful
+揭示 COVID-19 的起源将非常有帮助
+
+and helping us to prepare for the next pandemic,
+并帮助我们为下一次大流行病做好准备
+
+which I think is something we can all agree on.
+我认为这是我们都同意的事情
+
+Thank you Mr Speaker, I yield back my time.
+谢谢议长先生，现在把我的时间还给你。
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接:[https://twitter.com/repmmm/status/1405908913799647233?s=24](https://twitter.com/repmmm/status/1405908913799647233?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

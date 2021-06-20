@@ -1,41 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G7峰会主旋律——专心灭共
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1335672/)
+## 【世事解评】战狼外交是正当防卫？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1335710/)
 
-撰稿：Hong
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19225927/20210620_Task1_cover.jpg)图片来自网络
-今年的七国集团峰会(G7)与往年不同，峰会主旋律就是组建西方灭共联盟，专心灭共。无论是在英国举办的G7峰会还是在布鲁塞尔举行的北约峰会上，包括美日、美韩、美英澳首脑的会谈，加上拜登总统在日内瓦与俄罗斯总统普京的会晤都向全世界发出了一个强烈的灭共信号。
-
-G7峰会各国首脑纷纷响应拜登总统提出的民主国家要提供替代中共的高标准方案，不允许中共参与国际贸易和技术规则制定的呼吁，全球牢不可破的灭共联盟已形成，开启了对中共全方位、全领域的对抗。
-
-G7峰会联合公报70多条内容，几乎条条戳中了中共要害。公报第16条，呼吁世卫组织对中共病毒起源进行及时丶透明丶基于证据为基础的第二阶段调查。自从中共释放病毒以来，全球已有超过380万人死于中共病毒，1.7亿多人饱受中共病毒的折磨。目前中共制造生物武器病毒的证据越来越多，病毒起源的真相越来越近，全球向中共政权问责，并要求索赔的意志和决心越来越坚定，这必定让中共政权赔到破产，赔到崩溃，赔到坐牢。公报第49条，重点指出中共政权在新疆、香港存在尊重人权和基本自由的问题。中共对新疆维吾尔族人犯下了种族灭绝罪，对香港人民实施武力镇压，遭到国际社会的一致声讨，G7峰会开启了把中共推向国际审判台关键的一步。公报第60条，首次强调台湾和平与稳定的重要性，并鼓励以和平方式解决两岸议题，同时强调欧盟密切关注东海和南海局势，这对中共来说将是致命的一击。
-
-北约联合公报反复抨击中共军事扩张，视中共为系统性安全威胁，北约组织誓言齐心协力对抗中共军事挑衅和威胁。美日、美韩、美英澳国家首脑分别会晤并发表联合声明，强调在中共威胁台湾之际，台湾海峡和平的重要性，并组建联盟，加强在东海、南海、台湾，印太地区的军事合作，将战略重心转向印太地区。拜登总统在日内瓦与俄罗斯总统普京会面后，发表美俄总统关于战略稳定的联合声明，对减少武装冲突和控制核战争达成共识，双方达成军事战略互信。所有这些军事战略都表明，西方灭共联盟军事战略的重锤砸直击中共的要害，使得中共睡觉都不得安稳。
-
-G7峰会将推动重建美好世界（B3W）全球基础建设倡议，旨意在通过向发展中国家提供一项基础设施发展计划，以对抗中共“一带一路”在全球的战略扩张及潜在的经济和政治陷阱，这一倡议将打破中共“一带一路”殖民世界的美梦。
-
-今年的G7峰会真真正正印证了郭文贵先生四年来的爆料。郭先生一次又一次地警告全世界，病毒是中国共产党制造并故意释放的生物武器；郭先生也是全球第一位最早站出来揭露中共建造新疆集中营的人士,并呼吁全球关注、支持香港。郭先生早就警告过全世界，要看清中共“一带一路”中共人民币国际化、军事扩张、企图**控制全世界**的野心**。**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19230029/20210620_Task1a.jpg)图片来自GNEWS
-G7峰会组建灭共联盟，重组不允许中共参与的国际战略秩序已被写进历史，郭文贵先生曾说过，美国的人反应可能是慢，但是美国人一旦反应过来，无人可以阻挡。真正来实行和实施我们的爆料革命的下一个目标是，以美灭共、以国际灭共、以法灭共。现在，真正灭共的时代已经到来，中共在世界上不顾天理、横行霸道的日子已经到头了！
-
-（文章仅代表作者个人观点，与GNews无关）
-
-新闻参考来源：
-
-1. [https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/16/u-s-russia-presidential-joint-statement-on-strategic-stability/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/16/u-s-russia-presidential-joint-statement-on-strategic-stability/)
-2. [https://www.whitehouse.gov/briefing-room/statements-releases/2021/04/16/u-s-japan-joint-leaders-statement-u-s-japan-global-partnership-for-a-new-era/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/04/16/u-s-japan-joint-leaders-statement-u-s-japan-global-partnership-for-a-new-era/)
-3. [https://www.taiwannews.com.tw/en/news/4178911](https://www.taiwannews.com.tw/en/news/4178911)
-4. [https://www.reuters.com/world/g7-counter-chinas-belt-road-with-infrastructure-project-senior-us-official-2021-06-12/](https://www.reuters.com/world/g7-counter-chinas-belt-road-with-infrastructure-project-senior-us-official-2021-06-12/)
+香草山写作组 静水流深
 
 
-* * *
 
-*发布：光耀华夏*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
 
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19230305/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
-+1
+
+2021年6月16日，《观察者网》专栏作者、复旦大学中共国研究员郑若麟与中共国驻法国大使卢沙野连线，就“战狼外交”等一些列问题进行了采访。
+
+在采访中，卢沙野说到，西方给我们贴“战狼外交”标签，世想侮辱我们，但实际上并不能贬低我们。在西方人眼里，我们的外交是攻击性和侵略性的，而事实上真正具有攻击性和侵略性的是他们，而不是我们。我们从来不去主动攻击别人，从来不去主动挑衅。我们只是正当防卫，维护自己的利益。
+
+卢沙野把“战狼外交”等同于是正当防卫，维护自己的利益。可是事实真实如此吗？
+
+维基百科对“战狼外交”做出了解释：是一种对中华人民共和国自习近平担任中共中央总书记以来推行强硬外交政策的称呼。这一时期的中（共）国外交官具有挑衅性，阐发出一系列进攻性言论。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19232344/download-1.jpeg)
+德国之声也解释了“战狼外交”的前世今生：为了维护中（共）国国家利益，中（共）国的外交官/学者们如今已经不再避讳采取咄咄逼人的态度，并且常常以对抗的方式应对摩擦和分歧。这一风格被外界称为“战狼外交”。
+
+2020年11月30日，赵立坚在推特上发布一张涉及阿富汗战争罪行的合成图片，内容是一名澳大利亚士兵用倒抵住一名儿童的喉咙。赵立坚指责澳大利亚士兵杀害阿富汗平民和囚犯的行为。澳大利亚总理莫里森强烈抨击了赵立坚的行为，并指责中共”发布和伪造一名澳大利亚士兵割喉儿童的宣传图“，要中共道歉。此举遭中共外交部发言人华春莹的连番驳斥。赵立坚不仅将推文和图片置顶，中共外交部在反击中还摆出一副不息战斗到底的姿态。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19232410/Screen-Shot-2021-06-19-at-11.23.26-PM.png)
+2021年3月29日，中共驻巴西总领事嘲笑加拿大总理特鲁多为美国的“跟班”和“走狗”，用以反击加拿大因维吾尔族人权问题对中共施加制裁。中共外郎战较多例子还有很多，不胜枚举。中共的战狼外交让中共八方树敌，被世界孤立。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19232358/Screen-Shot-2021-06-19-at-11.23.30-PM.png)
+如果“战狼外交”真像卢沙野说的那样是正当防卫，那习近平在最近一次政治局集体学习会议上发表讲话就更让人耐人寻味了。习近平宣布中（共）国必须“加强和改进国际传播工作”，他说：“要注重把握好基调，既开放自信也谦逊谦和，努力塑造可信、可爱、可敬的中（共）国形象。”这是不是在暗示要改变一下“战狼外交”的外交风格呢？
+
+在整个《观察者网》的采访中，卢沙野都是歪曲事实，不断为中共站台；偷换概念，将西方遏制中共的发展等同于西方对华不友好，将中共与中共人等同起来。在采访的最后，卢沙野也说，《观察者网》已经成为中共国国际舆论斗争的一个品牌了。
+
+让我们来看看《观察者网》的背景：简称观网，是中华人民共和国一家以新闻及评论为主的民营互联网新闻媒体，创立于2012年，总部位于上海市。该网站与官方的《环球时报》类似，而民营身份使得其持更强烈的中（共）国民族主义立场，对西方自由民主持批判态度。
+
+由此可见，民营身份的《观察者网》也跟国营身份的《环球时报》一样，代表了中共的声音。中共的民营实际是由国营控制；卢沙野的声音“战狼外交”是正当防卫，是维护自己的利益也代表了中共的声音。中共实行“战狼外交”政策，但当中共看到国际形势不再受其控制时，又来呼吁塑造“可信、可爱、可敬”的中共形象。中共自己对自己的打脸还能维持多久呢？
+
+参考来源：
+
+郑若麟对话驻法大使卢沙野：“我们现在外交风格变了，你们要适应我们的新风格”https://www.guancha.cn/lushaye/2021\_06\_16\_594555\_3.shtml
+
+观察者网维基百科定义https://zh.wikipedia.org/wiki/观察者网
+
+战狼外交https://zh.wikipedia.org/wiki/戰狼外交
+
+战狼外交的前世今生https://www.dw.com/zh/战狼外交的前世今生/g-55844702
+
+习近平塑造“可爱”中（共）国形象“战狼外交”或成往事？https://www.abc.net.au/chinese/2021-06-09/xi-jinping-hints-at-a-shift-in-china-s-wolf-worrior-diplomacy/100202062
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0
