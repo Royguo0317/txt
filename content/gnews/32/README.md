@@ -1,27 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】06/19/2021：澳大利亚新西兰政府获取了孙力军所藏的病毒资料及中南坑老杂毛的信息
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1336789/)
+## 英国议会将审查海康威视闭路电视合同
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1336844/)
 
-**制作：Cantonese工作室**
+编译：Boxinglady ( 文拳）
 
+《每日电讯报》透露，出于安全和人权问题，英国议会将审查中共国公司海康威视的闭路电视设备合同。
 
+预计到今年年底，价值数十万英镑的合同将接受采购审查或安全检查。
 
-**播报:【文依】资料整理:【An】【Ruby三鑫】【michelle喜乐】PPT:【小豆芽】视频制作:【KEN】发布：【陆柒陆捌】**
+与此同时，地方议会面临越来越大的压力，要求他们与这家科技公司脱离关系，该公司被指控帮助建立中共国政府的监控国家。
 
-摘要：
+保守党国会议员中共国研究小组敦促地方议会提高透明度和指导，警告继续这样做将有“盲目从侵犯人权中获利的公司购买”的风险。
 
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20104722/6.19-converted_page-0002.jpg)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20104751/6.19-converted_page-0003.jpg)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20104820/6.19-converted_page-0004.jpg)
-4
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20104848/6.19-converted_page-0005.jpg)
+在 2019 年至 2021 年期间，英格兰各地的地方议会购买了至少价值 一百万英镑的海康威视设备。绝大多数购买是通过批发分销商而非海康威视本身进行的，这使得问责更加困难。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/18102050/image0%E9%9D%A2-7.jpg)
+海康威视于 2019 年被美国商务部列入黑名单，理由是“在实施中共国对维吾尔族、哈萨克族和其他穆斯林少数群体成员的镇压、大规模任意拘留和高科技监视运动中涉及侵犯和践踏人权的行为” ”。
 
+该公司仍被允许在英国开展业务，在海斯设有基地，但正受到国会议员越来越多的审查。
+
+下议院外交事务委员会主席汤姆·图根哈特 (Tom Tugendhadt) 告诉《每日电讯报》，“有可信的报道称，海康威视是国家新疆监控的缔造者之一”，其中发生了对维吾尔穆斯林的明显种族灭绝。
+
+新闻来源：[每日电讯报](https://www.telegraph.co.uk/news/2021/06/19/councils-review-cctv-contracts-chinese-firm-amid-human-rights/)
+
+校对发稿：ada(马德里）
 
 0
