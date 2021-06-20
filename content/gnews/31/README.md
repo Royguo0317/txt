@@ -1,21 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：美国联邦通信委员会投票推进对中共国电信设备的拟议禁令
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1334174/)
+## 中国核辐射泄漏掩盖了顶级科学家神秘死亡的恐惧
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1335463/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19083045/image001-33.jpg)
-美国联邦通信委员会（FCC）周四一致投票通过一项提案，该提案将禁止美国公司购买构成国家安全风险的电信设备。 该提案获得了所有委员的初步批准。 它还可以撤销对 FCC “涵盖清单”中被视为国家安全威胁的任何设备的事先授权，包括华为和中兴通讯。此前提出立法以反映 FCC 行动的两党参议员小组为 投票鼓掌及喝彩。
+翻译：康州盘古农场 – B7
+校对：康州盘古农场 – 郭班之樱
+编辑：康州盘古农场 – 明子
+发布：康州盘古农场 – 彩虹 Rainbow
 
+**据观众作家：迈克尔·莫兰 (Michael Moran) ，2021年6月18日报道：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19205524/20210619.jpg)（台山使用的 EPR 反应器设计被认为是使用中最安全的反应器之一）（图片来源：彭博社通过盖蒂图片社）
+在一座新核电站被宣布为“迫在眉睫的放射性威胁”10 天后，中国着名核科学家张志俭(Zhang Zhijian) 从高楼坠落身亡。
 
+由于中国台山核电站事故被掩盖的传闻，中国着名的核科学家之一张志俭(Zhang Zhijian)表面上看是从高楼坠落而身亡。
 
-[原文引用](https://thehill.com/policy/technology/559052-fcc-votes-to-advance-proposed-ban-on-chinese-telecom-equipment)
+张, 曾任着名的哈尔滨工程大学副校长,于周四早上被发现死亡。
 
-本文作者：Rebecca (一切心皆不可得 ! )
+张, 出生于1963年，离退休还有至少两年时间。 但在他去世前两天，另一位核专家被任命为新的哈尔滨工程大学副校长。张的死亡是在中共国社交媒体平台微博上该大学官方账户的帖子中宣布的。
 
-审核校对：sherryok (水云间)
+声明补充说，警方“在现场调查后排除了他杀的可能性死因”，但没有提供任何额外的细节。
 
-上传排版：糊糊文婴
+声明中写着，“哈尔滨工程大学沉痛宣布，张志俭教授于2021年6月17日上午9时34分不幸坠楼身亡”。
+
+这位科学家获得过多项最高荣誉，包括国家创新卓越奖。
+
+哈尔滨工程大学位于中国北部的黑龙江省，是与中共国军队关系密切的两所中国大学之一。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19205538/r-3.jpg)（张志俭获得了多项最高荣誉，包括国家创新卓越奖）（图片：讲义）
+由于中美贸易关系紧张，该大学去年 6 月被禁止使用美国制造的计算机软件。
+
+去年，美国商务部将哈尔滨工程大学和哈尔滨工业大学列入了“黑名单”。
+
+据美国有线电视新闻网报道，在本周早段时候，法国核能公司Framatome在一封请求美国能源部帮助的信函中警告称，台山核电站的辐射积聚意味着“迫在眉睫的放射性威胁”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19205618/a-13.jpg)（中广核坚称，该工厂没有释放辐射，放射性水平的小幅增加仅限于主冷却剂回路）（图片来源：盖蒂图片社）
+然而，中共国官方消息人士表示，没有理由担心。 中共国外交部发言人赵立坚向记者坚称，“核电站周边辐射水平没有检测到任何异常”。
+
+中国国家原子能机构6月16日向国际原子能机构提交报告称，其中一个反应堆的燃料棒有轻微损坏，但“该工厂状况正常，运行安全得到保证”。
+
+据《南华早报》报道，目前还没有关于张先生去世的官方公告。 截至 6 月 18 日，张仍列于该大学的教职员工名单里。
+**原文连接**：[https://www.dailystar.co.uk/news/world-news/china-nuclear-radiation-leak-coverup-24352034](https://www.dailystar.co.uk/news/world-news/china-nuclear-radiation-leak-coverup-24352034)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

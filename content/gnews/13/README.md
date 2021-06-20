@@ -1,43 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社即时简报】分析塞林博士提到的重要信息
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1334395/)
+## 聊聊窦文涛和凤凰主播们
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1335711/)
 
-作者：香草山翻译部 GBW
+撰稿：小湫
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19232208/20210620_Task3_cover.jpg)网络截图
+在接触爆料革命之前，锵锵三人行陪伴我很多年，曾有呼吸到自由空气的感觉，今天回顾过往，只能笑笑，当时以为自己明白了，其实是自以为明白！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+爆料革命走到了以黄灭共的阶段，掀起了CCP内部绞杀的大幕，好戏真的来了！今天推特看到有人在扒凤凰花旦“傅晓田”，往事都涌上心头，想起了追锵锵三人行的岁月，对上过窦文涛节目的主播们如数家珍：傅晓田、孟广美、竹幼婷、林玮婕、周轶君…当时对窦文涛印象是，逢女主播做嘉宾，他必嬉笑中占点口头便宜，方能作罢。当时的理解是，这厮一直号称单身，大概是光棍的原因，加之面对一众美女，才如此的。
 
+今天才恍然大悟，面对着这样一群女间谍、燕子、CCP培养的森林们，窦文涛是完全了解她们底细，满脸戏谑调侃的，过过嘴瘾又如何？呵呵！想起他和已为人妇的许戈辉一起参加鲁豫的节目，回忆数十年的友谊，文涛对两位多年老友，节目结尾深情说了句：二十年过去了，我依然爱鲁豫，我依然爱戈辉！形成鲜明对比，这厮还是有真情的！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19232253/20210620_Task3a.jpg)网络截图
+凤凰的女主播们，气质、容貌、学识、谈吐都是一等一的，在那个邪恶的体制中，大家都是肉；在那个价值观扭曲的社会，金钱衡量一切，权力又可以随意收割金钱的社会，稍有点姿色的女性，就沦为工具，欲望的工具、金钱的工具、权力的工具、国家机器的工具！
 
+本文作者也是女性，在这个肮脏的国家，能很好的活下来，多亏自己长得不好看啊！
 
-（2021年6月19日早，路安墨）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19101914/%E5%9B%BE%E7%89%879-3.png)
-1. 路德：中共正在确认哪个机构负责写新冠来源报告，以便集中火力攻击。
+（本文内容仅代表作者观点）
 
-2. 路德：绿色贝雷帽收集情报并在敌后发展支持者。这些支持者将帮助绿色贝雷帽标记敌方目标人物，例如，在目标人物的家中安装追踪装置。
+*发布：光耀华夏*
 
-3. 路德：美国正在追踪那些支持或攻击闫博士的人。五毛小心。
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-4. 路德：塞林博士发推就是告诉无辜的人靠边站，避免在战斗中被误伤。
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19230305/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
 
-5. 路德：中共不相信闫博士是119节目的唯一线人，所以没有在香港杀害闫博士。中共原来计划利用闫博士找出更多的线人，结果让闫博士逃出来了。
-
-（笔记仅作参考，内容以路德社节目为准）
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

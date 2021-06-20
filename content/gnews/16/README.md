@@ -1,47 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】CCP下地狱
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1334287/)
+## 《路德社》新闻快讯（视频版）: 20210618Sellin上校参加战斗室节目
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1335341/)
 
-配音：香草山福音部 Artemis
+《路德社》出品
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+以下视频是详细内容：
+
+主要内容：
+
+1.班：闫博士抛下了一切在第一时间告诉了FBI事情经过，FBI不作为
+
+2.S：美国政府给闫博士丈夫签证这件事让人气愤
+
+3.它是被CCP派来威胁噤声闫博士的
+
+4.Sellin上校要求知道
+
+–闫博士丈夫在哪里
+
+–它由哪个研究中心支持
+
+–谁发的签证 4⃣️谁帮助它游荡
+
+5.班农先生还没能确认所谓高官叛逃，但从侧面可以看出其他叛逃者不大相信FBI和CIA
+
+6.战斗室将继续挖掘信息
+
+7.Sellin上校再次强调他要求的4点
+
+8.S：得向NIH问询闫博士丈夫在哪里、为什么被藏起来
+
+9.班农先生再次称赞闫博士的勇气
+
+10.请大家关注Sellin上校推特
 
 
 
+翻译：路德社翻译组
 
+制作：路德社视频组
 
+审核校对：玫瑰新闻组
 
-
-霹雷一声震天响，震醒毛腊肉，质问习脑残：一百八十国联盟无人机，为何要斩首你？
-
-习脑残答：你个死腊肉懂个屁，我要称霸世界。如今我君临天下，必须要超越你！你毛腊肉也就只能统治中共国，我要当世界一尊，统治全世界。
-
-毛腊肉又质问习脑残：你用什么手段把中共国的红旗插遍全世界？
-
-
-
-**文字版原文：[【战友心声】CCP下地狱](https://gnews.org/zh-hans/1332836/)**
-
-作者：纽约香草山福音部 Artemis
-
-
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+上传排版：玫瑰新闻组
 
 0
