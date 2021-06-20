@@ -1,32 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 崔大屎和屎馆该如何抗议Kyle Bass的西台湾T恤
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1335929/)
+## 郭文贵精品视频-连妓院小姐都不如的私企老板之马云篇
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1335927/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20014201/E4SLpe8XEAYEZ-j_%E5%89%AF%E6%9C%AC.jpg)
-据[Kyle Bass](https://twitter.com/Jkylebass)[@Jkylebass](https://twitter.com/Jkylebass) 于[上午8:04 · 2021年6月20日](https://twitter.com/Jkylebass/status/1406402531987701760)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+撰稿：澳喜cindy
 
-Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai)and the Chinese embassy USA ! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@HuXijin\_GT](https://twitter.com/HuXijin_GT)Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
+马云及他创建的阿里巴巴集团的名望在近十几年里在全世界可以说是无人不知、无人不晓。无数年轻人都被马云的励志故事感动，被他在那么艰苦的环境里创业的不屈不挠的奋斗精神折服。因此也提振了无数年轻人追求伟大事业的创业激情。
 
-中文大意：为[@崔天凯大屎](https://twitter.com/AmbCuiTiankai) 和中国驻美国大使馆制作的令人惊叹的新 T 恤！ [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@胡叼盘](https://twitter.com/HuXijin_GT)最有趣的标题赢得一件衬衫！ [#台湾](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
+“马云先生曾经，大家知道他的办公室从杭州到了上海，从上海到了北京，北京又滚回上海，上海又回杭州，很惨”。郭先生说的这种情景大致描述了马云从几个同学好友每个人凑钱在自家公寓里开始创业到大约10年公司还处于亏损状态的艰苦创业过程中的惨状。
 
+郭先生又说：“有一次，他在中国大饭店门口，通过大饭店门口，嚎啕大哭，为啥呀，他就没人，就是没组织。后来，听说江家出手，江家一出手，马云先生咣一下就起来了，从江家当他的老板，到后来诸个常委家族当他的老板，然后他摸清了一条路。我好几个政治局委员朋友的孩子们都是他的股东。”“马云就开始了真正的发家之路。就马云所有干的事情都是法律的边缘，都是法律的灰色区域或法律的禁止区域。他能成功就是马云的所有的官商勾结后的垄断，是马云财富的99.99的原因。”
 
+2017/9/10郭文贵 YouTube视频
 
-> Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) and the Chinese embassy USA 🇺🇸! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA?ref_src=twsrc%5Etfw) [@PDChina](https://twitter.com/PDChina?ref_src=twsrc%5Etfw) [@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw) Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/cYryHcpPAA](https://t.co/cYryHcpPAA)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 20, 2021](https://twitter.com/Jkylebass/status/1406402531987701760?ref_src=twsrc%5Etfw)
+“马云搞的什么叫淘宝，全都是卖假货，这全天下人类都知道，偷税漏税，卖假货”。“如果你要能证明你没有参与大数据，你没有帮助他们获取公民的信息，成为盗国贼的帮手，我给你下跪”。
 
+“什么叫商人呢？商人是社会的膨胀剂，不制造出任何的文明和财富，他就是膨胀剂。什么叫企业家？企业家是有创造性，创造文明，引导社会，创造财富，马云就是一个商人嘛，你是什么企业家？”-郭先生是这样定义马云的。
 
+就在今年4月10日《新华社》发布消息：国家市场监管总局根据反垄断法，对阿里巴巴集团利用市场支配地位实施“二选一”行为，作出行政处罚的决定，责令其停止违法行为，并处以罚款182.28亿元。 紧接着马云被告知：不允许擅自出售股份，必须完全退出蚂蚁金服，他的股份转让给“国家”指定的机构或投资者。
 
-推文所附图片为——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20013729/E4SLpe8XEAYEZ-j.jpg)
-中共暴政之下的西台湾人民苦秦久矣，这一次凯尔.巴斯先生直接@崔天凯大屎、@中国日报、@中共国驻美国大使馆、@胡叼盘等，把西台湾人民与独裁暴政集团区隔开来，作为西台湾人民的一员，在下甚感荣耀。只是不知道这些口口声声代表十四亿西台湾人民的怂货们该如何应对呢？
+如上所述阿里巴巴有红二代的股份，可以想象，与其说是因为经营上违规被审查，不如说是中共权力斗争的牺牲品。郭先生在2月17日的直播中谈到，“蚂蚁金服”上市绝非为了圈钱那么简单，其真正目的是要把自己打造成一个金融“巨无霸”，试图控制和影响中（共）国金融。而今年又是“南普陀计划”的收割年——“上海帮”一直在处心积虑地拱倒习，换上自己人。而在国际上习采取的“疯狗”外交已然引起世界公愤；更有西方多国定性中共的反人类及种族灭绝罪及中共病毒被追责已经大势所趋！如此内忧外患，必然让习心急如焚、寝食难安。然而“攘外必先安内”，那么铲除党内异己、保住“龙位”、让自己安全乃是习的第一要务！首当其冲的当然是和“江派”之间你死我活的党内终极搏斗。由于江家势力遍布党内，如果真有什么风吹草动，党内多数人肯定会站到江家那边。那么江家控制的经济实力雄厚的阿里巴巴集团自然是被抢的要务。
+2021/6/14 郭文贵YouTube视频
+郭先生在视频中又说“每个人都想跟共产党勾兑，你看马云给中共搞黑客、搞大数据啊，都是为了把蚂蚁金服给搞上市再跑，就像王健林想再圈点钱后再跑，他就做梦也没有想到当年共产党最大的支持者就是地主、有钱人、海外华人、港澳同胞。可中共得到政权后杀了200万地主。大跃进官方说死了600万人，事实上是饿死了7000多万。你不就是今天那个地主嘛！只是怎么杀你的问题，你能跑得了嘛！”
 
-为避免这些怂货掩耳盗铃假装看不见特此广而告之，请中共国咬部、中共国驻美国大屎馆、中共国驻美国大屎崔天凯以及中共国胡叼盘开足马力、全力以赴回应凯尔.巴斯先生，别忘了十四亿西台湾人民在看着你们！
+中共国的私企老板的愚昧、无知、贪婪。明知“中共统治下的私企老板没有好下场”（马云的一次私企老板公开演讲中说）但还是怀着侥幸心理，与邪恶为伍。
 
-（文章内容仅代表作者个人观点）
+我时时在思考一个问题：如果马云如此聪明智慧、有执行力、有坚强的意志力要是在西方健全完善的管理体制下创业会是怎样的结局呢？这十几年改革开放中国又有多少年轻有为的创业者在寻找“老板”的途中倒下而使其好的发明专利死于胎中呢？
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+只要中共这个只顾自己子孙后代的幸福把老百姓及国家利益于不顾的绞肉机体制一天不灭，就会有一次次的内部斗争，白手套到最后就是人财两空。真的是连妓院的小姐都不如。
+
+（本文观点纯属个人）
+
+*编辑：cindy*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19230305/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
+
 
 +1

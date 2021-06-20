@@ -1,56 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家：武汉实验室在2017年发现了冠状病毒“流行毒株”的所有基因
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1333926/)
+## 【世事解评】战狼外交是正当防卫？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1335710/)
 
-- 作者：**wenwu**
-
-
-***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
-
-**西班牙2021年6月19日电/西喜社——**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19070909/1-133.jpg)
-据《科学新闻》**2017**年的一份报告称，武汉病毒研究所**——**越来越被认为是**SARS-CoV-2**冠状病毒的来源**——**获得了**“**使**SARS**冠状病毒与流行毒株相似的所有基因**”**。
-
-这篇文章题为——[《中国的蝙蝠携带制造新型非典病毒的所有成分》](https://www.sciencenews.org/article/bats-china-carry-all-ingredients-make-new-sars-virus)——记录了福奇[资助](https://thenationalpulse.com/breaking/watch-wuhan-lab-partner-daszak-admits-he-didnt-really-see-many-bats-in-wet-market-while-describing-studies-using-u-s-taxpayer-money/)的“蝙蝠女”石正丽领导的武汉病毒研究所研究小组，如何对野生蝙蝠进行采样。
-
-2017年11月30日的报告也一样[发布](https://web.archive.org/web/20200202022129/http://english.whiov.cas.cn/Research/Research_Progress/201712/t20171201_186818.html)在武汉实验室的网站上。该报告揭示了石正丽的团队收集的数据是如何使实验室“制造出一种类SARS冠状病毒与流行毒株相似”：
-
-在对中共国南部云南省的一个洞穴中的蝙蝠进行了五年的调查后，石正丽和她的同事在马蹄蝙蝠（特别是在犀牛）中发现了11种与SARS相关的新病毒。中共国科学院武汉病毒研究所的病毒学家石正丽说，研究人员在这些毒株中发现了使SARS冠状病毒与流行毒株相似的所有基因。
-
-马里兰大学巴尔的摩分校(University of Maryland in Baltimore)病毒学家马修·弗里曼（Matthew Frieman)说，“这些新毒株比以前发现的蝙蝠病毒相比，更类似于人类版本的SARS病毒。”
-
-这篇文章[最近](https://web.archive.org/web/20200201000000*/http://english.whiov.cas.cn/Research/Research_Progress/201712/t20171201_186818.html)[从](http://english.whiov.cas.cn/Research/Research_Progress/201712/t20171201_186818.html)武汉病毒研究所的网站上删除了。文章还指出，石正丽和她的同事发现“几种毒株”可以在人体细胞中生长：
-
-通过分析这种新病毒的完整基因构成，石正丽和她的同事回溯了最初SARS病毒可能产生的步骤。病毒DNA中的一些位点似乎特别容易重新排列，因此重组经常发生。巴里克说，这项研究表明，病毒之间的重组塑造了SARS的演变。
-
-石正丽的团队发现，其中几种毒株已经可以在人体细胞中生长。弗里曼说，这表明“这些蝙蝠体内存在的病毒有可能传染给人身上。”“含有这几种毒株的蝙蝠是否会传染到人类，目前只是猜测。”
-
-拉尔夫·巴里克博士——被石正丽称为她的[“长期合作者”](https://thenationalpulse.com/breaking/wuhan-bat-lady-thanks-nih-and-daszak/)之一。他最近被参议员兰德·保罗在[审问](https://www.mediaite.com/tv/you-are-entirely-and-completely-incorrect-watch-faucis-epic-throwdown-with-rand-paul-on-wuhan-lab-covid-theory/)安东尼·福奇博士时——也在该文章中引用了巴里克博士的话：
-
-没有参与这项研究的北卡罗来纳大学教堂山医学院的病毒学家拉尔夫·巴里克说，这些病毒“已准备好在未来疫情爆发”。“我们不能放松警惕。”
-
-这篇出土的文章对应了早期《国家脉动》所揭露的，2018年巴里克对如何[《在下一次大疫情中赚钱》](https://thenationalpulse.com/breaking/wuhan-lab-partner-scheming-on-pandemic-profits/)提供了建议[。](https://thenationalpulse.com/breaking/wuhan-lab-partner-scheming-on-pandemic-profits/)
-
-**简评：**
-
-**“关于中共参与，和可能控制安东尼·福奇的爆炸性新闻，他把中共国科学界的共产党员直接带到了美国的实验室。”——来自美国陆军劳伦斯·塞林（退役上校）博士推特**
-
-**据2021年6月18日[《美国大声说》](https://americaoutloud.com/coincidence-or-conspiracy-to-take-down-a-nation/)（AMERICA OUT LOUD)报道，自COVID-19爆发以来，已退役的托马斯·麦金纳尼将军（General Thomas Mclnerny)和调查研究员玛丽·范宁(Mary Fanning)，在对美国2020年大选中使用的网络战争与2021年1月6日有“安提法”和马克思主义者冒用川普旗帜的国会活动，进行了研究。最终几乎可以断定，三者的发生是同时来自中共的阴谋，其目的是阻止川普连任，并且搞垮美国这个国家。可见，病毒爆发在这次阴谋中是一种必要的催化剂，让所有反美势力协调对抗美国。**
-
-**福奇是这场大疫情爆发中所必不可少的环节，他需要为因COVID-19死去的人负责。现在这种病毒还在威胁着全人类的生存。**
-
-**据2021年6月18日[《美国之音》](https://www.voanews.com/covid-19-pandemic/delta-coronavirus-variant-appears-sri-lanka)报道，首次在印度检测到的三角洲新冠病毒变体，已在邻国斯里兰卡出现。约翰斯·霍普金斯周五早些时候表示，它已记录了超过1.77亿例全球新冠病毒病例。其中，美国以3305万病例领先于世界，其次是印度有2980万例，巴西有1770万例。全球死于该疾病的人数现已超过384万人。**
-
-**灭共是正义的需要，没有您不行！**
-
-素材：**wenwu**； 审核：文乐； 校对：信心满满； 发稿：Nuevo唐人
-
-**新闻来源：**[《国家脉动》](https://thenationalpulse.com/news/wuhan-found-genes-to-make-epidemic-coronavirus/)作者：娜塔莉**·**温特斯｜发布时间：**2021**年**6**月**18**日
-
-[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
+香草山写作组 静水流深
 
 
 
-+5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
+
+
+
+2021年6月16日，《观察者网》专栏作者、复旦大学中共国研究员郑若麟与中共国驻法国大使卢沙野连线，就“战狼外交”等一些列问题进行了采访。
+
+在采访中，卢沙野说到，西方给我们贴“战狼外交”标签，世想侮辱我们，但实际上并不能贬低我们。在西方人眼里，我们的外交是攻击性和侵略性的，而事实上真正具有攻击性和侵略性的是他们，而不是我们。我们从来不去主动攻击别人，从来不去主动挑衅。我们只是正当防卫，维护自己的利益。
+
+卢沙野把“战狼外交”等同于是正当防卫，维护自己的利益。可是事实真实如此吗？
+
+维基百科对“战狼外交”做出了解释：是一种对中华人民共和国自习近平担任中共中央总书记以来推行强硬外交政策的称呼。这一时期的中（共）国外交官具有挑衅性，阐发出一系列进攻性言论。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19232344/download-1.jpeg)
+德国之声也解释了“战狼外交”的前世今生：为了维护中（共）国国家利益，中（共）国的外交官/学者们如今已经不再避讳采取咄咄逼人的态度，并且常常以对抗的方式应对摩擦和分歧。这一风格被外界称为“战狼外交”。
+
+2020年11月30日，赵立坚在推特上发布一张涉及阿富汗战争罪行的合成图片，内容是一名澳大利亚士兵用倒抵住一名儿童的喉咙。赵立坚指责澳大利亚士兵杀害阿富汗平民和囚犯的行为。澳大利亚总理莫里森强烈抨击了赵立坚的行为，并指责中共”发布和伪造一名澳大利亚士兵割喉儿童的宣传图“，要中共道歉。此举遭中共外交部发言人华春莹的连番驳斥。赵立坚不仅将推文和图片置顶，中共外交部在反击中还摆出一副不息战斗到底的姿态。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19232410/Screen-Shot-2021-06-19-at-11.23.26-PM.png)
+2021年3月29日，中共驻巴西总领事嘲笑加拿大总理特鲁多为美国的“跟班”和“走狗”，用以反击加拿大因维吾尔族人权问题对中共施加制裁。中共外郎战较多例子还有很多，不胜枚举。中共的战狼外交让中共八方树敌，被世界孤立。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19232358/Screen-Shot-2021-06-19-at-11.23.30-PM.png)
+如果“战狼外交”真像卢沙野说的那样是正当防卫，那习近平在最近一次政治局集体学习会议上发表讲话就更让人耐人寻味了。习近平宣布中（共）国必须“加强和改进国际传播工作”，他说：“要注重把握好基调，既开放自信也谦逊谦和，努力塑造可信、可爱、可敬的中（共）国形象。”这是不是在暗示要改变一下“战狼外交”的外交风格呢？
+
+在整个《观察者网》的采访中，卢沙野都是歪曲事实，不断为中共站台；偷换概念，将西方遏制中共的发展等同于西方对华不友好，将中共与中共人等同起来。在采访的最后，卢沙野也说，《观察者网》已经成为中共国国际舆论斗争的一个品牌了。
+
+让我们来看看《观察者网》的背景：简称观网，是中华人民共和国一家以新闻及评论为主的民营互联网新闻媒体，创立于2012年，总部位于上海市。该网站与官方的《环球时报》类似，而民营身份使得其持更强烈的中（共）国民族主义立场，对西方自由民主持批判态度。
+
+由此可见，民营身份的《观察者网》也跟国营身份的《环球时报》一样，代表了中共的声音。中共的民营实际是由国营控制；卢沙野的声音“战狼外交”是正当防卫，是维护自己的利益也代表了中共的声音。中共实行“战狼外交”政策，但当中共看到国际形势不再受其控制时，又来呼吁塑造“可信、可爱、可敬”的中共形象。中共自己对自己的打脸还能维持多久呢？
+
+参考来源：
+
+郑若麟对话驻法大使卢沙野：“我们现在外交风格变了，你们要适应我们的新风格”https://www.guancha.cn/lushaye/2021\_06\_16\_594555\_3.shtml
+
+观察者网维基百科定义https://zh.wikipedia.org/wiki/观察者网
+
+战狼外交https://zh.wikipedia.org/wiki/戰狼外交
+
+战狼外交的前世今生https://www.dw.com/zh/战狼外交的前世今生/g-55844702
+
+习近平塑造“可爱”中（共）国形象“战狼外交”或成往事？https://www.abc.net.au/chinese/2021-06-09/xi-jinping-hints-at-a-shift-in-china-s-wolf-worrior-diplomacy/100202062
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+编辑/校对/发稿：正义的小新
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+0

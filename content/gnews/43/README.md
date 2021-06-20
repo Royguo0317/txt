@@ -1,107 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Covid-19起源、中国共产党知道以及世界卫生组织进行彻底认真调查
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1335697/)
+## 平行世界
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1335738/)
 
-**字幕内容：**
+撰稿：何处是我家
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19233146/20210620_Task4_cover.jpg)网络图片
+科学家一直努力地探寻和求证不同的维度，不同的空间存在平行的世界。
 
-Rep. Mariannette Miller – Meeks (R-Iowa)
-众议员玛丽安内特米勒 – 米克斯(共和党-爱荷华州)
+今天我们却能看见和经历着——在同一个维度和同一个空间真实存在着两个平行的世界：爆料革命战友、新中国联邦人的世界与其他中国人的世界。
 
-I asked unanimous consent to address the house for one minute
-我要求一致同意在众议院发言一分钟
+套用狄更斯先生的一段话，来形象生动的描述今天真实的世界：这是一个最坏的时代，爆料革命战友却处在一个最好的时代；这是一个愚蠢的年代，爆料革命的战友却生活在拥有智慧的年代；这是一个怀疑的时期，爆料革命的战友却活在有自信的时期；这是一个黑暗的季节，爆料革命的战友却活在一个光明的季节；这是世界的失望之冬，但爆料革命人却在希望之春；人类面对中共的病毒几乎一无所有，爆料革命战友却即将应有尽有；人类正走向地狱之门，爆料革命新中国联邦人却正踏上天堂之路！
 
-and to revise and extend my remarks.
-并修改和扩展我的评论
+我们中国人是生活在这个地球上很奇葩的一群人，是在这个蓝色星球上和世界其他民族格格不入的很特别的人种。尤其是魔鬼CCP黑暗笼罩中国这七十多年，更是故意把我们屏蔽在世界边界之外。中国共产党把世界上的民主，自由，人权，自然，真相用一层又一层的过滤网过滤掉，却把剩下的渣滓留给可怜的中国人，变成了有“中国特色”的人民民主专政，自由，特权，伪科学，假象。
 
-Mr. Speaker
-议长先生
+今天举两个现象来和战友们分享，为什么我们没有和世界其他的民族在空间上发生交叉和碰撞，却在另一个世界独自前行。
 
-Without objection the gentlewoman from Iowa was recognized for one minute.
-无异议，来自爱荷华州的女士被给予一分钟
+第一个现象从日本的“脱亚入欧”说起。脱亚入欧通常是指明治维新时期的日本学习和建立西方国家的政治制度，内容包括文化教育，国家制度，企业发展，科技研究和个人衣着。倡导脱亚入欧的重要人物福泽谕吉先生改变了日本人的命运，给了大和民族自由，民主，人权和真相，还有今天日本人在世界上的信誉和地位（这一瞬间使我想起郭先生绝对是中国的福泽谕吉，尽管比日本晚了150年）。
 
-Rep. Mariannette Miller – Meeks
-众议员玛丽安内特米勒 – 米克斯
+同时我个人认为日本在二战后，由于历史的契机被动的再一次的彻底的逃离亚洲，就是彻底摆脱中国传统的用儒家思想包装的变态的社会制度（中国的历史没有什么奴隶社会，封建社会，一直都是特权和等级社会）。而这一次才真正的实现了脱亚入欧。
 
-Thank you Mr Chair, Mr Speaker.
-谢谢主席先生，议长先生
+为何日本会成功的彻底的进入西方文明社会的行列？而中国却未能如愿？尽管曾经有过清朝末期的洋务运动，外派留学生，此外CCP伪政府也有改革开放，外派的，自费的留学生更是以百万计，还有和世界的文化交流，科技交流，人才交流，艺术交流，积极参与体育赛事，民间的各种团体交流更是如过江之鲫。更有加入国际贸易组织WTO后的货币，金融，保险，股票等等和世界更深入的的融合。CCP是如何做到的把我们国人的思想和意识留在另一个世界里。
 
-I rise today to address an incredibly important national security issue.
-我今天提起一个极其重要的国家安全问题
+个人认为，很简单，就是把世界的信息，文化，科技，艺术，人物等所有的一切统统汉字化，如TOYOTA（丰田），FORD（福特），Iphone（苹果），西门子（德语：SIEMENS AG），诺基亚（瑞典语：Nokia Abp），更夸张的是最近十几年给世界重要人物起了个中国的名字，比如现在的美国副总统“贺锦丽”，卡玛拉·黛维·哈里斯（英语：Kamala Devi Harris）。
 
-We all know that Wuhan China,
-众所周知中国武汉
+这些看似简单和普通的事情，却带来了长久恶劣的影响。战友们想过没有，企业名称和商品的品牌往往是有极其深刻的含义。企业名称代表着企业的历史，企业的文化，企业的精神和企业的追求。当被汉字化之后这一切都消失得无影无踪，除非是特意去研究和关注，而普通人直接获得的信息和真实的信息已经风马牛不相及。
 
-where the COVID-19 virus originated,
-COVID-19 病毒的爆发起源地
+就是CCP这帮无脑，无知识，和无信仰的土老帽们有意为之的。就因为他们窃权残暴的第一代和贪婪嗜血的红二代，多是内心空虚和极度不自信，才故意简化外国企业名称，产品名称，人物名称，来方便自己的同时也完全把中国屏蔽在文明世界之外，非常可悲的中国人活在另一个自恋自大的世界里。
 
-is the home to the Wuhan Institute of Virology
-它也是武汉病毒学研究所的所在地
+再说的更详细些，只要是有过国外生活经历的人就会发现一个普遍的现象。近现代的新名词，企业名称，药品名称，产品名称，无论诞生在哪个国家，最初用哪种语言表述，在今天的世界各地读音几乎是一样的（就中共国不一样）。我没去过日本，但我相信在日本也是直接读原始的字母，而不会改成日本的汉语。这才是真正的接轨，是进入世界，了解世界，和接纳世界最基本的行为。当看到大多数的中国人无知和幸福无比的生活在平行于世界的世界里时，这一点都不冤枉。
 
-The WIV is China’s only cellular level 4 biosafety super laboratory
-武汉病毒学研究所是中共国唯一的细胞4级生物安全超级实验室
+郭先生的直播我们可以清晰的感受到：郭先生早就洞悉和了解这一切，只是在策略和迂回的改变着我们的观念和思想，“唯真不破”也源自这里吧！
 
-that researches human infectious diseases
-研究人类传染病的
+第二个现象是爆料革命新中国联邦人和国内的大多数人思想和世界观泾渭分明，冰火两重天。这一点相信每一个战友都有真实和刻骨的感受，因为我们都经历着对CCP的认知理解上与亲人，挚友和同事们的激烈碰撞，这是生活在一个屋檐下的两个世界。战友们是不是纠结，难受和委屈的要死。
 
-This lab is in very close proximity to the wet market
-这个实验室非常靠近海鲜农贸市场
+面对这个困局我可以粗浅的和战友们梳理一下，到底发生了什么？CCP给我们的同胞和亲人种下了什么样的蛊？
 
-that is reputed to be the origin of COVID-19
-该农贸市场曾被认为是 COVID-19 的起源地
+面对这些问题我自己的思绪有时会进入深不见底的内心世界。自己始终认为，CCP用自己对世界的认知和理解强加给了十四亿中国人的大多数，那就是追求极其的短视和表面化。用CCP的汉字化解释就是——小聪明。
 
-last year Senator Tom Cotton was thoroughly dismissed for questioning
-去年参议员汤姆·科顿因质疑这种病毒的
+那些反对，打压和污蔑爆料革命的亲人，朋友和共匪们，哪一个不比新中国联邦人聪明和小心，尽管他们缺少智慧和眼界。他们唯一惧怕和担心的是明天的变化会改变他们今天所拥有的一切，就是最底层的人们也无不害怕明天的变数。其实他们忽略了最大破坏者和不确定因素是CCP。扫大街怕明天没有了街道可扫，那些被侮辱了妻子，女儿的丈夫和父亲们竟然也怕明天禽兽会不在！明星和企业家怕失去今天的光环，假政治家门怕丢掉乌纱帽，股民和储户怕看不到明天的镰刀。
 
-the true origins of this virus
-真正来源而被彻底驳回
+都是利益永动机驱动这台愚蠢无比的机器，而这台机器的无尽能源来自十四亿普通人，试想CCP的流氓们连瘪茄子，烂黄瓜也种植不出来啊！
 
-signing the Chinese Communist Party’s duplicity and dishonesty from the very beginning.
-显示了中国共产党一开始的两面派和不诚实
+这个平行的世界还会走多远？我觉得，同时坚信我们爆料革命战友们，新中国联邦人用信心，用真相，用行动，用实力创造出强大的吸引力，把依旧盲目独行的中国世界吸附到文明世界里。
 
-We all know that the Chinese Communist Party lied to the world
-众所周知，中共对世界撒谎
+爆料革命也在清理着这个被CCP污染的世界，给与中国人新鲜的能源，来改变他前行的轨迹，最终合并进入真实的文明世界里，这并不那么遥远和困难，因为我们在同一个星球！同一片蓝天下！同一个维度！同一个空间！
 
-about the severity of COVID-19
-关于 COVID-19 的严重性
+这是一个最好的时代，这是一个最坏的时代
 
-how it is transmitted, and the dangers associated,
-它是如何传播的，以及相关的危险
+这是一个智慧的年代，这是一个愚蠢的年代
 
-there needs to be a thorough and serious investigation into the origins of COVID-19
-我们需要对 COVID-19 的起源进行彻底而认真的调查
+这是一个信仰的时期，这是一个怀疑的时期
 
-what the Chinese Communist Party knew and when,
-中国共产党知道什么？什么时候知道的？
+这是一个光明的季节，这是一个黑暗的季节
 
-and what the World Health Organization knew and when
-以及世界卫生组织知道什么以及什么时候知道的
+这是希望之春，这是失望之冬
 
-uncovering the origins of COVID-19 will be incredibly helpful
-揭示 COVID-19 的起源将非常有帮助
+人们面前应有尽有
 
-and helping us to prepare for the next pandemic,
-并帮助我们为下一次大流行病做好准备
+人们面前一无所有
 
-which I think is something we can all agree on.
-我认为这是我们都同意的事情
+人们正踏上天堂之路
 
-Thank you Mr Speaker, I yield back my time.
-谢谢议长先生，现在把我的时间还给你。
+人们正走向地狱之门
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+(本文仅代表作者个人观点)
 
-原视频链接:[https://twitter.com/repmmm/status/1405908913799647233?s=24](https://twitter.com/repmmm/status/1405908913799647233?s=24)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+* * *
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+*发布：光耀华夏*
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19230305/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
+
 
 0
