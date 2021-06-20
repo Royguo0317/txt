@@ -1,59 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参谋长联席会议主席称中共缺乏占领台湾的能力
-` 美国洛杉矶天使农场 - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1335862/)
+## 崔大屎和屎馆该如何抗议Kyle Bass的西台湾T恤
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1335929/)
 
-翻译: Nick | 校对: JS709 | 编辑：V
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20011546/clh_adobespark.jpeg)2021 年 6 月 17 日星期四，华盛顿，参谋长联席会议主席马克·米利（Mark Milley）将军在参议院拨款委员会听证会上作证，以审查国防部 2022 财年的拟议预算和理由。（卡罗琳·布雷曼（Caroline Brehman）/Pool via AP )
-参谋长联席会议主席周四告诉国会，尽管中共近年来进行了大规模军建，但中共国军队还没有发展出对台湾岛进行军事攻击的能力。
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20014201/E4SLpe8XEAYEZ-j_%E5%89%AF%E6%9C%AC.jpg)
+据[Kyle Bass](https://twitter.com/Jkylebass)[@Jkylebass](https://twitter.com/Jkylebass) 于[上午8:04 · 2021年6月20日](https://twitter.com/Jkylebass/status/1406402531987701760)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-陆军上将马克·米利 (Mark Milley) 在周四参议院拨款委员会的听证会上被问及中共国宣布最终将统一台湾岛回大陆的决定时做出了评估。
+Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai)and the Chinese embassy USA ! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@HuXijin\_GT](https://twitter.com/HuXijin_GT)Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
 
-最近，印太司令部现任和前任指挥官对中共国何时可以对台湾进行两栖攻击提出了不同的评估。
+中文大意：为[@崔天凯大屎](https://twitter.com/AmbCuiTiankai) 和中国驻美国大使馆制作的令人惊叹的新 T 恤！ [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@胡叼盘](https://twitter.com/HuXijin_GT)最有趣的标题赢得一件衬衫！ [#台湾](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
 
-米利将军说：“我认为中共国还有较长的路去发展实际的不开玩笑的能力来进行军事行动，如果他们想通过军事手段夺取整个台湾岛的话”。
 
-这位四星上将拒绝提供他在公开听证会上的评估依据之细节，但表示中共对台湾发动军事袭击的可能性低。 米利将军说：“（中共国）没有理由进行军事行动。所以现在我认为中短期内这种可能性很低”。
 
-然而，中共国官员表示，收复台湾仍然是“核心”国家利益。
+> Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) and the Chinese embassy USA 🇺🇸! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA?ref_src=twsrc%5Etfw) [@PDChina](https://twitter.com/PDChina?ref_src=twsrc%5Etfw) [@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw) Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/cYryHcpPAA](https://t.co/cYryHcpPAA)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 20, 2021](https://twitter.com/Jkylebass/status/1406402531987701760?ref_src=twsrc%5Etfw)
 
-米利将军补充道：“无论他们做什么，只要是和平的且不会破坏地区和世界的稳定，中共国的内部政治就取决于中共国自己”。
 
-3月份，即将卸任的美国太平洋司令部司令菲利普·戴维森 (Philip Davidson) 告诉国会，中共国可能会在未来六年内发动对台湾的入侵。
 
-戴维森上将告诉参议院军事委员会：“在此之前，台湾显然是他们的野心之一。 而且我认为这十年中这一威胁很明显，事实上，在接下来的六年中（入侵可能会发生）”。
+推文所附图片为——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20013729/E4SLpe8XEAYEZ-j.jpg)
+中共暴政之下的西台湾人民苦秦久矣，这一次凯尔.巴斯先生直接@崔天凯大屎、@中国日报、@中共国驻美国大使馆、@胡叼盘等，把西台湾人民与独裁暴政集团区隔开来，作为西台湾人民的一员，在下甚感荣耀。只是不知道这些口口声声代表十四亿西台湾人民的怂货们该如何应对呢？
 
-几十年来，中共国一直在进行大规模的军事建设，其中包括部署了 1,200 多枚射程涵盖台湾的导弹。 北京也一直在发展两栖攻击和精确打击的轰炸能力。
+为避免这些怂货掩耳盗铃假装看不见特此广而告之，请中共国咬部、中共国驻美国大屎馆、中共国驻美国大屎崔天凯以及中共国胡叼盘开足马力、全力以赴回应凯尔.巴斯先生，别忘了十四亿西台湾人民在看着你们！
 
-几年前公开的卫星照片显示，中共国内有台湾的政治和军事场所的模型，显然是在为袭击该岛做准备和训练。
+（文章内容仅代表作者个人观点）
 
-对台湾袭击的评估是基于中共国军队在该地区的扩张，这可能会破坏美国阻止袭击的防御努力。
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-戴维森海军上将在 3 月份表示：“我们正在积累风险，这可能会鼓励中共国在我们的部队能够做出有效反应之前单方面改变现状，我一辈子都无法理解他们在这上面的投入，除非……这是一种攻击性的姿态。”
-
-戴维森海军上将的继任者约翰·阿奎利诺（John Aquilino）海军上将在他的确认听证会上作证说，中共国对台湾的袭击可能会在 6 年内到来。 现任印太指挥官阿奎利诺上将说，中共国发动袭击“比大多数人想象的要近得多”。
-
-阿奎利诺海军上将在 3 月份表示 :“我们必须明确这一点，需在短期内紧急部署像[太平洋威慑倡议]所述的威慑能力”。
-
-该倡议是国会为加强太平洋地区的美军所做的努力。
-
-国防部长劳埃德·奥斯汀（Lloyd Austin）在周四的预算听证会上表示，“毫无疑问”中共国希望将台湾与大陆统一起来。
-
-他说：“就时间线或时间框架而言，还有待观察，当然，有许多情报估计可以解决这个问题，我们的立场是，我们将继续致力于帮助台湾防务，根据《台湾关系法》和三个联合公报和六项保证，为他们提供自卫能力。”
-
-1970 年代和 1980 年代美国与中共国建立正式外交关系并取消对台湾政府的承认后，双方达成了三个联合公报和外交交流。
-
-奥斯汀先生表示，中共“很有可能”在未来某个时候寻求统一。
-
-台湾距离中国南部海岸约 100 英里。在 1940 年代后期与毛泽东领导的共产党在内战中败北后，国民党军队逃往该岛。
-
-几十年来，台湾已成长为一个充满活力的民主和经济强者。在川普执政期间，与台湾的关系得到加强，并提供了超过 160 亿美元的新武器交易。
-
-台湾最近还开发了新的中程导弹能力，这将在中共国入侵台湾的情况下，使上海和深圳等中共国城市更容易受到导弹袭击。
-
-原文作者：比尔·格茨（Bill Gertz）
-发布时间：2021年6月17日
-原文链接:[https://www.washingtontimes.com/news/2021/jun/17/mark-milley-says-china-lacks-capability-capture-ta/](https://www.washingtontimes.com/news/2021/jun/17/mark-milley-says-china-lacks-capability-capture-ta/)
-
-+2
++1
