@@ -1,52 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共用生物武器攻击了全球，美将军却说中共不会打台湾
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1336562/)
+## 白宫称正在考虑拜登和习近平之间的会谈
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1336610/)
 
-新闻来源：《零对冲》| 作者：TYLER DURDEN | 发布时间：2021年6月18日
-翻译/简评：叶知秋（文义） | 校对：SilverSpurs7 | 审核：小小妹 | Page：我是球大哥
+新闻来源：《Zerohedge》| 作者：Tyler Durden | 发布时间：2021年6月18日
+翻译/简评：大和凯多 | 校对：SilverSpurs7 | 审核：小小妹 | Page：Daoiii
 
-[!\[\]()!\[\](https://spark.adobe.com/page/06eO7rnCQgKfJ/images/e0c34fac-ca33-4212-9d96-00d94a118f62.png?asset_id=6076529f-0182-4256-8e70-99b7380bafd1&amp;img_etag=%22e46252d132947ea0e43f4ac45d891766%22&amp;size=1024)](https://spark.adobe.com/page/06eO7rnCQgKfJ/images/e0c34fac-ca33-4212-9d96-00d94a118f62.png?asset_id=6076529f-0182-4256-8e70-99b7380bafd1&amp;img_etag=%22e46252d132947ea0e43f4ac45d891766%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/5e24c1cf-7bef-4825-9121-d6e13a6bf457.jpg?asset_id=654b329c-d030-4fb6-88cd-a65e5323a4c1&amp;img_etag=%2227d143c209859fd66cbc113c997c322f%22&amp;size=1024)](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/5e24c1cf-7bef-4825-9121-d6e13a6bf457.jpg?asset_id=654b329c-d030-4fb6-88cd-a65e5323a4c1&amp;img_etag=%2227d143c209859fd66cbc113c997c322f%22&amp;size=1024)
 
-本篇报道提到的参谋长联席会议主席马克·米利将军的观点是“中共国具备攻打台湾的能力，但是，还没到打台湾的时候”。不过，今年3月份，新任美国印太司令部司令阿奎利诺曾在参议院提名听证会上表示，中共国入侵台湾的威胁是严重的，要比许多人所理解的更迫在眉睫。
+**简评：**
 
-同是美军高层，出现这种观点上的冲突，原因应该是多方面的。中共国与美国之间的军事实力相距很远，这是不争的事实，中共国要攻打台湾也势必会顾忌到日本和美国的动作。但是，中共就这样静悄悄地释放了新冠病毒超限生化武器攻击了全世界，到如今夺走了超过380万人的生命，这一举动会有哪个将军预料到了？中共在美国渗透多少年，如今都可以参与窃取美国总统大选的行动，这个事情，又有多少专家预料到了呢？
+**在这次普京拜登峰会结束之后，拜登表示没有什么可以替代领导人之间的会谈。国家安全顾问沙利文表示十月份意大利的G20峰会可能会是一个好机会。拜登被记者问及催促习近平对新冠病毒来源进行调查的时候，拜登回答：“我们互相都很了解；我们不是老朋友。只是纯粹谈事情。”**
 
-中共政权的思维是邪恶的，他们能做出的举动也是反人性的。中共已经利用了新冠病毒生物武器攻击了全世界，世界已经处在战争中，为了把世界搞乱，缓解来自世界各国追究中共病毒真相的压力，以最快速度攻击并拿下台湾，做垂死挣扎必然是他们的一个选项，或者至少是独裁者习近平的一个选项。
-
-美军高层如果因为军事拨款的问题或者因为军火工业利益的问题发出不同的声音可以理解，但是在实际行动上，不应该有丝毫懈怠。包括台湾自己，对中共这个邪恶政权，应该随时保持警惕性，因为中国共产党是一个没有人性、没有底线的犯罪集团。
+**不管对于拜登还是习近平，病毒来源问题都是一个很棘手的话题。这个问题该怎么解决，用什么方式解决以及什么时候解决，最终避免不了政治的权衡。但是，在全世界失去了无数生命的面前，在国家安全面前，这个问题一定会有个答案。随着西方世界逐渐的觉醒，美国民调已经显示大部分人相信病毒是来源于武汉病毒研究所，而武汉病毒研究所与中共军方有着无数的关联。这些不争的事实已经不可避免地判中共死罪了。**
 
 **原文翻译：**
 
-## 米利将军说中国在拿下台湾之前还有“路要走”
+## 白宫称正在考虑拜登和中共国习近平之间的会谈
 
-尽管围绕中共国可能入侵台湾的炒作不断，参谋长联席会议主席马克·米利将军认为，中共国在发展夺取台湾岛的能力方面有“路要走”。
+**根据国家安全顾问杰克·沙利文周四的一份声明，在本周拜登-普京峰会结束后，白宫表示正在考虑美国总统和中共国国家主席习近平之间的双边会谈。**
 
-“我的评估是，就能力而言，我认为中共国有办法发展实际的、不开玩笑的能力，通过军事手段夺取整个台湾岛，如果他们想这样做的话，还有一段路要走。”米利周四告诉参议院拨款委员会。
+沙利文在一次新闻简会上说：“作为这次举行峰会的一个核心原因，总统先生所说的没有什么能替代领导人级别的会谈同样适应于中国和习近平主席。他会寻找机会与习主席接触。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/06eO7rnCQgKfJ/images/5f2350a6-6961-443d-89b1-f1544c00d91a.jpg?asset_id=7eed45b5-6188-4d97-a0a2-b576357c6205&amp;img_etag=%223e204373f1cec4504fd94fdd3449e0a3%22&amp;size=1024)](https://spark.adobe.com/page/06eO7rnCQgKfJ/images/5f2350a6-6961-443d-89b1-f1544c00d91a.jpg?asset_id=7eed45b5-6188-4d97-a0a2-b576357c6205&amp;img_etag=%223e204373f1cec4504fd94fdd3449e0a3%22&amp;size=1024)美国陆军上将马克·米利 盖蒂图片社
+强调当下没有“特殊的计划”的同时，沙利文表示十月份在意大利的G20峰会是一个机会，因为两位领导人都会在场。”
 
-米利说他不相信中共国会在短期内试图夺取台湾。“我认为现在没有什么意图或动机在军事上这样做。也没有理由在军事上这样做，而且他们知道这一点。所以，我认为在当下和短期的未来，这种可能性可能很低。”他说。
+[!\[\]()!\[\](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/69219db5-4a76-42bb-aeaf-3a1b77498f2b.jpg?asset_id=181a0ae5-c71f-4da2-b737-ff10322c8f04&amp;img_etag=%22e0a55d191fd468e9013bb163bfae66a3%22&amp;size=1024)](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/69219db5-4a76-42bb-aeaf-3a1b77498f2b.jpg?asset_id=181a0ae5-c71f-4da2-b737-ff10322c8f04&amp;img_etag=%22e0a55d191fd468e9013bb163bfae66a3%22&amp;size=1024)
 
-同样在周四，一名国务院官员吹捧美国和台湾的“豪猪”战略。“豪猪”做法的想法是继续武装台湾，以使中共国通过武力夺取台湾的成本变得越来越大。这一战略对美国军火工业来说是个好兆头。
+他补充道：“很快，我们会坐下来，为两国总统的接触制定出合适的方式。可能会是一次电话，可能会是一次国际峰会上的面谈，也可能是其它方式。”
 
-台湾最近签署了价值17.5亿美元的合同，购买洛克希德·马丁公司制造的火箭系统和波音公司制造的导弹系统。去年10月，川普政府批准了这批武器销售。
+在他的总统任期内迄今为止最重要的外交政策时刻，也就是普京峰会，之后的周三新闻发布会上，拜登总统表态说：“没有什么可以替代领导人之间的面对面对话，正如你们这些长期报道我的人所知道的那样。”
 
-台湾政府和美国武器制造商在华盛顿资助了许多相同的智库。例如，鹰派的“新美国安全中心”(CNAS)智库从美国大多数主要武器制造商以及台湾驻华盛顿事实上的大使馆“台北经济文化代表处”获得资金。
+之后他与媒体记者谈话的时候，拜登被问及催促中共国习近平对新冠病毒来源进行调查。拜登回答道：“我们互相都很了解；我们不是老朋友。只是纯粹的谈事情。”
 
-五角大楼最近完成了对其中共国政策的为期100天的特遣队(Task force)审查，该审查由前“新美国安全中心”(CNAS)雇员埃利·拉特纳(Ely Ratner)领导，他被任命为前雷神公司雇员国防部长劳埃德·奥斯汀(Lloyd Austin)的特别顾问。虽然特遣队(Task force)的大部分建议都保密，但可以肯定的是，它呼吁保持继续武装台湾的惯例。
+但回想一下三月份，由国务卿布林肯和沙利文率领的白宫团队与中共国高级外交官在安克雷奇举行的会议上，事情并不是很顺利，而是与“一切照常”恰恰相反-从美方指责北京威胁“基于规则的秩序”开始，遭到中方的严厉谴责，称美方“肆意攻击”，并且因美方不礼貌导致“外交礼仪”失态。
 
-[原文链接](https://www.zerohedge.com/geopolitical/gen-milley-says-china-has-ways-go-it-can-take-taiwan?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+在安克雷奇，中共国代表团没有举行预期的新闻发布会，就气势汹汹地离开酒店。让我们看看今年秋天即将举行的拜登-习近平峰会是否会有一个好结果……但是，很有可能到那个时候，随着官方病毒大流行的起源报告逐渐显现，北京会承受更大的压力。
+
+🔗[原文链接](https://www.zerohedge.com/political/white-house-mulls-setting-talks-between-biden-chinas-xi?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline,+the+survival+rate+for+everyone+drops+to+zero%29)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/06eO7rnCQgKfJ/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/06eO7rnCQgKfJ/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/R6LrwI0YsxYNz/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 
 

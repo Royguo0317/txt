@@ -1,30 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重庆自驾利川游客任性坠河所昭示的生和死之间的距离
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1336202/)
+## 【独立观点】 FCC彻底封杀华为、中兴等进入美国市场
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1336186/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20042312/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-22.png)
-据[lily \[email protected\]](https://twitter.com/lilyval15187063)于[下午1:11 · 2021年6月20日](https://twitter.com/lilyval15187063/status/1406479765419216896)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+作者： 纽约香草山健身部 Ivy001
 
-良言难劝该死鬼，慈悲不度自绝人
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
 
 
 
-> 良言难劝该死鬼，慈悲不度自绝人 [pic.twitter.com/uad1t0Bb79](https://t.co/uad1t0Bb79)
-> — lily valley (@lilyval15187063) [June 20, 2021](https://twitter.com/lilyval15187063/status/1406479765419216896?ref_src=twsrc%5Etfw)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20050414/fcc.png)图片来源：网络 
+6月17日，FCC四名委员一致表决同意启动一项调整审批程序的计划，该计划旨在全面禁止批准五家中共国企业的产品进入美国市场和美国通信网络，这五家中共国企业被认定对美国国家安全构成威胁：华为、中兴通讯、海能达通信、杭州海康威视和浙江大华公司。有关企业此前获得的许可，也有可能被撤回。
+
+与此同时，美国国会参众两院的跨党派法案也已成型，该法案旨在将不受信任的中共国企业设备，从美国网络移除。华为与中兴等中共国企业生产的通讯设备，将在美国市场遭遇更多的阻碍。
+
+FCC目前制定了一个“对国家安全构成威胁的通信设备和服务清单”。虽然FCC目前的规则已经禁止那些接受联邦政府补贴资助的网络运营商，购买这个黑名单上的公司生产的设备和器材，但那些没有接受联邦政府资金的运营商，则不受禁令限制，仍然可以不受约束地采购中共国企业生产的电信和通讯设备，以及监控设备。FCC委员和美国国会议员呼吁填补这个“漏洞”，出台措施将所有不受信任的电信设备排除在美国市场之外。
+
+显而易见，这是拜登政府在电信技术领域和监控领域，对中共国的全面封杀战略。拜登政府和国会山正在认真对待中共的威胁，在设法堵上各种漏洞，以杜绝中共的电子设备和电信设备出现在美国市场。
+
+这意味着，中共国的电信设备和监控设备不仅被退出美国官方市场，连民用市场也将被退出。而中共国通过电信设备和监控设备所打造的电子情报收集网络，也将会被消除。中共国不仅是失去了美国的广大市场，还失去了一个强大的收集情报网络，中共国对美国的网络攻击能力也将大幅削弱。而且，中共国精心打造的5G系统，亦将彻底的被世界淘汰。
+
+拜登政府对中共的反制措施，一环扣一环，步步紧逼，看来，习近平已经无法挽回拜登的心啦。
+
+校对/发稿：小小安
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文)**
+
+[**纽约香草山农场Twitter(****英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
 
 
 
-生与死之间的距离是什么？它不是钱的距离，它与绳子的强度和村民的力量无关，生与死的距离只在一念之间，只要打开车门依次下车，哪怕鞋子和裤子会沾上泥巴，哪怕衣服会弄脏，可是在生死关头这些到底能算得了什么呢？在傲慢地等待中，本可以从容逃生的机会一分一秒地离去，最终，车上所有的人在傲慢和无知中走向不归路。
 
-在这一场全人类的命运和财富大重启面前，生与死之间的距离是你存不存粮的一念间，生与死的距离是你换不换美元的一念间，生与死的距离是你是否相信病毒是中共超限生物武器的一念间，生与死的距离是你能否听信劝告不去打中共疫苗的一念间。
 
-在正常的生老病死之外的生和死之间的距离是什么？它的距离就在一念之间，但是要跨越这一念之间的距离却不是轻而易举，因为这一念之间是信与不信的距离，横亘在这一念之间的不仅仅是防火墙，横亘在这一念之间的是认知的鸿沟。
-
-（文章内容仅代表作者个人观点）
-
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
-
-+2
+0
