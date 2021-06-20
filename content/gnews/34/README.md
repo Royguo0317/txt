@@ -1,94 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙文推荐】丧钟为谁而鸣
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1336129/)
+## 匈牙利总理奥尔班想推翻欧盟议会
+` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1336316/)
 
-**推荐者**：香草山美食部 新世界的一员
+信息来源：德国镜报网络版 
+发布时间：2021年6月19日
+翻译 /整理/ 简评： Shuizhuyu
 
-**推荐语**：微友是个传播真相的正义人士，总能一针见血的指出共产党的罪恶，他的文章像一把刀，刺向共匪，同时也能刺醒心智。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
-
-
+- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20063312/b7c7a4a7-83c2-4db6-b49a-221e5478e921_w948_r1.77_fpx30_fpy45.jpg)
 
 
+图片来源： 路透社
 
-* * *
+匈牙利右翼民族主义总理奥尔班再次挑战欧盟。欧洲议会的权力应受到相当大的限制，其组成应由主要国家决定。
 
-* * *
+反对同性恋的审查法，要求停止所有移民，现在是对欧盟机构的攻击：匈牙利右翼国家总理维克多·奥尔班在几天内再次加强了对欧洲的对抗路线。周六在布达佩斯的一次演讲中，奥尔班宣布他想限制欧盟议会的权力。
 
-如果一个人
-说出来的话
-连他自己都不信
-却总强迫别人去信
-你猜结果会怎样？
+奥尔班在讲话中要求，如果欧盟国家议会认为可能违反国家权限范围，则应赋予其停止欧盟议会立法程序的权利。
 
-如果一个部门
-说的全是好话
-做的全是坏事
-坚持说一套做一套
-你猜结果会怎样？
+“在欧洲民主的标准方面，欧盟议会已被证明是一个死胡同，”奥尔班说。根据欧洲委员会议会大会的模式，他认为应该允许各国议会向欧盟议会派代表。
 
-大航海时代他们禁海
-大贸易时代他们禁商
-大数据时代他们禁网
-大民主时代他们禁言
-他们将你的肉身关进铁笼
-却无法锁住你自由的灵魂
+简评： 匈牙利曾经是共产阵营的一名主要成员。 在欧盟对中共国的讨论中是唯一个 对欧盟冷藏对中共的投资协定的投反对票的国家。 也是唯一一个不顾欧盟反对采购中共疫苗的国家。 说到这里， 大家对匈牙利应该有自己的判断了。 现在匈牙利的总理再次挑战欧盟， 无疑是欧盟的一个大麻烦，欧盟如何应对奥尔班的这番言论， 相信后续会在欧盟议会进行讨论。
 
-晚清百姓看上去傻傻的
-可是当八国联军教训清廷
-他们不但没有与之共克时艰
-反而争相带路扛梯
-每当清廷舰船被炮火击中
-围观群众就会爆发出雷鸣般欢呼
+免责声明， 本文只代表作者观点， 与 Gnews平台无关。
+发表： Shuizhuyu
 
-天下苦秦久矣
-不要总责怪群众不信
-中国人再怎么勤劳也扛不起
-无数座血淋淋叠加的大山啊
-搜遍全世界再也找不到
-比他们更温驯的物种了
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20041600/image0-8-2.jpg)
-要怪就怪自己吧
-毫无人性的欺压
-毫无底线的掠夺
-过度收割是把双刃剑，当
-生长速度跟不上收割速度
-韭菜们只能无奈地乖乖躺平
+🔗[viktor-orban-ungarns-regierungschef-will-eu-parlament-entmachten](https://www.spiegel.de/ausland/viktor-orban-ungarns-regierungschef-will-eu-parlament-entmachten-a-a9d5a65d-84be-42d5-a4b1-ed9b8312e71f)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20041408/image0-34-1.jpg)
-
-丧钟为谁而鸣？
-围堵的号角已经吹响
-台上的演员还在吹拉弹唱
-台下的观众只剩一群傻子
-所有枉费心机的折腾
-不过是为了延长散场的时间
-
-（出于安全原因，本文暂时隐去原作者及原文来源信息）
-
-编辑/上传：遍地开花 审核/发布：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01052420/6_june-1.jpg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01162447/gnews-logo.jpeg)
-
-
-
-
-
-0
++1

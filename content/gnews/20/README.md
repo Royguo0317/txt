@@ -1,29 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Delta变体在德国继续增加
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1336419/)
+## 【一线新闻】深圳下十围村疫情、广东省疫情管控实时报道
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1336474/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年6月18日
-翻译 /整理/ 简评： Shuizhuyu
+前方记者：香草山记者站 悟空
+文字编写：香草山写作组 车水马龙
+指导：Kathy（文艺）
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22142112/bermix-studio-yWYiNNK_tOI-unsplash-scaled.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
 
 
-病毒变种 Alpha 使冬季难以控制大流行。她更具传染性。 delta 变体的比例现在在德国略有增加。是否有第四波的威胁？一位免疫学家警告说“不要鲁莽解封”。
 
-在印度发现的冠状病毒变种 Delta 在一周内显着增加了其在德国新感染 Sars-CoV-2 的比例。根据罗伯特科赫研究所 (RKI) 的最新报告，在第 22 个日历周（5 月 31 日至 6 月 6 日）中，这一比例为 6.2%，但仍然相对罕见。
 
-在前一周（第 21 周），所检查样本中的 delta 变体比例为 3.7%。每周RKI 会评估，报告被归类为令人担忧的病毒变体的比例。
 
-“我们必须小心”，对于多特蒙德免疫学家 Carsten Watzl 来说，仅 delta 变体的显着增加并不能预示第四波即将到来。他在推特上写道：“但我们必须小心，不要因为鲁莽的开场而再次上升。” Watzl 根据较小的数据收集估计，目前德国的 delta 变体比例已经超过 10%。
+2021年6月19日，广东省深圳市宝安区福围路199号附近（鼓点音乐艺术中心）一群戴着口罩，戴着眼罩，戴着手套，穿着制服的人有序进入深圳下十围村，这是要进行封村的行动吗？
+（制服人员进村，视频来源：悟空） 
+居住在该地区一朱姓女士已确诊为新冠肺炎，该地区正在进行封村管理，只进不出。所有人员进行居家隔离7天，并于第1、4、7天开展核酸检测。
 
-简评： 不解决病毒的根源， 不追踪病毒真相， 不向中共追责， 病毒的扩散和变异可能永远不能遏制。 中共有解药， 灭掉中共就可以免除病毒的伤害。 全世界已经有3百多万人因为中共病毒丧生。 而病毒并没有缓解的迹象。 找中共追解药是唯一方式。
+同时，微信朋友圈流传这样的管控措施：
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+1.6月11日以来有民治派出所活动史的，立即居家隔离7天，第1、4、7天开展核酸检测。
+2.6月11日以来有民治街道滢水山庄活动史的，立即居家隔离7天，第1、4、7天开展核酸检测。
+3.6月11日以来有龙华分局个单位（不含民治派出所）活动史的，立即开展核酸检测。
+4.6月11日以来有与龙华分局人员接触的，立即开展核酸检测。
+5.非必要不前往龙华分局各单位。
 
-🔗[Delta-Variante-Zunahme-in-Deutschland-Droht-damit-eine-vierte-Welle](https://www.welt.de/politik/deutschland/article231893385/Delta-Variante-Zunahme-in-Deutschland-Droht-damit-eine-vierte-Welle.html)
+同时记者也了解到：
+
+目前，广州、深圳、东莞三个城市已经接近完全封闭的状态，大家基本不能往来。很多人家在东莞，人在深圳上班。前往深圳上班需要48小时内核酸检测报告。各地区已提前安排很多隔离酒店，且这种安排是在没有病例公布之前的情况下进行的。
+
+疫情管理进一步措施：所有东莞某地区的人，48小时内不做核酸检测的话，绿码自动转为黄码。
+
+校对/发稿：小小安
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05114855/6_june-3.jpg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文)**
+
+[**纽约香草山农场Twitter(****英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
+
+
+
+
 
 0
