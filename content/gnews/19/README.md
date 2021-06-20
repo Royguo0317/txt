@@ -1,34 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 各位男性，你们做好了传宗接代的准备了吗？
-` 闪电侠` [轉載自GNews](https://gnews.org/zh-hans/1335642/)
+## Covid-19起源、中国共产党知道以及世界卫生组织进行彻底认真调查
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1335697/)
 
-**撰稿：脐橙君**
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19225200/34-6.jpg)
-一篇题为“中国科学家让公鼠怀孕”的新闻，从昨天开始，刷爆党媒，就如同当年那个编辑婴儿基因的科学家一样，这样有违伦理道德的实验，总能在中共国引发一阵追随和狂热。
+**字幕内容：**
 
-今天，澎湃新闻再刊登一篇题为“中国科学家让公鼠怀孕，10只幼崽发育至成年”的文章，再次把这个话题的热度维持在顶峰。
+Rep. Mariannette Miller – Meeks (R-Iowa)
+众议员玛丽安内特米勒 – 米克斯(共和党-爱荷华州)
 
-报道称，近日，中共国科学家的一项研究成果显示，通过在雄鼠身上构建的怀孕老鼠模型，雄鼠通过剖腹产成功分娩出幼崽，最终有10只幼崽发育到成年。
+I asked unanimous consent to address the house for one minute
+我要求一致同意在众议院发言一分钟
 
-上述研究成果发表在生命科学预印本平台bioRxiv上，题为《A rat model of pregnancy in the male parabiont》，发表时间为6月16日，作者系海军医科大学海军医学院教育机构实验教学示范中心、海军医科大学海军医学院营养与食品卫生系张荣佳及海军医科大学长海医院妇产科刘玉环。该论文目前尚未经过同行评审，未正式发表。
+and to revise and extend my remarks.
+并修改和扩展我的评论
 
-又是军医院，这次造成全世界大流行的中共病毒，就出自军事医学院之手，这次让公鼠怀孕的实验再一次由军医院完成，中共军方的实验室究竟还有多少邪恶、有违常理的研究正在进行中。
+Mr. Speaker
+议长先生
 
-本次实验的组织学检查显示，通过剖腹产成功从雄鼠体内中分娩的后代心脏、肺、肝脏、肾脏、大脑、睾丸、表皮、卵巢或子宫没有明显异常。但该研究最后总结道，该实验成功率非常低，仅为3.68%。
+Without objection the gentlewoman from Iowa was recognized for one minute.
+无异议，来自爱荷华州的女士被给予一分钟
 
-这个成功率低的表述我不知道是中共想要强调什么，强调在那么低的成功率的概念下，依然能有成功的案例？还是刻意强调这个低的概率，让人不要对此太多上心和关注？无论是何种解释，中共的邪恶念头已经体现了，就是文章开篇的第一句话：雄性能否分担孕育后代的重担？
+Rep. Mariannette Miller – Meeks
+众议员玛丽安内特米勒 – 米克斯
 
-这里的雄性难道只是指动物中的性别吗？还是为中共接下去更邪恶的步骤做进一步铺垫？
+Thank you Mr Chair, Mr Speaker.
+谢谢主席先生，议长先生
 
-如果我们将此新闻与中共持续下降的人口做联系的话，如果我们将此新闻与中共当局鼓励三胎做联系的话，你还会否认，存在一种让男性承担怀孕生子义务的可能吗？恐怕这种邪恶的念头在中共那里并不算什么，反而是一个解决他们大患的实操方法罢了。
+I rise today to address an incredibly important national security issue.
+我今天提起一个极其重要的国家安全问题
 
-（本文只代表作者观点，与Gnews平台无关。）
+We all know that Wuhan China,
+众所周知中国武汉
 
-**新闻来源：**
-[中国科学家让公鼠“怀孕”，10只幼崽发育到成年*媒体*澎湃新闻-The Paper](https://www.google.com.hk/url?sa=i&amp;url=http%3A%2F%2Fwww.thepaper.cn%2FnewsDetail_forward_13222576&amp;psig=AOvVaw1oEMtuP4Ri7Q9NIDIiKATK&amp;ust=1624243716838000&amp;source=images&amp;cd=vfe&amp;ved=0CAkQjhxqFwoTCMC34MaZpfECFQAAAAAdAAAAABAD)
+where the COVID-19 virus originated,
+COVID-19 病毒的爆发起源地
 
-***校对发布：文顾***
+is the home to the Wuhan Institute of Virology
+它也是武汉病毒学研究所的所在地
 
-+2
+The WIV is China’s only cellular level 4 biosafety super laboratory
+武汉病毒学研究所是中共国唯一的细胞4级生物安全超级实验室
+
+that researches human infectious diseases
+研究人类传染病的
+
+This lab is in very close proximity to the wet market
+这个实验室非常靠近海鲜农贸市场
+
+that is reputed to be the origin of COVID-19
+该农贸市场曾被认为是 COVID-19 的起源地
+
+last year Senator Tom Cotton was thoroughly dismissed for questioning
+去年参议员汤姆·科顿因质疑这种病毒的
+
+the true origins of this virus
+真正来源而被彻底驳回
+
+signing the Chinese Communist Party’s duplicity and dishonesty from the very beginning.
+显示了中国共产党一开始的两面派和不诚实
+
+We all know that the Chinese Communist Party lied to the world
+众所周知，中共对世界撒谎
+
+about the severity of COVID-19
+关于 COVID-19 的严重性
+
+how it is transmitted, and the dangers associated,
+它是如何传播的，以及相关的危险
+
+there needs to be a thorough and serious investigation into the origins of COVID-19
+我们需要对 COVID-19 的起源进行彻底而认真的调查
+
+what the Chinese Communist Party knew and when,
+中国共产党知道什么？什么时候知道的？
+
+and what the World Health Organization knew and when
+以及世界卫生组织知道什么以及什么时候知道的
+
+uncovering the origins of COVID-19 will be incredibly helpful
+揭示 COVID-19 的起源将非常有帮助
+
+and helping us to prepare for the next pandemic,
+并帮助我们为下一次大流行病做好准备
+
+which I think is something we can all agree on.
+我认为这是我们都同意的事情
+
+Thank you Mr Speaker, I yield back my time.
+谢谢议长先生，现在把我的时间还给你。
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接:[https://twitter.com/repmmm/status/1405908913799647233?s=24](https://twitter.com/repmmm/status/1405908913799647233?s=24)
+英听校： 康州盘古农场 – Layka
+翻译： 康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发布：康州盘古农场 – 彩虹 Rainbow
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0

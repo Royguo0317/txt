@@ -1,36 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】除你以外，我还有谁呢？
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1335603/)
+## 【路德社即时简报】习神说中共“百年”不阅兵
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1335682/)
 
-配音：香草山福音部 Daxia
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+香草山翻译部：GBW
 
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/17193307/gnews-logo-1.jpeg)
 
 
 
+2021年6月19日晚，路博艾
 
-- 除你以外，在天上我有谁呢？除你以外，在地上我也没有所爱慕的。
-- 我的肉体和我的心肠衰残；但　神是我心里的力量，又是我的福分，直到永远。（诗篇 73:25-26）
+**1. 3月23日，习神说中共“百年”不阅兵，但有空中飞行表演。**
 
+a. 路德：三月就说不搞了。可能请不到各国领导出席。
 
-《除你以外》是一首非常好听的赞美诗歌，当中的语句来自《圣经》诗篇73篇。该篇讲述的是诗人感恩神“恩待以色列清心的人”，致使一群依靠神的勇士在与仇敌争战时保持淡定，神的百姓依靠神战胜了恐惧和邪恶。这种超然物外之心、笑看仇敌的计谋，是何等的悲壮和伟大啊！
+b. 博博士：安全也是因素。
 
+**2. 在纳粹入侵苏联80周年之际，默克尔称父辈的罪行 “令人羞愧”。**
 
+a. 路德：中共的罪行也将成为中国人长期的耻辱，所以中国人要认清中共邪恶，切割。
 
-**文字版原文：[【信仰之声】除你以外，我还有谁呢？](https://gnews.org/zh-hans/1327905/)**
+b. 路德：纳粹输了，因为它的民族主义和专制的诉求是不正义的，而英美在《大西洋宪章》呼唤自由平等。
 
-作者：纽约香草山福音部 捆绑CCP一千年
+c. 路德：集体主义就是镰刀。
 
+**3. 美国海军杰拉尔德-R-福特号：78号军舰完成了全舰冲击试验的第一次爆炸测试。**
 
+a. 博博士：这样的测试将确保航母在战斗中能够承受冲击。
 
-音频处理/发稿：雪梨
+b. 路德：美国对隐蔽工程的细节都认认真真真去做。中国的航母可能从未经历过这样的测试。中共正经事做不好，只能搞邪的。
+
+**3. 澎湃新闻：中国“太空变形金刚”让美军怕了。博博士：太空机械手臂技术美国80年代就有了。**
+
+**4. 观察者网：中共说“新冠溯源”，美国必须给世界一个交代。艾丽：中共媒体只说政治正确的话。**
+
+笔记仅作参考，内容以路德社节目为准。
+
+视频来源：[https://www.youtube.com/watch?v=0-PwMP3fjSA](https://www.youtube.com/watch?v=0-PwMP3fjSA)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+编辑/校对/发稿：正义的小新
 
 **更多资讯，更多关注**
 

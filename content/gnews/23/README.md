@@ -1,54 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国大外宣机构利用匿名科学家打击实验室泄漏理论
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1335539/)
+## G7峰会主旋律——专心灭共
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1335672/)
 
-新闻来源：《华盛顿自由灯塔报》| 作者： Jack Beyrer 杰克·贝耶尔| 发布时间：2021年6月17日
+撰稿：Hong
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19225927/20210620_Task1_cover.jpg)图片来自网络
+今年的七国集团峰会(G7)与往年不同，峰会主旋律就是组建西方灭共联盟，专心灭共。无论是在英国举办的G7峰会还是在布鲁塞尔举行的北约峰会上，包括美日、美韩、美英澳首脑的会谈，加上拜登总统在日内瓦与俄罗斯总统普京的会晤都向全世界发出了一个强烈的灭共信号。
 
-翻译/简评：铜豌豆 | 校对：SilverSpurs7 | 审核：Beicy-数学老师 | Page：Daoiii
+G7峰会各国首脑纷纷响应拜登总统提出的民主国家要提供替代中共的高标准方案，不允许中共参与国际贸易和技术规则制定的呼吁，全球牢不可破的灭共联盟已形成，开启了对中共全方位、全领域的对抗。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/T5jtGbyBFCC6p/images/b0457cbb-8f35-4ae6-83b5-92b067f2cbbe.jpg?asset_id=07103dd0-60a4-4692-81ba-bce1eba07ced&amp;img_etag=%2232f7942118053c0b04e6a932615de54e%22&amp;size=1024)](https://spark.adobe.com/page/T5jtGbyBFCC6p/images/b0457cbb-8f35-4ae6-83b5-92b067f2cbbe.jpg?asset_id=07103dd0-60a4-4692-81ba-bce1eba07ced&amp;img_etag=%2232f7942118053c0b04e6a932615de54e%22&amp;size=1024)图片来源：华尔街日报
+G7峰会联合公报70多条内容，几乎条条戳中了中共要害。公报第16条，呼吁世卫组织对中共病毒起源进行及时丶透明丶基于证据为基础的第二阶段调查。自从中共释放病毒以来，全球已有超过380万人死于中共病毒，1.7亿多人饱受中共病毒的折磨。目前中共制造生物武器病毒的证据越来越多，病毒起源的真相越来越近，全球向中共政权问责，并要求索赔的意志和决心越来越坚定，这必定让中共政权赔到破产，赔到崩溃，赔到坐牢。公报第49条，重点指出中共政权在新疆、香港存在尊重人权和基本自由的问题。中共对新疆维吾尔族人犯下了种族灭绝罪，对香港人民实施武力镇压，遭到国际社会的一致声讨，G7峰会开启了把中共推向国际审判台关键的一步。公报第60条，首次强调台湾和平与稳定的重要性，并鼓励以和平方式解决两岸议题，同时强调欧盟密切关注东海和南海局势，这对中共来说将是致命的一击。
 
-**简评：**
+北约联合公报反复抨击中共军事扩张，视中共为系统性安全威胁，北约组织誓言齐心协力对抗中共军事挑衅和威胁。美日、美韩、美英澳国家首脑分别会晤并发表联合声明，强调在中共威胁台湾之际，台湾海峡和平的重要性，并组建联盟，加强在东海、南海、台湾，印太地区的军事合作，将战略重心转向印太地区。拜登总统在日内瓦与俄罗斯总统普京会面后，发表美俄总统关于战略稳定的联合声明，对减少武装冲突和控制核战争达成共识，双方达成军事战略互信。所有这些军事战略都表明，西方灭共联盟军事战略的重锤砸直击中共的要害，使得中共睡觉都不得安稳。
 
-美国《华盛顿灯塔报》针对中共国《环球时报》发出的、利用匿名科学家之名、打击实验室泄漏理论，也借用科学之名予以还击，文中提到了前《纽约时报》科学专题记者：尼古拉斯·韦德和唐纳德·麦克尼尔近期所撰写的一系列科学性质的文章。同时，灯塔报也引用了前美国国务卿彭佩奥在2021年6月13日的表态，以证明大量证据已经证明了中共病毒的非自然起源。
+G7峰会将推动重建美好世界（B3W）全球基础建设倡议，旨意在通过向发展中国家提供一项基础设施发展计划，以对抗中共“一带一路”在全球的战略扩张及潜在的经济和政治陷阱，这一倡议将打破中共“一带一路”殖民世界的美梦。
 
-从该文的立场来看，文章在坚定捍卫中共病毒实验室泄漏说。除此之外，文章还指出两名美国共和党国会议员已从立法层面采取了行动，打算制裁传播假消息的中共党员和呼吁加强病毒来源的调查。随着势不可挡的大量科学证据的海量涌现，病毒自然起源假说会更加节节败退，美国前国务卿蓬佩奥在解释实验室泄漏理论时，提到了“无意泄漏”和“故意泄漏”两个可能性。中共下一步会选择坚守实验室“无意泄漏”。彼德·达扎克（Peter Daszak）的生态健康联盟（EcoHealth Alliance）将首先被清算。
+今年的G7峰会真真正正印证了郭文贵先生四年来的爆料。郭先生一次又一次地警告全世界，病毒是中国共产党制造并故意释放的生物武器；郭先生也是全球第一位最早站出来揭露中共建造新疆集中营的人士,并呼吁全球关注、支持香港。郭先生早就警告过全世界，要看清中共“一带一路”中共人民币国际化、军事扩张、企图**控制全世界**的野心**。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19230029/20210620_Task1a.jpg)图片来自GNEWS
+G7峰会组建灭共联盟，重组不允许中共参与的国际战略秩序已被写进历史，郭文贵先生曾说过，美国的人反应可能是慢，但是美国人一旦反应过来，无人可以阻挡。真正来实行和实施我们的爆料革命的下一个目标是，以美灭共、以国际灭共、以法灭共。现在，真正灭共的时代已经到来，中共在世界上不顾天理、横行霸道的日子已经到头了！
 
-**原文翻译：**
+（文章仅代表作者个人观点，与GNews无关）
 
-## **中共国大外宣机构利用匿名科学家打击实验室泄漏理论**
+新闻参考来源：
 
-**《环球时报》专栏通过匿名“中共国-世卫组织”病毒学家抨击对于实验室泄漏的关切**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/T5jtGbyBFCC6p/images/83b3868f-5b00-48b2-b69c-58710404305c.jpg?asset_id=93145f8d-3f9e-4b47-82a5-343e29c03753&amp;img_etag=%22bbe825737ef225c8671d2bffc9f4e1be%22&amp;size=1024)](https://spark.adobe.com/page/T5jtGbyBFCC6p/images/83b3868f-5b00-48b2-b69c-58710404305c.jpg?asset_id=93145f8d-3f9e-4b47-82a5-343e29c03753&amp;img_etag=%22bbe825737ef225c8671d2bffc9f4e1be%22&amp;size=1024)武汉病毒研究所 Getty（盖蒂图片社）供图
-
-一家中共国外宣机构正在利用所谓的匿名消息来源——被描述为“接近中共国-世卫组织联合调查研究任务”的病毒学家们——来反击日益增长的怀疑，怀疑新冠病毒全球大流行是实验室泄漏造成的。
-
-中共国王牌外宣机构之一的《环球时报》刊登了一篇未署名的文章，其中引用了多个匿名消息源，称他们“决定打破沉默”，要否认由于实验室泄漏而导致大流行病的任何可能性。
-
-“该病毒不可能是在（武汉病毒研究所）制造的”，一位消息人士说，”我相信，总有一天在自然界里会发现这个原生病毒，科学终将压倒一切！”
-
-该消息人士还说，西方权威们正在“将病毒溯源问题政治化”，并且“阻挠科学和理性的调查”。
-
-这篇文章把对病毒起源的调查描述为：“抨击中国”和“某些个人”为了获得个人名声的工具。
-
-相比之下，越来越多的知名科学家、记者和立法者已经站出来，支持各类证明冠状病毒可能源于中共武汉病毒研究所的证据。前《纽约时报》科学专题记者，尼古拉斯·韦德（Nicholas Wade）和唐纳德·麦克尼尔（Donald McNeil）都撰文，针对之前被广泛接受的、认为冠状病毒是从一个海鲜市场自然传播开来的观点，表示了怀疑。前国务卿迈克·彭佩奥（Mike Pompeo）周日说，“证据大量堆积，都快一百英尺高了”，这都是在支持实验室泄漏理论。
-
-与此同时，国会共和党议员已经采取了行动，惩罚中共国，因为他们掩盖病毒来源的所作所为。众议员罗伯·维特曼（Rob Wittman）和安·瓦格纳（Ann Wagner）提出立法制裁中共国在掩盖病毒来源所扮演的角色。弗吉尼亚议员罗布·维特曼和密苏里议员安·瓦格纳提出了立法草案，要求制裁传播虚假信息的中国共产党党员，并呼吁加强对病毒来源的追查力度。
-
-一个独立的卫生与公众服务监督机构已宣布进行一项调查，针对美国国家卫生院使用美国纳税人上缴的税金资金支持与武汉病毒研究所的合作。
-
-🔗[原文链接](https://freebeacon.com/national-security/chinese-propaganda-outlet-trots-out-anonymous-scientists-to-combat-lab-leak-theory/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+1. [https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/16/u-s-russia-presidential-joint-statement-on-strategic-stability/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/06/16/u-s-russia-presidential-joint-statement-on-strategic-stability/)
+2. [https://www.whitehouse.gov/briefing-room/statements-releases/2021/04/16/u-s-japan-joint-leaders-statement-u-s-japan-global-partnership-for-a-new-era/](https://www.whitehouse.gov/briefing-room/statements-releases/2021/04/16/u-s-japan-joint-leaders-statement-u-s-japan-global-partnership-for-a-new-era/)
+3. [https://www.taiwannews.com.tw/en/news/4178911](https://www.taiwannews.com.tw/en/news/4178911)
+4. [https://www.reuters.com/world/g7-counter-chinas-belt-road-with-infrastructure-project-senior-us-official-2021-06-12/](https://www.reuters.com/world/g7-counter-chinas-belt-road-with-infrastructure-project-senior-us-official-2021-06-12/)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+* * *
 
-[!\[\]()!\[\](https://spark.adobe.com/page/T5jtGbyBFCC6p/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)](https://spark.adobe.com/page/T5jtGbyBFCC6p/images/3beba06b-e435-49e1-9970-93742605816f.jpg?asset_id=874a1d6f-fe65-46cc-8130-9efcfb99fbef&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+*发布：光耀华夏*
 
-0
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19230305/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
++1

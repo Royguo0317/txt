@@ -1,104 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Covid-19起源、中国共产党知道以及世界卫生组织进行彻底认真调查
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1335697/)
+## 美国联邦通信委员会投票通过提议禁止华为和中兴设备
+` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1335756/)
 
-**字幕内容：**
+翻译：康州盘古农场 – B7
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 –傻小子
 
-Rep. Mariannette Miller – Meeks (R-Iowa)
-众议员玛丽安内特米勒 – 米克斯(共和党-爱荷华州)
+据《/www.channelnewsasia.com》作者：David Shepardson 报道；Cate Cadell 在北京补充报道，2021 年 6 月 18 日发布
 
-I asked unanimous consent to address the house for one minute
-我要求一致同意在众议院发言一分钟
+华盛顿——美国联邦通信委员会 (FCC) 周四一致投票通过一项计划，禁止批准华为和中兴等被视为美国家安全威胁的中共国公司的设备在美国电信网络中使用。
 
-and to revise and extend my remarks.
-并修改和扩展我的评论
+投票遭到北京方面的反对。
 
-Mr. Speaker
-议长先生
+根据获得初步批准的拟议规则，FCC 还可以撤销先前发给中共国公司的设备授权。
 
-Without objection the gentlewoman from Iowa was recognized for one minute.
-无异议，来自爱荷华州的女士被给予一分钟
+华为发言人在一封电子邮件中称 FCC 的修订是“误导和不必要的惩罚”。
 
-Rep. Mariannette Miller – Meeks
-众议员玛丽安内特米勒 – 米克斯
+FCC 代理主席杰西卡·罗森沃塞尔 (Jessica Rosenworcel) 表示，新措施将“从我们的通信网络中排除不可信的设备……我们通过设备授权流程为（华为和其他中共国设备）在美国使用提供了机会。因此，我们在这里建议：关上那扇门。”
 
-Thank you Mr Chair, Mr Speaker.
-谢谢主席先生，议长先生
+FCC 专员 Brendan Carr 表示，自 2018 年以来，FCC 已经批准了超过 3000 份来自华为的申请。
 
-I rise today to address an incredibly important national security issue.
-我今天提起一个极其重要的国家安全问题
+FCC 的行动将禁止未来被视为对美国家安全构成不可接受风险的通信设备的所有授权。
 
-We all know that Wuhan China,
-众所周知中国武汉
+中共国外交部发言人赵立坚说：“美国在没有任何证据的情况下，仍然滥用国家安全和国家权力打压中国企业，”。
 
-where the COVID-19 virus originated,
-COVID-19 病毒的爆发起源地
+赵立坚在北京举行的例行媒体吹风会上说：“我们再次敦促美方停止夸大国家安全概念，停止将经济问题政治化，”。
 
-is the home to the Wuhan Institute of Virology
-它也是武汉病毒学研究所的所在地
+今年 3 月，根据 2019 年旨在保护美国通信网络的法律，美国联邦通信委员会将五家中共国公司列为对美国家安全构成威胁。
 
-The WIV is China’s only cellular level 4 biosafety super laboratory
-武汉病毒学研究所是中共国唯一的细胞4级生物安全超级实验室
+包括民主党参议员埃德·马基 (Ed Markey) 和共和党参议员马可·卢比奥 (Marco Rubio) 在内的一众美国立法者称赞 FCC 的行动，称这反映了两党立法的目标。他们表示，FCC 投票决定“将受到操控的中共国设备排除在美国电信网络之外，从而将美国家安全放在首位”。
 
-that researches human infectious diseases
-研究人类传染病的
+受影响的公司包括先前指定的华为和中兴通讯，以及海能达通信、杭州海康威视数字技术有限公司和浙江大华科技有限公司。
 
-This lab is in very close proximity to the wet market
-这个实验室非常靠近海鲜农贸市场
+华为表示，“基于‘预测性判断’阻止采购与原产国或品牌相关的设备是没有根据的、具有歧视性的，对保护美国通信网络或供应链的完整性无济于事。”
 
-that is reputed to be the origin of COVID-19
-该农贸市场曾被认为是 COVID-19 的起源地
+2020 年 8 月，美国政府禁止联邦机构从这五家中国公司中的任何一家购买商品或服务。
 
-last year Senator Tom Cotton was thoroughly dismissed for questioning
-去年参议员汤姆·科顿因质疑这种病毒的
+2019年，美国将华为、海康威视等企业列入经济黑名单。
 
-the true origins of this virus
-真正来源而被彻底驳回
+去年，美国联邦通信委员会将华为和中兴列为对美通信网络的国家安全威胁——这一声明禁止美国公司动用 83 亿美元的政府资金从这些公司购买设备。
 
-signing the Chinese Communist Party’s duplicity and dishonesty from the very beginning.
-显示了中国共产党一开始的两面派和不诚实
+美国联邦通信委员会在 12 月最终确定了规则，要求拥有中兴通讯或华为设备的运营商“拆除和更换”这些设备。它为此提出了一项补偿计划，美国立法者在 12 月批准了 19 亿美元的资金。
 
-We all know that the Chinese Communist Party lied to the world
-众所周知，中共对世界撒谎
+Rosenworcel 表示，美国联邦通信委员会将在 7 月投票最终确定监管报销基金的规则。
 
-about the severity of COVID-19
-关于 COVID-19 的严重性
-
-how it is transmitted, and the dangers associated,
-它是如何传播的，以及相关的危险
-
-there needs to be a thorough and serious investigation into the origins of COVID-19
-我们需要对 COVID-19 的起源进行彻底而认真的调查
-
-what the Chinese Communist Party knew and when,
-中国共产党知道什么？什么时候知道的？
-
-and what the World Health Organization knew and when
-以及世界卫生组织知道什么以及什么时候知道的
-
-uncovering the origins of COVID-19 will be incredibly helpful
-揭示 COVID-19 的起源将非常有帮助
-
-and helping us to prepare for the next pandemic,
-并帮助我们为下一次大流行病做好准备
-
-which I think is something we can all agree on.
-我认为这是我们都同意的事情
-
-Thank you Mr Speaker, I yield back my time.
-谢谢议长先生，现在把我的时间还给你。
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接:[https://twitter.com/repmmm/status/1405908913799647233?s=24](https://twitter.com/repmmm/status/1405908913799647233?s=24)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
+原文连接：[https://www.channelnewsasia.com/news/business/us-fcc-votes-to-advance-proposed-ban-on-huawei–zte-gear-15035558](https://www.channelnewsasia.com/news/business/us-fcc-votes-to-advance-proposed-ban-on-huawei--zte-gear-15035558)
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
 康州盘古农场欢迎您加入:(或点击上方图片）
 
