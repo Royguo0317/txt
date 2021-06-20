@@ -1,152 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙文推荐】中共危机四伏急刹车，不再受理启动城市轨道交通建设规划的申请（下）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1335281/)
+## 伪造淫乱派对致女同学深度抑郁的学生会主席是何尊容
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1335524/)
 
-作者：智谷趋势 逍道一
-荐评：经济小组/纽约香草山农场 乱谈秦
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19212721/%E6%8D%95%E8%8E%B7_%E5%89%AF%E6%9C%AC-20.png)
+据[lily \[email protected\]](https://twitter.com/lilyval15187063)于[下午10:55 · 2021年6月19日](https://twitter.com/lilyval15187063/status/1406264480686804994)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
+这样一个龌龊无耻的人居然是学生会主席！
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
+> 这样一个龌龊无耻的人居然是学生会主席！ [pic.twitter.com/Ncg24Vulo7](https://t.co/Ncg24Vulo7)
+> — lily valley (@lilyval15187063) [June 19, 2021](https://twitter.com/lilyval15187063/status/1406264480686804994?ref_src=twsrc%5Etfw)
 
 
-接上文：
 
-[【墙文推荐】中共危机四伏急刹车，不再受理启动城市轨道交通建设规划的申请（上）](https://gnews.org/zh-hans/1335228/)
+推文配图一、
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19211418/E4QOFC6XIAMdjYf.jpg)
+推文配图二、
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19211401/E4QOFC2WEAYfs9J.jpg)
+推文配图三、
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19211347/E4QOFCzWQAMb62F.jpg)
+推文配图四、
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19211329/E4QOFCyWYAceqpp.jpg)
+据[**猫头鹰视频**](https://weibo.com/5444894547?refer_flag=1001030103_) [2021年06月18日 12:15](https://weibo.com/5444894547/KkJrdqgsG?refer_flag=1001030103_) 来自 [微博视频号](//gotovideo?selected_containerid=231643_11_5009&amp;source=vchannel_verify&amp;extension=%7b%7d)
 
-原文来源：微信公众号 – 智谷趋势
+【[#*中大学生干部造谣**10**多名女生*#](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%A4%A7%E5%AD%A6%E7%94%9F%E5%B9%B2%E9%83%A8%E9%80%A0%E8%B0%A310%E5%A4%9A%E5%90%8D%E5%A5%B3%E7%94%9F%23)开”淫乱派对”，P图聊天记录传播”吃瓜”】近日，广东珠海。*中*山大学一男生赵某晨*造谣多名*女学生为“小母狗”参加“淫乱派对”，伪造截图、裸照等不实信息被*多*人传播，致涉事*女生*抑郁，并且污蔑另一位同校男生私生活混乱，严重影响对方精神生活和社交状态。据悉赵某晨是院学生会主席，报警后假装头晕，道歉不诚恳。
 
-原文链接：原文链接：地铁高铁急刹车！中西部流泪，55座城市慌了，你的家乡正在被“抛弃”\_https://mp.weixin.qq.com/s/2KWBJAYFairA\_GLGaJRojQ
+6月17日21时许，[@*中*山大学](https://weibo.com/n/%E4%B8%AD%E5%B1%B1%E5%A4%A7%E5%AD%A6) 通报称，给予赵某晨开除学籍处分。珠海警方调查确认*中*山大学学生赵某晨，在朋友圈捏造事实诽谤他人，并给当事人造成了*名*誉损害。6月11日，珠海警方对赵某晨，予以行政拘留三日处罚。6月15日，警方组织涉事当事人进行案情通报。（来源：[@猫头鹰视频](https://weibo.com/n/%E7%8C%AB%E5%A4%B4%E9%B9%B0%E8%A7%86%E9%A2%91)）[#*中*山大学通报赵某晨*造谣多名女生*#](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%B1%B1%E5%A4%A7%E5%AD%A6%E9%80%9A%E6%8A%A5%E8%B5%B5%E6%9F%90%E6%99%A8%E9%80%A0%E8%B0%A3%E5%A4%9A%E5%90%8D%E5%A5%B3%E7%94%9F%23) [L猫头鹰视频的微博视频](http://t.cn/A6fv6i8X)
 
-* * *
+由于微博长图展示不方便，以下为对[**然后下面就没了**](https://weibo.com/2006455031?refer_flag=1001030103_) [06月17日 22:35](https://weibo.com/2970036311/KkE4gCiSC?refer_flag=1001030103_) 来自 [iPhone 12 Pro Max](https://weibo.com/)微博长图的视频展示——
 
-* * *
+那么这个赵铭晨到底是何许人也？我们看一下被打了马赛克的赵铭晨的尊容——，据[**不要乱扔乐色**](https://weibo.com/5766907756?refer_flag=1001030103_) [2021年6月20日 07:18](https://weibo.com/5766907756/KkIAp3naI?refer_flag=1001030103_)
 
-***03***
+[#中山大学通报*赵*某晨造谣多名女生#](https://s.weibo.com/weibo?q=%23%E4%B8%AD%E5%B1%B1%E5%A4%A7%E5%AD%A6%E9%80%9A%E6%8A%A5%E8%B5%B5%E6%9F%90%E6%99%A8%E9%80%A0%E8%B0%A3%E5%A4%9A%E5%90%8D%E5%A5%B3%E7%94%9F%23)*赵铭晨*和钟可立，已打码。 ​
 
-截至到去年底，国内已有5个省份的高铁运营里程突破2000公里，分别为：安徽、广东、辽宁、江苏、山东。
+虽然不是无码清晰照，但是已经聊胜于无了，下面让我们逐张查看这一起致使同校女同学深度抑郁和焦虑的中山大学学生会主席赵铭晨及其同伙的打码照——
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19193218/16-12.jpg)图片来源：搜狐城市
+打码照一——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19211155/%E9%A9%AC%E4%B8%80.jpg)
+打码照二——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19211202/%E9%A9%AC%E4%BA%8C.jpg)
+打码照三——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19211212/%E9%A9%AC%E4%B8%89.jpg)
+打码照四——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19211220/%E9%A9%AC%E5%9B%9B.jpg)
+打码照五——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19211230/%E9%A9%AC%E4%BA%94.jpg)
+我们不用道德审判，约PAO是个人私事，只要你情我愿即与他人无关，但约PAO不成就伪造和大肆传播女同学的所谓小母狗淫乱派对，在造成女同学重度抑郁和焦虑并被抓现行之后，依然恬不知耻的中山大学学生会主席赵铭晨和钟可立，就很有CCP的STYLE了，就很有中国特色社会主义了。
 
-安徽超过广东高居第一，辽宁超过江苏、山东进入前三。
+（文章内容仅代表作者个人观点）
 
-“西部城事”指出，这种分布状况其实已经能够反应出一些问题——**过去的高铁修建，未必和地方经济实力与客流量完全匹配**。
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-而随着高铁建设门槛提高，这一现象或许很难再重现了。
-
-四部门联合发布意见给跨市域的铁路项目降温，有一个很重要的原因，就是防止各地相互攀比、盲目建设以及片面追求高标准，迅猛增长的里程背后，巨额债务也会累积。
-
-这两年由于疫情和经济下行，中国大力推行减税降负，本来地方钱袋子就紧张。不能再让地方背上巨债了。
-
-从这个角度来看，高铁“减速”与地铁“降温”的逻辑相同。
-
-陕西在意见出台后，就随即宣布：“于2017年12月集中开工的4条关中城际铁路全部进入暂停建设阶段。”
-
-这4条城际铁路分别是西安至韩城、西安至法门寺、法门寺至机场、阎良至机场。一个省暂停所有城际铁路建设，这是非常罕见的举动。
-
-陕西发改委官网回复是：“我省综合考虑全省铁路建设、资金筹措情况，并从防风险角度出发，暂停了城际铁路项目建设。目前，省交通运输厅会同省铁路集团等方面正在梳理城际铁路建设情况，随后将统筹研究推进”。
-
-就是连大湾区也有城市“叫苦”。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19194229/17-10.jpg)
-
-去年12月，网上流传一份真假难辨的《惠州市人民政府关于深汕铁路和深惠城际项目建设方案的复函》，直言“深汕铁路项目建设由深圳市负责出资，我市不承担惠州境内的征拆费用，惠州市不应该也无能力承担项目融资成本和运行补亏责任”。
-
-当第一财经记者向惠州求证时，得到的答复是，文件真实性需要再和各单位进行核实。
-
-按原计划，深汕高铁将由深圳地铁集团承建，工程投资估算总额约506亿元，工期5年，于2020年12月31日开工。
-
-很多人期待修通高铁和地铁，除了交通便利之外，也是看到高铁和地铁能撬动地价，让房价涨起来。
-
-所以提高高铁、地铁审批门槛，其实也相当于**变相调控了楼市，尤其能遏制弱二线和三四线的楼市泡沫**。
-
-***04***
-
-如果说地铁影响的是城市及都市圈，高铁影响的则是区域格局。
-
-中国对区域与国土空间的布局，已经出现了悄然而重大的变化。
-
-今年2月，中共中央、国务院印发《国家综合立体交通网规划纲要》。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19194311/18-12.jpg)
-
-里头有一个细节：
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19194341/19-8.jpg)
-
-到2035年民用运输机场要达到400个左右。但根据2021年最新数据，中国目前仅有241座民用机场。
-
-这意味着，**未来十几年，中国平均每年至少新修****10座机场**。
-
-而且规划还提出，未来“市地级行政中心60分钟到机场，基本实现地级市之间当天可达”。这几乎等于宣告了未来这一轮机场跃进的布局重点，会是在中西部地区、边远地区、民族地区。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19194409/20-6.jpg)
-
-中国的东部地域相对狭小，空域也紧张，加上人口密度大，所以除了航空，还要靠陆路运输完成周转，有时候甚至需要修平行高铁。沪广之间，一度还传说修磁悬浮的消息。
-
-相比之下，西部可能更需要机场。
-
-一是西部的空域不那么紧张，小型机场造价低于高铁。二是**西部地广人稀，高铁的效率没有充分发挥出来**。乌鲁木齐到兰州坐高铁最快需要11小时59分钟，合着半天下来还在西部转悠，连东部的影子都没摸到。换做东部，12小时高铁可以从广州坐到沈阳。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19194151/21-11.jpg)日本网友总结的中国高铁时效图
-
-未来国土空间布局应该不再是高铁遍撒胡椒面，而是呈现东部高铁+航空，西部主打航空的多元并存格局。
-
-美国走过类似的路，只不过美国不是高铁+航空，而是公路+航空。
-
-美国早年也类似“世界工厂”，把生产出的产品卖往世界。像南北战争之前，南方种植庄园的棉花就特别依赖于欧洲市场。
-
-后来全球大打关税战，市场逼近上限，出现了严重的过剩，股市崩盘成为了史上最惊悚1929大萧条的导火索。
-
-于是美国意识到：想可持续发展，还需要一个庞大的国内市场，生产出的东西自己也能消化，这样才能摆脱对国际市场的依赖。
-
-**美国当时的大基建策略是“公路****+机场”**。除了消解产能压力，更重要的是基建促进了统一市场的形成和生产要素的流通。
-
-具体建设上，公路因为区域发展而疏密有别，但是机场却是任何地方的刚需和标配。
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19193136/22-1-11.jpg)
-
-随着“内循环”逐渐转起来，美国从单一倚赖“外循环”，转向了“双循环”驱动。1971年，美国出现了史上首次货物贸易逆差，转向了进口大于出口的经济通道。
-
-中国要稳住中美脱钩的影响，构建起内循环为主的大格局，恐怕还得要**对标上美国空运的发展路径**。
-
-只不过过去由于中国高铁这张名片太亮眼，很多地方产生了路径依赖。总觉得不通高铁和轨道交通，地方就没法发展了。
-
-但进击者往往能打破路径依赖。
-
-比如“火车拉来的”郑州，是国内重要的米字型高铁枢纽，明明可以靠高铁吃饭，郑州非要建空港经济区，拉来富士康，带动当地的产业升级。光是去年，这一片区就给当地贡献了近10%(980亿)的GDP。这座曾经存在感弱的中部省会，如今成为中国孟菲斯最强有力的竞争者之一。
-
-靠“天”吃饭的不止郑州。成都通过机场另辟蹊径，把自己搞成仅次于北上广的第4门户。本月，天府国际机场通航在即，成都会成为中国第3个拥有双机场的城市。
-
-说到底，与其等着，不如自己找路。接下来或许是更具考验的城市新竞争。
-
-* * *
-
-（本文仅代表作者观点）
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01134419/6_june-2.jpg)
-
-编辑/校对/发稿：Irene木木
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter（中文）](https://twitter.com/HIMALAYA_MOS)**
-
-**[纽约香草山农场Twitter（英文](https://twitter.com/MosHimalaya)**[**）**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
-
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/02085432/LOGO3_1.jpg)
-
-
-
-+1
++5

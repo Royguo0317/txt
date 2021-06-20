@@ -1,107 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Covid-19起源、中国共产党知道以及世界卫生组织进行彻底认真调查
-` 康州盘古农场 Himalaya CT Pangu` [轉載自GNews](https://gnews.org/zh-hans/1335697/)
+## 华为和中兴设备在美国将被彻底禁用
+` 军迷wilson` [轉載自GNews](https://gnews.org/zh-hans/1335759/)
 
-**字幕内容：**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19235158/F221D592-8C2E-4D0D-8A1A-331DDDCBCD24_4_5005_c-1.jpeg)http://silkroadnews.org/cn/news/-641830
+#### 加拿大多伦多枫叶农场 军迷Wilson
 
-Rep. Mariannette Miller – Meeks (R-Iowa)
-众议员玛丽安内特米勒 – 米克斯(共和党-爱荷华州)
+据路透社17日报道， 美国联邦通讯委员会(FCC)所有成员，根据今年3月制定旨在保护美国通信网络安全，认定五家中共国公司对美国国家安全构成威胁的法律，于6月16日一致投票支持禁止华为和中兴通讯等所生产的设备在美国使用。
 
-I asked unanimous consent to address the house for one minute
-我要求一致同意在众议院发言一分钟
+这项即将实施的规定，还可以撤销以前向这些企业发放的设备授权许可。这五家公司是华为、中兴、海能达通信、海康威视和大华股份。自2018年以来，仅华为就获得FCC批准3,000多份设备许可，可见中共对美国通讯网络市场渗透的严重程度。
 
-and to revise and extend my remarks.
-并修改和扩展我的评论
+FCC反制中共的举措，获得了美国两党议员的肯定和支持，但也因此付出很大的代价。去年12月，FCC下令美国电信运营商“拆除和更换”中兴、华为等中共国的设备，美国的纳税人为此需要向相关方补偿19亿美元，后续应该还会产生新的补偿，这足以证明美国和中共决裂的决心。
 
-Mr. Speaker
-议长先生
+据郭文贵先生透露，华为是习近平直接掌控的头部企业，肩负军事、民用情报收集和经济侵略双重任务。班农先生指出，华为不属于解放军，因为华为本身就是解放军。这五家红色背景深厚的公司被踢出美国市场，宣告中共称霸全球的计划失败了。
 
-Without objection the gentlewoman from Iowa was recognized for one minute.
-无异议，来自爱荷华州的女士被给予一分钟
+参考链接：
 
-Rep. Mariannette Miller – Meeks
-众议员玛丽安内特米勒 – 米克斯
-
-Thank you Mr Chair, Mr Speaker.
-谢谢主席先生，议长先生
-
-I rise today to address an incredibly important national security issue.
-我今天提起一个极其重要的国家安全问题
-
-We all know that Wuhan China,
-众所周知中国武汉
-
-where the COVID-19 virus originated,
-COVID-19 病毒的爆发起源地
-
-is the home to the Wuhan Institute of Virology
-它也是武汉病毒学研究所的所在地
-
-The WIV is China’s only cellular level 4 biosafety super laboratory
-武汉病毒学研究所是中共国唯一的细胞4级生物安全超级实验室
-
-that researches human infectious diseases
-研究人类传染病的
-
-This lab is in very close proximity to the wet market
-这个实验室非常靠近海鲜农贸市场
-
-that is reputed to be the origin of COVID-19
-该农贸市场曾被认为是 COVID-19 的起源地
-
-last year Senator Tom Cotton was thoroughly dismissed for questioning
-去年参议员汤姆·科顿因质疑这种病毒的
-
-the true origins of this virus
-真正来源而被彻底驳回
-
-signing the Chinese Communist Party’s duplicity and dishonesty from the very beginning.
-显示了中国共产党一开始的两面派和不诚实
-
-We all know that the Chinese Communist Party lied to the world
-众所周知，中共对世界撒谎
-
-about the severity of COVID-19
-关于 COVID-19 的严重性
-
-how it is transmitted, and the dangers associated,
-它是如何传播的，以及相关的危险
-
-there needs to be a thorough and serious investigation into the origins of COVID-19
-我们需要对 COVID-19 的起源进行彻底而认真的调查
-
-what the Chinese Communist Party knew and when,
-中国共产党知道什么？什么时候知道的？
-
-and what the World Health Organization knew and when
-以及世界卫生组织知道什么以及什么时候知道的
-
-uncovering the origins of COVID-19 will be incredibly helpful
-揭示 COVID-19 的起源将非常有帮助
-
-and helping us to prepare for the next pandemic,
-并帮助我们为下一次大流行病做好准备
-
-which I think is something we can all agree on.
-我认为这是我们都同意的事情
-
-Thank you Mr Speaker, I yield back my time.
-谢谢议长先生，现在把我的时间还给你。
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接:[https://twitter.com/repmmm/status/1405908913799647233?s=24](https://twitter.com/repmmm/status/1405908913799647233?s=24)
-英听校： 康州盘古农场 – Layka
-翻译： 康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发布：康州盘古农场 – 彩虹 Rainbow
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[焦点：FCC批准推进一项彻底阻止华为和中兴设备在美国使用的计划](https://cn.reuters.com/article/fcc-huawei-zte-0617-thur-idCNKCS2DU03K)
 
 0
