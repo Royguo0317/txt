@@ -1,32 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 崔大屎和屎馆该如何抗议Kyle Bass的西台湾T恤
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1335929/)
+## 关于发推转推的一些思考与建议
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1335731/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20014201/E4SLpe8XEAYEZ-j_%E5%89%AF%E6%9C%AC.jpg)
-据[Kyle Bass](https://twitter.com/Jkylebass)[@Jkylebass](https://twitter.com/Jkylebass) 于[上午8:04 · 2021年6月20日](https://twitter.com/Jkylebass/status/1406402531987701760)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+撰稿：一中队
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20020142/%E7%89%B9%E6%88%98%E6%97%85%E4%B8%80%E4%B8%AD%E9%98%9F%E7%AC%94%E8%AE%B0.png)（图片来自网络）
+一中队上周对发推数量较少的战友做了排查摸底，每位小队长和他们做了沟通，今晚的例会就如何快速高效发推展开讨论。
 
-Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai)and the Chinese embassy USA ! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@HuXijin\_GT](https://twitter.com/HuXijin_GT)Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
+有些战友之前对发推数量的理解存在误区，因此有必要强调的是：
 
-中文大意：为[@崔天凯大屎](https://twitter.com/AmbCuiTiankai) 和中国驻美国大使馆制作的令人惊叹的新 T 恤！ [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@胡叼盘](https://twitter.com/HuXijin_GT)最有趣的标题赢得一件衬衫！ [#台湾](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
+**我们为什么要发推**
 
+特战旅作为媒体宣传的一个部门，在主要工作就在媒体上大力宣传新中国联邦、爆料革命、病毒真相，那么作为特战旅的一员主要任务就不言而喻。
 
+目前主要战场推特、Gap，就需要我们每天不间断地传播，让更多的人了解、接受、参与，大力推广就需要大力发推，在媒体上立足，让世界听到我们的声音。
 
-> Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) and the Chinese embassy USA 🇺🇸! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA?ref_src=twsrc%5Etfw) [@PDChina](https://twitter.com/PDChina?ref_src=twsrc%5Etfw) [@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw) Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/cYryHcpPAA](https://t.co/cYryHcpPAA)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 20, 2021](https://twitter.com/Jkylebass/status/1406402531987701760?ref_src=twsrc%5Etfw)
+**如何更快更多地发推**
 
+除了需要更多地耐心和时间外，还是需要一些技巧的。首先我们的关注者如果是相同理念的大V或战友就可以快速的转发。第二、小队或中队约定一个相同时间节点，同时发推转推，这样不但增进战友之间感情还让发推转推增加了不少乐趣。第三、去关注大V的关注者，提高关注者的质量。第四、尽量发布或发表原文，评论或原推。第五、对重点关注的人可以做一个提醒小铃铛，这样可以第一时间转推留言，让更多的大V的粉丝了解我们发的信息。第六、小队和中队每天都要互动发推，队长主动和队友交流。第七、政敌推下第一时间留言、贴图片和视频。
 
+**如何避免发推过程中出现的一些问题**
 
-推文所附图片为——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20013729/E4SLpe8XEAYEZ-j.jpg)
-中共暴政之下的西台湾人民苦秦久矣，这一次凯尔.巴斯先生直接@崔天凯大屎、@中国日报、@中共国驻美国大使馆、@胡叼盘等，把西台湾人民与独裁暴政集团区隔开来，作为西台湾人民的一员，在下甚感荣耀。只是不知道这些口口声声代表十四亿西台湾人民的怂货们该如何应对呢？
+对于转推很多的战友都有被推特不同程度识别为bot的， 或者说被归类在bot，降权限流。被降权限流后可能自己不知道，但发的东西很难被别人看到，也许发了一百条，爆光度反倒不如正常大V发的一条。因此连续发推100条就休息一下，如果你一口气发推300条推特就会限制你，那么你就休息三个小时左右，不然被封号也得不偿失，掌握好节奏动作不能太快。
 
-为避免这些怂货掩耳盗铃假装看不见特此广而告之，请中共国咬部、中共国驻美国大屎馆、中共国驻美国大屎崔天凯以及中共国胡叼盘开足马力、全力以赴回应凯尔.巴斯先生，别忘了十四亿西台湾人民在看着你们！
+**团队合作很重要**
 
-（文章内容仅代表作者个人观点）
+今后一中队需要注重个各小队之间的合作，调动每个小队成员的所有资源和才智。在追求发推数量的同时，不会放弃我们每个人的专长。让战友们在GTV，Gnews和澳喜农场各个部门发挥才能。我们的目的在于齐心协力，把战友凝聚在一起为新中国联邦、爆料革命、病毒真相、澳喜农场建设作出贡献，要不然各自为政一盘散沙，白白浪费了资源。我们要做唯一，也力争做第一。
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+（本文纯属个人观点）
 
-+1
+*发稿：MG5*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/05074127/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+0
