@@ -1,47 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 阿里旗下闲鱼网 紧急下架中共银行股低价出售交易讯息
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1335923/)
+## 崔大屎和屎馆该如何抗议Kyle Bass的西台湾T恤
+` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1335929/)
 
-作者：台湾宝岛农场 快慢机
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20013327/%E6%93%B7%E5%8F%96620-1.jpg)
-大陆知名二手交易平台，阿里巴巴集团旗下“闲鱼网”，日前紧急下架多项涉及中共银行股，低价出售等交易讯息。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20013710/%E6%93%B7%E5%8F%96620-0.jpg)
-陕西农商行、济南农商行、义乌农商行、以及潍坊农商行等多家中共银行股权标的等，低价转让出售交易讯息，近期在大陆知名二手交易平台，阿里巴巴集团旗下“闲鱼网”上，以1元左右的超低折扣价，相继挂牌出售。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20013720/%E6%93%B7%E5%8F%96620-1-1.jpg)
-据闲鱼网上的该类中共银行股标的转让交易讯息上显示，售出方均为自然人股东，出售股本大多数集中在10万股左右，少部分接近30万股上限。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20013728/%E6%93%B7%E5%8F%96620-2.jpg)
-此外，卖方还附上一条极具诱惑力的标注提醒 —— 即该批超低价出售的银行股权标的，为即将要上市的的热门抢手稀缺资源，切莫错失“咸鱼翻身”的如此良机！
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20013736/%E6%93%B7%E5%8F%96620-3.jpg)
-堂堂中共国炙手可热的银行股权标的，不在常规的金融交易平台内挂牌出售，反而选择“闲鱼”这类的民间二手交易网站低价转让，套现跑路的意味实在太过明显。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20013743/%E6%93%B7%E5%8F%96620-4.jpg)
-中共国的银行股权，在曾经那就是一棵活生生摇钱树般的存在。真可谓是不论多少，得到便是赚到。此一时彼一时，眼下的中共国金融经济环境，正处于急速崩塌之中，昔日炙手可热的银行股权，如今个个成了名副其实的“烫手山芋”，早已今非昔比。
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20014201/E4SLpe8XEAYEZ-j_%E5%89%AF%E6%9C%AC.jpg)
+据[Kyle Bass](https://twitter.com/Jkylebass)[@Jkylebass](https://twitter.com/Jkylebass) 于[上午8:04 · 2021年6月20日](https://twitter.com/Jkylebass/status/1406402531987701760)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-中共国的银行系统内部实际烂帐率早已冲破红色警戒，被盗国贼们抢夺一空的金融盗洞，正在加速崩塌之中。试想一下，在中共国，但凡有油水好处可捞的领域，几乎都是与平民百姓彻底绝缘的。倘若真有此等“一夜暴富”的好事儿，怎么可能轮到普通百姓的头上？天上掉馅饼，就算砸中不死也难醒！
+Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai)and the Chinese embassy USA ! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@HuXijin\_GT](https://twitter.com/HuXijin_GT)Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
 
-这些被闲鱼紧急下架的，涉及中共多家银行股权的，超低价出售转让讯息，预示着中共国的银行金融体系内部，已经开始了爆发相当规模的，套现跑路风潮。
+中文大意：为[@崔天凯大屎](https://twitter.com/AmbCuiTiankai) 和中国驻美国大使馆制作的令人惊叹的新 T 恤！ [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@胡叼盘](https://twitter.com/HuXijin_GT)最有趣的标题赢得一件衬衫！ [#台湾](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
 
-春江水暖鸭先知，山雨欲来风满楼！中共国各地的农商行及农村信用社，几乎都是当地政府旗下的地方性金融机构。这些地方银行的财务危机一旦大面积爆发，势必将引发中共银行金融系统的全面寒蝉效应。
 
-此前被接管的包商银行，不仅仅是各种特列。接下来中共也不可能把所有类似包商银行的，众多深陷巨额债务黑洞的其它地方性银行，进行一一接管。这也就意味着，在即将到来的金融灾难降临之前，眼下是最后仅存的，套现跑路逃命窗口期。
 
-“郭先生”曾多次语重心长的在直播视频中提醒大陆的同胞，不要成为中共灭亡前的那批陪葬品。G系列是你唯一值得信赖并拥有的，未来最为安全、便捷、自由的财富系统。
+> Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) and the Chinese embassy USA 🇺🇸! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA?ref_src=twsrc%5Etfw) [@PDChina](https://twitter.com/PDChina?ref_src=twsrc%5Etfw) [@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw) Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/cYryHcpPAA](https://t.co/cYryHcpPAA)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 20, 2021](https://twitter.com/Jkylebass/status/1406402531987701760?ref_src=twsrc%5Etfw)
 
-闲鱼紧急下架涉及的多家，中共银行股权标的，低价出售转让交易讯息，目的不是掐断你轻松获取如此所谓的致富机会，而是以维稳的强势介入，屏蔽掉可以令你对中共金融系统产生怀疑的确凿证据！这才是中共最为紧张及恐惧的根本所在！
 
-此文仅代表笔者个人观点！
 
-[新闻链接](https://www.163.com/news/article/GCT634IS0001899O.html?clickfrom=w_yw)
+推文所附图片为——
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20013729/E4SLpe8XEAYEZ-j.jpg)
+中共暴政之下的西台湾人民苦秦久矣，这一次凯尔.巴斯先生直接@崔天凯大屎、@中国日报、@中共国驻美国大使馆、@胡叼盘等，把西台湾人民与独裁暴政集团区隔开来，作为西台湾人民的一员，在下甚感荣耀。只是不知道这些口口声声代表十四亿西台湾人民的怂货们该如何应对呢？
 
-审核、校对╱早不稻仁｜发布╱little liu
+为避免这些怂货掩耳盗铃假装看不见特此广而告之，请中共国咬部、中共国驻美国大屎馆、中共国驻美国大屎崔天凯以及中共国胡叼盘开足马力、全力以赴回应凯尔.巴斯先生，别忘了十四亿西台湾人民在看着你们！
 
-* * *
+（文章内容仅代表作者个人观点）
 
-***更多资讯***
-[台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[订阅台湾宝岛农场官方YOUTUBE频道](https://www.youtube.com/channel/UCXlInG8cGCHSN5y54zcgoOw/videos)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
 
-0
++1
