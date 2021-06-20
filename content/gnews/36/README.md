@@ -1,32 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 崔大屎和屎馆该如何抗议Kyle Bass的西台湾T恤
-` 喜马拉雅日本银河系农场` [轉載自GNews](https://gnews.org/zh-hans/1335929/)
+## 儿童口罩检测到11种危险病原体
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1335933/)
 
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago；
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20014201/E4SLpe8XEAYEZ-j_%E5%89%AF%E6%9C%AC.jpg)
-据[Kyle Bass](https://twitter.com/Jkylebass)[@Jkylebass](https://twitter.com/Jkylebass) 于[上午8:04 · 2021年6月20日](https://twitter.com/Jkylebass/status/1406402531987701760)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+#### 撰稿: Grace（㊙翻Gnews原创组）
+责编：萌萌的朋克
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20021413/%E5%8F%A3%E7%BD%A9.jpg)图片来源：paper.cn
+据“零对冲”（Zerohedge）6月19日报道, 佛罗里达大学的一个实验室最近分析了一小部分口罩样本，检测出存在11种危险的病原体，包括导致白喉、肺炎和脑膜炎的细菌。
 
-Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai)and the Chinese embassy USA ! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@HuXijin\_GT](https://twitter.com/HuXijin_GT)Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
+佛罗里达州的盖恩斯维尔父母担心他们的孩子在90°F的天气里整天在学校戴口罩会造成伤害，他们送出了6个口罩——5个是6到11岁的孩子在学校戴了5到8个小时的口罩，一个是成年人戴的口罩，到佛罗里达大学的质谱研究和教育中心进行污染物分析。
 
-中文大意：为[@崔天凯大屎](https://twitter.com/AmbCuiTiankai) 和中国驻美国大使馆制作的令人惊叹的新 T 恤！ [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA)[@PDChina](https://twitter.com/PDChina)[@胡叼盘](https://twitter.com/HuXijin_GT)最有趣的标题赢得一件衬衫！ [#台湾](https://twitter.com/hashtag/Taiwan?src=hashtag_click) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hashtag_click) [#China](https://twitter.com/hashtag/China?src=hashtag_click)
+在这六个口罩中，三个是外科口罩，两个是棉质口罩，还有一个是聚脂口罩。检测以没有戴过的口罩和一件在学校穿的T恤作为对照样本。
 
+据《理性的理由》（Rational Ground）报道，其中五个口罩被发现有寄生虫、真菌和细菌污染。只有一个口罩被发现含有一种病毒，这种病毒可以在牛和鹿身上引起一种致命的全身性疾病。还检测出了其他危害较小的病原体，这些病原体可以引起溃疡、痤疮和链球菌。
 
+没有一个对照组被病原体污染，而 “从T恤的前上方和下方的样本发现了通常在皮肤和头发中发现的蛋白质，以及一些通常在土壤中发现的蛋白质”。
 
-> Amazing new t-shirts made for [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) and the Chinese embassy USA 🇺🇸! [@ChinaDailyUSA](https://twitter.com/ChinaDailyUSA?ref_src=twsrc%5Etfw) [@PDChina](https://twitter.com/PDChina?ref_src=twsrc%5Etfw) [@HuXijin\_GT](https://twitter.com/HuXijin_GT?ref_src=twsrc%5Etfw) Funniest caption wins a shirt! [#Taiwan](https://twitter.com/hashtag/Taiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#ChinaIsWestTaiwan](https://twitter.com/hashtag/ChinaIsWestTaiwan?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/cYryHcpPAA](https://t.co/cYryHcpPAA)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [June 20, 2021](https://twitter.com/Jkylebass/status/1406402531987701760?ref_src=twsrc%5Etfw)
+“我们的孩子整天都戴着面具，每天在学校里呆七个小时，”多诺霍在6月17日告诉福克斯和朋友们这个新闻媒体。”他们唯一不用带口罩的时间就是吃饭或喝水。”
 
+多诺霍说，虽然自2021年4月起，学生在学校外面不必戴口罩，但当他们在6至8英尺范围内时，仍然需要戴口罩。在校车上也必须戴口罩。
 
+多诺霍说，需要进一步研究，以更好地了解儿童脸上的东西。
 
-推文所附图片为——
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20013729/E4SLpe8XEAYEZ-j.jpg)
-中共暴政之下的西台湾人民苦秦久矣，这一次凯尔.巴斯先生直接@崔天凯大屎、@中国日报、@中共国驻美国大使馆、@胡叼盘等，把西台湾人民与独裁暴政集团区隔开来，作为西台湾人民的一员，在下甚感荣耀。只是不知道这些口口声声代表十四亿西台湾人民的怂货们该如何应对呢？
+位于佛罗里达州盖恩斯维尔的阿拉丘亚县公立学校（ACPS）的校长Carlee Simon没有对评论请求作出回应。
 
-为避免这些怂货掩耳盗铃假装看不见特此广而告之，请中共国咬部、中共国驻美国大屎馆、中共国驻美国大屎崔天凯以及中共国胡叼盘开足马力、全力以赴回应凯尔.巴斯先生，别忘了十四亿西台湾人民在看着你们！
+美国疾病控制和预防中心（CDC）主任说，尽管有数据显示，儿童受中共病毒的影响很小，而且不是病毒的超级传播者，但孩子们应该继续戴口罩和保持社交距离，直到他们能够接种疫苗。
 
-（文章内容仅代表作者个人观点）
+共和党人罗恩·德桑蒂斯（Ron DeSantis）于5月3日签署了一项行政命令，暂停所有COVID-19紧急限制，包括戴口罩。然而，某些学区，如ACPS，在本学年余下的时间里保持其口罩政策，而口罩在社区内是可选戴或是不戴的。
 
-[日本银河系农场Discord群](https://discord.com/channels/805765245758472202/851632878567948351)，迎喜联盟进驻以及各农场兄弟姐妹们坐客串门，欢迎订阅我们的YouTube官方频道[日本银河系农场](https://www.youtube.com/channel/UCBxQlg5lsW4CgsspKSrZEFA)以及我们的G-TV官方频道[日本银河系农场](https://gtv.org/user/60c0168b8ce6da73c416c24b#home)。
+ACPS表示，口罩在2021-22学年将是可选的，但在9月中旬之前将继续要求在校车上佩戴口罩，除非联邦运输条例发生变化。
 
-+1
+疾病预防控制中心说，飞机、火车、公共汽车和机场仍然需要口罩。
+
+在6月17日更新的指南中，在 “交通工具的室外区域（如渡轮或公共汽车的顶层）”不再需要口罩，而且完全接种疫苗的人可以恢复大流行之前的日常活动，除非联邦或州法律要求，否则无需戴口罩或进行身体隔离。
+
+人们在第二次注射信使核糖核酸疫苗或单剂量强生公司疫苗后的两周被认为是完全接种。
+
+疾病预防控制中心没有对已经从COVID-19中恢复并具有自然免疫力的人给出指导。
+
+当天晚上在推特，闫博士是这样回应CDC的：
+
+“CDC主任说，孩子们应该继续戴口罩，保持社交距离，直到他们能够接种疫苗”
+
+-CDC对#COVID19病毒中的隐藏功能了解多少？
+
+-如何保证疫苗对儿童的安全？
+
+-谁是实验室的小老鼠？
+
+CDC作为美国疾病控制和预防中心没有率先检查学生每天戴在脸上的口罩的安全性，他们的工作反而是让一位美国的普通妈妈给做了，可见这样的政府部门根本没有把美国的老百姓的健康放在第一位的，多么的可耻、可恨！老百姓只能自己保护自己的孩子了。另一方面，CDC的主任在各媒体拼命地呼吁美国的老百姓打中共病毒疫苗，她却没提及美国老百姓打了中共病毒疫苗后的出现严重的不良反应。这样的部门主任早就该要换了。为什么还不被换呢？相信是跟某黑心财团的疫苗经济计划有关。
+
+参考资料： [University Of Florida Lab Finds Dangerous Pathogens On Children’s Face Masks](https://www.zerohedge.com/markets/university-florida-lab-finds-dangerous-pathogens-childrens-face-masks)
+
+(本文仅代表作者个人观点)
+
+0
