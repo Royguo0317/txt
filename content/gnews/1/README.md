@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Delta变体在德国继续增加
-` Shuizhuyu` [轉載自GNews](https://gnews.org/zh-hans/1336419/)
+## 福奇背得了中共病毒的锅吗？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1336303/)
 
-信息来源：德国世界报网络版 
-发布时间：2021年6月18日
-翻译 /整理/ 简评： Shuizhuyu
+字幕 & 评论：8 Mile
 
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/22142112/bermix-studio-yWYiNNK_tOI-unsplash-scaled.jpg)
+素材：Jenny
 
+在G7集团定下“以毒灭共”基调的同时，各路“侦探”并没有停止曝光福奇的黑料、NIH资助“功能增强”研究等内幕信息。
 
-病毒变种 Alpha 使冬季难以控制大流行。她更具传染性。 delta 变体的比例现在在德国略有增加。是否有第四波的威胁？一位免疫学家警告说“不要鲁莽解封”。
+上面这部视频中涉及的内容，主要是从信息挖掘、专利申请和逻辑分析的角度，论证了福奇领导的NIH与武汉病毒研究所之间“暧昧”的合作和利益关系。虽然视频提供了一个比较新颖的角度，即专利与垄断利益。但不得不说，仅凭这些信息，还远没有触及超限生物战的深水区，尤其是不能掉入如视频中最后所说的——推脱责任的陷阱。
 
-在印度发现的冠状病毒变种 Delta 在一周内显着增加了其在德国新感染 Sars-CoV-2 的比例。根据罗伯特科赫研究所 (RKI) 的最新报告，在第 22 个日历周（5 月 31 日至 6 月 6 日）中，这一比例为 6.2%，但仍然相对罕见。
+“以毒灭共”从福奇和NIH开始，真正目的是为了“钓鱼”，其中的博弈未来定会揭晓。而“功能增强”研究只是多米洛骨牌的第一张牌，中共才是桌子底下的“黑手”。
 
-在前一周（第 21 周），所检查样本中的 delta 变体比例为 3.7%。每周RKI 会评估，报告被归类为令人担忧的病毒变体的比例。
+首先，中共“13579”计划，“3F美国”计划、“灭白”计划由来已久。福奇这样的“人物”只是给中共提供了技术、资金和掩护，但中共对超限战的布局和人员资金投入，远不止“功能增强”研究和获得NIH资助，而是要通过超限生物病毒统治世界。
 
-“我们必须小心”，对于多特蒙德免疫学家 Carsten Watzl 来说，仅 delta 变体的显着增加并不能预示第四波即将到来。他在推特上写道：“但我们必须小心，不要因为鲁莽的开场而再次上升。” Watzl 根据较小的数据收集估计，目前德国的 delta 变体比例已经超过 10%。
+其次，中共配合故意释放病毒，大量制造虚假信息，买断多国防护用品，控制科学界、媒体和社交平台，用疫苗、防疫物资进行威胁恐吓等等。对世界各国社会、经济、民众生活等各个方面造成比病毒本身更严重的次生灾难。
 
-简评： 不解决病毒的根源， 不追踪病毒真相， 不向中共追责， 病毒的扩散和变异可能永远不能遏制。 中共有解药， 灭掉中共就可以免除病毒的伤害。 全世界已经有3百多万人因为中共病毒丧生。 而病毒并没有缓解的迹象。 找中共追解药是唯一方式。
+福奇是“病毒之父”。但不要忘了，中共才是制造并故意释放了Covid-19中共病毒的罪魁祸首。
 
-免责声明， 本文只代表作者观点， 与 Gnews平台无关。
-发表： Shuizhuyu
+（本文纯属个人观点）
 
-🔗[Delta-Variante-Zunahme-in-Deutschland-Droht-damit-eine-vierte-Welle](https://www.welt.de/politik/deutschland/article231893385/Delta-Variante-Zunahme-in-Deutschland-Droht-damit-eine-vierte-Welle.html)
+*编辑：**8 Mile*
 
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/19230305/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
 0
