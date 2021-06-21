@@ -1,28 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前国家情报总监敦促拜登政府加快行动，彻查病毒来源真相
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339064/)
+## 【路德社即时简报】塞林上校开始布置任务
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1339148/)
 
-#### 文章撰写:【默凡】
+作者：香草山翻译部 GBW
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21094813/Snipaste_2021-06-21_21-47-35.png)
-
-6月20日，前国家情报总监拉特克利夫接受福克斯玛丽亚采访时表示，中共国想要取代美国成为世界霸主，中共病毒已经导致全球400万人死亡，美国国家都应该对中共强硬。拜登政府上台六个月至今依然没有向习近平政府调查病毒来源真相。拉特克利夫希望拜登政府对中共政权不仅要用词强硬，而且要采取强硬行动，中共病毒已导致将近60万人死亡。美国应取消对中共国的债务用来偿还损
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
 
-> 尽管拜登政府最近施行了一系列抗共行动，右派仍猛烈抨击拜登政府灭共不力
-> 前国家情报总监拉特克利夫批评拜登政府对中共只打口炮，缺乏实质行动。作为美国看到情报最多的人，他可以得出结论：中共造成了全球4百万人死亡，美国60万人死亡
-> 福克斯玛丽亚说，武汉实验室在做功能增强实验，在制造生物武器 [pic.twitter.com/fK5KjI00gJ](https://t.co/fK5KjI00gJ)
-> — 洛子峰 (@Lhotse\_luozi) [June 20, 2021](https://twitter.com/Lhotse_luozi/status/1406747306376847364?ref_src=twsrc%5Etfw)
+（2021年6月21日早，路安墨）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21101915/%E5%9B%BE%E7%89%871-67.png)
+1. 塞林上校在推特揭发张洵等中共五毛，并说特种部队的座右铭是 “解放被压迫者”。
+
+
+a. 路德：塞林上校通过揭发五毛来保护闫博士。
+
+b. 路德：我们现在开始称呼塞林博士为塞林上校，你懂的。过几天塞林上校可能会私信战友布置任务。
+
+c. 墨博士：手机和推特是我们的武器。
+
+d. 路德：绿色贝雷帽就是“将计就计”“水无定形”。
+
+1. 沙利文警告中（共）国，如果不配合新冠溯源，将被世界孤立。
+
+
+a. 路德:美国在阿拉斯加会议期间就和中共谈了新冠溯源问题。
+
+b. 赵立坚说这是赤裸裸的讹诈和威胁，中国绝不接受。
+
+（笔记仅作参考，内容以路德社节目为准）
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21005113/6_june-2-556x720-1.jpeg)
 
 
 
-本文仅代表作者本人观点，不代表Gnews平台
+**更多资讯，更多关注**
 
-* * *
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-排版发布：日本东京方舟农场 文柯Miles
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

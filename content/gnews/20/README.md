@@ -1,25 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【点睛要闻】中共诋毁美国给台湾提供疫苗之善举
-` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1339210/)
+## 搜狐：欠了1500亿，仅次于华为的大民企，危机重重
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1339318/)
 
-撰稿：待命（文晓）【㊙️翻Gnews原创组】
+2021年6月21日
 
-责编：Ermat
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21104959/image1-15.jpg)图片来源：mainichi.jp
-6月21日TBS新闻发表于日本雅虎网站的消息称：由美国免费提供的250万剂中共病毒疫苗已经抵达台湾。对此，中共政府说：这是利用援助疫苗的政治手法。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21113936/a0e0cd2fbf18483db378f01cf11b4072.jpg)
 
-20日抵达台湾的是由Moderna公司生产的，拜登政府免费提供的250万剂中共病毒疫苗。 台湾总统蔡英文发表声明，对美方表示 “衷心的感谢”。
+在中共国所谓的民营企业中，第二大企业苏宁参与了很多房地产投资，商业，体育项目并购，已负债1500亿。
 
-中国外交部发言人赵立坚说：我们敦促美方不要利用援助疫苗进行政治操纵，干涉中共国的内政。他还在在6月21日的新闻发布会上说：“台湾正在阻挠台湾人民接受中共国的疫苗，藐视人道主义。”以牵制台湾。
+**【新闻来源】**[欠了1500亿，仅次于华为的大民企，危机重重](https://www.sohu.com/a/473168535_711825?scm=1004.759738464039272448.0.0.0&amp;spm=smpc.home.business-news11.6.1624285789868kAt2Ay2&amp;_f=index_businessnews_0_5)
 
-中共在墙内用送鸡蛋、发现金、强迫等手段诱导国民接种中共疫苗，在墙外，驻外使领馆不断以各种外宣说辞以及疫苗护照等手段，诱导海外华人接种中共疫苗。且不说疫苗该不该接种，仅就中共眼看着台湾使用日本、美国赠送的疫苗，恼羞成怒是免不了的。以赵立坚的国骂风格，这几句算是轻的！
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-参考链接：
 
-[米 台湾にワクチン２５０万回分提供、中国「政治的な操りだ」](https://news.yahoo.co.jp/articles/356002a8bd22d2dc9ea7890217b17d88e4be1fca)
-
-（本文仅代表作者个人观点）
-
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
