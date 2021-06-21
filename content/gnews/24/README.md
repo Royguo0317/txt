@@ -1,26 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Delta变种越来越可怕：英国感染高峰
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1338726/)
+## 【西媒头条】第5期
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1338774/)
 
-消息来源：今日意大利（today.it）
-发布时间：2021年06月18日
-翻译整理：萧亦
-
-- ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/14093130/23-11.jpg)
+- 作者：蚂蚁兄弟
 
 
-现在是英国的感染高峰期，人们对 Delta 变体的担忧日益增加，据当局称，该变体导致了超过 11,000 例冠状病毒病例。这是自去年 2 月 19 日以来的最高数字。同时爱尔兰当局尤其担心，他们建议海外同胞不要回国。托尼·霍洛汉（Tony Holohan）在一次简报会上说：“由于担心变种的传播，我们强烈建议不要在英国和爱尔兰之间进行不必要的旅行，他对跨境情况感到担忧。
+***更多真相，请关注*** [***Gtv***](https://gtv.org/)***、***[***Gnews***](https://gnews.org/)***！***
 
-与此同时，80% 的成年人已经接种了至少一剂抗中共病毒疫苗。死亡人数和住院人数目前仍然受到控制，这似乎给人们带来了希望。但是众所周知的“自由日”：即所有反中共病毒限制将被取消的日子，已经被推迟到 7 月 19 日。与此同时，英国意识到第二剂对于对抗Delta变体是至关重要的这一事实，英国正朝着加速对所有人进行接种疫苗的方向迈进。
+**西班牙2021年6月21日电/西喜社——**
 
-简评：印尼部分地区新冠病例数量急剧上升，当局发现在包括印尼首都雅加达在内的多个地区，具有高传染性的Delta新冠变种占据主流。同时美国疾病控制与预防中心主任周五表示，传染性极强的Delta变种病毒可能很快成为美国主要的新冠病毒变种。
+**关注西班牙语媒体每日新闻焦点，多一个视角看世界，多一份辨别真伪的信息。**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21073220/Captura_de_pantalla_2021-06-21_a_las_13.21.48.png)
+发稿：信心的选择
 
-免責聲明， 本文只代表作者觀點， 與 Gnews平台無關。
-
-🔗[variante-delta-contagi-gran-bretagna](https://www.today.it/attualita/variante-delta-contagi-gran-bretagna.html)
-
-發表： Shuizhuyu
+[欢迎加入西班牙巴塞罗那喜悦农场](https://discord.com/invite/WPy8Qp7)
 
 +1
