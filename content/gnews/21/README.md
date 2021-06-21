@@ -1,43 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】做好幸福鸟
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1339314/)
+## 【战友心声】女人是中共统治下的牺牲品
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1339324/)
 
-配音：香草山录音组 信念7
+## ——亲身经历的生殖器治国
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+作者：香草山文艺部    猪逻辑
 
-
-
-
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01042335/s2-7-1.jpeg)
 
 
 
-为了爱情，我辞去了在日本大阪某大学的终身正教授之职，来到美国，和我英俊、聪明、浪漫的美国先生一起幸福地生活着（他曾是我们大学美国分校的英文老师，在我作为国际交流委员带领着64名日本学生进行欧美文化研修时，我们在这所分校一见钟情）。直到有一天，他在周末骑自行车赛车50英里回家的路上，被一个酒驾的女演员活活地被撞死了……我的心当时也随他一起去了……
 
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21115139/21-12.jpg)图片来源：网络 
 
-**文字版原文：[【战友心声】做好幸福鸟](https://gnews.org/zh-hans/1337893/)**
+几年前在迪拜期间，遇到一位年轻妈妈独自带着两个孩子来迪拜旅游，住在最豪华顶级的酒店，由于她不通英语，在协助他们并和他们短暂的互动交流中，能明显感知到两个孩子身上的性格缺点和教养程度，比如性格孤僻，敏感多疑，爱打游戏，自闭，甚至在最豪华的酒店都把垃圾扔到地毯上，而这位年轻妈妈似乎并不在意这些点点滴滴的教育细节，真的是既让我汗颜又可怜。在和该女生详谈几句后，得知她22岁那年开始，已经独自带娃很多年，对方是在政府机关里的所谓“公职人员”，而父母很不同意这样所谓的二人关系，为此也一直没有跟父母保持多少联系。
 
-作者：纽约香草山健身部 幸福鸟
+之后我并没有给予更多的追问，是内心为她留一点自尊心，也不想戳穿她的短。这一切只是中共统治下宏大的社会乱象背景下的一个缩影，想必这位年轻妈妈心目中的酸楚苦闷只有她自己能体会，忍受着孤独，忍受着父母的疏离，独自照顾两个孩子，她是这样的生活方式的选择者和承受者，是权力与金钱裹挟下的牺牲品和受害者。这只是一场不可能有真爱的青春的性交易，一个高级公职人员的子宫买卖。即便是上万元一天的酒店房费眼睛一眨不眨这样的物质的极大丰富，也并不能给她带来真正的幸福快乐，这成为她的现世报。并且我真的为这两个孩子的心理健康，未来教育，成长环境担忧，毕竟孩子是无辜的。
 
+不难发现，中共统治者拥有极大的权力和财富，垄断了社会的绝大多数优质资源，而留给百姓的生存空间极其有限的，女人自身也较难以凭借一己之力获得财富和生存独立的可能，生存境况不佳的情况下可能会被迫选择非主流非传统的生活方式。
 
+食欲引起初级斗争，性欲引起高级斗争。中共权力的拥有者极度膨胀是自然，并且往往具有某种程度的性特权、性胁迫、性威胁的能力，法律对于他们来说是苍白的。特定环境下，在从与不从之间女人可能近乎别无选择。
 
-音频处理/发稿：雪梨
+中共穿越做人的底线，几十年的精神荼毒，道德文化社会风气沉沦是必然，当然包括性道德，官场上性道德沦丧不足为奇甚至反以为荣。笔者早年就网上见闻诸如官员性爱日记，书记的特殊癖好，二奶村等等中共社会主义特色的奇葩，令人大跌眼镜提笑皆非。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+校对/发稿：小小安
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01041446/6_june.jpg)
 
 **更多资讯，更多关注**
 
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+[**纽约香草山农场GTV-****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
 
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+[**纽约香草山农场Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文)**
 
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+[**纽约香草山农场Twitter(****英文)**](https://twitter.com/MosHimalaya)
 
 [**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/01040128/s2-7.jpeg)
+
+
+
+
+
+
 
 0

@@ -1,20 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国加大比特币挖矿打击力度，导致加密货币暴跌
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339147/)
+## 中共国农行明令禁止支持比特币等虚拟货币交易
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339208/)
 
 #### 文章撰写:【默凡】
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21103314/Snipastg3re4e_2021-fsasfd06-21_22-32-34.png)
-据快科技6月20日报道，中共国四川省宣布整治比特币等数字货币“挖矿”后不久，四川所有“矿场”被集体断电。网上流传一份四川关停虚拟货币挖矿项目的通知，文件显示，各市于6月20日前完成省内26个疑似虚拟货币挖矿重点项目的甄别、清理和关停工作，同时要求发电企业立即停止向虚拟货币挖矿项目供电，并于6月25日前上报自查、整改情况。此外，各市政府也被要求开展拉网式排查，对发现的挖矿项目立即关停。
 
-中共国是加密货币采矿的最大地区，占全球比特币产量的一半以上。随着中共国加大对比特币开采的打击，加密货币周一出现暴跌。比特币自6月8日以来首次跌至32,288美元，最后下跌7.9%至32,781美元左右。其竞争对手以太币自5月23日以来首次跌破2,000美元。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21105021/43tgasdafa542d88pdia_d50dsafbd1d1.jpg)
 
-参考文章：
+6月21日，中共国农业银行正式发文称，禁止使用本行服务用于比特币等虚拟货币交易，中国农业银行将持续开展对虚拟货币交易的打击治理行动，农行坚决不开展、不参与任何与虚拟货币相关的业务活动，禁止涉及虚拟货币交易客户准入，并将对客户及资金交易加大排查和监测力度。一经发现相关行为，将立即采取暂停账户交易、终止客户关系等措施，并及时报告有关部门。
 
-[1][四川比特币“矿场”被集体断电](https://www.zaobao.com.sg/realtime/china/story20210620-1158463)
 
-[2][Bitcoin tumbles 10% in wake of deepening China crackdown](https://www.reuters.com/article/us-crypto-currency-bitcoin/cryptocurrencies-tumble-amid-china-crackdown-on-bitcoin-miners-idUSKCN2DX0JI)
+
+> Agricultural Bank of China issued a notice that they will not participate in virtual currency transactions and related activities. Customer accounts participating in such activities will be closed and customer relationships will be terminated. [#bitcoin](https://twitter.com/hashtag/bitcoin?src=hash&amp;ref_src=twsrc%5Etfw) [#Cryptocurency](https://twitter.com/hashtag/Cryptocurency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/vXKNdilmky](https://t.co/vXKNdilmky)
+> — 8BTCnews (@btcinchina) [June 21, 2021](https://twitter.com/btcinchina/status/1406862687313686531?ref_src=twsrc%5Etfw)
+
+
+
+参考文章：[农业银行：禁止使用我行服务用于比特币等虚拟货币交易](https://finance.sina.com.cn/tech/2021-06-21/doc-ikqciyzk0908636.shtml)
 
 本文仅代表作者本人观点，不代表Gnews平台
 

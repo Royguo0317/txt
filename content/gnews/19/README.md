@@ -1,16 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澎湃新闻 ：央行就虚拟货币交易炒作问题约谈部分银行和支付机构
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1339350/)
+## 德国之声：合约终止六年后才被解聘 中国学者向清华讨公道
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1339406/)
 
 2021年6月21日
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21114919/a0e0cd2fbf18483db378f01cf11b4072-1.jpg)
-
-近日中共人民银行有关部门就银行和支付机构为虚拟货币交易炒作提供服务问题，约谈了工商银行、农业银行、建设银行、邮储银行、兴业银行和支付宝（中国）网络技术有限公司等部分银行和支付机构。
-
-**【新闻来源】**[央行就虚拟货币交易炒作问题约谈部分银行和支付机构](https://www.sohu.com/a/473281225_260616?spm=smpc.home.top-news2.3.1624278932052gWSZR9B&amp;_f=index_news_2)
+清华政治学讲师吴强15年被清大单方面终止聘用合约后，今年初才正式收到清大的解聘通知。“吴强正式控告清华大学，要求清大赔偿他过去六年的工资与相关福利。”
+![Wu Qiang]( "Wu Qiang")![Wu Qiang](https://static.dw.com/image/57976433_303.jpg "Wu Qiang")吴强指出，他在2021年初，正式收到清大的解聘通知书后，被告知他仅存的一些福利也会同时被取消，为了捍卫维护“基本正义”，他开始以法律的方式向清大发起挑战。
+**【新闻来源】**[合约终止六年后才被解聘 中国学者向清华讨公道](https://www.dw.com/zh/%E5%90%88%E7%BA%A6%E7%BB%88%E6%AD%A2%E5%85%AD%E5%B9%B4%E5%BE%8C%E6%89%8D%E8%A2%AB%E8%A7%A3%E8%81%98-%E4%B8%AD%E5%9B%BD%E5%AD%A6%E8%80%85%E5%90%91%E6%B8%85%E5%8D%8E%E8%AE%A8%E5%85%AC%E9%81%93/a-57977253)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)

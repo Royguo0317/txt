@@ -1,20 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登总统将在白宫会晤阿富汗领导人
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339074/)
+## 中共国加大比特币挖矿打击力度，导致加密货币暴跌
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339147/)
 
 #### 文章撰写:【默凡】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21103314/Snipastg3re4e_2021-fsasfd06-21_22-32-34.png)
+据快科技6月20日报道，中共国四川省宣布整治比特币等数字货币“挖矿”后不久，四川所有“矿场”被集体断电。网上流传一份四川关停虚拟货币挖矿项目的通知，文件显示，各市于6月20日前完成省内26个疑似虚拟货币挖矿重点项目的甄别、清理和关停工作，同时要求发电企业立即停止向虚拟货币挖矿项目供电，并于6月25日前上报自查、整改情况。此外，各市政府也被要求开展拉网式排查，对发现的挖矿项目立即关停。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21095505/43ipashertghdte_2021-r4e406-21fdasgasg_21-54-27.png)
+中共国是加密货币采矿的最大地区，占全球比特币产量的一半以上。随着中共国加大对比特币开采的打击，加密货币周一出现暴跌。比特币自6月8日以来首次跌至32,288美元，最后下跌7.9%至32,781美元左右。其竞争对手以太币自5月23日以来首次跌破2,000美元。
 
-美国之音新闻网6月21日报道：阿富汗现任总统阿什拉夫·加尼和他的首席和平缔造者阿卜杜拉·阿卜杜拉将于本周五（6月25日）飞抵美国，在白宫与美国拜登总统举行举行会晤。这是在9月11日美国和北约部队从阿富汗撤出之前，两国领导人的第一次面对面的互动。
+参考文章：
 
-白宫新闻秘书普萨基星期天说，拜登“期待着欢迎”阿富汗领导人，并将向他们保证，随着撤军的继续，美国将在外交、经济和人道主义方面向阿富汗提供支持。白宫新闻秘书还强调，华盛顿继续全力支持正在进行的和平进程，并鼓励阿富汗各方有意义地参与结束冲突的谈判。
+[1][四川比特币“矿场”被集体断电](https://www.zaobao.com.sg/realtime/china/story20210620-1158463)
 
-5月1日正式开始的外国军队撤军行动导致阿富汗安全部队和塔利班叛乱分子之间的战斗空前升级，给美国斡旋的阿富汗对手之间的缓慢的和平谈判带来了新的打击。白宫新闻秘书普萨基说，华盛顿将继续与阿富汗政府“深入接触”，以确保阿富汗不再成为对美国构成威胁的恐怖组织的安全避难所。
-
-参考文章：[拜登将在美军撤离期间在白宫接待阿富汗领导人](https://www.voachinese.com/a/biden-to-host-afghan-leaders-amid-us-pullout/5935939.html)
+[2][Bitcoin tumbles 10% in wake of deepening China crackdown](https://www.reuters.com/article/us-crypto-currency-bitcoin/cryptocurrencies-tumble-amid-china-crackdown-on-bitcoin-miners-idUSKCN2DX0JI)
 
 本文仅代表作者本人观点，不代表Gnews平台
 
