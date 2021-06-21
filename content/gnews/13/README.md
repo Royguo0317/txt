@@ -1,21 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发： 人民银行打击虚拟货币交易，约谈几大银行和支付宝
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1339065/)
+## 中共国加大比特币挖矿打击力度，导致加密货币暴跌
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339147/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21100210/1000-1.jpg)
-2021年6月21日，虚拟货币在中国遭受当头一棒。人民银行指出虚拟货币交易炒作活动扰乱经济金融正常秩序，滋生非法跨境转移资产、洗钱等违法犯罪活动风险，近日约谈了工商银行、农业银行、建设银行、邮储银行、兴业银行，以及支付宝等网络公司， 将进一步加大排查和处置力度，采取严格措施，坚决切断虚拟货币交易炒作活动的资金支付链路。
+#### 文章撰写:【默凡】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21103314/Snipastg3re4e_2021-fsasfd06-21_22-32-34.png)
+据快科技6月20日报道，中共国四川省宣布整治比特币等数字货币“挖矿”后不久，四川所有“矿场”被集体断电。网上流传一份四川关停虚拟货币挖矿项目的通知，文件显示，各市于6月20日前完成省内26个疑似虚拟货币挖矿重点项目的甄别、清理和关停工作，同时要求发电企业立即停止向虚拟货币挖矿项目供电，并于6月25日前上报自查、整改情况。此外，各市政府也被要求开展拉网式排查，对发现的挖矿项目立即关停。
 
-** 【新闻来源】 **
+中共国是加密货币采矿的最大地区，占全球比特币产量的一半以上。随着中共国加大对比特币开采的打击，加密货币周一出现暴跌。比特币自6月8日以来首次跌至32,288美元，最后下跌7.9%至32,781美元左右。其竞争对手以太币自5月23日以来首次跌破2,000美元。
 
-新浪财经：[央行就虚拟货币交易炒作问题约谈部分银行和支付机构](https://finance.sina.com.cn/china/2021-06-21/doc-ikqcfnca2343969.shtml)
+参考文章：
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+[1][四川比特币“矿场”被集体断电](https://www.zaobao.com.sg/realtime/china/story20210620-1158463)
 
+[2][Bitcoin tumbles 10% in wake of deepening China crackdown](https://www.reuters.com/article/us-crypto-currency-bitcoin/cryptocurrencies-tumble-amid-china-crackdown-on-bitcoin-miners-idUSKCN2DX0JI)
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+本文仅代表作者本人观点，不代表Gnews平台
+
+* * *
+
+排版发布：日本东京方舟农场 文柯Miles
+
 0
