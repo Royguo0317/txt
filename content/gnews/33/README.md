@@ -1,43 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【有声读物】做好幸福鸟
-` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1339314/)
+## 搜狐：欠了1500亿，仅次于华为的大民企，危机重重
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1339318/)
 
-配音：香草山录音组 信念7
+2021年6月21日
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21113936/a0e0cd2fbf18483db378f01cf11b4072.jpg)
 
+在中共国所谓的民营企业中，第二大企业苏宁参与了很多房地产投资，商业，体育项目并购，已负债1500亿。
 
+**【新闻来源】**[欠了1500亿，仅次于华为的大民企，危机重重](https://www.sohu.com/a/473168535_711825?scm=1004.759738464039272448.0.0.0&amp;spm=smpc.home.business-news11.6.1624285789868kAt2Ay2&amp;_f=index_businessnews_0_5)
 
-
-
-
-
-为了爱情，我辞去了在日本大阪某大学的终身正教授之职，来到美国，和我英俊、聪明、浪漫的美国先生一起幸福地生活着（他曾是我们大学美国分校的英文老师，在我作为国际交流委员带领着64名日本学生进行欧美文化研修时，我们在这所分校一见钟情）。直到有一天，他在周末骑自行车赛车50英里回家的路上，被一个酒驾的女演员活活地被撞死了……我的心当时也随他一起去了……
-
-
-
-**文字版原文：[【战友心声】做好幸福鸟](https://gnews.org/zh-hans/1337893/)**
-
-作者：纽约香草山健身部 幸福鸟
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-
-音频处理/发稿：雪梨
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
-
-**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
-
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

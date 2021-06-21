@@ -1,20 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国之声：合约终止六年后才被解聘 中国学者向清华讨公道
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1339406/)
+## 《路德时评》重磅解读Sellin发绿色贝雷帽格言，及沙利文称中共拒绝调查将被世界孤立
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1339418/)
 
-2021年6月21日
-
-清华政治学讲师吴强15年被清大单方面终止聘用合约后，今年初才正式收到清大的解聘通知。“吴强正式控告清华大学，要求清大赔偿他过去六年的工资与相关福利。”
-![Wu Qiang]( "Wu Qiang")![Wu Qiang](https://static.dw.com/image/57976433_303.jpg "Wu Qiang")吴强指出，他在2021年初，正式收到清大的解聘通知书后，被告知他仅存的一些福利也会同时被取消，为了捍卫维护“基本正义”，他开始以法律的方式向清大发起挑战。
-**【新闻来源】**[合约终止六年后才被解聘 中国学者向清华讨公道](https://www.dw.com/zh/%E5%90%88%E7%BA%A6%E7%BB%88%E6%AD%A2%E5%85%AD%E5%B9%B4%E5%BE%8C%E6%89%8D%E8%A2%AB%E8%A7%A3%E8%81%98-%E4%B8%AD%E5%9B%BD%E5%AD%A6%E8%80%85%E5%90%91%E6%B8%85%E5%8D%8E%E8%AE%A8%E5%85%AC%E9%81%93/a-57977253)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+直播视频：
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
+
+《路德时评》2021年6月21日早间节目主要内容：
+
+一、Sellin上校发推绿色贝雷帽格言
+
+Sellin上校6月21日发推，所有在美国的中共特工和走狗都将被曝光。在此处发布有关张洵的证据。我们特种部队的座右铭是“De oppresso liber”，以解放被压迫者。勇敢的中国人民将获得自由。中共应该害怕——非常害怕。
+
+
+
+> All Chinese Communist Party agents & stooges in the US will be exposed. Post your evidence about Eric Zhang here. Our motto in the Special Forces is "De oppresso liber" to liberate the oppressed. The courageous Chinese people will be free. The CCP should be afraid – very afraid. [https://t.co/MPRjdNSij4](https://t.co/MPRjdNSij4)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [June 21, 2021](https://twitter.com/LawrenceSellin/status/1406951332645330950?ref_src=twsrc%5Etfw)
+
+
+
+路德社评论：
+
+1、Sellin上校在推特上公开揭露张洵是中共走狗之后，张洵就宣布退出推特。中美现在已经处于超限战争状态，美国军方仅依据情报信息就可以认定对方是否为敌方战斗人员，Sellin上校现在只认定闫博士前夫为通缉犯，还没有公开标记其他人物。
+
+2、Sellin上校前几天发推刚把侦探一词改为捕猎者，这就意味着Sellin上校已开始对猎物动手，闫博士自从揭露中共病毒真相以来已经引诱大量猎物暴露身份，这些猎物都是被中共收买来抹黑闫博士和混淆病毒真相的中共走狗。
+
+3、Sellin上校发推也是警告所有人不要卷入这场与中共的舆论超限战中，如果不听劝告就将被美国列为敌方战斗人员。Sellin上校现在的最重要任务就是保护闫博士人身安全，让闫博士免遭网络攻击。张洵抹黑爆料革命闫博士和郭先生绝非个人行为，而是中共在背后操控的集体作案，Sellin上校点出一两个人就是在警告中共。
+
+4、被中共国洗脑的中国人特别在意背景和身份，这与美国大不相同，美国是以事实真相为评判标准，所以Sellin上校才亮出身份让中国人看清楚。绿色贝雷帽部队最擅长组织当地老百姓建立武装力量对付独裁专制政权，爆料革命战友接下来绝不只是发推点赞，大家很有可能会收到Sellin上校下达的任务，处在敌战区的每个老百姓都要勇敢站出来，这就是绿色贝雷帽的创新打法。
+
+5、Sellin上校绝对看爆料革命路德社节目，每个战友的留言都会被他关注，但是Sellin上校绝对不会强迫大家行动，完全是出于自愿，现在打的就是网络信息战。有些战友已经收到Sellin上校下达的任务并开始行动，接下来还有更多战友会收到，希望大家都尽自己的一份力量消灭中共。
+
+6、路德社爆料：Sellin上校在推特中标记的每个人如果还不及时与中共切割，那这些人都将被关进关塔纳摩监狱。Sellin上校现在就是在驱离那些还被中共蒙蔽的人，Sellin上校此前曝光的刘善虑就已经删除了所有推特信息。
+
+7、所以中共近日在墙内大肆宣传谨防出现叛国贼，这就表明中共已经开始心慌，绿色贝雷帽现在才使出第一招，后续还将放出更多大招。
+
+二、沙利文称中共不配合调查将被世界孤立
+
+法新社6月20日报道[\[1\]](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210620-%E6%B2%99%E5%88%A9%E6%96%87-%E5%A6%82%E6%9E%9C%E4%B8%AD%E5%9B%BD%E4%B8%8D%E5%90%88%E4%BD%9C%E8%B0%83%E6%9F%A5%E7%97%85%E6%AF%92%E6%BA%90%E5%A4%B4%E5%B0%86%E9%9D%A2%E5%AF%B9%E5%9B%BD%E9%99%85%E5%AD%A4%E7%AB%)：美国国家安全顾问沙利文表示，美国不会只依赖中共国调查，美国本身也会分析，包括透过情报部门以及与盟友合作，(对病毒溯源）追查到底。如果中共国不合作进一步调查新冠病毒源头，将面对国际孤立。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21120820/77cca2748100893a2835bb22ad0435c9u5.jpg)[沙利文](https://rs1.huanqiucdn.cn/dp/api/files/imageDir/77cca2748100893a2835bb22ad0435c9u5.jpg)
+路德社评论：
+
+1、美国政府官员此言就是在警告中共国，如果中共拒绝配合调查病毒真相，国际社会将对中共国采取制裁、脱钩等一系列行动。被国际社会孤立就意味着脱钩，这只是第一步，接下来制裁、冻结，甚至是军事行动等等都会被用上来对付中共。
+
+2、沙利文只强调要求中共配合调查，还未提及调查结果。如果中共配合调查就可能暂时避免被国际社会孤立，但是中共很清楚病毒真相一旦被揭露必死无疑，所以中共绝不可能配合调查，可这也绝对不会影响美国调查病毒真相的步伐。
+
+3、中共这次绝对不可能逃脱审判，除了绿色贝雷帽，美军还有其他特种部队在配合行动，只要绿色贝雷帽出手，不推翻独裁政权绝不罢休。
+
+4、杨洁篪与布林肯在阿拉斯加会面时，布林肯已经在秘密会议上要求中共配合调查病毒真相，但是中共拒不配合，这就是杨洁篪所说的“不吃这一套”。所以阿拉斯加会谈之后，美国开始公开推进调查病毒真相，这都是日拱一族努力的结果，灭共生态链作战。
+
+5、所以，战狗赵立坚将沙利文的言论称作是赤裸裸的讹诈和威胁，并对此表示强烈不满和坚决反对，也决不接受。[\[2\]](https://finance.sina.com.cn/tech/2021-06-21/doc-ikqciyzk0928137.shtml)赵立坚说话的时候内心肯定在发颤，中共已经在准备后路。沙利文要求中共配合调查病毒溯源完全符合科学，这也是中共一直强调的要以科学方式解决病毒溯源问题，中共现在一再拒绝配合调查恰恰说明中共做贼心虚。那些配合Sellin上校收集中共病毒信息的战友也被中共打成特务，这就是中共网络超限战的邪恶，无论中共使用何种招数都无济于事。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+参考文章：
+
+[1][https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210620-%E6%B2%99%E5%88%A9%E6%96%87-%E5%A6%82%E6%9E%9C%E4%B8%AD%E5%9B%BD%E4%B8%8D%E5%90%88%E4%BD%9C%E8%B0%83%E6%9F%A5%E7%97%85%E6%AF%92%E6%BA%90%E5%A4%B4%E5%B0%86%E9%9D%A2%E5%AF%B9%E5%9B%BD%E9%99%85%E5%AD%A4%E7%AB%](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210620-%E6%B2%99%E5%88%A9%E6%96%87-%E5%A6%82%E6%9E%9C%E4%B8%AD%E5%9B%BD%E4%B8%8D%E5%90%88%E4%BD%9C%E8%B0%83%E6%9F%A5%E7%97%85%E6%AF%92%E6%BA%90%E5%A4%B4%E5%B0%86%E9%9D%A2%E5%AF%B9%E5%9B%BD%E9%99%85%E5%AD%A4%E7%AB%)
+[2][https://finance.sina.com.cn/tech/2021-06-21/doc-ikqciyzk0928137.shtml](https://finance.sina.com.cn/tech/2021-06-21/doc-ikqciyzk0928137.shtml)
+
+文章撰写：【迦密】  编辑：【西奈】
+
+本文仅代表作者个人观点
+
++1

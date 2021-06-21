@@ -1,28 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国农行明令禁止支持比特币等虚拟货币交易
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339208/)
+## 【点睛要闻】中共诋毁美国给台湾提供疫苗之善举
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1339210/)
 
-#### 文章撰写:【默凡】
+撰稿：待命（文晓）【㊙️翻Gnews原创组】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21105021/43tgasdafa542d88pdia_d50dsafbd1d1.jpg)
+责编：Ermat
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21104959/image1-15.jpg)图片来源：mainichi.jp
+6月21日TBS新闻发表于日本雅虎网站的消息称：由美国免费提供的250万剂中共病毒疫苗已经抵达台湾。对此，中共政府说：这是利用援助疫苗的政治手法。
 
-6月21日，中共国农业银行正式发文称，禁止使用本行服务用于比特币等虚拟货币交易，中国农业银行将持续开展对虚拟货币交易的打击治理行动，农行坚决不开展、不参与任何与虚拟货币相关的业务活动，禁止涉及虚拟货币交易客户准入，并将对客户及资金交易加大排查和监测力度。一经发现相关行为，将立即采取暂停账户交易、终止客户关系等措施，并及时报告有关部门。
+20日抵达台湾的是由Moderna公司生产的，拜登政府免费提供的250万剂中共病毒疫苗。 台湾总统蔡英文发表声明，对美方表示 “衷心的感谢”。
 
+中国外交部发言人赵立坚说：我们敦促美方不要利用援助疫苗进行政治操纵，干涉中共国的内政。他还在在6月21日的新闻发布会上说：“台湾正在阻挠台湾人民接受中共国的疫苗，藐视人道主义。”以牵制台湾。
 
+中共在墙内用送鸡蛋、发现金、强迫等手段诱导国民接种中共疫苗，在墙外，驻外使领馆不断以各种外宣说辞以及疫苗护照等手段，诱导海外华人接种中共疫苗。且不说疫苗该不该接种，仅就中共眼看着台湾使用日本、美国赠送的疫苗，恼羞成怒是免不了的。以赵立坚的国骂风格，这几句算是轻的！
 
-> Agricultural Bank of China issued a notice that they will not participate in virtual currency transactions and related activities. Customer accounts participating in such activities will be closed and customer relationships will be terminated. [#bitcoin](https://twitter.com/hashtag/bitcoin?src=hash&amp;ref_src=twsrc%5Etfw) [#Cryptocurency](https://twitter.com/hashtag/Cryptocurency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/vXKNdilmky](https://t.co/vXKNdilmky)
-> — 8BTCnews (@btcinchina) [June 21, 2021](https://twitter.com/btcinchina/status/1406862687313686531?ref_src=twsrc%5Etfw)
+参考链接：
 
+[米 台湾にワクチン２５０万回分提供、中国「政治的な操りだ」](https://news.yahoo.co.jp/articles/356002a8bd22d2dc9ea7890217b17d88e4be1fca)
 
-
-参考文章：[农业银行：禁止使用我行服务用于比特币等虚拟货币交易](https://finance.sina.com.cn/tech/2021-06-21/doc-ikqciyzk0908636.shtml)
-
-本文仅代表作者本人观点，不代表Gnews平台
-
-* * *
-
-排版发布：日本东京方舟农场 文柯Miles
+（本文仅代表作者个人观点）
 
 0
