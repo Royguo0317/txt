@@ -1,25 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登总统将在白宫会晤阿富汗领导人
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339074/)
+## 【路德社即时简报】塞林上校开始布置任务
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1339148/)
 
-#### 文章撰写:【默凡】
+作者：香草山翻译部 GBW
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21095505/43ipashertghdte_2021-r4e406-21fdasgasg_21-54-27.png)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
-美国之音新闻网6月21日报道：阿富汗现任总统阿什拉夫·加尼和他的首席和平缔造者阿卜杜拉·阿卜杜拉将于本周五（6月25日）飞抵美国，在白宫与美国拜登总统举行举行会晤。这是在9月11日美国和北约部队从阿富汗撤出之前，两国领导人的第一次面对面的互动。
 
-白宫新闻秘书普萨基星期天说，拜登“期待着欢迎”阿富汗领导人，并将向他们保证，随着撤军的继续，美国将在外交、经济和人道主义方面向阿富汗提供支持。白宫新闻秘书还强调，华盛顿继续全力支持正在进行的和平进程，并鼓励阿富汗各方有意义地参与结束冲突的谈判。
 
-5月1日正式开始的外国军队撤军行动导致阿富汗安全部队和塔利班叛乱分子之间的战斗空前升级，给美国斡旋的阿富汗对手之间的缓慢的和平谈判带来了新的打击。白宫新闻秘书普萨基说，华盛顿将继续与阿富汗政府“深入接触”，以确保阿富汗不再成为对美国构成威胁的恐怖组织的安全避难所。
+（2021年6月21日早，路安墨）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21101915/%E5%9B%BE%E7%89%871-67.png)
+1. 塞林上校在推特揭发张洵等中共五毛，并说特种部队的座右铭是 “解放被压迫者”。
 
-参考文章：[拜登将在美军撤离期间在白宫接待阿富汗领导人](https://www.voachinese.com/a/biden-to-host-afghan-leaders-amid-us-pullout/5935939.html)
 
-本文仅代表作者本人观点，不代表Gnews平台
+a. 路德：塞林上校通过揭发五毛来保护闫博士。
 
-* * *
+b. 路德：我们现在开始称呼塞林博士为塞林上校，你懂的。过几天塞林上校可能会私信战友布置任务。
 
-排版发布：日本东京方舟农场 文柯Miles
+c. 墨博士：手机和推特是我们的武器。
+
+d. 路德：绿色贝雷帽就是“将计就计”“水无定形”。
+
+1. 沙利文警告中（共）国，如果不配合新冠溯源，将被世界孤立。
+
+
+a. 路德:美国在阿拉斯加会议期间就和中共谈了新冠溯源问题。
+
+b. 赵立坚说这是赤裸裸的讹诈和威胁，中国绝不接受。
+
+（笔记仅作参考，内容以路德社节目为准）
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21005113/6_june-2-556x720-1.jpeg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0

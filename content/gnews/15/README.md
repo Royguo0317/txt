@@ -1,31 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Delta中共病毒变异株将造成更大威胁
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339104/)
+## 【独立观点】推广疫苗护照将导致三个严重后果
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1339203/)
 
-#### 文章撰写:【默凡】
+作者：香草山翻译部 小韭菜a
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21102413/gr4343ste_2021-0asdf6-21_22-23-30.png)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
 
-美国之音6月20日报道：中共病毒疫情从去年大流行至今已造成380多万人死亡。尽管许多国家已经开始大规模接种中共病毒疫苗，截至6月18日全球已经接种约25亿剂疫苗，但许多国家仍在竭力控制疫情爆发。
 
-俄罗斯星期天新增17611例新发确诊病例，单单首都莫斯科就新增8305起，450人死亡，俄罗斯自疫情最初爆发以来，已经有531万人感染，12万人死亡。不过，俄罗斯联邦统计机构单独统计表示，已出现27万例与中共病毒相关的死亡。
 
-在南美的巴西，死于中共病毒的人数星期六（6月19日）已经超过50万，仅次于美国的约60万。同时，巴西面临第三波的病毒蔓延。
+加拿大总理贾斯汀·特鲁多 (Justin Trudeau) 周五证实，联邦政府正在与各省合作，为国际旅行开发国家疫苗护照，预计将于今年秋季某个时候准备就绪。特鲁多说他希望“到秋天建立国家疫苗接种状况证明”。他还表示，在制定该计划的同时，他的政府正在开发一个名叫ArriveCan的应用程序系统，该系统将在“未来几周”内准备就绪。在不久的将来，证明您已接种疫苗将成为国际旅行的标准。更令人担忧的是，不仅仅加拿大正在紧锣密鼓地推进这个疫苗护照，德国、西班牙、英国、日本，以及美国的纽约州、加州也都在考虑推出类似的疫苗护照。
 
-世界卫生组织表示，最早出现在印度的Delta变异病毒株，已成为全球中共病毒大流行的主要毒株，因为Delta变异病毒“传染力显著增强”。Delta变异株已扩散到超过80国，并持续突变。世卫上个月已将Delta列为“高关注变异株”，表示这种病毒传染力更强、更致命，或现有疫苗及疗法较难对付。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21103608/%E5%9B%BE%E7%89%872-21.png)
 
-据美国疾病控制与预防中心（CDC）数据，目前美国新增确诊病例中，感染Delta病毒株的患者就占10%，多于上周的6%。美国CDC主任瓦伦斯基（Rochelle Walensky）预期Delta将成为美国主要流行的病毒株。
+值得欣慰的是美国亚利桑那州和阿肯色州于今年4月，阿拉巴马州于5月禁止发行疫苗护照，德州州长Greg Abbott也在6月8日签署了法案，禁止政府机构以及企业在得克萨斯州要求“疫苗护照”。
 
-近来Delta变异株在英国也流行，新增确诊病例中，超过60%是感染Delta病毒株。
+推广疫苗护照将导致三个严重后果：
 
-参考文章：[全球新冠病毒致死人数突破380万 Delta变异株构成更大威胁](https://www.voachinese.com/a/covid-19-global-death-surpasses-3-8-million-and-delta-variant-poses-more-risk-20210620/5935744.html)
+1. 病毒的再次爆发。由于病毒的ADE效应，现在人们注射的疫苗很可能对变异病毒无效，甚至注射疫苗的人群会更易感染变异病毒，感染后的病情也更严重。讽刺的是，由于政府推出的疫苗护照，这一人群却恰恰被允许自由旅行，很多地方还出台打了疫苗可以不用戴口罩出入公共场所。那样的结果只会是病毒再次大爆发，而且规模很可能远超之前。因为毕竟之前有隔离政策人们也比较注意社交距离。
 
-本文仅代表作者本人观点，不代表Gnews平台
+2. 人民被区别对待，甚至被歧视。推行疫苗护照本质就是把打了疫苗的人群和没打疫苗的人群区分开来。区分开来后就是区别对待。打了疫苗的可以去旅行可以去某些场所，而没有打疫苗的将被禁止入内。这不就是赤裸裸的歧视政策吗？
 
-* * *
+3. 侵犯人们的隐私。政府可以将疫苗护照与你的经济生活联系起来。不难想象在这是在为推广中共式的社会信用系统铺路，对公民进行1984式的追踪和监视。任何人只要批评政府，政府将能够禁止他进入某些地方和冻结银行账户。
 
-排版发布：日本东京方舟农场 文柯Miles
+我们个人能做的就是不要打疫苗，拒绝疫苗护照。作为爆料革命、新中国联邦，需要让全世界尽快认识到病毒和疫苗真相，推翻中共邪恶统治，才能在这危急关头挽救人类，因为中共才是这场病毒的始作俑者。否则将没有一个人是安全和有隐私的。
+
+引用：
+
+https://www.blogto.com/travel/2021/06/first-version-canadas-vaccine-passport-expected-launch-next-month/
+
+https://www.france24.com/en/live-news/20210617-japan-to-issue-vaccine-passport-for-travel-abroad
+
+https://www.voanews.com/covid-19-pandemic/germany-introduces-covpass-digital-covid-19-vaccination-certificate
+
+https://gnews.org/zh-hans/1306249/
+
+https://www.usnews.com/news/best-states/articles/which-states-have-banned-vaccine-passports
+
+校对/发稿：飞虹
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21005113/6_june-2-556x720-1.jpeg)
+
+
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
+
+[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
