@@ -1,28 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国农行明令禁止支持比特币等虚拟货币交易
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339208/)
+## 【五月花评】恶性事件频发是中共灭亡的预演
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1339249/)
 
-#### 文章撰写:【默凡】
+五月花写作组 | 作者：Rosy Cloud | 编辑：文合 | 封面：灭共小宇宙 | 发布：吐纳
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21105021/43tgasdafa542d88pdia_d50dsafbd1d1.jpg)
+6月7号，上海当地时间下午2点52分，复旦大学发生了一起持刀伤人案件。犯罪嫌疑人姜某是复旦数学学院的教师，现年39岁。被害人王某现年49岁，已死亡，时任数学学院的党委书记。
 
-6月21日，中共国农业银行正式发文称，禁止使用本行服务用于比特币等虚拟货币交易，中国农业银行将持续开展对虚拟货币交易的打击治理行动，农行坚决不开展、不参与任何与虚拟货币相关的业务活动，禁止涉及虚拟货币交易客户准入，并将对客户及资金交易加大排查和监测力度。一经发现相关行为，将立即采取暂停账户交易、终止客户关系等措施，并及时报告有关部门。
+事发之后，网络上流传着一段视频，是嫌疑人在犯罪现场接受办案人员的问询。在视频中，嫌疑人阐述：“在单位受到很多恶劣的待遇，被长期的陷害，一直延续到现在“。由此，我们可以初步了解到他的杀人动机。此外，从视频中可以看出嫌疑人在现场是比较沉着的，表明了这是一场有预谋的故意侵害。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21103240/%E5%9B%BE%E7%89%871-7.jpg)图片来自墙内媒体
+根据网上知情人的说法：嫌疑人是引进人才，本科在复旦大学就读，美国某大学统计学博士，其学术研究水平是很不错的。虽然学术能力比较强，但是并不善于搞人际关系，导致六年期考核未达标，学院书记（受害人）代表学院宣布解聘流程，这成为了点燃嫌疑人怒火的引信。
 
+这个事件表面看起来是私人恩怨，但深究下去，就会发现他的确是对一种制度的极端负反馈。这里狭义上的制度指的是“非升即走”，顾名思义，要么升上去，要么走人。“非升即走“是当前墙内高校对于青年教师的普遍考评模式。所谓“非升即走”，就是对博士后或者副教授在一定期限的学术KPI考核，达不到标准就走人。尽管具体操作有差别，但是墙内相当多的高校都采用了这种考核办法。
 
+这种方式源于美国，但是很多东西搬到墙内就变味儿了。在西方，首先终身教职 （俗称天牛）会面试很多人，会提前发布出这个职位，告诉大家我有这个位置，每年的数量也非常有限。会从众多的简历里面筛选，根据一系列的标准，整个学院的人坐下来一起筛选，筛选出的可以参与面试的人，全学院的人一起面试评估，选择是非常严格的，而且是学院共同参与。目的其实很明确，而且这个竞争在整个的选拔过程中已经进行的八九不离十了。所以这个人一旦被整个学院认可了之后，他在学院里的环境比较宽松，会有意识的被培养，甚至被优待，比如足够的科研经费，比较少的教学任务、行政任务等。只要在这3年或者6年时间里按研究方向，完成目标，做出切切实实的成果来，就可以了。
 
-> Agricultural Bank of China issued a notice that they will not participate in virtual currency transactions and related activities. Customer accounts participating in such activities will be closed and customer relationships will be terminated. [#bitcoin](https://twitter.com/hashtag/bitcoin?src=hash&amp;ref_src=twsrc%5Etfw) [#Cryptocurency](https://twitter.com/hashtag/Cryptocurency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/vXKNdilmky](https://t.co/vXKNdilmky)
-> — 8BTCnews (@btcinchina) [June 21, 2021](https://twitter.com/btcinchina/status/1406862687313686531?ref_src=twsrc%5Etfw)
+虽然都是培养，西方那种是“呵护式 ”培养，引进国内就变成了一种“纯粹竞争性”的培养。为什么这么说呢？同样的经费，在西方培养一个人，在国内就可能养5个甚至10个人，那每个人必然分到的科研基金就少了，其它资源也是如此，比如可能没有团队，甚至可能还要依附于别人的团队。在西方比如科研，有足够的经费和比较少的杂事儿，就可以专心做科研。但在墙国，就是“临时工”，所有的脏活累活都往你身上堆。其实这6年光是搞科研都不一定能完成，有论文指标压在上面，再加上教学任务、行政任务等等，所以只能是加班加点儿，不把人压榨到极点，是很难达到那个标准的。
 
+所以通过对比，我们看到墙内的这种“非升即走”机制是一种过渡竞争机制，而西方更多的是一种融入式合作式的科研，这是两种完全不同的处理方式。一种是恶性的不是你死就是我活的文化，另一种是有机的良性竞争。
 
+复旦事件看起来是个人恩怨，其实它跟之前在安庆、在南京、在大连发生的恶性事件没有本质区别。这些事件的诱因其实就是这个社会的极度不平衡，中共的集权统治造成了整个社会的头重脚轻。
 
-参考文章：[农业银行：禁止使用我行服务用于比特币等虚拟货币交易](https://finance.sina.com.cn/tech/2021-06-21/doc-ikqciyzk0908636.shtml)
+纵观历史就会发现，凡事物极必反，复旦的这次事件可以说又是一个缩影、一次预演，我们可以预见，离中共灭亡的日子越来越近了。
 
-本文仅代表作者本人观点，不代表Gnews平台
+参考链接：
+
+[https://blog.dwnews.com/post-1433808.html](https://blog.dwnews.com/post-1433808.html)
+
+[https://www.zaobao.com.sg/realtime/china/story20210608-1153669](https://www.zaobao.com.sg/realtime/china/story20210608-1153669)
 
 * * *
 
-排版发布：日本东京方舟农场 文柯Miles
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-0
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+
++1

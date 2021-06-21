@@ -1,31 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 由于中共国加大力度打击加密货币，比特币下跌 10%
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339659/)
+## 法治周末报：一19岁大学生确诊，近2万人不得离校！世卫组织：这种变异毒株传播力猛增，易成重症
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1339677/)
 
-#### 编译：文复
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21153749/Screenshot-2021-06-21-12.36.53-PM.png)图片截自网络
-在中共国宣布召集银行行长重申禁止提供加密货币服务后，比特币跌至两周来到额低点。
+2021年6月21日
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21160918/AP21144403934380-1.jpg)
+6月20日晚，东莞再次召开新闻发布会，通报称：6月18日确诊的、家住百悦尚城小区的李某的阳性标本，经省疾控中心样本二代基因测序结果显示：样本的覆盖度为99.99%，属于Delta株。
 
-由于中共国对加密货币的打击力度加大，比特币跌至两周来的低点。
+**【新闻来源】**[一19岁大学生确诊，近2万人不得离校！世卫组织：这种变异毒株传播力猛增，易成重症](https://www.163.com/dy/article/GD0SIRO70550OOTO.html?clickfrom=w_yw)
 
-截至纽约时间上午 8 点 50 分，最大的虚拟货币下跌 10% 至 32,350 美元，以太币下跌 13% 至 1,950 美元。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-中共国周一宣布召集其最大银行的官员参加会议，重申禁止提供加密货币服务。这是中共国计划尽一切努力弥补加密货币交易中存在的任何漏洞的最新迹象。
 
-根据央行周一的一份声明，中共国工商银行、中共国农业银行和支付服务提供商支付宝的代表被提醒注意禁止中共国银行从事加密相关交易的规定。
-
-“中共国人民银行的打击力度超出了最初的预期，”加密衍生品交易所 FTX 的场外和机构销售主管乔纳森·奇斯曼 (Jonathan Cheesman) 表示。 “采矿是第一阶段，投机是第二阶段。”
-
-另外，一个拥有丰富水电资源的中共国城市已加紧行动以控制采矿。一位知情人士说，（四川省）雅安政府官员告诉至少一位比特币矿工，该市已承诺在一年内铲除所有比特币和以太币挖矿业务。
-
-在此背景下，在美联储上周采取强硬政策转向之后，对风险资产的兴趣减弱。尽管周一股市走高，但分析师指出，对充满泡沫的市场角落的担忧挥之不去。
-
-Oanda Asia Pacific Pte. Ltd. 高级市场分析师杰弗里哈雷表示：“假如，像我预期的那样，本周全球“购买一切”继续平息的话，比特币将感受到凄风冷雨。”
-
-文章来源：[点击进入](https://www.aljazeera.com/economy/2021/6/21/bb-bitcoin-falls-10-as-china-intensifies-crypto-crackdown)
-
-**校对发布：**紫橄榄
-
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
