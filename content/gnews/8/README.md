@@ -1,14 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法治周末报：一19岁大学生确诊，近2万人不得离校！世卫组织：这种变异毒株传播力猛增，易成重症
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1339677/)
+## 经过最后通牒, 台湾撤出香港办事处工作人员
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1339707/)
 
 2021年6月21日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21160918/AP21144403934380-1.jpg)
-6月20日晚，东莞再次召开新闻发布会，通报称：6月18日确诊的、家住百悦尚城小区的李某的阳性标本，经省疾控中心样本二代基因测序结果显示：样本的覆盖度为99.99%，属于Delta株。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21162519/AP21144403934380-2.jpg)
+法国快报援引法新社报道：台北当局称，香港当局向台湾驻香港贸易办事处的七名成员发出了承认中国对台湾拥有主权的最后通牒，办事处的7名成员于周日离开了金融中心。
 
-**【新闻来源】**[一19岁大学生确诊，近2万人不得离校！世卫组织：这种变异毒株传播力猛增，易成重症](https://www.163.com/dy/article/GD0SIRO70550OOTO.html?clickfrom=w_yw)
+**【新闻来源】**[Après un ultimatum, Taïwan retire le personnel de sa représentation à Hong Kong](https://www.lexpress.fr/actualites/1/monde/apres-un-ultimatum-taiwan-retire-le-personnel-de-sa-representation-a-hong-kong_2153245.html)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
