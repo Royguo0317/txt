@@ -1,20 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 经过最后通牒, 台湾撤出香港办事处工作人员
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1339707/)
+## 拍案惊奇短评系列之二十六——毫无伦理的“公鼠怀孕”
+` 左媛专栏` [轉載自GNews](https://gnews.org/zh-hans/1339700/)
 
-2021年6月21日
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21162519/AP21144403934380-2.jpg)
-法国快报援引法新社报道：台北当局称，香港当局向台湾驻香港贸易办事处的七名成员发出了承认中国对台湾拥有主权的最后通牒，办事处的7名成员于周日离开了金融中心。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21164451/86C444D0-E6F4-40E4-9265-81DE3D8C0EA0.jpeg)
+作者：左媛
 
-**【新闻来源】**[Après un ultimatum, Taïwan retire le personnel de sa représentation à Hong Kong](https://www.lexpress.fr/actualites/1/monde/apres-un-ultimatum-taiwan-retire-le-personnel-de-sa-representation-a-hong-kong_2153245.html)
+编辑：萨日
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+中共执政70年以来，中共科学界给人类创造了什么成果，给世界发展带来了哪些进步，给中国人带来了哪些幸福指数的提高？笔者很想说有，而且越多越好，至少凭着它在科技上给人类带来的成果和进步让我们不再天天高喊“Take Down the CCP”。然而，很遗憾，除了获诺贝尔医学奖的屠呦呦的“青蒿素”之外，我们几乎找不到另一个。
 
+2019年，BBC盘点了世界领先的七大中国科技：华为5G，超级计算机，基因编辑婴儿，人工智能AI，世界最大口径射电望远镜（观天巨眼），“墨子号”量子科学实验卫星，月球表面登陆。这七大领先科技，且不要说没有一件是造福于人类，而且在时间流水的无情冲刷下基本成为“悲剧”：华为改行养猪了，编辑婴儿被世界谴责而不了了之，AI技术用在无死角监控老百姓中，量子通信成为世纪骗局……
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
+在中共的“英明”领导下，中共生物界科学家不断挑战人类伦理文明底线：基因编辑婴儿，耐寒蚊子，世界毒株最多人畜致病性最强的病毒研究，两只雄性熊猫首次成功自然交配，公鼠怀孕生子……再看看被披露的公鼠怀孕过程，简直是血腥到惨无“鼠”道。这里有科学吗？没有，只有冰冷锋利的手术刀和比手术刀更冰冷锋利的“科学家”的非人类之心。他们给公鼠造一个“子宫”吗？不是，而是移植母鼠的子宫给公鼠；他们让公鼠母鼠交配而形成公鼠怀孕吗？也不是，而是强行移植胚胎到公鼠母鼠体内。一只公鼠孕育成功平均需要消耗四只母鼠，这个结果让我们想起为了江绵恒一个人的肾移植而杀了四个无辜青年……这些遭天谴的魔鬼！胎生动物的自然交配怀孕生子的万年规律就这么被中共的“科学家”用手术刀改变了。然后，被他们当作“成果”而“重磅”推出，冠之以“全球首次”。中共傲视天地之色早已把世间万物的自然伦理丢进了臭水沟里！
+
+昨天，他们可以把人民的肝肾肺移植给他们需要的人；今天，他们可以在老鼠身上做实验让公鼠“怀孕生子”；明天，他们就可以把人民的子宫移植到他们需要的人身上，随心所欲地繁殖他们的子孙……中共之恶念恶行，自然的规律和人伦已经被他们碾碎成尘土，眼前肆虐的病毒之灾就是一个见证。正常的生物科学是为了促进人类生命的健康和持久，中共的生物科学却成了他们图谋统御世界的武器。
+爆料革命必须消灭共产党，不仅解救全人类，也为承受痛苦的公鼠母鼠们讨回公道！
+
+2021.6.20于纽约
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21164617/40C612F1-7227-40DD-BB1C-2AFFC8D97D58.jpeg)
+（本文章仅代表作者个人观点）
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/10153559/F23A3832-6448-4FAE-AD15-4BE0551CAA4C.jpeg)
++1
