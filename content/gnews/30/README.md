@@ -1,70 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 「西班牙视角」广州疫情是否超限战的一部分？
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1336906/)
+## 佐治亚州州务卿隐瞒选举问题报告遭揭露
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1337092/)
 
-作者：Gokuabuela| 校对：X-Wing| 审核：Beicy-数学老师| Page：小六月
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SE1VSNhBb3KUs/images/1757e87b-ed6c-4706-bf2b-6e6b1c7fc3e2.jpg?asset_id=ef8dc478-d863-48b2-b0cb-8dd35bbe4a97&amp;img_etag=%22344bbedc8c94d206a00e9083bc57978c%22&amp;size=1024)](https://spark.adobe.com/page/SE1VSNhBb3KUs/images/1757e87b-ed6c-4706-bf2b-6e6b1c7fc3e2.jpg?asset_id=ef8dc478-d863-48b2-b0cb-8dd35bbe4a97&amp;img_etag=%22344bbedc8c94d206a00e9083bc57978c%22&amp;size=1024)
+编辑上传  水星
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20133123/R-4.jpg)eastonspectator.com
+在曝出佐治亚州富尔顿（Fulton）郡100多批缺席选票可能失踪的新闻后【1】，《门道专家》今早（6月20日）发文，题目是，“令人愤慨的是：佐治亚州州务卿布拉德·拉芬斯佩格（Brad Raffensperger）收到了一份报告，报告显示了令人震惊的选举问题，但他隐瞒了这一报告，并声称该州进行了‘安全、可靠和诚实的选举’”。【2】
 
-今年5月，当时中共国最繁忙的港口之一盐田港宣布，因为广州地区新的疫情爆发，它将不接受新的集装箱出口货物。盐田港当局保证将在6月底前恢复正常。
+全文如下：
 
-为了更好地理解这一事件，我们必须回头看看苏伊士运河堵塞事件。在3月份堵塞苏伊士运河的船只被疏通后，船舶航行时间表和供应链花了几周时间才得以恢复。现在，堆积在中共国南部的货物可能需要几个月的时间才能清空，而其影响则会蔓延到世界各地的港口。
+正如本周早些时候报道的那样，早在1月份，州务卿布拉德·拉芬斯佩格还对《60分钟》（60 Minutes）说，佐治亚州“进行了安全、可靠和诚实的选举”。
 
-这个时间表将造成一个关键问题：**美国与欧洲的零售商将错过夏季的购物高峰期。**
+当然，没有什么比这更离谱了。
 
-本周三，在美国，美联储已经提高了其通胀预测，部分原因是由于供应未能跟上需求而形成了瓶颈。
+《门道专家》就2020年11月佐治亚州大选中可能出现的欺诈和腐败撰写了几份报告。
 
-德鲁里航运周四公布的数据显示，多条航线的集装箱运价继续上涨，荷兰鹿特丹和中共国港口之间的货物运输成本上升到一年前的近七倍。这必将推动所有商品的价格上涨。
+今年5月，佐治亚州法官布莱恩·阿梅罗（Brian Amero）要求为选举审计打开14.5万多张富尔顿郡的缺席选票。
 
-我们可以注意到两个非常重要的问题：
+一份《门道专家》的报道曝光，佐治亚州选举官员在选举观察员被送回家后，深夜在佐治亚州的亚特兰大（计票中心）通过投票机反复输送了数千张选票。
 
-1.美、欧今年夏天的购物高峰季将泡汤。
-2.美、欧的商品市场价格将全面上涨。
+本周早些时候，佐治亚州富尔顿郡的一名选举官员承认，在2020年的选举中，24%的选票中缺少州法律规定的选票登记册。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SE1VSNhBb3KUs/images/9609b32c-19c2-4618-9eec-2fb4fd0fb377.jpg?asset_id=4f592f49-3272-49f2-bf5c-e65c0331ea4b&amp;img_etag=%22be4354263fb3efe8703930a4dd945b47%22&amp;size=1024)](https://spark.adobe.com/page/SE1VSNhBb3KUs/images/9609b32c-19c2-4618-9eec-2fb4fd0fb377.jpg?asset_id=4f592f49-3272-49f2-bf5c-e65c0331ea4b&amp;img_etag=%22be4354263fb3efe8703930a4dd945b47%22&amp;size=1024)
+腐败的佐治亚州务卿布拉德·拉芬斯佩格是最终的责任人，据《佐治亚州之星》（the Georgia Star）报道，一名选举官员首次承认，佐治亚州的选票登记册丢失了。
 
-之前我们也有分析，当今联合灭共的形势下，美欧对内最重要的战略是恢复经济，切实提高人民的生活水平。因为疫情的影响，美、欧都超发了大量货币，急需提升消费市场，迅速将超发的货币消化为市场流动，从而进入良性循环，避免因通胀而引发的重大经济危机。
+然后，今天（6月20日）约翰·所罗门和《正当新闻》（Just The News）报道，一份审计文件发现，佐治亚州富尔顿郡有100多批缺席选票丢失！报告显示，该报告是呈给州务卿办公室的：“这似乎是一个巨大的选票登记册问题。”承包商卡特·琼斯（Carter Jones）在其公司“七山战略”（Seven Hill Strategies）选举后不久递交给拉芬斯佩格办公室的备忘录中警告说。
 
-而且，至少表面上的疫情好转，让民众对恢复经济和恢复正常生活充满期待，这个夏天对欧美的经济状况和民众信心都至关重要。
+今天早上晚些时候，约翰·所罗门告诉“战争室”（the War Room），布拉德·拉芬斯佩格自己的团队说“坏的，坏的事情”正从富尔顿郡冒出来。
 
-从这个层面看，盐田港的堵塞，对中共有着重大的战略利益。一是再次宣告供应链的重要性，提示欧美，供应链在我手里，你们是不是要悠着点，非要逼得我鱼死网破吗？
+拉芬斯佩格不断声称佐治亚州有一个完美的选举，但他自己的隐瞒至今的报告却显示了滥用职权，潜在的犯罪活动和腐败。
 
-其次，可以根据世界局势，顺势打经济战，不仅让欧美的夏季高峰期泡汤，甚至可以让欧美的圣诞季消费高峰期泡汤。拜登政府把病毒真相的报告期限定在8月底，中共国的物流畅通也大约需要在8月底才能完成，是巧合吗？
+拉芬斯佩格对佐治亚州的人民和美国人民隐瞒了这份备忘录，声称他监督了一场安全、可靠和诚实的选举，而他知道自己并没有这样做。
 
-对中共国的外贸有影响吗？有，对中共国外贸领域的打击也是致命性的，但中共自认为已经做好“内循环”准备，在党和国家的利益面前，中共随时可以牺牲国内民生。
+（原文完）
 
-其实，只要开始灭共，只要新的经济格局还没有完全形成，供应链断裂的痛苦就一定会来，由供应链危机、“脱钩”引发的经济危机也是大概率会发生的，这是灭共、改变世界格局的必然，我们要提前做好“保财保命”的准备。
+大选舞弊、中共病毒，两种“病毒”侵蚀了美国。比“病毒”本身更令人担心的是主流媒体和社交平台对质疑“病毒”溯源自然说及揭露大选舞弊等言论的封杀，行政与情报部门及司法机构等在这场中共病毒和大选舞弊叠加的“疫情“中各自充当的令人匪夷所思的角色，以及深层势力的影响等。相信正道主义一定能战胜邪恶，在新中国联邦的助力下，美国一定能闯过这一险关！
 
-参考文献：[https://www.eleconomista.es/economia/noticias/11278335/06/21/El-atasco-de-los-puertos-de-China-supera-al-del-Canal-de-Suez-y-amenaza-con-llevar-al-caos-al-comercio-global.html](https://www.eleconomista.es/economia/noticias/11278335/06/21/El-atasco-de-los-puertos-de-China-supera-al-del-Canal-de-Suez-y-amenaza-con-llevar-al-caos-al-comercio-global.html)
+参考链接：
 
-（本文仅代表个人观点）
+【1】[https://gnews.org/zh-hans/1330617/](https://gnews.org/zh-hans/1330617/)
 
-欢迎阅读作者更多文章：
-
-- [【西班牙视角】“北极航线”意味着什么？](https://gnews.org/zh-hans/1332646/)
-- [【西班牙视角】拜登给普京画下了红线](https://gnews.org/zh-hans/1330497/)
-- [通胀将随着灭共的脚步一起到来？](https://gnews.org/zh-hans/1330373/)
-- [欧洲的未来与拜登的“甜蜜陷阱”](https://gnews.org/zh-hans/1327928/)
-- [北约2030计划：面向中共国和俄罗斯的军事行动](https://gnews.org/zh-hans/1326979/)
-- [土耳其的选择：挺共还是灭共](https://gnews.org/zh-hans/1325746/)
-- [回国发展，你的政治情商够用嘛？](https://gnews.org/zh-hans/1321606/)
-- [G7会议的主题：怎样打赢与中共的新冷战](https://gnews.org/zh-hans/1320733/)
-- [G7的领导者们聚会，构建世界新秩序](https://gnews.org/zh-hans/1317819/)
-- [不惜一切代价：找寻失踪女孩](https://gnews.org/zh-hans/1317809/)
-- [从【习近平爱读的书】到【马背英雄】](https://gnews.org/zh-hans/1315981/)
-
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/SE1VSNhBb3KUs/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/SE1VSNhBb3KUs/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-
+【2】[https://www.thegatewaypundit.com/2021/06/outrageous-georgia-secretary-state-raffensperger-received-report-showing-egregious-election-issues-yet-concealed-report-claimed-state-safe-secure-honest-elections/](https://www.thegatewaypundit.com/2021/06/outrageous-georgia-secretary-state-raffensperger-received-report-showing-egregious-election-issues-yet-concealed-report-claimed-state-safe-secure-honest-elections/)
 
 0

@@ -1,47 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佐治亚州州务卿隐瞒选举问题报告遭揭露
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1337092/)
+## 【热点播报】匈牙利政府首脑希望剥夺欧盟议会的权力
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1337536/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：美国香草山佛教部  –  孤独的战友
 
-编辑上传  水星
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20133123/R-4.jpg)eastonspectator.com
-在曝出佐治亚州富尔顿（Fulton）郡100多批缺席选票可能失踪的新闻后【1】，《门道专家》今早（6月20日）发文，题目是，“令人愤慨的是：佐治亚州州务卿布拉德·拉芬斯佩格（Brad Raffensperger）收到了一份报告，报告显示了令人震惊的选举问题，但他隐瞒了这一报告，并声称该州进行了‘安全、可靠和诚实的选举’”。【2】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
 
-全文如下：
 
-正如本周早些时候报道的那样，早在1月份，州务卿布拉德·拉芬斯佩格还对《60分钟》（60 Minutes）说，佐治亚州“进行了安全、可靠和诚实的选举”。
 
-当然，没有什么比这更离谱了。
 
-《门道专家》就2020年11月佐治亚州大选中可能出现的欺诈和腐败撰写了几份报告。
 
-今年5月，佐治亚州法官布莱恩·阿梅罗（Brian Amero）要求为选举审计打开14.5万多张富尔顿郡的缺席选票。
+据[德国镜报](https://www.spiegel.de/ausland/viktor-orban-ungarns-regierungschef-will-eu-parlament-entmachten-a-a9d5a65d-84be-42d5-a4b1-ed9b8312e71f)2021年6月19日报道，匈牙利右翼民族主义总理维克多-欧尔班（Victor Orbán）6月9日在国家独立日会议上再次对欧盟提出异议，他主张欧洲议会的权力应该被大幅削减，其组成应由各国首都决定。
 
-一份《门道专家》的报道曝光，佐治亚州选举官员在选举观察员被送回家后，深夜在佐治亚州的亚特兰大（计票中心）通过投票机反复输送了数千张选票。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/20190350/254-1.jpg)  维克多-欧尔班（6月9日）：在国家独立日袭击欧洲议会 (BERNADETT SZABO / REUTERS)
 
-本周早些时候，佐治亚州富尔顿郡的一名选举官员承认，在2020年的选举中，24%的选票中缺少州法律规定的选票登记册。
+镜报指出，上周六，欧尔班在布达佩斯的一次演讲中宣布，他打算限制欧盟议会的权力。因一部反同性恋审查法，欧尔班要求停止所有移民。现在又攻击欧盟机构，在几天内再次加强了他对欧洲的对抗路线。
 
-腐败的佐治亚州务卿布拉德·拉芬斯佩格是最终的责任人，据《佐治亚州之星》（the Georgia Star）报道，一名选举官员首次承认，佐治亚州的选票登记册丢失了。
+欧尔班在演讲中要求，如果欧盟国家的国家议会认为欧盟议会的立法程序可能会侵犯国家主管领域，则应赋予其阻止这些程序的权利。
 
-然后，今天（6月20日）约翰·所罗门和《正当新闻》（Just The News）报道，一份审计文件发现，佐治亚州富尔顿郡有100多批缺席选票丢失！报告显示，该报告是呈给州务卿办公室的：“这似乎是一个巨大的选票登记册问题。”承包商卡特·琼斯（Carter Jones）在其公司“七山战略”（Seven Hill Strategies）选举后不久递交给拉芬斯佩格办公室的备忘录中警告说。
+欧尔班说：“就欧洲民主的标准而言，欧盟议会已被证明是一个死胡同。按照欧洲委员会议会的模式，他认为应该允许各国议会向欧盟议会派遣代表。”
 
-今天早上晚些时候，约翰·所罗门告诉“战争室”（the War Room），布拉德·拉芬斯佩格自己的团队说“坏的，坏的事情”正从富尔顿郡冒出来。
+**作者评论：**我们知道，匈牙利是被中共深度蓝金黄的国家。它在欧盟内是中共意志的执行者**。**匈牙利是唯一批准接种中共疫苗的欧盟国，并且也是全球染疫死亡率最高的国家之一。匈牙利曾利用一票否决，拒绝与其他26个成员国一起呼吁在巴以冲突实现停火。此后，又用同样手法，阻挡欧盟就香港问题对中共国发表声明。现在，欧尔班又大放厥词，想夺取欧盟议会的权力。其做法受到众多欧盟国家的强烈反对。
 
-拉芬斯佩格不断声称佐治亚州有一个完美的选举，但他自己的隐瞒至今的报告却显示了滥用职权，潜在的犯罪活动和腐败。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141843/6-june.jpg)
 
-拉芬斯佩格对佐治亚州的人民和美国人民隐瞒了这份备忘录，声称他监督了一场安全、可靠和诚实的选举，而他知道自己并没有这样做。
+编辑/校对/发稿：小鹿
 
-（原文完）
 
-大选舞弊、中共病毒，两种“病毒”侵蚀了美国。比“病毒”本身更令人担心的是主流媒体和社交平台对质疑“病毒”溯源自然说及揭露大选舞弊等言论的封杀，行政与情报部门及司法机构等在这场中共病毒和大选舞弊叠加的“疫情“中各自充当的令人匪夷所思的角色，以及深层势力的影响等。相信正道主义一定能战胜邪恶，在新中国联邦的助力下，美国一定能闯过这一险关！
 
-参考链接：
+**更多资讯，更多关注**
 
-【1】[https://gnews.org/zh-hans/1330617/](https://gnews.org/zh-hans/1330617/)
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
 
-【2】[https://www.thegatewaypundit.com/2021/06/outrageous-georgia-secretary-state-raffensperger-received-report-showing-egregious-election-issues-yet-concealed-report-claimed-state-safe-secure-honest-elections/](https://www.thegatewaypundit.com/2021/06/outrageous-georgia-secretary-state-raffensperger-received-report-showing-egregious-election-issues-yet-concealed-report-claimed-state-safe-secure-honest-elections/)
+[**纽约香草山农场GTV-MOS TALK香草山访谈**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)
+
+[**纽约香草山农场Twitter（中文）**](https://twitter.com/HIMALAYA_MOS)
+
+[**纽约香草山农场Twitter（英文）**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/03141818/s2-1.jpg)
+
+
+
+
 
 0
