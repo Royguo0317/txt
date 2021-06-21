@@ -1,53 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德社即时简报】塞林上校开始布置任务
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1339148/)
+## 【点睛要闻】中共诋毁美国给台湾提供疫苗之善举
+` 秘密翻译组-原创组` [轉載自GNews](https://gnews.org/zh-hans/1339210/)
 
-作者：香草山翻译部 GBW
+撰稿：待命（文晓）【㊙️翻Gnews原创组】
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+责编：Ermat
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21104959/image1-15.jpg)图片来源：mainichi.jp
+6月21日TBS新闻发表于日本雅虎网站的消息称：由美国免费提供的250万剂中共病毒疫苗已经抵达台湾。对此，中共政府说：这是利用援助疫苗的政治手法。
 
+20日抵达台湾的是由Moderna公司生产的，拜登政府免费提供的250万剂中共病毒疫苗。 台湾总统蔡英文发表声明，对美方表示 “衷心的感谢”。
 
+中国外交部发言人赵立坚说：我们敦促美方不要利用援助疫苗进行政治操纵，干涉中共国的内政。他还在在6月21日的新闻发布会上说：“台湾正在阻挠台湾人民接受中共国的疫苗，藐视人道主义。”以牵制台湾。
 
-（2021年6月21日早，路安墨）
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21101915/%E5%9B%BE%E7%89%871-67.png)
-1. 塞林上校在推特揭发张洵等中共五毛，并说特种部队的座右铭是 “解放被压迫者”。
+中共在墙内用送鸡蛋、发现金、强迫等手段诱导国民接种中共疫苗，在墙外，驻外使领馆不断以各种外宣说辞以及疫苗护照等手段，诱导海外华人接种中共疫苗。且不说疫苗该不该接种，仅就中共眼看着台湾使用日本、美国赠送的疫苗，恼羞成怒是免不了的。以赵立坚的国骂风格，这几句算是轻的！
 
+参考链接：
 
-a. 路德：塞林上校通过揭发五毛来保护闫博士。
+[米 台湾にワクチン２５０万回分提供、中国「政治的な操りだ」](https://news.yahoo.co.jp/articles/356002a8bd22d2dc9ea7890217b17d88e4be1fca)
 
-b. 路德：我们现在开始称呼塞林博士为塞林上校，你懂的。过几天塞林上校可能会私信战友布置任务。
-
-c. 墨博士：手机和推特是我们的武器。
-
-d. 路德：绿色贝雷帽就是“将计就计”“水无定形”。
-
-1. 沙利文警告中（共）国，如果不配合新冠溯源，将被世界孤立。
-
-
-a. 路德:美国在阿拉斯加会议期间就和中共谈了新冠溯源问题。
-
-b. 赵立坚说这是赤裸裸的讹诈和威胁，中国绝不接受。
-
-（笔记仅作参考，内容以路德社节目为准）
-
-校对/发稿：飞虹
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21005113/6_june-2-556x720-1.jpeg)
-
-
-
-**更多资讯，更多关注**
-
-[**纽约香草山农场GTV****–****香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
-
-[**纽约香草山农场GTV-MOS TALK**](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**香草山访谈**
-
-[**纽约香草山农场****Twitter**](https://twitter.com/HIMALAYA_MOS)**(****中文****)**
-
-[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
-
-[**纽约香草山农场 You****Tube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
+（本文仅代表作者个人观点）
 
 0

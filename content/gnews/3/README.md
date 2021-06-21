@@ -1,26 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Delta中共病毒变异株将造成更大威胁
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339104/)
+## 中共国农行明令禁止支持比特币等虚拟货币交易
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339208/)
 
 #### 文章撰写:【默凡】
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21102413/gr4343ste_2021-0asdf6-21_22-23-30.png)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21105021/43tgasdafa542d88pdia_d50dsafbd1d1.jpg)
 
-美国之音6月20日报道：中共病毒疫情从去年大流行至今已造成380多万人死亡。尽管许多国家已经开始大规模接种中共病毒疫苗，截至6月18日全球已经接种约25亿剂疫苗，但许多国家仍在竭力控制疫情爆发。
+6月21日，中共国农业银行正式发文称，禁止使用本行服务用于比特币等虚拟货币交易，中国农业银行将持续开展对虚拟货币交易的打击治理行动，农行坚决不开展、不参与任何与虚拟货币相关的业务活动，禁止涉及虚拟货币交易客户准入，并将对客户及资金交易加大排查和监测力度。一经发现相关行为，将立即采取暂停账户交易、终止客户关系等措施，并及时报告有关部门。
 
-俄罗斯星期天新增17611例新发确诊病例，单单首都莫斯科就新增8305起，450人死亡，俄罗斯自疫情最初爆发以来，已经有531万人感染，12万人死亡。不过，俄罗斯联邦统计机构单独统计表示，已出现27万例与中共病毒相关的死亡。
 
-在南美的巴西，死于中共病毒的人数星期六（6月19日）已经超过50万，仅次于美国的约60万。同时，巴西面临第三波的病毒蔓延。
 
-世界卫生组织表示，最早出现在印度的Delta变异病毒株，已成为全球中共病毒大流行的主要毒株，因为Delta变异病毒“传染力显著增强”。Delta变异株已扩散到超过80国，并持续突变。世卫上个月已将Delta列为“高关注变异株”，表示这种病毒传染力更强、更致命，或现有疫苗及疗法较难对付。
+> Agricultural Bank of China issued a notice that they will not participate in virtual currency transactions and related activities. Customer accounts participating in such activities will be closed and customer relationships will be terminated. [#bitcoin](https://twitter.com/hashtag/bitcoin?src=hash&amp;ref_src=twsrc%5Etfw) [#Cryptocurency](https://twitter.com/hashtag/Cryptocurency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/vXKNdilmky](https://t.co/vXKNdilmky)
+> — 8BTCnews (@btcinchina) [June 21, 2021](https://twitter.com/btcinchina/status/1406862687313686531?ref_src=twsrc%5Etfw)
 
-据美国疾病控制与预防中心（CDC）数据，目前美国新增确诊病例中，感染Delta病毒株的患者就占10%，多于上周的6%。美国CDC主任瓦伦斯基（Rochelle Walensky）预期Delta将成为美国主要流行的病毒株。
 
-近来Delta变异株在英国也流行，新增确诊病例中，超过60%是感染Delta病毒株。
 
-参考文章：[全球新冠病毒致死人数突破380万 Delta变异株构成更大威胁](https://www.voachinese.com/a/covid-19-global-death-surpasses-3-8-million-and-delta-variant-poses-more-risk-20210620/5935744.html)
+参考文章：[农业银行：禁止使用我行服务用于比特币等虚拟货币交易](https://finance.sina.com.cn/tech/2021-06-21/doc-ikqciyzk0908636.shtml)
 
 本文仅代表作者本人观点，不代表Gnews平台
 

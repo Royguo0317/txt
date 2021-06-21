@@ -1,33 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】06/20/2021:中共试图在今年夏秋交接之际在美国和欧洲等西方国家再一次释放管状病毒而且这次释放病毒的危险比上一次要高
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1338888/)
+## 前国家情报总监敦促拜登政府加快行动，彻查病毒来源真相
+` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339064/)
 
-**制作：Canotonese工作室**
+#### 文章撰写:【默凡】
 
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21094813/Snipaste_2021-06-21_21-47-35.png)
 
-
-**播报:【文依】资料整理:【一帘幽梦】【文林】【二丫】PPT:【文武全才】视频制作:【KEN】发布：【陆柒陆捌】**
-
-摘要；
+6月20日，前国家情报总监拉特克利夫接受福克斯玛丽亚采访时表示，中共国想要取代美国成为世界霸主，中共病毒已经导致全球400万人死亡，美国国家都应该对中共强硬。拜登政府上台六个月至今依然没有向习近平政府调查病毒来源真相。拉特克利夫希望拜登政府对中共政权不仅要用词强硬，而且要采取强硬行动，中共病毒已导致将近60万人死亡。美国应取消对中共国的债务用来偿还损
 
 
 
-1
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21075501/6.20_page-0002.jpg)
-2
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21075541/6.20_page-0003.jpg)
-3
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21075610/6.20_page-0004.jpg)
-4
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21075640/6.20_page-0005.jpg)
-5
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21075716/6.20_page-0006.jpg)
-6
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21075748/6.20_page-0007.jpg)
-7
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21075827/6.20_page-0008.jpg)![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21075945/image0%E9%9D%A2-8.jpg)
+> 尽管拜登政府最近施行了一系列抗共行动，右派仍猛烈抨击拜登政府灭共不力
+> 前国家情报总监拉特克利夫批评拜登政府对中共只打口炮，缺乏实质行动。作为美国看到情报最多的人，他可以得出结论：中共造成了全球4百万人死亡，美国60万人死亡
+> 福克斯玛丽亚说，武汉实验室在做功能增强实验，在制造生物武器 [pic.twitter.com/fK5KjI00gJ](https://t.co/fK5KjI00gJ)
+> — 洛子峰 (@Lhotse\_luozi) [June 20, 2021](https://twitter.com/Lhotse_luozi/status/1406747306376847364?ref_src=twsrc%5Etfw)
 
+
+
+本文仅代表作者本人观点，不代表Gnews平台
+
+* * *
+
+排版发布：日本东京方舟农场 文柯Miles
 
 0
