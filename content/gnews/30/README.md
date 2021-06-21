@@ -1,29 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【拆墙新闻】中共国内疫苗接种超10亿剂次——新型大跃进
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339238/)
+## 【有声读物】做好幸福鸟
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1339314/)
 
-#### 文章撰写:【默凡】
+配音：香草山录音组 信念7
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21105816/sda653745tgwg4t.jpg)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-据国家卫健委最新公布的数据，截至2021年6月19日，31个省（自治区、直辖市）和新疆生产建设兵团累计报告接种中共病毒疫苗101048.9万剂次。目前，我国新冠疫苗接种剂次和覆盖人群数量均居全球首位。
 
-“苗苗苗”按下快进键，“免疫长城”正加快筑就。数据显示，自3月27日疫苗接种超过 1 亿剂次以来，基本上，每增加1亿剂次接种所需时间间隔不断缩短。从接种1亿剂次到超过2亿剂次，历时25天；而从接种9亿剂次到超过10亿剂次，只用了5天时间。接种疫苗、织密防控网络不能有“喘口气”“歇歇脚”的心态。近期出现的本土病例表明，疫情防控形势依然严峻。为了尽早形成国内免疫屏障，还有必要延续当前势头，继续提升疫苗接种率。只有始终绷紧疫情防控这根弦，再接再厉抓好疫情防控，才能始终掌握抗疫主动权。
 
-拆台评论：
 
-中共国推广接种疫苗是另一种新形式下的58年“大跃进”，这种集体行动预示着习神正在开历史倒车，中共国彻底回到毛贼东统治时代，这对中共国老百姓来说，将是一场巨大的灾难。郭先生此前爆料，中共国计划在七八月份将国内疫苗接种率提升至八到九层，中共国每六天就能新增一亿剂接种数量，这再次验证了文贵先生情报来源的准确性。
 
-中共病毒存在ADE效应，接种疫苗的正常人体内将产生病毒抗体，在ADE效应的作用下，这些接种者未来将更容易感染中共病毒，并且感染后的死亡率和不良反应率将高出常人。中共国经济一旦奔溃，墙内出现粮荒和钱荒，政权出现动荡，中共病毒就肯定会在墙内肆虐，所有墙内同胞都要提前做好预防的准备。
 
-参考文章：[**国内接种超10亿剂次！我们一起“苗苗苗”！**](http://www.news.cn/multimediapro/20210620/cf31314e9efc45c382500dbfc2cee9bb/c.html)
 
-本文仅代表作者本人观点，不代表Gnews平台
+为了爱情，我辞去了在日本大阪某大学的终身正教授之职，来到美国，和我英俊、聪明、浪漫的美国先生一起幸福地生活着（他曾是我们大学美国分校的英文老师，在我作为国际交流委员带领着64名日本学生进行欧美文化研修时，我们在这所分校一见钟情）。直到有一天，他在周末骑自行车赛车50英里回家的路上，被一个酒驾的女演员活活地被撞死了……我的心当时也随他一起去了……
 
-* * *
 
-排版发布：日本东京方舟农场 文柯Miles
+
+**文字版原文：[【战友心声】做好幸福鸟](https://gnews.org/zh-hans/1337893/)**
+
+作者：纽约香草山健身部 幸福鸟
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
