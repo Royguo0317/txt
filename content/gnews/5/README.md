@@ -1,28 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前国家情报总监敦促拜登政府加快行动，彻查病毒来源真相
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339064/)
+## 突发： 人民银行打击虚拟货币交易，约谈几大银行和支付宝
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1339065/)
 
-#### 文章撰写:【默凡】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21100210/1000-1.jpg)
+2021年6月21日，虚拟货币在中国遭受当头一棒。人民银行指出虚拟货币交易炒作活动扰乱经济金融正常秩序，滋生非法跨境转移资产、洗钱等违法犯罪活动风险，近日约谈了工商银行、农业银行、建设银行、邮储银行、兴业银行，以及支付宝等网络公司， 将进一步加大排查和处置力度，采取严格措施，坚决切断虚拟货币交易炒作活动的资金支付链路。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21094813/Snipaste_2021-06-21_21-47-35.png)
+** 【新闻来源】 **
 
-6月20日，前国家情报总监拉特克利夫接受福克斯玛丽亚采访时表示，中共国想要取代美国成为世界霸主，中共病毒已经导致全球400万人死亡，美国国家都应该对中共强硬。拜登政府上台六个月至今依然没有向习近平政府调查病毒来源真相。拉特克利夫希望拜登政府对中共政权不仅要用词强硬，而且要采取强硬行动，中共病毒已导致将近60万人死亡。美国应取消对中共国的债务用来偿还损
+新浪财经：[央行就虚拟货币交易炒作问题约谈部分银行和支付机构](https://finance.sina.com.cn/china/2021-06-21/doc-ikqcfnca2343969.shtml)
 
-
-
-> 尽管拜登政府最近施行了一系列抗共行动，右派仍猛烈抨击拜登政府灭共不力
-> 前国家情报总监拉特克利夫批评拜登政府对中共只打口炮，缺乏实质行动。作为美国看到情报最多的人，他可以得出结论：中共造成了全球4百万人死亡，美国60万人死亡
-> 福克斯玛丽亚说，武汉实验室在做功能增强实验，在制造生物武器 [pic.twitter.com/fK5KjI00gJ](https://t.co/fK5KjI00gJ)
-> — 洛子峰 (@Lhotse\_luozi) [June 20, 2021](https://twitter.com/Lhotse_luozi/status/1406747306376847364?ref_src=twsrc%5Etfw)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-
-本文仅代表作者本人观点，不代表Gnews平台
-
-* * *
-
-排版发布：日本东京方舟农场 文柯Miles
-
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
