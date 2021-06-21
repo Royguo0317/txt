@@ -1,28 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国农行明令禁止支持比特币等虚拟货币交易
-` 索尼克` [轉載自GNews](https://gnews.org/zh-hans/1339208/)
+## 【有声读物】做好幸福鸟
+` MOSREC` [轉載自GNews](https://gnews.org/zh-hans/1339314/)
 
-#### 文章撰写:【默凡】
+配音：香草山录音组 信念7
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/06/21105021/43tgasdafa542d88pdia_d50dsafbd1d1.jpg)
-
-6月21日，中共国农业银行正式发文称，禁止使用本行服务用于比特币等虚拟货币交易，中国农业银行将持续开展对虚拟货币交易的打击治理行动，农行坚决不开展、不参与任何与虚拟货币相关的业务活动，禁止涉及虚拟货币交易客户准入，并将对客户及资金交易加大排查和监测力度。一经发现相关行为，将立即采取暂停账户交易、终止客户关系等措施，并及时报告有关部门。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-> Agricultural Bank of China issued a notice that they will not participate in virtual currency transactions and related activities. Customer accounts participating in such activities will be closed and customer relationships will be terminated. [#bitcoin](https://twitter.com/hashtag/bitcoin?src=hash&amp;ref_src=twsrc%5Etfw) [#Cryptocurency](https://twitter.com/hashtag/Cryptocurency?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/vXKNdilmky](https://t.co/vXKNdilmky)
-> — 8BTCnews (@btcinchina) [June 21, 2021](https://twitter.com/btcinchina/status/1406862687313686531?ref_src=twsrc%5Etfw)
 
 
 
-参考文章：[农业银行：禁止使用我行服务用于比特币等虚拟货币交易](https://finance.sina.com.cn/tech/2021-06-21/doc-ikqciyzk0908636.shtml)
 
-本文仅代表作者本人观点，不代表Gnews平台
+为了爱情，我辞去了在日本大阪某大学的终身正教授之职，来到美国，和我英俊、聪明、浪漫的美国先生一起幸福地生活着（他曾是我们大学美国分校的英文老师，在我作为国际交流委员带领着64名日本学生进行欧美文化研修时，我们在这所分校一见钟情）。直到有一天，他在周末骑自行车赛车50英里回家的路上，被一个酒驾的女演员活活地被撞死了……我的心当时也随他一起去了……
 
-* * *
 
-排版发布：日本东京方舟农场 文柯Miles
+
+**文字版原文：[【战友心声】做好幸福鸟](https://gnews.org/zh-hans/1337893/)**
+
+作者：纽约香草山健身部 幸福鸟
+
+
+
+音频处理/发稿：雪梨
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/05/01133101/WhatsApp-Image-2021-04-16-at-10.26.12-AM.jpeg)
+
+**更多资讯，更多关注**
+
+[**纽约香草山农场GTV-香草山之声**](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)
+
+**[纽约香草山农场GTV-MOS TALK香草山访谈](https://gtv.org/getter/601aeffdf5b9e26ca9d7ad10)**
+
+**[纽约香草山农场Twitter(中文)](https://twitter.com/HIMALAYA_MOS)**
+
+[**纽约香草山农场Twitter(英文)**](https://twitter.com/MosHimalaya)
+
+[**纽约香草山农场 YouTube**](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)
 
 0
